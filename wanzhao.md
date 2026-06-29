@@ -1,47 +1,57 @@
-# 农发行上海市分行被罚134万元：违反金融统计管理规定
+# 北语世界文化节：一天“逛遍五大洲” 只花不到五十块！
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-4月30日金融一线消息，据中国人民银行上海市分行行政处罚信息公示表显示，中国农业发展银行上海市分行因违反金融统计管理规定，被警告，罚款人民币134万元。 责任编辑：秦艺
+发布时间：2026年04月26日 18:56 来源：中国新闻网 4月25日，北京语言大学举行第二十一届世界文化节游园会。在五大洲展区，各国风情交相辉映，100余个文化展位构成了一幅生动的世界文化地图。在这里，亚洲、欧洲、美洲、非洲、大洋洲多国青年齐聚一堂，不用买机票一天就能“逛遍五大洲”。 波兰语的绕口令怎么说？哥斯达黎加的国花是什么？快来和小新一起“速通五大洲”涨知识。(记者
 
 ## 正文
 
-4月30日金融一线消息，据中国人民银行上海市分行行政处罚信息公示表显示，中国农业发展银行上海市分行因违反金融统计管理规定，被警告，罚款人民币134万元。
+发布时间：2026年04月26日 18:56 来源：中国新闻网 4月25日，北京语言大学举行第二十一届世界文化节游园会。
 
-责任编辑：秦艺
+在五大洲展区，各国风情交相辉映，100余个文化展位构成了一幅生动的世界文化地图。
+
+在这里，亚洲、欧洲、美洲、非洲、大洋洲多国青年齐聚一堂，不用买机票一天就能“逛遍五大洲”。
+
+波兰语的绕口令怎么说？
+
+哥斯达黎加的国花是什么？
+
+快来和小新一起“速通五大洲”涨知识。
+
+(记者 谢龙飞 实习生 林倬安） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 19:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 19:48 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 19:42 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 19:52 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 19:41 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 19:58 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 19:34 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 19:31 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 19:57 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 19:46 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 19:36 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 19:41 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 19:30 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 19:50 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 19:45 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 19:39 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 19:39 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 19:37 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 19:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 19:46 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 19:54 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 19:43 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 20:04 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 20:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 19:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 19:38 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/46473895.shtml)
-- 2026-06-29 19:41 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/37579433061.shtml)
-- 2026-06-29 19:46 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/120297668.shtml)
-- 2026-06-29 19:43 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/1697843368.shtml)
-- 2026-06-29 19:34 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/4630342008.shtml)
-- 2026-06-29 19:50 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/75373625821.shtml)
-- 2026-06-29 19:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/403377.shtml)
-- 2026-06-29 19:48 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/166065.shtml)
-- 2026-06-29 19:39 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.minike.top/Article/details/5202713.shtml)
-- 2026-06-29 19:40 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/708123.shtml)
-- 2026-06-29 19:41 - [北京发布地质灾害气象风险蓝色预警](https://www.share.minike.top/Article/details/2079477.shtml)
-- 2026-06-29 19:42 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/864247429.shtml)
-- 2026-06-29 19:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/5725231689.shtml)
-- 2026-06-29 19:32 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/547777.shtml)
-- 2026-06-29 19:58 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/59267.shtml)
+- 2026-06-29 19:54 - [本届世界杯已有5人涉性侵风波](https://www.blog.minike.top/Article/details/17588009.shtml)
+- 2026-06-29 19:44 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4669048587.shtml)
+- 2026-06-29 19:47 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/77986741.shtml)
+- 2026-06-29 20:03 - [叠纸](http://www.blog.minike.top/Article/details/1944233650.shtml)
+- 2026-06-29 20:02 - [沙丘](http://www.share.minike.top/Article/details/18606255.shtml)
+- 2026-06-29 19:58 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/92529147030.shtml)
+- 2026-06-29 20:04 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/31937423.shtml)
+- 2026-06-29 19:53 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/473112.shtml)
+- 2026-06-29 19:56 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/172166723.shtml)
+- 2026-06-29 19:47 - [毒液2](http://www.share.kurohicncr.top/Article/details/860087.shtml)
+- 2026-06-29 20:01 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/658295514.shtml)
+- 2026-06-29 20:00 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/755065.shtml)
+- 2026-06-29 19:37 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/9818562.shtml)
+- 2026-06-29 19:48 - [林逸向方筱然求婚了](https://www.share.minike.top/Article/details/866449260.shtml)
+- 2026-06-29 20:03 - [大马同意延长马航370残骸搜寻工作](https://www.blog.minike.top/Article/details/15677504.shtml)

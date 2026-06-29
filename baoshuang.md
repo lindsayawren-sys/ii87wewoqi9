@@ -1,57 +1,61 @@
-# 长城基金“科技+”视点：盈利驱动叙事下，关注AI基本面兑现
+# 营收再缩、净利反升：鄂尔多斯的“非典型”增长能持续吗？
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-近期公募基金一季报披露完毕，基金经理们的投资思路也“跃然纸上”。从披露情况来看，科技成长方向持续成为关注主线，AI产业链下游应用、卫星通信及商业航天等成长赛道频繁被提及。 市场当前的普遍共识是：这一轮科技革命或将持续较长时间，在短期波折中不改长期向上发展趋势。在此背景下，长城“科技+”领域基金经理们又是如何把握机遇呢？ 陈良栋：关注能源化工等涨价板块 2026年一季度，国内宏观
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，上市公司鄂尔多斯（600295.SH）发布了2025年年报，公司全年实现营收257.41亿元，同比下滑9.37%，连续第四年呈现负增长；归母净利润则结束了连续三年下跌的颓势，同比增长27.93%至23.63亿元。 证券之星了解到，公司“减收增利”的背后，主要得益于成本管控和财务优化带来
 
 ## 正文
 
-近期公募基金一季报披露完毕，基金经理们的投资思路也“跃然纸上”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-从披露情况来看，科技成长方向持续成为关注主线，AI产业链下游应用、卫星通信及商业航天等成长赛道频繁被提及。
+来源：证券之星 近日，上市公司鄂尔多斯（600295.SH）发布了2025年年报，公司全年实现营收257.41亿元，同比下滑9.37%，连续第四年呈现负增长；归母净利润则结束了连续三年下跌的颓势，同比增长27.93%至23.63亿元。
 
-市场当前的普遍共识是：这一轮科技革命或将持续较长时间，在短期波折中不改长期向上发展趋势。
+证券之星了解到，公司“减收增利”的背后，主要得益于成本管控和财务优化带来的短期红利，然而在营收端持续承压的背景下，这一“红利”能否持久仍存疑问。
 
-在此背景下，长城“科技+”领域基金经理们又是如何把握机遇呢？
+一方面，营业成本的大幅下降虽得益于供应链管理优化，但也受到原材料市场价格下跌的被动影响，其可持续性存在不确定性；另一方面，作为利润端的重要补充来源，投资收益较上年减少近4亿元，暴露了公司多元盈利渠道的收缩风险。
 
-陈良栋：关注能源化工等涨价板块 2026年一季度，国内宏观经济保持韧性，进出口数据表现超预期，市场流动性整体宽裕，风险偏好处于相对高位，结构性机会较为多元，特别是价格持续上涨的板块表现相对突出，包括有色金属、AI产业链上游材料、新老能源产业链等板块。
+当成本压降空间逐渐收窄，投资收益持续走弱时，公司利润端的韧性将面临真正的考验。
 
-与此同时，宏观经济内部分化依然显著，内需复苏节奏整体温和，社会消费品零售总额稳步修复但斜率偏缓，CPI同比处于温和回升区间，PPI同比降幅持续收窄、逐步临近转正关口。
+01． 毛利率逆增，多晶硅业务成“拖油瓶” 2025年，鄂尔多斯的营收较上年减少了约26.62亿元，但归母净利润却从上年同期的18.50亿元增至23.63亿元，多赚了约5亿元，核心原因在于成本降幅超过营收端。
 
-整体数据反映企业盈利仍处于渐进式修复通道，仍面临一定的需求与价格压力。
+年报显示，2025年公司营业成本从上年同期的225.38亿元降至192.27亿元，减少约33亿元，降幅达14.69%，显著超过9.37%的营收降幅。
 
-进入3月，受中东地缘冲突升级、美联储降息预期延后等海外因素影响，A股市场出现较大回调。
+这是公司毛利率从20.65%跃升至25.31%，净利率从6.93%攀升至10.36%的重要推手。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 19:51 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 19:54 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 19:35 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 19:34 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 19:38 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 19:57 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 19:42 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 19:47 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 19:57 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 19:34 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 19:36 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 19:57 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 20:02 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 19:39 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 19:58 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 19:38 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 19:52 - [韩文体部对韩足协开展审计 查出局原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 19:37 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 19:55 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-29 19:54 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 19:36 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 20:05 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:52 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 20:00 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 20:01 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:33 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/19480.shtml)
-- 2026-06-29 19:41 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/09764438.shtml)
-- 2026-06-29 19:49 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/978960.shtml)
-- 2026-06-29 19:51 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/16493585.shtml)
-- 2026-06-29 19:41 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/1722074516.shtml)
-- 2026-06-29 19:32 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/65039102006.shtml)
-- 2026-06-29 19:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/743871.shtml)
-- 2026-06-29 19:31 - [世界杯预测史上最不吃压力之物](https://www.share.kurohicncr.top/Article/details/5667650736.shtml)
-- 2026-06-29 19:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/59487974954.shtml)
-- 2026-06-29 19:43 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/622165828795.shtml)
-- 2026-06-29 19:59 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/671353631133.shtml)
-- 2026-06-29 19:39 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/138527551001.shtml)
-- 2026-06-29 19:41 - [恋与深空客服的回应](https://www.blog.minike.top/Article/details/497746.shtml)
-- 2026-06-29 19:46 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/79509099223.shtml)
-- 2026-06-29 19:49 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/262439925909.shtml)
+- 2026-06-29 19:58 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/9597330.shtml)
+- 2026-06-29 19:49 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/302378024592.shtml)
+- 2026-06-29 19:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/43785524.shtml)
+- 2026-06-29 19:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/628467748.shtml)
+- 2026-06-29 20:03 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/54759895.shtml)
+- 2026-06-29 20:03 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/278230996323.shtml)
+- 2026-06-29 19:55 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/856385.shtml)
+- 2026-06-29 19:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/0571670087.shtml)
+- 2026-06-29 19:54 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/3264726.shtml)
+- 2026-06-29 19:48 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/88507809600.shtml)
+- 2026-06-29 19:59 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/7771284790.shtml)
+- 2026-06-29 20:03 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/26021749688.shtml)
+- 2026-06-29 19:44 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/96993.shtml)
+- 2026-06-29 20:00 - [逆天祖国人](https://www.share.minike.top/Article/details/269858.shtml)
+- 2026-06-29 20:05 - [中国妇女评网游娱乐化女性安全](https://www.share.minike.top/Article/details/0453717.shtml)

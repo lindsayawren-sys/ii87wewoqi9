@@ -1,56 +1,56 @@
-# 偷税被重罚，千万粉丝网红白冰一天掉粉超33万
+# （乡村行·看振兴）草原村排“潮”向远方
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月29日上午消息，昨日，国家税务总局公布一起偷税案件。经查，“探店”网红白冰在2021年至2024年期间通过转换收入性质、虚假申报等方式，少缴个人所得税、增值税、契税等税费共计911.18万元。国家税务总局依法对其作出追缴税费款、加收滞纳金并处罚款共计1891.24万元的处理处罚决定。目前，上述款项已全部追缴入库。 公开信息显示，白冰抖音账号“MR-白冰”粉丝数超
+中新网鄂尔多斯4月26日电 题：草原村排“潮”向远方 中新网记者 李爱平 一上午，刘刚的脚步几乎没停下来，他一边为宾客介绍店内的文创产品，一边还要从冰箱里取出雪糕供大家品尝。 刘刚是内蒙古自治区鄂尔多斯市鄂托克前旗草原村排文创会客厅的负责人。4月24日至26日，“劳动者杯”2026中国职工气排球锦标赛鄂尔多斯站暨草原村排系列赛在他的家乡开赛。来自全国各地的运动员、教练员纷纷来到
 
 ## 正文
 
-新浪科技讯 4月29日上午消息，昨日，国家税务总局公布一起偷税案件。
+中新网鄂尔多斯4月26日电 题：草原村排“潮”向远方 中新网记者 李爱平 一上午，刘刚的脚步几乎没停下来，他一边为宾客介绍店内的文创产品，一边还要从冰箱里取出雪糕供大家品尝。
 
-经查，“探店”网红白冰在2021年至2024年期间通过转换收入性质、虚假申报等方式，少缴个人所得税、增值税、契税等税费共计911.18万元。
+刘刚是内蒙古自治区鄂尔多斯市鄂托克前旗草原村排文创会客厅的负责人。
 
-国家税务总局依法对其作出追缴税费款、加收滞纳金并处罚款共计1891.24万元的处理处罚决定。
+4月24日至26日，“劳动者杯”2026中国职工气排球锦标赛鄂尔多斯站暨草原村排系列赛在他的家乡开赛。
 
-目前，上述款项已全部追缴入库。
+来自全国各地的运动员、教练员纷纷来到这个会客厅“打卡”。
 
-公开信息显示，白冰抖音账号“MR-白冰”粉丝数超4000万。
+去年8月，刘刚牵头整合昂素镇7个嘎查村集体资金，创办了这家村集体经济性质的文创会客厅。
 
-值得注意的是，昨天上午偷税案件曝光后，白冰抖音账号粉丝数量快速下滑，24小时从4049.6万迅速跌至4016.3万，一天掉粉33.3万。
+随着前来“打卡”的人数日益增多，他愈发感觉到草原村排“钱景广阔”。
 
-责任编辑：杨赐
+位于内蒙古自治区西部的鄂托克前旗，总人口10.3万人。
+
+1968年，千余名南京知青赴鄂尔多斯插队，并将排球带到草原。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 19:31 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 19:45 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 19:53 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 19:52 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 19:53 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 19:49 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 19:34 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 19:44 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 19:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 19:34 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 19:46 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 19:36 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 19:36 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 19:50 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:42 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 20:03 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 19:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 19:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 19:51 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 19:59 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 19:47 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [北京市发布雷电黄色预警](https://www.blog.kurohicncr.top/Article/details/94077.shtml)
-- 2026-06-29 19:33 - [明天睁眼按时来取代我](http://www.share.minike.top/Article/details/63979.shtml)
-- 2026-06-29 19:38 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/628388590.shtml)
-- 2026-06-29 19:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/6324934541.shtml)
-- 2026-06-29 19:49 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/817774.shtml)
-- 2026-06-29 19:30 - [法生态部长反对装空调却自己吹空调](http://www.share.kurohicncr.top/Article/details/2061971011.shtml)
-- 2026-06-29 19:56 - [北京发布地质灾害气象风险蓝色预警](http://www.share.kurohicncr.top/Article/details/83152250.shtml)
-- 2026-06-29 19:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/58448641799.shtml)
-- 2026-06-29 19:35 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/3788103800.shtml)
-- 2026-06-29 19:37 - [明星大侦探第四季](http://www.share.minike.top/Article/details/9684376458.shtml)
-- 2026-06-29 19:52 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/0080960425.shtml)
-- 2026-06-29 19:49 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/0646162.shtml)
-- 2026-06-29 19:56 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/772511.shtml)
-- 2026-06-29 19:42 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/6814984438.shtml)
-- 2026-06-29 19:47 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/00712941.shtml)
+- 2026-06-29 20:01 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/1108212826.shtml)
+- 2026-06-29 19:36 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/1854320.shtml)
+- 2026-06-29 19:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/555810.shtml)
+- 2026-06-29 19:44 - [啊啊啊](http://www.blog.minike.top/Article/details/95282463.shtml)
+- 2026-06-29 19:44 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/606952.shtml)
+- 2026-06-29 19:58 - [斛珠夫人](https://www.blog.minike.top/Article/details/88368.shtml)
+- 2026-06-29 19:50 - [三星SK海力士和美光在美遭反垄断诉讼](http://www.share.minike.top/Article/details/53647.shtml)
+- 2026-06-29 19:56 - [CORTIS登机迟到致航班延误](https://www.blog.minike.top/Article/details/30215371185.shtml)
+- 2026-06-29 19:47 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/010641515.shtml)
+- 2026-06-29 19:57 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/8278520244.shtml)
+- 2026-06-29 19:36 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/878659705.shtml)
+- 2026-06-29 19:47 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/721419777.shtml)
+- 2026-06-29 19:58 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/844287215.shtml)
+- 2026-06-29 19:52 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/1462108.shtml)
+- 2026-06-29 19:36 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/41313.shtml)

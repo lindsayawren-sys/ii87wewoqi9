@@ -1,58 +1,61 @@
-# 中国制造业PMI连续两月高于临界点 市场预期持续增强
+# 去年广州海关查扣进出口侵权嫌疑货物970.4万件
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新社北京4月30日电 (记者 王恩博)中国国家统计局4月30日公布，4月份，中国制造业采购经理指数(PMI)为50.3%，略低于上月0.1个百分点。这项反映宏观经济运行情况的先行指标已连续两个月高于临界点。 国家统计局服务业调查中心首席统计师霍丽慧表示，4月份，生产指数为51.5%，新订单指数为50.6%，均继续高于临界点。在产需继续扩张等因素带动下，企业采购意愿进一步增强，
+中新网广州4月25日电 (记者 许青青)今年4月26日是第26个“世界知识产权日”，海关知识产权保护专项行动——“龙腾行动”也迎来实施十周年。据广州海关介绍，近年来该关对进出口环节侵权行为持续保持打击高压态势，2025年，广州海关依法查扣进出口侵权嫌疑货物4158批次、涉及货物970.4万件。2026年一季度，广州海关共查扣进出口侵权嫌疑货物457批次、涉及货物106.9万件。
 
 ## 正文
 
-中新社北京4月30日电 (记者 王恩博)中国国家统计局4月30日公布，4月份，中国制造业采购经理指数(PMI)为50.3%，略低于上月0.1个百分点。
+中新网广州4月25日电 (记者 许青青)今年4月26日是第26个“世界知识产权日”，海关知识产权保护专项行动——“龙腾行动”也迎来实施十周年。
 
-这项反映宏观经济运行情况的先行指标已连续两个月高于临界点。
+据广州海关介绍，近年来该关对进出口环节侵权行为持续保持打击高压态势，2025年，广州海关依法查扣进出口侵权嫌疑货物4158批次、涉及货物970.4万件。
 
-国家统计局服务业调查中心首席统计师霍丽慧表示，4月份，生产指数为51.5%，新订单指数为50.6%，均继续高于临界点。
+2026年一季度，广州海关共查扣进出口侵权嫌疑货物457批次、涉及货物106.9万件。
 
-在产需继续扩张等因素带动下，企业采购意愿进一步增强，采购量指数升至51.1%。
+依法保护企业知识产权，助力企业自主创新开拓国际市场，是知识产权海关保护工作一贯的重点。
 
-分企业类型看，大型企业PMI为50.2%，连续5个月高于临界点；中、小型企业PMI分别为50.5%和50.1%，比上月上升1.5个和0.8个百分点，双双升至扩张区间，景气水平明显回升。
+2025年3月，广州海关所属南沙海关在对一票以一般贸易方式申报出口的货物进行查验时，查获侵犯常州瑞峰新能源有限公司“RESTARSOLAR及图形”商标权的太阳能板1084块。
 
-4月份，三大重点行业延续扩张态势。
+“光伏产业是‘新三样’的代表产业之一，是中国外贸的‘新名片’。
 
-其中，高技术制造业和装备制造业PMI分别为52.2%和51.8%，比上月上升0.1个和0.3个百分点；消费品行业PMI为50.7%，继续保持在扩张区间。
+”南沙海关案件管理三科副科长胡立表示，海关及时拦截侵犯自主品牌知识产权的太阳能板，堵截低质、不安全产品流入国际市场，有利于维护“中国制造”的良好形象。
 
-受近期部分大宗商品价格高位波动等因素影响，当月主要原材料购进价格指数和出厂价格指数分别为63.7%和55.1%，继续位于近年来高位，制造业市场价格总体水平上涨明显。
+为助力打造粤港澳大湾区知识产权保护高地，广州海关依托粤港澳海关知识产权合作机制，与香港、澳门海关常态化开展联合执法、案件信息通报、交流研讨等合作。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
-- 2026-06-29 19:44 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 19:50 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 19:56 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 19:40 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 19:43 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 19:33 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 19:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 19:33 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 19:48 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 19:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-29 19:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 19:36 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 19:49 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 19:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 19:49 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 19:43 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 20:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 19:51 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 19:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 19:46 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 19:45 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 20:00 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 19:44 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 19:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 20:05 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 20:01 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:49 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/85791190.shtml)
-- 2026-06-29 19:55 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/1672911.shtml)
-- 2026-06-29 19:51 - [官方通报一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/18823010.shtml)
-- 2026-06-29 19:55 - [RAY评乘风2026总决赛](http://www.blog.minike.top/Article/details/51397724191.shtml)
-- 2026-06-29 19:39 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.kurohicncr.top/Article/details/788033984027.shtml)
-- 2026-06-29 19:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.kurohicncr.top/Article/details/137246532552.shtml)
-- 2026-06-29 19:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/259639.shtml)
-- 2026-06-29 19:32 - [请回答王牌2019](https://www.blog.minike.top/Article/details/4327283033.shtml)
-- 2026-06-29 19:40 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.minike.top/Article/details/68551822.shtml)
-- 2026-06-29 19:47 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/0306309967.shtml)
-- 2026-06-29 19:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/8545071333.shtml)
-- 2026-06-29 19:58 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/35782974014.shtml)
-- 2026-06-29 19:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/552761716.shtml)
-- 2026-06-29 19:35 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/431083025643.shtml)
-- 2026-06-29 19:49 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/10494208.shtml)
+- 2026-06-29 19:52 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/29698820268.shtml)
+- 2026-06-29 20:03 - [海口塔吊事故处罚结果公布](http://www.share.kurohicncr.top/Article/details/574391950.shtml)
+- 2026-06-29 19:54 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/174079393.shtml)
+- 2026-06-29 20:02 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/696057.shtml)
+- 2026-06-29 19:54 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/22730658439.shtml)
+- 2026-06-29 19:36 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/5592491.shtml)
+- 2026-06-29 19:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/37515074599.shtml)
+- 2026-06-29 19:36 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/586632862.shtml)
+- 2026-06-29 19:44 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/345066061788.shtml)
+- 2026-06-29 19:51 - [金牌调解](https://www.share.kurohicncr.top/Article/details/80024.shtml)
+- 2026-06-29 19:44 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/5257857.shtml)
+- 2026-06-29 20:03 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/789411612.shtml)
+- 2026-06-29 19:55 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/940288435.shtml)
+- 2026-06-29 19:42 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/638855.shtml)
+- 2026-06-29 19:47 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.minike.top/Article/details/17529.shtml)

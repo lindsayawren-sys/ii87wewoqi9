@@ -1,57 +1,56 @@
-# 招商银行王良到龄退休，王小青接任第五任行长
+# 野村股价下挫 第四财季利润不及分析师预期
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-每经记者|赵景致 每经编辑|许绍航 招商银行将迎来第五任行长。 有消息称，2026年4月30日，招商银行上午召开相关会议，宣布王小青接任招商银行党委书记，《每日经济新闻》记者从相关人士处得到证实。 根据该行公司章程“党委书记、行长由一人担任”的规定，在履行董事会审议及监管核准等法定程序后，王小青将正式出任招商银行第五任行长，掌舵这家资产规模超13万亿元银行。 与此同时，任职行长
+野村控股股价下跌，此前该公司公布的第四财季利润低于分析师预期，原因是资产减记和欧洲业务亏损。 这份业绩报告在上周五收盘后公布，抵消了这家日本最大券商连续第二年净利润创纪录的积极表现。股价周一早盘在东京股市一度下跌6.5%，今年以来累计下跌超过4%，与基准东证指数9.7%的涨幅形成鲜明对比。 截至3月31日的三个月，净利润同比增长2.7%至739亿日元（4.63亿美元），低于分析
 
 ## 正文
 
-每经记者|赵景致 每经编辑|许绍航 招商银行将迎来第五任行长。
+野村控股股价下跌，此前该公司公布的第四财季利润低于分析师预期，原因是资产减记和欧洲业务亏损。
 
-有消息称，2026年4月30日，招商银行上午召开相关会议，宣布王小青接任招商银行党委书记，《每日经济新闻》记者从相关人士处得到证实。
+这份业绩报告在上周五收盘后公布，抵消了这家日本最大券商连续第二年净利润创纪录的积极表现。
 
-根据该行公司章程“党委书记、行长由一人担任”的规定，在履行董事会审议及监管核准等法定程序后，王小青将正式出任招商银行第五任行长，掌舵这家资产规模超13万亿元银行。
+股价周一早盘在东京股市一度下跌6.5%，今年以来累计下跌超过4%，与基准东证指数9.7%的涨幅形成鲜明对比。
 
-与此同时，任职行长四年、现年已超60岁的王良因到龄卸任，完成从“临危受命”到“平稳交棒”的关键任期。
+截至3月31日的三个月，净利润同比增长2.7%至739亿日元（4.63亿美元），低于分析师预期的989亿日元。
 
-记者注意到，接任者王小青在职业生涯中拥有着相当丰富的金融跨界履历。
+尽管野村全年利润创下3621亿日元的历史新高，但季度业绩可能再次引发人们对其持续盈利能力的质疑。
 
-此外，与王良相似，王小青同样是从银行基层做起。
+野村一直受益于全球市场的波动以及国内投资和并购活动的蓬勃发展。
 
-记者注意到，王小青于1971年10月生，现年54岁。
+随着伊朗战争给全球经济带来压力，未来几个季度可能对首席执行官Kentaro Okuda构成考验。
 
-王小青的职业生涯始于1992年的农业银行江苏省海安支行，从基层做起。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 19:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 19:55 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 19:43 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 19:55 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 19:40 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 19:31 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-29 19:53 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 19:54 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 19:39 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 19:46 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 19:46 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 19:51 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 19:49 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 20:05 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 19:58 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 19:40 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 20:02 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 19:38 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 20:02 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 20:00 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [流金岁月](https://www.share.kurohicncr.top/Article/details/674799505.shtml)
-- 2026-06-29 19:57 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/70632308966.shtml)
-- 2026-06-29 19:52 - [急先锋](http://www.blog.kurohicncr.top/Article/details/508749.shtml)
-- 2026-06-29 19:43 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/06774.shtml)
-- 2026-06-29 19:31 - [刘扬任湖南省副省长](https://www.share.kurohicncr.top/Article/details/30821.shtml)
-- 2026-06-29 19:46 - [挪威王储妃长子两次强奸获刑](https://www.share.minike.top/Article/details/40202904.shtml)
-- 2026-06-29 19:32 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/54592.shtml)
-- 2026-06-29 19:49 - [美国一牛仔表演发生事故](https://www.share.kurohicncr.top/Article/details/209307098734.shtml)
-- 2026-06-29 19:46 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/304430172.shtml)
-- 2026-06-29 19:47 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/20519164281.shtml)
-- 2026-06-29 19:43 - [爱很美味](https://www.share.kurohicncr.top/Article/details/17517329966.shtml)
-- 2026-06-29 19:43 - [首个靠AI躺赢的国家](https://www.share.minike.top/Article/details/110131.shtml)
-- 2026-06-29 19:36 - [海口塔吊事故处罚结果公布](http://www.share.minike.top/Article/details/67798.shtml)
-- 2026-06-29 19:48 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/73424524574.shtml)
-- 2026-06-29 19:34 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/9976951.shtml)
+- 2026-06-29 19:43 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/275349308841.shtml)
+- 2026-06-29 20:04 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/7620272031.shtml)
+- 2026-06-29 19:58 - [为何说今日日本似战前日本](http://www.share.minike.top/Article/details/3242254.shtml)
+- 2026-06-29 19:54 - [本届世界杯已有5人涉性侵风波](http://www.blog.kurohicncr.top/Article/details/046713571648.shtml)
+- 2026-06-29 20:04 - [韩国小学生都来吐槽了](http://www.blog.minike.top/Article/details/60414821056.shtml)
+- 2026-06-29 19:42 - [俄罗斯为何考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/4505047827.shtml)
+- 2026-06-29 19:48 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/695908.shtml)
+- 2026-06-29 19:43 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/7883434335.shtml)
+- 2026-06-29 19:50 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/99580819731.shtml)
+- 2026-06-29 20:04 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/1182526.shtml)
+- 2026-06-29 19:50 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/695480.shtml)
+- 2026-06-29 19:47 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/7956515258.shtml)
+- 2026-06-29 19:50 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/1774142.shtml)
+- 2026-06-29 19:59 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/1450704896.shtml)
+- 2026-06-29 19:57 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/22340285944.shtml)

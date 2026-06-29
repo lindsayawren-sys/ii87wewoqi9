@@ -1,57 +1,59 @@
-# 广州用“活”高价值专利 高额知识产权质押融资助企业发展
+# 长沙每万人有效发明专利拥有量超84件 创造能级稳步跃升
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (记者 王坚)广州近年大力推动知识产权质押融资工作，通过政策引导、搭建平台、集聚资源等手段，打造“政府引导、银行支持、机构参与、企业受益”的知识产权质押融资生态圈。据广州开发区知识产权局29日消息，该区政府年度质押融资总额由2016年的1.48亿元提高到2025年的156.87亿元，增长超100倍，知识产权高价值属性日益凸显。 在广州，高价值专利正积极促
+中新网长沙4月23日电(向一鹏)截至2025年底，长沙市有效发明专利拥有量达8.97万件，同比增长17.76%；每万人有效发明专利拥有量达84.45件，同比增长16.61%；有效注册商标总量达60.42万件，同比增长6.35%；地理标志达31件。第二十五届中国专利奖长沙斩获1金3银8优秀佳绩，连续五年摘得金奖，金奖数量稳居中西部第一。 23日举行的长沙市2025年度知识产权保护
 
 ## 正文
 
-中新网广州4月29日电 (记者 王坚)广州近年大力推动知识产权质押融资工作，通过政策引导、搭建平台、集聚资源等手段，打造“政府引导、银行支持、机构参与、企业受益”的知识产权质押融资生态圈。
+中新网长沙4月23日电(向一鹏)截至2025年底，长沙市有效发明专利拥有量达8.97万件，同比增长17.76%；每万人有效发明专利拥有量达84.45件，同比增长16.61%；有效注册商标总量达60.42万件，同比增长6.35%；地理标志达31件。
 
-据广州开发区知识产权局29日消息，该区政府年度质押融资总额由2016年的1.48亿元提高到2025年的156.87亿元，增长超100倍，知识产权高价值属性日益凸显。
+第二十五届中国专利奖长沙斩获1金3银8优秀佳绩，连续五年摘得金奖，金奖数量稳居中西部第一。
 
-在广州，高价值专利正积极促进企业成长。
+23日举行的长沙市2025年度知识产权保护工作情况新闻发布会透露了上述信息。
 
-作为全球领先的自动驾驶科技企业，广州文远知行科技有限公司深耕广州多年，布局形成知识产权超1000件。
+2025年，长沙聚焦服务创新创业创造主体，持续完善知识产权全链条保护体系，创造能级稳步跃升，转化运用加速突破，保护合力不断增强。
 
-2025年，该公司精心筛选多件核心发明专利作为质押标的，完成多笔专利质押融资业务，无人驾驶车辆的乘车方法、装置、设备、存储介质及终端(ZL2021114058313)等3件专利标的累计融资金额上亿元，有效补充公司研发投入、技术迭代及市场拓展所需资金。
+着力强化知识产权保护力度，长沙依法守护创新主体合法权益。
 
-与文远知行一样，摘得第十届广东省专利银奖的高勘(广州)技术有限公司也因高价值专利，获得广阔的发展空间。
+该市知识产权部门查办专利、商标案件312起，2起案件入选全国知识产权行政保护典型案例；成功调解知识产权纠纷688起，“茶颜悦色”跨省著作权纠纷调解案入选最高人民法院案例库。
 
-该公司2022年首贷质押的一件发明专利“一种在基站与终端之间的通信方法及相应的通信系统”(ZL202111090373.9)获得融资1000万元。
+全市两级法院审结知识产权案件8107件，检察机关审查起诉侵犯知识产权犯罪嫌疑人239人，公安机关知识产权领域刑事立案37起。
 
-广州开发区推出的知识产权金融专项政策，让企业核心专利真正“变现”的同时，大大降低了融资成本。
+海外保护体系日益健全，编制发布重点国别知识产权指引，为等企业产品出口开展预警分析，相关做法入选全国海外知识产权纠纷应对典型案例。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 19:40 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 19:59 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-29 19:41 - [CORTIS 小牌大耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 19:56 - [欧洲安装一台空调要花近8000元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-29 19:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 19:50 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 19:46 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 19:51 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 19:47 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 19:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-29 20:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 19:38 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 20:02 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 19:46 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 20:01 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 19:52 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 20:04 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 19:46 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 19:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 19:46 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 19:40 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 19:39 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 19:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/79191966893.shtml)
-- 2026-06-29 19:54 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/78215517514.shtml)
-- 2026-06-29 19:41 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/10315.shtml)
-- 2026-06-29 19:55 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/1763342838.shtml)
-- 2026-06-29 19:53 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/9939665.shtml)
-- 2026-06-29 19:46 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/0091379789.shtml)
-- 2026-06-29 19:40 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/522146183.shtml)
-- 2026-06-29 19:42 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/8794751933.shtml)
-- 2026-06-29 19:46 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/2741266.shtml)
-- 2026-06-29 19:58 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/329036392.shtml)
-- 2026-06-29 19:41 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/027997101.shtml)
-- 2026-06-29 19:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/241811.shtml)
-- 2026-06-29 19:43 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/650235.shtml)
-- 2026-06-29 19:42 - [许建琼任湖南省检察院副检察长](https://www.blog.minike.top/Article/details/907721.shtml)
-- 2026-06-29 19:34 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/89734611702.shtml)
+- 2026-06-29 19:37 - [时光音乐会](http://www.share.minike.top/Article/details/640115820936.shtml)
+- 2026-06-29 20:00 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/4768753428.shtml)
+- 2026-06-29 19:41 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/82718.shtml)
+- 2026-06-29 20:01 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/526055209.shtml)
+- 2026-06-29 19:51 - [互助版模拟高考志愿填报](https://www.share.kurohicncr.top/Article/details/3548035.shtml)
+- 2026-06-29 19:41 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/9503638.shtml)
+- 2026-06-29 19:36 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.kurohicncr.top/Article/details/8684269.shtml)
+- 2026-06-29 19:50 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/7568270.shtml)
+- 2026-06-29 19:54 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/7023675.shtml)
+- 2026-06-29 19:38 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/235902625.shtml)
+- 2026-06-29 19:54 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/8909271.shtml)
+- 2026-06-29 19:53 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/57732755.shtml)
+- 2026-06-29 19:42 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/773868.shtml)
+- 2026-06-29 19:41 - [朱雀三号重复使用遥二运载火箭新进展](http://www.blog.kurohicncr.top/Article/details/43975.shtml)
+- 2026-06-29 19:57 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/3510449.shtml)

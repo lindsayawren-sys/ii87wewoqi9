@@ -1,60 +1,57 @@
-# 假期闲钱往哪放？这个底仓品种吸金461亿
+# 美国将放宽大麻规定 470亿美元产业将发生重大转变
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-3月以来，全球市场波动明显加剧。地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？ 刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。在市场波动加剧的背景下，短债基金依然保持了可观的
+美国司法部周四表示，将立即放宽对一些大麻产品的限制，并迅速采取行动，将大麻重新归类为危险性较低的毒品，这是几十年来美国毒品政策最大的变化之一。 此举并不会使大麻在全美合法化，但很可能会重塑这个价值 470 亿美元的产业。尽管除两个州外，美国其他各州都已使大麻以某种形式合法化，用于医疗用途，近一半的州也已使大麻合法化，用于娱乐用途，但该产业在联邦层面仍面临重重障碍。 现在，由各州
 
 ## 正文
 
-3月以来，全球市场波动明显加剧。
+美国司法部周四表示，将立即放宽对一些大麻产品的限制，并迅速采取行动，将大麻重新归类为危险性较低的毒品，这是几十年来美国毒品政策最大的变化之一。
 
-地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。
+此举并不会使大麻在全美合法化，但很可能会重塑这个价值 470 亿美元的产业。
 
-面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？
+尽管除两个州外，美国其他各州都已使大麻以某种形式合法化，用于医疗用途，近一半的州也已使大麻合法化，用于娱乐用途，但该产业在联邦层面仍面临重重障碍。
 
-刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。
+现在，由各州监管的医用大麻产品将从海洛因等被归类为高度成瘾药物的类别转移到限制较少的类别，即滥用可能性较低至中等的产品，包括常见的止痛药、氯胺酮和睾丸素。
 
-据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。
+美国食品和药物管理局批准的大麻产品也将被归入这一类别。
 
-在市场波动加剧的背景下，短债基金依然保持了可观的资金流入，侧面印证了其作为资产配置底仓的独特价值——不投权益、主投高评级短期债券，波动可控，且假期票息收益不间断，恰好契合闲钱理财的核心诉求。
+代理司法部长托德-布兰奇（Todd Blanche）表示，美国政府还将加快推进一项更广泛的工作，将精神活性植物的所有用途重新归类为危险性较低的类别。
 
-眼下，五一小长假即将到来。
+这些措施可能会降低研究门槛，减轻税收负担，使企业更容易获得资金。
 
-需要留意的是，假期期间海外金融市场仍将正常交易，外围消息面存在不确定性。
+“这一重新分类行动允许对这种物质的安全性和有效性进行研究，最终为患者提供更好的护理，为医生提供更可靠的信息，”布兰奇在一份声明中说。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 19:56 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 19:31 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 19:30 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-29 19:38 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 19:49 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 19:46 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 19:51 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 19:58 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 19:36 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 19:50 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-29 19:33 - [海清4次陪跑白玉兰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 19:40 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 19:36 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 19:45 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 19:57 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 19:48 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 19:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 19:42 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 20:05 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 19:45 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 19:48 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 20:05 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-29 19:37 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 19:58 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:49 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/76071.shtml)
-- 2026-06-29 19:42 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/2923137422.shtml)
-- 2026-06-29 19:59 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/898742084306.shtml)
-- 2026-06-29 19:31 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/869717334634.shtml)
-- 2026-06-29 19:57 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/2151884357.shtml)
-- 2026-06-29 19:47 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/8063218689.shtml)
-- 2026-06-29 19:42 - [刘冰任河南南阳市代市长](https://www.share.minike.top/Article/details/822496.shtml)
-- 2026-06-29 19:57 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/2124929.shtml)
-- 2026-06-29 19:41 - [当我回母校教书](https://www.share.kurohicncr.top/Article/details/12240.shtml)
-- 2026-06-29 19:43 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/791872.shtml)
-- 2026-06-29 19:35 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/25692349482.shtml)
-- 2026-06-29 19:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/80651.shtml)
-- 2026-06-29 19:48 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/76574606.shtml)
-- 2026-06-29 19:42 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/641337.shtml)
-- 2026-06-29 19:38 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/842153282729.shtml)
+- 2026-06-29 19:47 - [金刚川](https://www.blog.kurohicncr.top/Article/details/42417412811.shtml)
+- 2026-06-29 19:37 - [天道](https://www.share.kurohicncr.top/Article/details/845844566634.shtml)
+- 2026-06-29 19:59 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/52969164.shtml)
+- 2026-06-29 19:43 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/036258342.shtml)
+- 2026-06-29 19:56 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/709868987331.shtml)
+- 2026-06-29 19:38 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/0145306685.shtml)
+- 2026-06-29 20:02 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/350423413.shtml)
+- 2026-06-29 19:41 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/380904458817.shtml)
+- 2026-06-29 19:43 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/499574.shtml)
+- 2026-06-29 19:45 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.kurohicncr.top/Article/details/52372696126.shtml)
+- 2026-06-29 19:42 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/1533266455.shtml)
+- 2026-06-29 19:56 - [海口塔吊事故处罚结果公布](http://www.blog.minike.top/Article/details/7586905397.shtml)
+- 2026-06-29 19:37 - [急先锋](http://www.share.minike.top/Article/details/775392.shtml)
+- 2026-06-29 20:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/08118159.shtml)
+- 2026-06-29 19:42 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/89730.shtml)

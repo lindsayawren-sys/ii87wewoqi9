@@ -1,60 +1,57 @@
-# “120W”充电头玩“文字游戏” 认准参数一眼避坑
+# 港股IPO创近五年新高 富国港股通成长精选即将于4月28日结束募集
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-充电头作为手机充电的重要工具之一，不仅决定了手机的实际充电速度，还关乎手机充电的安全问题。记者日前调查发现，市售的不少标称 “120W”的手机快充头，并非手机充电头的实际输出功率，“120W”只是商品的名称或型号名称而已。手机快充头玩“文字游戏”，暗藏哪些风险？消费者如何避坑？来看记者的报道。 “120W”不是实际功率 只是商品名或型号名 在电商平台内搜索“手机快充头”关键词可
+今年以来，港股IPO市场表现火热。据德勤统计，2026年第一季度，港股市场共迎来40家公司挂牌上市，合计募资1099.26亿港元，募资规模远超纳斯达克（约440.2亿港元）和纽交所（约402.2亿港元），稳居全球榜首，数量及募资额创下近五年同期高位。从行业分布上看，上市企业呈现鲜明的硬科技为主的特征。毕马威数据显示，A+H及特专科技公司两个板块贡献了近八成募资额，港股新经济活力
 
 ## 正文
 
-充电头作为手机充电的重要工具之一，不仅决定了手机的实际充电速度，还关乎手机充电的安全问题。
+今年以来，港股IPO市场表现火热。
 
-记者日前调查发现，市售的不少标称 “120W”的手机快充头，并非手机充电头的实际输出功率，“120W”只是商品的名称或型号名称而已。
+据德勤统计，2026年第一季度，港股市场共迎来40家公司挂牌上市，合计募资1099.26亿港元，募资规模远超纳斯达克（约440.2亿港元）和纽交所（约402.2亿港元），稳居全球榜首，数量及募资额创下近五年同期高位。
 
-手机快充头玩“文字游戏”，暗藏哪些风险？
+从行业分布上看，上市企业呈现鲜明的硬科技为主的特征。
 
-消费者如何避坑？
+毕马威数据显示，A+H及特专科技公司两个板块贡献了近八成募资额，港股新经济活力愈发突出。
 
-来看记者的报道。
+在此背景下，即将于4月28日结募的富国港股通成长精选混合（A 类：026923；C 类：026924）将通过聚焦港股高成长标的，助力投资者分享中国新经济红利。
 
-“120W”不是实际功率 只是商品名或型号名 在电商平台内搜索“手机快充头”关键词可以发现，有不少“标称120W”或者“67W”的快充头在售卖，商家宣称此类快充头支持多种类型的快充，速度快，价格低。
+跨境投资实力派 积淀不凡 富国港股通成长精选混合拟任基金经理为富国基金海外权益投资部副总监彭陈晨，她具有11年证券从业经验，超4年投资经理年限，出道即专注跨境投资。
 
-标称“120超级闪充”的充电头产品，介绍为适用于多个品牌的手机充电，号称使用了“充电黑科技”，更高效更小巧，安全快充不发烫。
+经年累月的深度研究与广度覆盖，让彭陈晨能够基于全球产业链视角，深度挖掘优质成长企业，并将GARP策略内化于自己的投资框架中。
 
-为了进一步验证，记者从主流电商平台，分别购买了11款不同品牌的快充头，商品到货后记者发现，所有快充头的包装或者本体上，都标注着“120W”或者“120W supercharge(超级快充)”等字样。
+她希望能以合理的价格买到尽可能高的成长，重视性价比和安全边际。
 
 ## 相关推荐
 
-- 2026-06-29 19:39 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 19:42 - [世界杯预测史上最不吃压力之物](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 19:40 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 19:35 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 19:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 19:44 - [叠纸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-29 19:49 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 19:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 19:32 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-29 19:55 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 19:59 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 19:53 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 19:31 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-29 19:31 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 19:45 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 20:03 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:47 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 19:40 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 19:59 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 20:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-29 19:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 19:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 19:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 19:51 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 20:02 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/5706810875.shtml)
-- 2026-06-29 19:52 - [许建琼任湖南省检察院副检察长](https://www.blog.kurohicncr.top/Article/details/99585.shtml)
-- 2026-06-29 19:58 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/128030312.shtml)
-- 2026-06-29 19:48 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/05473080.shtml)
-- 2026-06-29 19:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/6810216.shtml)
-- 2026-06-29 19:51 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/788699.shtml)
-- 2026-06-29 19:58 - [沙丘](https://www.share.kurohicncr.top/Article/details/479428868249.shtml)
-- 2026-06-29 19:49 - [葛军透露高考出题思路](http://www.share.kurohicncr.top/Article/details/157998650811.shtml)
-- 2026-06-29 19:47 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/348867727.shtml)
-- 2026-06-29 19:38 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/389036.shtml)
-- 2026-06-29 19:43 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/27978.shtml)
-- 2026-06-29 19:31 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/88205443.shtml)
-- 2026-06-29 19:46 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/38643.shtml)
-- 2026-06-29 19:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/86971.shtml)
-- 2026-06-29 19:41 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/1295345.shtml)
+- 2026-06-29 19:48 - [SK集团将投资400万亿韩元建芯片集群](https://www.share.kurohicncr.top/Article/details/15583286.shtml)
+- 2026-06-29 19:46 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/5656884792.shtml)
+- 2026-06-29 19:54 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/0451962.shtml)
+- 2026-06-29 20:03 - [扬名立万](https://www.blog.minike.top/Article/details/032467623.shtml)
+- 2026-06-29 19:36 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/39819416.shtml)
+- 2026-06-29 19:36 - [世界杯预测史上最不吃压力之物](https://www.blog.minike.top/Article/details/75356842472.shtml)
+- 2026-06-29 19:41 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/7177792.shtml)
+- 2026-06-29 20:01 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/714740341.shtml)
+- 2026-06-29 19:37 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/87230.shtml)
+- 2026-06-29 19:37 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/479234569.shtml)
+- 2026-06-29 19:53 - [T1零封KC MSI](http://www.blog.minike.top/Article/details/17229808140.shtml)
+- 2026-06-29 19:42 - [急先锋](https://www.blog.kurohicncr.top/Article/details/741956064.shtml)
+- 2026-06-29 19:55 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/981938614.shtml)
+- 2026-06-29 19:39 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/3076874479.shtml)
+- 2026-06-29 19:39 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/9629112126.shtml)

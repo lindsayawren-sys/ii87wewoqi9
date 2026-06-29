@@ -1,61 +1,57 @@
-# 通用电气医疗下调全年业绩预期 拟合并两大核心业务板块
+# 郑钦文无缘WTA1000马德里站单打16强
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。 这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。 通用电气医疗于周三公布： 全年调整后
+中新社北京4月27日电 当地时间26日举行的女子网球选手协会(WTA)1000马德里站单打第三轮比赛中，赛会32号种子、中国选手郑钦文以1:2被2号种子、哈萨克斯坦名将莱巴金娜逆转，无缘16强。 莱巴金娜本赛季状态火热，目前世界排名第二位，已斩获澳网和WTA500斯图加特站冠军。在因伤退出斯图加特站后，郑钦文在马德里站第二轮迎来红土赛季首秀，以2:1逆转战胜前澳网冠军、法网亚军
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 这家医学影像企业预计，此次整合将提升运营效率，同时更好地服务患者与客户 受本季度存储芯片、原油及货运成本大幅攀升拖累，通用电气医疗（GE HealthCare） 下调了全年利润预期。
+中新社北京4月27日电 当地时间26日举行的女子网球选手协会(WTA)1000马德里站单打第三轮比赛中，赛会32号种子、中国选手郑钦文以1:2被2号种子、哈萨克斯坦名将莱巴金娜逆转，无缘16强。
 
-这家医疗科技企业同时宣布，将合并旗下两大最大业务板块，通过整合提升医学影像业务运营效率，同时优化对患者及客户的服务能力。
+莱巴金娜本赛季状态火热，目前世界排名第二位，已斩获澳网和WTA500斯图加特站冠军。
 
-通用电气医疗于周三公布： 全年调整后每股收益预期下调至4.80–5.00 美元，此前预期为 4.95–5.15 美元；FactSet 调研分析师预期为 5.06 美元 / 股。
+在因伤退出斯图加特站后，郑钦文在马德里站第二轮迎来红土赛季首秀，以2:1逆转战胜前澳网冠军、法网亚军肯宁。
 
-公司维持全年内生营收增速 3%–4% 的指引不变。
+郑钦文和莱巴金娜此前交手四次，郑钦文三次告负，唯一一胜来自2024年WTA年终总决赛小组赛。
 
-首席执行官彼得・阿尔杜尼尼就下调盈利预期表示：“我们正采取审慎保守的经营策略。
+两人最近一次交手是在今年2月的WTA1000多哈站单打第三轮，伤愈复出不久的郑钦文以1:2不敌莱巴金娜，无缘八强。
 
-” 他补充称，公司计划通过产品调价与成本管控措施，抵消过半通胀带来的成本压力。
+26日的比赛是两人首次在红土球场上相遇。
 
-他同时表示：“重要的是，新一轮创新战略推进成效显著，将为未来营收与利润率增长蓄力。
+首盘，郑钦文在第五局实现关键破发，并将领先优势保持至局末，以6:4先下一城。
 
-” 公司盘前股价大跌 9.6%，报 61.93 美元。
+第二盘的局面更为胶着，郑钦文开局率先破发，不过莱巴金娜随后成功兑现第二个破发点、实现回破，郑钦文在第十局30:0领先的情况下连续发出三个双误，莱巴金娜盘末破发，以6:4将大比分扳平。
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 19:53 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 19:33 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 19:33 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 19:53 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 19:49 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
-- 2026-06-29 19:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 19:41 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 19:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 19:46 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 19:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 19:40 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-29 19:30 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 19:41 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 19:40 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 19:45 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 19:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 19:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 19:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 19:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 19:46 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 19:52 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 19:44 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 20:02 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 19:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 19:36 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/649366.shtml)
-- 2026-06-29 19:54 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/33842749.shtml)
-- 2026-06-29 19:30 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/43954.shtml)
-- 2026-06-29 19:54 - [刘冰任河南南阳市代市长](https://www.blog.kurohicncr.top/Article/details/411871722229.shtml)
-- 2026-06-29 19:58 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/7505371.shtml)
-- 2026-06-29 19:57 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/4935003047.shtml)
-- 2026-06-29 19:47 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/089920079161.shtml)
-- 2026-06-29 19:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/8464943519.shtml)
-- 2026-06-29 19:54 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/78396880.shtml)
-- 2026-06-29 19:45 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/54431209.shtml)
-- 2026-06-29 19:43 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/805652929.shtml)
-- 2026-06-29 19:35 - [王楚钦称抽签结果出来心情不好](http://www.blog.kurohicncr.top/Article/details/44024.shtml)
-- 2026-06-29 19:46 - [法生态部长反对装空调却自己吹空调](http://www.share.minike.top/Article/details/062454534.shtml)
-- 2026-06-29 19:34 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/53952779.shtml)
-- 2026-06-29 19:31 - [宜宾5.5级地震育儿嫂将婴儿护在身下](http://www.blog.minike.top/Article/details/59929.shtml)
+- 2026-06-29 19:37 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/65556.shtml)
+- 2026-06-29 19:41 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.blog.kurohicncr.top/Article/details/66082.shtml)
+- 2026-06-29 19:58 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/15076073.shtml)
+- 2026-06-29 19:50 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/502801203.shtml)
+- 2026-06-29 19:41 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/471624.shtml)
+- 2026-06-29 20:01 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/0150411998.shtml)
+- 2026-06-29 20:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/430097562280.shtml)
+- 2026-06-29 19:39 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/480639359918.shtml)
+- 2026-06-29 19:40 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/992246348.shtml)
+- 2026-06-29 19:46 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/5925267.shtml)
+- 2026-06-29 19:40 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/884515.shtml)
+- 2026-06-29 19:47 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/2913766540.shtml)
+- 2026-06-29 19:39 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.minike.top/Article/details/030919542860.shtml)
+- 2026-06-29 20:00 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/561127.shtml)
+- 2026-06-29 19:38 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/5553707.shtml)

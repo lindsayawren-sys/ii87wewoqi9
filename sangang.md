@@ -1,57 +1,54 @@
-# 光大期货0430黄金点评：油价飙升叠加美联储按兵不动，金价继续承压
+# 印度僧侣参访西藏佛学院 称此行为“认知之旅”
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-4月29日，COMEX黄金震荡走低，尾盘企稳，报收4557.3美元/盎司，跌幅1.11%。国内SHFE金夜盘低开震荡，报收1003.66元/克，跌幅0.83%。 当地时间4月29日周三，美联储公布利率决议，如期按兵不动，美联储理事米兰要求降息，此外另有三位票委反对，他们不支持FOMC声明保留宽松倾向。美联储声明公布后，面对美联储内部34年来的最大分歧，美债、美股、黄金走低。不过
+发布时间：2026年04月25日 19:25 来源：中国新闻网 4月24日，由印度、俄罗斯、韩国、蒙古国、老挝等9个国家的宗教人士组成的参访团前往西藏佛学院，就佛学教育与文化传承展开深度交流。其中，来自印度加尔各答三菩提寺的住持Arunjyoti Sraman将此行称为一次跨越国界的“认知之旅”。在佛学院参访期间，他实地观摩了僧人辩经和少年活佛的修学生活。拥有41年出家经历的他
 
 ## 正文
 
-4月29日，COMEX黄金震荡走低，尾盘企稳，报收4557.3美元/盎司，跌幅1.11%。
+发布时间：2026年04月25日 19:25 来源：中国新闻网 4月24日，由印度、俄罗斯、韩国、蒙古国、老挝等9个国家的宗教人士组成的参访团前往西藏佛学院，就佛学教育与文化传承展开深度交流。
 
-国内SHFE金夜盘低开震荡，报收1003.66元/克，跌幅0.83%。
+其中，来自印度加尔各答三菩提寺的住持Arunjyoti Sraman将此行称为一次跨越国界的“认知之旅”。
 
-当地时间4月29日周三，美联储公布利率决议，如期按兵不动，美联储理事米兰要求降息，此外另有三位票委反对，他们不支持FOMC声明保留宽松倾向。
+在佛学院参访期间，他实地观摩了僧人辩经和少年活佛的修学生活。
 
-美联储声明公布后，面对美联储内部34年来的最大分歧，美债、美股、黄金走低。
+拥有41年出家经历的他表示，此前从未见过这样的辩经形式，这种将思辨与修学相结合的方式，让他对藏传佛教的教育体系有了新的认识，也为尼众教育提供了启发。
 
-不过美联储主席鲍威尔在他最后一次作为主席的发布会上，整体发言中性偏鸽，黄金自日低走高。
-
-地缘政治方面，霍尔木兹僵局正从短期冲击演变为持久重定价。
-
-特朗普宣称封锁“比轰炸更有效”并拒绝伊朗三阶段谈判方案，布伦特原油连涨八日逼近122美元创两年新高，30年期美债收益率突破5%，美国汽油价格升至战争以来最高。
-
-市场已不再押注海峡突然重开，而是将“数月封锁”计入价格，伊朗议长称油价的下一步是140美元。
+(谢牧) 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 19:56 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 19:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 19:38 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-29 19:58 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 19:57 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 19:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 19:47 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 19:35 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 19:47 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 19:52 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 19:52 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-29 19:51 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 19:51 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 19:44 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 19:51 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 19:37 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 19:56 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 19:48 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 19:40 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 20:01 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 19:48 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 19:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 19:37 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 19:50 - [葛军透露高考出题思路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/62122.shtml)
-- 2026-06-29 19:45 - [滚石点名酒店员工说有急救培训](http://www.blog.kurohicncr.top/Article/details/19964029.shtml)
-- 2026-06-29 19:56 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/48525.shtml)
-- 2026-06-29 19:36 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/677653514474.shtml)
-- 2026-06-29 19:44 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/6745650032.shtml)
-- 2026-06-29 19:45 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/2716361.shtml)
-- 2026-06-29 19:40 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.kurohicncr.top/Article/details/46285622377.shtml)
-- 2026-06-29 19:53 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/250755555.shtml)
-- 2026-06-29 19:46 - [第一炉香](https://www.share.kurohicncr.top/Article/details/85923857411.shtml)
-- 2026-06-29 19:40 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/445602379.shtml)
-- 2026-06-29 19:31 - [刘扬任湖南省副省长](https://www.blog.minike.top/Article/details/08177508986.shtml)
-- 2026-06-29 19:43 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/78674759190.shtml)
-- 2026-06-29 19:37 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0906625987.shtml)
-- 2026-06-29 19:57 - [沉睡花园](http://www.share.minike.top/Article/details/0370774.shtml)
-- 2026-06-29 19:40 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/6440650660.shtml)
+- 2026-06-29 19:43 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/666008176.shtml)
+- 2026-06-29 19:39 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/14738068260.shtml)
+- 2026-06-29 19:54 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/145438.shtml)
+- 2026-06-29 19:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/6328266646.shtml)
+- 2026-06-29 19:42 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/6084618714.shtml)
+- 2026-06-29 19:59 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/925745464721.shtml)
+- 2026-06-29 19:41 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/2880049.shtml)
+- 2026-06-29 19:44 - [面对热浪欧洲人为何陷入空调内耗](http://www.share.kurohicncr.top/Article/details/912530233823.shtml)
+- 2026-06-29 19:49 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/108970431978.shtml)
+- 2026-06-29 19:45 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/803248.shtml)
+- 2026-06-29 19:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/06696097.shtml)
+- 2026-06-29 19:59 - [当我回母校教书](http://www.share.minike.top/Article/details/85845860718.shtml)
+- 2026-06-29 19:45 - [斗破苍穹](https://www.blog.minike.top/Article/details/8227168598.shtml)
+- 2026-06-29 19:48 - [天道](http://www.share.kurohicncr.top/Article/details/1442674.shtml)
+- 2026-06-29 19:44 - [海清4次陪跑白玉兰](https://www.share.kurohicncr.top/Article/details/471823.shtml)

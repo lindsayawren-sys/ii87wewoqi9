@@ -1,58 +1,61 @@
-# 我国将多举措推进服务业扩能提质
+# 中芯国际继续大涨逾7%，规模最大港股通信息技术ETF（159131）强势涨超2%，资金加速申购3300万份
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：国务院新闻办公室4月28日举行国务院政策例行吹风会，国家发展改革委、商务部、文化和旅游部、市场监管总局、工业和信息化部有关负责人介绍《关于推进服务业扩能提质的意见》相关情况。 据介绍，《关于推进服务业扩能提质的意见》近日印发，提出到2030年服务业总规模迈上100万亿元台阶，这意味着在“十五五”期间有20万亿元的增长空间。在定性目标方面，《意见》提出，要
+4月27日，港股硬科技再度发力，中芯国际继上周五飙涨逾10%后再度上涨逾7%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高逾2%，资金持续涌入，实时申购3300万份。 银河证券指出，上周港股“能源避险与科技进攻”并行，地缘反复主导板块分化： 首先，4月24日，DeepSeek宣布全新系列模型DeepSeek-V4的预览版本正式上线并同步开源。
 
 ## 正文
 
-央视网消息(新闻联播)：国务院新闻办公室4月28日举行国务院政策例行吹风会，国家发展改革委、商务部、文化和旅游部、市场监管总局、工业和信息化部有关负责人介绍《关于推进服务业扩能提质的意见》相关情况。
+4月27日，港股硬科技再度发力，中芯国际继上周五飙涨逾10%后再度上涨逾7%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高逾2%，资金持续涌入，实时申购3300万份。
 
-据介绍，《关于推进服务业扩能提质的意见》近日印发，提出到2030年服务业总规模迈上100万亿元台阶，这意味着在“十五五”期间有20万亿元的增长空间。
+银河证券指出，上周港股“能源避险与科技进攻”并行，地缘反复主导板块分化： 首先，4月24日，DeepSeek宣布全新系列模型DeepSeek-V4的预览版本正式上线并同步开源。
 
-在定性目标方面，《意见》提出，要基本形成质量更高、结构更优、品质更佳、活力更足的发展格局，培育更多“中国服务”品牌。
+AI芯片层，寒武纪宣布完成Day 0级别的适配，并将适配代码同步开源；华为（昇腾）确认与DeepSeek-V4完成深度适配，从底层算力保障模型高效运行。
 
-《意见》部署了服务业扩能提质的“十个重点领域”。
+其次，自2026年3月起，全球CPU市场已进入新一轮涨价通道。
 
-在生产性服务业方面，将围绕科技服务、现代物流、软件和信息服务、供应链金融、节能环保服务、商务服务6个重点领域17个关键环节，促进研发设计专业化高端化、生产环节价值提升和市场价值实现。
+消费电子领域CPU价格涨幅在5%—10%之间，而服务器CPU因需求更为旺盛，价格涨幅高达10%—20%。
 
-通过强大的生产性服务业，为制造业竞争力提升提供有效的支撑。
+最后，英特尔2026年Q1营收136亿美元远超指引。
 
-在生活性服务业方面，将围绕居民服务、养老托育、健康服务、文旅体服务4个重点领域9个细分行业，对于文旅体等升级类服务，扩大有效供给；对个性化的服务，进一步做细做精，不断满足人民群众对美好生活的需要。
+得益于AI基础设施建设拉动，服务器CPU需求强劲复苏，CPU/GPU部署配比从1：8向1：4回升，其定制芯片（ASIC）年化收入已突破10亿美元。
+
+投资策略上，银河证券认为科技板块主线建议聚焦半导体/硬件设备，中芯国际等龙头有望持续受益。
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-29 19:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 19:45 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 19:32 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 19:31 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
-- 2026-06-29 19:55 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 19:38 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 19:45 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 19:54 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 19:50 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 19:38 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 19:45 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-29 19:40 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 19:35 - [海清4次陪跑白玉兰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-29 20:04 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 19:36 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 20:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 19:37 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 19:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 20:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 19:37 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 20:03 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 19:52 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 19:43 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 19:38 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 19:41 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 20:03 - [大学专业未来如何洗牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
+- 2026-06-29 19:44 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 19:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [扩军害了世界杯吗](http://www.blog.kurohicncr.top/Article/details/5415623085.shtml)
-- 2026-06-29 19:39 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/72303448805.shtml)
-- 2026-06-29 19:31 - [斗破苍穹](https://www.share.minike.top/Article/details/492439.shtml)
-- 2026-06-29 19:42 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/89793919.shtml)
-- 2026-06-29 19:38 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/95556894.shtml)
-- 2026-06-29 19:41 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/14105.shtml)
-- 2026-06-29 19:40 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://www.blog.minike.top/Article/details/54733.shtml)
-- 2026-06-29 19:57 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/3480774.shtml)
-- 2026-06-29 19:52 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/59057.shtml)
-- 2026-06-29 19:40 - [周杰伦演唱会含星量](https://www.share.minike.top/Article/details/507107.shtml)
-- 2026-06-29 19:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/62407.shtml)
-- 2026-06-29 19:48 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/643052822.shtml)
-- 2026-06-29 19:39 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/033356729655.shtml)
-- 2026-06-29 19:58 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/279087221565.shtml)
-- 2026-06-29 19:58 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/81673376.shtml)
+- 2026-06-29 20:02 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/128082808294.shtml)
+- 2026-06-29 20:03 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/37942.shtml)
+- 2026-06-29 19:45 - [做完数学题 韩国队回家了](http://www.share.kurohicncr.top/Article/details/849869063.shtml)
+- 2026-06-29 19:40 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/734948.shtml)
+- 2026-06-29 19:48 - [美人鱼](http://www.share.kurohicncr.top/Article/details/776541148.shtml)
+- 2026-06-29 19:42 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/70385.shtml)
+- 2026-06-29 19:52 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/603014.shtml)
+- 2026-06-29 19:44 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/363899543422.shtml)
+- 2026-06-29 20:02 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.blog.minike.top/Article/details/2312874049.shtml)
+- 2026-06-29 19:59 - [A股割裂行情有变化了吗](http://www.blog.kurohicncr.top/Article/details/005691686873.shtml)
+- 2026-06-29 19:53 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/36447222896.shtml)
+- 2026-06-29 19:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/6188255581.shtml)
+- 2026-06-29 20:00 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/699838035993.shtml)
+- 2026-06-29 19:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/8358034.shtml)
+- 2026-06-29 19:44 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/844477517275.shtml)

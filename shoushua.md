@@ -1,60 +1,61 @@
-# 关药房、砍业务，圆心科技深陷亏损泥潭六递招股书，估值缩水80亿元
+# 欧洲股市持稳 交易员密切关注伊朗相关新闻和企业财报
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-蓝鲸新闻4月28日讯（记者 邵雨婷） 近日，港交所官网显示，北京圆心科技集团股份有限公司（以下简称“圆心科技”）第六次向港交所递交上市申请，独家保荐人由中信证券与高盛联席保荐变更为华泰国际。 从2021年10月首次递表算起，这家中国最大的创新药商业化全链路服务商已在IPO之路上走了将近六年，其间五次递表失效，直至2024年首次通过港交所上市聆讯，却最终因发行价分歧、港股市场整体
+欧洲股市在连续三日下跌后出现震荡，交易员们一方面关注油价上涨以及关于伊朗停火的矛盾消息，另一方面则关注欧莱雅和雀巢发布的积极财报。 斯托克欧洲600指数收盘基本持平。阿斯麦控股股价下跌2.1%，此前台积电称将推迟至2029年后再将阿斯麦最先进的光刻机用于芯片生产。 本周以来，市场对伊朗与美国停火以及船只能否获准通过霍尔木兹海峡的担忧，一直令欧洲交易员感到不安。周四，美国总统唐纳
 
 ## 正文
 
-蓝鲸新闻4月28日讯（记者 邵雨婷） 近日，港交所官网显示，北京圆心科技集团股份有限公司（以下简称“圆心科技”）第六次向港交所递交上市申请，独家保荐人由中信证券与高盛联席保荐变更为华泰国际。
+欧洲股市在连续三日下跌后出现震荡，交易员们一方面关注油价上涨以及关于伊朗停火的矛盾消息，另一方面则关注欧莱雅和雀巢发布的积极财报。
 
-从2021年10月首次递表算起，这家中国最大的创新药商业化全链路服务商已在IPO之路上走了将近六年，其间五次递表失效，直至2024年首次通过港交所上市聆讯，却最终因发行价分歧、港股市场整体低迷错失上市窗口，沦为资本市场“悬案”。
+斯托克欧洲600指数收盘基本持平。
 
-如今六度递表，百亿营收规模之下是其深陷持续亏损的业绩泥潭，估值大幅缩水背后是行业竞争加剧与自身盈利模式的深层困境。
+阿斯麦控股股价下跌2.1%，此前台积电称将推迟至2029年后再将阿斯麦最先进的光刻机用于芯片生产。
 
-与前次递表相比，圆心科技主动下调估值至约195亿元，较F轮高点缩水约80亿元。
+本周以来，市场对伊朗与美国停火以及船只能否获准通过霍尔木兹海峡的担忧，一直令欧洲交易员感到不安。
 
-六度递表，估值下调80亿元 招股书显示，2015年3月，出身医药行业的何涛创立了圆心科技，定位为创新药商业化全链路服务商，聚焦院外患者服务与医药流通领域，目前，公司业务主要集中于为患者供应及交付药品。
+周四，美国总统唐纳德·特朗普下令美国海军开火击沉任何在该水道布雷的船只，这表明两国间的紧张局势依然较高。
 
-据弗若斯特沙利文报告，以2024年收入及创新药年度交付金额计，圆心科技是中国最大的创新药商业化全链路服务商。
+与此同时，受服务业急剧下滑影响，欧元区商业活动意外萎缩，这是自2024年底以来的首次。
 
-截至2025年12月31日，公司运营201家线下“圆心药房”，其中183家位于医院方圆一公里内。
+在财报季繁忙的一周里，投资者也在密切关注公司业绩表现。
 
-同时运营线上平台“妙手医生”，月均用户访问量达2700万次，此外，公司还涉及保险科技业务，但目前仍处于培育阶段。
+巴克莱欧洲股票策略主管Emmanuel Cau表示，“美伊谈判缺乏进展，可能在股市强劲反弹后给市场带来现实考验。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 19:57 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 19:40 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 19:44 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 19:36 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 19:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 19:49 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-29 19:57 - [学者：建设性战略稳定重塑中美关系](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 19:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 19:41 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 19:45 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 19:59 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 19:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 19:58 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 19:52 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 19:46 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
+- 2026-06-29 19:47 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-29 19:41 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 19:48 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 19:55 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 19:43 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 19:44 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 19:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 19:56 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 19:52 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 19:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 19:42 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 19:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 19:46 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:48 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/1069993.shtml)
-- 2026-06-29 19:43 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/367950127.shtml)
-- 2026-06-29 19:41 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/36891.shtml)
-- 2026-06-29 19:51 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/27743082.shtml)
-- 2026-06-29 19:52 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/554597148481.shtml)
-- 2026-06-29 19:36 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.minike.top/Article/details/12518.shtml)
-- 2026-06-29 19:45 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/0160453.shtml)
-- 2026-06-29 19:46 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.kurohicncr.top/Article/details/4164445.shtml)
-- 2026-06-29 19:36 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/748268236.shtml)
-- 2026-06-29 19:37 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/2867870406.shtml)
-- 2026-06-29 19:34 - [周生如故](https://www.blog.kurohicncr.top/Article/details/03402648678.shtml)
-- 2026-06-29 19:51 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/60812101030.shtml)
-- 2026-06-29 19:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/755123.shtml)
-- 2026-06-29 19:57 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/2570529.shtml)
-- 2026-06-29 19:33 - [章若楠包场白敬亭特立独行](https://www.blog.kurohicncr.top/Article/details/909495202244.shtml)
+- 2026-06-29 19:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/89955377395.shtml)
+- 2026-06-29 19:47 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/18545125533.shtml)
+- 2026-06-29 19:47 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/283568.shtml)
+- 2026-06-29 19:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/20016.shtml)
+- 2026-06-29 19:48 - [沙丘](https://www.share.kurohicncr.top/Article/details/169103073.shtml)
+- 2026-06-29 19:42 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.share.kurohicncr.top/Article/details/065420614455.shtml)
+- 2026-06-29 19:49 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/72222335695.shtml)
+- 2026-06-29 20:05 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/77747979.shtml)
+- 2026-06-29 19:57 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/278933216792.shtml)
+- 2026-06-29 19:59 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/565952.shtml)
+- 2026-06-29 19:50 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/8825105955.shtml)
+- 2026-06-29 19:37 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/3300928.shtml)
+- 2026-06-29 20:00 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/48741952.shtml)
+- 2026-06-29 19:45 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/3796187.shtml)
+- 2026-06-29 19:57 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/6601094458.shtml)

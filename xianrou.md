@@ -1,59 +1,56 @@
-# 海南通报6起违反中央八项规定精神问题
+# 受权发布|中共中央办公厅 国务院办公厅关于加强新就业群体服务管理的意见
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 据中央纪委国家监委网站消息，2026年“五一”、端午假期将至，为巩固拓展深入贯彻中央八项规定精神学习教育成果，一严到底纠治“四风”，切实发挥典型案例警示教育作用，海南省纪委监委现将全省查处的6起违反中央八项规定精神典型问题通报如下。1.省市场监督管理局、省知识产权局原党组书记、局长铁刚违规收受礼品、礼金等问题。2013年至2022年，铁刚多次收受私营企业主所
+新华社北京4月26日电 中共中央办公厅 国务院办公厅关于加强新就业群体服务管理的意见 (2025年10月29日) 新就业群体是社会主义劳动者的重要组成部分，是经济社会发展不可或缺的重要力量。当前我国新兴领域迅速发展，尤其是以互联网平台为支撑的新业态大量涌现，聚集了规模庞大的新就业群体。为加强新就业群体服务管理，经党中央、国务院同意，现提出如下意见。一、总体要求 坚持以习近平新时
 
 ## 正文
 
-中新网4月29日电 据中央纪委国家监委网站消息，2026年“五一”、端午假期将至，为巩固拓展深入贯彻中央八项规定精神学习教育成果，一严到底纠治“四风”，切实发挥典型案例警示教育作用，海南省纪委监委现将全省查处的6起违反中央八项规定精神典型问题通报如下。
+新华社北京4月26日电 中共中央办公厅 国务院办公厅关于加强新就业群体服务管理的意见 (2025年10月29日) 新就业群体是社会主义劳动者的重要组成部分，是经济社会发展不可或缺的重要力量。
 
-1.省市场监督管理局、省知识产权局原党组书记、局长铁刚违规收受礼品、礼金等问题。
+当前我国新兴领域迅速发展，尤其是以互联网平台为支撑的新业态大量涌现，聚集了规模庞大的新就业群体。
 
-2013年至2022年，铁刚多次收受私营企业主所送礼金、高档烟酒等礼品。
+为加强新就业群体服务管理，经党中央、国务院同意，现提出如下意见。
 
-2016年至2020年，铁刚在担任儋州市委副书记、政法委书记以及东方市委书记期间，长期借用私营企业主的车辆。
+一、总体要求 坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻党的二十大和二十届历次全会精神，坚持和加强党的全面领导，坚持以人民为中心，坚持以改革创新为动力，健全工作机制，强化统筹协调，注重综合施策，加强思想政治引领，做好凝聚服务工作，依法维护合法权益，构建和谐劳动关系，提升新就业群体获得感幸福感安全感，引导新就业群体听党话、跟党走，不断巩固党长期执政的阶级基础、群众基础、社会基础。
 
-铁刚还存在其他严重违纪违法问题。
+主要目标是：到2027年，上下联动、条块结合、有效协同的工作机制进一步完善，新就业群体党的组织和党的工作全面覆盖，劳动用工逐步规范，从业环境显著改善，合法权益有力保障。
 
-2025年11月，铁刚被开除党籍、开除公职，涉嫌犯罪问题被移送检察机关依法审查起诉。
+再过3至5年，新就业群体服务管理制度更加健全，思想政治引领更加有力，劳动关系更加和谐，从业环境更加友好，合法权益保障更加充分，职业认可度显著提升，新就业群体全面发展取得更为明显的实质性进展。
 
-2.海口桂林洋经济开发区工委原书记林道坚违规接受管理服务对象宴请和收受礼品、礼金问题。
+二、加强思想政治引领 (一)加强新就业群体思想政治工作。
 
-2012年至2022年，林道坚多次收受私营企业主及下属所送礼金、高档烟酒等礼品。
+坚持不懈用习近平新时代中国特色社会主义思想凝心铸魂，不断增进新就业群体对党的政治认同、思想认同、理论认同、情感认同。
 
 ## 相关推荐
 
-- 2026-06-29 19:42 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-29 19:31 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 19:35 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 19:39 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 19:41 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 19:46 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 19:50 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 19:48 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 19:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 19:34 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 19:31 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 19:59 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 19:51 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 19:58 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 19:58 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 19:55 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 19:41 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 19:57 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 19:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 19:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 19:53 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 19:38 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 20:05 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/477805686880.shtml)
-- 2026-06-29 19:44 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/371967.shtml)
-- 2026-06-29 19:38 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/22209767.shtml)
-- 2026-06-29 19:50 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/491240380.shtml)
-- 2026-06-29 19:55 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/4035963336.shtml)
-- 2026-06-29 19:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/081778.shtml)
-- 2026-06-29 19:45 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/41737038.shtml)
-- 2026-06-29 19:52 - [滚石就音乐人屠颖去世事件发声明](http://www.blog.kurohicncr.top/Article/details/679593.shtml)
-- 2026-06-29 19:31 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/1111508.shtml)
-- 2026-06-29 19:47 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/786580887744.shtml)
-- 2026-06-29 19:51 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/42784.shtml)
-- 2026-06-29 19:45 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/34044948.shtml)
-- 2026-06-29 19:52 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/725742278340.shtml)
-- 2026-06-29 19:58 - [爱很美味](https://www.blog.minike.top/Article/details/337461181.shtml)
-- 2026-06-29 19:59 - [一生一世](https://www.share.minike.top/Article/details/366767.shtml)
+- 2026-06-29 19:52 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/84559844167.shtml)
+- 2026-06-29 19:52 - [滚石点名酒店员工说有急救培训](http://www.share.kurohicncr.top/Article/details/104731.shtml)
+- 2026-06-29 20:02 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/74009.shtml)
+- 2026-06-29 20:00 - [时光音乐会](http://www.blog.minike.top/Article/details/85666793.shtml)
+- 2026-06-29 19:50 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/456276148772.shtml)
+- 2026-06-29 20:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/52364165.shtml)
+- 2026-06-29 20:02 - [女心理师](http://www.share.minike.top/Article/details/46837.shtml)
+- 2026-06-29 20:01 - [专家预计全球央行加息节奏将出现反复](http://www.blog.kurohicncr.top/Article/details/72764.shtml)
+- 2026-06-29 20:02 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/4685753.shtml)
+- 2026-06-29 19:48 - [流金岁月](http://www.share.minike.top/Article/details/46720265.shtml)
+- 2026-06-29 20:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/468596156.shtml)
+- 2026-06-29 19:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/732850.shtml)
+- 2026-06-29 19:53 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/43671633156.shtml)
+- 2026-06-29 19:42 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/09796919.shtml)
+- 2026-06-29 19:53 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/360765490959.shtml)

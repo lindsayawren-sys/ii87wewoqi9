@@ -1,61 +1,61 @@
-# 今年一季度河北省进出口总值1849亿元 创历史同期新高
+# （乡村行·看振兴）江苏扬州沙头镇：把“萌宠流量”变成“田园经济”
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网石家庄4月29日电 (赵丹媚 李玉素 解博匀)石家庄海关29日消息，今年一季度，河北省进出口总值1849亿元，创历史同期新高，同比增长35.8%，高于全国20.8个百分点。其中，出口1067亿元，同比增长28%；进口782亿元，同比增长48.2%。从数据看，今年一季度，河北省以市场参与度更高、更灵活的一般贸易方式进出口1523.6亿元，同比增长25.3%，占进出口总值的8
+中新网扬州4月25日电 (徐珊珊 朱轩卿)春和景明，万物竞发。4月25日，“乐在三江·漫游洲上”2026广陵区农文旅体融合发展主题活动启动仪式暨“乐活沙头周末农市”春日萌宠季活动在沙头镇小虹桥露营基地启动。这场以萌宠为核心的乡村盛会，将“宠物经济”与“田园休闲”深度绑定，沙头正打造扬州首个宠物友好型乡村度假目的地，开辟村集体经济增收新路径。 作为扬州沿江现代农业的核心区，沙头镇
 
 ## 正文
 
-中新网石家庄4月29日电 (赵丹媚 李玉素 解博匀)石家庄海关29日消息，今年一季度，河北省进出口总值1849亿元，创历史同期新高，同比增长35.8%，高于全国20.8个百分点。
+中新网扬州4月25日电 (徐珊珊 朱轩卿)春和景明，万物竞发。
 
-其中，出口1067亿元，同比增长28%；进口782亿元，同比增长48.2%。
+4月25日，“乐在三江·漫游洲上”2026广陵区农文旅体融合发展主题活动启动仪式暨“乐活沙头周末农市”春日萌宠季活动在沙头镇小虹桥露营基地启动。
 
-从数据看，今年一季度，河北省以市场参与度更高、更灵活的一般贸易方式进出口1523.6亿元，同比增长25.3%，占进出口总值的82.4%。
+这场以萌宠为核心的乡村盛会，将“宠物经济”与“田园休闲”深度绑定，沙头正打造扬州首个宠物友好型乡村度假目的地，开辟村集体经济增收新路径。
 
-以保税物流和加工贸易方式分别进出口213.9亿元、78.8亿元，分别同比增长166%、68.2%。
+作为扬州沿江现代农业的核心区，沙头镇的“乐活沙头·周末农市”已成为城乡消费者熟知的乡村文旅品牌。
 
-从贸易伙伴看，今年一季度，河北对拉美地区进出口266.4亿元，同比增长36.9%；对非洲进出口210.3亿元，同比增长97.6%。
+自2024年7月品牌亮相以来，沙头创新推出“一村一主题、一村一轮值”模式，带动农产品销售额大幅增长。
 
-同期，对澳大利亚进出口181.9亿元，同比增长7.5%；对欧盟进出口173.6亿元，同比增长34.9%。
+2025年，品牌迭代升级衍生出广沙夜市和沙头早市，构建起农文旅“三市”全时旅游体系，成功入选“2024-2025江苏文旅消费热力观察”优秀案例。
 
-此外，河北对共建“一带一路”国家进出口1203.2亿元，同比增长51.8%，占全省进出口总值的65.1%。
+2026年，沙头抢抓万亿级宠物经济消费风口，将“周末农市”品牌延伸至萌宠赛道，实现从“全时旅游”到“全龄+全家+全宠”的消费场景升级。
 
-出口新动能持续发力。
+本次春日萌宠季分两大板块：4月25日至26日的萌宠嘉年华，以及5月1日至3日接档的周末农市露营季。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 19:51 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 19:47 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 19:53 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 19:45 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 19:48 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 19:48 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 19:37 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 19:58 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 19:52 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 19:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 19:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-29 19:35 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 19:42 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-29 19:30 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 20:01 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 19:47 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 20:05 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 20:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 20:01 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 19:58 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 19:46 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 19:39 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 19:57 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 19:50 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 20:00 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 19:56 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 20:00 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 19:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 19:50 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [宜宾地震后铁路工作人员叫停列车](https://www.share.kurohicncr.top/Article/details/99960074.shtml)
-- 2026-06-29 19:48 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/35716906.shtml)
-- 2026-06-29 19:51 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/17550733.shtml)
-- 2026-06-29 19:49 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/3963938.shtml)
-- 2026-06-29 19:51 - [海清4次陪跑白玉兰](https://www.share.minike.top/Article/details/92631052.shtml)
-- 2026-06-29 19:54 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/4280357517.shtml)
-- 2026-06-29 19:59 - [叠纸客服回应恋与深空新角色争议](http://www.blog.minike.top/Article/details/6687520.shtml)
-- 2026-06-29 19:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/50762140.shtml)
-- 2026-06-29 19:45 - [“养路费”谁来交 油电车主大吵](http://www.blog.minike.top/Article/details/96093.shtml)
-- 2026-06-29 19:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/322190334731.shtml)
-- 2026-06-29 19:40 - [一家三口吃溪石斑鱼中毒](http://www.blog.kurohicncr.top/Article/details/300728.shtml)
-- 2026-06-29 19:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/8830811.shtml)
-- 2026-06-29 19:55 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.minike.top/Article/details/4063676.shtml)
-- 2026-06-29 19:32 - [刘扬任湖南省副省长](https://www.share.minike.top/Article/details/566255.shtml)
-- 2026-06-29 19:44 - [TLAW零封DCG MSI](http://www.blog.minike.top/Article/details/199427784.shtml)
+- 2026-06-29 19:59 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/94140858.shtml)
+- 2026-06-29 20:02 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/0415734344.shtml)
+- 2026-06-29 19:55 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/25369367.shtml)
+- 2026-06-29 19:38 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/1703091.shtml)
+- 2026-06-29 19:41 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/7949327370.shtml)
+- 2026-06-29 19:44 - [千与千寻](http://www.share.kurohicncr.top/Article/details/027244538.shtml)
+- 2026-06-29 19:38 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/368976188.shtml)
+- 2026-06-29 20:03 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/97854236959.shtml)
+- 2026-06-29 20:00 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/7698664.shtml)
+- 2026-06-29 19:57 - [孙俪开QQ的蛮好生活](https://www.share.kurohicncr.top/Article/details/18900.shtml)
+- 2026-06-29 19:46 - [扫黑风暴](https://www.blog.minike.top/Article/details/3034694029.shtml)
+- 2026-06-29 19:52 - [每天通勤往返3h的感觉](https://www.share.minike.top/Article/details/00275153.shtml)
+- 2026-06-29 19:57 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/3980342645.shtml)
+- 2026-06-29 20:00 - [V8](http://www.blog.kurohicncr.top/Article/details/1794094.shtml)
+- 2026-06-29 19:36 - [中方向委方追加1亿元援助](http://www.share.kurohicncr.top/Article/details/566520.shtml)

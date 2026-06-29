@@ -1,58 +1,59 @@
-# “走在前列的广东实践”高校思政实践课程创新探索
+# 中金：周大福目标价降至15.86港元 维持“跑赢行业”评级
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-“走在前列的广东实践”高校思政实践课程创新探索—— 营造在场感 提升转化力 冲压、焊接、涂装、总装，数百台工业机器人组成的全自动生产线精准完成各项工序……广汽埃安新能源汽车股份有限公司的智慧工厂，创新成果令人注目。在这里，华南理工大学师生围绕“科技创新励青春，自强自立担重任”主题，上了一堂生动的思政课。 2025年秋季学期起，名为“走在前列的广东实践”的思政实践课程，在广东各类
+中金公司发布研报称，维持周大福（01929）2026及2027财年每股盈利预测分别为0.9及0.96港元，并引入2028财年预测为1.02港元。考虑到行业估值有所回落，下调目标价11%至15.86港元，维持“跑赢行业”评级。 周大福公布截至3月止2026财年第四季营运情况，整体零售值同比微降1.5%。其中内地直营及批发同店销售分别同比增长0.2%及下降5.8%，港澳市场同店销售
 
 ## 正文
 
-“走在前列的广东实践”高校思政实践课程创新探索—— 营造在场感 提升转化力 冲压、焊接、涂装、总装，数百台工业机器人组成的全自动生产线精准完成各项工序……广汽埃安新能源汽车股份有限公司的智慧工厂，创新成果令人注目。
+中金公司发布研报称，维持周大福（01929）2026及2027财年每股盈利预测分别为0.9及0.96港元，并引入2028财年预测为1.02港元。
 
-在这里，华南理工大学师生围绕“科技创新励青春，自强自立担重任”主题，上了一堂生动的思政课。
+考虑到行业估值有所回落，下调目标价11%至15.86港元，维持“跑赢行业”评级。
 
-2025年秋季学期起，名为“走在前列的广东实践”的思政实践课程，在广东各类高校全面开设。
+周大福公布截至3月止2026财年第四季营运情况，整体零售值同比微降1.5%。
 
-课程围绕推动经济高质量发展、粤港澳大湾区建设、科技创新、文化繁荣等10个教学专题，以实践教学和社会大课堂为双翼，打通思政教育与传统课堂的边界。
+其中内地直营及批发同店销售分别同比增长0.2%及下降5.8%，港澳市场同店销售同比增长40%，表现优于预期。
 
-为何开设这样一门课程？
+报告提到，4月以来周大福中国内地自营与加盟及港澳自营门店同店销售均同比正增长，管理层预期2027财年内地渠道净关店规模有望按季收窄，并预计港澳市场受惠于客流和需求改善，有望在同期保持良好增长。
 
-城市发展的日新月异、科技创新的硬核突破……生动实践正是鲜活的思政课教材。
+此外，在海外市场，公司计划在拓展新市场及新渠道外，逐步推动海外电商业务发展。
 
-在广东省委宣传部、省教育厅推动下，课程探索出改革先锋、科技创新、南粤文脉、绿美广东、魅力湾区、共同富裕6条实践教学路线，将课堂搬至广阔天地。
-
-华南理工大学依托思政课虚拟仿真体验教学中心，构建线上线下双向联动的教学场景。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 19:54 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 19:43 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 19:59 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 19:58 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 19:31 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 19:50 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 19:52 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 19:41 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 19:34 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-29 19:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 19:32 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 19:41 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 19:37 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 19:51 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 19:40 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 19:46 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 19:41 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 19:53 - [外交部谈对日出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 19:58 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 19:58 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 19:53 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 20:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 19:37 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 19:49 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 19:36 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 19:39 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/60494839.shtml)
-- 2026-06-29 19:57 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/788995876.shtml)
-- 2026-06-29 19:33 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/29424891004.shtml)
-- 2026-06-29 19:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/452667980.shtml)
-- 2026-06-29 19:41 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/350509072.shtml)
-- 2026-06-29 19:56 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/1605252814.shtml)
-- 2026-06-29 19:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/940317942.shtml)
-- 2026-06-29 19:46 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/951812.shtml)
-- 2026-06-29 19:55 - [斗破苍穹](https://www.share.minike.top/Article/details/16496.shtml)
-- 2026-06-29 19:35 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/69535.shtml)
-- 2026-06-29 19:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/308556208.shtml)
-- 2026-06-29 19:53 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/0849768169.shtml)
-- 2026-06-29 19:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/676070.shtml)
-- 2026-06-29 19:40 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/145745273.shtml)
-- 2026-06-29 19:36 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/964112058851.shtml)
+- 2026-06-29 19:40 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/56524.shtml)
+- 2026-06-29 19:55 - [千与千寻](http://www.share.minike.top/Article/details/1094031895.shtml)
+- 2026-06-29 20:04 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/68589.shtml)
+- 2026-06-29 19:36 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/8963562.shtml)
+- 2026-06-29 19:46 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/2477810.shtml)
+- 2026-06-29 19:44 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/1647224.shtml)
+- 2026-06-29 19:38 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/234827265943.shtml)
+- 2026-06-29 20:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/423425243148.shtml)
+- 2026-06-29 19:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/495559.shtml)
+- 2026-06-29 19:52 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/5275030257.shtml)
+- 2026-06-29 19:45 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/204060.shtml)
+- 2026-06-29 20:03 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.minike.top/Article/details/5898070799.shtml)
+- 2026-06-29 19:37 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/156065417.shtml)
+- 2026-06-29 20:01 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/8171056.shtml)
+- 2026-06-29 19:54 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.blog.kurohicncr.top/Article/details/952723327.shtml)

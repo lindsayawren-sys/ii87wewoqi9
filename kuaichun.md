@@ -1,61 +1,58 @@
-# 美国白宫据悉反对Anthropic让更多用户使用Mythos的计划
+# 白宫记协晚宴安全事件嫌疑人被控两项罪名 27日将出庭受审
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-一位美国政府官员周三晚间表示，白宫反对Anthropic PBC扩大Mythos人工智能AI模型用户范围的计划。 这位官员说，特朗普政府官员已告知Anthropic，不同意该公司允许另外大约70家公司和组织使用其Mythos技术的计划。因涉及未公开谈话，知情人士要求匿名。 此前媒体援引知情人士对此事进行了报道。报道称，美国官员担心Anthropic的算力不足以服务更多用户，以致
+当地时间25日，在一场关于当日白宫记协晚宴安全事件的发布会上，美国联邦检察官珍妮·皮罗表示，嫌疑人被控两项罪名：在暴力犯罪中使用枪支，以及使用危险武器袭击联邦执法人员。 皮罗称，被告将于4月27日在联邦法院出庭受审，预计还将面临更多指控。 华盛顿特区代理警察局长杰弗里·卡罗尔表示，“一名男子持霰弹枪、手枪以及多把刀具，冲向特勤局检查点。”他说，目前调查人员没有理由相信还有其他人
 
 ## 正文
 
-一位美国政府官员周三晚间表示，白宫反对Anthropic PBC扩大Mythos人工智能AI模型用户范围的计划。
+当地时间25日，在一场关于当日白宫记协晚宴安全事件的发布会上，美国联邦检察官珍妮·皮罗表示，嫌疑人被控两项罪名：在暴力犯罪中使用枪支，以及使用危险武器袭击联邦执法人员。
 
-这位官员说，特朗普政府官员已告知Anthropic，不同意该公司允许另外大约70家公司和组织使用其Mythos技术的计划。
+皮罗称，被告将于4月27日在联邦法院出庭受审，预计还将面临更多指控。
 
-因涉及未公开谈话，知情人士要求匿名。
+华盛顿特区代理警察局长杰弗里·卡罗尔表示，“一名男子持霰弹枪、手枪以及多把刀具，冲向特勤局检查点。
 
-此前媒体援引知情人士对此事进行了报道。
+”他说，目前调查人员没有理由相信还有其他人涉案。
 
-报道称，美国官员担心Anthropic的算力不足以服务更多用户，以致于会影响政府有效使用Mythos。
+卡罗尔称，嫌疑人本人并未被枪击中，但已被送往当地医院接受评估。
 
-白宫周三晚间未立即回应寻求评论的请求。
+他表示，根据“初步信息”，警方认为嫌疑人开了一枪。
 
-Anthropic不予评论。
+嫌疑人据信是酒店住客，目标人物不明。
 
-Mythos于4月初发布，据称能够检测和利用各种关键软件中的漏洞。
+且目前无法确定其作案动机，现在判断其意图袭击的目标还为时尚早。
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 19:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 19:39 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 19:49 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 19:30 - [V8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 19:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 19:38 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 19:52 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 19:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 19:30 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 19:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 19:50 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 19:30 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 19:42 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 19:48 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 19:50 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 19:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 19:43 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 19:44 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-29 19:46 - [王俊凯命名方式](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 19:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 19:50 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 19:41 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 20:04 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-29 19:47 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 20:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 19:54 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [V8](http://www.share.minike.top/Article/details/72741629.shtml)
-- 2026-06-29 19:56 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/161904276364.shtml)
-- 2026-06-29 19:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/87692347350.shtml)
-- 2026-06-29 19:39 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/263661889527.shtml)
-- 2026-06-29 19:51 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/36646.shtml)
-- 2026-06-29 19:53 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/492016.shtml)
-- 2026-06-29 19:35 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/778647.shtml)
-- 2026-06-29 19:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/87674381.shtml)
-- 2026-06-29 19:46 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/06836934557.shtml)
-- 2026-06-29 19:56 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/7846052544.shtml)
-- 2026-06-29 19:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/070767120.shtml)
-- 2026-06-29 19:52 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/971733.shtml)
-- 2026-06-29 19:50 - [四川地震前夕 街头电线上站满燕子](https://www.blog.minike.top/Article/details/2238593.shtml)
-- 2026-06-29 19:49 - [葛军透露高考出题思路](https://www.share.kurohicncr.top/Article/details/9883928.shtml)
-- 2026-06-29 19:41 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.kurohicncr.top/Article/details/836799.shtml)
+- 2026-06-29 19:48 - [李小璐回应无戏可拍](https://www.blog.minike.top/Article/details/1168965.shtml)
+- 2026-06-29 19:45 - [4位大妈跳舞爆火多地景区争相邀约](http://www.blog.minike.top/Article/details/579930488745.shtml)
+- 2026-06-29 19:36 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/67535065.shtml)
+- 2026-06-29 19:55 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/68923204889.shtml)
+- 2026-06-29 19:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/176200653944.shtml)
+- 2026-06-29 20:03 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/6246755404.shtml)
+- 2026-06-29 19:38 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/739784.shtml)
+- 2026-06-29 19:41 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/73007501905.shtml)
+- 2026-06-29 19:48 - [《新闻联播》正在直播](https://www.share.minike.top/Article/details/765012540639.shtml)
+- 2026-06-29 19:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/539456383.shtml)
+- 2026-06-29 20:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/514364954.shtml)
+- 2026-06-29 20:04 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/3309428976.shtml)
+- 2026-06-29 19:38 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/7151989991.shtml)
+- 2026-06-29 19:55 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/777557409253.shtml)
+- 2026-06-29 19:45 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/2104999083.shtml)

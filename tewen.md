@@ -1,60 +1,61 @@
-# 2026“发现中国之美·相约新韵重庆”活动收官
+# 取代中际旭创，宁王重登主动基金头号重仓股
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网重庆4月30日电 (记者 钟旖)为期5天的2026“发现中国之美·相约新韵重庆”活动29日圆满落幕。来自14个国家的23名驻华外交官循着山城的山水脉络，以国际视野、亲身感受，为重庆文旅IP矩阵写下跨越国界的生动注解。 其间，外交官探访磁器口古镇，在巴渝老城的市井烟火中触摸历史文脉；一场流光溢彩的两江夜游，让嘉宾们沉醉于两江四岸的璀璨夜色。洪崖洞、千厮门大桥等重庆地标交相辉
+来源：财联社 公募基金2026年一季报已披露完毕，重仓股排名随之出炉，重仓股格局也呈现新的变化。这其中，宁德时代与中际旭创的榜首之争仍是核心看点。同时，主动基金与被动资金的差异化调仓，也在逐步揭开机构资金的配置逻辑。 整体来看，公募新一轮重仓格局呈现四大看点： 看点一：海光信息新进公募十大重仓股名单，宁德时代扩大领先优势。 较去年年末，今年一季度末前十大重仓股排序整体稳定，前九
 
 ## 正文
 
-中新网重庆4月30日电 (记者 钟旖)为期5天的2026“发现中国之美·相约新韵重庆”活动29日圆满落幕。
+来源：财联社 公募基金2026年一季报已披露完毕，重仓股排名随之出炉，重仓股格局也呈现新的变化。
 
-来自14个国家的23名驻华外交官循着山城的山水脉络，以国际视野、亲身感受，为重庆文旅IP矩阵写下跨越国界的生动注解。
+这其中，宁德时代与中际旭创的榜首之争仍是核心看点。
 
-其间，外交官探访磁器口古镇，在巴渝老城的市井烟火中触摸历史文脉；一场流光溢彩的两江夜游，让嘉宾们沉醉于两江四岸的璀璨夜色。
+同时，主动基金与被动资金的差异化调仓，也在逐步揭开机构资金的配置逻辑。
 
-洪崖洞、千厮门大桥等重庆地标交相辉映，数千架无人机凌空起舞，众人沉浸式领略山水之城的独特风华与都市魅力。
+整体来看，公募新一轮重仓格局呈现四大看点： 看点一：海光信息新进公募十大重仓股名单，宁德时代扩大领先优势。
 
-在重庆市唯一以苗族人口为主的自治县——彭水苗族土家族自治县，外交官走进蚩尤九黎城，体验苗绣、苗医药等特色民俗文化，全方位感受民族文化的深厚根脉与蓬勃活力。
+较去年年末，今年一季度末前十大重仓股排序整体稳定，前九席位未变，仅国内算力芯片龙头海光信息新进其中，招商银行退出。
 
-约旦驻华大使胡萨姆·侯赛尼对彭水情有独钟。
+看点二：宁德时代重登主动基金头号重仓股，科技、周期仍是配置主线。
 
-他表示，在彭水既能读懂苗族源远流长的历史文脉，更能看见传统文化与时代发展相融共生的鲜活模样。
+在剔除ETF影响的主动基金榜单上，宁德时代取代中际旭创，重新成为主动基金头号重仓股。
 
-古老的民族文化至今生机盎然，还持续为城市发展赋能，令人赞叹。
+经过主动基金连续5个季度减持后，宁德时代今年一季度被增持1179.35万股；同时，主动基金对科技及周期板块的偏好依然明显。
 
 ## 相关推荐
 
-- 2026-06-29 19:45 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 19:50 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 19:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 19:50 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 19:38 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 19:44 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 19:39 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 19:38 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-29 19:50 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 19:43 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 19:59 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 19:42 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 19:38 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 19:52 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 19:57 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 19:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 19:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-29 19:56 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 19:59 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 19:50 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 19:54 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 19:41 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 19:56 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 19:57 - [断骨增高灰产拉一人提成1.5万元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 19:38 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 19:50 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 19:59 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 19:40 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-29 19:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:53 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/56021.shtml)
-- 2026-06-29 19:50 - [黄金也扛不住了](https://www.share.minike.top/Article/details/80260432614.shtml)
-- 2026-06-29 19:57 - [北京发布地质灾害气象风险蓝色预警](http://www.share.kurohicncr.top/Article/details/71529949726.shtml)
-- 2026-06-29 19:56 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/6474891502.shtml)
-- 2026-06-29 19:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/905276116.shtml)
-- 2026-06-29 19:35 - [专家预计全球央行加息节奏将出现反复](http://www.share.minike.top/Article/details/84923.shtml)
-- 2026-06-29 19:31 - [青春环游记第三季](https://www.blog.minike.top/Article/details/5328950.shtml)
-- 2026-06-29 19:39 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/8616315.shtml)
-- 2026-06-29 19:33 - [章若楠包场白敬亭特立独行](http://www.blog.kurohicncr.top/Article/details/1866374.shtml)
-- 2026-06-29 19:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/679210703.shtml)
-- 2026-06-29 19:48 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/85731.shtml)
-- 2026-06-29 19:55 - [虞书欣好辣的剧宣](http://www.blog.minike.top/Article/details/42628074030.shtml)
-- 2026-06-29 19:40 - [我和我的家乡](http://www.share.minike.top/Article/details/967180147.shtml)
-- 2026-06-29 19:48 - [北京发布地质灾害气象风险蓝色预警](http://www.share.kurohicncr.top/Article/details/5815967.shtml)
-- 2026-06-29 19:31 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/106140351.shtml)
+- 2026-06-29 19:55 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/612318579.shtml)
+- 2026-06-29 19:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/207716563517.shtml)
+- 2026-06-29 20:01 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/847987876.shtml)
+- 2026-06-29 20:02 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/0734657918.shtml)
+- 2026-06-29 19:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/544185008.shtml)
+- 2026-06-29 19:37 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/89776.shtml)
+- 2026-06-29 19:44 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/525790041.shtml)
+- 2026-06-29 19:36 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/7340392819.shtml)
+- 2026-06-29 19:40 - [沙丘](http://www.share.minike.top/Article/details/14773021.shtml)
+- 2026-06-29 19:58 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/8314870793.shtml)
+- 2026-06-29 19:40 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/565156361341.shtml)
+- 2026-06-29 20:01 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/866475.shtml)
+- 2026-06-29 19:46 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/47536624.shtml)
+- 2026-06-29 19:42 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/50115106.shtml)
+- 2026-06-29 20:03 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/5040813767.shtml)

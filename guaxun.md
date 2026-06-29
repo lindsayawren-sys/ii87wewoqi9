@@ -1,56 +1,57 @@
-# 光大期货软商品类日报4.29
+# 文化和旅游部：对整改不力的5A级旅游景区进行降级或取消等级
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西4月前四周出口糖92.13万吨，日均出口量为5.76万吨，较上年4月全月日均出口量7.75万吨减少26%。现货报价方面，广西制糖集团报价区间5320~5410元/吨；云南制糖集团报价5150~5230元/吨，集团报价均持稳；加工糖厂主流报价区间为5610~5880元/吨，个别下调1
+近年来游客反映部分景区存在管理服务等问题，影响旅游体验。文化和旅游部资源开发司满宏卫司长表示，加强景区管理是旅游行业乱象集中整治的主要举措： 我们把旅游景区服务质量问题作为这次集中整治的重点，梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，以负面舆情多发、负面评价集中为依据，将重点整治一批问题多发景区和一批景区摆渡车问题。 根据游客反映集中的景区价格纠纷、拥堵滞留、服务态
 
 ## 正文
 
-白糖： （张笑金，从业资格号：F0306200；交易咨询资格号：Z0000082） 消息方面，巴西4月前四周出口糖92.13万吨，日均出口量为5.76万吨，较上年4月全月日均出口量7.75万吨减少26%。
+近年来游客反映部分景区存在管理服务等问题，影响旅游体验。
 
-现货报价方面，广西制糖集团报价区间5320~5410元/吨；云南制糖集团报价5150~5230元/吨，集团报价均持稳；加工糖厂主流报价区间为5610~5880元/吨，个别下调10元/吨。
+文化和旅游部资源开发司满宏卫司长表示，加强景区管理是旅游行业乱象集中整治的主要举措： 我们把旅游景区服务质量问题作为这次集中整治的重点，梳理近年来5A级旅游景区负面舆情、游客投诉和网络评价，以负面舆情多发、负面评价集中为依据，将重点整治一批问题多发景区和一批景区摆渡车问题。
 
-原糖期价小幅修复回到14美分/磅以上，未来关注巴西压榨数据。
+根据游客反映集中的景区价格纠纷、拥堵滞留、服务态度、安全应急、环境卫生等问题，找出了近年来综合问题多发的一些景区，比如湖南张家界天门山和武陵源、云南丽江古城和玉龙雪山、黄河壶口瀑布、广西桂林漓江、河南嵩山少林寺、贵州黄果树瀑布、湖北武当山等等。
 
-国内年度糖业会议召开，市场情绪温和，国内基本定产，进入到去库周期，未来短期看进口、中期天气影响不容忽视。
+对这些景区我们将督促属地进行严肃批评和集中整治。
 
-五一假期在即注意长假风险。
+游客反映问题比较多的景区摆渡车也是这次整治重点。
 
-棉花： （孙成震，从业资格号：F03099994；交易咨询资格号：Z0021057） 周二，ICE美棉上涨0.15%，报收79.7美分/磅，郑棉主力合约环比上涨0.55%，报收16420元/吨，主力合约持仓环比减少9348手至84.88万手，棉花3128B现货价格指数17415元/吨，较前一日持平。
+景区设置摆渡车的初心，是组织游览线路、提供便利服务、丰富旅游体验、加强生态保护，但部分景区丢掉了服务游客的初心，对摆渡车管理不到位，被游客所诟病，摆渡车成为游客投诉集中、负面舆情多发领域。
 
-国际市场方面，美国干旱扰动仍在持续，截至4月21日当周，受D1-D4级别干旱影响面积占比为98%，位于绝对高位，但后续德州及美国东南部地区降雨或有增加，干旱问题或有一定缓解。
+我们梳理了近年来景区摆渡车的网络舆情、游客投诉和负面评价，找出了摆渡车线路不科学、价格不合理、排队时间长、服务态度差等问题比较多的景区，比如江西龙虎山、吉林长白山、安徽天柱山、四川稻城亚丁、山东崂山，等等，对这些5A级旅游景区摆渡车存在的问题，我们也将督促属地进行集中整治。
 
-后续中东地区局势也需要持续关注，将对化肥成本及供应产生一定扰动。
+针对上述问题，将采取以下治理措施， 一是提级督促整改，要求属地和景区对照问题清单，坚持游客为本，逐一制定整改方案，限期开展整改工作。
 
 ## 相关推荐
 
-- 2026-06-29 19:51 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 19:44 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 19:45 - [世界杯在中国观看最多的比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 19:51 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 19:50 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 19:40 - [恋与深空客服的回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 19:35 - [滚石就音乐人屠颖去世事件发声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 19:44 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 19:44 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 19:38 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 19:36 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-29 19:36 - [大马同意延长马航370残骸搜寻工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 20:01 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 20:05 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 20:02 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 19:38 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 19:43 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 19:59 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 19:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 19:45 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 19:55 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/890252222.shtml)
-- 2026-06-29 19:50 - [沙丘](https://www.blog.minike.top/Article/details/096120.shtml)
-- 2026-06-29 19:53 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/647650.shtml)
-- 2026-06-29 19:57 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/632998.shtml)
-- 2026-06-29 19:48 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/7232069.shtml)
-- 2026-06-29 19:33 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/39086.shtml)
-- 2026-06-29 19:44 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/4028099060.shtml)
-- 2026-06-29 19:55 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/08668878579.shtml)
-- 2026-06-29 19:53 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/64918149.shtml)
-- 2026-06-29 19:32 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/70444366416.shtml)
-- 2026-06-29 19:58 - [虞书欣好辣的剧宣](http://www.blog.kurohicncr.top/Article/details/63923.shtml)
-- 2026-06-29 19:59 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/176599631106.shtml)
-- 2026-06-29 19:46 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/67616694.shtml)
-- 2026-06-29 19:31 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/43876470950.shtml)
-- 2026-06-29 19:41 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/761172718.shtml)
+- 2026-06-29 19:40 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/155231359.shtml)
+- 2026-06-29 20:01 - [夏天被这些虫子咬了可能致命](https://www.blog.minike.top/Article/details/71924269515.shtml)
+- 2026-06-29 20:00 - [如果你一直单身，你准备怎么养老？](http://www.blog.kurohicncr.top/Article/details/30166895.shtml)
+- 2026-06-29 20:01 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/546574.shtml)
+- 2026-06-29 19:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/7489702.shtml)
+- 2026-06-29 19:41 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/483767858453.shtml)
+- 2026-06-29 19:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/14461171415.shtml)
+- 2026-06-29 19:53 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/377098180.shtml)
+- 2026-06-29 19:58 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/654480097083.shtml)
+- 2026-06-29 19:43 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.kurohicncr.top/Article/details/9506297162.shtml)
+- 2026-06-29 19:55 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/002362.shtml)
+- 2026-06-29 19:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/991549897812.shtml)
+- 2026-06-29 19:46 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/7816589.shtml)
+- 2026-06-29 20:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/257416527.shtml)
+- 2026-06-29 19:40 - [TOP Prada](https://www.blog.minike.top/Article/details/189956398.shtml)

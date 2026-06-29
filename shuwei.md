@@ -1,58 +1,58 @@
-# 创业板人工智能 VS 通信，谁才是真正的“光模块ETF”？
+# 巴西闽籍侨团联袂资助闽籍侨胞流感疫苗免费接种
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-来源：超级巴飞特 据说现在市场方向主要分两种，一是“站在光里”的，二是“光站在那里”的。 “光”就是光模块——AI算力里业绩最硬、资金最集中的环节。 然而，一个被广泛忽略的事实是：市场并不存在纯粹的“光模块ETF”。投资者若要捕获光模块的beta收益，只能从光模块暴露度较高的相关ETF中择优配置。 在这个过程中，有一个标的无论如何都绕不开——1年飙涨2倍的创业板人工智能ETF（
+中新网圣保罗4月27日电 (记者 林春茵)巴西正值流感接种季，当地时间26日，“闽侨安康·流感无忧”闽籍七大社团联合公益行动在巴西圣保罗仁爱医疗中心启动，为旅巴闽籍侨胞免费接种进口流感疫苗。 此次活动由巴西福建同乡总会、南美洲闽南同乡联谊总会、巴西华侨华人促进中国和平统一联合会、世界福建青年巴西联会、巴西闽商联合会、巴西世界福州十邑同乡会、巴西华人华侨电商总会等在巴闽籍社团主办
 
 ## 正文
 
-来源：超级巴飞特 据说现在市场方向主要分两种，一是“站在光里”的，二是“光站在那里”的。
+中新网圣保罗4月27日电 (记者 林春茵)巴西正值流感接种季，当地时间26日，“闽侨安康·流感无忧”闽籍七大社团联合公益行动在巴西圣保罗仁爱医疗中心启动，为旅巴闽籍侨胞免费接种进口流感疫苗。
 
-“光”就是光模块——AI算力里业绩最硬、资金最集中的环节。
+此次活动由巴西福建同乡总会、南美洲闽南同乡联谊总会、巴西华侨华人促进中国和平统一联合会、世界福建青年巴西联会、巴西闽商联合会、巴西世界福州十邑同乡会、巴西华人华侨电商总会等在巴闽籍社团主办，巴西华人协会监事长王万瑞及赵余玲、杨志芳、林筠、陈彬、邱秀华、吴智情、孙孝钦、陈永辉、郑进展、郑文标、林果等多位闽籍侨领出席活动。
 
-然而，一个被广泛忽略的事实是：市场并不存在纯粹的“光模块ETF”。
+王万瑞表示，长期以来，各位会长与侨团同仁始终以乡情为纽带、以服务为初心，扎根巴西、守望相助，为闽籍侨胞在巴西的生存发展、权益维护、文化传承与社群凝聚，做了大量实实在在的工作。
 
-投资者若要捕获光模块的beta收益，只能从光模块暴露度较高的相关ETF中择优配置。
+南美洲闽南同乡联谊总会会长杨志芳说，闽南会一直设立防疫基金，此次免费接种四价流感疫苗的公益活动，为侨胞们在异国他乡筑牢健康安全防线。
 
-在这个过程中，有一个标的无论如何都绕不开——1年飙涨2倍的创业板人工智能ETF（159363）。
+巴西华侨华人促进中国和平统一联合会执行会长陈彬说，不少侨胞因工作繁忙、语言障碍和信息落差，疏于管理健康，此次不但免费接种疫苗，还可通过仁爱医疗搭建就医渠道免于后顾之忧。
 
-有人会问：那通信ETF（515880）呢？
+世界福建青年巴西联会会长邱秀华指出，无论是帮扶新侨落地的、维护老侨权益、搭建乡情联谊，还是关切“侨”健康，都传递了家乡温暖和依靠。
 
-它不也有光模块吗？
+巴西闽商联合会监事长吴智情表示，近年来闽籍侨团活动注重公益性和融入巴西主流，目前正值巴西推动流感疫苗全民接种，此次活动正集中体现这一趋向。
 
-别急。
+巴西世界福州十邑同乡会会长孙孝钦说，近年来闽籍侨团联动密切，从大型春晚到“打预防针”，“事无大小，都是为侨服务”。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 19:33 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:39 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 19:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 19:53 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 19:45 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 19:34 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 19:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 19:54 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 19:55 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 19:35 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-29 19:42 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 19:54 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 20:03 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 19:52 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 19:36 - [TTG KSG](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 20:02 - [韩国小学生都来吐槽了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 19:52 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 20:00 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-29 19:41 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 19:40 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 19:54 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 19:52 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 19:43 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/048216638492.shtml)
-- 2026-06-29 19:42 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/4331854.shtml)
-- 2026-06-29 19:56 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/081970.shtml)
-- 2026-06-29 19:42 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/6660304.shtml)
-- 2026-06-29 19:38 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/66203.shtml)
-- 2026-06-29 19:39 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/92555359526.shtml)
-- 2026-06-29 19:37 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/905252.shtml)
-- 2026-06-29 19:57 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/03216.shtml)
-- 2026-06-29 19:32 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/28453.shtml)
-- 2026-06-29 19:43 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/436619110405.shtml)
-- 2026-06-29 19:48 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/6391976714.shtml)
-- 2026-06-29 19:49 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/985836.shtml)
-- 2026-06-29 19:42 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/8367866.shtml)
-- 2026-06-29 19:44 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/1465544.shtml)
-- 2026-06-29 19:45 - [章若楠包场白敬亭特立独行](https://www.share.minike.top/Article/details/52136.shtml)
+- 2026-06-29 19:58 - [湖南姑娘被东北同事带偏口音](https://www.share.minike.top/Article/details/48069928065.shtml)
+- 2026-06-29 19:47 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/18353969684.shtml)
+- 2026-06-29 20:00 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/038356557555.shtml)
+- 2026-06-29 19:55 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/5862022.shtml)
+- 2026-06-29 19:42 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/3828983.shtml)
+- 2026-06-29 19:36 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/26738.shtml)
+- 2026-06-29 20:00 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/876696.shtml)
+- 2026-06-29 19:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/15507787.shtml)
+- 2026-06-29 19:36 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/729389359.shtml)
+- 2026-06-29 19:55 - [第一炉香](https://www.blog.minike.top/Article/details/65778463821.shtml)
+- 2026-06-29 19:45 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/604947587.shtml)
+- 2026-06-29 19:45 - [金鹰奖第二阶段投票明日开启](http://www.blog.minike.top/Article/details/51794383.shtml)
+- 2026-06-29 19:36 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/0652108.shtml)
+- 2026-06-29 19:50 - [CORTIS 小牌大耍](https://www.blog.kurohicncr.top/Article/details/7120265210.shtml)
+- 2026-06-29 20:05 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/2424361.shtml)

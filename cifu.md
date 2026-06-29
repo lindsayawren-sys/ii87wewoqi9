@@ -1,56 +1,49 @@
-# 日本新生银行再次上市的思考：长期低利率环境下永恒变革
+# 亚沙会“金牌夫妻”：“有你在真好”
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-◇ 作者：招商银行郑州分行副行长谭海鸣 ◇ 本文原载《债券》2026年3月刊 摘 要 本文回顾了日本新生银行近30年在长期低利率时代的三次变革历程。基于杜邦分析的视角，将其运营模式与日本三大银行进行对比，探讨了2012年以来该行的高息差未能转换为高收益和高估值的主要原因：消费金融经营模式在给该行带来高收益的同时，也难以避免高信用成本、高运营成本和高资本要求这几方面劣势；业务相对
+发布时间：2026年04月26日 16:32 来源：中国新闻网 中国队选手范俊杰、林鑫瑜携手出征第六届亚洲沙滩运动会，夫妻二人分别拿下游跑两项男、女个人赛金牌，成就“金牌夫妻”的赛场浪漫。4月25日，他们向中新社记者分享并肩夺金的喜悦与金牌背后的故事。(陈英清 李宇凡 骆云飞 海南三亚报道） 责任编辑：【周驰】
 
 ## 正文
 
-◇ 作者：招商银行郑州分行副行长谭海鸣 ◇ 本文原载《债券》2026年3月刊 摘 要 本文回顾了日本新生银行近30年在长期低利率时代的三次变革历程。
+发布时间：2026年04月26日 16:32 来源：中国新闻网 中国队选手范俊杰、林鑫瑜携手出征第六届亚洲沙滩运动会，夫妻二人分别拿下游跑两项男、女个人赛金牌，成就“金牌夫妻”的赛场浪漫。
 
-基于杜邦分析的视角，将其运营模式与日本三大银行进行对比，探讨了2012年以来该行的高息差未能转换为高收益和高估值的主要原因：消费金融经营模式在给该行带来高收益的同时，也难以避免高信用成本、高运营成本和高资本要求这几方面劣势；业务相对单一导致该行的非利息收入占比不高和收入波动性加大。
+4月25日，他们向中新社记者分享并肩夺金的喜悦与金牌背后的故事。
 
-经过分析，归纳出该行两次上市后获得市场认可的原因，即变革的方向符合时代需求。
-
-在此基础上，本文得出结论：在长期低利率时代，银行业只有持续变革，才能保持活力，持续创造价值，获得市场和社会的认可。
-
-关键词 低利率净息差杜邦分析银行改革银行估值 2025年12月15日，日本新生银行（SBI Shinsei Bank）在东京证券交易所重新上市（Song Ju-Hui，2025），创该年度日本最大首次公开募股（IPO）。
-
-根据日本东京证券交易所的数据，截至2025年末，该行市值为1.56万亿日元，位列日本第九；市净率（PB）为1.52倍，在日本大中型银行中名列首位。
-
-新生银行的前身是1952年成立的日本长期信用银行（LTCB），1990年，该行总资产曾位列世界第九，却随着泡沫经济的破裂而倒闭。
-
-2000年，该行被以美国Ripplewood为首的国际财团收购，更名为“新生银行”。
+(陈英清 李宇凡 骆云飞 海南三亚报道） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 19:38 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-29 19:45 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 19:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 19:47 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 19:52 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 19:36 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 19:57 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 19:38 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 19:33 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 19:59 - [挪威王储妃长子两次强奸获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 19:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 19:40 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 19:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 19:47 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 19:58 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-29 19:36 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 20:04 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 19:42 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-29 20:00 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 20:01 - [女生每天戴耳机18小时突发耳聋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 19:50 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 19:55 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 19:52 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/16613.shtml)
-- 2026-06-29 19:31 - [断骨增高灰产拉一人提成1.5万元](http://www.blog.kurohicncr.top/Article/details/529318725127.shtml)
-- 2026-06-29 19:48 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/347742177883.shtml)
-- 2026-06-29 19:57 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/5822215.shtml)
-- 2026-06-29 19:49 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/84084228465.shtml)
-- 2026-06-29 19:32 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/24929.shtml)
-- 2026-06-29 19:55 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/626089001.shtml)
-- 2026-06-29 19:46 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/413863380300.shtml)
-- 2026-06-29 19:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/67781.shtml)
-- 2026-06-29 19:52 - [美议员呼吁断供以色列政府](https://www.share.minike.top/Article/details/7841319894.shtml)
-- 2026-06-29 19:41 - [官方通报一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/2711999995.shtml)
-- 2026-06-29 19:46 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/59811995049.shtml)
-- 2026-06-29 19:34 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/660376270.shtml)
-- 2026-06-29 19:42 - [女生每天戴耳机18小时突发耳聋](http://www.blog.minike.top/Article/details/1172081.shtml)
-- 2026-06-29 19:35 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/14257465.shtml)
+- 2026-06-29 20:03 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/0015184.shtml)
+- 2026-06-29 19:56 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/9914522.shtml)
+- 2026-06-29 20:04 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/44722303.shtml)
+- 2026-06-29 19:46 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/6398561.shtml)
+- 2026-06-29 19:49 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/531165680.shtml)
+- 2026-06-29 19:53 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/837475325.shtml)
+- 2026-06-29 19:45 - [专家预计全球央行加息节奏将出现反复](http://www.blog.minike.top/Article/details/797104517124.shtml)
+- 2026-06-29 19:56 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/572542678504.shtml)
+- 2026-06-29 19:55 - [网红小徐直播时突遇地震](http://www.share.minike.top/Article/details/54917.shtml)
+- 2026-06-29 19:40 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/63895025442.shtml)
+- 2026-06-29 19:40 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/1653518.shtml)
+- 2026-06-29 20:05 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/3389271.shtml)
+- 2026-06-29 20:00 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/480536983786.shtml)
+- 2026-06-29 19:43 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/0821227958.shtml)
+- 2026-06-29 20:02 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/331322.shtml)

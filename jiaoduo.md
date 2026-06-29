@@ -1,60 +1,52 @@
-# 中国代表团在《不扩散核武器条约》第十一次审议大会的答辩发言
+# 以色列积极准备重新对伊朗开战
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-外交部发布中国代表团在《不扩散核武器条约》第十一次审议大会的答辩发言，详情如下： 主席先生， 在今天的一般性辩论发言中，一些参与核军事联盟或享受“核保护伞”的国家和国家集团无端指责中国核政策和核力量建设，渲染所谓“中国核威胁”谬论。中方对此坚决反对，绝不接受。 中国坚定走和平发展道路，奉行自卫防御核战略，恪守不首先使用核武器政策，无条件不对无核武器国家和无核武器区使用或威胁使用
+【相关阅读】美伊谈判前景不明 多国呼吁政治解决冲突 谈及与伊朗谈判 白宫新闻秘书：“先遣部队”明天飞往巴基斯坦 副总统万斯随时待命 特朗普派女婿前往巴基斯坦谈判 副总统万斯留守国内待命 美方同日还对伊朗多个“钱包”实施制裁 冻结超3亿美元加密货币资产 据CCTV国际时讯，在美伊谈判迟迟没有实质性推进的背景下，以色列近期一直在加紧做着重启战争的准备。以色列媒体分析认为，以色列并没
 
 ## 正文
 
-外交部发布中国代表团在《不扩散核武器条约》第十一次审议大会的答辩发言，详情如下： 主席先生， 在今天的一般性辩论发言中，一些参与核军事联盟或享受“核保护伞”的国家和国家集团无端指责中国核政策和核力量建设，渲染所谓“中国核威胁”谬论。
+【相关阅读】美伊谈判前景不明 多国呼吁政治解决冲突 谈及与伊朗谈判 白宫新闻秘书：“先遣部队”明天飞往巴基斯坦 副总统万斯随时待命 特朗普派女婿前往巴基斯坦谈判 副总统万斯留守国内待命 美方同日还对伊朗多个“钱包”实施制裁 冻结超3亿美元加密货币资产 据CCTV国际时讯，在美伊谈判迟迟没有实质性推进的背景下，以色列近期一直在加紧做着重启战争的准备。
 
-中方对此坚决反对，绝不接受。
+以色列媒体分析认为，以色列并没有完全实现其设定的战争目标。
 
-中国坚定走和平发展道路，奉行自卫防御核战略，恪守不首先使用核武器政策，无条件不对无核武器国家和无核武器区使用或威胁使用核武器。
+自临时停火以来，以色列实质性的战备扩充从未停止，包括补充武器弹药，更新对伊朗打击目标清单，与美军制定联合军事计划等等。
 
-中国的核政策与核意图非常清晰，而且保持高度稳定性、连续性和可预见性。
+一旦美国决定恢复军事行动，以色列方面将确保能够第一时间响应。
 
-中国始终把核力量维持在国家安全需要的最低水平，在核武器的规模和发展方面始终采取极为克制的态度，从不与其他核武器国家比投入、比数量、比规模，过去没有、今后也不会与任何国家搞核军备竞赛。
-
-一些国家对此视而不见，蓄意炒作所谓中国“追求核军备竞赛”“快速扩充核武库”，渲染所谓“中国核威胁”，有关指责毫无依据、别有用心。
-
-中国积极主张并倡导全面禁止和彻底销毁核武器，积极支持和参与国际军控、裁军和防扩散进程。
-
-中方对开展军控对话持开放态度，但不会参与任何旨在限制中国国防能力、恶化战略安全环境的对话磋商。
+责任编辑：张恒星
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 19:44 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:45 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 19:52 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 19:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 19:52 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 19:43 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 19:52 - [当家电外通风口出现鸟窝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 19:30 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 19:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 19:49 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 19:52 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 19:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 19:54 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 20:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 19:38 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 20:03 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 19:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 19:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 20:05 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 20:01 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 20:01 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 19:48 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 20:03 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 19:55 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 19:53 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:48 - [张雪机车杀向海外](https://www.blog.kurohicncr.top/Article/details/57809867.shtml)
-- 2026-06-29 19:44 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/3914278695.shtml)
-- 2026-06-29 19:52 - [河南高院审委会原委员曲海滨被查](https://www.share.minike.top/Article/details/27881175.shtml)
-- 2026-06-29 19:30 - [许建琼任湖南省检察院副检察长](https://www.share.minike.top/Article/details/74633709.shtml)
-- 2026-06-29 19:42 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/1190002591.shtml)
-- 2026-06-29 19:30 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/243113364.shtml)
-- 2026-06-29 19:44 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/394502255.shtml)
-- 2026-06-29 19:35 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/3020809523.shtml)
-- 2026-06-29 19:40 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/3231277.shtml)
-- 2026-06-29 19:54 - [4位大妈跳舞爆火多地景区争相邀约](http://www.share.kurohicncr.top/Article/details/296026.shtml)
-- 2026-06-29 19:36 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/216733882.shtml)
-- 2026-06-29 19:44 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/2800848.shtml)
-- 2026-06-29 19:53 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/873638.shtml)
-- 2026-06-29 19:37 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/269795521.shtml)
-- 2026-06-29 19:37 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/51280917.shtml)
+- 2026-06-29 19:36 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.minike.top/Article/details/357541.shtml)
+- 2026-06-29 19:59 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/729410.shtml)
+- 2026-06-29 19:56 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/86435801914.shtml)
+- 2026-06-29 19:41 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/64594.shtml)
+- 2026-06-29 19:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/12439.shtml)
+- 2026-06-29 19:53 - [大学专业未来如何洗牌](http://www.share.minike.top/Article/details/2048753.shtml)
+- 2026-06-29 19:59 - [四川地震前夕 街头电线上站满燕子](https://www.share.minike.top/Article/details/5678062.shtml)
+- 2026-06-29 19:58 - [法拉利被划损维修2.9万家长只愿赔5千](https://www.share.minike.top/Article/details/451877.shtml)
+- 2026-06-29 19:38 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/05105.shtml)
+- 2026-06-29 19:56 - [叠纸](https://www.blog.kurohicncr.top/Article/details/87532.shtml)
+- 2026-06-29 20:02 - [当家电外通风口出现鸟窝](https://www.share.minike.top/Article/details/67594653.shtml)
+- 2026-06-29 19:58 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/380452920.shtml)
+- 2026-06-29 19:39 - [两老人多次到一洗车店泼粪](https://www.share.kurohicncr.top/Article/details/477089.shtml)
+- 2026-06-29 19:40 - [曝屠颖去世和酒店失责有关](http://www.blog.kurohicncr.top/Article/details/503414681034.shtml)
+- 2026-06-29 20:00 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.share.kurohicncr.top/Article/details/76026292.shtml)

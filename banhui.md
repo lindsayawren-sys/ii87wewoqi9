@@ -1,57 +1,57 @@
-# 中国贸促会：2月全球经贸摩擦指数处于高位
+# 中国驻美大使：欢迎到中国大市场、世界“竞技场”投资兴业、做大做强
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新社北京4月29日电 (记者 尹倩芸)中国贸促会29日公布的最新数据显示，2026年2月份，全球经贸摩擦指数为103，处于高位。全球经贸摩擦措施涉及金额同比下降2.4%，环比上升8.2%。 从国别指数看，在监测范围内的20个国家(地区)中，美国、印度和巴西的全球经贸摩擦指数位居前三，美国的全球经贸摩擦措施涉及金额最多。 中国贸促会新闻发言人王冠男当日在例行新闻发布会上提到，尤
+发布时间：2026年04月23日 21:18 来源：中国新闻网 近日，中国驻美国大使谢锋在费城举行的第56届世界贸易中心协会全球商业论坛开幕式上发表主旨演讲。 谢锋面向来自中、美等50多个国家和地区的近500名工商界代表，深入宣介“十五五”规划新机遇，呼吁共创中美关系新未来。他从民生为大、创新驱动、绿色转型、开放合作四方面切入，欢迎各国有识之士把握中国超大规模市场机遇、全球领先
 
 ## 正文
 
-中新社北京4月29日电 (记者 尹倩芸)中国贸促会29日公布的最新数据显示，2026年2月份，全球经贸摩擦指数为103，处于高位。
+发布时间：2026年04月23日 21:18 来源：中国新闻网 近日，中国驻美国大使谢锋在费城举行的第56届世界贸易中心协会全球商业论坛开幕式上发表主旨演讲。
 
-全球经贸摩擦措施涉及金额同比下降2.4%，环比上升8.2%。
+谢锋面向来自中、美等50多个国家和地区的近500名工商界代表，深入宣介“十五五”规划新机遇，呼吁共创中美关系新未来。
 
-从国别指数看，在监测范围内的20个国家(地区)中，美国、印度和巴西的全球经贸摩擦指数位居前三，美国的全球经贸摩擦措施涉及金额最多。
+他从民生为大、创新驱动、绿色转型、开放合作四方面切入，欢迎各国有识之士把握中国超大规模市场机遇、全球领先的创新生态体系机遇、新能源迭代发展机遇、一流营商环境机遇，到中国大市场、世界“竞技场”投资兴业、做大做强。
 
-中国贸促会新闻发言人王冠男当日在例行新闻发布会上提到，尤其是在美国最高法院判定美国政府依据《国际紧急经济权力法》对相关贸易伙伴加征对等关税、芬太尼关税等违法后，美国政府援引《1974年贸易法》第122条对大部分美国进口商品加征10%关税，美新一轮关税措施对全球贸易带来更多不确定性。
+世界贸易中心协会是“世界贸易中心”品牌的管理机构，为上百万家企业提供市场支持。
 
-从行业指数看，在监测范围内13个主要行业中，经贸摩擦措施的冲突点聚焦于电子、化工和机械设备行业，其中电子行业经贸摩擦指数居首。
+全球商业论坛是该协会最重要的年度会员活动，由各地世界贸易中心轮流承办。
 
-在涉华经贸摩擦方面，19个国家(地区)涉华经贸摩擦指数为105，较上月上升5个点。
-
-其中，美国涉华经贸摩擦指数最高，包含传感器、无人机和电源转换器等产品的电子行业涉华经贸摩擦指数处于高位。
-
-(完)
+(记者 王帆 制作 周璟 视频来源 中国驻美国大使馆) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 19:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 19:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 19:59 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 19:56 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 19:39 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-29 19:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 19:30 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-29 19:32 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-29 19:44 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 19:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-29 19:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 19:39 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 19:58 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 19:52 - [章若楠包场白敬亭特立独行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 19:53 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 20:06 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 19:37 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 19:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 19:55 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 19:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 19:38 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 19:54 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 19:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 19:37 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 19:57 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/452692.shtml)
-- 2026-06-29 19:38 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/0047607331.shtml)
-- 2026-06-29 19:36 - [极限挑战第一季](http://www.blog.minike.top/Article/details/6113664.shtml)
-- 2026-06-29 19:50 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/70245586521.shtml)
-- 2026-06-29 19:38 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/883238240.shtml)
-- 2026-06-29 19:54 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/037462149063.shtml)
-- 2026-06-29 19:39 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/71522435842.shtml)
-- 2026-06-29 19:56 - [医药生物行业今日涨5.91%](http://www.share.minike.top/Article/details/497246.shtml)
-- 2026-06-29 19:30 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/958938076793.shtml)
-- 2026-06-29 19:54 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/857809.shtml)
-- 2026-06-29 19:40 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/072717223.shtml)
-- 2026-06-29 19:55 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/094024.shtml)
-- 2026-06-29 19:45 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/14444062.shtml)
-- 2026-06-29 19:50 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/71793654071.shtml)
-- 2026-06-29 19:32 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/65375804364.shtml)
+- 2026-06-29 19:55 - [周杰伦演唱会含星量](https://www.blog.minike.top/Article/details/67273168103.shtml)
+- 2026-06-29 19:37 - [《贺子珍》](http://www.share.minike.top/Article/details/0058750.shtml)
+- 2026-06-29 19:42 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/97098831771.shtml)
+- 2026-06-29 19:52 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/70057.shtml)
+- 2026-06-29 19:53 - [TTG KSG](https://www.blog.minike.top/Article/details/8667451243.shtml)
+- 2026-06-29 20:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/54659.shtml)
+- 2026-06-29 19:46 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/7555377.shtml)
+- 2026-06-29 20:03 - [TOP Prada](https://www.blog.minike.top/Article/details/4930463741.shtml)
+- 2026-06-29 19:53 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/3301465.shtml)
+- 2026-06-29 20:03 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/49903376.shtml)
+- 2026-06-29 19:37 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/0272348.shtml)
+- 2026-06-29 19:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/6719792.shtml)
+- 2026-06-29 19:49 - [娜扎搂着我的腰和我合照](https://www.share.kurohicncr.top/Article/details/1513435465.shtml)
+- 2026-06-29 19:42 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/39935407859.shtml)
+- 2026-06-29 20:00 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/239201399.shtml)

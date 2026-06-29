@@ -1,60 +1,57 @@
-# “去世33年爷爷的照片还能找到吗？”警方接到求助翻遍档案室
+# 金融街嘉年华机械臂特调饮品引围观，大量消费者举手机打卡记录
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-爷爷已经去世33年，他的身份证照片还能找到吗？这是今年3月，浙江海宁公安的微信公众号后台收到的一条私信，留言的人是葛先生，他说从小被爷爷带大，但爷爷生前的照片全部遗失，他想问问民警，能不能帮他找到爷爷的照片留作纪念。在葛先生的记忆中，他是骑在爷爷的脖子上长大的，从小与爷爷相伴的经历，让他感觉爷爷已经不仅仅是一个长辈这么简单。 葛先生：我爷爷从小带我比较多，然后我有记忆开始，就是
+专题：2026金融街智绘春光嘉年华 4月26日，2026金融街智绘春光嘉年华近日举办。乐博空间打造的机械臂特调饮品吸引了大量消费者围观，不少消费者纷纷举起手机记录这一新鲜时刻。 据介绍，饮品全程由两个机械臂操作完成，无需人工介入。点单后，机械臂将根据饮品所需材料自动取样调制，可以提供奶茶、咖啡、鸡尾酒等饮品，价格在20-48元不等。新浪声明：所有会议实录均为现场速记整理，未经演
 
 ## 正文
 
-爷爷已经去世33年，他的身份证照片还能找到吗？
+专题：2026金融街智绘春光嘉年华 4月26日，2026金融街智绘春光嘉年华近日举办。
 
-这是今年3月，浙江海宁公安的微信公众号后台收到的一条私信，留言的人是葛先生，他说从小被爷爷带大，但爷爷生前的照片全部遗失，他想问问民警，能不能帮他找到爷爷的照片留作纪念。
+乐博空间打造的机械臂特调饮品吸引了大量消费者围观，不少消费者纷纷举起手机记录这一新鲜时刻。
 
-在葛先生的记忆中，他是骑在爷爷的脖子上长大的，从小与爷爷相伴的经历，让他感觉爷爷已经不仅仅是一个长辈这么简单。
+据介绍，饮品全程由两个机械臂操作完成，无需人工介入。
 
-葛先生：我爷爷从小带我比较多，然后我有记忆开始，就是我骑在他的脖子上，他带我围着那个桌子在转。
+点单后，机械臂将根据饮品所需材料自动取样调制，可以提供奶茶、咖啡、鸡尾酒等饮品，价格在20-48元不等。
 
-在我的心里，他不仅是我的长辈，还是我小时候的玩伴一样的，所以非常想念他。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-33年前，爷爷去世，一开始，爷爷的音容笑貌还非常清晰地刻画在葛先生的记忆里，但随着时间变长，爷爷的模样开始变得模糊，然而翻遍家里，却找不到一张爷爷生前的照片。
-
-葛先生：有时候就感觉很想念他，所以就想去找找看，想找到一张照片来看看。
-
-平常想念的时候可以拿出来看看，他好像就陪伴在我的身边，跟我们还是始终在一起。
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 19:39 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 19:44 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 19:46 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 19:30 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-29 19:46 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 19:44 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 19:59 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 19:56 - [CORTIS 小牌大耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 19:35 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 19:33 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 19:35 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 19:36 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 19:56 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 19:45 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 19:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-29 19:50 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 19:51 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 20:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 19:45 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 19:58 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 20:04 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 19:37 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 19:41 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 19:45 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 19:51 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 19:52 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 19:57 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 19:47 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/97880438305.shtml)
-- 2026-06-29 19:30 - [沙特外交大臣将访华](https://www.blog.minike.top/Article/details/639920.shtml)
-- 2026-06-29 19:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/04576033.shtml)
-- 2026-06-29 19:58 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/1647583971.shtml)
-- 2026-06-29 19:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/590091.shtml)
-- 2026-06-29 19:57 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/4114235299.shtml)
-- 2026-06-29 19:51 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/667145.shtml)
-- 2026-06-29 19:33 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/532125132734.shtml)
-- 2026-06-29 19:38 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/6872240502.shtml)
-- 2026-06-29 19:52 - [虞书欣好辣的剧宣](http://www.share.minike.top/Article/details/76405825.shtml)
-- 2026-06-29 19:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/077962.shtml)
-- 2026-06-29 19:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/01443.shtml)
-- 2026-06-29 19:52 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/08186851023.shtml)
-- 2026-06-29 19:44 - [美的“卡bug”空调在欧洲卖爆](https://www.share.kurohicncr.top/Article/details/900019726844.shtml)
-- 2026-06-29 19:40 - [2026年，如果你有100万，你会怎么投资？](https://www.blog.kurohicncr.top/Article/details/62048160.shtml)
+- 2026-06-29 19:42 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.kurohicncr.top/Article/details/598924936779.shtml)
+- 2026-06-29 20:01 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/7761300929.shtml)
+- 2026-06-29 19:56 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/6655411.shtml)
+- 2026-06-29 19:46 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/5375862.shtml)
+- 2026-06-29 19:36 - [4位大妈跳舞爆火多地景区争相邀约](https://www.share.kurohicncr.top/Article/details/20131.shtml)
+- 2026-06-29 19:49 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/449000009.shtml)
+- 2026-06-29 19:40 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.kurohicncr.top/Article/details/11840765.shtml)
+- 2026-06-29 19:46 - [医药生物行业今日涨5.91%](http://www.share.kurohicncr.top/Article/details/77020228139.shtml)
+- 2026-06-29 19:37 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.blog.minike.top/Article/details/0786511.shtml)
+- 2026-06-29 20:04 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/158649463737.shtml)
+- 2026-06-29 19:52 - [CORTIS 小牌大耍](http://www.share.kurohicncr.top/Article/details/850298388.shtml)
+- 2026-06-29 19:46 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/0557865155.shtml)
+- 2026-06-29 20:05 - [拍到真的赛博朋克边缘行者了！](https://www.blog.kurohicncr.top/Article/details/52285965019.shtml)
+- 2026-06-29 20:05 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/71799.shtml)
+- 2026-06-29 20:02 - [无畏为自己的猫正名了](https://www.blog.kurohicncr.top/Article/details/07729277.shtml)

@@ -1,53 +1,61 @@
-# 访杭州地铁突发渗漏工地：227名受影响居民得到快速安置
+# 推动海洋经济高质量发展 加快建设海洋强国
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 21:46 来源：中国新闻网 杭州市地铁集团4月29日发布情况通报称，28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。当天21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。 4月29日，中新社记者前往事发现场看到，相关抢修、监测工作正有序进行。28日晚上至29日1时许，此次
+加快建设海洋强国的号角，再次吹响。 4月24日召开的国务院常务会议，听取推动海洋经济高质量发展情况汇报。 “提高经略海洋能力，高效开发利用海洋，推动海洋经济高质量发展，加快建设海洋强国。”从会议披露的信息来看，海洋经济，正在被赋予全新的战略分量。 海洋对中国意味着什么？ 我国拥有1.8万余公里大陆海岸线、约300万平方公里主张管辖海域。2024年，海洋经济规模达到10.5万亿元
 
 ## 正文
 
-发布时间：2026年04月29日 21:46 来源：中国新闻网 杭州市地铁集团4月29日发布情况通报称，28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。
+加快建设海洋强国的号角，再次吹响。
 
-当天21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。
+4月24日召开的国务院常务会议，听取推动海洋经济高质量发展情况汇报。
 
-4月29日，中新社记者前往事发现场看到，相关抢修、监测工作正有序进行。
+“提高经略海洋能力，高效开发利用海洋，推动海洋经济高质量发展，加快建设海洋强国。
 
-28日晚上至29日1时许，此次受影响的227名周边居民均已得到快速妥善安置。
+”从会议披露的信息来看，海洋经济，正在被赋予全新的战略分量。
 
-(王逸飞 吴君毅 制作 徐妙巧) 责任编辑：【周驰】
+海洋对中国意味着什么？
+
+我国拥有1.8万余公里大陆海岸线、约300万平方公里主张管辖海域。
+
+2024年，海洋经济规模达到10.5万亿元，比2012年翻了一番多，占国内生产总值的7.8%。
+
+2025年海洋生产总值超11万亿元，占国内生产总值比重为7.9%，比上年高0.1个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 19:47 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-29 19:53 - [曝屠颖去世和酒店失责有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 19:46 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-29 19:36 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 19:54 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 19:53 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 19:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 19:35 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 19:43 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 19:41 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 19:51 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 19:43 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 19:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 19:57 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 19:45 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 19:49 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 20:01 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 20:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 19:56 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 19:50 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 19:46 - [欧洲极端高温如何影响家电股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 20:01 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 19:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 19:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 19:41 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 19:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 20:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [明星大侦探第一季](https://www.share.minike.top/Article/details/252482126458.shtml)
-- 2026-06-29 19:55 - [中外合作办学是“低分捷径”吗](http://www.share.minike.top/Article/details/497982200147.shtml)
-- 2026-06-29 19:59 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/5288482156.shtml)
-- 2026-06-29 19:32 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/396518091.shtml)
-- 2026-06-29 19:47 - [新官上任三把火](http://www.blog.minike.top/Article/details/401137.shtml)
-- 2026-06-29 19:30 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/716392036.shtml)
-- 2026-06-29 19:54 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/562856.shtml)
-- 2026-06-29 19:35 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/980992603281.shtml)
-- 2026-06-29 19:48 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/03225123.shtml)
-- 2026-06-29 19:37 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/84081105.shtml)
-- 2026-06-29 19:48 - [第一炉香](https://www.blog.minike.top/Article/details/519376467.shtml)
-- 2026-06-29 19:38 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/90615475059.shtml)
-- 2026-06-29 19:30 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/329204145453.shtml)
-- 2026-06-29 19:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/478936119739.shtml)
-- 2026-06-29 19:59 - [滚石就音乐人屠颖去世事件发声明](http://www.share.minike.top/Article/details/905425007.shtml)
+- 2026-06-29 19:45 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/11382.shtml)
+- 2026-06-29 19:55 - [周生如故](http://www.blog.minike.top/Article/details/3999139039.shtml)
+- 2026-06-29 19:41 - [东宫女主是不是顶级恋爱脑](https://www.blog.minike.top/Article/details/606918.shtml)
+- 2026-06-29 19:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/391342712218.shtml)
+- 2026-06-29 19:44 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/511655530440.shtml)
+- 2026-06-29 19:50 - [韩国小学生都来吐槽了](https://www.blog.minike.top/Article/details/4466755.shtml)
+- 2026-06-29 19:48 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/9018859.shtml)
+- 2026-06-29 19:53 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/27472.shtml)
+- 2026-06-29 19:52 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/3400867.shtml)
+- 2026-06-29 19:51 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/65124.shtml)
+- 2026-06-29 19:44 - [胡光宇一审获刑13年](https://www.share.kurohicncr.top/Article/details/43423336.shtml)
+- 2026-06-29 19:42 - [娜扎搂着我的腰和我合照](https://www.blog.minike.top/Article/details/60104470625.shtml)
+- 2026-06-29 19:38 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/1344008088.shtml)
+- 2026-06-29 19:42 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/37035.shtml)
+- 2026-06-29 19:50 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/025333050071.shtml)

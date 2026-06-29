@@ -1,56 +1,61 @@
-# 华泰期货：供应端矛盾持续积累，燃料油市场结构支撑偏强
+# 华金证券：业绩期过后科技成长会高低切吗？
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 康远宁 市场分析 上期所燃料油期货主力合约夜盘收涨3.38%，报4460元/吨；INE低硫燃料油期货主力合约夜盘收涨4.16%，报5080元/吨。 目前中东局势仍在僵持之中，霍尔木兹海峡维持封锁状态，供应端矛盾持续积累，前期关于美伊达成协议的乐观情绪逐步消退，近期国际油价再度强势上涨，FU、LU则跟随原油端走强。就燃料油基本面而言，目前高硫油基本面相对坚
+来源：华金证券 复盘历史，业绩期过后科技成长内部多出现高低切，主要受前期涨幅、政策和产业趋势等因素驱动。（1）业绩期后科技行业内部多出现高低切。一是业绩期后5 月中上旬业绩对科技行业的指引性相对4 月变弱。二是5 年中业绩期后科技行业内部均出现了高低切。（2）业绩期后科技成长行业内部出现高低切主要受前期涨幅、政策和产业趋势、业绩等因素驱动。一是业绩期后科技成长中出现调整的行业主
 
 ## 正文
 
-来源：华泰期货 作者： 康远宁 市场分析 上期所燃料油期货主力合约夜盘收涨3.38%，报4460元/吨；INE低硫燃料油期货主力合约夜盘收涨4.16%，报5080元/吨。
+来源：华金证券 复盘历史，业绩期过后科技成长内部多出现高低切，主要受前期涨幅、政策和产业趋势等因素驱动。
 
-目前中东局势仍在僵持之中，霍尔木兹海峡维持封锁状态，供应端矛盾持续积累，前期关于美伊达成协议的乐观情绪逐步消退，近期国际油价再度强势上涨，FU、LU则跟随原油端走强。
+（1）业绩期后科技行业内部多出现高低切。
 
-就燃料油基本面而言，目前高硫油基本面相对坚挺，一方面中东供应占比较高，另一方面，冲突爆发后亚洲炼厂进料呈现低硫化态势，进一步降低了高硫燃料油收率。
+一是业绩期后5 月中上旬业绩对科技行业的指引性相对4 月变弱。
 
-低硫燃料油方面，3月份巴西出口增加、近期尼日利亚恢复出口对供应形成一定补充，叠加中东直接出口占比较低，现实矛盾要小于高硫油。
+二是5 年中业绩期后科技行业内部均出现了高低切。
 
-但4月份巴西发货明显回落，且如果封锁时间不断延长，汽柴油溢价攀升将分流低硫燃料油组分，从而间接收紧供应。
+（2）业绩期后科技成长行业内部出现高低切主要受前期涨幅、政策和产业趋势、业绩等因素驱动。
 
-策略 高硫方面：震荡偏强，关注伊朗局势发展 低硫方面：震荡偏强，关注伊朗局势发展 跨品种：无 跨期：无 期现：无 期权：无 风险 地缘冲突、宏观风险、关税风险、制裁风险、原油价格大幅波动等、发电端需求超预期、欧佩克增产幅度不及预期、船燃需求超预期 投资咨询业务资格： 证监许可【2011】1289号 免责声明： 本报告基于本公司认为可靠的、已公开的信息编制，但本公司对该等信息的准确性及完整性不作任何保证。
+一是业绩期后科技成长中出现调整的行业主要受是前期涨幅较高、业绩已经充分反映的行业。
 
-本报 告所载的意见、结论及预测仅反映报告发布当日的观点和判断。
+二是业绩期后科技成长中出现补涨的行业主要是前期涨幅较低、政策和产业趋势向上的行业：首先，5 月中上旬出现补涨的科技行业基本是在4 月涨幅后三的科技行业；其次，政策和产业趋势向上的科技成长行业可能出现补涨；最后，出现补涨的科技成长行业业绩增速排名相对靠后。
 
-在不同时期，本公司可能会发出与本报告所载意 见、评估及预测不一致的研究报告。
+当前来看，业绩期过后科技成长短期可能出现高低切，医药、传媒、计算机、电新等可能出现补涨。
 
 ## 相关推荐
 
-- 2026-06-29 19:58 - [沙特外交大臣将访华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 19:34 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 19:58 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 19:51 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 19:51 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-29 19:56 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 19:59 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 19:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 19:30 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-29 19:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 19:45 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 19:43 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 20:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 20:05 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 19:44 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 19:54 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 20:04 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-29 19:53 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 20:03 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 19:47 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 19:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 19:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 19:59 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 19:43 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 19:55 - [RAY评乘风2026总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/63270100.shtml)
-- 2026-06-29 19:50 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/024286.shtml)
-- 2026-06-29 19:53 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/1825864.shtml)
-- 2026-06-29 19:51 - [沉睡花园](http://www.share.minike.top/Article/details/04892047346.shtml)
-- 2026-06-29 19:59 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/58251.shtml)
-- 2026-06-29 19:36 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/91064.shtml)
-- 2026-06-29 19:30 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/76401492090.shtml)
-- 2026-06-29 19:36 - [V8](https://www.share.kurohicncr.top/Article/details/71226176508.shtml)
-- 2026-06-29 19:46 - [斛珠夫人](https://www.blog.minike.top/Article/details/30919.shtml)
-- 2026-06-29 19:58 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/7394874.shtml)
-- 2026-06-29 19:36 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/434298.shtml)
-- 2026-06-29 19:38 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/6835316828.shtml)
-- 2026-06-29 19:39 - [斛珠夫人](https://www.share.minike.top/Article/details/7081588836.shtml)
-- 2026-06-29 19:49 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/80321842703.shtml)
-- 2026-06-29 19:46 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/048792253721.shtml)
+- 2026-06-29 19:42 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/730232774.shtml)
+- 2026-06-29 19:50 - [周生如故](https://www.share.minike.top/Article/details/561250627282.shtml)
+- 2026-06-29 19:50 - [青春环游记第三季](http://www.blog.minike.top/Article/details/86956.shtml)
+- 2026-06-29 19:57 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/5622984.shtml)
+- 2026-06-29 19:58 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/254749.shtml)
+- 2026-06-29 19:50 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/7408129.shtml)
+- 2026-06-29 19:39 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/58758544.shtml)
+- 2026-06-29 19:55 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/1077946.shtml)
+- 2026-06-29 19:53 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/06545.shtml)
+- 2026-06-29 19:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/85817.shtml)
+- 2026-06-29 19:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/80068659.shtml)
+- 2026-06-29 19:37 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/65985.shtml)
+- 2026-06-29 19:45 - [小娘惹](https://www.blog.minike.top/Article/details/58103212.shtml)
+- 2026-06-29 20:03 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/7344628.shtml)
+- 2026-06-29 20:01 - [外交部谈对日出口管制措施](http://www.blog.kurohicncr.top/Article/details/7984683143.shtml)

@@ -1,42 +1,56 @@
-# 盐湖股份：一季度归母净利润30.27亿元，同比增加154.78%
+# 酒价内参4月24日价格发布：青花汾20小幅上涨1元
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-盐湖股份4月29日公告，2026年第一季度实现营业收入64.32亿元，同比增长94.89%；归属于上市公司股东的净利润30.27亿元，同比增长154.78%；基本每股收益0.572元。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月24日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9919元，较昨日下跌9元，自高位小幅回落。市场连续四日持续上涨后出现调整，终端交投情绪保持平稳，但核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨六跌，输家略
 
 ## 正文
 
-盐湖股份4月29日公告，2026年第一季度实现营业收入64.32亿元，同比增长94.89%；归属于上市公司股东的净利润30.27亿元，同比增长154.78%；基本每股收益0.572元。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月24日整体小幅回落。
+
+如果主要单品各取一瓶整体打包售卖，今日总售价为9919元，较昨日下跌9元，自高位小幅回落。
+
+市场连续四日持续上涨后出现调整，终端交投情绪保持平稳，但核心单品涨跌分化依然显著。
+
+今日白酒市场11大单品五涨六跌，输家略占上风。
+
+上涨方面，贵州茅台飞天酒的涨幅居前，环比大幅上涨16元/瓶，创4月1日以来最大涨幅，重返1730元关口上方；洋河梦之蓝M6+上涨3元/瓶；贵州茅台精品酒、五粮液1618及青花汾20均小幅上涨1元/瓶。
+
+下跌方面，习酒君品跌幅居前，下跌10元/瓶，前一日该酒品创下近一个月新高后今天明显回落；国窖1573下跌6元/瓶，连续第二天大幅回调；古井贡古20与青花郎均下跌5元/瓶，其中青花郎再度回到700元下方；五粮液普五八代下跌3元/瓶；水晶剑南春小幅回落2元/瓶。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 19:39 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 19:41 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 19:33 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 19:41 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 19:42 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 19:31 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 19:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 19:50 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 19:56 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 19:41 - [周杰伦演唱会含星量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 19:48 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-29 19:36 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 19:44 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 19:56 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 19:58 - [AG 宫斗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 19:43 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 19:42 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-29 19:59 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [金刚川](https://www.share.minike.top/Article/details/013023629314.shtml)
-- 2026-06-29 19:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/9826066207.shtml)
-- 2026-06-29 19:34 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/9383714.shtml)
-- 2026-06-29 19:49 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/84538420446.shtml)
-- 2026-06-29 19:42 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/544302446848.shtml)
-- 2026-06-29 19:43 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/72244432.shtml)
-- 2026-06-29 19:47 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9976980.shtml)
-- 2026-06-29 19:44 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/10150477.shtml)
-- 2026-06-29 19:40 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/927654.shtml)
-- 2026-06-29 19:50 - [郑钦文谈再战西尼亚科娃](http://www.blog.minike.top/Article/details/4119179715.shtml)
-- 2026-06-29 19:36 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/1365693019.shtml)
-- 2026-06-29 19:43 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/54283.shtml)
-- 2026-06-29 19:31 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/54666220348.shtml)
-- 2026-06-29 19:49 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/95340.shtml)
-- 2026-06-29 19:33 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/348008899815.shtml)
+- 2026-06-29 19:53 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.blog.minike.top/Article/details/2023708.shtml)
+- 2026-06-29 19:39 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/77887951060.shtml)
+- 2026-06-29 19:59 - [王楚钦称抽签结果出来心情不好](https://www.blog.kurohicncr.top/Article/details/05889147078.shtml)
+- 2026-06-29 20:01 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/85536.shtml)
+- 2026-06-29 19:39 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/6950159.shtml)
+- 2026-06-29 19:52 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/71404874239.shtml)
+- 2026-06-29 20:04 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/476467919567.shtml)
+- 2026-06-29 19:48 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/485550483.shtml)
+- 2026-06-29 19:44 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/885121661218.shtml)
+- 2026-06-29 19:37 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.minike.top/Article/details/4402756217.shtml)
+- 2026-06-29 19:49 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/54565.shtml)
+- 2026-06-29 19:45 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/26901835.shtml)
+- 2026-06-29 19:57 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/601585823075.shtml)
+- 2026-06-29 19:50 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/02683.shtml)
+- 2026-06-29 20:00 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/25207450326.shtml)

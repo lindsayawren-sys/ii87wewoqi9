@@ -1,44 +1,46 @@
-# 特朗普：鲍威尔想留在美联储是因为在其他地方找不到工作
+# 丽珠医药将于7月13日派发末期股息每10股14.3元
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-专题：美联储连续三次维持利率不变 4人投反对票 鲍威尔称将留任理事 特朗普在Truth Social上发帖写道，美联储主席杰罗姆·鲍威尔“想留在美联储，因为他在其他地方找不到工作——没人想要他。”责任编辑：李桐
+丽珠医药（01513）发布公告，将于2026年7月13日派发2025年12月31日止年度末期股息每10股14.3元。责任编辑：卢昱君
 
 ## 正文
 
-专题：美联储连续三次维持利率不变 4人投反对票 鲍威尔称将留任理事 特朗普在Truth Social上发帖写道，美联储主席杰罗姆·鲍威尔“想留在美联储，因为他在其他地方找不到工作——没人想要他。
+丽珠医药（01513）发布公告，将于2026年7月13日派发2025年12月31日止年度末期股息每10股14.3元。
 
-”责任编辑：李桐
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 19:46 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-29 19:50 - [官方通报一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 19:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 19:32 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 19:54 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-29 19:39 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 19:36 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 19:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 19:53 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-29 20:00 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 19:49 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 19:53 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 19:56 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 19:38 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-29 19:47 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 19:56 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 19:38 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 19:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 19:46 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 19:44 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 19:47 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/7288409.shtml)
-- 2026-06-29 19:43 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/24895565.shtml)
-- 2026-06-29 19:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/8256628308.shtml)
-- 2026-06-29 19:38 - [第一炉香](http://www.blog.minike.top/Article/details/96902351.shtml)
-- 2026-06-29 19:45 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/111778667.shtml)
-- 2026-06-29 19:34 - [官媒首曝六代机？大V解读](http://www.blog.kurohicncr.top/Article/details/69387.shtml)
-- 2026-06-29 19:52 - [如果你一直单身，你准备怎么养老？](https://www.share.kurohicncr.top/Article/details/259075743604.shtml)
-- 2026-06-29 19:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/646827155068.shtml)
-- 2026-06-29 19:35 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/46465812.shtml)
-- 2026-06-29 19:42 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/0409147263.shtml)
-- 2026-06-29 19:43 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/76257.shtml)
-- 2026-06-29 19:49 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/433693.shtml)
-- 2026-06-29 19:32 - [刘嘉玲为64岁梁朝伟庆生](https://www.blog.minike.top/Article/details/53322462593.shtml)
-- 2026-06-29 19:41 - [李连杰否认不管前妻两女儿](http://www.blog.minike.top/Article/details/2269100995.shtml)
-- 2026-06-29 19:46 - [张雪机车杀向海外](http://www.share.minike.top/Article/details/504678.shtml)
+- 2026-06-29 19:38 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/965726309655.shtml)
+- 2026-06-29 19:51 - [欧洲多国高温突破40摄氏度](https://www.share.minike.top/Article/details/69904502610.shtml)
+- 2026-06-29 19:41 - [世界杯预测史上最不吃压力之物](http://www.share.kurohicncr.top/Article/details/51355.shtml)
+- 2026-06-29 19:46 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/178171113220.shtml)
+- 2026-06-29 19:57 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/3569353105.shtml)
+- 2026-06-29 19:44 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/75328126902.shtml)
+- 2026-06-29 19:44 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/66474.shtml)
+- 2026-06-29 19:46 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/74933751342.shtml)
+- 2026-06-29 19:53 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/540428727.shtml)
+- 2026-06-29 19:44 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/78235740.shtml)
+- 2026-06-29 20:04 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.minike.top/Article/details/99847924384.shtml)
+- 2026-06-29 20:04 - [朱雀三号完成静态点火试验](http://www.blog.minike.top/Article/details/1885416092.shtml)
+- 2026-06-29 19:50 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/882262979.shtml)
+- 2026-06-29 20:01 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/150933.shtml)
+- 2026-06-29 19:50 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/30737551.shtml)

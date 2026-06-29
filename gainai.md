@@ -1,55 +1,50 @@
-# 黄河流域今年汛期预计旱涝并重
+# 以色列国防部长卡茨：以方准备重启对伊战争
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。 据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。降水集中时段出现在7月中旬中期、7月下
+以色列国防部长卡茨表示，以色列准备恢复对伊朗的战争。 卡茨在声明中称：“我们在等待美国批准，以完成对哈梅内伊政权的彻底铲除。” 他表示，以色列寻求通过摧毁关键能源和电力设施，使伊朗“倒退回黑暗时代”。 卡茨还威胁称，将对伊朗发动“不同且致命”的打击。责任编辑：陈钰嘉
 
 ## 正文
 
-中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。
+以色列国防部长卡茨表示，以色列准备恢复对伊朗的战争。
 
-据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。
+卡茨在声明中称：“我们在等待美国批准，以完成对哈梅内伊政权的彻底铲除。
 
-降水集中时段出现在7月中旬中期、7月下旬中后期至8月上旬前期、8月中旬中后期。
+” 他表示，以色列寻求通过摧毁关键能源和电力设施，使伊朗“倒退回黑暗时代”。
 
-流域大部气温偏高，其中黄河中游南部、下游地区高温日数偏多明显。
+卡茨还威胁称，将对伊朗发动“不同且致命”的打击。
 
-黄委方面称，今年汛期黄河流域需密切注意防范区域性、阶段性强降水及其引发的中小河流洪水风险；要紧盯局地强对流天气，做好城市内涝、山洪、地质灾害等次生灾害应对；要防范台风暴雨灾害对流域中下游地区的不利影响；要关注中下游地区高温天气影响，警惕可能出现的区域性、阶段性干旱风险。
-
-(完)
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 19:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 19:30 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 19:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 19:47 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 19:50 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 19:42 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
-- 2026-06-29 19:30 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 19:39 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 19:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 19:46 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 19:56 - [医药生物行业今日涨5.91%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 19:44 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 19:32 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 19:48 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 19:52 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 19:57 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 19:57 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 19:39 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 19:51 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 19:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 20:01 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 19:50 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 19:57 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/7376648063.shtml)
-- 2026-06-29 19:35 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/64764405.shtml)
-- 2026-06-29 19:54 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/665974621639.shtml)
-- 2026-06-29 19:35 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/02032.shtml)
-- 2026-06-29 19:34 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/2811238046.shtml)
-- 2026-06-29 19:42 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/546834316382.shtml)
-- 2026-06-29 19:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/31587465117.shtml)
-- 2026-06-29 19:44 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/6505237.shtml)
-- 2026-06-29 19:30 - [千与千寻](http://www.share.kurohicncr.top/Article/details/4365997.shtml)
-- 2026-06-29 19:35 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/988490596.shtml)
-- 2026-06-29 19:51 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/17125.shtml)
-- 2026-06-29 19:37 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/42677607119.shtml)
-- 2026-06-29 19:42 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/96379619.shtml)
-- 2026-06-29 19:34 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.kurohicncr.top/Article/details/87731728.shtml)
-- 2026-06-29 19:54 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/597581331.shtml)
+- 2026-06-29 19:48 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/0693221146.shtml)
+- 2026-06-29 19:45 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/99214085564.shtml)
+- 2026-06-29 19:49 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.minike.top/Article/details/528211347.shtml)
+- 2026-06-29 19:45 - [第一炉香](https://www.share.minike.top/Article/details/74325435025.shtml)
+- 2026-06-29 19:53 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/04837379.shtml)
+- 2026-06-29 19:59 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/2518699696.shtml)
+- 2026-06-29 20:03 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/740682.shtml)
+- 2026-06-29 20:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/94939398527.shtml)
+- 2026-06-29 19:56 - [A股割裂行情有变化了吗](http://www.share.kurohicncr.top/Article/details/8069827.shtml)
+- 2026-06-29 19:59 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/10431723317.shtml)
+- 2026-06-29 20:04 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/216868730.shtml)
+- 2026-06-29 19:36 - [学者：建设性战略稳定重塑中美关系](https://www.share.kurohicncr.top/Article/details/93339705.shtml)
+- 2026-06-29 19:54 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/6904314278.shtml)
+- 2026-06-29 19:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/3931394.shtml)
+- 2026-06-29 19:53 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/4711501194.shtml)

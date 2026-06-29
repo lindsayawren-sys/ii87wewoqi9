@@ -1,57 +1,58 @@
-# 传雅诗兰黛考虑以每股18-19欧元收购Puig
+# 首个“全民阅读活动周”遇上世界读书日 上海多所高校书香满校园
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-据西班牙《Expansión》周三援引知情人士消息报道，美国化妆品巨头雅诗兰黛正考虑以每股18至19欧元的价格收购Puig的全部B类股份。 交易估值约29亿欧元 基于该报价区间，按Puig B类股份总数计算，此次交易估值约为26亿至28亿欧元。然而，如约20%的小股东选择现金对价，且将家族持有的不可出售的A类股归入一揽子计划，雅诗兰黛的现金支出或将高达32.5亿欧元。 两家公司
+中新网上海4月23日电(记者 许婧)4月23日是第31个世界读书日，全国首个“全民阅读活动周”也正火热进行。在生成式人工智能快速迭代的当下，阅读的价值被重新定义与审视。上海多所高校同步开启系列读书活动，以多样形式搭建阅读平台，推动师生爱读书、读好书、善读书，让书香浸润校园，让阅读赋能成长。 当日，上海财经大学以“阅读不止于答案”(Read Beyond Answers)为主题，
 
 ## 正文
 
-据西班牙《Expansión》周三援引知情人士消息报道，美国化妆品巨头雅诗兰黛正考虑以每股18至19欧元的价格收购Puig的全部B类股份。
+中新网上海4月23日电(记者 许婧)4月23日是第31个世界读书日，全国首个“全民阅读活动周”也正火热进行。
 
-交易估值约29亿欧元 基于该报价区间，按Puig B类股份总数计算，此次交易估值约为26亿至28亿欧元。
+在生成式人工智能快速迭代的当下，阅读的价值被重新定义与审视。
 
-然而，如约20%的小股东选择现金对价，且将家族持有的不可出售的A类股归入一揽子计划，雅诗兰黛的现金支出或将高达32.5亿欧元。
+上海多所高校同步开启系列读书活动，以多样形式搭建阅读平台，推动师生爱读书、读好书、善读书，让书香浸润校园，让阅读赋能成长。
 
-两家公司早在今年3月就已确认正在就潜在合并进行谈判，一旦成功将打造全球最大的高端美妆集团，将Tom Ford、Carolina Herrera、Jean Paul Gaultier和倩碧等知名品牌汇聚一堂。
+当日，上海财经大学以“阅读不止于答案”(Read Beyond Answers)为主题，启动2026年书香文化节，系列活动涵盖书记文化沙龙、经典荐读、书香游园会等。
 
-报道称，双方谈判仍在继续，财务和治理问题尚待解决。
+第四期 “书记文化沙龙” 在匡时书店举行，嘉宾与师生共同探讨数智时代阅读的意义，现场发布2025年校园阅读数据，多位嘉宾结合自身研究领域分享阅读心得。
 
-Puig股价较发行价折价27% 周三下午交易中，这家总部位于巴塞罗那的公司股价下跌2.4%，至17.84欧元。
+活动同步启动2026年度“通识经典推荐阅读书目”发布暨第五届“阅读之星·悦读达人”评选，获奖学生代表分享阅读感悟，强调阅读对个人成长的重要性。
 
-自2024年5月上市以来，该股一直未能恢复元气，目前较首次公开募股价格低27%。
+此外，书香游园会、书香雅集等活动打破传统阅读局限，“以书易蔬”“换书市集”等特色环节，让阅读成为可互动、可分享的沉浸式体验，“AI伴读·阅见生长”活动则实现科技与阅读的深度融合。
 
-据此前报道，雅诗兰黛已聘请摩根大通牵头约50亿欧元的融资方案，以完成对Puig的现金加股票收购。
+上海理工大学以 “文润理工，智创未来” 为主题，策划开展系列阅读推广活动，突破传统阅读固有模式，鼓励学生化身 “阅读主理人”。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 19:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 19:46 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 19:30 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 19:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 19:52 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 19:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 19:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 19:44 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-29 19:56 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 19:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 19:49 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 19:36 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 20:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 19:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 19:53 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-29 19:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 19:49 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 19:36 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 19:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 19:55 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 19:36 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 19:43 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/11757654150.shtml)
-- 2026-06-29 19:34 - [清华姚班UP主详解AI专业就业](https://www.share.minike.top/Article/details/960872.shtml)
-- 2026-06-29 19:43 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/7229189140.shtml)
-- 2026-06-29 19:54 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/757530917.shtml)
-- 2026-06-29 19:33 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/05898700864.shtml)
-- 2026-06-29 19:39 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/119062.shtml)
-- 2026-06-29 19:37 - [四川地震前夕 街头电线上站满燕子](https://www.blog.kurohicncr.top/Article/details/84488919.shtml)
-- 2026-06-29 19:51 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/9977779.shtml)
-- 2026-06-29 19:55 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/86875118003.shtml)
-- 2026-06-29 19:44 - [日本足球能掀翻巴西吗](https://www.blog.kurohicncr.top/Article/details/03696.shtml)
-- 2026-06-29 19:37 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/86880308060.shtml)
-- 2026-06-29 19:32 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/401369.shtml)
-- 2026-06-29 19:35 - [当家电外通风口出现鸟窝](https://www.share.kurohicncr.top/Article/details/521859112202.shtml)
-- 2026-06-29 19:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/7646856965.shtml)
-- 2026-06-29 19:39 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/11188975663.shtml)
+- 2026-06-29 19:53 - [乔家的儿女](https://www.blog.minike.top/Article/details/2657802.shtml)
+- 2026-06-29 19:53 - [T1零封KC MSI](http://www.share.minike.top/Article/details/55169732250.shtml)
+- 2026-06-29 19:52 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.blog.minike.top/Article/details/16564.shtml)
+- 2026-06-29 19:42 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/716374398.shtml)
+- 2026-06-29 19:41 - [学者：建设性战略稳定重塑中美关系](http://www.blog.kurohicncr.top/Article/details/93815368.shtml)
+- 2026-06-29 19:37 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/645963.shtml)
+- 2026-06-29 20:01 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/634968.shtml)
+- 2026-06-29 19:51 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/716594923.shtml)
+- 2026-06-29 19:57 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/746197247.shtml)
+- 2026-06-29 19:36 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/1776660064.shtml)
+- 2026-06-29 20:04 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/8816518.shtml)
+- 2026-06-29 19:42 - [流金岁月](https://www.share.minike.top/Article/details/521427241059.shtml)
+- 2026-06-29 19:50 - [伊朗足球队将启程回国](http://www.share.minike.top/Article/details/72854066.shtml)
+- 2026-06-29 19:45 - [让AI做一个账号，它会做成什么样？](https://www.blog.kurohicncr.top/Article/details/94365454.shtml)
+- 2026-06-29 20:01 - [扬名立万](http://www.share.kurohicncr.top/Article/details/65635319.shtml)

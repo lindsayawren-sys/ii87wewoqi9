@@ -1,61 +1,60 @@
-# “人机大战”十年后，谷歌DeepMind联合创始人再会李世石
+# 岚图汽车谢文云：用户对智能驾驶态度已经从“不敢用”转向“愿意用”，并加速走向“离不开”
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-谷歌DeepMind联合创始人德米斯·哈萨比斯（Demis Hassabis）周三与韩国传奇围棋选手李世石重聚。十年前，李世石曾与谷歌的人工智能程序AlphaGo进行了一场举世瞩目的“人机大战”。 哈萨比斯在谷歌于首尔市中心举办的活动上表示：“很高兴能回到这里，回到一切开始的地方。”他指出，那场历史性的五局比赛“标志着过去十年间人工智能取得惊人进步的开端”。 当被问及2016年
+专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。岚图汽车科技股份有限公司副总经理谢文云出席并演讲。 谈及论坛主题，谢文云表示，这20个字好切中了当前产业从技术研发迈向规模商用的两个核心命题——如何跑得快，如何行得稳。 针对跑得快，谢文云认为，拼的是体系能力，而不是谁的参数最高。他指出，当下
 
 ## 正文
 
-谷歌DeepMind联合创始人德米斯·哈萨比斯（Demis Hassabis）周三与韩国传奇围棋选手李世石重聚。
+专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。
 
-十年前，李世石曾与谷歌的人工智能程序AlphaGo进行了一场举世瞩目的“人机大战”。
+岚图汽车科技股份有限公司副总经理谢文云出席并演讲。
 
-哈萨比斯在谷歌于首尔市中心举办的活动上表示：“很高兴能回到这里，回到一切开始的地方。
+谈及论坛主题，谢文云表示，这20个字好切中了当前产业从技术研发迈向规模商用的两个核心命题——如何跑得快，如何行得稳。
 
-”他指出，那场历史性的五局比赛“标志着过去十年间人工智能取得惊人进步的开端”。
+针对跑得快，谢文云认为，拼的是体系能力，而不是谁的参数最高。
 
-当被问及2016年李世石与AlphaGo的比赛时，这位谷歌高管指出，AlphaGo的第37步棋是“最不可思议的时刻”，展现了人工智能的创造力。
+他指出，当下，中国汽车产业正从“智能化的先行者”迈向“自动驾驶的深水区”。
 
-在2016年比赛的第二局中，AlphaGo在第37步棋中，走出了非常规的“五路肩冲”，这一步棋被广泛认为是制胜的关键，最终帮助它战胜了李世石。
+中国汽协报告预估，2025年我国L2级辅助驾驶新车渗透率可达66%，城市NOA渗透率近15%，智能网联汽车市场规模迈入万亿级门槛，这些数字背后一个根本性的变化正在发生：用户对智能驾驶的态度已经从“不敢用”转向“愿意用”，而且加速走向“离不开”。
 
-哈萨比斯表示，人工智能的这种创造力可以引领人类在科学领域迎来新的“复兴”，就像它帮助他解决了困扰他50年的“蛋白质折叠难题”一样，而这一难题最终让他荣获2024年诺贝尔化学奖。
+但是，他也提到，一些企业陷入了“堆料竞赛”，仿佛谁的数字大谁就跑得快，这是误区。
 
-“我认为我们甚至有可能在未来10到20年内攻克所有疾病。
+岚图的判断是：智能驾驶的终极竞争，本质是体系能力的竞争。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 19:39 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 19:42 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 19:31 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 19:53 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 19:53 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 19:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 19:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 19:37 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 19:54 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 19:59 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 19:45 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 19:53 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 19:50 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 19:48 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 19:37 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
+- 2026-06-29 19:46 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 19:39 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 19:52 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 20:04 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 20:01 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 19:55 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 19:53 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 20:04 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 19:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 19:51 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 19:57 - [林逸向方筱然求婚了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 19:51 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 19:42 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:43 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/84922612.shtml)
-- 2026-06-29 19:32 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/9626346.shtml)
-- 2026-06-29 19:54 - [第二波数码涨价潮来袭](http://www.share.kurohicncr.top/Article/details/52174401038.shtml)
-- 2026-06-29 19:51 - [1个视频看懂2026志愿填报新专业](https://www.blog.minike.top/Article/details/0912092.shtml)
-- 2026-06-29 19:39 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/297612.shtml)
-- 2026-06-29 19:49 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.minike.top/Article/details/86613099.shtml)
-- 2026-06-29 19:53 - [王楚钦称抽签结果出来心情不好](http://www.share.kurohicncr.top/Article/details/383307661.shtml)
-- 2026-06-29 19:48 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/183630712865.shtml)
-- 2026-06-29 19:56 - [蔚来回应车漆洗车时被冲掉](http://www.share.minike.top/Article/details/077507.shtml)
-- 2026-06-29 19:36 - [朱雀三号重复使用遥二运载火箭新进展](https://www.blog.kurohicncr.top/Article/details/254590.shtml)
-- 2026-06-29 19:32 - [虞书欣好辣的剧宣](https://www.share.kurohicncr.top/Article/details/9905405005.shtml)
-- 2026-06-29 19:32 - [我和我的家乡](http://www.share.minike.top/Article/details/29408.shtml)
-- 2026-06-29 19:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/72479.shtml)
-- 2026-06-29 19:41 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/812197991838.shtml)
-- 2026-06-29 19:57 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/79173380.shtml)
+- 2026-06-29 19:58 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/9015853.shtml)
+- 2026-06-29 20:01 - [歼-15型舰载机为何被歼-15T替代](https://www.share.minike.top/Article/details/83810276799.shtml)
+- 2026-06-29 19:49 - [温网](http://www.share.minike.top/Article/details/9549655.shtml)
+- 2026-06-29 19:38 - [挪威王储妃长子两次强奸获刑](https://www.share.kurohicncr.top/Article/details/67451954.shtml)
+- 2026-06-29 19:41 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/481679974.shtml)
+- 2026-06-29 19:56 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/652837351.shtml)
+- 2026-06-29 19:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/8131107090.shtml)
+- 2026-06-29 20:04 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/7974062.shtml)
+- 2026-06-29 19:37 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/37450616.shtml)
+- 2026-06-29 20:00 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/9735051085.shtml)
+- 2026-06-29 19:42 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/61327.shtml)
+- 2026-06-29 20:03 - [《新闻联播》正在直播](http://www.blog.kurohicncr.top/Article/details/8009819.shtml)
+- 2026-06-29 19:41 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/828231156411.shtml)
+- 2026-06-29 19:59 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/592432785688.shtml)
+- 2026-06-29 19:36 - [哈兰德玩游戏连女友都不让着](https://www.blog.kurohicncr.top/Article/details/6769061287.shtml)

@@ -1,57 +1,56 @@
-# 从“生存兜底”迈向“发展赋能” 社会救助将有国家立法
+# “金融+”赋能川企借港出海拓全球市场
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-4月30日，经过全国人大常委会三次审议的社会救助法草案(以下简称“草案”)将提请十四届全国人大常委会第二十二次会议表决。 社会救助作为兜底线、救急难的制度，对于保障困难群众基本生活、维护社会和谐稳定意义重大，“以立法方式进一步完善、成熟、定型非常重要。”南开大学社会建设与管理研究院院长关信平在接受中青报·中青网记者采访时表示，“即将出台的社会救助法对社会救助制度在法治化、规范化
+中新社成都4月23日电 (王利文)以“金融+”赋能川企出海为主题的“内地企业出海专班”西部首场专题交流活动23日在成都举行，川港两地聚焦跨境融资、上市路径、风险合规等议题，共商如何借助香港国际金融中心优势，赋能川企开拓全球市场。 2025年，香港IPO(首次公开募股)集资额居全球首位，处理着全球约80%离岸人民币结算业务，绿色债券发行量连续8年亚洲第一。香港特区政府投资推广署金
 
 ## 正文
 
-4月30日，经过全国人大常委会三次审议的社会救助法草案(以下简称“草案”)将提请十四届全国人大常委会第二十二次会议表决。
+中新社成都4月23日电 (王利文)以“金融+”赋能川企出海为主题的“内地企业出海专班”西部首场专题交流活动23日在成都举行，川港两地聚焦跨境融资、上市路径、风险合规等议题，共商如何借助香港国际金融中心优势，赋能川企开拓全球市场。
 
-社会救助作为兜底线、救急难的制度，对于保障困难群众基本生活、维护社会和谐稳定意义重大，“以立法方式进一步完善、成熟、定型非常重要。
+2025年，香港IPO(首次公开募股)集资额居全球首位，处理着全球约80%离岸人民币结算业务，绿色债券发行量连续8年亚洲第一。
 
-”南开大学社会建设与管理研究院院长关信平在接受中青报·中青网记者采访时表示，“即将出台的社会救助法对社会救助制度在法治化、规范化的路径下有效运行，将起到坚实的支撑作用。
+香港特区政府投资推广署金融服务及科技、可持续发展环球总裁梁瀚璟表示，香港不仅是内地企业上市融资的重要平台，更能为其提供上市前融资、财资管理等多元化金融服务。
 
-” 从1995年起多次被纳入立法规划，到2014年国务院公布《社会救助暂行办法》(以下简称“暂行办法”)，再到社会救助有了国家立法，立法工作历经30余年。
+四川省商务厅一级巡视员梁勇介绍，川港两地产业互补性强，经贸纽带日益牢固。
 
-关信平分析，社会救助涉及政府和社会对困难群众开展救助帮扶，如何科学界定救助对象、救助到什么程度、以哪些方式救助等，都需在较长实践中不断检验。
+2025年，川企在港新设公司54家；川港货物贸易额突破527亿元(人民币，下同)，同比增长76%。
 
-“立法必须谨慎，相关制度体系没有成熟前，在摸索中逐步完善。
+目前，超340家川企赴港投资，43家川企成功登陆香港资本市场，总融资超730亿元。
 
-”关信平说。
+他希望川企借助香港对接国际资本，让出海步伐更稳健。
 
-华北电力大学教授、中国社会保障学会社会救助分会副会长姚建平也认为，社会救助涵盖了多项专项救助，制度体系较为复杂，需要协调的政府部门工作太多，是这一制度立法进程较为漫长的重要原因。
+现场，业内专家围绕出海融资、合规管理等展开交流，通过圆桌会精准对接川企上市需求。
 
 ## 相关推荐
 
-- 2026-06-29 19:49 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 19:46 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 19:59 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 19:35 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-29 19:32 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 19:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 19:56 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 19:32 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 19:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 19:48 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-29 19:44 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 19:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 19:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 19:42 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 19:37 - [两老人多次到一洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-29 19:52 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-29 19:56 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 20:00 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 19:51 - [天柱山回应网红打卡树枝被砍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 20:04 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 19:38 - [四川地震前夕 街头电线上站满燕子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:58 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/01707.shtml)
-- 2026-06-29 19:30 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.share.kurohicncr.top/Article/details/1727228129.shtml)
-- 2026-06-29 19:56 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/17175268.shtml)
-- 2026-06-29 19:34 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/3789118.shtml)
-- 2026-06-29 19:34 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/9490042614.shtml)
-- 2026-06-29 19:52 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/5395592.shtml)
-- 2026-06-29 19:52 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/634404035.shtml)
-- 2026-06-29 19:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/599096102.shtml)
-- 2026-06-29 19:54 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/07164.shtml)
-- 2026-06-29 19:43 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/757583463036.shtml)
-- 2026-06-29 19:49 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/82440504615.shtml)
-- 2026-06-29 19:50 - [金刚川](https://www.share.minike.top/Article/details/49393.shtml)
-- 2026-06-29 19:37 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/989057802.shtml)
-- 2026-06-29 19:36 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/48661.shtml)
-- 2026-06-29 19:51 - [一家三口吃溪石斑鱼中毒](https://www.blog.minike.top/Article/details/422039335256.shtml)
+- 2026-06-29 19:42 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/10391454185.shtml)
+- 2026-06-29 19:45 - [爱很美味](https://www.share.kurohicncr.top/Article/details/3821795364.shtml)
+- 2026-06-29 19:38 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/830935.shtml)
+- 2026-06-29 19:59 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/81074492183.shtml)
+- 2026-06-29 19:44 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/760314.shtml)
+- 2026-06-29 19:50 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/742829332.shtml)
+- 2026-06-29 19:42 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/35526.shtml)
+- 2026-06-29 20:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/5191964074.shtml)
+- 2026-06-29 19:55 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/4190399147.shtml)
+- 2026-06-29 19:55 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.minike.top/Article/details/02040177.shtml)
+- 2026-06-29 19:49 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/89053.shtml)
+- 2026-06-29 20:02 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/38590815275.shtml)
+- 2026-06-29 19:50 - [韩文体部对韩足协开展审计 查出局原因](https://www.blog.minike.top/Article/details/363650019294.shtml)
+- 2026-06-29 19:47 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/1128486.shtml)
+- 2026-06-29 19:44 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/34742.shtml)

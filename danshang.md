@@ -1,56 +1,59 @@
-# 绿地控股发布2025年度ESG报告，全面助力环境更绿色、推动社会更美好、赋能发展可持续
+# 科创综指，历史新高！
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：绿地控股集团 Greenland News 4月29日，绿地控股发布《2025年度环境、社会和公司治理（ESG）报告》，这是公司连续第三年发布年度ESG报告。报告显示，2025年，绿地控股在环境、社会和治理等领域积极行动、持续创新，助力环境更绿色、推动社会更美好、赋能发展可持续，进一步推动企业转型发展
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月27日，沪指盘中窄幅震荡，科创综指突破1900点，创历史新高；港股走势分化，恒生科技指数一度涨超1%。 具体来看，沪指盘中窄幅震荡上扬，创业板指弱势下探，科创综指大幅拉升。截至收盘，沪指涨0.16%报4086.34点，深证成指涨0.37%，创业板指跌0.52%，科创综指涨2.5%，沪深北三市合计成交约2
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：绿地控股集团 Greenland News 4月29日，绿地控股发布《2025年度环境、社会和公司治理（ESG）报告》，这是公司连续第三年发布年度ESG报告。
+4月27日，沪指盘中窄幅震荡，科创综指突破1900点，创历史新高；港股走势分化，恒生科技指数一度涨超1%。
 
-报告显示，2025年，绿地控股在环境、社会和治理等领域积极行动、持续创新，助力环境更绿色、推动社会更美好、赋能发展可持续，进一步推动企业转型发展实现了重大突破。
+具体来看，沪指盘中窄幅震荡上扬，创业板指弱势下探，科创综指大幅拉升。
 
-2025年，绿地控股凭借在ESG与可持续发展领域的突出表现，在A股、港股6508家中国上市公司样本中脱颖而出，成功入选中央广播电视总台“中国ESG上市公司先锋100”和“中国ESG上市公司国企先锋100”，分别位列榜单第90位和第11位。
+截至收盘，沪指涨0.16%报4086.34点，深证成指涨0.37%，创业板指跌0.52%，科创综指涨2.5%，沪深北三市合计成交约2.61万亿元，较此前一日减少528亿元。
 
-致力环境更绿色，以低碳环保擦亮生态底色 绿地始终坚持绿色低碳的发展理念，把环境责任融入战略与经营全链条。
+A股市场近3300股飘红，半导体板块大幅走高，帝奥微、欧莱新材20%涨停，芯源微等大涨；PCB概念再度爆发，方邦股份盘中涨停创历史新高，景旺电子、山东玻纤、光华科技等涨停，生益电子亦创新高；锂矿概念强势，西藏珠峰两连板，万里石午后涨停。
 
-2025年，绿地持续完善环境管理体系，把绿色低碳理念贯穿项目规划、设计、施工、运营全过程。
+值得注意的是，立讯精密盘中飙升，一度触及涨停创历史新高，市值超5200亿元。
 
-旗下建筑施工项目环评达标率达100%。
+热门牛股华电能源（600726）午后涨停，盘中上演“地天板”走势。
 
-积极发展绿色建筑，新建项目100%达到国家绿色建筑星级标准，新增绿色建筑认证项目77个，新增绿色建筑面积560万平方米。
+半导体板块爆发 半导体板块盘中强势拉升，封装、存储芯片概念等活跃。
 
 ## 相关推荐
 
-- 2026-06-29 19:42 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 19:56 - [爸爸当家中断录制帮小摊贩挡雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-29 19:39 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 19:43 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
-- 2026-06-29 19:57 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 19:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 19:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 19:44 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 19:37 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 19:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-29 20:04 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 20:02 - [每天通勤往返3h的感觉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 19:58 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 20:03 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 20:01 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-29 19:53 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 20:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 20:01 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 20:03 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 19:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 19:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 19:47 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 20:01 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:54 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/20451788995.shtml)
-- 2026-06-29 19:31 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/61604437897.shtml)
-- 2026-06-29 19:37 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/3592516328.shtml)
-- 2026-06-29 19:51 - [外交部回应中日经贸问题](https://www.share.minike.top/Article/details/683132300655.shtml)
-- 2026-06-29 19:39 - [极限挑战第一季](http://www.blog.minike.top/Article/details/66478.shtml)
-- 2026-06-29 19:45 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/41263958610.shtml)
-- 2026-06-29 19:41 - [毛朝晖任湖南省农业农村厅厅长](http://www.share.kurohicncr.top/Article/details/62203.shtml)
-- 2026-06-29 19:58 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/34393149.shtml)
-- 2026-06-29 19:56 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/610006633.shtml)
-- 2026-06-29 19:58 - [特朗普两大核心赌注将迎高院裁决](https://www.share.minike.top/Article/details/9990895.shtml)
-- 2026-06-29 19:47 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/37941.shtml)
-- 2026-06-29 19:45 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/7324183194.shtml)
-- 2026-06-29 19:49 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/735599868.shtml)
-- 2026-06-29 19:51 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/48280.shtml)
-- 2026-06-29 19:32 - [美人鱼](https://www.blog.minike.top/Article/details/19747893352.shtml)
+- 2026-06-29 19:47 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/943013.shtml)
+- 2026-06-29 19:42 - [湖南耒阳“轮椅女孩”高考546分](http://www.blog.minike.top/Article/details/08862.shtml)
+- 2026-06-29 19:55 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.kurohicncr.top/Article/details/90310979592.shtml)
+- 2026-06-29 20:04 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.kurohicncr.top/Article/details/02909396102.shtml)
+- 2026-06-29 19:54 - [央视曝光高价回收老物件骗局](http://www.blog.kurohicncr.top/Article/details/04483781.shtml)
+- 2026-06-29 19:40 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/0736218342.shtml)
+- 2026-06-29 19:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/599358444701.shtml)
+- 2026-06-29 19:45 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/498385200.shtml)
+- 2026-06-29 19:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/58474537137.shtml)
+- 2026-06-29 19:56 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/51762.shtml)
+- 2026-06-29 19:51 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/53604756232.shtml)
+- 2026-06-29 19:57 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/10631.shtml)
+- 2026-06-29 19:40 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/98988.shtml)
+- 2026-06-29 19:46 - [剧宣天才虞书欣发力了](http://www.share.kurohicncr.top/Article/details/49477.shtml)
+- 2026-06-29 19:46 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/310326.shtml)

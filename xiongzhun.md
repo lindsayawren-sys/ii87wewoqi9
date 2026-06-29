@@ -1,59 +1,60 @@
-# 融湾聚势侨启未来 汕头华侨试验区招商启新篇
+# 今年超长期特别国债迎来发行，债券需求或进一步回暖
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网汕头4月29日电 (李怡青 林大森)“融湾聚势，侨启未来”——2026汕头东海岸新城招商会29日在广东汕头举办。 汕头华侨经济文化合作试验区(下称“华侨试验区”)管委会在会上介绍了试验区的区位优势、产业发展、国有储备用地分布、政策扶持等情况，直观展现东海岸新城营商环境与开发前景。 汕头东海岸新城位于广东省汕头市东部沿海，2014年被划入华侨试验区直管区，主要分为新津、新溪
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（4月17日）资金面延续平稳宽松，当日央行净投放1985亿元。本周一（4月20日）资金面维持宽松态势，主要资金价格变动不大，当日央行净投放为零。本周二资金面延续宽松，主要资金价格低位持稳，当日央行净投放40亿元。本周三资金面维持宽松态势，主要资金价格变动不大，当日央行净投放55亿元。本周四资金面维持宽松态势，主要资金价格低
 
 ## 正文
 
-中新网汕头4月29日电 (李怡青 林大森)“融湾聚势，侨启未来”——2026汕头东海岸新城招商会29日在广东汕头举办。
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（4月17日）资金面延续平稳宽松，当日央行净投放1985亿元。
 
-汕头华侨经济文化合作试验区(下称“华侨试验区”)管委会在会上介绍了试验区的区位优势、产业发展、国有储备用地分布、政策扶持等情况，直观展现东海岸新城营商环境与开发前景。
+本周一（4月20日）资金面维持宽松态势，主要资金价格变动不大，当日央行净投放为零。
 
-汕头东海岸新城位于广东省汕头市东部沿海，2014年被划入华侨试验区直管区，主要分为新津、新溪、塔岗围三大片区。
+本周二资金面延续宽松，主要资金价格低位持稳，当日央行净投放40亿元。
 
-东海岸新城作为粤东地区首个聚焦跨境数字经济的产业承载地，致力于推动区域数字产业集聚、赋能传统产业升级、链接全球数字资源。
+本周三资金面维持宽松态势，主要资金价格变动不大，当日央行净投放55亿元。
 
-此次招商会紧扣重点片区开发与重大项目落地，推介东海岸新城核心区位优质资源，搭建起政企对接、项目对接的高效平台。
+本周四资金面维持宽松态势，主要资金价格低位持稳，当日央行净投放为零。
 
-会上，华侨试验区管委会与泰国粤商会、招商公司、柏亚控股等代表共启意向合作仪式。
+本周四（4月23日）相较于上周五，DR001收平于1.22%，DR007收平于1.32%。
 
-会上举行了“山姆会员商店项目启动建设仪式”，作为粤东首家高端会员制零售门店落地汕头东海岸新城新溪片区，将有力促进周边商圈成熟，该地区将成为吸引整个粤东地区家庭节假日消费目的地，促进当地实现产业与城市的深度融合。
+海外方面，欧元区4月制造业PMI初值52.2，预期50.9，3月终值51.6；服务业PMI初值47.4，预期49.8，3月终值50.2；综合PMI初值48.6，预期50.1，3月终值50.7。
 
-泰国粤商会执行会长吴庆荣说，这几年来，华侨试验区成为聚集海内外华侨华人资源发展的重要平台。
+美国财政部长贝森特当地时间21日在社交媒体上发文称，美国海军将继续封锁伊朗港口，美财政部将继续对伊朗“极限施压”。
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 19:53 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 19:30 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-29 19:43 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 19:34 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 19:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 19:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 19:40 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 19:48 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 19:46 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 19:37 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 19:52 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 19:39 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 19:40 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 19:37 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 19:48 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 19:41 - [外交部回应中日经贸问题](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 19:49 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 20:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 20:00 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 19:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 19:44 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-29 19:36 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 20:00 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 19:38 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 20:03 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 19:56 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [民警拦截违法逃窜车辆时被撞牺牲](http://www.blog.minike.top/Article/details/34857821075.shtml)
-- 2026-06-29 19:31 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/842087909.shtml)
-- 2026-06-29 19:36 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.kurohicncr.top/Article/details/4224868.shtml)
-- 2026-06-29 19:58 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/95268496586.shtml)
-- 2026-06-29 19:52 - [金牌调解](http://www.share.kurohicncr.top/Article/details/744753723.shtml)
-- 2026-06-29 19:40 - [中方向委方追加1亿元援助](https://www.share.kurohicncr.top/Article/details/8582417195.shtml)
-- 2026-06-29 19:42 - [官媒首曝六代机？大V解读](http://www.share.kurohicncr.top/Article/details/0139677.shtml)
-- 2026-06-29 19:52 - [世界杯在中国观看最多的比赛](https://www.share.kurohicncr.top/Article/details/650760.shtml)
-- 2026-06-29 19:58 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/74831167525.shtml)
-- 2026-06-29 19:40 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/634422.shtml)
-- 2026-06-29 19:53 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/299430213.shtml)
-- 2026-06-29 19:44 - [RAY评乘风2026总决赛](https://www.share.minike.top/Article/details/4168290287.shtml)
-- 2026-06-29 19:35 - [TTG KSG](http://www.blog.minike.top/Article/details/1746110913.shtml)
-- 2026-06-29 19:34 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/17275234.shtml)
-- 2026-06-29 19:37 - [天道](http://www.blog.minike.top/Article/details/55569.shtml)
+- 2026-06-29 19:53 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/210934.shtml)
+- 2026-06-29 19:59 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/32943975.shtml)
+- 2026-06-29 19:40 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.share.kurohicncr.top/Article/details/77668754522.shtml)
+- 2026-06-29 19:37 - [伊朗足球队将启程回国](https://www.blog.kurohicncr.top/Article/details/324189652209.shtml)
+- 2026-06-29 19:40 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/90901608788.shtml)
+- 2026-06-29 19:38 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/70683.shtml)
+- 2026-06-29 19:39 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/3829600838.shtml)
+- 2026-06-29 19:58 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/275239522131.shtml)
+- 2026-06-29 19:36 - [外交部谈对日出口管制措施](http://www.blog.minike.top/Article/details/271639.shtml)
+- 2026-06-29 19:55 - [恋与深空各大应用商店评分](http://www.share.minike.top/Article/details/177455.shtml)
+- 2026-06-29 19:47 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/22769.shtml)
+- 2026-06-29 19:37 - [TOP Prada](http://www.blog.minike.top/Article/details/82560624.shtml)
+- 2026-06-29 20:03 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/4999112.shtml)
+- 2026-06-29 19:40 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/66454941632.shtml)
+- 2026-06-29 19:58 - [锐评白玉兰提名片段](http://www.share.minike.top/Article/details/8454604594.shtml)

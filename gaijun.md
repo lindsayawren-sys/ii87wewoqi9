@@ -1,46 +1,56 @@
-# 宁德时代获贝莱德增持约86.96万股 每股作价705.5909港元
+# 上海银行副行长胡德斌谈AI：人工智能将成为全行数字化转型核心，计划年内实现GPU算力翻番
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，4月22日，贝莱德增持宁德时代（03750）约86.9592万股，每股作价705.5909港元，总金额约为6.14亿港元。增持后最新持股数目约为976.19万股，最新持股比例为6.26%。责任编辑：卢昱君
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委委员、副行长兼首席信息官胡德斌表示，公司对金融科技的投入将持续加深，坚持金融科技赋能业务价值创造，推动金融科技从数字化向智能化转型。2025年内金融科技投入达到25.69亿元，占营业收入的5.14%；全行金融科技人员达到1515人，占正式员工的11.9%。胡德斌认为，这些占比在商业银
 
 ## 正文
 
-香港联交所最新数据显示，4月22日，贝莱德增持宁德时代（03750）约86.9592万股，每股作价705.5909港元，总金额约为6.14亿港元。
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委委员、副行长兼首席信息官胡德斌表示，公司对金融科技的投入将持续加深，坚持金融科技赋能业务价值创造，推动金融科技从数字化向智能化转型。
 
-增持后最新持股数目约为976.19万股，最新持股比例为6.26%。
+2025年内金融科技投入达到25.69亿元，占营业收入的5.14%；全行金融科技人员达到1515人，占正式员工的11.9%。
 
-责任编辑：卢昱君
+胡德斌认为，这些占比在商业银行中，特别是城商行中处于前列，体现了我们长期投入的决心。
+
+针对AI人工智能，胡德斌表示，人工智能将成为全行数字化转型的核心，全面实施“人工智能+”战略是我们的重点战略。
+
+在基础设施和数据底座方面，我们健全了统一调度、弹性伸缩的高性能GPU算力池，通过算力的池化、模型集约化调度以及多尺寸模型的分类管理，算力利用率提升了5倍。
+
+目前已经稳定支撑超过50个业务场景。
+
+数据治理是我们的核心优势。
+
+对于今年在AI方面的布局，胡德斌表示，2026年，我行的金融科技人员将超过1700人。
 
 ## 相关推荐
 
-- 2026-06-29 19:46 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-29 19:32 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 19:37 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 19:46 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 19:42 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 19:58 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 19:30 - [歼-15型舰载机为何被歼-15T替代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 19:35 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 19:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 19:48 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 20:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 19:53 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 20:01 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 20:01 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 19:53 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 19:52 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 19:57 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 19:47 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 20:02 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 19:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/6981601356.shtml)
-- 2026-06-29 19:39 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/443772444.shtml)
-- 2026-06-29 19:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/71627.shtml)
-- 2026-06-29 19:47 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/969399.shtml)
-- 2026-06-29 19:50 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/323278598669.shtml)
-- 2026-06-29 19:49 - [乔家的儿女](http://www.share.minike.top/Article/details/585258537360.shtml)
-- 2026-06-29 19:47 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/6569855.shtml)
-- 2026-06-29 19:44 - [勇敢的心第二部](http://www.share.minike.top/Article/details/946448310057.shtml)
-- 2026-06-29 19:36 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/234627.shtml)
-- 2026-06-29 19:30 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/38836410095.shtml)
-- 2026-06-29 19:56 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://www.blog.minike.top/Article/details/83136835.shtml)
-- 2026-06-29 19:46 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/628619924.shtml)
-- 2026-06-29 19:36 - [TTG KSG](https://www.share.kurohicncr.top/Article/details/94444.shtml)
-- 2026-06-29 19:33 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/6741300.shtml)
-- 2026-06-29 19:55 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/7090970.shtml)
+- 2026-06-29 19:45 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/200576.shtml)
+- 2026-06-29 19:52 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/356207737.shtml)
+- 2026-06-29 20:04 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/928562.shtml)
+- 2026-06-29 19:41 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/40149624220.shtml)
+- 2026-06-29 19:41 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/156255.shtml)
+- 2026-06-29 19:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/6058348117.shtml)
+- 2026-06-29 19:40 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/057730.shtml)
+- 2026-06-29 19:39 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.minike.top/Article/details/2306940389.shtml)
+- 2026-06-29 19:46 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.kurohicncr.top/Article/details/84831899.shtml)
+- 2026-06-29 19:43 - [我们的少年时代2](https://www.blog.minike.top/Article/details/77986423.shtml)
+- 2026-06-29 20:02 - [每天通勤往返3h的感觉](http://www.share.kurohicncr.top/Article/details/8281552.shtml)
+- 2026-06-29 19:59 - [一家三口吃溪石斑鱼中毒](https://www.blog.kurohicncr.top/Article/details/126480.shtml)
+- 2026-06-29 19:51 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/490792063.shtml)
+- 2026-06-29 19:42 - [A股割裂行情有变化了吗](https://www.blog.kurohicncr.top/Article/details/74969293214.shtml)
+- 2026-06-29 19:44 - [韩国小学生都来吐槽了](https://www.blog.kurohicncr.top/Article/details/2259605.shtml)

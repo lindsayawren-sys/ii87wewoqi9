@@ -1,57 +1,58 @@
-# 新手炒股选哪家？这届年轻人最爱用新浪财经APP
+# 江苏银行换帅：葛仁余因年龄原因辞任，“70后”行长袁军接棒
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-2026年的A股市场，日均成交额持续活跃，证券类APP月活跃用户数已经突破1.8亿。但比这份数据更值得关注的变化在于——越来越多的年轻人正成为股市里的“新鲜血液”。据多家券商反馈，近期新开户投资者中，85后和90后已成为主力，占比约为三分之二，95后、00后的参与度也在快速攀升。 当这届伴随互联网长大的年轻人走进股市，他们选券商APP的眼光和方法论，已经和上一代人截然不同。界面
+21世纪经济报道记者边万莉 4 月 27 日，江苏银行（600919.SH）连发两则公告披露人事变动：葛仁余因年龄原因辞任董事长，同时董事会选举该行行长袁军为新任董事长，任职资格尚待监管核准。 公告显示，“近日江苏银行收到葛仁余先生的辞职报告。根据组织安排，葛仁余先生因年龄原因申请辞去本行董事长、执行董事、董事会战略与 ESG 委员会主任委员职务。” 据记者了解，在加入江苏银行
 
 ## 正文
 
-2026年的A股市场，日均成交额持续活跃，证券类APP月活跃用户数已经突破1.8亿。
+21世纪经济报道记者边万莉 4 月 27 日，江苏银行（600919.SH）连发两则公告披露人事变动：葛仁余因年龄原因辞任董事长，同时董事会选举该行行长袁军为新任董事长，任职资格尚待监管核准。
 
-但比这份数据更值得关注的变化在于——越来越多的年轻人正成为股市里的“新鲜血液”。
+公告显示，“近日江苏银行收到葛仁余先生的辞职报告。
 
-据多家券商反馈，近期新开户投资者中，85后和90后已成为主力，占比约为三分之二，95后、00后的参与度也在快速攀升。
+根据组织安排，葛仁余先生因年龄原因申请辞去本行董事长、执行董事、董事会战略与 ESG 委员会主任委员职务。
 
-当这届伴随互联网长大的年轻人走进股市，他们选券商APP的眼光和方法论，已经和上一代人截然不同。
+” 据记者了解，在加入江苏银行前，葛仁余有着丰富的信息科技业务工作经验，曾任中国建设银行南京分行科技处处长助理、副处长，中国建设银行江苏省分行营业部运行中心经理、信息技术管理部总经理，南京银行信息技术部总经理。
 
-界面太复杂的传统券商APP、信息太杂乱的“股吧”、广告太多的免费软件，统统被年轻人用脚投票淘汰。
+2013年8月，葛仁余加入江苏银行任信息科技部总经理，2017年任首席信息官，2018年升任副行长，2023年担任董事长。
 
-那么，究竟什么样的APP能通吃这一届新手投资者？
+江苏银行在公告中评价，在葛仁余带领下，该行经营发展规模、效益、质量再上新台阶，综合实力、品牌价值、市场表现实现新跨越，在保持自身高质量发展的同时，持续以稳健优异的经营成果和价值创造积极回馈广大客户、股东和社会各界。
 
-从多方实测和用户反馈来看，新浪财经APP正以极高的综合评分成为年轻人炒股入门的最爱。
+此次接棒的袁军是一名“70后”金融老将，拥有丰富的银行管理经验。
 
-开户“无痛上车”，消灭新手第一道门槛 对于初次接触股票投资的新手来说，开户是碰到的最直接也最让人头疼的环节。
+公开简历显示，袁军出生于 1971 年，大学学历，工程硕士，正高级经济师。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 19:58 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 19:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 19:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 19:43 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 19:50 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 19:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 19:54 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 19:49 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 19:32 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 19:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 19:47 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 19:38 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 19:48 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 19:44 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 19:36 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 19:43 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 19:43 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 19:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 19:55 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 19:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 19:53 - [4位大妈跳舞爆火多地景区争相邀约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 19:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:45 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/14930477.shtml)
-- 2026-06-29 19:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/407875911.shtml)
-- 2026-06-29 19:45 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/60469254965.shtml)
-- 2026-06-29 19:37 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/58555985.shtml)
-- 2026-06-29 19:45 - [一诺变着花样秀新驾照](http://www.blog.kurohicncr.top/Article/details/436272.shtml)
-- 2026-06-29 19:32 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/96097.shtml)
-- 2026-06-29 19:48 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/06399537.shtml)
-- 2026-06-29 19:59 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/42047.shtml)
-- 2026-06-29 19:37 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/82401899.shtml)
-- 2026-06-29 19:50 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/83481.shtml)
-- 2026-06-29 19:53 - [媒体：听清自己内心的声音再填志愿](http://www.share.kurohicncr.top/Article/details/654547423.shtml)
-- 2026-06-29 19:51 - [T1 3-0 KC赛后数据](http://www.share.kurohicncr.top/Article/details/53330087.shtml)
-- 2026-06-29 19:30 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/922809970758.shtml)
-- 2026-06-29 19:52 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/456263.shtml)
-- 2026-06-29 19:51 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/367937515773.shtml)
+- 2026-06-29 19:37 - [店员光脚踩入盆中清洗土豆](https://www.blog.minike.top/Article/details/8834260181.shtml)
+- 2026-06-29 19:55 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/73800674.shtml)
+- 2026-06-29 19:43 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/6051702494.shtml)
+- 2026-06-29 20:00 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/4492480952.shtml)
+- 2026-06-29 19:37 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/67240140995.shtml)
+- 2026-06-29 19:43 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/3621289196.shtml)
+- 2026-06-29 19:53 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/8880845883.shtml)
+- 2026-06-29 19:52 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/0764721089.shtml)
+- 2026-06-29 19:45 - [主力抛售电子和通信板块](http://www.blog.minike.top/Article/details/1064951263.shtml)
+- 2026-06-29 19:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/664998.shtml)
+- 2026-06-29 19:50 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/10268790909.shtml)
+- 2026-06-29 19:46 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/4942321.shtml)
+- 2026-06-29 19:53 - [起风了](https://www.blog.kurohicncr.top/Article/details/98423.shtml)
+- 2026-06-29 20:04 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/364201259.shtml)
+- 2026-06-29 19:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/0194893.shtml)

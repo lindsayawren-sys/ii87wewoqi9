@@ -1,49 +1,61 @@
-# 【同在国旗下】哈尔滨解放八十周年 百年滨洲铁路桥冉冉扬起五星红旗
+# 学习手记｜总书记为全民阅读躬身示范
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 16:52 来源：中国新闻网 近日，为纪念哈尔滨解放80周年，滨洲铁路桥上挂起了八百余面五星红旗。整座百年老桥焕然一新，成为冰城最醒目的红色地标。市民游客络绎不绝奔赴于此，纷纷停下脚步驻足观赏、拍照打卡。 责任编辑：【李光伟】
+今年4月第四周是首个“全民阅读活动周”。从“4·23世界读书日”到“全民阅读活动周”，不仅是时间的延长，更是全民阅读工作的进一步深入。 “希望全社会都参与到阅读中来，形成爱读书、读好书、善读书的浓厚氛围。”2022年，习近平总书记在致首届全民阅读大会举办的贺信中，向全社会提出期盼。在总书记指引下，全民阅读风尚一步步深化。 书香致远，初心如磐。 从梁家河的窑洞到中南海的书房，从躬
 
 ## 正文
 
-发布时间：2026年04月30日 16:52 来源：中国新闻网 近日，为纪念哈尔滨解放80周年，滨洲铁路桥上挂起了八百余面五星红旗。
+今年4月第四周是首个“全民阅读活动周”。
 
-整座百年老桥焕然一新，成为冰城最醒目的红色地标。
+从“4·23世界读书日”到“全民阅读活动周”，不仅是时间的延长，更是全民阅读工作的进一步深入。
 
-市民游客络绎不绝奔赴于此，纷纷停下脚步驻足观赏、拍照打卡。
+“希望全社会都参与到阅读中来，形成爱读书、读好书、善读书的浓厚氛围。
 
-责任编辑：【李光伟】
+”2022年，习近平总书记在致首届全民阅读大会举办的贺信中，向全社会提出期盼。
+
+在总书记指引下，全民阅读风尚一步步深化。
+
+书香致远，初心如磐。
+
+从梁家河的窑洞到中南海的书房，从躬耕基层到领航中国，习近平总书记一直将读书视为“最大的爱好”和“一种生活方式”，并通过读书、谈书、赠书，将个人修养、文化传承与民族复兴、文明交流深刻联结。
+
+“一物不知，深以为耻，便求知若渴。
 
 ## 相关推荐
 
-- 2026-06-29 19:44 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:41 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 19:44 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 19:42 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-29 19:43 - [V8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 19:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 19:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 19:33 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 19:34 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 19:35 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 19:48 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 19:49 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 19:41 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 19:44 - [C罗10球7球对垫底队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 19:43 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 19:55 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 20:05 - [娜扎搂着我的腰和我合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 20:05 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 19:58 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
+- 2026-06-29 19:43 - [东宫女主是不是顶级恋爱脑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 19:58 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 19:44 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 19:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 19:50 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 19:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 19:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:38 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/4244244134.shtml)
-- 2026-06-29 19:59 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/45162.shtml)
-- 2026-06-29 19:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.blog.minike.top/Article/details/224766698612.shtml)
-- 2026-06-29 19:41 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/4730211183.shtml)
-- 2026-06-29 19:41 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/46117460.shtml)
-- 2026-06-29 19:49 - [金牌调解](https://www.share.minike.top/Article/details/888811683714.shtml)
-- 2026-06-29 19:50 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/989040782.shtml)
-- 2026-06-29 19:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/8199955090.shtml)
-- 2026-06-29 19:48 - [毒液2](https://www.blog.kurohicncr.top/Article/details/687767.shtml)
-- 2026-06-29 19:33 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/609548.shtml)
-- 2026-06-29 19:35 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/513829.shtml)
-- 2026-06-29 19:31 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/658885.shtml)
-- 2026-06-29 19:57 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/462181298307.shtml)
-- 2026-06-29 19:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/4907221605.shtml)
-- 2026-06-29 19:38 - [张杰我九岁就跟你了](http://www.share.minike.top/Article/details/4737762053.shtml)
+- 2026-06-29 20:05 - [王楚钦称抽签结果出来心情不好](http://www.blog.minike.top/Article/details/769733001008.shtml)
+- 2026-06-29 19:41 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/06888491.shtml)
+- 2026-06-29 19:52 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/29520390.shtml)
+- 2026-06-29 19:43 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/12131031.shtml)
+- 2026-06-29 19:52 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/6522231.shtml)
+- 2026-06-29 19:48 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/1063253.shtml)
+- 2026-06-29 19:39 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/4963016.shtml)
+- 2026-06-29 19:49 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/999312000.shtml)
+- 2026-06-29 20:02 - [日媒：日本高价采购“战斧”变冤大头](http://www.share.kurohicncr.top/Article/details/6829779888.shtml)
+- 2026-06-29 19:41 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/82260.shtml)
+- 2026-06-29 19:45 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/254199758332.shtml)
+- 2026-06-29 20:04 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/347495312.shtml)
+- 2026-06-29 19:38 - [中方在台湾岛以东海域活动合理合法](https://www.blog.kurohicncr.top/Article/details/81905498.shtml)
+- 2026-06-29 19:40 - [A股割裂行情有变化了吗](http://www.share.minike.top/Article/details/9623471.shtml)
+- 2026-06-29 19:43 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/00639413271.shtml)

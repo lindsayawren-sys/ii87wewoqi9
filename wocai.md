@@ -1,59 +1,58 @@
-# 2026年一季度西藏樟木口岸机电产品出口同比增长16.87%
+# 中国成功发射巴基斯坦PRSC-EO3卫星
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网拉萨4月30日电 (记者 贡桑拉姆)记者29日从拉萨海关获悉，2026年以来，西藏自治区樟木口岸机电产品出口持续增长。一季度，口岸出口货物总值5.84亿元，同比增长9.33%，其中机电产品出口货值达2.84亿元，同比增长16.87%，成为拉动口岸贸易增长的主要动力。 在清晨的中尼友谊桥畔，一辆辆新能源汽车顺畅通关，沿着古商道驶向南亚市场。物流企业负责人表示，机电产品出口增
+中新社北京4月25日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月25日20时15分，中国在太原卫星发射中心使用长征六号运载火箭，成功将巴基斯坦PRSC-EO3卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 巴基斯坦PRSC-EO3卫星由巴基斯坦空间和外大气层研究委员会抓总研制。卫星搭载了高分辨率光学载荷，获取的遥感数据将服务于巴基斯坦的土地测绘、农业分类
 
 ## 正文
 
-中新网拉萨4月30日电 (记者 贡桑拉姆)记者29日从拉萨海关获悉，2026年以来，西藏自治区樟木口岸机电产品出口持续增长。
+中新社北京4月25日电 (记者 马帅莎)据中国航天科技集团消息，北京时间4月25日20时15分，中国在太原卫星发射中心使用长征六号运载火箭，成功将巴基斯坦PRSC-EO3卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-一季度，口岸出口货物总值5.84亿元，同比增长9.33%，其中机电产品出口货值达2.84亿元，同比增长16.87%，成为拉动口岸贸易增长的主要动力。
+巴基斯坦PRSC-EO3卫星由巴基斯坦空间和外大气层研究委员会抓总研制。
 
-在清晨的中尼友谊桥畔，一辆辆新能源汽车顺畅通关，沿着古商道驶向南亚市场。
+卫星搭载了高分辨率光学载荷，获取的遥感数据将服务于巴基斯坦的土地测绘、农业分类评估、城乡规划、环境监测等领域。
 
-物流企业负责人表示，机电产品出口增长既反映了中国制造业转型升级的成效，也体现了西藏自治区口岸通关便利化水平和外贸营商环境的持续优化。
+本次任务为巴方单星定制化发射。
 
-为保障产品高效出口，拉萨海关所属聂拉木海关深化“一对一关企联络”机制，叠加“提前申报、单证预审核、即到即验即放”等便利措施，并创新实施“一表控”监管模式，提升全流程通关效能。
+截至目前，中国已为巴基斯坦的PRSC-EO星座提供了3次发射服务，助力该星座顺利完成阶段性组网。
 
-此外，一季度，以锂电池、新能源汽车等为代表的西藏自治区“新三样”产品出口表现亮眼，累计出口7273.42万元，同比增长23.9%，其中锂电池出口增长3.48倍，新能源汽车出口增长25.1%。
+长征六号运载火箭由中国航天科技集团八院抓总研制，是一款低温液体三级运载火箭，具备发射多种类型、不同轨道要求卫星的能力，可实施一箭单星或多星发射。
 
-针对“新三样”产品，海关量身定制便利化方案：在申报环节，通过“智能辅助申报”模块自动生成数据；在物流环节，推广“一票多车”申报，叠加“陆港申报、属地查验、口岸直通”监管模式，实现“一箱到底”联动监管；在现场查验环节，运用智能设备实现快速精准查验。
+此次任务是长征系列运载火箭的第640次飞行。
 
-对锂电池等涉危产品，加快推广智慧监管场景，压缩鉴定时长，助力安全高效出口。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:42 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 19:40 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 19:44 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 19:48 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 19:52 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 19:30 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-29 19:38 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 19:35 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 20:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 19:42 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 19:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 19:45 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 19:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 20:03 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 19:51 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 19:51 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 20:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 19:37 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 19:48 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 19:58 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 20:03 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 19:55 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 19:44 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 19:57 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 19:55 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/78839254.shtml)
-- 2026-06-29 19:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/965286240.shtml)
-- 2026-06-29 19:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/59733722.shtml)
-- 2026-06-29 19:48 - [欧洲极端高温如何影响家电股](http://www.share.minike.top/Article/details/4433718.shtml)
-- 2026-06-29 19:30 - [为何说今日日本似战前日本](https://www.blog.kurohicncr.top/Article/details/40682.shtml)
-- 2026-06-29 19:36 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/004903051024.shtml)
-- 2026-06-29 19:47 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/07628181.shtml)
-- 2026-06-29 19:39 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/43554.shtml)
-- 2026-06-29 19:48 - [世界杯预测史上最不吃压力之物](https://www.share.minike.top/Article/details/304308107735.shtml)
-- 2026-06-29 19:57 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/39348276.shtml)
-- 2026-06-29 19:51 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/937519527.shtml)
-- 2026-06-29 19:43 - [周杰伦演唱会含星量](https://www.blog.kurohicncr.top/Article/details/4597040735.shtml)
-- 2026-06-29 19:35 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/3265392.shtml)
-- 2026-06-29 19:33 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/2973201404.shtml)
-- 2026-06-29 19:43 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/579573694607.shtml)
+- 2026-06-29 20:02 - [巴西球员：日本队有点傲慢了](http://www.blog.minike.top/Article/details/12569.shtml)
+- 2026-06-29 19:38 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/085541813.shtml)
+- 2026-06-29 19:37 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/361239.shtml)
+- 2026-06-29 19:53 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/246437271059.shtml)
+- 2026-06-29 20:05 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/220970.shtml)
+- 2026-06-29 19:43 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/0162264642.shtml)
+- 2026-06-29 19:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/75345236271.shtml)
+- 2026-06-29 19:58 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/964294794.shtml)
+- 2026-06-29 20:03 - [张杰我九岁就跟你了](http://www.blog.minike.top/Article/details/836643956.shtml)
+- 2026-06-29 19:39 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/95964.shtml)
+- 2026-06-29 19:55 - [日本豪言冲击冠军是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/6860495.shtml)
+- 2026-06-29 20:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/1486368258.shtml)
+- 2026-06-29 19:43 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/4852798.shtml)
+- 2026-06-29 19:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/8837217.shtml)
+- 2026-06-29 19:44 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/67017023.shtml)

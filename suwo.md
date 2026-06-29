@@ -1,59 +1,58 @@
-# 依托京东JoyAI大模型 京办、京通APP数字中国创新大赛同获大奖
+# 逾420吨海外鲜活产品借助鲜活快线经香港输入内地
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-4月29-30日，第九届数字中国建设峰会在福建福州举办，京东可信 AI与政务智能体为核心成果亮相，全面展示AI助力数字政务建设的创新实践与落地成效。京东集团副总裁、协同办公业务总经理王涛受邀发表主题演讲，分享京东政务智能体的技术突破与创新实践，并现场参与国家网信办主导的《政务智能体研发应用自律倡议》签约活动。 依托京东JoyAI大模型与JoyAgent智能体技术，京东深度参与北
+中新网香港4月23日电 据香港特区政府新闻处23日消息，粤港两地政府与香港机场管理局合作推出的“空陆鲜活产品专属快线”(鲜活快线)自去年9月开通至今，已有超过420吨海外鲜活产品经香港中转至内地。目前，鲜活快线已延伸至澳门。 在香港特区政府与澳门特区政府合作下，4月22日，一批重约986公斤的鲜活龙虾从加拿大空运抵达香港，随即由跨境冷链货车经港珠澳大桥直接转运至澳门，为首单利用
 
 ## 正文
 
-4月29-30日，第九届数字中国建设峰会在福建福州举办，京东可信 AI与政务智能体为核心成果亮相，全面展示AI助力数字政务建设的创新实践与落地成效。
+中新网香港4月23日电 据香港特区政府新闻处23日消息，粤港两地政府与香港机场管理局合作推出的“空陆鲜活产品专属快线”(鲜活快线)自去年9月开通至今，已有超过420吨海外鲜活产品经香港中转至内地。
 
-京东集团副总裁、协同办公业务总经理王涛受邀发表主题演讲，分享京东政务智能体的技术突破与创新实践，并现场参与国家网信办主导的《政务智能体研发应用自律倡议》签约活动。
+目前，鲜活快线已延伸至澳门。
 
-依托京东JoyAI大模型与JoyAgent智能体技术，京东深度参与北京市政务数字化升级，联合北京市大数据中心完成“京办”“京通APP”两大核心平台智能化创新。
+在香港特区政府与澳门特区政府合作下，4月22日，一批重约986公斤的鲜活龙虾从加拿大空运抵达香港，随即由跨境冷链货车经港珠澳大桥直接转运至澳门，为首单利用鲜活快线经香港直送至澳门的海外鲜活产品，实现“海外—香港—澳门”一站式直送。
 
-其中，基于“京办”打造的政务全场景一体化智能办公平台，凭借在政务协同、民生服务领域的突出创新，荣获数字中国创新大赛·智能科技赛道一等奖，这也是继京办2025年获得“数字中国创新大赛一等奖”后再次获奖。
+据悉，香港特区政府食物环境卫生署豁免参与鲜活快线的食品进口商登记要求，进一步简化清关流程，使鲜活货物于香港国际机场完成清关后，可采用“一车到底”模式直接运抵澳门市区，大幅缩短通关时间，减少鲜活水产损耗。
 
-京通 APP面向超大城市公共服务打造的“搜问办”一体化智慧应用，以普惠便民、智能协同的服务能力，荣获数字中国创新大赛·人工智能赛道二等奖。
+香港海关表示，长期以来，海关坚守严把关、利商贸的使命，与业界携手推动创新便商利贸措施，巩固香港作为国际航空枢纽的领先地位。
 
-王涛在主题分享中指出，当前 AI生产力正加速重构，多模态、智能体、AI基础设施三大方向同步突破，可靠数据是可信 AI的底座，可信 AI则是政务智能化的引擎。
+未来会继续推广鲜活快线应用，持续深化粤港澳三地合作，推动粤港澳大湾区高质量融合发展。
 
-目前，京东JoyAI大模型已深度融入京东超级供应链，应用于内部超2000个场景，支撑6万余个智能体稳定运行，服务超300万商家。
+“空陆鲜活产品专属快线”于2025年9月26日全面开通，充分利用香港国际机场和港珠澳大桥优势，以创新监管模式，简化水果、冰鲜及活海鲜清关流程，便利海外鲜活食品经香港输入内地消费市场，亦助力内地优质鲜活食品输出海外。
 
-紧跟国家“人工智能+”行动战略部署，京东面向政务领域推出政务 AI全景图，深度融合 JoyAI大模型与 JoyAgent智能体技术，为政务运行“一网协同”、政务服务“一网通办”智能化升级提供坚实支撑。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 19:33 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 19:31 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 19:42 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 19:56 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 19:44 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 19:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 19:53 - [欧洲多国高温突破40摄氏度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 19:51 - [毛朝晖任湖南省农业农村厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 19:34 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 19:48 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 19:54 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 19:58 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 19:37 - [叠纸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 19:58 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 19:59 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-29 20:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 19:57 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 19:40 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 19:36 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 19:52 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 19:53 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 19:55 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 19:40 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 20:03 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [一家三口吃溪石斑鱼中毒](http://www.blog.minike.top/Article/details/985824.shtml)
-- 2026-06-29 19:50 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/64831523.shtml)
-- 2026-06-29 19:33 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/82763991.shtml)
-- 2026-06-29 19:43 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/77920199935.shtml)
-- 2026-06-29 19:53 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/21248876606.shtml)
-- 2026-06-29 19:46 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/1880067.shtml)
-- 2026-06-29 19:49 - [C罗10球7球对垫底队](https://www.blog.minike.top/Article/details/15719.shtml)
-- 2026-06-29 19:45 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.kurohicncr.top/Article/details/066917317.shtml)
-- 2026-06-29 19:38 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/48840285329.shtml)
-- 2026-06-29 19:40 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.blog.kurohicncr.top/Article/details/5107334.shtml)
-- 2026-06-29 19:58 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/9948415.shtml)
-- 2026-06-29 19:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/4586752.shtml)
-- 2026-06-29 19:43 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/83353309.shtml)
-- 2026-06-29 19:48 - [女儿称是生父强奸所生拒付赡养费](https://www.share.minike.top/Article/details/84648083.shtml)
-- 2026-06-29 19:50 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.blog.kurohicncr.top/Article/details/32599543.shtml)
+- 2026-06-29 20:01 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/114467.shtml)
+- 2026-06-29 20:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/096088222.shtml)
+- 2026-06-29 19:39 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/39492387.shtml)
+- 2026-06-29 19:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/9491744.shtml)
+- 2026-06-29 19:52 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/17376254.shtml)
+- 2026-06-29 19:49 - [赵今麦时隔五年再演李诗情](http://www.blog.kurohicncr.top/Article/details/72291.shtml)
+- 2026-06-29 19:52 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/707040820.shtml)
+- 2026-06-29 19:41 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/43439923.shtml)
+- 2026-06-29 19:37 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/38629.shtml)
+- 2026-06-29 19:57 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/196387853.shtml)
+- 2026-06-29 19:47 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/396910984.shtml)
+- 2026-06-29 19:41 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.minike.top/Article/details/41326749.shtml)
+- 2026-06-29 19:54 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/58854201667.shtml)
+- 2026-06-29 20:05 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/11813.shtml)
+- 2026-06-29 19:37 - [毒液2](https://www.blog.minike.top/Article/details/110531.shtml)

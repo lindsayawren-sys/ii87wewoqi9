@@ -1,60 +1,55 @@
-# 科技巨头财报相继公布 AI资本支出升至7250亿美元
+# ?????
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-谷歌一季度财报表现超越竞争对手，云业务增长更快。与此同时，这家搜索巨头及其他大型科技同行再次上调了人工智能基础设施支出计划，今年总额将达到7250亿美元。 包括亚马逊、Meta、微软以及谷歌母公司Alphabet在内的四大“超大规模企业”，预计今年的资本支出总额将比去年创纪录的4100亿美元再高出77%。 尽管投资者过去曾对这些巨额支出表示怀疑，但此次他们普遍对财报表示欢迎，因
+???????
 
 ## 正文
 
-谷歌一季度财报表现超越竞争对手，云业务增长更快。
+?
 
-与此同时，这家搜索巨头及其他大型科技同行再次上调了人工智能基础设施支出计划，今年总额将达到7250亿美元。
+?
 
-包括亚马逊、Meta、微软以及谷歌母公司Alphabet在内的四大“超大规模企业”，预计今年的资本支出总额将比去年创纪录的4100亿美元再高出77%。
+?
 
-尽管投资者过去曾对这些巨额支出表示怀疑，但此次他们普遍对财报表示欢迎，因为对人工智能和数据中心的需求推动了收入和利润的大幅增长——其中谷歌云收入增长了63%。
+?
 
-“人工智能经济是健康的，”杰富瑞分析师Brent Thill表示。
+?
 
-他补充说，近期的收入增长表明，大型企业有能力承担巨大的资本支出成本。
+?
 
-“看空的观点是垃圾。
-
-” Alphabet股价在盘后交易中上涨7%，有望在周四开盘时创下4.3万亿美元的市值纪录。
+?
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-29 19:49 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 19:32 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 19:35 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-29 19:41 - [德国医生在没有空调的手术室工作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 19:41 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 19:41 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-29 19:58 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 19:40 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 19:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 19:36 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
-- 2026-06-29 19:40 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 19:32 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 19:35 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 19:54 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 19:43 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 19:50 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 19:45 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 19:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 19:57 - [朱雀三号重复使用遥二运载火箭新进展](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 19:48 - [SK集团将投资400万亿韩元建芯片集群](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 19:46 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 20:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 19:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 19:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:41 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/7267412.shtml)
-- 2026-06-29 20:00 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/15866136142.shtml)
-- 2026-06-29 19:41 - [日本在最东端离岛部署导弹发射装置](https://www.blog.kurohicncr.top/Article/details/545598807.shtml)
-- 2026-06-29 19:52 - [湖南姑娘被东北同事带偏口音](http://www.blog.kurohicncr.top/Article/details/9383553378.shtml)
-- 2026-06-29 19:43 - [SK集团将投资400万亿韩元建芯片集群](http://www.blog.kurohicncr.top/Article/details/553360.shtml)
-- 2026-06-29 19:45 - [TOP Prada](https://www.share.minike.top/Article/details/9283275689.shtml)
-- 2026-06-29 19:33 - [郑钦文谈再战西尼亚科娃](http://www.blog.kurohicncr.top/Article/details/5686891.shtml)
-- 2026-06-29 19:39 - [河南高院审委会原委员曲海滨被查](https://www.share.kurohicncr.top/Article/details/08878837.shtml)
-- 2026-06-29 19:30 - [欧洲极端高温如何影响家电股](https://www.blog.minike.top/Article/details/49800.shtml)
-- 2026-06-29 19:32 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/547747563.shtml)
-- 2026-06-29 19:36 - [送你一朵小红花](http://www.share.minike.top/Article/details/4666258.shtml)
-- 2026-06-29 19:40 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/69151911.shtml)
-- 2026-06-29 19:37 - [老板回应员工光脚清洗土豆](https://www.share.kurohicncr.top/Article/details/24908601.shtml)
-- 2026-06-29 19:45 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/31686.shtml)
-- 2026-06-29 19:59 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/6576100997.shtml)
+- 2026-06-29 19:41 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/59366.shtml)
+- 2026-06-29 19:36 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/136098405.shtml)
+- 2026-06-29 19:40 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/04059667971.shtml)
+- 2026-06-29 19:39 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/457734764.shtml)
+- 2026-06-29 19:39 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/56649785642.shtml)
+- 2026-06-29 19:52 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](http://www.share.kurohicncr.top/Article/details/63253073275.shtml)
+- 2026-06-29 19:55 - [千与千寻](https://www.share.kurohicncr.top/Article/details/84735113.shtml)
+- 2026-06-29 20:05 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/846768569.shtml)
+- 2026-06-29 19:52 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/477077316587.shtml)
+- 2026-06-29 20:03 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/83301520413.shtml)
+- 2026-06-29 19:52 - [郑钦文谈再战西尼亚科娃](https://www.blog.minike.top/Article/details/8147132939.shtml)
+- 2026-06-29 19:57 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/19663516317.shtml)
+- 2026-06-29 19:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/87117.shtml)
+- 2026-06-29 19:41 - [4位大妈跳舞爆火多地景区争相邀约](https://www.blog.minike.top/Article/details/82185357.shtml)
+- 2026-06-29 20:00 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/4386630.shtml)

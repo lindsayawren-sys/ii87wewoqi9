@@ -1,59 +1,56 @@
-# CNBC调查：高油价将使2026年通胀高企，美联储降息之路受阻
+# 特朗普急于从伊朗战争抽身 新核协议约束力或弱于前一版
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-CNBC最新发布的美联储调查显示，持续高企的油价正在重塑2026年的通胀前景，美联储被迫维持谨慎立场，新任主席若想降息恐面临重重阻力。 油价冲击“不请自来”，通胀预期全面上调 调查结果显示，受访经济学家和市场策略师普遍认为，中东冲突引发的油价飙升是当前通胀压力的主要来源。布伦特原油价格自冲突爆发以来已大幅上涨，直接推高了汽油和燃油价格。 受访者预计，高油价将导致今年的整体通胀率
+美国总统唐纳德·特朗普多次表示，其对伊朗发动战争是为了防止德黑兰获得核武器。但在关键的核问题上，他最终可能达成的协议可能比其首个任期内放弃的协议更糟。 知情人士透露，在美伊停火谈判暂时搁置之际，特朗普政府急于寻找替代方案，以避免重启这场扰乱市场并引发盟友批评的战争。 这些人士表示，随着达成协议的紧迫性不断上升，他们怀疑政府没有时间或筹码坚持要求类似2015年伊核协议（JCPOA
 
 ## 正文
 
-CNBC最新发布的美联储调查显示，持续高企的油价正在重塑2026年的通胀前景，美联储被迫维持谨慎立场，新任主席若想降息恐面临重重阻力。
+美国总统唐纳德·特朗普多次表示，其对伊朗发动战争是为了防止德黑兰获得核武器。
 
-油价冲击“不请自来”，通胀预期全面上调 调查结果显示，受访经济学家和市场策略师普遍认为，中东冲突引发的油价飙升是当前通胀压力的主要来源。
+但在关键的核问题上，他最终可能达成的协议可能比其首个任期内放弃的协议更糟。
 
-布伦特原油价格自冲突爆发以来已大幅上涨，直接推高了汽油和燃油价格。
+知情人士透露，在美伊停火谈判暂时搁置之际，特朗普政府急于寻找替代方案，以避免重启这场扰乱市场并引发盟友批评的战争。
 
-受访者预计，高油价将导致今年的整体通胀率（PCE）额外上升0.6个百分点，同时可能拖累经济增长约0.5个百分点。
+这些人士表示，随着达成协议的紧迫性不断上升，他们怀疑政府没有时间或筹码坚持要求类似2015年伊核协议（JCPOA）中那种复杂且细致的监督机制。
 
-更令人担忧的是，高达81%的受访者认为，这种由能源驱动的价格压力将渗透并抬升剔除食品和能源后的核心通胀。
+特朗普的国安团队最终可能接受一项纸面上看似更雄心勃勃、但实际执行不如2015年JCPOA有约束力的核协议，尽管特朗普曾多次将JCPOA称为“历史上最糟糕的协议”。
 
-芝加哥联储主席古尔斯比此前也警告，油价的“不合时宜的冲击”可能会显著推高公众的通胀预期，令美联储陷入更复杂的境地。
+奥巴马时期的协议获得联合国安理会认可，并由国际原子能机构（IAEA）核查，谈判历时两年多。
 
-降息预期降温，美联储2026年将保持观望 强劲的通胀粘性直接浇灭了市场对美联储快速转向宽松的期待。
+根据伊朗签署的《不扩散核武器条约》，IAEA核查是基本要求，除非伊朗退出该条约，否则某种程度的监督是不容谈判的。
 
-调查预测，联邦基金利率到年底只会小幅降至约3.5%，相比目前的利率区间几乎没有变化。
+欧洲对外关系委员会高级政策研究员Ellie Geranmayeh表示，2015年协议“包含了伊朗在核查方面‘更进一步’的承诺”。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 19:47 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 19:52 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 19:36 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 19:53 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 19:39 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 19:57 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 19:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-29 19:53 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 19:56 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-29 19:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 19:48 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-29 19:53 - [法国紧急下单3万台空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 19:57 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 19:42 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 19:49 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 20:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 19:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 19:56 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:59 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 20:03 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 19:44 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 19:39 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [爱很美味](https://www.blog.minike.top/Article/details/64758047.shtml)
-- 2026-06-29 19:30 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/488248.shtml)
-- 2026-06-29 19:31 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/09648008514.shtml)
-- 2026-06-29 19:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/851396708330.shtml)
-- 2026-06-29 19:59 - [金刚川](https://www.share.kurohicncr.top/Article/details/419571979698.shtml)
-- 2026-06-29 19:53 - [外交部回应中日经贸问题](http://www.share.kurohicncr.top/Article/details/195781734606.shtml)
-- 2026-06-29 19:50 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/98832.shtml)
-- 2026-06-29 19:41 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/0466581321.shtml)
-- 2026-06-29 19:50 - [温网](http://www.share.kurohicncr.top/Article/details/0280034739.shtml)
-- 2026-06-29 19:37 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/34933760.shtml)
-- 2026-06-29 19:30 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/3809359.shtml)
-- 2026-06-29 19:52 - [世界杯在中国观看最多的比赛](http://www.blog.minike.top/Article/details/198509708873.shtml)
-- 2026-06-29 19:31 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/3770909.shtml)
-- 2026-06-29 19:45 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/45127182.shtml)
-- 2026-06-29 19:42 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/7262988976.shtml)
+- 2026-06-29 19:46 - [哈兰德玩游戏连女友都不让着](https://www.share.kurohicncr.top/Article/details/781250415875.shtml)
+- 2026-06-29 20:01 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/427002645.shtml)
+- 2026-06-29 19:54 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/6024907637.shtml)
+- 2026-06-29 19:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/56570890.shtml)
+- 2026-06-29 19:44 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/44624486574.shtml)
+- 2026-06-29 19:47 - [爸爸当家中断录制帮小摊贩挡雨](https://www.blog.kurohicncr.top/Article/details/085825489.shtml)
+- 2026-06-29 19:38 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/84544.shtml)
+- 2026-06-29 19:47 - [外交部谈对日出口管制措施](https://www.blog.minike.top/Article/details/997648.shtml)
+- 2026-06-29 19:42 - [TTG KSG](https://www.blog.minike.top/Article/details/7324508.shtml)
+- 2026-06-29 19:37 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/701781082801.shtml)
+- 2026-06-29 19:39 - [天道](https://www.share.minike.top/Article/details/97845658.shtml)
+- 2026-06-29 19:54 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/336093772794.shtml)
+- 2026-06-29 20:05 - [本届世界杯已有5人涉性侵风波](http://www.blog.minike.top/Article/details/512884.shtml)
+- 2026-06-29 19:49 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/8278226.shtml)
+- 2026-06-29 19:52 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/38766391084.shtml)

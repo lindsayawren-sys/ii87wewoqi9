@@ -1,59 +1,49 @@
-# 一季度我国物流运行实现良好开局
+# 蒙古发生6.0级地震 震源深度15千米
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-央视新闻客户端消息(新闻联播)：中国物流与采购联合会今天(4月29日)公布，今年1—3月份，我国社会物流总额96.4万亿元，同比增长6.2%，回升态势明显。 具体来看，1—3月份，工业品物流总额同比增长5.8%，对社会物流总额的增长贡献率超过80%。其中，制造业物流需求占比超八成，高端制造领域物流总额增速超过10%。 民生消费物流稳步向好，新型消费动能持续增强。县乡市场占比稳步
+中国地震台网正式测定：04月26日12时23分在蒙古(北纬46.85度，东经93.15度)发生6.0级地震，震源深度15千米。 (中国地震台网微博)
 
 ## 正文
 
-央视新闻客户端消息(新闻联播)：中国物流与采购联合会今天(4月29日)公布，今年1—3月份，我国社会物流总额96.4万亿元，同比增长6.2%，回升态势明显。
+中国地震台网正式测定：04月26日12时23分在蒙古(北纬46.85度，东经93.15度)发生6.0级地震，震源深度15千米。
 
-具体来看，1—3月份，工业品物流总额同比增长5.8%，对社会物流总额的增长贡献率超过80%。
-
-其中，制造业物流需求占比超八成，高端制造领域物流总额增速超过10%。
-
-民生消费物流稳步向好，新型消费动能持续增强。
-
-县乡市场占比稳步提升，农村电商、城乡共同配送、农产品上行等物流需求保持活跃。
-
-另外，国际物流增速显著回升，能源资源、基础原材料等进口物流量全面回暖。
-
-一季度，能源产品、金属矿砂等大宗品类进口物流量同比增长9.4%，有效发挥了大宗商品能源稳链保供、托底运行的支撑作用。
+(中国地震台网微博)
 
 ## 相关推荐
 
-- 2026-06-29 19:53 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-29 19:58 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 19:41 - [许建琼任湖南省检察院副检察长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 19:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 19:46 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 19:52 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 19:43 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-29 19:55 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 19:33 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 19:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 19:32 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 19:47 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 19:51 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 19:56 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 19:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 19:49 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 19:47 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-29 19:42 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 19:45 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 19:39 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 19:49 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 19:37 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 20:04 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 20:02 - [葛军透露高考出题思路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 20:03 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 19:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 19:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 19:37 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 19:59 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 19:40 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:57 - [东方风云榜](https://www.share.minike.top/Article/details/6382042286.shtml)
-- 2026-06-29 19:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/69046785568.shtml)
-- 2026-06-29 19:54 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/9559362.shtml)
-- 2026-06-29 19:51 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/9137465510.shtml)
-- 2026-06-29 19:52 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/1924372133.shtml)
-- 2026-06-29 19:46 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/060441218.shtml)
-- 2026-06-29 19:41 - [A股割裂行情有变化了吗](http://www.blog.minike.top/Article/details/28883.shtml)
-- 2026-06-29 19:30 - [爱很美味](https://www.share.kurohicncr.top/Article/details/197551480.shtml)
-- 2026-06-29 19:44 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/17025308451.shtml)
-- 2026-06-29 19:55 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/89083.shtml)
-- 2026-06-29 19:39 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/88654094.shtml)
-- 2026-06-29 19:54 - [叠纸](https://www.blog.minike.top/Article/details/750569785798.shtml)
-- 2026-06-29 19:37 - [河南高院审委会原委员曲海滨被查](http://www.blog.minike.top/Article/details/85166924385.shtml)
-- 2026-06-29 19:42 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/18900.shtml)
-- 2026-06-29 19:46 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/69821.shtml)
+- 2026-06-29 19:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/67605387.shtml)
+- 2026-06-29 19:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/02038.shtml)
+- 2026-06-29 20:00 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/17485.shtml)
+- 2026-06-29 19:45 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/83170.shtml)
+- 2026-06-29 19:49 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.minike.top/Article/details/199651035434.shtml)
+- 2026-06-29 19:48 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/54503.shtml)
+- 2026-06-29 19:36 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/27525.shtml)
+- 2026-06-29 19:57 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/0457689856.shtml)
+- 2026-06-29 19:44 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/7736252767.shtml)
+- 2026-06-29 19:38 - [恋与深空各大应用商店评分](https://www.blog.minike.top/Article/details/136648.shtml)
+- 2026-06-29 19:48 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.kurohicncr.top/Article/details/757688.shtml)
+- 2026-06-29 19:47 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/7178146.shtml)
+- 2026-06-29 19:36 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/039090867.shtml)
+- 2026-06-29 19:53 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/12132.shtml)
+- 2026-06-29 20:04 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.kurohicncr.top/Article/details/838924244227.shtml)

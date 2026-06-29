@@ -1,52 +1,59 @@
-# 河北宣化郑家沟遗址入选十大考古新发现
+# 仰望U9X量产高定与U8L鼎藏版北京车展全球首秀
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 20:25 来源：中国新闻网 4月29日，2025年度全国十大考古新发现在北京揭晓，河北宣化郑家沟遗址入选。据河北省张家口市宣化区郑家沟遗址考古队队员王继红介绍，遗址位于河北省张家口市宣化区西南塔儿村乡郑家沟村西100米处的高地上，确认发现9座积石冢，其中1号积石冢是规模最大的一座，面积1448平方米，整体上围绕中心大墓营建，三级土台与三重石护
+2026年4月24日，第十九届北京国际汽车展览会盛大开幕。仰望汽车携旗下2026款U7、U8、U8L鼎世版，以及首款登陆Gran Turismo7的中国超跑仰望U9同台亮相。同时，全球第一台按照量产标准打造的仰望U9 Xtreme“破晓时刻”与仰望U8L鼎藏版在本届车展上全球首发，这是仰望从“技术突破者”跨入“豪华定义者”关键时刻。车展现场，仰望U9X“破晓时刻”以极致工艺与深
 
 ## 正文
 
-发布时间：2026年04月29日 20:25 来源：中国新闻网 4月29日，2025年度全国十大考古新发现在北京揭晓，河北宣化郑家沟遗址入选。
+2026年4月24日，第十九届北京国际汽车展览会盛大开幕。
 
-据河北省张家口市宣化区郑家沟遗址考古队队员王继红介绍，遗址位于河北省张家口市宣化区西南塔儿村乡郑家沟村西100米处的高地上，确认发现9座积石冢，其中1号积石冢是规模最大的一座，面积1448平方米，整体上围绕中心大墓营建，三级土台与三重石护墙立体布局，发现110余座墓葬集中于冢的西部，190多座祭祀遗迹集中于冢的东南部，出土了陶、玉、石等各类文物600余件。
+仰望汽车携旗下2026款U7、U8、U8L鼎世版，以及首款登陆Gran Turismo7的中国超跑仰望U9同台亮相。
 
-郑家沟遗址一号积石冢是首次在冀西北地区发现、发掘的红山文化遗存，年代距今约5300-4800年，处于红山文化晚期，并突破了辽西地区红山文化年代下限，不仅将红山文化时间轴线延长了近200年，也填补了冀西北地区红山文化考古的空白。
+同时，全球第一台按照量产标准打造的仰望U9 Xtreme“破晓时刻”与仰望U8L鼎藏版在本届车展上全球首发，这是仰望从“技术突破者”跨入“豪华定义者”关键时刻。
 
-(谌诗雨 制作 徐妙巧 视频来源 河北省文物考古研究院) 责任编辑：【周驰】
+车展现场，仰望U9X“破晓时刻”以极致工艺与深度个性化定制，回应全球顶尖藏家的精神共鸣；仰望U8L鼎藏版则以东方美学重塑行政旗舰格局，于鼎世版之上再造极致出行新境界。
+
+从性能传奇到公路艺术，仰望U9X开启全球高定新章 作为中国超跑征服全球的旗帜，仰望U9X继以496.22km/h极速刷新全球超跑极速纪录，以6分59秒征服纽博格林北环后，在此次北京车展期间，全球第一台按照量产标准打造的仰望U9 Xtreme“破晓时刻”首次亮相。
+
+其设计灵感源自U9X打破世界纪录当天清晨冲破云层的第一缕金色阳光，这是属于仰望的“破晓时刻”。
+
+“破晓时刻”车身漆面中融入了微米级超细金粉，经多层清漆层层锁固，不同光线下，漆面会完美复刻朝阳穿透云层的流光溢彩。
+
+哑光金部分使用了中国传统非遗大漆的打磨工艺，将东方独有的温润质感，刻入每一寸型面。
 
 ## 相关推荐
 
-- 2026-06-29 19:55 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-29 19:34 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 19:41 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 19:32 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 19:34 - [沙特外交大臣将访华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 19:44 - [河南高院审委会原委员曲海滨被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 19:34 - [世界杯1/16决赛对阵出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 19:42 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 19:31 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 19:57 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 19:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 19:52 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 19:58 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 19:44 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-29 19:51 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 19:38 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 19:57 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 19:58 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 19:48 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 19:39 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 19:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 19:54 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 19:39 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 19:43 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 19:53 - [官媒首曝六代机？大V解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 20:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 20:04 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/05211305961.shtml)
-- 2026-06-29 19:55 - [回顾世界杯争议事件](http://www.share.kurohicncr.top/Article/details/23955.shtml)
-- 2026-06-29 19:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/948082.shtml)
-- 2026-06-29 19:47 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/3139476.shtml)
-- 2026-06-29 19:30 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/7985183.shtml)
-- 2026-06-29 19:46 - [我和我的家乡](https://www.share.minike.top/Article/details/3778357.shtml)
-- 2026-06-29 19:55 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/4521625272.shtml)
-- 2026-06-29 19:48 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/0158930197.shtml)
-- 2026-06-29 19:52 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/8856220780.shtml)
-- 2026-06-29 19:52 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/909598149302.shtml)
-- 2026-06-29 19:31 - [黄灿灿张慧雯落地签还没发的原因](https://www.share.minike.top/Article/details/22145.shtml)
-- 2026-06-29 19:34 - [医药生物行业今日涨5.91%](https://www.blog.minike.top/Article/details/044003242.shtml)
-- 2026-06-29 19:30 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/57425138880.shtml)
-- 2026-06-29 19:51 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/34646.shtml)
-- 2026-06-29 19:59 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/6179080054.shtml)
+- 2026-06-29 19:46 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/9031760018.shtml)
+- 2026-06-29 19:50 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/872673311.shtml)
+- 2026-06-29 19:39 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/794663.shtml)
+- 2026-06-29 19:55 - [李思潼回应运气好演《给阿嬷的情书》](https://www.blog.minike.top/Article/details/48587445.shtml)
+- 2026-06-29 19:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.blog.kurohicncr.top/Article/details/84099.shtml)
+- 2026-06-29 19:55 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://www.share.minike.top/Article/details/2361428.shtml)
+- 2026-06-29 19:36 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/1740583.shtml)
+- 2026-06-29 19:54 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.minike.top/Article/details/17731.shtml)
+- 2026-06-29 20:03 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/269986450706.shtml)
+- 2026-06-29 19:41 - [美议员呼吁断供以色列政府](http://www.blog.kurohicncr.top/Article/details/6345373.shtml)
+- 2026-06-29 19:43 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/74360366082.shtml)
+- 2026-06-29 19:38 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/442785.shtml)
+- 2026-06-29 19:53 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/72585.shtml)
+- 2026-06-29 19:58 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/6185003.shtml)
+- 2026-06-29 19:56 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/46232.shtml)

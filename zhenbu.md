@@ -1,57 +1,47 @@
-# 泉州市侨商会走进泉港区 互学互鉴共促发展
+# 习言道｜政绩观问题是一个根本性问题
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-4月28日下午，泉州市侨商会会长张炳煌一行6人到泉港区侨联交流访问，泉港区侨联主席刘志春和班子成员、部分泉港籍泉州市侨商会代表参加活动。 张炳煌感谢泉港区侨联的热情接待。他表示，近年来市侨商会围绕服务侨商、深化联谊取得显著成果，注重引导侨资侨力助推地方经济发展，牵线搭桥成功引进年产值22亿元的中科睿升高性能塑胶项目落地泉港石化园区。今后将进一步加强与泉港区侨界资源的协作，回应侨
+政绩观问题是一个根本性问题，关乎立党为公、执政为民。对于政绩观，习近平总书记始终有着深邃思考与明确指引，强调“树立和践行正确政绩观，起决定性作用的是党性”。
 
 ## 正文
 
-4月28日下午，泉州市侨商会会长张炳煌一行6人到泉港区侨联交流访问，泉港区侨联主席刘志春和班子成员、部分泉港籍泉州市侨商会代表参加活动。
+政绩观问题是一个根本性问题，关乎立党为公、执政为民。
 
-张炳煌感谢泉港区侨联的热情接待。
-
-他表示，近年来市侨商会围绕服务侨商、深化联谊取得显著成果，注重引导侨资侨力助推地方经济发展，牵线搭桥成功引进年产值22亿元的中科睿升高性能塑胶项目落地泉港石化园区。
-
-今后将进一步加强与泉港区侨界资源的协作，回应侨商需求，助推侨商事业高水平发展。
-
-泉港区侨联对张会长一行的到来表示欢迎，对张会长引荐侨资侨力助力泉港发展表示感谢，并向来访嘉宾介绍泉港独特的侨情优势，强调将继续发挥桥梁作用，团结引导侨商关注泉港、投资泉港，为家乡发展注入新动力。
-
-座谈会上，大家围绕服务会员企业、项目对接、信息互通、资源共享进行热烈讨论。
-
-张炳煌会长代表泉州市侨商会向泉港区侨联赠送纪念品。
-
-图片会后，大家参观泉港锦绣公园，纷纷表示泉港区自然环境优美，要打响中国长寿之乡品牌，积极传播泉港好声音，吸引更多的侨界项目、资金、人才落地泉港。
+对于政绩观，习近平总书记始终有着深邃思考与明确指引，强调“树立和践行正确政绩观，起决定性作用的是党性”。
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 19:49 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 19:51 - [主力抛售电子和通信板块](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 19:47 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-29 19:56 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 19:36 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 19:56 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 19:51 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-29 19:47 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 19:54 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 19:59 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 19:42 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 19:49 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 19:57 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 19:46 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 20:02 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 19:54 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 20:00 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 19:54 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 19:47 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 20:02 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 19:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-29 19:37 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 19:49 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [本届世界杯已有5人涉性侵风波](https://www.blog.minike.top/Article/details/648193421187.shtml)
-- 2026-06-29 19:45 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/66479900.shtml)
-- 2026-06-29 19:37 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/498821900.shtml)
-- 2026-06-29 19:45 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/018764322121.shtml)
-- 2026-06-29 19:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/6846596.shtml)
-- 2026-06-29 19:45 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/18831.shtml)
-- 2026-06-29 19:50 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/5527844.shtml)
-- 2026-06-29 19:34 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/01411526.shtml)
-- 2026-06-29 19:49 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/8754268873.shtml)
-- 2026-06-29 19:30 - [Ella回应SHE何时合体](https://www.share.kurohicncr.top/Article/details/60632194.shtml)
-- 2026-06-29 19:33 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/4635156116.shtml)
-- 2026-06-29 19:40 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/688853202.shtml)
-- 2026-06-29 19:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/2788163.shtml)
-- 2026-06-29 19:31 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/7610298669.shtml)
-- 2026-06-29 19:53 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/00871222.shtml)
+- 2026-06-29 19:51 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/92509328.shtml)
+- 2026-06-29 19:36 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/476429494417.shtml)
+- 2026-06-29 19:38 - [铜价上涨 日本住宅水表失窃严重](https://www.blog.minike.top/Article/details/7990736728.shtml)
+- 2026-06-29 19:48 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.minike.top/Article/details/0345553.shtml)
+- 2026-06-29 19:54 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/69443964279.shtml)
+- 2026-06-29 19:39 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/5287476196.shtml)
+- 2026-06-29 20:02 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/21508.shtml)
+- 2026-06-29 19:43 - [恋与深空客服的回应](http://www.blog.minike.top/Article/details/973979060965.shtml)
+- 2026-06-29 20:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/272933475611.shtml)
+- 2026-06-29 20:00 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/8922535.shtml)
+- 2026-06-29 20:00 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/707180786.shtml)
+- 2026-06-29 19:51 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.share.minike.top/Article/details/863194228.shtml)
+- 2026-06-29 19:57 - [扬名立万](http://www.blog.minike.top/Article/details/45352601.shtml)
+- 2026-06-29 20:00 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/762509927451.shtml)
+- 2026-06-29 19:54 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/3272833356.shtml)

@@ -1,59 +1,58 @@
-# 东莞银行2025年营利双降，非息收入大降35%成拖累，一季度回暖业绩拐点待确认
+# 光大期货：4月24日有色金属日报
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-蓝鲸新闻4月29日讯（记者 金磊） 近日，东莞银行发布2025年年度报告及2026年一季报。2025年，该行实现营业收入93.02亿元，同比下降8.78%；归属于本行股东的净利润30.78亿元，同比下降17.53%。该行拟以总股本23.416亿股为基数，每10股派发现金股利3.20元（含税），合计派发7.49亿元。 截至2025年末，该行资产总额6892.81亿元，较上年末增加
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜现货进口再次关闭。宏观方面，美国4月综合PMI初值录得52.0，高于预期值50.6和前值50.3，创3个月新高，其中制造业PMI初值录得54.0，高于预期值52.5和前值52.3，创47个月新高，景气度显著回升；服务业PMI初值录得51.3，高于预期值50.6和前值
 
 ## 正文
 
-蓝鲸新闻4月29日讯（记者 金磊） 近日，东莞银行发布2025年年度报告及2026年一季报。
+铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜现货进口再次关闭。
 
-2025年，该行实现营业收入93.02亿元，同比下降8.78%；归属于本行股东的净利润30.78亿元，同比下降17.53%。
+宏观方面，美国4月综合PMI初值录得52.0，高于预期值50.6和前值50.3，创3个月新高，其中制造业PMI初值录得54.0，高于预期值52.5和前值52.3，创47个月新高，景气度显著回升；服务业PMI初值录得51.3，高于预期值50.6和前值49.8，重返扩张区间并创2个月新高。
 
-该行拟以总股本23.416亿股为基数，每10股派发现金股利3.20元（含税），合计派发7.49亿元。
+地缘政治方面，美伊谈判再次“陷入僵局”，特朗普表示霍尔木兹海峡已被彻底封锁。
 
-截至2025年末，该行资产总额6892.81亿元，较上年末增加165.51亿元，增幅2.46%；负债总额6427.80亿元，较上年末增加136.92亿元，增幅2.18%；存款余额4477.50亿元，较上年末增加93.26亿元，增幅2.13%；贷款余额3878.41亿元，较上年末增加222.88亿元，增幅6.10%。
+库存方面，LME铜库存增加425吨至396000吨；22日COMEX库存增加2821吨至547713吨；SHFE铜仓单下降4031吨至118497吨，BC维持11180吨。
 
-非息收入成为拖累主要因素，今年一季度业绩迎来双增长 从营收构成来看，2025年该行利息净收入为73.2亿元，同比增长2.87%，是东莞银行营收的主要支柱，占总营收的78.73%。
+美伊谈判局势依旧不明朗，霍尔木兹海峡通航问题依然难以解决，宏观反复也带动盘面无序波动，增加短线操作难度。
 
-2025年该行非利息收入19.79亿元，同比大幅下滑35.72%，成为拖累整体营收的重要因素。
+不过结合近期国内铜快速去库及海外硫酸问题，铜价预计将延续偏强格局，但当前地缘持续扰动下需降低反弹高度预期。
 
-其中，投资收益15.16亿元，同比下降27.33%；公允价值变动收益仅0.02亿元，同比暴跌99.04%；汇兑损益更是录得-4.91亿元，同比减少660.29%。
+另外，临近五一小长假，企业或担心节日前后地缘生变，因此对于高价铜普遍偏谨慎，但也有备货需求，因此策略上建议以逢低做多为主，上方关注104000-105000元/吨阻力区间的突破情况。
 
-而该行手续费及佣金净收入实现9.34亿元，同比增长26.70%，营收占比回升至10.04%。
+镍&不锈钢： （朱希，从业资格号：F03109968；交易咨询资格号：Z0021609） 隔夜LME镍涨1.68%报18775美元/吨，沪镍涨1.65%报144510元/吨。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 19:54 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 19:42 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 19:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-29 19:32 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-29 19:42 - [为何说今日日本似战前日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 19:42 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 19:42 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 19:47 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 19:43 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 19:47 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 19:44 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 19:35 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 19:39 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 19:45 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 20:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 19:52 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 19:38 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 19:43 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-29 19:41 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 19:55 - [美议员呼吁断供以色列政府](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:38 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 20:05 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 20:02 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-29 20:04 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [夏天被这些虫子咬了可能致命](http://www.blog.kurohicncr.top/Article/details/23393366576.shtml)
-- 2026-06-29 19:50 - [1个视频看懂2026志愿填报新专业](http://www.blog.kurohicncr.top/Article/details/74593.shtml)
-- 2026-06-29 19:56 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/492611068.shtml)
-- 2026-06-29 19:42 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/06174745.shtml)
-- 2026-06-29 19:57 - [德国医生在没有空调的手术室工作](https://www.share.minike.top/Article/details/923109.shtml)
-- 2026-06-29 19:55 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/391601.shtml)
-- 2026-06-29 19:30 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/560563856588.shtml)
-- 2026-06-29 19:42 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/1613096.shtml)
-- 2026-06-29 19:54 - [蔚来回应车漆洗车时被冲掉](https://www.blog.kurohicncr.top/Article/details/268884084.shtml)
-- 2026-06-29 19:39 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/1022187131.shtml)
-- 2026-06-29 19:36 - [沙丘](http://www.share.kurohicncr.top/Article/details/46218377.shtml)
-- 2026-06-29 19:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/490927015091.shtml)
-- 2026-06-29 19:38 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/88138.shtml)
-- 2026-06-29 19:36 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/35551069.shtml)
-- 2026-06-29 19:54 - [郑钦文谈再战西尼亚科娃](https://www.share.kurohicncr.top/Article/details/2958631677.shtml)
+- 2026-06-29 19:45 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/790288444.shtml)
+- 2026-06-29 19:50 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/93052966.shtml)
+- 2026-06-29 19:38 - [金牌调解](https://www.share.kurohicncr.top/Article/details/06477749.shtml)
+- 2026-06-29 19:57 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/1292289.shtml)
+- 2026-06-29 19:51 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://www.share.minike.top/Article/details/380410205210.shtml)
+- 2026-06-29 19:59 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/83569.shtml)
+- 2026-06-29 20:04 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/10950.shtml)
+- 2026-06-29 20:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/33791663381.shtml)
+- 2026-06-29 19:41 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.share.minike.top/Article/details/730946934449.shtml)
+- 2026-06-29 19:47 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/434627982.shtml)
+- 2026-06-29 20:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/34216716467.shtml)
+- 2026-06-29 19:52 - [李思潼回应运气好演《给阿嬷的情书》](http://www.share.kurohicncr.top/Article/details/22431943.shtml)
+- 2026-06-29 19:39 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/66007439.shtml)
+- 2026-06-29 19:43 - [运-20网宣片中的“小六”或是六代机](https://www.blog.minike.top/Article/details/122267505.shtml)
+- 2026-06-29 19:38 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/96516.shtml)

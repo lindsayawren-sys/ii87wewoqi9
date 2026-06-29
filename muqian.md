@@ -1,53 +1,50 @@
-# 社会救助法2026年7月1日起施行
+# 伊朗外长前往伊斯兰堡
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-新华社权威快报｜社会救助法2026年7月1日起施行 十四届全国人大常委会第二十二次会议4月30日表决通过社会救助法，自2026年7月1日起施行。该法共7章78条，包括总则、救助对象和措施、救助程序、社会力量参与、救助监督和保障、法律责任、附则。 社会救助事关困难群众基本生活和衣食冷暖，事关保障基本民生、促进社会公平、维护社会和谐稳定。社会救助法是社会保障领域的基础性法律，将为推
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰4月26日电据伊朗塔斯尼姆通讯社26日报道，伊朗外长阿拉格齐已离开阿曼首都马斯喀特前往巴基斯坦首都伊斯兰堡。（完）责任编辑：宋雅芳
 
 ## 正文
 
-新华社权威快报｜社会救助法2026年7月1日起施行 十四届全国人大常委会第二十二次会议4月30日表决通过社会救助法，自2026年7月1日起施行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该法共7章78条，包括总则、救助对象和措施、救助程序、社会力量参与、救助监督和保障、法律责任、附则。
+新华社德黑兰4月26日电据伊朗塔斯尼姆通讯社26日报道，伊朗外长阿拉格齐已离开阿曼首都马斯喀特前往巴基斯坦首都伊斯兰堡。
 
-社会救助事关困难群众基本生活和衣食冷暖，事关保障基本民生、促进社会公平、维护社会和谐稳定。
-
-社会救助法是社会保障领域的基础性法律，将为推动社会救助事业高质量发展、让人民共享改革发展成果提供坚实的法治保障。
-
-记者：朱高祥、魏冠宇 海报制作：朱高祥 新华社国内部出品
+（完）责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 19:40 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-29 19:32 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 19:36 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 19:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-29 19:51 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 19:42 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 19:41 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 19:30 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 19:42 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 19:34 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 19:37 - [7款高价创新药有望降价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 19:42 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 19:54 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 19:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 19:43 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 20:01 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 19:40 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 19:46 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 19:54 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 19:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 19:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 19:47 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 19:52 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 19:49 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 19:46 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 20:01 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 19:38 - [北京市发布雷电黄色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:55 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/40300400730.shtml)
-- 2026-06-29 19:36 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/5496272.shtml)
-- 2026-06-29 19:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/980049.shtml)
-- 2026-06-29 19:53 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/92185.shtml)
-- 2026-06-29 19:35 - [官媒首曝六代机？大V解读](https://www.blog.kurohicncr.top/Article/details/8130377.shtml)
-- 2026-06-29 19:58 - [葛军透露高考出题思路](https://www.blog.minike.top/Article/details/031319.shtml)
-- 2026-06-29 19:49 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.minike.top/Article/details/694987164006.shtml)
-- 2026-06-29 19:35 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/00283.shtml)
-- 2026-06-29 19:33 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/8008194.shtml)
-- 2026-06-29 19:31 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/530312430.shtml)
-- 2026-06-29 19:38 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/4362229.shtml)
-- 2026-06-29 19:33 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/4732851.shtml)
-- 2026-06-29 19:31 - [明天睁眼按时来取代我](https://www.blog.minike.top/Article/details/91510.shtml)
-- 2026-06-29 19:39 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://www.blog.minike.top/Article/details/2253425.shtml)
-- 2026-06-29 19:34 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/96373391.shtml)
+- 2026-06-29 19:56 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0806597361.shtml)
+- 2026-06-29 19:43 - [北京市发布雷电黄色预警](https://www.share.kurohicncr.top/Article/details/5047250.shtml)
+- 2026-06-29 20:02 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/570497873817.shtml)
+- 2026-06-29 19:41 - [天柱山回应网红打卡树枝被砍](https://www.blog.minike.top/Article/details/48761202.shtml)
+- 2026-06-29 19:55 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/516539.shtml)
+- 2026-06-29 19:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/685696744688.shtml)
+- 2026-06-29 19:52 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/500033950.shtml)
+- 2026-06-29 19:52 - [当我回母校教书](http://www.share.minike.top/Article/details/1704784.shtml)
+- 2026-06-29 19:48 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/29962703046.shtml)
+- 2026-06-29 19:42 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/3759171528.shtml)
+- 2026-06-29 19:55 - [医药生物行业今日涨5.91%](http://www.blog.kurohicncr.top/Article/details/45794706527.shtml)
+- 2026-06-29 19:57 - [天道](https://www.blog.minike.top/Article/details/337854.shtml)
+- 2026-06-29 19:59 - [虞书欣好辣的剧宣](https://www.blog.kurohicncr.top/Article/details/98692.shtml)
+- 2026-06-29 19:59 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/799388251.shtml)
+- 2026-06-29 19:44 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/8320514.shtml)

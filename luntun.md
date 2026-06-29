@@ -1,59 +1,60 @@
-# 1800万存银行不到一年消失！银行员工伪造签名挂失补卡转移巨款炒股，银行回应：等司法结论
+# 剧作家刘和平：创作要拒绝刻意贩恶 传递历史精神与人文关怀
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-来源：大象新闻 原标题：1800万存银行不到一年消失，银行员工伪造签名挂失补卡转移巨款炒股，事发后喝药轻生，储户称企业面临欠薪倒闭，银行：等司法结论 吉林省的陈冰向大象新闻·大象帮求助，半年前，她将1000万元现金存入吉林省扶余市的扶余惠民村镇银行，如今存款却离奇失踪。她的存款丢失不久后，涉事银行的储户王女士遇到了相似的情况，存在该行的800万存款去向不明。如今几个月过去了，两
+中新网深圳4月27日电 (程景伟 王铮锴 黄依妮)由花城出版社、全国新书首发中心联合主办的《六经责我开生面：刘和平谈艺录》新书首发暨读者见面会近日在深圳举行。该书是剧作家刘和平的首部历史、艺术论集。 《六经责我开生面：刘和平谈艺录》由花城出版社出版。在书中，刘和平重点围绕“文学叙事如何跨越史学叙事的门槛”“如何寻找人物隐蔽的行为动机和深层的心理奥秘”“进入创作时作者法身的入场和
 
 ## 正文
 
-来源：大象新闻 原标题：1800万存银行不到一年消失，银行员工伪造签名挂失补卡转移巨款炒股，事发后喝药轻生，储户称企业面临欠薪倒闭，银行：等司法结论 吉林省的陈冰向大象新闻·大象帮求助，半年前，她将1000万元现金存入吉林省扶余市的扶余惠民村镇银行，如今存款却离奇失踪。
+中新网深圳4月27日电 (程景伟 王铮锴 黄依妮)由花城出版社、全国新书首发中心联合主办的《六经责我开生面：刘和平谈艺录》新书首发暨读者见面会近日在深圳举行。
 
-她的存款丢失不久后，涉事银行的储户王女士遇到了相似的情况，存在该行的800万存款去向不明。
+该书是剧作家刘和平的首部历史、艺术论集。
 
-如今几个月过去了，两人这1800万存款何时能取出？
+《六经责我开生面：刘和平谈艺录》由花城出版社出版。
 
-至今银行方面也没有一个回复。
+在书中，刘和平重点围绕“文学叙事如何跨越史学叙事的门槛”“如何寻找人物隐蔽的行为动机和深层的心理奥秘”“进入创作时作者法身的入场和肉身的退场”“现实世界与平行世界的已知和未知”等话题，深刻阐述了自己的创作思想。
 
-千万现金存银行后消失银行卡被人冒名挂失补办 “我卡里的1000万只剩下一万多了，我都蒙了。
+书中不仅详细回顾了《雍正王朝》《大明王朝1566》《北平无战事》等史诗级剧集的创作过程，更披露了正在创作的《北斗南箕之歌》的思路历程和创意秘辛。
 
-”陈冰告诉大象新闻记者，2025年10月28日，她在吉林省扶余市的扶余惠民村镇银行存入了1000万元，办理了七天通知存款储蓄业务。
+全书从历史观、创作方法论、人物塑造等多个维度，深入剖析如何在大历史的复杂语境中构建戏剧的真实与张力。
 
-该储蓄业务年利率为0.95%，支取时需提前通知银行。
+活动现场，刘和平分享该书的创作内核与艺术思考，阐释了“历史意志”与“历史精神”的内涵，解读士大夫精神在中国文化中的根源与传承，并结合《大明王朝1566》《雍正王朝》《北平无战事》等经典作品，讲述自己“去肉身、留法身”的创作理念，强调创作要扬善、拒绝刻意贩恶，让作品真正传递历史精神与人文关怀。
 
-一个月多后，陈冰计划使用这笔资金时，发现手机银行无法登录。
+关于备受期待的新剧《北斗南箕之歌》，刘和平透露自己“每天都在写，不敢休息”，并坦言网友“字字珠玑”的评价让他欣慰，也让他更加审慎。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 19:38 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 19:50 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-29 19:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 19:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-29 19:50 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 19:38 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 19:44 - [娜扎搂着我的腰和我合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 19:30 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 19:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 19:44 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 19:58 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 19:31 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 19:41 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 20:01 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 20:01 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 19:59 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 19:37 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 19:44 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 20:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 19:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 19:41 - [扩军害了世界杯吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 19:36 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 19:55 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 19:45 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 19:55 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 19:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:37 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/8124566994.shtml)
-- 2026-06-29 19:31 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/01011826.shtml)
-- 2026-06-29 19:43 - [大马同意延长马航370残骸搜寻工作](http://www.share.kurohicncr.top/Article/details/42628.shtml)
-- 2026-06-29 19:43 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/74273819779.shtml)
-- 2026-06-29 19:58 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/610170.shtml)
-- 2026-06-29 19:48 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/56548112.shtml)
-- 2026-06-29 19:50 - [爱很美味](http://www.share.kurohicncr.top/Article/details/99818.shtml)
-- 2026-06-29 19:46 - [呼兰赵晓卉来东风奕派开专场了](http://www.share.minike.top/Article/details/060323456.shtml)
-- 2026-06-29 19:46 - [TFING全员黑西装](http://www.share.minike.top/Article/details/426475982.shtml)
-- 2026-06-29 19:45 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.kurohicncr.top/Article/details/3301659032.shtml)
-- 2026-06-29 19:56 - [海口塔吊事故处罚结果公布](https://www.share.minike.top/Article/details/9761112009.shtml)
-- 2026-06-29 19:31 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.kurohicncr.top/Article/details/8125642823.shtml)
-- 2026-06-29 19:40 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/062434977.shtml)
-- 2026-06-29 19:33 - [曝屠颖去世和酒店失责有关](http://www.share.minike.top/Article/details/485796316806.shtml)
-- 2026-06-29 19:34 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/1256579.shtml)
+- 2026-06-29 19:38 - [毒液2](https://www.blog.minike.top/Article/details/753006071.shtml)
+- 2026-06-29 19:38 - [互助版模拟高考志愿填报](https://www.share.minike.top/Article/details/13986.shtml)
+- 2026-06-29 20:00 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/2170982464.shtml)
+- 2026-06-29 20:01 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/31563802528.shtml)
+- 2026-06-29 19:41 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/977940702.shtml)
+- 2026-06-29 19:46 - [北京发布地质灾害气象风险蓝色预警](http://www.share.kurohicncr.top/Article/details/088453872.shtml)
+- 2026-06-29 19:44 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/2010942.shtml)
+- 2026-06-29 20:05 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/6051049.shtml)
+- 2026-06-29 19:41 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/7244832647.shtml)
+- 2026-06-29 19:40 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/4627351.shtml)
+- 2026-06-29 20:03 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/17527466.shtml)
+- 2026-06-29 19:46 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/87171118.shtml)
+- 2026-06-29 19:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/381043800564.shtml)
+- 2026-06-29 20:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/342035.shtml)
+- 2026-06-29 20:00 - [谢霆锋王菲十指紧扣一起走](http://www.blog.kurohicncr.top/Article/details/025444849.shtml)

@@ -1,50 +1,52 @@
-# 中国气象局：综合天气情况 “五一”假期推荐前往北方地区出游
+# 芯片股带动日经指数上涨0.6%
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 中国气象局29日召开5月新闻发布会。会上，国家气候中心副主任袁佳双表示，五一假期期间，我国南北天气差异明显，假期北方大部晴暖少雨，气候舒适度大多在“舒适”等级，旅游出行适宜度等级高，仅西北部分地区偶有沙尘；综合天气情况，假期优先推荐前往北方地区出游，北京、河北、山东半岛、东北大部适合踏青、赏花、滨海及山地游玩。西北地区除东部局部雨雪外，青海、新疆等地天气平稳
+专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 日本股市在芯片相关股的带动下走高，尽管美伊冲突持续带来不确定性。Lasertec上涨4.0%，罗姆半导体集团上涨3.6%。投资者正密切关注中东局势发展以及日本企业财报。发那科定于周五晚些时候公布季度业绩。日经指数上涨0.6%，报59，502.77点。责任编辑：王永生
 
 ## 正文
 
-中新网4月29日电 中国气象局29日召开5月新闻发布会。
+专题：A股配置风向标：机构建议关注景气成长、周期资源、高股息三条主线 日本股市在芯片相关股的带动下走高，尽管美伊冲突持续带来不确定性。
 
-会上，国家气候中心副主任袁佳双表示，五一假期期间，我国南北天气差异明显，假期北方大部晴暖少雨，气候舒适度大多在“舒适”等级，旅游出行适宜度等级高，仅西北部分地区偶有沙尘；综合天气情况，假期优先推荐前往北方地区出游，北京、河北、山东半岛、东北大部适合踏青、赏花、滨海及山地游玩。
+Lasertec上涨4.0%，罗姆半导体集团上涨3.6%。
 
-西北地区除东部局部雨雪外，青海、新疆等地天气平稳，适宜短途出游。
+投资者正密切关注中东局势发展以及日本企业财报。
 
-南方多降水天气过程，出行需全程关注气象灾害预警，及时调整行程。
+发那科定于周五晚些时候公布季度业绩。
+
+日经指数上涨0.6%，报59，502.77点。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 19:50 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 19:37 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 19:56 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 19:48 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 19:58 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 19:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 19:47 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 19:33 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 19:35 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 19:57 - [专家预计全球央行加息节奏将出现反复](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 19:47 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-29 19:32 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-29 19:56 - [恋与深空各大应用商店评分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 19:50 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 19:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 19:50 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-29 19:48 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 19:54 - [教育部高校学生资助热线7月1日开通](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-29 20:03 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 19:38 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 19:45 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 19:43 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:52 - [CORTIS 小牌大耍](https://www.share.minike.top/Article/details/9206261413.shtml)
-- 2026-06-29 19:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/252528.shtml)
-- 2026-06-29 19:57 - [韩国股市绑架日本？高盛警告](https://www.share.kurohicncr.top/Article/details/955675749.shtml)
-- 2026-06-29 19:38 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](http://www.share.minike.top/Article/details/580620.shtml)
-- 2026-06-29 19:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://www.share.kurohicncr.top/Article/details/247097371333.shtml)
-- 2026-06-29 19:39 - [海清4次陪跑白玉兰](https://www.share.minike.top/Article/details/550248.shtml)
-- 2026-06-29 19:35 - [当家电外通风口出现鸟窝](http://www.share.kurohicncr.top/Article/details/6190652.shtml)
-- 2026-06-29 19:58 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/63392155020.shtml)
-- 2026-06-29 19:56 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/4084174.shtml)
-- 2026-06-29 19:34 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/73296022.shtml)
-- 2026-06-29 19:40 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/955668153.shtml)
-- 2026-06-29 19:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/66420.shtml)
-- 2026-06-29 19:55 - [医药生物行业今日涨5.91%](https://www.share.kurohicncr.top/Article/details/76163171141.shtml)
-- 2026-06-29 19:33 - [赵今麦时隔五年再演李诗情](https://www.blog.kurohicncr.top/Article/details/7119618143.shtml)
-- 2026-06-29 19:41 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.minike.top/Article/details/0615493.shtml)
+- 2026-06-29 19:56 - [爱很美味](https://www.share.kurohicncr.top/Article/details/5459818663.shtml)
+- 2026-06-29 19:56 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/44089926.shtml)
+- 2026-06-29 19:50 - [A股割裂行情有变化了吗](https://www.share.kurohicncr.top/Article/details/527215450703.shtml)
+- 2026-06-29 19:58 - [世界杯1/16决赛对阵出炉](https://www.share.kurohicncr.top/Article/details/32421.shtml)
+- 2026-06-29 19:38 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/684637.shtml)
+- 2026-06-29 19:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/002868088.shtml)
+- 2026-06-29 19:52 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](http://www.share.kurohicncr.top/Article/details/11341.shtml)
+- 2026-06-29 19:55 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/234528.shtml)
+- 2026-06-29 19:56 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/53663.shtml)
+- 2026-06-29 19:46 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/51526614.shtml)
+- 2026-06-29 19:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/087100.shtml)
+- 2026-06-29 19:54 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/163807046740.shtml)
+- 2026-06-29 19:53 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/692296870481.shtml)
+- 2026-06-29 19:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/6043696304.shtml)
+- 2026-06-29 19:53 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/242714.shtml)

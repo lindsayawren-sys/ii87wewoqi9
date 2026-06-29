@@ -1,49 +1,59 @@
-# 张家港行：一季度实现归母净利润5.76亿元，同比增长2.50%
+# 《中国打击侵权假冒工作年度报告(2025)》发布
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，张家港行发布2026年一季度报告。数据显示，今年1-3月，该行实现营业收入12.66亿元，同比下降4.43%；实现归属于上市公司股东的净利润5.76亿元，同比增长2.50%。截至3月末，该行资产规模2403.72亿元，较年初增长5.78%；不良贷款率0.94%，较年初持平。 责任编辑：王馨茹
+中新网4月24日电 国务院新闻办公室24日上午举行新闻发布会，介绍《中国打击侵权假冒工作年度报告(2025)》有关情况，并答记者问。会上，市场监管总局副局长白清元介绍，在第26个世界知识产权日到来之际，国家质量强国建设协调推进领导小组办公室今天发布了《中国打击侵权假冒工作年度报告(2025)》。《报告》梳理了“十四五”时期和2025年中国政府打击侵权假冒工作的新举措、新成效。白
 
 ## 正文
 
-4月29日金融一线消息，张家港行发布2026年一季度报告。
+中新网4月24日电 国务院新闻办公室24日上午举行新闻发布会，介绍《中国打击侵权假冒工作年度报告(2025)》有关情况，并答记者问。
 
-数据显示，今年1-3月，该行实现营业收入12.66亿元，同比下降4.43%；实现归属于上市公司股东的净利润5.76亿元，同比增长2.50%。
+会上，市场监管总局副局长白清元介绍，在第26个世界知识产权日到来之际，国家质量强国建设协调推进领导小组办公室今天发布了《中国打击侵权假冒工作年度报告(2025)》。
 
-截至3月末，该行资产规模2403.72亿元，较年初增长5.78%；不良贷款率0.94%，较年初持平。
+《报告》梳理了“十四五”时期和2025年中国政府打击侵权假冒工作的新举措、新成效。
 
-责任编辑：王馨茹
+白清元指出，“十四五”期间，中国政府将打击侵权假冒工作摆在更加突出的位置，制度机制不断完善，执法司法持续强化。
+
+五年来，行政执法、刑事司法部门持续开展了“铁拳”“清朗”“昆仑”等一系列专项行动，严厉打击侵权假冒违法行为。
+
+全国版权部门共查处实体市场侵权盗版案件1.28万件，海关共查扣进出口侵权嫌疑货物28.2万批次4亿件，市场监管部门共查处商标侵权、假冒专利案件21.89万件，连续五年举办侵权假冒伪劣商品全国统一销毁行动，涵盖了30大类200多个品种，货值达到27.9亿元。
+
+全国公安机关立案侦办侵权假冒伪劣犯罪案件17万起、抓获犯罪嫌疑人24.7万名；检察机关起诉涉嫌生产、销售伪劣商品犯罪案件4.8万件9.2万人；人民法院共审结知识产权民事、刑事、行政案件277万件。
+
+打击侵权假冒和保护知识产权的社会影响力持续扩大，对违法犯罪行为的震慑力不断强化。
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [法拉利被划损维修2.9万家长只愿赔5千](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 19:54 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 19:31 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 19:30 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 19:53 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 19:52 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-29 19:57 - [挪威王储妃长子两次强奸获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 19:39 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 19:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-29 19:46 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-29 19:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 19:49 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 19:40 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 19:43 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 19:41 - [TTG KSG](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 19:58 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 19:39 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 19:55 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-29 20:05 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 20:04 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 19:36 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-29 19:36 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 19:49 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 19:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:46 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/5500574346.shtml)
-- 2026-06-29 19:41 - [周生如故](http://www.blog.kurohicncr.top/Article/details/247955744.shtml)
-- 2026-06-29 19:42 - [娜扎搂着我的腰和我合照](https://www.blog.kurohicncr.top/Article/details/7773101103.shtml)
-- 2026-06-29 19:34 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.kurohicncr.top/Article/details/8011980.shtml)
-- 2026-06-29 19:31 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/645183632010.shtml)
-- 2026-06-29 19:53 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.share.kurohicncr.top/Article/details/65611.shtml)
-- 2026-06-29 19:56 - [外交部谈对日出口管制措施](https://www.share.kurohicncr.top/Article/details/24177224.shtml)
-- 2026-06-29 19:47 - [一生一世](http://www.share.minike.top/Article/details/442460.shtml)
-- 2026-06-29 19:56 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/2754422669.shtml)
-- 2026-06-29 19:48 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/26533.shtml)
-- 2026-06-29 19:49 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/66578064.shtml)
-- 2026-06-29 19:31 - [本届世界杯已有5人涉性侵风波](https://www.blog.minike.top/Article/details/0606536024.shtml)
-- 2026-06-29 19:42 - [明星大侦探第一季](https://www.share.minike.top/Article/details/237722.shtml)
-- 2026-06-29 19:50 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/26863.shtml)
-- 2026-06-29 19:44 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/3489867.shtml)
+- 2026-06-29 19:57 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/9651910638.shtml)
+- 2026-06-29 19:57 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/137272742773.shtml)
+- 2026-06-29 19:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/425742824870.shtml)
+- 2026-06-29 19:36 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/45073741004.shtml)
+- 2026-06-29 19:37 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/06684459408.shtml)
+- 2026-06-29 19:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/430093358.shtml)
+- 2026-06-29 19:45 - [欧洲极端高温如何影响家电股](http://www.blog.kurohicncr.top/Article/details/60947430.shtml)
+- 2026-06-29 19:40 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/869532.shtml)
+- 2026-06-29 19:40 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/0265786095.shtml)
+- 2026-06-29 19:55 - [互助版模拟高考志愿填报](http://www.share.kurohicncr.top/Article/details/682882110876.shtml)
+- 2026-06-29 20:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/30438358.shtml)
+- 2026-06-29 19:42 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/42223954.shtml)
+- 2026-06-29 19:45 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/33737870574.shtml)
+- 2026-06-29 19:57 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/84029153.shtml)
+- 2026-06-29 19:44 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/01378768.shtml)

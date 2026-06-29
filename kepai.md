@@ -1,52 +1,61 @@
-# 特朗普称美政府将公布“大量”关于不明飞行物的信息
+# 亚马逊支持的小型核反应堆公司X-Energy通过IPO融资10.2亿美元
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据《今日美国》报道，当地时间4月29日，美国总统特朗普在白宫会见“阿耳忒弥斯2号”任务宇航员时称，美国政府将在不久的将来向美国公众公布关于不明飞行物(UFO)的“大量信息”。 特朗普称：“我认为其中一些内容会让人们感到非常有趣。” 报道还称，本月早些时候，特朗普在一场政治集会上曾表示，他下令五角大楼进行的一项关于不明飞行物的研究“发现了许多非常有趣的文件”，
+由亚马逊支持的小型核反应堆开发商X-Energy周四宣布，已在美国完成首次公开募股（IPO），筹集资金10.2亿美元。 这家总部位于马里兰州罗克维尔的公司在此次规模扩大的IPO中以每股23美元的价格出售了4430万股股票，高于此前预估的每股16至19美元的发行价区间。 此次IPO正值市场在3月份短暂放缓后重拾动力之际。当时，受中东紧张局势和更广泛的科技股抛售的影响，市场波动导致
 
 ## 正文
 
-中新网4月30日电 据《今日美国》报道，当地时间4月29日，美国总统特朗普在白宫会见“阿耳忒弥斯2号”任务宇航员时称，美国政府将在不久的将来向美国公众公布关于不明飞行物(UFO)的“大量信息”。
+由亚马逊支持的小型核反应堆开发商X-Energy周四宣布，已在美国完成首次公开募股（IPO），筹集资金10.2亿美元。
 
-特朗普称：“我认为其中一些内容会让人们感到非常有趣。
+这家总部位于马里兰州罗克维尔的公司在此次规模扩大的IPO中以每股23美元的价格出售了4430万股股票，高于此前预估的每股16至19美元的发行价区间。
 
-” 报道还称，本月早些时候，特朗普在一场政治集会上曾表示，他下令五角大楼进行的一项关于不明飞行物的研究“发现了许多非常有趣的文件”，并且“首批文件的公开将很快、很快开始。
+此次IPO正值市场在3月份短暂放缓后重拾动力之际。
 
-”
+当时，受中东紧张局势和更广泛的科技股抛售的影响，市场波动导致多家公司被迫暂停发行。
+
+随着市场接近历史高位，风险偏好有所改善，各公司正迅速采取行动以满足投资者的需求。
+
+随着电力需求激增，尤其是来自运行高能耗人工智能和云基础设施的超大规模企业的需求，核能再次引起人们的关注。
+
+X-Energy公司成立于2009年，致力于开发小型模块化反应堆（SMR）技术，并为先进核系统生产燃料。
+
+小型模块化反应堆（SMR）体积更小，设计上也比传统的大型反应堆更具成本效益，而大型反应堆的建造可能需要数年时间。
 
 ## 相关推荐
 
-- 2026-06-29 19:30 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 19:44 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 19:38 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 19:58 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 19:42 - [两老人多次到一洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 19:37 - [法生态部长反对装空调却自己吹空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 19:32 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 19:52 - [盛秋平任南昌市委书记](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 19:32 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-29 19:56 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 19:42 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 19:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 19:32 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-29 19:56 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 19:41 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 19:39 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 19:37 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 19:52 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-29 19:57 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 19:50 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 19:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 19:42 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 19:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 19:51 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 19:59 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-29 19:43 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 20:04 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 19:43 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 19:49 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:32 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/92768675.shtml)
-- 2026-06-29 19:31 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/21922736.shtml)
-- 2026-06-29 19:57 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/91837.shtml)
-- 2026-06-29 19:43 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/6405527095.shtml)
-- 2026-06-29 19:58 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/711141909.shtml)
-- 2026-06-29 19:42 - [急先锋](http://www.blog.minike.top/Article/details/607237944688.shtml)
-- 2026-06-29 19:38 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/5825377197.shtml)
-- 2026-06-29 19:54 - [流金岁月](https://www.blog.minike.top/Article/details/00645.shtml)
-- 2026-06-29 19:36 - [逃狱兄弟](https://www.share.minike.top/Article/details/18329.shtml)
-- 2026-06-29 19:30 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/943744110.shtml)
-- 2026-06-29 19:49 - [乔家的儿女](https://www.blog.minike.top/Article/details/111873.shtml)
-- 2026-06-29 19:37 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/788654.shtml)
-- 2026-06-29 19:41 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/30912050204.shtml)
-- 2026-06-29 19:35 - [一家三口吃溪石斑鱼中毒](http://www.share.kurohicncr.top/Article/details/598485246597.shtml)
-- 2026-06-29 19:31 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/685533271601.shtml)
+- 2026-06-29 19:55 - [新官上任三把火](https://www.blog.minike.top/Article/details/957289168.shtml)
+- 2026-06-29 19:41 - [SK集团将投资400万亿韩元建芯片集群](https://www.blog.minike.top/Article/details/705078722.shtml)
+- 2026-06-29 19:43 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/63683781.shtml)
+- 2026-06-29 20:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/880803999025.shtml)
+- 2026-06-29 19:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/789198.shtml)
+- 2026-06-29 19:43 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/946375.shtml)
+- 2026-06-29 20:00 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/218738.shtml)
+- 2026-06-29 20:01 - [中方向委方追加1亿元援助](http://www.blog.kurohicncr.top/Article/details/6543130.shtml)
+- 2026-06-29 19:55 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/645081.shtml)
+- 2026-06-29 20:05 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/6767543.shtml)
+- 2026-06-29 19:49 - [速度与激情9](https://www.share.minike.top/Article/details/0697023.shtml)
+- 2026-06-29 20:01 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/178606739.shtml)
+- 2026-06-29 19:38 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/345861881211.shtml)
+- 2026-06-29 19:42 - [拍到真的赛博朋克边缘行者了！](http://www.blog.minike.top/Article/details/751641621.shtml)
+- 2026-06-29 19:43 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1477564.shtml)

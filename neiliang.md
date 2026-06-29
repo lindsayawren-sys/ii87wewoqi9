@@ -1,60 +1,56 @@
-# 国防部：欢迎台湾同胞常回家看看
+# 全国政协召开双周协商座谈会 围绕加快涉外法治体系和能力建设协商议政 王沪宁主持
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。 有记者提问：据报道，台海军退役舰长吕礼诗等台湾同胞在青岛参加海军开放日活动，称祖国的强大代表台湾的安全，还想看福建舰。台湾陆委会称吕礼诗配合大陆“统战”，将研究相关行为是否违法。请问对此有何评论？ 张晓刚表示，今年庆祝人民海军成立77周年期间，我们组织40多艘现役主
+本报讯(记者 吕巍)十四届全国政协第四十三次双周协商座谈会4月24日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。他表示，中共十八大以来，以习近平同志为核心的中共中央从统筹国内国际两个大局、统筹发展与安全的高度，对加强涉外法治工作作出重要部署，加快建设涉外法律法规体系，提升涉外执法司法和法律服务水平，发展涉外法治工作队伍，积极参与国际规则制定，为维护国家和人民利益、
 
 ## 正文
 
-中新网4月30日电 据国防部网站消息，4月30日下午，国防部举行例行记者会，国防部新闻发言人张晓刚大校答记者问。
+本报讯(记者 吕巍)十四届全国政协第四十三次双周协商座谈会4月24日在京召开，中共中央政治局常委、全国政协主席王沪宁主持会议。
 
-有记者提问：据报道，台海军退役舰长吕礼诗等台湾同胞在青岛参加海军开放日活动，称祖国的强大代表台湾的安全，还想看福建舰。
+他表示，中共十八大以来，以习近平同志为核心的中共中央从统筹国内国际两个大局、统筹发展与安全的高度，对加强涉外法治工作作出重要部署，加快建设涉外法律法规体系，提升涉外执法司法和法律服务水平，发展涉外法治工作队伍，积极参与国际规则制定，为维护国家和人民利益、促进国际法治进步、推动构建人类命运共同体提供了有力法治支撑。
 
-台湾陆委会称吕礼诗配合大陆“统战”，将研究相关行为是否违法。
+要深入学习贯彻习近平法治思想特别是习近平总书记关于涉外法治工作的重要论述，把准履职建言的方向和重点。
 
-请问对此有何评论？
+王沪宁表示，人民政协要围绕推进我国涉外法治体系建设、加强涉外法治人才培养等重点问题深入开展研究，讲好新时代中国法治故事。
 
-张晓刚表示，今年庆祝人民海军成立77周年期间，我们组织40多艘现役主战舰艇在22个城市港口对外开放等活动，50多万民众亲身感受人民海军转型建设成果。
+政协委员中的法学家、企业家和相关专业人士，要立足本职岗位和专业优势，为加快涉外法治体系和能力建设发挥更大作用。
 
-特别是台湾同胞赴青岛登上祖国战舰受到广泛关注，“两岸一家亲、家和万事兴”的旗语引发现场强烈共鸣。
+全国政协委员杨万明、周汉民、陈思源、邓健、方光华、侯茂丰、鲁晓明、李迎新、袁小彬、赵昌华、张毅和专家郑若骅发言。
 
-民进党当局见不得两岸同胞走近走亲，在他们看来什么都是统战，但不管他们怎么阻挠，也都是枉费心机。
+大家认为，要完善涉外法律法规体系，加强立法规划、健全立法机制，推进重点涉外领域立法。
 
-我们欢迎台湾同胞常回家看看，见证新时代伟大成就，共享民族复兴荣耀。
+要深化涉外执法司法合作，主动对接高标准国际经贸规则。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 19:50 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 19:42 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 19:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 19:36 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 19:45 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-29 19:34 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 19:37 - [虞书欣好辣的剧宣](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 19:57 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 19:41 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 19:41 - [2026年，如果你有100万，你会怎么投资？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 19:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 19:52 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 19:57 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 19:59 - [中方向委方追加1亿元援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 19:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 19:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 19:42 - [世界杯1/16决赛对阵出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-29 19:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 19:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 19:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 20:01 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 20:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 19:43 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:35 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/9534331471.shtml)
-- 2026-06-29 19:31 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/30820266113.shtml)
-- 2026-06-29 19:32 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/883718.shtml)
-- 2026-06-29 19:30 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/906538.shtml)
-- 2026-06-29 19:34 - [有哪些记载在古籍里的浪漫文字，如今已经很少有人提及？](https://www.share.kurohicncr.top/Article/details/261750.shtml)
-- 2026-06-29 19:54 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/263649.shtml)
-- 2026-06-29 19:46 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/49469727458.shtml)
-- 2026-06-29 19:39 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/48101713.shtml)
-- 2026-06-29 19:33 - [中方向委方追加1亿元援助](http://www.blog.minike.top/Article/details/6106464735.shtml)
-- 2026-06-29 19:42 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/7749359.shtml)
-- 2026-06-29 19:31 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/834796399149.shtml)
-- 2026-06-29 19:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/876423.shtml)
-- 2026-06-29 19:50 - [这一刀 会很帅](http://www.share.minike.top/Article/details/906990591095.shtml)
-- 2026-06-29 19:44 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/465637844037.shtml)
-- 2026-06-29 19:56 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/791917.shtml)
+- 2026-06-29 20:00 - [当家电外通风口出现鸟窝](http://www.blog.kurohicncr.top/Article/details/0663741.shtml)
+- 2026-06-29 19:39 - [世界杯疑现假球 FIFA被呼吁调查](https://www.blog.minike.top/Article/details/888622939.shtml)
+- 2026-06-29 19:36 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/2842568010.shtml)
+- 2026-06-29 19:55 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/4198145577.shtml)
+- 2026-06-29 19:42 - [外交部谈对日出口管制措施](https://www.share.minike.top/Article/details/45637.shtml)
+- 2026-06-29 19:45 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/89733313041.shtml)
+- 2026-06-29 19:52 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/503191534524.shtml)
+- 2026-06-29 19:46 - [当我回母校教书](http://www.share.minike.top/Article/details/587011.shtml)
+- 2026-06-29 20:00 - [曝腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/03052962.shtml)
+- 2026-06-29 19:42 - [歼-15型舰载机为何被歼-15T替代](http://www.share.minike.top/Article/details/396471.shtml)
+- 2026-06-29 19:44 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/432683.shtml)
+- 2026-06-29 19:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/910652.shtml)
+- 2026-06-29 19:51 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/136651517624.shtml)
+- 2026-06-29 19:46 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/93915901780.shtml)
+- 2026-06-29 19:55 - [北京市发布雷电黄色预警](https://www.blog.minike.top/Article/details/8107745966.shtml)

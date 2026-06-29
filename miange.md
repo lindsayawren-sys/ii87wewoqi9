@@ -1,51 +1,57 @@
-# 泰国央行维持关键利率不变 以抵御油价对经济的冲击
+# 社保“第六险”缴费多少？享受哪些待遇？一文了解
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-泰国央行将基准利率维持在近四年来的最低水平，以缓冲全球石油冲击对经济的影响。 货币政策委员会周三一致投票决定将1天期回购利率维持在1%，为2022年底以来的最低水平。这一决定符合彭博调查的24位经济学家的预期。此次会议共有六名成员出席，委员会仍有一个席位空缺。责任编辑：陈钰嘉
+来源：央视新闻客户端 随着人口老龄化加快，“一人失能，全家失衡”成为很多家庭的难题。前不久，中办、国办发布意见，要求用3年左右的时间，基本建立长期护理保险制度。各地也在加快推进政策落地。那么，哪些人能够享受待遇？ 社保“第六险” 所有职工和居民均参加 长期护理保险制度是为失能人员的基本生活照料和医疗护理，提供服务或资金保障的社会保险制度，被称为社保“第六险”，所有职工和居民均参
 
 ## 正文
 
-泰国央行将基准利率维持在近四年来的最低水平，以缓冲全球石油冲击对经济的影响。
+来源：央视新闻客户端 随着人口老龄化加快，“一人失能，全家失衡”成为很多家庭的难题。
 
-货币政策委员会周三一致投票决定将1天期回购利率维持在1%，为2022年底以来的最低水平。
+前不久，中办、国办发布意见，要求用3年左右的时间，基本建立长期护理保险制度。
 
-这一决定符合彭博调查的24位经济学家的预期。
+各地也在加快推进政策落地。
 
-此次会议共有六名成员出席，委员会仍有一个席位空缺。
+那么，哪些人能够享受待遇？
 
-责任编辑：陈钰嘉
+社保“第六险” 所有职工和居民均参加 长期护理保险制度是为失能人员的基本生活照料和医疗护理，提供服务或资金保障的社会保险制度，被称为社保“第六险”，所有职工和居民均参加长期护理保险。
+
+在同一统筹地区，无论参保人来自农村还是城市，都从同一个资金池报销费用，享受待遇。
+
+5年左右 费率逐步过渡到0.3%左右 长期护理保险与基本医保一起缴费，费率统一控制在0.3%左右。
+
+单位职工由用人单位和个人共同缴费，用人单位缴费基数为职工工资总额，个人缴费基数为本人工资收入。
 
 ## 相关推荐
 
-- 2026-06-29 19:33 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-29 19:50 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 19:42 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 19:48 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 19:32 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 19:33 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 19:38 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-29 19:40 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 19:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 19:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 19:55 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-29 19:57 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-29 19:47 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 19:52 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 19:45 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 19:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 20:01 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 19:45 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 19:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 19:47 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 19:50 - [宜宾地震已转移安置225人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 19:39 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [V8](https://www.share.minike.top/Article/details/059278.shtml)
-- 2026-06-29 19:57 - [请回答王牌2019](https://www.share.minike.top/Article/details/271015223402.shtml)
-- 2026-06-29 19:54 - [周生如故](https://www.blog.minike.top/Article/details/79130704567.shtml)
-- 2026-06-29 19:49 - [厨房装空调还是装冷烟机](http://www.blog.minike.top/Article/details/4741112.shtml)
-- 2026-06-29 19:55 - [TTG KSG](https://www.blog.kurohicncr.top/Article/details/09484.shtml)
-- 2026-06-29 19:32 - [流金岁月](https://www.blog.minike.top/Article/details/86167.shtml)
-- 2026-06-29 19:42 - [官方通报一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/172149220.shtml)
-- 2026-06-29 19:52 - [刘冰任河南南阳市代市长](https://www.blog.minike.top/Article/details/251791845.shtml)
-- 2026-06-29 19:55 - [刘冰任河南南阳市代市长](http://www.blog.minike.top/Article/details/321164568.shtml)
-- 2026-06-29 19:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/29413.shtml)
-- 2026-06-29 19:54 - [2026年，如果你有100万，你会怎么投资？](https://www.share.minike.top/Article/details/19728.shtml)
-- 2026-06-29 19:56 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/12339436.shtml)
-- 2026-06-29 19:51 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/47530.shtml)
-- 2026-06-29 19:47 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/258785348508.shtml)
-- 2026-06-29 19:32 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/561258891.shtml)
+- 2026-06-29 19:36 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/08200741711.shtml)
+- 2026-06-29 19:59 - [刘嘉玲为64岁梁朝伟庆生](https://www.share.kurohicncr.top/Article/details/7375092.shtml)
+- 2026-06-29 19:58 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/23532.shtml)
+- 2026-06-29 20:06 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/6554779.shtml)
+- 2026-06-29 19:44 - [欧洲人买空调难点在哪](http://www.share.minike.top/Article/details/124251120652.shtml)
+- 2026-06-29 20:03 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.kurohicncr.top/Article/details/513947085.shtml)
+- 2026-06-29 19:57 - [一生一世](http://www.share.minike.top/Article/details/3101487.shtml)
+- 2026-06-29 19:49 - [世界杯1/16决赛对阵出炉](http://www.share.kurohicncr.top/Article/details/4815550440.shtml)
+- 2026-06-29 19:36 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/37080469452.shtml)
+- 2026-06-29 19:58 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/7539192.shtml)
+- 2026-06-29 19:52 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/84275562820.shtml)
+- 2026-06-29 20:00 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/623009666081.shtml)
+- 2026-06-29 19:48 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/3265755359.shtml)
+- 2026-06-29 19:37 - [海清4次陪跑白玉兰](http://www.share.minike.top/Article/details/970184319426.shtml)
+- 2026-06-29 19:38 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/2031797291.shtml)

@@ -1,58 +1,52 @@
-# 长城基金汪立：短期关注事件与业绩波动影响
+# “苍天千峰驼羔”节启幕 沉浸式体验大漠驼文化
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-上周A股市场呈现明显震荡分化格局。宽基指数中，权重股表现相对稳健，中小盘股则面临调整压力。从申万一级行业来看，煤炭、电子和石油石化表现较好，农林牧渔、综合和传媒表现相对一般。 宏观分析：美通胀信号走强压制降息预期 海外方面，美国4月制造业PMI超预期回升压制降息预期。具体来看，美国3月零售销售环比大幅增长1.7%，为2023年1月以来最大单月涨幅。主要增量来自加油站收入激增15
+发布时间：2026年04月25日 20:39 来源：中国新闻网 4月25日，2026“苍天千峰驼羔”文化旅游系列活动在内蒙古自治区阿拉善盟额济纳旗开幕。活动以骆驼文化为核心，汇聚多项特色民俗赛事。 传统骆驼速度赛上，骑手驾驭骆驼在赛道上激烈角逐，引得现场观众阵阵欢呼。活动还设有骆驼越野赛、驼羔选美、削鼻棍、搓驼毛绳等传统技艺比拼，集中展现当地浓郁的骆驼文化与民俗特色，吸引大批民
 
 ## 正文
 
-上周A股市场呈现明显震荡分化格局。
+发布时间：2026年04月25日 20:39 来源：中国新闻网 4月25日，2026“苍天千峰驼羔”文化旅游系列活动在内蒙古自治区阿拉善盟额济纳旗开幕。
 
-宽基指数中，权重股表现相对稳健，中小盘股则面临调整压力。
+活动以骆驼文化为核心，汇聚多项特色民俗赛事。
 
-从申万一级行业来看，煤炭、电子和石油石化表现较好，农林牧渔、综合和传媒表现相对一般。
+传统骆驼速度赛上，骑手驾驭骆驼在赛道上激烈角逐，引得现场观众阵阵欢呼。
 
-宏观分析：美通胀信号走强压制降息预期 海外方面，美国4月制造业PMI超预期回升压制降息预期。
+活动还设有骆驼越野赛、驼羔选美、削鼻棍、搓驼毛绳等传统技艺比拼，集中展现当地浓郁的骆驼文化与民俗特色，吸引大批民众踊跃参与，有效助力当地文旅深度融合发展。
 
-具体来看，美国3月零售销售环比大幅增长1.7%，为2023年1月以来最大单月涨幅。
-
-主要增量来自加油站收入激增15.5%，系美伊冲突推高燃油价格所致。
-
-美国4月制造业PMI初值录得54.0，创47个月新高，服务业PMI初值升至51.3，重返扩张区间。
-
-制造业的强劲表现估计在很大程度上源于企业预防性囤货，而非终端需求的实质性改善。
+(陈峰 张新月 叶子 视频来源 额济纳旗融媒体中心) 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 19:34 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-29 19:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 19:46 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
-- 2026-06-29 19:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 19:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 19:42 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 19:48 - [外交部谈对日出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 19:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 19:30 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 19:43 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-29 19:40 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 19:41 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 19:44 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 19:54 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 19:51 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 19:45 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 19:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 19:48 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 19:59 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 19:56 - [赵今麦时隔五年再演李诗情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 19:57 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 20:00 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 19:56 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/358021175361.shtml)
-- 2026-06-29 19:38 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/69044506.shtml)
-- 2026-06-29 19:38 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/812469656081.shtml)
-- 2026-06-29 19:55 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/0659580440.shtml)
-- 2026-06-29 19:36 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/66834.shtml)
-- 2026-06-29 19:58 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.kurohicncr.top/Article/details/240594.shtml)
-- 2026-06-29 19:47 - [韩国队主帅遭极端网友死亡威胁](https://www.blog.kurohicncr.top/Article/details/4031320848.shtml)
-- 2026-06-29 19:42 - [美的“卡bug”空调在欧洲卖爆](http://www.share.kurohicncr.top/Article/details/215104298062.shtml)
-- 2026-06-29 19:34 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/590930339185.shtml)
-- 2026-06-29 19:39 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/910003609.shtml)
-- 2026-06-29 19:50 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/3549524890.shtml)
-- 2026-06-29 19:38 - [金牌调解](http://www.share.minike.top/Article/details/04683.shtml)
-- 2026-06-29 19:59 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/35049942.shtml)
-- 2026-06-29 19:57 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/74811.shtml)
-- 2026-06-29 19:51 - [林逸向方筱然求婚了](http://www.blog.kurohicncr.top/Article/details/543209.shtml)
+- 2026-06-29 19:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/8760341.shtml)
+- 2026-06-29 19:53 - [一台空调背后的全球化逻辑](http://www.share.minike.top/Article/details/19226191622.shtml)
+- 2026-06-29 19:50 - [如何看法国总统候选人称加强与华合作](https://www.share.kurohicncr.top/Article/details/235507.shtml)
+- 2026-06-29 19:36 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/95197239043.shtml)
+- 2026-06-29 20:01 - [起风了](http://www.share.minike.top/Article/details/4761150903.shtml)
+- 2026-06-29 19:38 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.kurohicncr.top/Article/details/34690246.shtml)
+- 2026-06-29 20:04 - [两老人多次到一洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/33997715852.shtml)
+- 2026-06-29 19:42 - [特朗普两大核心赌注将迎高院裁决](http://www.blog.minike.top/Article/details/696182436.shtml)
+- 2026-06-29 19:41 - [媒体：听清自己内心的声音再填志愿](https://www.share.kurohicncr.top/Article/details/2377884.shtml)
+- 2026-06-29 19:51 - [使用几个月的拯救者，一团猫毛组成了盘丝洞](http://www.blog.minike.top/Article/details/1074217033.shtml)
+- 2026-06-29 19:41 - [美国一牛仔表演发生事故](https://www.share.minike.top/Article/details/855731.shtml)
+- 2026-06-29 19:46 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](http://www.blog.kurohicncr.top/Article/details/26822874131.shtml)
+- 2026-06-29 19:49 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/1114751.shtml)
+- 2026-06-29 19:50 - [扫黑风暴](https://www.blog.minike.top/Article/details/59984316.shtml)
+- 2026-06-29 19:55 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/38514.shtml)

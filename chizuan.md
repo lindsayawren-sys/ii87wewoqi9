@@ -1,56 +1,57 @@
-# 马里安全形势严峻 中使馆提醒中国企业和公民撤离危险地区
+# 南方地区强降雨过程持续 北方地区多大风天气
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据中国驻马里大使馆微信公众号消息，近期，马里安全形势十分严峻，境内多地遭遇恐怖袭击，针对外国在马人员的袭击绑架案件增多，首都巴马科等多个地区实施宵禁。 鉴于以上情况，驻马里使馆再次提醒： 一、在马中国企业和公民密切关注当地形势，加强安全防范，严格遵守当地法律法规，外出时提高警惕，同身边亲友、同事保持联系，发现风险事态及时规避。仍在肯涅巴、纳雷纳、扬福利拉、康
+中新网4月27日电 据中央气象台网站消息，昨日，四川、贵州、广西等地部分地区出现大到暴雨；内蒙古、京津冀等地出现大风。预计未来三天，西南地区东部、江南、华南等地有强降雨，局地伴有雷暴大风或冰雹等强对流天气，关注强降水和局地强对流天气对交通运输、农业生产等的不利影响；北方地区多大风天气，做好森林草原和城乡防火工作。 南方地区强降雨过程持续 27日至29日，西南地区东部、江汉、江南
 
 ## 正文
 
-中新网4月30日电 据中国驻马里大使馆微信公众号消息，近期，马里安全形势十分严峻，境内多地遭遇恐怖袭击，针对外国在马人员的袭击绑架案件增多，首都巴马科等多个地区实施宵禁。
+中新网4月27日电 据中央气象台网站消息，昨日，四川、贵州、广西等地部分地区出现大到暴雨；内蒙古、京津冀等地出现大风。
 
-鉴于以上情况，驻马里使馆再次提醒： 一、在马中国企业和公民密切关注当地形势，加强安全防范，严格遵守当地法律法规，外出时提高警惕，同身边亲友、同事保持联系，发现风险事态及时规避。
+预计未来三天，西南地区东部、江南、华南等地有强降雨，局地伴有雷暴大风或冰雹等强对流天气，关注强降水和局地强对流天气对交通运输、农业生产等的不利影响；北方地区多大风天气，做好森林草原和城乡防火工作。
 
-仍在肯涅巴、纳雷纳、扬福利拉、康加巴、富鲁以及马里与几内亚、科特迪瓦边境地区的中国企业和公民将面临极高的人身安全风险，请立即撤离危险地区，坚决杜绝麻痹思想和侥幸心理。
+南方地区强降雨过程持续 27日至29日，西南地区东部、江汉、江南、华南等地部分地区将自西向东出现大到暴雨，局地大暴雨，并伴有短时强降水、雷暴大风或冰雹等强对流天气，主要降水时段为27日至29日白天。
 
-二、所有在马企业和公民均应合法合规经营，禁止从事非法采矿，马政府无法对非法经营者提供安全保护，并将对违反马法律法规的企业和人员予以打击。
+预计，4月27日08时至28日08时，重庆中部、贵州东部和南部、湖南中北部和西部、湖北南部和东部、广西北部、西部和东南部等地部分地区有大到暴雨，其中，湖南北部、江西西北部、广西北部和西部等地局地有大暴雨(100～140毫米)。
 
-三、未向使馆报备信息的中国企业应立即报备，以便紧急情况下及时获得领事保护与协助。
+上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)。
 
-四、坚持前往或停留极高风险地区的企业和人员，由此产生的一切后果将由其自行承担。
+黄淮地区东部和西南部、西南地区南部、华南地区西部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，贵州西南部、广西西部等地的部分地区将有10级以上雷暴大风，最大风力可达11级以上。
 
-如遇紧急情况，请及时报警并与使馆联系寻求协助。
+中央气象台4月27日06时发布暴雨蓝色预警，继续发布强对流天气蓝色预警。
 
-马里报警电话：101、80001115、60603572 驻马里使馆领事保护电话：+223-78110040 外交部全球领事保护与服务应急呼叫中心电话：+86-10-12308或+86-10-65612308
+北方地区多大风天气 预计，4月27日08时至28日08时，内蒙古中西部、山西东北部、河北北部和西部、北京、天津、辽宁中西部、山东东部等地部分地区有6~8级风，阵风8~10级，局地阵风可达11级以上。
 
 ## 相关推荐
 
-- 2026-06-29 19:36 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 19:44 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 19:52 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-29 19:38 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 19:42 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 19:48 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
-- 2026-06-29 19:59 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 19:46 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-29 19:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 19:35 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 19:57 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 19:42 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 20:03 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 19:48 - [虞书欣好辣的剧宣](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 19:42 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 20:04 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 19:36 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 19:36 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 19:50 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 19:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 19:37 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:34 - [宜宾地震已转移安置225人](http://www.blog.kurohicncr.top/Article/details/48405.shtml)
-- 2026-06-29 19:49 - [剧宣天才虞书欣发力了](http://www.blog.minike.top/Article/details/3706705351.shtml)
-- 2026-06-29 19:34 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/35095460316.shtml)
-- 2026-06-29 19:32 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/10822.shtml)
-- 2026-06-29 19:47 - [大马同意延长马航370残骸搜寻工作](https://www.blog.kurohicncr.top/Article/details/89623575.shtml)
-- 2026-06-29 19:40 - [2026全国田径冠军赛江苏队4金收官](https://www.share.minike.top/Article/details/00019.shtml)
-- 2026-06-29 19:39 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/336312.shtml)
-- 2026-06-29 19:44 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/56665878394.shtml)
-- 2026-06-29 19:37 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/5950395753.shtml)
-- 2026-06-29 19:54 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/659445.shtml)
-- 2026-06-29 19:37 - [海口塔吊事故处罚结果公布](https://www.blog.minike.top/Article/details/599149147570.shtml)
-- 2026-06-29 19:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/7460430485.shtml)
-- 2026-06-29 19:55 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/517805884957.shtml)
-- 2026-06-29 19:30 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/3747234284.shtml)
-- 2026-06-29 19:51 - [两老人多次到一洗车店泼粪](https://www.share.minike.top/Article/details/4123694.shtml)
+- 2026-06-29 19:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/702858982408.shtml)
+- 2026-06-29 19:57 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/3715180.shtml)
+- 2026-06-29 19:39 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/734155.shtml)
+- 2026-06-29 19:42 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/845991123668.shtml)
+- 2026-06-29 20:04 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/361016.shtml)
+- 2026-06-29 19:55 - [拍到真的赛博朋克边缘行者了！](https://www.share.minike.top/Article/details/147428116.shtml)
+- 2026-06-29 19:56 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/59582.shtml)
+- 2026-06-29 20:00 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.kurohicncr.top/Article/details/4888421112.shtml)
+- 2026-06-29 19:39 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/89394959072.shtml)
+- 2026-06-29 19:52 - [日媒：日本高价采购“战斧”变冤大头](https://www.share.kurohicncr.top/Article/details/95467.shtml)
+- 2026-06-29 19:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/114557577808.shtml)
+- 2026-06-29 19:48 - [毒液2](http://www.blog.minike.top/Article/details/3705273.shtml)
+- 2026-06-29 19:47 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/446187670421.shtml)
+- 2026-06-29 20:01 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/836669.shtml)
+- 2026-06-29 19:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/49648844020.shtml)

@@ -1,61 +1,48 @@
-# 粤海饲料“扭亏”背后：盈利主要靠减值收窄，主业疲软与坏账风险未解
+# 辽宁岫岩：翠绿山林间 夺目映山红
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 继2024年经历上市后首个年度亏损后，水产饲料行业龙头粤海饲料（001313.SZ）交出了一份成功“扭亏”的成绩单。2025年，公司“营利双增”，其中扣非后净利润同比大增逾一倍。然而，光鲜业绩却难掩粤海饲料基本面的深层隐忧。 证券之星注意到，粤海饲料2025年的业绩高增实则更多来自低基数效应
+发布时间：2026年04月27日 09:47 来源：中国新闻网 在辽宁多地映山红因为花期提前而过早凋谢的四月末，鞍山市岫岩满族自治县仍有相当规模的映山红傲立山岭，耀眼夺目。(作者：孙成武) 责任编辑：【魏聪聪】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月27日 09:47 来源：中国新闻网 在辽宁多地映山红因为花期提前而过早凋谢的四月末，鞍山市岫岩满族自治县仍有相当规模的映山红傲立山岭，耀眼夺目。
 
-来源：证券之星 继2024年经历上市后首个年度亏损后，水产饲料行业龙头粤海饲料（001313.SZ）交出了一份成功“扭亏”的成绩单。
-
-2025年，公司“营利双增”，其中扣非后净利润同比大增逾一倍。
-
-然而，光鲜业绩却难掩粤海饲料基本面的深层隐忧。
-
-证券之星注意到，粤海饲料2025年的业绩高增实则更多来自低基数效应与信用减值损失的大幅收窄。
-
-相较2022年上市当年，其扣非后净利润仍下降超85%。
-
-值得注意的是，近几年粤海饲料持续计提高额信用减值损失，对公司业绩造成沉重拖累。
-
-截至2025年末，其应收账款规模仍高达10.64亿元，占公司总资产超过两成比重，公司坏账风险依然高悬。
+(作者：孙成武) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 19:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 19:51 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 19:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 19:45 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 19:42 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 19:42 - [中方向委方追加1亿元援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
-- 2026-06-29 19:47 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-29 19:54 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 19:39 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 19:56 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 19:46 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 19:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 19:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-29 19:41 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 19:58 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 19:47 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 20:01 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 19:52 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 20:01 - [宜宾5.5级地震育儿嫂将婴儿护在身下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 19:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 19:48 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 19:42 - [一汽大众黄金超混技术来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 19:57 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 19:40 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 19:52 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 20:03 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 19:49 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 19:59 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:47 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/0359079021.shtml)
-- 2026-06-29 19:47 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/92275.shtml)
-- 2026-06-29 19:37 - [为何说今日日本似战前日本](https://www.share.kurohicncr.top/Article/details/3384265.shtml)
-- 2026-06-29 19:31 - [欧洲高温会成下个印度吗](https://www.blog.kurohicncr.top/Article/details/48576.shtml)
-- 2026-06-29 19:40 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/44535231.shtml)
-- 2026-06-29 19:35 - [吴建豪和老婆差20岁](http://www.blog.kurohicncr.top/Article/details/6936069.shtml)
-- 2026-06-29 19:46 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/632876167238.shtml)
-- 2026-06-29 19:55 - [《新闻联播》正在直播](http://www.blog.minike.top/Article/details/300553712.shtml)
-- 2026-06-29 19:32 - [湖南耒阳“轮椅女孩”高考546分](https://www.blog.minike.top/Article/details/93226.shtml)
-- 2026-06-29 19:49 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.kurohicncr.top/Article/details/753550.shtml)
-- 2026-06-29 19:32 - [宜宾地震后铁路工作人员叫停列车](http://www.share.minike.top/Article/details/98508.shtml)
-- 2026-06-29 19:47 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/0354414410.shtml)
-- 2026-06-29 19:52 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/6712894.shtml)
-- 2026-06-29 19:55 - [美议员呼吁断供以色列政府](http://www.share.minike.top/Article/details/3781950.shtml)
-- 2026-06-29 19:44 - [无畏为自己的猫正名了](https://www.share.minike.top/Article/details/248895641938.shtml)
+- 2026-06-29 19:36 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/791516.shtml)
+- 2026-06-29 20:04 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/28845860620.shtml)
+- 2026-06-29 19:45 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/25283.shtml)
+- 2026-06-29 19:37 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/478537.shtml)
+- 2026-06-29 20:01 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/1202189.shtml)
+- 2026-06-29 20:02 - [每天通勤往返3h的感觉](https://www.blog.kurohicncr.top/Article/details/71003826.shtml)
+- 2026-06-29 20:03 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/6127646.shtml)
+- 2026-06-29 19:40 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/4957847.shtml)
+- 2026-06-29 19:39 - [TTG KSG](http://www.blog.minike.top/Article/details/78798252089.shtml)
+- 2026-06-29 19:45 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/236445413.shtml)
+- 2026-06-29 19:43 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/299009410.shtml)
+- 2026-06-29 19:52 - [日本在最东端离岛部署导弹发射装置](https://www.share.kurohicncr.top/Article/details/15922430586.shtml)
+- 2026-06-29 19:40 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/48061117125.shtml)
+- 2026-06-29 19:53 - [一见倾心](https://www.blog.minike.top/Article/details/2014711352.shtml)
+- 2026-06-29 19:43 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](http://www.blog.minike.top/Article/details/534149.shtml)

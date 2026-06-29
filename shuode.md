@@ -1,59 +1,60 @@
-# “五一”将至，你会来一场非遗之旅吗
+# 突然，做空了！
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-“五一”将至，你会来一场非遗之旅吗 非遗旅行三大吸引力：原真活态文化、东方造物美学、亲手制作 “非遗体验在不断拓展我的认知边界。”王萌萌到贵州安顺体验当地服饰时，一度以为那是少数民族服装，被当地人立刻纠正：“这是600年前的明代汉族传统服饰——屯堡服饰。”这彻底打破了她对汉服的固有印象。 当旅行不再满足于走马观花、热门打卡，越来越多年轻人开始把目光投向传统非遗。亲手做一件蜡染、
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】大空头做空半导体了 中国基金报记者 泰勒 就在费城半导体指数连涨创下新高之际，美国知名大空头宣布做空了。 迈克尔·伯里因电影《大空头》中的原型角色而闻名。这位投资人近日在自己的Substack平台发文称，他已经通过买入iShares半导体ETF（SOXX）的看跌期权，建立了新的空头
 
 ## 正文
 
-“五一”将至，你会来一场非遗之旅吗 非遗旅行三大吸引力：原真活态文化、东方造物美学、亲手制作 “非遗体验在不断拓展我的认知边界。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”王萌萌到贵州安顺体验当地服饰时，一度以为那是少数民族服装，被当地人立刻纠正：“这是600年前的明代汉族传统服饰——屯堡服饰。
+来源：中国基金报 【导读】大空头做空半导体了 中国基金报记者 泰勒 就在费城半导体指数连涨创下新高之际，美国知名大空头宣布做空了。
 
-”这彻底打破了她对汉服的固有印象。
+迈克尔·伯里因电影《大空头》中的原型角色而闻名。
 
-当旅行不再满足于走马观花、热门打卡，越来越多年轻人开始把目光投向传统非遗。
+这位投资人近日在自己的Substack平台发文称，他已经通过买入iShares半导体ETF（SOXX）的看跌期权，建立了新的空头仓位。
 
-亲手做一件蜡染、给傩面涂上喜欢的色彩、捏制一只瓦猫……一场非遗之旅，正在成为年轻人解锁深度旅行的新方式。
+这批期权到期日为2027年1月，行权价为330美元。
 
-近日，中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1333名年轻人进行的一项调查显示，82.5%的受访青年会为了体验一项传统非遗不远千里奔赴，且受访女性、受访95后热情相对更高。
+这一操作发生之际，费城半导体指数正创下史无前例的连续18个交易日上涨纪录。
 
-体验原真活态文化、欣赏东方造物美学、亲手体验制作过程是非遗旅行对年轻人的三大吸引力。
+伯里认为，该指数最终会回落，目前这轮上涨更多是由技术性因素推动，而不是由基本面支撑。
 
-82.5%受访青年愿为一项非遗奔赴千里 95后热情最高 和偏爱热门景点的游客不同，艺术系在读研究生王萌萌总爱去一些小众目的地，只为寻找最本真质朴的非遗踪迹。
+尤其是在市场普遍围绕“大规模数据中心扩张导致芯片短缺”这一叙事展开时，伯里对后市保持谨慎。
 
 ## 相关推荐
 
-- 2026-06-29 19:34 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 19:42 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 19:48 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-29 19:58 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 19:52 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 19:51 - [主力抛售电子和通信板块](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 19:39 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 19:53 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 19:32 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 19:39 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 19:46 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 19:32 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 19:30 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 19:56 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 19:42 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 19:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 19:51 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 19:37 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 19:55 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 19:55 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 19:37 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 19:45 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 19:41 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 19:38 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-29 19:44 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 19:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-29 19:54 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [女生每天戴耳机18小时突发耳聋](http://www.share.kurohicncr.top/Article/details/5781429.shtml)
-- 2026-06-29 19:35 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/9194629673.shtml)
-- 2026-06-29 19:39 - [扩军害了世界杯吗](https://www.blog.kurohicncr.top/Article/details/33435011928.shtml)
-- 2026-06-29 19:58 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/194171559066.shtml)
-- 2026-06-29 19:37 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/05513.shtml)
-- 2026-06-29 19:36 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/55814904254.shtml)
-- 2026-06-29 19:41 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/954907371.shtml)
-- 2026-06-29 19:56 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/6615790243.shtml)
-- 2026-06-29 19:38 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/42142.shtml)
-- 2026-06-29 19:44 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/685271664234.shtml)
-- 2026-06-29 19:51 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/528670344621.shtml)
-- 2026-06-29 19:49 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/76052589.shtml)
-- 2026-06-29 19:44 - [女生每天戴耳机18小时突发耳聋](https://www.share.minike.top/Article/details/95007408688.shtml)
-- 2026-06-29 19:41 - [恋与深空各大应用商店评分](https://www.blog.kurohicncr.top/Article/details/6350155661.shtml)
-- 2026-06-29 19:43 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/507714868.shtml)
+- 2026-06-29 20:05 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/868971950.shtml)
+- 2026-06-29 19:37 - [唐艺昕告别浪姐千字长文](http://www.share.minike.top/Article/details/0737578.shtml)
+- 2026-06-29 19:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/75175.shtml)
+- 2026-06-29 19:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/892138371.shtml)
+- 2026-06-29 20:01 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/8525191076.shtml)
+- 2026-06-29 19:51 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/1933318686.shtml)
+- 2026-06-29 19:45 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/906453601074.shtml)
+- 2026-06-29 19:48 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/8228132156.shtml)
+- 2026-06-29 19:56 - [汽车电池暴力测试有意义吗？通过暴力测试的电池一定不起火吗？](http://www.share.minike.top/Article/details/74784.shtml)
+- 2026-06-29 19:59 - [海清4次陪跑白玉兰](https://www.blog.kurohicncr.top/Article/details/758797236.shtml)
+- 2026-06-29 19:40 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/9532039.shtml)
+- 2026-06-29 19:36 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/803156273.shtml)
+- 2026-06-29 19:41 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.kurohicncr.top/Article/details/8813413.shtml)
+- 2026-06-29 19:54 - [爸爸当家中断录制帮小摊贩挡雨](http://www.blog.minike.top/Article/details/22913327369.shtml)
+- 2026-06-29 19:42 - [德国医生在没有空调的手术室工作](http://www.blog.minike.top/Article/details/6813888.shtml)

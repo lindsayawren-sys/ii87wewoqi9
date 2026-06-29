@@ -1,61 +1,57 @@
-# 通讯：把青春拴在马鞍上
+# 北京丰台区侨联联合中国华侨出版社参与东高地街道首届航天文化节
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网呼和浩特4月30日电 题：把青春拴在马鞍上 作者 李爱平 格朝 徐泽龙 “我叫额呢日乐，今天我要讲的故事是，骑白马的不一定是王子。”4月29日下午，内蒙古广播电视台演播大厅内，“北疆楷模”发布仪式迎来了一位特殊的“讲述人”——锡林郭勒边境管理支队马背警队队员额呢日乐，他站在台上，言语间满是幽默与自豪。 当日，“乌拉盖管理区边境管理大队马背警队被内蒙古自治区党委宣传部授予“
+动态┃党建共建聚合力 航天文化绘新篇——丰台区侨联联合中国华侨出版社参与东高地街道首届航天文化节 近日，丰台区东高地街道“梦启高地 共探九霄”首届航天文化节开幕式举办。来自地区航天企业的专家学者、社区居民、青少年代表以及长期深耕文化传播领域的侨界代表等300余人参加，丰台区侨联联合中国华侨出版社参加活动。 为系统整合东高地地区航天文化资源，东高地街道联合辖区航天院所、北京航空精
 
 ## 正文
 
-中新网呼和浩特4月30日电 题：把青春拴在马鞍上 作者 李爱平 格朝 徐泽龙 “我叫额呢日乐，今天我要讲的故事是，骑白马的不一定是王子。
+动态┃党建共建聚合力 航天文化绘新篇——丰台区侨联联合中国华侨出版社参与东高地街道首届航天文化节 近日，丰台区东高地街道“梦启高地 共探九霄”首届航天文化节开幕式举办。
 
-”4月29日下午，内蒙古广播电视台演播大厅内，“北疆楷模”发布仪式迎来了一位特殊的“讲述人”——锡林郭勒边境管理支队马背警队队员额呢日乐，他站在台上，言语间满是幽默与自豪。
+来自地区航天企业的专家学者、社区居民、青少年代表以及长期深耕文化传播领域的侨界代表等300余人参加，丰台区侨联联合中国华侨出版社参加活动。
 
-当日，“乌拉盖管理区边境管理大队马背警队被内蒙古自治区党委宣传部授予“北疆楷模”称号。
+为系统整合东高地地区航天文化资源，东高地街道联合辖区航天院所、北京航空精密机械研究所、中国华侨出版社、东高地青少年科技馆、北京钱学森中学、辖区小学等多家单位成立了“东高地航天文化联盟”，有力促进航天文化的传承与传播。
 
-在旁人看来，这个说话带着草原味儿的小伙子和“网红”挂不上边。
+现场还同步开展了文化展演、科普教育、文创市集、志愿服务等主题活动。
 
-但近千万网友看过的风雪救援视频里，他跪在齐腰深的雪窝中挥舞铁锹，脸颊冻得通红，被网民亲切地称为“红脸警察”。
+丰台区侨联联合中国华侨出版社在活动中积极推介涉侨主题书籍，开展“情暖侨心”主题侨法宣传和志愿服务活动，充分体现“以人为本、为侨服务”的宗旨，受到居民群众广泛好评。
 
-可很少有人知道，他的腿里嵌着25颗钢钉，医生嘱咐静养，可他从不缺席任何一次冰雪救援。
+4月24日至25日，在首个“全民阅读活动周”之际，双方还联合参加了在东高地万源广场举办的文创市集活动，进一步进行书籍推介和为侨服务活动，深入挖掘航天文化的特色与内涵，激发侨界群众的阅读热情。
 
-发布仪式现场，马背警队队长阿其图身着礼服走入聚光灯下，他语调沉稳地介绍：“此刻的荣誉属于每一位队员，更属于合力守护边疆的每个人。
+此次航天文化节活动联办充分发挥了五级党建工作机制作用。
 
-”在这位34岁的蒙古族青年的记忆里，马背警队的诞生源自一场艰难的抉择。
+双方充分发挥各自优势，紧密协作，将航天科普、文化交流、阅读推广、侨法宣传等内容融为一体，广泛整合侨联系统内部资源与社会力量，进一步团结凝聚和服务了侨界群众，助力了航天文化与航天精神的传承弘扬。
 
 ## 相关推荐
 
-- 2026-06-29 19:37 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-29 19:44 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 19:52 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 19:30 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 19:54 - [日媒：日本高价采购“战斧”变冤大头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 19:43 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 19:57 - [世界杯在中国观看最多的比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 19:58 - [刘嘉玲为64岁梁朝伟庆生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 19:45 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-29 19:58 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-29 19:30 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 19:52 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 19:41 - [小伙咳嗽气喘当感冒 一查心脏已衰竭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-29 19:44 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 19:47 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 19:46 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 19:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 19:42 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 19:54 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 19:54 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 19:46 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 19:45 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 19:59 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 19:50 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 19:43 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 19:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:31 - [第一炉香](https://www.share.kurohicncr.top/Article/details/79738.shtml)
-- 2026-06-29 19:51 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/846045345650.shtml)
-- 2026-06-29 19:40 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/753716948962.shtml)
-- 2026-06-29 19:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/87053.shtml)
-- 2026-06-29 19:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/4951664.shtml)
-- 2026-06-29 19:54 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/759257051361.shtml)
-- 2026-06-29 19:36 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/235728.shtml)
-- 2026-06-29 19:43 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://www.share.kurohicncr.top/Article/details/71666.shtml)
-- 2026-06-29 19:34 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/05485016.shtml)
-- 2026-06-29 19:37 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/7359158291.shtml)
-- 2026-06-29 19:41 - [AI 帮你调音？车载音响还能这样玩？魏牌V9X音响深度体验！](http://www.share.minike.top/Article/details/151377362394.shtml)
-- 2026-06-29 19:37 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/99950227625.shtml)
-- 2026-06-29 19:42 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/9092785563.shtml)
-- 2026-06-29 19:51 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/429174.shtml)
-- 2026-06-29 19:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/33707.shtml)
+- 2026-06-29 20:00 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/3874944.shtml)
+- 2026-06-29 19:54 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/85770934.shtml)
+- 2026-06-29 19:36 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/63983615.shtml)
+- 2026-06-29 19:55 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/409336.shtml)
+- 2026-06-29 20:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/885835.shtml)
+- 2026-06-29 19:44 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/946277508.shtml)
+- 2026-06-29 19:36 - [造谣县城满街都是小混混 男子被拘](https://www.blog.kurohicncr.top/Article/details/702708979894.shtml)
+- 2026-06-29 20:05 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/724666.shtml)
+- 2026-06-29 19:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/425609.shtml)
+- 2026-06-29 20:04 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/21852993.shtml)
+- 2026-06-29 19:41 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/79912730813.shtml)
+- 2026-06-29 19:40 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/683774.shtml)
+- 2026-06-29 19:38 - [每天通勤往返3h的感觉](http://www.share.minike.top/Article/details/839410796822.shtml)
+- 2026-06-29 19:45 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/1682813566.shtml)
+- 2026-06-29 19:43 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/1505907.shtml)

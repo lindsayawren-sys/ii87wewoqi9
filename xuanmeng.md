@@ -1,59 +1,52 @@
-# 连买12日！资金悄悄加仓电力！长江电力逆市领涨2%，电力板块机会切换至基本面逻辑？
+# 知名港商走进重庆 探寻渝港合作新机遇
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-30日早盘，电力板块走低，中证全指电力公用事业指数跌逾1%。成份股大面积飘绿，豫能控股、金开新能跌停，川能动力、晶科科技、节能风电、粤电力A等多股跌超5%。上涨方面，长江电力逆市领涨2%，国投电力、桂冠电力、中国广核等飘红。 热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内下跌1.65%，资金实时净申购250万份，值得注意的是，资金此前已连续11日净
+发布时间：2026年04月25日 17:30 来源：中国新闻网 4月22日至24日，在“知名港商重庆行”活动中，来自香港工业总会、香港中华厂商联合会、香港会计界、大湾区进出口商业总会等团组的200余位知名港商，参访重庆市规划展览馆、重庆智能网联新能源汽车制造工厂、科技创新企业，探寻渝港合作新机遇。 香港中华厂商联合会会长卢金荣在“知名港商重庆行”恳谈会上表示，香港中华厂商联合会
 
 ## 正文
 
-30日早盘，电力板块走低，中证全指电力公用事业指数跌逾1%。
+发布时间：2026年04月25日 17:30 来源：中国新闻网 4月22日至24日，在“知名港商重庆行”活动中，来自香港工业总会、香港中华厂商联合会、香港会计界、大湾区进出口商业总会等团组的200余位知名港商，参访重庆市规划展览馆、重庆智能网联新能源汽车制造工厂、科技创新企业，探寻渝港合作新机遇。
 
-成份股大面积飘绿，豫能控股、金开新能跌停，川能动力、晶科科技、节能风电、粤电力A等多股跌超5%。
+香港中华厂商联合会会长卢金荣在“知名港商重庆行”恳谈会上表示，香港中华厂商联合会是香港最具代表性的工商团体之一，未来愿推动渝港双方聚焦人工智能、新能源汽车等重点领域，建立常态化对接交流机制。
 
-上涨方面，长江电力逆市领涨2%，国投电力、桂冠电力、中国广核等飘红。
+同时，充分发挥香港国际化平台优势，对接粤港澳大湾区创新资源与国际资本，持续提升两地协同创新效能。
 
-热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内下跌1.65%，资金实时净申购250万份，值得注意的是，资金此前已连续11日净流入，合计流入金额约4亿元！
+香港工业总会常务副主席、精美汽车工业有限公司行政总裁陈伟聪认为，重庆的新能源汽车与电子信息产业布局完整，这为香港工业转型升级提供了最佳的应用场景。
 
-消息面上，4月29日，长江电力公布2026年一季报，公司营业收入为181.1亿元，同比上升6.4%；归母净利润为67.6亿元，同比上升30.5%；扣非归母净利润为62.4亿元，同比上升19.2%。
+他将推动香港工业总会的会员企业在电池、电机、电控等关键环节与重庆的新能源汽车制造企业深化合作。
 
-电力ETF华宝（159146）基金经理曹旭辰此前表示，电力板块后市真正的机会或在于基本面逻辑的切换。
-
-一季度是电力板块业绩最差的时期，后续利空出清后或将有效确立基本面底部。
-
-若煤价因夏季用电需求进入上行通道，将推动电价上涨预期，从而可能催生电力板块的大行情。
+肖江川 张琳 重庆报道 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 19:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 19:30 - [王楚钦称抽签结果出来心情不好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-29 19:44 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 19:48 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 19:51 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 19:40 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 19:33 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 19:44 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 19:36 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 19:34 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 19:42 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 19:53 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 19:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 20:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 19:43 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 19:49 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 19:56 - [媒体：听清自己内心的声音再填志愿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 19:52 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-29 19:56 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 20:02 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 19:47 - [学者：建设性战略稳定重塑中美关系](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 20:04 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:56 - [女心理师](https://www.share.kurohicncr.top/Article/details/10454499.shtml)
-- 2026-06-29 19:49 - [断骨增高灰产拉一人提成1.5万元](https://www.blog.minike.top/Article/details/556472.shtml)
-- 2026-06-29 19:54 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/3694690360.shtml)
-- 2026-06-29 19:56 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/453388.shtml)
-- 2026-06-29 19:50 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/412178565157.shtml)
-- 2026-06-29 19:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/876076.shtml)
-- 2026-06-29 19:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/85612.shtml)
-- 2026-06-29 19:46 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/902937.shtml)
-- 2026-06-29 19:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/8795769.shtml)
-- 2026-06-29 19:56 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/334415.shtml)
-- 2026-06-29 19:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/637319393.shtml)
-- 2026-06-29 19:34 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/890089.shtml)
-- 2026-06-29 19:36 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/51352370676.shtml)
-- 2026-06-29 19:43 - [逆天祖国人](https://www.blog.minike.top/Article/details/114407249150.shtml)
-- 2026-06-29 19:56 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/858776671.shtml)
+- 2026-06-29 19:53 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/3185841238.shtml)
+- 2026-06-29 20:02 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/76301.shtml)
+- 2026-06-29 19:43 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/440567.shtml)
+- 2026-06-29 19:50 - [一生一世](https://www.blog.kurohicncr.top/Article/details/517061.shtml)
+- 2026-06-29 20:02 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/02322.shtml)
+- 2026-06-29 19:55 - [官媒首曝六代机？大V解读](https://www.share.minike.top/Article/details/2224559.shtml)
+- 2026-06-29 20:00 - [127只股涨停 最大封单资金6.04亿元](https://www.share.kurohicncr.top/Article/details/4337241.shtml)
+- 2026-06-29 20:03 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/60053.shtml)
+- 2026-06-29 19:47 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/351158145.shtml)
+- 2026-06-29 19:42 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/8712827.shtml)
+- 2026-06-29 19:49 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/53506225.shtml)
+- 2026-06-29 19:49 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/45337494693.shtml)
+- 2026-06-29 19:58 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/575915007225.shtml)
+- 2026-06-29 19:57 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/9551843681.shtml)
+- 2026-06-29 19:49 - [新官上任三把火](https://www.share.minike.top/Article/details/6672570488.shtml)

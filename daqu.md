@@ -1,43 +1,61 @@
-# 五矿发展：一季度归母净利润1699.93万元，同比下降74.67%
+# “灭亡文明”“送回石器时代” 特朗普激烈言辞据悉削弱伊朗谈判意愿
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-五矿发展4月29日公告，2026年第一季度实现营业收入105.88亿元，同比下降14.32%；归属于上市公司股东的净利润1699.93万元，同比下降74.67%；基本每股收益0.0014元。
+据多位了解结束美伊冲突外交进展的官员称，伊朗同意与美国进行更多面对面和谈的前景，正受到特朗普的威胁言论和强硬社交媒体发帖阻碍。 两名熟悉情况的美国官员表示，特朗普在Truth Social上的帖子，以及他决定继续对伊朗港口实施海上封锁，对通过巴基斯坦等中间方进行的持续谈判造成了不利影响。 一名伊朗官员和一名阿拉伯外交官称，伊朗谈判人员还表示，特朗普帖子中“把这个国家其余部分也炸
 
 ## 正文
 
-五矿发展4月29日公告，2026年第一季度实现营业收入105.88亿元，同比下降14.32%；归属于上市公司股东的净利润1699.93万元，同比下降74.67%；基本每股收益0.0014元。
+据多位了解结束美伊冲突外交进展的官员称，伊朗同意与美国进行更多面对面和谈的前景，正受到特朗普的威胁言论和强硬社交媒体发帖阻碍。
+
+两名熟悉情况的美国官员表示，特朗普在Truth Social上的帖子，以及他决定继续对伊朗港口实施海上封锁，对通过巴基斯坦等中间方进行的持续谈判造成了不利影响。
+
+一名伊朗官员和一名阿拉伯外交官称，伊朗谈判人员还表示，特朗普帖子中“把这个国家其余部分也炸掉”和将其“送回石器时代”的言论旨在羞辱德黑兰领导层，这降低了他们达成协议的意愿。
+
+交战双方在逾两周前开始停火。
+
+目前，双方在如何推进结束冲突的谈判问题上陷入对峙。
+
+这场冲突已造成数千人死亡，在中东地区造成严重破坏，并推动能源价格飙升。
+
+随着围绕霍尔木兹海峡及封锁的紧张局势加剧，布伦特原油周四升至约每桶105美元。
+
+美国表示，美军在印度洋登上一艘运载伊朗石油的超级油轮，而伊朗周三向船只开火并扣押了两艘船。
 
 ## 相关推荐
 
-- 2026-06-29 19:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 19:41 - [呼兰赵晓卉来东风奕派开专场了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 19:36 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 19:53 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-29 19:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 19:37 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 19:37 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 19:49 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 19:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 19:40 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 19:43 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-29 19:58 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 19:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 19:54 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 20:02 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 19:41 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 19:45 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 19:56 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 19:57 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 19:46 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 19:39 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 19:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 19:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 19:44 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 20:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 20:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:51 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](http://www.share.kurohicncr.top/Article/details/37557859742.shtml)
-- 2026-06-29 19:37 - [papi酱在救赎窦文涛](http://www.share.kurohicncr.top/Article/details/7172972745.shtml)
-- 2026-06-29 19:58 - [蔚来回应车漆洗车时被冲掉](https://www.blog.minike.top/Article/details/86488723424.shtml)
-- 2026-06-29 19:49 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/946168189.shtml)
-- 2026-06-29 19:52 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/9049333.shtml)
-- 2026-06-29 19:31 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/5871948.shtml)
-- 2026-06-29 19:51 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/2619709160.shtml)
-- 2026-06-29 19:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/912768800198.shtml)
-- 2026-06-29 19:59 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/207642.shtml)
-- 2026-06-29 19:55 - [爸爸当家中断录制帮小摊贩挡雨](http://www.share.minike.top/Article/details/50544.shtml)
-- 2026-06-29 19:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/4024516.shtml)
-- 2026-06-29 19:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/13316638.shtml)
-- 2026-06-29 19:53 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/93980749764.shtml)
-- 2026-06-29 19:45 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/703839.shtml)
-- 2026-06-29 19:42 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/277397712336.shtml)
+- 2026-06-29 19:43 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/11913.shtml)
+- 2026-06-29 19:50 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/8965102.shtml)
+- 2026-06-29 19:57 - [马来西亚同意延长马航370残骸搜寻](https://www.blog.minike.top/Article/details/206377244.shtml)
+- 2026-06-29 19:37 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.kurohicncr.top/Article/details/2771156.shtml)
+- 2026-06-29 19:55 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/348758589107.shtml)
+- 2026-06-29 20:02 - [朱雀三号重复使用遥二运载火箭新进展](https://www.share.minike.top/Article/details/804865238.shtml)
+- 2026-06-29 19:58 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/9197476.shtml)
+- 2026-06-29 20:03 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/16424030.shtml)
+- 2026-06-29 19:51 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/138025811521.shtml)
+- 2026-06-29 19:39 - [媒体：听清自己内心的声音再填志愿](https://www.share.minike.top/Article/details/240002.shtml)
+- 2026-06-29 19:41 - [董卿父亲发文悼念亡妻](https://www.blog.minike.top/Article/details/137630236.shtml)
+- 2026-06-29 20:01 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/270690652.shtml)
+- 2026-06-29 19:55 - [啊啊啊](http://www.share.minike.top/Article/details/9399546619.shtml)
+- 2026-06-29 19:42 - [乔家的儿女](http://www.blog.minike.top/Article/details/3122718.shtml)
+- 2026-06-29 19:42 - [LPL第三赛段赛制公布](http://www.share.minike.top/Article/details/14376330275.shtml)

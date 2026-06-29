@@ -1,58 +1,56 @@
-# 布伦特原油突破118美元/桶，此前特朗普称将封锁伊朗直至其同意核协议
+# “行大运”于运河原点：桨声灯影里的文脉新生
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-周三，在美国总统唐纳德·特朗普表示将继续对伊朗实施海上封锁直至其同意核协议后，油价跳涨逾6%。 截至美东时间中午12：10，国际基准布伦特原油期货上涨逾6%，至118.33美元/桶；美国西得克萨斯中质原油期货同样上涨逾6%，至106.37美元/桶。 “封锁比轰炸更有效，”特朗普周三对Axios表示。“他们像一头被塞饱的猪一样在窒息，而且情况会变得更糟。他们不能拥有核武器。” 为
+中新网扬州4月26日电 题：“行大运”于运河原点：桨声灯影里的文脉新生 中新网记者 徐珊珊 晚上八点，京杭大运河扬州段便益门广场码头上，等船的游客排着几十米长的队伍。市中心的大屏上，“来扬州行大运”六个字不停地跳动。 公元前486年，吴王夫差开凿邗沟，中国大运河由此发端。作为大运河原点城市，扬州随运河而生，依运河而兴。一部运河史，就是一部扬州史。 “我从北京坐高铁过来，想着一定
 
 ## 正文
 
-周三，在美国总统唐纳德·特朗普表示将继续对伊朗实施海上封锁直至其同意核协议后，油价跳涨逾6%。
+中新网扬州4月26日电 题：“行大运”于运河原点：桨声灯影里的文脉新生 中新网记者 徐珊珊 晚上八点，京杭大运河扬州段便益门广场码头上，等船的游客排着几十米长的队伍。
 
-截至美东时间中午12：10，国际基准布伦特原油期货上涨逾6%，至118.33美元/桶；美国西得克萨斯中质原油期货同样上涨逾6%，至106.37美元/桶。
+市中心的大屏上，“来扬州行大运”六个字不停地跳动。
 
-“封锁比轰炸更有效，”特朗普周三对Axios表示。
+公元前486年，吴王夫差开凿邗沟，中国大运河由此发端。
 
-“他们像一头被塞饱的猪一样在窒息，而且情况会变得更糟。
+作为大运河原点城市，扬州随运河而生，依运河而兴。
 
-他们不能拥有核武器。
+一部运河史，就是一部扬州史。
 
-” 为结束冲突而进行的谈判尝试近日陷入停滞。
+“我从北京坐高铁过来，想着一定要坐这趟船。
 
-伊朗拒绝重新开放霍尔木兹海峡，除非美国解除封锁。
+”刘先生是位历史爱好者，手机里存着大运河的地图，“以前只在地图上看过这条线，现在想在水面上感受一下。
 
-德黑兰对该海峡的控制已使中东地区的石油出口受阻。
+” 游船缓缓离岸，全息水幕亮起。
 
 ## 相关推荐
 
-- 2026-06-29 19:52 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 19:52 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-29 19:46 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 19:44 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 19:47 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 19:32 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 19:55 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 19:31 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 19:49 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 19:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 19:30 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 19:33 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 19:55 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 19:49 - [张杰我九岁就跟你了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 19:39 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 19:50 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-29 19:54 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 20:00 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 19:51 - [V8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 19:52 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 19:43 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 19:59 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:59 - [湖南耒阳“轮椅女孩”高考546分](http://www.share.kurohicncr.top/Article/details/941664392.shtml)
-- 2026-06-29 19:41 - [男子40度高温下骑行严重晒伤](http://www.share.minike.top/Article/details/75421034.shtml)
-- 2026-06-29 19:39 - [女心理师](http://www.share.minike.top/Article/details/26172902.shtml)
-- 2026-06-29 19:48 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/08305.shtml)
-- 2026-06-29 19:57 - [胡光宇一审获刑13年](https://www.blog.kurohicncr.top/Article/details/723598.shtml)
-- 2026-06-29 19:41 - [我们的少年时代2](http://www.blog.minike.top/Article/details/887088006.shtml)
-- 2026-06-29 19:34 - [韩国队回国欢迎仪式取消](http://www.share.kurohicncr.top/Article/details/96277764431.shtml)
-- 2026-06-29 19:58 - [专家预计全球央行加息节奏将出现反复](https://www.blog.minike.top/Article/details/81810604.shtml)
-- 2026-06-29 19:46 - [2026全国田径冠军赛江苏队4金收官](http://www.share.kurohicncr.top/Article/details/744945111.shtml)
-- 2026-06-29 19:53 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/5094378.shtml)
-- 2026-06-29 19:57 - [三系杂交稻到底有多牛](http://www.blog.kurohicncr.top/Article/details/6235403399.shtml)
-- 2026-06-29 19:30 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/123554196.shtml)
-- 2026-06-29 19:40 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/39103.shtml)
-- 2026-06-29 19:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/9431725069.shtml)
-- 2026-06-29 19:52 - [刘冰任河南南阳市代市长](http://www.blog.kurohicncr.top/Article/details/23398660929.shtml)
+- 2026-06-29 20:01 - [周杰伦演唱会含星量](http://www.share.minike.top/Article/details/158304967949.shtml)
+- 2026-06-29 19:37 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/5480116.shtml)
+- 2026-06-29 19:42 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/40528878319.shtml)
+- 2026-06-29 19:41 - [普京：建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/676261094.shtml)
+- 2026-06-29 19:49 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.minike.top/Article/details/8393404.shtml)
+- 2026-06-29 20:03 - [起风了](http://www.blog.kurohicncr.top/Article/details/48555639.shtml)
+- 2026-06-29 19:53 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/089431994513.shtml)
+- 2026-06-29 19:38 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/52990328.shtml)
+- 2026-06-29 19:55 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/78206.shtml)
+- 2026-06-29 19:56 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/057824295148.shtml)
+- 2026-06-29 19:43 - [周生如故](https://www.blog.minike.top/Article/details/613839212238.shtml)
+- 2026-06-29 19:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/96419539899.shtml)
+- 2026-06-29 19:51 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/3252220739.shtml)
+- 2026-06-29 20:03 - [叠纸](http://www.blog.kurohicncr.top/Article/details/6400425753.shtml)
+- 2026-06-29 19:52 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/798689739898.shtml)

@@ -1,51 +1,57 @@
-# 2026年一季度国内居民出游超19亿人次 同比增长6.0%
+# SpaceX征服星辰大海后 剑指企业AI市场
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-根据国内居民出游抽样调查统计结果，2026年一季度，国内居民出游人次19.01亿，比上年同期增加1.07亿，同比增长6.0%。其中，城镇居民国内出游人次14.03亿，同比增长6.5%；农村居民国内出游人次4.98亿，同比增长4.6%。国内居民出游总花费1.86万亿元，比上年同期增加0.05万亿元，同比增长2.9%。其中，城镇居民出游花费1.53万亿元，同比增长3.5%；农村居民
+在成功征服太空领域后，马斯克的SpaceX正将目光投向新的增长引擎——企业级人工智能市场。这家航天巨头近期与AI编程初创公司Cursor达成深度合作，剑指估值数千亿美元的企业软件领域。 大手笔押注AI编程 根据SpaceX本周二宣布的协议，该公司获得了一项选择权：可在今年晚些时候以600亿美元收购Cursor，或支付100亿美元用于双方合作。SpaceX在社交平台X上表示，双方
 
 ## 正文
 
-根据国内居民出游抽样调查统计结果，2026年一季度，国内居民出游人次19.01亿，比上年同期增加1.07亿，同比增长6.0%。
+在成功征服太空领域后，马斯克的SpaceX正将目光投向新的增长引擎——企业级人工智能市场。
 
-其中，城镇居民国内出游人次14.03亿，同比增长6.5%；农村居民国内出游人次4.98亿，同比增长4.6%。
+这家航天巨头近期与AI编程初创公司Cursor达成深度合作，剑指估值数千亿美元的企业软件领域。
 
-国内居民出游总花费1.86万亿元，比上年同期增加0.05万亿元，同比增长2.9%。
+大手笔押注AI编程 根据SpaceX本周二宣布的协议，该公司获得了一项选择权：可在今年晚些时候以600亿美元收购Cursor，或支付100亿美元用于双方合作。
 
-其中，城镇居民出游花费1.53万亿元，同比增长3.5%；农村居民出游花费0.32万亿元，同比增长0.4%。
+SpaceX在社交平台X上表示，双方正“紧密合作，共同打造全球顶尖的编码和知识工作AI”，将Cursor面向软件工程师的产品与分发渠道，与SpaceX自研的Colossus超级计算机算力深度整合。
 
-(总台央视记者 曹岩 李晶晶)
+Cursor是AI编程工具领域的现象级产品，凭借高效的代码生成与调试功能迅速占领开发者市场，此前估值已达293亿美元。
+
+分析人士认为，此举将帮助SpaceX补全“算力+模型+工具”的生态闭环。
+
+为史上最大IPO铺路 SpaceX已秘密提交IPO申请，计划2026年下半年挂牌，目标估值高达1.75万亿至2万亿美元，有望成为史上最大规模IPO。
+
+此前，SpaceX已与马斯克旗下xAI合并，构建起“航天+AI”的双轮驱动故事。
 
 ## 相关推荐
 
-- 2026-06-29 19:37 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 19:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 19:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 19:35 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 19:42 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 19:34 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 19:57 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 19:40 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 19:58 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 19:36 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 19:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 19:43 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 20:00 - [刘冰任河南南阳市代市长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 19:40 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 19:37 - [大学专业未来如何洗牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 19:36 - [伊朗足球队将启程回国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 19:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 19:50 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 20:05 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 19:50 - [法生态部长反对装空调却自己吹空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 19:37 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 19:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:30 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/18663.shtml)
-- 2026-06-29 19:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/518185.shtml)
-- 2026-06-29 19:50 - [日本足球能掀翻巴西吗](http://www.blog.kurohicncr.top/Article/details/8229657266.shtml)
-- 2026-06-29 19:53 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/593445.shtml)
-- 2026-06-29 19:50 - [我和我的家乡](http://www.share.minike.top/Article/details/9853692.shtml)
-- 2026-06-29 19:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/50076.shtml)
-- 2026-06-29 19:44 - [普京建议乌俄停止打击对方纵深目标](https://www.blog.minike.top/Article/details/0151363.shtml)
-- 2026-06-29 19:34 - [断骨增高灰产拉一人提成1.5万元](http://www.share.minike.top/Article/details/889784.shtml)
-- 2026-06-29 19:52 - [胡光宇一审获刑13年](https://www.blog.minike.top/Article/details/34811.shtml)
-- 2026-06-29 19:51 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/113662.shtml)
-- 2026-06-29 19:50 - [起风了](https://www.blog.kurohicncr.top/Article/details/9956383760.shtml)
-- 2026-06-29 19:49 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/6831336040.shtml)
-- 2026-06-29 19:30 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/1346987.shtml)
-- 2026-06-29 19:56 - [福建仙游一峡谷发生意外5人身亡](http://www.share.minike.top/Article/details/3904454293.shtml)
-- 2026-06-29 19:49 - [特朗普两大核心赌注将迎高院裁决](http://www.share.kurohicncr.top/Article/details/976175.shtml)
+- 2026-06-29 20:01 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/645548.shtml)
+- 2026-06-29 19:52 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/7769415227.shtml)
+- 2026-06-29 19:37 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/65199.shtml)
+- 2026-06-29 19:43 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/7888918618.shtml)
+- 2026-06-29 19:38 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/8753562463.shtml)
+- 2026-06-29 19:50 - [我国多领域成果密集上新](http://www.blog.minike.top/Article/details/737518008715.shtml)
+- 2026-06-29 19:38 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/977276796.shtml)
+- 2026-06-29 20:04 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/473274933055.shtml)
+- 2026-06-29 19:57 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/654003966541.shtml)
+- 2026-06-29 19:39 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/368092.shtml)
+- 2026-06-29 19:36 - [唐艺昕告别浪姐千字长文](http://www.blog.minike.top/Article/details/4060697.shtml)
+- 2026-06-29 19:46 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/40140913.shtml)
+- 2026-06-29 19:48 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/4898500.shtml)
+- 2026-06-29 19:52 - [法拉利被划损维修2.9万家长只愿赔5千](http://www.blog.kurohicncr.top/Article/details/1146952239.shtml)
+- 2026-06-29 19:53 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/299775223551.shtml)

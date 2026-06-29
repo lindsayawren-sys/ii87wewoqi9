@@ -1,61 +1,60 @@
-# 锦龙股份“纸面扭亏”：归母扣非净利仍亏逾亿、多起诉讼缠身
+# 恩施建始县召开2026年全县基层统战工作现场交流会
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-面对主业失速、转型停滞、诉讼缠身等多重考验，锦龙股份的抗风险能力令人担忧 2025年归母净利润扭亏为盈、2026年一季度归母净利润大幅减亏，接连交出两份亮眼财报的锦龙股份（000712.SZ），实际经营上已身陷多重危机。 据2025年年报，锦龙股份去年营业收入9.3亿元，同比增长40.33%；归母净利润2.83亿元，同比增长417.7%。但是，同期归母扣非净利润却为-1.39亿
+【县市动态】建始县召开2026年全县基层统战工作现场交流会 4月24日，建始县召开2026年全县基层统战工作现场交流会，县委常委、统战部部长龙慧出席并讲话。各乡镇统战委员、统战干事，县委统战部、县民宗局、县工商联全体干部，县知联会、县新联会、光彩事业促进会会长、秘书长参加会议。 会上，业州镇、高坪镇、茅田乡分别作交流发言，分享基层统战工作经验做法。 会议强调2026年是“十五五
 
 ## 正文
 
-面对主业失速、转型停滞、诉讼缠身等多重考验，锦龙股份的抗风险能力令人担忧 2025年归母净利润扭亏为盈、2026年一季度归母净利润大幅减亏，接连交出两份亮眼财报的锦龙股份（000712.SZ），实际经营上已身陷多重危机。
+【县市动态】建始县召开2026年全县基层统战工作现场交流会 4月24日，建始县召开2026年全县基层统战工作现场交流会，县委常委、统战部部长龙慧出席并讲话。
 
-据2025年年报，锦龙股份去年营业收入9.3亿元，同比增长40.33%；归母净利润2.83亿元，同比增长417.7%。
+各乡镇统战委员、统战干事，县委统战部、县民宗局、县工商联全体干部，县知联会、县新联会、光彩事业促进会会长、秘书长参加会议。
 
-但是，同期归母扣非净利润却为-1.39亿元，亏损幅度较2024年进一步扩大。
+会上，业州镇、高坪镇、茅田乡分别作交流发言，分享基层统战工作经验做法。
 
-此外，锦龙股份与其控股子公司中山证券还面临多项法律诉讼。
+会议强调2026年是“十五五”开局之年，是推动统战工作高质量发展的重要之年，做好统战工作责任重大、意义深远。
 
-归母扣非净利亏损扩大 锦龙股份的主营业务主要依托中山证券、东莞证券展开，其中中山证券的经营情况几乎决定了锦龙股份的基本面。
+全县统一战线要围绕主责主业做好思想政治引领工作、围绕铸牢中华民族共同体意识主线做好民族工作、围绕深化宗教事务治理专项行动做好宗教工作、围绕突出“两个健康”主题做好民营经济统战工作、围绕凝聚智慧力量做好党外知识分子和新的社会阶层人士工作、围绕激发活力做好基层统战工作、围绕以真心换真情做好港澳台侨工作、围绕提升多党合作制度效能做好民主党派工作。
 
-2025年年报显示，中山证券营业收入6.19亿元，同比减少23.74%，归母净利润1998.15万元，同比减少86.95%。
+会议要求 全县各级党委(党组)要深入学习贯彻党的二十届四中全会精神，全面落实习近平总书记关于做好新时代党的统一战线工作的重要思想，认真落实全国、全省、全州统战部长会议精神。
 
-从主要业务来看，中山证券几乎“全线溃退”。
+要切实履行主体责任，发挥职能优势，形成齐抓共管合力，提升大统战工作格局整体效能。
 
-2025年公司投行业务、资管业务营业收入同比分别下降71.46%、73.02%；证券投资业务营业总收入从2024年的1.48亿元降至不足6000万元，降幅超八成。
+要进一步树牢底线思维，牢牢守住不发生系统性区域性风险的底线。
 
 ## 相关推荐
 
-- 2026-06-29 19:41 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 19:34 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 19:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-29 19:44 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 19:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 19:31 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-29 19:48 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 19:46 - [夫妻生活太无聊，所以我……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 19:45 - [特朗普两大核心赌注将迎高院裁决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 19:51 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 19:58 - [媒体：听清自己内心的声音再填志愿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 19:30 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 19:43 - [扩军害了世界杯吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 19:31 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 19:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 19:39 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 20:01 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 20:03 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 19:53 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 19:54 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 20:02 - [LPL第三赛段赛制公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 20:01 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 20:01 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 20:01 - [宗馥莉出了最新的Kellyone，没有一丝娃哈哈的痕迹。你认为宗馥莉会成功吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 19:38 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 19:54 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-29 19:56 - [“生了我又不对我负责，凭什么别的同学有，就我没有？”孩子大吼，你怎么回应？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 19:54 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 20:03 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:49 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/21149494.shtml)
-- 2026-06-29 19:33 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/91721013683.shtml)
-- 2026-06-29 19:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/0980425547.shtml)
-- 2026-06-29 19:39 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/041683267.shtml)
-- 2026-06-29 19:53 - [第一炉香](https://www.share.minike.top/Article/details/24937191062.shtml)
-- 2026-06-29 19:42 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/2657754865.shtml)
-- 2026-06-29 19:34 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/1305123.shtml)
-- 2026-06-29 19:41 - [法生态部长反对装空调却自己吹空调](http://www.blog.kurohicncr.top/Article/details/892536.shtml)
-- 2026-06-29 19:58 - [依法管制阻遏日方军事化危险动向](http://www.share.minike.top/Article/details/45507389.shtml)
-- 2026-06-29 19:47 - [爱很美味](http://www.blog.minike.top/Article/details/81243.shtml)
-- 2026-06-29 19:57 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/787167756.shtml)
-- 2026-06-29 19:33 - [请回答王牌2019](https://www.blog.minike.top/Article/details/878525.shtml)
-- 2026-06-29 19:46 - [斛珠夫人](https://www.share.minike.top/Article/details/521540795.shtml)
-- 2026-06-29 19:34 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/06497.shtml)
-- 2026-06-29 19:30 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/12270.shtml)
+- 2026-06-29 19:57 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/63293.shtml)
+- 2026-06-29 19:54 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/73290.shtml)
+- 2026-06-29 19:44 - [我们的少年时代2](https://www.share.minike.top/Article/details/4361569.shtml)
+- 2026-06-29 19:53 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/29470600.shtml)
+- 2026-06-29 20:01 - [呼兰赵晓卉来东风奕派开专场了](https://www.share.kurohicncr.top/Article/details/213158187182.shtml)
+- 2026-06-29 19:42 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/258938.shtml)
+- 2026-06-29 19:49 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/98116449.shtml)
+- 2026-06-29 20:03 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/8112712315.shtml)
+- 2026-06-29 19:51 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/2314704.shtml)
+- 2026-06-29 19:58 - [中国妇女评网游娱乐化女性安全](http://www.share.kurohicncr.top/Article/details/5594275780.shtml)
+- 2026-06-29 19:40 - [虞书欣和粉丝剧宣一个脑回路](https://www.blog.kurohicncr.top/Article/details/21664123.shtml)
+- 2026-06-29 19:41 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/344615.shtml)
+- 2026-06-29 19:41 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/84575.shtml)
+- 2026-06-29 20:03 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/746226792939.shtml)
+- 2026-06-29 19:39 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/558521085383.shtml)

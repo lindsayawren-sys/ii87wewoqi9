@@ -1,58 +1,44 @@
-# 国台办回应赖清德取消窜访斯威士兰
+# 视频 | 聚焦“全球变局中的中国资产安全性与成长性”一-上交所举办东南亚专题国际路演活动
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新网4月29日电 4月29日，国台办举行例行新闻发布会。有记者问：对于赖清德取消窜访斯威士兰，有舆论认为，越来越多的国家将坚持一个中国原则视为理性决策，台湾在国际社会中将更难所谓“交到朋友”。还有舆论认为，赖清德当局借此事大肆渲染“大陆打压”，是要蓄意升高两岸对立对抗，制造“芒果干”(“亡国感”)，符合民进党一贯选举招数。请问对此有何评论？ 国台办发言人陈斌华表示，我们对待台
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：上交所发布 责任编辑：宋雅芳
 
 ## 正文
 
-中新网4月29日电 4月29日，国台办举行例行新闻发布会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-有记者问：对于赖清德取消窜访斯威士兰，有舆论认为，越来越多的国家将坚持一个中国原则视为理性决策，台湾在国际社会中将更难所谓“交到朋友”。
-
-还有舆论认为，赖清德当局借此事大肆渲染“大陆打压”，是要蓄意升高两岸对立对抗，制造“芒果干”(“亡国感”)，符合民进党一贯选举招数。
-
-请问对此有何评论？
-
-国台办发言人陈斌华表示，我们对待台湾对外交往的立场是一贯的、明确的，即必须按一个中国原则处理。
-
-一个中国原则是人心所向、大势所趋、大义所在，妄图在国际社会挑战一中原则，只会四处碰壁。
-
-赖清德当局顽固坚持“台独”立场，是台海局势紧张动荡的始作俑者。
-
-赖清德当局妄图通过外窜搞所谓“外交突破”，遭到相关国家拒绝后，不但不思悔改，还公然歪曲事实，编造所谓“受害者”叙事，欺骗岛内民众。
+来源：上交所发布 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-29 19:47 - [周杰伦演唱会含星量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 19:32 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 19:32 - [王楚钦开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 19:36 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 19:51 - [蔚来回应车漆洗车时被冲掉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 19:59 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 19:36 - [专家批台媒狂吹雄风导弹可伏击辽宁舰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 19:54 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 19:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 19:32 - [滚石点名酒店员工说有急救培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 19:36 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-29 19:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 20:05 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 19:39 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 19:47 - [湖南耒阳“轮椅女孩”高考546分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 19:57 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 20:05 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 19:47 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 20:04 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 19:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 19:57 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 19:39 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:42 - [我们的少年时代2](https://www.blog.minike.top/Article/details/7513535.shtml)
-- 2026-06-29 19:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/9884215.shtml)
-- 2026-06-29 19:33 - [四川地震前夕 街头电线上站满燕子](http://www.share.minike.top/Article/details/1927389503.shtml)
-- 2026-06-29 19:42 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/278985786.shtml)
-- 2026-06-29 19:51 - [歼-15型舰载机为何被歼-15T替代](http://www.share.kurohicncr.top/Article/details/42967548.shtml)
-- 2026-06-29 19:36 - [恋与深空各大应用商店评分](https://www.share.kurohicncr.top/Article/details/30379476.shtml)
-- 2026-06-29 19:34 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/662771886.shtml)
-- 2026-06-29 19:43 - [逆天祖国人](https://www.blog.minike.top/Article/details/42196.shtml)
-- 2026-06-29 19:43 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/73346.shtml)
-- 2026-06-29 19:44 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/8466717.shtml)
-- 2026-06-29 19:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/501244.shtml)
-- 2026-06-29 19:38 - [章若楠包场白敬亭特立独行](http://www.blog.minike.top/Article/details/229771.shtml)
-- 2026-06-29 19:33 - [叠纸客服回应恋与深空新角色争议](https://www.blog.kurohicncr.top/Article/details/151371.shtml)
-- 2026-06-29 19:42 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/56112782793.shtml)
-- 2026-06-29 19:40 - [伊朗足球队将启程回国](http://www.share.kurohicncr.top/Article/details/11037790.shtml)
+- 2026-06-29 20:01 - [两老人多次到一洗车店泼粪](https://www.blog.minike.top/Article/details/5211124.shtml)
+- 2026-06-29 19:37 - [央行首次3000亿元隔夜逆回购操作](http://www.blog.kurohicncr.top/Article/details/9250426.shtml)
+- 2026-06-29 19:54 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/50746301815.shtml)
+- 2026-06-29 19:49 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/621484257.shtml)
+- 2026-06-29 19:46 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/31542142651.shtml)
+- 2026-06-29 19:59 - [世界杯预测史上最不吃压力之物](http://www.share.minike.top/Article/details/97074657876.shtml)
+- 2026-06-29 19:47 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/68538326.shtml)
+- 2026-06-29 19:59 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/71465.shtml)
+- 2026-06-29 19:59 - [叠纸](http://www.blog.kurohicncr.top/Article/details/51580.shtml)
+- 2026-06-29 19:55 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/6695837.shtml)
+- 2026-06-29 19:51 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/2658246401.shtml)
+- 2026-06-29 19:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/3854010.shtml)
+- 2026-06-29 19:54 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/565205.shtml)
+- 2026-06-29 19:56 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/9818451429.shtml)
+- 2026-06-29 19:42 - [媒体：听清自己内心的声音再填志愿](http://www.share.minike.top/Article/details/911910.shtml)

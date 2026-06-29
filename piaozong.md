@@ -1,57 +1,55 @@
-# 尹锡悦涉嫌妨碍逮捕案二审被判有期徒刑7年
+# 2026年度中国青年五四奖章暨新时代青年先锋奖评选结果揭晓
 
-> 更新时间：2026-06-29 20:00:02 UTC+8
+> 更新时间：2026-06-29 20:06:03 UTC+8
 
 ## 摘要
 
-中新社首尔4月29日电 (记者 刘旭 金旭)29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。尹锡悦律师团队表示将提起上诉。 尹锡悦涉嫌妨碍逮捕等罪行一案二审当天下午在首尔高等法院举行。法院在维持一审对部分指控认定有罪的同时，将一审中判决无罪的部分指控改判为有罪，判处其有期徒刑7年，较一审判决加重两年。 法院指出，被告2025年1月动员总统警卫处人员阻挠公调处执
+中新网北京4月27日电 (记者 余湛奕)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重
 
 ## 正文
 
-中新社首尔4月29日电 (记者 刘旭 金旭)29日，韩国前总统尹锡悦在其涉嫌妨碍逮捕案二审中被判有期徒刑7年。
+中新网北京4月27日电 (记者 余湛奕)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。
 
-尹锡悦律师团队表示将提起上诉。
+荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重症医学科主任医师支德源，新疆生产建设兵团第三师图木舒克市叶城二牧场三连党支部副书记古再丽努尔·阿布拉(女)，江西中发天信航空发动机科技有限公司首席技术专家刘臣，天津市公安局治安管理总队攻坚狙击支队战力支援大队副大队长刘琳(女)，武警部队湖南省总队训练基地教研室孙江涛，中国科学院深海科学与工程研究所研究员杜梦然(女)，河北省唐山市乐亭县庞各庄乡阚田各庄村党支部书记兼村委会主任李瑶，山东农业大学园艺科学与工程学院教授李宏博，云南出入境边防检查总站清水河出入境边防检查站勐捧分站执勤一队副队长李金精，沈阳飞机工业(集团)有限公司钳工杨国心，江铃汽车股份有限公司智能装备中心工程车间工程1组班组长杨准正，一汽解放汽车有限公司商用车开发院数控机床特级技能师时敬龙，中国地质大学(北京
 
-尹锡悦涉嫌妨碍逮捕等罪行一案二审当天下午在首尔高等法院举行。
+荣获2026年度中国青年五四奖章集体的分别是：上海“模速空间”大模型创新生态社区青年团队，75220部队42分队，中国铁路西安局集团有限公司西安铁路物流中心国际港营业部“丝路青锋”青年团队，北京首都机场航空安保有限公司综合安检部特检科青年先锋队，极地考察站青年突击队，中国农业银行西藏分行“格桑花”金融服务队，中船江南造船福建舰建造管理青年团队，国家税务总局平潭综合实验区税务局第一税务所(办税服务厅)青年集体，中国载人航天工程长征二号F运载火箭应急发射任务攻关团队，中国科学院天津工业生物技术研究所糖生物合成与绿色制造攻关团队，河北省沧州市消防救援支队浮阳北大道特勤站，北方农牧交错区保护性农业创新团队，特高压套管国产化应用青年集体，吉林碳谷“中国质量”35K碳纤维核心技术攻关青年团队，哈尔滨工业大学超精密仪器技术创新团队，“川藏青光明行”眼健康志愿服务队
 
-法院在维持一审对部分指控认定有罪的同时，将一审中判决无罪的部分指控改判为有罪，判处其有期徒刑7年，较一审判决加重两年。
+共青团中央、全国青联号召广大团员青年向模范学习、向先进看齐，深刻领悟“两个确立”的决定性意义，增强“四个意识”、坚定“四个自信”、做到“两个维护”，更加紧密地团结在以习近平同志为核心的党中央周围，坚定不移听党话、跟党走，锚定“十五五”目标任务坚定信心、乘势而上，以昂扬向上的精神风貌和强国有我的责任担当，践行“请党放心、强国有我”的青春誓言，为全面推进强国建设、民族复兴伟业奋力书写新的青春篇章。
 
-法院指出，被告2025年1月动员总统警卫处人员阻挠公调处执行逮捕令，涉嫌妨碍特别公务执行、滥用职权妨碍权利行使及教唆窝藏罪犯。
-
-同时，为应对内乱调查，尹锡悦指示总统警卫次长金成勋删除前反间谍司令官吕寅兄等人的加密通信记录，涉嫌教唆违反《总统警卫法》。
-
-上述指控与一审一致，均被认定有罪。
-
-此外，法院指出，在宣布紧急戒严过程中，尹锡悦为制造“已召开国务会议”的形式，仅召集部分国务委员，涉嫌侵害9名未到场国务委员的戒严审议权。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 19:32 - [三星SK海力士和美光在美遭反垄断诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 19:55 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 19:48 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 19:49 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 19:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 19:54 - [河南高院审委会原委员曲海滨被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 19:31 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-29 19:32 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 19:59 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 19:59 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 19:57 - [官方通报一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 20:03 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 19:58 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 19:50 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 19:50 - [互助版模拟高考志愿填报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 19:49 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 19:43 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 20:00 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 19:57 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 19:55 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 19:46 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 19:40 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 19:56 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 19:51 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 20:02 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 19:57 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
 
 ## 延伸阅读
 
-- 2026-06-29 19:50 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/68167670450.shtml)
-- 2026-06-29 19:45 - [AG 宫斗](https://www.share.minike.top/Article/details/873690615.shtml)
-- 2026-06-29 19:33 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/17647233.shtml)
-- 2026-06-29 19:55 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/21896371715.shtml)
-- 2026-06-29 19:30 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/344313564877.shtml)
-- 2026-06-29 19:51 - [李思潼回应运气好演《给阿嬷的情书》](https://www.share.kurohicncr.top/Article/details/8999832552.shtml)
-- 2026-06-29 19:56 - [国家为什么要限制投资美股？有没有专业人士出来解答一下？](https://www.share.minike.top/Article/details/04715.shtml)
-- 2026-06-29 19:47 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/46759511.shtml)
-- 2026-06-29 19:48 - [笔记本电脑一年涨价近一倍](https://www.blog.kurohicncr.top/Article/details/95484.shtml)
-- 2026-06-29 19:50 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/570568.shtml)
-- 2026-06-29 19:42 - [中方在台湾岛以东海域活动合理合法](http://www.share.minike.top/Article/details/700691.shtml)
-- 2026-06-29 19:30 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/241204.shtml)
-- 2026-06-29 19:45 - [毒液2](http://www.share.minike.top/Article/details/19048094206.shtml)
-- 2026-06-29 19:54 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/45072.shtml)
-- 2026-06-29 19:52 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/69203068.shtml)
+- 2026-06-29 19:52 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/7960507.shtml)
+- 2026-06-29 19:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/081156598.shtml)
+- 2026-06-29 19:43 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/077697.shtml)
+- 2026-06-29 19:46 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/721799.shtml)
+- 2026-06-29 19:37 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/72333300.shtml)
+- 2026-06-29 19:48 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/341502204482.shtml)
+- 2026-06-29 20:00 - [王楚钦开门红](http://www.share.minike.top/Article/details/71837547.shtml)
+- 2026-06-29 19:53 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/47054965633.shtml)
+- 2026-06-29 19:50 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9729224.shtml)
+- 2026-06-29 19:47 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/179767595150.shtml)
+- 2026-06-29 19:50 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/73677.shtml)
+- 2026-06-29 19:41 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/646939.shtml)
+- 2026-06-29 19:45 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/423534689.shtml)
+- 2026-06-29 19:44 - [断骨增高灰产拉一人提成1.5万元](https://www.share.minike.top/Article/details/370839.shtml)
+- 2026-06-29 19:51 - [欧洲极端高温如何影响家电股](https://www.share.minike.top/Article/details/072592800394.shtml)
