@@ -1,60 +1,60 @@
-# 近一个月股价大涨超90%！603272，最新风险提示……
+# 2026中国（金华山）国际露营大会系列活动将贯穿全年
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在短期内，*ST联翔（维权）（603272）股票连续涨停，交易风险高度累积。截至5月27日，*ST联翔股价已上涨至38.18元/股，创历史新高。 5月27日晚间，*ST联翔发布股票交易异动风险提示公告，请广大投资者充分关注该上市公司存在的相关风险，勿受市场情绪过热影响，理性决策，审慎投资，注意交易风险，避免
+中新网北京4月8日电 (记者 邢翀)记者8日从组委会获悉，2026中国(金华山)国际露营大会系列活动将贯穿全年，涵盖文体旅融合创新与实践发展研策会、中国国际露营大会户外美好生活展、中国青少年户外运动巡回赛三大核心活动。 露营作为山地旅游、户外休闲最具活力的业态之一，是连接自然、健康与大众美好生活的重要载体。金华山是国际山地旅游联盟会员和中国国际露营大会永久会址，在传统山岳型景区
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网北京4月8日电 (记者 邢翀)记者8日从组委会获悉，2026中国(金华山)国际露营大会系列活动将贯穿全年，涵盖文体旅融合创新与实践发展研策会、中国国际露营大会户外美好生活展、中国青少年户外运动巡回赛三大核心活动。
 
-在短期内，*ST联翔（维权）（603272）股票连续涨停，交易风险高度累积。
+露营作为山地旅游、户外休闲最具活力的业态之一，是连接自然、健康与大众美好生活的重要载体。
 
-截至5月27日，*ST联翔股价已上涨至38.18元/股，创历史新高。
+金华山是国际山地旅游联盟会员和中国国际露营大会永久会址，在传统山岳型景区转型方面成效显著。
 
-5月27日晚间，*ST联翔发布股票交易异动风险提示公告，请广大投资者充分关注该上市公司存在的相关风险，勿受市场情绪过热影响，理性决策，审慎投资，注意交易风险，避免产生较大投资损失。
+在当天举行的新闻发布会上，国际山地旅游联盟副主席刘照惠指出，露营与联盟倡导的绿色、生态、可持续理念高度契合，国际山地旅游联盟将充分发挥平台作用，支持金华山打造“国际山地装备示范中心”，推动中国露营与山地旅游走向全球。
 
-今年4月24日至5月27日，*ST联翔股价累计涨幅达90.14%。
+中国国际露营大会执行主席李守文阐述了大会“新场景、新消费、新生活”三新理念。
 
-其中，自4月29日复牌以来，*ST联翔股价累计涨幅达57.12%；5月25日、26日、27日连续三个交易日内，*ST联翔收盘价格涨幅偏离值累计超过12%，根据《上海证券交易所交易规则》的有关规定，属于股票交易异常波动情况。
+他介绍，中国国际露营大会永久会址落地金华山两年来，已实现从落地扎根到成型成势的关键跨越，联动多元业态带动乡村振兴与产业协同。
 
-在最新公告中，*ST联翔郑重提醒广大投资者，公司主营业务未发生重大变化，公司股价已严重偏离基本面。
+本届大会将致力于打造国际化户外生活地标、举办现象级户外产业展会、培育国家级露营赛事IP、构建体教农文旅互哺增长极、发起户外产业创新人才孵化中心，推动户外产业高质量发展。
 
-短期内，*ST联翔股价连续上涨，击鼓传花效应明显，随时存在快速下跌风险，投资者极易出现重大本金损失。
+据介绍，本次大会有四大亮点：首创“户外奥莱”模式，联合国内外一线户外品牌与本地企业，打通工厂到消费者的直通渠道；打造超2000平米萌宠主题区，举办人宠障碍赛、宠物时装秀等活动；推出中国青少年户外运动巡回赛，设置多个组别，推动青少年户外运动普及；全新打造房车趣野集结赛，邀请百台房车集结打卡金华山地标。
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-30 03:08 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 03:06 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 03:08 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 03:17 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 03:08 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-30 03:11 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 03:15 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 03:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 03:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-30 03:21 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 03:04 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 03:17 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 03:26 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 03:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 03:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
+- 2026-06-30 03:13 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 03:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-30 03:23 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 03:30 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 03:22 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 03:21 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 03:11 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 03:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 03:24 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 03:25 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 03:32 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 03:06 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/3410411.shtml)
-- 2026-06-30 03:00 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/57213188.shtml)
-- 2026-06-30 03:20 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/19599354647.shtml)
-- 2026-06-30 03:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/17230798.shtml)
-- 2026-06-30 03:07 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/383740249.shtml)
-- 2026-06-30 03:20 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/7405376.shtml)
-- 2026-06-30 03:25 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/526237437828.shtml)
-- 2026-06-30 03:23 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/787576537146.shtml)
-- 2026-06-30 03:02 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/2725262875.shtml)
-- 2026-06-30 03:23 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/74084.shtml)
-- 2026-06-30 03:18 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/367978641.shtml)
-- 2026-06-30 03:19 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/20691847828.shtml)
-- 2026-06-30 03:08 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/45477557.shtml)
-- 2026-06-30 03:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/381236.shtml)
-- 2026-06-30 03:10 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/32599.shtml)
+- 2026-06-30 03:23 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/401471599.shtml)
+- 2026-06-30 03:19 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/60609735986.shtml)
+- 2026-06-30 03:32 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/5879577493.shtml)
+- 2026-06-30 03:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/554826.shtml)
+- 2026-06-30 03:08 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/2616883.shtml)
+- 2026-06-30 03:12 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/616139.shtml)
+- 2026-06-30 03:15 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/762663.shtml)
+- 2026-06-30 03:24 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/041256508.shtml)
+- 2026-06-30 03:13 - [沙丘](https://www.blog.minike.top/Article/details/180302.shtml)
+- 2026-06-30 03:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/290981.shtml)
+- 2026-06-30 03:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/92054.shtml)
+- 2026-06-30 03:29 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/40826571.shtml)
+- 2026-06-30 03:18 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/388710.shtml)
+- 2026-06-30 03:31 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/7671219340.shtml)
+- 2026-06-30 03:06 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/872664118.shtml)

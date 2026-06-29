@@ -1,60 +1,56 @@
-# Redfin报告：3月全美仅29%购房者支付全款，创六年来同期新低
+# 债券到期洪峰渐近 私募信贷市场的软件业问题恐进一步恶化
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-根据房地产经纪公司Redfin最新发布的数据，今年3月份美国仅有28.8%的购房者以全现金方式完成交易，低于去年同期的29.8%，与2021年持平，为2020年以来历年3月份的最低水平。 利率回落、竞争趋缓，现金购房动力减弱 Redfin报告指出，全款购房比例的下降主要源于市场环境的变化。虽然房贷利率仍远高于疫情前水平，但3月份已从7%以上的近期高位回落至6.18%。对于购房者
+近日把私募市场搅得天翻地覆的软件行业问题即将面临一场重大考验，一波债务到期洪峰正渐行渐近。 截至2028年底，将有超过3300亿美元的高收益债、杠杆贷款以及与商业发展公司相关的软件和科技债务到期，其中相当一部分与私募投资者持股的企业相关。当这些公司未来数月寻求再融资时，它们将面临诸多阻力，包括对人工智能（AI）可能削弱甚至取代其产品的担忧，到中东战争推高借贷成本的风险。 知情人
 
 ## 正文
 
-根据房地产经纪公司Redfin最新发布的数据，今年3月份美国仅有28.8%的购房者以全现金方式完成交易，低于去年同期的29.8%，与2021年持平，为2020年以来历年3月份的最低水平。
+近日把私募市场搅得天翻地覆的软件行业问题即将面临一场重大考验，一波债务到期洪峰正渐行渐近。
 
-利率回落、竞争趋缓，现金购房动力减弱 Redfin报告指出，全款购房比例的下降主要源于市场环境的变化。
+截至2028年底，将有超过3300亿美元的高收益债、杠杆贷款以及与商业发展公司相关的软件和科技债务到期，其中相当一部分与私募投资者持股的企业相关。
 
-虽然房贷利率仍远高于疫情前水平，但3月份已从7%以上的近期高位回落至6.18%。
+当这些公司未来数月寻求再融资时，它们将面临诸多阻力，包括对人工智能（AI）可能削弱甚至取代其产品的担忧，到中东战争推高借贷成本的风险。
 
-对于购房者而言，这意味着通过贷款购房的月供压力有所减轻，从而降低了全款支付的吸引力。
+知情人士称，一些私募信贷基金直接回避软件业借款人，以缩减其对该行业的敞口。
 
-与此同时，全美大部分地区的住房市场已转向“买方市场”，待售房源数量远超买家需求。
+与此同时，一些由私募股权公司计划的软件公司出售交易已经陷入停滞。
 
-Redfin Premier经纪人Beth Behling表示：“现金买家正在撤退。
+MSCI Inc．研究人员表示：“私募信贷基金的软件业借款人杠杆更高，对未来增长预期依赖更强，因此对不利冲击更为敏感。
 
-买家对经济感到不安，把大笔钱投入房产让人感到财务上不踏实，他们可能更愿意手头持有更多现金。
+” 以下图表凸显了软件业押注遇挫给私募股权和信贷市场造成的压力。
 
-” 经济不确定性促使买家持币观望 报告还指出，普遍的经济不确定性也在发挥作用。
+过去15年，私募市场管理人向软件行业配置了数千亿美元，押注软件即服务（SaaS）商业模式能够带来高增长和稳定现金流。
 
 ## 相关推荐
 
-- 2026-06-30 03:10 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
-- 2026-06-30 03:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 03:06 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 03:00 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 03:10 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 03:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 03:27 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 03:23 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 03:16 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 03:25 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 03:24 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 03:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-30 03:24 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 03:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 03:13 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 03:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 03:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 03:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 03:24 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 03:20 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 03:18 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 03:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 03:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 03:21 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/7235830.shtml)
-- 2026-06-30 03:24 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/8026432.shtml)
-- 2026-06-30 03:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/13293.shtml)
-- 2026-06-30 03:17 - [TOP Prada](https://www.blog.minike.top/Article/details/87251.shtml)
-- 2026-06-30 03:10 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/7369968.shtml)
-- 2026-06-30 03:19 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/1463595668.shtml)
-- 2026-06-30 03:02 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/58210.shtml)
-- 2026-06-30 03:13 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/400963440.shtml)
-- 2026-06-30 03:11 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/58514.shtml)
-- 2026-06-30 03:05 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/433032259.shtml)
-- 2026-06-30 03:24 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/1834373657.shtml)
-- 2026-06-30 03:08 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/40151.shtml)
-- 2026-06-30 03:27 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/3826479.shtml)
-- 2026-06-30 03:07 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/12456379024.shtml)
-- 2026-06-30 03:14 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/5388448.shtml)
+- 2026-06-30 03:16 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/0393426256.shtml)
+- 2026-06-30 03:30 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/816198932.shtml)
+- 2026-06-30 03:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/91954372785.shtml)
+- 2026-06-30 03:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/0048679166.shtml)
+- 2026-06-30 03:07 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/14602.shtml)
+- 2026-06-30 03:19 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/3328442.shtml)
+- 2026-06-30 03:10 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/50417.shtml)
+- 2026-06-30 03:17 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/99882171.shtml)
+- 2026-06-30 03:16 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/3855450052.shtml)
+- 2026-06-30 03:11 - [流金岁月](https://www.share.kurohicncr.top/Article/details/74391528.shtml)
+- 2026-06-30 03:32 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/4493714.shtml)
+- 2026-06-30 03:26 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/246724825798.shtml)
+- 2026-06-30 03:12 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/864425387100.shtml)
+- 2026-06-30 03:31 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/78819594.shtml)
+- 2026-06-30 03:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/843186077.shtml)

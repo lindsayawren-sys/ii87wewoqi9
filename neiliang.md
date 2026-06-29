@@ -1,61 +1,60 @@
-# APEC贸易部长会议发表《苏州声明》，取得丰硕成果
+# 专家：皮肤过敏千万不要轻信“网红止痒神药”
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月22-23日，商务部在江苏省苏州市举办亚太经合组织(APEC)贸易部长会议，各方围绕推进区域经济一体化和亚太自贸区建设、支持世贸组织、加强数字合作和发展绿色经济等开展深入讨论。会议发表《2026年APEC贸易部长会议苏州联合声明》，简称《苏州声明》，达成《APEC创新、有竞争力和韧性的服务业路线图》，取得丰硕成果。商务部国际司负责人就会议有关成果进行解读。问： 本次会议达成
+中新社北京4月9日电 (记者 李纯)春季过敏相关话题近期在中国引发持续关注。北京大学第一医院主任医师吴艳9日在北京表示，皮肤出现皮疹或红痒情况，千万不要轻信“网红止痒神药”等产品。 吴艳当天在中国国家卫生健康委员会举行的新闻发布会上表示，春季是过敏原较多、过敏高发的季节。有的人可能表现为流眼泪、打喷嚏，有的人会出现接触部位红肿、瘙痒甚至皮疹。过敏是免疫系统的“记忆反应”，是针对
 
 ## 正文
 
-5月22-23日，商务部在江苏省苏州市举办亚太经合组织(APEC)贸易部长会议，各方围绕推进区域经济一体化和亚太自贸区建设、支持世贸组织、加强数字合作和发展绿色经济等开展深入讨论。
+中新社北京4月9日电 (记者 李纯)春季过敏相关话题近期在中国引发持续关注。
 
-会议发表《2026年APEC贸易部长会议苏州联合声明》，简称《苏州声明》，达成《APEC创新、有竞争力和韧性的服务业路线图》，取得丰硕成果。
+北京大学第一医院主任医师吴艳9日在北京表示，皮肤出现皮疹或红痒情况，千万不要轻信“网红止痒神药”等产品。
 
-商务部国际司负责人就会议有关成果进行解读。
+吴艳当天在中国国家卫生健康委员会举行的新闻发布会上表示，春季是过敏原较多、过敏高发的季节。
 
-问： 本次会议达成了联合声明，也称为《苏州声明》，有什么重要意义？
+有的人可能表现为流眼泪、打喷嚏，有的人会出现接触部位红肿、瘙痒甚至皮疹。
 
-答： 本次会议发表了《苏州声明》，这是今年APEC中国年达成的首份部长级成果文件，并在时隔12年后再次以会议举办地命名，主要有三方面意义： 一是提振区域经贸合作信心，为亚太经济复苏提供更强支撑。
+过敏是免疫系统的“记忆反应”，是针对一些特定过敏原的异常免疫反应，常常表现为与过敏原接触的地方出现红肿、瘙痒、丘疹，严重时还会出现水疱或者渗出。
 
-《苏州声明》的成功达成，发出了各经济体以合作促共赢的明确信号，为承压前行的亚太经济注入了新的增长动力。
+吴艳说，过敏的重点在于预防。
 
-当前全球经济复苏疲软、需求持续低迷，亚太作为全球经济增长引擎，亟需形成明确、一致的合作方向，各方合力挖掘增长潜力。
+一旦发现自己的过敏原，应尽量避免再与之接触。
 
-《苏州声明》聚焦数字贸易、绿色低碳、供应链联通、服务贸易升级等新兴领域，凝聚了21个经济体的合作共识，明确了区域经贸合作的重点方向及实施路径，有助于充分释放区域经贸合作潜力，更好发挥亚太超大规模市场优势，对冲全球经济下行压力，为亚太经济持续稳定复苏提供坚实支撑。
+如果皮肤已经出现皮疹或者红痒情况，千万不要轻信“网红止痒神药”这些产品，或者购买成分不明的产品使用。
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 03:04 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 03:02 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 03:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 03:03 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 03:19 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 03:06 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 03:24 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 03:08 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 03:12 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 03:16 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-30 03:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
-- 2026-06-30 03:16 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 03:00 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 03:29 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-30 03:34 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 03:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 03:24 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 03:13 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 03:32 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 03:18 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 03:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 03:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 03:33 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 03:06 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
+- 2026-06-30 03:22 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 03:11 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 03:23 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 03:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [天道](http://www.share.kurohicncr.top/Article/details/54739501.shtml)
-- 2026-06-30 03:15 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/25572415351.shtml)
-- 2026-06-30 03:21 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/6090151725.shtml)
-- 2026-06-30 03:22 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/93073.shtml)
-- 2026-06-30 03:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/8451925.shtml)
-- 2026-06-30 03:12 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/298526958.shtml)
-- 2026-06-30 03:01 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/806994548755.shtml)
-- 2026-06-30 03:21 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/01138305801.shtml)
-- 2026-06-30 03:24 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/03460326.shtml)
-- 2026-06-30 03:11 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/19035876772.shtml)
-- 2026-06-30 03:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/20920112425.shtml)
-- 2026-06-30 03:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/34937429227.shtml)
-- 2026-06-30 03:12 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/365891378.shtml)
-- 2026-06-30 03:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/92385540329.shtml)
-- 2026-06-30 03:14 - [一见倾心](https://www.blog.minike.top/Article/details/5851690800.shtml)
+- 2026-06-30 03:16 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/3194906110.shtml)
+- 2026-06-30 03:07 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/886075419532.shtml)
+- 2026-06-30 03:16 - [毒液2](https://www.share.minike.top/Article/details/99453683.shtml)
+- 2026-06-30 03:20 - [乔家的儿女](http://www.share.minike.top/Article/details/86595.shtml)
+- 2026-06-30 03:06 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/9179087.shtml)
+- 2026-06-30 03:14 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/86248717.shtml)
+- 2026-06-30 03:14 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/084679.shtml)
+- 2026-06-30 03:10 - [巴西绝杀日本](https://www.blog.minike.top/Article/details/93109936.shtml)
+- 2026-06-30 03:19 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/423120455894.shtml)
+- 2026-06-30 03:12 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/56080.shtml)
+- 2026-06-30 03:32 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/71681268.shtml)
+- 2026-06-30 03:24 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/774126.shtml)
+- 2026-06-30 03:30 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/92524851.shtml)
+- 2026-06-30 03:25 - [起风了](https://www.share.minike.top/Article/details/673288335.shtml)
+- 2026-06-30 03:19 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/59699069161.shtml)

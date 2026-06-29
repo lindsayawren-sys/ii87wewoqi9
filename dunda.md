@@ -1,60 +1,54 @@
-# 欧洲央行副行长Guindos：6月会议必须考虑伊朗战争对经济增长的影响
+# 苏农银行：王亮董事及行长的任职资格获核准
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-欧洲央行副行长Luis de Guindos表示，欧洲央行在决定下个月是否加息时，应仔细审视伊朗战争对经济造成的压力有多严重。 这位西班牙官员表示，在有21个成员国的欧元区，尽管通胀对能源成本飙升迅速作出反应，但经济增长受到的影响需要更长时间才会显现。他说，政策制定者不能忽视这种滞后效应。 “我们必须考虑对增长的影响，”任期将于5月底结束的Guindos周三表示。“如果你看软指
+4月8日金融一线消息，苏农银行发布公告称，王亮担任该行董事及行长的任职资格获核准。 简历显示，王亮，男，1982年2月出生，河北保定人，中共党员，研究生学历。2008年7月参加工作，历任中信银行苏州分行风险管理部员工，信贷管理部员工，人力资源部员工、招聘培训副主管，国际业务部贸易融资副主管，投资银行部直接融资业务副主管、资产管理业务副主管、资产管理业务主管，常熟支行见习行长助理
 
 ## 正文
 
-欧洲央行副行长Luis de Guindos表示，欧洲央行在决定下个月是否加息时，应仔细审视伊朗战争对经济造成的压力有多严重。
+4月8日金融一线消息，苏农银行发布公告称，王亮担任该行董事及行长的任职资格获核准。
 
-这位西班牙官员表示，在有21个成员国的欧元区，尽管通胀对能源成本飙升迅速作出反应，但经济增长受到的影响需要更长时间才会显现。
+简历显示，王亮，男，1982年2月出生，河北保定人，中共党员，研究生学历。
 
-他说，政策制定者不能忽视这种滞后效应。
+2008年7月参加工作，历任中信银行苏州分行风险管理部员工，信贷管理部员工，人力资源部员工、招聘培训副主管，国际业务部贸易融资副主管，投资银行部直接融资业务副主管、资产管理业务副主管、资产管理业务主管，常熟支行见习行长助理，常熟支行见习行长助理兼常熟东南经济开发区支行行长（主管级）；吴江农村商业银行投资银行部总经理，投资银行部总经理兼苏州与异地业务总部对公银行部总经理；苏州农村商业银行投资银行部总经理兼苏州与异地业务总部对公银行部总经理，金融市场总部副总监（主持工作）兼投资银行部、风控综合部总经理，金融市场总部总监兼投资银行部、风控综合部总经理，金融市场总部总监兼投资银行部、风控投研部总经理，金融市场总部总监兼投资银行部总经理；江南农村商业银行党委委员、副行长；扬州农村商业银行党委委员、副行长。
 
-“我们必须考虑对增长的影响，”任期将于5月底结束的Guindos周三表示。
+现任苏州农村商业银行党委副书记。
 
-“如果你看软指标、信心指标，这些指标明显显示出对增长的重要影响。
-
-” 这番言论标志着Guindos在即将结束8年任期之际发出了鸽派论调。
-
-与此同时，从执行理事会成员Isabel Schnabel到希腊央行行长Yannis Stournaras等欧洲央行官员都暗示两周后会加息，部分原因是通胀率达到3%后需要维护央行信誉。
-
-不过，一些人也看到了经济损害：欧元区商业活动正以2年半以来最快速度萎缩。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 03:24 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 03:10 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 03:16 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 03:07 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 03:11 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 03:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 03:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 03:11 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 03:15 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-30 03:22 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 03:15 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:16 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 03:25 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 03:15 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 03:06 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 03:13 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 03:07 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 03:27 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 03:16 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 03:22 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 03:18 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 03:28 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-30 03:10 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 03:15 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 03:17 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 03:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 03:06 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/84155195.shtml)
-- 2026-06-30 03:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/279546063653.shtml)
-- 2026-06-30 03:28 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/08763350937.shtml)
-- 2026-06-30 03:16 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/041543696397.shtml)
-- 2026-06-30 03:29 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/2553952867.shtml)
-- 2026-06-30 03:19 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/03298676914.shtml)
-- 2026-06-30 03:14 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/8294710325.shtml)
-- 2026-06-30 03:17 - [日本进球](https://www.share.kurohicncr.top/Article/details/900942.shtml)
-- 2026-06-30 03:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/926485521.shtml)
-- 2026-06-30 03:23 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/66878015199.shtml)
-- 2026-06-30 03:17 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/338678.shtml)
-- 2026-06-30 03:09 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/283903209237.shtml)
-- 2026-06-30 03:11 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/3070039.shtml)
-- 2026-06-30 03:29 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/31197670.shtml)
-- 2026-06-30 03:05 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/72819.shtml)
+- 2026-06-30 03:19 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/7029149.shtml)
+- 2026-06-30 03:32 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/326288797.shtml)
+- 2026-06-30 03:30 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/418145.shtml)
+- 2026-06-30 03:15 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/633851.shtml)
+- 2026-06-30 03:11 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/145917867530.shtml)
+- 2026-06-30 03:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/366471.shtml)
+- 2026-06-30 03:25 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/353162.shtml)
+- 2026-06-30 03:07 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/402201256.shtml)
+- 2026-06-30 03:22 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/097352434.shtml)
+- 2026-06-30 03:31 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/75813254494.shtml)
+- 2026-06-30 03:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/826749171744.shtml)
+- 2026-06-30 03:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/92420139.shtml)
+- 2026-06-30 03:07 - [明星大侦探第四季](http://www.share.minike.top/Article/details/51917.shtml)
+- 2026-06-30 03:31 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/163530377718.shtml)
+- 2026-06-30 03:12 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/6426924550.shtml)

@@ -1,54 +1,59 @@
-# 深交所2026全球投资者大会开幕 证监会副主席刘浩凌出席开幕式并致辞
+# 特朗普称将与伊朗讨论制裁减免 威胁对向德黑兰供武国家征收50%关税
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，深交所2026全球投资者大会在深圳开幕。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌，广东省副省长李运，深圳市常务副市长陶永欣等出席开幕式并致辞。多位中外专家学者，来
+美国总统唐纳德·特朗普表示，美国正讨论对伊朗的制裁减免，并将与德黑兰合作清除埋藏的核材料，此举回应了伊朗在停火谈判中的一项关键要求。 特朗普在社交媒体上发文表示：“我们正在并将会与伊朗讨论关税和制裁减免。” 自特朗普在2018年宣布美国退出限制伊朗核计划的协议以来，伊朗一直承受着严厉的经济制裁。解除这些制裁一直是伊朗的首要关切。 特朗普还威胁对向伊朗提供武器的国家征收50%的关
 
 ## 正文
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国总统唐纳德·特朗普表示，美国正讨论对伊朗的制裁减免，并将与德黑兰合作清除埋藏的核材料，此举回应了伊朗在停火谈判中的一项关键要求。
 
-5月28日，深交所2026全球投资者大会在深圳开幕。
+特朗普在社交媒体上发文表示：“我们正在并将会与伊朗讨论关税和制裁减免。
 
-大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌，广东省副省长李运，深圳市常务副市长陶永欣等出席开幕式并致辞。
+” 自特朗普在2018年宣布美国退出限制伊朗核计划的协议以来，伊朗一直承受着严厉的经济制裁。
 
-多位中外专家学者，来自24个国家和地区的境外监管机构和交易所、资管机构、创投机构、行业组织、上市公司等代表，以及深交所主要负责同志现场参会。
+解除这些制裁一直是伊朗的首要关切。
 
-大会为期两天，将通过主旨演讲、圆桌讨论、公司路演、科技展陈等方式，多维度展示“十五五”规划下的中国资本市场高质量发展及服务科技创新成长的投资新机遇。
+特朗普还威胁对向伊朗提供武器的国家征收50%的关税，并表示美国将与伊朗合作提取核材料。
 
-责任编辑：常福强
+“将不再有铀浓缩，美国将与伊朗一道，挖掘并清除所有深埋的（B-2轰炸机）核‘粉尘’，”他写道。
+
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 03:23 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 03:04 - [田曦薇没招了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 03:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 03:28 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 03:07 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 03:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 03:14 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 03:07 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 03:09 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 03:11 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-30 03:20 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-30 03:06 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 03:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 03:06 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 03:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 03:25 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 03:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 03:19 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 03:18 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 03:29 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 03:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 03:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 03:28 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 03:17 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 03:26 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 03:20 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/891433843869.shtml)
-- 2026-06-30 03:14 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/076549.shtml)
-- 2026-06-30 03:29 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/246730.shtml)
-- 2026-06-30 03:06 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/021489756.shtml)
-- 2026-06-30 03:02 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/14927053264.shtml)
-- 2026-06-30 03:20 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/5174642116.shtml)
-- 2026-06-30 03:08 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/522842148595.shtml)
-- 2026-06-30 03:04 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/041157.shtml)
-- 2026-06-30 03:13 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/16761.shtml)
-- 2026-06-30 03:11 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/55990954.shtml)
-- 2026-06-30 03:28 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/60624295851.shtml)
-- 2026-06-30 03:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/33200117.shtml)
-- 2026-06-30 03:06 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/82989042109.shtml)
-- 2026-06-30 03:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/0618899.shtml)
-- 2026-06-30 03:00 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/416970697.shtml)
+- 2026-06-30 03:08 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/48947891.shtml)
+- 2026-06-30 03:34 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/09697225.shtml)
+- 2026-06-30 03:28 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/227626.shtml)
+- 2026-06-30 03:08 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/092020730.shtml)
+- 2026-06-30 03:09 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/899858691.shtml)
+- 2026-06-30 03:26 - [日本进球](http://www.share.minike.top/Article/details/894922399.shtml)
+- 2026-06-30 03:26 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/32345960.shtml)
+- 2026-06-30 03:07 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/5449399.shtml)
+- 2026-06-30 03:31 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/677065508861.shtml)
+- 2026-06-30 03:26 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/20770.shtml)
+- 2026-06-30 03:31 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/425957338549.shtml)
+- 2026-06-30 03:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/19833.shtml)
+- 2026-06-30 03:22 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/48779579509.shtml)
+- 2026-06-30 03:31 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/63688803361.shtml)
+- 2026-06-30 03:10 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/09436406855.shtml)

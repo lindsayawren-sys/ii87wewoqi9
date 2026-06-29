@@ -1,59 +1,58 @@
-# 美光科技市值突破1万亿美元 瑞银预计其股价未来一年可能翻番
+# 霍尔木兹海峡仍处于封锁状态，油价在经历2020年以来最大跌幅后回升
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-美光科技的市值在过去一年飙升约840%，瑞银分析师预计这家存储芯片巨头的股价未来12个月将上涨逾一倍。 瑞银周二将美光科技的目标价上调至1，625美元，创华尔街最高水平，较上周收盘价高出逾116%。这一目标价是瑞银此前535美元目标价的三倍，意味着美光的市值将达到约1.8万亿美元。 若达到这一水平，美光的市值将超过Meta Platforms、特斯拉和伯克希尔等公司目前的市值。
+油价在经历2020年4月以来最大单日跌幅后反弹，因霍尔木兹海峡仍基本处于封锁状态，且以色列对黎巴嫩的袭击恐破坏中东脆弱的停火协议。 布伦特原油在周三暴跌13%后，回升至每桶97美元附近；美国西德克萨斯中质原油（WTI）也逼近97美元。伊朗法尔斯通讯社报道称，以色列发动袭击后，油轮已无法通过霍尔木兹海峡，但美国副总统万斯反驳了这一说法，称“我们看到海峡开始重新开放的迹象”。 这条
 
 ## 正文
 
-美光科技的市值在过去一年飙升约840%，瑞银分析师预计这家存储芯片巨头的股价未来12个月将上涨逾一倍。
+油价在经历2020年4月以来最大单日跌幅后反弹，因霍尔木兹海峡仍基本处于封锁状态，且以色列对黎巴嫩的袭击恐破坏中东脆弱的停火协议。
 
-瑞银周二将美光科技的目标价上调至1，625美元，创华尔街最高水平，较上周收盘价高出逾116%。
+布伦特原油在周三暴跌13%后，回升至每桶97美元附近；美国西德克萨斯中质原油（WTI）也逼近97美元。
 
-这一目标价是瑞银此前535美元目标价的三倍，意味着美光的市值将达到约1.8万亿美元。
+伊朗法尔斯通讯社报道称，以色列发动袭击后，油轮已无法通过霍尔木兹海峡，但美国副总统万斯反驳了这一说法，称“我们看到海峡开始重新开放的迹象”。
 
-若达到这一水平，美光的市值将超过Meta Platforms、特斯拉和伯克希尔等公司目前的市值。
+这条全球约五分之一原油和液化天然气的运输要道（在美国和以色列2月底首次袭击伊朗前）几乎陷入停摆，引发了史上最严重的石油市场动荡。
 
-受瑞银上调目标价提振，美光股价周二大涨19%，创下2011年11月以来最大单日涨幅，市值首次突破1万亿美元。
+万斯将率领美国代表团于当地时间周六上午前往伊斯兰堡，与伊朗方面举行直接会谈。
 
-美光股价5月累计上涨逾70%，有望创下自1987年12月以来最大单月涨幅。
+BOK金融证券公司高级交易副总裁丹尼斯・基斯勒表示：“事情还没结束。
 
-该股今年以来已上涨逾两倍，在2025年大涨近240%。
+只有看到海峡完全畅通、毫无阻碍，我们才会看到WTI原油价格跌至80美元出头，而我认为未来两周内不会出现这种情况。
 
-瑞银分析师Timothy Arcuri在报告中写道，随着人工智能推动整个存储芯片行业结构性变化日趋明朗，市场将给予美光更“正常”的估值倍数，美光料继续迎来估值上修。
+” 零星冲突仍在持续，包括以色列在黎巴嫩的军事行动以及伊朗对海湾国家的袭击。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 03:05 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 03:06 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 03:20 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 03:16 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 03:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-30 03:03 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 03:26 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 03:07 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 03:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 03:26 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
-- 2026-06-30 03:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-30 03:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 03:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-30 03:21 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 03:31 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 03:11 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 03:14 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 03:25 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 03:06 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 03:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 03:10 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 03:19 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 03:19 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-30 03:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/42114.shtml)
-- 2026-06-30 03:14 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/56615.shtml)
-- 2026-06-30 03:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/8880924858.shtml)
-- 2026-06-30 03:27 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/767924.shtml)
-- 2026-06-30 03:14 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/806490668200.shtml)
-- 2026-06-30 03:28 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/29843748.shtml)
-- 2026-06-30 03:12 - [巴西vs日本](https://www.share.minike.top/Article/details/532467358934.shtml)
-- 2026-06-30 03:14 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/686253153754.shtml)
-- 2026-06-30 03:22 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/137681438.shtml)
-- 2026-06-30 03:20 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/98983188992.shtml)
-- 2026-06-30 03:24 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/1279269.shtml)
-- 2026-06-30 03:20 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/4232882.shtml)
-- 2026-06-30 03:04 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/701967340231.shtml)
-- 2026-06-30 03:22 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/79899.shtml)
-- 2026-06-30 03:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/85070.shtml)
+- 2026-06-30 03:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/532455711.shtml)
+- 2026-06-30 03:15 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/569591557096.shtml)
+- 2026-06-30 03:30 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/138378637.shtml)
+- 2026-06-30 03:13 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/48181.shtml)
+- 2026-06-30 03:30 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/30800909.shtml)
+- 2026-06-30 03:24 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/02488646.shtml)
+- 2026-06-30 03:20 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/79763702.shtml)
+- 2026-06-30 03:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/93734.shtml)
+- 2026-06-30 03:30 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/5381614430.shtml)
+- 2026-06-30 03:33 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/22346.shtml)
+- 2026-06-30 03:08 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/6200349.shtml)
+- 2026-06-30 03:21 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/218063497078.shtml)
+- 2026-06-30 03:09 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/5353742146.shtml)
+- 2026-06-30 03:33 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/603275.shtml)
+- 2026-06-30 03:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/853850.shtml)

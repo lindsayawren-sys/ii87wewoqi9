@@ -1,57 +1,61 @@
-# 伊朗官员：最终与美国签署的协议必定符合伊朗国家利益
+# 联合利华收购软糖补充剂品牌Grüns
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰5月27日电据伊朗塔斯尼姆通讯社27日报道，伊朗议会国家安全和外交政策委员会成员布鲁杰迪表示，最终与美国签署的协议必定符合伊朗国家利益。 布鲁杰迪说，根据伊朗与美国初步协议草案，美国第一步将承诺，实现在包括黎巴嫩在内的所有战线为期60天的全面停火。该协议草案还要求解冻伊朗大部分被冻结的资产并解除
+联合利华周四宣布，已签署协议收购补充剂公司Grüns Nutrition Inc．。这家消费品巨头正持续推进其“向高端和高增长领域”的战略转型。 Grüns成立于2023年，创始人为Chad Janis。该公司以软糖形式提供营养补充产品，涵盖成人和儿童系列。联合利华表示，Grüns创立的初衷是认识到补充剂行业最大的障碍不是认知度，而是消费者依从性，因此致力于让日常营养补充成为一
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+联合利华周四宣布，已签署协议收购补充剂公司Grüns Nutrition Inc．。
 
-新华社德黑兰5月27日电据伊朗塔斯尼姆通讯社27日报道，伊朗议会国家安全和外交政策委员会成员布鲁杰迪表示，最终与美国签署的协议必定符合伊朗国家利益。
+这家消费品巨头正持续推进其“向高端和高增长领域”的战略转型。
 
-布鲁杰迪说，根据伊朗与美国初步协议草案，美国第一步将承诺，实现在包括黎巴嫩在内的所有战线为期60天的全面停火。
+Grüns成立于2023年，创始人为Chad Janis。
 
-该协议草案还要求解冻伊朗大部分被冻结的资产并解除海上封锁。
+该公司以软糖形式提供营养补充产品，涵盖成人和儿童系列。
 
-布鲁杰迪说，伊朗外交机构和国家体制不会根据美国总统特朗普的帖文作出决策。
+联合利华表示，Grüns创立的初衷是认识到补充剂行业最大的障碍不是认知度，而是消费者依从性，因此致力于让日常营养补充成为一项轻松、愉悦的日常习惯。
 
-对伊朗来说，重要的是谈判最终结果，最终签署的任何文件都必定是在伊朗体制的红线框架内制定的，并且符合伊朗人民和国家利益。
+在短短时间内，Grüns已成为美国绿色蔬菜补充剂类别中最大的品牌之一，建立了一个以数字原生、文化驱动为特色的品牌，深受消费者认同。
 
-（完）责任编辑：宋雅芳
+交易条款与战略意义 联合利华未披露交易的具体财务条款。
+
+该收购预计将于今年晚些时候完成，尚需获得常规监管批准及其他交割条件。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 03:14 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 03:08 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 03:20 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 03:06 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 03:22 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 03:07 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 03:28 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 03:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 03:25 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 03:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 03:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 03:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 03:17 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 03:11 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 03:14 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
+- 2026-06-30 03:14 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 03:14 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 03:31 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 03:32 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 03:16 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 03:24 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 03:12 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 03:15 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 03:15 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 03:19 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 03:18 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 03:22 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/71081.shtml)
-- 2026-06-30 03:03 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/898675.shtml)
-- 2026-06-30 03:11 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/579515132.shtml)
-- 2026-06-30 03:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/48343168.shtml)
-- 2026-06-30 03:00 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/62287.shtml)
-- 2026-06-30 03:26 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/9653111651.shtml)
-- 2026-06-30 03:21 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/5208108.shtml)
-- 2026-06-30 03:08 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/435468154.shtml)
-- 2026-06-30 03:27 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/27984334875.shtml)
-- 2026-06-30 03:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/97984.shtml)
-- 2026-06-30 03:22 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/7162997823.shtml)
-- 2026-06-30 03:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/9736235.shtml)
-- 2026-06-30 03:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/418870995606.shtml)
-- 2026-06-30 03:19 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/18109.shtml)
-- 2026-06-30 03:09 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/898817653619.shtml)
+- 2026-06-30 03:14 - [日本世界杯淘汰赛历史0胜](http://www.blog.minike.top/Article/details/61506471.shtml)
+- 2026-06-30 03:15 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/9920271678.shtml)
+- 2026-06-30 03:28 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/311193549.shtml)
+- 2026-06-30 03:30 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/023625.shtml)
+- 2026-06-30 03:11 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/25984321.shtml)
+- 2026-06-30 03:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/30112352.shtml)
+- 2026-06-30 03:25 - [内马尔替补](http://www.blog.minike.top/Article/details/23804664.shtml)
+- 2026-06-30 03:12 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/30207116.shtml)
+- 2026-06-30 03:12 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/675738740015.shtml)
+- 2026-06-30 03:18 - [日本淘汰](http://www.share.minike.top/Article/details/40470757884.shtml)
+- 2026-06-30 03:10 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/9284755238.shtml)
+- 2026-06-30 03:08 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/1374064895.shtml)
+- 2026-06-30 03:23 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/73378091577.shtml)
+- 2026-06-30 03:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/962859997793.shtml)
+- 2026-06-30 03:31 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/0371472801.shtml)

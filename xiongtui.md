@@ -1,53 +1,56 @@
-# 工商银行成功发行600亿元二级资本债券
+# 三次零出价流拍！华运金租股权无人接？
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-来源：中国工商银行 近日，工商银行在全国银行间市场成功发行600亿元二级资本债券，创今年以来全市场同品种债券最大发行规模。本期债券品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率1.90%。 本次发行得到市场高度认可，获得近160家各类投资者的踊跃认购，全场认购倍数近2倍，彰显了工商银行在资本市场的良好形象和市场影响力。工商银行将通过本次发行进一步优化资本
+来源：金融时报 原标题：三次零出价流拍！这家金融机构股权无人接？ 在航天金租（现宏泰新航金租）、天府金租等金融租赁公司近期纷纷完成股权转让之后，华运金租的股权处置进程暂时陷入僵局：三次调价、三次流拍。 《金融时报》记者注意到，泰富重装集团持有的华运金租21%股权近期在京东资产交易平台公开拍卖，经过3亿元、2.4亿元、2亿元三次价格下调后，最终流拍。对应实缴3亿元注册资本21%的
 
 ## 正文
 
-来源：中国工商银行 近日，工商银行在全国银行间市场成功发行600亿元二级资本债券，创今年以来全市场同品种债券最大发行规模。
+来源：金融时报 原标题：三次零出价流拍！
 
-本期债券品种为10年期固定利率债券，在第5年末附有条件的发行人赎回权，票面利率1.90%。
+这家金融机构股权无人接？
 
-本次发行得到市场高度认可，获得近160家各类投资者的踊跃认购，全场认购倍数近2倍，彰显了工商银行在资本市场的良好形象和市场影响力。
+在航天金租（现宏泰新航金租）、天府金租等金融租赁公司近期纷纷完成股权转让之后，华运金租的股权处置进程暂时陷入僵局：三次调价、三次流拍。
 
-工商银行将通过本次发行进一步优化资本结构、增强风险抵御能力、夯实服务实体经济的基础。
+《金融时报》记者注意到，泰富重装集团持有的华运金租21%股权近期在京东资产交易平台公开拍卖，经过3亿元、2.4亿元、2亿元三次价格下调后，最终流拍。
 
-工商银行将在监管机构的指导下，持续强化资本管理效能，提升风险防范和可持续发展能力，积极发挥领军银行作用，加大对实体经济的优质金融供给，为经济社会高质量发展贡献力量。
+对应实缴3亿元注册资本21%的股权，折价超三成仍无人问津。
 
-责任编辑：秦艺
+从首家纯民营金租的高光起步，到不良率曾高达99.15%，华运金租股权流拍的背后，折射出个别金融租赁公司治理失范、风险失控后的发展困境。
+
+市场人士分析认为，股权高度分散、无实控人状态，或是华运金租风险处置与股权重组的核心掣肘。
+
+公开信息显示，华运金租目前有六家股东，华讯方舟科技持股30%为第一大股东，此次转让股权的泰富重装集团与协合风电投资各持股21%并列第二，无单一股东持股比例超过51%。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 03:08 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 03:13 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 03:25 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 03:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 03:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 03:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 03:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 03:15 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 03:24 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
-- 2026-06-30 03:26 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 03:29 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 03:17 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 03:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 03:34 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 03:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 03:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 03:13 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 03:25 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 03:27 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 03:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/55117.shtml)
-- 2026-06-30 03:17 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/66378188645.shtml)
-- 2026-06-30 03:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/099732962.shtml)
-- 2026-06-30 03:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/728413426.shtml)
-- 2026-06-30 03:05 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/723813.shtml)
-- 2026-06-30 03:15 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/794143954281.shtml)
-- 2026-06-30 03:10 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/92593950714.shtml)
-- 2026-06-30 03:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/29303.shtml)
-- 2026-06-30 03:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/22429.shtml)
-- 2026-06-30 03:09 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/52729127679.shtml)
-- 2026-06-30 03:09 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/1568807.shtml)
-- 2026-06-30 03:22 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/50561.shtml)
-- 2026-06-30 03:20 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/22530.shtml)
-- 2026-06-30 03:00 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/09373.shtml)
-- 2026-06-30 03:19 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/899335264397.shtml)
+- 2026-06-30 03:29 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/317713152888.shtml)
+- 2026-06-30 03:25 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/73814236143.shtml)
+- 2026-06-30 03:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/8094814.shtml)
+- 2026-06-30 03:29 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1919967123.shtml)
+- 2026-06-30 03:13 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/756103584.shtml)
+- 2026-06-30 03:33 - [点菜也要教吗](https://www.blog.minike.top/Article/details/6803570410.shtml)
+- 2026-06-30 03:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/560070737.shtml)
+- 2026-06-30 03:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/141593447.shtml)
+- 2026-06-30 03:32 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/0162581.shtml)
+- 2026-06-30 03:17 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/14520.shtml)
+- 2026-06-30 03:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/417704467.shtml)
+- 2026-06-30 03:25 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/55786000.shtml)
+- 2026-06-30 03:17 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/43269703119.shtml)
+- 2026-06-30 03:33 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/622771561.shtml)
+- 2026-06-30 03:35 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/07438668.shtml)

@@ -1,57 +1,58 @@
-# 提升应对气候变化能力 粤港澳大湾区、长三角气温指数（系列）今天发布
+# 万国邮联首评世界最佳邮票 中国邮票摘得桂冠
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-记者从中国气象局了解到，今天，国家气象信息中心、复旦大学、广期所等共同联合研发的粤港澳大湾区、长三角气温指数(系列)正式发布。该系列面向粤港澳大湾区、长三角两大核心经济圈，可为天气衍生品的研发和上市提供数据支持，助力能源、电力、农业、旅游、健康、保险等气象敏感型行业管理天气风险，提升实体经济应对气候变化能力。粤港澳大湾区金融产业集聚，人口密度大，气温变化对农业生产、能源消费、交
+中新社北京4月9日电 据中国邮政9日消息，2025年世界最佳邮票评选结果近日揭晓。中国邮政发行的《世界文化遗产——北京中轴线》特种邮票第5枚《钟鼓楼》摘得“2025年世界最佳邮票”桂冠和“最佳混合印刷邮票”类别第1名。 该评选由万国邮政联盟、世界集邮发展协会、南非集邮联合会共同举办。万国邮政联盟于2025年首次在全球范围推出世界最佳邮票评选活动，来自该联盟66个成员国家(地区)
 
 ## 正文
 
-记者从中国气象局了解到，今天，国家气象信息中心、复旦大学、广期所等共同联合研发的粤港澳大湾区、长三角气温指数(系列)正式发布。
+中新社北京4月9日电 据中国邮政9日消息，2025年世界最佳邮票评选结果近日揭晓。
 
-该系列面向粤港澳大湾区、长三角两大核心经济圈，可为天气衍生品的研发和上市提供数据支持，助力能源、电力、农业、旅游、健康、保险等气象敏感型行业管理天气风险，提升实体经济应对气候变化能力。
+中国邮政发行的《世界文化遗产——北京中轴线》特种邮票第5枚《钟鼓楼》摘得“2025年世界最佳邮票”桂冠和“最佳混合印刷邮票”类别第1名。
 
-粤港澳大湾区金融产业集聚，人口密度大，气温变化对农业生产、能源消费、交通运输及居民生活影响显著，市场主体对气温风险管理的需求日益迫切。
+该评选由万国邮政联盟、世界集邮发展协会、南非集邮联合会共同举办。
 
-长三角区域一体化程度高，能源、电力、农业、保险、旅游等产业对气温波动高度敏感。
+万国邮政联盟于2025年首次在全球范围推出世界最佳邮票评选活动，来自该联盟66个成员国家(地区)以及联合国邮局的共计195枚邮票(纪念张)参加评选。
 
-气温指数能客观反映该区域气温的变化情况，同时可作为以气温等为标的天气期货的标的指数，助力气候敏感型企业开展风险管理。
+评选活动设立“最佳创新邮票”“最佳纪念张”“最佳凹版印刷邮票”“最佳胶版印刷邮票”和“最佳混合印刷邮票”5个类别，每个类别分别评出前3名。
 
-首批共发布5条指数。
+国际评审团由世界集邮发展协会指定的学术专家、设计艺术家和国际集邮联合会认可的集邮评审员组成，在每个类别的获奖邮票(纪念张)中最终选出1枚“世界最佳邮票”。
 
-其中，粤港澳大湾区气温指数包括日均温指数和制冷指数，主要适用范围包括香港特别行政区、澳门特别行政区和广东省9市；长三角气温指数包括日均温指数、制冷指数和制热指数，主要适用范围包括上海、江苏、浙江和安徽全域。
-
-其他区域也可参考适用该系列指数。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 03:10 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 03:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-30 03:00 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 03:15 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 03:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 03:29 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-30 03:08 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 03:05 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 03:22 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-30 03:05 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 03:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 03:06 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 03:31 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 03:21 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 03:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 03:30 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 03:33 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 03:28 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 03:19 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 03:31 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-30 03:07 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 03:34 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
+- 2026-06-30 03:06 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 03:23 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/9981485.shtml)
-- 2026-06-30 03:27 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/39316.shtml)
-- 2026-06-30 03:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/151680109575.shtml)
-- 2026-06-30 03:29 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/38784.shtml)
-- 2026-06-30 03:01 - [啊啊啊](https://www.blog.minike.top/Article/details/5459338.shtml)
-- 2026-06-30 03:02 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/296873656316.shtml)
-- 2026-06-30 03:10 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/3936275071.shtml)
-- 2026-06-30 03:16 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/573856350.shtml)
-- 2026-06-30 03:07 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/95232421.shtml)
-- 2026-06-30 03:02 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/05788.shtml)
-- 2026-06-30 03:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/147608914.shtml)
-- 2026-06-30 03:06 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/600589337.shtml)
-- 2026-06-30 03:06 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/85700.shtml)
-- 2026-06-30 03:07 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/738309.shtml)
-- 2026-06-30 03:10 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/676057725.shtml)
+- 2026-06-30 03:29 - [女心理师](https://www.blog.kurohicncr.top/Article/details/9189207360.shtml)
+- 2026-06-30 03:11 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/5127374.shtml)
+- 2026-06-30 03:11 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/143299.shtml)
+- 2026-06-30 03:22 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/6004508100.shtml)
+- 2026-06-30 03:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/28917959557.shtml)
+- 2026-06-30 03:16 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/32978787.shtml)
+- 2026-06-30 03:06 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/6645327813.shtml)
+- 2026-06-30 03:06 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/90616.shtml)
+- 2026-06-30 03:22 - [日本领先巴西](http://www.blog.minike.top/Article/details/65770.shtml)
+- 2026-06-30 03:07 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/760757780.shtml)
+- 2026-06-30 03:23 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/40971548633.shtml)
+- 2026-06-30 03:10 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/134879789700.shtml)
+- 2026-06-30 03:23 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/567261.shtml)
+- 2026-06-30 03:32 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/8257959897.shtml)
+- 2026-06-30 03:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/462362.shtml)

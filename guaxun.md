@@ -1,60 +1,58 @@
-# 巴西年通胀率攀升至4.64%
+# 习近平在全军高级干部培训班开班式上发表重要讲话强调 开展思想整风 深化政治整训 以崭新政治面貌迎接建军一百周年
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新社圣保罗5月27日电 (记者 林春茵)巴西地理统计局(IBGE)27日公布数据显示，被视为官方通胀预览指标的广义消费者物价指数15(IPCA-15)5月环比上涨0.62%，虽低于4月的0.89%，但仍高于市场预期。巴西年化通胀率已升至4.64%，高于央行4.5%的官方目标上限。数据显示，食品、住房和医疗价格的上涨为推动通胀的主要因素。其中，食品和饮料价格上涨1.38%，住房
+全军高级干部培训班8日上午在国防大学开班。中共中央总书记、国家主席、中央军委主席习近平出席开班式并发表重要讲话。他强调，要以新时代中国特色社会主义思想为指导，深入贯彻新时代强军思想，开展思想整风，深化政治整训，加强我军干部队伍革命性锻造，始终保持人民军队纯洁光荣，以崭新政治面貌迎接建军一百周年。 习近平指出，我党我军是用理想信念凝聚起来的，加入这个党、这支军队，就要笃信马克思主
 
 ## 正文
 
-中新社圣保罗5月27日电 (记者 林春茵)巴西地理统计局(IBGE)27日公布数据显示，被视为官方通胀预览指标的广义消费者物价指数15(IPCA-15)5月环比上涨0.62%，虽低于4月的0.89%，但仍高于市场预期。
+全军高级干部培训班8日上午在国防大学开班。
 
-巴西年化通胀率已升至4.64%，高于央行4.5%的官方目标上限。
+中共中央总书记、国家主席、中央军委主席习近平出席开班式并发表重要讲话。
 
-数据显示，食品、住房和医疗价格的上涨为推动通胀的主要因素。
+他强调，要以新时代中国特色社会主义思想为指导，深入贯彻新时代强军思想，开展思想整风，深化政治整训，加强我军干部队伍革命性锻造，始终保持人民军队纯洁光荣，以崭新政治面貌迎接建军一百周年。
 
-其中，食品和饮料价格上涨1.38%，住房上涨1.03%，医疗与个人护理上涨1.05%。
+习近平指出，我党我军是用理想信念凝聚起来的，加入这个党、这支军队，就要笃信马克思主义，就要忠诚于党的信仰、党的组织、党的事业。
 
-住房类通胀则主要受电价上涨推动。
+要认真学习党的创新理论，掌握贯穿其中的马克思主义立场观点方法，以理论上的清醒保证政治上的坚定。
 
-由于发电成本上升，巴西电力系统实行“黄色电价旗”制度，根据规定，每消耗100千瓦时(kWh)电力，将额外加收1.885雷亚尔。
+军队领导干部特别是高级干部要带头严肃党内政治生活，当好讲真话的表率，涵养能容人的雅量，营造说实情、建诤言、敢斗争的浓厚氛围。
 
-居民电价随之上涨2.16%，成为本月最大单项推动因素。
+习近平强调，我们党是始终代表最广大人民根本利益的马克思主义政党，没有任何自己的特殊利益，一切谋私贪腐的思想和行为都同党的性质宗旨格格不入。
 
-经济专家分析指出，巴西通胀加速幅度超出预期，今年以来食品涨价已扩散至多个品类，除季节性因素外，还受到供需关系、局部气候问题以及肉类出口增加影响。
+军队各级干部要自觉摆正位置，站稳群众立场，克服一切脱离群众的私心杂念。
 
 ## 相关推荐
 
-- 2026-06-30 03:20 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-30 03:00 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 03:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 03:09 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 03:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 03:20 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 03:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 03:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 03:01 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 03:24 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 03:02 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 03:12 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-30 03:19 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 03:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 03:25 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 03:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 03:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 03:06 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 03:09 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 03:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 03:35 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 03:18 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 03:29 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 03:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 03:23 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 03:31 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:03 - [扫黑风暴](http://www.blog.minike.top/Article/details/9534806.shtml)
-- 2026-06-30 03:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/93237312.shtml)
-- 2026-06-30 03:02 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/06490268210.shtml)
-- 2026-06-30 03:02 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/170254008.shtml)
-- 2026-06-30 03:16 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/7726673583.shtml)
-- 2026-06-30 03:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/4797509.shtml)
-- 2026-06-30 03:20 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/6037090.shtml)
-- 2026-06-30 03:03 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/4943831566.shtml)
-- 2026-06-30 03:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/80122857.shtml)
-- 2026-06-30 03:26 - [《男人至死是傻得儿》](https://www.blog.kurohicncr.top/Article/details/414806204100.shtml)
-- 2026-06-30 03:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/586131.shtml)
-- 2026-06-30 03:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/870061.shtml)
-- 2026-06-30 03:06 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/647357818285.shtml)
-- 2026-06-30 03:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/343048.shtml)
-- 2026-06-30 03:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/94740372.shtml)
+- 2026-06-30 03:21 - [巴西绝杀](https://www.share.minike.top/Article/details/216079.shtml)
+- 2026-06-30 03:08 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/14571.shtml)
+- 2026-06-30 03:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/66188.shtml)
+- 2026-06-30 03:21 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/999015438.shtml)
+- 2026-06-30 03:08 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/059373.shtml)
+- 2026-06-30 03:11 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/49370520216.shtml)
+- 2026-06-30 03:24 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/7876889088.shtml)
+- 2026-06-30 03:15 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/654617.shtml)
+- 2026-06-30 03:14 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/10080285185.shtml)
+- 2026-06-30 03:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/30900764771.shtml)
+- 2026-06-30 03:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/13021404.shtml)
+- 2026-06-30 03:09 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/22761928900.shtml)
+- 2026-06-30 03:29 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/76894066769.shtml)
+- 2026-06-30 03:18 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/40548475.shtml)
+- 2026-06-30 03:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/375467007146.shtml)

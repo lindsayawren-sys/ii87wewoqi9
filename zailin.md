@@ -1,58 +1,51 @@
-# Powerfleet与埃森哲达成战略合作，共推中欧智能安全解决方案
+# 鲁比奥与北约秘书长吕特讨论伊朗问题以及与盟友的“责任转移”
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-AIoT（人工智能物联网）SaaS移动资产公司Powerfleet， Inc．（纳斯达克代码：AIOT；约翰内斯堡证券交易所代码：PWR）今日宣布，与全球专业服务公司埃森哲（Accenture）达成战略合作，共同拓展中欧地区的智能安全技术。根据协议，埃森哲已选定Powerfleet为其战略安全解决方案合作伙伴，将向其企业客户推广Powerfleet的端到端产品组合，包括互联仓库
+美国国务院发表声明称，国务卿鲁比奥与北约秘书长马克·吕特在周三的会晤中讨论了美国在伊朗的军事行动，以及“加强与北约盟国的协调和责任转移”。 声明称，二人还讨论了通过谈判结束俄乌冲突的努力。责任编辑：李桐
 
 ## 正文
 
-AIoT（人工智能物联网）SaaS移动资产公司Powerfleet， Inc．（纳斯达克代码：AIOT；约翰内斯堡证券交易所代码：PWR）今日宣布，与全球专业服务公司埃森哲（Accenture）达成战略合作，共同拓展中欧地区的智能安全技术。
+美国国务院发表声明称，国务卿鲁比奥与北约秘书长马克·吕特在周三的会晤中讨论了美国在伊朗的军事行动，以及“加强与北约盟国的协调和责任转移”。
 
-根据协议，埃森哲已选定Powerfleet为其战略安全解决方案合作伙伴，将向其企业客户推广Powerfleet的端到端产品组合，包括互联仓库和道路安全解决方案，并计划未来进一步扩大合作规模。
+声明称，二人还讨论了通过谈判结束俄乌冲突的努力。
 
-作为合作的核心举措，Powerfleet的技术将集成至埃森哲位于米兰的创新与技术中心。
-
-该中心是埃森哲展示前沿解决方案的旗舰设施，客户将能够亲身体验互联安全、风险降低和运营效率提升的实际应用。
-
-Powerfleet首席执行官Steve Towe表示：“与埃森哲的合作是对我们技术和愿景的有力验证。
-
-通过将我们的解决方案嵌入埃森哲的创新生态系统，我们正在加速为中欧及其他地区的企业提供更智能、更安全的运营方案，重点关注互联仓库和道路作业环境。
-
-” 埃森哲制造与运营咨询经理Tomasso Cesati强调：“作为Powerfleet的合作伙伴，埃森哲提供集成、协调、治理和可扩展性，将详细的现场数据转化为企业级的价值创造。
-
-” 此次合作基于Powerfleet强劲的业务增长势头。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 03:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 03:28 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 03:13 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 03:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 03:10 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 03:22 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 03:20 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 03:28 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 03:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-30 03:08 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 03:27 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 03:33 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 03:24 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-30 03:34 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-30 03:27 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 03:31 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 03:14 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 03:24 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 03:07 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 03:17 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 03:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 03:24 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 03:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 03:35 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 03:34 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/11939497.shtml)
-- 2026-06-30 03:11 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/251742092.shtml)
-- 2026-06-30 03:04 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/8786884.shtml)
-- 2026-06-30 03:14 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/25734.shtml)
-- 2026-06-30 03:26 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/42840.shtml)
-- 2026-06-30 03:15 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/74150903872.shtml)
-- 2026-06-30 03:04 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/702596833707.shtml)
-- 2026-06-30 03:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/710556809370.shtml)
-- 2026-06-30 03:28 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/8317299712.shtml)
-- 2026-06-30 03:29 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/334938705.shtml)
-- 2026-06-30 03:23 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/77369073.shtml)
-- 2026-06-30 03:09 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/586828.shtml)
-- 2026-06-30 03:16 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/0911238639.shtml)
-- 2026-06-30 03:01 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/44858.shtml)
-- 2026-06-30 03:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/671169989.shtml)
+- 2026-06-30 03:22 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/907207149829.shtml)
+- 2026-06-30 03:16 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/55984.shtml)
+- 2026-06-30 03:24 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/78693713818.shtml)
+- 2026-06-30 03:29 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/48342450.shtml)
+- 2026-06-30 03:28 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/976411.shtml)
+- 2026-06-30 03:23 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/64563934.shtml)
+- 2026-06-30 03:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/68627.shtml)
+- 2026-06-30 03:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/523503987.shtml)
+- 2026-06-30 03:06 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/9212602.shtml)
+- 2026-06-30 03:06 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/692015520.shtml)
+- 2026-06-30 03:10 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/87063302.shtml)
+- 2026-06-30 03:07 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/770896.shtml)
+- 2026-06-30 03:27 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/11345.shtml)
+- 2026-06-30 03:16 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/63235.shtml)
+- 2026-06-30 03:14 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/913830924456.shtml)

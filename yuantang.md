@@ -1,58 +1,56 @@
-# 一名谷歌工程师被起诉 涉嫌利用内幕消息在Polymarket平台下注
+# 皇氏集团从“减亏”到巨亏，祸起一家合营企业
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-一名谷歌软件工程师被起诉，因其涉嫌在Polymarket上进行内幕交易：通过押注去年最热门的互联网搜索主题之一，获利超过100万美元。 纽约联邦法院周三解封了对Michele Spagnuolo的起诉书。现年36岁的Spagnuolo已在联邦治安法官处过堂，并以225万美元的保释金取保候审。 Spagnuolo的律师Mike Ferrara拒绝置评。 根据起诉书，身为意大利公民
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。 今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏
 
 ## 正文
 
-一名谷歌软件工程师被起诉，因其涉嫌在Polymarket上进行内幕交易：通过押注去年最热门的互联网搜索主题之一，获利超过100万美元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-纽约联邦法院周三解封了对Michele Spagnuolo的起诉书。
+来源：证券之星 近日，皇氏集团（维权）（002329.SZ）发布的一则业绩预告修正公告，再次将原本改善的业绩“打回原形”。
 
-现年36岁的Spagnuolo已在联邦治安法官处过堂，并以225万美元的保释金取保候审。
+今年1月，皇氏集团发布公告称，预计2025年度归母净利润亏损1.9亿元至2.8亿元，虽然仍在亏损，但较2024年同期6.81亿元的巨亏已有大幅收窄。
 
-Spagnuolo的律师Mike Ferrara拒绝置评。
+然而，短短两个月后，皇氏集团直接将亏损额修正至4.2亿元至4.9亿元，修正幅度超过75%。
 
-根据起诉书，身为意大利公民的Spagnuolo于2014年加入Alphabet Inc．旗下的谷歌。
+证券之星注意到，受限于年度审计工作尚未全面开展，皇氏集团对泰安数智城市运营有限公司（以下简称“数智运营”）的长期股权投资减值测算并不准确完整。
 
-在押注谷歌的2025年搜索量最高人物是歌手D4vd时，他有权限访问追踪用户搜索的公司数据。
+随着独立评估机构介入，数智运营的可收回金额远低于此前估算，这笔计补充提直接吞噬了公司数亿元利润。
 
-上月，D4vd（真名David Anthony Burke）被控谋杀一名14岁女孩；他对此表示不认罪。
+数智运营是一家怎样的公司，能让皇氏集团在业绩预告发布后两个月内被迫“紧急加亏”？
 
-检方称，当时Polymarket判定D4vd超过教教皇、Kendrick Lamar等人，登顶人物搜索榜的概率概率为“几乎为零”。
+而这家昔日“水牛奶第一股”的经营，又将驶向什么方向？
 
 ## 相关推荐
 
-- 2026-06-30 03:01 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 03:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 03:27 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 03:15 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 03:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 03:29 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 03:00 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 03:24 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:23 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 03:09 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-30 03:15 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 03:23 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 03:08 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 03:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 03:33 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-30 03:06 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 03:26 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 03:11 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 03:22 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 03:18 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 03:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 03:29 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:22 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/11582.shtml)
-- 2026-06-30 03:02 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/70107566.shtml)
-- 2026-06-30 03:00 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/468827.shtml)
-- 2026-06-30 03:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/7570233833.shtml)
-- 2026-06-30 03:11 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/2519221.shtml)
-- 2026-06-30 03:09 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/145062164868.shtml)
-- 2026-06-30 03:24 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/17531429.shtml)
-- 2026-06-30 03:03 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/60622195.shtml)
-- 2026-06-30 03:22 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/348560571659.shtml)
-- 2026-06-30 03:10 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/736429074844.shtml)
-- 2026-06-30 03:09 - [月亮](http://www.blog.kurohicncr.top/Article/details/683754622.shtml)
-- 2026-06-30 03:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/138706873.shtml)
-- 2026-06-30 03:21 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/79830523.shtml)
-- 2026-06-30 03:05 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/99735.shtml)
-- 2026-06-30 03:06 - [时光音乐会](http://www.share.minike.top/Article/details/67067.shtml)
+- 2026-06-30 03:28 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/43288.shtml)
+- 2026-06-30 03:19 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/593419482377.shtml)
+- 2026-06-30 03:11 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/3869491.shtml)
+- 2026-06-30 03:13 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/94498966111.shtml)
+- 2026-06-30 03:17 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/965631135.shtml)
+- 2026-06-30 03:35 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/295967600.shtml)
+- 2026-06-30 03:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/45048085.shtml)
+- 2026-06-30 03:33 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/031887.shtml)
+- 2026-06-30 03:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/58226897975.shtml)
+- 2026-06-30 03:27 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/69292690.shtml)
+- 2026-06-30 03:10 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/8840612.shtml)
+- 2026-06-30 03:35 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/487533.shtml)
+- 2026-06-30 03:20 - [美人鱼](https://www.share.minike.top/Article/details/641079139.shtml)
+- 2026-06-30 03:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/50404723150.shtml)
+- 2026-06-30 03:19 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/661454814942.shtml)

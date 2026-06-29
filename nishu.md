@@ -1,56 +1,49 @@
-# 拼多多发布Q1财报：“千亿扶持”加码惠商助农，新拼姆助力供应链转型升级
+# 大美边疆看我家丨海拔4200米偶遇“岩壁精灵”北山羊
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月27日，拼多多发布截至3月31日的2026年第一季度财报。受益于“千亿扶持”等战略的持续投入，平台生态及供应链体系实现稳步向好发展，拼多多第一季度营收达到1062亿元。 去年12月，在年度股东大会上，拼多多宣布实行联席董事长制度，并将公司的战略重心聚焦到“重仓中国供应链”，力争三年再造一个拼多多。今年一季度，新拼姆专项公司正式落地上海，品牌自营业务稳步推进，“三年再造拼多多
+发布时间：2026年04月09日 15:13 来源：中国新闻网 4月7日，新疆出入境边防检查总站克州边境管理支队阿合奇边境管理大队民警前往海拔4200多米的中吉边境前沿巡逻时，发现成群国家二级保护野生动物北山羊在西西达板活动，随即利用无人机开展监测观察。只见几只北山羊身姿矫健、神态悠然，在山坡上悠闲觅食、嬉戏奔跑，为边疆美景增添了生机活力，民警在守护边境安全的同时，积极保护野生
 
 ## 正文
 
-5月27日，拼多多发布截至3月31日的2026年第一季度财报。
+发布时间：2026年04月09日 15:13 来源：中国新闻网 4月7日，新疆出入境边防检查总站克州边境管理支队阿合奇边境管理大队民警前往海拔4200多米的中吉边境前沿巡逻时，发现成群国家二级保护野生动物北山羊在西西达板活动，随即利用无人机开展监测观察。
 
-受益于“千亿扶持”等战略的持续投入，平台生态及供应链体系实现稳步向好发展，拼多多第一季度营收达到1062亿元。
+只见几只北山羊身姿矫健、神态悠然，在山坡上悠闲觅食、嬉戏奔跑，为边疆美景增添了生机活力，民警在守护边境安全的同时，积极保护野生动物、维护生态平衡。
 
-去年12月，在年度股东大会上，拼多多宣布实行联席董事长制度，并将公司的战略重心聚焦到“重仓中国供应链”，力争三年再造一个拼多多。
-
-今年一季度，新拼姆专项公司正式落地上海，品牌自营业务稳步推进，“三年再造拼多多”战略迎来深化发展的新阶段。
-
-同时，拼多长期投入的“千亿扶持”惠商战略，继续加大对商家和产业的反哺力度，不断完善平台的治理与合规建设，积极履行更大的社会责任。
-
-“今年是拼多多第二个十年的开局之年，也是我接任董事长后，围绕‘新十年高质量发展’启动公司组织与文化整体重塑的关键一年。
-
-”拼多多集团联席董事长兼联席CEO赵佳臻表示，我们要求公司从上到下，必须以安全合规为前提、以社会责任为基石，以高质量发展为核心，久久为功，推动业务、团队、内部流程和组织管理的深刻变革，积极承担起平台型企业的责任和担当，为用户、产业和社会创造更多正向价值。
-
-“今年是‘三年再造拼多多’战略的第一年，也是供应链转型升级的关键窗口期，我们将心怀感恩和敬畏，坚持将不忘本作为一切发展的前提和基础，以及实现新跨越的指引和依靠，继续加大对新业务、新模式的投入。
+来源：克州边境管理支队 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 03:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 03:08 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 03:23 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 03:29 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 03:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 03:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 03:14 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 03:16 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 03:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 03:14 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 03:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 03:09 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 03:26 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 03:26 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 03:35 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 03:32 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 03:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 03:23 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 03:13 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 03:15 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 03:22 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 03:13 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/753377915154.shtml)
-- 2026-06-30 03:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/975827098947.shtml)
-- 2026-06-30 03:20 - [一见倾心](https://www.share.minike.top/Article/details/7806456792.shtml)
-- 2026-06-30 03:20 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/471222809.shtml)
-- 2026-06-30 03:25 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/6599669.shtml)
-- 2026-06-30 03:20 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/109080995248.shtml)
-- 2026-06-30 03:05 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/882143.shtml)
-- 2026-06-30 03:09 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/136749428.shtml)
-- 2026-06-30 03:10 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/04788.shtml)
-- 2026-06-30 03:02 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/094351.shtml)
-- 2026-06-30 03:24 - [一见倾心](http://www.share.kurohicncr.top/Article/details/198000.shtml)
-- 2026-06-30 03:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/051052294.shtml)
-- 2026-06-30 03:02 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/223673.shtml)
-- 2026-06-30 03:03 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/3215870437.shtml)
-- 2026-06-30 03:12 - [毒液2](http://www.blog.minike.top/Article/details/7504139.shtml)
+- 2026-06-30 03:17 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/40815305.shtml)
+- 2026-06-30 03:20 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/0106042.shtml)
+- 2026-06-30 03:34 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/333656.shtml)
+- 2026-06-30 03:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/30200247.shtml)
+- 2026-06-30 03:28 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/4472714811.shtml)
+- 2026-06-30 03:29 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/08048352.shtml)
+- 2026-06-30 03:17 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/7163138347.shtml)
+- 2026-06-30 03:28 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/89288083527.shtml)
+- 2026-06-30 03:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/546528036073.shtml)
+- 2026-06-30 03:17 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/498974163.shtml)
+- 2026-06-30 03:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/9931232268.shtml)
+- 2026-06-30 03:06 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/35978331096.shtml)
+- 2026-06-30 03:18 - [人类...完蛋了...](http://www.blog.kurohicncr.top/Article/details/34785510133.shtml)
+- 2026-06-30 03:29 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/82621.shtml)
+- 2026-06-30 03:30 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/81811.shtml)

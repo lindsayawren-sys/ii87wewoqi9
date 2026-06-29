@@ -1,59 +1,49 @@
-# 金价连跌两周失守4500整数关 机构按下看涨“暂停键”
+# 达美航空等公司上调行李费
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道 记者郭聪聪 五月第四周，黄金经历了一轮短暂的弱势反弹后，再度掉头向下。 当周第三天（5月27日），金价继续走弱，盘中再度跌破4500美元/盎司关口，报价4489美元/盎司（截至下午17时），当日跌幅达0.38%。 回顾整个5月，现货黄金已连续两周录得下跌，月内累计跌幅近3%。若将时间轴进一步拉长，自年初创下近5600美元/盎司的历史高位以来，金价回撤幅度已悄然
+面对航空燃油价格飙升，达美航空和西南航空将托运行李费上调了10美元，与其他航空公司一道抵消成本。责任编辑：张俊 SF065
 
 ## 正文
 
-21世纪经济报道 记者郭聪聪 五月第四周，黄金经历了一轮短暂的弱势反弹后，再度掉头向下。
+面对航空燃油价格飙升，达美航空和西南航空将托运行李费上调了10美元，与其他航空公司一道抵消成本。
 
-当周第三天（5月27日），金价继续走弱，盘中再度跌破4500美元/盎司关口，报价4489美元/盎司（截至下午17时），当日跌幅达0.38%。
-
-回顾整个5月，现货黄金已连续两周录得下跌，月内累计跌幅近3%。
-
-若将时间轴进一步拉长，自年初创下近5600美元/盎司的历史高位以来，金价回撤幅度已悄然逼近20%。
-
-金价为何连续下跌？
-
-5月以来，国际黄金市场延续震荡下行态势，价格重心不断下移。
-
-市场分析普遍认为，这轮黄金的调整并非孤立事件，是宏观政策预期、资金流向与地缘逻辑共同影响的结果。
-
-首先，长端美债收益率的飙升成为金价承压的重要因素。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-30 03:19 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 03:13 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 03:04 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 03:04 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 03:00 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 03:09 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 03:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-30 03:10 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-30 03:26 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 03:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 03:09 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 03:27 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-30 03:18 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 03:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 03:13 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-30 03:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 03:14 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 03:30 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 03:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 03:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 03:20 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 03:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 03:11 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 03:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 03:25 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 03:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 03:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/093112817.shtml)
-- 2026-06-30 03:21 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/8378584104.shtml)
-- 2026-06-30 03:01 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/3679711947.shtml)
-- 2026-06-30 03:15 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/90854476589.shtml)
-- 2026-06-30 03:12 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/87401698361.shtml)
-- 2026-06-30 03:26 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/722540.shtml)
-- 2026-06-30 03:23 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/58967.shtml)
-- 2026-06-30 03:02 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/077369742682.shtml)
-- 2026-06-30 03:24 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/125835.shtml)
-- 2026-06-30 03:19 - [日本进球](https://www.blog.kurohicncr.top/Article/details/148124043.shtml)
-- 2026-06-30 03:00 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/1744000.shtml)
-- 2026-06-30 03:10 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/193102395.shtml)
-- 2026-06-30 03:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/6907694690.shtml)
-- 2026-06-30 03:06 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/14812.shtml)
-- 2026-06-30 03:10 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/34244.shtml)
+- 2026-06-30 03:09 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/9106976624.shtml)
+- 2026-06-30 03:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/649021952.shtml)
+- 2026-06-30 03:26 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/79295693.shtml)
+- 2026-06-30 03:30 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/81084307.shtml)
+- 2026-06-30 03:17 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/69283106786.shtml)
+- 2026-06-30 03:25 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/57550681286.shtml)
+- 2026-06-30 03:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/65604231.shtml)
+- 2026-06-30 03:13 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/323843087839.shtml)
+- 2026-06-30 03:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/939308.shtml)
+- 2026-06-30 03:33 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/5027543318.shtml)
+- 2026-06-30 03:08 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/919375.shtml)
+- 2026-06-30 03:27 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/76518.shtml)
+- 2026-06-30 03:31 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/073911216545.shtml)
+- 2026-06-30 03:13 - [爱很美味](https://www.share.kurohicncr.top/Article/details/214649067.shtml)
+- 2026-06-30 03:12 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/9192380614.shtml)

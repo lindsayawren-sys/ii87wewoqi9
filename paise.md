@@ -1,59 +1,59 @@
-# 5月以来中国多地降雨破纪录
+# 海峡两岸文创产业交流合作洽谈会暨文创展在成都启幕
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月27日电 (记者 陈溯)5月以来，中国多地出现强降水天气，广东、湖南、湖北等地单点降水量打破历史纪录，部分地区出现洪涝灾害。中国气象局27日公布5月以来降水相关统计数据。 国家气象信息中心数据显示，5月1日至26日，全国平均降水量达107.2毫米，而常年全国5月平均降水量为70.4毫米。 5月中旬起，广东恩平，湖北荆州、安陆，广西贵港，湖南绥宁，江西上犹等6个国家
+中新网成都4月8日电 (王鹏 杨梅)“文化同源·创意共生”海峡两岸文创产业交流合作洽谈会暨文创展8日在成都启幕。来自海峡两岸的专家学者、文创从业者、设计师及文化机构代表齐聚一堂，围绕中华文化传承、文创IP开发、产业合作转化等议题展开交流，共探两岸文创合作新路径。 此次活动由民进中央联络委员会、中华文化交流与合作促进会共同主办，设置“海峡两岸汉字文化创意大赛成果分享”“文创产业交
 
 ## 正文
 
-中新社北京5月27日电 (记者 陈溯)5月以来，中国多地出现强降水天气，广东、湖南、湖北等地单点降水量打破历史纪录，部分地区出现洪涝灾害。
+中新网成都4月8日电 (王鹏 杨梅)“文化同源·创意共生”海峡两岸文创产业交流合作洽谈会暨文创展8日在成都启幕。
 
-中国气象局27日公布5月以来降水相关统计数据。
+来自海峡两岸的专家学者、文创从业者、设计师及文化机构代表齐聚一堂，围绕中华文化传承、文创IP开发、产业合作转化等议题展开交流，共探两岸文创合作新路径。
 
-国家气象信息中心数据显示，5月1日至26日，全国平均降水量达107.2毫米，而常年全国5月平均降水量为70.4毫米。
+此次活动由民进中央联络委员会、中华文化交流与合作促进会共同主办，设置“海峡两岸汉字文化创意大赛成果分享”“文创产业交流合作洽谈”“两岸文创交流展”等板块，试图以文创为纽带，推动两岸文化资源共享、创意碰撞和产业对接。
 
-5月中旬起，广东恩平，湖北荆州、安陆，广西贵港，湖南绥宁，江西上犹等6个国家基本气象站日降水量突破历史极值，144个站点降水量刷新5月历史纪录。
+全国人大常委会委员、民进中央副主席高友东在致辞中表示，两岸文创各具特色、互补性强，合作空间广阔。
 
-5月20日，广东恩平日降水量达597.7毫米，不仅打破该站历史纪录，也成为本月全国国家基本气象站单日雨量之最。
+民进中央长期致力于推动两岸教育文化交流，愿继续搭建更多平台，支持两岸文创从业者、文化学者常来常往、互学互鉴，共同守护中华文化根脉、开创中华文化未来。
 
-常年5月，中国主雨带主要盘踞在江南、华南一带。
+四川省委统战部副部长万群在致辞中介绍，2025年四川举办两岸交流活动上百场，吸引数千名台胞台青来川参访交流；川台贸易逆势增长44.4%，台湾地区跃升为四川第四大贸易伙伴。
 
-对比常年情况，今年5月南方降雨分布极其不均，局地降水量超历史极值，整体呈现“点强面弱、单点极值”的特征，湖北大部、湖南北部、广东阳江、广西防城港、贵州西部及南部、云南中部及南部、四川盆地东部及南部等地降水偏多一倍至两倍。
+持续升温的人员往来与经贸合作，也为两岸文化交流和文创产业合作提供了更广阔空间。
 
-受雨带异常北跳影响，北方中东部降水也明显偏多，大范围区域出现暴雨，多个站点日降水量突破5月同期纪录。
+记者在现场看到，本次文创展围绕“汉字文创”“四川文创”“台湾文创”三大主题展开，不少展品将传统文化元素与现代设计语言相结合，涵盖出版物、文博衍生品、手工艺品、生活美学用品等多个类别。
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 03:07 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 03:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 03:19 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 03:23 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 03:29 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 03:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 03:19 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 03:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 03:12 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 03:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 03:19 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-30 03:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 03:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 03:21 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-30 03:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 03:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-30 03:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 03:18 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 03:10 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-30 03:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 03:12 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 03:34 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 03:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 03:12 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 03:24 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/34239.shtml)
-- 2026-06-30 03:21 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/27687797250.shtml)
-- 2026-06-30 03:07 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/7282604123.shtml)
-- 2026-06-30 03:07 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/255330767.shtml)
-- 2026-06-30 03:28 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/96871823331.shtml)
-- 2026-06-30 03:00 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/869825701066.shtml)
-- 2026-06-30 03:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/67727809707.shtml)
-- 2026-06-30 03:12 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/96554403506.shtml)
-- 2026-06-30 03:17 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/179281.shtml)
-- 2026-06-30 03:13 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/846164.shtml)
-- 2026-06-30 03:00 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/638595381421.shtml)
-- 2026-06-30 03:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/2039111323.shtml)
-- 2026-06-30 03:22 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/554124213.shtml)
-- 2026-06-30 03:10 - [逃狱兄弟](http://www.share.minike.top/Article/details/66543135142.shtml)
-- 2026-06-30 03:11 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/233109986.shtml)
+- 2026-06-30 03:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/607017466418.shtml)
+- 2026-06-30 03:20 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/504600567.shtml)
+- 2026-06-30 03:09 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/55394.shtml)
+- 2026-06-30 03:26 - [锐评T1零封KC](https://www.share.minike.top/Article/details/236330.shtml)
+- 2026-06-30 03:20 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/0899036.shtml)
+- 2026-06-30 03:10 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/3822466.shtml)
+- 2026-06-30 03:14 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/02583019248.shtml)
+- 2026-06-30 03:33 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/63227.shtml)
+- 2026-06-30 03:32 - [我们的少年时代2](https://www.share.minike.top/Article/details/87712222287.shtml)
+- 2026-06-30 03:28 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/288731921.shtml)
+- 2026-06-30 03:15 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/445027210883.shtml)
+- 2026-06-30 03:24 - [毒液2](http://www.blog.kurohicncr.top/Article/details/888521123767.shtml)
+- 2026-06-30 03:10 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/228334545868.shtml)
+- 2026-06-30 03:25 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/25145.shtml)
+- 2026-06-30 03:33 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/40032.shtml)

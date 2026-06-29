@@ -1,59 +1,51 @@
-# 风雨同心！建设银行全力支持防汛救灾工作
+# 以色列对真主党发起伊朗战争爆发以来最大规模的军事行动
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-来源：今日建行 近期，重庆、广西、湖北等地遭遇强降雨天气，部分区域出现洪涝和塌方灾害。面对极端天气，建设银行迅速响应，全力支持防汛救灾工作，排查网点隐患，保障服务畅通，以“金融为民”初心守护人民群众生命财产安全。 重庆 5月23日夜间至24日凌晨，重庆永川突发瞬时极端特大暴雨，多个镇街降雨量突破当地历史极值。强降雨引发的山洪造成民房倒塌、农作物受灾、基础设施损毁。建行重庆永川支
+以色列国防军称，他们对真主党发动了自伊朗战争开始以来规模最大的军事行动，在10分钟内打击了100多个真主党指挥中心和军事地点。 目标包括真主党情报总部和中央机构，以及位于贝鲁特、贝卡谷地和黎巴嫩南部的火箭弹和海军设施。 以色列国防军总参谋长Eyal Zamir中将在声明中表示，以色列国防军将继续“坚定地”打击真主党，并将利用一切作战机会这样做。责任编辑：李肇孚
 
 ## 正文
 
-来源：今日建行 近期，重庆、广西、湖北等地遭遇强降雨天气，部分区域出现洪涝和塌方灾害。
+以色列国防军称，他们对真主党发动了自伊朗战争开始以来规模最大的军事行动，在10分钟内打击了100多个真主党指挥中心和军事地点。
 
-面对极端天气，建设银行迅速响应，全力支持防汛救灾工作，排查网点隐患，保障服务畅通，以“金融为民”初心守护人民群众生命财产安全。
+目标包括真主党情报总部和中央机构，以及位于贝鲁特、贝卡谷地和黎巴嫩南部的火箭弹和海军设施。
 
-重庆 5月23日夜间至24日凌晨，重庆永川突发瞬时极端特大暴雨，多个镇街降雨量突破当地历史极值。
+以色列国防军总参谋长Eyal Zamir中将在声明中表示，以色列国防军将继续“坚定地”打击真主党，并将利用一切作战机会这样做。
 
-强降雨引发的山洪造成民房倒塌、农作物受灾、基础设施损毁。
-
-建行重庆永川支行第一时间与受灾最为严重的茶山竹海街道、中山路街道和双石镇政府取得联系，在得知目前受灾群众急需方便面、牛奶、手电等物资后，立即组织员工自愿捐款、采购物资，于5月26日上午将物资送到灾区群众手中。
-
-▲建行重庆永川支行组织员工为灾区捐款，采购急需物资（左右滑动查看） 永川支行各网点开展安全检查，布放防汛沙袋，在确保安全的情况下持续正常营业，并借助“劳动者港湾”等区域，为市民和救灾人员提供休息、充电等便民服务。
-
-为满足防汛救灾金融需求，永川支行第一时间开通防汛救灾专属绿色通道，特事特办、简化流程、优先办理，确保救灾资金快速到账；针对银行卡、社保卡损毁遗失等情况，开设专属窗口提供一站式服务；全面摸排客户受灾情况，为因受灾出现还款困难的客户及时提供还款计划调整等服务，切实减轻受灾群众和经营主体资金压力，助力尽快恢复生产生活秩序。
-
-▲建行重庆永川支行做好防汛应急准备 广西 5月19日，广西柳州启动四级防汛预警，叠加此前地震影响，面临双重考验。
+责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-30 03:24 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 03:23 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 03:24 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 03:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 03:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 03:11 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 03:23 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 03:16 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 03:18 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 03:05 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 03:18 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 03:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-30 03:28 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 03:07 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 03:26 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 03:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 03:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 03:25 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 03:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 03:30 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 03:30 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 03:18 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 03:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 03:31 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 03:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 03:27 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:11 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/565121352.shtml)
-- 2026-06-30 03:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/7888669.shtml)
-- 2026-06-30 03:12 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/3545854992.shtml)
-- 2026-06-30 03:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/442729825272.shtml)
-- 2026-06-30 03:11 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/885547.shtml)
-- 2026-06-30 03:14 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/55177010421.shtml)
-- 2026-06-30 03:26 - [锐评T1零封KC](https://www.share.minike.top/Article/details/664879408.shtml)
-- 2026-06-30 03:25 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/605461738819.shtml)
-- 2026-06-30 03:25 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/104298094.shtml)
-- 2026-06-30 03:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/547531.shtml)
-- 2026-06-30 03:26 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/4254782.shtml)
-- 2026-06-30 03:08 - [金刚川](http://www.share.kurohicncr.top/Article/details/70937065996.shtml)
-- 2026-06-30 03:18 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/972385674307.shtml)
-- 2026-06-30 03:06 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/24557.shtml)
-- 2026-06-30 03:14 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/67410255853.shtml)
+- 2026-06-30 03:15 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/4670498.shtml)
+- 2026-06-30 03:06 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/82354.shtml)
+- 2026-06-30 03:24 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/25578592.shtml)
+- 2026-06-30 03:29 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/21252938.shtml)
+- 2026-06-30 03:34 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/97703573.shtml)
+- 2026-06-30 03:17 - [乔家的儿女](https://www.blog.minike.top/Article/details/50418.shtml)
+- 2026-06-30 03:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/038976.shtml)
+- 2026-06-30 03:35 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/41048946480.shtml)
+- 2026-06-30 03:16 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/485509745.shtml)
+- 2026-06-30 03:31 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/420493856.shtml)
+- 2026-06-30 03:12 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/852701120.shtml)
+- 2026-06-30 03:12 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/8397255.shtml)
+- 2026-06-30 03:15 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/5523035.shtml)
+- 2026-06-30 03:08 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/6607866885.shtml)
+- 2026-06-30 03:16 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/431755783.shtml)

@@ -1,61 +1,56 @@
-# 低位制药板块韧性凸显，华宝基金药ETF（562050）午后逆市拉升！权重股恒瑞医药冲高4%，中药龙头集体飘红
+# 世界大健康博览会在武汉开幕 脑机接口等受关注
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月27日午后，A股突发跳水，沪指失守4100点。制药板块局部异动，权重龙头恒瑞医药快速拉升翻红，一度冲高超4%；中药股逆市表现，云南白药、以岭药业、东阿阿胶、片仔癀等集体飘红。 场内唯一表征制药板块整体行情的药ETF华宝（562050）午后自深水区直线拉升，截至发稿跌0.22%，沪指跌1.41%。 领涨股消息，恒瑞医药昨日公告称，子公司成都盛迪医药收到国家药监局核准签发的《药
+中新社武汉4月8日电 (记者 马芙蓉)2026年(第八届)世界大健康博览会8日在武汉开幕，来自中国、韩国、马来西亚等国家的300余家企业参展，集中展示大健康领域新产品、新技术。 具备检测、紧急呼叫、娱乐等功能的人工智能(AI)健康陪护机器人，可为视障人士提供引路、对话交流、安防监控等服务的导盲机器狗……现场，一批AI技术与医疗、康养、助残、康复等应用深度融合的产品亮相。其中，脑
 
 ## 正文
 
-5月27日午后，A股突发跳水，沪指失守4100点。
+中新社武汉4月8日电 (记者 马芙蓉)2026年(第八届)世界大健康博览会8日在武汉开幕，来自中国、韩国、马来西亚等国家的300余家企业参展，集中展示大健康领域新产品、新技术。
 
-制药板块局部异动，权重龙头恒瑞医药快速拉升翻红，一度冲高超4%；中药股逆市表现，云南白药、以岭药业、东阿阿胶、片仔癀等集体飘红。
+具备检测、紧急呼叫、娱乐等功能的人工智能(AI)健康陪护机器人，可为视障人士提供引路、对话交流、安防监控等服务的导盲机器狗……现场，一批AI技术与医疗、康养、助残、康复等应用深度融合的产品亮相。
 
-场内唯一表征制药板块整体行情的药ETF华宝（562050）午后自深水区直线拉升，截至发稿跌0.22%，沪指跌1.41%。
+其中，脑机接口、智能机器人等前沿成果备受关注。
 
-领涨股消息，恒瑞医药昨日公告称，子公司成都盛迪医药收到国家药监局核准签发的《药物临床试验批准通知书》，同意HRS-1635片在B细胞恶性肿瘤患者中开展临床研究。
+头戴无创脑电帽，想象要抓取的图片，系统解码意图后，驱动机械臂辅助完成图片抓取……在依瑞德集团展区，现场展示的“光电双模态”脑机接口康复系统引来关注。
 
-该药为公司自主研发的创新型抗肿瘤药物，目前国内外暂无同类药物获批上市。
+该集团董事长蔡胜安介绍，目前该系统处于临床验证阶段，已可实现“意念控制”下的上肢、下肢及吞咽康复训练。
 
-板块方面，当前A股制药板块调整至历史低位，配置性价比极为突出。
+来自山东、四川等地企业，还展出针对下肢、手等部位的脑机接口康复系统，以及针对孤独症等疾病诊疗的脑功能评估系统。
 
-截至5月26日，药ETF华宝（562050）标的指数中证制药PE（TTM）31.31倍，处于近5年8.24%分位点，即当前估值水平低于近5年90%以上时间区间。
+蔡胜安认为，中国脑机接口产业正处于从技术验证向商业化落地加速迈进的关键阶段，未来将朝着场景化、智能化、个性化趋势发展。
 
-低位布局“创新药+中药”，认准场内唯一药ETF华宝（562050）及其场外联接基金（024986），汇聚A股50大龙头药企，在重仓创新药的同时，有约25%的权重为中药。
+聚焦失能人员照护需求，湖北一企业带来智能行走机器人、辅助用餐机器人等产品。
 
 ## 相关推荐
 
-- 2026-06-30 03:19 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 03:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 03:01 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 03:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 03:17 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 03:01 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 03:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 03:20 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 03:28 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 03:22 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 03:04 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 03:13 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
-- 2026-06-30 03:26 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 03:09 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 03:11 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 03:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 03:27 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 03:21 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 03:12 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 03:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 03:09 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 03:21 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 03:11 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 03:32 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 03:34 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/2061898624.shtml)
-- 2026-06-30 03:20 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/7047576138.shtml)
-- 2026-06-30 03:16 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/540334160.shtml)
-- 2026-06-30 03:04 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/266327.shtml)
-- 2026-06-30 03:13 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/2165722337.shtml)
-- 2026-06-30 03:18 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/841663.shtml)
-- 2026-06-30 03:26 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/79720182.shtml)
-- 2026-06-30 03:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/3940889.shtml)
-- 2026-06-30 03:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/22568991.shtml)
-- 2026-06-30 03:04 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/56028547615.shtml)
-- 2026-06-30 03:25 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/6704336308.shtml)
-- 2026-06-30 03:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/888615.shtml)
-- 2026-06-30 03:29 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/0363502.shtml)
-- 2026-06-30 03:03 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/1783544.shtml)
-- 2026-06-30 03:03 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/6944583884.shtml)
+- 2026-06-30 03:08 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/3584803701.shtml)
+- 2026-06-30 03:11 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/687635564.shtml)
+- 2026-06-30 03:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/07110.shtml)
+- 2026-06-30 03:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/22939924.shtml)
+- 2026-06-30 03:06 - [沙丘](https://www.share.kurohicncr.top/Article/details/108037507.shtml)
+- 2026-06-30 03:08 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/128944466.shtml)
+- 2026-06-30 03:18 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/493912.shtml)
+- 2026-06-30 03:08 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/8496771086.shtml)
+- 2026-06-30 03:24 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/5052058.shtml)
+- 2026-06-30 03:36 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/7493374514.shtml)
+- 2026-06-30 03:24 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/53142500.shtml)
+- 2026-06-30 03:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/3405720981.shtml)
+- 2026-06-30 03:12 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/395357348.shtml)
+- 2026-06-30 03:08 - [沙丘](http://www.blog.minike.top/Article/details/648680348971.shtml)
+- 2026-06-30 03:20 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/124565.shtml)

@@ -1,58 +1,59 @@
-# 一季度净利仅381万元，盛视科技签下60亿元算力协议，合作方仍未披露 | 长三角资本局
+# 先甩锅再道歉？海河牛奶直播间涉黄，主播做不雅动作，董事长曾放话：好喝比健康重要
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 一笔60亿元的算力合作，把盛视科技再次推到市场视线中央。 5月26日晚，盛视科技公告称，全资子公司盛视技术近日与某公司签署《算力产业合作协议》。双方拟围绕算电协同、AIDC智能算力中心运营、算力资源整合、算力服务采购交付、人工智能产业孵化等方向展开合作，协议有效期五年，合作对应业务体量折算合计约60亿元。 这不是盛视科技近期第一次抛出大额算力相关动作。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文|《BUG》栏目 张俊 头顶“津门老字号”“中华老字号”双光环的海河乳品，翻车了。 近日，有家长向记者反映，某牛奶旗舰店直播间出现涉黄、涉低俗内容。主播言语中多次出现“崩锅”等性暗示黑话，还有不雅动作。 让外界不满的是，海河乳品先是采取了甩锅的态度，声称“不是官方开的店管不了”。眼见质疑声越来越大，官方才
 
 ## 正文
 
-文|新浪财经上海站 十里 一笔60亿元的算力合作，把盛视科技再次推到市场视线中央。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-5月26日晚，盛视科技公告称，全资子公司盛视技术近日与某公司签署《算力产业合作协议》。
+文|《BUG》栏目 张俊 头顶“津门老字号”“中华老字号”双光环的海河乳品，翻车了。
 
-双方拟围绕算电协同、AIDC智能算力中心运营、算力资源整合、算力服务采购交付、人工智能产业孵化等方向展开合作，协议有效期五年，合作对应业务体量折算合计约60亿元。
+近日，有家长向记者反映，某牛奶旗舰店直播间出现涉黄、涉低俗内容。
 
-这不是盛视科技近期第一次抛出大额算力相关动作。
+主播言语中多次出现“崩锅”等性暗示黑话，还有不雅动作。
 
-更值得注意的是，这次60亿元合作的交易对方依然没有直接披露名称。
+让外界不满的是，海河乳品先是采取了甩锅的态度，声称“不是官方开的店管不了”。
 
-公告中，合作方被称为“某公司”。
+眼见质疑声越来越大，官方才于今日公开道歉。
 
-公司称，基于商业秘密及战略发展需要，豁免披露交易对方具体情况，并表示双方不存在关联关系，最近三年未签订过类似业务合同，交易对方不属于失信被执行人。
+目前，海河牛奶旗舰店橱窗中的商品处于下架状态，但账号运营主体还未变更，账号此前发布的涉事主播的视频内容均已删除；另外，该涉事主播还一度公开露面发声承认错误，但目前该主播的账号已经处于私密状态。
 
-对一家原本主业聚焦智慧口岸、智慧交通等领域的上市公司而言，算力故事来得并不突然，但节奏很快。
+无独有偶。
 
 ## 相关推荐
 
-- 2026-06-30 03:02 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-30 03:11 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 03:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
-- 2026-06-30 03:18 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 03:26 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 03:25 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 03:02 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 03:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 03:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 03:26 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-30 03:05 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-30 03:02 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 03:22 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 03:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 03:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 03:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 03:06 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 03:15 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 03:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 03:07 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 03:29 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 03:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 03:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 03:15 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 03:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/8296397.shtml)
-- 2026-06-30 03:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/4532166444.shtml)
-- 2026-06-30 03:25 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/67386229.shtml)
-- 2026-06-30 03:07 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/678357.shtml)
-- 2026-06-30 03:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/837226965677.shtml)
-- 2026-06-30 03:29 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.kurohicncr.top/Article/details/366876590.shtml)
-- 2026-06-30 03:29 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/4844209075.shtml)
-- 2026-06-30 03:23 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/58004188.shtml)
-- 2026-06-30 03:24 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/490334698.shtml)
-- 2026-06-30 03:17 - [田曦薇没招了](https://www.blog.minike.top/Article/details/001330592392.shtml)
-- 2026-06-30 03:08 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/237689.shtml)
-- 2026-06-30 03:27 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/7661327465.shtml)
-- 2026-06-30 03:21 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/42080.shtml)
-- 2026-06-30 03:07 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/1320366.shtml)
-- 2026-06-30 03:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/187809.shtml)
+- 2026-06-30 03:28 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/24480.shtml)
+- 2026-06-30 03:17 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/270594.shtml)
+- 2026-06-30 03:15 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/890242165543.shtml)
+- 2026-06-30 03:19 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/34749.shtml)
+- 2026-06-30 03:17 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9194250211.shtml)
+- 2026-06-30 03:19 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/412463715.shtml)
+- 2026-06-30 03:11 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/525345421.shtml)
+- 2026-06-30 03:18 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/549713.shtml)
+- 2026-06-30 03:09 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/76369980.shtml)
+- 2026-06-30 03:13 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/384398.shtml)
+- 2026-06-30 03:09 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/55814864.shtml)
+- 2026-06-30 03:09 - [我和我的家乡](http://www.blog.minike.top/Article/details/027470106527.shtml)
+- 2026-06-30 03:06 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/9419406.shtml)
+- 2026-06-30 03:06 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/6546219209.shtml)
+- 2026-06-30 03:10 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/6934032059.shtml)

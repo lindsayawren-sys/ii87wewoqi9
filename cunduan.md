@@ -1,57 +1,59 @@
-# AI的尽头：不是模型，而是电厂
+# CEO吴泳铭带队，技术派掌权！阿里挥刀AI组织重构
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！碳基需求正在给硅基需求让步，硅基不光需要GPU，而且对电力胃口已经超过碳基需求，从过去两周最新消息来看，“电力”以前所未有的密度涌进硅谷AI行业头版。 5月11日，Blackstone以10亿美元入股发电商VoltaGrid，同日英伟达以最高21亿美元的5年期股权期权入股AI数据中心运营商IREN；5月6日
+4月8日，阿里巴巴集团CEO吴泳铭发布内部信，宣布AI相关组织调整，包括新设立集团技术委员会，升级通义大模型事业部，加速AI建设。 今年3月，在前阿里千问大模型技术负责人林俊旸及部分团队成员的离职风波中，阿里曾表示公司将成立基础模型支持小组，由吴泳铭、周靖人、范禹共同协调集团资源支持基础模型建设。 如今，随着AI战略的深化，阿里在集团层面的AI资源整合与调配正加速落地。伴随着林
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月8日，阿里巴巴集团CEO吴泳铭发布内部信，宣布AI相关组织调整，包括新设立集团技术委员会，升级通义大模型事业部，加速AI建设。
 
-碳基需求正在给硅基需求让步，硅基不光需要GPU，而且对电力胃口已经超过碳基需求，从过去两周最新消息来看，“电力”以前所未有的密度涌进硅谷AI行业头版。
+今年3月，在前阿里千问大模型技术负责人林俊旸及部分团队成员的离职风波中，阿里曾表示公司将成立基础模型支持小组，由吴泳铭、周靖人、范禹共同协调集团资源支持基础模型建设。
 
-5月11日，Blackstone以10亿美元入股发电商VoltaGrid，同日英伟达以最高21亿美元的5年期股权期权入股AI数据中心运营商IREN；5月6日，比特币矿企转型的Hut 8在得克萨斯州Beacon Point签下98亿美元、15年、352MW的take-or-pay租约，股价当天涨近30%。
+如今，随着AI战略的深化，阿里在集团层面的AI资源整合与调配正加速落地。
 
-4月20日，Anthropic与亚马逊扩大合作：Anthropic承诺未来十年在AWS技术上投入超过1000亿美元，并获得最高5GW的新算力容量，用于训练和运行Claude。
+伴随着林俊旸的离职，阿里内部对AI人才的管理方式及模型训练资源分配的合理性等曾受到外界关注，围绕AI的组织调整也变得更为迫切。
 
-5GW约相当于数座大型核电机组的装机容量。
+根据内部信，阿里巴巴将在集团层面设立技术委员会，由吴泳铭担任组长，成员包括周靖人、吴泽明、李飞飞（花名飞刀）。
 
-这一系列交易最值得注意的不是价格，而是亚马逊公告中那个词——“binding constraint”。
+其中，周靖人担任技术委员会首席AI架构师，李飞飞负责阿里云技术以及AI云基础设施建设，吴泽明负责集团业务技术平台以及AI推理平台建设。
 
-这说明，不是芯片、不是人才、不是算法，是电，成为AI规模化最硬的瓶颈。
+值得注意的是，李飞飞为阿里巴巴集团副总裁、阿里云数据库产品事业部总裁。
 
-这与笔者近期在加州看到的趋势一致：AI数据中心面对的电网危机点燃了新一轮电厂建设潮，竞赛已从谁的模型更聪明转向谁控制了能源。
+此外，阿里还将通义实验室升级为通义大模型事业部，由周靖人负责；李飞飞出任阿里云CTO；吴泽明专注阿里巴巴集团CTO工作，淘宝闪购CEO职务由雷雁群接任。
 
 ## 相关推荐
 
-- 2026-06-30 03:18 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 03:11 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 03:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 03:24 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 03:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 03:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-30 03:16 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 03:28 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 03:01 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-30 03:19 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 03:19 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 03:24 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-30 03:14 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 03:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
+- 2026-06-30 03:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 03:10 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 03:20 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 03:12 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 03:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 03:10 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-30 03:23 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 03:17 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 03:17 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 03:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/12834578722.shtml)
-- 2026-06-30 03:16 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/610855031727.shtml)
-- 2026-06-30 03:08 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/1103917240.shtml)
-- 2026-06-30 03:20 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/255676.shtml)
-- 2026-06-30 03:16 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/089693344.shtml)
-- 2026-06-30 03:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/123771.shtml)
-- 2026-06-30 03:20 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/1335936499.shtml)
-- 2026-06-30 03:04 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/3875791.shtml)
-- 2026-06-30 03:01 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/4999903117.shtml)
-- 2026-06-30 03:12 - [一生一世](http://www.share.minike.top/Article/details/923397630.shtml)
-- 2026-06-30 03:20 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/62269192696.shtml)
-- 2026-06-30 03:09 - [时光音乐会](https://www.blog.minike.top/Article/details/2818632.shtml)
-- 2026-06-30 03:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/564580052790.shtml)
-- 2026-06-30 03:09 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/44505622.shtml)
-- 2026-06-30 03:03 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/10875683.shtml)
+- 2026-06-30 03:15 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/50015094177.shtml)
+- 2026-06-30 03:32 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/649387826.shtml)
+- 2026-06-30 03:13 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/296884465.shtml)
+- 2026-06-30 03:30 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/676085.shtml)
+- 2026-06-30 03:32 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/4716291.shtml)
+- 2026-06-30 03:06 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/037470456004.shtml)
+- 2026-06-30 03:19 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/28336.shtml)
+- 2026-06-30 03:08 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/3998962715.shtml)
+- 2026-06-30 03:33 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/98267868.shtml)
+- 2026-06-30 03:20 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/56298909.shtml)
+- 2026-06-30 03:15 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/22065680460.shtml)
+- 2026-06-30 03:32 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/522839797.shtml)
+- 2026-06-30 03:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/46498.shtml)
+- 2026-06-30 03:11 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/7146128.shtml)
+- 2026-06-30 03:13 - [房价什么时候能涨](https://www.share.minike.top/Article/details/35514.shtml)

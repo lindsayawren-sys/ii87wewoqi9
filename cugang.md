@@ -1,58 +1,49 @@
-# 依法护农见实效 云南为高原特色农业挽回损失540余万元
+# 停火协议生效后 多个海湾国家仍有袭击来袭报告
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月27日电 (罗婕 张一鑫)27日，云南省2025年度法治政府建设新闻发布会在昆明举行。记者从会上获悉，2025年，该省出动农业行政执法人员8.7万人次，检查生产经营主体7.6万个，立案2889件，挽回经济损失540余万元，有力维护高原特色农业发展环境健康有序。云南省人民政府副秘书长赵谨介绍，2025年该省统筹推动法治政府建设，不断完善依法行政制度体系，全面推进严格
+截至周三上午，海湾国家仍有袭击来袭的报告。科威特军方表示，自当地时间上午 8 点起，该国持续抵御伊朗针对 “南部重要石油设施与发电站” 发动的多轮无人机袭击 —— 此时停火协议据信早已生效。巴林内政部称，约早上 7 点响起了空袭警报；阿联酋则表示其防空系统正试图拦截一枚来袭导弹，但未指明袭击方。责任编辑：郭明煜
 
 ## 正文
 
-中新网昆明5月27日电 (罗婕 张一鑫)27日，云南省2025年度法治政府建设新闻发布会在昆明举行。
+截至周三上午，海湾国家仍有袭击来袭的报告。
 
-记者从会上获悉，2025年，该省出动农业行政执法人员8.7万人次，检查生产经营主体7.6万个，立案2889件，挽回经济损失540余万元，有力维护高原特色农业发展环境健康有序。
+科威特军方表示，自当地时间上午 8 点起，该国持续抵御伊朗针对 “南部重要石油设施与发电站” 发动的多轮无人机袭击 —— 此时停火协议据信早已生效。
 
-云南省人民政府副秘书长赵谨介绍，2025年该省统筹推动法治政府建设，不断完善依法行政制度体系，全面推进严格规范公正文明执法，全力筑牢维护边疆稳固防线。
+巴林内政部称，约早上 7 点响起了空袭警报；阿联酋则表示其防空系统正试图拦截一枚来袭导弹，但未指明袭击方。
 
-2025年全省法治建设群众综合满意率97.79%，创历史最好水平。
-
-云南是中国农业大省，高原特色农业是该省的优势产业、支柱产业。
-
-云南省农业农村厅党组成员、副厅长谭鸿明介绍，2025年，该省农林牧渔业总产值达7035.18亿元，其中14个高原特色农业重点产业产值占80%。
-
-近年来，云南推动法律知识、法治理念、法治服务进村入户，用法治保障为高原特色农业保驾护航。
-
-在完善法规制度体系方面，云南加快涉农重点领域立法，颁布实施《云南省乡村振兴促进条例》，将“1+10+3”重点产业以及林下经济纳入法规保障，这是该省十多年来首次在涉农领域出台的地方性法规；推进《云南省农作物种子条例》全面修订，着力强化种业知识产权保护；牵头起草《云南省重点高原湖泊流域农业面源污染防治条例》，这是全国省级层面在该领域的首次立法探索。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 03:02 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-30 03:22 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 03:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 03:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 03:29 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 03:26 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 03:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-30 03:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 03:24 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 03:05 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 03:06 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 03:24 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 03:15 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-30 03:19 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 03:09 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 03:19 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 03:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
+- 2026-06-30 03:06 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 03:10 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 03:21 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 03:27 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 03:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 03:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/464301974556.shtml)
-- 2026-06-30 03:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/5943289.shtml)
-- 2026-06-30 03:01 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/57307400.shtml)
-- 2026-06-30 03:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/47364467.shtml)
-- 2026-06-30 03:05 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/7135747512.shtml)
-- 2026-06-30 03:04 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/1312280715.shtml)
-- 2026-06-30 03:09 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/1844581.shtml)
-- 2026-06-30 03:10 - [明星大侦探第四季](http://www.share.minike.top/Article/details/7303179.shtml)
-- 2026-06-30 03:29 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/1456116.shtml)
-- 2026-06-30 03:22 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/8690573360.shtml)
-- 2026-06-30 03:04 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/37938644903.shtml)
-- 2026-06-30 03:03 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/212428257.shtml)
-- 2026-06-30 03:29 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/961269339.shtml)
-- 2026-06-30 03:17 - [斛珠夫人](http://www.share.minike.top/Article/details/61520.shtml)
-- 2026-06-30 03:04 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/477173221.shtml)
+- 2026-06-30 03:30 - [杨紫获白玉兰视后为何争议难平](https://www.share.minike.top/Article/details/4711985997.shtml)
+- 2026-06-30 03:32 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/3847931315.shtml)
+- 2026-06-30 03:30 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/516635.shtml)
+- 2026-06-30 03:26 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/33208198.shtml)
+- 2026-06-30 03:17 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/291290254199.shtml)
+- 2026-06-30 03:26 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/38161002704.shtml)
+- 2026-06-30 03:06 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/097810.shtml)
+- 2026-06-30 03:23 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/291453538001.shtml)
+- 2026-06-30 03:06 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/40971.shtml)
+- 2026-06-30 03:21 - [一生一世](http://www.share.minike.top/Article/details/467450272498.shtml)
+- 2026-06-30 03:33 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/2421050.shtml)
+- 2026-06-30 03:28 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/035889097845.shtml)
+- 2026-06-30 03:21 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/22710486.shtml)
+- 2026-06-30 03:15 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/26845.shtml)
+- 2026-06-30 03:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/7547134.shtml)

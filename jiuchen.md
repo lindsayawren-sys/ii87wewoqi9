@@ -1,61 +1,58 @@
-# 港股午评：恒指跌0.85% 科指跌0.25% 黄金股普跌 深演智能首日涨超260%
+# 中诚信托落地职工薪酬福利信托 以专业服务守护职工权益
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月27日消息，港股三大指数集体下跌。截至午间收盘，恒生指数跌0.85%，报25381.51，恒生科技指数跌0.25%，国企指数跌1.02%。盘面上，科网股跌多涨少，阿里巴巴、小米、京东跌超2%，联想涨超6%；黄金股普跌，灵宝黄金跌超5%；半导体板块强势，芯智控股涨超12%；今日3只新股上市，深演智能涨超260%，华曦达涨超98%，云英谷科技涨超79%。 黄金股普跌，灵宝黄金跌
+近日，中诚信托成功落地职工薪酬福利信托项目。本项目通过信托独特的法律结构，向合作方企业提供专业、安全、高效的薪酬福利保障服务，切实守护职工切身利益，是公司践行金融政治性与人民性的重要体现。 本次落地的职工薪酬福利信托，依托信托财产独立、风险隔离的法律优势，对企业职工福利进行规范化管理与专业化运作。该项福利是归属于职工的专项权益基金，关乎职工非经常性奖励、集体福利保障及退休后养老
 
 ## 正文
 
-5月27日消息，港股三大指数集体下跌。
+近日，中诚信托成功落地职工薪酬福利信托项目。
 
-截至午间收盘，恒生指数跌0.85%，报25381.51，恒生科技指数跌0.25%，国企指数跌1.02%。
+本项目通过信托独特的法律结构，向合作方企业提供专业、安全、高效的薪酬福利保障服务，切实守护职工切身利益，是公司践行金融政治性与人民性的重要体现。
 
-盘面上，科网股跌多涨少，阿里巴巴、小米、京东跌超2%，联想涨超6%；黄金股普跌，灵宝黄金跌超5%；半导体板块强势，芯智控股涨超12%；今日3只新股上市，深演智能涨超260%，华曦达涨超98%，云英谷科技涨超79%。
+本次落地的职工薪酬福利信托，依托信托财产独立、风险隔离的法律优势，对企业职工福利进行规范化管理与专业化运作。
 
-黄金股普跌，灵宝黄金跌超5%。
+该项福利是归属于职工的专项权益基金，关乎职工非经常性奖励、集体福利保障及退休后养老生活改善，是职工薪酬福利体系的重要组成部分。
 
-今日黄金股的下跌是加息预期升温、美元走强、技术性抛售三重因素共振的结果。
+中诚信托充分发挥信托制度本源优势，严格遵循相关管理办法，确保信托运作合规、透明、高效，全力实现资产保值增值，既助力企业落实职工福利保障、践行绿色可持续发展理念，也精准契合金融“五篇大文章”中养老金融的发展要求。
 
-短期来看，金价仍将受制于美债收益率和美元的强势；中长期看，全球央行持续购金（2026年Q1净购金244吨-8）、去美元化趋势、地缘风险常态化，仍为黄金提供坚实支撑，回调被视为中长期布局的机会。
+此次职工薪酬福利信托的顺利落地，是中诚信托回归信托本源、服务民生福祉的重要实践。
 
-半导体板块强势，芯智控股涨超12%。
+下一步，公司将持续深耕薪酬福利信托领域，以专业的服务能力、严谨的风控体系、优质的信托服务，助力更多企业完善职工福利保障体系，不断彰显信托行业服务实体经济、守护民生的责任与担当。
 
-中信证券研报指出，华为提出“韬（τ）定律”，将带来晶体管、电路、芯片、系统四个层面的深刻变化。
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-30 03:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 03:13 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 03:20 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 03:16 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 03:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 03:18 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 03:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 03:05 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 03:19 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 03:12 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 03:18 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 03:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 03:14 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-30 03:29 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 03:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-30 03:32 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 03:22 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 03:27 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 03:06 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 03:10 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 03:25 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-30 03:12 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 03:34 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 03:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 03:30 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 03:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 03:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/261609908.shtml)
-- 2026-06-30 03:16 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/606551076130.shtml)
-- 2026-06-30 03:22 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/5227683.shtml)
-- 2026-06-30 03:22 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/71307745.shtml)
-- 2026-06-30 03:10 - [演员都来上音综的原因](http://www.blog.kurohicncr.top/Article/details/13568.shtml)
-- 2026-06-30 03:20 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/50346353.shtml)
-- 2026-06-30 03:05 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/643826307320.shtml)
-- 2026-06-30 03:30 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/541035.shtml)
-- 2026-06-30 03:16 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/615400.shtml)
-- 2026-06-30 03:25 - [绘画区你赢了](http://www.blog.minike.top/Article/details/82460720.shtml)
-- 2026-06-30 03:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/23335.shtml)
-- 2026-06-30 03:28 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/289385377.shtml)
-- 2026-06-30 03:13 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/03083161.shtml)
-- 2026-06-30 03:13 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/034790010.shtml)
-- 2026-06-30 03:02 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/6568917.shtml)
+- 2026-06-30 03:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/4406865.shtml)
+- 2026-06-30 03:19 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/4699791869.shtml)
+- 2026-06-30 03:18 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/5744838.shtml)
+- 2026-06-30 03:20 - [世界杯](https://www.blog.minike.top/Article/details/98959502.shtml)
+- 2026-06-30 03:27 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/2516269.shtml)
+- 2026-06-30 03:09 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/949121.shtml)
+- 2026-06-30 03:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/92994111.shtml)
+- 2026-06-30 03:31 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/22748224764.shtml)
+- 2026-06-30 03:29 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/7723694465.shtml)
+- 2026-06-30 03:12 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/7047117672.shtml)
+- 2026-06-30 03:28 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/85018117.shtml)
+- 2026-06-30 03:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/6930484.shtml)
+- 2026-06-30 03:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/51967344944.shtml)
+- 2026-06-30 03:08 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/8793668352.shtml)
+- 2026-06-30 03:34 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/14853542660.shtml)

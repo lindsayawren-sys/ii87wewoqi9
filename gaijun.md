@@ -1,57 +1,61 @@
-# 突然变脸，华宝基金科创芯片ETF（589190）翻绿收跌3%，行情到哪了？逾7000万资金逢跌增仓
+# 从“灌输”到“点燃”：一位军校教员的十年讲台路
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月27日，科创芯片宽幅震荡，全“芯”布局芯片产业的科创芯片ETF华宝（589190）早盘冲高，场内价格一度涨超2%，午后突发下坠，收跌3.03%，单日振幅达5.48%。 权重龙头集体回调，中芯国际跌近2%，寒武纪跌逾5%，海光信息跌超7%。半导体材料局部走强，中船特气涨超9%，天岳先进涨超8%；此外，佰维存储走势活跃，盘中一度涨超11%，收涨3%。 近期行情波动加大，就在前一
+中新网太原4月8日电 题：从“灌输”到“点燃”：一位军校教员的十年讲台路 作者 杨静 张立程 秦诗凯 清晨的阳光洒进校园，军校教员肖利丽踏着坚定的步伐走进教室。讲台下，一双双年轻的眼睛清澈而炽热，盛满对知识的渴求、对军营的向往。 作为军校专业课教员，在三尺讲台深耕十年，肖利丽坚信：教学不止于传授知识，更要以心育心、以情铸魂，让每一堂课都成为点燃灵魂的火种。 肖利丽主讲《组训施教
 
 ## 正文
 
-5月27日，科创芯片宽幅震荡，全“芯”布局芯片产业的科创芯片ETF华宝（589190）早盘冲高，场内价格一度涨超2%，午后突发下坠，收跌3.03%，单日振幅达5.48%。
+中新网太原4月8日电 题：从“灌输”到“点燃”：一位军校教员的十年讲台路 作者 杨静 张立程 秦诗凯 清晨的阳光洒进校园，军校教员肖利丽踏着坚定的步伐走进教室。
 
-权重龙头集体回调，中芯国际跌近2%，寒武纪跌逾5%，海光信息跌超7%。
+讲台下，一双双年轻的眼睛清澈而炽热，盛满对知识的渴求、对军营的向往。
 
-半导体材料局部走强，中船特气涨超9%，天岳先进涨超8%；此外，佰维存储走势活跃，盘中一度涨超11%，收涨3%。
+作为军校专业课教员，在三尺讲台深耕十年，肖利丽坚信：教学不止于传授知识，更要以心育心、以情铸魂，让每一堂课都成为点燃灵魂的火种。
 
-近期行情波动加大，就在前一日，科创芯片等热门赛道集体回调，589190盘中一度下跌4.8%，收跌2.12%，资金借势积极增仓，上交所数据显示，589190单日获资金大举净流入7001万元，近5日累计吸金1.02亿元。
+肖利丽主讲《组训施教》这门核心课程。
 
-银河证券认为，外部宏观扰动、板块加速轮动与短期获利兑现共同放大了行情波动，但市场增量资金充裕的基础未发生根本性变化，更多属于行情中途的资金博弈与情绪释放，科技主线依然延续强势。
+课程看似枯燥，却连着基层战场，关系着打赢使命。
 
-* 就芯片赛道而言，一方面，海外芯片巨头延续强映射，带动板块情绪。
+在她看来，课堂不能只有书本理论，更要有温度、有力量、有直抵人心的故事。
 
-隔夜美股芯片上演史诗级暴涨，费城半导体指数大涨超5%，存储巨头美光科技大涨超19%，总市值首次突破1万亿美元。
+2015年，肖利丽第一次尝试在课前讲述一名基层连长在高原驻训中带领战士完成极限拉练的真实故事。
 
-瑞银认为AI浪潮已经从根本上改变了存储芯片行业的估值逻辑，将美光目标价从535美元大幅上调至1625美元。
+为了让学员们真切感受边防军人的爱国情怀，她提前数天埋头备课，整理教案，反复推敲每一处讲述细节。
 
 ## 相关推荐
 
-- 2026-06-30 03:05 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 03:01 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
-- 2026-06-30 03:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 03:27 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-30 03:30 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-30 03:21 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 03:09 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 03:28 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 03:08 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 03:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
-- 2026-06-30 03:18 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 03:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 03:07 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 03:33 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-30 03:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 03:19 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 03:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 03:10 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 03:27 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 03:12 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 03:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 03:17 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 03:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 03:32 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 03:19 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 03:30 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/167227872.shtml)
-- 2026-06-30 03:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/632481349.shtml)
-- 2026-06-30 03:13 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/7858591.shtml)
-- 2026-06-30 03:05 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/874885572.shtml)
-- 2026-06-30 03:26 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/73162049157.shtml)
-- 2026-06-30 03:06 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/07652592.shtml)
-- 2026-06-30 03:15 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/068398727938.shtml)
-- 2026-06-30 03:28 - [周生如故](http://www.share.kurohicncr.top/Article/details/475903500.shtml)
-- 2026-06-30 03:20 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/25899022013.shtml)
-- 2026-06-30 03:11 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/261430341.shtml)
-- 2026-06-30 03:20 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/2702263.shtml)
-- 2026-06-30 03:17 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/9107721.shtml)
-- 2026-06-30 03:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/5831357.shtml)
-- 2026-06-30 03:25 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/5262155.shtml)
-- 2026-06-30 03:00 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/71544450824.shtml)
+- 2026-06-30 03:20 - [速度与激情9](https://www.share.minike.top/Article/details/405195.shtml)
+- 2026-06-30 03:23 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/27492163.shtml)
+- 2026-06-30 03:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/747106675.shtml)
+- 2026-06-30 03:19 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/7919058046.shtml)
+- 2026-06-30 03:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/288444338.shtml)
+- 2026-06-30 03:18 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/376708847760.shtml)
+- 2026-06-30 03:20 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/0221596.shtml)
+- 2026-06-30 03:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/08429908931.shtml)
+- 2026-06-30 03:24 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/9259798626.shtml)
+- 2026-06-30 03:19 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/90247.shtml)
+- 2026-06-30 03:09 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/2221135714.shtml)
+- 2026-06-30 03:17 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/588867159.shtml)
+- 2026-06-30 03:35 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/7231998.shtml)
+- 2026-06-30 03:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/1724755564.shtml)
+- 2026-06-30 03:27 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/20240.shtml)

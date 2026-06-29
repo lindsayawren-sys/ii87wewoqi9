@@ -1,58 +1,60 @@
-# 美联航与Lyft洽谈企业差旅合作，拟打通空中+地面奖励闭环
+# 尾盘：美股涨势未减道指上涨1100点 伊朗议会议长称美国违反停火协议
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-据媒体报道，Lyft正在与美联航进行深入谈判，拟推出一项面向企业客户的差旅福利合作。若协议达成，企业客户在通过美联航预订商务航班的同时，将能够享受Lyft提供的打包地面交通服务及相关优惠，此举将进一步完善两家公司自2025年底启动的战略联盟。 合作背景：从里程互通到深度捆绑 Lyft与美联航的合作伙伴关系始于2025年11月。2026年4月，双方进一步推出了行业首创的“Pay
+北京时间4月9日凌晨，美股周三尾盘涨势未减，道指上涨1100点。市场密切关注美伊刚刚达成的两周停火协议。伊朗议会议长称美国违反停火协议。 道指涨1157.49点，涨幅为2.48%，报47741.95点；纳指涨558.38点，涨幅为2.54%，报22576.23点；标普500指数涨146.11点，涨幅为2.21%，报6762.96点。 伊朗议会议长穆罕默德·巴盖尔·卡利巴夫周三指
 
 ## 正文
 
-据媒体报道，Lyft正在与美联航进行深入谈判，拟推出一项面向企业客户的差旅福利合作。
+北京时间4月9日凌晨，美股周三尾盘涨势未减，道指上涨1100点。
 
-若协议达成，企业客户在通过美联航预订商务航班的同时，将能够享受Lyft提供的打包地面交通服务及相关优惠，此举将进一步完善两家公司自2025年底启动的战略联盟。
+市场密切关注美伊刚刚达成的两周停火协议。
 
-合作背景：从里程互通到深度捆绑 Lyft与美联航的合作伙伴关系始于2025年11月。
+伊朗议会议长称美国违反停火协议。
 
-2026年4月，双方进一步推出了行业首创的“Pay with Miles”功能，允许美联航前程万里会员将累积里程直接用于支付Lyft车费。
+道指涨1157.49点，涨幅为2.48%，报47741.95点；纳指涨558.38点，涨幅为2.54%，报22576.23点；标普500指数涨146.11点，涨幅为2.21%，报6762.96点。
 
-数据显示，该合作在上线初期便吸引了数十万个账户关联，会员累计赚取了超过1亿里程积分。
+伊朗议会议长穆罕默德·巴盖尔·卡利巴夫周三指责美国违反了两周停火协议。
 
-目前正在洽谈的企业差旅合作，被视为这一联盟的自然延伸。
+卡利巴夫在社交媒体上发布的一份声明中表示：“我们对美国深重的历史不信任源于其一再违反各种形式的承诺——遗憾的是，这种模式再次重演。
 
-与面向个人的里程赚取和兑换不同，企业层面的合作将涉及账户管理、集中结算、员工福利包等B端功能。
+” 在此之前，美国总统特朗普4月7日宣布，同意暂停对伊朗的轰炸和袭击两周，前提是伊朗同意“全面、立即且安全地”开放霍尔木兹海峡。
 
-美联航计划于2026年中推出全新的“United for Business”企业奖励计划，以取代现有的PerksPlus项目，此次与Lyft的谈判很可能与该计划的升级同步推进。
+他同时表示，“这将是一次双向停火。
 
 ## 相关推荐
 
-- 2026-06-30 03:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 03:20 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 03:17 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 03:20 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 03:07 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 03:06 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 03:22 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 03:27 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 03:05 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-30 03:19 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 03:11 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 03:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 03:32 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 03:18 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 03:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 03:14 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 03:10 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 03:15 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 03:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 03:28 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 03:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 03:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 03:14 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 03:23 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:08 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/396205846857.shtml)
-- 2026-06-30 03:06 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/1900698.shtml)
-- 2026-06-30 03:21 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/04706.shtml)
-- 2026-06-30 03:21 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/178981.shtml)
-- 2026-06-30 03:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/3756504827.shtml)
-- 2026-06-30 03:05 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/6056981.shtml)
-- 2026-06-30 03:18 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/017779.shtml)
-- 2026-06-30 03:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/9625488383.shtml)
-- 2026-06-30 03:26 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/36883.shtml)
-- 2026-06-30 03:09 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/16311037.shtml)
-- 2026-06-30 03:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/558255558.shtml)
-- 2026-06-30 03:27 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/544144.shtml)
-- 2026-06-30 03:19 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/988322630.shtml)
-- 2026-06-30 03:12 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/34522.shtml)
-- 2026-06-30 03:13 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/9385958.shtml)
+- 2026-06-30 03:33 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/327974874654.shtml)
+- 2026-06-30 03:14 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/170743773481.shtml)
+- 2026-06-30 03:35 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/806858663.shtml)
+- 2026-06-30 03:28 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/84898.shtml)
+- 2026-06-30 03:30 - [恋与深空 日服](http://www.share.minike.top/Article/details/619061178.shtml)
+- 2026-06-30 03:07 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/9631105971.shtml)
+- 2026-06-30 03:10 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/70653446087.shtml)
+- 2026-06-30 03:26 - [金刚川](http://www.share.minike.top/Article/details/29735.shtml)
+- 2026-06-30 03:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/8643438252.shtml)
+- 2026-06-30 03:28 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/505067596.shtml)
+- 2026-06-30 03:22 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/10440702372.shtml)
+- 2026-06-30 03:15 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/72351.shtml)
+- 2026-06-30 03:28 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/770802816029.shtml)
+- 2026-06-30 03:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/3296238467.shtml)
+- 2026-06-30 03:21 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/27415224721.shtml)

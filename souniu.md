@@ -1,58 +1,58 @@
-# 尽管伊朗冲突冲击销售，Abercrombie盈利超预期，股价大涨13%
+# 大疆汪滔：很多看起来伟大的创新，本质上是一种拿来主义
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 核心要点 Abercrombie & Fitch 于周三公布了 2026 财年第一季度业绩。公司表示，受中东冲突 “直接影响”，业绩喜忧参半，且给出了弱于预期的业绩指引。 尽管面临上述挑战，公司早盘股价仍大涨约 13%，因其盈利数据轻松超出华尔街预期。 首席财务官 Robert Ball 在分析师电话会议上表示，本季度公司欧洲、中东及非洲地
+来源：晚点LatePost 大疆之路，汪滔的 20 年。 文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。 十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。他补上了这句话的后半句——“世界蠢得不可思议，我也是。” 问题不只在世界，也在自己。这或许是汪滔对自己漫长创业生涯最简短的概括。 2006 年，还在香港科技大学读
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 核心要点 Abercrombie & Fitch 于周三公布了 2026 财年第一季度业绩。
+来源：晚点LatePost 大疆之路，汪滔的 20 年。
 
-公司表示，受中东冲突 “直接影响”，业绩喜忧参半，且给出了弱于预期的业绩指引。
+文丨小晚 汪滔上一次公开露面是在十年前，此后彻底消失在公众视野，只留下一句被反复引用的话：世界蠢得不可思议。
 
-尽管面临上述挑战，公司早盘股价仍大涨约 13%，因其盈利数据轻松超出华尔街预期。
+十年后，《晚点》独家访谈了大疆创始人、董事长汪滔。
 
-首席财务官 Robert Ball 在分析师电话会议上表示，本季度公司欧洲、中东及非洲地区（EMEA）销售额下降 10%，主因中东冲突导致旗下 Hollister 品牌需求放缓Abercrombie & Fitch Co．。
+他补上了这句话的后半句——“世界蠢得不可思议，我也是。
 
-他称，相较于公司此前预期，中东冲突导致公司第一季度总净销售额增速降低了 0.5 个百分点以上。
+” 问题不只在世界，也在自己。
 
-CEO Fran Horowitz 在电话会议上补充道：“我们专注于可控因素，包括库存水平和营销投入，确保能实时应对市场变化。
+这或许是汪滔对自己漫长创业生涯最简短的概括。
 
-尽管 EMEA 地区遭遇逆风，但我们预计第二季度及 2026 全年总销售额将实现增长，这将是我们净销售额连续第四年增长。
+2006 年，还在香港科技大学读研究生的汪滔创立了大疆。
 
-”Abercrombie & Fitch Co． 据伦敦证券交易所集团（LSEG）数据，公司预计本季度每股收益在 1.80 美元至 2.00 美元之间，远低于市场预期的 2.54 美元。
+它从深圳莲花村的一处民居中起步，20 年时间，成长为一家以原创产品引领全球市场的中国科技企业。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 03:03 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 03:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 03:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 03:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 03:10 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 03:16 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 03:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 03:21 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-30 03:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
-- 2026-06-30 03:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 03:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 03:29 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 03:23 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 03:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-30 03:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 03:32 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 03:31 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 03:22 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 03:10 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 03:16 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 03:21 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 03:34 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 03:35 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/970739753.shtml)
-- 2026-06-30 03:20 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/56558506241.shtml)
-- 2026-06-30 03:13 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/34331491188.shtml)
-- 2026-06-30 03:28 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/02391304711.shtml)
-- 2026-06-30 03:06 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/900913841137.shtml)
-- 2026-06-30 03:13 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/846150777631.shtml)
-- 2026-06-30 03:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/501637211.shtml)
-- 2026-06-30 03:19 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/92680076.shtml)
-- 2026-06-30 03:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/79434540758.shtml)
-- 2026-06-30 03:14 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/9314193846.shtml)
-- 2026-06-30 03:09 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/80390.shtml)
-- 2026-06-30 03:09 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/97439.shtml)
-- 2026-06-30 03:12 - [日本16强魔咒](http://www.share.minike.top/Article/details/118188806.shtml)
-- 2026-06-30 03:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/8983810871.shtml)
-- 2026-06-30 03:13 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/4710646.shtml)
+- 2026-06-30 03:23 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/30200.shtml)
+- 2026-06-30 03:22 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/31873.shtml)
+- 2026-06-30 03:11 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/7098766400.shtml)
+- 2026-06-30 03:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/825849.shtml)
+- 2026-06-30 03:21 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/634744.shtml)
+- 2026-06-30 03:10 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/727920.shtml)
+- 2026-06-30 03:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/921824695967.shtml)
+- 2026-06-30 03:36 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/49775032522.shtml)
+- 2026-06-30 03:10 - [世界杯](http://www.blog.minike.top/Article/details/873140501504.shtml)
+- 2026-06-30 03:31 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/862745822.shtml)
+- 2026-06-30 03:18 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/4838142.shtml)
+- 2026-06-30 03:17 - [金刚川](http://www.share.minike.top/Article/details/8807103.shtml)
+- 2026-06-30 03:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/77273279.shtml)
+- 2026-06-30 03:06 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/429705020628.shtml)
+- 2026-06-30 03:33 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/89113601105.shtml)

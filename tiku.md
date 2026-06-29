@@ -1,57 +1,58 @@
-# Verastem Oncology任命Michael P. Bailey为董事会成员
+# SK 海力士向戴尔供应 321 层 QLC 消费级固态硬盘：2230 尺寸，可选 1TB/2TB
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-专注于RAS/MAPK通路驱动型癌症的生物制药公司Verastem Oncology今日宣布，任命Michael P． Bailey为公司董事会成员。与此同时，Robert Gagnon于2026年5月21日任期届满后正式卸任。 Verastem Oncology总裁兼首席执行官Daniel Paterson表示：“我们很高兴Michael加入董事会，他拥有超过三十年的全球制药
+IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在
 
 ## 正文
 
-专注于RAS/MAPK通路驱动型癌症的生物制药公司Verastem Oncology今日宣布，任命Michael P． Bailey为公司董事会成员。
+IT之家 4 月 8 日消息，据韩媒 The Elec 今天报道，SK 海力士宣布向客户供应 321 层 QLC（四层单元）消费级固态硬盘（SSD），进一步扩展 NAND 闪存产品阵容。
 
-与此同时，Robert Gagnon于2026年5月21日任期届满后正式卸任。
+据介绍，本次供应的产品名为 PQC21，采用 2230 小尺寸，提供 1TB、2TB 两种容量选择。
 
-Verastem Oncology总裁兼首席执行官Daniel Paterson表示：“我们很高兴Michael加入董事会，他拥有超过三十年的全球制药和生物技术领导经验，在将肿瘤药物从临床开发推进至成功商业化方面有着卓越的履历，包括ERBITUX®等里程碑式疗法。
+QLC NAND 每个单元可以存储 4bit 数据，相比 SLC（单层单元）存储密度更高，但在速度、耐久性方面有所下降。
 
-在我们进入AVMAPKI® FAKZYNJA® CO-PACK下一阶段增长并推进VS-7375开发之际，我们期待借鉴Michael的洞察与专长。
+这款固态硬盘通过 321 层 4D 结构堆叠数千亿个 QLC 单元构建，采用 PUC（IT之家注：Periphery Under Cell）架构，可通过将外围电路放在存储单元阵列下方缩小芯片体积。
 
-” Bailey现任LG化学旗下AVEO Pharmaceuticals总裁兼首席执行官，并自2015年1月起担任该公司董事。
+同时，这款产品还采用 DP（Die Packaging）技术，可将多个 321 层 NAND 芯片封装为单一芯片，提升存储密度。
 
-2023年，他主导了LG化学对AVEO的收购。
+配备 SLC 缓存技术，可以将部分数据先写入到速度更快的 SLC 区域，然后再转存至 QLC，从而提升写入性能。
 
-此前，他曾任Synta Pharmaceuticals业务发展高级副总裁兼首席商务官。
-
-在ImClone Systems工作的九年期间，他领导了ERBITUX®在多个肿瘤适应症的商业化规划和上市推广，并负责CYRAMZA®和PORTRAZZA®的新产品规划，最终晋升为商业运营高级副总裁。
+SK 海力士方面表示，这款产品本月已经向戴尔供货，计划扩展至全球更多客户。
 
 ## 相关推荐
 
-- 2026-06-30 03:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 03:30 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 03:15 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 03:14 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 03:01 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 03:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 03:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 03:17 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-30 03:00 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-30 03:12 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 03:10 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 03:23 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 03:25 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 03:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-30 03:12 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-30 03:18 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 03:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 03:33 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 03:14 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 03:12 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 03:24 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 03:21 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 03:08 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 03:21 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 03:35 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/45993195584.shtml)
-- 2026-06-30 03:05 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/84097596043.shtml)
-- 2026-06-30 03:08 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/21615233.shtml)
-- 2026-06-30 03:05 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/4287475586.shtml)
-- 2026-06-30 03:01 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/777665.shtml)
-- 2026-06-30 03:22 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/147047.shtml)
-- 2026-06-30 03:19 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/5075948.shtml)
-- 2026-06-30 03:09 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/994972.shtml)
-- 2026-06-30 03:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/22232550585.shtml)
-- 2026-06-30 03:21 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/39858262629.shtml)
-- 2026-06-30 03:23 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/60531925238.shtml)
-- 2026-06-30 03:16 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/8161655.shtml)
-- 2026-06-30 03:04 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/5148128378.shtml)
-- 2026-06-30 03:29 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/5326459.shtml)
-- 2026-06-30 03:08 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/8412604423.shtml)
+- 2026-06-30 03:12 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/3493386026.shtml)
+- 2026-06-30 03:31 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/41130089.shtml)
+- 2026-06-30 03:34 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/659121994.shtml)
+- 2026-06-30 03:19 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/83257773541.shtml)
+- 2026-06-30 03:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/47208073.shtml)
+- 2026-06-30 03:09 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/115719265286.shtml)
+- 2026-06-30 03:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/804334.shtml)
+- 2026-06-30 03:34 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/947601.shtml)
+- 2026-06-30 03:14 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/34054.shtml)
+- 2026-06-30 03:18 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/8769711.shtml)
+- 2026-06-30 03:13 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/729646335589.shtml)
+- 2026-06-30 03:17 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/834377.shtml)
+- 2026-06-30 03:21 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/2998042648.shtml)
+- 2026-06-30 03:21 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/38382352.shtml)
+- 2026-06-30 03:32 - [千香](http://www.share.minike.top/Article/details/987946.shtml)

@@ -1,59 +1,60 @@
-# 单日“吸金”超3亿元！规模最大港股通信息技术ETF华宝（159131）强势冲高2.64%，盘中资金火线加码1.82亿份
+# 亚马逊考虑向其他公司出售其人工智能芯片
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月27日，港股硬科技再度走强，联想集团涨超4%，中芯国际、华虹半导体涨超3%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）高开上涨2.64%，实时成交额4亿元，继昨日资金逢跌爆买超3亿元后，今日资金持续涌入，截至发稿申购加码1.82亿份！ 国盛证券指出，“韬定律”的发布，是中国半导体产业从“跟随者”向“引领者”跨越的里程碑事件。它打破了全球半导体产业长
+云计算巨头亚马逊首席执行官Andy Jassy周四表示，公司正考虑向其他企业出售其芯片。他还称，公司自研芯片业务年化收入有望超过200亿美元。 这一披露罕见展示了亚马逊自研芯片业务的规模。该业务生产通用计算芯片、人工智能加速，以及提升公司服务器运行效率的芯片。 目前，亚马逊通过其云计算业务亚马逊云科技（Amazon Web Services，AWS）向客户出租这些硬件。但构建人
 
 ## 正文
 
-5月27日，港股硬科技再度走强，联想集团涨超4%，中芯国际、华虹半导体涨超3%，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）高开上涨2.64%，实时成交额4亿元，继昨日资金逢跌爆买超3亿元后，今日资金持续涌入，截至发稿申购加码1.82亿份！
+云计算巨头亚马逊首席执行官Andy Jassy周四表示，公司正考虑向其他企业出售其芯片。
 
-国盛证券指出，“韬定律”的发布，是中国半导体产业从“跟随者”向“引领者”跨越的里程碑事件。
+他还称，公司自研芯片业务年化收入有望超过200亿美元。
 
-它打破了全球半导体产业长期由西方理论主导的格局，为产业发展提供了兼具创新性与可行性的中国方案，有望重塑全球半导体产业的竞争格局与发展轨迹。
+这一披露罕见展示了亚马逊自研芯片业务的规模。
 
-韬定律也能有效提升芯片在有限功耗下的有效算力，从而节约成本，为AI浪潮赋能。
+该业务生产通用计算芯片、人工智能加速，以及提升公司服务器运行效率的芯片。
 
-万联证券分析认为，当前中美科技摩擦持续的背景下，华为发布的韬定律有望通过先进封装、互联架构创新等方式绕开高尖端半导体设备、晶圆代工等领域的“卡脖子”问题，为我国芯片产业发展先进制程提供新的实践路径，亦有望为AI等新兴和未来产业提供更坚实硬件底座。
+目前，亚马逊通过其云计算业务亚马逊云科技（Amazon Web Services，AWS）向客户出租这些硬件。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅38.72%，同期恒生科技、港股通科技的涨幅分别为5.48%、3.94%，锐度和弹性显著领先。
+但构建人工智能模型所需处理器的需求激增，导致供应趋紧，促使企业寻找英伟达占据主导地位的图形处理器之外的替代方案。
 
-统计区间：2026.3.31-2026.5.22。
+“我们芯片的需求非常旺盛，未来很可能向第三方按整机架出售，”Jassy在年度股东信中表示。
 
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
+这位上任近五年的亚马逊掌门人表示，如果芯片业务是一家向AWS客户及其他第三方销售半导体的独立公司，其年化收入规模将达到500亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 03:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 03:17 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 03:26 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 03:13 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 03:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 03:24 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 03:19 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 03:26 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 03:29 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 03:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 03:26 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 03:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 03:08 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 03:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 03:06 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 03:14 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 03:09 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 03:32 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 03:10 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 03:29 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 03:33 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 03:09 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 03:24 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 03:11 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 03:25 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 03:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:24 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/8527150.shtml)
-- 2026-06-30 03:21 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/174354.shtml)
-- 2026-06-30 03:00 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/6161197745.shtml)
-- 2026-06-30 03:17 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/87178.shtml)
-- 2026-06-30 03:11 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/84735433357.shtml)
-- 2026-06-30 03:28 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/649529281788.shtml)
-- 2026-06-30 03:21 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/793354.shtml)
-- 2026-06-30 03:28 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/55962795.shtml)
-- 2026-06-30 03:14 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/5783328.shtml)
-- 2026-06-30 03:08 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/4465561884.shtml)
-- 2026-06-30 03:04 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/7945694632.shtml)
-- 2026-06-30 03:11 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/30785895407.shtml)
-- 2026-06-30 03:14 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/1897040.shtml)
-- 2026-06-30 03:02 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/062124813.shtml)
-- 2026-06-30 03:17 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/51827291985.shtml)
+- 2026-06-30 03:08 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/23887528668.shtml)
+- 2026-06-30 03:17 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/61259.shtml)
+- 2026-06-30 03:23 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/41456540.shtml)
+- 2026-06-30 03:23 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/260460551316.shtml)
+- 2026-06-30 03:24 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/75682.shtml)
+- 2026-06-30 03:33 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/235660031.shtml)
+- 2026-06-30 03:15 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/4759087776.shtml)
+- 2026-06-30 03:20 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/2737934516.shtml)
+- 2026-06-30 03:28 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/1763453.shtml)
+- 2026-06-30 03:06 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/7164862921.shtml)
+- 2026-06-30 03:26 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/846169594155.shtml)
+- 2026-06-30 03:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/2557515996.shtml)
+- 2026-06-30 03:11 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/75766.shtml)
+- 2026-06-30 03:30 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/25199144466.shtml)
+- 2026-06-30 03:14 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/67992.shtml)

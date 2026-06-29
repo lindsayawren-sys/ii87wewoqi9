@@ -1,59 +1,54 @@
-# 辽宁省政协十三届常委会第十五次会议在沈阳召开
+# 白宫称伊朗提出“更合理”的新方案 可作谈判基础
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新网沈阳5月26日电 (记者 于海洋)辽宁省政协十三届常委会第十五次会议26日在辽宁沈阳召开。 辽宁省政协主席周波主持第一次全体会议。本次会议为期一天半，主要议程是围绕“全力打造营商环境最佳口碑省，助力辽宁全面振兴”协商议政；审议通过人事事项。 在第一次全体会议上，8位省政协常委、委员围绕会议议题进行了大会发言，提出优化政策供给，筑牢诚信根基；建立标准对比机制，推动高频事项同
+中新网4月9日电 据美国《时代》杂志9日报道，美国白宫新闻秘书莱维特8日在记者会上说，伊朗最初提出的10点建议“完全不可接受”，已被彻底摒弃。 莱维特补充称，伊朗随后提交了一份“更合理、完全不同、更简明”的方案，特朗普认为伊朗提出的这一新方案是“可行的谈判基础”。 但白宫方面尚未详细说明伊朗计划的具体内容。 伊朗方面对此暂未回应。报道还称，尽管伊朗伊斯兰议会议长卡利巴夫的声明以
 
 ## 正文
 
-中新网沈阳5月26日电 (记者 于海洋)辽宁省政协十三届常委会第十五次会议26日在辽宁沈阳召开。
+中新网4月9日电 据美国《时代》杂志9日报道，美国白宫新闻秘书莱维特8日在记者会上说，伊朗最初提出的10点建议“完全不可接受”，已被彻底摒弃。
 
-辽宁省政协主席周波主持第一次全体会议。
+莱维特补充称，伊朗随后提交了一份“更合理、完全不同、更简明”的方案，特朗普认为伊朗提出的这一新方案是“可行的谈判基础”。
 
-本次会议为期一天半，主要议程是围绕“全力打造营商环境最佳口碑省，助力辽宁全面振兴”协商议政；审议通过人事事项。
+但白宫方面尚未详细说明伊朗计划的具体内容。
 
-在第一次全体会议上，8位省政协常委、委员围绕会议议题进行了大会发言，提出优化政策供给，筑牢诚信根基；建立标准对比机制，推动高频事项同标办理；构建政策综合服务平台，推进政策系统集成；对标国际一流，为经营主体提供全生命周期服务；深化“放管服”改革，切实减轻企业负担；培育耐心资本，为企业投资创业营造良好环境；落实民营经济促进法，全面打造一流营商环境；讲好营商环境改革故事，构建“人人都是传播者”的生动局面等建议。
+伊朗方面对此暂未回应。
 
-辽宁省副省长顾军通报有关情况。
-
-省直有关部门负责同志，各市及部分县(市、区)政协主席，部分省政协委员列席会议。
-
-(完)
+报道还称，尽管伊朗伊斯兰议会议长卡利巴夫的声明以及伊朗公开发布的提案均称伊朗拥有铀浓缩的权利，但莱维特8日却称，伊朗进行浓缩铀活动是“一条红线”，特朗普对此绝不会退让。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 03:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 03:18 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 03:12 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 03:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 03:29 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 03:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-30 03:10 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-30 03:21 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 03:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 03:28 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 03:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 03:27 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 03:16 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 03:27 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 03:33 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 03:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 03:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 03:27 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 03:30 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 03:27 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 03:34 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 03:07 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 03:18 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 03:18 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 03:27 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 03:10 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 03:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 03:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/41920090502.shtml)
-- 2026-06-30 03:27 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/821734687572.shtml)
-- 2026-06-30 03:07 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/56065.shtml)
-- 2026-06-30 03:27 - [恋与深空回应争议](http://www.share.minike.top/Article/details/789826.shtml)
-- 2026-06-30 03:28 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/95132.shtml)
-- 2026-06-30 03:23 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/86887044.shtml)
-- 2026-06-30 03:19 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/592050.shtml)
-- 2026-06-30 03:27 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/94880180169.shtml)
-- 2026-06-30 03:12 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/06751430112.shtml)
-- 2026-06-30 03:17 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/794924761245.shtml)
-- 2026-06-30 03:13 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/36495810708.shtml)
-- 2026-06-30 03:05 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/7320128.shtml)
-- 2026-06-30 03:02 - [我和我的家乡](http://www.blog.minike.top/Article/details/084832586.shtml)
-- 2026-06-30 03:11 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/16967515.shtml)
-- 2026-06-30 03:16 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/34955072.shtml)
+- 2026-06-30 03:12 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/67394862.shtml)
+- 2026-06-30 03:32 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/97489.shtml)
+- 2026-06-30 03:14 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/3945909.shtml)
+- 2026-06-30 03:20 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/10271200561.shtml)
+- 2026-06-30 03:30 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/10200903.shtml)
+- 2026-06-30 03:31 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/7901291.shtml)
+- 2026-06-30 03:19 - [天道](http://www.blog.minike.top/Article/details/648816737.shtml)
+- 2026-06-30 03:29 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/63804821735.shtml)
+- 2026-06-30 03:33 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/24743769.shtml)
+- 2026-06-30 03:17 - [小娘惹](https://www.share.minike.top/Article/details/41640264783.shtml)
+- 2026-06-30 03:31 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/6869426383.shtml)
+- 2026-06-30 03:10 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/648984531929.shtml)
+- 2026-06-30 03:20 - [日本进球](http://www.blog.kurohicncr.top/Article/details/3036300291.shtml)
+- 2026-06-30 03:32 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/032058933088.shtml)
+- 2026-06-30 03:12 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/69664010524.shtml)

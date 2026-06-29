@@ -1,57 +1,58 @@
-# 绝地反击！白酒龙头午后狂飙，华宝基金食品饮料ETF（515710）盘中涨超2%！主力逆市加码
+# 多家银行强化薪酬风险回溯 去年退薪过亿元
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-吃喝板块今日（5月27日）上演惊天逆转！反映吃喝板块整体走势的食品饮料ETF华宝（515710）早盘一度跌超2%，午后突然猛拉，盘中场内价格最高涨幅达到2.16%，截至发稿，涨1.77%。 成份股方面，白酒集体猛攻。截至发稿，水井坊、舍得酒业双双涨停，酒鬼酒、金徽酒飙涨超8%，贵州茅台、五粮液、泸州老窖、山西汾酒、洋河股份等白酒龙头集体大涨。 资金面上，吃喝板块今日逆市获资金流
+银行竟然也加入了“讨薪”大军。“反向讨薪”是金融领域近年来的一个热词。2025年年报披露正酣，银行也披露了去年的“讨薪”情况，截至目前至少有12家银行披露了去年的绩效薪酬追索扣回情况，涉及资金近1.2亿元。 中行一家去年退薪近5000万元 中国银行去年的追索力度最为突出，以4717.82万元的追索金额、4630人次的追索人数，暂列已披露年报银行首位。中国银行已连续三年完整披露追
 
 ## 正文
 
-吃喝板块今日（5月27日）上演惊天逆转！
+银行竟然也加入了“讨薪”大军。
 
-反映吃喝板块整体走势的食品饮料ETF华宝（515710）早盘一度跌超2%，午后突然猛拉，盘中场内价格最高涨幅达到2.16%，截至发稿，涨1.77%。
+“反向讨薪”是金融领域近年来的一个热词。
 
-成份股方面，白酒集体猛攻。
+2025年年报披露正酣，银行也披露了去年的“讨薪”情况，截至目前至少有12家银行披露了去年的绩效薪酬追索扣回情况，涉及资金近1.2亿元。
 
-截至发稿，水井坊、舍得酒业双双涨停，酒鬼酒、金徽酒飙涨超8%，贵州茅台、五粮液、泸州老窖、山西汾酒、洋河股份等白酒龙头集体大涨。
+中行一家去年退薪近5000万元 中国银行去年的追索力度最为突出，以4717.82万元的追索金额、4630人次的追索人数，暂列已披露年报银行首位。
 
-资金面上，吃喝板块今日逆市获资金流入。
+中国银行已连续三年完整披露追索细节：2023年追回2275万元、涉及2059人次；2024年追回3250万元、涉及2469人次；2025年追索数据大幅攀升，反向讨薪金额4717.82万元、涉及4630人次；2023年～2025年，中行三年累计追回超1.02亿元，涉及总数达9158人次。
 
-数据显示，截至发稿，食品饮料板块单日获主力资金净流入超16亿元，净流入额在30个中信一级行业中位居第4。
+对于讨薪的具体原因，中国银行年报也给出了解释，银行针对高级管理人员及关键岗位人员，将40%以上绩效薪酬实行延期支付，期限不少于3年；若相关人员在职期间出现职责内风险损失超常暴露，银行可部分或全部追回已发放绩效，并止付未发放部分。
 
-消息面上，五粮液世界杯“冠军盲盒”隐藏款单瓶价格飙升。
+这一制度设计，正是其追索规模领先的重要原因。
 
-据了解，消费者整箱（500ml×6瓶）购买第八代五粮液美加墨世界杯官方联名白酒后，仅有1%的概率随机获得一款冠军国家队主题的隐藏款产品。
+建设银行也公布了“反向讨薪”的情况，不过显然力度比中国银行要温和许多，数据显示，2025年建设银行对董事及高管无追索记录，仅17名总行管理干部被追索，涉及金额199万元，较2024年的26人次、374万元出现明显下降。
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 03:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
-- 2026-06-30 03:09 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-30 03:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 03:29 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 03:23 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 03:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 03:11 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 03:09 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
-- 2026-06-30 03:16 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-30 03:08 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 03:23 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 03:21 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-30 03:09 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 03:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 03:31 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 03:07 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 03:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 03:08 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-30 03:28 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 03:24 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-30 03:21 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 03:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/71101675135.shtml)
-- 2026-06-30 03:08 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/179371904.shtml)
-- 2026-06-30 03:10 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/68801203.shtml)
-- 2026-06-30 03:01 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/3918767.shtml)
-- 2026-06-30 03:04 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/111508.shtml)
-- 2026-06-30 03:20 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/103828909695.shtml)
-- 2026-06-30 03:24 - [蔚来车主罚站](http://www.share.minike.top/Article/details/2407911.shtml)
-- 2026-06-30 03:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/32474.shtml)
-- 2026-06-30 03:29 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/24474.shtml)
-- 2026-06-30 03:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/484420.shtml)
-- 2026-06-30 03:06 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/33533.shtml)
-- 2026-06-30 03:04 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/688974.shtml)
-- 2026-06-30 03:10 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/389075537037.shtml)
-- 2026-06-30 03:15 - [美人鱼](https://www.share.minike.top/Article/details/633811.shtml)
-- 2026-06-30 03:14 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/818050966.shtml)
+- 2026-06-30 03:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/08662512.shtml)
+- 2026-06-30 03:32 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/74018.shtml)
+- 2026-06-30 03:32 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/4391422.shtml)
+- 2026-06-30 03:24 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/9336324152.shtml)
+- 2026-06-30 03:09 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/46109169.shtml)
+- 2026-06-30 03:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/60253834841.shtml)
+- 2026-06-30 03:26 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/33369779.shtml)
+- 2026-06-30 03:12 - [天道](http://www.blog.kurohicncr.top/Article/details/893466474603.shtml)
+- 2026-06-30 03:17 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/640106.shtml)
+- 2026-06-30 03:33 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/363218264.shtml)
+- 2026-06-30 03:12 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/190030947055.shtml)
+- 2026-06-30 03:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/358907329.shtml)
+- 2026-06-30 03:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/79186.shtml)
+- 2026-06-30 03:20 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/895502.shtml)
+- 2026-06-30 03:19 - [千香](https://www.share.kurohicncr.top/Article/details/523400147.shtml)

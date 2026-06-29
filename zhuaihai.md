@@ -1,58 +1,48 @@
-# 中国发布首份聚焦人工智能与能源融合发展年度报告
+# 绿茶集团于4月9日斥资1385.59万港元回购168.44万股
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月26日电 (记者 王梦瑶)中国国家能源局组织编制的《中国“人工智能+”能源发展报告2026》26日正式发布，这是中国能源领域首份聚焦人工智能与能源融合发展的年度报告。 报告系统回顾了国内外人工智能与能源融合发展进展，深入研判了中国“人工智能+”能源发展形势，并对下一阶段重点方向作出展望。 报告称，“人工智能+”能源已成为世界主要国家抢占未来发展主动权的重要战略方向
+绿茶集团（06831）发布公告，于2026年4月9日斥资1385.59万港元回购168.44万股。责任编辑：卢昱君
 
 ## 正文
 
-中新社北京5月26日电 (记者 王梦瑶)中国国家能源局组织编制的《中国“人工智能+”能源发展报告2026》26日正式发布，这是中国能源领域首份聚焦人工智能与能源融合发展的年度报告。
+绿茶集团（06831）发布公告，于2026年4月9日斥资1385.59万港元回购168.44万股。
 
-报告系统回顾了国内外人工智能与能源融合发展进展，深入研判了中国“人工智能+”能源发展形势，并对下一阶段重点方向作出展望。
-
-报告称，“人工智能+”能源已成为世界主要国家抢占未来发展主动权的重要战略方向。
-
-人工智能快速发展正在带动全球算力设施用电需求持续增长。
-
-据国际能源署预测，到2030年，全球数据中心用电量将较2025年接近翻番。
-
-在算力设施绿色低碳转型和算电协同方面，2025年，中国已建成42个万卡级智算集群，全国算力中心总用电量达1700亿千瓦时。
-
-全国一体化算力网络八大枢纽节点算力用能成为增长的主要来源，近三年平均增速约为39.5%，远高于全社会用电量的平均增速。
-
-其中，京津冀枢纽节点、内蒙古枢纽节点用电量近三年平均增速分别达到33.3%和66.5%，反映出算力资源向重点枢纽和能源资源富集地区加快集聚。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 03:01 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 03:27 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 03:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 03:15 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 03:22 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 03:10 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 03:19 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 03:24 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 03:03 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 03:18 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
-- 2026-06-30 03:16 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 03:29 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 03:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
+- 2026-06-30 03:10 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 03:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-30 03:33 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 03:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 03:30 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 03:10 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 03:12 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 03:10 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 03:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 03:09 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 03:27 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-30 03:31 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 03:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [绘画区你赢了](http://www.share.minike.top/Article/details/62393070.shtml)
-- 2026-06-30 03:09 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/191982.shtml)
-- 2026-06-30 03:20 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/543716449.shtml)
-- 2026-06-30 03:18 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/913192102.shtml)
-- 2026-06-30 03:23 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/6470352281.shtml)
-- 2026-06-30 03:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/89999279918.shtml)
-- 2026-06-30 03:26 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/1695076.shtml)
-- 2026-06-30 03:25 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/819470825.shtml)
-- 2026-06-30 03:17 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/449046767560.shtml)
-- 2026-06-30 03:16 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/2624545845.shtml)
-- 2026-06-30 03:00 - [我们的少年时代2](http://www.share.minike.top/Article/details/6835091.shtml)
-- 2026-06-30 03:29 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/6321582761.shtml)
-- 2026-06-30 03:10 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/19212030782.shtml)
-- 2026-06-30 03:05 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/038357.shtml)
-- 2026-06-30 03:26 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/11413526.shtml)
+- 2026-06-30 03:21 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/6504543.shtml)
+- 2026-06-30 03:06 - [美股](http://www.blog.minike.top/Article/details/32229.shtml)
+- 2026-06-30 03:16 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/68594509.shtml)
+- 2026-06-30 03:27 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/5258457673.shtml)
+- 2026-06-30 03:33 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/07121.shtml)
+- 2026-06-30 03:18 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/647958411488.shtml)
+- 2026-06-30 03:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/557585.shtml)
+- 2026-06-30 03:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/09099.shtml)
+- 2026-06-30 03:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/084885936.shtml)
+- 2026-06-30 03:22 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/5082100.shtml)
+- 2026-06-30 03:08 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/810839506835.shtml)
+- 2026-06-30 03:14 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/0668821.shtml)
+- 2026-06-30 03:21 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/1634079.shtml)
+- 2026-06-30 03:14 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/43004.shtml)
+- 2026-06-30 03:07 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/738863043645.shtml)

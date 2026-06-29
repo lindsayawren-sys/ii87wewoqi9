@@ -1,56 +1,59 @@
-# 证通电子索赔迎来新进展，符合要求还可加入
+# 中国第42次南极考察取得重要科研成果
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 关于投资者诉证通电子（维权）证券虚假陈述案，日前一审获法院支持，目前判决还未生效。其被索赔源于一纸处罚决定，公司因信息披露违法违规于2024年11月28日收到行政处罚决定书。据处罚决定书，公司主要违规事实为2017年和2019年的年度报告中存在虚假记载。最终公司被罚超千万，相关责任人也被重罚。 两类投资者可加入维权行列：（ST证
+中新社上海4月9日电 (记者 阮煜琳)中国第42次南极考察队暨“雪龙”号极地考察破冰船9日顺利完成考察任务返回国内，并取得丰硕考察成果。 考察队领队兼首席科学家魏福海当日在“雪龙”号上对记者表示，考察队在中国自主命名的东南极麒麟冰下湖区域成功完成中国首次南极热水钻探试验，钻深3413米，创国际极地热水钻探最深纪录。这一成果标志着中国相关技术跻身世界前列，为冰下环境探测与地球气候
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 关于投资者诉证通电子（维权）证券虚假陈述案，日前一审获法院支持，目前判决还未生效。
+中新社上海4月9日电 (记者 阮煜琳)中国第42次南极考察队暨“雪龙”号极地考察破冰船9日顺利完成考察任务返回国内，并取得丰硕考察成果。
 
-其被索赔源于一纸处罚决定，公司因信息披露违法违规于2024年11月28日收到行政处罚决定书。
+考察队领队兼首席科学家魏福海当日在“雪龙”号上对记者表示，考察队在中国自主命名的东南极麒麟冰下湖区域成功完成中国首次南极热水钻探试验，钻深3413米，创国际极地热水钻探最深纪录。
 
-据处罚决定书，公司主要违规事实为2017年和2019年的年度报告中存在虚假记载。
+这一成果标志着中国相关技术跻身世界前列，为冰下环境探测与地球气候演化研究奠定坚实基础。
 
-最终公司被罚超千万，相关责任人也被重罚。
+“一批国产极地装备经受极端环境考验，表现亮眼。
 
-两类投资者可加入维权行列：（ST证通维权入口） （1）于2021年4月15日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损； （2）于2018年4月24日-2024年5月30日期间买入，并在2024年5月31日之后卖出或仍持有而亏损。
+”魏福海说，国产“雪豹”6×6轮式载具完成内陆万里测试，将填补中国南极地面人员快速运送与应急救援的装备空白；新型内陆增压舱历经50天现场测试应用，进一步提升野外作业保障能力。
 
-据处罚决定书，需回溯到多年前收购的一家公司，2015年证通电子收购一公司70%股权，成为子公司，将其纳入合并报表范围。
+同时，首次在南极半岛临近海域海底布放国产海底地震仪阵列，助力地壳结构研究；构建企鹅栖息地“空-地”立体监测体系；磷虾多层采集网与生物光学潜标模块等新型自研装备相继投用，获取大量关键样品和数据，为海洋生态研究与全球气候变化应对提供有力支撑。
 
-2017年10月17日至12月4日，公司子公司与另一家公司签订6份采购合同，约定向其采购存储设备等产品，合同金额合计2，177.4万元。
+考察队“雪龙2”号大洋队队长曹叔楠说，本航次围绕气候变化对南大洋生态系统的影响持续开展南大洋综合调查。
 
-2017年11月1日、2018年8月23日，子公司分别与北京一点签订销售合同，约定将相应货物销售给北京一点，合同金额合计 2，648.14万元。
+“雪龙”号在阿蒙森海海域作业18天，完成综合调查站位23个，布放和回收综合潜标各3套，企鹅栖息地调查3站；采集各类环境与生物样品4500余份。
 
 ## 相关推荐
 
-- 2026-06-30 03:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 03:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 03:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 03:07 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 03:05 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 03:10 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 03:19 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 03:06 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 03:16 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 03:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-30 03:14 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 03:13 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 03:16 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 03:31 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 03:09 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 03:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 03:25 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 03:16 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 03:28 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-30 03:29 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 03:19 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 03:22 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 03:15 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/76952396722.shtml)
-- 2026-06-30 03:19 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/046505.shtml)
-- 2026-06-30 03:02 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/1608352.shtml)
-- 2026-06-30 03:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/76108393.shtml)
-- 2026-06-30 03:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/735203345543.shtml)
-- 2026-06-30 03:17 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/07094347487.shtml)
-- 2026-06-30 03:00 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/47411321197.shtml)
-- 2026-06-30 03:07 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/29525.shtml)
-- 2026-06-30 03:15 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/14140664108.shtml)
-- 2026-06-30 03:15 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/98818.shtml)
-- 2026-06-30 03:17 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/286311172.shtml)
-- 2026-06-30 03:16 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/59444969.shtml)
-- 2026-06-30 03:28 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/5526848.shtml)
-- 2026-06-30 03:26 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/359898975557.shtml)
-- 2026-06-30 03:24 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/033498589912.shtml)
+- 2026-06-30 03:12 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/901835732508.shtml)
+- 2026-06-30 03:30 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/1723480760.shtml)
+- 2026-06-30 03:35 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/390366925540.shtml)
+- 2026-06-30 03:06 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/46299088097.shtml)
+- 2026-06-30 03:18 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/806848121943.shtml)
+- 2026-06-30 03:10 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/11229.shtml)
+- 2026-06-30 03:19 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/68178.shtml)
+- 2026-06-30 03:06 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/083403.shtml)
+- 2026-06-30 03:09 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/7619450941.shtml)
+- 2026-06-30 03:13 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/9229454306.shtml)
+- 2026-06-30 03:33 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/06855.shtml)
+- 2026-06-30 03:16 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/36710365617.shtml)
+- 2026-06-30 03:35 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/178571939357.shtml)
+- 2026-06-30 03:29 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/0835226066.shtml)
+- 2026-06-30 03:13 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/202559.shtml)

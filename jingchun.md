@@ -1,58 +1,61 @@
-# 华泰期货：沪金沪银走低 地缘与政策双重压制
+# 锂电行业“反内卷”持续推进，四部委：坚决抵制不合理、不正当竞争行为
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 新能源有色金属组 相关品种：沪金、沪银 贵金属价格昨日日内走低，主力合约沪银2608收于18251元/千克，跌幅3.24%；主力合约沪金2608收于983.56元/克，跌幅1.58%。 地缘上，美伊军事交火与外交博弈同步升级。伊朗谴责美国公然违反停火协议，美国称其自卫打击旨在应对伊朗布设水雷等威胁，伊朗随后击落美军无人机并开火反击。谈判方面，美伊双方就伊
+针对锂电池行业“内卷式”竞争的治理仍在不断推进。 澎湃新闻记者从工信部网站获悉，4月9日，工信部、国家发改委、市场监管总局、国家能源局相关司局联合召开动力及储能电池行业企业座谈会，部署规范产业竞争秩序相关工作。 会议明确，全行业必须深刻认识治理“内卷式”竞争的重要性和紧迫性，坚决抵制不合理、不正当竞争行为，维护健康有序市场环境。 会议要求，巩固深化规范产业竞争秩序工作成效，发挥
 
 ## 正文
 
-来源：华泰期货 作者： 新能源有色金属组 相关品种：沪金、沪银 贵金属价格昨日日内走低，主力合约沪银2608收于18251元/千克，跌幅3.24%；主力合约沪金2608收于983.56元/克，跌幅1.58%。
+针对锂电池行业“内卷式”竞争的治理仍在不断推进。
 
-地缘上，美伊军事交火与外交博弈同步升级。
+澎湃新闻记者从工信部网站获悉，4月9日，工信部、国家发改委、市场监管总局、国家能源局相关司局联合召开动力及储能电池行业企业座谈会，部署规范产业竞争秩序相关工作。
 
-伊朗谴责美国公然违反停火协议，美国称其自卫打击旨在应对伊朗布设水雷等威胁，伊朗随后击落美军无人机并开火反击。
+会议明确，全行业必须深刻认识治理“内卷式”竞争的重要性和紧迫性，坚决抵制不合理、不正当竞争行为，维护健康有序市场环境。
 
-谈判方面，美伊双方就伊朗海外240亿美元资金解冻问题僵持不下，伊朗要求谅解备忘录发布后立即解冻一半，并坚持在约定资金到账之前，任何协议都不可能达成。
+会议要求，巩固深化规范产业竞争秩序工作成效，发挥部门协同工作机制作用，持续深入推进产能预警调控、规范价格竞争、压缩供应商账期、加强产品质量监管、打击知识产权侵权、治理“内卷外化”等工作，并对地方招商引资行为予以规范引导，统筹推动产业高质量发展。
 
-此外，外媒称在与美国达成停火协议前，伊朗正寻求从中国获得担保，并愿意“将浓缩铀移至中国”。
+会议还讨论了动力和储能电池行业非理性竞争负面行为清单。
 
-外交部发言人毛宁对此回应表示，希望有关各方抓住机会，通过谈判达成兼顾各方合理关切的解决方案。
+此次会议是继今年1月7日四部委联合座谈后，针对锂电行业规范发展的又一次关键定调。
 
-中方愿意继续为伊朗核问题的政治外交解决发挥建设性作用。
+此前的1月7日，工信部、国家发改委、市场监管总局、国家能源局同样联合召开动力和储能电池行业座谈会，研究部署进一步规范动力和储能电池产业竞争秩序工作。
 
-整体看，美伊局势的再次反复或是贵金属价格再次走低的主要催化，但内在核心逻辑仍集中在市场对于未来货币政策取向的交易上；现阶段美联储并无进一步降息的动机，对于贵金属而言若无边际上更为宽松的信号出现，短期难以延续反弹走势；黄金白银短期仍中性看待，而若油价延续弱势则可期待通胀数据转弱之后的美联储表态。
+当时会议指出，我国动力和储能电池产业发展迅速，在全球范围内取得阶段性竞争优势。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 03:03 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 03:07 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 03:05 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 03:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 03:21 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 03:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 03:15 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 03:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-30 03:08 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 03:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 03:19 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 03:33 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 03:29 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 03:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 03:24 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 03:18 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 03:33 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 03:12 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 03:22 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 03:08 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 03:27 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 03:17 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 03:17 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 03:18 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 03:19 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 03:35 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/911011111.shtml)
-- 2026-06-30 03:16 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/902916.shtml)
-- 2026-06-30 03:16 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/93662367535.shtml)
-- 2026-06-30 03:07 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/586110247908.shtml)
-- 2026-06-30 03:02 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/36744671.shtml)
-- 2026-06-30 03:08 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/591581621.shtml)
-- 2026-06-30 03:11 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/138771286969.shtml)
-- 2026-06-30 03:15 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/1393622.shtml)
-- 2026-06-30 03:12 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/6007088872.shtml)
-- 2026-06-30 03:23 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/732340.shtml)
-- 2026-06-30 03:22 - [恋与深空 日服](https://www.share.minike.top/Article/details/559205619644.shtml)
-- 2026-06-30 03:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/594967.shtml)
-- 2026-06-30 03:29 - [第一炉香](http://www.share.kurohicncr.top/Article/details/7267744190.shtml)
-- 2026-06-30 03:04 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/480684023.shtml)
-- 2026-06-30 03:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/7074224.shtml)
+- 2026-06-30 03:29 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/661468140767.shtml)
+- 2026-06-30 03:20 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/14977385318.shtml)
+- 2026-06-30 03:33 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/3282237621.shtml)
+- 2026-06-30 03:12 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/80222.shtml)
+- 2026-06-30 03:08 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/557426692.shtml)
+- 2026-06-30 03:06 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/294151570469.shtml)
+- 2026-06-30 03:24 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/192292.shtml)
+- 2026-06-30 03:27 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/91834.shtml)
+- 2026-06-30 03:20 - [千与千寻](https://www.share.minike.top/Article/details/98966439451.shtml)
+- 2026-06-30 03:10 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/0330924645.shtml)
+- 2026-06-30 03:14 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/99453390.shtml)
+- 2026-06-30 03:28 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/920202065.shtml)
+- 2026-06-30 03:26 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/06360362203.shtml)
+- 2026-06-30 03:16 - [急先锋](http://www.share.minike.top/Article/details/49609.shtml)
+- 2026-06-30 03:15 - [美人鱼](https://www.blog.minike.top/Article/details/07426.shtml)

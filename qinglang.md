@@ -1,58 +1,47 @@
-# 四川“人工智能+”工程提速：短期聚焦重点领域融合应用
+# 西子洁能拟每10股派息1元
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新网成都5月27日电 (单鹏)近日，《四川省加快推进“人工智能+”一号创新工程实施方案》(以下简称《方案》)公开发布。27日，四川省政府新闻办举行政策吹风会，介绍《方案》有关情况。 会上，四川省科技厅厅长路松明表示，《方案》分为发展目标、重点任务、工作要求3个部分，共26条。在发展目标上，立足当下突破与长远发展，明确了“三步走”的阶段性目标。 据路松明介绍，第一阶段，重点是破
+4月9日，西子洁能（002534）发布公告，公司拟向全体股东每10股派发现金股利1元（含税），预计总派发金额为8359万元。2025年，西子洁能实现收入62.41亿元，归母净利润4.37亿元。
 
 ## 正文
 
-中新网成都5月27日电 (单鹏)近日，《四川省加快推进“人工智能+”一号创新工程实施方案》(以下简称《方案》)公开发布。
+4月9日，西子洁能（002534）发布公告，公司拟向全体股东每10股派发现金股利1元（含税），预计总派发金额为8359万元。
 
-27日，四川省政府新闻办举行政策吹风会，介绍《方案》有关情况。
-
-会上，四川省科技厅厅长路松明表示，《方案》分为发展目标、重点任务、工作要求3个部分，共26条。
-
-在发展目标上，立足当下突破与长远发展，明确了“三步走”的阶段性目标。
-
-据路松明介绍，第一阶段，重点是破局起势，到2027年实现人工智能与重点领域广泛深度融合，形成2至3个具有全国竞争力的细分赛道产业集群，重点支持打造10个左右具有全国影响力的行业标杆大模型，建设10个左右行业领域重大标志性应用场景，为“人工智能+”打开新局面。
-
-第二阶段，重点是加速普及，到2030年争创1至2个国家级新兴产业集群、建设200家智能制造先进工厂，集聚人工智能企业2500家以上、产业规模突破4000亿元，新一代智能终端、智能体等应用普及率争取超过90%，让人工智能赋能千行百业、走进千家万户。
-
-第三阶段，重点是引领转型，推动人工智能从专项技术、产业工具，升级为如同电力、网络一样的通用性社会公共服务能力，到2035年全面步入智能经济和智能社会发展新阶段。
-
-据了解，《方案》在任务部署上呈现“全域覆盖+特色突破”的双重布局。
+2025年，西子洁能实现收入62.41亿元，归母净利润4.37亿元。
 
 ## 相关推荐
 
-- 2026-06-30 03:28 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 03:03 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 03:00 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 03:16 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 03:18 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 03:08 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 03:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 03:05 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 03:01 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 03:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 03:04 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 03:23 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 03:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-30 03:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 03:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 03:13 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 03:09 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 03:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 03:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 03:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 03:27 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 03:34 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 03:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 03:26 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 03:18 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:29 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/473571854.shtml)
-- 2026-06-30 03:13 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/814915.shtml)
-- 2026-06-30 03:19 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/6854141912.shtml)
-- 2026-06-30 03:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/34041875599.shtml)
-- 2026-06-30 03:08 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/2413642309.shtml)
-- 2026-06-30 03:14 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/61901950754.shtml)
-- 2026-06-30 03:11 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/0518844457.shtml)
-- 2026-06-30 03:12 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/744137491.shtml)
-- 2026-06-30 03:16 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/77111964.shtml)
-- 2026-06-30 03:14 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/9370493499.shtml)
-- 2026-06-30 03:23 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/8593108.shtml)
-- 2026-06-30 03:10 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/48367.shtml)
-- 2026-06-30 03:13 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/25438936700.shtml)
-- 2026-06-30 03:19 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/34680.shtml)
-- 2026-06-30 03:11 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/2229908.shtml)
+- 2026-06-30 03:24 - [逃狱兄弟](http://www.blog.minike.top/Article/details/890176107.shtml)
+- 2026-06-30 03:29 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/23442440609.shtml)
+- 2026-06-30 03:06 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/9029554209.shtml)
+- 2026-06-30 03:25 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/837039549.shtml)
+- 2026-06-30 03:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/1758993220.shtml)
+- 2026-06-30 03:30 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/49540727033.shtml)
+- 2026-06-30 03:30 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/2994900.shtml)
+- 2026-06-30 03:09 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/60772800632.shtml)
+- 2026-06-30 03:11 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/61548693316.shtml)
+- 2026-06-30 03:24 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/53184.shtml)
+- 2026-06-30 03:18 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/7100666.shtml)
+- 2026-06-30 03:07 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/64352668415.shtml)
+- 2026-06-30 03:23 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/1213700895.shtml)
+- 2026-06-30 03:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/248777987.shtml)
+- 2026-06-30 03:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/31900.shtml)

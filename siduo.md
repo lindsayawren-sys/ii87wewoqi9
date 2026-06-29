@@ -1,56 +1,58 @@
-# 国际观察：中国对非零关税举措将促进阿尔及利亚与中国合作进一步走深走实
+# 管理者身上的危险信号：会让员工觉得自己“被虚假承诺骗入职”
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月1日起，中国对53个非洲建交国全面实施零关税举措。这一历史性举措具有重要的里程碑意义。阿尔及利亚是中国在非洲的重要合作伙伴，我认为，这一举措将推动阿中关系迈向更广阔的前景：双边贸易额提质增量，投资规模持续扩大，各领域互动往来愈发密切，务实合作走深走实，两国互利共赢局面持续夯实发展。近年来，阿尔及利亚与中国经贸合作蓬勃发展，中国已成为阿尔及利亚最重要的贸易与投资伙伴之一。这是
+作者：阿什顿・杰克逊 遇到一个不怎么插手管理的老板听起来似乎很美好，直到他们暴露出某些危险信号。 这种管理方式的优点显而易见：佛系老板不会事无巨细地管控，会给员工自主权，营造自由灵活的工作氛围。人力资源软件提供商 BambooHR 去年 10 月的一份报告显示，38% 的员工表示偏爱放权式管理风格。 但 Viva Talent 联合首席执行官菲尼亚斯・塔塔尔表示，有些放权型管理
 
 ## 正文
 
-5月1日起，中国对53个非洲建交国全面实施零关税举措。
+作者：阿什顿・杰克逊 遇到一个不怎么插手管理的老板听起来似乎很美好，直到他们暴露出某些危险信号。
 
-这一历史性举措具有重要的里程碑意义。
+这种管理方式的优点显而易见：佛系老板不会事无巨细地管控，会给员工自主权，营造自由灵活的工作氛围。
 
-阿尔及利亚是中国在非洲的重要合作伙伴，我认为，这一举措将推动阿中关系迈向更广阔的前景：双边贸易额提质增量，投资规模持续扩大，各领域互动往来愈发密切，务实合作走深走实，两国互利共赢局面持续夯实发展。
+人力资源软件提供商 BambooHR 去年 10 月的一份报告显示，38% 的员工表示偏爱放权式管理风格。
 
-近年来，阿尔及利亚与中国经贸合作蓬勃发展，中国已成为阿尔及利亚最重要的贸易与投资伙伴之一。
+但 Viva Talent 联合首席执行官菲尼亚斯・塔塔尔表示，有些放权型管理者实在过于被动。
 
-这是两国持续打造全面战略伙伴关系的必然结果，双方合作领域正在超越传统贸易框架，拓展延伸至更多领域。
+该公司主要为远程行政助理与 CEO 及其他高管牵线合作。
 
-近日，中国驻阿尔及利亚大使董广利在第十二届非洲投资与贸易论坛开幕式上表示，2025年，两国贸易额突破150亿美元，截至目前，中国对阿投资累计已达70亿美元。
+塔塔尔的工作需要和多个行业的各类管理者打交道，他说：“在我看来，被动型领导就是那些回避艰难决策的管理者。
 
-这充分反映了两国经济关系的深度，体现了阿尔及利亚作为中国在非洲重要合作伙伴的这一地位。
+” “他们迟迟不给出反馈，还天真地以为一切运转良好，只因为大家看起来很忙，实则效率低下…… 把被动领导伪装成放权自主，我认为这非常危险。
 
-两国合作不仅限于贸易，还涵盖基础设施、能源、制造业、交通、通信及大型住房项目等多个关键领域。
+” 放权式管理本身并非坏事。
 
 ## 相关推荐
 
-- 2026-06-30 03:22 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 03:00 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-30 03:24 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 03:27 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 03:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
-- 2026-06-30 03:00 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 03:27 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 03:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 03:14 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 03:09 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 03:26 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 03:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 03:17 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 03:34 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 03:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 03:15 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 03:12 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 03:35 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-30 03:27 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
+- 2026-06-30 03:09 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 03:27 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 03:10 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/9309909471.shtml)
-- 2026-06-30 03:15 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/62998.shtml)
-- 2026-06-30 03:13 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/14148.shtml)
-- 2026-06-30 03:12 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/2848476.shtml)
-- 2026-06-30 03:23 - [美股](https://www.share.kurohicncr.top/Article/details/720647483636.shtml)
-- 2026-06-30 03:20 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/68608.shtml)
-- 2026-06-30 03:02 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/89079.shtml)
-- 2026-06-30 03:19 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/28730441.shtml)
-- 2026-06-30 03:26 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/254954749.shtml)
-- 2026-06-30 03:13 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/745513.shtml)
-- 2026-06-30 03:17 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/3996207.shtml)
-- 2026-06-30 03:04 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/794756.shtml)
-- 2026-06-30 03:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/269550496889.shtml)
-- 2026-06-30 03:21 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/92137935.shtml)
-- 2026-06-30 03:04 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/53019.shtml)
+- 2026-06-30 03:09 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/316259.shtml)
+- 2026-06-30 03:07 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/24763630894.shtml)
+- 2026-06-30 03:16 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/491105290.shtml)
+- 2026-06-30 03:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/77550.shtml)
+- 2026-06-30 03:35 - [日本领先巴西](http://www.share.minike.top/Article/details/036902.shtml)
+- 2026-06-30 03:28 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/40225.shtml)
+- 2026-06-30 03:19 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/9696135396.shtml)
+- 2026-06-30 03:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/3820434175.shtml)
+- 2026-06-30 03:33 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/1617608.shtml)
+- 2026-06-30 03:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/69703.shtml)
+- 2026-06-30 03:34 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/73506694.shtml)
+- 2026-06-30 03:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/00372746046.shtml)
+- 2026-06-30 03:32 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/07007.shtml)
+- 2026-06-30 03:26 - [逃狱兄弟](https://www.blog.minike.top/Article/details/742698.shtml)
+- 2026-06-30 03:12 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/906714805.shtml)

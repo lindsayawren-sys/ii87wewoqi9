@@ -1,61 +1,61 @@
-# 埃博拉与汉坦病毒暴露传统疫苗短板，MindWalk推出AI大流行应对平台
+# OpenAI称拟将IPO部分股份预留给散户投资者
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-针对当前埃博拉和汉坦病毒疫情暴露出的传统应变特异性疫苗的局限性，生物科技公司MindWalk Holdings Corp.(HYFT)5月27日宣布正式启动其大流行应对平台，旨在提供超越病毒株变异的广谱防护方案。 疫情暴露传统防御体系短板 当前全球公共卫生领域面临双重挑战。世卫组织数据显示，刚果（金）的埃博拉疫情正在迅速蔓延，而针对此次致病毒株（Bundibugyo）的候选疫苗
+OpenAI首席财务官莎拉·弗莱尔（Sarah Friar）周三表示，该公司计划在首次公开募股（IPO）中预留一部分股份供散户投资者认购。 去年有报道称，这家人工智能初创公司正在为IPO做准备，估值可能高达1万亿美元，并可能最早于2026年下半年向证券监管机构提交上市申请。 弗莱尔周三接受采访时称，OpenAI在最近一轮融资中开始试水零售市场，并发现个人投资者的需求“非常强劲”
 
 ## 正文
 
-针对当前埃博拉和汉坦病毒疫情暴露出的传统应变特异性疫苗的局限性，生物科技公司MindWalk Holdings Corp.(HYFT)5月27日宣布正式启动其大流行应对平台，旨在提供超越病毒株变异的广谱防护方案。
+OpenAI首席财务官莎拉·弗莱尔（Sarah Friar）周三表示，该公司计划在首次公开募股（IPO）中预留一部分股份供散户投资者认购。
 
-疫情暴露传统防御体系短板 当前全球公共卫生领域面临双重挑战。
+去年有报道称，这家人工智能初创公司正在为IPO做准备，估值可能高达1万亿美元，并可能最早于2026年下半年向证券监管机构提交上市申请。
 
-世卫组织数据显示，刚果（金）的埃博拉疫情正在迅速蔓延，而针对此次致病毒株（Bundibugyo）的候选疫苗距人体试验尚有数月之遥。
+弗莱尔周三接受采访时称，OpenAI在最近一轮融资中开始试水零售市场，并发现个人投资者的需求“非常强劲”。
 
-与此同时，尽管汉坦病毒疫情已趋于稳定，此次在西非游轮上的爆发仍引发了全球警觉。
+虽然她没有对IPO时间表发表评论，但她表示，对于OpenAI这样规模的公司来说，“看起来像一家上市公司，行事方式也像一家上市公司，这是良好的做法”。
 
-传统疫苗的核心策略通常是针对病毒的特定表面蛋白，但RNA病毒的高速突变特性使得这种“猫鼠游戏”难以为继。
+OpenAI 在最新一轮融资中从个人投资者处筹集了超过30亿美元。
 
-MindWalk首席执行官Jennifer Bath博士指出：“每一次针对病原体表面的疫情响应，都是一场病毒注定会赢的赛跑。
+此轮融资结束后，该公司获得的承诺资本达 1220 亿美元，投后估值达 8520 亿美元。
 
-” HYFT技术：靶向病毒的“不变架构” MindWalk此次推出的平台，核心在于其专有的HYFT生物模式系统和LensAI平台。
+弗莱尔说，该公司最初的目标是通过摩根大通、摩根士丹利和高盛等银行进行私募融资，从个人投资者处筹集 10 亿美元，但最终在这些银行有史以来规模最大的私募融资中，筹集到了三倍于此的资金。
 
-与传统AI依赖“学习”过往毒株序列不同，HYFT技术旨在识别RNA病毒在复制和感染过程中必须保留的结构约束。
+大型机构投资者历来是IPO配售的主要受益者，散户投资者通常只能获得5%到10%的股份。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 03:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 03:05 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 03:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 03:15 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 03:00 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 03:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 03:11 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 03:27 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 03:24 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 03:04 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 03:13 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 03:08 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 03:25 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 03:12 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 03:35 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 03:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 03:30 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-30 03:27 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 03:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 03:25 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 03:22 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 03:29 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 03:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 03:28 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 03:28 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 03:26 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 03:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 03:14 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 03:07 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [沉睡花园](https://www.blog.minike.top/Article/details/0245675.shtml)
-- 2026-06-30 03:14 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/40413703.shtml)
-- 2026-06-30 03:12 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/011626454.shtml)
-- 2026-06-30 03:20 - [天道](https://www.share.kurohicncr.top/Article/details/21365281047.shtml)
-- 2026-06-30 03:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/65492.shtml)
-- 2026-06-30 03:28 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/49061.shtml)
-- 2026-06-30 03:05 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/24306.shtml)
-- 2026-06-30 03:27 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/83267255.shtml)
-- 2026-06-30 03:28 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/587339226449.shtml)
-- 2026-06-30 03:07 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/40191542.shtml)
-- 2026-06-30 03:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/805608.shtml)
-- 2026-06-30 03:17 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/869299.shtml)
-- 2026-06-30 03:24 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/141085413696.shtml)
-- 2026-06-30 03:08 - [月亮](https://www.share.minike.top/Article/details/701318808143.shtml)
-- 2026-06-30 03:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/055177826216.shtml)
+- 2026-06-30 03:06 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/891090.shtml)
+- 2026-06-30 03:20 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/570406.shtml)
+- 2026-06-30 03:16 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/61780579.shtml)
+- 2026-06-30 03:16 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/662329758.shtml)
+- 2026-06-30 03:06 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/435433558116.shtml)
+- 2026-06-30 03:10 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/2193255.shtml)
+- 2026-06-30 03:27 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/071235.shtml)
+- 2026-06-30 03:10 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/16804728.shtml)
+- 2026-06-30 03:24 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/2274400374.shtml)
+- 2026-06-30 03:13 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/67064.shtml)
+- 2026-06-30 03:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/7710774294.shtml)
+- 2026-06-30 03:14 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/9755825164.shtml)
+- 2026-06-30 03:07 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/785863780350.shtml)
+- 2026-06-30 03:28 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/6430796.shtml)
+- 2026-06-30 03:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/085571.shtml)

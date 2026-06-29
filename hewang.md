@@ -1,55 +1,54 @@
-# 壁仞科技午前涨超4% 公司下月有望成为港股通标的
+# 中国开发的东南亚单体最大光伏项目投运
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-壁仞科技（06082）盘中涨超9%，截至发稿，股价上涨4.40%，现报53.35港元，成交额3.47亿港元。 5月26日，中国信息安全测评中心与国家保密科技测评中心发布《安全可靠测评结果公告（2026年第2号）》，AI训练推理芯片首次被纳入该测评体系，壁仞科技壁砺166等9款国产芯片一同获评安全可靠Ⅰ级。据介绍，壁砺166M产品形态为4U OAM V1.1风冷模组峰值功耗550
+发布时间：2026年04月09日 19:09 来源：中国新闻网 近日，由中国开发建设的东南亚单体最大光伏项目——中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网投运。 据了解，该项目是老挝首个大型山地光伏项目，一期投产后，预计年均发电量约16.5亿千瓦时，等效节约标煤消耗约50万吨、减排二氧化碳约130万吨。 据介绍，该项目带动我国新能源制造、施工、建设产业链40余家企业
 
 ## 正文
 
-壁仞科技（06082）盘中涨超9%，截至发稿，股价上涨4.40%，现报53.35港元，成交额3.47亿港元。
+发布时间：2026年04月09日 19:09 来源：中国新闻网 近日，由中国开发建设的东南亚单体最大光伏项目——中广核老挝北部清洁能源基地一期100万千瓦光伏项目并网投运。
 
-5月26日，中国信息安全测评中心与国家保密科技测评中心发布《安全可靠测评结果公告（2026年第2号）》，AI训练推理芯片首次被纳入该测评体系，壁仞科技壁砺166等9款国产芯片一同获评安全可靠Ⅰ级。
+据了解，该项目是老挝首个大型山地光伏项目，一期投产后，预计年均发电量约16.5亿千瓦时，等效节约标煤消耗约50万吨、减排二氧化碳约130万吨。
 
-据介绍，壁砺166M产品形态为4U OAM V1.1风冷模组峰值功耗550W，可适配标准OAM V1.X版本的GPU服务器，与现有基础设施高度兼容，可广泛应用于人工智能训练与推理应用场景。
+据介绍，该项目带动我国新能源制造、施工、建设产业链40余家企业，以及老挝本地施工单位、机械供应、原材料供应等30余家企业共同参与建设。
 
-此前，恒生指数公司季度检讨已将壁仞科技纳入恒生综合指数，变动将于6月5日收市后实施、6月8日起生效，市场据此预期公司有望同步调入港股通标的池，南向资金的潜在增量通道正在打开。
+后续，中广核将加快推进老挝北部五省后续清洁能源项目落地，开拓中部、南部市场，推动中老互联互通向更深层次、更广领域迈进。
 
-责任编辑：卢昱君
+(记者 索有为 制作 王佳琪） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 03:23 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 03:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-30 03:06 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 03:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 03:11 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 03:25 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 03:04 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 03:19 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-30 03:23 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 03:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 03:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 03:28 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 03:06 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-30 03:02 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 03:04 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-30 03:15 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 03:10 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 03:17 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 03:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 03:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 03:22 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 03:36 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 03:16 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 03:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 03:24 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 03:19 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 03:10 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 03:08 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 03:19 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:17 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/0161633.shtml)
-- 2026-06-30 03:07 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/636192269.shtml)
-- 2026-06-30 03:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/570723622287.shtml)
-- 2026-06-30 03:01 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/5900045224.shtml)
-- 2026-06-30 03:23 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/6706942753.shtml)
-- 2026-06-30 03:09 - [女心理师](http://www.share.kurohicncr.top/Article/details/2422045349.shtml)
-- 2026-06-30 03:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/64522032.shtml)
-- 2026-06-30 03:13 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/3742925443.shtml)
-- 2026-06-30 03:18 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/49940.shtml)
-- 2026-06-30 03:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/44422021300.shtml)
-- 2026-06-30 03:05 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/659882898225.shtml)
-- 2026-06-30 03:11 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/089765857.shtml)
-- 2026-06-30 03:01 - [极限挑战第一季](https://www.share.minike.top/Article/details/917746.shtml)
-- 2026-06-30 03:13 - [日本进球](http://www.blog.minike.top/Article/details/802587062.shtml)
-- 2026-06-30 03:01 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/52696.shtml)
+- 2026-06-30 03:31 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/3699514.shtml)
+- 2026-06-30 03:29 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/563090211.shtml)
+- 2026-06-30 03:13 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/550887253968.shtml)
+- 2026-06-30 03:35 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/6046574.shtml)
+- 2026-06-30 03:31 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/68910369781.shtml)
+- 2026-06-30 03:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/4931663.shtml)
+- 2026-06-30 03:23 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/38055.shtml)
+- 2026-06-30 03:31 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/60952.shtml)
+- 2026-06-30 03:11 - [月亮](https://www.share.minike.top/Article/details/96756.shtml)
+- 2026-06-30 03:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/907021184757.shtml)
+- 2026-06-30 03:11 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/644949494.shtml)
+- 2026-06-30 03:29 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/5473513853.shtml)
+- 2026-06-30 03:27 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/357759699.shtml)
+- 2026-06-30 03:10 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/95279570958.shtml)
+- 2026-06-30 03:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/62233533.shtml)

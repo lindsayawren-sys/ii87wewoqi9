@@ -1,58 +1,57 @@
-# 王毅会见阿根廷外长基尔诺
+# 美国要求盟友在数日内提交保障霍尔木兹海峡通行安全的计划
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-新华社纽约5月26日电 当地时间26日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间会见阿根廷外长基尔诺。 王毅欢迎基尔诺出席此次高级别会议，表示当前形势下，联合国作用只应加强，不能削弱，中阿应共同支持和重振联合国，推动改革完善全球治理体系。中阿关系传统友好，发展前景广阔。中方愿同阿方一道落实好两国元首共识，推动中阿全面战略伙伴关系长期稳定发展。双方要夯
+一位北约高级官员称，美国希望欧洲盟友就协助保障霍尔木兹海峡安全的承诺做出具体保证，要求这些国家在数日内提交确保该水道通航的具体计划。 这位官员透露，这项要求是在美国与北约官员在白宫、五角大楼及美国务院举行会谈时提出的。在白宫会谈期间，美国总统特朗普还会见了北约秘书长吕特。 白宫、国防部和国务院周三深夜未立即回应置评请求。 一个由英国牵头，包括众多欧洲国家、日本、加拿大在内的40
 
 ## 正文
 
-新华社纽约5月26日电 当地时间26日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间会见阿根廷外长基尔诺。
+一位北约高级官员称，美国希望欧洲盟友就协助保障霍尔木兹海峡安全的承诺做出具体保证，要求这些国家在数日内提交确保该水道通航的具体计划。
 
-王毅欢迎基尔诺出席此次高级别会议，表示当前形势下，联合国作用只应加强，不能削弱，中阿应共同支持和重振联合国，推动改革完善全球治理体系。
+这位官员透露，这项要求是在美国与北约官员在白宫、五角大楼及美国务院举行会谈时提出的。
 
-中阿关系传统友好，发展前景广阔。
+在白宫会谈期间，美国总统特朗普还会见了北约秘书长吕特。
 
-中方愿同阿方一道落实好两国元首共识，推动中阿全面战略伙伴关系长期稳定发展。
+白宫、国防部和国务院周三深夜未立即回应置评请求。
 
-双方要夯实政治互信，在涉及彼此核心利益问题上相互支持。
+一个由英国牵头，包括众多欧洲国家、日本、加拿大在内的40多个国家组成的联盟承诺，一旦中东地区战事停止，将协助重新开放霍尔木兹海峡。
 
-中方赞赏阿方坚持一个中国原则。
+全球约20%的油气运输需要经过该海峡，其关闭已导致全球能源价格飙升并引发对燃料短缺迫在眉睫的担忧。
 
-中阿经济高度互补，双边贸易大幅增长且更趋平衡，双方要持续拓展各领域务实合作。
+北约成员国在伊朗冲突中未提供多少援助，导致特朗普与盟友近几周的关系紧张。
 
-双方要妥善管控干扰因素，中方无意搞地缘争夺，也不要求别国选边站队。
+一些成员国拒绝美国使用其军事基地对伊朗实施打击，也未响应特朗普关于在冲突期间帮助重开霍尔木兹海峡的呼吁。
 
 ## 相关推荐
 
-- 2026-06-30 03:23 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-30 03:20 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 03:11 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 03:16 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 03:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 03:09 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 03:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 03:10 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 03:20 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 03:23 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 03:16 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 03:05 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 03:27 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 03:25 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 03:15 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 03:17 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 03:08 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
+- 2026-06-30 03:12 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 03:25 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 03:14 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-30 03:12 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 03:09 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
+- 2026-06-30 03:24 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [速度与激情9](http://www.share.minike.top/Article/details/23046129683.shtml)
-- 2026-06-30 03:02 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/1066431.shtml)
-- 2026-06-30 03:09 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/47088.shtml)
-- 2026-06-30 03:10 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/546555.shtml)
-- 2026-06-30 03:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/53456.shtml)
-- 2026-06-30 03:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/901947595207.shtml)
-- 2026-06-30 03:28 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/371804605057.shtml)
-- 2026-06-30 03:12 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/6018902.shtml)
-- 2026-06-30 03:22 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/46844565948.shtml)
-- 2026-06-30 03:22 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/95967179558.shtml)
-- 2026-06-30 03:12 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/85934238380.shtml)
-- 2026-06-30 03:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/13983.shtml)
-- 2026-06-30 03:24 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/432632.shtml)
-- 2026-06-30 03:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/2140706.shtml)
-- 2026-06-30 03:23 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/8218389.shtml)
+- 2026-06-30 03:15 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/603463730325.shtml)
+- 2026-06-30 03:31 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/59464201545.shtml)
+- 2026-06-30 03:19 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/114263.shtml)
+- 2026-06-30 03:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/61017.shtml)
+- 2026-06-30 03:27 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/33369633.shtml)
+- 2026-06-30 03:33 - [千香](https://www.share.minike.top/Article/details/8283542007.shtml)
+- 2026-06-30 03:15 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/025216487.shtml)
+- 2026-06-30 03:06 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/71551642.shtml)
+- 2026-06-30 03:18 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/09945820.shtml)
+- 2026-06-30 03:29 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/2280693.shtml)
+- 2026-06-30 03:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/566888986631.shtml)
+- 2026-06-30 03:35 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/7360849.shtml)
+- 2026-06-30 03:27 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/05609017482.shtml)
+- 2026-06-30 03:17 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/7674224255.shtml)
+- 2026-06-30 03:35 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/32057414.shtml)

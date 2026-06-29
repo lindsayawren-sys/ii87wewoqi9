@@ -1,61 +1,60 @@
-# 恒久科技（002808）股民索赔再提交立案，得润电子（002055）索赔案再获得法院立案
+# 刘卓辉：一个香港音乐人的北望与北上
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-2026年5月25日，上海久诚律师事务所股票索赔律师许峰代理的恒久科技（002808）虚假陈述投资者索赔案再向苏州市中级人民法院提交一次立案。（许峰律师专栏） 许峰律师代理的恒久科技投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2025年6月27日，恒久科技公告收到江苏证监局出具的《行政处
+香港乐坛“神仙打架”的年代，“半地下”的Beyond乐队演绎的“非主流”歌曲《大地》如何击中时代情绪？没有务农经验的青年从内地电影获得灵感写下的《农民》为何能够引发听众共鸣？近日，北京的煦暖春风里，这些歌曲的填词人刘卓辉接受本报记者专访，分享他作为创作者和制作人，参与香港与内地音乐交流的往事。上述问题的答案，写在歌词中，也浮现在他北上发展的事业轨迹里。 粤语金曲里的老兵与农民
 
 ## 正文
 
-2026年5月25日，上海久诚律师事务所股票索赔律师许峰代理的恒久科技（002808）虚假陈述投资者索赔案再向苏州市中级人民法院提交一次立案。
+香港乐坛“神仙打架”的年代，“半地下”的Beyond乐队演绎的“非主流”歌曲《大地》如何击中时代情绪？
 
-（许峰律师专栏） 许峰律师代理的恒久科技投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+没有务农经验的青年从内地电影获得灵感写下的《农民》为何能够引发听众共鸣？
 
-2025年6月27日，恒久科技公告收到江苏证监局出具的《行政处罚决定书》，许峰律师认为，在2020年4月22日到2023年11月10日之间买入恒久科技股票，并在2023年11月10日后卖出或继续持有股票的投资者，目前还可发起索赔，诉讼时效已经进入倒计时。
+近日，北京的煦暖春风里，这些歌曲的填词人刘卓辉接受本报记者专访，分享他作为创作者和制作人，参与香港与内地音乐交流的往事。
 
-（ST恒久维权入口） 除了恒久科技投资者索赔案再次提交法院立案，2026年5月22日，许峰律师代理的得润电子（002055）投资者索赔再次获得深圳市中级人民法院的立案。
+上述问题的答案，写在歌词中，也浮现在他北上发展的事业轨迹里。
 
-许峰律师代理的得润电子投资者索赔案此前已多次获得法院立案，目前正在等待法院的下一步安排，律师团队同步也还在继续接受其他投资者的索赔委托。
+粤语金曲里的老兵与农民 《大地》是Beyond乐队成名作，歌词背后是一段关于家族离散的往事：刘卓辉祖籍广东潮州，20世纪40年代，祖父下南洋谋生，此后再未回到故乡。
 
-2026年3月27日，得润电子公告收到深圳证监局出具的《行政处罚决定书》，经查明，得润电子存在以下违法事实： 一、2020年至2021年，因得润电子主要客户等经营困难，无法偿还欠款，致使公司现金流紧张，得润电子实际控制人、时任董事长、总裁邱建民通过自有资金、对外借款等方式，向得润电子客户、原子公司、设备供应商等提供资金支持，用于前述主体向得润电子归还历史欠款。
+同样是为了生存，祖父的弟弟(刘卓辉的叔公)十几岁当兵，离家后音讯全无。
 
-邱建民未向得润电子报告上述资金实际来源，导致得润电子2020年、2021年分别虚构回款394，584，426.91元、112，960，100元，少计信用减值损失371，151，433.40元、66，393，093.51元；少计资本公积321，316，487.76元、434，276，587.76元。
+1970年代，已移居香港多年的刘卓辉父亲托朋友在台湾登报寻人，幸运地找到了叔公。
 
-二、2022年6月，邱建民协调得润电子子公司以预付货款的形式，间接向得润电子联营公司提供资金，用于到期归还得润电子的财务资助款，导致得润电子2022年上半年虚构回款26，836，923.99元，少计信用减值损失5，060，996.46元。
+1988年夏天，年逾六旬的叔公取道香港，在刘卓辉父子陪伴下回到阔别四十年的家乡。
 
 ## 相关推荐
 
-- 2026-06-30 03:21 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 03:07 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 03:13 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 03:24 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 03:25 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 03:25 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 03:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 03:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 03:04 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 03:12 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 03:11 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 03:25 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 03:01 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 03:00 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-30 03:19 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 03:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 03:29 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 03:26 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 03:34 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 03:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:07 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-30 03:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 03:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 03:22 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 03:29 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 03:22 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-30 03:20 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 03:35 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 03:24 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:22 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/729785.shtml)
-- 2026-06-30 03:10 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/890492256.shtml)
-- 2026-06-30 03:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/85844.shtml)
-- 2026-06-30 03:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/309151.shtml)
-- 2026-06-30 03:01 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/54362.shtml)
-- 2026-06-30 03:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/64217527.shtml)
-- 2026-06-30 03:16 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/92771418013.shtml)
-- 2026-06-30 03:03 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/69050328216.shtml)
-- 2026-06-30 03:26 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/5123221.shtml)
-- 2026-06-30 03:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/72310275254.shtml)
-- 2026-06-30 03:19 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/903874111.shtml)
-- 2026-06-30 03:11 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/7811460270.shtml)
-- 2026-06-30 03:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/080295.shtml)
-- 2026-06-30 03:27 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/911276.shtml)
-- 2026-06-30 03:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/2198871.shtml)
+- 2026-06-30 03:08 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/16214.shtml)
+- 2026-06-30 03:07 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/7419471.shtml)
+- 2026-06-30 03:07 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/07081199346.shtml)
+- 2026-06-30 03:13 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/151027702432.shtml)
+- 2026-06-30 03:34 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/20644.shtml)
+- 2026-06-30 03:14 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/965624470.shtml)
+- 2026-06-30 03:35 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/6708759.shtml)
+- 2026-06-30 03:26 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/775970391659.shtml)
+- 2026-06-30 03:17 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/796919069599.shtml)
+- 2026-06-30 03:13 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/043259.shtml)
+- 2026-06-30 03:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/09796.shtml)
+- 2026-06-30 03:18 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/48496386328.shtml)
+- 2026-06-30 03:07 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/878641807217.shtml)
+- 2026-06-30 03:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/40329917957.shtml)
+- 2026-06-30 03:33 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/030271340.shtml)

@@ -1,49 +1,56 @@
-# 江西银行：尹光星和李秀宏的董事任职资格获核准
+# 商业航天万亿级市场拉开帷幕，航天机电等多股涨停
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月27日金融一线消息，江西银行发布公告称，公司收到国家金融监督管理总局江西监管局关于尹光星和李秀宏担任公司董事的任职资格的批复。 根据批复，尹光星和李秀宏的董事任职自2026年5月20日起生效。此外，尹光星被委任为董事会战略发展与数字化转型委员会委员，任期至第四届董事会任期届满之日止。 责任编辑：王馨茹
+4月9日，商业航天概念持续活跃，航天机电（600151.SH）涨停，巨力索具（维权）（002342.SZ）、泰嘉股份（002843.SZ）、航天电器（002025.SZ）此前涨停，航天晨光（600501.SH）、神剑股份（002361.SZ）、航天动力（600343.SH）、航天科技（000901.SZ）、佳缘科技（301117.SZ）、航天宏图（688066.SH）跟涨。消息
 
 ## 正文
 
-5月27日金融一线消息，江西银行发布公告称，公司收到国家金融监督管理总局江西监管局关于尹光星和李秀宏担任公司董事的任职资格的批复。
+4月9日，商业航天概念持续活跃，航天机电（600151.SH）涨停，巨力索具（维权）（002342.SZ）、泰嘉股份（002843.SZ）、航天电器（002025.SZ）此前涨停，航天晨光（600501.SH）、神剑股份（002361.SZ）、航天动力（600343.SH）、航天科技（000901.SZ）、佳缘科技（301117.SZ）、航天宏图（688066.SH）跟涨。
 
-根据批复，尹光星和李秀宏的董事任职自2026年5月20日起生效。
+消息面上，4月9日，长征六号改运载火箭在太原卫星发射中心成功将卫星互联网低轨21组卫星送入预定轨道，这是长征系列火箭第637次飞行。
 
-此外，尹光星被委任为董事会战略发展与数字化转型委员会委员，任期至第四届董事会任期届满之日止。
+该火箭为中国首款固液捆绑运载火箭，具备多种发射模式，700公里太阳同步轨道运载能力不低于4.5吨，本次任务完成软件升级与流程优化。
 
-责任编辑：王馨茹
+中银证券指出，太空基础设施的“新圈地运动”，商业航天万亿级市场拉开帷幕。
+
+卫星轨道和频段是受物理法则约束与国际规则锁定的不可再生战略资源，具备相当的稀缺性，各国对卫星频轨资源的争夺已经进入白热化状态。
+
+随着可回收火箭技术的成熟、发射成本的下降，全球火箭次数快速增长。
+
+目前，我国已经形成了商业航天全产业链覆盖能力，正处于“从1到10”的关键发展阶段。
+
+未来在下游需求、政策和资本等多重因素的共同作用下，中国商业航天行业有望进入快速发展阶段。
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-30 03:05 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 03:26 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
-- 2026-06-30 03:19 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 03:02 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 03:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 03:01 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-30 03:25 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 03:05 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 03:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 03:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 03:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 03:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 03:27 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-30 03:08 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 03:23 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 03:24 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 03:11 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 03:27 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 03:15 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 03:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/8416373326.shtml)
-- 2026-06-30 03:28 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/33635233656.shtml)
-- 2026-06-30 03:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/62512715527.shtml)
-- 2026-06-30 03:15 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/60180.shtml)
-- 2026-06-30 03:26 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/26355914143.shtml)
-- 2026-06-30 03:17 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/86629.shtml)
-- 2026-06-30 03:24 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/52922174.shtml)
-- 2026-06-30 03:04 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/94015880.shtml)
-- 2026-06-30 03:09 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/6509150925.shtml)
-- 2026-06-30 03:01 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/08639.shtml)
-- 2026-06-30 03:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/563969.shtml)
-- 2026-06-30 03:13 - [巴西醒醒 这是淘汰赛](https://www.share.minike.top/Article/details/055352727633.shtml)
-- 2026-06-30 03:07 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/1412312352.shtml)
-- 2026-06-30 03:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/12028398.shtml)
-- 2026-06-30 03:14 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/11419150.shtml)
+- 2026-06-30 03:10 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/875050613276.shtml)
+- 2026-06-30 03:25 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/5741209896.shtml)
+- 2026-06-30 03:26 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/568608.shtml)
+- 2026-06-30 03:34 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/93314.shtml)
+- 2026-06-30 03:21 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/59299206.shtml)
+- 2026-06-30 03:36 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/097863137.shtml)
+- 2026-06-30 03:26 - [美股](http://www.blog.kurohicncr.top/Article/details/8886484.shtml)
+- 2026-06-30 03:35 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/3711074.shtml)
+- 2026-06-30 03:11 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/67301.shtml)
+- 2026-06-30 03:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/507898036.shtml)
+- 2026-06-30 03:07 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/58802886777.shtml)
+- 2026-06-30 03:25 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/19458.shtml)
+- 2026-06-30 03:21 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/123724.shtml)
+- 2026-06-30 03:26 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/419118.shtml)
+- 2026-06-30 03:32 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/98835.shtml)

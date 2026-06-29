@@ -1,58 +1,57 @@
-# 专家：半导体竞争迈向“制程追赶+系统创新”双赛道
+# 新增2条！人身险“负面清单”再扩容，叫停分红险“画饼”宣传
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新网北京5月26日电(左登基)华为日前正式发表半导体领域“韬(τ)定律”。这是中国在全球半导体领域首次提出指导产业发展的新原则。专家表示，这一新范式将中国半导体竞争拓展为“制程追赶+系统创新”的双赛道。“韬定律”提出以“时间缩微”替代“几何缩微”，以系统性降低时间常数(韬τ)为目标，通过逻辑折叠等创新技术，持续压缩信号传播时延，不断提升晶体管密度，实现半导体与电子系统的持续演
+来源：国际金融报 新版人身险产品“负面清单”出炉！ 《国际金融报》记者从业内获悉，金融监督管理总局近日向各人身险公司下发《人身保险产品“负面清单”（2026版）》（下称“负面清单”）。 2026版“负面清单”共包含105条禁止性条款，与2025版相比新增2条涉及医疗险、分红险的监管红线，同时对启用新生命表、强化“报行合一”等内容作出细化修订。 自2018年首次发布以来，人身险产
 
 ## 正文
 
-中新网北京5月26日电(左登基)华为日前正式发表半导体领域“韬(τ)定律”。
+来源：国际金融报 新版人身险产品“负面清单”出炉！
 
-这是中国在全球半导体领域首次提出指导产业发展的新原则。
+《国际金融报》记者从业内获悉，金融监督管理总局近日向各人身险公司下发《人身保险产品“负面清单”（2026版）》（下称“负面清单”）。
 
-专家表示，这一新范式将中国半导体竞争拓展为“制程追赶+系统创新”的双赛道。
+2026版“负面清单”共包含105条禁止性条款，与2025版相比新增2条涉及医疗险、分红险的监管红线，同时对启用新生命表、强化“报行合一”等内容作出细化修订。
 
-“韬定律”提出以“时间缩微”替代“几何缩微”，以系统性降低时间常数(韬τ)为目标，通过逻辑折叠等创新技术，持续压缩信号传播时延，不断提升晶体管密度，实现半导体与电子系统的持续演进。
+自2018年首次发布以来，人身险产品“负面清单”已连续多年迭代更新，为行业树立了清晰统一的标准。
 
-第三代半导体产业技术创新战略联盟理事长吴玲表示，华为韬定律将产业演进核心，从缩小晶体管尺寸转向系统级封装、半导体新材料、光电融合、异质异构等技术路线。
+受访专家指出，对消费者而言，它如同一份“避坑指南”，能有效减少晦涩难懂的条款和销售误导；对保险公司而言，它是一份明确的“合规手册”，能降低产品开发的试错成本，引导企业回归保障本质，开展真正意义上的产品创新。
 
-这一新范式颠覆了长期由西方主导的单纯“制程竞赛”思路，将中国半导体竞争从单一的“制程追赶”赛道，拓展为“制程追赶+系统创新”的双赛道。
+新增2条监管红线 2025年，我国保险业原保险保费收入首次突破6万亿元大关，达到6.12万亿元，同比增长7.4%。
 
-分析这一变化的原因，吴玲认为，一是先进制程方面受限，短时间内很难追赶，需要换道；二是受人工智能等需求带动，中国在应用场景方面形成优势，通过化合物半导体性能提升叠加封装系统集成，实现技术路线突破。
+其中，人身险业务实现原保险保费收入4.65万亿元，同比增长9.1%，成为拉动行业全年保费增长的核心动力。
 
-“韬定律”构建了贯穿器件、电路、芯片到系统层面的多层级协同优化体系。
+市场规模持续扩容的同时，人身险产品的合规监管也需同步跟进。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 03:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 03:14 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 03:12 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-30 03:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 03:28 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 03:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 03:13 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 03:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 03:19 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 03:10 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-30 03:09 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 03:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 03:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 03:25 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 03:21 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 03:08 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 03:21 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 03:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 03:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 03:17 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-30 03:12 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 03:24 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:30 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/206174.shtml)
-- 2026-06-30 03:11 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/34779660012.shtml)
-- 2026-06-30 03:04 - [女心理师](https://www.share.minike.top/Article/details/76141.shtml)
-- 2026-06-30 03:26 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/399316203323.shtml)
-- 2026-06-30 03:25 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/500543.shtml)
-- 2026-06-30 03:20 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/1430329.shtml)
-- 2026-06-30 03:01 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.kurohicncr.top/Article/details/943489.shtml)
-- 2026-06-30 03:08 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/27144177197.shtml)
-- 2026-06-30 03:13 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/72817626.shtml)
-- 2026-06-30 03:13 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/9344995.shtml)
-- 2026-06-30 03:28 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/16613.shtml)
-- 2026-06-30 03:12 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/4877251602.shtml)
-- 2026-06-30 03:23 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/18769964.shtml)
-- 2026-06-30 03:24 - [乔家的儿女](http://www.share.minike.top/Article/details/152800635.shtml)
-- 2026-06-30 03:01 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/643619.shtml)
+- 2026-06-30 03:33 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/9148174176.shtml)
+- 2026-06-30 03:33 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/895495741749.shtml)
+- 2026-06-30 03:10 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/8629486710.shtml)
+- 2026-06-30 03:24 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/673011.shtml)
+- 2026-06-30 03:29 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/5060878.shtml)
+- 2026-06-30 03:22 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/7148297072.shtml)
+- 2026-06-30 03:15 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/9862050473.shtml)
+- 2026-06-30 03:09 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/689773207821.shtml)
+- 2026-06-30 03:32 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/87345.shtml)
+- 2026-06-30 03:13 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/87287720025.shtml)
+- 2026-06-30 03:06 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/098096.shtml)
+- 2026-06-30 03:27 - [点菜也要教吗](http://www.share.minike.top/Article/details/896676.shtml)
+- 2026-06-30 03:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/399898659124.shtml)
+- 2026-06-30 03:34 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/274229053.shtml)
+- 2026-06-30 03:10 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/502732491353.shtml)

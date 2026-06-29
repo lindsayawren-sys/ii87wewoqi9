@@ -1,56 +1,56 @@
-# 清华大学副校长王宏伟：将坚定不移支持政府与市场经济学的学科建设
+# 田埂上的育种人：她用15年给“中国薯都”添新成员
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-专题：第八届政府与市场经济学国际研讨会 第八届“政府与市场经济学国际研讨会”于2025年5月27日在线上播出。清华大学党委常委，副校长王宏伟在致辞中表示，“清华大学中国经济思想与实践研究院的英文缩写是ACCEPT，就是让国际能够接受中国的理论。”成立八年来，研究院锚定建设基于中国经济实践、具备国际普遍适用性的自主知识体系持续发力，积淀形成一批极具影响力的重磅研究成果。 王宏伟介
+中新网乌兰察布4月9日电 题：田埂上的育种人：她用15年给“中国薯都”添新成员 中新网记者 张林虎 “一个好的品种，从杂交到登记，至少要8到10年。”林团荣抚摸着组培瓶，像是在说自己的孩子。 在内蒙古自治区乌兰察布市农林科学研究院的组培中心，一排排组培瓶苗整齐地陈列在培养架上，嫩绿的脱毒苗在灯光下泛着油亮的光泽。林团荣弯下腰，透过玻璃瓶壁仔细端详着这批马铃薯脱毒苗的长势。这株看
 
 ## 正文
 
-专题：第八届政府与市场经济学国际研讨会 第八届“政府与市场经济学国际研讨会”于2025年5月27日在线上播出。
+中新网乌兰察布4月9日电 题：田埂上的育种人：她用15年给“中国薯都”添新成员 中新网记者 张林虎 “一个好的品种，从杂交到登记，至少要8到10年。
 
-清华大学党委常委，副校长王宏伟在致辞中表示，“清华大学中国经济思想与实践研究院的英文缩写是ACCEPT，就是让国际能够接受中国的理论。
+”林团荣抚摸着组培瓶，像是在说自己的孩子。
 
-”成立八年来，研究院锚定建设基于中国经济实践、具备国际普遍适用性的自主知识体系持续发力，积淀形成一批极具影响力的重磅研究成果。
+在内蒙古自治区乌兰察布市农林科学研究院的组培中心，一排排组培瓶苗整齐地陈列在培养架上，嫩绿的脱毒苗在灯光下泛着油亮的光泽。
 
-王宏伟介绍，研究院始终扎根中国经济发展实践，紧扣国家经济发展战略性问题开展专项政策研究，系统总结提炼新中国成立以来、特别是改革开放以来的发展经验与智慧，深耕理论研究与实践落地，陆续推出一系列中国经济学理论与实践研究专著、研究报告及学术成果，扎实推进中国经济学自主知识体系建设。
+林团荣弯下腰，透过玻璃瓶壁仔细端详着这批马铃薯脱毒苗的长势。
 
-王宏伟表示，“十五五”时期是国家基本实现社会主义现代化夯实基础、全面发力的关键时期，也是清华大学继往开来、聚力跃升、加快迈向世界一流大学前列的关键时期，更是清华大学哲学社会科学学科新百年、新征程的全新起点。
+这株看似普通的脱毒苗，是她和团队花了十多年心血选育出的“宝贝”——蒙乌薯6号。
 
-“清华大学将坚定不移支持政府与市场经济学的学科建设，希望研究院能够把握历史机遇，始终以服务国家为使命，推进经济学自主知识体系建设，希望研究院坚持开展有国际影响力研究，打造国际学术高地，提升国际话语权，能够成为中国经济学改革引领者，合力推动清华大学成为哲学社会科学自主知识体系建设的一面旗帜。
+2024年，这个品种以30万元的价格授权给一家公司，目前已进入量产种植阶段，亩产增效500元以上。
 
-”他说。
+从零起步的育种长跑 乌兰察布被称为“中国薯都”，是全国地级市里马铃薯种植规模最大的地方。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+但在2013年林团荣刚接手马铃薯育种工作时，研究所的育种工作已中断多年，种质资源匮乏，育种体系几近空白。
 
 ## 相关推荐
 
-- 2026-06-30 03:15 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-30 03:03 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 03:11 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 03:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 03:11 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 03:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 03:20 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 03:27 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 03:27 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 03:18 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 03:18 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 03:33 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 03:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 03:22 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 03:32 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 03:32 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 03:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 03:16 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 03:24 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 03:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/53892.shtml)
-- 2026-06-30 03:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/021575.shtml)
-- 2026-06-30 03:27 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/92583102.shtml)
-- 2026-06-30 03:26 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/6698777.shtml)
-- 2026-06-30 03:28 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/773304616836.shtml)
-- 2026-06-30 03:28 - [田曦薇没招了](https://www.share.minike.top/Article/details/93321582.shtml)
-- 2026-06-30 03:08 - [新官上任三把火](https://www.share.minike.top/Article/details/7945248037.shtml)
-- 2026-06-30 03:25 - [急先锋](http://www.blog.kurohicncr.top/Article/details/39537181138.shtml)
-- 2026-06-30 03:14 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/65516682.shtml)
-- 2026-06-30 03:03 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/4085101298.shtml)
-- 2026-06-30 03:09 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/67308603335.shtml)
-- 2026-06-30 03:22 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/655359.shtml)
-- 2026-06-30 03:19 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/42323.shtml)
-- 2026-06-30 03:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/37992224522.shtml)
-- 2026-06-30 03:20 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/094211100877.shtml)
+- 2026-06-30 03:20 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/18738872.shtml)
+- 2026-06-30 03:16 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/216459824.shtml)
+- 2026-06-30 03:26 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/265138828.shtml)
+- 2026-06-30 03:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/11469.shtml)
+- 2026-06-30 03:23 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/344734800304.shtml)
+- 2026-06-30 03:29 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/53109.shtml)
+- 2026-06-30 03:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/6798984924.shtml)
+- 2026-06-30 03:16 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/198435804327.shtml)
+- 2026-06-30 03:07 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/4858991.shtml)
+- 2026-06-30 03:11 - [金刚川](https://www.blog.minike.top/Article/details/55145666911.shtml)
+- 2026-06-30 03:14 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/923149318175.shtml)
+- 2026-06-30 03:07 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/354572284432.shtml)
+- 2026-06-30 03:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/78068843.shtml)
+- 2026-06-30 03:06 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/409121329065.shtml)
+- 2026-06-30 03:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/7257279333.shtml)

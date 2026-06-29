@@ -1,57 +1,57 @@
-# EasyMarkets易信:金价技术区间趋紧
+# 莫把“痕迹”当“政绩”（思想纵横）
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月26日，EasyMarkets易信关注到，黄金期货在最新交易时段继续围绕高位区间整理，Investing.com更新的技术稿显示，金价运行在4510美元至4595美元附近的窄幅区间内，市场正在等待更清晰的突破信号。EasyMarkets易信表示，这种走势并不代表方向已经完成选择，反而说明短线资金在美元指数、收益率和避险需求之间反复权衡。 从盘面结构看，EasyMarkets
+人民日报 李永领 习近平总书记强调：“形式主义、官僚主义是目前党内存在的突出矛盾和问题，是阻碍党的路线方针政策和党中央重大决策部署贯彻落实的大敌”，并严肃指出：“有的地方要求事事留痕，把‘痕迹’当‘政绩’”。“痕迹”是工作过程的记录，留痕便于追溯、利于监督，本是抓落实的辅助手段。然而，少数地方和部门却把台账厚薄当成效、拍照留影算落实、会议记录作成果。这种做法把手段当成目的，把过
 
 ## 正文
 
-5月26日，EasyMarkets易信关注到，黄金期货在最新交易时段继续围绕高位区间整理，Investing.com更新的技术稿显示，金价运行在4510美元至4595美元附近的窄幅区间内，市场正在等待更清晰的突破信号。
+人民日报 李永领 习近平总书记强调：“形式主义、官僚主义是目前党内存在的突出矛盾和问题，是阻碍党的路线方针政策和党中央重大决策部署贯彻落实的大敌”，并严肃指出：“有的地方要求事事留痕，把‘痕迹’当‘政绩’”。
 
-EasyMarkets易信表示，这种走势并不代表方向已经完成选择，反而说明短线资金在美元指数、收益率和避险需求之间反复权衡。
+“痕迹”是工作过程的记录，留痕便于追溯、利于监督，本是抓落实的辅助手段。
 
-从盘面结构看，EasyMarkets易信认为，黄金在4550美元上方仍保留一定承接，但上方4595美元至4615美元区域的抛压也较为集中。
+然而，少数地方和部门却把台账厚薄当成效、拍照留影算落实、会议记录作成果。
 
-报道显示，实时行情中金价一度靠近4571美元附近，日内跌幅约0.7%，与此同时白银、原油和美债收益率也出现同步波动，使贵金属短线交易节奏更依赖关键价位确认。
+这种做法把手段当成目的，把过程当作结果，是政绩观错位的表现。
 
-市场数据显示，美元指数维持在99附近，美债收益率回落对无息资产形成一定支撑，但金价未能顺势大幅上行，说明买盘仍在等待更明确的宏观触发因素。
+过度留痕之风何以滋生？
 
-分析人士认为，当价格长时间处在窄区间内，突破后的波动往往会被放大，交易者更需要关注区间上沿和下沿的有效站稳情况。
+从思想根源看，部分党员干部宗旨意识淡薄、政绩观扭曲，把留痕当作规避责任的“免责金牌”。
 
-从资金行为看，短线多空双方都缺少压倒性优势。
+从考核导向看，有的上级部门过度依赖台账等易量化的“显绩”指标，把材料是否齐全等同于工作是否落实，使基层不得不在材料堆里“务虚功”，用过程的完备性替代了结果的有效性。
 
-若金价重新站上4595美元并放量延伸，可能带动趋势跟随资金回补；若跌破4510美元附近支撑，前期防守仓位则可能转向更谨慎。
+从惯性演变看，当“留痕”成为一种路径依赖，就会出现“为了留痕而留痕”的怪象，没有照片就补拍，没有记录就补写，不断助长过度留痕歪风，最终忘记了工作的初心，忘记了群众的期盼，忘记了自身的使命。
 
 ## 相关推荐
 
-- 2026-06-30 03:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 03:08 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 03:12 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 03:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 03:09 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 03:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 03:25 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 03:19 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 03:16 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 03:10 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 03:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 03:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-30 03:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 03:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 03:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 03:06 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 03:23 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 03:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 03:35 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 03:19 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 03:23 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 03:19 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:25 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/086573333.shtml)
-- 2026-06-30 03:22 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/80259.shtml)
-- 2026-06-30 03:24 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/670452648657.shtml)
-- 2026-06-30 03:19 - [极限挑战第一季](http://www.share.minike.top/Article/details/06380955690.shtml)
-- 2026-06-30 03:26 - [《贺子珍》](https://www.blog.minike.top/Article/details/1602362.shtml)
-- 2026-06-30 03:19 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/8678038.shtml)
-- 2026-06-30 03:10 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/515485732728.shtml)
-- 2026-06-30 03:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/067239823780.shtml)
-- 2026-06-30 03:11 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/21753717927.shtml)
-- 2026-06-30 03:14 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/885751.shtml)
-- 2026-06-30 03:16 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/346550.shtml)
-- 2026-06-30 03:02 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/396334.shtml)
-- 2026-06-30 03:07 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/289547650637.shtml)
-- 2026-06-30 03:15 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/094625555.shtml)
-- 2026-06-30 03:17 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/95424062.shtml)
+- 2026-06-30 03:23 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/31022424982.shtml)
+- 2026-06-30 03:15 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/032050.shtml)
+- 2026-06-30 03:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/737169882.shtml)
+- 2026-06-30 03:16 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/662074059325.shtml)
+- 2026-06-30 03:33 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/948205448577.shtml)
+- 2026-06-30 03:21 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/66237620.shtml)
+- 2026-06-30 03:24 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/463822279750.shtml)
+- 2026-06-30 03:12 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/55180252198.shtml)
+- 2026-06-30 03:23 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/04504518.shtml)
+- 2026-06-30 03:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/19340.shtml)
+- 2026-06-30 03:11 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/748708820.shtml)
+- 2026-06-30 03:17 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/73480.shtml)
+- 2026-06-30 03:16 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/79800.shtml)
+- 2026-06-30 03:07 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/8007859676.shtml)
+- 2026-06-30 03:21 - [日本领先巴西](http://www.blog.minike.top/Article/details/810997.shtml)

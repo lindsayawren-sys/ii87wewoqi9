@@ -1,58 +1,58 @@
-# 隐瞒仲裁信息近4年，002221及3名高管被出具警示函
+# 商务部：中方对中欧商签双边经贸安排一直持开放态度
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2022年5月13日，东华能源（002221）在香港发生仲裁事项，最大涉案金额折合人民币约13.7亿元，但直到今年4月24日公司才补充披露。 2026年5月26日晚间，东华能源公告，因未及时披露仲裁信息，公司于当日收到江苏证监局出具的《关于对东华能源股份有限公司、周一峰、邵晓、陈文辛采取出具警示函措施的决定》（以下简称“警示函”
+发布时间：2026年04月09日 19:36 来源：中国新闻网 4月9日下午，商务部举行例行新闻发布会。有媒体提问称，一些欧洲领导人提出了未来达成中欧贸易协议的可能性，商务部如何评估当前中欧经贸关系的发展方向？在推动新的协议之前，中方希望欧方满足哪些条件？ 对此，商务部新闻发言人何亚东表示，中欧互为重要的经贸伙伴，多年来中欧经贸合作基础牢固，增长动能充足，产供链深度互嵌，已经形
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 2022年5月13日，东华能源（002221）在香港发生仲裁事项，最大涉案金额折合人民币约13.7亿元，但直到今年4月24日公司才补充披露。
+发布时间：2026年04月09日 19:36 来源：中国新闻网 4月9日下午，商务部举行例行新闻发布会。
 
-2026年5月26日晚间，东华能源公告，因未及时披露仲裁信息，公司于当日收到江苏证监局出具的《关于对东华能源股份有限公司、周一峰、邵晓、陈文辛采取出具警示函措施的决定》（以下简称“警示函”）。
+有媒体提问称，一些欧洲领导人提出了未来达成中欧贸易协议的可能性，商务部如何评估当前中欧经贸关系的发展方向？
 
-根据警示函，经查，2022年5月13日，东华能源在香港发生仲裁事项，其中最大涉案金额折合人民币约13.7亿元，占公司最近一期经审计净资产的12.64%。
+在推动新的协议之前，中方希望欧方满足哪些条件？
 
-2025年5月14日，香港国际仲裁中心作出仲裁裁决。
+对此，商务部新闻发言人何亚东表示，中欧互为重要的经贸伙伴，多年来中欧经贸合作基础牢固，增长动能充足，产供链深度互嵌，已经形成了优势互补、互利共赢这样一个良性的格局。
 
-2026年1月14日，南京市中级人民法院作出民事裁定书，裁定查封东华能源8.02亿元财产。
+中方对中欧商签双边经贸安排一直持开放的态度，并且对欧洲领导人的相关提议表示欢迎。
 
-1月15日，东华能源持有的子公司东华能源（张家港）新材料有限公司价值8.02亿元的股权被冻结。
+“然而欧盟近年来使用多项经贸工具对中国企业调查、设限。
 
-值得关注的是，东华能源多期财报均未披露‌该仲裁事项。
+近期还接连推出《网络安全法案》修订草案和《工业加速器法案》，这严重影响了中欧企业合作的信心和预期。
 
-警示函显示，东华能源未及时披露上述仲裁发生及后续重大进展，也未在2022年半年报、2022年年报、2023年半年报、2023年年报、2024年半年报、2024年年报、2025年半年报中披露上述仲裁相关事项。
+”何亚东说，“希望欧盟方面多听听成员国和欧洲业界的呼声，放弃保护主义的做法，与中方相向而行。
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 03:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 03:04 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 03:20 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 03:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 03:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 03:16 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 03:10 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 03:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 03:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 03:05 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 03:02 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 03:14 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 03:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 03:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 03:32 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 03:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 03:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 03:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 03:22 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 03:24 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 03:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 03:13 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 03:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/8114413678.shtml)
-- 2026-06-30 03:12 - [急先锋](http://www.share.minike.top/Article/details/206796360.shtml)
-- 2026-06-30 03:09 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/58643.shtml)
-- 2026-06-30 03:13 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/40758413040.shtml)
-- 2026-06-30 03:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/9942418.shtml)
-- 2026-06-30 03:26 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/04464.shtml)
-- 2026-06-30 03:21 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/7854487.shtml)
-- 2026-06-30 03:10 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/51612.shtml)
-- 2026-06-30 03:11 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/58416.shtml)
-- 2026-06-30 03:16 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/613255325.shtml)
-- 2026-06-30 03:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/7808875304.shtml)
-- 2026-06-30 03:02 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/767382.shtml)
-- 2026-06-30 03:11 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/761846.shtml)
-- 2026-06-30 03:04 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/481773.shtml)
-- 2026-06-30 03:14 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/60955.shtml)
+- 2026-06-30 03:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/19758509399.shtml)
+- 2026-06-30 03:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.kurohicncr.top/Article/details/73074466.shtml)
+- 2026-06-30 03:18 - [金牌调解](https://www.share.minike.top/Article/details/027330171.shtml)
+- 2026-06-30 03:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/843453.shtml)
+- 2026-06-30 03:32 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/824279971668.shtml)
+- 2026-06-30 03:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/377911.shtml)
+- 2026-06-30 03:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/84926048.shtml)
+- 2026-06-30 03:36 - [天道](https://www.share.kurohicncr.top/Article/details/18604044335.shtml)
+- 2026-06-30 03:26 - [全球最火存储ETF纳入兆易创新](https://www.blog.minike.top/Article/details/83370238130.shtml)
+- 2026-06-30 03:26 - [刘念回应](http://www.blog.minike.top/Article/details/130965720.shtml)
+- 2026-06-30 03:11 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/94452.shtml)
+- 2026-06-30 03:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/82669.shtml)
+- 2026-06-30 03:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/3013232317.shtml)
+- 2026-06-30 03:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/038003100.shtml)
+- 2026-06-30 03:31 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/401554787.shtml)

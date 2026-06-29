@@ -1,59 +1,56 @@
-# 英国家庭能源账单涨幅达数百英镑 创两年多新高
+# 高盛资产管理称AI投资热持续 应布局半导体和相关“铲与镐”股
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-自7月起，英国普通气电双燃料家庭的年度能源账单将增加数百英镑。 英国能源监管局（Ofgem）宣布，居民能源价格上限上调13%，普通家庭年度限额从此前的1641英镑涨至1862英镑。 对于选用供应商标准默认费率的普通家庭而言，每月账单将多出18英镑。这也是自2024年1月以来，年度能源账单首次达到这一高位。 受伊朗局势推高能源批发价影响，英格兰、苏格兰和威尔士居民的账单首次受到冲
+高盛资产管理公司的Brook Dane表示，即便伊朗冲突加剧了地缘政治紧张局势，但随着相关支出加速，投资者仍需布局半导体公司及AI领域其他的“铲与镐”（picks and shovels）股。 Dane接受采访时表示，“没错，现在的世界比四个月前更加不确定，风险溢价也可能因而结构性上升，但这并不改变我们所观察到的趋势方向与规模。” 在高盛资产管理担任公共科技投资联席主管的Dan
 
 ## 正文
 
-自7月起，英国普通气电双燃料家庭的年度能源账单将增加数百英镑。
+高盛资产管理公司的Brook Dane表示，即便伊朗冲突加剧了地缘政治紧张局势，但随着相关支出加速，投资者仍需布局半导体公司及AI领域其他的“铲与镐”（picks and shovels）股。
 
-英国能源监管局（Ofgem）宣布，居民能源价格上限上调13%，普通家庭年度限额从此前的1641英镑涨至1862英镑。
+Dane接受采访时表示，“没错，现在的世界比四个月前更加不确定，风险溢价也可能因而结构性上升，但这并不改变我们所观察到的趋势方向与规模。
 
-对于选用供应商标准默认费率的普通家庭而言，每月账单将多出18英镑。
+” 在高盛资产管理担任公共科技投资联席主管的Dane表示，对AI基础设施的需求依然强劲。
 
-这也是自2024年1月以来，年度能源账单首次达到这一高位。
+其中运算能力仍是市场最为稀缺的资源，支撑由大型科技公司主导、为期多年的投资周期，这些企业仍持续投入AI建设。
 
-受伊朗局势推高能源批发价影响，英格兰、苏格兰和威尔士居民的账单首次受到冲击。
+Dane说，“从我们自下而上的基本面分析来看，资本支出预计将持续加速，且其持久性将超出预期。
 
-受冲突影响，全球油气运输要道霍尔木兹海峡通行受阻，该航道承担着全球两成油气运输量，能源批发价格在2月开始走高，并于3月急剧飙升。
-
-不过由于夏季气温偏高，英国居民用电、用气需求普遍下降，此番涨价带来的压力会比冬季相对缓和。
-
-英国能源价格上限每三个月调整一次，该机制限定了能源供应商的单位售价。
+”责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-30 03:05 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 03:14 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 03:05 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 03:02 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 03:00 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 03:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 03:16 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 03:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 03:01 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 03:11 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 03:02 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-30 03:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 03:20 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-30 03:25 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 03:12 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
+- 2026-06-30 03:20 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 03:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
+- 2026-06-30 03:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-30 03:35 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 03:18 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-30 03:26 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 03:20 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 03:11 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 03:27 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 03:35 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 03:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:09 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/744502.shtml)
-- 2026-06-30 03:23 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/873217.shtml)
-- 2026-06-30 03:21 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/27646.shtml)
-- 2026-06-30 03:05 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/472456.shtml)
-- 2026-06-30 03:15 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/0733954.shtml)
-- 2026-06-30 03:23 - [《贺子珍》](http://www.share.minike.top/Article/details/804181.shtml)
-- 2026-06-30 03:09 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/23766.shtml)
-- 2026-06-30 03:16 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/732094.shtml)
-- 2026-06-30 03:25 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/6751469.shtml)
-- 2026-06-30 03:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/748267039205.shtml)
-- 2026-06-30 03:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/7313121.shtml)
-- 2026-06-30 03:13 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/36372472191.shtml)
-- 2026-06-30 03:28 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/220879.shtml)
-- 2026-06-30 03:08 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/4835483.shtml)
-- 2026-06-30 03:24 - [85花告别古偶](https://www.blog.minike.top/Article/details/6215643973.shtml)
+- 2026-06-30 03:30 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/7941186.shtml)
+- 2026-06-30 03:17 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/4970190.shtml)
+- 2026-06-30 03:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/182610.shtml)
+- 2026-06-30 03:13 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/112404.shtml)
+- 2026-06-30 03:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/338600583.shtml)
+- 2026-06-30 03:10 - [长沙菜农公交的人间烟火气](http://www.blog.minike.top/Article/details/9554439.shtml)
+- 2026-06-30 03:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/8551094.shtml)
+- 2026-06-30 03:31 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/59396028464.shtml)
+- 2026-06-30 03:23 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/923863961.shtml)
+- 2026-06-30 03:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/5778197.shtml)
+- 2026-06-30 03:16 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/15972633715.shtml)
+- 2026-06-30 03:11 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/514946145.shtml)
+- 2026-06-30 03:13 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/513951231.shtml)
+- 2026-06-30 03:20 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/54767483068.shtml)
+- 2026-06-30 03:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/2520628204.shtml)

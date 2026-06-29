@@ -1,57 +1,48 @@
-# 中国成功发射通信技术试验卫星二十四号
+# 民生银行获批收购宁晋民生村镇银行并设立分支机构
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新社北京5月27日电 (记者 马帅莎)据中国航天科技集团消息，北京时间5月27日0时16分，中国在文昌航天发射场使用长征七号改运载火箭，成功将通信技术试验卫星二十四号发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 通信技术试验卫星二十四号主要用于开展多频段、高速率卫星通信技术验证。 长征七号改运载火箭是中国新一代中型高轨液体运载火箭。该型火箭可适配直径4.2米和3.7
+4月9日金融一线消息，邢台金融监管分局发布《关于中国民生银行股份有限公司收购宁晋民生村镇银行股份有限公司设立分支机构的批复》，同意该行收购宁晋民生村镇银行股份有限公司并设立中国民生银行股份有限公司宁晋支行，承接宁晋民生村镇银行股份有限公司清产核资后的资产、负债、业务和员工。 责任编辑：曹睿潼
 
 ## 正文
 
-中新社北京5月27日电 (记者 马帅莎)据中国航天科技集团消息，北京时间5月27日0时16分，中国在文昌航天发射场使用长征七号改运载火箭，成功将通信技术试验卫星二十四号发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
+4月9日金融一线消息，邢台金融监管分局发布《关于中国民生银行股份有限公司收购宁晋民生村镇银行股份有限公司设立分支机构的批复》，同意该行收购宁晋民生村镇银行股份有限公司并设立中国民生银行股份有限公司宁晋支行，承接宁晋民生村镇银行股份有限公司清产核资后的资产、负债、业务和员工。
 
-通信技术试验卫星二十四号主要用于开展多频段、高速率卫星通信技术验证。
-
-长征七号改运载火箭是中国新一代中型高轨液体运载火箭。
-
-该型火箭可适配直径4.2米和3.7米两种整流罩，具备一箭一星和一箭双星发射能力。
-
-本次任务中，长征七号改运载火箭首次在新建的总装测试厂房完成总装测试工作。
-
-目前，长征七号系列运载火箭在文昌航天发射场拥有两个总装测试厂房、两个移动发射平台、两套地面测发控设备，发射能力由每年6发提升至每年12发。
-
-这是长征七号改运载火箭2026年首次发射，后续将进入高频次发射状态。
-
-此次任务是长征系列运载火箭的第645次飞行。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 03:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 03:15 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 03:16 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 03:12 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 03:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-30 03:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 03:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 03:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 03:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 03:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 03:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 03:32 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 03:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 03:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 03:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 03:10 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 03:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 03:28 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 03:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 03:23 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 03:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 03:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 03:13 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 03:27 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:10 - [流金岁月](http://www.share.minike.top/Article/details/45717858261.shtml)
-- 2026-06-30 03:25 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/846409.shtml)
-- 2026-06-30 03:13 - [锐评T1零封KC](http://www.share.minike.top/Article/details/76066.shtml)
-- 2026-06-30 03:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/493459453469.shtml)
-- 2026-06-30 03:17 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/27146347667.shtml)
-- 2026-06-30 03:28 - [斛珠夫人](https://www.blog.minike.top/Article/details/22862547.shtml)
-- 2026-06-30 03:17 - [AI接过张雪峰志愿填报衣钵](https://www.blog.kurohicncr.top/Article/details/87812.shtml)
-- 2026-06-30 03:01 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/10513.shtml)
-- 2026-06-30 03:17 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/70751466.shtml)
-- 2026-06-30 03:29 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/751181.shtml)
-- 2026-06-30 03:21 - [青春环游记第三季](http://www.blog.minike.top/Article/details/5331097.shtml)
-- 2026-06-30 03:01 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/4568623168.shtml)
-- 2026-06-30 03:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/42807.shtml)
-- 2026-06-30 03:05 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/6187689.shtml)
-- 2026-06-30 03:05 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/5749827.shtml)
+- 2026-06-30 03:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/9862124402.shtml)
+- 2026-06-30 03:19 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/821003873.shtml)
+- 2026-06-30 03:15 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/3473791.shtml)
+- 2026-06-30 03:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/396949.shtml)
+- 2026-06-30 03:21 - [85花告别古偶](http://www.blog.minike.top/Article/details/129077.shtml)
+- 2026-06-30 03:21 - [巴西2比1日本](http://www.share.minike.top/Article/details/403668277.shtml)
+- 2026-06-30 03:21 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/3488063.shtml)
+- 2026-06-30 03:10 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/58954596.shtml)
+- 2026-06-30 03:34 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/4735239837.shtml)
+- 2026-06-30 03:27 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/76581.shtml)
+- 2026-06-30 03:19 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/21070353638.shtml)
+- 2026-06-30 03:25 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/2740829411.shtml)
+- 2026-06-30 03:07 - [斗破苍穹](http://www.share.minike.top/Article/details/074371997196.shtml)
+- 2026-06-30 03:25 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/5900404.shtml)
+- 2026-06-30 03:18 - [小娘惹](https://www.share.minike.top/Article/details/15993.shtml)

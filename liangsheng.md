@@ -1,60 +1,56 @@
-# 日本自民党总体通过修订“安保三文件”提案意欲何为？
+# “吉心工程·心善银龄”公益项目长春启动
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-日本高市政权推进再军事化的动作不断。据日本方面26日消息，日本自民党25日“总体通过”了为修订“安保三文件”的提议草案，计划于下个月提交日本政府。 25日，日本自民党安全保障调查会在全体会议上“总体通过”了为修订包括《国家安全保障战略》在内的“安保三文件”的提议草案。自民党接下来将继续推进党内程序，并计划最早于6月上旬向日本政府提交该草案。 据了解，提议草案中并未设定关于增加防
+中新网长春4月9日电 (记者 郭佳)对于一些生活困难的老年人来说，心脏手术往往在“治”与“不治”之间反复权衡——病情不能拖，费用却难以承受。 9日，由中国老龄事业发展基金会与吉林心脏病医院联合发起的“吉心工程·心善银龄”困境老人心脏健康救助专项行动在长春启动，正是为打破这样的两难而来。 该项目将目光聚焦于吉林省60至80周岁(含)的低收入困难老年群体。针对需要介入或手术治疗的单
 
 ## 正文
 
-日本高市政权推进再军事化的动作不断。
+中新网长春4月9日电 (记者 郭佳)对于一些生活困难的老年人来说，心脏手术往往在“治”与“不治”之间反复权衡——病情不能拖，费用却难以承受。
 
-据日本方面26日消息，日本自民党25日“总体通过”了为修订“安保三文件”的提议草案，计划于下个月提交日本政府。
+9日，由中国老龄事业发展基金会与吉林心脏病医院联合发起的“吉心工程·心善银龄”困境老人心脏健康救助专项行动在长春启动，正是为打破这样的两难而来。
 
-25日，日本自民党安全保障调查会在全体会议上“总体通过”了为修订包括《国家安全保障战略》在内的“安保三文件”的提议草案。
+该项目将目光聚焦于吉林省60至80周岁(含)的低收入困难老年群体。
 
-自民党接下来将继续推进党内程序，并计划最早于6月上旬向日本政府提交该草案。
+针对需要介入或手术治疗的单纯性心脏病患者，项目提供“从入院到出院零费用”的医疗救助——在医保报销基础上，个人承担部分全部减免。
 
-据了解，提议草案中并未设定关于增加防卫开支的具体数值目标，但明确表示“强化防卫力量并确保相应预算，在五年内实现防卫力量的转型”。
+目前，该项目救助范围涵盖冠心病(支架植入术、搭桥手术)、先天性心脏病(介入封堵治疗、手术治疗)、心脏瓣膜病(修复治疗、换瓣治疗)、心律失常(射频消融术、起搏器植入术)及其他心血管疾病手术治疗。
 
-提案提及，韩国、北约成员国旨在实现防务开支占国内生产总值(GDP)比重达3.5%，澳大利亚提出防务开支占国内生产总值(GDP)为3%的目标。
+在人口老龄化不断加深的当下，心脑血管疾病已成为影响老年人健康的首要威胁。
 
-提案明确表示，为确保相关预算，“基于本国自主判断，开展具体切实的讨论”。
+但与疾病本身同样沉重的，是治疗费用带来的压力。
 
-提案还说，当务之急在于应对运用无人机和人工智能的新型作战模式。
+“不能让老人因为治病负担拖垮整个家庭。
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 03:09 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 03:25 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 03:01 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 03:15 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 03:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 03:20 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 03:22 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 03:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 03:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 03:11 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 03:16 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 03:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 03:03 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 03:26 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 03:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 03:23 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 03:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 03:29 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-30 03:35 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 03:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 03:10 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 03:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 03:29 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:16 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/1674577440.shtml)
-- 2026-06-30 03:04 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/53097989.shtml)
-- 2026-06-30 03:10 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/45942771370.shtml)
-- 2026-06-30 03:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/07500025374.shtml)
-- 2026-06-30 03:22 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/5349211938.shtml)
-- 2026-06-30 03:22 - [世界杯](https://www.blog.kurohicncr.top/Article/details/028605668.shtml)
-- 2026-06-30 03:25 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/76782.shtml)
-- 2026-06-30 03:12 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/603303.shtml)
-- 2026-06-30 03:16 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/79919624.shtml)
-- 2026-06-30 03:14 - [点菜也要教吗](http://www.blog.minike.top/Article/details/76774553219.shtml)
-- 2026-06-30 03:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/086499.shtml)
-- 2026-06-30 03:29 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/9090969516.shtml)
-- 2026-06-30 03:20 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/420003082535.shtml)
-- 2026-06-30 03:26 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/75702939760.shtml)
-- 2026-06-30 03:25 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/951833022265.shtml)
+- 2026-06-30 03:17 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/79848.shtml)
+- 2026-06-30 03:12 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/00288.shtml)
+- 2026-06-30 03:19 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/920922.shtml)
+- 2026-06-30 03:23 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/1226717.shtml)
+- 2026-06-30 03:35 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/450747967824.shtml)
+- 2026-06-30 03:23 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/9913937.shtml)
+- 2026-06-30 03:33 - [天道](https://www.share.kurohicncr.top/Article/details/39362586642.shtml)
+- 2026-06-30 03:08 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/133946.shtml)
+- 2026-06-30 03:32 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/07362993.shtml)
+- 2026-06-30 03:19 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/403218.shtml)
+- 2026-06-30 03:08 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/02329.shtml)
+- 2026-06-30 03:07 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/4588522.shtml)
+- 2026-06-30 03:32 - [月亮](https://www.blog.minike.top/Article/details/3876943.shtml)
+- 2026-06-30 03:35 - [逃狱兄弟](http://www.blog.minike.top/Article/details/37154.shtml)
+- 2026-06-30 03:15 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/04448.shtml)

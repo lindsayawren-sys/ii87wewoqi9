@@ -1,58 +1,60 @@
-# Zscaler发布乐观财报但指引不及预期，股价重挫逾23%
+# 上海洋山深水港：东方大港，两岸同航
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-云安全公司Zscaler周三公布2026财年第三季度业绩，营收和利润双双超越华尔街预期，但因第四季度营收指引略低于市场预估，且全年自由现金流预期遭大幅下调，公司股价在盘后交易中暴跌逾23%。 财报亮点：营收、利润双双超预期 截至4月30日的第三财季，Zscaler营收同比增长25%至8.505亿美元，高于分析师预期的8.36亿美元。调整后每股收益为1.08美元，同样超出市场预期
+中新社上海4月9日电 (记者 缪璐)从上海临港驱车驶过32.5公里的东海大桥，上海洋山深水港巍然出现在天水相连处。这座见证两岸历史联结的现代化港口已是世界级的航运枢纽。 经略港口一直是中华民族强国梦。100多年前，孙中山先生在《建国方略》之《实业计划》中，擘画了以上海、杭州湾为主的东方大港发展蓝图——“位于乍浦岬与澉浦岬之间，此两点相距约15英里”，修建一道海堤，使最大的远洋轮
 
 ## 正文
 
-云安全公司Zscaler周三公布2026财年第三季度业绩，营收和利润双双超越华尔街预期，但因第四季度营收指引略低于市场预估，且全年自由现金流预期遭大幅下调，公司股价在盘后交易中暴跌逾23%。
+中新社上海4月9日电 (记者 缪璐)从上海临港驱车驶过32.5公里的东海大桥，上海洋山深水港巍然出现在天水相连处。
 
-财报亮点：营收、利润双双超预期 截至4月30日的第三财季，Zscaler营收同比增长25%至8.505亿美元，高于分析师预期的8.36亿美元。
+这座见证两岸历史联结的现代化港口已是世界级的航运枢纽。
 
-调整后每股收益为1.08美元，同样超出市场预期的1.01美元。
+经略港口一直是中华民族强国梦。
 
-公司年度经常性收入增长25%至35.3亿美元，调整后营业利润率达到创纪录的23%。
+100多年前，孙中山先生在《建国方略》之《实业计划》中，擘画了以上海、杭州湾为主的东方大港发展蓝图——“位于乍浦岬与澉浦岬之间，此两点相距约15英里”，修建一道海堤，使最大的远洋轮船可以随时进出，形成一个面向全球的世界级枢纽港。
 
-然而按美国通用会计准则计算，公司本季度净亏损1390万美元，高于去年同期的410万美元亏损。
+如今的洋山深水港位于浙江嵊泗崎岖列岛以北，虽不在当年规划的乍浦陆岸沿线，却精准锁定孙中山先生规划的杭州湾外优质深水海域，规避了长江口航道淤积难题。
 
-“随着企业面临AI智能体和先进模型带来的安全威胁，对零信任架构的需求持续攀升，”首席执行官Jay Chaudhry在财报声明中表示，“Zscaler已处于理想位置，成为AI时代的网络安全平台。
+作为世界最大海岛型深水人工港，洋山港也是世界首个建在外海岛屿上的离岸式集装箱码头，现已建成一期至四期集装箱深水泊位共23个，能满足世界最先进的超大型集装箱船全天候满载进出。
 
-” 市场担忧：指引不及预期，自由现金流展望下调 尽管业绩亮眼，Zscaler对第四季度的营收指引令市场失望。
+百年前，孙中山先生以世界级港口勾勒出一个积贫积弱国家的突围梦想；百年后，东方大港正重新定义港口未来。
 
-公司预计第四财季营收将在8.75亿至8.78亿美元之间，略低于分析师预期的8.79亿美元。
+位于港区西侧的洋山四期自动化码头，是目前全球最大单体全自动化码头和综合自动化程度最高的码头之一。
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 03:16 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-30 03:06 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-30 03:29 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 03:27 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 03:28 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 03:06 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 03:25 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 03:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 03:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 03:25 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 03:24 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 03:26 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 03:25 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 03:08 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 03:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 03:30 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 03:32 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 03:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 03:31 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 03:30 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 03:16 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-30 03:21 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 03:18 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 03:08 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 03:14 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/216939.shtml)
-- 2026-06-30 03:09 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/698691993242.shtml)
-- 2026-06-30 03:26 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/02584.shtml)
-- 2026-06-30 03:15 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/89617887.shtml)
-- 2026-06-30 03:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/66118262945.shtml)
-- 2026-06-30 03:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/822849932.shtml)
-- 2026-06-30 03:27 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/77960.shtml)
-- 2026-06-30 03:16 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/3163033878.shtml)
-- 2026-06-30 03:20 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/6219378831.shtml)
-- 2026-06-30 03:15 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/1880281639.shtml)
-- 2026-06-30 03:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/09869063633.shtml)
-- 2026-06-30 03:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/205036088191.shtml)
-- 2026-06-30 03:24 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/88499.shtml)
-- 2026-06-30 03:28 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/22090.shtml)
-- 2026-06-30 03:00 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/69695.shtml)
+- 2026-06-30 03:14 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/2981246689.shtml)
+- 2026-06-30 03:21 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/38347940.shtml)
+- 2026-06-30 03:27 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/64228898.shtml)
+- 2026-06-30 03:32 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/792043965146.shtml)
+- 2026-06-30 03:07 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/479609075290.shtml)
+- 2026-06-30 03:32 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/727187111.shtml)
+- 2026-06-30 03:10 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/163345.shtml)
+- 2026-06-30 03:27 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/7493348.shtml)
+- 2026-06-30 03:22 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/71334.shtml)
+- 2026-06-30 03:11 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/51711.shtml)
+- 2026-06-30 03:08 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/5583305747.shtml)
+- 2026-06-30 03:14 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/60796058121.shtml)
+- 2026-06-30 03:25 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/9212431.shtml)
+- 2026-06-30 03:22 - [沙丘](http://www.share.minike.top/Article/details/4540534.shtml)
+- 2026-06-30 03:06 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/18743488.shtml)

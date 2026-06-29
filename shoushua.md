@@ -1,53 +1,60 @@
-# 晶泰控股早盘涨超4% 与DoveTree合作获1900万美元第二笔付款
+# 莱宝高科定增，机遇背后的三重隐忧
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-晶泰控股（02228）早盘涨超4%，截至发稿，股价上涨4.60%，现报8.42港元，成交额1.73亿港元。 晶泰控股公布，集团与DoveTree的合作进展理想，部分商业价值潜力广阔的管线研发数据表现优异，其中一个泛癌种驱动高价值资产已率先进入临床申请前准备（IND-enabling）研究阶段，在初步生物学活性验证中展现出明确的靶点干预效应和优异的选择性窗口。于本公告日期，集团已
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【导读】莱宝高科定增，机遇背后的三重隐忧 见习记者 刘墨 在新型显示技术赛道的激烈角逐中，莱宝高科（002106）的微腔电子纸显示器件（MED）项目被寄予厚望，被视为公司突破发展瓶颈、抢占新兴市场的关键布局。4月4日，该公司正式发布定增预案，拟募资25亿元，
 
 ## 正文
 
-晶泰控股（02228）早盘涨超4%，截至发稿，股价上涨4.60%，现报8.42港元，成交额1.73亿港元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-晶泰控股公布，集团与DoveTree的合作进展理想，部分商业价值潜力广阔的管线研发数据表现优异，其中一个泛癌种驱动高价值资产已率先进入临床申请前准备（IND-enabling）研究阶段，在初步生物学活性验证中展现出明确的靶点干预效应和优异的选择性窗口。
+【导读】莱宝高科定增，机遇背后的三重隐忧 见习记者 刘墨 在新型显示技术赛道的激烈角逐中，莱宝高科（002106）的微腔电子纸显示器件（MED）项目被寄予厚望，被视为公司突破发展瓶颈、抢占新兴市场的关键布局。
 
-于本公告日期，集团已收到最终协议项下约定的第二笔付款1，900万美元，双方将进一步在约定的难成药靶点领域深度合作，推动包括分子胶在内的研发工作，持续加速候选药物实现临床转化。
+4月4日，该公司正式发布定增预案，拟募资25亿元，投向MED项目建设及补充流动资金，看似为这一新兴业务注入强劲动力。
 
-据悉，于2025年6月底，深圳晶泰与DoveTree订立了最终协议。
+然而，中国基金报记者深入梳理MED项目推进细节后发现，表象之下，技术授权模糊、财务压力高企、供应链稳定性存疑三大隐忧已逐渐浮出水面，为这一承载着公司转型希望的新兴业务，带来了难以忽视的不确定性。
 
-在最终协议的条款规限下，集团有资格获得最高58.9亿美元的潜在监管里程碑及商业里程碑付款，以及基于产品年度净销售额的潜在个位数百分点的特许权使用费。
+核心合作信息披露缺位 在此次定增预案中，莱宝高科对MED项目的技术优势多有阐述，明确该项目采用公司自主及合作开发的微电腔显示（MED）技术，作为一种全新的电子纸显示技术，其具有双稳态（显示静态画面不耗电，仅在切换画面瞬间耗电）、纯反射、全彩色化电子纸等显著优势，产品主要定位于全球中大尺寸彩色电子纸市场，瞄准了潜力巨大的新兴赛道。
 
-责任编辑：卢昱君
+但蹊跷的是，对于技术合作开发的具体来源，预案中却只字未提，信息披露的完整性大打折扣。
+
+事实上，回溯莱宝高科2023年10月21日发布的拟与地方政府合作投资MED项目的公告可知，该公司早在2023年便已获得无锡威峰科技股份有限公司关于微电腔显示（MED）专利和专有技术的20年长期授权许可，同时还获得了电浆材料的长期供应保障。
+
+此外，莱宝高科于2023年6月出资3600万元参与威峰公司增资，成功获得其1.935%的股权，双方的绑定关系十分紧密。
 
 ## 相关推荐
 
-- 2026-06-30 03:07 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 03:17 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 03:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 03:12 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-30 03:11 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-30 03:10 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 03:01 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 03:15 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 03:16 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 03:01 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-30 03:00 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 03:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 03:14 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 03:19 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 03:07 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
+- 2026-06-30 03:27 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 03:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 03:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-30 03:15 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 03:16 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 03:22 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 03:32 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 03:08 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 03:27 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 03:15 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [TOP Prada](https://www.blog.minike.top/Article/details/00440649232.shtml)
-- 2026-06-30 03:23 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/468545490.shtml)
-- 2026-06-30 03:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/2238514.shtml)
-- 2026-06-30 03:04 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/0983431.shtml)
-- 2026-06-30 03:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/35336901.shtml)
-- 2026-06-30 03:03 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/1492430.shtml)
-- 2026-06-30 03:03 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/375913735810.shtml)
-- 2026-06-30 03:10 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/706048147.shtml)
-- 2026-06-30 03:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/06292130.shtml)
-- 2026-06-30 03:10 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/13267.shtml)
-- 2026-06-30 03:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/2838876905.shtml)
-- 2026-06-30 03:25 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/7089046.shtml)
-- 2026-06-30 03:27 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/650185787487.shtml)
-- 2026-06-30 03:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/5111676.shtml)
-- 2026-06-30 03:08 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/3295091.shtml)
+- 2026-06-30 03:13 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/96254134574.shtml)
+- 2026-06-30 03:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/02232.shtml)
+- 2026-06-30 03:34 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/909615236.shtml)
+- 2026-06-30 03:21 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/61659.shtml)
+- 2026-06-30 03:10 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/95238223.shtml)
+- 2026-06-30 03:07 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/05773901249.shtml)
+- 2026-06-30 03:13 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/273826951.shtml)
+- 2026-06-30 03:18 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/9154646317.shtml)
+- 2026-06-30 03:07 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/982382.shtml)
+- 2026-06-30 03:34 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/7832547281.shtml)
+- 2026-06-30 03:24 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/74519.shtml)
+- 2026-06-30 03:22 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/509642213.shtml)
+- 2026-06-30 03:30 - [日本淘汰](http://www.blog.minike.top/Article/details/0945415075.shtml)
+- 2026-06-30 03:10 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/1359931.shtml)
+- 2026-06-30 03:14 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/257663730354.shtml)

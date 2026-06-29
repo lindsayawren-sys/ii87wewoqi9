@@ -1,54 +1,57 @@
-# 东兴海关洗衣房主要设备采购项目（GSZB-FCG-2026-05）成交公告
+# 轻信小额返利险被骗走8.5万元 警方公布刷单诈骗套路
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中华人民共和国东兴海关委托广西桂水工程咨询有限公司，就东兴海关洗衣房主要设备采购项目采用竞争性协商方式进行采购，现就本次协商的成交结果公告如下： 一、项目名称：东兴海关洗衣房主要设备采购项目 二、项目编号：GSZB-FCG-2026-05 三、项目内容：东兴海关洗衣房主要设备采购项目1批，如需进一步了解详细内容，详见竞争性协商采购文件。四、评审日期：2026年5月25日 评审地
+花一分钱购物，还能拿到几十元返现。湖北宜都的曾先生以为遇到了“福利”，却不知落入了刷单陷阱。当他从银行取现3.5万元，准备连同家中的5万元现金一起交给前来取现的人员时，警方迅速展开拦截。 宜都市公安局网络安全保卫大队教导员 吕绍毅：我们一方面快速研判曾先生的行进路线和交易地点，安排地面警力前往现场开展拦截；另一方面同步调度无人机升空，依托无人机高空视角、全域覆盖、实时监控的优势
 
 ## 正文
 
-中华人民共和国东兴海关委托广西桂水工程咨询有限公司，就东兴海关洗衣房主要设备采购项目采用竞争性协商方式进行采购，现就本次协商的成交结果公告如下： 一、项目名称：东兴海关洗衣房主要设备采购项目 二、项目编号：GSZB-FCG-2026-05 三、项目内容：东兴海关洗衣房主要设备采购项目1批，如需进一步了解详细内容，详见竞争性协商采购文件。
+花一分钱购物，还能拿到几十元返现。
 
-四、评审日期：2026年5月25日 评审地点：广西桂水工程咨询有限公司开标厅(南宁市青秀区建政路12号商业综合楼A区五楼)。
+湖北宜都的曾先生以为遇到了“福利”，却不知落入了刷单陷阱。
 
-五、成交信息： 成交供应商：南宁市赛盟数字设备有限公司 成交供应商地址：南宁市星湖路27-16号 成交金额：人民币壹拾肆万陆仟捌佰元整(￥146800.00) 交货期：合同签订后15天内交货 六、联系事项： 1.采购人信息 名称：中华人民共和国东兴海关 地址：广西壮族自治区东兴市兴东路283号 联系人：覃工 电话：0770-6850980 2.采购代理机构信息 名称：广西桂水工程咨询有限公司 地址：南宁市青秀区建政路12号商业综合楼A区五楼 联系人：韩欣彤、罗灿明 联系电话：0771-5640353 七、公告媒体： 广西桂水工程咨询有限公司(http://www.ggecc.com)、中华人民共和国南宁海关网(nanning.customs.gov.cn)。
+当他从银行取现3.5万元，准备连同家中的5万元现金一起交给前来取现的人员时，警方迅速展开拦截。
 
-八、成交公告期限：自成交公告发布之日起一个工作日。
+宜都市公安局网络安全保卫大队教导员 吕绍毅：我们一方面快速研判曾先生的行进路线和交易地点，安排地面警力前往现场开展拦截；另一方面同步调度无人机升空，依托无人机高空视角、全域覆盖、实时监控的优势，对目标区域及周边开展了高空巡查。
 
-供应商认为成交结果使自己的权益受到损害的，可以在成交公告期限届满之日起三个日历日内以书面形式向采购人或采购代理机构提出异议。
+在定位曾先生位置的同时，锁定了两名来取现的“车手”的位置，为地面抓捕提供了实时的精准位置指引和全程动态监控。
 
-逾期将不再受理。
+最终，民警在无人机的高空配合下，在两名“车手”现身取款、准备逃离现场时将两人当场控制，成功拦截8.5万元涉案现金。
+
+据曾先生回忆，这场骗局始于一周前，他在某网络平台刷到一条“1分钱购买物品”的广告，抱着好奇的心态点击了相关链接。
+
+被害人 曾先生：一分钱可以购买，购买之后还可以参与抽奖活动，当时支付了一分钱，然后他就给了我一个链接，说可以在上面参加抽奖。
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 03:18 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 03:26 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 03:15 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 03:14 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 03:17 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 03:18 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-30 03:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 03:23 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 03:21 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 03:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 03:02 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 03:16 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 03:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-30 03:33 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 03:13 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 03:24 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
+- 2026-06-30 03:22 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 03:11 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
+- 2026-06-30 03:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 03:21 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-30 03:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 03:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:13 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/6400738.shtml)
-- 2026-06-30 03:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/75893.shtml)
-- 2026-06-30 03:02 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/75710431596.shtml)
-- 2026-06-30 03:11 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/4546675554.shtml)
-- 2026-06-30 03:12 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/092352.shtml)
-- 2026-06-30 03:04 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/213024648.shtml)
-- 2026-06-30 03:01 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/11147579.shtml)
-- 2026-06-30 03:28 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/870228.shtml)
-- 2026-06-30 03:03 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/62107883984.shtml)
-- 2026-06-30 03:21 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/489226271944.shtml)
-- 2026-06-30 03:26 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/614582960066.shtml)
-- 2026-06-30 03:26 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/749728911150.shtml)
-- 2026-06-30 03:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/96877132.shtml)
-- 2026-06-30 03:04 - [月亮](http://www.blog.minike.top/Article/details/190144.shtml)
-- 2026-06-30 03:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/23567928.shtml)
+- 2026-06-30 03:31 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/2887876.shtml)
+- 2026-06-30 03:21 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/4278003162.shtml)
+- 2026-06-30 03:14 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/99901323.shtml)
+- 2026-06-30 03:15 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/71395409.shtml)
+- 2026-06-30 03:23 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/8177516385.shtml)
+- 2026-06-30 03:10 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/0392127876.shtml)
+- 2026-06-30 03:08 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/4041092396.shtml)
+- 2026-06-30 03:35 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/11235104233.shtml)
+- 2026-06-30 03:25 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/7959153.shtml)
+- 2026-06-30 03:22 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/887563.shtml)
+- 2026-06-30 03:27 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/20155215.shtml)
+- 2026-06-30 03:14 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/389968688.shtml)
+- 2026-06-30 03:07 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/144672869509.shtml)
+- 2026-06-30 03:25 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/333659.shtml)
+- 2026-06-30 03:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/180770592660.shtml)

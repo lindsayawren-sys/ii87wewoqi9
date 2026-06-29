@@ -1,44 +1,61 @@
-# 5月28日人民币对美元中间价报6.8240 上调51个基点
+# 当春假遇上清明 旅游“成绩单”有这些亮点
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新网5月28日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年5月28日银行间外汇市场人民币汇率中间价为1美元对人民币6.8240元，上调51个基点。
+清明假期遇上春假，出游热情一路高涨。家庭亲子游的需求集中释放，大家的出行半径拉长，夜间游也是人气爆棚。各种体验式消费点亮春日经济。 城乡居民出游意愿高涨 亲子游成为市场核心群体 今年多地春假与清明假期叠加连休，江苏、浙江、安徽、贵州等地中小学放春假，形成最长6天连休。数据显示，亲子游订单金额占全国旅游总订单金额的37%，高铁乘客中未成年人占比提升，家庭亲子出游需求集中释放。 中
 
 ## 正文
 
-中新网5月28日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年5月28日银行间外汇市场人民币汇率中间价为1美元对人民币6.8240元，上调51个基点。
+清明假期遇上春假，出游热情一路高涨。
+
+家庭亲子游的需求集中释放，大家的出行半径拉长，夜间游也是人气爆棚。
+
+各种体验式消费点亮春日经济。
+
+城乡居民出游意愿高涨 亲子游成为市场核心群体 今年多地春假与清明假期叠加连休，江苏、浙江、安徽、贵州等地中小学放春假，形成最长6天连休。
+
+数据显示，亲子游订单金额占全国旅游总订单金额的37%，高铁乘客中未成年人占比提升，家庭亲子出游需求集中释放。
+
+中国旅游研究院院长 戴斌：清明节假日期间，城乡居民出游意愿高涨，国内旅游出游人数、旅游花费、农村居民出游人数及外国人入境旅游人数等多项指标创下历史新高。
+
+出游半径扩大 中远程旅游明显增长 与往年相比，今年清明假期的一个显著变化是，800公里以上出行旅客人数增幅明显。
+
+专家表示，这主要受益于多个省市中小学生放春假，推动了出游距离同步增长。
 
 ## 相关推荐
 
-- 2026-06-30 03:26 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 03:20 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 03:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-30 03:18 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 03:16 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 03:05 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 03:26 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 03:19 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 03:12 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 03:16 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 03:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 03:28 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 03:23 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 03:29 - [巴西扳平比分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 03:35 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 03:30 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 03:14 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 03:10 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 03:27 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 03:06 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 03:25 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 03:08 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 03:26 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 03:25 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-30 03:15 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 03:25 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 03:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:01 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/78362951163.shtml)
-- 2026-06-30 03:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/8941935.shtml)
-- 2026-06-30 03:23 - [月亮](https://www.share.minike.top/Article/details/5897777.shtml)
-- 2026-06-30 03:09 - [流金岁月](https://www.blog.minike.top/Article/details/29685.shtml)
-- 2026-06-30 03:10 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/6819994004.shtml)
-- 2026-06-30 03:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/21123711.shtml)
-- 2026-06-30 03:02 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/5970270.shtml)
-- 2026-06-30 03:27 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/798259508179.shtml)
-- 2026-06-30 03:02 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/17744362796.shtml)
-- 2026-06-30 03:19 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/89922354858.shtml)
-- 2026-06-30 03:27 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/4850755544.shtml)
-- 2026-06-30 03:06 - [一生一世](http://www.share.minike.top/Article/details/185156.shtml)
-- 2026-06-30 03:25 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/84405456.shtml)
-- 2026-06-30 03:03 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/281067863407.shtml)
-- 2026-06-30 03:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/676175.shtml)
+- 2026-06-30 03:26 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/398386416.shtml)
+- 2026-06-30 03:13 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/110726124.shtml)
+- 2026-06-30 03:21 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/304359.shtml)
+- 2026-06-30 03:32 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/69341.shtml)
+- 2026-06-30 03:10 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/81100005811.shtml)
+- 2026-06-30 03:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/46678830155.shtml)
+- 2026-06-30 03:22 - [古代人对纳妾的态度是什么样的？](http://www.share.minike.top/Article/details/4701667.shtml)
+- 2026-06-30 03:22 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/360477173987.shtml)
+- 2026-06-30 03:34 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/468807.shtml)
+- 2026-06-30 03:35 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/7631063435.shtml)
+- 2026-06-30 03:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/906553.shtml)
+- 2026-06-30 03:32 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/61957350736.shtml)
+- 2026-06-30 03:35 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/62734940.shtml)
+- 2026-06-30 03:27 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/4166170968.shtml)
+- 2026-06-30 03:08 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/1732805159.shtml)

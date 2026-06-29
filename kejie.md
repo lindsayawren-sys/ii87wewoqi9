@@ -1,60 +1,58 @@
-# 探访澳华历史博物馆：寻文化归属 守华人记忆
+# “0元购”没了，奶茶还香吗？
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新社墨尔本5月27日电 题：探访澳华历史博物馆：寻文化归属 守华人记忆 中新社记者 薄雯雯 漫步于澳大利亚墨尔本唐人街，红灯笼映照着斑驳老建筑，牌楼下人来人往。坐落于街巷深处的澳华历史博物馆，收藏着澳大利亚华人200余年的移民故事。 “这是一座关于澳大利亚华人移民史、文化根源与身份认同的博物馆。”澳华历史博物馆首席执行官王兴乡(Mark Wang)近日接受中新社记者专访时说。
+中新网北京4月8日电(记者 左雨晴) “0元购”“1分钱喝奶茶”“奶茶免单券”……2025年，外卖平台的百亿补贴大战，让茶饮市场陷入一场短暂的狂欢。然而，狂欢终有散场时。随着补贴逐步退去，奶茶价格重回20元区间。 近期，六家上市现制茶饮企业相继交出2025年成绩单。补贴大战的影响在财报中清晰可见：有人承压受伤，有人顺势而上，更有甚者主动盼着补贴早点结束。 同场竞技，不同命运 “
 
 ## 正文
 
-中新社墨尔本5月27日电 题：探访澳华历史博物馆：寻文化归属 守华人记忆 中新社记者 薄雯雯 漫步于澳大利亚墨尔本唐人街，红灯笼映照着斑驳老建筑，牌楼下人来人往。
+中新网北京4月8日电(记者 左雨晴) “0元购”“1分钱喝奶茶”“奶茶免单券”……2025年，外卖平台的百亿补贴大战，让茶饮市场陷入一场短暂的狂欢。
 
-坐落于街巷深处的澳华历史博物馆，收藏着澳大利亚华人200余年的移民故事。
+然而，狂欢终有散场时。
 
-“这是一座关于澳大利亚华人移民史、文化根源与身份认同的博物馆。
+随着补贴逐步退去，奶茶价格重回20元区间。
 
-”澳华历史博物馆首席执行官王兴乡(Mark Wang)近日接受中新社记者专访时说。
+近期，六家上市现制茶饮企业相继交出2025年成绩单。
 
-这位不会说中文却自称有着“中式思维”的第五代华裔，已与这座博物馆相伴四十余载。
+补贴大战的影响在财报中清晰可见：有人承压受伤，有人顺势而上，更有甚者主动盼着补贴早点结束。
 
-成立于1985年的澳华历史博物馆是一家非营利机构，许多工作由志愿者承担，王兴乡便是最早的志愿者之一。
+同场竞技，不同命运 “受伤最深”的是定位高端的品牌。
 
-王兴乡的父亲王能焕(David Wang)是墨尔本市议会首位华裔议员，长期致力于华人社区发展。
+霸王茶姬2025年第四季度收入29.74亿元，同比下滑10.8%，营业利润由盈转亏，录得亏损3550万元，归母净利润更是同比暴跌95.3%至2853.8万元。
 
-王兴乡表示，受父亲影响，他也始终怀有服务华社的责任感，并且乐在其中。
+创始人张俊杰在业绩会上坦言：“我们也确实低估了外卖平台价格大战对线下的冲击。
 
 ## 相关推荐
 
-- 2026-06-30 03:27 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 03:08 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-30 03:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 03:23 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 03:02 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 03:22 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-30 03:20 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 03:29 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-30 03:06 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 03:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 03:16 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:19 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-30 03:18 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 03:16 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 03:10 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 03:35 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 03:21 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 03:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 03:32 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-30 03:16 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-30 03:06 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 03:15 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 03:33 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 03:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-30 03:33 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 03:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/6756841663.shtml)
-- 2026-06-30 03:09 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/33735.shtml)
-- 2026-06-30 03:24 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/19044.shtml)
-- 2026-06-30 03:17 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/2978196.shtml)
-- 2026-06-30 03:17 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/4799447.shtml)
-- 2026-06-30 03:10 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/2201713.shtml)
-- 2026-06-30 03:28 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/3531527355.shtml)
-- 2026-06-30 03:00 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/58905809.shtml)
-- 2026-06-30 03:05 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/641379368.shtml)
-- 2026-06-30 03:15 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/474097372.shtml)
-- 2026-06-30 03:25 - [点菜也要教吗](https://www.share.minike.top/Article/details/6552235837.shtml)
-- 2026-06-30 03:19 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/90647.shtml)
-- 2026-06-30 03:13 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/64557147503.shtml)
-- 2026-06-30 03:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/1237482040.shtml)
-- 2026-06-30 03:12 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/07617535.shtml)
+- 2026-06-30 03:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/119322329347.shtml)
+- 2026-06-30 03:06 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5570828.shtml)
+- 2026-06-30 03:26 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/85793732174.shtml)
+- 2026-06-30 03:17 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/21703976.shtml)
+- 2026-06-30 03:31 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/71102576.shtml)
+- 2026-06-30 03:18 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/4232251692.shtml)
+- 2026-06-30 03:28 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/07076611.shtml)
+- 2026-06-30 03:24 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/572090.shtml)
+- 2026-06-30 03:28 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/97899024256.shtml)
+- 2026-06-30 03:20 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/8266889663.shtml)
+- 2026-06-30 03:12 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/960309373379.shtml)
+- 2026-06-30 03:14 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/234061.shtml)
+- 2026-06-30 03:31 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/4380826719.shtml)
+- 2026-06-30 03:24 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/677730644.shtml)
+- 2026-06-30 03:16 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/7120887006.shtml)

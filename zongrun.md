@@ -1,59 +1,52 @@
-# 特斯拉欧洲月度销量大幅增长 全自动驾驶技术正申请欧盟准入
+# 天津银行2025年度报告出炉：实现净利润39.3亿元 同比增长2.6%
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-欧洲汽车制造商协会（ACEA）数据显示，上月在欧盟、英国、冰岛、列支敦士登、挪威及瑞士范围内，特斯拉新车上牌量同比大增 46.5%，达 10654 辆；其中仅欧盟地区销量就同比上涨超 67%，录得 9169 辆。新车上牌量是衡量汽车销量的核心指标。 这一数据表明，特斯拉在欧洲市场正持续回暖、势头向好。自 2024 年 12 月之后，特斯拉新车上牌量在今年 2 月首度转正（同比上
+4月8日金融一线消息，天津银行今日发布2025年度报告。报告显示，截至2025年末，该行资产总额达9824亿元，较上年末增长6.1%；负债总额9112.5亿元，较上年末增长6.4%。实现营业收入169.5亿元，同比增长1.5%；利润总额43.6亿元，同比增长3.7%；净利润39.3亿元，同比增长2.6%。 报告期内，天津银行利息收入为304.7亿元，较上年同期减少5.2亿元，同
 
 ## 正文
 
-欧洲汽车制造商协会（ACEA）数据显示，上月在欧盟、英国、冰岛、列支敦士登、挪威及瑞士范围内，特斯拉新车上牌量同比大增 46.5%，达 10654 辆；其中仅欧盟地区销量就同比上涨超 67%，录得 9169 辆。
+4月8日金融一线消息，天津银行今日发布2025年度报告。
 
-新车上牌量是衡量汽车销量的核心指标。
+报告显示，截至2025年末，该行资产总额达9824亿元，较上年末增长6.1%；负债总额9112.5亿元，较上年末增长6.4%。
 
-这一数据表明，特斯拉在欧洲市场正持续回暖、势头向好。
+实现营业收入169.5亿元，同比增长1.5%；利润总额43.6亿元，同比增长3.7%；净利润39.3亿元，同比增长2.6%。
 
-自 2024 年 12 月之后，特斯拉新车上牌量在今年 2 月首度转正（同比上涨近 12%），3 月涨幅更是超过 84%，4 月则实现连续第三个月销量走高，扭转了此前持续一年多的销量低迷局面。
+报告期内，天津银行利息收入为304.7亿元，较上年同期减少5.2亿元，同比降幅1.7%；生息资产平均收益率3.74%，同比减少29个基点；投资收益为19.8亿元，较上年同期减少人民币6.2亿元，同比降幅23.9%。
 
-2025 年特斯拉在欧洲处境艰难。
-
-一方面，埃隆・马斯克任职美国政府效率部、配合特朗普政府施政，引发部分消费者不满；另一方面，中国车企巨头比亚迪在欧洲市场不断抢占份额，行业竞争日趋激烈。
-
-自去年夏天欧洲汽车制造商协会开始统计比亚迪数据以来，该品牌在欧洲销量月月暴涨。
-
-上月比亚迪上牌量增至 27008 辆，同比翻番以上；中国零跑汽车欧洲销量更是激增五倍有余，达到 8745 辆。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 03:29 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 03:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 03:28 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 03:28 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 03:24 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
-- 2026-06-30 03:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 03:17 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 03:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 03:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 03:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 03:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 03:03 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 03:26 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 03:25 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 03:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 03:22 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 03:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 03:14 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 03:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 03:20 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-30 03:13 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 03:25 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 03:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 03:13 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:07 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/734078.shtml)
-- 2026-06-30 03:05 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/107647.shtml)
-- 2026-06-30 03:19 - [《贺子珍》](https://www.share.minike.top/Article/details/4820818.shtml)
-- 2026-06-30 03:10 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/0473144.shtml)
-- 2026-06-30 03:11 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/961313.shtml)
-- 2026-06-30 03:09 - [天道](https://www.blog.kurohicncr.top/Article/details/241513145.shtml)
-- 2026-06-30 03:23 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/911166.shtml)
-- 2026-06-30 03:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/448540893770.shtml)
-- 2026-06-30 03:06 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/29746469646.shtml)
-- 2026-06-30 03:29 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/949445234.shtml)
-- 2026-06-30 03:12 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/30849763424.shtml)
-- 2026-06-30 03:00 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/27183817244.shtml)
-- 2026-06-30 03:25 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/80111459358.shtml)
-- 2026-06-30 03:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/3531858.shtml)
-- 2026-06-30 03:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/193640.shtml)
+- 2026-06-30 03:07 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/22673.shtml)
+- 2026-06-30 03:31 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/9405672366.shtml)
+- 2026-06-30 03:09 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/23907246.shtml)
+- 2026-06-30 03:09 - [勇敢的心第二部](https://www.share.minike.top/Article/details/68462873.shtml)
+- 2026-06-30 03:24 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/70348788.shtml)
+- 2026-06-30 03:32 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/1005580.shtml)
+- 2026-06-30 03:13 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/990326814066.shtml)
+- 2026-06-30 03:32 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/1150650949.shtml)
+- 2026-06-30 03:25 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/871219433.shtml)
+- 2026-06-30 03:23 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/2601245.shtml)
+- 2026-06-30 03:22 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/143437938.shtml)
+- 2026-06-30 03:23 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/797846.shtml)
+- 2026-06-30 03:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/112516095.shtml)
+- 2026-06-30 03:32 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/219541255.shtml)
+- 2026-06-30 03:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/73196.shtml)

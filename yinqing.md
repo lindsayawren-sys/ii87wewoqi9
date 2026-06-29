@@ -1,57 +1,61 @@
-# 淮河水利委员会连续会商部署水旱灾害防御工作
+# 迪士尼计划裁员1000人
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 5月26日，淮河水利委员会召开防汛会商会，分析研判流域雨水情趋势，安排部署近期水旱灾害防御工作。 入汛以来，淮河流域发生两轮强降雨过程，流域降雨量92.1毫米(含山东半岛)，较历史同期多317%。受强降雨影响，淮河干流及南部潢河、白露河、史灌河、淠河等支流发生明显涨水过程，其中潢河发生一次超警洪水过程。截至目前，本轮强降雨过程已基本结束，河道洪水正向中下游演
+迪士尼计划在未来几周内裁员多达1000人，其中大部分裁员将在公司营销部门进行。 此次裁员计划在乔希・达马罗于3月出任迪士尼首席执行官之前便已开始筹划。 此次计划中的裁员规模可能不到其员工总数的1%。截至2025财年末，迪士尼拥有约23.1万名员工。 报道还补充道，迪士尼新任首席营销官阿萨德・阿亚兹还计划通过代号为“畅想项目”的计划整合公司营销团队并削减开支。阿亚兹自今年1月起开
 
 ## 正文
 
-中新网5月27日电 5月26日，淮河水利委员会召开防汛会商会，分析研判流域雨水情趋势，安排部署近期水旱灾害防御工作。
+迪士尼计划在未来几周内裁员多达1000人，其中大部分裁员将在公司营销部门进行。
 
-入汛以来，淮河流域发生两轮强降雨过程，流域降雨量92.1毫米(含山东半岛)，较历史同期多317%。
+此次裁员计划在乔希・达马罗于3月出任迪士尼首席执行官之前便已开始筹划。
 
-受强降雨影响，淮河干流及南部潢河、白露河、史灌河、淠河等支流发生明显涨水过程，其中潢河发生一次超警洪水过程。
+此次计划中的裁员规模可能不到其员工总数的1%。
 
-截至目前，本轮强降雨过程已基本结束，河道洪水正向中下游演进，流域河道、水库、湖泊水情平稳可控。
+截至2025财年末，迪士尼拥有约23.1万名员工。
 
-会议强调，各地各单位要密切跟踪后续雨水情态势，从严从实落细各项防汛举措。
+报道还补充道，迪士尼新任首席营销官阿萨德・阿亚兹还计划通过代号为“畅想项目”的计划整合公司营销团队并削减开支。
 
-一是强化雨水情监测预警，要紧盯淮南山区潢河、白露河等重点河段洪水演进，指导地方做好超警河段堤防防守等工作；二是科学开展水工程调度，要重点关注洪泽湖、骆马湖水位，科学调度水利工程，合理控制湖水位，保障洪水顺利下泄；三是强化中小水库运行监管，督促各地按照规程有序泄流，确保超汛限水库水位尽快回落至汛限水位以下；四是重点关注短时强降雨区域，严防山洪灾害、中小河流超警及城市内涝风险，督促各地及时落实应急措施，牢牢守住安全底线；五是不断完善淮河防洪“四预”系统，要以此次洪水过程为契机，及时复核重点河道断面水位流量关系，夯实水文测报与调度研判基础。
+阿亚兹自今年1月起开始负责管理新成立的全公司营销机构。
+
+迪士尼尚未回应媒体的置评请求。
+
+责任编辑：李肇孚
 
 ## 相关推荐
 
-- 2026-06-30 03:25 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
-- 2026-06-30 03:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 03:28 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 03:23 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 03:25 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-30 03:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 03:25 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 03:18 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 03:15 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 03:13 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 03:14 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 03:04 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 03:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 03:25 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 03:20 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 03:11 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 03:22 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 03:23 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 03:33 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:28 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 03:31 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-30 03:28 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 03:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 03:27 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 03:32 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 03:07 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 03:13 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 03:19 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 03:23 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 03:26 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:12 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/06968598038.shtml)
-- 2026-06-30 03:04 - [啊啊啊](https://www.blog.minike.top/Article/details/453394327009.shtml)
-- 2026-06-30 03:05 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/59653646095.shtml)
-- 2026-06-30 03:15 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/529066.shtml)
-- 2026-06-30 03:10 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/533487.shtml)
-- 2026-06-30 03:16 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/57328633229.shtml)
-- 2026-06-30 03:10 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/73409.shtml)
-- 2026-06-30 03:08 - [极限挑战第一季](http://www.blog.minike.top/Article/details/766357513.shtml)
-- 2026-06-30 03:15 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/8263473.shtml)
-- 2026-06-30 03:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/875991.shtml)
-- 2026-06-30 03:24 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/000351695.shtml)
-- 2026-06-30 03:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/84104.shtml)
-- 2026-06-30 03:19 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/23551325.shtml)
-- 2026-06-30 03:16 - [我们的少年时代2](https://www.blog.minike.top/Article/details/005500.shtml)
-- 2026-06-30 03:21 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/634728380148.shtml)
+- 2026-06-30 03:33 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/27824048.shtml)
+- 2026-06-30 03:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/25074230.shtml)
+- 2026-06-30 03:31 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/3919392.shtml)
+- 2026-06-30 03:20 - [金刚川](http://www.share.minike.top/Article/details/30634.shtml)
+- 2026-06-30 03:30 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/554199589.shtml)
+- 2026-06-30 03:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/6435610.shtml)
+- 2026-06-30 03:26 - [第一炉香](https://www.share.kurohicncr.top/Article/details/6706273.shtml)
+- 2026-06-30 03:27 - [恋与深空回应争议](http://www.share.minike.top/Article/details/5337725715.shtml)
+- 2026-06-30 03:15 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/2257517.shtml)
+- 2026-06-30 03:28 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/2354008.shtml)
+- 2026-06-30 03:19 - [女心理师](https://www.share.kurohicncr.top/Article/details/82170841.shtml)
+- 2026-06-30 03:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/956934515208.shtml)
+- 2026-06-30 03:27 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/83228685065.shtml)
+- 2026-06-30 03:18 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/12524.shtml)
+- 2026-06-30 03:35 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/2167664059.shtml)

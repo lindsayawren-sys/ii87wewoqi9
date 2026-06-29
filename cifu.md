@@ -1,60 +1,58 @@
-# 险企巨头，股权上相恋了
+# 一封信，四校师生共答时代命题丨求实学、务实业 学习贯彻总书记回信精神④
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-作者：姜鑫 作为国内人身险市场体量最大的两家公司，中国人寿和中国平安正从昔日的行业竞争对手化为股东“密友”。 根据财报及今年5月20日的港交所权益披露信息，中国人寿与中国平安之间出现了“互相持股”格局——中国平安持续买入中国人寿H股股票，中国人寿也出现在中国平安A股流通股股东名单中。 险资增持同业，并非个案。中国平安同样手握中国太保H股股票，新华保险连续两个季度增持中国人保A股
+川观新闻记者 魏冯 钟帆 4月7日，习近平总书记给四所交通大学全体师生回信，勉励大家为建设教育强国、科技强国、人才强国作出新贡献。 近日，上海交通大学、西安交通大学、西南交通大学、北京交通大学等四所交通大学全体师生给习近平总书记写信，汇报学校130年发展历程和办学成绩。 四所交通大学共同迎来建校130周年之际寄出的这封信，凝聚了四所交大跨越三个世纪、百余万师生校友与国家同频共振
 
 ## 正文
 
-作者：姜鑫 作为国内人身险市场体量最大的两家公司，中国人寿和中国平安正从昔日的行业竞争对手化为股东“密友”。
+川观新闻记者 魏冯 钟帆 4月7日，习近平总书记给四所交通大学全体师生回信，勉励大家为建设教育强国、科技强国、人才强国作出新贡献。
 
-根据财报及今年5月20日的港交所权益披露信息，中国人寿与中国平安之间出现了“互相持股”格局——中国平安持续买入中国人寿H股股票，中国人寿也出现在中国平安A股流通股股东名单中。
+近日，上海交通大学、西安交通大学、西南交通大学、北京交通大学等四所交通大学全体师生给习近平总书记写信，汇报学校130年发展历程和办学成绩。
 
-险资增持同业，并非个案。
+四所交通大学共同迎来建校130周年之际寄出的这封信，凝聚了四所交大跨越三个世纪、百余万师生校友与国家同频共振的发展故事。
 
-中国平安同样手握中国太保H股股票，新华保险连续两个季度增持中国人保A股股份。
+4月7日，回信到了。
 
-今年一季度，保险股经历了调整，跌幅远超大盘，险企巨头在其他机构选择离场时增持了同业股份。
+为什么一起写信？
 
-这背后是险企巨头在低利率、优质资产难寻以及政策放开背景下的“双向奔赴”。
+根脉相连，四所交大共答时代命题 共同提笔寄出这封信，源于四所高校130年的“根脉相连”。
 
-增持同业 5月20日，港交所权益披露信息显示，中国平安再度增持中国人寿H股股份，持股达11.99亿股，占已发行的有投票权股份的16.12%。
+上海交大、西安交大、西南交大、北京交大起源于1896年成立的南洋公学、北洋铁路官学堂和1909年成立的铁路管理传习所，1921年合并组建交通大学，后来历经时代变化，分散于天南海北，一道坚守“求实学、务实业”的办学根本。
 
-3月25日，中国平安增持中国太保H股股份，持股达3.35亿股，占已发行的有投票权股份的12.08%。
+党的二十大报告首次将教育、科技、人才作为专章阐述并一体部署，加快建设教育强国的号角吹响。
 
 ## 相关推荐
 
-- 2026-06-30 03:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 03:16 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 03:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 03:17 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 03:29 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 03:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 03:12 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 03:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 03:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 03:25 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 03:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 03:15 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 03:09 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 03:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
+- 2026-06-30 03:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 03:27 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 03:10 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 03:32 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 03:20 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 03:31 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 03:31 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-30 03:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 03:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 03:27 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 03:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 03:25 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/971471.shtml)
-- 2026-06-30 03:13 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/214825455003.shtml)
-- 2026-06-30 03:13 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/76837954447.shtml)
-- 2026-06-30 03:05 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/29986841.shtml)
-- 2026-06-30 03:10 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/996782995.shtml)
-- 2026-06-30 03:15 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/356775492.shtml)
-- 2026-06-30 03:18 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/6095854447.shtml)
-- 2026-06-30 03:25 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/269486577425.shtml)
-- 2026-06-30 03:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/0434432.shtml)
-- 2026-06-30 03:18 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/18746350516.shtml)
-- 2026-06-30 03:10 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/634985243019.shtml)
-- 2026-06-30 03:09 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/408733510079.shtml)
-- 2026-06-30 03:18 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/397305365.shtml)
-- 2026-06-30 03:29 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/734839.shtml)
-- 2026-06-30 03:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/870646658983.shtml)
+- 2026-06-30 03:06 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/69681729722.shtml)
+- 2026-06-30 03:19 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/6010470372.shtml)
+- 2026-06-30 03:14 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/349753.shtml)
+- 2026-06-30 03:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/77411555.shtml)
+- 2026-06-30 03:28 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/26004287.shtml)
+- 2026-06-30 03:20 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0736722.shtml)
+- 2026-06-30 03:28 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/36643159893.shtml)
+- 2026-06-30 03:07 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/25417220.shtml)
+- 2026-06-30 03:24 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/7978709542.shtml)
+- 2026-06-30 03:34 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/0026866621.shtml)
+- 2026-06-30 03:33 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/6133539.shtml)
+- 2026-06-30 03:15 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/93854.shtml)
+- 2026-06-30 03:14 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/88807933816.shtml)
+- 2026-06-30 03:35 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/77603096628.shtml)
+- 2026-06-30 03:14 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/88249112936.shtml)

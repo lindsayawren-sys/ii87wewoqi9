@@ -1,56 +1,51 @@
-# 武契奇：塞中青年携手共进是我的梦想
+# 美国副总统万斯周三承认，此次停火仍是“脆弱的休战”
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新社浙江嘉兴5月27日电 (鲍梦妮)“很高兴见到塞尔维亚与中国的青年在此携手共进，这是我的梦想。”5月27日，塞尔维亚总统武契奇在浙江嘉兴访问时表示。 当日，武契奇一行前往嘉兴的敏实集团未来工厂参观，观看多款人形机器人、机器狗功能演示。正在该企业参加“铁杆青春 智造未来”国际青年交流营活动的多名塞尔维亚青年，向武契奇展示他们学到的智能机器人操作技能。 武契奇还出席中塞青年文化
+美国副总统 JD・万斯周三承认，此次停火仍是 “脆弱的休战”。 万斯在布达佩斯发表讲话时，对伊朗官员宣称取得胜利的说法提出异议，称部分言论 “在协议性质上基本是在撒谎”。 美伊双方预计很快将启动谈判，以争取延长停火期限。 万斯还透露，特朗普总统前一晚曾对他表示：“伊朗人谈判比打仗更在行。”责任编辑：郭明煜
 
 ## 正文
 
-中新社浙江嘉兴5月27日电 (鲍梦妮)“很高兴见到塞尔维亚与中国的青年在此携手共进，这是我的梦想。
+美国副总统 JD・万斯周三承认，此次停火仍是 “脆弱的休战”。
 
-”5月27日，塞尔维亚总统武契奇在浙江嘉兴访问时表示。
+万斯在布达佩斯发表讲话时，对伊朗官员宣称取得胜利的说法提出异议，称部分言论 “在协议性质上基本是在撒谎”。
 
-当日，武契奇一行前往嘉兴的敏实集团未来工厂参观，观看多款人形机器人、机器狗功能演示。
+美伊双方预计很快将启动谈判，以争取延长停火期限。
 
-正在该企业参加“铁杆青春 智造未来”国际青年交流营活动的多名塞尔维亚青年，向武契奇展示他们学到的智能机器人操作技能。
+万斯还透露，特朗普总统前一晚曾对他表示：“伊朗人谈判比打仗更在行。
 
-武契奇还出席中塞青年文化交流中心揭幕仪式。
-
-该中心旨在为中塞两国青年搭建长期化、机制化的交流平台，聚焦智能制造、新能源、人形机器人、低空经济等新兴科技领域，推动国际青年互学互鉴。
-
-武契奇表示，塞中两国青年交流对塞尔维亚至关重要，同时也是中国青年的宝贵经历，我们能借此增进了解、互学互鉴。
-
-相信未来两国青年能够为双边合作创造全新可能，共同探索高新技术、人工智能、软件产业等前沿领域的机遇。
+”责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 03:14 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 03:07 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 03:01 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 03:20 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 03:17 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 03:21 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 03:17 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 03:02 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 03:02 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-30 03:08 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-30 03:13 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 03:12 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 03:14 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 03:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 03:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 03:16 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 03:35 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 03:15 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 03:14 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 03:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 03:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:26 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/880358328.shtml)
-- 2026-06-30 03:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/5208091.shtml)
-- 2026-06-30 03:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/53505.shtml)
-- 2026-06-30 03:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/3350175975.shtml)
-- 2026-06-30 03:04 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/208407706622.shtml)
-- 2026-06-30 03:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/8827974.shtml)
-- 2026-06-30 03:06 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/47276243.shtml)
-- 2026-06-30 03:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/39987254525.shtml)
-- 2026-06-30 03:15 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/40411.shtml)
-- 2026-06-30 03:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/112824.shtml)
-- 2026-06-30 03:00 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/76831024408.shtml)
-- 2026-06-30 03:21 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/91793226277.shtml)
-- 2026-06-30 03:04 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/27347.shtml)
-- 2026-06-30 03:21 - [恋与深空回应争议](https://www.share.minike.top/Article/details/90919.shtml)
-- 2026-06-30 03:13 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/27707.shtml)
+- 2026-06-30 03:09 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/9687304.shtml)
+- 2026-06-30 03:30 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/7350264.shtml)
+- 2026-06-30 03:17 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/81448.shtml)
+- 2026-06-30 03:07 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/244564.shtml)
+- 2026-06-30 03:26 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/836770998.shtml)
+- 2026-06-30 03:16 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/94583703475.shtml)
+- 2026-06-30 03:10 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/112178258.shtml)
+- 2026-06-30 03:32 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/115712.shtml)
+- 2026-06-30 03:34 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/0346953761.shtml)
+- 2026-06-30 03:15 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/187029.shtml)
+- 2026-06-30 03:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/470084823142.shtml)
+- 2026-06-30 03:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/6487030491.shtml)
+- 2026-06-30 03:08 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/145887859349.shtml)
+- 2026-06-30 03:28 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/8334507.shtml)
+- 2026-06-30 03:22 - [青春环游记第三季](https://www.share.minike.top/Article/details/809599.shtml)

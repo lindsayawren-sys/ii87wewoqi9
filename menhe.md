@@ -1,56 +1,60 @@
-# 深交所2026全球投资者大会在深圳开幕 刘浩凌、李运、陶永欣等出席
+# 科伦药业2025年业绩全面遇冷：增长失速、主业承压，创新转型何时破局？
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月28日，深交所2026全球投资者大会在深圳开幕。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌，广东省副省长李运，深圳市常务副市长陶永欣等出席开幕式并致辞。多位中外专家学者，来
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，科伦药业披露2025年年度报告。作为国内输液与抗生素中间体龙头，科伦药业2025年的经营态势却较为严峻，传统业务稳健托底、创新业务逐步蓄力的增长逻辑正面临挑战。从财务数据看，公司营收、净利润双双大幅下滑，盈利指标持续恶化，现金流同步缩水，多重风险集中显现。 增长失速营收净利双降 输液基本盘已出现松动
 
 ## 正文
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-5月28日，深交所2026全球投资者大会在深圳开幕。
+近日，科伦药业披露2025年年度报告。
 
-大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌，广东省副省长李运，深圳市常务副市长陶永欣等出席开幕式并致辞。
+作为国内输液与抗生素中间体龙头，科伦药业2025年的经营态势却较为严峻，传统业务稳健托底、创新业务逐步蓄力的增长逻辑正面临挑战。
 
-多位中外专家学者，来自24个国家和地区的境外监管机构和交易所、资管机构、创投机构、行业组织、上市公司等代表，以及深交所主要负责同志现场参会。
+从财务数据看，公司营收、净利润双双大幅下滑，盈利指标持续恶化，现金流同步缩水，多重风险集中显现。
 
-大会为期两天，将通过主旨演讲、圆桌讨论、公司路演、科技展陈等方式，多维度展示“十五五”规划下的中国资本市场高质量发展及服务科技创新成长的投资新机遇。
+增长失速营收净利双降 输液基本盘已出现松动 2025年，科伦药业核心财务指标全线转向。
 
-责任编辑：石秀珍 SF183
+2024年，公司尚实现营业总收入218.12亿元，同比增长1.67%；归母净利润29.36亿元，同比增长19.53%，仅一年时间，业绩便出现断崖式下滑，营收同比下降15.13%，归母净利润降幅更是高达42.03%。
+
+盈利能力方面，公司毛利率从2023年的超52%逐年回落至2025年的47.85%，三年间降幅接近5个百分点，且下滑速度逐年加快。
+
+毛利率一路走低的背后，是集采降价、终端需求萎缩、原料价格波动、产品结构退化等多重压力的综合作用，公司核心业务的盈利空间被持续挤压，传统高毛利优势逐步消失。
 
 ## 相关推荐
 
-- 2026-06-30 03:29 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 03:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 03:00 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 03:24 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 03:11 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 03:10 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 03:08 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 03:30 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-30 03:10 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 03:01 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 03:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 03:28 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 03:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 03:06 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 03:23 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 03:31 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 03:24 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 03:33 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 03:29 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 03:19 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
+- 2026-06-30 03:15 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 03:18 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 03:24 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 03:06 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-30 03:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 03:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 03:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 03:15 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/899687294.shtml)
-- 2026-06-30 03:08 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/141115.shtml)
-- 2026-06-30 03:27 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/44357156.shtml)
-- 2026-06-30 03:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/28858650853.shtml)
-- 2026-06-30 03:29 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/58117763.shtml)
-- 2026-06-30 03:22 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/05275906.shtml)
-- 2026-06-30 03:00 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/31515.shtml)
-- 2026-06-30 03:09 - [《贺子珍》](https://www.share.minike.top/Article/details/8229083.shtml)
-- 2026-06-30 03:25 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/093139.shtml)
-- 2026-06-30 03:21 - [美股](http://www.blog.kurohicncr.top/Article/details/151685045734.shtml)
-- 2026-06-30 03:17 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/53797167362.shtml)
-- 2026-06-30 03:27 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/509251659.shtml)
-- 2026-06-30 03:25 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/74637411.shtml)
-- 2026-06-30 03:24 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/13962.shtml)
-- 2026-06-30 03:11 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/65698572844.shtml)
+- 2026-06-30 03:25 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/6071459.shtml)
+- 2026-06-30 03:19 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/097894630348.shtml)
+- 2026-06-30 03:22 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/26898323.shtml)
+- 2026-06-30 03:14 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/9439975.shtml)
+- 2026-06-30 03:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/13933.shtml)
+- 2026-06-30 03:32 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/17873509.shtml)
+- 2026-06-30 03:31 - [起风了](http://www.share.minike.top/Article/details/86429.shtml)
+- 2026-06-30 03:34 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/50976.shtml)
+- 2026-06-30 03:14 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/319541861.shtml)
+- 2026-06-30 03:35 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/52846388.shtml)
+- 2026-06-30 03:33 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/737776.shtml)
+- 2026-06-30 03:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/265722.shtml)
+- 2026-06-30 03:13 - [AI接过张雪峰志愿填报衣钵](https://www.blog.minike.top/Article/details/72113216645.shtml)
+- 2026-06-30 03:11 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/625708909071.shtml)
+- 2026-06-30 03:11 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/4859423851.shtml)

@@ -1,60 +1,59 @@
-# 第十届中俄夏季青少年运动会开幕
+# 两大血液瘤王牌爆卖5亿元难救主，亚盛医药又亏了12亿元
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科5月26日电 第十届中俄夏季青少年运动会当地时间25日在俄罗斯加里宁格勒州开幕。 开幕式上，俄体育部长杰格佳廖夫宣读了俄总统普京向参赛者发来的贺信。贺信表示，该运动会自2006年启动以来，其凝聚力、创造性和教育意义极大提升，已成为集体育竞技、青年互动、创意交流与务实合作为一体的盛大节日。这项赛事的举办充分体现了俄中两国人民的深厚友好情谊，也是两国人文交流的重要组成部
+来源：@华夏时报微博华夏时报记者 于娜 北京报道身披国产肿瘤原创新药领军者、细胞凋亡领域深耕者光环的创新药新贵亚盛医（06855.HK），近日披露的2025年年度报告无疑给市场扔下一枚深水炸弹，这份年报呈现了公司“产品销售猛增、整体业绩亏损”的矛盾反差。年报显示，亚盛医药的核心血液瘤产品矩阵表现亮眼，耐立克®（奥雷巴替尼）与利生妥®（利沙托克拉）合计实现销售收入5.06亿元，商
 
 ## 正文
 
-中新社莫斯科5月26日电 第十届中俄夏季青少年运动会当地时间25日在俄罗斯加里宁格勒州开幕。
+来源：@华夏时报微博华夏时报记者 于娜 北京报道身披国产肿瘤原创新药领军者、细胞凋亡领域深耕者光环的创新药新贵亚盛医（06855.HK），近日披露的2025年年度报告无疑给市场扔下一枚深水炸弹，这份年报呈现了公司“产品销售猛增、整体业绩亏损”的矛盾反差。
 
-开幕式上，俄体育部长杰格佳廖夫宣读了俄总统普京向参赛者发来的贺信。
+年报显示，亚盛医药的核心血液瘤产品矩阵表现亮眼，耐立克®（奥雷巴替尼）与利生妥®（利沙托克拉）合计实现销售收入5.06亿元，商业化收入同比大幅增长90%。
 
-贺信表示，该运动会自2006年启动以来，其凝聚力、创造性和教育意义极大提升，已成为集体育竞技、青年互动、创意交流与务实合作为一体的盛大节日。
+其中，核心单品耐立克®以4.35亿元的销售额稳居主力，同比增幅达81%，彰显出医保全面覆盖后的强劲放量势头，这也是年报中披露的核心商业化亮点。
 
-这项赛事的举办充分体现了俄中两国人民的深厚友好情谊，也是两国人文交流的重要组成部分。
+然而，这份看似喜人的销售成绩单，却难掩公司整体业绩的惨淡。
 
-相信此次赛事有助于进一步增进两国青少年之间的信任和相互了解，并拓展彼此间的交流。
+年报显示，亚盛医药2025年全年净亏损达12.43亿元，同比扩大206.4%，创下近年来亏损新高。
 
-据悉，比赛项目共设12个大项。
+这一数据反差背后核心原因既有亚盛医药2024年大额一次性知识产权收入退坡的短期冲击，更有年报中明确列出的研发与销售投入高企、产品管线依赖度集中等深层问题，也折射出中国创新药企商业化进程中的盈利困境。
 
-来自俄罗斯和中国的11岁至20岁运动员将在羽毛球、篮球、排球、拳击、沙滩排球、乒乓球、花样游泳、攀岩、摔跤、艺术体操和武术等项目上展开奖牌争夺，将有超过300名运动员参赛。
+单品种难挡风雨作为中国最早开展肿瘤等治疗领域原创新药研发的企业之一，亚盛医药上市开局强劲，先是于2019年10月在香港联交所主板挂牌（6855.HK），后又于2025年1月登陆美国纳斯达克（AAPG）。
 
-据杰格佳廖夫介绍，俄传统体育项目桑搏首次被列为该赛事项目。
+公司核心研发方向聚焦细胞凋亡领域，目前拥有耐立克®、利生妥®两款已上市产品，其中耐立克®（奥雷巴替尼）是中国首个第三代BCR-ABL抑制剂，用于治疗慢性髓性白血病且所有适应症已纳入医保，利生妥®（利沙托克拉）是中国首个国产原创Bcl-2抑制剂，用于治疗复发/难治性慢性淋巴细胞白血病及小淋巴细胞淋巴瘤，凭借原创实力填补国内临床空白。
 
 ## 相关推荐
 
-- 2026-06-30 03:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 03:15 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 03:08 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 03:28 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 03:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 03:06 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
-- 2026-06-30 03:13 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 03:29 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 03:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 03:03 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 03:21 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 03:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 03:27 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 03:27 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 03:09 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 03:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 03:18 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 03:08 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 03:17 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 03:13 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 03:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 03:08 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 03:33 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 03:27 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 03:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 03:25 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 03:32 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:20 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/927772423.shtml)
-- 2026-06-30 03:07 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/676093444.shtml)
-- 2026-06-30 03:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/544938181.shtml)
-- 2026-06-30 03:11 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/259504358.shtml)
-- 2026-06-30 03:23 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/112708045.shtml)
-- 2026-06-30 03:12 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/989243.shtml)
-- 2026-06-30 03:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/620378573.shtml)
-- 2026-06-30 03:22 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/5557578404.shtml)
-- 2026-06-30 03:11 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/2503657.shtml)
-- 2026-06-30 03:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/20161642.shtml)
-- 2026-06-30 03:02 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/66479818.shtml)
-- 2026-06-30 03:20 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/227980.shtml)
-- 2026-06-30 03:08 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/8198087082.shtml)
-- 2026-06-30 03:03 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/8501790.shtml)
-- 2026-06-30 03:27 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/08204255.shtml)
+- 2026-06-30 03:24 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/19554091737.shtml)
+- 2026-06-30 03:12 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/75560779.shtml)
+- 2026-06-30 03:08 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/872387877.shtml)
+- 2026-06-30 03:31 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/556208854.shtml)
+- 2026-06-30 03:08 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/941551854.shtml)
+- 2026-06-30 03:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/22022.shtml)
+- 2026-06-30 03:15 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/8844182.shtml)
+- 2026-06-30 03:23 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/653708191273.shtml)
+- 2026-06-30 03:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/60477.shtml)
+- 2026-06-30 03:11 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/1086490946.shtml)
+- 2026-06-30 03:11 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/76876.shtml)
+- 2026-06-30 03:24 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/53540.shtml)
+- 2026-06-30 03:26 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/1687515.shtml)
+- 2026-06-30 03:09 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/205317.shtml)
+- 2026-06-30 03:14 - [第一炉香](https://www.share.minike.top/Article/details/285816610.shtml)

@@ -1,52 +1,58 @@
-# 美国5年期国债中标收益率略微高于发行前交易水平
+# 85家百亿私募，一季度平均盈利2.01%
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-美国财政部发行700亿美元5年期国债中标收益率4.182%，纽约时间下午1点投标截止时的发行前交易水平为4.181%，这表明需求轻微低于预期。此次中标收益率创下2025年1月以来的最高水平。投标截止时5年期收益率当日几乎没有变化，并且对招标结果也反应不大，5s30s利差保持略有收窄。 一级交易商获配12.8%，略高于之前一次；直接投标人获配下降至12.3%，间接投标人获配比例升
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！第三方机构私募排排网4月8日发布的业绩监测数据显示，截至3月31日，有业绩展示的85家百亿私募今年一季度平均收益率为2.01%，显著跑赢同期沪深300指数-3.89%的表现。 具体来看，共有70家百亿私募一季度实现正收益，占比达82.35%。在这70家百亿私募中，55家收益率在5%以内，15家收益率不低于5
 
 ## 正文
 
-美国财政部发行700亿美元5年期国债中标收益率4.182%，纽约时间下午1点投标截止时的发行前交易水平为4.181%，这表明需求轻微低于预期。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次中标收益率创下2025年1月以来的最高水平。
+第三方机构私募排排网4月8日发布的业绩监测数据显示，截至3月31日，有业绩展示的85家百亿私募今年一季度平均收益率为2.01%，显著跑赢同期沪深300指数-3.89%的表现。
 
-投标截止时5年期收益率当日几乎没有变化，并且对招标结果也反应不大，5s30s利差保持略有收窄。
+具体来看，共有70家百亿私募一季度实现正收益，占比达82.35%。
 
-一级交易商获配12.8%，略高于之前一次；直接投标人获配下降至12.3%，间接投标人获配比例升至74.9%。
+在这70家百亿私募中，55家收益率在5%以内，15家收益率不低于5%，其中两家百亿私募的平均收益率超10%。
 
-投标倍数2.34倍，前六次平均水平也为2.34倍。
+按办公城市所属地区来看，杭州地区的百亿私募一季度整体收益领跑。
 
-责任编辑：丁文武
+数据显示，杭州地区有业绩展示的5家百亿私募，今年一季度的平均收益率为3.97%，且全部实现正收益。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 03:08 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 03:20 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 03:17 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-30 03:16 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-30 03:27 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 03:23 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 03:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 03:06 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 03:13 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 03:03 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 03:07 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 03:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 03:14 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 03:31 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-30 03:07 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 03:25 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 03:31 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
+- 2026-06-30 03:24 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 03:17 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 03:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 03:12 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 03:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 03:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-30 03:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:14 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/75879.shtml)
-- 2026-06-30 03:16 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/309432807618.shtml)
-- 2026-06-30 03:25 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/944810.shtml)
-- 2026-06-30 03:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/3889784431.shtml)
-- 2026-06-30 03:01 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/032019.shtml)
-- 2026-06-30 03:10 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/98222215.shtml)
-- 2026-06-30 03:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/1061907.shtml)
-- 2026-06-30 03:00 - [美股](http://www.blog.minike.top/Article/details/434513.shtml)
-- 2026-06-30 03:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/2464972.shtml)
-- 2026-06-30 03:03 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/69779784358.shtml)
-- 2026-06-30 03:01 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/864105611.shtml)
-- 2026-06-30 03:08 - [蔚来车主罚站](http://www.share.minike.top/Article/details/41144.shtml)
-- 2026-06-30 03:12 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/09480727.shtml)
-- 2026-06-30 03:10 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/66018007673.shtml)
-- 2026-06-30 03:05 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/80351.shtml)
+- 2026-06-30 03:14 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/97184.shtml)
+- 2026-06-30 03:11 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/78429328.shtml)
+- 2026-06-30 03:26 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/471933727559.shtml)
+- 2026-06-30 03:09 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/3387155.shtml)
+- 2026-06-30 03:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/69447.shtml)
+- 2026-06-30 03:24 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/345701.shtml)
+- 2026-06-30 03:34 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/259167.shtml)
+- 2026-06-30 03:14 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/75285377.shtml)
+- 2026-06-30 03:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/0100363.shtml)
+- 2026-06-30 03:16 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/923114.shtml)
+- 2026-06-30 03:08 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/976827798213.shtml)
+- 2026-06-30 03:13 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/73848922.shtml)
+- 2026-06-30 03:11 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/246880.shtml)
+- 2026-06-30 03:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/363469113240.shtml)
+- 2026-06-30 03:33 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/5289239.shtml)

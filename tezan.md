@@ -1,47 +1,59 @@
-# 全球减贫与发展伙伴联盟成立
+# 50%关税！特朗普，突发威胁！黄金、白银拉升
 
-> 更新时间：2026-06-30 03:30:02 UTC+8
+> 更新时间：2026-06-30 03:36:02 UTC+8
 
 ## 摘要
 
-5月27日 在2026减贫与发展高层论坛上 全球减贫与发展伙伴联盟宣布成立 联盟由中国和53个国家、9个国际机构共同发起 是全球减贫事业迈向新征程的重要一步 联盟坚持相互尊重、互学互鉴 尊重各国自主选择符合自身国情的减贫发展战略 促进各国减贫治理经验交流 共同探索从根本上消除贫困的路径 坚持行动导向、合作共赢 鼓励成员根据自身条件和优势开展能力建设与务实合作 共同完善全球减贫治
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！突发。 据央视新闻报道，美国总统特朗普8日在社交媒体发文说，任何向伊朗提供军事武器的国家，其向美国销售的所有商品将被立即加征50%的关税，即刻生效且没有例外或豁免。 国际金银盘中拉升，截至发稿，现货黄金涨超2%，现货白银涨近6%。 稍早时候，美国总统特朗普8日表示，如果美国同伊朗谈判不顺，美方将能轻易恢复对
 
 ## 正文
 
-5月27日 在2026减贫与发展高层论坛上 全球减贫与发展伙伴联盟宣布成立 联盟由中国和53个国家、9个国际机构共同发起 是全球减贫事业迈向新征程的重要一步 联盟坚持相互尊重、互学互鉴 尊重各国自主选择符合自身国情的减贫发展战略 促进各国减贫治理经验交流 共同探索从根本上消除贫困的路径 坚持行动导向、合作共赢 鼓励成员根据自身条件和优势开展能力建设与务实合作 共同完善全球减贫治理体系 坚持精准务实、以人为本 呼吁采取精准措施消除一切形式贫困并防止返贫 坚持开放包容、守正创新 欢迎各国政府、国际组织、私营部门、学术机构、媒体等多元主体加入 共同营造公平、包容、非歧视、可持续的发展环境。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-记者：胡璐、韩佳诺 海报制作：吴彬尔 新华社国内部出品
+突发。
+
+据央视新闻报道，美国总统特朗普8日在社交媒体发文说，任何向伊朗提供军事武器的国家，其向美国销售的所有商品将被立即加征50%的关税，即刻生效且没有例外或豁免。
+
+国际金银盘中拉升，截至发稿，现货黄金涨超2%，现货白银涨近6%。
+
+稍早时候，美国总统特朗普8日表示，如果美国同伊朗谈判不顺，美方将能轻易恢复对伊朗的军事行动。
+
+特朗普当天称，美伊两周停火“非常好”，在伊朗的所有军事目标都已经达成，“我们在军事上已经完成一切想做的事，美国在军事上取得了完全胜利”。
+
+另据报道，央视新闻记者当地时间8日获悉，伊朗海军已向霍尔木兹海峡附近的船只发出警告，要求所有船只必须获得许可后才能通过该海峡。
+
+警告称，任何未经授权的通行尝试都将面临被摧毁的风险。
 
 ## 相关推荐
 
-- 2026-06-30 03:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 03:00 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-30 03:23 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
-- 2026-06-30 03:29 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 03:08 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 03:12 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 03:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 03:17 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 03:17 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 03:06 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 03:22 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 03:22 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 03:21 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-30 03:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 03:30 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 03:19 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-30 03:14 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 03:22 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 03:33 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-30 03:14 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 03:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 03:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 03:15 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 03:21 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-30 03:32 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
+- 2026-06-30 03:17 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/59513647.shtml)
-- 2026-06-30 03:29 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/78026014837.shtml)
-- 2026-06-30 03:00 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/817931170229.shtml)
-- 2026-06-30 03:07 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/15907.shtml)
-- 2026-06-30 03:06 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/82025273.shtml)
-- 2026-06-30 03:07 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/721264350.shtml)
-- 2026-06-30 03:23 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/0925418.shtml)
-- 2026-06-30 03:08 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/874785.shtml)
-- 2026-06-30 03:10 - [起风了](https://www.blog.minike.top/Article/details/57378505.shtml)
-- 2026-06-30 03:19 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/31554671525.shtml)
-- 2026-06-30 03:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/257338978.shtml)
-- 2026-06-30 03:10 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/287104.shtml)
-- 2026-06-30 03:13 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/05496700.shtml)
-- 2026-06-30 03:01 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/31779.shtml)
-- 2026-06-30 03:02 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/4896245129.shtml)
+- 2026-06-30 03:33 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/61034729779.shtml)
+- 2026-06-30 03:07 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/3706616998.shtml)
+- 2026-06-30 03:30 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/99609390.shtml)
+- 2026-06-30 03:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/1366316.shtml)
+- 2026-06-30 03:09 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/8423678263.shtml)
+- 2026-06-30 03:08 - [一生一世](http://www.blog.kurohicncr.top/Article/details/30551.shtml)
+- 2026-06-30 03:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/93966355.shtml)
+- 2026-06-30 03:23 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/63230132033.shtml)
+- 2026-06-30 03:21 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/538012692811.shtml)
+- 2026-06-30 03:25 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/31790278.shtml)
+- 2026-06-30 03:26 - [天道](http://www.blog.minike.top/Article/details/721077677316.shtml)
+- 2026-06-30 03:29 - [流金岁月](https://www.blog.minike.top/Article/details/542954839.shtml)
+- 2026-06-30 03:20 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/16390.shtml)
+- 2026-06-30 03:14 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/2144811.shtml)
+- 2026-06-30 03:06 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/2248042.shtml)
