@@ -1,56 +1,55 @@
-# 长鑫科技IPO，过会！
+# 可口可乐正考虑将印度装瓶业务上市
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月27日，上交所网站显示，长鑫科技科创板IPO申请已通过上交所上市委审议。 从2016年到2026年，长鑫科技这家成立仅十年的企业成为科创板开板以来最具分量的IPO之一。 一是规模，本次IPO，长鑫科技拟募集资金总额为295亿元，这也是科创板史上第二大IPO，仅次于中芯国际（首发募资532.3亿元）。 二
+可口可乐公司周一表示，正考虑在印度为其在该国最大的装瓶商——印度斯坦可口可乐饮料公司（Hindustan Coca-Cola Beverages）进行首次公开募股（IPO）。 该公司表示，正为2027年在孟买证券交易所（BSE）和印度国家证券交易所上市做准备，并补充称，同时也在探讨出售该子公司部分股权的可能性。印度综合企业Jubilant Bhartia集团已于2025年完成了
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+可口可乐公司周一表示，正考虑在印度为其在该国最大的装瓶商——印度斯坦可口可乐饮料公司（Hindustan Coca-Cola Beverages）进行首次公开募股（IPO）。
 
-5月27日，上交所网站显示，长鑫科技科创板IPO申请已通过上交所上市委审议。
+该公司表示，正为2027年在孟买证券交易所（BSE）和印度国家证券交易所上市做准备，并补充称，同时也在探讨出售该子公司部分股权的可能性。
 
-从2016年到2026年，长鑫科技这家成立仅十年的企业成为科创板开板以来最具分量的IPO之一。
+印度综合企业Jubilant Bhartia集团已于2025年完成了对印度斯坦可口可乐饮料公司40%股权的收购。
 
-一是规模，本次IPO，长鑫科技拟募集资金总额为295亿元，这也是科创板史上第二大IPO，仅次于中芯国际（首发募资532.3亿元）。
+“可口可乐公司将继续投资这家重要的装瓶商，并专注于在印度拓展我们的全球及本土品牌组合，”可口可乐印度及西南亚区总裁兼新兴大型市场负责人桑凯特·雷（Sanket Ray）表示。
 
-二是业绩，从2023年的亏损到2025年的扭亏为盈，长鑫科技只用了3年时间。
+这家饮料巨头在印度市场一直面临信实集团旗下消费品品牌Campa Cola的竞争。
 
-今年一季度，公司实现营业收入508亿元，同比增长719.13%；归母净利润247.62亿元，同比扭亏为盈，折合日均盈利超2.75亿元。
+媒体去年曾报道，若进行首次公开募股（IPO），该可口可乐装瓶公司的估值将达100亿美元。
 
-此外，公司预计，今年上半年，公司实现营业收入1100亿元—1200亿元，同比增长612.53%—677.31%；归母净利润为500亿元—570亿元，同比增长2244.03%—2544.19%。
-
-2025年上半年，公司归母净利润为亏损23.32亿元。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 21:13 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 21:40 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 21:22 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 21:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 21:15 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 21:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 21:34 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 21:14 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 21:31 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 21:39 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 21:34 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 21:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 21:33 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 21:23 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 21:43 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 21:43 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 21:27 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 21:29 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-29 21:31 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 21:20 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/73390807.shtml)
-- 2026-06-29 21:20 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/235614193817.shtml)
-- 2026-06-29 21:33 - [普京建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/1801920327.shtml)
-- 2026-06-29 21:35 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/47237.shtml)
-- 2026-06-29 21:15 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/02146.shtml)
-- 2026-06-29 21:18 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/72594935.shtml)
-- 2026-06-29 21:35 - [欧洲安装一台空调要花近8000元](http://www.blog.kurohicncr.top/Article/details/27962.shtml)
-- 2026-06-29 21:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/33911963742.shtml)
-- 2026-06-29 21:21 - [速度与激情9](http://www.share.minike.top/Article/details/72697076839.shtml)
-- 2026-06-29 21:21 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/2282676164.shtml)
-- 2026-06-29 21:35 - [王楚钦开门红](http://www.share.minike.top/Article/details/864758518627.shtml)
-- 2026-06-29 21:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/9098090856.shtml)
-- 2026-06-29 21:36 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/1084790767.shtml)
-- 2026-06-29 21:32 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/249332993.shtml)
-- 2026-06-29 21:18 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/89686829369.shtml)
+- 2026-06-29 21:22 - [papi酱在救赎窦文涛](https://www.share.minike.top/Article/details/2426905.shtml)
+- 2026-06-29 21:21 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/2116034.shtml)
+- 2026-06-29 21:20 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/2503767.shtml)
+- 2026-06-29 21:24 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/254650542091.shtml)
+- 2026-06-29 21:41 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/638539628.shtml)
+- 2026-06-29 21:20 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/38831595.shtml)
+- 2026-06-29 21:44 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/944209731704.shtml)
+- 2026-06-29 21:26 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/69950713912.shtml)
+- 2026-06-29 21:44 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/77316144425.shtml)
+- 2026-06-29 21:33 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/39735.shtml)
+- 2026-06-29 21:19 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/5762202.shtml)
+- 2026-06-29 21:42 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/21700.shtml)
+- 2026-06-29 21:39 - [华工科技龙虎榜数据](http://www.share.kurohicncr.top/Article/details/579957.shtml)
+- 2026-06-29 21:18 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/59277222365.shtml)
+- 2026-06-29 21:36 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/9128089423.shtml)

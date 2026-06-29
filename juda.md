@@ -1,61 +1,61 @@
-# 复旦大学“十大科技进展”评选结果揭晓
+# 上海：做好算力期货研发准备，推动科创50、深证100、创业板股指期货和期权上市
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网上海5月27日电 (记者 陈静)27日，在复旦大学第60届校庆科学报告会上，2025年度复旦大学“十大科技进展”评选结果揭晓。 “拓扑‘水力镊子’：编织波浪，操控宏观世界”等10项成果入选2025年度复旦大学“十大科技进展”；“基于曲率介导的耗尽力构建纳米颗粒Kagome超晶格”等12项成果获得提名。 复旦大学高分子科学系、聚合物分子工程全国重点实验室、纤维电子材料与器件
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】上海的重大发布 中国基金报记者 泰勒 大家好啊，上海来利好了！ 6月2日，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知。 以下是泰勒总结的要点，供大家投资参考。 力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。 支持科创属性突出的科
 
 ## 正文
 
-中新网上海5月27日电 (记者 陈静)27日，在复旦大学第60届校庆科学报告会上，2025年度复旦大学“十大科技进展”评选结果揭晓。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“拓扑‘水力镊子’：编织波浪，操控宏观世界”等10项成果入选2025年度复旦大学“十大科技进展”；“基于曲率介导的耗尽力构建纳米颗粒Kagome超晶格”等12项成果获得提名。
+来源：中国基金报 【导读】上海的重大发布 中国基金报记者 泰勒 大家好啊，上海来利好了！
 
-复旦大学高分子科学系、聚合物分子工程全国重点实验室、纤维电子材料与器件研究院高悦、彭慧胜团队凭借全新活性分子相关研究，突破锂电池万次循环寿命瓶颈，成功入选 2025 年度复旦大学 “十大科技进展” 名单。
+6月2日，上海市人民政府办公厅印发《关于深化上海全球资产管理中心建设的若干意见》的通知。
 
-这项研究团队颠覆了电池容量衰减源于内部锂不可逆损耗的传统认知，利用人工智能辅助设计，创制了可为电池外部补充活性锂的有机分子，在国际上首次实现商用磷酸铁锂电池循环寿命反复恢复，提升1个–2个数量级，为解决电池寿命根本难题开辟了新路径。
+以下是泰勒总结的要点，供大家投资参考。
 
-据悉，复旦大学“十大科技进展”评选始于2022年，至今已成功举办了四届，旨在凝心聚力建设“第一个复旦”，表彰激励科研团队原始创新的精神。
+力争到2030年，上海资产管理规模达55万亿元，全国占比达1/3。
 
-同日，复旦大学科技考古研究院副教授文少卿以数张考古实地照片为引，讲述了分子考古的重要意义。
+支持科创属性突出的科技型企业上市、并购，提高权益资产科技含量与资产质量。
 
-“通过对人骨DNA的分析，考古学从传统‘透物见人’的叙事方式，转变为‘以人为本’的直接叙述。
+加快推出液化天然气期货和期权，做好电力期货、算力期货研发准备，稳步拓展航运指数期货产品线，研发更多代表新质生产力发展方向的新型期货品种。
 
-”文少卿分享道，不管是在研究还是展示传播上，分子考古不再“用物来讲故事”，而是直接“让人来讲故事”，这深化了今人对古代人类历史的理解。
+推动科创50、深证100、创业板股指期货和期权、国债期权等产品上市。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 21:25 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 21:29 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 21:35 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 21:18 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 21:40 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
-- 2026-06-29 21:25 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 21:37 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 21:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 21:27 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-29 21:19 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 21:30 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 21:24 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-29 21:26 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 21:24 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 21:29 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 21:20 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 21:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 21:41 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:28 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 21:34 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 21:20 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 21:41 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 21:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 21:19 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 21:40 - [一诺变着花样秀新驾照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 21:40 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 21:23 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 21:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 21:38 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/955712886.shtml)
-- 2026-06-29 21:36 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/715625.shtml)
-- 2026-06-29 21:28 - [济南航空航天全面起势](https://www.share.minike.top/Article/details/33715.shtml)
-- 2026-06-29 21:24 - [LPL第三赛段赛制公布](https://www.blog.minike.top/Article/details/451421382225.shtml)
-- 2026-06-29 21:33 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/76357.shtml)
-- 2026-06-29 21:26 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/48786155782.shtml)
-- 2026-06-29 21:27 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/2757684.shtml)
-- 2026-06-29 21:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/9069273.shtml)
-- 2026-06-29 21:19 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/18065.shtml)
-- 2026-06-29 21:29 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/3232099.shtml)
-- 2026-06-29 21:40 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/5311982086.shtml)
-- 2026-06-29 21:21 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/5762780306.shtml)
-- 2026-06-29 21:23 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.kurohicncr.top/Article/details/2030691.shtml)
-- 2026-06-29 21:16 - [半导体和股市为何没让韩国人起飞](https://www.blog.kurohicncr.top/Article/details/927496138.shtml)
-- 2026-06-29 21:41 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/0364798.shtml)
+- 2026-06-29 21:40 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/04412784.shtml)
+- 2026-06-29 21:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/96085.shtml)
+- 2026-06-29 21:28 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/419691.shtml)
+- 2026-06-29 21:37 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/8011273906.shtml)
+- 2026-06-29 21:26 - [CORTIS登机迟到致航班延误](http://www.blog.minike.top/Article/details/046448.shtml)
+- 2026-06-29 21:43 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/55945191.shtml)
+- 2026-06-29 21:34 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/385830.shtml)
+- 2026-06-29 21:46 - [宜宾地震后铁路工作人员叫停列车](http://www.blog.kurohicncr.top/Article/details/757428.shtml)
+- 2026-06-29 21:37 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/77973797080.shtml)
+- 2026-06-29 21:38 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/845308730938.shtml)
+- 2026-06-29 21:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/38984.shtml)
+- 2026-06-29 21:25 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/141587171.shtml)
+- 2026-06-29 21:46 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/952085012.shtml)
+- 2026-06-29 21:21 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/06795.shtml)
+- 2026-06-29 21:36 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/60192122.shtml)

@@ -1,56 +1,58 @@
-# 周三WTI油价重挫，交易员关注美伊谈判进展
+# 陈映玲：在“时光的残忍”里，守住一声“奴啊”
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-周三，美国WTI原油价格下跌逾6%，交易员正在权衡美伊和平谈判的进展与双方重新爆发的敌对行动。 截至发稿，WTI原油日内跌6%，现报88.17美元/桶。 PVM分析师塔马斯·瓦尔加在评论周三的下跌时表示：“在结束危机方面取得了明显的进展，越来越多的船只正在通过这一关键咽喉要道。这就是下行压力重新出现的原因。” 此前一个交易日，7月布伦特原油期货上涨3.6%，因美国在伊朗实施了新
+中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。看着他们，我很心疼，所以想把他们的故事记录下来。”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。 无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，
 
 ## 正文
 
-周三，美国WTI原油价格下跌逾6%，交易员正在权衡美伊和平谈判的进展与双方重新爆发的敌对行动。
+中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。
 
-截至发稿，WTI原油日内跌6%，现报88.17美元/桶。
+看着他们，我很心疼，所以想把他们的故事记录下来。
 
-PVM分析师塔马斯·瓦尔加在评论周三的下跌时表示：“在结束危机方面取得了明显的进展，越来越多的船只正在通过这一关键咽喉要道。
+”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。
 
-这就是下行压力重新出现的原因。
+无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，从小耳濡目染侨社事务。
 
-” 此前一个交易日，7月布伦特原油期货上涨3.6%，因美国在伊朗实施了新的打击行动，令市场对华盛顿与德黑兰本周末达成和平协议的希望受挫。
+如今她也担任泰国中华总商会会董、泰国华商中心执行主任等侨社职务。
 
-德国商业银行分析师周三表示：“美国最近对伊朗导弹设施及涉嫌在霍尔木兹海峡布设水雷的船只发动打击，在一定程度上削弱了美伊达成结束冲突框架协议的希望。
+三年前，陈映玲开始拍摄短视频，记录身边的故事。
 
-尽管如此，市场参与者中信心仍然很高。
+谈及初心，她说，看到一些老前辈身体越来越差，心里很不是滋味。
 
-” 伊朗周二表示，美国通过在争议的霍尔木兹海峡附近打击目标违反了停火协议，而华盛顿则表示其打击属于防御性质。
+再不记录下来，他们的故事可能就再也听不到了。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 21:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 21:28 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 21:28 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 21:27 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 21:20 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 21:13 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-29 21:42 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 21:18 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 21:34 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 21:34 - [Ella回应SHE何时合体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 21:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 21:43 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 21:19 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 21:31 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 21:46 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 21:30 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-29 21:30 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 21:22 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 21:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 21:18 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 21:31 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:28 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/13123357384.shtml)
-- 2026-06-29 21:27 - [佛得角队长门德斯被控强奸](https://www.blog.kurohicncr.top/Article/details/213617772.shtml)
-- 2026-06-29 21:14 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/76662667.shtml)
-- 2026-06-29 21:36 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/197510.shtml)
-- 2026-06-29 21:26 - [北京发布地质灾害气象风险蓝色预警](https://www.share.kurohicncr.top/Article/details/7838368017.shtml)
-- 2026-06-29 21:15 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/63260230288.shtml)
-- 2026-06-29 21:30 - [曝腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/31833498027.shtml)
-- 2026-06-29 21:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/821789488623.shtml)
-- 2026-06-29 21:19 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/954836.shtml)
-- 2026-06-29 21:25 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/512736415923.shtml)
-- 2026-06-29 21:38 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/79314419.shtml)
-- 2026-06-29 21:26 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/629009.shtml)
-- 2026-06-29 21:34 - [《新闻联播》正在直播](https://www.share.kurohicncr.top/Article/details/992724180221.shtml)
-- 2026-06-29 21:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/276527.shtml)
-- 2026-06-29 21:17 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/7777104280.shtml)
+- 2026-06-29 21:20 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/450433561043.shtml)
+- 2026-06-29 21:38 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/2916431245.shtml)
+- 2026-06-29 21:47 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/55099.shtml)
+- 2026-06-29 21:27 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/133750284342.shtml)
+- 2026-06-29 21:45 - [金刚川](https://www.share.minike.top/Article/details/54617901006.shtml)
+- 2026-06-29 21:41 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/207619.shtml)
+- 2026-06-29 21:30 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/802323301.shtml)
+- 2026-06-29 21:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/067605719.shtml)
+- 2026-06-29 21:20 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/8856066.shtml)
+- 2026-06-29 21:25 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/990221.shtml)
+- 2026-06-29 21:37 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/486726546983.shtml)
+- 2026-06-29 21:30 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/0314930.shtml)
+- 2026-06-29 21:30 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/6808243.shtml)
+- 2026-06-29 21:38 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/782043090176.shtml)
+- 2026-06-29 21:39 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/776498311212.shtml)

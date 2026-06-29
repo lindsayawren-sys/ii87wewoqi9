@@ -1,58 +1,47 @@
-# 证监会副主席刘浩凌：新一轮科技革命和产业变革加速推进，中国经济韧性充足、动能向新
+# 金力永磁获瑞银增持75.44万股 每股作价约20.19港元
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日，深交所2026全球投资者大会在深圳开幕。大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌出席并致辞。 刘浩凌称，当前，世界百年变局加速演进，国际形势变乱交织，新一轮科技革命和产业变革一日千里，国家间竞争合作关系面临重塑调整，各国如何协手共同应
+香港联交所最新资料显示，5月22日，瑞银增持金力永磁（06680）75.44万股，每股作价20.1897港元，总金额约为1523.11万港元。增持后最新持股数目约为1675.07万股，最新持股比例为7.14%。责任编辑：卢昱君
 
 ## 正文
 
-专题：深交所2026全球投资者大会：资本市场与创新成长——“十五五”规划下的中国机遇 5月28日，深交所2026全球投资者大会在深圳开幕。
+香港联交所最新资料显示，5月22日，瑞银增持金力永磁（06680）75.44万股，每股作价20.1897港元，总金额约为1523.11万港元。
 
-大会以“资本市场与创新成长——‘十五五’规划下的中国机遇”为主题，中国证监会副主席刘浩凌出席并致辞。
+增持后最新持股数目约为1675.07万股，最新持股比例为7.14%。
 
-刘浩凌称，当前，世界百年变局加速演进，国际形势变乱交织，新一轮科技革命和产业变革一日千里，国家间竞争合作关系面临重塑调整，各国如何协手共同应对变局，成为国际社会思考和实践的新课题。
-
-面对当前复杂多变的国内外形势，党中央坚强领导、科学谋划，中国经济稳的因素不断积聚，市场信心与预期日趋巩固。
-
-一是党中央科学提出“十五五”规划，对中国经济稳定发展作出战略布局。
-
-“十五五”规划提出，要加快高水平科技自立自强，引领发展新质生产力，坚持扩大内需，大力提振消费，扩大有效投资等，向市场持续传递清晰稳定的信号，大幅提振外资投资中国的信心。
-
-二是元首外交引领运筹大国关系，为经贸合作提供更多确定性和稳定性。
-
-今年以来，中国多双边外交成果丰硕，特别是前不久美国总统访华期间，习近平主席和特朗普总统同意将构建“中美建设性战略稳定关系”作为新定位，为中美关系提供战略指引，受到两国人民和国际社会的普遍欢迎。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 21:39 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-29 21:21 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 21:26 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 21:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 21:30 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 21:27 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 21:33 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 21:28 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 21:14 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 21:23 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 21:23 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 21:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 21:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 21:45 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 21:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 21:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 21:26 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 21:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 21:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 21:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 21:26 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-29 21:21 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/59503290036.shtml)
-- 2026-06-29 21:16 - [逃狱兄弟](https://www.blog.minike.top/Article/details/94016.shtml)
-- 2026-06-29 21:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/30092094802.shtml)
-- 2026-06-29 21:31 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/448005.shtml)
-- 2026-06-29 21:40 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/419453975305.shtml)
-- 2026-06-29 21:39 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/553916418419.shtml)
-- 2026-06-29 21:25 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/49864727.shtml)
-- 2026-06-29 21:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/23709986230.shtml)
-- 2026-06-29 21:12 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/29298588561.shtml)
-- 2026-06-29 21:18 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/3925498.shtml)
-- 2026-06-29 21:23 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/24667988080.shtml)
-- 2026-06-29 21:32 - [18岁高二体育生训练晕倒后离世](https://www.blog.minike.top/Article/details/4398912099.shtml)
-- 2026-06-29 21:13 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/749555242749.shtml)
-- 2026-06-29 21:23 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/1301341.shtml)
-- 2026-06-29 21:20 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/54529526834.shtml)
+- 2026-06-29 21:23 - [毒液2](https://www.share.minike.top/Article/details/430379.shtml)
+- 2026-06-29 21:40 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/956615.shtml)
+- 2026-06-29 21:19 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/26625.shtml)
+- 2026-06-29 21:32 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/060845066242.shtml)
+- 2026-06-29 21:38 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/686305.shtml)
+- 2026-06-29 21:36 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/768214424223.shtml)
+- 2026-06-29 21:21 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/935282.shtml)
+- 2026-06-29 21:28 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/985384392816.shtml)
+- 2026-06-29 21:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/83621.shtml)
+- 2026-06-29 21:31 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/46635467.shtml)
+- 2026-06-29 21:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/0602500.shtml)
+- 2026-06-29 21:45 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/2325327399.shtml)
+- 2026-06-29 21:24 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/3118485.shtml)
+- 2026-06-29 21:44 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/502563.shtml)
+- 2026-06-29 21:33 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/7972658.shtml)

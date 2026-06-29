@@ -1,60 +1,57 @@
-# 必和必拓搁置皮尔巴拉脱碳项目，内部警告运营许可面临风险
+# 2026贵金属投资展望：金价“拉锯”何时休，白银价格由谁主导
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-全球最大矿商必和必拓周二被曝出已搁置其西澳大利亚皮尔巴拉地区的一项关键脱碳项目，该项目原计划大幅降低铁矿石生产过程中的碳排放。据《卫报》与澳大利亚广播公司《四角方圆》节目联合调查获得的一批内部文件显示，该公司在公开宣称气候领导地位的同时，却在系统性推迟减排行动。 据悉，被搁置的项目包括一座原本有望每年减少170万吨碳排放的铁矿石加工设施，这相当于每年减少超过35万辆汽车上路。文
+21世纪经济报道记者 雷若馨 深圳报道 2026年的贵金属市场，正在经历一场冰与火的交织。 年初，国际金价一度触及5600美元/盎司的历史高位，市场高呼“黄金时代”延续；然而，一季度美伊局势骤然升级，传统上应提振金价的地缘冲突，却反而伴随金价大幅回撤。近两个月，金价基本围绕4500美元/盎司窄幅震荡，市场情绪从狂热转向观望。 与此同时，白银市场也经历了一轮“史诗级”行情——一度
 
 ## 正文
 
-全球最大矿商必和必拓周二被曝出已搁置其西澳大利亚皮尔巴拉地区的一项关键脱碳项目，该项目原计划大幅降低铁矿石生产过程中的碳排放。
+21世纪经济报道记者 雷若馨 深圳报道 2026年的贵金属市场，正在经历一场冰与火的交织。
 
-据《卫报》与澳大利亚广播公司《四角方圆》节目联合调查获得的一批内部文件显示，该公司在公开宣称气候领导地位的同时，却在系统性推迟减排行动。
+年初，国际金价一度触及5600美元/盎司的历史高位，市场高呼“黄金时代”延续；然而，一季度美伊局势骤然升级，传统上应提振金价的地缘冲突，却反而伴随金价大幅回撤。
 
-据悉，被搁置的项目包括一座原本有望每年减少170万吨碳排放的铁矿石加工设施，这相当于每年减少超过35万辆汽车上路。
+近两个月，金价基本围绕4500美元/盎司窄幅震荡，市场情绪从狂热转向观望。
 
-文件披露，尽管公司内部警告减排迟缓将带来声誉影响并危及运营许可，但相关投资计划仍被叫停。
+与此同时，白银市场也经历了一轮“史诗级”行情——一度触及121.6美元/盎司的历史高位，全球市值首次突破5万亿美元。
 
-更早之前，必和必拓董事会在2023年年中批准的一个价值4000万美元的太阳能及电池项目，也在获批后不久被管理层以现金优先为由搁置。
+截至5月末，银价回撤至75美元/盎司上下。
 
-与此形成对比的是，必和必拓被曝出正在大规模采购新的柴油卡车。
+黄金的长期上涨逻辑是否发生了根本性变化？
 
-一份文件显示，公司在价格下跌后购买了62辆新的卡特彼勒柴油卡车，这将使其在皮尔巴拉地区的化石燃料使用锁定至少延续至2030年代末，甚至可能到2041年。
+当前横盘局面需要哪些催化剂才能打破？
 
-此举与其在智利铜矿业务中成功实现大规模脱碳的行动形成鲜明反差。
+白银的工业属性和金融属性谁在主导？
 
 ## 相关推荐
 
-- 2026-06-29 21:15 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 21:16 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 21:38 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 21:24 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-29 21:25 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 21:17 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 21:32 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
-- 2026-06-29 21:25 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 21:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-29 21:22 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 21:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 21:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 21:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 21:29 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 21:26 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 21:36 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 21:39 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 21:24 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 21:31 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 21:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 21:43 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 21:36 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 21:22 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 21:20 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 21:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/40044835.shtml)
-- 2026-06-29 21:36 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/8143340.shtml)
-- 2026-06-29 21:18 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/29205.shtml)
-- 2026-06-29 21:33 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/660044160.shtml)
-- 2026-06-29 21:26 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/25265949.shtml)
-- 2026-06-29 21:32 - [欧洲安装一台空调要花近8000元](https://www.share.kurohicncr.top/Article/details/531002.shtml)
-- 2026-06-29 21:24 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/68591919211.shtml)
-- 2026-06-29 21:24 - [一见倾心](https://www.share.minike.top/Article/details/6166339.shtml)
-- 2026-06-29 21:26 - [网红小徐直播时突遇地震](http://www.blog.minike.top/Article/details/652774872114.shtml)
-- 2026-06-29 21:32 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/673800.shtml)
-- 2026-06-29 21:16 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/99028437.shtml)
-- 2026-06-29 21:39 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/09284547.shtml)
-- 2026-06-29 21:13 - [周杰伦千禧年就有小卡了](https://www.share.kurohicncr.top/Article/details/996288.shtml)
-- 2026-06-29 21:35 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/677828.shtml)
-- 2026-06-29 21:30 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/7664408.shtml)
+- 2026-06-29 21:29 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/24914.shtml)
+- 2026-06-29 21:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/0470783.shtml)
+- 2026-06-29 21:18 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/246081840166.shtml)
+- 2026-06-29 21:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/1514984719.shtml)
+- 2026-06-29 21:28 - [恋与深空各大应用商店评分](http://www.blog.minike.top/Article/details/27576.shtml)
+- 2026-06-29 21:30 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/5252602215.shtml)
+- 2026-06-29 21:40 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/9632640.shtml)
+- 2026-06-29 21:33 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/5034718.shtml)
+- 2026-06-29 21:32 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/378993957323.shtml)
+- 2026-06-29 21:27 - [福建海警位金门附近海域常态执法巡查](http://www.share.minike.top/Article/details/83978.shtml)
+- 2026-06-29 21:37 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/2316907.shtml)
+- 2026-06-29 21:45 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/69056.shtml)
+- 2026-06-29 21:29 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/8058505684.shtml)
+- 2026-06-29 21:20 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/1455711.shtml)
+- 2026-06-29 21:36 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/5590896335.shtml)

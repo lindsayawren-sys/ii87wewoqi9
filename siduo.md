@@ -1,61 +1,59 @@
-# 罕见病患儿重疾险理赔遭“卡条款”！法院：判了
+# 龙旗科技午后涨近15% 与非夕签署战略合作协议
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 重疾险理赔标准到底是什么？机械的审核规则能否变通？近日，一起罕见病幼儿重疾险理赔纠纷案在北京金融法院二审审理，回应了上述关切。 男童小浩确诊杜氏肌营养不良症后，依据少儿重疾险申请理赔被保险公司以未按合同约定完成肌电图、肌肉活检及未达生活能力丧失标准为由拒赔。北京市通州区人民法院一审、北京金融法院二审均认定，小浩所患疾病属于合同约定的重大疾病与少儿罕见病范畴，保险
+龙旗科技（09611）盘中涨近16%，截至发稿，股价上涨14.59%，现报26.70港元，成交额7205.97万港元。 5月27日，龙旗科技与非夕签署战略合作协议，将围绕智能制造场景下的机器人技术应用开展深度合作，共同推动具身智能从概念走向真实工业场景。此次合作将消费电子精密制造的“场景经验”，与自适应机器人技术的“核心优势”紧密结合，形成双向赋能。 作为全球领先的智能产品和服
 
 ## 正文
 
-来源：金融时报 重疾险理赔标准到底是什么？
+龙旗科技（09611）盘中涨近16%，截至发稿，股价上涨14.59%，现报26.70港元，成交额7205.97万港元。
 
-机械的审核规则能否变通？
+5月27日，龙旗科技与非夕签署战略合作协议，将围绕智能制造场景下的机器人技术应用开展深度合作，共同推动具身智能从概念走向真实工业场景。
 
-近日，一起罕见病幼儿重疾险理赔纠纷案在北京金融法院二审审理，回应了上述关切。
+此次合作将消费电子精密制造的“场景经验”，与自适应机器人技术的“核心优势”紧密结合，形成双向赋能。
 
-男童小浩确诊杜氏肌营养不良症后，依据少儿重疾险申请理赔被保险公司以未按合同约定完成肌电图、肌肉活检及未达生活能力丧失标准为由拒赔。
+作为全球领先的智能产品和服务提供商，龙旗科技在智能终端ODM领域持续深耕。
 
-北京市通州区人民法院一审、北京金融法院二审均认定，小浩所患疾病属于合同约定的重大疾病与少儿罕见病范畴，保险公司应承担赔付责任，终审判决维持原判——保险公司向小浩支付保险金100万元，并豁免后续保险费。
+此次与非夕的战略合作，标志着龙旗在“AI+制造”的战略方向上再落一子。
 
-该案直指长期重疾险条款滞后于医学实践、理赔审核机械适用格式条款等行业痛点，为同类罕见病理赔纠纷提供了明确裁判指引。
+在AI技术与产业政策双重驱动下，龙旗正依托自身制造与研发的深厚积淀，与前沿技术伙伴开放协同，共同开辟未来增长新空间。
 
-幼童确诊罕见病 百万理赔遭“卡条款” 小浩父母在北京工作生活，孩子出生数月后，便为其投保一份少儿重大疾病保险，涵盖重大疾病、少儿罕见病等保障责任，约定严重肌营养不良症在赔付范围内。
-
-然而，3岁的小浩出现明显异常：走路呈外八字，上下楼梯需大人搀扶，上厕所、穿衣、洗澡等日常活动均需辅助，平衡与协调能力显著弱于同龄儿童。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 21:33 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 21:23 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 21:19 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-29 21:39 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 21:12 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 21:16 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 21:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 21:27 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 21:35 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 21:24 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-29 21:32 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 21:31 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 21:32 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 21:36 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 21:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 21:38 - [Ella回应SHE何时合体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 21:19 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 21:19 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 21:26 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 21:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 21:41 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 21:40 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-29 21:22 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 21:24 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-29 21:27 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 21:33 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 21:27 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 21:32 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 21:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:31 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/376250559039.shtml)
-- 2026-06-29 21:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/7025497195.shtml)
-- 2026-06-29 21:20 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/8909367.shtml)
-- 2026-06-29 21:12 - [教育部高校学生资助热线7月1日开通](https://www.share.minike.top/Article/details/965157327276.shtml)
-- 2026-06-29 21:17 - [马来西亚同意延长马航370残骸搜寻](https://www.share.minike.top/Article/details/5020207.shtml)
-- 2026-06-29 21:24 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/8494365.shtml)
-- 2026-06-29 21:38 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/72130217.shtml)
-- 2026-06-29 21:26 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/08023.shtml)
-- 2026-06-29 21:19 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/993004253.shtml)
-- 2026-06-29 21:15 - [毒液2](http://www.blog.minike.top/Article/details/401553.shtml)
-- 2026-06-29 21:17 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/41222782561.shtml)
-- 2026-06-29 21:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/240719.shtml)
-- 2026-06-29 21:29 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/07539137903.shtml)
-- 2026-06-29 21:31 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/15414516.shtml)
-- 2026-06-29 21:25 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/35300356701.shtml)
+- 2026-06-29 21:37 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/210489.shtml)
+- 2026-06-29 21:34 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/53372.shtml)
+- 2026-06-29 21:19 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/635081.shtml)
+- 2026-06-29 21:43 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/486551.shtml)
+- 2026-06-29 21:28 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/309615.shtml)
+- 2026-06-29 21:46 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/4008749450.shtml)
+- 2026-06-29 21:42 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/82381698479.shtml)
+- 2026-06-29 21:31 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/978745.shtml)
+- 2026-06-29 21:42 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/9224733.shtml)
+- 2026-06-29 21:42 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/270445.shtml)
+- 2026-06-29 21:36 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/477957924.shtml)
+- 2026-06-29 21:27 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/36952529.shtml)
+- 2026-06-29 21:18 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/613336708.shtml)
+- 2026-06-29 21:41 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/0592838.shtml)
+- 2026-06-29 21:36 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/0830737726.shtml)

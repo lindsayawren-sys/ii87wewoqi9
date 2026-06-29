@@ -1,57 +1,59 @@
-# 【讲习所·中国与世界】“携手走出一条命运与共、共同繁荣的光明大道”
+# 澳门完成多边央行数字货币桥对接 11家本地银行今日“上桥”
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-【本期导读】 5月25日下午，中国国家主席习近平在北京同来华进行国事访问的塞尔维亚总统武契奇举行会谈。习近平指出，中塞两个民族都经历过苦难辉煌，都具有坚韧不拔、百折不挠的精神品质，都坚定追求独立自主、捍卫民族尊严，都对坚持和平发展、坚守公理正义有着深刻理解。双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度
+记者自澳门金融管理局获悉，澳门金融管理局已与“多边央行数字货币桥（mBridge）”项目成员完成系统对接，构建高效、安全、低成本的跨境资金支付结算渠道。6月2日起，11家本地银行作为首批参与机构，正式开通“上桥”交易。 这11家本地银行具体包括：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工商银行（澳门）股份有限公司、澳门国际银行、大华
 
 ## 正文
 
-【本期导读】 5月25日下午，中国国家主席习近平在北京同来华进行国事访问的塞尔维亚总统武契奇举行会谈。
+记者自澳门金融管理局获悉，澳门金融管理局已与“多边央行数字货币桥（mBridge）”项目成员完成系统对接，构建高效、安全、低成本的跨境资金支付结算渠道。
 
-习近平指出，中塞两个民族都经历过苦难辉煌，都具有坚韧不拔、百折不挠的精神品质，都坚定追求独立自主、捍卫民族尊严，都对坚持和平发展、坚守公理正义有着深刻理解。
+6月2日起，11家本地银行作为首批参与机构，正式开通“上桥”交易。
 
-双方要加强交往、巩固互信、深化合作、相互支持，携手走出一条命运与共、共同繁荣的光明大道，推动中塞全面战略伙伴关系迈向新高度。
+这11家本地银行具体包括：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工商银行（澳门）股份有限公司、澳门国际银行、大华银行、立桥银行、交通银行澳门分行、创兴银行澳门分行。
 
-当晚，习近平主席为武契奇总统举行“友谊勋章”颁授仪式，这枚中国国家对外最高荣誉勋章不仅彰显中塞两国“铁杆友谊”底色，也寄托着两国人民对新时代中塞命运共同体建设的殷切期望。
+6月1日，澳门金融管理局举行了中国—葡语国家央行数字货币发展与跨境创新应用高端研讨会，以探索中国与葡语国家在央行数字货币跨境应用领域的创新合作路径，提升澳门“中国与葡语国家金融服务平台”的功能。
 
-塞方人士一致认为，中国是塞尔维亚的真挚朋友，也是最重要、可信赖的经贸合作伙伴。
+澳门金融管理局行政管理委员会主席黄善文当日在致欢迎辞时表示，澳门正务实推进“数字澳门元”建设，助推人民币国际化并夯实中葡金融服务平台枢纽功能，持续强化“精准联系人”作用，推动中葡金融服务平台在数字金融跨境合作中发挥更重要的枢纽作用。
 
-塞中两国友谊深厚，各领域合作成果丰硕，此次元首会晤将为双方带来新的发展与合作机遇。
+中国人民银行副行长陆磊在致开幕辞时表示，在数字化创新不断驱动货币体系演进和支付格局变革的时代，利用法定数字货币带来新一代数字化、智能化支付升级，让资金、贸易、规则的连接更加高效和安全是中国与葡语国家的共同关切。
 
-监制：魏静、戴爽、金近 策划：张倩楠 文案：任丽君 编辑：位树理 视觉：曹懿心
+中国已初步建立数字人民币生态体系，数字人民币具备通用混合型货币能力、可编程智能支付能力及高效监管能力等核心优势，并于今年1月成功实施新一代计量框架，将客户持有的数字现金升级为具备价值储藏功能的数字存款货币（2.0版），这是中国在全球数字化浪潮中的创新方案。
+
+陆磊还表示，现在，中葡跨境数字金融合作迎来新篇章，由中国人民银行与香港金融管理局、澳门金融管理局、阿联酋央行和泰国央行共同建设的多边央行数字货币桥（mBridge）正稳步推进成员扩充和业务拓展，中国人民银行并构建了“数币达”（CBETS）双边跨境结算综合服务平台，支持境外机构“一点接入”、链上链下7×24直通结算。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 21:31 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 21:39 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 21:22 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 21:21 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 21:16 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 21:20 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 21:41 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-29 21:40 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 21:23 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 21:24 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 21:25 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-29 21:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 21:30 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 21:42 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 21:20 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 21:19 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 21:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 21:34 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 21:28 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-29 21:24 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 21:28 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 21:37 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 21:41 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 21:40 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 21:44 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/07629203893.shtml)
-- 2026-06-29 21:13 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/87689489.shtml)
-- 2026-06-29 21:12 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/0021920725.shtml)
-- 2026-06-29 21:34 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/1251351.shtml)
-- 2026-06-29 21:22 - [国际清算银行警告AI投资热潮](https://www.share.minike.top/Article/details/895824122.shtml)
-- 2026-06-29 21:31 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/5278031254.shtml)
-- 2026-06-29 21:20 - [金鹰奖第二阶段投票明日开启](http://www.share.minike.top/Article/details/973471863.shtml)
-- 2026-06-29 21:25 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/02311360070.shtml)
-- 2026-06-29 21:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/2512858118.shtml)
-- 2026-06-29 21:14 - [女心理师](https://www.blog.kurohicncr.top/Article/details/184232692906.shtml)
-- 2026-06-29 21:40 - [任泽平：AI浪潮刚刚开始](http://www.share.kurohicncr.top/Article/details/14482889955.shtml)
-- 2026-06-29 21:21 - [我们的少年时代2](https://www.share.minike.top/Article/details/54939643162.shtml)
-- 2026-06-29 21:13 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/6674526311.shtml)
-- 2026-06-29 21:21 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/08041333666.shtml)
-- 2026-06-29 21:41 - [起风了](http://www.share.minike.top/Article/details/412787585852.shtml)
+- 2026-06-29 21:19 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/412228711384.shtml)
+- 2026-06-29 21:26 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/6930444998.shtml)
+- 2026-06-29 21:47 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/040575030542.shtml)
+- 2026-06-29 21:34 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/376237.shtml)
+- 2026-06-29 21:34 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/92721448.shtml)
+- 2026-06-29 21:35 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.kurohicncr.top/Article/details/67838.shtml)
+- 2026-06-29 21:40 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/65309.shtml)
+- 2026-06-29 21:21 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/308800.shtml)
+- 2026-06-29 21:37 - [本届世界杯已有5人涉性侵风波](http://www.share.kurohicncr.top/Article/details/127485601716.shtml)
+- 2026-06-29 21:30 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/470422858.shtml)
+- 2026-06-29 21:22 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/70395210244.shtml)
+- 2026-06-29 21:22 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/6820183510.shtml)
+- 2026-06-29 21:47 - [返利科技盘中上演“天地板”](http://www.blog.minike.top/Article/details/40032288.shtml)
+- 2026-06-29 21:24 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/254488998697.shtml)
+- 2026-06-29 21:35 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/421346.shtml)

@@ -1,58 +1,59 @@
-# 美国抵押贷款利率升至8月以来最高水平
+# 民营银行，排队“入编”
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-美国抵押贷款利率上周升至8月以来的最高水平，不仅抑制了购房，还导致再融资活动大幅回落。 根据美国抵押贷款银行家协会周三发布的数据，在截至5月22日的一周内，30年期抵押贷款的合同利率上升了9个基点，达到6.65%。自2月底伊朗战争爆发以来，该利率已累计攀升超过0.5个百分点。 同时，该协会的再融资指数下跌逾18%，触及近一年来的最低点。购房申请指数也连续第二周出现下滑。 因中东
+来源：柒财经 从“破冰”到“扩容”，从“试验田”到“生力军”，在发展了十二个年头后，民营银行迎来变局。 4月下旬，东北地区首家民营银行——亿联银行股权变动的消息引发市场关注。据公开资料，亿联银行引入国资入股的事宜已被多方确定，吉林省金融控股集团股份有限公司（下称“吉林金控”）很可能成为新的“话事人”。 这意味着，亿联银行将正式告别纯民营血统，转向国资主导。 亿联银行的“身份之变
 
 ## 正文
 
-美国抵押贷款利率上周升至8月以来的最高水平，不仅抑制了购房，还导致再融资活动大幅回落。
+来源：柒财经 从“破冰”到“扩容”，从“试验田”到“生力军”，在发展了十二个年头后，民营银行迎来变局。
 
-根据美国抵押贷款银行家协会周三发布的数据，在截至5月22日的一周内，30年期抵押贷款的合同利率上升了9个基点，达到6.65%。
+4月下旬，东北地区首家民营银行——亿联银行股权变动的消息引发市场关注。
 
-自2月底伊朗战争爆发以来，该利率已累计攀升超过0.5个百分点。
+据公开资料，亿联银行引入国资入股的事宜已被多方确定，吉林省金融控股集团股份有限公司（下称“吉林金控”）很可能成为新的“话事人”。
 
-同时，该协会的再融资指数下跌逾18%，触及近一年来的最低点。
+这意味着，亿联银行将正式告别纯民营血统，转向国资主导。
 
-购房申请指数也连续第二周出现下滑。
+亿联银行的“身份之变”并非孤例。
 
-因中东冲突加剧了市场对通胀的担忧，作为抵押贷款利率走势风向标的10年期美国国债收益率近期持续走高。
+自2024年下半年起，从江西到安徽，从江苏到吉林，民营银行正在经历一场深刻的顶层变革。
 
-就在上周二，该收益率一度飙升至去年1月以来的最高点。
+01 民营银行排队“入编” 天眼查显示，目前已有至少4家民营银行发生重大股权变更，地方国资以“接盘者”和“控股者”的身份密集入场。
 
-美国抵押贷款银行家协会的这项调查始于1990年，每周进行一次，调查对象包括抵押贷款银行家、商业银行和储蓄机构，数据涵盖了美国75%以上的零售住宅抵押贷款申请。
+1、江西裕民银行 2024年8月，金融监管总局批复同意南昌金融控股有限公司受让正邦集团有限公司持有的江西裕民银行30%股份。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 21:29 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-29 21:33 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 21:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 21:20 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 21:19 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-29 21:21 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 21:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 21:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 21:39 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 21:15 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 21:39 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 21:39 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 21:44 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 21:43 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-29 21:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 21:35 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 21:22 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 21:35 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 21:30 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 21:23 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 21:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 21:21 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 21:39 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 21:44 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/62117052.shtml)
-- 2026-06-29 21:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/44071745.shtml)
-- 2026-06-29 21:28 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/63712258510.shtml)
-- 2026-06-29 21:27 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/78138.shtml)
-- 2026-06-29 21:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/8476196.shtml)
-- 2026-06-29 21:24 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/642421029052.shtml)
-- 2026-06-29 21:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/2698199.shtml)
-- 2026-06-29 21:18 - [济南航空航天全面起势](http://www.share.minike.top/Article/details/057802434.shtml)
-- 2026-06-29 21:14 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/554476.shtml)
-- 2026-06-29 21:24 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/41229.shtml)
-- 2026-06-29 21:34 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/68692400.shtml)
-- 2026-06-29 21:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/34632.shtml)
-- 2026-06-29 21:36 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/2716916.shtml)
-- 2026-06-29 21:26 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/4679177817.shtml)
-- 2026-06-29 21:39 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/457086068254.shtml)
+- 2026-06-29 21:38 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/2004543.shtml)
+- 2026-06-29 21:43 - [网约车出事故平台拒赔称只是中介](https://www.blog.kurohicncr.top/Article/details/351295951993.shtml)
+- 2026-06-29 21:43 - [千与千寻](http://www.share.minike.top/Article/details/379712092042.shtml)
+- 2026-06-29 21:30 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/19688834444.shtml)
+- 2026-06-29 21:36 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/078246414788.shtml)
+- 2026-06-29 21:27 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/473708342.shtml)
+- 2026-06-29 21:37 - [近300亿份用户数据遭收集 国安部提醒](https://www.share.kurohicncr.top/Article/details/23805234.shtml)
+- 2026-06-29 21:21 - [韩国队主帅遭极端网友死亡威胁](https://www.share.kurohicncr.top/Article/details/19194378.shtml)
+- 2026-06-29 21:23 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/364974296.shtml)
+- 2026-06-29 21:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/82725337001.shtml)
+- 2026-06-29 21:33 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/49815317.shtml)
+- 2026-06-29 21:47 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/98937132410.shtml)
+- 2026-06-29 21:44 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/1975474937.shtml)
+- 2026-06-29 21:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/0063098949.shtml)
+- 2026-06-29 21:26 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/295380937815.shtml)

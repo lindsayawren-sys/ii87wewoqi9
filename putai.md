@@ -1,57 +1,49 @@
-# 药店违法违规使用医保基金典型案例：有人剪网线、“晕倒”对抗检查
+# 外交部：望菲方言行一致 严格约束官员言行
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-记者从国家医保局了解到，自2026年5月14日起，国家医保局在全国范围内开展定点零售药店违法违规使用医保基金专项飞检，并于日前公布了专项飞检中发现的6起典型案例。 案例一 花露水“穿”上马甲，剪网线岂能剪断调查 海南省三亚市林和堂医药有限责任公司吉阳区分公司串换套取医保基金案 2026年4月8日，国家医保局收到一条关于海南省三亚市林和堂医药有限责任公司吉阳区分公司的举报线索，举
+新华社北京6月2日电(记者董雪、吴梦桐)据报道，菲律宾防长特奥多罗在香格里拉对话会上称菲律宾在领土和政治上均面临中方“严重威胁”。外交部发言人毛宁6月2日在例行记者会上表示，这位菲律宾防长多次发表涉华谬论，严重损害中菲关系和双方互信，也完全不符合菲国家和人民的利益。 毛宁说，菲方领导人多次表态，愿同中方妥处分歧，推动双边关系缓和。希望菲方言行一致，严格约束官员言行，不要任由个别
 
 ## 正文
 
-记者从国家医保局了解到，自2026年5月14日起，国家医保局在全国范围内开展定点零售药店违法违规使用医保基金专项飞检，并于日前公布了专项飞检中发现的6起典型案例。
+新华社北京6月2日电(记者董雪、吴梦桐)据报道，菲律宾防长特奥多罗在香格里拉对话会上称菲律宾在领土和政治上均面临中方“严重威胁”。
 
-案例一 花露水“穿”上马甲，剪网线岂能剪断调查 海南省三亚市林和堂医药有限责任公司吉阳区分公司串换套取医保基金案 2026年4月8日，国家医保局收到一条关于海南省三亚市林和堂医药有限责任公司吉阳区分公司的举报线索，举报称该药店存在“可使用社会保障卡购买生活用品及保健品”以及“执业药师挂证”等违规行为。
+外交部发言人毛宁6月2日在例行记者会上表示，这位菲律宾防长多次发表涉华谬论，严重损害中菲关系和双方互信，也完全不符合菲国家和人民的利益。
 
-国家医保局专项飞行检查组展开突击检查，通过调取店内监控记录，发现了顾客购买生活用品的画面，进一步比对同时间段内医保结算明细与药店销售系统记录，确认该店存在将“花露水”等生活用品串换为如“抗病毒口服液”“乌圆补血口服液”等医保目录内药品的行为，并使用参保人医保个人账户完成结算。
+毛宁说，菲方领导人多次表态，愿同中方妥处分歧，推动双边关系缓和。
 
-此外，该药店还存在恶意对抗检查的行为。
-
-检查组在店内调取进销存系统数据、医保端结算数据的过程中，网络系统突然中断。
-
-随后经电信工作人员现场勘查确认，网络线路被人为故意损毁。
-
-在对该店法定代表人正常问询过程中，其突然晕倒，送往医院约十分钟后自行苏醒。
-
-经相关医学检查，未发现异常情况。
+希望菲方言行一致，严格约束官员言行，不要任由个别跳梁小丑一再破坏双方稳定关系的努力。
 
 ## 相关推荐
 
-- 2026-06-29 21:37 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 21:28 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 21:32 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 21:25 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 21:31 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-29 21:38 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 21:39 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 21:33 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 21:20 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-29 21:28 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 21:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 21:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-29 21:20 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 21:44 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 21:31 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-29 21:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 21:28 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 21:28 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 21:18 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 21:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-29 21:32 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 21:30 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:19 - [东方风云榜直播](https://www.share.minike.top/Article/details/71686.shtml)
-- 2026-06-29 21:35 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/9199763.shtml)
-- 2026-06-29 21:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/747779800558.shtml)
-- 2026-06-29 21:37 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/956129819.shtml)
-- 2026-06-29 21:20 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/26735096.shtml)
-- 2026-06-29 21:36 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/02777.shtml)
-- 2026-06-29 21:35 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/59184.shtml)
-- 2026-06-29 21:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/252614035010.shtml)
-- 2026-06-29 21:34 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/557396.shtml)
-- 2026-06-29 21:23 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.minike.top/Article/details/84108581054.shtml)
-- 2026-06-29 21:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/188504211.shtml)
-- 2026-06-29 21:38 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/509924830.shtml)
-- 2026-06-29 21:32 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/84226408597.shtml)
-- 2026-06-29 21:33 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/43619820540.shtml)
-- 2026-06-29 21:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/549058.shtml)
+- 2026-06-29 21:36 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/9772492629.shtml)
+- 2026-06-29 21:30 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/28490790321.shtml)
+- 2026-06-29 21:28 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/005762633573.shtml)
+- 2026-06-29 21:34 - [把邻居裸体发群算维权还是侵权](https://www.blog.kurohicncr.top/Article/details/75292177094.shtml)
+- 2026-06-29 21:18 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/8796178740.shtml)
+- 2026-06-29 21:44 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/6872269.shtml)
+- 2026-06-29 21:23 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.minike.top/Article/details/9743715710.shtml)
+- 2026-06-29 21:31 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/482473179800.shtml)
+- 2026-06-29 21:37 - [韩国队回国欢迎仪式取消](https://www.blog.kurohicncr.top/Article/details/791594304.shtml)
+- 2026-06-29 21:31 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/75543946828.shtml)
+- 2026-06-29 21:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/104580108651.shtml)
+- 2026-06-29 21:37 - [夫妻生活太无聊，所以我……](http://www.share.minike.top/Article/details/12698.shtml)
+- 2026-06-29 21:33 - [东宫女主是不是顶级恋爱脑](https://www.share.kurohicncr.top/Article/details/04067064.shtml)
+- 2026-06-29 21:18 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/501401431663.shtml)
+- 2026-06-29 21:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/241828444.shtml)

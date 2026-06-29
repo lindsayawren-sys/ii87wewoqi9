@@ -1,61 +1,57 @@
-# 中国潮玩迭代升级 融入国风经典走俏海外
+# 三冲IPO！这家公司超九成收入依赖单一产品
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月26日 20:57 来源：中国新闻网 在近日举行的第二十二届中国(深圳)国际文化产业博览交易会上，潮流文化消费的核心赛道潮玩产业成为亮眼板块，各家企业纷纷拿出看家本领。数据显示，2026年，中国潮玩产业总价值预计将达到1101亿元人民币，年均增速超过20%。这背后不仅是“中国制造”完善的产业链硬实力支撑，更源于行业在需求适配、产品供给、传播模式三大维度
+来源：IPO日报 近期，江西生物制品研究所股份有限公司（下称“江西生物”）向港交所递交主板上市申请，由中国国际金融香港证券有限公司、招商证券（香港）有限公司联席保荐，并正式委任富途证券国际（香港）有限公司担任整体协调人。 值得注意的是，这是继公司在2025年4月、2025年10月，两次递表失效后的第三次闯关。 张力制图 细分赛道龙头 江西生物的故事，始于一枚不起眼的“小药针”。
 
 ## 正文
 
-发布时间：2026年05月26日 20:57 来源：中国新闻网 在近日举行的第二十二届中国(深圳)国际文化产业博览交易会上，潮流文化消费的核心赛道潮玩产业成为亮眼板块，各家企业纷纷拿出看家本领。
+来源：IPO日报 近期，江西生物制品研究所股份有限公司（下称“江西生物”）向港交所递交主板上市申请，由中国国际金融香港证券有限公司、招商证券（香港）有限公司联席保荐，并正式委任富途证券国际（香港）有限公司担任整体协调人。
 
-数据显示，2026年，中国潮玩产业总价值预计将达到1101亿元人民币，年均增速超过20%。
+值得注意的是，这是继公司在2025年4月、2025年10月，两次递表失效后的第三次闯关。
 
-这背后不仅是“中国制造”完善的产业链硬实力支撑，更源于行业在需求适配、产品供给、传播模式三大维度的全方位创新升级。
+张力制图 细分赛道龙头 江西生物的故事，始于一枚不起眼的“小药针”。
 
-本届文博会上，一款以《山海经》中记载的食梦貘为原型的潮玩产品吸引不少采购商关注。
+被生锈铁钉扎伤或遭遇较深外伤后，医生常会提醒“打一针破伤风”。
 
-据了解，这款原创IP的抱枕系列产品不仅能提供“情绪价值”，还能帮助缓解焦虑。
+这个基础急救药品背后，站着的是中国乃至全球最大的人用破伤风抗毒素（人用TAT）提供商——江西生物。
 
-据介绍，这款睡眠抱枕的出口销量已占总销量的30%，主要销往东南亚，今年计划进一步开拓欧美市场。
+根据弗若斯特沙利文的数据，按2024年销量计，江西生物在中国及全球人用TAT市场的份额分别为65.8%和36.6%，在中国市场已连续18年保持50%以上份额。
 
-品牌方正通过大众容易接受、理解的方式，将中国文化介绍给更多海外客商。
+这门生意的本质，是与时间赛跑的被动免疫。
 
-泡泡玛特国际集团副总裁陈晓芸表示，潮玩消费者不再满足于单一IP产品，而是更看重IP带来的情感连接。
+破伤风是由破伤风梭菌引起的严重神经系统感染性疾病，致死率极高——2024年全球感染死亡率约为41.5%，中国为30.4%。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 21:26 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 21:35 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-29 21:39 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 21:37 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 21:41 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 21:12 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 21:16 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 21:27 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 21:29 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-29 21:13 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-29 21:32 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 21:16 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 21:22 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 21:19 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 21:40 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 21:21 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 21:22 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 21:31 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-29 21:35 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 21:35 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 21:31 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 21:46 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 21:20 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 21:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 21:19 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/26407533.shtml)
-- 2026-06-29 21:36 - [第一炉香](https://www.share.kurohicncr.top/Article/details/735198.shtml)
-- 2026-06-29 21:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/477547434776.shtml)
-- 2026-06-29 21:34 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/627901736.shtml)
-- 2026-06-29 21:16 - [王安宇聪明到导演组炸了](http://www.blog.minike.top/Article/details/05532195.shtml)
-- 2026-06-29 21:12 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/857962.shtml)
-- 2026-06-29 21:17 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/615734.shtml)
-- 2026-06-29 21:39 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/2217709.shtml)
-- 2026-06-29 21:35 - [恋与深空各大应用商店评分](http://www.blog.kurohicncr.top/Article/details/75026627575.shtml)
-- 2026-06-29 21:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/8847345.shtml)
-- 2026-06-29 21:15 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/067977.shtml)
-- 2026-06-29 21:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/78754812.shtml)
-- 2026-06-29 21:12 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/82650576423.shtml)
-- 2026-06-29 21:17 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/47957007114.shtml)
-- 2026-06-29 21:19 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/53251616.shtml)
+- 2026-06-29 21:45 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/3910755754.shtml)
+- 2026-06-29 21:29 - [普京建议乌俄停止打击对方纵深目标](https://www.share.minike.top/Article/details/98429.shtml)
+- 2026-06-29 21:24 - [周生如故](http://www.blog.kurohicncr.top/Article/details/9103294.shtml)
+- 2026-06-29 21:43 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/61489959.shtml)
+- 2026-06-29 21:46 - [福建海警位金门附近海域常态执法巡查](http://www.blog.minike.top/Article/details/68064981735.shtml)
+- 2026-06-29 21:24 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/31374.shtml)
+- 2026-06-29 21:45 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/22131.shtml)
+- 2026-06-29 21:45 - [沙丘](http://www.share.minike.top/Article/details/448438.shtml)
+- 2026-06-29 21:18 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/45200818752.shtml)
+- 2026-06-29 21:36 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/432507006.shtml)
+- 2026-06-29 21:31 - [媒体评恋与深空用“引狼入室”台词](http://www.share.minike.top/Article/details/621086203515.shtml)
+- 2026-06-29 21:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/446914.shtml)
+- 2026-06-29 21:29 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/35123.shtml)
+- 2026-06-29 21:32 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/070104549158.shtml)
+- 2026-06-29 21:41 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/3711180795.shtml)

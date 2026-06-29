@@ -1,61 +1,50 @@
-# 预测市场谋求下一阶段增长，发力招揽机构投资者
+# Strategy公司自2022年以来首次出售比特币
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-卡尔希等多家预测交易平台正大力招揽头部机构投资者与对冲基金。尽管这类交易平台距离大规模普及仍有一段路要走，但此番布局或将对传统金融领域产生连锁影响。 过去一年，预测市场在个人交易者群体中热度飙升、规模迅猛扩张。如今平台开始将目光转向财力雄厚的金融机构与投资公司。这类客户资金实力强劲，能够开展大额批量交易，是利润丰厚的客群。 索利达斯实验室是卡尔希的交易监控合作方，该公司首席执行
+根据周一的一份文件，Strategy（MSTR）上周出售了250万美元的比特币。该公司股价下跌逾6%，而比特币下跌2%至4月13日以来的最低水平。 这是Strategy历史上第二次出售比特币，距离该公司宣布放弃Saylor长期秉持的“永不卖出”策略、转而积极管理资产负债表仅过去不久。新策略包括在能够提升每股比特币指标、支付股息或增强公司财务状况的情况下，可能出售比特币。责任编辑
 
 ## 正文
 
-卡尔希等多家预测交易平台正大力招揽头部机构投资者与对冲基金。
+根据周一的一份文件，Strategy（MSTR）上周出售了250万美元的比特币。
 
-尽管这类交易平台距离大规模普及仍有一段路要走，但此番布局或将对传统金融领域产生连锁影响。
+该公司股价下跌逾6%，而比特币下跌2%至4月13日以来的最低水平。
 
-过去一年，预测市场在个人交易者群体中热度飙升、规模迅猛扩张。
+这是Strategy历史上第二次出售比特币，距离该公司宣布放弃Saylor长期秉持的“永不卖出”策略、转而积极管理资产负债表仅过去不久。
 
-如今平台开始将目光转向财力雄厚的金融机构与投资公司。
+新策略包括在能够提升每股比特币指标、支付股息或增强公司财务状况的情况下，可能出售比特币。
 
-这类客户资金实力强劲，能够开展大额批量交易，是利润丰厚的客群。
-
-索利达斯实验室是卡尔希的交易监控合作方，该公司首席执行官阿萨夫・迈尔表示：“在传统金融渠道之外，对冲基金需要更精细、更精准的工具，在各类衍生品市场表达自身观点。
-
-” 他还称，众多对冲基金和机构投资者正密切关注预测市场的交易机会。
-
-卡尔希机构业务负责人安迪・罗斯向路透社透露，近几周平台完成了首笔定制化大宗交易，目前正积极争取更多大型机构入驻。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 21:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-29 21:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 21:14 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 21:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 21:40 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 21:24 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 21:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 21:34 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 21:24 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 21:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 21:31 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 21:33 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-29 21:39 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-29 21:38 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 21:19 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 21:45 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-29 21:33 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 21:24 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 21:38 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 21:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 21:28 - [厨房装空调还是装冷烟机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 21:35 - [民警拦截违法逃窜车辆时被撞牺牲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 21:19 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 21:42 - [恋与深空致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/69865946.shtml)
-- 2026-06-29 21:35 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/016730197883.shtml)
-- 2026-06-29 21:34 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/428465.shtml)
-- 2026-06-29 21:39 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/80472028.shtml)
-- 2026-06-29 21:35 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/717042.shtml)
-- 2026-06-29 21:17 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/67886.shtml)
-- 2026-06-29 21:27 - [温网](http://www.share.kurohicncr.top/Article/details/7540474059.shtml)
-- 2026-06-29 21:29 - [时光音乐会](https://www.share.minike.top/Article/details/755860697.shtml)
-- 2026-06-29 21:41 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/62584762926.shtml)
-- 2026-06-29 21:27 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/518668138503.shtml)
-- 2026-06-29 21:12 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/4636423.shtml)
-- 2026-06-29 21:18 - [中方绝不允许日菲侵害我海洋权益](https://www.blog.minike.top/Article/details/671512678119.shtml)
-- 2026-06-29 21:25 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/924584.shtml)
-- 2026-06-29 21:35 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/019064.shtml)
-- 2026-06-29 21:20 - [送你一朵小红花](https://www.blog.minike.top/Article/details/785908575479.shtml)
+- 2026-06-29 21:21 - [林逸向方筱然求婚了](http://www.share.minike.top/Article/details/6100482.shtml)
+- 2026-06-29 21:42 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/550549729.shtml)
+- 2026-06-29 21:46 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/536787695414.shtml)
+- 2026-06-29 21:31 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/68731667568.shtml)
+- 2026-06-29 21:26 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/242159.shtml)
+- 2026-06-29 21:20 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.kurohicncr.top/Article/details/21323981763.shtml)
+- 2026-06-29 21:22 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/026888713080.shtml)
+- 2026-06-29 21:46 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/57512.shtml)
+- 2026-06-29 21:38 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/422938991.shtml)
+- 2026-06-29 21:45 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/6291746.shtml)
+- 2026-06-29 21:46 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/6818441146.shtml)
+- 2026-06-29 21:43 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/46958670580.shtml)
+- 2026-06-29 21:18 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/547414651.shtml)
+- 2026-06-29 21:39 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/2799164.shtml)
+- 2026-06-29 21:32 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/414874544789.shtml)

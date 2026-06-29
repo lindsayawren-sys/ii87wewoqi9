@@ -1,47 +1,43 @@
-# 汽车试验基地延伸出来的“新检测”
+# 网络餐饮新规正式实施：集中整治“幽灵外卖” 提升治理效能
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月27日 10:11 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-发布时间：2026年05月27日 10:11 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年06月02日 09:57 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-29 21:22 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 21:27 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 21:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-29 21:23 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-29 21:34 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 21:18 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 21:22 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 21:33 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 21:29 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 21:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 21:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 21:40 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 21:33 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 21:26 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 21:42 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 21:46 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 21:46 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 21:30 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 21:28 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 21:26 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 21:40 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 21:37 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 21:39 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-29 21:42 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 21:26 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:32 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/274680631.shtml)
-- 2026-06-29 21:24 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/294212500208.shtml)
-- 2026-06-29 21:16 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/2594783.shtml)
-- 2026-06-29 21:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/849146776535.shtml)
-- 2026-06-29 21:38 - [田曦薇没招了](https://www.share.minike.top/Article/details/51613.shtml)
-- 2026-06-29 21:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/98361611712.shtml)
-- 2026-06-29 21:22 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/87123.shtml)
-- 2026-06-29 21:27 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/657663667.shtml)
-- 2026-06-29 21:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/842724.shtml)
-- 2026-06-29 21:24 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/046900304212.shtml)
-- 2026-06-29 21:35 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/1182940971.shtml)
-- 2026-06-29 21:25 - [日本硬刚巴西谁能赢](https://www.share.minike.top/Article/details/6519022796.shtml)
-- 2026-06-29 21:40 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/7959762.shtml)
-- 2026-06-29 21:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/941018135045.shtml)
-- 2026-06-29 21:14 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/86141592.shtml)
+- 2026-06-29 21:40 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/4289935317.shtml)
+- 2026-06-29 21:18 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/24558.shtml)
+- 2026-06-29 21:36 - [扬名立万](http://www.share.minike.top/Article/details/24971536911.shtml)
+- 2026-06-29 21:34 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/36634.shtml)
+- 2026-06-29 21:43 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/92388.shtml)
+- 2026-06-29 21:34 - [朱雀三号完成静态点火试验](https://www.blog.kurohicncr.top/Article/details/162725654774.shtml)
+- 2026-06-29 21:37 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/26585255088.shtml)
+- 2026-06-29 21:33 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/8251719653.shtml)
+- 2026-06-29 21:41 - [我国文化产业营收规模突破20万亿元](http://www.share.minike.top/Article/details/3077645460.shtml)
+- 2026-06-29 21:40 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/495858910616.shtml)
+- 2026-06-29 21:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/884770171069.shtml)
+- 2026-06-29 21:34 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/834254326432.shtml)
+- 2026-06-29 21:25 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/891742.shtml)
+- 2026-06-29 21:23 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/242879076208.shtml)
+- 2026-06-29 21:27 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.minike.top/Article/details/832184.shtml)

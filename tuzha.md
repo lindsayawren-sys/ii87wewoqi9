@@ -1,52 +1,58 @@
-# 欧洲4月汽车销售增长 比亚迪与奇瑞强势扩张
+# 市场监管总局：严厉打击“携密跳槽”“恶意挖角”等行为
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-欧洲汽车工业协会周三发布的数据显示，欧洲4月车市持续增长，对电动车的需求，抵消汽油车和柴油车需求疲软的影响，并助攻中国品牌扩大市场份额。数据显示，4月欧盟、英国和欧洲自由贸易联盟（EFTA）的新车注册量增长7%，达到1，152，315辆，使得1月至4月的累计注册量较去年同期增长4.8%。电动车（包括纯电动、插电式混合动力和混合动力车型）销量增长约21%，占总注册量超过三分之二；
+中新网6月1日电 据“市说新语”微信公众号消息，6月1日，市场监管总局在北京举办第四届“企业商业秘密保护能力提升服务月”(以下简称“服务月”)启动仪式。 本次活动以“保护商业秘密，护航产业发展”为主题，聚焦规章宣贯、服务供给、监管执法、机制创新、协同共治五方面务实举措。一是通过专题宣讲、案例解读、线上微课等形式，面向不同规模和行业的企业开展分层分类培训，小微企业侧重意识培养和基
 
 ## 正文
 
-欧洲汽车工业协会周三发布的数据显示，欧洲4月车市持续增长，对电动车的需求，抵消汽油车和柴油车需求疲软的影响，并助攻中国品牌扩大市场份额。
+中新网6月1日电 据“市说新语”微信公众号消息，6月1日，市场监管总局在北京举办第四届“企业商业秘密保护能力提升服务月”(以下简称“服务月”)启动仪式。
 
-数据显示，4月欧盟、英国和欧洲自由贸易联盟（EFTA）的新车注册量增长7%，达到1，152，315辆，使得1月至4月的累计注册量较去年同期增长4.8%。
+本次活动以“保护商业秘密，护航产业发展”为主题，聚焦规章宣贯、服务供给、监管执法、机制创新、协同共治五方面务实举措。
 
-电动车（包括纯电动、插电式混合动力和混合动力车型）销量增长约21%，占总注册量超过三分之二；汽油车与柴油车销量分别下滑约15%和17%。
+一是通过专题宣讲、案例解读、线上微课等形式，面向不同规模和行业的企业开展分层分类培训，小微企业侧重意识培养和基础制度建立，大中型企业侧重合规体检和风险排查。
 
-特斯拉连续第三个月延续复苏势头，在经历一年多下滑后，4月注册量增长46.5%至10，654辆，但仍落后中国的比亚迪，后者的注册量激增114.5%至27，008辆。
+二是聚焦生物医药、集成电路、人工智能等重点领域，建立重点产业和企业清单，实行“一企一策”指导，建立维权快速响应机制，推动服务资源向基层延伸。
 
-中国车企奇瑞也迅速扩张，注册量增长约322%；传统车企表现不一，大众汽车增长3.5%，Stellantis增长6.7%，BMWYY>宝马增长2.4%，奔驰增长7%，雷诺汽车下降3.6%。
+三是加大案件查办力度，严厉打击“携密跳槽”“恶意挖角”等行为，集中曝光典型案例，以案释法。
 
-责任编辑：王永生
+四是推进京津冀、长三角、大湾区、成渝等区域协同保护，鼓励外向型经济发达地区建设涉外保护平台，指导企业运用数字化存证、技术确权等手段。
+
+五是深化与司法、行业主管部门协作，发挥行业协会、专家智库作用，紧盯人才流动、投融资、技术交易等高风险环节，推动行业自律。
+
+“服务月”期间，总局将通过微信公众号、官方网站专栏等集中展示各地亮点举措，营造保护商业秘密、崇尚自主创新的良好氛围。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 21:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 21:31 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 21:34 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 21:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 21:19 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 21:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 21:35 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 21:25 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 21:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 21:33 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 21:42 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 21:41 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 21:29 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 21:37 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 21:33 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:31 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 21:36 - [《新闻联播》正在直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 21:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 21:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 21:45 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 21:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [小娘惹](http://www.share.kurohicncr.top/Article/details/50213683.shtml)
-- 2026-06-29 21:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/90952116.shtml)
-- 2026-06-29 21:34 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/234988.shtml)
-- 2026-06-29 21:30 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/551727860.shtml)
-- 2026-06-29 21:40 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/194433306.shtml)
-- 2026-06-29 21:26 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/75047.shtml)
-- 2026-06-29 21:26 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/09362648.shtml)
-- 2026-06-29 21:18 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/3994199.shtml)
-- 2026-06-29 21:41 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/192149850.shtml)
-- 2026-06-29 21:41 - [男子40度高温下骑行严重晒伤](https://www.share.kurohicncr.top/Article/details/3237485191.shtml)
-- 2026-06-29 21:31 - [直击委内瑞拉加拉加斯救援现场](http://www.share.kurohicncr.top/Article/details/6342336012.shtml)
-- 2026-06-29 21:32 - [千与千寻](https://www.share.kurohicncr.top/Article/details/65147.shtml)
-- 2026-06-29 21:13 - [TI2026参赛战队出炉](http://www.share.minike.top/Article/details/88152.shtml)
-- 2026-06-29 21:29 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/1115268.shtml)
-- 2026-06-29 21:31 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/002057425.shtml)
+- 2026-06-29 21:20 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/386280014453.shtml)
+- 2026-06-29 21:42 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/89269864832.shtml)
+- 2026-06-29 21:45 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/344110948.shtml)
+- 2026-06-29 21:31 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/82209.shtml)
+- 2026-06-29 21:28 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/4785209.shtml)
+- 2026-06-29 21:46 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/57074155.shtml)
+- 2026-06-29 21:28 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/77748750791.shtml)
+- 2026-06-29 21:38 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/40997416.shtml)
+- 2026-06-29 21:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/8188663.shtml)
+- 2026-06-29 21:39 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/70530516642.shtml)
+- 2026-06-29 21:18 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/7427357.shtml)
+- 2026-06-29 21:27 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/838959157736.shtml)
+- 2026-06-29 21:45 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/70615338.shtml)
+- 2026-06-29 21:19 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/6736220.shtml)
+- 2026-06-29 21:26 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/13851.shtml)

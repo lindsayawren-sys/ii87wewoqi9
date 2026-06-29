@@ -1,57 +1,56 @@
-# 人工智能如何撼动咨询行业巨头
+# 两岸同胞齐聚浙江江山廿八都 共同追念民族英雄郑成功
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-数十年来，咨询行业一直由少数巨头把持，其中既有麦肯锡、贝恩、波士顿咨询集团（BCG）这类顶尖战略咨询公司，也有德勤、安永、毕马威、普华永道四大会计师事务所的咨询部门，以及埃森哲等技术落地服务巨头。这些企业均拥有大批初级顾问，可在全球各地承接大型项目。 人工智能正首次打破这种行业垄断，也为资金充裕的新晋竞争者打开了大门。这项技术瓦解了老牌巨头的核心优势——规模效应。随着部分工作逐
+中新网衢州5月31日电(项菁 毛志成)“两岸文化同根同源，我们永远怀念民族英雄郑成功。”第三届浙台成功文化周近日在浙江衢州江山市廿八都镇举行，台湾学者戚嘉林说。 郑成功是中华民族的伟大英雄。明末，他率兵抗击外敌、成功收复台湾，深受两岸同胞敬仰。 据记载，郑成功于1646年(南明隆武二年)驻守仙霞关，这也是他早年军旅生涯的重要起点。今年正值郑成功驻守仙霞关380周年，此次活动所在
 
 ## 正文
 
-数十年来，咨询行业一直由少数巨头把持，其中既有麦肯锡、贝恩、波士顿咨询集团（BCG）这类顶尖战略咨询公司，也有德勤、安永、毕马威、普华永道四大会计师事务所的咨询部门，以及埃森哲等技术落地服务巨头。
+中新网衢州5月31日电(项菁 毛志成)“两岸文化同根同源，我们永远怀念民族英雄郑成功。
 
-这些企业均拥有大批初级顾问，可在全球各地承接大型项目。
+”第三届浙台成功文化周近日在浙江衢州江山市廿八都镇举行，台湾学者戚嘉林说。
 
-人工智能正首次打破这种行业垄断，也为资金充裕的新晋竞争者打开了大门。
+郑成功是中华民族的伟大英雄。
 
-这项技术瓦解了老牌巨头的核心优势——规模效应。
+明末，他率兵抗击外敌、成功收复台湾，深受两岸同胞敬仰。
 
-随着部分工作逐渐由智能代理承接，小型咨询公司如今也能接手以往无力承担的大型项目。
+据记载，郑成功于1646年(南明隆武二年)驻守仙霞关，这也是他早年军旅生涯的重要起点。
 
-英国管理咨询协会测算，借助人工智能与大型对手展开竞争，小型咨询企业的增长率最高可达50%。
+今年正值郑成功驻守仙霞关380周年，此次活动所在地——廿八都镇位于仙霞岭腹地，至今仍诉说着郑成功当年的戎马足迹。
 
-德勤高级顾问合伙人邦克表示，人工智能大幅降低了行业准入门槛。
+活动期间，来自两岸的近200名郑成功文化研究者、敬仰者齐聚千年古镇，通过祭拜民族英雄、徒步古关道、文化交流研讨等形式，深化两岸民间文化交流。
 
-“一家原本仅有20人的团队，依托AI的效能加持，业务能力能迅速比肩百人、甚至一百五十人的团队。
+在庄重的郑成功祭拜仪式现场，近2米高的郑成功雕像在4匹“战马”的引路下，沿古镇青石板缓缓前行。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 21:15 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 21:36 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 21:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 21:28 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 21:36 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 21:34 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-29 21:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-29 21:16 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 21:34 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-29 21:32 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 21:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 21:33 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 21:39 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 21:43 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 21:43 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 21:46 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 21:38 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 21:23 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 21:26 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 21:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [欧洲安装一台空调要花近8000元](https://www.blog.minike.top/Article/details/4034706.shtml)
-- 2026-06-29 21:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/0494356535.shtml)
-- 2026-06-29 21:20 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/513657.shtml)
-- 2026-06-29 21:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/3149437569.shtml)
-- 2026-06-29 21:40 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/12138731942.shtml)
-- 2026-06-29 21:20 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/64123.shtml)
-- 2026-06-29 21:19 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/3811574.shtml)
-- 2026-06-29 21:31 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/63086356554.shtml)
-- 2026-06-29 21:25 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/115178606.shtml)
-- 2026-06-29 21:33 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/38037.shtml)
-- 2026-06-29 21:25 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/662168629.shtml)
-- 2026-06-29 21:24 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/89460.shtml)
-- 2026-06-29 21:32 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/62180.shtml)
-- 2026-06-29 21:26 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/43161669119.shtml)
-- 2026-06-29 21:33 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/462852785151.shtml)
+- 2026-06-29 21:31 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/739079106461.shtml)
+- 2026-06-29 21:38 - [杨紫获白玉兰视后为何争议难平](http://www.blog.kurohicncr.top/Article/details/5872229109.shtml)
+- 2026-06-29 21:27 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/90787.shtml)
+- 2026-06-29 21:34 - [女心理师](http://www.blog.minike.top/Article/details/4511648.shtml)
+- 2026-06-29 21:43 - [天道](http://www.share.minike.top/Article/details/61949964.shtml)
+- 2026-06-29 21:40 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/2755995.shtml)
+- 2026-06-29 21:28 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.kurohicncr.top/Article/details/049557292.shtml)
+- 2026-06-29 21:46 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/0418623.shtml)
+- 2026-06-29 21:19 - [请回答王牌2019](https://www.share.minike.top/Article/details/3917910726.shtml)
+- 2026-06-29 21:40 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/3687723.shtml)
+- 2026-06-29 21:32 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/982355.shtml)
+- 2026-06-29 21:44 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/845725241549.shtml)
+- 2026-06-29 21:40 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/0907411407.shtml)
+- 2026-06-29 21:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/46104769.shtml)
+- 2026-06-29 21:33 - [日美楼市危机复盘：见底顺序曝光](http://www.share.kurohicncr.top/Article/details/725030784609.shtml)

@@ -1,56 +1,49 @@
-# 光大期货：农产品类日报5.28
+# 大洋集团公布于6月1日上午起复牌
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周三，CBOT大豆涨跌不一，豆油走强提供支撑抵消了美豆种植季开局良好带来的下行压力。大豆期货还受助于与玉米之间的跨品种套利交易。美豆播种率和出苗率均高于去年和五年均值，产区近期迎来降雨，有利于作物生长。下周USDA将公布作物优良率，预期乐观，市场对丰产预期不断升温。南美供应预期增加，阿根廷将大
+大洋集团（01991）公布公司已向联交所申请，自2026年6月1日上午九时正起恢复公司股份于联交所买卖。责任编辑：卢昱君
 
 ## 正文
 
-蛋白粕： （侯雪玲，从业资格号：F3048706；交易咨询资格号：Z0013637） 周三，CBOT大豆涨跌不一，豆油走强提供支撑抵消了美豆种植季开局良好带来的下行压力。
+大洋集团（01991）公布公司已向联交所申请，自2026年6月1日上午九时正起恢复公司股份于联交所买卖。
 
-大豆期货还受助于与玉米之间的跨品种套利交易。
-
-美豆播种率和出苗率均高于去年和五年均值，产区近期迎来降雨，有利于作物生长。
-
-下周USDA将公布作物优良率，预期乐观，市场对丰产预期不断升温。
-
-南美供应预期增加，阿根廷将大豆种植面积下调0.6%至1640万公顷，但产量预估上调至5110万吨以上，收割完成近8成，供应压力加大。
-
-国内方面，蛋白粕偏弱震荡。
-
-美豆、巴西大豆基差报价稳中走高，全球大豆进口成本仅小幅下调。
-
-大豆上周压榨超过200万吨，大豆库存攀升，豆粕库存拐点确认。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 21:39 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 21:24 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 21:19 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 21:35 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 21:14 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 21:39 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 21:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 21:31 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 21:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 21:30 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 21:47 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 21:23 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-29 21:36 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-29 21:37 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 21:42 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 21:24 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 21:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 21:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 21:23 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 21:25 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 21:43 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 21:30 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 21:31 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 21:25 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/72565325110.shtml)
-- 2026-06-29 21:29 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/9078137864.shtml)
-- 2026-06-29 21:23 - [媒体：韩国队不能只在世预赛锋芒毕露](http://www.blog.minike.top/Article/details/6806556242.shtml)
-- 2026-06-29 21:12 - [日美楼市危机复盘：见底顺序曝光](https://www.share.kurohicncr.top/Article/details/659881359.shtml)
-- 2026-06-29 21:26 - [无畏为自己的猫正名了](http://www.share.minike.top/Article/details/74997482.shtml)
-- 2026-06-29 21:39 - [请回答王牌2019](https://www.blog.minike.top/Article/details/8061919.shtml)
-- 2026-06-29 21:21 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/0918574.shtml)
-- 2026-06-29 21:12 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/5644526.shtml)
-- 2026-06-29 21:38 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/108494.shtml)
-- 2026-06-29 21:37 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/24384824488.shtml)
-- 2026-06-29 21:17 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/60406.shtml)
-- 2026-06-29 21:14 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/5268506.shtml)
-- 2026-06-29 21:29 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/7650274.shtml)
-- 2026-06-29 21:12 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/610221864.shtml)
-- 2026-06-29 21:38 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/38728.shtml)
+- 2026-06-29 21:36 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/070183.shtml)
+- 2026-06-29 21:30 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.kurohicncr.top/Article/details/856666605.shtml)
+- 2026-06-29 21:29 - [《恋与深空》回应争议](https://www.share.kurohicncr.top/Article/details/10454331.shtml)
+- 2026-06-29 21:35 - [一见倾心](https://www.share.kurohicncr.top/Article/details/49287023133.shtml)
+- 2026-06-29 21:39 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/393278.shtml)
+- 2026-06-29 21:40 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/101177.shtml)
+- 2026-06-29 21:40 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/765929115712.shtml)
+- 2026-06-29 21:28 - [欧洲人买空调难点在哪](http://www.blog.kurohicncr.top/Article/details/585637921372.shtml)
+- 2026-06-29 21:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/03162.shtml)
+- 2026-06-29 21:45 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/4886046.shtml)
+- 2026-06-29 21:34 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/76663623926.shtml)
+- 2026-06-29 21:35 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/8157693966.shtml)
+- 2026-06-29 21:30 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/60079498.shtml)
+- 2026-06-29 21:33 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/46715253.shtml)
+- 2026-06-29 21:19 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/718028.shtml)

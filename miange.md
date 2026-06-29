@@ -1,45 +1,56 @@
-# 鲁西南最大铁路货运枢纽完成扩能改造
+# 美团乡村儿童操场建成5000余座，惠及超68万儿童
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月28日 09:32 来源：央视新闻 责任编辑：【王祎】
+六一前夕，云南省红河州金平县一所山区幼儿园，迎来了一块彩色的操场。这是美团联合壹基金发起的乡村儿童操场公益计划建成的第5000座操场。自2020年9月在贵州毕节落地首座以来，该项目历时近六年，覆盖全国31个省(自治区、直辖市)、3000余个乡镇，直接惠及超68万名乡村儿童。在192万家公益商家和157.8万位个人捐建者的主动参与下，6.2亿消费者通过日常消费助力，累计筹集善款超
 
 ## 正文
 
-发布时间：2026年05月28日 09:32 来源：央视新闻 责任编辑：【王祎】
+六一前夕，云南省红河州金平县一所山区幼儿园，迎来了一块彩色的操场。
+
+这是美团联合壹基金发起的乡村儿童操场公益计划建成的第5000座操场。
+
+自2020年9月在贵州毕节落地首座以来，该项目历时近六年，覆盖全国31个省(自治区、直辖市)、3000余个乡镇，直接惠及超68万名乡村儿童。
+
+在192万家公益商家和157.8万位个人捐建者的主动参与下，6.2亿消费者通过日常消费助力，累计筹集善款超5.2亿元。
+
+云南山区幼儿园，孩子们第一次走上彩色操场 第5000座操场落成于云南省红河州金平县铜厂乡中心幼儿园，全园126名儿童中，80%是留守儿童，77名儿童住校。
+
+操场铺就的当天，孩子们在这块彩色拼接地板上第一次认识了斑马线。
+
+“孩子们每次进操场都主动脱鞋，不舍得踩脏地面。
+
+”园长说，以前的操场是水泥地，户外活动近乎无从开展；场地建成后，教师开始带着孩子做跑跳游戏等户外体能训练、了解大山外面的世界。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-29 21:21 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 21:39 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 21:34 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 21:35 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 21:17 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-29 21:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 21:34 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 21:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 21:23 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 21:23 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 21:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 21:28 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-29 21:43 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 21:42 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 21:31 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 21:23 - [网红小徐直播时突遇地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 21:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-29 21:25 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 21:26 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 21:38 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 21:33 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-29 21:42 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:12 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.minike.top/Article/details/43615611.shtml)
-- 2026-06-29 21:15 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/59073625.shtml)
-- 2026-06-29 21:36 - [小娘惹](http://www.share.minike.top/Article/details/932873.shtml)
-- 2026-06-29 21:34 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/87689464650.shtml)
-- 2026-06-29 21:40 - [127只股涨停 最大封单资金6.04亿元](http://www.blog.kurohicncr.top/Article/details/335658920989.shtml)
-- 2026-06-29 21:22 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/095118484256.shtml)
-- 2026-06-29 21:21 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/57467538936.shtml)
-- 2026-06-29 21:25 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/195126107685.shtml)
-- 2026-06-29 21:28 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/41162105.shtml)
-- 2026-06-29 21:25 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/494288.shtml)
-- 2026-06-29 21:19 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/717413856855.shtml)
-- 2026-06-29 21:25 - [扫黑风暴](http://www.blog.minike.top/Article/details/711023256.shtml)
-- 2026-06-29 21:37 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/5679027420.shtml)
-- 2026-06-29 21:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/103817.shtml)
-- 2026-06-29 21:13 - [广东水利防汛Ⅳ级应急响应结束](https://www.blog.kurohicncr.top/Article/details/38894695.shtml)
+- 2026-06-29 21:46 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/0891164325.shtml)
+- 2026-06-29 21:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/3506641866.shtml)
+- 2026-06-29 21:47 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/53365812.shtml)
+- 2026-06-29 21:19 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/1728220.shtml)
+- 2026-06-29 21:19 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/22938751.shtml)
+- 2026-06-29 21:26 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/6539846888.shtml)
+- 2026-06-29 21:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/1585056.shtml)
+- 2026-06-29 21:44 - [东方风云榜](http://www.blog.minike.top/Article/details/87082.shtml)
+- 2026-06-29 21:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/1791001.shtml)
+- 2026-06-29 21:39 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/662563.shtml)
+- 2026-06-29 21:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/17184395.shtml)
+- 2026-06-29 21:23 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/077897731753.shtml)
+- 2026-06-29 21:32 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/83390062.shtml)
+- 2026-06-29 21:48 - [如何看法国总统候选人称加强与华合作](http://www.share.kurohicncr.top/Article/details/05406.shtml)
+- 2026-06-29 21:38 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/95355.shtml)

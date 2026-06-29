@@ -1,56 +1,57 @@
-# 王毅会见巴林外交大臣扎耶尼
+# 部分地区垃圾分类“撤桶并点”使居民产生困扰 如何实现长效平衡？
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-新华社联合国5月26日电 当地时间26日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间会见巴林外交大臣扎耶尼。 王毅表示，巴林作为安理会成员和海合会轮值主席国，第一时间确认出席此次高级别会议，体现了对中巴关系的重视和对中方担任安理会轮值主席的支持，中方对此表示赞赏，愿同巴林一道，推动两国关系以及中阿、中海关系平稳健康发展。 王毅表示，作为巴林等海湾国家的
+部分地区垃圾分类“撤桶并点”使居民产生困扰 专家建议 严守流程规范倾听业主意见满足投放需求 法治日报记者 韩丹东 为持续提升城市精细化管理水平，优化人居环境，近年来，全国多地推行“撤桶并点(站)”，通过减少分散垃圾桶、合理设置集中投放点，引导居民定时定点分类投放，提升垃圾分类效率。比如，山西运城盐湖区要求各乡镇(街道)科学优化垃圾桶布局，根据居民使用情况“撤桶并点”、增设垃圾桶
 
 ## 正文
 
-新华社联合国5月26日电 当地时间26日，中共中央政治局委员、外交部长王毅在纽约主持联合国安理会高级别会议期间会见巴林外交大臣扎耶尼。
+部分地区垃圾分类“撤桶并点”使居民产生困扰 专家建议 严守流程规范倾听业主意见满足投放需求 法治日报记者 韩丹东 为持续提升城市精细化管理水平，优化人居环境，近年来，全国多地推行“撤桶并点(站)”，通过减少分散垃圾桶、合理设置集中投放点，引导居民定时定点分类投放，提升垃圾分类效率。
 
-王毅表示，巴林作为安理会成员和海合会轮值主席国，第一时间确认出席此次高级别会议，体现了对中巴关系的重视和对中方担任安理会轮值主席的支持，中方对此表示赞赏，愿同巴林一道，推动两国关系以及中阿、中海关系平稳健康发展。
+比如，山西运城盐湖区要求各乡镇(街道)科学优化垃圾桶布局，根据居民使用情况“撤桶并点”、增设垃圾桶。
 
-王毅表示，作为巴林等海湾国家的好朋友、好伙伴，中方真诚希望中东海湾地区尽早恢复和平安宁。
+针对红白事这类易产生大量临时垃圾的情况，指导各村将相关管理纳入村规民约，要求提前向村红白理事会报备，并设置临时垃圾桶，由村里统一收集处置。
 
-习近平主席就维护和促进中东和平稳定郑重提出四点主张，阐明了负责任态度和公道立场。
+但在政策实施过程中，也有居民感到了不便。
 
-这场战事本不该发生，更没有理由延续下去。
+江西吉安的刘女士所居住的小区垃圾桶“撤桶并点”后，每日清晨6点保洁清运垃圾桶的拖拽声、碰撞声准时响起；投放点紧邻居民楼，无密闭防护措施，夜间垃圾散落、杂物堆积，夏季容易滋生蚊虫，存在卫生与安全隐患。
 
-当务之急就是推动全面持久停火。
+“小区白天看着整洁有序，可这份干净却是用深夜的脏乱和清晨的噪声换来的。
 
-国际社会应加大促和力度，共同致力于缓局降温，尤其要反对拱火、加剧紧张。
+”刘女士向《法治日报》记者道出了满心无奈。
 
-中方支持巴基斯坦等国继续积极斡旋，愿同巴林等安理会成员密切协调，确保安理会工作沿着政治解决的正确方向前行，为实现中东长治久安共同作出努力。
+受访专家认为，“撤桶并点”本身是优化垃圾分类、提升小区环境的良策，但执行中少数地区出现程序缺失、权责失衡、服务缺位的情况，导致公共管理成本单向转嫁给居民，便民举措异化为扰民负担。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-29 21:36 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 21:15 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 21:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 21:14 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 21:31 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-29 21:36 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-29 21:32 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 21:37 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-29 21:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 21:34 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 21:38 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 21:42 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 21:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 21:23 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 21:23 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 21:44 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 21:39 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 21:23 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 21:38 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 21:32 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/1872027338.shtml)
-- 2026-06-29 21:22 - [送你一朵小红花](http://www.share.minike.top/Article/details/04212896.shtml)
-- 2026-06-29 21:40 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/646138.shtml)
-- 2026-06-29 21:14 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/1501288005.shtml)
-- 2026-06-29 21:37 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/070403612391.shtml)
-- 2026-06-29 21:39 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/67888.shtml)
-- 2026-06-29 21:41 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/9143231.shtml)
-- 2026-06-29 21:24 - [佛得角队长门德斯被控强奸](http://www.blog.kurohicncr.top/Article/details/05026734582.shtml)
-- 2026-06-29 21:26 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/5334293095.shtml)
-- 2026-06-29 21:37 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/281291013961.shtml)
-- 2026-06-29 21:40 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/9439753.shtml)
-- 2026-06-29 21:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/983673.shtml)
-- 2026-06-29 21:14 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/33670.shtml)
-- 2026-06-29 21:20 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/917709.shtml)
-- 2026-06-29 21:12 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/306253663.shtml)
+- 2026-06-29 21:20 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/968573.shtml)
+- 2026-06-29 21:28 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/61951.shtml)
+- 2026-06-29 21:27 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/70043173.shtml)
+- 2026-06-29 21:21 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.kurohicncr.top/Article/details/32102.shtml)
+- 2026-06-29 21:40 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/9644623.shtml)
+- 2026-06-29 21:40 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/7491267078.shtml)
+- 2026-06-29 21:47 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/229229234316.shtml)
+- 2026-06-29 21:45 - [C罗10球7球对垫底队](http://www.blog.kurohicncr.top/Article/details/400085638.shtml)
+- 2026-06-29 21:37 - [让AI做一个账号，它会做成什么样？](http://www.share.kurohicncr.top/Article/details/94530558.shtml)
+- 2026-06-29 21:42 - [papi酱在救赎窦文涛](http://www.blog.minike.top/Article/details/09434647297.shtml)
+- 2026-06-29 21:39 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/37788.shtml)
+- 2026-06-29 21:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/5091630.shtml)
+- 2026-06-29 21:32 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/993355.shtml)
+- 2026-06-29 21:32 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/79314595.shtml)
+- 2026-06-29 21:24 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.minike.top/Article/details/830196185775.shtml)

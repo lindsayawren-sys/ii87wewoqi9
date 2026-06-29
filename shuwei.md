@@ -1,50 +1,57 @@
-# 武汉第13座长江大桥南北主塔同步封顶 创湖北跨径纪录
+# 2026中国公路自行车公开赛（衡水站）落幕
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月26日 20:42 来源：中国新闻网 5月26日，武汉第13座长江大桥——汉南长江大桥南北两岸主塔同步完成封顶，标志着这座湖北省最大跨径双主缆八车道悬索桥建设取得关键性节点突破，为武汉都市圈环线高速加速成环奠定坚实基础。 汉南长江大桥由武汉城发集团所属交投集团汉南桥公司投资，中交路建、中铁大桥局承建。大桥为主跨1600米双塔单跨钢箱梁悬索桥，双向八车道
+中新网河北衡水5月31日电 31日，2026中国公路自行车公开赛(衡水站)在衡水湖畔鸣枪开赛。作为本赛季第二站比赛，本站比赛吸引了来自全国各地的近1600名车手，在环湖经典赛道上展开速度与耐力的激烈角逐。 2026中国公路自行车公开赛根据国际自盟(UCI)最新竞赛规则，并结合中国自行车运动协会(CCA)关于国内自行车赛事的管理要求，是国内顶级的公路自行车俱乐部比赛。本站比赛路线
 
 ## 正文
 
-发布时间：2026年05月26日 20:42 来源：中国新闻网 5月26日，武汉第13座长江大桥——汉南长江大桥南北两岸主塔同步完成封顶，标志着这座湖北省最大跨径双主缆八车道悬索桥建设取得关键性节点突破，为武汉都市圈环线高速加速成环奠定坚实基础。
+中新网河北衡水5月31日电 31日，2026中国公路自行车公开赛(衡水站)在衡水湖畔鸣枪开赛。
 
-汉南长江大桥由武汉城发集团所属交投集团汉南桥公司投资，中交路建、中铁大桥局承建。
+作为本赛季第二站比赛，本站比赛吸引了来自全国各地的近1600名车手，在环湖经典赛道上展开速度与耐力的激烈角逐。
 
-大桥为主跨1600米双塔单跨钢箱梁悬索桥，双向八车道、设计时速120公里，北岸位于武汉经开(汉南)区，南岸对接咸宁市嘉鱼县，全长72.523公里。
+2026中国公路自行车公开赛根据国际自盟(UCI)最新竞赛规则，并结合中国自行车运动协会(CCA)关于国内自行车赛事的管理要求，是国内顶级的公路自行车俱乐部比赛。
 
-主塔封顶后，大桥将全面转入上部结构施工，重点推进猫道架设、主缆索股牵引、钢箱梁吊装等关键工序，向着2028年建成通车目标稳步迈进。
+本站比赛路线以衡水湖马拉松广场为起终点，环绕衡水湖进行骑行，将湖区的核心景观串联起来。
 
-(黄珊 李元龙 王梦媛湖北武汉报道) 责任编辑：【罗攀】
+比赛当日天气晴好，风力适中，为选手创造了良好的比赛条件。
+
+男子俱乐部组、女子精英组、男子青少年组等七大组别依次发车。
+
+凭借默契的团队配合和强劲的个人能力，迈金科技MBO车队的韩旭祥获得男子俱乐部组本赛段冠军，他同时也穿上总成绩冠军红衫、冲刺王绿衫、大中华最佳龙衫。
+
+TREK成都老车迷车队的布洛欣·基里尔荣获青年最佳白衫，迈金科技-MBO车队的王进收获敢斗奖粉衫，迈金科技-MBO车队夺得团体冠军，赵志翔获得男子精英组冠军，天王TIAW中国车队高良获得男子公开组冠军。
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 21:27 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 21:30 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 21:16 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 21:41 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 21:26 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 21:23 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 21:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 21:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 21:22 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 21:36 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 21:20 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-29 21:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 21:29 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 21:38 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 21:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 21:33 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 21:21 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 21:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 21:42 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-29 21:42 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:25 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/12416199849.shtml)
-- 2026-06-29 21:24 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/01540253.shtml)
-- 2026-06-29 21:37 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/2516114823.shtml)
-- 2026-06-29 21:17 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/018632960802.shtml)
-- 2026-06-29 21:15 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/9302168.shtml)
-- 2026-06-29 21:14 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/7560690864.shtml)
-- 2026-06-29 21:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/63421.shtml)
-- 2026-06-29 21:16 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/376995236.shtml)
-- 2026-06-29 21:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/71132708.shtml)
-- 2026-06-29 21:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/2596708765.shtml)
-- 2026-06-29 21:14 - [小娘惹](http://www.blog.minike.top/Article/details/1675751.shtml)
-- 2026-06-29 21:18 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/8509811570.shtml)
-- 2026-06-29 21:25 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/60532905038.shtml)
-- 2026-06-29 21:36 - [东方风云榜直播](https://www.blog.minike.top/Article/details/68913556190.shtml)
-- 2026-06-29 21:22 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/0789556236.shtml)
+- 2026-06-29 21:26 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/82055986.shtml)
+- 2026-06-29 21:23 - [中方在台湾岛以东海域活动合理合法](https://www.share.minike.top/Article/details/9217958046.shtml)
+- 2026-06-29 21:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/508781965300.shtml)
+- 2026-06-29 21:19 - [明星大侦探第四季](https://www.share.minike.top/Article/details/555754.shtml)
+- 2026-06-29 21:45 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/6834337.shtml)
+- 2026-06-29 21:39 - [MG总经理直播被冲](https://www.share.kurohicncr.top/Article/details/326413.shtml)
+- 2026-06-29 21:35 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.minike.top/Article/details/455630382.shtml)
+- 2026-06-29 21:35 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/4248701491.shtml)
+- 2026-06-29 21:23 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/41683745075.shtml)
+- 2026-06-29 21:22 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/62208941855.shtml)
+- 2026-06-29 21:19 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/6217732.shtml)
+- 2026-06-29 21:27 - [山东发布山洪灾害气象预警](https://www.blog.kurohicncr.top/Article/details/163426590.shtml)
+- 2026-06-29 21:42 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/65507071655.shtml)
+- 2026-06-29 21:47 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/7777611.shtml)
+- 2026-06-29 21:42 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/94393668.shtml)

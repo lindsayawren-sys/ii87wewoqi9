@@ -1,56 +1,56 @@
-# 甘肃榆中：“花样经济”让昔日荒山变身兰州“后花园”
+# @老师家长 这份安全大礼包，送给所有孩子！
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网兰州5月27日电 (戴文昌)从无人问津的贫瘠荒山，到风光宜人的生态绿地；从闲置荒废的山地资源，到增收致富的特色产业……近年来，甘肃兰州市榆中县和平镇范家营村立足山地禀赋，深耕特色发展“花样经济”，探索一花多产发展路径，让昔日荒山逐步变身为景致秀美的兰州“后花园”。 范家营村地处和平镇南部山区，距兰州市区约20公里，属典型黄土高原地貌，干旱少雨、山地居多。村内耕地多为零散山
+今天是“六一”国际儿童节 祝小朋友们节日快乐！ 儿童成长路上潜藏着各类安全隐患 火灾、溺水、交通伤害等事件时有发生 今年以来 已发生多起 玩打火机致火灾 4月，浙江嘉兴，一名9岁男孩独自购买打火机回家时，见到小区门厅的床垫，出于好奇凑近打火，看见床垫起火后迅速逃离，万幸有居民发现及时报警才未酿成大祸。 玩网红玩具被烫伤 3月中旬，山西运城，一名小女孩在家中玩“拼豆”玩具时，正在
 
 ## 正文
 
-中新网兰州5月27日电 (戴文昌)从无人问津的贫瘠荒山，到风光宜人的生态绿地；从闲置荒废的山地资源，到增收致富的特色产业……近年来，甘肃兰州市榆中县和平镇范家营村立足山地禀赋，深耕特色发展“花样经济”，探索一花多产发展路径，让昔日荒山逐步变身为景致秀美的兰州“后花园”。
+今天是“六一”国际儿童节 祝小朋友们节日快乐！
 
-范家营村地处和平镇南部山区，距兰州市区约20公里，属典型黄土高原地貌，干旱少雨、山地居多。
+儿童成长路上潜藏着各类安全隐患 火灾、溺水、交通伤害等事件时有发生 今年以来 已发生多起 玩打火机致火灾 4月，浙江嘉兴，一名9岁男孩独自购买打火机回家时，见到小区门厅的床垫，出于好奇凑近打火，看见床垫起火后迅速逃离，万幸有居民发现及时报警才未酿成大祸。
 
-村内耕地多为零散山地梯田，不适宜大型农机作业，传统种植效益偏低。
+玩网红玩具被烫伤 3月中旬，山西运城，一名小女孩在家中玩“拼豆”玩具时，正在将拼好的图案进行熨烫，突然熨斗起火、火花四溅，小女孩立刻拔掉电源，手却被烫伤。
 
-加之青壮年劳动力外流，部分耕地长期撂荒，土地资源未能得到有效利用。
+突然冲出马路被撞 3月22日，广西百色，一名7岁男童突然从商铺门口快速冲出道路，与一辆正在行驶的电动自行车相撞，男童和电动车瞬间倒地，事故造成双方不同程度受伤。
 
-为破解山地发展短板、盘活闲置土地资源，范家营村依托本地光照、土壤自然优势，因地制宜发展牡丹特色产业。
+落水遇难 5月5日，3名儿童在陕西省西安市高陵区泾渭分明景点附近落水，均不幸遇难。
 
-该村党支部书记范多俊说，自2008年起，村里整合梯田、院落闲置土地，规模化种植紫斑牡丹、丹凤牡丹，让荒芜已久的山地重焕生机。
+茁壮成长 离不开正确的安全知识 和实用的自救本领 多一份小心 多一份安心 收好这些安全口诀 守护快乐童年！
 
-经过多年深耕培育，范家营村牡丹产业初具规模。
-
-目前，村内牡丹种植面积达1200亩，保有各类牡丹20余万株，是兰州近郊颇具规模的紫斑牡丹种植基地。
+来源：中国应急管理报社融媒体工作部制作 策划：杨华 白慧玲 制图：张维 (来源：应急管理部微信公众号)
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 21:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 21:17 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 21:32 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 21:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 21:35 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-29 21:30 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 21:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 21:16 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 21:13 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:35 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 21:19 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 21:30 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 21:38 - [温网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 21:43 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 21:18 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 21:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 21:30 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 21:21 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 21:34 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 21:20 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 21:36 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:22 - [流金岁月](https://www.share.kurohicncr.top/Article/details/21005.shtml)
-- 2026-06-29 21:41 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/5244419.shtml)
-- 2026-06-29 21:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/2148795.shtml)
-- 2026-06-29 21:36 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/83554246543.shtml)
-- 2026-06-29 21:31 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/406768.shtml)
-- 2026-06-29 21:41 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/55427655027.shtml)
-- 2026-06-29 21:34 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/58739820527.shtml)
-- 2026-06-29 21:13 - [高质量发展看新疆](http://www.share.minike.top/Article/details/57576360476.shtml)
-- 2026-06-29 21:26 - [啊啊啊](https://www.blog.minike.top/Article/details/48292406.shtml)
-- 2026-06-29 21:18 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/206991910.shtml)
-- 2026-06-29 21:20 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/805485232221.shtml)
-- 2026-06-29 21:26 - [三大外卖平台承诺不开展分钟级竞速](http://www.blog.kurohicncr.top/Article/details/250599.shtml)
-- 2026-06-29 21:15 - [齐思钧回复孙怡](http://www.blog.kurohicncr.top/Article/details/848410615165.shtml)
-- 2026-06-29 21:16 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/8952753.shtml)
-- 2026-06-29 21:28 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/48760655892.shtml)
+- 2026-06-29 21:33 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/6879741.shtml)
+- 2026-06-29 21:23 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/0577641.shtml)
+- 2026-06-29 21:19 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/44390647552.shtml)
+- 2026-06-29 21:30 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/634653017249.shtml)
+- 2026-06-29 21:18 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/532306711998.shtml)
+- 2026-06-29 21:42 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/269461993918.shtml)
+- 2026-06-29 21:29 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/1010967.shtml)
+- 2026-06-29 21:30 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/72319158.shtml)
+- 2026-06-29 21:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/77940374795.shtml)
+- 2026-06-29 21:19 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/916646.shtml)
+- 2026-06-29 21:26 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/0485566.shtml)
+- 2026-06-29 21:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/2824304194.shtml)
+- 2026-06-29 21:28 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/63793637.shtml)
+- 2026-06-29 21:36 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/6461470.shtml)
+- 2026-06-29 21:18 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/7861946930.shtml)

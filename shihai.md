@@ -1,57 +1,60 @@
-# 淮河水利委员会连续会商部署水旱灾害防御工作
+# 台州援疆干部变身“多面手” 援疆答卷里书写“浙疆情”
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 5月26日，淮河水利委员会召开防汛会商会，分析研判流域雨水情趋势，安排部署近期水旱灾害防御工作。 入汛以来，淮河流域发生两轮强降雨过程，流域降雨量92.1毫米(含山东半岛)，较历史同期多317%。受强降雨影响，淮河干流及南部潢河、白露河、史灌河、淠河等支流发生明显涨水过程，其中潢河发生一次超警洪水过程。截至目前，本轮强降雨过程已基本结束，河道洪水正向中下游演
+中新网乌鲁木齐6月1日电 (卿朋)从东海之滨到天山南麓，跨越4000公里。2023年4月，邱焕嵛作为浙江省台州市援疆干部，来到新疆生产建设兵团第一师阿拉尔市。三年间，他从主抓工业的基层干部，转变为能搞宣传、善抓文化、会做产业、心系民生的援疆“多面手”，交出一份扎实的答卷。 “万里行”：从台州到阿拉尔 2023年3月的一个午后，邱焕嵛接到援疆任务。他当即答应：“能为边疆发展出一份
 
 ## 正文
 
-中新网5月27日电 5月26日，淮河水利委员会召开防汛会商会，分析研判流域雨水情趋势，安排部署近期水旱灾害防御工作。
+中新网乌鲁木齐6月1日电 (卿朋)从东海之滨到天山南麓，跨越4000公里。
 
-入汛以来，淮河流域发生两轮强降雨过程，流域降雨量92.1毫米(含山东半岛)，较历史同期多317%。
+2023年4月，邱焕嵛作为浙江省台州市援疆干部，来到新疆生产建设兵团第一师阿拉尔市。
 
-受强降雨影响，淮河干流及南部潢河、白露河、史灌河、淠河等支流发生明显涨水过程，其中潢河发生一次超警洪水过程。
+三年间，他从主抓工业的基层干部，转变为能搞宣传、善抓文化、会做产业、心系民生的援疆“多面手”，交出一份扎实的答卷。
 
-截至目前，本轮强降雨过程已基本结束，河道洪水正向中下游演进，流域河道、水库、湖泊水情平稳可控。
+“万里行”：从台州到阿拉尔 2023年3月的一个午后，邱焕嵛接到援疆任务。
 
-会议强调，各地各单位要密切跟踪后续雨水情态势，从严从实落细各项防汛举措。
+他当即答应：“能为边疆发展出一份力，绝不能错过。
 
-一是强化雨水情监测预警，要紧盯淮南山区潢河、白露河等重点河段洪水演进，指导地方做好超警河段堤防防守等工作；二是科学开展水工程调度，要重点关注洪泽湖、骆马湖水位，科学调度水利工程，合理控制湖水位，保障洪水顺利下泄；三是强化中小水库运行监管，督促各地按照规程有序泄流，确保超汛限水库水位尽快回落至汛限水位以下；四是重点关注短时强降雨区域，严防山洪灾害、中小河流超警及城市内涝风险，督促各地及时落实应急措施，牢牢守住安全底线；五是不断完善淮河防洪“四预”系统，要以此次洪水过程为契机，及时复核重点河道断面水位流量关系，夯实水文测报与调度研判基础。
+”从接到通知到出发，不到一周。
+
+他白天交接工作，晚上查阅阿拉尔的气候、产业、风土人情，笔记本记满密密麻麻的要点。
+
+4月19日，他正式到任台州市援疆指挥部综合信息组组长、办公室副主任，并在第一师阿拉尔市人社局挂职。
 
 ## 相关推荐
 
-- 2026-06-29 21:22 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 21:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 21:25 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 21:26 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 21:13 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 21:26 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 21:12 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 21:17 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-29 21:30 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 21:27 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
-- 2026-06-29 21:26 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 21:25 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 21:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 21:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 21:45 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 21:28 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 21:26 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 21:22 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 21:38 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 21:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 21:21 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 21:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 21:37 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 21:32 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 21:42 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 21:28 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 21:43 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-29 21:39 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/4855090478.shtml)
-- 2026-06-29 21:18 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/579253238002.shtml)
-- 2026-06-29 21:36 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.kurohicncr.top/Article/details/97516634750.shtml)
-- 2026-06-29 21:24 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/98908179.shtml)
-- 2026-06-29 21:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/7064712.shtml)
-- 2026-06-29 21:21 - [金刚川](http://www.blog.minike.top/Article/details/9313214.shtml)
-- 2026-06-29 21:29 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/47285.shtml)
-- 2026-06-29 21:22 - [山东发布山洪灾害气象预警](http://www.share.minike.top/Article/details/333262.shtml)
-- 2026-06-29 21:24 - [这一刀 会很帅](http://www.share.minike.top/Article/details/11515502.shtml)
-- 2026-06-29 21:16 - [起风了](http://www.share.kurohicncr.top/Article/details/1607605.shtml)
-- 2026-06-29 21:25 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/007158.shtml)
-- 2026-06-29 21:17 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/419416932.shtml)
-- 2026-06-29 21:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/70184448.shtml)
-- 2026-06-29 21:14 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/87145477.shtml)
-- 2026-06-29 21:37 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/429419.shtml)
+- 2026-06-29 21:20 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/50116.shtml)
+- 2026-06-29 21:32 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/074652750.shtml)
+- 2026-06-29 21:44 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/63389857.shtml)
+- 2026-06-29 21:29 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/11739.shtml)
+- 2026-06-29 21:32 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/1400027352.shtml)
+- 2026-06-29 21:47 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/2709553271.shtml)
+- 2026-06-29 21:38 - [18岁高二体育生训练晕倒后离世](https://www.share.minike.top/Article/details/70160258654.shtml)
+- 2026-06-29 21:28 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/835326858921.shtml)
+- 2026-06-29 21:20 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.blog.minike.top/Article/details/33233.shtml)
+- 2026-06-29 21:26 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/575470416.shtml)
+- 2026-06-29 21:20 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/292057238.shtml)
+- 2026-06-29 21:39 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/108679696.shtml)
+- 2026-06-29 21:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/26424981.shtml)
+- 2026-06-29 21:46 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/6714685894.shtml)
+- 2026-06-29 21:47 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/403968386900.shtml)

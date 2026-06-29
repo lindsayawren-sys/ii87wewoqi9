@@ -1,58 +1,58 @@
-# 法国消费者信心指数跌至三年来新低
+# 扎波罗热核电站遭袭后，国际原子能机构发出警告
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-受伊朗局势引发的市场不确定性与能源价格上涨影响，法国5月消费者信心指数进一步下滑，民众消费情绪持续受挫。 法国国家统计与经济研究所（Insee）周三发布的数据显示，当月消费者信心指数从4月的84点降至82点，创下2023年3月以来新低。 该统计机构表示：“民众对自身过往及未来财务状况的看法再度转差。” 报告同时指出，民众购置大件商品的意愿也出现大幅回落。 中东冲突持续拖累5月市
+中新网6月1日电 综合报道，国际原子能机构当地时间5月31日在社交媒体上发帖称，该机构人员当天上午发现扎波罗热核电站一座电机房外部受损。机构总干事格罗西表示，袭击核设施不可接受，必须停止。 帖文说，该机构人员在现场巡查时发现位于电机房上层的金属检修口受损，地面散落有少量碎片和烧焦的光纤残留物，观察结果与无人机袭击造成的影响特征相符。现场未检测到异常辐射水平，巡查过程中还可听到附
 
 ## 正文
 
-受伊朗局势引发的市场不确定性与能源价格上涨影响，法国5月消费者信心指数进一步下滑，民众消费情绪持续受挫。
+中新网6月1日电 综合报道，国际原子能机构当地时间5月31日在社交媒体上发帖称，该机构人员当天上午发现扎波罗热核电站一座电机房外部受损。
 
-法国国家统计与经济研究所（Insee）周三发布的数据显示，当月消费者信心指数从4月的84点降至82点，创下2023年3月以来新低。
+机构总干事格罗西表示，袭击核设施不可接受，必须停止。
 
-该统计机构表示：“民众对自身过往及未来财务状况的看法再度转差。
+帖文说，该机构人员在现场巡查时发现位于电机房上层的金属检修口受损，地面散落有少量碎片和烧焦的光纤残留物，观察结果与无人机袭击造成的影响特征相符。
 
-” 报告同时指出，民众购置大件商品的意愿也出现大幅回落。
+现场未检测到异常辐射水平，巡查过程中还可听到附近有无人机声响和枪声。
 
-中东冲突持续拖累5月市场情绪，美伊双方始终未能达成重启霍尔木兹海峡通航的协议。
+帖文说，格罗西表示这起袭击性质严重，危及核安全原则。
 
-战事走向不明令消费者选择暂缓消费，而居高不下的能源价格也持续削弱居民购买力。
+另据美国广播公司(ABC)报道，国际原子能机构在此前一份发布于社交媒体上的声明中表示，这是自2024年4月以来，扎波罗热核电站周边地区首次发生无人机袭击事件。
 
-冲突爆发前法国物价涨势本就趋于平缓，因此该国短期内出现恶性通胀的风险依旧有限。
+报道称，俄罗斯方面指控乌克兰武装人员出动无人机，袭击了扎波罗热核电站，乌克兰官方对此予以否认。
 
-但战事若长期持续，预计会加剧法国经济与金融领域的动荡，进一步打击市场信心。
+扎波罗热核电站是欧洲最大核电站之一。
 
 ## 相关推荐
 
-- 2026-06-29 21:31 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 21:20 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 21:21 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 21:25 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 21:38 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 21:39 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-29 21:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-29 21:24 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 21:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 21:26 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
-- 2026-06-29 21:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 21:32 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 21:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 21:40 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 21:20 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 21:35 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 21:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 21:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 21:35 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 21:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 21:43 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 21:42 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 21:45 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-29 21:36 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [任泽平：AI浪潮刚刚开始](https://www.share.minike.top/Article/details/50355068253.shtml)
-- 2026-06-29 21:40 - [沉睡花园](https://www.blog.minike.top/Article/details/643068.shtml)
-- 2026-06-29 21:29 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/933287270195.shtml)
-- 2026-06-29 21:20 - [一生一世](https://www.blog.kurohicncr.top/Article/details/096402.shtml)
-- 2026-06-29 21:37 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/16058.shtml)
-- 2026-06-29 21:37 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/662182651.shtml)
-- 2026-06-29 21:20 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/7972157482.shtml)
-- 2026-06-29 21:38 - [男子40度高温下骑行严重晒伤](http://www.blog.kurohicncr.top/Article/details/646203459.shtml)
-- 2026-06-29 21:35 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/432125891133.shtml)
-- 2026-06-29 21:22 - [多人将马路护栏当球网打羽毛球](http://www.share.minike.top/Article/details/0720514174.shtml)
-- 2026-06-29 21:14 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/79323140942.shtml)
-- 2026-06-29 21:12 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/9777733977.shtml)
-- 2026-06-29 21:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/7404554441.shtml)
-- 2026-06-29 21:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/00235968.shtml)
-- 2026-06-29 21:26 - [一生一世](http://www.blog.minike.top/Article/details/045274939.shtml)
+- 2026-06-29 21:46 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/82265.shtml)
+- 2026-06-29 21:36 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/94896.shtml)
+- 2026-06-29 21:42 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/36393201524.shtml)
+- 2026-06-29 21:38 - [王楚钦开门红](http://www.share.minike.top/Article/details/54914766.shtml)
+- 2026-06-29 21:22 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/7431630.shtml)
+- 2026-06-29 21:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/6447599296.shtml)
+- 2026-06-29 21:22 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/7127021815.shtml)
+- 2026-06-29 21:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/3468212.shtml)
+- 2026-06-29 21:46 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/46708.shtml)
+- 2026-06-29 21:45 - [青春环游记第三季](https://www.blog.minike.top/Article/details/990490875399.shtml)
+- 2026-06-29 21:22 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/24138.shtml)
+- 2026-06-29 21:27 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/70987525.shtml)
+- 2026-06-29 21:42 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/0667028281.shtml)
+- 2026-06-29 21:34 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/085376447037.shtml)
+- 2026-06-29 21:22 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/26573.shtml)

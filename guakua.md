@@ -1,55 +1,50 @@
-# 快讯：恒指低开0.39% 科指跌0.25% 科网股、黄金股普跌 汽车股活跃 蔚来涨超7%
+# 上海：做强金融基础设施和多层次金融市场
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-美股周三继续造好，油价回落有利大市气氛，主要指数再度破顶，三大指数均录得升幅收市。美元反复向上，美国十年期债息维持于4.48厘水平，金价表现回落，油价亦反复受压。 今日港股三大指数集体低开，恒指开盘跌0.39%，报25230.58点，恒科指跌0.25%，国企指数跌0.29%。盘面上，科网股普跌，快手跌超1%；锂电池股高开，宁德时代涨超1%；汽车股活跃，蔚来涨超7%；黄金股普跌，
+人民财讯6月1日电，上海市人民政府办公厅印发《上海市服务业发展“十五五”规划》，其中提到，着力丰富金融服务高质量供给。做强金融基础设施和多层次金融市场，提高人民币跨境支付系统（CIPS）全球网络覆盖度，支持银行间市场交易报告库建设；深化实施股票发行注册制改革，健全常态化退市机制；深化发展“一带一路”债券和熊猫债、玉兰债市场；推动期货和衍生品市场产品创新，推进人民币外汇期货交易试
 
 ## 正文
 
-美股周三继续造好，油价回落有利大市气氛，主要指数再度破顶，三大指数均录得升幅收市。
+人民财讯6月1日电，上海市人民政府办公厅印发《上海市服务业发展“十五五”规划》，其中提到，着力丰富金融服务高质量供给。
 
-美元反复向上，美国十年期债息维持于4.48厘水平，金价表现回落，油价亦反复受压。
+做强金融基础设施和多层次金融市场，提高人民币跨境支付系统（CIPS）全球网络覆盖度，支持银行间市场交易报告库建设；深化实施股票发行注册制改革，健全常态化退市机制；深化发展“一带一路”债券和熊猫债、玉兰债市场；推动期货和衍生品市场产品创新，推进人民币外汇期货交易试点；深化信托财产登记制度试点。
 
-今日港股三大指数集体低开，恒指开盘跌0.39%，报25230.58点，恒科指跌0.25%，国企指数跌0.29%。
+提升金融市场开放度和国际化服务竞争力，深化临港离岸贸易金融服务综合改革试点，持续增强国际再保险、全球资产管理等重点中心功能，不断提升“上海价格”“上海指数”以及主要大宗商品和重要能源品种期现货价格的国际影响力；拓展自由贸易账户功能及应用场景。
 
-盘面上，科网股普跌，快手跌超1%；锂电池股高开，宁德时代涨超1%；汽车股活跃，蔚来涨超7%；黄金股普跌，中国黄金国际跌超2%。
+提高金融服务实体经济质效，加快构建全周期、多元化、接力式科技金融服务体系；推动绿色金融标准、相关可持续金融标准的多领域应用；加强政策性融资担保和普惠保险体系支持，积极发展普惠金融；丰富养老金融产品，提升金融服务适老化水平；稳步发展数字人民币，提升金融科技创新服务水平。
 
-责任编辑：郝欣煜
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-29 21:30 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-29 21:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 21:27 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-29 21:31 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 21:18 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 21:13 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 21:18 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 21:35 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 21:23 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-29 21:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-29 21:38 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 21:34 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 21:15 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 21:13 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 21:24 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 21:27 - [网红小徐直播时突遇地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-29 21:46 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 21:22 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 21:47 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 21:34 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 21:34 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 21:26 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-29 21:20 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 21:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 21:26 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/1780295.shtml)
-- 2026-06-29 21:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/4949081.shtml)
-- 2026-06-29 21:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/0378864196.shtml)
-- 2026-06-29 21:16 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/35020.shtml)
-- 2026-06-29 21:20 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/56806941802.shtml)
-- 2026-06-29 21:37 - [我和我的家乡](https://www.share.minike.top/Article/details/431550512404.shtml)
-- 2026-06-29 21:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/05514.shtml)
-- 2026-06-29 21:31 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/652490252.shtml)
-- 2026-06-29 21:23 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/12110218.shtml)
-- 2026-06-29 21:41 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/675689.shtml)
-- 2026-06-29 21:36 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/051534092181.shtml)
-- 2026-06-29 21:23 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/00711.shtml)
-- 2026-06-29 21:36 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/32483389193.shtml)
-- 2026-06-29 21:38 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/455004525.shtml)
-- 2026-06-29 21:19 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/20239.shtml)
+- 2026-06-29 21:38 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/8014164316.shtml)
+- 2026-06-29 21:34 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/59370.shtml)
+- 2026-06-29 21:40 - [6.5万观众40分钟“丝滑”离场](http://www.blog.kurohicncr.top/Article/details/9360755661.shtml)
+- 2026-06-29 21:35 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/09112193.shtml)
+- 2026-06-29 21:39 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/45584893643.shtml)
+- 2026-06-29 21:30 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/35957097536.shtml)
+- 2026-06-29 21:48 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/694136415934.shtml)
+- 2026-06-29 21:38 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/164643707.shtml)
+- 2026-06-29 21:31 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/520733.shtml)
+- 2026-06-29 21:36 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/37194000.shtml)
+- 2026-06-29 21:29 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/100085583.shtml)
+- 2026-06-29 21:18 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/2374900375.shtml)
+- 2026-06-29 21:19 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/607113579.shtml)
+- 2026-06-29 21:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/6698667.shtml)
+- 2026-06-29 21:41 - [沙丘](http://www.share.minike.top/Article/details/5255789.shtml)

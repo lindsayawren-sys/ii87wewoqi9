@@ -1,60 +1,57 @@
-# 汛期蹚水别大意！这五类皮肤病高发 注意防范
+# 光大期货：6月2日矿钢煤焦日报
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-近日，我国多地遭遇持续强降雨，出现山洪、城市内涝、农田积水、道路受阻等情况。暴雨洪水过后的卫生健康问题不容忽视。专家介绍，洪涝灾害引发的次生疾病中，皮肤病占比超半数，需注意防范。 积水暗藏病菌 皮肤健康不容忽视 暴雨过后，路面积水看似寻常，实则暗藏不少病菌。积水混杂淤泥、生活垃圾与动物排泄物，极易滋生细菌、真菌及各类致敏物质。人体皮肤长时间浸泡在污染积水中，角质层吸水膨胀、质地
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡上涨，截止日盘螺纹2610合约收盘价格为3177元/吨，较上一交易日收盘价格上涨19元/吨，涨幅为0.6%，持仓减少1.97万手。现货价格小幅上涨，成交回升，唐山地区迁安普方坯价格上涨10元/吨至3030元/吨，杭州市场中天螺纹价格上涨10元/吨至3240元/吨，全国建材成交量
 
 ## 正文
 
-近日，我国多地遭遇持续强降雨，出现山洪、城市内涝、农田积水、道路受阻等情况。
+螺纹钢： （邱跃成，从业资格号：F3060829；交易咨询资格号：Z0016941） 昨日螺纹盘面震荡上涨，截止日盘螺纹2610合约收盘价格为3177元/吨，较上一交易日收盘价格上涨19元/吨，涨幅为0.6%，持仓减少1.97万手。
 
-暴雨洪水过后的卫生健康问题不容忽视。
+现货价格小幅上涨，成交回升，唐山地区迁安普方坯价格上涨10元/吨至3030元/吨，杭州市场中天螺纹价格上涨10元/吨至3240元/吨，全国建材成交量11.95万吨。
 
-专家介绍，洪涝灾害引发的次生疾病中，皮肤病占比超半数，需注意防范。
+据钢银数据，本周全国建材库存下降1.88%至554.87万吨，热卷库存下降5.15%至235.09万吨，库存维持较明显下降趋势。
 
-积水暗藏病菌 皮肤健康不容忽视 暴雨过后，路面积水看似寻常，实则暗藏不少病菌。
+国务院日前印发《城市更新“十五五”规划》，指出构建可持续的城市建设运营投融资体系，允许通过地方政府专项债券支持符合条件的城市更新项目建设，支持用作项目资本金。
 
-积水混杂淤泥、生活垃圾与动物排泄物，极易滋生细菌、真菌及各类致敏物质。
+上周末国务院安委会召开全国安全生产视频会议，山西省也开专题会议部署煤矿安全专项整治，煤矿安监形势再次趋严，煤焦价格明显上涨，对钢材走势形成较强成本支撑。
 
-人体皮肤长时间浸泡在污染积水中，角质层吸水膨胀、质地变软发白。
+预计短期螺纹盘面窄幅整理运行为主。
 
-脆弱的皮肤表层经摩擦后容易出现裂口，防护屏障失效，各类致病菌能轻易侵入皮肤内部，诱发炎症、感染。
+铁矿石： （柳浠，从业资格号：F03087689；交易咨询资格号：Z0019538） 昨日铁矿石期货主力合约i2609价格继续震荡，收于781元/吨，较前一个交易日收盘价下跌2.5元/吨，跌幅为0.3%，成交22.53万手，减仓0.53万手。
 
-同时，汛期闷热潮湿的环境会加速病菌滋生，进一步增加皮肤病发病风险。
+港口现货主流品种市场价格，现青岛港PB粉60.8%752跌1，超特粉603跌5。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 21:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-29 21:26 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 21:27 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
-- 2026-06-29 21:41 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 21:32 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 21:41 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 21:21 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 21:16 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 21:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 21:31 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 21:17 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 21:40 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 21:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 21:22 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 21:32 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 21:38 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 21:43 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 21:39 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 21:36 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 21:27 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 21:29 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 21:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 21:32 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 21:24 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/33009936.shtml)
-- 2026-06-29 21:41 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/3030569.shtml)
-- 2026-06-29 21:13 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/98630244.shtml)
-- 2026-06-29 21:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/972173311.shtml)
-- 2026-06-29 21:23 - [王鸿薇要求删陆委会百余万特别费](http://www.share.minike.top/Article/details/708554.shtml)
-- 2026-06-29 21:37 - [美人鱼](https://www.blog.minike.top/Article/details/129461391.shtml)
-- 2026-06-29 21:31 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/53420.shtml)
-- 2026-06-29 21:16 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/7900937.shtml)
-- 2026-06-29 21:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/70161730.shtml)
-- 2026-06-29 21:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/5730259908.shtml)
-- 2026-06-29 21:13 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/605478728.shtml)
-- 2026-06-29 21:24 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/17738.shtml)
-- 2026-06-29 21:16 - [美国一牛仔表演发生事故](http://www.blog.minike.top/Article/details/467788.shtml)
-- 2026-06-29 21:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/595368414110.shtml)
-- 2026-06-29 21:17 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/622839869142.shtml)
+- 2026-06-29 21:32 - [爱奇艺抬高国剧新标尺](http://www.blog.kurohicncr.top/Article/details/78221218.shtml)
+- 2026-06-29 21:35 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2555514.shtml)
+- 2026-06-29 21:44 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/094375.shtml)
+- 2026-06-29 21:27 - [李思潼回应运气好演《给阿嬷的情书》](http://www.blog.minike.top/Article/details/180917927.shtml)
+- 2026-06-29 21:46 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/45611486.shtml)
+- 2026-06-29 21:42 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/11870949.shtml)
+- 2026-06-29 21:24 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/755522307479.shtml)
+- 2026-06-29 21:37 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/6751781257.shtml)
+- 2026-06-29 21:47 - [网约车出事故平台拒赔称只是中介](http://www.share.minike.top/Article/details/905335073.shtml)
+- 2026-06-29 21:23 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/378666996.shtml)
+- 2026-06-29 21:23 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/6780150651.shtml)
+- 2026-06-29 21:25 - [急先锋](https://www.blog.minike.top/Article/details/920484165807.shtml)
+- 2026-06-29 21:33 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/849459.shtml)
+- 2026-06-29 21:27 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.minike.top/Article/details/1612535357.shtml)
+- 2026-06-29 21:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/82999.shtml)

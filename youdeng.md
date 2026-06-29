@@ -1,58 +1,56 @@
-# 深夜！全线飙涨，最高超200%！“宇宙级”消息引爆→
+# 美国抢铜潮卷土重来！铜、锡携手涨价，江西铜业、锡业股份等4股涨停！华宝基金有色ETF（159876）大涨3%
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！美股太空相关概念股大涨。 当地时间5月27日，美股太空相关概念股表现强势。 商业航天公司Momentus在前一交易日大涨近110%后，当天盘中再度大涨，最高涨近40%。 其他个股中，INTUITIVE MACHINES涨超9%，VIRGIN GALACTIC、REDWIRE涨超8%。 此外，ASTROTEC
+今日（6月2日）午后，有色金属板块异动拉升，揽尽有色金属行业龙头的有色ETF华宝（159876）场内价格现涨3.17%，盘中收复5日、10日两根均线。 成份股方面，铜业龙头和锡业龙头携手领涨，博威合金、锡业股份、江西铜业、华锡有色4股涨停，北方铜业张超9%，兴业银锡等个股涨逾7%。权重股紫金矿业涨近5%，中国铝业涨逾4%。 消息面上，市场担忧美国征收铜进口关税 花旗高盛均上调铜
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+今日（6月2日）午后，有色金属板块异动拉升，揽尽有色金属行业龙头的有色ETF华宝（159876）场内价格现涨3.17%，盘中收复5日、10日两根均线。
 
-美股太空相关概念股大涨。
+成份股方面，铜业龙头和锡业龙头携手领涨，博威合金、锡业股份、江西铜业、华锡有色4股涨停，北方铜业张超9%，兴业银锡等个股涨逾7%。
 
-当地时间5月27日，美股太空相关概念股表现强势。
+权重股紫金矿业涨近5%，中国铝业涨逾4%。
 
-商业航天公司Momentus在前一交易日大涨近110%后，当天盘中再度大涨，最高涨近40%。
+消息面上，市场担忧美国征收铜进口关税 花旗高盛均上调铜价预测。
 
-其他个股中，INTUITIVE MACHINES涨超9%，VIRGIN GALACTIC、REDWIRE涨超8%。
+美国商务部将于6月30日前发布关于精炼铜进口关税的最新建议。
 
-此外，ASTROTECH盘初一度涨近220%，截至发稿，涨幅有所收窄，但仍涨超160%。
+花旗集团表示，由于担心美国可能征收进口关税，铜价看涨情绪升温，预计未来一个月可能上涨至每吨14500美元。
 
-消息面上，此前该公司宣布已批准一项战略计划，专注于月球资源开发、自主月球工业基础设施，以及未来基于月球的先进计算和半导体制造机遇。
+预计未来6-12个月铜价将达到每盎司15000美元。
 
-近期，“宇宙级”消息不少。
+“算力金属”锡方面，随着AI产业的快速发展，金属锡的价格，出现明显上涨，从去年11月的每吨30万元，涨至目前的每吨42万元左右，半年上涨40%。
 
 ## 相关推荐
 
-- 2026-06-29 21:20 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 21:37 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 21:23 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 21:35 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 21:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 21:38 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 21:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 21:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 21:32 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 21:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 21:29 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 21:23 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 21:38 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 21:43 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 21:28 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 21:27 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-29 21:41 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 21:41 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 21:40 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 21:46 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 21:25 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 21:39 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/4380813.shtml)
-- 2026-06-29 21:32 - [美以这对亲密盟友要掰了吗](http://www.share.minike.top/Article/details/181660433737.shtml)
-- 2026-06-29 21:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/928865.shtml)
-- 2026-06-29 21:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/052998160985.shtml)
-- 2026-06-29 21:19 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/386073463857.shtml)
-- 2026-06-29 21:38 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/26520411352.shtml)
-- 2026-06-29 21:20 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/39751.shtml)
-- 2026-06-29 21:19 - [韩国队主帅遭极端网友死亡威胁](http://www.blog.minike.top/Article/details/74080987.shtml)
-- 2026-06-29 21:32 - [夫妻生活太无聊，所以我……](http://www.blog.minike.top/Article/details/31857527.shtml)
-- 2026-06-29 21:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/67581291979.shtml)
-- 2026-06-29 21:14 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/24210854.shtml)
-- 2026-06-29 21:16 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/1945326797.shtml)
-- 2026-06-29 21:35 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/054050002060.shtml)
-- 2026-06-29 21:25 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/20064.shtml)
-- 2026-06-29 21:16 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/93442.shtml)
+- 2026-06-29 21:31 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/773626988.shtml)
+- 2026-06-29 21:34 - [极限挑战第一季](http://www.share.minike.top/Article/details/1068663118.shtml)
+- 2026-06-29 21:42 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/13528014457.shtml)
+- 2026-06-29 21:47 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/320506580.shtml)
+- 2026-06-29 21:34 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/949407588.shtml)
+- 2026-06-29 21:25 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/218866555.shtml)
+- 2026-06-29 21:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/7314832052.shtml)
+- 2026-06-29 21:43 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/09909.shtml)
+- 2026-06-29 21:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/15704981.shtml)
+- 2026-06-29 21:40 - [炽夏](http://www.blog.minike.top/Article/details/392919896365.shtml)
+- 2026-06-29 21:39 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/1319209.shtml)
+- 2026-06-29 21:22 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/9307440405.shtml)
+- 2026-06-29 21:45 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/77744.shtml)
+- 2026-06-29 21:37 - [田曦薇没招了](http://www.share.minike.top/Article/details/020214806.shtml)
+- 2026-06-29 21:34 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/6688981.shtml)

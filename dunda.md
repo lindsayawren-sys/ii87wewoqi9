@@ -1,55 +1,55 @@
-# 中国500千伏交流超高压等级电力实现首次进出口
+# 土耳其一艘载148人游船起火沉没 乘客被迫跳船
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网昆明5月27日电 (刘佳龙 李夕妹)西双版纳海关27日消息，随着中老500千伏联网工程电力首次实现进出口，全国范围内500千伏交流超高压等级电力进出口实现零突破，标志着中老跨境清洁能源贸易正式从小规模低电压互济，迈入大规模高电压互联互通的全新转型升级发展阶段。 2026年4月20日，纳入中老命运共同体行动计划的中老500千伏联网工程正式投产，这是中国首个500千伏跨境交流
+中新网6月1日电 据外媒报道，当地时间5月29日，土耳其一艘载有148人的游船起火后沉入大海，突如其来的危急情况迫使乘客跳船自救。 据报道，涉事船只是一艘海盗主题游船，事发地点位于土耳其海岸附近的地中海海域。 该船从度假城市马尔马里斯出发，但启航后不久，在天堂岛附近开始进水。 附近船只上游客拍摄的惊险画面显示，这艘船在岩石海岸附近起火并剧烈侧倾，随后消失在水下。到最后，只有船桅
 
 ## 正文
 
-中新网昆明5月27日电 (刘佳龙 李夕妹)西双版纳海关27日消息，随着中老500千伏联网工程电力首次实现进出口，全国范围内500千伏交流超高压等级电力进出口实现零突破，标志着中老跨境清洁能源贸易正式从小规模低电压互济，迈入大规模高电压互联互通的全新转型升级发展阶段。
+中新网6月1日电 据外媒报道，当地时间5月29日，土耳其一艘载有148人的游船起火后沉入大海，突如其来的危急情况迫使乘客跳船自救。
 
-2026年4月20日，纳入中老命运共同体行动计划的中老500千伏联网工程正式投产，这是中国首个500千伏跨境交流联网工程，也是中老两国建设规模最大、电压等级最高的跨境电网工程。
+据报道，涉事船只是一艘海盗主题游船，事发地点位于土耳其海岸附近的地中海海域。
 
-该工程起点位于老挝乌多姆塞省，落点位于中国云南省，输电线路全长177.5公里，其中中国段145公里、老挝段32.5公里，分别由中国南方电网云南电网公司和老挝国家输电网公司(EDL-T)投资建设，是继中老铁路之后，两国高质量共建“一带一路”的又一标志性成果。
+该船从度假城市马尔马里斯出发，但启航后不久，在天堂岛附近开始进水。
 
-中老500千伏联网工程投运后，中老电力互济能力从5万千瓦提升至150万千瓦，彻底改变此前小规模、低电压的互济格局，实现每年约30亿千瓦时的清洁电力送电规模，相当于减排二氧化碳约250万吨。
+附近船只上游客拍摄的惊险画面显示，这艘船在岩石海岸附近起火并剧烈侧倾，随后消失在水下。
 
-此次中老500千伏跨境电力贸易的成功通关与绿色能源通道的贯通，不仅实现了跨境电力基础设施的跨越式升级，为中老铁路重点项目及老挝北部“水电+光伏”多能互补系统提供了稳定的能源保障，更让铁塔银线之间织就的“电力高速路”互联互通织密中老经贸合作纽带，有效带动双边产业协同发展、助力沿线民生改善。
+到最后，只有船桅的顶端还露出水面。
 
-(完)
+乘客被迫跳入周围的水中，所有乘客和船员都被救援队安全送上岸，游船在约一小时内完全沉没。
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 21:29 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 21:22 - [佛得角队长门德斯被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 21:31 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 21:19 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 21:24 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 21:33 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 21:18 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 21:29 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 21:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 21:36 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 21:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 21:12 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 21:33 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 21:41 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 21:30 - [东宫女主是不是顶级恋爱脑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 21:29 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 21:46 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 21:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 21:25 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 21:32 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-29 21:23 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 21:42 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 21:36 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 21:18 - [宜宾地震后铁路工作人员叫停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-29 21:18 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/0126426089.shtml)
-- 2026-06-29 21:32 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/035764252.shtml)
-- 2026-06-29 21:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/241881085.shtml)
-- 2026-06-29 21:41 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/88866174594.shtml)
-- 2026-06-29 21:36 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/3687073.shtml)
-- 2026-06-29 21:26 - [千与千寻](https://www.share.kurohicncr.top/Article/details/196446549.shtml)
-- 2026-06-29 21:19 - [新官上任三把火](https://www.blog.minike.top/Article/details/38277005229.shtml)
-- 2026-06-29 21:41 - [天道](https://www.share.minike.top/Article/details/5645239619.shtml)
-- 2026-06-29 21:19 - [郑钦文谈再战西尼亚科娃](http://www.share.minike.top/Article/details/89837.shtml)
-- 2026-06-29 21:29 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/598831723808.shtml)
-- 2026-06-29 21:19 - [一诺变着花样秀新驾照](https://www.blog.kurohicncr.top/Article/details/05006.shtml)
-- 2026-06-29 21:19 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/95554687779.shtml)
-- 2026-06-29 21:32 - [青春环游记第三季](http://www.share.minike.top/Article/details/09987578318.shtml)
-- 2026-06-29 21:21 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/917451.shtml)
-- 2026-06-29 21:25 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/6194289545.shtml)
+- 2026-06-29 21:27 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/27260677.shtml)
+- 2026-06-29 21:43 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.minike.top/Article/details/952624580036.shtml)
+- 2026-06-29 21:42 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/311591541.shtml)
+- 2026-06-29 21:45 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/21543335.shtml)
+- 2026-06-29 21:29 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/012762647.shtml)
+- 2026-06-29 21:40 - [笔记本电脑一年涨价近一倍](https://www.blog.minike.top/Article/details/585272.shtml)
+- 2026-06-29 21:27 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/48273371658.shtml)
+- 2026-06-29 21:41 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/0497933183.shtml)
+- 2026-06-29 21:29 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/936388478152.shtml)
+- 2026-06-29 21:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/938607.shtml)
+- 2026-06-29 21:29 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/72780.shtml)
+- 2026-06-29 21:45 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/11031.shtml)
+- 2026-06-29 21:25 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/14670989.shtml)
+- 2026-06-29 21:21 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/432083061.shtml)
+- 2026-06-29 21:37 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/581268393633.shtml)

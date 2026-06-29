@@ -1,55 +1,48 @@
-# 法拉利电动超跑惊艳但股价下挫
+# 【看见中国】“我一定要扎根义乌” 尼泊尔商人Bishnu的“必需努”
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-法拉利正式发布首款纯电动车型Luce，起售价高达55万欧元，将限量生产并于2026年底开始交付。尽管新车融合了标志性设计语言与三电机全驱技术，但资本市场反应冷淡，股价当日重挫约6%。投资者担忧，高昂定价与电动化转型可能稀释法拉利稀缺品牌的利润率，同时充电基础设施和用户驾驶习惯的差异或影响需求。不过，管理层对超高端电动市场的定位保持乐观。责任编辑：张俊 SF065
+发布时间：2026年06月01日 17:52 来源：中国新闻网 “我一定要努力扎根义乌”“我一定要向更多尼泊尔商人推介义乌”“我一定要进一步促进尼中交流与友谊”……从2002年第一次来到浙江义乌，到如今在这里扎根24年，尼泊尔商人毕需努(Bishnu)感慨万千。在这里，他一次次喊出“必须努力”的目标，也一次次让自己与义乌的联系愈发紧密。 近日，毕需努在采访中分享了他与义乌的故事
 
 ## 正文
 
-法拉利正式发布首款纯电动车型Luce，起售价高达55万欧元，将限量生产并于2026年底开始交付。
+发布时间：2026年06月01日 17:52 来源：中国新闻网 “我一定要努力扎根义乌”“我一定要向更多尼泊尔商人推介义乌”“我一定要进一步促进尼中交流与友谊”……从2002年第一次来到浙江义乌，到如今在这里扎根24年，尼泊尔商人毕需努(Bishnu)感慨万千。
 
-尽管新车融合了标志性设计语言与三电机全驱技术，但资本市场反应冷淡，股价当日重挫约6%。
+在这里，他一次次喊出“必须努力”的目标，也一次次让自己与义乌的联系愈发紧密。
 
-投资者担忧，高昂定价与电动化转型可能稀释法拉利稀缺品牌的利润率，同时充电基础设施和用户驾驶习惯的差异或影响需求。
+近日，毕需努在采访中分享了他与义乌的故事。
 
-不过，管理层对超高端电动市场的定位保持乐观。
-
-责任编辑：张俊 SF065
+(董易鑫 刘子琳 浙江义乌报道） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:23 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 21:40 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 21:16 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 21:40 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 21:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 21:19 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 21:26 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 21:26 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 21:12 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-29 21:38 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 21:36 - [无畏为自己的猫正名了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 21:28 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-29 21:37 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 21:14 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 21:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 21:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 21:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 21:32 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 21:46 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 21:20 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 21:29 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 21:43 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 21:46 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 21:23 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 21:19 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [《贺子珍》](http://www.blog.minike.top/Article/details/586353.shtml)
-- 2026-06-29 21:21 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/10059801.shtml)
-- 2026-06-29 21:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/15448803453.shtml)
-- 2026-06-29 21:12 - [媒体：韩国队不能只在世预赛锋芒毕露](https://www.share.minike.top/Article/details/48212218.shtml)
-- 2026-06-29 21:32 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/796090840.shtml)
-- 2026-06-29 21:36 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/4572477.shtml)
-- 2026-06-29 21:32 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/3658766.shtml)
-- 2026-06-29 21:17 - [女生学医适合选什么专业](http://www.share.kurohicncr.top/Article/details/44017031.shtml)
-- 2026-06-29 21:24 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/36142812.shtml)
-- 2026-06-29 21:33 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/349343089.shtml)
-- 2026-06-29 21:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/996583438406.shtml)
-- 2026-06-29 21:37 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/35868.shtml)
-- 2026-06-29 21:25 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/920834.shtml)
-- 2026-06-29 21:31 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/173287297728.shtml)
-- 2026-06-29 21:25 - [起风了](http://www.blog.kurohicncr.top/Article/details/05907743959.shtml)
+- 2026-06-29 21:29 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/88576.shtml)
+- 2026-06-29 21:23 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.minike.top/Article/details/06195326028.shtml)
+- 2026-06-29 21:32 - [存储三巨头被告了](http://www.share.minike.top/Article/details/100251136.shtml)
+- 2026-06-29 21:23 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/850698874.shtml)
+- 2026-06-29 21:29 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/1027657.shtml)
+- 2026-06-29 21:33 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/82182741.shtml)
+- 2026-06-29 21:26 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/85641541.shtml)
+- 2026-06-29 21:32 - [存储三巨头被告了](http://www.share.minike.top/Article/details/971955534.shtml)
+- 2026-06-29 21:37 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/53243627348.shtml)
+- 2026-06-29 21:34 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/38581775289.shtml)
+- 2026-06-29 21:45 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/11361.shtml)
+- 2026-06-29 21:30 - [乌是否掌握了扭转战局的钥匙](http://www.share.minike.top/Article/details/89409.shtml)
+- 2026-06-29 21:33 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/47192446674.shtml)
+- 2026-06-29 21:38 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/7511887726.shtml)
+- 2026-06-29 21:34 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/65286.shtml)

@@ -1,60 +1,57 @@
-# 中国企业助力柬埔寨橡胶产业转型升级
+# 五粮液（000858）、鹏博士（600804）投资者索赔均再提交法院立案
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新社金边5月27日电 (记者 杨强)由中国企业投资建设的美兰集团柬埔寨橡胶工厂( KIMS RUBBER)27日在柬埔寨特本克蒙省宣布投产。 柬首相洪玛奈表示，该项目体现中国投资者对柬发展前景的认可和信心，柬政府将持续优化营商环境，完善物流体系，支持外资企业稳定发展。 洪玛奈和中国驻柬埔寨大使汪文斌当天共同出席投产仪式并致辞。该工厂投资约3000万美元，占地面积近15公顷，年
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月1日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案征再向成渝金融法院提交一次立案。（许峰律师专栏） 2026年5月20日，许峰律师代理的五粮液投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索
 
 ## 正文
 
-中新社金边5月27日电 (记者 杨强)由中国企业投资建设的美兰集团柬埔寨橡胶工厂( KIMS RUBBER)27日在柬埔寨特本克蒙省宣布投产。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年6月1日，上海久诚律师事务所股票索赔律师许峰代理的五粮液（维权）（000858）投资者索赔案征再向成渝金融法院提交一次立案。
 
-柬首相洪玛奈表示，该项目体现中国投资者对柬发展前景的认可和信心，柬政府将持续优化营商环境，完善物流体系，支持外资企业稳定发展。
+（许峰律师专栏） 2026年5月20日，许峰律师代理的五粮液投资者索赔案已获得成渝金融法院立案，目前正在等待法院的下一步安排。
 
-洪玛奈和中国驻柬埔寨大使汪文斌当天共同出席投产仪式并致辞。
+律师团队同步还在继续推进后续案件的代理工作，还在继续接受其他投资者的索赔委托。
 
-该工厂投资约3000万美元，占地面积近15公顷，年加工橡胶能力10万吨。
+2026年4月30日晚，五粮液发布关于前期会计差错更正的公告，称宜宾五粮液股份有限公司于2026年4月28日召开第七届董事会2026年第4次会议和第七届董事会审计委员会2026年第四次会议，审议通过了《关于前期会计差错更正的议案》。
 
-项目投产后，可直接为当地提供300个就业岗位，间接带动超过5万人就业。
+根据《企业会计准则第28号——会计政策、会计估计变更和差错更正》《公开发行证券的公司信息披露编报规则19号——财务信息的更正及相关披露》等相关规定，对前期会计差错更正的具体情况说明如下作出公告，具体建议关注公告详细内容。
 
-洪玛奈感谢中国政府、企业及社会各界长期以来对柬埔寨经济社会发展的支持，并肯定中方通过多元合作方式为柬埔寨经济增长、产业发展和民生福祉作出的积极贡献。
+许峰律师认为，在2025年4月28日到2026年5月1日之间买入五粮液股票，并且在2026年5月1日后卖出或继续持有股票的投资者，目前还可发起索赔，具体应以法院认定为准。
 
-他欢迎中国企业持续投资，助力柬橡胶等农作物从原材料出口向半成品及成品加工出口转型发展。
+（五粮液维权入口） 除了五粮液投资者索赔案再次提交法院立案，2026年6月1日，许峰律师代理的鹏博士（600804）投资者索赔案再向法院提交立案，该案已经进入最后一个多月的诉讼时效倒计时，提醒投资者注意。
 
-汪文斌表示，美兰集团柬埔寨橡胶工厂是中柬发展战略对接、产业优势互补的生动体现。
+2026年1月底，许峰律师代理的一位鹏博士投资者通过调解获赔到位，其他鹏博士投资者索赔案已向法院申请强制执行。
 
 ## 相关推荐
 
-- 2026-06-29 21:21 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 21:26 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 21:41 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 21:14 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 21:39 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 21:33 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 21:41 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 21:34 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 21:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 21:34 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 21:12 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-29 21:25 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 21:33 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 21:17 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:18 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 21:43 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-29 21:45 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-29 21:36 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 21:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 21:45 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 21:19 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 21:44 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 21:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-29 21:45 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 21:31 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:39 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/46522157426.shtml)
-- 2026-06-29 21:24 - [起风了](https://www.blog.minike.top/Article/details/270403511965.shtml)
-- 2026-06-29 21:39 - [半导体和股市为何没让韩国人起飞](https://www.share.kurohicncr.top/Article/details/87281986799.shtml)
-- 2026-06-29 21:22 - [扬名立万](http://www.blog.minike.top/Article/details/35651517.shtml)
-- 2026-06-29 21:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/092162439793.shtml)
-- 2026-06-29 21:37 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.minike.top/Article/details/42820859072.shtml)
-- 2026-06-29 21:26 - [女生学医适合选什么专业](https://www.blog.kurohicncr.top/Article/details/3919801.shtml)
-- 2026-06-29 21:36 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/10953552.shtml)
-- 2026-06-29 21:37 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/601012817.shtml)
-- 2026-06-29 21:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/53926.shtml)
-- 2026-06-29 21:41 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/8259125313.shtml)
-- 2026-06-29 21:30 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.minike.top/Article/details/7163360273.shtml)
-- 2026-06-29 21:15 - [网红小徐直播时突遇地震](http://www.blog.kurohicncr.top/Article/details/00958913524.shtml)
-- 2026-06-29 21:28 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/23700548492.shtml)
-- 2026-06-29 21:27 - [沉睡花园](https://www.share.minike.top/Article/details/937643199.shtml)
+- 2026-06-29 21:38 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.share.kurohicncr.top/Article/details/026077346.shtml)
+- 2026-06-29 21:21 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/37406040.shtml)
+- 2026-06-29 21:40 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/58085985.shtml)
+- 2026-06-29 21:42 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/00967843185.shtml)
+- 2026-06-29 21:42 - [恋与深空客服的回应](http://www.blog.kurohicncr.top/Article/details/698569818516.shtml)
+- 2026-06-29 21:24 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/934661.shtml)
+- 2026-06-29 21:39 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/9171351422.shtml)
+- 2026-06-29 21:31 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/3514880520.shtml)
+- 2026-06-29 21:29 - [田曦薇 女装牛仔裤](https://www.share.minike.top/Article/details/50754208.shtml)
+- 2026-06-29 21:36 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/783531364.shtml)
+- 2026-06-29 21:45 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/5871509.shtml)
+- 2026-06-29 21:38 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/04597.shtml)
+- 2026-06-29 21:32 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/328677674263.shtml)
+- 2026-06-29 21:45 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/85315.shtml)
+- 2026-06-29 21:31 - [Ella回应SHE何时合体](https://www.blog.minike.top/Article/details/09333374.shtml)

@@ -1,48 +1,56 @@
-# 大美边疆看我家丨新疆塔城：美食飘香 欢庆古尔邦节
+# 6月金股全曝光！主力资金大换仓，谁是下一个风口？
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月27日 11:51 来源：中国新闻网 5月27日，是伊斯兰教传统节日古尔邦节。在新疆塔城和布克赛尔蒙古自治县的餐桌上，满是地道风味与暖心情谊。一桌佳肴，一份团圆，新疆各族儿女以美食传递祝福，在欢声笑语中共度美好节日。(来源：和布克赛尔县委宣传部) 责任编辑：【魏聪聪】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券市场周刊市场号 文 |牛犇 6月第一个交易日，A股的开门红没有出现，但赚钱效应出现了，全A上涨下跌的比例大约是2：1。 这背后的信号再清楚不过了：市场正在发生一场深刻的内部结构性大切换，同时，资金并没有从科技板块撤出。这也说明，6月，A股的赚钱效应不在于“指数涨跌”，而在于“能否跟准科技内部的切换
 
 ## 正文
 
-发布时间：2026年05月27日 11:51 来源：中国新闻网 5月27日，是伊斯兰教传统节日古尔邦节。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在新疆塔城和布克赛尔蒙古自治县的餐桌上，满是地道风味与暖心情谊。
+来源：证券市场周刊市场号 文 |牛犇 6月第一个交易日，A股的开门红没有出现，但赚钱效应出现了，全A上涨下跌的比例大约是2：1。
 
-一桌佳肴，一份团圆，新疆各族儿女以美食传递祝福，在欢声笑语中共度美好节日。
+这背后的信号再清楚不过了：市场正在发生一场深刻的内部结构性大切换，同时，资金并没有从科技板块撤出。
 
-(来源：和布克赛尔县委宣传部) 责任编辑：【魏聪聪】
+这也说明，6月，A股的赚钱效应不在于“指数涨跌”，而在于“能否跟准科技内部的切换节奏”。
+
+软科技接棒 今天，A股的各大指数又基本战线统一了——回撤。
+
+沪指跌0.27%，报4057.74点； 深成指跌1.51%，报15340.36点； 创业板指跌2.15%，报3950.94点； 科创50指数下跌5%，报1663.69点； 北证50倒是逆势上涨0.45%，报1249.73点。
+
+全市场成交额2.90万亿元，相较上周五也有所收敛。
+
+但有意思的是，今天的赚钱效应出奇地好——全市场接近3800只个股上涨，下跌个股不到1700只，放在以往指数收跌的时候，很少见到这种画面。
 
 ## 相关推荐
 
-- 2026-06-29 21:25 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 21:38 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 21:32 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 21:30 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 21:16 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 21:14 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 21:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 21:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 21:26 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 21:37 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 21:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 21:27 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 21:20 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 21:29 - [新官上任三把火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 21:23 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 21:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 21:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 21:27 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 21:38 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-29 21:45 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/09896103041.shtml)
-- 2026-06-29 21:28 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/529059153.shtml)
-- 2026-06-29 21:39 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/316730633.shtml)
-- 2026-06-29 21:17 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/04391574.shtml)
-- 2026-06-29 21:17 - [面对热浪欧洲人为何陷入空调内耗](http://www.blog.minike.top/Article/details/273044143.shtml)
-- 2026-06-29 21:20 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/0742858.shtml)
-- 2026-06-29 21:36 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/1349219682.shtml)
-- 2026-06-29 21:40 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/2077400.shtml)
-- 2026-06-29 21:14 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/45501464048.shtml)
-- 2026-06-29 21:40 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/688083580.shtml)
-- 2026-06-29 21:17 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/92157.shtml)
-- 2026-06-29 21:15 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/770437.shtml)
-- 2026-06-29 21:30 - [我国多领域成果密集上新](https://www.share.minike.top/Article/details/9741886.shtml)
-- 2026-06-29 21:30 - [周生如故](https://www.share.minike.top/Article/details/30901651589.shtml)
-- 2026-06-29 21:28 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/87493493.shtml)
+- 2026-06-29 21:38 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/7255862518.shtml)
+- 2026-06-29 21:36 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/88033.shtml)
+- 2026-06-29 21:24 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/0538799.shtml)
+- 2026-06-29 21:40 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/752303923382.shtml)
+- 2026-06-29 21:30 - [一诺变着花样秀新驾照](http://www.share.kurohicncr.top/Article/details/0021891.shtml)
+- 2026-06-29 21:29 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/541783806.shtml)
+- 2026-06-29 21:40 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/111322535.shtml)
+- 2026-06-29 21:21 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/226388794561.shtml)
+- 2026-06-29 21:39 - [男子称在京东买到“同仁堂”假药](https://www.blog.kurohicncr.top/Article/details/24566581133.shtml)
+- 2026-06-29 21:45 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/1878487.shtml)
+- 2026-06-29 21:40 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/549005691.shtml)
+- 2026-06-29 21:43 - [刘宇宁胸肌腹肌全给看了](http://www.share.kurohicncr.top/Article/details/06747064.shtml)
+- 2026-06-29 21:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/09914625.shtml)
+- 2026-06-29 21:19 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/0263590.shtml)
+- 2026-06-29 21:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/527945623335.shtml)

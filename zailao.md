@@ -1,58 +1,48 @@
-# 通胀有所回落，澳大利亚仍保留加息可能性
+# 看图学习丨“茁壮成长吧！” “大朋友”习近平与小朋友的暖心瞬间
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-受燃油临时减税政策影响，澳大利亚4月居民消费价格涨幅有所放缓，但通胀水平依旧偏高，央行仍存在进一步加息的空间。 澳大利亚统计局周三公布数据显示，截至4月的12个月里，消费者价格指数同比上涨4.2%，较3月同比4.6%的涨幅有所回落。 为缓解伊朗局势引发的油价大幅上涨，澳大利亚联邦政府临时下调汽油和柴油销售税，受此影响，4月交通成本环比下降2.7%。 不过，交通成本同比仍上涨6.
+习近平总书记始终高度关心关怀少年儿童的健康成长、全面发展，“孩子们成长得更好，是我们最大的心愿。”在地方考察期间，总书记经常走到孩子们中间，悉心叮嘱他们努力学习，注重体育锻炼、劳动创造，勉励同学们把自己的理想、志向同祖国和人民联系在一起，“做祖国和人民事业发展的接班人”。 “六一”国际儿童节到来之际，让我们一起回顾“大朋友”习近平与小朋友的一些暖心瞬间，共同祝福孩子们“茁壮成长
 
 ## 正文
 
-受燃油临时减税政策影响，澳大利亚4月居民消费价格涨幅有所放缓，但通胀水平依旧偏高，央行仍存在进一步加息的空间。
+习近平总书记始终高度关心关怀少年儿童的健康成长、全面发展，“孩子们成长得更好，是我们最大的心愿。
 
-澳大利亚统计局周三公布数据显示，截至4月的12个月里，消费者价格指数同比上涨4.2%，较3月同比4.6%的涨幅有所回落。
+”在地方考察期间，总书记经常走到孩子们中间，悉心叮嘱他们努力学习，注重体育锻炼、劳动创造，勉励同学们把自己的理想、志向同祖国和人民联系在一起，“做祖国和人民事业发展的接班人”。
 
-为缓解伊朗局势引发的油价大幅上涨，澳大利亚联邦政府临时下调汽油和柴油销售税，受此影响，4月交通成本环比下降2.7%。
+“六一”国际儿童节到来之际，让我们一起回顾“大朋友”习近平与小朋友的一些暖心瞬间，共同祝福孩子们“茁壮成长”！
 
-不过，交通成本同比仍上涨6.6%，成为推升年度通胀的第二大因素。
-
-当前整体通胀率远高于澳大利亚储备银行2.5%的目标水平。
-
-剔除部分波动项后的截尾均值通胀率从3月的3.3%升至4月的3.4%，这一数据或将引发澳储行担忧。
-
-澳储行本月再度加息25个基点，这也是今年第三次加息，房贷等各类借贷成本随之走高。
-
-该行表示，将等待更多经济数据出炉后，再决定是否继续加息。
+总监制：骆红秉 总策划：张军 于锋 监 制：伍刚 蔡荣波 王薇 策 划：赵净 姜葳 设 计：魏星宇
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-29 21:24 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 21:31 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 21:13 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 21:21 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 21:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 21:18 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 21:25 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 21:38 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-29 21:36 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 21:31 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 21:36 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 21:27 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 21:27 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 21:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 21:22 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 21:40 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 21:29 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 21:40 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 21:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 21:44 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 21:27 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:37 - [天气热脾气都变差了](http://www.blog.kurohicncr.top/Article/details/83634480.shtml)
-- 2026-06-29 21:28 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/588855609653.shtml)
-- 2026-06-29 21:37 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/08020.shtml)
-- 2026-06-29 21:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/79603973318.shtml)
-- 2026-06-29 21:36 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/51746424.shtml)
-- 2026-06-29 21:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/604141.shtml)
-- 2026-06-29 21:14 - [TLAW零封DCG MSI](https://www.share.minike.top/Article/details/665562996.shtml)
-- 2026-06-29 21:27 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/57679.shtml)
-- 2026-06-29 21:28 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/468803976532.shtml)
-- 2026-06-29 21:30 - [田曦薇没招了](https://www.blog.minike.top/Article/details/08199946652.shtml)
-- 2026-06-29 21:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/77150167570.shtml)
-- 2026-06-29 21:13 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/637834987.shtml)
-- 2026-06-29 21:22 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/625335369981.shtml)
-- 2026-06-29 21:18 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/5190231841.shtml)
-- 2026-06-29 21:28 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/358741559094.shtml)
+- 2026-06-29 21:27 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.minike.top/Article/details/0015518.shtml)
+- 2026-06-29 21:46 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.blog.kurohicncr.top/Article/details/07676340788.shtml)
+- 2026-06-29 21:36 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/8799817.shtml)
+- 2026-06-29 21:44 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/7902997.shtml)
+- 2026-06-29 21:23 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/17191198.shtml)
+- 2026-06-29 21:41 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/29307903627.shtml)
+- 2026-06-29 21:35 - [林逸向方筱然求婚了](https://www.blog.minike.top/Article/details/740312.shtml)
+- 2026-06-29 21:23 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/9365670.shtml)
+- 2026-06-29 21:36 - [18岁高二体育生训练晕倒后离世](http://www.share.minike.top/Article/details/51538.shtml)
+- 2026-06-29 21:20 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/266463737344.shtml)
+- 2026-06-29 21:46 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/96841531470.shtml)
+- 2026-06-29 21:38 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/037079485489.shtml)
+- 2026-06-29 21:29 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/99191320539.shtml)
+- 2026-06-29 21:36 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/915607364.shtml)
+- 2026-06-29 21:44 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/55862211.shtml)

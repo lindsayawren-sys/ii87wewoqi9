@@ -1,58 +1,50 @@
-# IREN斥资16亿美元从戴尔采购英伟达Blackwell系统
+# 龙蟠科技获小摩增持19.35万股 每股作价约15.29港元
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-数据中心运营商IREN周二表示，已同意以约16亿美元的价格从戴尔采购英伟达风冷式Blackwell系统，旨在上线更多算力，以满足不断增长的人工智能需求。 IREN在一份声明中表示，这笔交易是为了履行此前宣布的与人工智能服务器制造商戴尔签订的价值34亿美元的五年期云人工智能服务合同。 这些Blackwell系统将部署在IREN位于德克萨斯州奇尔德里斯园区的现有数据中心，预计将于2
+香港联交所最新资料显示，5月26日，小摩增持龙蟠科技（02465）19.35万股，每股作价15.2932港元，总金额约为295.92万港元。增持后最新持股数目为734.75万股，最新持股比例为6.12%。责任编辑：卢昱君
 
 ## 正文
 
-数据中心运营商IREN周二表示，已同意以约16亿美元的价格从戴尔采购英伟达风冷式Blackwell系统，旨在上线更多算力，以满足不断增长的人工智能需求。
+香港联交所最新资料显示，5月26日，小摩增持龙蟠科技（02465）19.35万股，每股作价15.2932港元，总金额约为295.92万港元。
 
-IREN在一份声明中表示，这笔交易是为了履行此前宣布的与人工智能服务器制造商戴尔签订的价值34亿美元的五年期云人工智能服务合同。
+增持后最新持股数目为734.75万股，最新持股比例为6.12%。
 
-这些Blackwell系统将部署在IREN位于德克萨斯州奇尔德里斯园区的现有数据中心，预计将于2027年初投入使用。
-
-合同生效后，IREN的年度经常性收入（ARR）预计将从37亿美元增至44亿美元，这反映了其GPU容量上线方面取得的持续进展。
-
-IREN表示，16亿美元的采购价格涵盖所有设备和服务，包括GPU、服务器、存储、网络、辅助设备、集成服务和保修，款项将在交付后支付。
-
-IREN联合首席执行官丹尼尔·罗伯茨表示：“在计算速度至关重要的市场中，确保产能和加快调试是我们的首要任务。
-
-” 此外，英伟达本月早些时候宣布，将向IREN投资至多21亿美元，这是双方达成的一项更广泛协议的一部分，该协议旨在部署至多5吉瓦的基础设施。
-
-去年11月，微软与IREN达成了一项价 97亿美元的协议，其中包括使用英伟达先进芯片的权限。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 21:21 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 21:38 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 21:41 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 21:27 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 21:31 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 21:31 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 21:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-29 21:30 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 21:17 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 21:15 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 21:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 21:22 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 21:18 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 21:33 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 21:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 21:19 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-29 21:45 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 21:22 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 21:36 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 21:29 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 21:31 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 21:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 21:31 - [LPL第三赛段赛制公布](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 21:32 - [欧洲多国高温突破40摄氏度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 21:31 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/381915.shtml)
-- 2026-06-29 21:24 - [毒液2](https://www.share.minike.top/Article/details/86807371704.shtml)
-- 2026-06-29 21:32 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/86090163.shtml)
-- 2026-06-29 21:23 - [日本豪言冲击冠军是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/8567508.shtml)
-- 2026-06-29 21:27 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/758829.shtml)
-- 2026-06-29 21:15 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/0343214.shtml)
-- 2026-06-29 21:22 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/20792.shtml)
-- 2026-06-29 21:16 - [外国游客开始涌入中国农村](http://www.blog.minike.top/Article/details/44719928.shtml)
-- 2026-06-29 21:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/1419325415.shtml)
-- 2026-06-29 21:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/819151132.shtml)
-- 2026-06-29 21:18 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.minike.top/Article/details/5050508.shtml)
-- 2026-06-29 21:29 - [沙丘](https://www.blog.minike.top/Article/details/46920438.shtml)
-- 2026-06-29 21:12 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/72276375461.shtml)
-- 2026-06-29 21:20 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/6241246760.shtml)
-- 2026-06-29 21:35 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/041069016.shtml)
+- 2026-06-29 21:35 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/54006293661.shtml)
+- 2026-06-29 21:37 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/3856109658.shtml)
+- 2026-06-29 21:34 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/349196845.shtml)
+- 2026-06-29 21:36 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/452444710.shtml)
+- 2026-06-29 21:25 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/9352856.shtml)
+- 2026-06-29 21:32 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/7600354.shtml)
+- 2026-06-29 21:27 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/05631444.shtml)
+- 2026-06-29 21:20 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/45272775653.shtml)
+- 2026-06-29 21:43 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/270443.shtml)
+- 2026-06-29 21:33 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/76113792879.shtml)
+- 2026-06-29 21:38 - [第二波数码涨价潮来袭](https://www.share.kurohicncr.top/Article/details/36492.shtml)
+- 2026-06-29 21:35 - [欧洲多国高温突破40摄氏度](http://www.share.minike.top/Article/details/539962941775.shtml)
+- 2026-06-29 21:20 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/2692341.shtml)
+- 2026-06-29 21:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/7833264.shtml)
+- 2026-06-29 21:22 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/414940074.shtml)

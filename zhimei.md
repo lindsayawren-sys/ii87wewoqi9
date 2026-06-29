@@ -1,59 +1,60 @@
-# 贵州赫章：山村“微心愿” 件件有着落
+# 红塔银行迎来新股东中信银行，国股行驰援地方银行时隔11年再现，恐难成趋势
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网贵州赫章5月27日电(陈镜宇)在贵州省毕节市赫章县水塘堡彝族苗族乡新河村，许多村民的心愿是：老人屋里能添一台实用的电磁炉、屋前的小路能亮起一盏路灯……如今，这些藏在日常生活里的“微心愿”，正通过一个小程序平台被看见、被认领、被实现。 “没想到我们随口说的小心愿，真的有人记在心上。”收到物资的新河村村民感慨道。还有村民说：“现在有人惦记着我们，心里暖乎乎的。”一句句朴素的话
+财联社6月2日讯（记者 彭科峰）时隔多年，再见全国性股份制银行入股区域性城商行。近日，昆明产业开发投资有限责任公司发布公告称，将持有的红塔银行出售给中信银行。交易完成后，中信银行将成为红塔银行前四大股东。 业内人士认为，国有大行、股份行入股地方城商行的案例并不多见。考虑到中信银行在云南区域深耕多年且设置有分行，此次合作或许可以发挥股份行在内部治理、信息科技方面的优势，同时也有助
 
 ## 正文
 
-中新网贵州赫章5月27日电(陈镜宇)在贵州省毕节市赫章县水塘堡彝族苗族乡新河村，许多村民的心愿是：老人屋里能添一台实用的电磁炉、屋前的小路能亮起一盏路灯……如今，这些藏在日常生活里的“微心愿”，正通过一个小程序平台被看见、被认领、被实现。
+财联社6月2日讯（记者 彭科峰）时隔多年，再见全国性股份制银行入股区域性城商行。
 
-“没想到我们随口说的小心愿，真的有人记在心上。
+近日，昆明产业开发投资有限责任公司发布公告称，将持有的红塔银行出售给中信银行。
 
-”收到物资的新河村村民感慨道。
+交易完成后，中信银行将成为红塔银行前四大股东。
 
-还有村民说：“现在有人惦记着我们，心里暖乎乎的。
+业内人士认为，国有大行、股份行入股地方城商行的案例并不多见。
 
-”一句句朴素的话，道出了群众最真实的感受。
+考虑到中信银行在云南区域深耕多年且设置有分行，此次合作或许可以发挥股份行在内部治理、信息科技方面的优势，同时也有助于中信银行进一步拓展当地业务。
 
-这改变背后，是南开大学软件学院与中央统战部挂职干部共同推动的一次社会实践。
+但受访业内人士同样强调，此类做法更多是特例，在当前市场环境下不会成为国股行的首选。
 
-南开大学软件学院依托南开大学“师生四同”暑期社会实践活动，组织师生赴赫章县水塘堡彝族苗族乡开展实地调研。
+“如果在部分信贷需求旺盛、前景良好的区域，适度扩张网点或者和其他机构加大合作，对银行来说还是具有一定意义。
 
-在新河村党支部的带领下，师生们与驻村干部一起下队入户，结合政策宣传、民情走访等工作，面对面了解群众生产生活中的实际困难和日常所需，梳理形成困难群众“微心愿”清单，并将相关需求上传公益平台，面向社会各界爱心人士公开发布，推动群众心愿点对点认领、精准化落实。
+不过，整体来看，目前中大型银行在业务扩张、参股地方银行等方面的主流做法还是偏向保守。
 
 ## 相关推荐
 
-- 2026-06-29 21:13 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 21:41 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 21:29 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 21:41 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 21:35 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 21:12 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
-- 2026-06-29 21:38 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 21:35 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 21:37 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 21:24 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 21:40 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 21:22 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 21:13 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 21:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 21:32 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 21:37 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 21:20 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 21:35 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 21:27 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 21:26 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 21:24 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-29 21:28 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 21:42 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 21:33 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 21:37 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 21:21 - [媒体：韩国队不能只在世预赛锋芒毕露](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 21:47 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [北京发布地质灾害气象风险蓝色预警](https://www.blog.kurohicncr.top/Article/details/171368.shtml)
-- 2026-06-29 21:30 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/7677679.shtml)
-- 2026-06-29 21:24 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/8564751528.shtml)
-- 2026-06-29 21:15 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/07389274.shtml)
-- 2026-06-29 21:25 - [欧洲安装一台空调要花近8000元](http://www.blog.minike.top/Article/details/558165522.shtml)
-- 2026-06-29 21:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/01839250.shtml)
-- 2026-06-29 21:13 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/265712028.shtml)
-- 2026-06-29 21:27 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/5201736102.shtml)
-- 2026-06-29 21:15 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.minike.top/Article/details/355943512534.shtml)
-- 2026-06-29 21:15 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/2877886.shtml)
-- 2026-06-29 21:29 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/727959094853.shtml)
-- 2026-06-29 21:40 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/97921774.shtml)
-- 2026-06-29 21:36 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/6653049.shtml)
-- 2026-06-29 21:17 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/90039.shtml)
-- 2026-06-29 21:29 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/2668256.shtml)
+- 2026-06-29 21:46 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/347342063848.shtml)
+- 2026-06-29 21:26 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/723995.shtml)
+- 2026-06-29 21:24 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/769439674781.shtml)
+- 2026-06-29 21:21 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/50739777716.shtml)
+- 2026-06-29 21:28 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/4251459.shtml)
+- 2026-06-29 21:39 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/9312937.shtml)
+- 2026-06-29 21:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/3205704435.shtml)
+- 2026-06-29 21:44 - [五只军犬招募领养人](http://www.share.kurohicncr.top/Article/details/41710.shtml)
+- 2026-06-29 21:31 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/628615.shtml)
+- 2026-06-29 21:25 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/266892006.shtml)
+- 2026-06-29 21:26 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/552431522148.shtml)
+- 2026-06-29 21:37 - [东宫女主是不是顶级恋爱脑](https://www.share.minike.top/Article/details/358875629803.shtml)
+- 2026-06-29 21:19 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/043423921001.shtml)
+- 2026-06-29 21:48 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/34114783522.shtml)
+- 2026-06-29 21:40 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/42465374818.shtml)

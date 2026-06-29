@@ -1,60 +1,58 @@
-# 凌晨，利好突袭！科技巨头，暴涨！
+# 圣保罗华星艺术团成立十周年暨华声艺术团成立三十周年庆典举行
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-一则重磅消息突然引爆。 受一系列利好消息刺激，美国云数据巨头Snowflake股价在美股盘后交易中大幅飙涨，一度暴涨近37%。消息面上，该公司公布了强劲财报业绩，并宣布未来五年将在亚马逊云服务（AWS）上投入60亿美元（约合人民币407亿元）。 隔夜美股市场，在美伊双方就停火谈判进展释放互相矛盾信号的背景下，美股三大指数仍维持窄幅震荡，勉强收涨并创出收盘历史新高，美股芯片股多数
+中新网圣保罗6月1日电 (记者 林春茵)当地时间5月31日晚，巴西圣保罗华星艺术团成立十周年暨原华声艺术团成立三十周年庆典在巴西圣保罗举行。中国驻圣保罗总领事余鹏，巴西华人协会会长叶周永，圣保罗华星艺术团团长李青霞，巴西友华人士，侨团、华文学校代表齐聚一堂，共庆华章。 圣保罗华星艺术团前身华声艺术团，由温州籍华侨李青霞等侨胞于1996年一手创立。国务院侨办于2016年授牌“文化
 
 ## 正文
 
-一则重磅消息突然引爆。
+中新网圣保罗6月1日电 (记者 林春茵)当地时间5月31日晚，巴西圣保罗华星艺术团成立十周年暨原华声艺术团成立三十周年庆典在巴西圣保罗举行。
 
-受一系列利好消息刺激，美国云数据巨头Snowflake股价在美股盘后交易中大幅飙涨，一度暴涨近37%。
+中国驻圣保罗总领事余鹏，巴西华人协会会长叶周永，圣保罗华星艺术团团长李青霞，巴西友华人士，侨团、华文学校代表齐聚一堂，共庆华章。
 
-消息面上，该公司公布了强劲财报业绩，并宣布未来五年将在亚马逊云服务（AWS）上投入60亿美元（约合人民币407亿元）。
+圣保罗华星艺术团前身华声艺术团，由温州籍华侨李青霞等侨胞于1996年一手创立。
 
-隔夜美股市场，在美伊双方就停火谈判进展释放互相矛盾信号的背景下，美股三大指数仍维持窄幅震荡，勉强收涨并创出收盘历史新高，美股芯片股多数下挫，费城半导体指数跌超1%。
+国务院侨办于2016年授牌“文化中国·华星艺术团”，此后连续8年举办华星闪耀新春快闪活动，每年赴巴西多地举办文化节、春节联欢活动，多次受邀赴智利、阿根廷、苏里南等拉美国家演出。
 
-美股云数据巨头暴涨 北京时间5月28日凌晨，在美股盘后交易中，Snowflake股价直线飙涨，一度暴涨近37%，截至06：50，涨幅达36.12%。
+余鹏在致辞中指出，圣保罗华星艺术团“不负授牌使命，一步步成长为巴西侨界中华文化传承的标杆，用一场场精彩演出守护海外侨胞的精神家园，擦亮了中华文化的海外名片”。
 
-消息面上，亚马逊宣布，Snowflake已承诺在五年内向AWS采购价值60亿美元的服务与技术，内容涵盖亚马逊自研的基于Arm架构的Graviton通用芯片，以及用于AI的GPU。
+搭建起中巴文明互鉴、民心相通的坚实桥梁，让中华文化在南美落地生根、熠熠生辉，为中巴全面战略伙伴关系持续发展，注入温暖持久的文化力量。
 
-这是继Anthropic承诺十年内在AWS投入逾1000亿美元之后，AWS在AI领域赢得的又一重大客户承诺，显示出其在云基础设施竞争中的持续吸引力。
+期许圣保罗华星艺术团持续擦亮华星品牌，继续当好中巴文明交流纽带，也希望各界朋友继续支持华星艺术团的发展，“让这颗‘文化中国’的星星之火，在圣保罗越燃越旺。
 
-与此同时，Snowflake公布的第一财季业绩全面超出市场预期，并给出高于预期的下季度业绩指引，具体来看： Snowflake截至4月30日的2026财年第一财季的调整后每股收益为39美分，营收为13.9亿美元，同比增长33%，LSEG汇总的分析师预期分别为每股32美分、13.2亿美元。
+” 叶周永致辞说，30年前，华声艺术团“在侨胞的期盼中应运而生”，成为旅巴侨胞传播中华优秀文化的先行者和播种者。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 21:24 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 21:20 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 21:18 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 21:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 21:30 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 21:38 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 21:23 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 21:30 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 21:35 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 21:35 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 21:41 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 21:31 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-29 21:17 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 21:31 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 21:46 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 21:42 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-29 21:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 21:36 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 21:36 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 21:21 - [笔记本电脑一年涨价近一倍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 21:44 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 21:41 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 21:37 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 21:40 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-29 21:45 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [无畏为自己的猫正名了](http://www.share.kurohicncr.top/Article/details/219969126.shtml)
-- 2026-06-29 21:20 - [杨紫有3部作品入围金鹰奖](http://www.blog.minike.top/Article/details/28451.shtml)
-- 2026-06-29 21:24 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/26435.shtml)
-- 2026-06-29 21:22 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/2718496.shtml)
-- 2026-06-29 21:14 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/71271859.shtml)
-- 2026-06-29 21:37 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/443962215495.shtml)
-- 2026-06-29 21:39 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/03538239086.shtml)
-- 2026-06-29 21:40 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/344756360.shtml)
-- 2026-06-29 21:23 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/5862145.shtml)
-- 2026-06-29 21:38 - [李思潼：不会介意大家夸我运气好](https://www.blog.minike.top/Article/details/990339.shtml)
-- 2026-06-29 21:31 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/23773277843.shtml)
-- 2026-06-29 21:38 - [C罗10球7球对垫底队](http://www.share.minike.top/Article/details/798989.shtml)
-- 2026-06-29 21:22 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/70986.shtml)
-- 2026-06-29 21:21 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/25119595.shtml)
-- 2026-06-29 21:25 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/22497726.shtml)
+- 2026-06-29 21:36 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/48638467.shtml)
+- 2026-06-29 21:34 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/0597452.shtml)
+- 2026-06-29 21:28 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/8635483.shtml)
+- 2026-06-29 21:23 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/52586.shtml)
+- 2026-06-29 21:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/68014236.shtml)
+- 2026-06-29 21:33 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/44389877.shtml)
+- 2026-06-29 21:23 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/9382239351.shtml)
+- 2026-06-29 21:43 - [千与千寻](https://www.share.kurohicncr.top/Article/details/526494304631.shtml)
+- 2026-06-29 21:19 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/405666202.shtml)
+- 2026-06-29 21:20 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/0771264669.shtml)
+- 2026-06-29 21:32 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/497446.shtml)
+- 2026-06-29 21:33 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/708119890.shtml)
+- 2026-06-29 21:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/9103271533.shtml)
+- 2026-06-29 21:22 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/132632479309.shtml)
+- 2026-06-29 21:46 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/71153.shtml)

@@ -1,61 +1,48 @@
-# 高盛称伊朗战争期间美元走强拖累外国官方美债需求
+# 网暴抗洪救灾村干部“戴金耳环” 相关网民被行政处罚
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-高盛称，美元在美伊冲突第一个月走强，促使外国官方机构卖出美国国债。 高盛策略师Isabella Rosenberg周三在报告中写道，美元是“经估值调整后外国官方美国国债需求最有意义的驱动因素之一”。外国持有的美国国债规模3月份从纪录高位回落，而彭博美元指数上涨2.4%，创7月份以来最大单月涨幅。 Rosenberg指出，这些转变似乎发生在一些外国政府在战争期间致力于支撑本国货币
+中新网6月2日电 据公安部网安局微信公众号消息，近日，湖南省石门县遭遇强降雨，一村干部连续多日坚守抗洪救灾一线，上门叫应、通知转移、安置群众、运送物资等，令无数网友动容。 然而，就在全社会积极为抗击灾害贡献力量的时候，却有极个别网民因其接受采访时的配饰，而对其进行无端指责，揣测“耳环有二两重”，并发布“普通农村妇女可戴不起金耳环”“把耳环捐了更感动”等贬低嘲讽类言论，干扰抗洪救
 
 ## 正文
 
-高盛称，美元在美伊冲突第一个月走强，促使外国官方机构卖出美国国债。
+中新网6月2日电 据公安部网安局微信公众号消息，近日，湖南省石门县遭遇强降雨，一村干部连续多日坚守抗洪救灾一线，上门叫应、通知转移、安置群众、运送物资等，令无数网友动容。
 
-高盛策略师Isabella Rosenberg周三在报告中写道，美元是“经估值调整后外国官方美国国债需求最有意义的驱动因素之一”。
+然而，就在全社会积极为抗击灾害贡献力量的时候，却有极个别网民因其接受采访时的配饰，而对其进行无端指责，揣测“耳环有二两重”，并发布“普通农村妇女可戴不起金耳环”“把耳环捐了更感动”等贬低嘲讽类言论，干扰抗洪救灾工作，影响恶劣。
 
-外国持有的美国国债规模3月份从纪录高位回落，而彭博美元指数上涨2.4%，创7月份以来最大单月涨幅。
+对此，公安网安部门迅速行动，依法查处网暴行为15起，对秦某某(男，44岁)、未某某(男，45岁)等依法行政处罚。
 
-Rosenberg指出，这些转变似乎发生在一些外国政府在战争期间致力于支撑本国货币并缓解资本外流之际。
-
-她表示，这很可能是一种暂时性模式，并不表明美国国债需求出现结构性转变。
-
-美国和以色列2月底对伊朗发动打击后，美元受益于对传统避险资产的需求，以及美国作为全球最大产油国的地位。
-
-冲突扰乱能源市场，加剧全球通胀担忧，给严重依赖进口能源的经济体带来压力。
-
-自战争开始以来，在彭博追踪的31种主要货币中，印度卢比、韩元、土耳其里拉和日元等位列兑美元表现最差的10种货币。
+公安机关网安部门将持续开展“净网”专项行动，聚焦网络暴力、网络水军、网络谣言等突出网络乱象，依法严厉打击相关违法犯罪活动，切实维护人民群众合法权益与网络空间秩序。
 
 ## 相关推荐
 
-- 2026-06-29 21:27 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 21:14 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 21:14 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 21:27 - [2026全国田径冠军赛江苏队4金收官](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 21:41 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 21:33 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 21:12 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-29 21:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 21:41 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 21:31 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 21:29 - [不烧钱的低成本爱好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 21:38 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 21:17 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 21:28 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 21:17 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 21:23 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 21:39 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 21:27 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-29 21:43 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 21:41 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 21:42 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 21:47 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 21:34 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 21:19 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 21:40 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:21 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/51304431.shtml)
-- 2026-06-29 21:19 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/8889140.shtml)
-- 2026-06-29 21:36 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/748111569948.shtml)
-- 2026-06-29 21:30 - [王楚钦开门红](https://www.blog.minike.top/Article/details/77962.shtml)
-- 2026-06-29 21:39 - [韩国股市绑架日本？高盛警告](https://www.blog.kurohicncr.top/Article/details/117616375.shtml)
-- 2026-06-29 21:37 - [恋与深空客服的回应](https://www.share.minike.top/Article/details/8870992132.shtml)
-- 2026-06-29 21:30 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/11169.shtml)
-- 2026-06-29 21:28 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/47302745.shtml)
-- 2026-06-29 21:24 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/6969418514.shtml)
-- 2026-06-29 21:38 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/02871806.shtml)
-- 2026-06-29 21:41 - [开电动汽车真的很省钱吗？](http://www.share.kurohicncr.top/Article/details/40951911325.shtml)
-- 2026-06-29 21:33 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/035823116.shtml)
-- 2026-06-29 21:18 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/952108759658.shtml)
-- 2026-06-29 21:28 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/38676.shtml)
-- 2026-06-29 21:40 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/19481.shtml)
+- 2026-06-29 21:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/4869543.shtml)
+- 2026-06-29 21:28 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/53748104180.shtml)
+- 2026-06-29 21:35 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/22815717.shtml)
+- 2026-06-29 21:42 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/80021185626.shtml)
+- 2026-06-29 21:31 - [本届世界杯已有5人涉性侵风波](https://www.blog.kurohicncr.top/Article/details/96490168.shtml)
+- 2026-06-29 21:41 - [沉睡花园](http://www.blog.minike.top/Article/details/544570455.shtml)
+- 2026-06-29 21:35 - [勇敢的心第二部](https://www.share.minike.top/Article/details/84664319.shtml)
+- 2026-06-29 21:26 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/5827382167.shtml)
+- 2026-06-29 21:33 - [2026全国田径冠军赛江苏队4金收官](http://www.blog.minike.top/Article/details/944602062.shtml)
+- 2026-06-29 21:34 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/7045047413.shtml)
+- 2026-06-29 21:41 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/7324746360.shtml)
+- 2026-06-29 21:38 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/399341451.shtml)
+- 2026-06-29 21:29 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/329433384588.shtml)
+- 2026-06-29 21:35 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/93097134087.shtml)
+- 2026-06-29 21:29 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/99278.shtml)

@@ -1,61 +1,57 @@
-# 华泰期货：巴西压榨进度较快，原糖期价大幅下跌
+# 外资一致看好A股，沪深300ETF华泰柏瑞（510300） 低费率布局A股核心资产
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 李馨 白糖观点 市场要闻与重要数据 期货方面，昨日收盘白糖2609合约5382元/吨，较前一日变动-7元/吨，幅度-0.13%。现货方面，广西南宁地区白糖现货价格5360元/吨，较前一日变动+10元/吨，现货基差SR09-22，较前一日变动+17。云南昆明地区白糖现货价格5205元/吨，较前一日变动+10元/吨，现货基差SR09-177，较前一日变动+1
+在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。 作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。Wind与交易所最新数据显示，截至2026年5月28日，该产
 
 ## 正文
 
-来源：华泰期货 作者： 李馨 白糖观点 市场要闻与重要数据 期货方面，昨日收盘白糖2609合约5382元/吨，较前一日变动-7元/吨，幅度-0.13%。
+在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。
 
-现货方面，广西南宁地区白糖现货价格5360元/吨，较前一日变动+10元/吨，现货基差SR09-22，较前一日变动+17。
+中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。
 
-云南昆明地区白糖现货价格5205元/吨，较前一日变动+10元/吨，现货基差SR09-177，较前一日变动+17。
+作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。
 
-近期市场资讯，UNICA最新发布半月报数据，巴西中南部4月下半月压榨甘蔗4006.17万吨，同比增加123.12%；产糖182.78万吨，同比增加96.85万吨；甘蔗制糖比38.16%，去年同期为45.23%，环比4月上半月32.93% 上调7.41%；出糖率116.89千克/吨，去年同期109.92。
+Wind与交易所最新数据显示，截至2026年5月28日，该产品基金规模达1380.49亿元，单日资金净流入3.53亿元，5月以来日均成交额高达58.90亿元，流动性优势突出。
 
-2026/27榨季截至4月下半月，巴西中南部累计压榨甘蔗6045.78万吨，同比增加74.58%；累计产糖247.5万吨，同比增加88.07万吨；累计甘蔗制糖比38.16%，上年同期的45.23%；累计出糖率112.58千克/吨（去年同期106.81）。
+外资机构明确看多，沪深300指数目标空间可观。
 
-市场分析 昨日郑糖期价窄幅整理。
+在5月策略报告中，高盛继续维持对中国股市的“超配”评级，并将沪深300指数未来12个月目标位上调至5300点，同时将A股2026年盈利增速预测上调至20%。
 
-原糖方面，尽管印度5月开始禁止食糖出口，但泰国增产超预期，巴西新季供应也将逐渐释放，泰国与巴西将迅速承接新增需求，短中期贸易流预计仍偏宽松。
+沪深300指数是A股市场的核心风向标之一。
 
-长期供应端存在利好因素，26/27榨季过剩压力预计明显减弱，原糖价格中枢或有所抬升，上方空间将取决于巴西新榨季制糖比以及全球厄尔尼诺效应的影响。
+其成分股构建了“科技+金融+能源+消费”的均衡框架，兼具多条景气主线，既是海内外机构长期持有的底仓配置工具，也是震荡行情中攻守兼备的优质资产。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-29 21:13 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 21:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 21:27 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 21:35 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-29 21:26 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 21:21 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 21:18 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 21:40 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 21:38 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 21:17 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 21:20 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 21:41 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 21:32 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 21:22 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 21:33 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 21:27 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 21:30 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 21:26 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 21:28 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 21:32 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 21:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 21:42 - [《新闻联播》正在直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 21:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 21:43 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 21:41 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/5686846308.shtml)
-- 2026-06-29 21:14 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/588369.shtml)
-- 2026-06-29 21:31 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/019992.shtml)
-- 2026-06-29 21:26 - [85花告别古偶](https://www.blog.minike.top/Article/details/518067797.shtml)
-- 2026-06-29 21:19 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/06861.shtml)
-- 2026-06-29 21:39 - [不烧钱的低成本爱好](http://www.share.minike.top/Article/details/439724527.shtml)
-- 2026-06-29 21:27 - [厨房装空调还是装冷烟机](http://www.blog.kurohicncr.top/Article/details/287460.shtml)
-- 2026-06-29 21:20 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/40746914291.shtml)
-- 2026-06-29 21:25 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/62511.shtml)
-- 2026-06-29 21:40 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/777135.shtml)
-- 2026-06-29 21:24 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/48935.shtml)
-- 2026-06-29 21:28 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/2136954562.shtml)
-- 2026-06-29 21:16 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/473795.shtml)
-- 2026-06-29 21:28 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/724736963.shtml)
-- 2026-06-29 21:22 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/53542056.shtml)
+- 2026-06-29 21:46 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/053929625510.shtml)
+- 2026-06-29 21:40 - [Ella回应SHE何时合体](https://www.share.minike.top/Article/details/761525985224.shtml)
+- 2026-06-29 21:35 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/172130908963.shtml)
+- 2026-06-29 21:47 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/017072.shtml)
+- 2026-06-29 21:33 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/686612506.shtml)
+- 2026-06-29 21:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/87197495.shtml)
+- 2026-06-29 21:26 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/27527.shtml)
+- 2026-06-29 21:27 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/75851045.shtml)
+- 2026-06-29 21:40 - [网红小徐直播时突遇地震](http://www.share.kurohicncr.top/Article/details/31995015.shtml)
+- 2026-06-29 21:22 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/0887549457.shtml)
+- 2026-06-29 21:25 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/044843.shtml)
+- 2026-06-29 21:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/05254083686.shtml)
+- 2026-06-29 21:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/967444114.shtml)
+- 2026-06-29 21:30 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/31984257.shtml)
+- 2026-06-29 21:33 - [杨德龙：创新药迎来新的发展机遇](https://www.share.kurohicncr.top/Article/details/8277651001.shtml)

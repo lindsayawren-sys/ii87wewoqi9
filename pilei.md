@@ -1,59 +1,57 @@
-# 5月27日美股成交额前20：美光市值突破1万亿美元
+# 习近平总书记关切事｜让“小胖墩”“小眼镜”少一些
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-周二美股成交额第1名美光科技收涨19.29%，成交656.58亿美元。美光科技股价飙升，市值一举突破1万亿美元大关。华尔街分析师普遍看好该股前景，其中瑞银尤为乐观，认为其长期协议带来的利好将推动股价有超过100%的上行空间。尽管上周初因存储芯片板块整体抛售而一度下跌，美光最终以显著涨幅结束上周交易。 此外有报道称，美国总统特朗普5月22日在纽约萨弗恩举行的大型集会上，公开点名赞
+原标题：习近平总书记关切事·关键小事｜让“小胖墩”“小眼镜”少一些 清风和畅，阳光洒满校园。上午大课间，节奏明快的音乐响起，北京市八一学校的学生们冲出教室，开始集体“阳光跑”。 这场学校组织的跑步活动每天一次，6000多名学生参与其中。 “一开始不太想跑，从两圈慢慢跑到三圈，后来确实感觉身体素质变好了。”15岁的初三学生李悦含说，“跑起来、动起来后，心情也好了，整个人放松了。”
 
 ## 正文
 
-周二美股成交额第1名美光科技收涨19.29%，成交656.58亿美元。
+原标题：习近平总书记关切事·关键小事｜让“小胖墩”“小眼镜”少一些 清风和畅，阳光洒满校园。
 
-美光科技股价飙升，市值一举突破1万亿美元大关。
+上午大课间，节奏明快的音乐响起，北京市八一学校的学生们冲出教室，开始集体“阳光跑”。
 
-华尔街分析师普遍看好该股前景，其中瑞银尤为乐观，认为其长期协议带来的利好将推动股价有超过100%的上行空间。
+这场学校组织的跑步活动每天一次，6000多名学生参与其中。
 
-尽管上周初因存储芯片板块整体抛售而一度下跌，美光最终以显著涨幅结束上周交易。
+“一开始不太想跑，从两圈慢慢跑到三圈，后来确实感觉身体素质变好了。
 
-此外有报道称，美国总统特朗普5月22日在纽约萨弗恩举行的大型集会上，公开点名赞扬美光科技，称其“真的很棒”。
+”15岁的初三学生李悦含说，“跑起来、动起来后，心情也好了，整个人放松了。
 
-值得注意的是，就在集会开始前数小时，期权市场已涌现多笔针对美光的巨额买单，其中最激进的一笔，是行权价1400美元、2027年1月到期的合约，单笔溢价逾141万美元，代表美光股价必须在不到8个月内从约745美元再大涨近90%，投资人才能获利。
+” “体育锻炼要从小抓起”“要让孩子们跑起来”……青少年的身心健康牵动着习近平总书记的心。
 
-受美光带动，其他存储芯片股集体走高。
+在多地考察时，总书记时常询问学生体育锻炼的情况，关心“小胖墩”“小眼镜”怎么样了，强调“要树立健康第一的教育理念”“促进学生身心健康、全面发展”。
 
-第2名英伟达收跌0.22%，成交392.17亿美元。
+“体育锻炼多一些，‘小胖墩’、‘小眼镜’就少一些” 在北京市八一学校，任教已37年的体育教师黄虹，对近年来课表上的变化，看得最清楚： 初中体育课从一周4节加到5节； 高中体育课从一周2节加到3节； 义务教育阶段的课间从10分钟延长到15分钟； 武术、击剑、飞镖、抖空竹、拳击……陆续增加了十余门选修课，让每个学生都能找到热爱的运动。
 
 ## 相关推荐
 
-- 2026-06-29 21:32 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-29 21:22 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 21:40 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 21:36 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 21:31 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 21:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 21:16 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 21:14 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 21:18 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 21:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-29 21:37 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 21:39 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 21:31 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 21:34 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 21:35 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 21:38 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-29 21:33 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 21:33 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 21:18 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 21:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 21:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 21:28 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 21:38 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 21:42 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/029029028988.shtml)
-- 2026-06-29 21:25 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/119709112145.shtml)
-- 2026-06-29 21:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/83716.shtml)
-- 2026-06-29 21:35 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/949659206542.shtml)
-- 2026-06-29 21:24 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/59734713.shtml)
-- 2026-06-29 21:30 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/9734288.shtml)
-- 2026-06-29 21:32 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/0425698.shtml)
-- 2026-06-29 21:29 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/494621974006.shtml)
-- 2026-06-29 21:41 - [俄罗斯为何考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/277767098.shtml)
-- 2026-06-29 21:23 - [美以这对亲密盟友要掰了吗](https://www.blog.kurohicncr.top/Article/details/863590489.shtml)
-- 2026-06-29 21:15 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/1347429.shtml)
-- 2026-06-29 21:27 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/268945.shtml)
-- 2026-06-29 21:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/95254528.shtml)
-- 2026-06-29 21:31 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/13028090.shtml)
-- 2026-06-29 21:32 - [乌是否掌握了扭转战局的钥匙](https://www.share.kurohicncr.top/Article/details/56120325.shtml)
+- 2026-06-29 21:47 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/4089931.shtml)
+- 2026-06-29 21:20 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/25224.shtml)
+- 2026-06-29 21:42 - [锐评白玉兰提名片段](http://www.share.minike.top/Article/details/588780.shtml)
+- 2026-06-29 21:38 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/880936557.shtml)
+- 2026-06-29 21:20 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/02091563.shtml)
+- 2026-06-29 21:40 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/549149795973.shtml)
+- 2026-06-29 21:25 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/9276800117.shtml)
+- 2026-06-29 21:25 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/73033131.shtml)
+- 2026-06-29 21:19 - [不烧钱的低成本爱好](https://www.share.minike.top/Article/details/675309.shtml)
+- 2026-06-29 21:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/21817807.shtml)
+- 2026-06-29 21:44 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/40200921.shtml)
+- 2026-06-29 21:40 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/10098270.shtml)
+- 2026-06-29 21:18 - [多人将马路护栏当球网打羽毛球](http://www.blog.kurohicncr.top/Article/details/5519038338.shtml)
+- 2026-06-29 21:46 - [欧洲安装一台空调要花近8000元](http://www.share.kurohicncr.top/Article/details/038310439394.shtml)
+- 2026-06-29 21:24 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/1655882.shtml)

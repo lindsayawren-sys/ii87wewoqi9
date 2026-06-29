@@ -1,58 +1,57 @@
-# 宁夏四年累计退出低端低效产能743.1万吨 万元GDP用水量下降超三成
+# 伦交所陈芳：跨国管理破局关键，换位思考是通用底层能力
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网银川5月27日电 (记者 于晶)作为全国首个水预算管理省域试点，宁夏将水预算管理纳入法治轨道，建立覆盖全行业、全用户的数字化管理体系，实现“先预算后用水、无预算不用水”。5月26日，水利部在银川召开的水预算管理试点现场会透露，与2020年相比，宁夏万元GDP用水量下降32.3%，非常规水利用率上升5.3个百分点。近四年来，宁夏累计退出低端低效产能743.1万吨，水资源不断
+专题：SWCC首届女性CEO大会 5月31日，上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会于上海召开。伦敦证券交易所集团北亚太区董事总经理、中国区总裁陈芳在现场分享观点：在跨国企业的管理与跨地域沟通中，换位思考是不可或缺的核心硬技能。 结合多年跨境管理实操经验，她总结出管理预期的两大核心心得： 一是前置沟通，抢占主动权。决策切忌后置推进，遇事提前预
 
 ## 正文
 
-中新网银川5月27日电 (记者 于晶)作为全国首个水预算管理省域试点，宁夏将水预算管理纳入法治轨道，建立覆盖全行业、全用户的数字化管理体系，实现“先预算后用水、无预算不用水”。
+专题：SWCC首届女性CEO大会 5月31日，上海市工商联女企业家联合会第一届第一次会员大会暨SWCC首届女性CEO大会于上海召开。
 
-5月26日，水利部在银川召开的水预算管理试点现场会透露，与2020年相比，宁夏万元GDP用水量下降32.3%，非常规水利用率上升5.3个百分点。
+伦敦证券交易所集团北亚太区董事总经理、中国区总裁陈芳在现场分享观点：在跨国企业的管理与跨地域沟通中，换位思考是不可或缺的核心硬技能。
 
-近四年来，宁夏累计退出低端低效产能743.1万吨，水资源不断向现代煤化工、大数据、葡萄酒、枸杞、冷凉蔬菜等特色优势产业聚集，实现了从“有多少汤泡多少馍”向“以好汤泡好馍”的转变。
+结合多年跨境管理实操经验，她总结出管理预期的两大核心心得： 一是前置沟通，抢占主动权。
 
-宁夏将水预算管理纳入重大改革任务，率先在全国将水预算管理写入地方性法规。
+决策切忌后置推进，遇事提前预判形势，主动向总部同步动向、释放预告，从源头做好预期管理，远比问题爆发后被动求援更高效从容。
 
-同时，出台水预算单位名录库管理、水预算基准额度核算等4项制度、2项团体标准，建立覆盖农业、工业、服务业、建筑业和居民生活、河湖生态、城乡环境等各行业用水的水预算单位名录。
+二是换位思考，读懂优先级差异。
 
-在数字化支撑方面，宁夏开发建设水预算综合管理系统，实现一级平台、集中部署、三级应用，从预算编制到决算评估全过程实现“足不出户、一网通办、一次办好”。
+身处区域视角认定的头等要事，站在全球总部的统筹维度未必是紧急事项。
 
-通过水预算管理，用水额度分解到每一行业、每一预算单元，全社会用水行为准则得以确立。
+跳出自身立场换位思考，才能打通跨境沟通壁垒，让跨国管理协同更顺畅。
 
-一系列数据印证了改革成效：与2020年相比，宁夏农业用水占比下降2.7个百分点，工业用水上升2.1个百分点；黄河水占比下降4.1个百分点，非常规水利用上升5.3个百分点；万元工业增加值用水量下降16.0%。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-29 21:38 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-29 21:21 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 21:28 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 21:34 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 21:40 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 21:28 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 21:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 21:21 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 21:29 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 21:41 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-29 21:28 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 21:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 21:26 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 21:20 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
+- 2026-06-29 21:23 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 21:43 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 21:32 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-29 21:32 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-29 21:39 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 21:20 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 21:45 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-29 21:39 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 21:45 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:15 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/5842582.shtml)
-- 2026-06-29 21:39 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](http://www.blog.minike.top/Article/details/79302108.shtml)
-- 2026-06-29 21:18 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/614297.shtml)
-- 2026-06-29 21:29 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/155462831.shtml)
-- 2026-06-29 21:34 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/53628501777.shtml)
-- 2026-06-29 21:14 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/941040.shtml)
-- 2026-06-29 21:34 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/2771541.shtml)
-- 2026-06-29 21:12 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/384998357.shtml)
-- 2026-06-29 21:22 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/43665033.shtml)
-- 2026-06-29 21:25 - [网友晒14年前支教影像等来学生评论](https://www.share.kurohicncr.top/Article/details/070079305.shtml)
-- 2026-06-29 21:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/725439019.shtml)
-- 2026-06-29 21:27 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/3445611.shtml)
-- 2026-06-29 21:24 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/116287243.shtml)
-- 2026-06-29 21:15 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/116264987.shtml)
-- 2026-06-29 21:21 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/7015861.shtml)
+- 2026-06-29 21:32 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/88715573290.shtml)
+- 2026-06-29 21:31 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/76692254008.shtml)
+- 2026-06-29 21:43 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/4856171590.shtml)
+- 2026-06-29 21:26 - [沉睡花园](http://www.blog.minike.top/Article/details/194694148.shtml)
+- 2026-06-29 21:33 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/91273245.shtml)
+- 2026-06-29 21:22 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/986973645398.shtml)
+- 2026-06-29 21:36 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.minike.top/Article/details/78102753590.shtml)
+- 2026-06-29 21:43 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/8652000441.shtml)
+- 2026-06-29 21:32 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/037973728.shtml)
+- 2026-06-29 21:26 - [王冰冰向全网安利哈兰德](http://www.share.kurohicncr.top/Article/details/42011549.shtml)
+- 2026-06-29 21:34 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/12657797280.shtml)
+- 2026-06-29 21:32 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/76298741092.shtml)
+- 2026-06-29 21:37 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/3202359608.shtml)
+- 2026-06-29 21:30 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/01097.shtml)
+- 2026-06-29 21:39 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/17071.shtml)

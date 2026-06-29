@@ -1,52 +1,57 @@
-# 重庆：万州、奉节未来24小时地质灾害橙色预警发布
+# 重磅监管落地 港股通与境内券商或迎新机遇
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月27日电 (张旭)5月27日17时，重庆市规划和自然资源局、重庆市气象局联合发布全市地质灾害气象风险预警。 5月27日20时至28日20时，万州、奉节2个区县(涉及2个乡镇、8个村社)属于地质灾害风险高地区，地质灾害气象风险预警等级为Ⅱ级(橙色预警)，垫江、涪陵、南川、梁平、忠县、丰都、开州、云阳、巫山、巫溪、城口、石柱、武隆、彭水、黔江、酉阳属于地质灾害风险较高
+5月22日，证监会联合八部门重拳整治非法跨境证券业务，对三家境外券商开出合计超22亿元罚没罚单，明确两年内全面清退境内非法业务。在此背景下，跨境投资需求将流向何方？港股通与境内券商或将迎来怎样的发展新机遇？（资料参考：证券时报《跨境投资强监管落地！三家头部券商遭重罚，跨境投资赛道重构开启》，2026.5.25） 监管重拳落地：终结境外券商灰色通道 据官方发布的《综合整治非法跨境
 
 ## 正文
 
-中新网重庆5月27日电 (张旭)5月27日17时，重庆市规划和自然资源局、重庆市气象局联合发布全市地质灾害气象风险预警。
+5月22日，证监会联合八部门重拳整治非法跨境证券业务，对三家境外券商开出合计超22亿元罚没罚单，明确两年内全面清退境内非法业务。
 
-5月27日20时至28日20时，万州、奉节2个区县(涉及2个乡镇、8个村社)属于地质灾害风险高地区，地质灾害气象风险预警等级为Ⅱ级(橙色预警)，垫江、涪陵、南川、梁平、忠县、丰都、开州、云阳、巫山、巫溪、城口、石柱、武隆、彭水、黔江、酉阳属于地质灾害风险较高地区，地质灾害气象风险预警等级为Ⅲ级(黄色预警)，沙坪坝、北碚、巴南、合川、两江新区、永川、江津、长寿、万盛、綦江、秀山属于有一定风险地区，地质灾害气象风险预警等级为Ⅳ级(蓝色预警)，请相关区县注意防范。
+在此背景下，跨境投资需求将流向何方？
 
-重庆市规划和自然资源局提醒，五月以来，全市遭遇多轮强降雨天气过程。
+港股通与境内券商或将迎来怎样的发展新机遇？
 
-本轮强降雨雨量大、范围广，且与前期降雨过程落区高度重叠，极易诱发山体滑坡、危岩崩塌、泥石流等地质灾害。
+（资料参考：证券时报《跨境投资强监管落地！
 
-请相关部门和市民游客高度重视，坚决克服侥幸心理、麻痹思想，共同做好防范。
+三家头部券商遭重罚，跨境投资赛道重构开启》，2026.5.25） 监管重拳落地：终结境外券商灰色通道 据官方发布的《综合整治非法跨境证券期货基金经营活动实施方案》，所有未持牌的境外机构在境内提供的开户、招揽、交易、结算等证券经纪服务，必须全部终止。
 
-(完)
+方案设置了为期两年的过渡期，期间存量业务实行“只卖不买、只出不进”，期满后全面关停境内服务，以彻底终结境外券商在境内的“灰色通道”。
+
+（资料参考：上海证券报《境外机构“灰色通道”终结：设置两年过渡期 投资者资产安全不受影响》，2026.5.23） 有分析称，方案聚焦取缔非法跨境证券期货基金经营活动，建立综合施策、标本兼治的长效机制，有利于净化资本市场生态，保障资本市场健康发展，也有利于引导投资者通过合法渠道开展境外投资，保护投资者合法权益。
+
+（资料参考：金融时报《证监会等部门整治非法跨境证券期货基金经营活动》，2026.5.24） 承接跨境财富管理需求，国内头部券商或受益 随着非法跨境通道被全面封堵，原本沉淀在境外非法平台的资金与客户，或成为境内合规券商的重要增量，此外，跨境财富管理赛道有望迎来全新发展机遇。
 
 ## 相关推荐
 
-- 2026-06-29 21:12 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 21:28 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 21:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 21:31 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 21:19 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 21:21 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 21:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 21:33 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 21:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 21:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 21:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-29 21:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 21:35 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 21:39 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 21:40 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-29 21:21 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 21:31 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 21:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 21:47 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 21:42 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 21:24 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:30 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/946919952.shtml)
-- 2026-06-29 21:29 - [沉睡花园](https://www.share.minike.top/Article/details/7597342.shtml)
-- 2026-06-29 21:32 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/646785620.shtml)
-- 2026-06-29 21:18 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/062518024959.shtml)
-- 2026-06-29 21:41 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/34724126092.shtml)
-- 2026-06-29 21:19 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/6017583937.shtml)
-- 2026-06-29 21:26 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/35505694622.shtml)
-- 2026-06-29 21:15 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/472544956.shtml)
-- 2026-06-29 21:38 - [面对热浪欧洲人为何陷入空调内耗](https://www.blog.kurohicncr.top/Article/details/97846845.shtml)
-- 2026-06-29 21:15 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/3651990.shtml)
-- 2026-06-29 21:18 - [网警提醒警惕高考查分陷阱](https://www.share.minike.top/Article/details/663259995382.shtml)
-- 2026-06-29 21:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/984964896378.shtml)
-- 2026-06-29 21:33 - [不烧钱的低成本爱好](http://www.blog.kurohicncr.top/Article/details/9963995723.shtml)
-- 2026-06-29 21:12 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/99078.shtml)
-- 2026-06-29 21:34 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/607637330.shtml)
+- 2026-06-29 21:26 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/0072929.shtml)
+- 2026-06-29 21:33 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/271388.shtml)
+- 2026-06-29 21:43 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/89914522.shtml)
+- 2026-06-29 21:33 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/14353655.shtml)
+- 2026-06-29 21:31 - [6.5万观众40分钟“丝滑”离场](https://www.share.minike.top/Article/details/53248503.shtml)
+- 2026-06-29 21:22 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/142971.shtml)
+- 2026-06-29 21:18 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.minike.top/Article/details/055337429.shtml)
+- 2026-06-29 21:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/92678477206.shtml)
+- 2026-06-29 21:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/9638885509.shtml)
+- 2026-06-29 21:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/8597842.shtml)
+- 2026-06-29 21:43 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/249732.shtml)
+- 2026-06-29 21:34 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/430353237.shtml)
+- 2026-06-29 21:19 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/597855.shtml)
+- 2026-06-29 21:44 - [王安宇聪明到导演组炸了](https://www.share.minike.top/Article/details/99060374.shtml)
+- 2026-06-29 21:45 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/3175788789.shtml)

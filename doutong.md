@@ -1,44 +1,58 @@
-# NIRAKU将于7月15日派发末期股息每股0.24日元
+# 连涨3日！百亿银行ETF华宝（512800）再涨1%，单日超2亿资金加仓
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-NIRAKU（01245）发布公告，该公司将于2026年7月15日派发末期股息每股0.24日元。责任编辑：卢昱君
+6月2日，银行板块延续强势，沪农商行涨超3%，中信银行涨超2%，招商银行、中国银行、建设银行等涨幅居前。百亿顶流银行ETF华宝（512800）场内价格涨逾1%。从日线走势看，自5月29日盘中下探阶段新低后，掉头向上连涨3日，接连收复5日、10日、20日线，逼近半年线，行情拐点或已出现。 近期板块轮动加速，行情波动加大，部分资金或存在高低切换需求。顶流银行ETF华宝（512800
 
 ## 正文
 
-NIRAKU（01245）发布公告，该公司将于2026年7月15日派发末期股息每股0.24日元。
+6月2日，银行板块延续强势，沪农商行涨超3%，中信银行涨超2%，招商银行、中国银行、建设银行等涨幅居前。
 
-责任编辑：卢昱君
+百亿顶流银行ETF华宝（512800）场内价格涨逾1%。
+
+从日线走势看，自5月29日盘中下探阶段新低后，掉头向上连涨3日，接连收复5日、10日、20日线，逼近半年线，行情拐点或已出现。
+
+近期板块轮动加速，行情波动加大，部分资金或存在高低切换需求。
+
+顶流银行ETF华宝（512800）资金面显著活跃，昨日单日大举吸金2.13亿元，近10日资金累计净流入逾3亿元。
+
+今年以来行情极致集中于科技成长等弹性板块，价值方向明显跑输。
+
+截至5月末，中证银行指数年内累计下跌6.87%，落后于大盘，42家上市银行全线“破净”，性价比凸显，高股息特性亦有望持续吸引长期资金配置。
+
+银河证券指出，银行基本面拐点基本确立，2026年业绩进入改善通道。
 
 ## 相关推荐
 
-- 2026-06-29 21:15 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 21:13 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 21:27 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 21:22 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 21:25 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 21:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 21:41 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 21:22 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 21:35 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-29 21:23 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 21:28 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 21:19 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 21:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 21:24 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 21:22 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 21:19 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 21:23 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 21:18 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-29 21:22 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 21:21 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 21:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 21:29 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/012528612258.shtml)
-- 2026-06-29 21:29 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/16347429.shtml)
-- 2026-06-29 21:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/149565596891.shtml)
-- 2026-06-29 21:20 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/2258789219.shtml)
-- 2026-06-29 21:14 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/57924611392.shtml)
-- 2026-06-29 21:31 - [海力士是全球AI行情的新亚盘风向标吗](http://www.share.kurohicncr.top/Article/details/05173.shtml)
-- 2026-06-29 21:17 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/50717.shtml)
-- 2026-06-29 21:15 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/771332.shtml)
-- 2026-06-29 21:32 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/2583514369.shtml)
-- 2026-06-29 21:13 - [田曦薇没招了](http://www.share.minike.top/Article/details/433271.shtml)
-- 2026-06-29 21:22 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/412675.shtml)
-- 2026-06-29 21:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/80575207557.shtml)
-- 2026-06-29 21:35 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/766005055.shtml)
-- 2026-06-29 21:14 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/5711741315.shtml)
-- 2026-06-29 21:21 - [古代人对纳妾的态度是什么样的？](https://www.share.kurohicncr.top/Article/details/40584639.shtml)
+- 2026-06-29 21:39 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/408177467.shtml)
+- 2026-06-29 21:26 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/4715772343.shtml)
+- 2026-06-29 21:41 - [女心理师](https://www.blog.kurohicncr.top/Article/details/7761016259.shtml)
+- 2026-06-29 21:39 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/79361207.shtml)
+- 2026-06-29 21:47 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/87744599.shtml)
+- 2026-06-29 21:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/15742308773.shtml)
+- 2026-06-29 21:33 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/8993141.shtml)
+- 2026-06-29 21:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/340172.shtml)
+- 2026-06-29 21:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/60131106.shtml)
+- 2026-06-29 21:44 - [勇敢的心第二部](https://www.share.minike.top/Article/details/67689094898.shtml)
+- 2026-06-29 21:25 - [如何看待乌空军3架米格-29被摧毁](https://www.blog.kurohicncr.top/Article/details/338537702694.shtml)
+- 2026-06-29 21:37 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/193760.shtml)
+- 2026-06-29 21:28 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/2510572.shtml)
+- 2026-06-29 21:34 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/639901416.shtml)
+- 2026-06-29 21:33 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/07576.shtml)

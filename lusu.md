@@ -1,56 +1,58 @@
-# 中国银行成功发行欧洲首笔自贸离岸债
+# A股更香？南向资金罕见单月净卖出，AI叙事正发生变化
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-来源：中国银行 近日，中国银行成功发行5亿元人民币自贸离岸债，期限9个月，发行利率为1.6%。这不仅是欧洲市场首笔成功落地发行的自贸离岸债，也是欧洲发行人首单引入自贸区分账核算单元（FTU）投资者的自贸离岸债创新实践。 本次发行由中国银行法兰克福分行作为发行人，中国银行香港分行、中国银行（香港）有限公司及中银国际控股有限公司担任牵头全球协调人，由银行间市场清算所股份有限公司提供
+近期，A股和港股市场表现出不同的资金变化。外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。相对港股，A股近期呈现更强的韧性。不过，机构人士认为，中长期看，南向资金增配趋势还将延续。 从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。 南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.5
 
 ## 正文
 
-来源：中国银行 近日，中国银行成功发行5亿元人民币自贸离岸债，期限9个月，发行利率为1.6%。
+近期，A股和港股市场表现出不同的资金变化。
 
-这不仅是欧洲市场首笔成功落地发行的自贸离岸债，也是欧洲发行人首单引入自贸区分账核算单元（FTU）投资者的自贸离岸债创新实践。
+外资流入A股，南向资金则出现近年来少见的单月净流出，5月净卖出35.54亿港元。
 
-本次发行由中国银行法兰克福分行作为发行人，中国银行香港分行、中国银行（香港）有限公司及中银国际控股有限公司担任牵头全球协调人，由银行间市场清算所股份有限公司提供登记托管服务。
+相对港股，A股近期呈现更强的韧性。
 
-该笔发行获得境外投资者踊跃认购，不仅彰显了国际资本市场对中国银行综合实力与信用资质的高度认可，也展现了中国银行在多元化融资方面的强劲实力，为欧洲企业及金融机构拓宽人民币多元化融资渠道提供了有力示范与借鉴。
+不过，机构人士认为，中长期看，南向资金增配趋势还将延续。
 
-自贸离岸债，全称自贸区离岸债券，是依托上海自贸区创新账户体系推出的重要跨境债务融资工具，遵循发行端、投资端“两头在外”原则，与离岸美元债券、离岸人民币债券（点心债）一起，构成了多层次、互补性的中资机构境外融资体系。
+从行业配置来看，半导体、计算机等板块受到资金追捧，然而，应当警惕的是，AI叙事整体发生变化。
 
-FTU，是境内金融机构为开展离岸业务和投资，在银行内部开立的自贸专用账户核算体系。
+南向资金再现单月净流出 Wind数据显示，5月南向资金成交净卖出35.54亿港元，折合人民币29.83亿元。
 
-首次引入FTU是此次发行最核心的突破，进一步扩大了投资者基础，切实推动了人民币国际使用。
+南向资金单月净卖出的情况较为少见，2022年以后，仅2023年6月出现过单月净卖出，当时的净卖出金额为58.48亿港元。
 
-中国银行将依托全球服务网络，不断丰富自贸离岸债发行产品和发行人类型，持续深化跨境投融资产品创新，为推进人民币国际使用、服务中欧经贸高水平合作贡献更多金融力量。
+个股方面，阿里巴巴、腾讯控股等大型互联网公司5月南向资金净卖出量居前，以阿里巴巴为例，5月14日单日南向资金净卖出37.96亿港元，5月最后7个交易日更是连续呈现净卖出。
 
 ## 相关推荐
 
-- 2026-06-29 21:16 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 21:41 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 21:22 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 21:40 - [面对热浪欧洲人为何陷入空调内耗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 21:18 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 21:32 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 21:20 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 21:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 21:41 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 21:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 21:28 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-29 21:43 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 21:36 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 21:34 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 21:36 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-29 21:39 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 21:42 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 21:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 21:42 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-29 21:24 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-29 21:44 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 21:35 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:16 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/516817.shtml)
-- 2026-06-29 21:39 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/00884018.shtml)
-- 2026-06-29 21:37 - [中外合作办学是“低分捷径”吗](https://www.share.minike.top/Article/details/68924.shtml)
-- 2026-06-29 21:26 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/5011845680.shtml)
-- 2026-06-29 21:16 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/43496763.shtml)
-- 2026-06-29 21:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/59972.shtml)
-- 2026-06-29 21:37 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/003893.shtml)
-- 2026-06-29 21:38 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/6825827.shtml)
-- 2026-06-29 21:18 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/3709459.shtml)
-- 2026-06-29 21:15 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/49417730667.shtml)
-- 2026-06-29 21:29 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/98282.shtml)
-- 2026-06-29 21:20 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/256195.shtml)
-- 2026-06-29 21:19 - [天气热脾气都变差了](http://www.share.kurohicncr.top/Article/details/078914.shtml)
-- 2026-06-29 21:38 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/75707.shtml)
-- 2026-06-29 21:16 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/3326559685.shtml)
+- 2026-06-29 21:44 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/961679131306.shtml)
+- 2026-06-29 21:24 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/063603329.shtml)
+- 2026-06-29 21:33 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/878091472030.shtml)
+- 2026-06-29 21:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/3666613.shtml)
+- 2026-06-29 21:36 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/233687.shtml)
+- 2026-06-29 21:34 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/71278221.shtml)
+- 2026-06-29 21:27 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/367333647.shtml)
+- 2026-06-29 21:18 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/46529353838.shtml)
+- 2026-06-29 21:26 - [一人一句祝党生日快乐](http://www.share.minike.top/Article/details/08572.shtml)
+- 2026-06-29 21:22 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/48044547007.shtml)
+- 2026-06-29 21:32 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/134678072355.shtml)
+- 2026-06-29 21:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/5793779536.shtml)
+- 2026-06-29 21:33 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/00472417398.shtml)
+- 2026-06-29 21:37 - [广东水利防汛Ⅳ级应急响应结束](http://www.share.minike.top/Article/details/323824.shtml)
+- 2026-06-29 21:38 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/581866432834.shtml)

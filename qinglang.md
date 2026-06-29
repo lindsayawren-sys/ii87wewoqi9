@@ -1,60 +1,48 @@
-# 国台办回应特朗普称“会和赖清德谈谈”
+# 习言道｜采取超常规措施，加大重点领域关键核心技术攻关力度
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。有记者问：近日，美国总统特朗普在被问及就美对台军售做出决定前，是否会与赖清德通话时称，会和他“谈谈”。赖清德称若有机会对话，将强调对美军购是维护台湾安全、维护台海和平稳定的必要手段。请问对此有何评论？国台办发言人陈斌华表示，我们坚决反对美国与中国台湾地区开展任何形式的官方往来，坚决反对美国向台湾出售武器。敦促美方落实好中
+6月1日出版的《求是》杂志发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《前瞻布局和发展未来产业》。这是习近平总书记2026年1月30日在二十届中央政治局第二十四次集体学习时的讲话。
 
 ## 正文
 
-中新网5月27日电 5月27日，国台办举行例行新闻发布会。
+6月1日出版的《求是》杂志发表中共中央总书记、国家主席、中央军委主席习近平的重要文章《前瞻布局和发展未来产业》。
 
-有记者问：近日，美国总统特朗普在被问及就美对台军售做出决定前，是否会与赖清德通话时称，会和他“谈谈”。
-
-赖清德称若有机会对话，将强调对美军购是维护台湾安全、维护台海和平稳定的必要手段。
-
-请问对此有何评论？
-
-国台办发言人陈斌华表示，我们坚决反对美国与中国台湾地区开展任何形式的官方往来，坚决反对美国向台湾出售武器。
-
-敦促美方落实好中美元首会晤重要共识，恪守一个中国原则和中美三个联合公报，慎之又慎处理台湾问题，停止向“台独”分裂势力发出错误信号，以实际行动维护台海和平稳定和中美关系稳定发展态势。
-
-民进党当局蓄意“倚美谋独”、“以武谋独”，升高两岸对立对抗，破坏台海和平稳定，是不折不扣的“两岸和平破坏者”、“台海危机制造者”。
-
-正告民进党当局，祖国统一势不可挡，买再多武器都是螳臂当车，只会让“台独”加速败亡。
+这是习近平总书记2026年1月30日在二十届中央政治局第二十四次集体学习时的讲话。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 21:13 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 21:41 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-29 21:19 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 21:28 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 21:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 21:37 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 21:21 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 21:31 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-29 21:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 21:31 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 21:30 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 21:12 - [日美楼市危机复盘：见底顺序曝光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 21:31 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 21:26 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 21:31 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 21:18 - [本届世界杯已有5人涉性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 21:27 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 21:28 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 21:29 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 21:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 21:20 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 21:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 21:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 21:20 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 21:39 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 21:43 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 21:25 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:33 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/98757535959.shtml)
-- 2026-06-29 21:24 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/47806.shtml)
-- 2026-06-29 21:38 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/150337.shtml)
-- 2026-06-29 21:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/92388954.shtml)
-- 2026-06-29 21:26 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/5927609634.shtml)
-- 2026-06-29 21:18 - [LPL第三赛段赛制公布](http://www.blog.minike.top/Article/details/014430688460.shtml)
-- 2026-06-29 21:26 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/324413458776.shtml)
-- 2026-06-29 21:32 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/3116893.shtml)
-- 2026-06-29 21:40 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/77156.shtml)
-- 2026-06-29 21:35 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/18912086678.shtml)
-- 2026-06-29 21:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/553276.shtml)
-- 2026-06-29 21:28 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/09813416.shtml)
-- 2026-06-29 21:34 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/229899259285.shtml)
-- 2026-06-29 21:15 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/83598.shtml)
-- 2026-06-29 21:33 - [一诺变着花样秀新驾照](https://www.blog.minike.top/Article/details/141713422563.shtml)
+- 2026-06-29 21:45 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/22291.shtml)
+- 2026-06-29 21:42 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/90406245.shtml)
+- 2026-06-29 21:36 - [爱很美味](https://www.share.minike.top/Article/details/345478871.shtml)
+- 2026-06-29 21:21 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/953326.shtml)
+- 2026-06-29 21:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/546414223554.shtml)
+- 2026-06-29 21:30 - [吴建豪和老婆差20岁](https://www.share.kurohicncr.top/Article/details/2142096368.shtml)
+- 2026-06-29 21:47 - [绘画区你赢了](http://www.share.minike.top/Article/details/76571971.shtml)
+- 2026-06-29 21:19 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/9205247.shtml)
+- 2026-06-29 21:39 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/39808480.shtml)
+- 2026-06-29 21:19 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/127212.shtml)
+- 2026-06-29 21:28 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/4253041534.shtml)
+- 2026-06-29 21:19 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/854270884422.shtml)
+- 2026-06-29 21:19 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/278293696192.shtml)
+- 2026-06-29 21:30 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/30193081.shtml)
+- 2026-06-29 21:29 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/930093454.shtml)

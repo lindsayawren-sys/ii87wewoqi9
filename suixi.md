@@ -1,59 +1,55 @@
-# 河南一农商行员工骗贷1600万，信贷员涉违法发放贷款被立案侦查
+# 池永模：合作共赢成为时代主流
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-原标题：一农商行员工骗贷1600万，信贷员涉违法发放贷款被立案侦查 2023年，河南省嵩县人民法院就一起巨额骗贷案件作出判决，被告人李某因骗取贷款罪，获刑三年十个月，由于李某名下已没有任何可供执行的财产，向其提供贷款的嵩县农村商业银行经济损失也高达1600余万元。 不过，李某并非外人，他本人曾是嵩县农商行的员工，并且担任过嵩县农商行何村支行行长，而其骗取的多笔贷款正是由嵩县农商
+专题：中韩企业可持续发展交流会 由新浪财经、洋河股份主办，中国国际商会协办的 “可持续全球领导者大会海外专场 中韩企业可持续发展交流会” 于 5 月 26 日 - 5 月 28 日在韩国首尔举行，主题为 “融聚・共赢”。韩国亚太经济协会理事长池永模参会并演讲。 池永模他介绍，韩国亚太经济协会与中国贸易促进会长期携手搭建中韩交流平台，已连续举办 11 届中韩交流活动，今年将迎来第
 
 ## 正文
 
-原标题：一农商行员工骗贷1600万，信贷员涉违法发放贷款被立案侦查 2023年，河南省嵩县人民法院就一起巨额骗贷案件作出判决，被告人李某因骗取贷款罪，获刑三年十个月，由于李某名下已没有任何可供执行的财产，向其提供贷款的嵩县农村商业银行经济损失也高达1600余万元。
+专题：中韩企业可持续发展交流会 由新浪财经、洋河股份主办，中国国际商会协办的 “可持续全球领导者大会海外专场 中韩企业可持续发展交流会” 于 5 月 26 日 - 5 月 28 日在韩国首尔举行，主题为 “融聚・共赢”。
 
-不过，李某并非外人，他本人曾是嵩县农商行的员工，并且担任过嵩县农商行何村支行行长，而其骗取的多笔贷款正是由嵩县农商行何村支行发放。
+韩国亚太经济协会理事长池永模参会并演讲。
 
-他骗取贷款的方法并不高明。
+池永模他介绍，韩国亚太经济协会与中国贸易促进会长期携手搭建中韩交流平台，已连续举办 11 届中韩交流活动，今年将迎来第十二届；双方还联合举办 POSCO 全球峰会，吸引韩国外交部及亚太 700 余家企业参与，有效推动学术研讨与未来产业深度交流。
 
-判决书指出，李某以他人名义或本人实际控制的公司名义，采取虚构贷款用途、编造虚假购销合同等方式，多次在嵩县农商行何村支行贷款。
+他认为，当前全球经济格局加速变革，合作共赢成为时代主流，本次交流会为中韩企业共享经验、发挥优势、挖掘合作机遇筑牢平台。
 
-在李某入狱服刑后，眼看其无法偿还贷款，嵩县农商行提起民事诉讼，分别起诉了李某骗贷案件中涉及的名义借款人、担保人和提供担保的公司，要求他们承担还款责任。
+中韩企业可依托技术互补、市场联动实现协同成长，未来协会将持续担当民间经济合作桥梁，推动两国企业务实合作走深走实。
 
-对此有担保人并不认同。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-他们认为，嵩县农商行和信贷员明知李某骗贷的相关情况，仍然违规发放贷款，由此造成的损失应该由银行自己承担。
-
-2025年10月，嵩县法院将信贷员杨某松等人的相关犯罪线索材料移送给了嵩县公安局，移送函中称信贷员的违规放贷行为，促成了李某骗取贷款罪的形成，给嵩县农商行造成巨大经济损失，涉嫌违法发放贷款罪。
+责任编辑：李思阳
 
 ## 相关推荐
 
-- 2026-06-29 21:36 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 21:40 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 21:22 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 21:41 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 21:20 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 21:23 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 21:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 21:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 21:27 - [高质量发展看新疆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 21:30 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 21:39 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 21:30 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 21:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 21:47 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 21:41 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 21:19 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 21:29 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 21:34 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-29 21:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 21:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 21:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 21:44 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 21:19 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 21:40 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/139959908.shtml)
-- 2026-06-29 21:24 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/0090304650.shtml)
-- 2026-06-29 21:36 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/85871.shtml)
-- 2026-06-29 21:34 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/72205644.shtml)
-- 2026-06-29 21:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/936422920.shtml)
-- 2026-06-29 21:36 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/480960099399.shtml)
-- 2026-06-29 21:12 - [女生学医适合选什么专业](https://www.share.kurohicncr.top/Article/details/47389.shtml)
-- 2026-06-29 21:27 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/9897186.shtml)
-- 2026-06-29 21:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/722520.shtml)
-- 2026-06-29 21:29 - [绘画区你赢了](https://www.share.minike.top/Article/details/6578275594.shtml)
-- 2026-06-29 21:37 - [扬名立万](http://www.share.kurohicncr.top/Article/details/88026789.shtml)
-- 2026-06-29 21:22 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/424826646.shtml)
-- 2026-06-29 21:36 - [TLAW零封DCG MSI](https://www.blog.minike.top/Article/details/7390709180.shtml)
-- 2026-06-29 21:12 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/56531787515.shtml)
-- 2026-06-29 21:31 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/994772794.shtml)
+- 2026-06-29 21:18 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/6104453.shtml)
+- 2026-06-29 21:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/618725828299.shtml)
+- 2026-06-29 21:40 - [送你一朵小红花](http://www.share.minike.top/Article/details/018266406.shtml)
+- 2026-06-29 21:27 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/581964.shtml)
+- 2026-06-29 21:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/209878003.shtml)
+- 2026-06-29 21:21 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/0975335341.shtml)
+- 2026-06-29 21:25 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/4814078819.shtml)
+- 2026-06-29 21:21 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/74932855498.shtml)
+- 2026-06-29 21:37 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/561618.shtml)
+- 2026-06-29 21:40 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/15484.shtml)
+- 2026-06-29 21:22 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/512531.shtml)
+- 2026-06-29 21:28 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.minike.top/Article/details/173752592514.shtml)
+- 2026-06-29 21:24 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/3476880888.shtml)
+- 2026-06-29 21:34 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.minike.top/Article/details/111390018261.shtml)
+- 2026-06-29 21:19 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/806793948809.shtml)

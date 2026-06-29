@@ -1,57 +1,59 @@
-# 瑞斯康集团订立贷款资本化协议和配售协议以偿还债务
+# 黑芝麻资金占用被坐实，监管下发预处罚
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-瑞斯康集团（01679）公布，于2026年5月27日，该公司与GEOS、海华、联嘉、宁军先生及郭磊女士订立贷款资本化协议，拟向该等认购人按每股股份0.46港元的价格发行合共约6981.7万股资本化股份，及本金额为约1.28亿港元的可换股债券，该等债券可按每股股份0.46港元的价格转换为合共约2.79亿股换股股份。贷款资本化完成后，认购人贷款项下的所有负债将被视为已获全数支付、清
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日晚间，黑芝麻（维权）披露公告称，公司及韦清文等相关当事人收到中国证监会广西监管局下发的《行政处罚事先告知书》。因涉嫌未及时披露关联方非经营性资金占用、2023年年报存在重大遗漏，上市公司及时任高管面临合计870万元的罚款。 黑芝麻于2026年4月被证监会立案，监管仅用了一个月的时间就查清其违法违规事实。根据《证券法》及
 
 ## 正文
 
-瑞斯康集团（01679）公布，于2026年5月27日，该公司与GEOS、海华、联嘉、宁军先生及郭磊女士订立贷款资本化协议，拟向该等认购人按每股股份0.46港元的价格发行合共约6981.7万股资本化股份，及本金额为约1.28亿港元的可换股债券，该等债券可按每股股份0.46港元的价格转换为合共约2.79亿股换股股份。
+登录新浪财经APP 搜索【信披】查看更多考评等级 5月29日晚间，黑芝麻（维权）披露公告称，公司及韦清文等相关当事人收到中国证监会广西监管局下发的《行政处罚事先告知书》。
 
-贷款资本化完成后，认购人贷款项下的所有负债将被视为已获全数支付、清偿及解除。
+因涉嫌未及时披露关联方非经营性资金占用、2023年年报存在重大遗漏，上市公司及时任高管面临合计870万元的罚款。
 
-0.46港元的贷款资本化价格较股份于2026年5月27日在联交所所报每股0.52港元的收市价折让约11.54%。
+黑芝麻于2026年4月被证监会立案，监管仅用了一个月的时间就查清其违法违规事实。
 
-于2026年5月27日（联交所交易时段后）， 公司与配售代理订立配售协议，拟透过配售代理按每股配售股份0.46港元的配售价配售最多约8586.96万股配售股份，所得净额约3900万港元，拟悉数用于偿还FXQ贷款及CL贷款。
+根据《证券法》及最高人民法院关于虚假陈述侵权民事赔偿的最新司法解释，因上市公司信息披露违法违规导致投资损失的，受损投资者有权提起民事诉讼，主张投资差额、佣金、印花税等损失。
 
-于本公告日期，认购人贷款项下累计的未偿还本金及利息总额约为人民币1.391亿元，公司并无足够财务资源悉数清偿。
+上海沪紫律师事务所刘鹏律师表示鉴于预处罚已送达，该公司信息披露违法违规坐实，投资者索赔条件更新为于2024年4月20日--2026年4月24日（含当日）期间买入，并在2026年4月25日之后卖出或仍持有而亏损的即可登记维权。
 
-NJ贷款已于2026年3月到期，而GL贷款、海华贷款及GEOS贷款将分别于2026年9月、2026年12月及2026年9月的一年内到期，公司不大可能有足够资金及时偿还该等贷款。
+（黑芝麻维权入口） 根据《事先告知书》，2023年，黑芝麻子公司广西南方食养工厂有限公司（2023年12月更名为南方黑芝麻（广西）健康粮仓工厂有限公司）通过预付第三方公司账款等方式转出资金，部分款项最终被黑芝麻关联方非经营性占用。
 
-责任编辑：卢昱君
+监管查明，相关非经营性资金占用累计发生额为1.86亿元，占最近一期经审计净资产的7.51%，黑芝麻未及时履行信息披露义务，公司也未在年报中披露上述事项。
+
+黑芝麻表示，截至2025年12月31日，关联方已归还前述全部非经营性占用资金本金。
 
 ## 相关推荐
 
-- 2026-06-29 21:33 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 21:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 21:19 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 21:31 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 21:23 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 21:36 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 21:18 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 21:36 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 21:40 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 21:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 21:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 21:29 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 21:13 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 21:20 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 21:37 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 21:37 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-29 21:32 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 21:28 - [北京发布地质灾害气象风险蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 21:25 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 21:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 21:40 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 21:36 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 21:39 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 21:22 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 21:32 - [韩国队主帅遭极端网友死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 21:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/07046.shtml)
-- 2026-06-29 21:24 - [啊啊啊](https://www.blog.minike.top/Article/details/3719945.shtml)
-- 2026-06-29 21:29 - [我国文化产业营收规模突破20万亿元](https://www.share.minike.top/Article/details/35120.shtml)
-- 2026-06-29 21:17 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/4959960.shtml)
-- 2026-06-29 21:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/277763.shtml)
-- 2026-06-29 21:40 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/197667.shtml)
-- 2026-06-29 21:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/582317509.shtml)
-- 2026-06-29 21:29 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/28440543.shtml)
-- 2026-06-29 21:32 - [《新闻联播》正在直播](https://www.blog.kurohicncr.top/Article/details/7127869.shtml)
-- 2026-06-29 21:39 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/901215999230.shtml)
-- 2026-06-29 21:41 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.minike.top/Article/details/1862028542.shtml)
-- 2026-06-29 21:32 - [金牌调解](https://www.share.minike.top/Article/details/883609333.shtml)
-- 2026-06-29 21:29 - [逃狱兄弟](http://www.share.minike.top/Article/details/17330831276.shtml)
-- 2026-06-29 21:14 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/2870636.shtml)
-- 2026-06-29 21:24 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/7673454781.shtml)
+- 2026-06-29 21:39 - [华工科技龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/214546434944.shtml)
+- 2026-06-29 21:37 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/92366.shtml)
+- 2026-06-29 21:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/36659.shtml)
+- 2026-06-29 21:40 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/910303367896.shtml)
+- 2026-06-29 21:42 - [起风了](http://www.blog.kurohicncr.top/Article/details/28515715.shtml)
+- 2026-06-29 21:21 - [曝iPhone涨价后不会再降](http://www.share.minike.top/Article/details/903657.shtml)
+- 2026-06-29 21:45 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/040204535630.shtml)
+- 2026-06-29 21:42 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/71383293426.shtml)
+- 2026-06-29 21:24 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/922599053703.shtml)
+- 2026-06-29 21:45 - [中国小将严子怡再现一投夺冠](http://www.share.kurohicncr.top/Article/details/000980.shtml)
+- 2026-06-29 21:30 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/98840742.shtml)
+- 2026-06-29 21:18 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/38807827704.shtml)
+- 2026-06-29 21:37 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/0668265827.shtml)
+- 2026-06-29 21:32 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/34296.shtml)
+- 2026-06-29 21:43 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/104962.shtml)

@@ -1,61 +1,59 @@
-# 安富利将出席美银证券全球技术会议，CEO解读Q1复苏信号
+# 软银登顶日本市值榜首，宣布向法国投资530亿美元布局AI
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-全球领先的电子元器件技术分销商和解决方案提供商安富利近日宣布，公司首席执行官Phil Gallagher将出席于2026年6月2日举行的美银证券全球技术会议。 会议安排与演讲主题 根据公告，Gallagher将于美国东部时间6月2日下午2：25发表演讲并参与问答环节。会议将在旧金山举行，投资者可通过安富利官网投资者关系页面收听现场网络直播，回放将在会议结束后提供。 Q1业绩超预
+核心要点 软银集团于周日宣布，计划在未来五年内向法国投资 450 亿欧元，用于建设人工智能基础设施。 这家科技巨头表示，该笔投资是其整体规划的一部分。按照总规模 750 亿欧元的方案，公司将在法国打造总装机容量达 5 吉瓦的 AI 数据中心。 据市场数据分析机构万得（FactSet）数据显示，软银目前市值已超越丰田，成为日本市值最高的企业。 软银透露，首期投资规划将在 2031
 
 ## 正文
 
-全球领先的电子元器件技术分销商和解决方案提供商安富利近日宣布，公司首席执行官Phil Gallagher将出席于2026年6月2日举行的美银证券全球技术会议。
+核心要点 软银集团于周日宣布，计划在未来五年内向法国投资 450 亿欧元，用于建设人工智能基础设施。
 
-会议安排与演讲主题 根据公告，Gallagher将于美国东部时间6月2日下午2：25发表演讲并参与问答环节。
+这家科技巨头表示，该笔投资是其整体规划的一部分。
 
-会议将在旧金山举行，投资者可通过安富利官网投资者关系页面收听现场网络直播，回放将在会议结束后提供。
+按照总规模 750 亿欧元的方案，公司将在法国打造总装机容量达 5 吉瓦的 AI 数据中心。
 
-Q1业绩超预期，亚洲和Farnell领涨 就在此次会议宣布前约七个月，安富利刚刚公布了2026财年第一季度（截至2025年9月27日）财报，多项指标超出管理层预期。
+据市场数据分析机构万得（FactSet）数据显示，软银目前市值已超越丰田，成为日本市值最高的企业。
 
-财报显示，第一季度营收达59亿美元，同比增长5.3%，环比增长5%，超出此前指引区间的上限。
+软银透露，首期投资规划将在 2031 年前，于法国北部上法兰西大区落地总容量 3.1 吉瓦的 AI 数据中心，选址涵盖敦刻尔克、博斯凯尔、布尚等城市。
 
-调整后稀释每股收益为0.84美元，接近指引区间的高端。
+软银在声明中表示：“这是集团在欧洲开展的规模最大的 AI 基础设施投资。
 
-分区域看，亚洲销售额同比增长10%，连续第五个季度实现同比增长，目前已占电子元器件业务销售额的一半以上。
+项目旨在通过扩充法国高性能算力资源，助力人工智能产业快速发展。
 
-美洲销售额同比增长3%，为2023财年以来首次实现年度同比增长。
+” 软银总裁孙正义于周一同法国总统埃马纽埃尔・马克龙一同出席新闻发布会，正式确认 750 亿欧元的投资计划。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-29 21:28 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 21:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 21:32 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-29 21:38 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 21:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 21:21 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 21:41 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 21:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 21:19 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 21:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 21:14 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 21:41 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 21:28 - [恋与深空各大应用商店评分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 21:40 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 21:25 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-29 21:43 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 21:28 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-29 21:19 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 21:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 21:24 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 21:21 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 21:26 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 21:35 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 21:45 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 21:26 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 21:25 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 21:32 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/683555.shtml)
-- 2026-06-29 21:27 - [LPL第三赛段赛制公布](https://www.blog.kurohicncr.top/Article/details/9056003.shtml)
-- 2026-06-29 21:24 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/7155939572.shtml)
-- 2026-06-29 21:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/45136940.shtml)
-- 2026-06-29 21:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/6213490341.shtml)
-- 2026-06-29 21:14 - [第二波数码涨价潮来袭](http://www.share.minike.top/Article/details/319635388175.shtml)
-- 2026-06-29 21:17 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/038742503178.shtml)
-- 2026-06-29 21:41 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/048460866930.shtml)
-- 2026-06-29 21:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://www.blog.minike.top/Article/details/207617472496.shtml)
-- 2026-06-29 21:24 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/014700.shtml)
-- 2026-06-29 21:18 - [高质量发展看新疆](http://www.share.minike.top/Article/details/120198088.shtml)
-- 2026-06-29 21:27 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/51078102150.shtml)
-- 2026-06-29 21:29 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/067584877.shtml)
-- 2026-06-29 21:12 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/0403565145.shtml)
-- 2026-06-29 21:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/539940158738.shtml)
+- 2026-06-29 21:19 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/767814.shtml)
+- 2026-06-29 21:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/76018.shtml)
+- 2026-06-29 21:46 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/580461.shtml)
+- 2026-06-29 21:36 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/490883821871.shtml)
+- 2026-06-29 21:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/45729802762.shtml)
+- 2026-06-29 21:42 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/3427102859.shtml)
+- 2026-06-29 21:34 - [LPL第三赛段赛制公布](https://www.share.minike.top/Article/details/1533323.shtml)
+- 2026-06-29 21:29 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/494692.shtml)
+- 2026-06-29 21:27 - [LPL第三赛段赛制公布](http://www.blog.kurohicncr.top/Article/details/4061064724.shtml)
+- 2026-06-29 21:34 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/50227641.shtml)
+- 2026-06-29 21:46 - [笔记本电脑一年涨价近一倍](http://www.blog.kurohicncr.top/Article/details/011971880.shtml)
+- 2026-06-29 21:28 - [斗破苍穹](http://www.blog.minike.top/Article/details/29305030558.shtml)
+- 2026-06-29 21:45 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/827657.shtml)
+- 2026-06-29 21:40 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/873852728.shtml)
+- 2026-06-29 21:23 - [战略导弹部队60年如何炼成大国长剑](https://www.blog.minike.top/Article/details/3270013.shtml)

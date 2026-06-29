@@ -1,56 +1,58 @@
-# 高盛因强劲的盈利前景将标普500指数年末目标上调至8,000点
+# 301096，重大事项终止！明天复牌！
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-高盛将标普500指数 的2026年底预测值从7，600点上调至8，000点，理由是企业盈利持续强劲。该目标值较该指数最近的收盘价7，519.12点高出6.4%。 高盛周二在一份报告中表示：“迄今为止，盈利增长是推动标普500指数整体回报的主要动力，我们预计未来几个月这一趋势将持续。” 该券商还将2026年标普500指数每股收益预期上调至340美元，意味着同比增长24%；2027
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！百诚医药（301096）控制权变更事项突然告吹。 5月24日，百诚医药发布停牌公告称，公司控股股东、实际控制人邵春能、楼金芳及其一致行动人正在筹划涉及公司控制权变更的重大事项，可能导致公司控制权发生变更。公司股票自5月25日开市起停牌。 5月31日晚间公告显示，停牌期间，公司控股股东、实际控制人与交易对方就
 
 ## 正文
 
-高盛将标普500指数 的2026年底预测值从7，600点上调至8，000点，理由是企业盈利持续强劲。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该目标值较该指数最近的收盘价7，519.12点高出6.4%。
+百诚医药（301096）控制权变更事项突然告吹。
 
-高盛周二在一份报告中表示：“迄今为止，盈利增长是推动标普500指数整体回报的主要动力，我们预计未来几个月这一趋势将持续。
+5月24日，百诚医药发布停牌公告称，公司控股股东、实际控制人邵春能、楼金芳及其一致行动人正在筹划涉及公司控制权变更的重大事项，可能导致公司控制权发生变更。
 
-” 该券商还将2026年标普500指数每股收益预期上调至340美元，意味着同比增长24%；2027年预期上调至385美元，进一步增长13%。
+公司股票自5月25日开市起停牌。
 
-高盛此举进一步加剧了券商看涨预期的浪潮，瑞银GWM上周刚刚上调了其展望，理由是强劲的人工智能驱动盈利有望帮助抵消通胀压力以及伊朗冲突带来的供应风险。
+5月31日晚间公告显示，停牌期间，公司控股股东、实际控制人与交易对方就可能导致公司控制权发生变动的相关重大事项进行了充分探讨。
 
-该券商表示，人工智能基础设施的受益者预计将推动今年该指数约一半的盈利增长，并补充称，尽管消费疲软和成本上升构成风险，但强劲的人工智能投资将抵消这些压力。
+“但由于涉及事项较多，相关交易方经慎重考虑、磋商，认真听取各方意见，决定终止筹划本次控制权变更事项。
 
-高盛分析师表示：“此外，尽管标普500指数的盈利预期增速快于指数价格涨幅，但作为AI基础设施核心的半导体股近期表现已超越其前瞻性盈利。
+”根据公告，公司股票将于6月1日（星期一）开市起复牌。
 
-”责任编辑：王永生
+百诚医药表示，公司目前各项经营情况正常，终止筹划本次重大事项不会对公司经营业绩和财务状况产生重大不利影响，公司将继续围绕既定发展战略，持续提升公司可持续发展能力和盈利水平，为公司和股东创造更大价值。
 
 ## 相关推荐
 
-- 2026-06-29 21:40 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 21:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 21:32 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-29 21:35 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 21:41 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 21:17 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 21:34 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 21:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 21:14 - [男子40度高温下骑行严重晒伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 21:36 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-29 21:22 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 21:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 21:21 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 21:23 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 21:39 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 21:34 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 21:26 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 21:46 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 21:37 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 21:45 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 21:37 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 21:31 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:27 - [日美楼市危机复盘：见底顺序曝光](http://www.blog.minike.top/Article/details/521600051.shtml)
-- 2026-06-29 21:39 - [蓝箭航天科创板IPO审核状态为已问询](http://www.share.kurohicncr.top/Article/details/5733038.shtml)
-- 2026-06-29 21:14 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/22141.shtml)
-- 2026-06-29 21:36 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/6892743000.shtml)
-- 2026-06-29 21:17 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/9128715.shtml)
-- 2026-06-29 21:14 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/1247798.shtml)
-- 2026-06-29 21:22 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/0452061895.shtml)
-- 2026-06-29 21:33 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/492572404.shtml)
-- 2026-06-29 21:39 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/0793168.shtml)
-- 2026-06-29 21:36 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/26171.shtml)
-- 2026-06-29 21:23 - [天道](https://www.share.kurohicncr.top/Article/details/29812581391.shtml)
-- 2026-06-29 21:13 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/954011.shtml)
-- 2026-06-29 21:25 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/45652.shtml)
-- 2026-06-29 21:18 - [王冰冰向全网安利哈兰德](https://www.share.kurohicncr.top/Article/details/594751532297.shtml)
-- 2026-06-29 21:41 - [田曦薇没招了](https://www.blog.minike.top/Article/details/6652426895.shtml)
+- 2026-06-29 21:27 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/267195.shtml)
+- 2026-06-29 21:46 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/94017740717.shtml)
+- 2026-06-29 21:40 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/10692319.shtml)
+- 2026-06-29 21:36 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/0333205.shtml)
+- 2026-06-29 21:18 - [中方绝不允许日菲侵害我海洋权益](http://www.share.minike.top/Article/details/71220441277.shtml)
+- 2026-06-29 21:27 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/6204906.shtml)
+- 2026-06-29 21:30 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/3045885.shtml)
+- 2026-06-29 21:25 - [本届世界杯已有5人涉性侵风波](http://www.share.minike.top/Article/details/344665123559.shtml)
+- 2026-06-29 21:40 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/930072681.shtml)
+- 2026-06-29 21:40 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.blog.minike.top/Article/details/730502471337.shtml)
+- 2026-06-29 21:30 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/12433314292.shtml)
+- 2026-06-29 21:41 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/17687027.shtml)
+- 2026-06-29 21:23 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/6309020.shtml)
+- 2026-06-29 21:35 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/2963441.shtml)
+- 2026-06-29 21:36 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/49900.shtml)

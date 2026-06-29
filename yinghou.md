@@ -1,56 +1,58 @@
-# 白宫草坪临时搭建UFC格斗场 庆独立250周年暨特朗普80大寿
+# 中韩企业可持续发展交流会在首尔举行
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-白宫又一项施工项目正在推进，不过这一回只是临时搭建。 工人们正在白宫南草坪搭建一座八角形格斗笼，用于举办下月的终极格斗冠军赛（UFC），以此纪念美国独立250周年——同时也是唐纳德・特朗普总统的80岁生日。 网上效果图展示了6月14日赛事前，这座完工后由铁丝网围起的格斗场地的样貌。场地四周将环绕红白蓝三色舞台，上方矗立着带有星条图案的巨型拱门，还设有两块大屏幕，实时直播赛事画面
+专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。26日，中韩企业可持续发展交流会在首尔SK崔钟贤学术院成功举办。本次会议以绿色转型、技术赋能、共生共长为核心，汇聚中韩政商学界精英，围绕ESG实践、AI与绿色科技、文化IP可持续、产业协同创新等议题展开深度对话，共商中韩企业可持续发
 
 ## 正文
 
-白宫又一项施工项目正在推进，不过这一回只是临时搭建。
+专题：中韩企业可持续发展交流会 5月26日至28日，由新浪财经与洋河股份联合主办、中国国际商会协办的“可持续全球领导者大会海外专场”在韩国首尔举行。
 
-工人们正在白宫南草坪搭建一座八角形格斗笼，用于举办下月的终极格斗冠军赛（UFC），以此纪念美国独立250周年——同时也是唐纳德・特朗普总统的80岁生日。
+26日，中韩企业可持续发展交流会在首尔SK崔钟贤学术院成功举办。
 
-网上效果图展示了6月14日赛事前，这座完工后由铁丝网围起的格斗场地的样貌。
+本次会议以绿色转型、技术赋能、共生共长为核心，汇聚中韩政商学界精英，围绕ESG实践、AI与绿色科技、文化IP可持续、产业协同创新等议题展开深度对话，共商中韩企业可持续发展合作新未来。
 
-场地四周将环绕红白蓝三色舞台，上方矗立着带有星条图案的巨型拱门，还设有两块大屏幕，实时直播赛事画面。
+SK集团崔钟贤学术院院长金裕锡、联合国前副秘书长金垣洙、新浪财经CEO邓庆旭、中国贸促会驻韩国代表处副总代表徐自强、社会价值研究院院长罗硕权、SKT ESG推进室室长严钟焕、知名编剧作家王小枪、台光EV CEO李成俊、全球报告倡议组织GRI前董事吕建中、洋河股份代表等嘉宾参会交流。
 
-格斗笼与舞台周围将设置数千个临时座位，场边区域还可容纳一支完整的军乐队，全程奏响激昂乐曲。
+会议由京华世家家族办公室董事长、北京大学战略研究所特约研究员聂俊峰主持。
 
-该项目是纪念1776年7月4日《独立宣言》签署250周年（半五百周年庆典）系列活动的一部分。
+金裕锡表示，面对全球气候、供应链与地缘政治等多重挑战，可持续发展已成为人类共同面对的命题，中韩企业唯有凝聚智慧、共享经验，才能找到切实解决方案。
 
-其他筹备活动还包括一场途经白宫的印地车赛，以及在国家广场举办的“美国盛大博览会”。
+崔钟贤学术院将持续搭建中韩学术与产业交流平台，推动绿色转型与ESG理念落地。
 
-特朗普表示，这座UFC赛事场地将打造为“白宫正门外一座拥有5000个座位的竞技场”。
+邓庆旭指出，中韩企业在可持续发展领域互补性极强。
 
 ## 相关推荐
 
-- 2026-06-29 21:39 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 21:23 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-29 21:17 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-29 21:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 21:40 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 21:25 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 21:12 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 21:20 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-29 21:14 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 21:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 21:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 21:28 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 21:22 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 21:28 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 21:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 21:43 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 21:35 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 21:19 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 21:32 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 21:31 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 21:26 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-29 21:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:23 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/02259.shtml)
-- 2026-06-29 21:30 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/46679750.shtml)
-- 2026-06-29 21:25 - [RAY评乘风2026总决赛](https://www.share.kurohicncr.top/Article/details/6014750973.shtml)
-- 2026-06-29 21:18 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/04745.shtml)
-- 2026-06-29 21:23 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/198226.shtml)
-- 2026-06-29 21:39 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/94028.shtml)
-- 2026-06-29 21:13 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.kurohicncr.top/Article/details/5962676195.shtml)
-- 2026-06-29 21:13 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/3608251.shtml)
-- 2026-06-29 21:34 - [锐评白玉兰提名片段](https://www.blog.kurohicncr.top/Article/details/0615960.shtml)
-- 2026-06-29 21:25 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/3934014.shtml)
-- 2026-06-29 21:35 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/737443301593.shtml)
-- 2026-06-29 21:31 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/177228.shtml)
-- 2026-06-29 21:41 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/519605861186.shtml)
-- 2026-06-29 21:21 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/618611903.shtml)
-- 2026-06-29 21:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/18824213.shtml)
+- 2026-06-29 21:34 - [千与千寻](http://www.share.kurohicncr.top/Article/details/82853967.shtml)
+- 2026-06-29 21:26 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/829817999101.shtml)
+- 2026-06-29 21:33 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/4496572918.shtml)
+- 2026-06-29 21:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/617044494729.shtml)
+- 2026-06-29 21:43 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/93637.shtml)
+- 2026-06-29 21:34 - [朱雀三号完成静态点火试验](https://www.share.kurohicncr.top/Article/details/653196298.shtml)
+- 2026-06-29 21:42 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/774953.shtml)
+- 2026-06-29 21:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/068850.shtml)
+- 2026-06-29 21:31 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/405845346.shtml)
+- 2026-06-29 21:27 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/68533.shtml)
+- 2026-06-29 21:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/757058591898.shtml)
+- 2026-06-29 21:36 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/9592896.shtml)
+- 2026-06-29 21:42 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/312192229538.shtml)
+- 2026-06-29 21:25 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/95092652.shtml)
+- 2026-06-29 21:36 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/74506860.shtml)

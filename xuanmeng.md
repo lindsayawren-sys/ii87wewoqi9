@@ -1,56 +1,56 @@
-# 去年买Compart、今年1.89亿元买下上海日扬，富创精密把并购触角伸向真空阀赛道 | 长三角资本局
+# 伊朗击落美军无人机后美军空袭伊朗，伊朗随后发起报复打击
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一家科创板半导体零部件公司，继续沿着并购路线补拼图。 5月26日晚，富创精密公告称，公司拟以现金方式收购日扬电子科技（上海）有限公司65%股权，交易对价为1.89亿元。交易完成后，上海日扬将纳入富创精密合并报表范围。 这不是一笔体量很大的交易，但位置并不边缘。公告显示，上海日扬主营真空腔体、真空阀、真空
+中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。伊朗方面承认随后发动报复性打击。与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。报道称，美伊双方相互攻击反映出停火十分脆弱。尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。 美国中央司令部称，美军于
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一家科创板半导体零部件公司，继续沿着并购路线补拼图。
+中新网6月1日电 据美联社报道，美国军方当地时间6月1日表示，在伊朗击落一架美国MQ-1“捕食者”无人机后，美军轰炸了伊朗境内的雷达和无人机控制站点。
 
-5月26日晚，富创精密公告称，公司拟以现金方式收购日扬电子科技（上海）有限公司65%股权，交易对价为1.89亿元。
+伊朗方面承认随后发动报复性打击。
 
-交易完成后，上海日扬将纳入富创精密合并报表范围。
+与此同时，科威特表示，其防空系统拦截了来袭的无人机和导弹。
 
-这不是一笔体量很大的交易，但位置并不边缘。
+报道称，美伊双方相互攻击反映出停火十分脆弱。
 
-公告显示，上海日扬主营真空腔体、真空阀、真空零组件及尾气处理设备等产品，产品主要应用于半导体、光伏、面板等领域。
+尽管美国和伊朗官员正试图通过谈判达成延长停火的协议，但袭击仍不断发生。
 
-对于一家以半导体设备精密零部件起家的公司而言，真空阀、真空腔体、真空零组件本身就处在设备核心零部件链条中。
+美国中央司令部称，美军于5月30日和31日在伊朗格鲁克市附近以及格什姆岛实施打击。
 
-富创精密此番出手，更像是在已有版图上补一块关键拼图。
+声明称，此次打击是为了回应伊朗击落一架在国际水域上空行动的美国MQ-1无人机等“侵略性行动”。
 
-过去一年，富创精密已经频繁出现在半导体零部件并购新闻里。
+美军称，美国战斗机摧毁了伊朗防空设施、一个地面控制站以及两架对通过地区水域的船只构成威胁的单向攻击无人机。
 
 ## 相关推荐
 
-- 2026-06-29 21:41 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 21:18 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 21:23 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-29 21:25 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 21:37 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 21:19 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 21:31 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 21:21 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 21:31 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 21:28 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 21:18 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 21:37 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 21:20 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 21:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 21:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-29 21:20 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 21:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 21:31 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 21:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 21:37 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:18 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/929082.shtml)
-- 2026-06-29 21:40 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/56478.shtml)
-- 2026-06-29 21:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/607970609107.shtml)
-- 2026-06-29 21:28 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/8840853173.shtml)
-- 2026-06-29 21:41 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/4929918.shtml)
-- 2026-06-29 21:18 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/10185.shtml)
-- 2026-06-29 21:39 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/341847536793.shtml)
-- 2026-06-29 21:26 - [2026全国田径冠军赛江苏队4金收官](https://www.share.kurohicncr.top/Article/details/374831548.shtml)
-- 2026-06-29 21:14 - [不烧钱的低成本爱好](https://www.blog.minike.top/Article/details/02044756075.shtml)
-- 2026-06-29 21:41 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/9925185166.shtml)
-- 2026-06-29 21:23 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/19130.shtml)
-- 2026-06-29 21:41 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/7731959031.shtml)
-- 2026-06-29 21:21 - [起风了](https://www.blog.minike.top/Article/details/535134728.shtml)
-- 2026-06-29 21:19 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/8164584.shtml)
-- 2026-06-29 21:29 - [TLAW零封DCG MSI](http://www.blog.kurohicncr.top/Article/details/007943332.shtml)
+- 2026-06-29 21:35 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/27059130.shtml)
+- 2026-06-29 21:40 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/72622588.shtml)
+- 2026-06-29 21:26 - [斗破苍穹](http://www.blog.minike.top/Article/details/725934.shtml)
+- 2026-06-29 21:28 - [流金岁月](https://www.share.kurohicncr.top/Article/details/2828882.shtml)
+- 2026-06-29 21:44 - [恋与深空道歉就够了吗](https://www.blog.kurohicncr.top/Article/details/7678130.shtml)
+- 2026-06-29 21:24 - [炽夏](https://www.blog.kurohicncr.top/Article/details/40724.shtml)
+- 2026-06-29 21:19 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/5867828.shtml)
+- 2026-06-29 21:38 - [韩国800万亿韩元押注半导体](http://www.blog.minike.top/Article/details/23811.shtml)
+- 2026-06-29 21:21 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/0007032.shtml)
+- 2026-06-29 21:33 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/545807.shtml)
+- 2026-06-29 21:45 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.blog.kurohicncr.top/Article/details/972927464159.shtml)
+- 2026-06-29 21:41 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/292094.shtml)
+- 2026-06-29 21:29 - [穆祉丞东方风云榜红毯](https://www.share.kurohicncr.top/Article/details/721538742.shtml)
+- 2026-06-29 21:33 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/868397595786.shtml)
+- 2026-06-29 21:18 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/78107254.shtml)

@@ -1,58 +1,59 @@
-# NextNav宣布赎回全部公开权证
+# “小生意”贴上“金名片” 个体工商户如何“创”出特色品牌
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-NextNav Inc．5月27日宣布，已就其全部流通在外的公开权证发出赎回通知。该批权证在纳斯达克交易，代码为NNAVW，行权价格为每股11.50美元。权证持有者可在2026年6月26日下午5时（纽约时间）前以现金方式行权，届时仍未行权的权证将以每份0.01美元的价格被强制赎回并注销。 触发条件：股价持续达标 此次赎回的触发条件是公司股票表现强劲。根据NextNav于2021
+中新网北京5月31日电(记者 左雨晴) 5月30日，全国先进个体工商户表彰大会在北京召开。市场监管总局党组书记、局长罗文出席会议并讲话。总局党组成员、副局长束为出席会议并宣读表彰决定，总局党组成员、副局长柳军主持会议。会议强调，当前，个体工商户发展迎来前所未有的政策红利和时代机遇，各项扶持举措密集出台，发展环境持续优化。与此同时，市场格局、经营业态、民生需求也在发生深刻变化，对
 
 ## 正文
 
-NextNav Inc．5月27日宣布，已就其全部流通在外的公开权证发出赎回通知。
+中新网北京5月31日电(记者 左雨晴) 5月30日，全国先进个体工商户表彰大会在北京召开。
 
-该批权证在纳斯达克交易，代码为NNAVW，行权价格为每股11.50美元。
+市场监管总局党组书记、局长罗文出席会议并讲话。
 
-权证持有者可在2026年6月26日下午5时（纽约时间）前以现金方式行权，届时仍未行权的权证将以每份0.01美元的价格被强制赎回并注销。
+总局党组成员、副局长束为出席会议并宣读表彰决定，总局党组成员、副局长柳军主持会议。
 
-触发条件：股价持续达标 此次赎回的触发条件是公司股票表现强劲。
+会议强调，当前，个体工商户发展迎来前所未有的政策红利和时代机遇，各项扶持举措密集出台，发展环境持续优化。
 
-根据NextNav于2021年10月28日签订的权证协议，若公司普通股在截至赎回通知日前第三个交易日的连续30个交易日内，有任意20个交易日的收盘价等于或超过每股18.00美元，公司即有权赎回全部权证。
+与此同时，市场格局、经营业态、民生需求也在发生深刻变化，对服务保障、监管规范、党建引领等工作提出新的更高要求。
 
-截至本周一，流通在外的权证数量约为1000万份。
+要主动识变、应变、求变，精准研判形势、明确发力方向，促进个体工商户稳步发展、提质增效。
 
-目前公司股价约为23美元，接近其52周高点，过去一年累计涨幅达74%。
+个体工商户是国民经济的“毛细血管”。
 
-NextNav首席财务官Tim Gray表示：“此举将简化我们的资本结构，为我们持续推进战略执行提供更大的财务灵活性。
+数据显示，2026年第一季度，全国新设经营主体509.8万户，其中新设个体工商户301.4万户，经营主体发展稳中向好，为第一季度国民经济良好开局提供有力支撑。
 
 ## 相关推荐
 
-- 2026-06-29 21:34 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 21:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 21:31 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 21:22 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 21:27 - [存储三巨头被告了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 21:28 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 21:21 - [林逸向方筱然求婚了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 21:21 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-29 21:28 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 21:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 21:24 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 21:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 21:31 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 21:21 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 21:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 21:21 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 21:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 21:24 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 21:31 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 21:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 21:41 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 21:31 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 21:24 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 21:33 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 21:22 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:13 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/979073486823.shtml)
-- 2026-06-29 21:26 - [扬名立万](https://www.share.minike.top/Article/details/52979.shtml)
-- 2026-06-29 21:29 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/64076955240.shtml)
-- 2026-06-29 21:13 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/44345137.shtml)
-- 2026-06-29 21:39 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/83885875725.shtml)
-- 2026-06-29 21:37 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/382586303.shtml)
-- 2026-06-29 21:21 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/232300944.shtml)
-- 2026-06-29 21:35 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/213566.shtml)
-- 2026-06-29 21:14 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/47048360.shtml)
-- 2026-06-29 21:18 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/02338.shtml)
-- 2026-06-29 21:28 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/77961290.shtml)
-- 2026-06-29 21:16 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/088274079.shtml)
-- 2026-06-29 21:30 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/062127010.shtml)
-- 2026-06-29 21:13 - [欧洲多国高温突破40摄氏度](http://www.blog.kurohicncr.top/Article/details/87396733941.shtml)
-- 2026-06-29 21:41 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/763008742128.shtml)
+- 2026-06-29 21:35 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/533412822.shtml)
+- 2026-06-29 21:42 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/25850794714.shtml)
+- 2026-06-29 21:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/91605564.shtml)
+- 2026-06-29 21:39 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/55117118.shtml)
+- 2026-06-29 21:37 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/94491.shtml)
+- 2026-06-29 21:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/3136487.shtml)
+- 2026-06-29 21:27 - [李思潼：不会介意大家夸我运气好](http://www.share.minike.top/Article/details/730386606.shtml)
+- 2026-06-29 21:20 - [卢卡申科发布解放军仪仗队视频](https://www.blog.minike.top/Article/details/5799768.shtml)
+- 2026-06-29 21:26 - [爱很美味](http://www.share.minike.top/Article/details/326812734077.shtml)
+- 2026-06-29 21:33 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/57379.shtml)
+- 2026-06-29 21:20 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/46052.shtml)
+- 2026-06-29 21:24 - [韩国800万亿韩元押注半导体](http://www.share.minike.top/Article/details/2696816158.shtml)
+- 2026-06-29 21:34 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/06545208999.shtml)
+- 2026-06-29 21:37 - [流金岁月](https://www.blog.minike.top/Article/details/03235.shtml)
+- 2026-06-29 21:24 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/741870.shtml)

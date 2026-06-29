@@ -1,56 +1,58 @@
-# Rigel将出席Jefferies全球医疗保健大会，重申全年盈利指引
+# （乡村行·看振兴）山西临汾近300万亩冬小麦开镰 夏收不停夏播不断
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-临床阶段生物技术公司Rigel Pharmaceuticals， Inc．（纳斯达克代码：RIGL）今日宣布，公司总裁兼首席执行官Raul Rodriguez将出席Jefferies全球医疗保健大会并发表公司演讲。会议将于2026年6月3日（星期三）在纽约举行，演讲定于美国东部时间上午8时45分开始。 Rigel是一家专注于血液系统疾病和癌症的商业阶段生物技术公司，成立于199
+中新网临汾6月1日电 (李庭耀 张春茂 尹娜)6月1日，在山西临汾侯马市上马街道办事处西阳呈村、张少村等地的麦田里，一辆辆小麦联合收割机驶入麦田，在金色的麦浪里往返作业，把成熟的麦穗变成金色的麦粒，拉开了临汾市近300万亩冬小麦收获的序幕。 “今年雨水充足，小麦长势好，麦秆粗壮，颗粒饱满。”在西阳呈村的麦田里，小麦种植户黄智强表示，“这里虽然是旱地，但是风调雨顺，经过‘一喷三防
 
 ## 正文
 
-临床阶段生物技术公司Rigel Pharmaceuticals， Inc．（纳斯达克代码：RIGL）今日宣布，公司总裁兼首席执行官Raul Rodriguez将出席Jefferies全球医疗保健大会并发表公司演讲。
+中新网临汾6月1日电 (李庭耀 张春茂 尹娜)6月1日，在山西临汾侯马市上马街道办事处西阳呈村、张少村等地的麦田里，一辆辆小麦联合收割机驶入麦田，在金色的麦浪里往返作业，把成熟的麦穗变成金色的麦粒，拉开了临汾市近300万亩冬小麦收获的序幕。
 
-会议将于2026年6月3日（星期三）在纽约举行，演讲定于美国东部时间上午8时45分开始。
+“今年雨水充足，小麦长势好，麦秆粗壮，颗粒饱满。
 
-Rigel是一家专注于血液系统疾病和癌症的商业阶段生物技术公司，成立于1996年，总部位于南旧金山。
+”在西阳呈村的麦田里，小麦种植户黄智强表示，“这里虽然是旱地，但是风调雨顺，经过‘一喷三防’等科学管理，小麦迎来了大丰收。
 
-公司目前拥有三款上市产品：TAVALISSE（fostamatinib，口服脾脏酪氨酸激酶抑制剂，用于治疗慢性免疫性血小板减少症）、GAVRETO（pralsetinib，用于非小细胞肺癌）以及REZLIDHIA（olutasidenib，用于IDH1突变型复发/难治性急性髓系白血病）。
+” 黄智强是农户，也是农机手。
 
-根据公司2026年5月发布的第一季度财报，Rigel实现总营收5880万美元，其中净产品销售额5490万美元，同比增长26%。
+他熟练驾驶着小巧的联合收割机在高低起伏的梯田里，有序进行着农机作业。
 
-TAVALISSE销售额为3730万美元，同比增长31%；REZLIDHIA销售额为800万美元，同比增长31%；GAVRETO销售额为960万美元，同比增长7%。
+在作业开始之前，临汾市农业机械发展中心、侯马市农业机械发展中心的农机专家，对农机手进行作业指导，降低机收损失，保障作业安全。
 
-公司实现净利润870万美元，合每股收益0.44美元。
+在张少村的麦田里，金黄的麦粒从小麦联合收割机出粮口倾泻而下，被装进了等待在地头的农用车车厢。
 
-截至3月31日，公司持有现金、现金等价物及短期投资1.467亿美元。
+夏收不停，夏播不断。
 
 ## 相关推荐
 
-- 2026-06-29 21:14 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 21:26 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-29 21:29 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 21:36 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 21:40 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-29 21:35 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-29 21:20 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 21:33 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 21:22 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-29 21:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 21:23 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-29 21:47 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 21:47 - [欧洲安装一台空调要花近8000元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 21:29 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 21:18 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 21:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 21:44 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 21:22 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-29 21:22 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 21:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-29 21:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 21:18 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:33 - [黄金也扛不住了](https://www.blog.minike.top/Article/details/0472255871.shtml)
-- 2026-06-29 21:16 - [炽夏](http://www.share.kurohicncr.top/Article/details/1617213.shtml)
-- 2026-06-29 21:35 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/9623955450.shtml)
-- 2026-06-29 21:25 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/8763319228.shtml)
-- 2026-06-29 21:34 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/425607070550.shtml)
-- 2026-06-29 21:32 - [中外合作办学是“低分捷径”吗](http://www.blog.minike.top/Article/details/18946655.shtml)
-- 2026-06-29 21:25 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/411814.shtml)
-- 2026-06-29 21:18 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/95717343424.shtml)
-- 2026-06-29 21:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/137321930.shtml)
-- 2026-06-29 21:22 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/872363365.shtml)
-- 2026-06-29 21:38 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/48399907960.shtml)
-- 2026-06-29 21:34 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/4117501414.shtml)
-- 2026-06-29 21:35 - [乌是否掌握了扭转战局的钥匙](http://www.share.kurohicncr.top/Article/details/162652155.shtml)
-- 2026-06-29 21:26 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/83004.shtml)
-- 2026-06-29 21:14 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/887538326.shtml)
+- 2026-06-29 21:18 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/37344554.shtml)
+- 2026-06-29 21:47 - [本届世界杯已有5人涉性侵风波](https://www.share.kurohicncr.top/Article/details/062732982.shtml)
+- 2026-06-29 21:30 - [《新闻联播》正在直播](http://www.share.minike.top/Article/details/281779.shtml)
+- 2026-06-29 21:38 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/093068431.shtml)
+- 2026-06-29 21:39 - [被中方管控的20家日本实体什么来头](https://www.share.kurohicncr.top/Article/details/26030479603.shtml)
+- 2026-06-29 21:39 - [金牌调解](http://www.share.kurohicncr.top/Article/details/80326024097.shtml)
+- 2026-06-29 21:47 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/00194175762.shtml)
+- 2026-06-29 21:28 - [流金岁月](http://www.share.kurohicncr.top/Article/details/71404.shtml)
+- 2026-06-29 21:28 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/3119009.shtml)
+- 2026-06-29 21:45 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/88037287.shtml)
+- 2026-06-29 21:20 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/28889.shtml)
+- 2026-06-29 21:47 - [恋与深空 巧合](https://www.share.minike.top/Article/details/827556196133.shtml)
+- 2026-06-29 21:37 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/683243750060.shtml)
+- 2026-06-29 21:39 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/7400868.shtml)
+- 2026-06-29 21:40 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/256652363296.shtml)

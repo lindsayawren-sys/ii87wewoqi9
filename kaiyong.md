@@ -1,57 +1,59 @@
-# （台海观澜）廿载守望 在福建泉州读懂“闽台缘”
+# 中信证券：测算当前AI与科技交易虽极致但尚未到极端
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。 2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|杨帆 玛西高娃 金鑫 当前AI和科技板块交易趋于极致，但我们认为这种极致背后是同样极致的宏观基本面分化：在投资、生产、盈利三个维度上，国内新动能和旧动能明显此消彼长，传统需求走弱而AI相关领域持续扩张。这种分化也不只在中国，美韩两国也存在宏观增长的分化，但成色有所不同，美国是AI支出和需求
 
 ## 正文
 
-中新社泉州5月27日电 题：廿载守望 在福建泉州读懂“闽台缘” 中新社记者 孙虹 “台胞捐赠的藏品涵盖宗教造像、陶瓷器皿、名人手稿、古籍文献、谱牒家书等多个品类。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”中国唯一一座以反映大陆与台湾历史关系为主题的国家一级博物馆——中国闽台缘博物馆馆长郑国防向中新社记者介绍，这些藏品见证了两岸同胞同心共绘闽台缘的深厚情谊。
+中信证券研究 文|杨帆 玛西高娃 金鑫 当前AI和科技板块交易趋于极致，但我们认为这种极致背后是同样极致的宏观基本面分化：在投资、生产、盈利三个维度上，国内新动能和旧动能明显此消彼长，传统需求走弱而AI相关领域持续扩张。
 
-2006年5月27日，坐落于福建泉州的中国闽台缘博物馆正式对外开放。
+这种分化也不只在中国，美韩两国也存在宏观增长的分化，但成色有所不同，美国是AI支出和需求的震中，韩国通过硬件供给大规模盈利，AI全球扩张浪潮也强力带动中国AI相关产品的景气程度不断走高。
 
-20年来，该馆通过各种方式充实文物藏品24560件、馆藏谱牒11456册、两岸家书9649件/套，其中40%的藏品为台胞捐赠；累计接待观众逾1770万人次，其中台胞逾103.8万人次。
+我们测算当前AI与科技交易虽极致但尚未到极端，与历史上四轮抱团交易相比，本轮极致交易的宏观基本面分化特征更为明显。
 
-“闽台缘”不只体现在馆名，更分布在馆里的各个角落。
+考虑到当前我国生产、出口和交易热度较大程度源自海外的外溢传导，短期关注外部变化：一是海外基本面分化持续性、盈利预期兑现度以及企业扩张是否仍靠自有资金而非债务融资；长期关注我国AI资本开支进一步释放，并有望提高对我国经济增长的贡献斜率。
 
-郑国防说，馆内收藏着数不尽的两岸故事，见证了300多个两岸家族的团圆、数千位游子的笑与泪。
+▍当前AI和科技板块交易趋于极致，而在“投资-生产-盈利”分析框架下，这种极致背后或也是极致的宏观基本面分化。
 
-志愿讲解员黄芳萍还记得，2019年7月自己第一次正式上岗讲解，接待的是一个台湾进香团。
+从指数表现来看，不管是沪深300和中证500，还是科创50和创业板50，4月信息技术板块在指数涨幅的贡献都超过一半以上。
 
-当她用闽南语说出“大家好”时，全团长辈们突然安静下来，有人眼眶泛红。
+我们从投资、生产、盈利三个角度看国内经济，新动能和旧动能正在明显分化。
 
 ## 相关推荐
 
-- 2026-06-29 21:26 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 21:22 - [王楚钦称抽签结果出来心情不好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 21:16 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 21:36 - [日本居酒屋自助挑战！3h连吃带喝，到底能赚到吗？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 21:21 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 21:29 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 21:18 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 21:18 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 21:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 21:20 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 21:36 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 21:30 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 21:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 21:30 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 21:26 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 21:37 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 21:33 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 21:25 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 21:42 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 21:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 21:47 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 21:22 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 21:34 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 21:27 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:33 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/291306.shtml)
-- 2026-06-29 21:28 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/549864878019.shtml)
-- 2026-06-29 21:35 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/2823998785.shtml)
-- 2026-06-29 21:36 - [民警拦截违法逃窜车辆时被撞牺牲](https://www.blog.kurohicncr.top/Article/details/90961.shtml)
-- 2026-06-29 21:41 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/12805474837.shtml)
-- 2026-06-29 21:22 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/995626762.shtml)
-- 2026-06-29 21:23 - [一台空调背后的全球化逻辑](https://www.blog.kurohicncr.top/Article/details/915126871.shtml)
-- 2026-06-29 21:34 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/007060.shtml)
-- 2026-06-29 21:32 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/6240420823.shtml)
-- 2026-06-29 21:32 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.minike.top/Article/details/4610422.shtml)
-- 2026-06-29 21:39 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/23859482.shtml)
-- 2026-06-29 21:14 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/55512.shtml)
-- 2026-06-29 21:23 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/1711697329.shtml)
-- 2026-06-29 21:31 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/71763.shtml)
-- 2026-06-29 21:41 - [日美楼市危机复盘：见底顺序曝光](https://www.blog.kurohicncr.top/Article/details/987121.shtml)
+- 2026-06-29 21:44 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/2376925030.shtml)
+- 2026-06-29 21:35 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/983412037874.shtml)
+- 2026-06-29 21:36 - [运20对中国空军的意义是什么](https://www.share.kurohicncr.top/Article/details/8306483560.shtml)
+- 2026-06-29 21:39 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/659823921205.shtml)
+- 2026-06-29 21:39 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/2288107238.shtml)
+- 2026-06-29 21:32 - [媒体：日本边磨刀边要货是做梦](http://www.share.kurohicncr.top/Article/details/6133781956.shtml)
+- 2026-06-29 21:33 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/4976143613.shtml)
+- 2026-06-29 21:23 - [王安宇聪明到导演组炸了](http://www.share.kurohicncr.top/Article/details/58175642.shtml)
+- 2026-06-29 21:25 - [请回答王牌2019](http://www.share.minike.top/Article/details/9846262.shtml)
+- 2026-06-29 21:20 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/143517193181.shtml)
+- 2026-06-29 21:38 - [东宫女主是不是顶级恋爱脑](http://www.share.kurohicncr.top/Article/details/753405118.shtml)
+- 2026-06-29 21:43 - [福建仙游一峡谷发生意外5人身亡](https://www.share.kurohicncr.top/Article/details/4449213029.shtml)
+- 2026-06-29 21:46 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/05851585.shtml)
+- 2026-06-29 21:43 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/300466342978.shtml)
+- 2026-06-29 21:46 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.kurohicncr.top/Article/details/08649947871.shtml)

@@ -1,59 +1,58 @@
-# 菲执法部门近来频频抓扣中国公民 中方提出严正交涉
+# 加沙地带和约旦河西岸发生数起袭击事件
 
-> 更新时间：2026-06-29 21:42:02 UTC+8
+> 更新时间：2026-06-29 21:48:02 UTC+8
 
 ## 摘要
 
-中新网5月27日电 据中国驻菲律宾大使馆微信公众号消息，中国驻菲律宾使馆发言人季凌鹏就菲执法部门近来频频抓扣中国公民表明立场。 发言人指出，中方高度重视维护在菲中国公民的人身安全与合法权益，对菲律宾军队、执法部门近来频频抓扣中国公民表示严重关切。针对每一起案件，中国驻菲使领馆均第一时间向菲方提出严正交涉，要求菲方根据《中华人民共和国和菲律宾共和国领事协定》规定，于4日内向中国驻
+中新社北京6月1日电 综合消息：加沙地带和约旦河西岸当地时间5月31日发生数起袭击事件，造成多人伤亡。 综合半岛电视台、土耳其阿纳多卢通讯社等媒体消息，一架以色列无人机5月31日对加沙地带北部加沙城海边的一处人群发动袭击，造成至少2人死亡、18人受伤。当天，加沙地带北部和中部其他地区也遭到以军袭击，造成多人受伤。 以方目前未对相关消息予以回应。以色列国防军同日通报称，过去一周，
 
 ## 正文
 
-中新网5月27日电 据中国驻菲律宾大使馆微信公众号消息，中国驻菲律宾使馆发言人季凌鹏就菲执法部门近来频频抓扣中国公民表明立场。
+中新社北京6月1日电 综合消息：加沙地带和约旦河西岸当地时间5月31日发生数起袭击事件，造成多人伤亡。
 
-发言人指出，中方高度重视维护在菲中国公民的人身安全与合法权益，对菲律宾军队、执法部门近来频频抓扣中国公民表示严重关切。
+综合半岛电视台、土耳其阿纳多卢通讯社等媒体消息，一架以色列无人机5月31日对加沙地带北部加沙城海边的一处人群发动袭击，造成至少2人死亡、18人受伤。
 
-针对每一起案件，中国驻菲使领馆均第一时间向菲方提出严正交涉，要求菲方根据《中华人民共和国和菲律宾共和国领事协定》规定，于4日内向中国驻菲使领馆通报中国公民被拘留、逮捕或以任何其他方式剥夺自由的事实并说明原因；依法公正处理有关案件，切实保障涉事中国公民人身安全、合法权益和人道主义待遇；如调查发现中国公民没有违反菲法律，应尽快释放相关人员，不得非法、超期羁押。
+当天，加沙地带北部和中部其他地区也遭到以军袭击，造成多人受伤。
 
-同时，使领馆第一时间向涉事中国公民提供领事保护与协助，已数次派员开展领事探视，协助其改善羁押条件并解决实际困难。
+以方目前未对相关消息予以回应。
 
-必须强调的是，中方尊重菲方司法主权和依法办案，但坚决反对针对中国公民的选择性、歧视性执法。
+以色列国防军同日通报称，过去一周，以军在加沙地带空袭并摧毁了巴勒斯坦伊斯兰抵抗运动(哈马斯)用于存储武器的三处设施。
 
-中方敦促菲方尽快依法妥善处理有关案件，不得滥权执法和政治操弄，不得损害中国公民人身安全和合法权益，以免给中菲正常人文交流和经贸往来造成干扰和冲击。
+据《以色列时报》报道，5月31日晚，一名巴勒斯坦男子在约旦河西岸南部的古什埃齐翁路口驾车冲撞路人，造成2人受伤。
 
-中方保留采取进一步措施的权利。
+该男子被以军当场击毙。
 
-鉴于近来菲方执法部门抓扣中国公民事件频发，使馆再次提醒在菲中国公民遵守菲法律法规，合法从业、合规经营，不从事与入境目的或签证种类不符活动并避免逾期居留。
+报道还称，2023年10月新一轮巴以冲突爆发后，约旦河西岸的暴力事件激增。
 
 ## 相关推荐
 
-- 2026-06-29 21:29 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 21:31 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 21:22 - [李思潼回应运气好演《给阿嬷的情书》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 21:40 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 21:29 - [无畏为自己的猫正名了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 21:26 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 21:18 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 21:26 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-29 21:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 21:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-29 21:39 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-29 21:40 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 21:38 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 21:30 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 21:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 21:18 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 21:35 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 21:25 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 21:20 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 21:35 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 21:33 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 21:43 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 21:24 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-29 21:44 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 21:40 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:35 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/5890632481.shtml)
-- 2026-06-29 21:14 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/9930064.shtml)
-- 2026-06-29 21:34 - [金鹰奖第二阶段投票明日开启](https://www.share.minike.top/Article/details/34504969041.shtml)
-- 2026-06-29 21:40 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/9410601.shtml)
-- 2026-06-29 21:27 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/541092738.shtml)
-- 2026-06-29 21:36 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/41867401207.shtml)
-- 2026-06-29 21:14 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/102516762733.shtml)
-- 2026-06-29 21:39 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/92569675531.shtml)
-- 2026-06-29 21:17 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/4823445229.shtml)
-- 2026-06-29 21:40 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/071075285.shtml)
-- 2026-06-29 21:37 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/924411.shtml)
-- 2026-06-29 21:17 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/28848.shtml)
-- 2026-06-29 21:28 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/51743925096.shtml)
-- 2026-06-29 21:25 - [巴黎区长紧急采购50台中国空调](https://www.share.minike.top/Article/details/75502.shtml)
-- 2026-06-29 21:35 - [我们的少年时代2](http://www.blog.minike.top/Article/details/6499083.shtml)
+- 2026-06-29 21:24 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/561155248.shtml)
+- 2026-06-29 21:24 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/87433736.shtml)
+- 2026-06-29 21:39 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/7000282.shtml)
+- 2026-06-29 21:35 - [女心理师](http://www.share.minike.top/Article/details/97299.shtml)
+- 2026-06-29 21:20 - [第一炉香](https://www.share.minike.top/Article/details/416608709254.shtml)
+- 2026-06-29 21:44 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/290668823234.shtml)
+- 2026-06-29 21:44 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/9398962003.shtml)
+- 2026-06-29 21:28 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/7956728429.shtml)
+- 2026-06-29 21:20 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/8878507.shtml)
+- 2026-06-29 21:46 - [速度与激情9](https://www.share.minike.top/Article/details/939474101201.shtml)
+- 2026-06-29 21:27 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/0720130.shtml)
+- 2026-06-29 21:22 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/62447.shtml)
+- 2026-06-29 21:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/45146489.shtml)
+- 2026-06-29 21:32 - [时光音乐会](https://www.blog.minike.top/Article/details/71785105416.shtml)
+- 2026-06-29 21:34 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/892805671069.shtml)
