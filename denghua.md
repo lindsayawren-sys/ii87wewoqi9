@@ -1,57 +1,60 @@
-# 高盛称如果霍尔木兹海峡再关闭一个月 布伦特原油均价料超过100美元
+# 南方强降雨带南落至广东海南等地 北方炎热升级
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-高盛集团表示，如果霍尔木兹海峡再关闭一个月，布伦特原油2026年平均价格将超过每桶100美元。 “局势仍然瞬息万变，”Daan Struyven等分析师在美伊两国开始为期两周的停火后发布研报称，美国副总统JD·万斯指出停火协议十分脆弱。“我们仍然认为，价格预测面临的风险偏向上行。” 目前，高盛的基本预期是：从本周末开始，经由海峡的能源运输量将开始逐渐增加，随后波斯湾原油出口将在
+中国天气网讯 随着冷空气快速向南推进，今天(5月8日)南方降雨范围将向广东、海南一带收缩，局地有暴雨，明天上述地区降雨也会明显减弱，此轮过程基本收尾。北方在阳光加持之下，今起气温进入反弹模式，本周日到下周初，西北到华北平原多地将迎来今年首个高温天。 南方降雨范围向南收缩 广东海南等地局地仍有暴雨 昨天，南方大范围降雨依然在线，局地雨势强劲，在冷空气和降雨共同影响下，南方进入集中
 
 ## 正文
 
-高盛集团表示，如果霍尔木兹海峡再关闭一个月，布伦特原油2026年平均价格将超过每桶100美元。
+中国天气网讯 随着冷空气快速向南推进，今天(5月8日)南方降雨范围将向广东、海南一带收缩，局地有暴雨，明天上述地区降雨也会明显减弱，此轮过程基本收尾。
 
-“局势仍然瞬息万变，”Daan Struyven等分析师在美伊两国开始为期两周的停火后发布研报称，美国副总统JD·万斯指出停火协议十分脆弱。
+北方在阳光加持之下，今起气温进入反弹模式，本周日到下周初，西北到华北平原多地将迎来今年首个高温天。
 
-“我们仍然认为，价格预测面临的风险偏向上行。
+南方降雨范围向南收缩 广东海南等地局地仍有暴雨 昨天，南方大范围降雨依然在线，局地雨势强劲，在冷空气和降雨共同影响下，南方进入集中降温时段，多地隔天如换季。
 
-” 目前，高盛的基本预期是：从本周末开始，经由海峡的能源运输量将开始逐渐增加，随后波斯湾原油出口将在一个月内逐步恢复至战前水平。
+监测显示，昨天至今晨广西桂林、梧州、玉林，湖南衡阳和邵阳，广东江门等局地出现大暴雨。
 
-在这种情况下，布伦特第三季度均价预计为每桶82美元，第四季度为每桶80美元。
+今天随着冷空气继续推进，江南大部地区降雨减弱，并向广东、海南一带收缩，明天华南降雨也会明显减弱，此轮过程基本收尾。
 
-他们表示，根据该银行对不利情境的预测，包括重新开放海峡“推迟”一个月，预计布伦特下半年均价将高于每桶100美元。
+不过，12日起南方又会迎来新一轮较强降水过程。
 
-另一种结果是，由于停产时间延长和部分地区产量下降，预计布伦特油价在第三季度将达到每桶120美元，第四季度将达到每桶115美元。
+具体来看，今天西藏中东部、青海大部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大到暴雪；福建中南部、广东东部和南部、广西东部、云南南部、海南岛、台湾岛东部等地部分地区有中到大雨，其中，广东东部和西南部沿海、海南岛中部等地部分地区有暴雨或大暴雨。
 
-布伦特原油期货价格最新报每桶97美元附近，此前停火协议宣布后周三下跌了13%。
+明天，西藏东部和南部、新疆北部山区、青海中东部、甘肃河西、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大到暴雪；四川南部、云南中南部、广西东南部、广东中西部、海南岛中西部、台湾岛东部等地部分地区有中到大雨，其中，海南岛西部等地部分地区有暴雨。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 02:20 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 02:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 02:20 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 02:06 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 02:18 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 02:19 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 02:16 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 02:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 02:32 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 02:23 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 02:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 02:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-30 02:34 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 02:37 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 02:19 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 02:16 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 02:28 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-30 02:40 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 02:34 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 02:16 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 02:18 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 02:36 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 02:17 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 02:32 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/33440750826.shtml)
-- 2026-06-30 02:33 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/199723296738.shtml)
-- 2026-06-30 02:36 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/27711910.shtml)
-- 2026-06-30 02:17 - [巴西扳平比分](http://www.blog.minike.top/Article/details/8955918560.shtml)
-- 2026-06-30 02:27 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/3063873989.shtml)
-- 2026-06-30 02:12 - [小娘惹](http://www.share.minike.top/Article/details/6569554.shtml)
-- 2026-06-30 02:33 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/230012180530.shtml)
-- 2026-06-30 02:24 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/682613156.shtml)
-- 2026-06-30 02:17 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/56554.shtml)
-- 2026-06-30 02:15 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/78613.shtml)
-- 2026-06-30 02:28 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/05106.shtml)
-- 2026-06-30 02:27 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/322414555718.shtml)
-- 2026-06-30 02:34 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/71922218372.shtml)
-- 2026-06-30 02:29 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/1236065.shtml)
-- 2026-06-30 02:12 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/8056046161.shtml)
+- 2026-06-30 02:26 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/4388172.shtml)
+- 2026-06-30 02:26 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/458611358.shtml)
+- 2026-06-30 02:34 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/588914418429.shtml)
+- 2026-06-30 02:18 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/626222608.shtml)
+- 2026-06-30 02:23 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/86541.shtml)
+- 2026-06-30 02:12 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/255746153.shtml)
+- 2026-06-30 02:34 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/41014.shtml)
+- 2026-06-30 02:33 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/89196542.shtml)
+- 2026-06-30 02:12 - [月亮](https://www.share.minike.top/Article/details/62814321.shtml)
+- 2026-06-30 02:28 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/63724693616.shtml)
+- 2026-06-30 02:26 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/119139581943.shtml)
+- 2026-06-30 02:37 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/806019.shtml)
+- 2026-06-30 02:34 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/7389912707.shtml)
+- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/96308982450.shtml)
+- 2026-06-30 02:36 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/654428548963.shtml)

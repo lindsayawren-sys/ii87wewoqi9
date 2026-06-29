@@ -1,45 +1,60 @@
-# Anthropic搁置Mythos，推出玻璃翼项目
+# 关键节点伊朗外长访华 中伊外长会谈释放多重信号
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-微软（MSFT）和其他合作伙伴正在“玻璃翼项目（Glasswing）”下测试Anthropic强大的Claude Mythos预览版，以大规模发现和修补零日漏洞，而该模型因被滥用的风险尚未发布。责任编辑：张俊 SF065
+中新社北京5月6日电 (记者 郭超凯)中共中央政治局委员、外交部长王毅6日在北京同伊朗外长阿拉格齐举行会谈。这是今年2月底美以伊战事发生以来伊朗外长首次访华，备受国际社会关注。 自战事发生以来，中方一直积极劝和促谈，当前地区局势正处于战和转换的关键节点。受访专家指出，中方提出维护和促进中东和平稳定的四点主张，得到国际社会积极响应。在中东局势复杂多变背景下，中伊外长此次会谈释放出
 
 ## 正文
 
-微软（MSFT）和其他合作伙伴正在“玻璃翼项目（Glasswing）”下测试Anthropic强大的Claude Mythos预览版，以大规模发现和修补零日漏洞，而该模型因被滥用的风险尚未发布。
+中新社北京5月6日电 (记者 郭超凯)中共中央政治局委员、外交部长王毅6日在北京同伊朗外长阿拉格齐举行会谈。
 
-责任编辑：张俊 SF065
+这是今年2月底美以伊战事发生以来伊朗外长首次访华，备受国际社会关注。
+
+自战事发生以来，中方一直积极劝和促谈，当前地区局势正处于战和转换的关键节点。
+
+受访专家指出，中方提出维护和促进中东和平稳定的四点主张，得到国际社会积极响应。
+
+在中东局势复杂多变背景下，中伊外长此次会谈释放出明确的和平信号，有助于稳定各方预期，为后续外交谈判创造空间。
+
+阿拉格齐在会谈中通报了伊美谈判最新情况及伊方下步考虑。
+
+王毅则重申中方对伊朗局势的原则立场，强调“全面止战刻不容缓，重启战端更不可取，坚持谈判尤为重要”。
+
+探寻长效和平解决方案成为双方会谈的重要议题。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 02:33 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 02:14 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 02:33 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 02:27 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 02:34 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 02:23 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 02:08 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 02:35 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
-- 2026-06-30 02:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 02:32 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 02:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 02:26 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 02:41 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 02:38 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 02:26 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-30 02:29 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 02:17 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 02:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 02:23 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 02:15 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 02:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 02:18 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 02:17 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/454329801521.shtml)
-- 2026-06-30 02:24 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/620462275167.shtml)
-- 2026-06-30 02:32 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/91587201527.shtml)
-- 2026-06-30 02:30 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/39845461.shtml)
-- 2026-06-30 02:13 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/76528909.shtml)
-- 2026-06-30 02:31 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/49418.shtml)
-- 2026-06-30 02:17 - [金牌调解](http://www.share.kurohicncr.top/Article/details/364463050.shtml)
-- 2026-06-30 02:27 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/3221867067.shtml)
-- 2026-06-30 02:35 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/25438963044.shtml)
-- 2026-06-30 02:09 - [《贺子珍》](https://www.blog.minike.top/Article/details/750938991.shtml)
-- 2026-06-30 02:16 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/072887676.shtml)
-- 2026-06-30 02:25 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/155775.shtml)
-- 2026-06-30 02:36 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/66368.shtml)
-- 2026-06-30 02:27 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/4995815.shtml)
-- 2026-06-30 02:14 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/676529561929.shtml)
+- 2026-06-30 02:20 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/94175.shtml)
+- 2026-06-30 02:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/0694837.shtml)
+- 2026-06-30 02:24 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/88037804.shtml)
+- 2026-06-30 02:38 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/4089952.shtml)
+- 2026-06-30 02:27 - [我们的少年时代2](http://www.blog.minike.top/Article/details/75567.shtml)
+- 2026-06-30 02:27 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/6950709.shtml)
+- 2026-06-30 02:31 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/099618624985.shtml)
+- 2026-06-30 02:13 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/7718622600.shtml)
+- 2026-06-30 02:27 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/74163796823.shtml)
+- 2026-06-30 02:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/39670650493.shtml)
+- 2026-06-30 02:41 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/575275.shtml)
+- 2026-06-30 02:19 - [我和我的家乡](http://www.share.minike.top/Article/details/1176839705.shtml)
+- 2026-06-30 02:20 - [巴西扳平比分](http://www.blog.minike.top/Article/details/5970132510.shtml)
+- 2026-06-30 02:15 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/22165784122.shtml)
+- 2026-06-30 02:13 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/271218.shtml)

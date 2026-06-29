@@ -1,59 +1,56 @@
-# 软件股受累于AI颠覆担忧进一步下跌 芯片股继续上涨
+# 20天17阳强势上攻！华宝基金电子ETF（515260）创新高后，再涨2.19%！PCB概念股东山精密涨停！今年股价翻倍
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-美国股市周五，软件股价下跌，延续了近期的疲软走势，原因是投资者继续担心强大的新型人工智能模型会带来颠覆性影响。 iShares扩展科技软件行业ETF下跌2.8%，三个交易日累计下跌超过7%。 值得关注的股价变动包括：Cloudflare -11%，Palo Alto Networks -7.2%，ServiceNow -8.5%，Datadog -4.8%，RingCentra
+今日（5月7日）PCB概念股表现活跃，东山精密涨停，今年以来累计上涨126.67%，实现股价翻倍，鹏鼎控股、沪电股份、深南电路年内分别上涨48.54%、43.41%和37.22%，已取得亮眼股价表现。 热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）继昨日续创历史新高之后，今日场内价格盘中上探2.19%，20天17阳强势上攻！ 资金面上，截至发稿，电子板块获
 
 ## 正文
 
-美国股市周五，软件股价下跌，延续了近期的疲软走势，原因是投资者继续担心强大的新型人工智能模型会带来颠覆性影响。
+今日（5月7日）PCB概念股表现活跃，东山精密涨停，今年以来累计上涨126.67%，实现股价翻倍，鹏鼎控股、沪电股份、深南电路年内分别上涨48.54%、43.41%和37.22%，已取得亮眼股价表现。
 
-iShares扩展科技软件行业ETF下跌2.8%，三个交易日累计下跌超过7%。
+热门ETF方面，荟聚电子板块核心龙头的电子ETF华宝（515260）继昨日续创历史新高之后，今日场内价格盘中上探2.19%，20天17阳强势上攻！
 
-值得关注的股价变动包括：Cloudflare -11%，Palo Alto Networks -7.2%，ServiceNow -8.5%，Datadog -4.8%，RingCentral -7.9%，HubSpot -6.8%，Crowdstrike -4.5%，Palantir -2.6%，Zscaler -3.4%。
+资金面上，截至发稿，电子板块获主力资金净流入超339亿元，拉长时间来看，近5日、近20日分别吸金913亿元和3384亿元，板块吸金额持续高居31个申万一级行业首位，电子ETF华宝（515260）成份股东山精密、胜宏科技分别获主力资金净流入超33亿元和18亿元，高居A股吸金榜第3位和第5位。
 
-与此同时，半导体股依然强劲，费城证券交易所半导体指数上涨2.3%，有望连续第八个交易日上涨。
+电子板块为何持续受到主力资金的偏爱？
 
-值得关注的个股： 英伟达 +2.4%，英特尔 +1%，台积电 +1.8%，AMD +3.6%。
+业内人士指出，这是基于政策支持、盈利诉求、业绩验证的综合考量。
 
-今年以来，费城证券交易所半导体指数上涨超过25%，而iShares扩展科技软件行业ETF则下跌30%。
+其一，国家层面对于高水平科技自立自强的政策支持力度不断加大，为电子行业的长期发展提供了坚实的保障；其二，电子行业近两年在A股中表现出极强的韧性，细分赛道具备超额收益；其三，当前AI算力和高端制造是市场确定性较高的主线。
 
-责任编辑：陈钰嘉
+其四，一季报显示，半导体设备、AI终端硬件等细分领域企业的净利润均实现了同比大幅增长。
+
+消息面上，CCL供应短缺，交货周期延长。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 02:20 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 02:27 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 02:24 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 02:13 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 02:19 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 02:21 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 02:29 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 02:27 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 02:23 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 02:24 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 02:17 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 02:15 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 02:35 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 02:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 02:37 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 02:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 02:20 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 02:15 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 02:37 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 02:18 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 02:16 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-30 02:38 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 02:32 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 02:20 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/348509935732.shtml)
-- 2026-06-30 02:24 - [DeepSeek V4正式版要来了](https://www.blog.minike.top/Article/details/62048.shtml)
-- 2026-06-30 02:10 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/59864848.shtml)
-- 2026-06-30 02:07 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/50057307.shtml)
-- 2026-06-30 02:18 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/015342488001.shtml)
-- 2026-06-30 02:09 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/9281731.shtml)
-- 2026-06-30 02:22 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/38037.shtml)
-- 2026-06-30 02:18 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/026277.shtml)
-- 2026-06-30 02:26 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/1322936.shtml)
-- 2026-06-30 02:08 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/0461039.shtml)
-- 2026-06-30 02:35 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/04455370774.shtml)
-- 2026-06-30 02:15 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/4916699.shtml)
-- 2026-06-30 02:14 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/68845976.shtml)
-- 2026-06-30 02:07 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/42715299.shtml)
-- 2026-06-30 02:34 - [请回答王牌2019](https://www.share.minike.top/Article/details/262545566155.shtml)
+- 2026-06-30 02:25 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/977702335299.shtml)
+- 2026-06-30 02:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/4713933589.shtml)
+- 2026-06-30 02:27 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/15513064.shtml)
+- 2026-06-30 02:35 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/10970282.shtml)
+- 2026-06-30 02:32 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/498316380.shtml)
+- 2026-06-30 02:30 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/785045686.shtml)
+- 2026-06-30 02:26 - [毒液2](http://www.blog.minike.top/Article/details/1119519455.shtml)
+- 2026-06-30 02:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/345019515.shtml)
+- 2026-06-30 02:18 - [一见倾心](http://www.share.kurohicncr.top/Article/details/6622895.shtml)
+- 2026-06-30 02:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/84884861565.shtml)
+- 2026-06-30 02:31 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/26179.shtml)
+- 2026-06-30 02:15 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/23228463171.shtml)
+- 2026-06-30 02:34 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/585331135.shtml)
+- 2026-06-30 02:14 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/6657288899.shtml)
+- 2026-06-30 02:12 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/410201861965.shtml)

@@ -1,59 +1,57 @@
-# 璞泰来推进A+H背后：梁丰不只是在融资，更像在重排“梁丰系”资产版图 | 长三角资本局
+# 油价“深V”，欧美股市全线下跌
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 一家已经在A股上市、2025年净利润修复至23.65亿元的锂电龙头，为何还要急着赴港融资？而更让市场关注的是，在递表前夕，实控人梁丰一边推动分红，一边维持高比例质押，另一边又同步推进子公司分拆与关联交易调整。 璞泰来这次港股IPO，讲的是全球化新故事，还是一场更复杂的资本排布？ 近日，上海璞泰来新能源科技集团股份有限公司向港交所递交招股书，试图成为A+
+当地时间5月7日，欧美股市全线下跌，英国富时100指数、法国CAC40指数、德国DAX指数均跌逾1%。美股三大指数冲高回落，全线收跌，道指跌逾300点。热门中概股多数下跌，纳斯达克中国金龙指数跌1.4%。 现货黄金、现货白银价格冲高回落。现货黄金价格出现小幅下跌，现货白银价格涨幅收窄。国际原油价格走出“深V”走势，ICE布油、NYMEX WTI原油价格冲高，均涨逾2%。 欧美股
 
 ## 正文
 
-文|新浪财经上海站 十里 一家已经在A股上市、2025年净利润修复至23.65亿元的锂电龙头，为何还要急着赴港融资？
+当地时间5月7日，欧美股市全线下跌，英国富时100指数、法国CAC40指数、德国DAX指数均跌逾1%。
 
-而更让市场关注的是，在递表前夕，实控人梁丰一边推动分红，一边维持高比例质押，另一边又同步推进子公司分拆与关联交易调整。
+美股三大指数冲高回落，全线收跌，道指跌逾300点。
 
-璞泰来这次港股IPO，讲的是全球化新故事，还是一场更复杂的资本排布？
+热门中概股多数下跌，纳斯达克中国金龙指数跌1.4%。
 
-近日，上海璞泰来新能源科技集团股份有限公司向港交所递交招股书，试图成为A+H上市公司。
+现货黄金、现货白银价格冲高回落。
 
-招股书显示，2023年至2025年，公司分别实现营业收入152.92亿元、133.98亿元和156.55亿元，毛利分别为39.54亿、29.63亿、46.55亿元；期内利润分别为21.53亿、13.87亿、26.14亿元。
+现货黄金价格出现小幅下跌，现货白银价格涨幅收窄。
 
-从结果看，璞泰来正走出上一轮行业低谷；但问题是，既然盈利已经修复，为何公司仍急于在这个时间点打开新的融资通道？
+国际原油价格走出“深V”走势，ICE布油、NYMEX WTI原油价格冲高，均涨逾2%。
 
-答案的一部分，或许藏在财务压力里。
+欧美股市全线下跌 当地时间5月7日，欧洲主要股指全线下跌，截至收盘，英国富时100指数下跌1.55%，法国CAC40指数下跌1.17%，德国DAX指数下跌1.02%，意大利MIB指数下跌0.82%，欧洲STOXX50指数下跌0.9%。
 
-截至2025年末，璞泰来计息银行借款及其他借款总额达到104.14亿元，其中一年内到期的短期借款为69.15亿元；同期存货余额为89.05亿元，较上年末继续增加。
+美股三大指数冲高回落，全线下跌。
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 02:11 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 02:20 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 02:10 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 02:10 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:20 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
-- 2026-06-30 02:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 02:34 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 02:18 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 02:08 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
-- 2026-06-30 02:16 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 02:10 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 02:08 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-30 02:27 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 02:29 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 02:23 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-30 02:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 02:41 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 02:13 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 02:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
+- 2026-06-30 02:18 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 02:13 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-30 02:13 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 02:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/48455896800.shtml)
-- 2026-06-30 02:31 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/218454387985.shtml)
-- 2026-06-30 02:30 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/744438197656.shtml)
-- 2026-06-30 02:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/39683268594.shtml)
-- 2026-06-30 02:09 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/923138911694.shtml)
-- 2026-06-30 02:10 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/33892.shtml)
-- 2026-06-30 02:23 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/592671440696.shtml)
-- 2026-06-30 02:18 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/34916380934.shtml)
-- 2026-06-30 02:09 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/606051706.shtml)
-- 2026-06-30 02:35 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/40523940331.shtml)
-- 2026-06-30 02:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/04592234338.shtml)
-- 2026-06-30 02:23 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/957417.shtml)
-- 2026-06-30 02:23 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/7836764385.shtml)
-- 2026-06-30 02:27 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/4308295341.shtml)
-- 2026-06-30 02:11 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/62505381.shtml)
+- 2026-06-30 02:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/221826561.shtml)
+- 2026-06-30 02:25 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/9277399.shtml)
+- 2026-06-30 02:23 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/779347490273.shtml)
+- 2026-06-30 02:38 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/27036.shtml)
+- 2026-06-30 02:15 - [速度与激情9](http://www.share.minike.top/Article/details/753067000738.shtml)
+- 2026-06-30 02:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/6725387153.shtml)
+- 2026-06-30 02:41 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/703858641.shtml)
+- 2026-06-30 02:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/9100950986.shtml)
+- 2026-06-30 02:37 - [曾沛慈和老公一起回台湾](https://www.share.kurohicncr.top/Article/details/933241216030.shtml)
+- 2026-06-30 02:37 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/7183992.shtml)
+- 2026-06-30 02:25 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/81772058514.shtml)
+- 2026-06-30 02:17 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/221557.shtml)
+- 2026-06-30 02:29 - [沙丘](http://www.blog.minike.top/Article/details/54804480793.shtml)
+- 2026-06-30 02:27 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/88944.shtml)
+- 2026-06-30 02:39 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/42587455.shtml)

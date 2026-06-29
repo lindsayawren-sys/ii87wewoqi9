@@ -1,56 +1,53 @@
-# 中东战火搅乱全球体育产业
+# 希迪智驾盘中涨超12% 近日与舍弗勒正式签署战略合作协议
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-近期，中东局势虽有缓和，但战火未熄。硝烟之下，体育产业受到的影响，远比想象中复杂。 美以与伊朗军事冲突爆发以来，大量国际体育赛事已被直接或间接波及，造成巨额经济损失。 如，原计划在卡塔尔举办的欧美杯足球赛已被迫取消。该赛事原定由西班牙队对阵阿根廷队，据外媒援引业内人士估计，涉及总金额可能达6000万欧元。如今，只能随着赛事的取消而化为虚影。 再如，原定4月举行的F1巴林站与沙特
+希迪智驾（03881）早盘一度涨超12%，截至发稿，股价上涨8.04%，现报27.42港元，成交额4964.34万港元。 近日，舍弗勒与希迪智驾正式签署战略合作协议，双方将聚焦纯电智能矿卡、物流车等商用车辆，围绕整车电子电气架构、整车分布式控制等分布式电驱动系统与解决方案展开合作，携手推动商用车电动化、智能化转型，打造商用场景智能化标杆合作模式。 在政策、技术与场景三重驱动下，
 
 ## 正文
 
-近期，中东局势虽有缓和，但战火未熄。
+希迪智驾（03881）早盘一度涨超12%，截至发稿，股价上涨8.04%，现报27.42港元，成交额4964.34万港元。
 
-硝烟之下，体育产业受到的影响，远比想象中复杂。
+近日，舍弗勒与希迪智驾正式签署战略合作协议，双方将聚焦纯电智能矿卡、物流车等商用车辆，围绕整车电子电气架构、整车分布式控制等分布式电驱动系统与解决方案展开合作，携手推动商用车电动化、智能化转型，打造商用场景智能化标杆合作模式。
 
-美以与伊朗军事冲突爆发以来，大量国际体育赛事已被直接或间接波及，造成巨额经济损失。
+在政策、技术与场景三重驱动下，中国商用车产业正迎来“电动化+智能化”深度变革，矿用卡车、封闭园区物流等场景智能化需求持续攀升。
 
-如，原计划在卡塔尔举办的欧美杯足球赛已被迫取消。
+希迪智驾联合创始人马潍博士表示，商用车电动化、智能化已是产业发展必然趋势与刚性需求。
 
-该赛事原定由西班牙队对阵阿根廷队，据外媒援引业内人士估计，涉及总金额可能达6000万欧元。
+依托成熟的自动驾驶全栈技术，以及矿区、口岸、园区等刚需场景的规模化商业化落地能力，希迪智驾将深度整合双方资源优势，持续为客户创造可感知、高实效的核心价值，全面助力商用车出行更安全、运营更高效、作业更可靠。
 
-如今，只能随着赛事的取消而化为虚影。
-
-再如，原定4月举行的F1巴林站与沙特站及配套赛事取消，或造成高达2亿美元的经济损失，直接影响2026年F1第二季度整体收入。
-
-又如，亚冠精英联赛西亚区淘汰赛一度陷入停摆；体操单项世界杯多哈站取消；原计划在卡塔尔举办的世界摩托车锦标赛与世界汽车耐力锦标赛被迫延期…… 一场战争，让中东多国以大型国际体育赛事为载体，塑造现代活力与战略雄心的国家形象瞬时黯淡。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 02:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:18 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 02:33 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 02:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 02:30 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 02:21 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
-- 2026-06-30 02:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 02:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 02:13 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-30 02:21 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 02:20 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 02:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 02:14 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 02:16 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 02:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 02:32 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 02:21 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 02:39 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 02:36 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 02:36 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/37173082711.shtml)
-- 2026-06-30 02:27 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/16541510954.shtml)
-- 2026-06-30 02:12 - [美股](http://www.blog.kurohicncr.top/Article/details/6285285221.shtml)
-- 2026-06-30 02:26 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/4152667.shtml)
-- 2026-06-30 02:30 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/403944419242.shtml)
-- 2026-06-30 02:06 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/32086.shtml)
-- 2026-06-30 02:12 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/83782.shtml)
-- 2026-06-30 02:33 - [绘画区你赢了](http://www.blog.minike.top/Article/details/4942456.shtml)
-- 2026-06-30 02:22 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/8221393.shtml)
-- 2026-06-30 02:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/299217201925.shtml)
-- 2026-06-30 02:22 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/951680.shtml)
-- 2026-06-30 02:16 - [女心理师](http://www.share.minike.top/Article/details/02567340.shtml)
-- 2026-06-30 02:26 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/30278329529.shtml)
-- 2026-06-30 02:16 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/260594.shtml)
-- 2026-06-30 02:23 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/972166.shtml)
+- 2026-06-30 02:24 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/44269468.shtml)
+- 2026-06-30 02:21 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/4581466765.shtml)
+- 2026-06-30 02:25 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/714487.shtml)
+- 2026-06-30 02:22 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/649595414.shtml)
+- 2026-06-30 02:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/6527758941.shtml)
+- 2026-06-30 02:17 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/87361.shtml)
+- 2026-06-30 02:14 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/02885581.shtml)
+- 2026-06-30 02:16 - [毒液2](https://www.blog.kurohicncr.top/Article/details/00157.shtml)
+- 2026-06-30 02:38 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/8050484856.shtml)
+- 2026-06-30 02:20 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/7530379939.shtml)
+- 2026-06-30 02:14 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/6588634.shtml)
+- 2026-06-30 02:18 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/5684961.shtml)
+- 2026-06-30 02:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/40661079383.shtml)
+- 2026-06-30 02:27 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/40924995119.shtml)
+- 2026-06-30 02:24 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/04090857.shtml)

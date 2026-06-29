@@ -1,58 +1,57 @@
-# 事关美联储权利交接！“沃什提名确认听证会”据称被美参议院推迟
+# 丰田预警：中东战争将造成42亿美元损失
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-财联社4月10日讯（编辑 黄君芝）随着鲍威尔的任期愈发接近“终点”，美联储的权力交接引发投资者重点关注。但目前看来，进展并不顺利。 “美联储掌门人”继任候选人凯文·沃什（Kevin Warsh）原定于4月16日（下周四）出席美国参议院银行委员会的提名确认听证会。但据媒体援引知情人士的话报道称，这一听证会已被取消，将被延后进行，具体时间尚不清楚。 根据委员会的规定，在举行听证会前
+丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。 这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。 丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的67
 
 ## 正文
 
-财联社4月10日讯（编辑 黄君芝）随着鲍威尔的任期愈发接近“终点”，美联储的权力交接引发投资者重点关注。
+丰田汽车表示，中东冲突将导致其零部件价格上涨、销量受损，合计损失达6700亿日元（约合42亿美元），成为最新一家公开披露此次动荡带来经营压力的汽车制造商。
 
-但目前看来，进展并不顺利。
+这家全球最大汽车制造商周五称，受铝、橡胶轮胎等零部件价格飙升，以及中东地区销量下滑影响，公司净利润将下降22%至3万亿日元，这将是其净利润连续第三年下滑。
 
-“美联储掌门人”继任候选人凯文·沃什（Kevin Warsh）原定于4月16日（下周四）出席美国参议院银行委员会的提名确认听证会。
+丰田财务集团首席负责人表示：“我们认为无法完全抵消中东冲突带来的6700亿日元负面影响。
 
-但据媒体援引知情人士的话报道称，这一听证会已被取消，将被延后进行，具体时间尚不清楚。
+” 除上述成本激增外，美国税收还给丰田带来1.4万亿日元的额外负担，这也是截至今年3月的财年净利润下降19%至3.8万亿日元的原因之一，尽管该业绩仍超出此前预期。
 
-根据委员会的规定，在举行听证会前，他们须提前五天发出通知，并且首先需要收集被提名人的文件，包括财务披露信息。
+丰田的预估凸显出此次冲突对全球汽车行业的冲击持续扩大。
 
-但三位熟悉参议院流程的人士表示，银行委员会尚未收到沃什的文件。
+此前，美国三大车企已警告称，大宗商品通胀将给它们带来50亿美元财务损失。
 
-截至当地时间周四晚间，委员会尚未设定或宣布新的听证日期。
+财报发布后，丰田在东京股市股价下跌2.1%，今年以来累计下跌14.3%。
 
-此外，听证会一般只在周二至周四举行，因此这么一算，最早可能的听证日期已推迟至4月21日。
+丰田财务集团首席负责人表示，此次成本上涨预估基于冲突将持续至明年3月的假设；其他日本企业在业绩指引中则假设冲突会更早结束。
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 02:11 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 02:33 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-30 02:22 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 02:33 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 02:15 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 02:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 02:28 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 02:35 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 02:25 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-30 02:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 02:20 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 02:34 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 02:35 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 02:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 02:27 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 02:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 02:22 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 02:36 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 02:34 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 02:41 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 02:34 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 02:38 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/06797822062.shtml)
-- 2026-06-30 02:12 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/292654.shtml)
-- 2026-06-30 02:06 - [马光远谈马斯克最大的价值](https://www.share.minike.top/Article/details/743685555.shtml)
-- 2026-06-30 02:25 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/5085441036.shtml)
-- 2026-06-30 02:31 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/197587.shtml)
-- 2026-06-30 02:27 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/565080369.shtml)
-- 2026-06-30 02:08 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/84054935.shtml)
-- 2026-06-30 02:10 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/3577988.shtml)
-- 2026-06-30 02:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/4083386.shtml)
-- 2026-06-30 02:12 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/57393804242.shtml)
-- 2026-06-30 02:22 - [日本进球](https://www.share.minike.top/Article/details/6702771.shtml)
-- 2026-06-30 02:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/721386.shtml)
-- 2026-06-30 02:20 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/91874276418.shtml)
-- 2026-06-30 02:22 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/9192431941.shtml)
-- 2026-06-30 02:29 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/490432147926.shtml)
+- 2026-06-30 02:15 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/25913.shtml)
+- 2026-06-30 02:21 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/319703835007.shtml)
+- 2026-06-30 02:19 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/5959704.shtml)
+- 2026-06-30 02:25 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/355302434236.shtml)
+- 2026-06-30 02:29 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/44747430.shtml)
+- 2026-06-30 02:41 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/64877606.shtml)
+- 2026-06-30 02:21 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/178644.shtml)
+- 2026-06-30 02:32 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/338747007.shtml)
+- 2026-06-30 02:14 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/93452904401.shtml)
+- 2026-06-30 02:32 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/119067610.shtml)
+- 2026-06-30 02:27 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/58454.shtml)
+- 2026-06-30 02:15 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/183050.shtml)
+- 2026-06-30 02:38 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/59385336451.shtml)
+- 2026-06-30 02:25 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/178599054827.shtml)
+- 2026-06-30 02:15 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/025705.shtml)

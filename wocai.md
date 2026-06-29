@@ -1,56 +1,56 @@
-# 长江有色：10日氧化铝期价跌1.16% 交易面延续弱势
+# 前4月49家企业A股上市募470.5亿元 江苏浙江继续领跑
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-长江有色网4月10日讯，今日氧化铝所有合约全线走软，主力月2605合约延续疲弱运行态势；截止当日15：00收盘，氧化铝主力月2605合约报2641元，跌31元，跌幅1.16%；加权合约累计成交311867手，比前一交易日增加35013手，涨幅12.65%；持仓量503723手增加5286手，涨幅1.06%。 今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月10日氧化铝
+来源：中国经济网 中国经济网北京5月7日讯 （记者 关婧 田云绯） 2026年前4月，上交所、深交所及北交所共计新增49家上市企业，合计募集资金470.50亿元。其中沪深主板有9家企业上市，创业板有7家企业上市，科创板有9家企业上市，北交所有24家企业上市。 从归属地来看，2026年前4月上市企业分布于16个省份及直辖市，其中江苏省、浙江省各有11家企业上市，广东省有5家企业上
 
 ## 正文
 
-长江有色网4月10日讯，今日氧化铝所有合约全线走软，主力月2605合约延续疲弱运行态势；截止当日15：00收盘，氧化铝主力月2605合约报2641元，跌31元，跌幅1.16%；加权合约累计成交311867手，比前一交易日增加35013手，涨幅12.65%；持仓量503723手增加5286手，涨幅1.06%。
+来源：中国经济网 中国经济网北京5月7日讯 （记者 关婧 田云绯） 2026年前4月，上交所、深交所及北交所共计新增49家上市企业，合计募集资金470.50亿元。
 
-今日国内氧化铝现货价格下跌；据长江有色网ccmn数据，4月10日氧化铝华南地区每吨报2750-2800元之间，与前一交易日报价跌10元；华东地区氧化铝每吨报2710-2750元之间，与前一交易日报价跌10元；西南地区氧化铝每吨2800-2840元之间，与前一交易日报价跌5元；西北地区氧化铝每吨报2955-2995元之间，与前一交易日报价持平。
+其中沪深主板有9家企业上市，创业板有7家企业上市，科创板有9家企业上市，北交所有24家企业上市。
 
-今日上期所氧化铝期货主力2605合约震荡走弱，日间交易收跌1.16%，国内氧化铝现货价格下跌。
+从归属地来看，2026年前4月上市企业分布于16个省份及直辖市，其中江苏省、浙江省各有11家企业上市，广东省有5家企业上市，安徽省有4家企业上市，北京市、河南省、江西省、辽宁省、山东省、陕西省各有2家企业上市，河北省、湖南省、上海市、四川省、天津市、重庆市各有1家企业上市。
 
-宏观层面，美伊停火协议虽于4月8日生效，但伊朗对霍尔木兹海峡的严格管控未松，地区信任重建仍存变数。
+从单只个股募资金额来看，排名前五位的企业分别是盛合晶微、振石股份、视涯科技、宏明电子、联讯仪器，募资金额分别为50.28亿元、29.19亿元、22.68亿元、21.17亿元、21.02亿元，分别归属于江苏省、浙江省、安徽省、四川省、江苏省。
 
-CME美联储观察工具显示，年末利率维持当前水平的概率达71%，货币政策中性背景下，氧化铝期货市场空头氛围浓厚，期价持续承压震荡。
+具体从归属地来看，江苏省有11家企业登陆A股，联讯仪器、盛合晶微在科创板上市，理奇智能、固德电材在创业板上市，鸿仕达、创达新材、赛英电子、海菲曼、通宝光电、爱得科技、爱舍伦在北交所上市，上述11家企业募资110.06亿元。
 
-基本面方面，广西新增产能即将释放，供应增量预期强化；临近交割，上期所仓单库存增至46.5万吨（单日增1.24万吨），仓单流出压力凸显。
+浙江省有11家企业登陆A股，其中福恩股份、振石股份在主板上市，易思维在科创板上市，恒道科技、晨光电机、隆源股份、普昂医疗、新恒泰、觅睿科技、海圣医疗、科马材料在北交所上市。
 
-消费端，电解铝开工率虽提升，但采购仍以按需为主，需求拉动有限。
+上述11家企业合计募集资金总额76.75亿元。
 
-现货市场，价格随期货下跌，持货商周末出货意愿增强，流通宽松，然下游刚需疲软、贸易商承接不足，市场买兴难振，交易面延续弱势。
+广东省有5家企业登陆A股，北芯生命、恒运昌在科创板上市，尚水智能、大普微、慧谷新材在创业板上市，上述5家企业募资64.73亿元。
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-30 02:34 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 02:32 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 02:26 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 02:20 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 02:35 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 02:07 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 02:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-30 02:07 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 02:15 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 02:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-30 02:21 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 02:39 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 02:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 02:20 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 02:40 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 02:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 02:40 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 02:39 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 02:28 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/2098865175.shtml)
-- 2026-06-30 02:35 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/34547832.shtml)
-- 2026-06-30 02:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/4497027853.shtml)
-- 2026-06-30 02:31 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/87380536.shtml)
-- 2026-06-30 02:34 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/312062685.shtml)
-- 2026-06-30 02:17 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/91216715395.shtml)
-- 2026-06-30 02:18 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/710266138746.shtml)
-- 2026-06-30 02:35 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/70864619.shtml)
-- 2026-06-30 02:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/954128.shtml)
-- 2026-06-30 02:24 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/388950153.shtml)
-- 2026-06-30 02:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/479499469.shtml)
-- 2026-06-30 02:32 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/721032593.shtml)
-- 2026-06-30 02:32 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/190523567077.shtml)
-- 2026-06-30 02:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/2549212318.shtml)
-- 2026-06-30 02:19 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/2511932994.shtml)
+- 2026-06-30 02:33 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/6634038429.shtml)
+- 2026-06-30 02:15 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/86723233.shtml)
+- 2026-06-30 02:16 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/6931192.shtml)
+- 2026-06-30 02:22 - [锐评T1零封KC](https://www.share.minike.top/Article/details/551577526.shtml)
+- 2026-06-30 02:17 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/425477402495.shtml)
+- 2026-06-30 02:34 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/21320.shtml)
+- 2026-06-30 02:42 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/58458785.shtml)
+- 2026-06-30 02:23 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/906100589817.shtml)
+- 2026-06-30 02:31 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/8967343621.shtml)
+- 2026-06-30 02:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/287364444.shtml)
+- 2026-06-30 02:13 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/0580904.shtml)
+- 2026-06-30 02:30 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/91707.shtml)
+- 2026-06-30 02:21 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/99153145106.shtml)
+- 2026-06-30 02:26 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/685271.shtml)
+- 2026-06-30 02:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/67015.shtml)

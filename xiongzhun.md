@@ -1,59 +1,53 @@
-# 多重利好叠加 一季度我国汽车出口增长强劲
+# 中国同江水运口岸开通至俄罗斯明水期客货运输
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：央视新闻 记者：王世玉 罗宏进 记者今天（10日）从中国汽车工业协会了解到，今年3月份，我国汽车市场活跃度提升，汽车产销环比大幅回升。此外，一季度出口延续强劲增长态势。 最新数据显示，今年3月，我国汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%。专家表示，3月份，汽
+中新社黑龙江佳木斯5月8日电 (记者 姜辉)中国同江水运口岸东部作业区码头，载着6辆货车、1辆客车及80名旅客的“龙渡004”滚装船8日驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。 8日9时许，同江水运口岸东部作业区联检大厅里，旅客们秩序井然地排队办理通关手续，之后乘坐“龙渡004”滚装船去往俄罗斯下列宁斯阔耶港。此次从同江出境的“龙渡004”
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社黑龙江佳木斯5月8日电 (记者 姜辉)中国同江水运口岸东部作业区码头，载着6辆货车、1辆客车及80名旅客的“龙渡004”滚装船8日驶离泊位，驶向俄罗斯下列宁斯阔耶港，拉开同江口岸2026年明水期客货运输序幕。
 
-来源：央视新闻 记者：王世玉 罗宏进 记者今天（10日）从中国汽车工业协会了解到，今年3月份，我国汽车市场活跃度提升，汽车产销环比大幅回升。
+8日9时许，同江水运口岸东部作业区联检大厅里，旅客们秩序井然地排队办理通关手续，之后乘坐“龙渡004”滚装船去往俄罗斯下列宁斯阔耶港。
 
-此外，一季度出口延续强劲增长态势。
+此次从同江出境的“龙渡004”滚装船最多可搭载130名旅客，载重量可达390吨。
 
-最新数据显示，今年3月，我国汽车产销分别完成291.7万辆和289.9万辆，环比分别增长74.4%和60.6%。
+同江口岸是黑龙江省对俄罗斯唯一的水路、公路、铁路“三路并进”国际口岸，可以实现一年四季通关。
 
-专家表示，3月份，汽车产销环比快速增长，既符合季节性历史规律，也与各地方补贴细则全面落地、春季车展促销启动、车企新品陆续上市有直接的关系。
+同江水运口岸东部作业区与俄罗斯下列宁斯阔耶口岸仅一江之隔，水上最近距离1公里，年过客能力达50万人次，年过货能力达60万吨。
 
-另外，3月汽车出口也呈现超预期增长。
-
-3月汽车出口87.5万辆，环比增长30.2%，同比增长72.7%。
-
-其中，新能源汽车出口37.1万辆，同比增长1.3倍。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 02:16 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 02:10 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 02:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 02:30 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
-- 2026-06-30 02:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 02:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 02:33 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 02:09 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 02:07 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 02:30 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 02:25 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-30 02:23 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 02:25 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 02:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 02:29 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 02:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 02:13 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 02:23 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 02:19 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 02:27 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-30 02:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 02:17 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-30 02:37 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:31 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/883692388895.shtml)
-- 2026-06-30 02:12 - [速度与激情9](https://www.blog.minike.top/Article/details/30627716.shtml)
-- 2026-06-30 02:25 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/7156008184.shtml)
-- 2026-06-30 02:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/23028.shtml)
-- 2026-06-30 02:26 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/85393754.shtml)
-- 2026-06-30 02:21 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/67578.shtml)
-- 2026-06-30 02:07 - [速度与激情9](http://www.share.minike.top/Article/details/3933415.shtml)
-- 2026-06-30 02:11 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/5695658.shtml)
-- 2026-06-30 02:24 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/7602791.shtml)
-- 2026-06-30 02:17 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/80679.shtml)
-- 2026-06-30 02:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/0118218460.shtml)
-- 2026-06-30 02:11 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/6522815.shtml)
-- 2026-06-30 02:10 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/679084.shtml)
-- 2026-06-30 02:21 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/12686472828.shtml)
-- 2026-06-30 02:16 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/811858.shtml)
+- 2026-06-30 02:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/00025713512.shtml)
+- 2026-06-30 02:29 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/006890084058.shtml)
+- 2026-06-30 02:27 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/50454552090.shtml)
+- 2026-06-30 02:37 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/161461.shtml)
+- 2026-06-30 02:26 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/760992.shtml)
+- 2026-06-30 02:38 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/480467976210.shtml)
+- 2026-06-30 02:14 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/12129.shtml)
+- 2026-06-30 02:26 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/44203014464.shtml)
+- 2026-06-30 02:28 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/235013040.shtml)
+- 2026-06-30 02:31 - [时光音乐会](http://www.share.minike.top/Article/details/966365829.shtml)
+- 2026-06-30 02:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/7984745.shtml)
+- 2026-06-30 02:15 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/75016.shtml)
+- 2026-06-30 02:35 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/75647.shtml)
+- 2026-06-30 02:24 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/6858124.shtml)
+- 2026-06-30 02:23 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/13174.shtml)

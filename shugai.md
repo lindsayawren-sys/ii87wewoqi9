@@ -1,57 +1,57 @@
-# 监管出手！一日内，3家A股公司收警示函！
+# 合理调价 保障稳定供应——专家解读本次汽油、柴油价格调控
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！监管重拳出击，直指各类财务违规。 4月10日晚间，国网信通、新里程、捷成股份三家公司因会计核算不规范问题收到监管警示函，涉及收入确认、在建工程、影视剧业务等多个核心领域，凸显监管层对上市公司财务信息披露真实性的从严监管。 国网信通贸易业务核算违规，跨三年财务
+新华社北京5月8日电 题：合理调价 保障稳定供应——专家解读本次汽油、柴油价格调控 新华社记者魏玉坤 国家发展改革委8日发布消息，根据国际市场油价变化情况，自5月8日24时起，国内汽、柴油(标准品)价格每吨分别上调320元、310元。 为何国内成品油价格要上调？国内成品油价格机制规定，汽、柴油最高零售价格根据一揽子国际原油均价变化情况，每10个工作日调整一次。 对外经济贸易大学
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社北京5月8日电 题：合理调价 保障稳定供应——专家解读本次汽油、柴油价格调控 新华社记者魏玉坤 国家发展改革委8日发布消息，根据国际市场油价变化情况，自5月8日24时起，国内汽、柴油(标准品)价格每吨分别上调320元、310元。
 
-监管重拳出击，直指各类财务违规。
+为何国内成品油价格要上调？
 
-4月10日晚间，国网信通、新里程、捷成股份三家公司因会计核算不规范问题收到监管警示函，涉及收入确认、在建工程、影视剧业务等多个核心领域，凸显监管层对上市公司财务信息披露真实性的从严监管。
+国内成品油价格机制规定，汽、柴油最高零售价格根据一揽子国际原油均价变化情况，每10个工作日调整一次。
 
-国网信通贸易业务核算违规，跨三年财务错报 国网信通公告，公司及4名时任高管收到四川证监局警示函，因2022—2024年部分贸易业务会计核算不规范，未按业务实质采用净额法确认收入，导致连续三年财报存在错报。
+对外经济贸易大学中国国际碳中和经济研究院执行院长董秀成表示，4月21日国内成品油价格下调以来，国际市场原油价格大幅震荡，前期持续高位运行，近日虽有所回落，但本次调价的前10个工作日平均价格仍高于上次调价前10个工作日平均价格，国内成品油价格相应上调。
 
-监管决定对公司及时任董事长、总经理、财务总监出具警示函，相关记录计入证券期货市场诚信档案。
+本次汽、柴油(标准品)最高零售价格每吨分别上调320元、310元，折合92号汽油每升上涨0.25元，0号柴油每升上涨0.27元。
 
-此前国网信通发布2025年业绩快报，上市公司2025年预计实现营业收入106.28亿元，同比增长1.99%；归母净利润6.78亿元，同比下降16.91%，主要系信用减值损失和所得税费用增加所致，2025年公司预计计提各类资产减值损失合计1.11亿元。
+如后期国际原油价格大幅上涨，国家还会采取什么调控措施？
 
-新里程子公司核算混乱，多期数据失真 新里程同日收到甘肃证监局警示函，经查，其子公司盱眙恒山中医医院有限公司财务会计核算不规范，导致2023年年报利润总额多计195.64万元，占当期利润总额的19.07%；2025年半年报净利润少计215.57万元，占当期净利润的30.62%；2025年三季报利润总额少计285.7万元，占当期利润总额绝对值的23.43%。
+成品油价格机制设置了每桶130美元的价格调控上限，如果一揽子国际原油均价继续大幅上涨，超过每桶130美元(对应的国内92号汽油平均零售价格略高于每升10元)，对于超出上限的部分，国内汽、柴油最高零售价格将不提高或少提高。
 
-公司董事长林杨林、财务总监刘军因未勤勉尽责被追责，监管部门对上市公司采取责令改正并出具警示函的行政监管措施，对林杨林、刘军采取监管谈话并出具警示函的行政监管措施，同时记入证券期货市场诚信档案。
+董秀成表示，为保障稳定供应，国家还可能采取财税支持措施。
 
 ## 相关推荐
 
-- 2026-06-30 02:32 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 02:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-30 02:08 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-30 02:36 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 02:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 02:13 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 02:24 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 02:28 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 02:10 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 02:32 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 02:20 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 02:37 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 02:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 02:30 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 02:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 02:22 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 02:31 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 02:39 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 02:40 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 02:35 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 02:24 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 02:34 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/604753.shtml)
-- 2026-06-30 02:35 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/3063546537.shtml)
-- 2026-06-30 02:07 - [急先锋](https://www.blog.kurohicncr.top/Article/details/80305.shtml)
-- 2026-06-30 02:31 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/39942649164.shtml)
-- 2026-06-30 02:10 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/818275470.shtml)
-- 2026-06-30 02:32 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/17389404208.shtml)
-- 2026-06-30 02:32 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/195838466702.shtml)
-- 2026-06-30 02:26 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/2992747.shtml)
-- 2026-06-30 02:18 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/7537151.shtml)
-- 2026-06-30 02:17 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/46137.shtml)
-- 2026-06-30 02:12 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/573873431.shtml)
-- 2026-06-30 02:26 - [明星大侦探第一季](https://www.share.minike.top/Article/details/508204420226.shtml)
-- 2026-06-30 02:12 - [千香](http://www.share.kurohicncr.top/Article/details/22442578449.shtml)
-- 2026-06-30 02:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/695223025898.shtml)
-- 2026-06-30 02:32 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/90024605672.shtml)
+- 2026-06-30 02:19 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/88214787.shtml)
+- 2026-06-30 02:33 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/04937834480.shtml)
+- 2026-06-30 02:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/596188514805.shtml)
+- 2026-06-30 02:35 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/063570.shtml)
+- 2026-06-30 02:16 - [周生如故](http://www.share.minike.top/Article/details/130688387.shtml)
+- 2026-06-30 02:18 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/47411856885.shtml)
+- 2026-06-30 02:28 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/55190.shtml)
+- 2026-06-30 02:18 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/88701.shtml)
+- 2026-06-30 02:25 - [85花告别古偶](http://www.share.minike.top/Article/details/1467708.shtml)
+- 2026-06-30 02:40 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/96919.shtml)
+- 2026-06-30 02:13 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/124340603227.shtml)
+- 2026-06-30 02:21 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/1679772205.shtml)
+- 2026-06-30 02:19 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/02731115222.shtml)
+- 2026-06-30 02:15 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/797157425.shtml)
+- 2026-06-30 02:30 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/92220519467.shtml)

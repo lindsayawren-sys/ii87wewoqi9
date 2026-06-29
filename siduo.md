@@ -1,60 +1,58 @@
-# 金鸡报晓首映计划启动仪式暨《植物学家》全国首映礼在京举办
+# A股9家药企去年人均薪酬超50万元，位列第一的人均薪酬近百万
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 (记者 高凯)金鸡报晓首映计划启动仪式暨《植物学家》全国首映礼日前在北京金鸡百花影城举行。 据了解，金鸡报晓首映计划是2026年中国金鸡百花电影节的全新计划，由中国电影家协会、厦门市电影局主办，以“报晓”为核心意象，旨在破解新人首作及艺术电影发行难的行业痛点。该计划将扶持举措延伸至宣传发行端，致力于发掘电影新力量、激发创作新动能、探索发行新模式，为中国电
+随着年报披露，A股药企的薪酬图谱随之浮现，薪酬情况不仅映照出员工的获得感，也是产业赛道的“晴雨表”。Choice金融终端数据显示，A股医药生物板块504家药企中，有9家企业2025年员工人均薪酬超过50万元。其中，A股市值超过3900亿元的百济神州（688235.SH）问鼎第一，员工人均薪酬达到97.73万元。紧接着是迪哲医药（688192.SH）与益方生物（688382.SH
 
 ## 正文
 
-中新网北京4月10日电 (记者 高凯)金鸡报晓首映计划启动仪式暨《植物学家》全国首映礼日前在北京金鸡百花影城举行。
+随着年报披露，A股药企的薪酬图谱随之浮现，薪酬情况不仅映照出员工的获得感，也是产业赛道的“晴雨表”。
 
-据了解，金鸡报晓首映计划是2026年中国金鸡百花电影节的全新计划，由中国电影家协会、厦门市电影局主办，以“报晓”为核心意象，旨在破解新人首作及艺术电影发行难的行业痛点。
+Choice金融终端数据显示，A股医药生物板块504家药企中，有9家企业2025年员工人均薪酬超过50万元。
 
-该计划将扶持举措延伸至宣传发行端，致力于发掘电影新力量、激发创作新动能、探索发行新模式，为中国电影新力量照亮前行之路。
+其中，A股市值超过3900亿元的百济神州（688235.SH）问鼎第一，员工人均薪酬达到97.73万元。
 
-当日活动现场汇聚了学者戴锦华，导演李少红、宁海强、杨荔钠、秦海燕、滕丛丛，编剧阿美、袁媛、游晓颖、许伊萌，演员王宏伟、周一围、王一通、彭小苒、孙安可，《植物学家》导演景一、制片人单佐龙及全体主创，以及金鸡创投评审团评审、电影专家与影评人等。
+紧接着是迪哲医药（688192.SH）与益方生物（688382.SH），这两家企业的员工人均薪酬分别为66.73万元、64.26万元。
 
-启动仪式上，中国文联电影艺术中心主任宋智勤回顾了金鸡创投七年来的耕耘历程。
+亚虹医药（688176.SH）、福瑞医科（300049.SZ）、艾力斯（688578.SH）、盟科药业（688373.SH）、诺诚健华（688428.SH）、天智航（688277.SH）这五家企业的员工人均薪酬分别为58.22万元、57.72万元、56.52万元、55.45万元、53.96万元、52.82万元。
 
-他表示，金鸡报晓首映计划是中国影协深耕青年电影人才培育、助力艺术电影发展的全新实践，更是紧扣文联“抓创作”工作主线，完善电影创作传播全链条扶持的重要举措。
+这些企业中，有6家企业2025年员工人均薪酬相比2024年有所上涨，其中百济神州员工人均薪酬涨了7.25万元；福瑞医科员工人均薪酬涨了4.06万元；其余的企业涨幅在1.1万元至2.5万元之间。
 
-该计划以首推影片《植物学家》为起点，积极探索艺术电影推广新路径，持续完善分线发行模式，让更多优质创作落地生根、开花结果。
+部分企业员工人均薪酬上涨，或跟企业业绩表现有关。
 
-随后，中国影协分党组书记、驻会副主席邓光辉，中国电影家协会副主席、编剧兼导演张冀，李少红，中国文学艺术基金会副秘书长牛彤，国家电影专资办综合处处长董力与厦门市委宣传部电影处副处长徐晓曦共同上台，携手点亮“报晓”之光。
+2025年，百济神州归属于上市公司股东的净利润为14.61亿元，首次实现全年盈利。
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 02:23 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 02:22 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 02:35 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 02:22 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 02:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
-- 2026-06-30 02:26 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 02:17 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 02:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 02:18 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 02:20 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 02:13 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 02:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 02:23 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 02:31 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 02:40 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 02:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 02:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 02:18 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-30 02:39 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 02:23 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 02:32 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 02:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 02:12 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 02:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 02:13 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:21 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/5143748.shtml)
-- 2026-06-30 02:09 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/516755180388.shtml)
-- 2026-06-30 02:13 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/78725187.shtml)
-- 2026-06-30 02:09 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/034588415.shtml)
-- 2026-06-30 02:34 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/6735449506.shtml)
-- 2026-06-30 02:29 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/484114170.shtml)
-- 2026-06-30 02:34 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/188976.shtml)
-- 2026-06-30 02:18 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/967741.shtml)
-- 2026-06-30 02:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/4310635747.shtml)
-- 2026-06-30 02:33 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/961018189.shtml)
-- 2026-06-30 02:10 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/278339312187.shtml)
-- 2026-06-30 02:08 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/06234.shtml)
-- 2026-06-30 02:16 - [世界杯](http://www.blog.minike.top/Article/details/281794129.shtml)
-- 2026-06-30 02:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/183691119.shtml)
-- 2026-06-30 02:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/1576466.shtml)
+- 2026-06-30 02:25 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/5032454.shtml)
+- 2026-06-30 02:31 - [我和我的家乡](http://www.share.minike.top/Article/details/01851865.shtml)
+- 2026-06-30 02:29 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/712259758.shtml)
+- 2026-06-30 02:29 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/36199.shtml)
+- 2026-06-30 02:23 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/8884877.shtml)
+- 2026-06-30 02:13 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/78496886860.shtml)
+- 2026-06-30 02:37 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/21393.shtml)
+- 2026-06-30 02:19 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/39131368147.shtml)
+- 2026-06-30 02:19 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/007290.shtml)
+- 2026-06-30 02:13 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/921368.shtml)
+- 2026-06-30 02:15 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/1898847.shtml)
+- 2026-06-30 02:40 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/1550963769.shtml)
+- 2026-06-30 02:35 - [恋与深空 巧合](https://www.share.minike.top/Article/details/660705480.shtml)
+- 2026-06-30 02:36 - [月亮](http://www.share.minike.top/Article/details/343099979.shtml)
+- 2026-06-30 02:39 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/36345.shtml)

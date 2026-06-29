@@ -1,56 +1,59 @@
-# 伊朗多地民众集会悼念哈梅内伊 总统佩泽希齐扬现身德黑兰活动现场
+# 体验经济蓬勃发展 “五一”假期文旅消费呈现新亮点
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-当地时间4月9日，伊朗多地举行大规模民众集会，悼念已故最高领袖哈梅内伊。伊朗总统佩泽希齐扬在当天出席了首都德黑兰的活动。 伊朗方面在3月1日证实，阿里·哈梅内伊在美国和以色列对伊朗的袭击中身亡。伊朗政府之后发表声明宣布，全国哀悼40天。伊朗伊斯兰革命卫队也在4月9日发表声明说，“复仇行动不会停止”，革命卫队将继续支持现任最高领袖穆杰塔巴·哈梅内伊。(总台记者 李健南 王寅)
+新华社上海5月6日电(记者陈爱平)今年劳动节假期，部分省市放春假提前预热“假日经济”，传统热门目的地客流量持续增长，曾经的“小众目的地”成为“新宠”。满足人们多元需求、提供快乐情绪的“体验经济”蓬勃发展。多方数据显示今年劳动节文旅市场人气足、消费旺。同程旅行有关负责人介绍，今年劳动节假期北京、上海、广州、南京、杭州、重庆等热门目的地，酒店预订热度同比增长超四成，文旅产品预订热度
 
 ## 正文
 
-当地时间4月9日，伊朗多地举行大规模民众集会，悼念已故最高领袖哈梅内伊。
+新华社上海5月6日电(记者陈爱平)今年劳动节假期，部分省市放春假提前预热“假日经济”，传统热门目的地客流量持续增长，曾经的“小众目的地”成为“新宠”。
 
-伊朗总统佩泽希齐扬在当天出席了首都德黑兰的活动。
+满足人们多元需求、提供快乐情绪的“体验经济”蓬勃发展。
 
-伊朗方面在3月1日证实，阿里·哈梅内伊在美国和以色列对伊朗的袭击中身亡。
+多方数据显示今年劳动节文旅市场人气足、消费旺。
 
-伊朗政府之后发表声明宣布，全国哀悼40天。
+同程旅行有关负责人介绍，今年劳动节假期北京、上海、广州、南京、杭州、重庆等热门目的地，酒店预订热度同比增长超四成，文旅产品预订热度同比增长超八成。
 
-伊朗伊斯兰革命卫队也在4月9日发表声明说，“复仇行动不会停止”，革命卫队将继续支持现任最高领袖穆杰塔巴·哈梅内伊。
+上海市文化和旅游局最新数据显示，假期五天上海接待了游客1690.16万人次，同比增长2.43%。
 
-(总台记者 李健南 王寅)
+上海推出文博美展、文娱演出和特色文旅活动200余场，又与2026上海国际花卉节、2026上海国际咖啡文化节、第七届上海“五五购物节”、2026上海邮轮文化旅游季等联动，旅游消费总金额为215.10亿元。
+
+无独有偶，多个热门目的地通过热门赛事、演唱会、展览等做强“票根经济”，带给人们丰富多元的假日体验。
+
+假期里，“苏超”“粤超”“闽超”等热门赛事及大型演唱会的举办地，景区门票、酒店订单等均呈现明显的同比增长。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 02:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 02:35 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 02:34 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 02:07 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
-- 2026-06-30 02:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
-- 2026-06-30 02:23 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 02:22 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 02:08 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 02:14 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 02:07 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 02:26 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 02:19 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 02:15 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 02:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 02:40 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 02:33 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 02:27 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 02:23 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-30 02:33 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-30 02:17 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 02:21 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 02:22 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 02:40 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 02:30 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 02:41 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 02:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/72430.shtml)
-- 2026-06-30 02:31 - [这一刀 会很帅](https://www.share.minike.top/Article/details/90641881881.shtml)
-- 2026-06-30 02:30 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/794732567.shtml)
-- 2026-06-30 02:13 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/8600437.shtml)
-- 2026-06-30 02:09 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/975507.shtml)
-- 2026-06-30 02:09 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/726810.shtml)
-- 2026-06-30 02:27 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/58129.shtml)
-- 2026-06-30 02:23 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/02325.shtml)
-- 2026-06-30 02:06 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/91417335976.shtml)
-- 2026-06-30 02:18 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/17377.shtml)
-- 2026-06-30 02:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/79968695543.shtml)
-- 2026-06-30 02:23 - [扫黑风暴](https://www.share.minike.top/Article/details/302776860971.shtml)
-- 2026-06-30 02:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/8967409.shtml)
-- 2026-06-30 02:35 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/99564.shtml)
-- 2026-06-30 02:29 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/590815.shtml)
+- 2026-06-30 02:37 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/521079552721.shtml)
+- 2026-06-30 02:29 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/962984725.shtml)
+- 2026-06-30 02:21 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/57913303435.shtml)
+- 2026-06-30 02:18 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/0642785.shtml)
+- 2026-06-30 02:18 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/771913357.shtml)
+- 2026-06-30 02:28 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/196745019.shtml)
+- 2026-06-30 02:17 - [世界杯](https://www.share.kurohicncr.top/Article/details/953178494170.shtml)
+- 2026-06-30 02:36 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/828103978.shtml)
+- 2026-06-30 02:19 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/816826347337.shtml)
+- 2026-06-30 02:34 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/7944968.shtml)
+- 2026-06-30 02:28 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/61679665.shtml)
+- 2026-06-30 02:23 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/64752389385.shtml)
+- 2026-06-30 02:26 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/518391870.shtml)
+- 2026-06-30 02:17 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/20071087.shtml)
+- 2026-06-30 02:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/487442.shtml)

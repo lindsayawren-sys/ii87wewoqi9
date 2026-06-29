@@ -1,60 +1,61 @@
-# 吸收最新研究成果 《清华大学藏战国竹简校释》首发
+# 荣尊国际控股复牌上涨65% 获单一最大股东折让约48%提全购要约
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月9日电 (记者 应妮)商务印书馆4月双十佳图书8日晚在线上发布，文化瑰宝《清华大学藏战国竹简校释》在京首发。 《清华大学藏战国竹简》是清华大学于2008年7月收藏的一批战国竹简，多为长期失传的先秦经史类典籍，内容涉及中华优秀传统文化核心，堪与孔壁中经、汲冢竹书媲美。整理研究报告自2010年以来至今共出版十辑，每辑出版都引发海内外学界高度关注。这些新出资料对中国古代
+荣尊国际控股（01780）今日复牌，早盘一度涨超84%。截至发稿，股价上涨65%，报1.65港元，成交额2377.59万港元。 荣尊国际控股宣布，要约人杨敬尧已完成收购8400万股公司股份，占已发行股本约13.55%，总代价4368万港元，相当于每股股份代价0.52港元，较停牌前收市价每股1港元折让约48%。 紧接收购完成后，要约人持有该公司已发行股本由约19.84%增至约33
 
 ## 正文
 
-中新网北京4月9日电 (记者 应妮)商务印书馆4月双十佳图书8日晚在线上发布，文化瑰宝《清华大学藏战国竹简校释》在京首发。
+荣尊国际控股（01780）今日复牌，早盘一度涨超84%。
 
-《清华大学藏战国竹简》是清华大学于2008年7月收藏的一批战国竹简，多为长期失传的先秦经史类典籍，内容涉及中华优秀传统文化核心，堪与孔壁中经、汲冢竹书媲美。
+截至发稿，股价上涨65%，报1.65港元，成交额2377.59万港元。
 
-整理研究报告自2010年以来至今共出版十辑，每辑出版都引发海内外学界高度关注。
+荣尊国际控股宣布，要约人杨敬尧已完成收购8400万股公司股份，占已发行股本约13.55%，总代价4368万港元，相当于每股股份代价0.52港元，较停牌前收市价每股1港元折让约48%。
 
-这些新出资料对中国古代历史文明的研究具有极其重大的价值。
+紧接收购完成后，要约人持有该公司已发行股本由约19.84%增至约33.39%。
 
-围绕清华简的研究，海内外学术界发表了众多新成果，对先秦历史、思想史、汉语史、古文字学、古文献学等学科都产生了重大的影响。
+要约人须按例提出强制性有条件现金要约。
 
-清华简已成为海内外关于古代中国文明研究的热点和前沿。
+按每股要约股份0.52港元的要约价计算，倘要约获悉数接纳，要约代价将为约2.15亿港元。
 
-首发现场，清华大学人文讲席教授、出土文献研究与保护中心主任黄德宽和商务印书馆党委书记、执行董事顾青表示，《清华大学藏战国竹简校释》收录已整理公布的全部清华简，并在原《清华大学藏战国竹简》整理研究报告基础上，吸收新的研究成果，为多学科学者更好地利用清华简开展研究、为广大读者阅读珍贵的清华简提供便利，对于推进清华简这批重要文献材料的学习、利用、传播，对于推进中华优秀传统文化的传承发展，都将起到重要作用。
+要约人拟维持该公司于联交所的上市地位。
 
-入选4月学术类十佳图书的是《国王的权威》《西班牙文学史》《欧洲私法：1800-1914》《理解福柯：批判性导论(第2版)》《行政过程》《经济计划原理》《静态经济：政治经济学原理第一卷》《人工智能经济学和法律：金融、经济影响、风险管理和治理》《魏晋六朝玄学》《李仪祉文集(全五册)》；入选4月大众类十佳图书的是《学生古今汉语字典》《语文教育三人谈》《休谟论说文集：道德、政治和文学》《洪炉：川菜有个徐老师》《面食之路：中华民族面食文化的交融与变迁》《利奥波德传：像山一样思考》《幸福哲学家：功利主义巨擘的生平与著作》《论卡夫卡》《故宫学十讲》《大历史学家：世界100位著名历史学家画传》。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:20 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 02:28 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 02:20 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-30 02:09 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 02:30 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 02:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 02:35 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 02:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-30 02:34 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 02:08 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 02:31 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 02:30 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 02:24 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 02:35 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 02:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 02:19 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 02:25 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 02:16 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-30 02:39 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 02:12 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 02:27 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 02:37 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 02:27 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 02:29 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 02:21 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-30 02:17 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 02:38 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 02:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/79492.shtml)
-- 2026-06-30 02:29 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/99889772205.shtml)
-- 2026-06-30 02:23 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/808618.shtml)
-- 2026-06-30 02:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/84740544.shtml)
-- 2026-06-30 02:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/332822.shtml)
-- 2026-06-30 02:30 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/86380.shtml)
-- 2026-06-30 02:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/52644.shtml)
-- 2026-06-30 02:13 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/264604604.shtml)
-- 2026-06-30 02:09 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/5409127372.shtml)
-- 2026-06-30 02:18 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/491747923339.shtml)
-- 2026-06-30 02:32 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/303251292284.shtml)
-- 2026-06-30 02:22 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/01235251889.shtml)
-- 2026-06-30 02:16 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/91886.shtml)
-- 2026-06-30 02:29 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/713234209.shtml)
-- 2026-06-30 02:22 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/7486533594.shtml)
+- 2026-06-30 02:19 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/5918904.shtml)
+- 2026-06-30 02:37 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/6737735.shtml)
+- 2026-06-30 02:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/747037809241.shtml)
+- 2026-06-30 02:40 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/3650723042.shtml)
+- 2026-06-30 02:40 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/344602.shtml)
+- 2026-06-30 02:40 - [本西奇成本届温网女单首位晋级球员](http://www.blog.minike.top/Article/details/89302454.shtml)
+- 2026-06-30 02:14 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/43511033416.shtml)
+- 2026-06-30 02:16 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/7682245336.shtml)
+- 2026-06-30 02:22 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/227596269.shtml)
+- 2026-06-30 02:39 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/569579550.shtml)
+- 2026-06-30 02:41 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/57310327.shtml)
+- 2026-06-30 02:19 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/8441522431.shtml)
+- 2026-06-30 02:21 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/70801900216.shtml)
+- 2026-06-30 02:17 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/9129344424.shtml)
+- 2026-06-30 02:41 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/27763812.shtml)

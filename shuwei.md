@@ -1,56 +1,57 @@
-# 国铁呼和浩特局4月10日起实行新的货物列车运行图
+# “敦煌文化环球连线——走进德国杜塞尔多夫”活动举办
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网呼和浩特4月10日电 (记者 李爱平)记者从中国铁路呼和浩特局集团有限公司(简称国铁呼和浩特局)获悉，4月10日18时起，国铁呼和浩特局实行新的货物列车运行图。调图后，铁路物流产品体系进一步优化，将为内蒙古自治区经济社会高质量发展和民众生产生活提供运输保障。新图实施后，国铁呼和浩特局安排开行跨铁路局集团公司货物班列37列，其中中欧班列18列、中亚班列3列、多式联运班列10
+中新网柏林5月7日电 当地时间7日，“敦煌文化环球连线——走进德国杜塞尔多夫”活动举办。中国驻杜塞尔多夫总领事余勇，甘肃省外办主任徐妍丽，敦煌研究院副院长俞天秀，领区中德友好协会、孔子学院、青年侨胞代表等50余人出席。余勇致辞表示，习近平主席提出全球文明倡议，为构建人类命运共同体指明方向、注入活力。新时代共建“一带一路”，传承丝路和平合作、开放包容的初心，与敦煌贯通中西、联结四
 
 ## 正文
 
-中新网呼和浩特4月10日电 (记者 李爱平)记者从中国铁路呼和浩特局集团有限公司(简称国铁呼和浩特局)获悉，4月10日18时起，国铁呼和浩特局实行新的货物列车运行图。
+中新网柏林5月7日电 当地时间7日，“敦煌文化环球连线——走进德国杜塞尔多夫”活动举办。
 
-调图后，铁路物流产品体系进一步优化，将为内蒙古自治区经济社会高质量发展和民众生产生活提供运输保障。
+中国驻杜塞尔多夫总领事余勇，甘肃省外办主任徐妍丽，敦煌研究院副院长俞天秀，领区中德友好协会、孔子学院、青年侨胞代表等50余人出席。
 
-新图实施后，国铁呼和浩特局安排开行跨铁路局集团公司货物班列37列，其中中欧班列18列、中亚班列3列、多式联运班列10列、城际班列6列。
+余勇致辞表示，习近平主席提出全球文明倡议，为构建人类命运共同体指明方向、注入活力。
 
-安排开行跨铁路局集团公司大宗货物直达列车80列，其中跨铁路局集团公司煤炭直达列车62列、跨铁路局集团公司非煤炭直达列车18列。
+新时代共建“一带一路”，传承丝路和平合作、开放包容的初心，与敦煌贯通中西、联结四海的气度一脉相承。
 
-据介绍，国铁呼和浩特局紧密对接市场需求，统筹利用线路能力、运输装备和站场资源，新增二连至侯马北以及呼和浩特、台阁牧、沙良至成都北城际班列2列，充分满足二连浩特发往山西的铁矿石运输需求以及呼和浩特发往成都的牛奶运输需求。
+总领馆愿勇担桥梁使命，立足属地优势，凝聚友好力量，深耕人文交流，让敦煌故事、中国故事在莱茵大地广为传扬。
 
-为保障迎峰度夏电煤保供，国铁呼和浩特局在唐包铁路、包西铁路分别安排开行图定重载列车48列、14列，全力满足能源保供运输需求。
+敦煌研究院文化弘扬部副部长宋淑霞作“灿烂的敦煌石窟艺术”专题分享，现场来宾踊跃互动，反响热烈。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 02:27 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 02:19 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-30 02:14 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-30 02:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 02:35 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 02:13 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 02:27 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 02:10 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 02:07 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 02:34 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-30 02:31 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 02:30 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 02:25 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 02:33 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 02:32 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 02:19 - [锐评T1零封KC](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 02:20 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 02:36 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 02:38 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 02:36 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 02:24 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 02:39 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 02:34 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 02:34 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/613204936.shtml)
-- 2026-06-30 02:30 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/55005694499.shtml)
-- 2026-06-30 02:11 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/10376.shtml)
-- 2026-06-30 02:19 - [一见倾心](https://www.share.kurohicncr.top/Article/details/028694544.shtml)
-- 2026-06-30 02:23 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/88462053724.shtml)
-- 2026-06-30 02:20 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/71495743.shtml)
-- 2026-06-30 02:06 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/3391586958.shtml)
-- 2026-06-30 02:16 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/804583966.shtml)
-- 2026-06-30 02:27 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/201871767.shtml)
-- 2026-06-30 02:29 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/8341696.shtml)
-- 2026-06-30 02:14 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/43538.shtml)
-- 2026-06-30 02:14 - [田曦薇没招了](https://www.share.minike.top/Article/details/43676269278.shtml)
-- 2026-06-30 02:13 - [美人鱼](http://www.blog.minike.top/Article/details/339374384.shtml)
-- 2026-06-30 02:35 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/25138068.shtml)
-- 2026-06-30 02:30 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/78836898295.shtml)
+- 2026-06-30 02:23 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/3726298069.shtml)
+- 2026-06-30 02:39 - [女心理师](https://www.share.minike.top/Article/details/700204054.shtml)
+- 2026-06-30 02:20 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/309519504520.shtml)
+- 2026-06-30 02:17 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/22111278.shtml)
+- 2026-06-30 02:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/0417864.shtml)
+- 2026-06-30 02:17 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/72719139584.shtml)
+- 2026-06-30 02:17 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/121969561512.shtml)
+- 2026-06-30 02:33 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/270294643.shtml)
+- 2026-06-30 02:19 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/780873.shtml)
+- 2026-06-30 02:36 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/74437420.shtml)
+- 2026-06-30 02:41 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/1241613.shtml)
+- 2026-06-30 02:33 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/556582012875.shtml)
+- 2026-06-30 02:33 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/9243619.shtml)
+- 2026-06-30 02:27 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/9600178.shtml)
+- 2026-06-30 02:30 - [千香](http://www.share.minike.top/Article/details/188098948817.shtml)

@@ -1,59 +1,50 @@
-# 聚焦AI+生态环境监测 第六期环境新闻茶座在北京举办
+# 摩根大通：中国汽车制造商或将占据更大的西欧市场份额
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网北京4月10日电 (记者 阮煜琳)“AI+引领环境监测”第六期环境新闻茶座日前在北京举办。 该活动由中国环境新闻工作者协会主办。中国物资再生协会土壤修复专业委员会会长、生态环境部土壤生态环境司原一级巡视员陈永清表示，当前，我国土壤环境监测已经初步构建起体系，正在实现从摸清家底到智慧监管的跨越，为土壤污染风险管控与治理修复提供数据支撑。未来，土壤的环境监测将会逐步从数据采集
+摩根大通上调预期，预计到2028年中国车企在西欧市场份额将升至20%，高于此前预估的2030年达10%–15%；比亚迪、吉利、零跑汽车将成为这一趋势的最大受益者。包括Nick Lai 在内的分析师在研报中表示：“中国汽车出口具备结构性增长逻辑，将愈发成为全球投资者关注的核心主线。”该机构预测，到2028年中国乘用车在西欧销量有望达到约250万辆，较去年约100万辆大幅增长。摩根
 
 ## 正文
 
-中新网北京4月10日电 (记者 阮煜琳)“AI+引领环境监测”第六期环境新闻茶座日前在北京举办。
+摩根大通上调预期，预计到2028年中国车企在西欧市场份额将升至20%，高于此前预估的2030年达10%–15%；比亚迪、吉利、零跑汽车将成为这一趋势的最大受益者。
 
-该活动由中国环境新闻工作者协会主办。
+包括Nick Lai 在内的分析师在研报中表示：“中国汽车出口具备结构性增长逻辑，将愈发成为全球投资者关注的核心主线。
 
-中国物资再生协会土壤修复专业委员会会长、生态环境部土壤生态环境司原一级巡视员陈永清表示，当前，我国土壤环境监测已经初步构建起体系，正在实现从摸清家底到智慧监管的跨越，为土壤污染风险管控与治理修复提供数据支撑。
+”该机构预测，到2028年中国乘用车在西欧销量有望达到约250万辆，较去年约100万辆大幅增长。
 
-未来，土壤的环境监测将会逐步从数据采集到知识发展；从人工判断到AI自主决策，全面提升效率、精准、覆盖度，支撑耕地保护、地块的污染管控、生态修复、低碳农业高质量的发展。
+摩根大通建议投资者重点布局海外营收占比高、增速快的新能源车企，涵盖比亚迪、吉利、零跑汽车及小鹏汽车。
 
-武汉市生态环境监控中心副主任朱润梁表示，武汉市加速推进“AI+生态环境监测”实践，构建起“天空地”一体化监测网络，实现水、气、土、声等要素全域感知。
-
-探索开发“生态智眼”智能体，综合低空无人机巡查，AI图像识别及遥感信息技术结合，实现环境精准治理技术支撑。
-
-整合卫星遥感与智能研判，推出农村黑臭水体“一码查询”服务。
-
-同时，搭建具备监控、研判、指挥功能的生态环境智慧监管平台。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 02:25 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 02:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 02:21 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 02:18 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-30 02:08 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 02:27 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
-- 2026-06-30 02:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 02:31 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 02:18 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 02:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 02:07 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 02:30 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 02:20 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 02:32 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 02:21 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 02:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 02:19 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-30 02:16 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 02:34 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 02:33 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-30 02:28 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 02:23 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 02:35 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/66440137788.shtml)
-- 2026-06-30 02:22 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/6993642.shtml)
-- 2026-06-30 02:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/598180129947.shtml)
-- 2026-06-30 02:11 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/56060630.shtml)
-- 2026-06-30 02:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/159844.shtml)
-- 2026-06-30 02:24 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/941570908718.shtml)
-- 2026-06-30 02:24 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/789570.shtml)
-- 2026-06-30 02:07 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/43227.shtml)
-- 2026-06-30 02:08 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/475839291111.shtml)
-- 2026-06-30 02:10 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/14560897.shtml)
-- 2026-06-30 02:16 - [恋与深空回应争议](http://www.share.minike.top/Article/details/626644653853.shtml)
-- 2026-06-30 02:11 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/0450194.shtml)
-- 2026-06-30 02:13 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/531169055191.shtml)
-- 2026-06-30 02:08 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/382846.shtml)
-- 2026-06-30 02:34 - [DRG官宣选手Akeman离队](http://www.blog.kurohicncr.top/Article/details/28979168.shtml)
+- 2026-06-30 02:39 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/8871043.shtml)
+- 2026-06-30 02:41 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/57336989.shtml)
+- 2026-06-30 02:12 - [毒液2](https://www.share.minike.top/Article/details/3760552856.shtml)
+- 2026-06-30 02:35 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/827558713.shtml)
+- 2026-06-30 02:17 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/885466538.shtml)
+- 2026-06-30 02:38 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/96824223860.shtml)
+- 2026-06-30 02:25 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/03438.shtml)
+- 2026-06-30 02:24 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/606034917477.shtml)
+- 2026-06-30 02:25 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/9362814.shtml)
+- 2026-06-30 02:33 - [TOP Prada](http://www.blog.minike.top/Article/details/003372.shtml)
+- 2026-06-30 02:14 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/5180118571.shtml)
+- 2026-06-30 02:18 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/92720.shtml)
+- 2026-06-30 02:16 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/5721189.shtml)
+- 2026-06-30 02:34 - [青春环游记第三季](https://www.share.minike.top/Article/details/2821722428.shtml)
+- 2026-06-30 02:19 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/350588818928.shtml)

@@ -1,52 +1,61 @@
-# 内塔尼亚胡宣布启动与黎巴嫩直接谈判
+# 美国债务触及危险里程碑，专家称特朗普政策恐雪上加霜
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据美国全国广播公司(NBC)当地时间9日报道，以色列总理内塔尼亚胡在一则视频讲话中重申，以色列不认为黎巴嫩属于与伊朗达成的停火协议的一部分。他还表示，黎巴嫩政府已多次请求启动和平谈判。 据报道，内塔尼亚胡称，他已指示内阁启动与黎巴嫩的直接谈判，旨在实现两个目标：解除黎巴嫩真主党武装，并在黎巴嫩与以色列之间建立持久和平。 内塔尼亚胡在视频讲话中说：“我们将继续
+美国国债已突破39万亿美元大关，创下历史新高。无党派的国会预算办公室警告，未来十年财政前景进一步恶化，而特朗普政府的税收、关税及支出政策正加剧这一危机。 据最新数据，美国公共债务规模已超过39万亿美元，相当于每个美国公民背负约11.4万美元的债务。国会预算办公室在其最新发布的《2026-2036年预算与经济展望》中预计，到2036年，联邦预算赤字将增至3.1万亿美元，占GDP的
 
 ## 正文
 
-中新网4月10日电 据美国全国广播公司(NBC)当地时间9日报道，以色列总理内塔尼亚胡在一则视频讲话中重申，以色列不认为黎巴嫩属于与伊朗达成的停火协议的一部分。
+美国国债已突破39万亿美元大关，创下历史新高。
 
-他还表示，黎巴嫩政府已多次请求启动和平谈判。
+无党派的国会预算办公室警告，未来十年财政前景进一步恶化，而特朗普政府的税收、关税及支出政策正加剧这一危机。
 
-据报道，内塔尼亚胡称，他已指示内阁启动与黎巴嫩的直接谈判，旨在实现两个目标：解除黎巴嫩真主党武装，并在黎巴嫩与以色列之间建立持久和平。
+据最新数据，美国公共债务规模已超过39万亿美元，相当于每个美国公民背负约11.4万美元的债务。
 
-内塔尼亚胡在视频讲话中说：“我们将继续强力打击黎巴嫩真主党，不恢复以色列的安全，我们绝不会罢休。
+国会预算办公室在其最新发布的《2026-2036年预算与经济展望》中预计，到2036年，联邦预算赤字将增至3.1万亿美元，占GDP的6.7%。
 
-” 他补充道：“以色列比以往任何时候都更强大，而伊朗则比以往任何时候都更虚弱。
+特朗普政策成债务失控主因 专家警告，导致债务失控的核心因素之一，正是特朗普政府力推的多项经济政策。
 
-”
+去年通过的减税法案永久延长了2017年的减税政策，国会预算办公室估计，仅此一项法案就将在十年内使国家债务增加至少3.4万亿至4.7万亿美元。
+
+参议院预算委员会指出，该法案将使债务在2056年飙升至GDP的175%。
+
+最高法院裁定特朗普依据《国际紧急经济权力法》征收的全球关税违法后，退税工作已启动。
 
 ## 相关推荐
 
-- 2026-06-30 02:31 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 02:15 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-30 02:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 02:25 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 02:13 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 02:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 02:23 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 02:18 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-30 02:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 02:20 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 02:20 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 02:40 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-30 02:28 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 02:12 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 02:16 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 02:30 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 02:13 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 02:19 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 02:37 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 02:39 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-30 02:36 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 02:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-30 02:24 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 02:38 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [《贺子珍》](https://www.share.minike.top/Article/details/68616063697.shtml)
-- 2026-06-30 02:26 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/772639778459.shtml)
-- 2026-06-30 02:23 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/4653208633.shtml)
-- 2026-06-30 02:08 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/87805061257.shtml)
-- 2026-06-30 02:13 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/2803154.shtml)
-- 2026-06-30 02:12 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/388560640072.shtml)
-- 2026-06-30 02:16 - [周生如故](http://www.blog.minike.top/Article/details/88754.shtml)
-- 2026-06-30 02:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/29962.shtml)
-- 2026-06-30 02:31 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/5777043.shtml)
-- 2026-06-30 02:27 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/62375.shtml)
-- 2026-06-30 02:11 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/73599.shtml)
-- 2026-06-30 02:35 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/868543005538.shtml)
-- 2026-06-30 02:34 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/234592201095.shtml)
-- 2026-06-30 02:24 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/623934565195.shtml)
-- 2026-06-30 02:35 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/920183093.shtml)
+- 2026-06-30 02:36 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/847104.shtml)
+- 2026-06-30 02:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/57093594.shtml)
+- 2026-06-30 02:33 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/978454002.shtml)
+- 2026-06-30 02:39 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/2375156766.shtml)
+- 2026-06-30 02:22 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/4075839348.shtml)
+- 2026-06-30 02:35 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/3991691.shtml)
+- 2026-06-30 02:32 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/45172.shtml)
+- 2026-06-30 02:34 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/75389630429.shtml)
+- 2026-06-30 02:23 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/8569526.shtml)
+- 2026-06-30 02:25 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/087885180.shtml)
+- 2026-06-30 02:17 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/06856.shtml)
+- 2026-06-30 02:25 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/532174145934.shtml)
+- 2026-06-30 02:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/29720848338.shtml)
+- 2026-06-30 02:20 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/27765122783.shtml)
+- 2026-06-30 02:16 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/88034153.shtml)

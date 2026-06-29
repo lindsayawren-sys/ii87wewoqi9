@@ -1,57 +1,61 @@
-# 美媒：万斯在促成美伊谈判方面作用关键
+# 麦当劳CEO：消费者支出“可能会变得更糟一些”
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网4月11日电 据美国有线电视新闻网（CNN）11日报道，据一位巴基斯坦高级消息人士透露，美国副总统万斯在促成将在巴基斯坦伊斯兰堡启动的美伊谈判方面发挥了关键作用。 这位熟悉谈判进程的消息人士称，他们估计需要几天时间谈判，才能敲定停火协议，巴基斯坦官员希望说服万斯延长在巴停留时间，以协助促成此事。 此外，一位海湾地区高级消息人士透露，伊朗方面对美国总统特朗普的特使威特科夫信
+麦当劳周四公布的一季度财报显示，其盈利和营收均超出分析师预期。但公司高管对当前消费环境提出了新的担忧，首席执行官克里斯·坎普钦斯基表示，消费者支出“可能正在变得更糟一些”。 受财报利好影响，麦当劳股价在盘前交易中一度上涨超过3%，但随着高管在电话会议中表达对消费环境的担忧，部分涨幅随即回吐。 财务表现 根据伦敦证券交易所集团对分析师的调查，麦当劳一季度调整后每股收益为2.83美
 
 ## 正文
 
-中新网4月11日电 据美国有线电视新闻网（CNN）11日报道，据一位巴基斯坦高级消息人士透露，美国副总统万斯在促成将在巴基斯坦伊斯兰堡启动的美伊谈判方面发挥了关键作用。
+麦当劳周四公布的一季度财报显示，其盈利和营收均超出分析师预期。
 
-这位熟悉谈判进程的消息人士称，他们估计需要几天时间谈判，才能敲定停火协议，巴基斯坦官员希望说服万斯延长在巴停留时间，以协助促成此事。
+但公司高管对当前消费环境提出了新的担忧，首席执行官克里斯·坎普钦斯基表示，消费者支出“可能正在变得更糟一些”。
 
-此外，一位海湾地区高级消息人士透露，伊朗方面对美国总统特朗普的特使威特科夫信任度极低。
+受财报利好影响，麦当劳股价在盘前交易中一度上涨超过3%，但随着高管在电话会议中表达对消费环境的担忧，部分涨幅随即回吐。
 
-此前，威特科夫曾主导多轮与伊朗的谈判，但这些谈判均因美国对伊朗的军事打击而中断。
+财务表现 根据伦敦证券交易所集团对分析师的调查，麦当劳一季度调整后每股收益为2.83美元，高于市场预期的2.74美元；营收为65.2亿美元，高于预期的64.7亿美元。
 
-威特科夫是此次参加伊斯兰堡谈判的美国代表团成员之一。
+净利润从去年同期的18.7亿美元增至19.8亿美元。
 
-另据美联社报道，万斯已率领代表团抵达伊斯兰堡，代表团成员包括美国总统特使威特科夫和总统女婿库什纳。
+全球同店销售额增长3.8%，与市场预期的3.7%基本持平。
 
-责任编辑：赵思远
+美国市场同店销售额增长3.9%，主要得益于顾客单次消费金额提高。
+
+消费环境恶化 坎普钦斯基在财报电话会议上表示：“我认为可以肯定地说，情况肯定没有改善，而且可能会变得更糟一些。
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 02:18 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-30 02:21 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-30 02:23 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 02:06 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 02:25 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 02:13 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 02:10 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 02:07 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 02:14 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
-- 2026-06-30 02:12 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 02:07 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 02:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 02:20 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 02:12 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 02:24 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 02:38 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 02:13 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 02:29 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 02:25 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 02:19 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 02:41 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 02:30 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 02:12 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 02:21 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 02:40 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 02:28 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 02:16 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/421208502.shtml)
-- 2026-06-30 02:20 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/088547.shtml)
-- 2026-06-30 02:20 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/3132368849.shtml)
-- 2026-06-30 02:35 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/1707039.shtml)
-- 2026-06-30 02:06 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/204388035.shtml)
-- 2026-06-30 02:12 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/014706818168.shtml)
-- 2026-06-30 02:18 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/90199155.shtml)
-- 2026-06-30 02:27 - [毒液2](https://www.share.minike.top/Article/details/227559797906.shtml)
-- 2026-06-30 02:17 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/00105298.shtml)
-- 2026-06-30 02:21 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/194977055745.shtml)
-- 2026-06-30 02:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/957092.shtml)
-- 2026-06-30 02:10 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/035416127038.shtml)
-- 2026-06-30 02:30 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/768893933.shtml)
-- 2026-06-30 02:11 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/0919217.shtml)
-- 2026-06-30 02:32 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/546868.shtml)
+- 2026-06-30 02:25 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/8018159.shtml)
+- 2026-06-30 02:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/44565360.shtml)
+- 2026-06-30 02:24 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/022825.shtml)
+- 2026-06-30 02:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/92538785395.shtml)
+- 2026-06-30 02:40 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/2240905.shtml)
+- 2026-06-30 02:36 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/432934.shtml)
+- 2026-06-30 02:22 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/93199.shtml)
+- 2026-06-30 02:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/2440795434.shtml)
+- 2026-06-30 02:36 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/4825750.shtml)
+- 2026-06-30 02:33 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/82830733465.shtml)
+- 2026-06-30 02:28 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/40891551000.shtml)
+- 2026-06-30 02:35 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/36684911.shtml)
+- 2026-06-30 02:36 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/371617.shtml)
+- 2026-06-30 02:16 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/5791906973.shtml)
+- 2026-06-30 02:32 - [日本反击率先破门](http://www.blog.minike.top/Article/details/54926193.shtml)

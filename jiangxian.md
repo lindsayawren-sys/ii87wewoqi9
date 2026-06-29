@@ -1,58 +1,48 @@
-# 高起点，高要求，汇丰、渣打为何能拿下首批稳定币牌照
+# 广西瑶乡“五一”文旅消费热 古村古道引客来
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-每经记者|涂颖浩 赵景致 每经编辑|黄胜 4月10日，香港金融管理局（下称“金管局”）消息显示，首批稳定币发行人牌照已正式发出。碇点金融科技有限公司（由渣打银行（香港）、香港电讯及安拟集团联合组建）、香港上海汇丰银行有限公司成为首批获牌机构。牌照自当日起生效。这一落地标志着香港稳定币监管制度正式进入落地实施新阶段。 汇丰、渣打为何能拿下首批稳定币牌照？曼昆律师事务所香港办公室负
+发布时间：2026年05月07日 08:44 来源：中国新闻网 “五一”假期期间，在广西贺州市富川瑶族自治县岔山、秀水等古村落，青石板路、古民居、地道的舌尖美食，以及独特的民俗文化吸引了大批游客。在有着700多年历史的岔山村，每到饭点，沿街30多家农家乐门庭若市，油茶、梭子粑粑等特色美食供不应求，假日消费格外红火。(张影 王璟 制作 王嘉怡) 责任编辑：【张燕玲】
 
 ## 正文
 
-每经记者|涂颖浩 赵景致 每经编辑|黄胜 4月10日，香港金融管理局（下称“金管局”）消息显示，首批稳定币发行人牌照已正式发出。
+发布时间：2026年05月07日 08:44 来源：中国新闻网 “五一”假期期间，在广西贺州市富川瑶族自治县岔山、秀水等古村落，青石板路、古民居、地道的舌尖美食，以及独特的民俗文化吸引了大批游客。
 
-碇点金融科技有限公司（由渣打银行（香港）、香港电讯及安拟集团联合组建）、香港上海汇丰银行有限公司成为首批获牌机构。
+在有着700多年历史的岔山村，每到饭点，沿街30多家农家乐门庭若市，油茶、梭子粑粑等特色美食供不应求，假日消费格外红火。
 
-牌照自当日起生效。
-
-这一落地标志着香港稳定币监管制度正式进入落地实施新阶段。
-
-汇丰、渣打为何能拿下首批稳定币牌照？
-
-曼昆律师事务所香港办公室负责人白溱在受访时对《每日经济新闻》记者分析认为，银行本身就长期运行在高合规、高资本要求的环境下，天然符合这套标准。
-
-监管并不是在挑选“新物种”，而是在筛选能够承担基础设施功能的主体。
-
-这反映出一种明确的趋势：稳定币不再是可以随意试错的产品，而正被纳入传统金融的规则框架。
+(张影 王璟 制作 王嘉怡) 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 02:34 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 02:25 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 02:11 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 02:20 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 02:26 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 02:25 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-30 02:24 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
-- 2026-06-30 02:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 02:18 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 02:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 02:30 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 02:21 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 02:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 02:22 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 02:12 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 02:39 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 02:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 02:29 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 02:25 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 02:33 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-30 02:23 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 02:15 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-30 02:35 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/29237.shtml)
-- 2026-06-30 02:25 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/97146.shtml)
-- 2026-06-30 02:08 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/4282411.shtml)
-- 2026-06-30 02:16 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/2934843.shtml)
-- 2026-06-30 02:25 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/302083668248.shtml)
-- 2026-06-30 02:34 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/596279898541.shtml)
-- 2026-06-30 02:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/55612652731.shtml)
-- 2026-06-30 02:28 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/75187069988.shtml)
-- 2026-06-30 02:11 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/632115.shtml)
-- 2026-06-30 02:26 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/165587720600.shtml)
-- 2026-06-30 02:21 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/4914666.shtml)
-- 2026-06-30 02:06 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/251931107888.shtml)
-- 2026-06-30 02:30 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/532793147.shtml)
-- 2026-06-30 02:10 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/959755080.shtml)
-- 2026-06-30 02:08 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/77538421.shtml)
+- 2026-06-30 02:25 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/761884503.shtml)
+- 2026-06-30 02:22 - [张元英是故意的还是不小心的](https://www.share.kurohicncr.top/Article/details/961952360615.shtml)
+- 2026-06-30 02:12 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/8928750677.shtml)
+- 2026-06-30 02:19 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/14521901915.shtml)
+- 2026-06-30 02:39 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/74044.shtml)
+- 2026-06-30 02:16 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/621951.shtml)
+- 2026-06-30 02:30 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/2241072.shtml)
+- 2026-06-30 02:30 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/2957970.shtml)
+- 2026-06-30 02:30 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/9373418530.shtml)
+- 2026-06-30 02:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/696769.shtml)
+- 2026-06-30 02:38 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/2595016.shtml)
+- 2026-06-30 02:34 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/3761305266.shtml)
+- 2026-06-30 02:34 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/955938963.shtml)
+- 2026-06-30 02:34 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/6510699751.shtml)
+- 2026-06-30 02:35 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/854278.shtml)

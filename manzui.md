@@ -1,59 +1,56 @@
-# 上海“人犬越野赛”上演“速度与激情”
+# 东海期货宏观专题报告：PPI修复回升 国内股指走势如何？
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-专家解析中国“保持制造业合理比重”背后深意从一场高规格座谈会看中国经济工作新动向手抖=衰老？这些信号，早发现能救命！美伊今日开始谈判：谁来谈？谈什么？谈崩了怎么办？中美“乒乓外交”在当下有何特殊意义？“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实困境与未来前景花粉过敏为何越来越普遍？致敏树种能否一砍了
+分析师： 明道雨 从业资格证号：F03092124 投资咨询证号：Z0018827 电话：021-68758120 邮箱：mingdy@qh168.com.cn \[table_main\] 投资要点： Ø 2026 年 3 月，我国 PPI 同比上涨 0.5%，结束连续 41 个月负增长，标志工业通缩周期终结，宏观经济步入温和复苏新阶段。本报告系统梳理本轮 PPI 回升的驱动逻辑
 
 ## 正文
 
-专家解析中国“保持制造业合理比重”背后深意从一场高规格座谈会看中国经济工作新动向手抖=衰老？
+分析师： 明道雨 从业资格证号：F03092124 投资咨询证号：Z0018827 电话：021-68758120 邮箱：mingdy@qh168.com.cn \[table_main\] 投资要点： Ø 2026 年 3 月，我国 PPI 同比上涨 0.5%，结束连续 41 个月负增长，标志工业通缩周期终结，宏观经济步入温和复苏新阶段。
 
-这些信号，早发现能救命！
+本报告系统梳理本轮 PPI 回升的驱动逻辑、传导机制与历史规律，研判股指走势并给出投资策略。
 
-美伊今日开始谈判：谁来谈？
+Ø 2022 年下半年起，受全球需求疲软、国内产能过剩等影响，PPI 持续下行，工业企业盈利收缩，资本市场周期板块长期低迷，形成 “需求弱 — 价格跌 — 盈利差” 的负向循环。
 
-谈什么？
+2025 年 7 月成为修复拐点，环比率先转正并连续上涨，同比降幅逐月收窄，2026 年 3 月正式转正，环比涨幅创 48 个月新高。
 
-谈崩了怎么办？
+本轮修复呈现四大特征：一是动能多元，由国际大宗商品、国内稳增长、新动能产业与供给侧治理共同驱动；二是行业分化显著，上游资源领跑、中游材料跟进、下游消费滞后，新动能行业独立高景气；三是与 CPI 弱联动，生产端回暖、终端消费温和，通胀压力有限；四是节奏阶梯化，呈 “环比转正 — 降幅收窄 — 同比转正” 的温和复苏路径。
 
-中美“乒乓外交”在当下有何特殊意义？
+Ø PPI 通过盈利、流动性、风险偏好、行业轮动四大路径传导至股指。
 
-“脆弱的停火”增添变数 多国政要谴责以色列袭击黎巴嫩打造“智能经济新形态” 中国物流驶入智慧“快车道”美伊“临时停火”的现实困境与未来前景花粉过敏为何越来越普遍？
+盈利端，上游行业直接受益、盈利弹性最大，中游先压后升、逐步改善，下游受制于终端需求偏弱而承压；流动性端，温和回升背景下货币政策维持宽松，利好估值修复；风险偏好端，经济复苏信号提振市场信心，吸引增量资金入场；行业轮动端，呈现 “成长先行 — 周期接力 — 消费与稳定收尾” 的清晰节奏。
 
-致敏树种能否一砍了之？
+Ø 复盘国内五轮 PPI 回升周期，股指走势呈现三阶段规律：第一阶段（环比见底至同比见底），估值修复，成长股占优，TMT、电力设备等板块领涨；第二阶段（同比见底至转正），盈利与估值共振，市场均衡上涨，成长、周期、消费全面开花；第三阶段（同比转正至见顶），高位震荡，前期成长和周期风格占优中后期稳定风格占优，资金转向低估值防御板块。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 02:16 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
-- 2026-06-30 02:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
-- 2026-06-30 02:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 02:22 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 02:32 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 02:34 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 02:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 02:06 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-30 02:29 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 02:34 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 02:32 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 02:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 02:23 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-30 02:38 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 02:17 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-30 02:30 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 02:37 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-30 02:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 02:18 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 02:18 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 02:28 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-30 02:39 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/805713075953.shtml)
-- 2026-06-30 02:17 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/461980302.shtml)
-- 2026-06-30 02:35 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/3328758846.shtml)
-- 2026-06-30 02:29 - [爱很美味](http://www.share.kurohicncr.top/Article/details/320390136028.shtml)
-- 2026-06-30 02:14 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/15994616.shtml)
-- 2026-06-30 02:09 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/11535935.shtml)
-- 2026-06-30 02:17 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/605981.shtml)
-- 2026-06-30 02:32 - [AI接过张雪峰志愿填报衣钵](http://www.blog.minike.top/Article/details/4710070.shtml)
-- 2026-06-30 02:07 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/183974427.shtml)
-- 2026-06-30 02:25 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/5697998.shtml)
-- 2026-06-30 02:22 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/36822498.shtml)
-- 2026-06-30 02:35 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/4675325.shtml)
-- 2026-06-30 02:15 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/1102796190.shtml)
-- 2026-06-30 02:19 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/24857.shtml)
-- 2026-06-30 02:33 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/311684383972.shtml)
+- 2026-06-30 02:22 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/372948.shtml)
+- 2026-06-30 02:24 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/05861766.shtml)
+- 2026-06-30 02:17 - [严浩翔张峻豪师兄弟同台](https://www.blog.kurohicncr.top/Article/details/595940744285.shtml)
+- 2026-06-30 02:39 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/72567.shtml)
+- 2026-06-30 02:24 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/22142946544.shtml)
+- 2026-06-30 02:25 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/575889.shtml)
+- 2026-06-30 02:33 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/3224425163.shtml)
+- 2026-06-30 02:23 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/9195851.shtml)
+- 2026-06-30 02:29 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/2798552.shtml)
+- 2026-06-30 02:20 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/251490.shtml)
+- 2026-06-30 02:14 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/18818683.shtml)
+- 2026-06-30 02:15 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/38777878702.shtml)
+- 2026-06-30 02:32 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/782028917.shtml)
+- 2026-06-30 02:25 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/58402310.shtml)
+- 2026-06-30 02:33 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/082093749193.shtml)

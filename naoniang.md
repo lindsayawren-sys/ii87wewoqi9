@@ -1,57 +1,53 @@
-# 马萨诸塞州最高法院裁定：Meta必须面临青少年成瘾诉讼
+# 外交部：希望欧方全面客观积极看待中欧经贸关系
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-马萨诸塞州最高法院周五裁定，Meta Platforms必须面对该州总检察长提起的诉讼。该诉讼指控这家Facebook和Instagram的母公司故意设计平台功能，使年轻用户上瘾。 裁定要点 马萨诸塞州最高法院的这项裁决，标志着美国州级最高法院首次就《通信规范法》第230条是否适用于此类案件作出审理。该联邦法律通常保护互联网公司免于因用户发布的内容而被起诉。法院认为，第230条
+5月8日，外交部发言人林剑主持例行记者会。有记者就有报告称，欧盟正推进出台“网络安全法”，禁止中国企业参与欧关键基础设施建设一事提问。 对此，林剑表示，日前，中方的主管部门就欧盟“网络安全法修订案”等向欧方提交了评估意见，表达了中方严正关切和政治立场，希望欧方认真对待。中方正密切关注欧方有关的立法动向，愿与欧方就此进行对话沟通，希望欧方全面客观、积极看待中欧经贸关系，遵守世贸组
 
 ## 正文
 
-马萨诸塞州最高法院周五裁定，Meta Platforms必须面对该州总检察长提起的诉讼。
+5月8日，外交部发言人林剑主持例行记者会。
 
-该诉讼指控这家Facebook和Instagram的母公司故意设计平台功能，使年轻用户上瘾。
+有记者就有报告称，欧盟正推进出台“网络安全法”，禁止中国企业参与欧关键基础设施建设一事提问。
 
-裁定要点 马萨诸塞州最高法院的这项裁决，标志着美国州级最高法院首次就《通信规范法》第230条是否适用于此类案件作出审理。
+对此，林剑表示，日前，中方的主管部门就欧盟“网络安全法修订案”等向欧方提交了评估意见，表达了中方严正关切和政治立场，希望欧方认真对待。
 
-该联邦法律通常保护互联网公司免于因用户发布的内容而被起诉。
+中方正密切关注欧方有关的立法动向，愿与欧方就此进行对话沟通，希望欧方全面客观、积极看待中欧经贸关系，遵守世贸组织规则和市场原则，停止损人不利己的做法。
 
-法院认为，第230条不适用于马萨诸塞州指控Meta就其平台安全性作出虚假陈述的部分，因为该州“主要是寻求让Meta为其自身的商业行为承担责任”，而非第三方发布的内容。
+如欧方执意惩罚、歧视性对待中国企业，中方将采取坚决措施维护中国企业的合法权益。
 
-Meta否认了这些指控，并表示公司采取了广泛措施来保护青少年和年轻用户在其平台上的安全。
-
-案件背景 该诉讼由马萨诸塞州总检察长安德里亚·乔伊·坎贝尔提起，指控Instagram的推送通知、“点赞”按钮和无尽滚动等功能，旨在利用青少年的心理脆弱性和“错失恐惧症”来获利。
-
-诉讼称，内部数据显示该平台正在使儿童成瘾并造成伤害，但高层管理人员拒绝了其研究显示可以改善青少年福祉的修改建议。
+(总台央视记者 黄惠馨 赵超逸)
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 02:27 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-30 02:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 02:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 02:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 02:13 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 02:29 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 02:06 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
-- 2026-06-30 02:15 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 02:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 02:34 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 02:31 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-30 02:23 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 02:14 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 02:29 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 02:25 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 02:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:24 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-30 02:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 02:20 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 02:24 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-30 02:13 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [刘念回应](http://www.blog.minike.top/Article/details/15397.shtml)
-- 2026-06-30 02:20 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/93478511351.shtml)
-- 2026-06-30 02:10 - [扬名立万](https://www.share.minike.top/Article/details/4891442.shtml)
-- 2026-06-30 02:33 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/445548426292.shtml)
-- 2026-06-30 02:12 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/510861034869.shtml)
-- 2026-06-30 02:19 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/787021396189.shtml)
-- 2026-06-30 02:10 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/54854.shtml)
-- 2026-06-30 02:29 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/89217337.shtml)
-- 2026-06-30 02:33 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/6549939886.shtml)
-- 2026-06-30 02:10 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/01569.shtml)
-- 2026-06-30 02:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/9508954.shtml)
-- 2026-06-30 02:12 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/228455855.shtml)
-- 2026-06-30 02:08 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/4728905.shtml)
-- 2026-06-30 02:32 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/67752.shtml)
-- 2026-06-30 02:11 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/33829985054.shtml)
+- 2026-06-30 02:23 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/59454263.shtml)
+- 2026-06-30 02:30 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/93176031.shtml)
+- 2026-06-30 02:30 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/02986248671.shtml)
+- 2026-06-30 02:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/379515764.shtml)
+- 2026-06-30 02:30 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/25043550.shtml)
+- 2026-06-30 02:25 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/8782892741.shtml)
+- 2026-06-30 02:28 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/4003748.shtml)
+- 2026-06-30 02:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/227568.shtml)
+- 2026-06-30 02:19 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/5973255954.shtml)
+- 2026-06-30 02:30 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/1000047011.shtml)
+- 2026-06-30 02:12 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/940930906476.shtml)
+- 2026-06-30 02:30 - [金刚川](http://www.share.kurohicncr.top/Article/details/3886900284.shtml)
+- 2026-06-30 02:27 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/13739.shtml)
+- 2026-06-30 02:14 - [送你一朵小红花](http://www.blog.minike.top/Article/details/067313004.shtml)
+- 2026-06-30 02:35 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/83507.shtml)

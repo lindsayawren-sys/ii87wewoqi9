@@ -1,57 +1,58 @@
-# 美国债市：国债在CPI公布后小幅下跌 周末美伊谈判前交投清淡
+# 印度IT公司Mphasis起诉Coforge，指控非法挖角及窃取客户数据
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-在3月CPI数据公布后，美国国债期货在美国交易时段小幅走低，投资者将注意力转向周末在巴基斯坦伊斯兰堡举行的美伊和平谈判。通胀数据总体符合预期，不过核心CPI环比涨幅略低于预期，数据公布后国债期货一度小幅上扬。 纽约时间下午3点过后不久，各期限收益率在消化CPI数据后重新攀升，全线上涨3至5个基点。短债收益率略微跑赢，推动2年期与10年期国债收益率差日内扩大约1.5个基点。 WT
+印度中型软件公司Mphasis已向美国法院提起诉讼，指控竞争对手Coforge违反合同限制，挖走其高管并获取机密客户信息。 根据法庭文件，Mphasis寻求禁令救济，要求禁止Coforge聘用其两名前高管从事双方共同客户嘉信理财的相关业务，并禁止使用Mphasis的机密数据。Mphasis还要求法院禁止被列为被告的前副总裁Brijesh Khergamker在一年内通过Cofo
 
 ## 正文
 
-在3月CPI数据公布后，美国国债期货在美国交易时段小幅走低，投资者将注意力转向周末在巴基斯坦伊斯兰堡举行的美伊和平谈判。
+印度中型软件公司Mphasis已向美国法院提起诉讼，指控竞争对手Coforge违反合同限制，挖走其高管并获取机密客户信息。
 
-通胀数据总体符合预期，不过核心CPI环比涨幅略低于预期，数据公布后国债期货一度小幅上扬。
+根据法庭文件，Mphasis寻求禁令救济，要求禁止Coforge聘用其两名前高管从事双方共同客户嘉信理财的相关业务，并禁止使用Mphasis的机密数据。
 
-纽约时间下午3点过后不久，各期限收益率在消化CPI数据后重新攀升，全线上涨3至5个基点。
+Mphasis还要求法院禁止被列为被告的前副总裁Brijesh Khergamker在一年内通过Coforge参与嘉信理财的外包业务，或接受Mphasis客户的业务，称此举违反其雇佣合同中的竞业限制条款。
 
-短债收益率略微跑赢，推动2年期与10年期国债收益率差日内扩大约1.5个基点。
+Mphasis声称，Coforge通过挖角至少四名诉状中提到的高级员工，在IT服务交付中获得了“不公平的竞争优势”。
 
-WTI期货尾盘走弱，推动国债期货从接近盘中低点的水平回升。
+除禁令外，Mphasis还寻求补偿性损害赔偿及律师费和相关费用的偿付。
 
-油价在涨跌之间波动，继续主导国债价格走势。
+该案件由印度《Mint》报于周三首次报道。
 
-临近周末，平仓仍是期货和期权市场的主要主题。
+尽管诉状标注日期为3月，但上周才出现在政府法律数据库中。
 
-周五，看涨和看跌结构的仓位平仓仍在持续。
+Coforge和Mphasis均未立即回应置评请求。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-30 02:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 02:20 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 02:08 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
-- 2026-06-30 02:06 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 02:19 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 02:17 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 02:35 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 02:31 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 02:25 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 02:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 02:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 02:18 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 02:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 02:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 02:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 02:40 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 02:35 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 02:29 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 02:21 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 02:15 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 02:25 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 02:31 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/416762.shtml)
-- 2026-06-30 02:11 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/713747466.shtml)
-- 2026-06-30 02:32 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/3446480.shtml)
-- 2026-06-30 02:10 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/45927004.shtml)
-- 2026-06-30 02:11 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/9934075.shtml)
-- 2026-06-30 02:21 - [起风了](http://www.blog.minike.top/Article/details/59164536.shtml)
-- 2026-06-30 02:12 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/290978556.shtml)
-- 2026-06-30 02:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/259717.shtml)
-- 2026-06-30 02:11 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/0637895351.shtml)
-- 2026-06-30 02:06 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/6586060736.shtml)
-- 2026-06-30 02:17 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/12447.shtml)
-- 2026-06-30 02:07 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/07383.shtml)
-- 2026-06-30 02:14 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/28337470068.shtml)
-- 2026-06-30 02:24 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/797307240.shtml)
-- 2026-06-30 02:18 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/1464630.shtml)
+- 2026-06-30 02:19 - [美人鱼](http://www.blog.minike.top/Article/details/58783377.shtml)
+- 2026-06-30 02:35 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/564007277735.shtml)
+- 2026-06-30 02:24 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/4325153604.shtml)
+- 2026-06-30 02:37 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/315069647.shtml)
+- 2026-06-30 02:15 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/4511445.shtml)
+- 2026-06-30 02:39 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/93593748.shtml)
+- 2026-06-30 02:34 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/138363579093.shtml)
+- 2026-06-30 02:38 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/512417.shtml)
+- 2026-06-30 02:32 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/638827903863.shtml)
+- 2026-06-30 02:26 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/870125099.shtml)
+- 2026-06-30 02:35 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/70968606335.shtml)
+- 2026-06-30 02:15 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/0531264315.shtml)
+- 2026-06-30 02:29 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/928315266.shtml)
+- 2026-06-30 02:31 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/469677135.shtml)
+- 2026-06-30 02:14 - [毒液2](https://www.share.kurohicncr.top/Article/details/0044006555.shtml)

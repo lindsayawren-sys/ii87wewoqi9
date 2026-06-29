@@ -1,58 +1,57 @@
-# 双向风险拉响警报 美联储陷入新困局
+# 许宁宁：深耕RCEP 共促区域经贸增长
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中东冲突阴云难散之际，美联储陷入决策困境。据央视新闻报道，美国联邦储备委员会8日公布的3月货币政策会议纪要显示，美联储官员担忧中东战事对美国经济增长、通胀和就业市场前景带来多重负面冲击。 在3月17日至18日的货币政策会议上，美联储宣布将联邦基金利率目标区间维持在3.5%至3.75%之间，连续第二次维持利率不变。在会议后发布的预测中，多数官员仍预计今年至少会降息一次。 但会议纪
+中新网北京5月7日电 (记者 刘文文)今年以来，我国外贸稳中有进，RCEP政策红利持续释放。RCEP产业合作委员会主席许宁宁近日接受记者采访时谈到，2026年一季度中国对RCEP其他成员国进出口总值3.73万亿元人民币，同比增长20.2%，出口、进口分别同比增长16%、25%，区域贸易增长动能充沛。许宁宁表示，当前RCEP各项规则持续深化落地，区域内关税减免范围稳步扩大，原产地
 
 ## 正文
 
-中东冲突阴云难散之际，美联储陷入决策困境。
+中新网北京5月7日电 (记者 刘文文)今年以来，我国外贸稳中有进，RCEP政策红利持续释放。
 
-据央视新闻报道，美国联邦储备委员会8日公布的3月货币政策会议纪要显示，美联储官员担忧中东战事对美国经济增长、通胀和就业市场前景带来多重负面冲击。
+RCEP产业合作委员会主席许宁宁近日接受记者采访时谈到，2026年一季度中国对RCEP其他成员国进出口总值3.73万亿元人民币，同比增长20.2%，出口、进口分别同比增长16%、25%，区域贸易增长动能充沛。
 
-在3月17日至18日的货币政策会议上，美联储宣布将联邦基金利率目标区间维持在3.5%至3.75%之间，连续第二次维持利率不变。
+许宁宁表示，当前RCEP各项规则持续深化落地，区域内关税减免范围稳步扩大，原产地累积规则全面落地见效，跨境贸易通关效率不断提升，贸易综合成本持续下降。
 
-在会议后发布的预测中，多数官员仍预计今年至少会降息一次。
+在政策利好推动下，区域内机电产品、新能源装备、化工制品、特色农产品等重点品类贸易规模稳步扩大，成员国产业配套协作更加紧密，产业链供应链循环顺畅有序，为区域贸易持续提质增长筑牢了坚实基础。
 
-但会议纪要显示，越来越多的担忧出现。
+他认为，一季度亮眼的贸易数据，充分印证了RCEP区域经济一体化的务实价值，也凸显出各成员国之间较强的产业互补性与市场契合度。
 
-大多数官员担心，若战事长期持续，可能会冲击劳动力市场，从而需要降息；与此同时，也有许多政策制定者强调，通胀上行风险最终可能要求加息。
+稳定向好的贸易往来，为各国外贸稳规模、优结构提供了坚实支撑，也为各国中小微企业拓展海外市场、优化生产布局创造了便利条件，区域经贸合作的长期韧性与发展潜力持续释放。
 
-双向风险拉响警报，美联储的货币政策进退维谷，前路迷雾重重。
+RCEP作为当前全球规模最大的自由贸易区，在全球经济复苏与贸易增长进程中具备关键支撑作用。
 
-在中东冲突阴霾下，美联储的利率决议便不再只是经济数据的函数，而成为大国博弈、能源格局与民生痛感的交汇点。
+他建议，各成员国进一步推动协定规则全面落地见效，简化跨境贸易监管流程，提升贸易便利化水平，聚焦优势产业深化产能合作，拓展数字经济、绿色低碳等新兴领域合作空间，切实把协定政策优势转化为实实在在的发展实效。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 02:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 02:30 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 02:06 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-30 02:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 02:23 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 02:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 02:28 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 02:35 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 02:13 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-30 02:23 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 02:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 02:28 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 02:38 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:40 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 02:23 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 02:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 02:23 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 02:31 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-30 02:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 02:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 02:24 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 02:29 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/5716522270.shtml)
-- 2026-06-30 02:08 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/40242679142.shtml)
-- 2026-06-30 02:25 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/285953055221.shtml)
-- 2026-06-30 02:31 - [啊啊啊](http://www.share.minike.top/Article/details/5974674.shtml)
-- 2026-06-30 02:08 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/40731452.shtml)
-- 2026-06-30 02:35 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/2249690.shtml)
-- 2026-06-30 02:24 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/194454731215.shtml)
-- 2026-06-30 02:21 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/377158096.shtml)
-- 2026-06-30 02:35 - [恋与深空回应争议](https://www.share.minike.top/Article/details/1122780.shtml)
-- 2026-06-30 02:27 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/75149458203.shtml)
-- 2026-06-30 02:19 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/50089358.shtml)
-- 2026-06-30 02:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/64362398.shtml)
-- 2026-06-30 02:29 - [张凌赫 客串](https://www.blog.minike.top/Article/details/478586.shtml)
-- 2026-06-30 02:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/55658.shtml)
-- 2026-06-30 02:06 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/640200337701.shtml)
+- 2026-06-30 02:23 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/19245996.shtml)
+- 2026-06-30 02:30 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/08095251.shtml)
+- 2026-06-30 02:21 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/573611394.shtml)
+- 2026-06-30 02:29 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/805843547760.shtml)
+- 2026-06-30 02:28 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/1416989.shtml)
+- 2026-06-30 02:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/9053773.shtml)
+- 2026-06-30 02:22 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/29409.shtml)
+- 2026-06-30 02:26 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/6119472.shtml)
+- 2026-06-30 02:16 - [TOP Prada](https://www.blog.minike.top/Article/details/36935750.shtml)
+- 2026-06-30 02:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/16244069.shtml)
+- 2026-06-30 02:36 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/08375443.shtml)
+- 2026-06-30 02:30 - [马光远谈马斯克最大的价值](http://www.share.minike.top/Article/details/9781069681.shtml)
+- 2026-06-30 02:37 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/9182096157.shtml)
+- 2026-06-30 02:38 - [日本领先巴西](https://www.share.minike.top/Article/details/085263.shtml)
+- 2026-06-30 02:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/36742.shtml)

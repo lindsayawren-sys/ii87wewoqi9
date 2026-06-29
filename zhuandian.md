@@ -1,61 +1,47 @@
-# 瑞银下调ServiceNow评级，指企业支出重心正在转移
+# 被这对新人的婚礼感动到了 他们只是走得慢了一点 但他们的爱从未颠簸
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-ServiceNow今日表现不佳，瑞银的降级解释了围绕该股的市场情绪开始转变的原因。 该机构将该股评级从“买入”下调至“中性”，并将目标价从170美元下调至100美元。受此消息影响，该股下跌约6%，年内迄今已下跌约45%。这是一个重大的调整，尤其对于一只曾被视为参与企业软件领域最直接方式之一的股票而言。 瑞银真正指出的是企业支出方式的变化。越来越多的企业预算正被重新分配到人工智
+发布时间：2026年05月08日 14:18 来源：中国新闻网 被这对新人的婚礼感动到了，他们只是走得慢了一点，但他们的爱从未颠簸。网友：有些事有些人，迟一点慢一点都没关系！ 责任编辑：【李光伟】
 
 ## 正文
 
-ServiceNow今日表现不佳，瑞银的降级解释了围绕该股的市场情绪开始转变的原因。
+发布时间：2026年05月08日 14:18 来源：中国新闻网 被这对新人的婚礼感动到了，他们只是走得慢了一点，但他们的爱从未颠簸。
 
-该机构将该股评级从“买入”下调至“中性”，并将目标价从170美元下调至100美元。
+网友：有些事有些人，迟一点慢一点都没关系！
 
-受此消息影响，该股下跌约6%，年内迄今已下跌约45%。
-
-这是一个重大的调整，尤其对于一只曾被视为参与企业软件领域最直接方式之一的股票而言。
-
-瑞银真正指出的是企业支出方式的变化。
-
-越来越多的企业预算正被重新分配到人工智能、数据和基础设施领域。
-
-当这种情况发生时，其他方面的支出必然受到挤压。
-
-在这种情况下，传统的软件支出似乎开始感受到压力。
+责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 02:12 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 02:07 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 02:33 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 02:12 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 02:08 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:12 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 02:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-30 02:14 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 02:29 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 02:28 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 02:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 02:34 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 02:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 02:12 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 02:28 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 02:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 02:14 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 02:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 02:39 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 02:29 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 02:36 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 02:36 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
+- 2026-06-30 02:29 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 02:26 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 02:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/59715394013.shtml)
-- 2026-06-30 02:31 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/10566.shtml)
-- 2026-06-30 02:16 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/77864154.shtml)
-- 2026-06-30 02:26 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/64482492912.shtml)
-- 2026-06-30 02:17 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/4673595330.shtml)
-- 2026-06-30 02:07 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/4364118171.shtml)
-- 2026-06-30 02:18 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/4574958048.shtml)
-- 2026-06-30 02:22 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/71695238.shtml)
-- 2026-06-30 02:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/60479379152.shtml)
-- 2026-06-30 02:27 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/39596102.shtml)
-- 2026-06-30 02:19 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/325959527.shtml)
-- 2026-06-30 02:25 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/787339620.shtml)
-- 2026-06-30 02:13 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/663136.shtml)
-- 2026-06-30 02:32 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/446989445.shtml)
-- 2026-06-30 02:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/26512776268.shtml)
+- 2026-06-30 02:35 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/268836.shtml)
+- 2026-06-30 02:20 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/310473.shtml)
+- 2026-06-30 02:24 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/80589.shtml)
+- 2026-06-30 02:38 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/69011.shtml)
+- 2026-06-30 02:20 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/67461462467.shtml)
+- 2026-06-30 02:41 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/224068724826.shtml)
+- 2026-06-30 02:19 - [一生一世](https://www.share.kurohicncr.top/Article/details/394871667.shtml)
+- 2026-06-30 02:39 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/6953209.shtml)
+- 2026-06-30 02:31 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/89575.shtml)
+- 2026-06-30 02:25 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/834720672015.shtml)
+- 2026-06-30 02:17 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/2947858.shtml)
+- 2026-06-30 02:40 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/5199966025.shtml)
+- 2026-06-30 02:20 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/249465959.shtml)
+- 2026-06-30 02:17 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/68296194522.shtml)
+- 2026-06-30 02:25 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/762418918.shtml)

@@ -1,61 +1,59 @@
-# 打马印——内蒙古草原上的马驹迎来“成年礼”
+# 个人办事，不只“能办”还要“好办、易办”
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-花粉过敏为何越来越普遍？致敏树种能否一砍了之？伊朗高原的一个太子，他的中文译词何以流传千年？超越日本，中国汽车“登顶”全球背后的三重质变全球能源危机下中国电力稳供优势凸显东盟专家盛赞中国优质投资：双边合作结硕果打“飞的”也要去的咖啡馆，卖的只是咖啡吗？人这一辈子，一定要去一趟雅安！“我准备倒闭了！”多位书记省长会见一位外企高管美伊以战事真是“文明的冲突”吗？事关我国产供链安全
+各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？各地又有哪些
 
 ## 正文
 
-花粉过敏为何越来越普遍？
+各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。
 
-致敏树种能否一砍了之？
+又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？
 
-伊朗高原的一个太子，他的中文译词何以流传千年？
+各地又有哪些改革机制、创新举措？
 
-超越日本，中国汽车“登顶”全球背后的三重质变全球能源危机下中国电力稳供优势凸显东盟专家盛赞中国优质投资：双边合作结硕果打“飞的”也要去的咖啡馆，卖的只是咖啡吗？
+近期，本报记者探访内蒙古、山东、云南等地，看各地如何优化政务服务，推动落实“高效办成一件事”，不断增强群众获得感、幸福感。
 
-人这一辈子，一定要去一趟雅安！
+老龄补贴申领—— 一张表单，实现一次申请、一网通办 “您好，请问老龄补贴申领在哪办理？
 
-“我准备倒闭了！
+”内蒙古自治区乌海市海勃湾区政务服务中心办事大厅内，61岁的居民刘桂兰向办事大厅工作人员询问。
 
-”多位书记省长会见一位外企高管美伊以战事真是“文明的冲突”吗？
+“阿姨，咱们现在直接在手机上就能办。
 
-事关我国产供链安全 专家解读新规四大看点全国服务业大会提出“两业融合”，有何深意？
+”办事大厅负责人李倩向刘桂兰耐心解释，并帮助她在手机上搜索“海区e家”微信小程序，找到“补贴申请”板块里的“老龄补贴”，再指导她输入姓名、身份证号和住址进行登录。
 
 ## 相关推荐
 
-- 2026-06-30 02:29 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 02:23 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 02:22 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 02:24 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 02:27 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 02:08 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 02:33 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-30 02:14 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 02:12 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 02:11 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 02:27 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 02:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 02:22 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 02:18 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-30 02:24 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 02:18 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 02:21 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 02:41 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 02:18 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 02:17 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 02:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-30 02:40 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 02:41 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 02:12 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 02:28 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 02:24 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 02:25 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 02:22 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/0558807321.shtml)
-- 2026-06-30 02:34 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/285632820829.shtml)
-- 2026-06-30 02:28 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/97125.shtml)
-- 2026-06-30 02:07 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/582292.shtml)
-- 2026-06-30 02:15 - [斛珠夫人](https://www.share.minike.top/Article/details/63591876222.shtml)
-- 2026-06-30 02:16 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/906314.shtml)
-- 2026-06-30 02:32 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/8861321.shtml)
-- 2026-06-30 02:33 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/112100346.shtml)
-- 2026-06-30 02:12 - [女心理师](http://www.share.kurohicncr.top/Article/details/5461196243.shtml)
-- 2026-06-30 02:12 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/8835832165.shtml)
-- 2026-06-30 02:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/527845744.shtml)
-- 2026-06-30 02:10 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/74895070.shtml)
-- 2026-06-30 02:10 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/2721262.shtml)
-- 2026-06-30 02:08 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/808314844.shtml)
-- 2026-06-30 02:34 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/5326915.shtml)
+- 2026-06-30 02:41 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/1455228950.shtml)
+- 2026-06-30 02:41 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/75550.shtml)
+- 2026-06-30 02:37 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/4093964.shtml)
+- 2026-06-30 02:30 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/17774409.shtml)
+- 2026-06-30 02:37 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/455024350775.shtml)
+- 2026-06-30 02:20 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/999778.shtml)
+- 2026-06-30 02:17 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/885659.shtml)
+- 2026-06-30 02:41 - [速度与激情9](https://www.blog.minike.top/Article/details/67770048.shtml)
+- 2026-06-30 02:21 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/44212.shtml)
+- 2026-06-30 02:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/3147006.shtml)
+- 2026-06-30 02:22 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/49684864.shtml)
+- 2026-06-30 02:31 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/25451541266.shtml)
+- 2026-06-30 02:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/99432.shtml)
+- 2026-06-30 02:31 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/298118.shtml)
+- 2026-06-30 02:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/926622.shtml)

@@ -1,56 +1,57 @@
-# GTC泽汇资本:金矿扩产驱动产能提升前景
+# 多家A股公司经历回款之痛！各地打响“账期沉疴”攻坚战， 疏通经济血脉“最后一公里”！
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-4月9日，TRX Gold 近期公布计划，将 Buckreef 金矿项目的处理能力进一步扩大，超出此前 2025 年 5 月初步经济评估中的设定水平。GTC泽汇资本认为，这一举措体现出企业在当前金价环境下加快资源变现节奏的意图，同时也反映出项目在技术与运营层面的优化空间正在逐步释放。从整体趋势来看，扩产不仅是规模提升，更是对未来盈利能力的前瞻布局。 在最新冶金测试中，黄金回收率
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：内外利好共振 A股5月有望再攀新高 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！工作在长三角地区的“厂二代”刘乐，最近因账期问题与父辈创始团队产生了严重分歧。刘乐所在的公司虽然业务规模持续扩大，但应收账款增速更快，近期几批回款的周期已延长至一年半以上。 账期，成为两代经营者之间最核心的矛盾。 刘
 
 ## 正文
 
-4月9日，TRX Gold 近期公布计划，将 Buckreef 金矿项目的处理能力进一步扩大，超出此前 2025 年 5 月初步经济评估中的设定水平。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：内外利好共振 A股5月有望再攀新高 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-GTC泽汇资本认为，这一举措体现出企业在当前金价环境下加快资源变现节奏的意图，同时也反映出项目在技术与运营层面的优化空间正在逐步释放。
+工作在长三角地区的“厂二代”刘乐，最近因账期问题与父辈创始团队产生了严重分歧。
 
-从整体趋势来看，扩产不仅是规模提升，更是对未来盈利能力的前瞻布局。
+刘乐所在的公司虽然业务规模持续扩大，但应收账款增速更快，近期几批回款的周期已延长至一年半以上。
 
-在最新冶金测试中，黄金回收率达到约 90% 至 92%，相比此前约 88% 的假设有所改善。
+账期，成为两代经营者之间最核心的矛盾。
 
-基于这一结果，项目将采用半自磨与球磨组合工艺，设计处理能力提升至每日约 3500 吨以上，较此前约 3000 吨的规划明显提高。
+刘乐向记者算了一笔账：“公司毛利率约20%，扣除人工、机械、折旧、水电等成本及贷款利息后，净利润被压得越来越薄。
 
-GTC泽汇资本认为，回收效率与处理规模的同步提升，将对单位成本控制和现金流表现形成正向推动，从而增强项目整体抗风险能力。
+”他主张，应当每年有选择地减少业务量，优先承接回款良好的客户，坚决不赊销、不垫款。
 
-项目推进方面，公司已启动关键设备招标流程，预计订单将在 2026 年第三季度落地，新建产线计划于 2027 年第二季度投入使用。
+但父辈并不认同这一思路：当前虽然毛利低、回款周期长，但至少能养活全体员工；如果只接回款好的业务，必然导致裁员；一旦失去客户，蛋糕将永远丢失，已发出的货款更可能沦为坏账。
 
-同时，现有约 2000 吨/日处理设施将在升级后继续运作，并与新系统形成互补，这种双线运行模式有助于在扩建过程中维持稳定产出，降低产能切换带来的波动。
+账期问题是中国经济产业链条上的“沉疴”。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 02:12 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 02:12 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 02:18 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 02:14 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-30 02:28 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 02:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
-- 2026-06-30 02:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-30 02:12 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 02:06 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 02:36 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 02:29 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 02:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 02:34 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
+- 2026-06-30 02:21 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 02:19 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 02:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 02:15 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 02:33 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 02:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 02:16 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/285889.shtml)
-- 2026-06-30 02:12 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/8453381.shtml)
-- 2026-06-30 02:08 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/822767.shtml)
-- 2026-06-30 02:18 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/70767390394.shtml)
-- 2026-06-30 02:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.minike.top/Article/details/693286216.shtml)
-- 2026-06-30 02:12 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/64954.shtml)
-- 2026-06-30 02:17 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/0580449368.shtml)
-- 2026-06-30 02:11 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/71184064.shtml)
-- 2026-06-30 02:12 - [美人鱼](https://www.blog.minike.top/Article/details/72525831.shtml)
-- 2026-06-30 02:10 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/4094065.shtml)
-- 2026-06-30 02:19 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/20107229.shtml)
-- 2026-06-30 02:07 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/301339.shtml)
-- 2026-06-30 02:21 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/4590003.shtml)
-- 2026-06-30 02:23 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/9424784.shtml)
-- 2026-06-30 02:31 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/9764177.shtml)
+- 2026-06-30 02:28 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/057401657.shtml)
+- 2026-06-30 02:25 - [啊啊啊](http://www.blog.minike.top/Article/details/2069223997.shtml)
+- 2026-06-30 02:21 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/36347341.shtml)
+- 2026-06-30 02:37 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/06036751.shtml)
+- 2026-06-30 02:40 - [急先锋](https://www.share.kurohicncr.top/Article/details/29905915610.shtml)
+- 2026-06-30 02:15 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/575387.shtml)
+- 2026-06-30 02:12 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/9779911516.shtml)
+- 2026-06-30 02:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/90781851.shtml)
+- 2026-06-30 02:33 - [千香](http://www.share.kurohicncr.top/Article/details/438956061.shtml)
+- 2026-06-30 02:41 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/2655872.shtml)
+- 2026-06-30 02:36 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/792348977.shtml)
+- 2026-06-30 02:38 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/900965391.shtml)
+- 2026-06-30 02:25 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/7047267418.shtml)
+- 2026-06-30 02:14 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/488582258.shtml)
+- 2026-06-30 02:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/75548.shtml)

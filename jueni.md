@@ -1,59 +1,56 @@
-# 港深创科园两座湿实验室大楼入驻率近九成
+# 济安金信｜2026年一季度公募基金评级报告
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网香港4月9日电 (记者 刘玥晴)香港特区政府创新科技及工业局局长孙东9日表示，在河套深港科技创新合作区香港园区(简称“河套香港园区”，又称“港深创科园”)已建成的三座大楼中，两座湿实验室大楼已有79家企业进驻、入驻率近九成。园区今年底将再落成五座大楼，招商引资会加快。 当天，孙东陪同50余名特区立法会议员考察港深创科园。他在会见传媒时作上述介绍。 港深创新及科技园有限公司
+来源：济安金信基金评价中心 公募基金是各类资金参与资本市场的重要间接投资工具。基金产品作为一类信托资产，其保值增值是基金投资者的共同期望。遵守各种法律法规的规定和基金契约是基金运作的两个刚性约束，在此基础上，根据基金的风险收益特征，济安评级将基金分为货币型、纯债型、一级债、二级债、混合型、股票型、封闭式、指数型、基金中基金（FOF）和QDII十种类型。 济安基金综合评价体系分别
 
 ## 正文
 
-中新网香港4月9日电 (记者 刘玥晴)香港特区政府创新科技及工业局局长孙东9日表示，在河套深港科技创新合作区香港园区(简称“河套香港园区”，又称“港深创科园”)已建成的三座大楼中，两座湿实验室大楼已有79家企业进驻、入驻率近九成。
+来源：济安金信基金评价中心 公募基金是各类资金参与资本市场的重要间接投资工具。
 
-园区今年底将再落成五座大楼，招商引资会加快。
+基金产品作为一类信托资产，其保值增值是基金投资者的共同期望。
 
-当天，孙东陪同50余名特区立法会议员考察港深创科园。
+遵守各种法律法规的规定和基金契约是基金运作的两个刚性约束，在此基础上，根据基金的风险收益特征，济安评级将基金分为货币型、纯债型、一级债、二级债、混合型、股票型、封闭式、指数型、基金中基金（FOF）和QDII十种类型。
 
-他在会见传媒时作上述介绍。
+济安基金综合评价体系分别从基金盈利能力、抗风险能力、业绩稳定性、选股能力、择时能力、选基能力、基准跟踪能力、超额收益能力和整体费用九方面，对基金产品和基金管理团队投资运作的综合管理能力进行考察。
 
-港深创新及科技园有限公司董事会主席蔡杰铭指出，4月至6月，园区第一期余下的部分地块将推向市场，土地招租将沿用过往行之有效的“双信封制”，以技术参数为考量，通过公私营合作模式，引入私人企业完善商业配套及市场化运作。
+对于有违反法律法规、偏离基金合同约定、或由于其他原因难以评级的基金我公司将不予评价。
 
-河套香港园区位于香港北部都会区，2025年12月正式开园，与深圳园区共同组成河套深港科技创新合作区，体现“一河两岸、一区两园”的构建理念。
+根据济安金信基金评价中心一季度评级结果，满足评级年限并获得济安评级的公募基金产品共9266只，较前一季度增加了192只。
 
-此次考察，立法会议员们参观已启用的湿实验室大楼、人才公寓、供电设施等。
+本期获得五星评级的基金共950只，具体到各产品类型中，货币型五星基金共29只，纯债型五星基金共202只，一级债型五星基金共32只，二级债型五星基金共49只，混合型五星基金共391只，股票型五星基金共48只，封闭式五星基金共7只，指数型五星基金共143只，QDII型五星基金共18只，FOF型五星基金共31只。
 
-香港特区立法会主席李慧琼表示，在与已进驻园区的科技企业交流时，有关企业代表直言，入驻的主要原因是看中园区的地理区位优势，以及未来创新要素可以在深圳园区和香港园区跨境便捷流动等因素。
+更多详细内容请参阅附件。
 
 ## 相关推荐
 
-- 2026-06-30 02:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 02:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 02:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 02:20 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 02:27 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 02:26 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 02:09 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
-- 2026-06-30 02:17 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 02:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 02:14 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 02:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 02:16 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 02:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 02:12 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 02:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 02:25 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 02:35 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 02:12 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 02:13 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 02:20 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-30 02:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 02:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-30 02:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/559665.shtml)
-- 2026-06-30 02:26 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/293975416.shtml)
-- 2026-06-30 02:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/43629413.shtml)
-- 2026-06-30 02:32 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/1877975242.shtml)
-- 2026-06-30 02:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/4970250.shtml)
-- 2026-06-30 02:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/550855322072.shtml)
-- 2026-06-30 02:24 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/54650284.shtml)
-- 2026-06-30 02:33 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/5142031.shtml)
-- 2026-06-30 02:16 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/570586767635.shtml)
-- 2026-06-30 02:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/463905.shtml)
-- 2026-06-30 02:28 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/93472197.shtml)
-- 2026-06-30 02:34 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/122692036.shtml)
-- 2026-06-30 02:09 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/195442.shtml)
-- 2026-06-30 02:29 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/3497758.shtml)
-- 2026-06-30 02:16 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/833451513.shtml)
+- 2026-06-30 02:38 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/27805706955.shtml)
+- 2026-06-30 02:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/9146871862.shtml)
+- 2026-06-30 02:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/64288.shtml)
+- 2026-06-30 02:12 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/216025458.shtml)
+- 2026-06-30 02:31 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/925465877860.shtml)
+- 2026-06-30 02:33 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/83061015431.shtml)
+- 2026-06-30 02:27 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/61327354.shtml)
+- 2026-06-30 02:22 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/803981.shtml)
+- 2026-06-30 02:12 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/056003363300.shtml)
+- 2026-06-30 02:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/030552177.shtml)
+- 2026-06-30 02:20 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/41939153592.shtml)
+- 2026-06-30 02:13 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/215684.shtml)
+- 2026-06-30 02:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/890187.shtml)
+- 2026-06-30 02:21 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/61123293.shtml)
+- 2026-06-30 02:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/53595095.shtml)

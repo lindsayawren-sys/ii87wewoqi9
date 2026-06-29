@@ -1,59 +1,59 @@
-# 川渝携手举办退役军人及军属专场招聘会 提供7000余个就业岗位
+# 民营银行的“冰火图鉴”：规模排名首尾差36倍，国资救场成趋势
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆4月10日电(记者 肖江川)“戎耀新程·就业护航”2026年重庆市两江新区退役军人及军属专场招聘会10日拉开帷幕。川渝两地退役军人事务部门携手，为退役军人及军属提供7000余个就业岗位。 本次招聘会由重庆市两江新区退役军人事务局、成都市青羊区退役军人事务局、成都市金堂县退役军人事务局、重庆市两江新区人力资源和社会保障局联合主办，在政企联动中为退役军人就业创业架桥铺路。
+来源：财经新一线 自2014年3月启动民营银行试点以来，我国的民营银行发展已走入第12个年头。12年间，行业格局已从集体探路演变为两极分化：头部与尾部资产规模相差36倍、净利润差距超百倍。在分化加剧、尾部承压的背景下，地方国资入主“救场”，正成为民营银行突围求生的新趋势。 分析人士指出，引入国资对民营银行的资本金稳定和经营持续性具有直接支撑作用，同时也能有效防范金融风险，但能否
 
 ## 正文
 
-中新网重庆4月10日电(记者 肖江川)“戎耀新程·就业护航”2026年重庆市两江新区退役军人及军属专场招聘会10日拉开帷幕。
+来源：财经新一线 自2014年3月启动民营银行试点以来，我国的民营银行发展已走入第12个年头。
 
-川渝两地退役军人事务部门携手，为退役军人及军属提供7000余个就业岗位。
+12年间，行业格局已从集体探路演变为两极分化：头部与尾部资产规模相差36倍、净利润差距超百倍。
 
-本次招聘会由重庆市两江新区退役军人事务局、成都市青羊区退役军人事务局、成都市金堂县退役军人事务局、重庆市两江新区人力资源和社会保障局联合主办，在政企联动中为退役军人就业创业架桥铺路。
+在分化加剧、尾部承压的背景下，地方国资入主“救场”，正成为民营银行突围求生的新趋势。
 
-本次招聘会通过线上线下联动，为广大求职者与用人单位搭建对接平台。
+分析人士指出，引入国资对民营银行的资本金稳定和经营持续性具有直接支撑作用，同时也能有效防范金融风险，但能否真正扭转经营局面，仍取决于银行自身是否能在保持市场化经营机制的同时有效融合国资优势，实现业务模式的可持续重构。
 
-其中，线下招聘会有85家企业参与，提供就业岗位2646个；线上招聘专区持续开放一个月，吸引重庆112家企业、四川124家企业入驻，提供就业岗位4381个。
+01 喜忧参半的“成绩单” 在年报季的余温下，民营银行阵营交出了一份喜忧参半的“成绩单”。
 
-线下招聘会设立了国企专区，汇聚了14家实力雄厚的国企，涵盖智能制造、文旅服务等领域，提供区域总监、管理储备等岗位472个，充分展现了国有企业在稳就业、保民生中的责任与担当。
+整体来看，民营银行仍在规模扩张与盈利平稳的轨道上前行。
 
-本次招聘会设立了成渝协同招聘区，集中展示重庆市两江新区、成都市青羊区、成都市金堂县三地企业形象与岗位信息，为退役军人及军属提供了多元化的就业选择。
+19家民营银行中，已披露的18家机构2025年合计实现营业收入899.22亿元，同比小幅下滑1.84%；净利润微增1.92%，达186.23亿元；总资产规模更是突破2.21万亿元，同比增长9.19%。
 
-招聘会现场还设置了政策咨询区、求职服务区、职业指导区。
+但剥开总量平稳的表层数据，行业内里“冰火两重天”的经营图景已清晰展现：头部机构依托资源优势持续领跑，尾部机构则在业绩与规模的双重压力下艰难求生，行业两极分化显著。
 
 ## 相关推荐
 
-- 2026-06-30 02:30 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 02:09 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:09 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-30 02:32 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 02:09 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 02:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-30 02:28 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-30 02:28 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 02:26 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 02:08 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 02:18 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 02:15 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 02:32 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 02:31 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 02:31 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 02:33 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 02:21 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 02:17 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 02:24 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 02:16 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 02:38 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 02:14 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 02:13 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 02:41 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 02:22 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/960492.shtml)
-- 2026-06-30 02:23 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/16252.shtml)
-- 2026-06-30 02:13 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/6614089435.shtml)
-- 2026-06-30 02:11 - [女心理师](http://www.share.kurohicncr.top/Article/details/192394.shtml)
-- 2026-06-30 02:10 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/9178165.shtml)
-- 2026-06-30 02:33 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/114156.shtml)
-- 2026-06-30 02:10 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/49902.shtml)
-- 2026-06-30 02:24 - [沙丘](https://www.share.kurohicncr.top/Article/details/432387.shtml)
-- 2026-06-30 02:33 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/003828875.shtml)
-- 2026-06-30 02:35 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/0448265.shtml)
-- 2026-06-30 02:10 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/480611.shtml)
-- 2026-06-30 02:31 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/3691748829.shtml)
-- 2026-06-30 02:10 - [爱很美味](http://www.share.minike.top/Article/details/8279598.shtml)
-- 2026-06-30 02:09 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/05652093534.shtml)
-- 2026-06-30 02:14 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/458869.shtml)
+- 2026-06-30 02:33 - [锐评T1零封KC](https://www.share.minike.top/Article/details/5325397228.shtml)
+- 2026-06-30 02:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/769015.shtml)
+- 2026-06-30 02:15 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/914024329.shtml)
+- 2026-06-30 02:12 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/36840696312.shtml)
+- 2026-06-30 02:34 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/931249723.shtml)
+- 2026-06-30 02:26 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/68889.shtml)
+- 2026-06-30 02:37 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/03459768.shtml)
+- 2026-06-30 02:23 - [世界杯](https://www.blog.kurohicncr.top/Article/details/304745.shtml)
+- 2026-06-30 02:22 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/059701109.shtml)
+- 2026-06-30 02:32 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/91465876.shtml)
+- 2026-06-30 02:12 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/866801399.shtml)
+- 2026-06-30 02:27 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/572661177797.shtml)
+- 2026-06-30 02:27 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/709618630675.shtml)
+- 2026-06-30 02:29 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/10042656017.shtml)
+- 2026-06-30 02:15 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/380514996401.shtml)

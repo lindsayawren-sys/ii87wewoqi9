@@ -1,57 +1,53 @@
-# 中企承建哈萨克斯坦大型风电项目举行建设启动仪式
+# 国内成品油价今晚要上调 加满一箱油将多花12.5元
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网阿斯塔纳4月10日电 由中企承建的哈萨克斯坦“米尔内”1吉瓦风电项目建设启动仪式9日在阿斯塔纳举行。 据上海电气集团股份有限公司(以下简称“上海电气”)介绍，“米尔内”风电项目是哈萨克斯坦首个吉瓦级风电购电协议项目。项目由法国道达尔能源公司、哈萨克斯坦萨姆鲁克能源公司和哈萨克斯坦国家石油天然气公司组成合资公司联合开发，上海电气作为总承包联合体牵头方提供核心设备和整体解决方
+央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.
 
 ## 正文
 
-中新网阿斯塔纳4月10日电 由中企承建的哈萨克斯坦“米尔内”1吉瓦风电项目建设启动仪式9日在阿斯塔纳举行。
+央视财经 【\[话筒\]#油价今晚要上调##加满一箱油将多花12.5元#】记者今天从国家发展改革委了解到，5月8日24时国内成品油调价窗口将开启。
 
-据上海电气集团股份有限公司(以下简称“上海电气”)介绍，“米尔内”风电项目是哈萨克斯坦首个吉瓦级风电购电协议项目。
+据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月21日24时——5月8日24时），国际油价先扬后抑。
 
-项目由法国道达尔能源公司、哈萨克斯坦萨姆鲁克能源公司和哈萨克斯坦国家石油天然气公司组成合资公司联合开发，上海电气作为总承包联合体牵头方提供核心设备和整体解决方案。
+5月8日24时起，国内汽、柴油价格每吨分别上调320和310元，全国平均来看，92号汽油、95号汽油和0号柴油每升分别上调0.25元、0.27元、0.27元。
 
-据介绍，项目建设总工期为31个月，预计将于2028年第四季度投入运营，年发电量有望达到40亿千瓦时，每年减少320万吨二氧化碳排放。
+央视财经记者给您算了一笔账，用92号汽油加满50升的油箱将多花12.5元。
 
-上海电气集团总裁朱兆开表示，项目建成后可显著提升当地电网供电能力，保障区域工业生产与民生用电。
-
-(完)
+（记者 平凡 张静也）责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-30 02:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 02:10 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 02:25 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 02:35 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 02:19 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 02:14 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 02:31 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 02:32 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 02:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 02:28 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 02:30 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 02:23 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 02:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 02:16 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 02:34 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 02:36 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 02:25 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 02:17 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 02:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 02:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 02:40 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 02:18 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 02:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 02:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 02:26 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 02:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 02:38 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/0476745.shtml)
-- 2026-06-30 02:22 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/40563.shtml)
-- 2026-06-30 02:09 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/0694401.shtml)
-- 2026-06-30 02:22 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/27161310.shtml)
-- 2026-06-30 02:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/78464723700.shtml)
-- 2026-06-30 02:23 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/508301342.shtml)
-- 2026-06-30 02:10 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/59607.shtml)
-- 2026-06-30 02:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/316212221.shtml)
-- 2026-06-30 02:21 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/988648868196.shtml)
-- 2026-06-30 02:07 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/68231.shtml)
-- 2026-06-30 02:24 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/020084.shtml)
-- 2026-06-30 02:34 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/39263.shtml)
-- 2026-06-30 02:22 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/133378248247.shtml)
-- 2026-06-30 02:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/136395.shtml)
-- 2026-06-30 02:29 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/32898188.shtml)
+- 2026-06-30 02:21 - [美股](https://www.share.kurohicncr.top/Article/details/068531239.shtml)
+- 2026-06-30 02:32 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/270731.shtml)
+- 2026-06-30 02:33 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/4608521813.shtml)
+- 2026-06-30 02:25 - [点菜也要教吗](http://www.share.minike.top/Article/details/8056809426.shtml)
+- 2026-06-30 02:22 - [一生一世](http://www.share.minike.top/Article/details/1132846987.shtml)
+- 2026-06-30 02:21 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/547668792.shtml)
+- 2026-06-30 02:23 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/2866741858.shtml)
+- 2026-06-30 02:35 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/37345.shtml)
+- 2026-06-30 02:27 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/052454804044.shtml)
+- 2026-06-30 02:33 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/922284613.shtml)
+- 2026-06-30 02:14 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/060799965.shtml)
+- 2026-06-30 02:33 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/49956.shtml)
+- 2026-06-30 02:29 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/385996681291.shtml)
+- 2026-06-30 02:19 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/64919453.shtml)
+- 2026-06-30 02:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/7637606.shtml)

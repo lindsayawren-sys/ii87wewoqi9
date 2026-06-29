@@ -1,58 +1,61 @@
-# 壳牌以石油交易收益平衡天然气业务疲软
+# 4月私营部门就业人数增加10.9万人，超市场预期
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-壳牌周三表示，第一季度天然气产量下降和短期流动性受到的冲击将部分被强劲的石油交易收益所抵消。这让我们得以初步了解美以对伊朗的战争如何重塑石油巨头的盈利状况。 自2月底美以开始打击伊朗，随后伊朗关闭霍尔木兹海峡并袭击包括壳牌位于卡塔尔的Pearl天然气生产厂在内的海湾邻国后，全球基准布伦特原油价格攀升至每桶近120美元的多年高点。该厂的维修可能需要大约一年时间。 壳牌表示，大宗商
+核心要点 美国自动数据处理公司（ADP）周三公布，美国私营企业 4 月新增就业岗位 10.9 万个，高于 3 月的 6.1 万个，也超出道琼斯分析师普遍预期的 8.4 万个。 教育与医疗服务业依旧领跑就业增长，新增 6.1 万个岗位；贸易、运输及公用事业行业新增 2.5 万个；近几个月就业表现持续向好的建筑业新增 1 万个岗位。 尽管整体就业数据好于预期，但整体仍符合美联储政策
 
 ## 正文
 
-壳牌周三表示，第一季度天然气产量下降和短期流动性受到的冲击将部分被强劲的石油交易收益所抵消。
+核心要点 美国自动数据处理公司（ADP）周三公布，美国私营企业 4 月新增就业岗位 10.9 万个，高于 3 月的 6.1 万个，也超出道琼斯分析师普遍预期的 8.4 万个。
 
-这让我们得以初步了解美以对伊朗的战争如何重塑石油巨头的盈利状况。
+教育与医疗服务业依旧领跑就业增长，新增 6.1 万个岗位；贸易、运输及公用事业行业新增 2.5 万个；近几个月就业表现持续向好的建筑业新增 1 万个岗位。
 
-自2月底美以开始打击伊朗，随后伊朗关闭霍尔木兹海峡并袭击包括壳牌位于卡塔尔的Pearl天然气生产厂在内的海湾邻国后，全球基准布伦特原油价格攀升至每桶近120美元的多年高点。
+尽管整体就业数据好于预期，但整体仍符合美联储政策制定者及经济学家所描述的低招聘、低裁员就业环境。
 
-该厂的维修可能需要大约一年时间。
+美国自动数据处理公司（ADP）周三发布数据显示，美国 4 月私营部门就业新增人数超预期，进一步印证就业市场保持稳健。
 
-壳牌表示，大宗商品价格波动导致库存价值大幅波动，推动营运资本（一种流动资产减去负债的流动性衡量指标）在本季度达到负100亿至负150亿美元之间。
+在通胀持续高企的背景下，这也削弱了美联储降息的动机。
 
-壳牌表示，如果油气价格回落，营运资本的变动预计将随时间推移而逆转。
+这家薪资处理企业表示，企业 4 月新增就业 10.9 万人，较 3 月的 6.1 万个明显回升，且高于市场普遍预期的 8.4 万个，创下 2025 年 1 月以来 ADP 就业数据的最佳表现。
 
-异常的市场环境 加拿大皇家银行资本市场分析师表示，这种波动的规模突显了当前市场环境已变得多么异常，但补充说壳牌的资产负债表应能吸收这一冲击。
+此外，3 月新增就业人数下修 1000 人。
 
-加拿大皇家银行资本市场将壳牌第一季度净利润预期上调7%，至68亿美元，并预计扣除营运资本后的运营现金流将增长31%，达到171亿美元。
+在岗员工年薪同比涨幅为 4.4%，环比回落 0.1 个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 02:35 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 02:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-30 02:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 02:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 02:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 02:23 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 02:19 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 02:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 02:26 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 02:08 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 02:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 02:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-30 02:32 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-30 02:29 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 02:12 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 02:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 02:36 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-30 02:31 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-30 02:22 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 02:19 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 02:33 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 02:22 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 02:38 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 02:19 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-30 02:14 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 02:37 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-30 02:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/536993463.shtml)
-- 2026-06-30 02:15 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/15119346657.shtml)
-- 2026-06-30 02:28 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/705133569078.shtml)
-- 2026-06-30 02:10 - [送你一朵小红花](https://www.share.minike.top/Article/details/73091783628.shtml)
-- 2026-06-30 02:26 - [足球“出口导向”造就佛得角奇迹](http://www.blog.minike.top/Article/details/228159675110.shtml)
-- 2026-06-30 02:23 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/110087623.shtml)
-- 2026-06-30 02:34 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/985092.shtml)
-- 2026-06-30 02:21 - [月亮](http://www.blog.kurohicncr.top/Article/details/166586.shtml)
-- 2026-06-30 02:22 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/9545427981.shtml)
-- 2026-06-30 02:08 - [斗破苍穹](https://www.share.minike.top/Article/details/624394.shtml)
-- 2026-06-30 02:28 - [孙兴慜道歉](http://www.share.minike.top/Article/details/45838.shtml)
-- 2026-06-30 02:16 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/9297338.shtml)
-- 2026-06-30 02:27 - [沉睡花园](http://www.blog.minike.top/Article/details/77429.shtml)
-- 2026-06-30 02:06 - [小娘惹](https://www.blog.minike.top/Article/details/668885878006.shtml)
-- 2026-06-30 02:32 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/41310146694.shtml)
+- 2026-06-30 02:13 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/28338040.shtml)
+- 2026-06-30 02:15 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/10728171.shtml)
+- 2026-06-30 02:14 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/5308481882.shtml)
+- 2026-06-30 02:16 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/8925394.shtml)
+- 2026-06-30 02:37 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/0235676627.shtml)
+- 2026-06-30 02:28 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/311147.shtml)
+- 2026-06-30 02:25 - [乔家的儿女](https://www.blog.minike.top/Article/details/30821830823.shtml)
+- 2026-06-30 02:21 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/240828042733.shtml)
+- 2026-06-30 02:36 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/8290714992.shtml)
+- 2026-06-30 02:18 - [明星大侦探第一季](http://www.share.minike.top/Article/details/85943.shtml)
+- 2026-06-30 02:40 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/194942564.shtml)
+- 2026-06-30 02:27 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/8858576483.shtml)
+- 2026-06-30 02:36 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/5423407116.shtml)
+- 2026-06-30 02:19 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/610963.shtml)
+- 2026-06-30 02:33 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/08961.shtml)

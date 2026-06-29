@@ -1,60 +1,61 @@
-# 第九届进博会推介会在韩国首尔举办
+# 贝莱德拟投资印度Shapoorji Pallonji集团美元债券
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 19:53 来源：中国新闻网 当地时间4月9日，第九届中国国际进口博览会(进博会)韩国推介会在首尔举行。 中国驻韩国大使戴兵、韩国产业通商部通商协力局局长裴晙亨、韩国贸易协会(KITA)专务理事张石民出席并讲话。中国国际进口博览局副局长吴政平作进博会推介。中国驻韩国大使馆公使衔参赞王治林主持推介会。 韩国贸易协会营销战略室室长辛仙荣对中新社记者
+全球最大资产管理公司贝莱德计划投资印度Shapoorji Pallonji集团旗下公司本月发行的美元债券，知情人士透露此举有望提振其他投资者信心。 据两位直接知情人士表示，贝莱德正考虑通过一只聚焦亚洲的基金，对该债券发行进行1亿至2亿美元的初始投资。该交易为私募配售，德意志银行担任安排人。 SP集团旗下Goswami Infratech计划募集约30亿美元，其中7.5亿至9.5
 
 ## 正文
 
-发布时间：2026年04月10日 19:53 来源：中国新闻网 当地时间4月9日，第九届中国国际进口博览会(进博会)韩国推介会在首尔举行。
+全球最大资产管理公司贝莱德计划投资印度Shapoorji Pallonji集团旗下公司本月发行的美元债券，知情人士透露此举有望提振其他投资者信心。
 
-中国驻韩国大使戴兵、韩国产业通商部通商协力局局长裴晙亨、韩国贸易协会(KITA)专务理事张石民出席并讲话。
+据两位直接知情人士表示，贝莱德正考虑通过一只聚焦亚洲的基金，对该债券发行进行1亿至2亿美元的初始投资。
 
-中国国际进口博览局副局长吴政平作进博会推介。
+该交易为私募配售，德意志银行担任安排人。
 
-中国驻韩国大使馆公使衔参赞王治林主持推介会。
+SP集团旗下Goswami Infratech计划募集约30亿美元，其中7.5亿至9.5亿美元来自美元债券，剩余部分通过卢比计价债务筹集。
 
-韩国贸易协会营销战略室室长辛仙荣对中新社记者表示，历届进博会为韩国企业进入中国市场、拓展中国消费者提供了重要平台，不少参展企业取得了较为满意的成果。
+由于卢比对冲成本飙升，该公司的融资计划此前遭遇推迟，并被迫寻求延长原定于4月30日到期的高收益债务偿还期限。
 
-她介绍说，贸易协会计划今年组织约100家企业参展，规模较去年明显扩大，整体投入和展位布置也将进一步向高端化方向提升，进一步助力中小企业开拓中国市场。
+Goswami Infratech曾在2023年6月通过债券发行筹集1430亿卢比，当时有多家知名外国投资者参与，此次新债券发行将用于再融资。
 
-韩国中小风险企业振兴公团国际协力处处长金相佑也表示，该机构连续多年组织企业参加进博会，参展规模和实际成果都较为显著。
+除贝莱德外，其他大型基金也已表示有意参与此次债券发行，第二位消息人士称。
 
-今年计划继续组织约50家企业参展，并重点招募美妆和健康护理等在中国消费者中较受欢迎的企业。
+本周早些时候，CareEdge评级机构以集团层面融资延迟为由，将Goswami Infratech的债券评级从BB-下调至B+。
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-30 02:20 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 02:13 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 02:09 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 02:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-30 02:28 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-30 02:14 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 02:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 02:06 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 02:11 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 02:10 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 02:29 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 02:26 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 02:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 02:36 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 02:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 02:37 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 02:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-30 02:22 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 02:35 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:25 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 02:29 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 02:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 02:24 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-30 02:21 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 02:15 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 02:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 02:24 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 02:27 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:33 - [锐评T1零封KC](http://www.share.minike.top/Article/details/4208919909.shtml)
-- 2026-06-30 02:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/545942.shtml)
-- 2026-06-30 02:35 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/631976.shtml)
-- 2026-06-30 02:33 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/546462.shtml)
-- 2026-06-30 02:10 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/696907781.shtml)
-- 2026-06-30 02:20 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/645302382.shtml)
-- 2026-06-30 02:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/912068.shtml)
-- 2026-06-30 02:20 - [美人鱼](http://www.blog.minike.top/Article/details/35321112.shtml)
-- 2026-06-30 02:35 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/627104843685.shtml)
-- 2026-06-30 02:11 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/961395896.shtml)
-- 2026-06-30 02:23 - [DeepSeek启动成立来最大规模招聘](https://www.blog.kurohicncr.top/Article/details/758882991.shtml)
-- 2026-06-30 02:19 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/9778627478.shtml)
-- 2026-06-30 02:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/614950012.shtml)
-- 2026-06-30 02:08 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/471539652533.shtml)
-- 2026-06-30 02:32 - [急先锋](https://www.blog.kurohicncr.top/Article/details/584562431267.shtml)
+- 2026-06-30 02:21 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/8009131382.shtml)
+- 2026-06-30 02:37 - [审核了不止十年的低创鬼畜](http://www.blog.minike.top/Article/details/570468.shtml)
+- 2026-06-30 02:34 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/7863051192.shtml)
+- 2026-06-30 02:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/41345293339.shtml)
+- 2026-06-30 02:28 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/0019084046.shtml)
+- 2026-06-30 02:36 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/82033661.shtml)
+- 2026-06-30 02:21 - [流金岁月](https://www.share.kurohicncr.top/Article/details/946863022.shtml)
+- 2026-06-30 02:39 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/340801.shtml)
+- 2026-06-30 02:12 - [老人喝隔夜排骨汤喝进医院](http://www.blog.kurohicncr.top/Article/details/6054164158.shtml)
+- 2026-06-30 02:20 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/877512.shtml)
+- 2026-06-30 02:25 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/640818911.shtml)
+- 2026-06-30 02:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/712398.shtml)
+- 2026-06-30 02:39 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/6516102710.shtml)
+- 2026-06-30 02:30 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/23673.shtml)
+- 2026-06-30 02:32 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/22742034528.shtml)

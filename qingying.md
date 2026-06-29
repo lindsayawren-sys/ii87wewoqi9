@@ -1,58 +1,57 @@
-# 传染性强、后遗症严重！正值流脑高发季，中疾控提醒→
+# 百度旗下AI芯片公司昆仑芯计划在沪港两地上市
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-发热、头痛、乏力……有一种传染病早期症状与普通感冒类似，一旦延迟治疗，可能增加重症和死亡风险。 日前，中国疾控中心提醒，流脑正值高发季，尤其是有孩子的家庭，务必重视孩子的疫苗接种。 流脑究竟有多“凶险”？ 中国疾控中心研究员介绍，流脑是流行性脑脊髓膜炎的简称，是由脑膜炎奈瑟菌感染引起的急性化脓性脑脊髓膜炎，冬春季高发。一旦出现突发高热、伴有剧烈头痛、频繁呕吐、精神萎靡，尤其是皮
+百度公司旗下芯片业务子公司昆仑芯，正计划在上海科创板进行首次公开募股，同时推进在中国香港的上市计划，以借助于市场对半导体股票的投资热情。 向中国证监会提交的文件显示，昆仑芯（北京）科技股份有限公司已启动上市辅导，辅导机构为中国国际金融股份有限公司。百度年初时曾表示，昆仑芯已以保密方式递交香港IPO文件。周五，百度港股股价一度上涨逾4%。 Jefferies分析师Thomas C
 
 ## 正文
 
-发热、头痛、乏力……有一种传染病早期症状与普通感冒类似，一旦延迟治疗，可能增加重症和死亡风险。
+百度公司旗下芯片业务子公司昆仑芯，正计划在上海科创板进行首次公开募股，同时推进在中国香港的上市计划，以借助于市场对半导体股票的投资热情。
 
-日前，中国疾控中心提醒，流脑正值高发季，尤其是有孩子的家庭，务必重视孩子的疫苗接种。
+向中国证监会提交的文件显示，昆仑芯（北京）科技股份有限公司已启动上市辅导，辅导机构为中国国际金融股份有限公司。
 
-流脑究竟有多“凶险”？
+百度年初时曾表示，昆仑芯已以保密方式递交香港IPO文件。
 
-中国疾控中心研究员介绍，流脑是流行性脑脊髓膜炎的简称，是由脑膜炎奈瑟菌感染引起的急性化脓性脑脊髓膜炎，冬春季高发。
+周五，百度港股股价一度上涨逾4%。
 
-一旦出现突发高热、伴有剧烈头痛、频繁呕吐、精神萎靡，尤其是皮肤出现了压之不退的瘀点、瘀斑，应当立即就医，切勿在家中观察等待。
+Jefferies分析师Thomas Chong等人周五在报告中指出，选择在上海上市，表明百度推进昆仑芯分拆上市的计划取得进展，在内地上市有助于中国AI模型开发企业和芯片制造商更便捷地接触境内投资者。
 
-中国疾控中心提醒，该病发病急、进展快、传染性强、隐性感染率高、病死率高，由于早期症状与普通感冒相似，许多人易忽视，导致延误治疗： 隐匿性强。
+该机构预计昆仑芯的香港上市可能在第三季度完成。
 
-潜伏期1到7天，携带者可能没有典型症状或没有症状，却具有传染性。
-
-起病急、进展快。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 02:06 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 02:29 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 02:06 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 02:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 02:23 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 02:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 02:27 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 02:29 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 02:17 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 02:25 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 02:24 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 02:15 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-30 02:38 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 02:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 02:25 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 02:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 02:30 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 02:25 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 02:19 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 02:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 02:27 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 02:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 02:31 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:15 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 02:41 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/2571961451.shtml)
-- 2026-06-30 02:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/3982015264.shtml)
-- 2026-06-30 02:21 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/981718440132.shtml)
-- 2026-06-30 02:13 - [金刚川](https://www.blog.minike.top/Article/details/77003735321.shtml)
-- 2026-06-30 02:22 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/697593.shtml)
-- 2026-06-30 02:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/03095.shtml)
-- 2026-06-30 02:07 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/26067.shtml)
-- 2026-06-30 02:07 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/8420150666.shtml)
-- 2026-06-30 02:17 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/71115.shtml)
-- 2026-06-30 02:27 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/33166056917.shtml)
-- 2026-06-30 02:22 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/882694249894.shtml)
-- 2026-06-30 02:29 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/0087416115.shtml)
-- 2026-06-30 02:34 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/0106414.shtml)
-- 2026-06-30 02:30 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/87734550174.shtml)
-- 2026-06-30 02:07 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/8299026.shtml)
+- 2026-06-30 02:12 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/739005.shtml)
+- 2026-06-30 02:37 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/22035334502.shtml)
+- 2026-06-30 02:35 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/85250559.shtml)
+- 2026-06-30 02:29 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/6929356488.shtml)
+- 2026-06-30 02:31 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/797733597041.shtml)
+- 2026-06-30 02:36 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/7270020185.shtml)
+- 2026-06-30 02:39 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/144830.shtml)
+- 2026-06-30 02:17 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/946726.shtml)
+- 2026-06-30 02:35 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/0032018406.shtml)
+- 2026-06-30 02:33 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/394148347.shtml)
+- 2026-06-30 02:23 - [恋与深空 日服](http://www.share.minike.top/Article/details/048811.shtml)
+- 2026-06-30 02:27 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/4748752970.shtml)
+- 2026-06-30 02:27 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/14556.shtml)
+- 2026-06-30 02:39 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/08433.shtml)
+- 2026-06-30 02:12 - [周生如故](http://www.blog.minike.top/Article/details/063931.shtml)

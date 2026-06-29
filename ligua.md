@@ -1,59 +1,58 @@
-# 京东、美团、阿里都开始卖车了
+# “令人担忧！” 宝马中国市场销量走低，CEO暗指中国车市产品同质化？ | 欧陆志
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-互联网平台正在加速“驶入”汽车赛道。 日前，第一财经记者获悉，京东、美团、阿里巴巴旗下天猫平台近期均在汽车销售与服务领域展开新动作，互联网巨头卖车的战局再度升级。 4月11日，从京东首页搜索“Open出发”可以进入一个预约体验的测试页面。该页面显示，深蓝汽车和京东汽车联合推出了该项目，内测版将于4月13日上线，并暂时只开放济南地区。 这一动向被外界解读为京东从汽车销售向出行服务
+文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 宝马集团近日发布的2026年一季度财报显示，该公司税前利润同比大幅下滑约25%——一边是管理层不断强调中国市场的重要性，一边是在电车上受到质疑的宝马。 同时，《欧陆志》梳理过去数年数据发现，宝马中国市场份额占全球销量，已经从峰值的33.5%降至一季度同期的25.5%左右。中国不再是“接近三分之一”的超级支柱市场。同时，最新季报显示，
 
 ## 正文
 
-互联网平台正在加速“驶入”汽车赛道。
+文 | 《欧陆志》栏目 郝倩 发自瑞士日内瓦 宝马集团近日发布的2026年一季度财报显示，该公司税前利润同比大幅下滑约25%——一边是管理层不断强调中国市场的重要性，一边是在电车上受到质疑的宝马。
 
-日前，第一财经记者获悉，京东、美团、阿里巴巴旗下天猫平台近期均在汽车销售与服务领域展开新动作，互联网巨头卖车的战局再度升级。
+同时，《欧陆志》梳理过去数年数据发现，宝马中国市场份额占全球销量，已经从峰值的33.5%降至一季度同期的25.5%左右。
 
-4月11日，从京东首页搜索“Open出发”可以进入一个预约体验的测试页面。
+中国不再是“接近三分之一”的超级支柱市场。
 
-该页面显示，深蓝汽车和京东汽车联合推出了该项目，内测版将于4月13日上线，并暂时只开放济南地区。
+同时，最新季报显示，宝马在中国电动车销售占比6.6%，居然远低于欧洲的25.3%。
 
-这一动向被外界解读为京东从汽车销售向出行服务延伸的重要信号。
+这个数据对比令人意外。
 
-目前，京东和深蓝方面均未正式披露细节，但表示不会进军网约车业务。
+在这一背景下，6日的一季度财报记者会，以及随后的投资人电话会中透露出诸多关键信息。
 
-此前，京东、广汽埃安与宁德时代共同推出的“国民好车”埃安UT super，该车型于去年底进入交付阶段。
+这一次，是宝马集团首席执行官齐普策（Oliver Zipse）作为CEO的最后一次财报电话会，他借着这次电话会的机会感谢媒体和投资人陪着他从2000年走到现在。
 
-今年一月，美团方面也宣布开始切入汽车业务。
+这是电话会上有些感伤的时刻。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 02:11 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 02:24 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 02:28 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 02:21 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 02:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 02:35 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 02:30 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 02:25 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 02:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 02:23 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-30 02:14 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 02:28 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 02:38 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 02:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-30 02:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 02:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-30 02:27 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 02:36 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 02:23 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-30 02:13 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 02:31 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 02:12 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 02:28 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 02:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/7392070.shtml)
-- 2026-06-30 02:31 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/89549793156.shtml)
-- 2026-06-30 02:07 - [日本进球](http://www.blog.kurohicncr.top/Article/details/0697284.shtml)
-- 2026-06-30 02:23 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/576146599.shtml)
-- 2026-06-30 02:17 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/126682.shtml)
-- 2026-06-30 02:18 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/855703971746.shtml)
-- 2026-06-30 02:35 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/7501782.shtml)
-- 2026-06-30 02:22 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/224940433.shtml)
-- 2026-06-30 02:21 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/379457093613.shtml)
-- 2026-06-30 02:33 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/103983.shtml)
-- 2026-06-30 02:11 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/231285.shtml)
-- 2026-06-30 02:34 - [美人鱼](https://www.share.kurohicncr.top/Article/details/257603.shtml)
-- 2026-06-30 02:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/0796918902.shtml)
-- 2026-06-30 02:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/061059648031.shtml)
-- 2026-06-30 02:32 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/237821262.shtml)
+- 2026-06-30 02:16 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/957117.shtml)
+- 2026-06-30 02:20 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/31246486281.shtml)
+- 2026-06-30 02:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/5738291819.shtml)
+- 2026-06-30 02:24 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/464012755346.shtml)
+- 2026-06-30 02:40 - [恋与深空回应争议](https://www.share.minike.top/Article/details/112483701.shtml)
+- 2026-06-30 02:19 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/16002415990.shtml)
+- 2026-06-30 02:15 - [日本反击率先破门](https://www.share.minike.top/Article/details/63401845.shtml)
+- 2026-06-30 02:18 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/909561801971.shtml)
+- 2026-06-30 02:23 - [乔家的儿女](http://www.share.minike.top/Article/details/029054642499.shtml)
+- 2026-06-30 02:34 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/47451584630.shtml)
+- 2026-06-30 02:40 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/48626919.shtml)
+- 2026-06-30 02:19 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/421003261621.shtml)
+- 2026-06-30 02:20 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/199001596.shtml)
+- 2026-06-30 02:15 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/21895.shtml)
+- 2026-06-30 02:41 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/44985.shtml)

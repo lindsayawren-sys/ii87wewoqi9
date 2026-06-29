@@ -1,59 +1,57 @@
-# 金价有望录得周度上涨，交易员权衡伊朗停火前景
+# 沪指6连阳，创指涨1.45%！逾3500只个股飘红
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-金价有望实现连续三周上涨，市场对伊朗冲突通过外交途径解决的预期以及各国央行的持续买盘，抵消了通胀方面持续存在的风险。 周五，现货黄金稳定在每盎司4765美元附近，本周涨幅有望接近2%。由于中东冲突的核心问题尚未解决，市场焦点转向在伊斯兰堡举行的周末谈判——由美国副总统万斯率领的美国代表团将与伊朗官员会晤。交易员们还将关注周五晚些时候公布的美国通胀数据。 美国总统唐纳德・特朗普表
+中新经纬5月7日电 周四，A股涨势延续，上证指数录得6连阳。 上证指数日K线图 Wind截图 截至收盘，上证指数涨0.48%，报4180.09点；深证成指涨1.18%，报15641.89点；创业板指涨1.45%，报3833.06点；科创综指涨1.99%，报2064.03点。沪深两市成交额合计3.14万亿元，较上一交易日缩量约828.79亿元。 盘面上，行业板块涨多跌少，风电设备
 
 ## 正文
 
-金价有望实现连续三周上涨，市场对伊朗冲突通过外交途径解决的预期以及各国央行的持续买盘，抵消了通胀方面持续存在的风险。
+中新经纬5月7日电 周四，A股涨势延续，上证指数录得6连阳。
 
-周五，现货黄金稳定在每盎司4765美元附近，本周涨幅有望接近2%。
+上证指数日K线图 Wind截图 截至收盘，上证指数涨0.48%，报4180.09点；深证成指涨1.18%，报15641.89点；创业板指涨1.45%，报3833.06点；科创综指涨1.99%，报2064.03点。
 
-由于中东冲突的核心问题尚未解决，市场焦点转向在伊斯兰堡举行的周末谈判——由美国副总统万斯率领的美国代表团将与伊朗官员会晤。
+沪深两市成交额合计3.14万亿元，较上一交易日缩量约828.79亿元。
 
-交易员们还将关注周五晚些时候公布的美国通胀数据。
+盘面上，行业板块涨多跌少，风电设备、元器件、玻璃纤维、通信设备、体育、广告营销、消费电子等板块涨幅靠前，油气开采、煤炭开采、焦炭加工、能源金属、油服工程等板块跌幅靠前。
 
-美国总统唐纳德・特朗普表示，他对达成协议以结束这场持续六周的冲突持“乐观”态度，但随后又就伊朗对通过霍尔木兹海峡的船只收费一事威胁德黑兰。
+概念板块普涨，光通信、CPO概念、电子纸、AI营销、PCB概念、玻璃基板等板块涨幅居前，工业气体、化肥概念、草甘膦、磷概念、锂矿等板块跌幅居前。
 
-以色列在黎巴嫩的空袭也危及了本周早些时候达成的脆弱停火协议。
+截至收盘，全市场3520只股票上涨、1832只股票下跌，其中127只涨停、54只跌停。
 
-原油价格正迈向2025年6月以来的最大单周跌幅，而股市已出现反弹，美元指数本周下跌1.2%，这对以美元计价的黄金形成了支撑。
+个股方面，今日涨停股部分如下：巨力索具(10.00%)、中天科技(10.00%)、中国长城(10.00%)、易点天下(20.01%)、金螳螂(10.02%)。
 
-不过，自2月底冲突爆发以来，黄金价格仍下跌了近10%，部分投资者为弥补其他领域的亏损而抛售黄金，削弱了其避险属性。
+跌停股部分如下：汇嘉时代(-10.01%)、美诺华(-10.00%)、恒逸石化(-9.98%)、水发燃气(-10.00%)。
 
 ## 相关推荐
 
-- 2026-06-30 02:34 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 02:12 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 02:31 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 02:33 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 02:27 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 02:32 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-30 02:18 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 02:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 02:17 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 02:30 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 02:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-30 02:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-30 02:32 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 02:33 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 02:16 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 02:39 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 02:27 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-30 02:40 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 02:21 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 02:29 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 02:16 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 02:35 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 02:18 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 02:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/59391.shtml)
-- 2026-06-30 02:08 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/090785.shtml)
-- 2026-06-30 02:28 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/935449.shtml)
-- 2026-06-30 02:18 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/138628.shtml)
-- 2026-06-30 02:10 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/318808549711.shtml)
-- 2026-06-30 02:19 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/17765900150.shtml)
-- 2026-06-30 02:08 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/778984880635.shtml)
-- 2026-06-30 02:13 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/566976136010.shtml)
-- 2026-06-30 02:07 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/2952207849.shtml)
-- 2026-06-30 02:29 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/71270327.shtml)
-- 2026-06-30 02:35 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/9474764331.shtml)
-- 2026-06-30 02:10 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/363369611.shtml)
-- 2026-06-30 02:17 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/739042190.shtml)
-- 2026-06-30 02:21 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/9613193.shtml)
-- 2026-06-30 02:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/661259.shtml)
+- 2026-06-30 02:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/74622980059.shtml)
+- 2026-06-30 02:25 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/1645820069.shtml)
+- 2026-06-30 02:18 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/76837543.shtml)
+- 2026-06-30 02:37 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/0764657580.shtml)
+- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/8719534646.shtml)
+- 2026-06-30 02:13 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/80080.shtml)
+- 2026-06-30 02:23 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/569412.shtml)
+- 2026-06-30 02:41 - [点菜也要教吗](https://www.share.minike.top/Article/details/208265123737.shtml)
+- 2026-06-30 02:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/8414356439.shtml)
+- 2026-06-30 02:22 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/5762613170.shtml)
+- 2026-06-30 02:29 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/96857263069.shtml)
+- 2026-06-30 02:26 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/3842326551.shtml)
+- 2026-06-30 02:25 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/32344.shtml)
+- 2026-06-30 02:21 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/602425134.shtml)
+- 2026-06-30 02:40 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/19353200.shtml)

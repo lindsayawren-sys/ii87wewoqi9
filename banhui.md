@@ -1,56 +1,60 @@
-# 三一国际午后涨超5% 招银国际维持“买入”评级
+# 美教师联合会敦促美证交会严审SpaceX上市计划
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-三一国际（00631）午后股价上涨5.26%，现报12.82港元，成交额9066.12万港元。 三一国际年报显示，全年实现营业收入243亿元，同比增长11%；归母净利润17.8亿元，同比增长61%。其中，三一国际海外业务收入92.34亿元，同比增加13%。 招银国际发表报告指，三一国际2025年税后利润（含少数股东权益）为17.8亿元，符合此前预告的利润区间（16亿元至18.5
+登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
 
 ## 正文
 
-三一国际（00631）午后股价上涨5.26%，现报12.82港元，成交额9066.12万港元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 本周三，美国教师联合会（AFT）主席兰迪·温加滕致信美国证券交易委员会（SEC），敦促其加强对SpaceX公司首次公开募股（IPO）筹备工作的审查。
 
-三一国际年报显示，全年实现营业收入243亿元，同比增长11%；归母净利润17.8亿元，同比增长61%。
+鉴于SpaceX股票或将涉及该工会180万名教育、医疗及政府部门成员的退休账户，温加滕在信中表示：“我深切担忧此次大规模募股能否符合证券法关于全面披露重大信息及公平对待投资者的要求。
 
-其中，三一国际海外业务收入92.34亿元，同比增加13%。
+” 温加滕及美国教师联合会希望SEC主席保罗·阿特金斯指示其团队，在当前的例行核查中重点审查SpaceX的IPO申请。
 
-招银国际发表报告指，三一国际2025年税后利润（含少数股东权益）为17.8亿元，符合此前预告的利润区间（16亿元至18.5亿元）；扣除一次性的减值损失后，经调整股东的净利润为18.5亿元，与去年同期持平。
+温加滕对该公司商业计划可能依赖“虚无或投机性技术”表示担忧，并对财务会计的详尽程度及董事会的履职能力提出质疑。
 
-在业绩电话会议上，管理层提到大型矿用卡车、微电网和锂电是未来几年的主要增长领域。
+根据新颁布的交易所规则，相关养老基金可能在IPO后数日内（而非数月）即持有SpaceX股票。
 
-该行继续看好三一国际通过持续业务多元化实现增长的策略，维持“买入”评级，目标价由20.6港元降至19.5港元；将2026年盈利预测下调6%，但主要是由于下调掘进机销量假设。
+然而，外界对SpaceX能否实现足以支撑其高估值的利润仍存疑，这意味着股份价值可能面临暴跌风险，进而损害退休人员的利益。
 
-责任编辑：卢昱君
+温加滕在声明中强调：“委员会必须要求公司进行严格的信息披露，实施独立监管，并建立防止强制投资的保障机制。
+
+否则，劳动者的终身积蓄将面临被一家更像马斯克‘家族企业’而非透明上市公司的企业所操控的风险。
 
 ## 相关推荐
 
-- 2026-06-30 02:19 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 02:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:11 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 02:10 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-30 02:22 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 02:12 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 02:19 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-30 02:21 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 02:19 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 02:22 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 02:28 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 02:34 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 02:26 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 02:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 02:19 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 02:38 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 02:34 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 02:29 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:27 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 02:18 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 02:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 02:37 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 02:19 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 02:41 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 02:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/0308639.shtml)
-- 2026-06-30 02:19 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/40537724.shtml)
-- 2026-06-30 02:12 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/7807967629.shtml)
-- 2026-06-30 02:19 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/844721.shtml)
-- 2026-06-30 02:06 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/131959409.shtml)
-- 2026-06-30 02:11 - [女子清吧被陌生人投放伟哥](http://www.blog.minike.top/Article/details/266158.shtml)
-- 2026-06-30 02:07 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/435405452565.shtml)
-- 2026-06-30 02:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/017974404177.shtml)
-- 2026-06-30 02:07 - [请回答王牌2019](https://www.share.minike.top/Article/details/71641333.shtml)
-- 2026-06-30 02:07 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/659913384526.shtml)
-- 2026-06-30 02:26 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/2796619630.shtml)
-- 2026-06-30 02:08 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/31852898.shtml)
-- 2026-06-30 02:35 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/67147832.shtml)
-- 2026-06-30 02:30 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/188934587.shtml)
-- 2026-06-30 02:34 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/85239113678.shtml)
+- 2026-06-30 02:28 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/57478663522.shtml)
+- 2026-06-30 02:13 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/92082609713.shtml)
+- 2026-06-30 02:26 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/06376323176.shtml)
+- 2026-06-30 02:23 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/778626170.shtml)
+- 2026-06-30 02:40 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/30903578256.shtml)
+- 2026-06-30 02:15 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/62428.shtml)
+- 2026-06-30 02:31 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/801534897.shtml)
+- 2026-06-30 02:28 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/6044199110.shtml)
+- 2026-06-30 02:23 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/47277709457.shtml)
+- 2026-06-30 02:16 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/80193144.shtml)
+- 2026-06-30 02:15 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/51116195223.shtml)
+- 2026-06-30 02:16 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/146390497750.shtml)
+- 2026-06-30 02:18 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/079834.shtml)
+- 2026-06-30 02:12 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/166646253.shtml)
+- 2026-06-30 02:21 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/109450501501.shtml)

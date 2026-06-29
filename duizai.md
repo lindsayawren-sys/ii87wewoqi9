@@ -1,55 +1,57 @@
-# 蔚来李斌：对“全年实现交付量同比增长40%至50%”的目标有信心
+# 事关文物归还 法国立法简化程序有何意义？专家解读
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。 谈及新的交付量目标，李斌表示：“蔚来从去年下半年开始，就进入了第三个发展阶段，希望每年交付量保持40%-50%的增长。” 他回顾，蔚来第一个发展阶段交付量基本保持了每年100%的增长；第二个发展阶段，交付
+北京时间昨晚，法国参议院以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。该草案此前已获国民议会通过，新法将简化行政流程，为流失文物返还提供制度便利。 按程序，法律草案经法国议会两院通过完全一致的文本后，总统应在15天内颁布该法律。那么，我们应该如何看待这部法律草案？它对我国文物回归有何意义？一起来看专家解读。 这部法律实施 能解决哪些问题
 
 ## 正文
 
-专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日上午消息，2026智能电动汽车发展高层论坛举行，蔚来汽车创始人、董事长、CEO李斌与新浪科技等媒体进行对话。
+北京时间昨晚，法国参议院以343票赞成、0票反对的投票结果，通过一项旨在简化非法所获他国文物归还程序的法律草案。
 
-谈及新的交付量目标，李斌表示：“蔚来从去年下半年开始，就进入了第三个发展阶段，希望每年交付量保持40%-50%的增长。
+该草案此前已获国民议会通过，新法将简化行政流程，为流失文物返还提供制度便利。
 
-” 他回顾，蔚来第一个发展阶段交付量基本保持了每年100%的增长；第二个发展阶段，交付量是每年30%-45%的增长，“从去年下半年开始，我们进入到第三个发展阶段，季度同比增长率逐步上升，今年一季度我们同比增长了98.3%。
+按程序，法律草案经法国议会两院通过完全一致的文本后，总统应在15天内颁布该法律。
 
-所以全年来讲，我们对于实现40%~50%的交付量的增长目标还是有信心的。
+那么，我们应该如何看待这部法律草案？
 
-”责任编辑：郝欣煜
+它对我国文物回归有何意义？
+
+一起来看专家解读。
+
+这部法律实施 能解决哪些问题？
+
+中国政法大学教授 霍政欣：这个法案是文物追索返还领域一个非常重要的法国国内立法，开启了新篇章。
 
 ## 相关推荐
 
-- 2026-06-30 02:26 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 02:26 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 02:34 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-30 02:14 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 02:28 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 02:24 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 02:07 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 02:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:30 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 02:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-30 02:16 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 02:07 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 02:09 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 02:14 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 02:17 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 02:19 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 02:28 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 02:30 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 02:20 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 02:12 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 02:34 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 02:35 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 02:34 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 02:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 02:37 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 02:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/247091771.shtml)
-- 2026-06-30 02:22 - [爱很美味](http://www.blog.minike.top/Article/details/41058449063.shtml)
-- 2026-06-30 02:25 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/73904864.shtml)
-- 2026-06-30 02:29 - [一生一世](https://www.blog.kurohicncr.top/Article/details/985042242.shtml)
-- 2026-06-30 02:08 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/813993731479.shtml)
-- 2026-06-30 02:12 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/641161819898.shtml)
-- 2026-06-30 02:26 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/469159761.shtml)
-- 2026-06-30 02:09 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/315141.shtml)
-- 2026-06-30 02:23 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/1656401.shtml)
-- 2026-06-30 02:30 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/144225065.shtml)
-- 2026-06-30 02:34 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/0552083.shtml)
-- 2026-06-30 02:33 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/564653879632.shtml)
-- 2026-06-30 02:08 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/66295362570.shtml)
-- 2026-06-30 02:27 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/741613.shtml)
-- 2026-06-30 02:12 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/522223942736.shtml)
+- 2026-06-30 02:35 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/448861.shtml)
+- 2026-06-30 02:28 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/903364864049.shtml)
+- 2026-06-30 02:34 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/817423.shtml)
+- 2026-06-30 02:29 - [沙丘](http://www.share.minike.top/Article/details/047529739.shtml)
+- 2026-06-30 02:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/528381488.shtml)
+- 2026-06-30 02:14 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/66597284.shtml)
+- 2026-06-30 02:16 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/543190.shtml)
+- 2026-06-30 02:28 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/327630355.shtml)
+- 2026-06-30 02:13 - [点菜也要教吗](https://www.blog.minike.top/Article/details/504415276712.shtml)
+- 2026-06-30 02:40 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/41503163.shtml)
+- 2026-06-30 02:14 - [张元英是故意的还是不小心的](https://www.blog.kurohicncr.top/Article/details/090353754.shtml)
+- 2026-06-30 02:15 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/95238543003.shtml)
+- 2026-06-30 02:27 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/381288504544.shtml)
+- 2026-06-30 02:23 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/628290935.shtml)
+- 2026-06-30 02:18 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/6606129861.shtml)

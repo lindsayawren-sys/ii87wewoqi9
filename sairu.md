@@ -1,61 +1,56 @@
-# 广州暨大港澳子弟学校保利校区圆满开校
+# 广东发布水旱灾害防御应急物资储备指引
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网广州4月10日电 (郭军 何雅婷)广州暨大港澳子弟学校保利校区开校仪式10日圆满举行。据悉，作为广州暨大港澳子弟学校三大校区中规模最大、标准最高的旗舰校区，保利校区总投资近10亿元，由中国工程院院士、华南理工大学何镜堂团队领衔设计。校区占地约4万平方米，规划66个教学班，可容纳1900名师生。 时值暨南大学建校120周年、广州暨大港澳子弟学校办学五周年之际，作为在粤港澳大
+中新网广州5月8日电 (记者 王坚)据广东省水利厅8日消息，为建立健全广东省水旱灾害防御应急物资储备体系，提升水旱灾害防御应急物资保障能力，该厅组织广东省水利电力勘测设计研究院编制了《广东省水旱灾害防御应急物资储备指引》(简称《指引》)，并已印发实施。广东省水利厅介绍，广东地处华南，台风暴雨频发，汛期长达半年，近年来旱涝急转现象突出。全省水利工程点多面广，水旱防御形势复杂，防汛
 
 ## 正文
 
-中新网广州4月10日电 (郭军 何雅婷)广州暨大港澳子弟学校保利校区开校仪式10日圆满举行。
+中新网广州5月8日电 (记者 王坚)据广东省水利厅8日消息，为建立健全广东省水旱灾害防御应急物资储备体系，提升水旱灾害防御应急物资保障能力，该厅组织广东省水利电力勘测设计研究院编制了《广东省水旱灾害防御应急物资储备指引》(简称《指引》)，并已印发实施。
 
-据悉，作为广州暨大港澳子弟学校三大校区中规模最大、标准最高的旗舰校区，保利校区总投资近10亿元，由中国工程院院士、华南理工大学何镜堂团队领衔设计。
+广东省水利厅介绍，广东地处华南，台风暴雨频发，汛期长达半年，近年来旱涝急转现象突出。
 
-校区占地约4万平方米，规划66个教学班，可容纳1900名师生。
+全省水利工程点多面广，水旱防御形势复杂，防汛减灾任务十分繁重。
 
-时值暨南大学建校120周年、广州暨大港澳子弟学校办学五周年之际，作为在粤港澳大湾区蓬勃发展浪潮中应运而生的特色标杆学校，广州暨大港澳子弟学校扎根琶洲人工智能与数字经济核心区，传承百年暨大“忠信笃敬”精神底色，以中华优秀传统文化为根基、以科技创新为发展引擎，构建“文脉传承+科技赋能”双主线育人体系，保利校区的正式启用，标志着学校迈入高质量发展全新阶段。
+据了解，《指引》编制过程中，编制单位充分结合水旱灾害防御的新形势、新任务、新要求，力求覆盖水利应急值班值守、水利工程日常检查巡查排查、应急抢险等全过程、全链条的物资储备需求。
 
-“作为项目施工单位，我们将精益建造与智慧管控贯穿建设全周期。
+广东省水利厅表示，按照“分级储备、错位互补、统筹互助、逐步完备”的原则，《指引》重点解决各级水利部门和水管单位在水旱灾害防御应急物资中“谁来储”“储什么”“储多少”等关键问题，推动构建上级统筹、区域联动、互助共济的物资保障格局，切实提升广东水旱灾害突发事件应急物资保障能力。
 
-面对复杂造型施工、高精度功能空间营造等挑战，项目团队创新采用‘模块化预制+精装穿插’工艺，高效协同推进教学、实验、运动三大区域建设。
-
-同时严格落实‘样板引路、过程管控’机制，对教室、实验室、游泳馆等功能空间进行专项验收，确保每一处细节契合国际化教学需求。
-
-”中建三局华南公司项目负责人介绍道。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 02:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 02:25 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 02:09 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-30 02:30 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 02:33 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 02:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 02:21 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 02:32 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 02:07 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-30 02:24 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 02:25 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 02:32 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 02:11 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 02:19 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-30 02:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 02:26 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 02:12 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 02:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 02:32 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 02:16 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 02:39 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 02:14 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 02:14 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 02:18 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 02:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 02:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 02:18 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 02:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [美股](http://www.blog.minike.top/Article/details/750457916922.shtml)
-- 2026-06-30 02:25 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/252674.shtml)
-- 2026-06-30 02:07 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/58966.shtml)
-- 2026-06-30 02:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/379850.shtml)
-- 2026-06-30 02:27 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/4515287.shtml)
-- 2026-06-30 02:22 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/54056.shtml)
-- 2026-06-30 02:12 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/58761175.shtml)
-- 2026-06-30 02:12 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/39030.shtml)
-- 2026-06-30 02:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/088402402452.shtml)
-- 2026-06-30 02:22 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/6807798703.shtml)
-- 2026-06-30 02:22 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/949541734.shtml)
-- 2026-06-30 02:22 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/0896408.shtml)
-- 2026-06-30 02:06 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/5929843918.shtml)
-- 2026-06-30 02:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/48948113973.shtml)
-- 2026-06-30 02:20 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/88406637008.shtml)
+- 2026-06-30 02:24 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/86785.shtml)
+- 2026-06-30 02:27 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/984439187.shtml)
+- 2026-06-30 02:35 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/37253.shtml)
+- 2026-06-30 02:31 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/64460.shtml)
+- 2026-06-30 02:12 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/120693407.shtml)
+- 2026-06-30 02:27 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/92609870670.shtml)
+- 2026-06-30 02:20 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/1821726173.shtml)
+- 2026-06-30 02:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/24910700.shtml)
+- 2026-06-30 02:32 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/378414624222.shtml)
+- 2026-06-30 02:34 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/42449460028.shtml)
+- 2026-06-30 02:38 - [起风了](http://www.blog.kurohicncr.top/Article/details/518866094.shtml)
+- 2026-06-30 02:19 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/00554957.shtml)
+- 2026-06-30 02:25 - [内马尔替补](http://www.blog.minike.top/Article/details/6188589071.shtml)
+- 2026-06-30 02:32 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/7911554.shtml)
+- 2026-06-30 02:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/84062279556.shtml)

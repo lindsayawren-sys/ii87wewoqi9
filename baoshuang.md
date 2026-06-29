@@ -1,61 +1,59 @@
-# 广东清远“五大百亿”农业产业全产业链产值已超461亿元
+# 中信资源拟出售部分美国铝业股份
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网东莞4月11日电 (记者 张璐)广货行天下夏季行动·清远农林文旅招商推介会暨京东清远跑步鸡发布仪式(简称“活动”)10日在东莞举行。 “东莞不仅是世界工厂，更是食品工业的桥头堡和巨大的消费引擎。”清远市农业农村局相关负责人接受中新网采访时表示，此次选择在东莞举办推介会，就是要借助2026食博会·预博会和农博会这一国家级平台，让藏在粤北山区的好物对接粤港澳大湾区的采购商、加
+中信资源（01205）公布，公司拟于股东特别大会上预先向股东寻求批准出售授权，以授权董事于授权期间出售最多（i） 1，691，918份美国铝业存托凭证及（ii） 551，306股美国铝业股份，合共相当于美国铝业已发行股份总数约0.86%。最低出售价每股美国铝业股份50美元。 于本公告日期，集团透过其持有的美国铝业股份（于纽交所交易）及美国铝业存托凭证（于澳交所交易，并可转换为于
 
 ## 正文
 
-中新网东莞4月11日电 (记者 张璐)广货行天下夏季行动·清远农林文旅招商推介会暨京东清远跑步鸡发布仪式(简称“活动”)10日在东莞举行。
+中信资源（01205）公布，公司拟于股东特别大会上预先向股东寻求批准出售授权，以授权董事于授权期间出售最多（i） 1，691，918份美国铝业存托凭证及（ii） 551，306股美国铝业股份，合共相当于美国铝业已发行股份总数约0.86%。
 
-“东莞不仅是世界工厂，更是食品工业的桥头堡和巨大的消费引擎。
+最低出售价每股美国铝业股份50美元。
 
-”清远市农业农村局相关负责人接受中新网采访时表示，此次选择在东莞举办推介会，就是要借助2026食博会·预博会和农博会这一国家级平台，让藏在粤北山区的好物对接粤港澳大湾区的采购商、加工商和投资商，实现从生态价值到市场价值的快速转化。
+于本公告日期，集团透过其持有的美国铝业股份（于纽交所交易）及美国铝业存托凭证（于澳交所交易，并可转换为于纽交所买卖的美国铝业股份）持有美国铝业约 1.58%股权。
 
-据悉，截至2025年，清远五大百亿级现代农业产业全产业链产值已达461.24亿元，其中清远鸡、英德红茶、西牛麻竹笋全产业链产值均突破百亿元大关。
+该等于美国铝业的股权已分类为集团透过其他全面收益列账的金融资产。
 
-活动现场，清远拿出“农林文旅”全产业家底，面向粤港澳大湾区精准招商，全方位展示“粤味珍品·清远好食材”的独特魅力，集中呈现清远现代农业、林业与文旅产业的丰富资源。
+鉴于当前市况，董事会相信出售事项将使集团能够变现其于美国铝业的投资，从而提升整体流动性及平衡集团的投资组合。
 
-“清远是大湾区向北辐射的第一站，拥有‘一江四轨、六纵四横’的交通网，高铁20分钟到广州、40分钟到东莞、60分钟到深圳。
+此外，出售事项将为集团提供更大的灵活性以重新分配其资源。
 
-不仅如此，清远的用地、用工成本只有珠三角的60%至70%，工业电价优惠力度全省领先。
-
-”清远市人民政府副市长许崇砚表示。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 02:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 02:06 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 02:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 02:21 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 02:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 02:10 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 02:17 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 02:29 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 02:10 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 02:34 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 02:22 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 02:12 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
-- 2026-06-30 02:12 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 02:06 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 02:13 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 02:22 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 02:38 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 02:38 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 02:24 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 02:37 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-30 02:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 02:19 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-30 02:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 02:21 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 02:27 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 02:25 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 02:13 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 02:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 02:18 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:35 - [沙丘](http://www.share.minike.top/Article/details/256863427415.shtml)
-- 2026-06-30 02:17 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/317227753.shtml)
-- 2026-06-30 02:30 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/578831772331.shtml)
-- 2026-06-30 02:17 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/2491025935.shtml)
-- 2026-06-30 02:20 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/361881.shtml)
-- 2026-06-30 02:15 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/965182800.shtml)
-- 2026-06-30 02:13 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/114767.shtml)
-- 2026-06-30 02:35 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/221557332.shtml)
-- 2026-06-30 02:20 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/0279834.shtml)
-- 2026-06-30 02:07 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/2717451184.shtml)
-- 2026-06-30 02:08 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/0200942.shtml)
-- 2026-06-30 02:12 - [流金岁月](http://www.share.minike.top/Article/details/9222886107.shtml)
-- 2026-06-30 02:07 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/972472541.shtml)
-- 2026-06-30 02:20 - [恋与深空回应争议](https://www.share.minike.top/Article/details/02012632376.shtml)
-- 2026-06-30 02:21 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/321373379.shtml)
+- 2026-06-30 02:20 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/78103833651.shtml)
+- 2026-06-30 02:22 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/36722500.shtml)
+- 2026-06-30 02:36 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/362184.shtml)
+- 2026-06-30 02:33 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/50650655.shtml)
+- 2026-06-30 02:20 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/44114.shtml)
+- 2026-06-30 02:25 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/5207977.shtml)
+- 2026-06-30 02:13 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/137561096.shtml)
+- 2026-06-30 02:38 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/87324117887.shtml)
+- 2026-06-30 02:13 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/89244265508.shtml)
+- 2026-06-30 02:41 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/206660.shtml)
+- 2026-06-30 02:16 - [TOP Prada](http://www.share.minike.top/Article/details/29976850415.shtml)
+- 2026-06-30 02:12 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/1780164989.shtml)
+- 2026-06-30 02:25 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/45058901.shtml)
+- 2026-06-30 02:37 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/19341772334.shtml)
+- 2026-06-30 02:12 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/102562.shtml)

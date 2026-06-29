@@ -1,57 +1,56 @@
-# 当米其林邂逅一座“鲜甜”之城
+# 甘肃庆阳宁县：持续巩固提升全省民族团结进步示范县创建成果
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网台州4月9日电(傅飞扬)当东海鲜甜邂逅米其林标准，一场美食盛典正式启幕。4月9日，2026沪苏浙米其林指南餐厅榜单发布会在浙江台州举行，全面展示长三角地区丰富多元的饮食文化。 米其林指南为何首次将发布仪式放在一座地级市？ 把目光投向这片土地——从街巷排档的烟火气到米其林餐厅的星光熠熠，从万年山海的自然馈赠到千载传承的“和合”智慧，再到当代“智造”的精密赋能，台州正以其完整
+原标题：宁县持续巩固提升全省民族团结进步示范县创建成果 近年来，宁县以铸牢中华民族共同体意识为主线，聚焦全省民族团结进步示范县创建成果巩固提升，以“五措发力、六大工程”为抓手，推动创建工作提质增效、常态长效，让民族团结之花在宁州大地常开长盛。 一、坚持党建领航，筑牢创建工作坚强保障。始终坚持党对民族工作的全面领导，健全完善“县委统筹、部门协同、乡镇落实、社会参与”的工作机制，成
 
 ## 正文
 
-中新网台州4月9日电(傅飞扬)当东海鲜甜邂逅米其林标准，一场美食盛典正式启幕。
+原标题：宁县持续巩固提升全省民族团结进步示范县创建成果 近年来，宁县以铸牢中华民族共同体意识为主线，聚焦全省民族团结进步示范县创建成果巩固提升，以“五措发力、六大工程”为抓手，推动创建工作提质增效、常态长效，让民族团结之花在宁州大地常开长盛。
 
-4月9日，2026沪苏浙米其林指南餐厅榜单发布会在浙江台州举行，全面展示长三角地区丰富多元的饮食文化。
+一、坚持党建领航，筑牢创建工作坚强保障。
 
-米其林指南为何首次将发布仪式放在一座地级市？
+始终坚持党对民族工作的全面领导，健全完善“县委统筹、部门协同、乡镇落实、社会参与”的工作机制，成立创建工作领导小组与专项工作专班，将民族团结进步创建工作纳入县委、县政府重点工作部署。
 
-把目光投向这片土地——从街巷排档的烟火气到米其林餐厅的星光熠熠，从万年山海的自然馈赠到千载传承的“和合”智慧，再到当代“智造”的精密赋能，台州正以其完整、鲜活、可持续的美食生态系统，向“世界美食之都”的目标迈进。
+严格落实“第一议题”制度，常态化开展党的民族理论政策学习教育，精心组织各类主题党日活动，充分发挥各级党组织在创建工作中的战斗堡垒作用。
 
-“山海烹鲜” 台州地处浙东沿海地区，是“靠山吃山、靠海吃海”的典型。
+量身制定创建成果巩固提升实施方案，细化明确责任清单、任务清单，足额保障工作经费投入，构建起上下联动、齐抓共管的工作格局，为创建成果持续巩固提供坚强组织保证。
 
-得天独厚的地理环境，构建起“山珍海味一盘收”的完整物产体系，也孕育出台州人对“鲜”字刻入基因的执着追求。
+二、深化宣传教育，厚植民族团结思想根基。
 
-在天台县石梁镇，高山蔬菜依托昼夜温差与地膜技术实现零农药种植，皮薄软糯的茄子、爽脆带甜的黄瓜成为长三角消费市场的“宠儿”；达到一类海水水质标准的大陈岛海域，造就了黄鱼肉质紧实、呈蒜瓣状的独特品质；三门湾畔，青蟹依靠养殖技术，成就了“壳脆肉鲜”的美誉…… 数据显示，台州拥有国家地理标志产品64件，建成16条产值超十亿元的浙江省级“土特产富”全产业链，2025年总产值突破300亿元，这些共同构成了“美食王国”的基石。
+构建“线上+线下”全方位、立体化宣传矩阵，持续夯实中华民族共同体思想基础。
 
-“鲜”是台州菜的精华所在。
+高标准建成宁县铸牢中华民族共同体意识主题教育馆，改造提升各类宣传阵地，其中包括宣传长廊6处、主题广场8处、小游园12处、特色小景观105处，打造形成特色鲜明的“红石榴”宣传阵地集群。
 
 ## 相关推荐
 
-- 2026-06-30 02:33 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-30 02:08 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 02:33 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 02:25 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
-- 2026-06-30 02:28 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 02:12 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 02:27 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 02:27 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 02:28 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-30 02:25 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 02:15 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 02:12 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 02:24 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:21 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 02:39 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 02:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 02:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 02:32 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 02:22 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 02:28 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:19 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/192580652766.shtml)
-- 2026-06-30 02:22 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/307496165.shtml)
-- 2026-06-30 02:25 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/676579162.shtml)
-- 2026-06-30 02:32 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/43250493.shtml)
-- 2026-06-30 02:10 - [明星大侦探第一季](http://www.share.minike.top/Article/details/51753090272.shtml)
-- 2026-06-30 02:34 - [毒液2](https://www.blog.kurohicncr.top/Article/details/91305143.shtml)
-- 2026-06-30 02:26 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/02096765250.shtml)
-- 2026-06-30 02:09 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/1280860522.shtml)
-- 2026-06-30 02:12 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/43789.shtml)
-- 2026-06-30 02:34 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/97152513558.shtml)
-- 2026-06-30 02:13 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/7708926156.shtml)
-- 2026-06-30 02:13 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/0470393.shtml)
-- 2026-06-30 02:28 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/074136681212.shtml)
-- 2026-06-30 02:13 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/056054561.shtml)
-- 2026-06-30 02:22 - [我和我的家乡](https://www.blog.minike.top/Article/details/308422442.shtml)
+- 2026-06-30 02:28 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/07639.shtml)
+- 2026-06-30 02:36 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/666614.shtml)
+- 2026-06-30 02:22 - [千香](https://www.blog.kurohicncr.top/Article/details/87741119.shtml)
+- 2026-06-30 02:17 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/390967.shtml)
+- 2026-06-30 02:32 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/373363610.shtml)
+- 2026-06-30 02:25 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/746892810721.shtml)
+- 2026-06-30 02:24 - [我们的少年时代2](https://www.share.minike.top/Article/details/2586225579.shtml)
+- 2026-06-30 02:30 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/701170476886.shtml)
+- 2026-06-30 02:36 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/945372878.shtml)
+- 2026-06-30 02:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/91962.shtml)
+- 2026-06-30 02:21 - [点菜也要教吗](http://www.share.minike.top/Article/details/3099393.shtml)
+- 2026-06-30 02:20 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/296869752033.shtml)
+- 2026-06-30 02:26 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/692334349.shtml)
+- 2026-06-30 02:38 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/68250743613.shtml)
+- 2026-06-30 02:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/2120295.shtml)

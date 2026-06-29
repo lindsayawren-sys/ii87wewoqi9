@@ -1,57 +1,59 @@
-# 知名投资人Michael Burry买入京东和阿里巴巴股票
+# 三位外媒记者讲述在中国的所见所闻——“在中国，我看到了未来社会发展的模样”
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-京东ADR周五上涨2.2%，此前知名投资人Michael Burry表示买入了这家中国电商的股票。Burry在Substack发帖表示，他还买入了阿里巴巴。 “京东是重要的加仓，阿里巴巴是新建仓，略高于6%，”这篇供付费订阅用户查阅的帖子写道，京东“略高于这一比例”。 京东近期的走弱提供了“极具吸引力的入场点”。 阿里巴巴ADR收窄跌幅。 此外，Burry还写道，他买入了Gam
+三位外媒记者讲述在中国的所见所闻—— “在中国，我看到了未来社会发展的模样”(外媒记者看中国) 人民日报 陈尚文 李 强 沈小晓 牛瑞飞今年是“十五五”开局之年。今日之中国经济实力、科技实力、综合国力迈上新台阶，绿水青山绘就亮丽底色，人民群众获得感、幸福感、安全感不断增强。中国式现代化持续推进，不仅为中华民族伟大复兴开新局，也为世界发展提供新机遇。作为连接中国与世界的纽带，外媒
 
 ## 正文
 
-京东ADR周五上涨2.2%，此前知名投资人Michael Burry表示买入了这家中国电商的股票。
+三位外媒记者讲述在中国的所见所闻—— “在中国，我看到了未来社会发展的模样”(外媒记者看中国) 人民日报 陈尚文 李 强 沈小晓 牛瑞飞今年是“十五五”开局之年。
 
-Burry在Substack发帖表示，他还买入了阿里巴巴。
+今日之中国经济实力、科技实力、综合国力迈上新台阶，绿水青山绘就亮丽底色，人民群众获得感、幸福感、安全感不断增强。
 
-“京东是重要的加仓，阿里巴巴是新建仓，略高于6%，”这篇供付费订阅用户查阅的帖子写道，京东“略高于这一比例”。
+中国式现代化持续推进，不仅为中华民族伟大复兴开新局，也为世界发展提供新机遇。
 
-京东近期的走弱提供了“极具吸引力的入场点”。
+作为连接中国与世界的纽带，外媒记者发挥着沟通中外的重要作用，他们在华工作、生活，真切触摸到一个日新月异、开放包容的中国。
 
-阿里巴巴ADR收窄跌幅。
+日前，本报记者采访了3位外媒记者，倾听他们在中国大地上的观察与感悟。
 
-此外，Burry还写道，他买入了GameStop，“在已有相当规模持仓的基础上继续加仓”，并且他还买入了Fiserv的股票。
+哈萨克斯坦《实业报》总编辑谢里克·科尔茹姆巴耶夫—— “一个充满勃勃生机的国度，正沿着自己的道路稳步前行” “中国就像一本书，每一页都蕴含智慧与魅力。
 
-此外，Burry写道，他增持了英伟达的看跌期权。
+”谈及与中国的缘分，哈萨克斯坦《实业报》总编辑谢里克·科尔茹姆巴耶夫说。
 
-责任编辑：陈钰嘉
+2001年，科尔茹姆巴耶夫首次受邀访问中国。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 02:08 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 02:19 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 02:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 02:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 02:17 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 02:20 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 02:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 02:31 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-30 02:29 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 02:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 02:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-30 02:37 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 02:19 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 02:12 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 02:22 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 02:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
+- 2026-06-30 02:16 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 02:25 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 02:22 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-30 02:18 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 02:33 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 02:15 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 02:25 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/8299522694.shtml)
-- 2026-06-30 02:13 - [强制戒网瘾起诉父亲](https://www.blog.kurohicncr.top/Article/details/1411742058.shtml)
-- 2026-06-30 02:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/98067697.shtml)
-- 2026-06-30 02:07 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/616174.shtml)
-- 2026-06-30 02:10 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/56354.shtml)
-- 2026-06-30 02:21 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/141806565798.shtml)
-- 2026-06-30 02:15 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/71595.shtml)
-- 2026-06-30 02:30 - [TOP Prada](https://www.share.minike.top/Article/details/382563868.shtml)
-- 2026-06-30 02:12 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/983500481333.shtml)
-- 2026-06-30 02:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/56473108.shtml)
-- 2026-06-30 02:35 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/25865168880.shtml)
-- 2026-06-30 02:18 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/6566984.shtml)
-- 2026-06-30 02:08 - [孙兴慜道歉](https://www.share.minike.top/Article/details/9456892078.shtml)
-- 2026-06-30 02:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/2098059518.shtml)
-- 2026-06-30 02:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/73993416560.shtml)
+- 2026-06-30 02:31 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/220276.shtml)
+- 2026-06-30 02:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/807121.shtml)
+- 2026-06-30 02:34 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/31400869948.shtml)
+- 2026-06-30 02:25 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/34079871.shtml)
+- 2026-06-30 02:12 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/76477826423.shtml)
+- 2026-06-30 02:30 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/6131541.shtml)
+- 2026-06-30 02:25 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/6821744.shtml)
+- 2026-06-30 02:25 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/749088170933.shtml)
+- 2026-06-30 02:38 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/349252453.shtml)
+- 2026-06-30 02:20 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/045500.shtml)
+- 2026-06-30 02:37 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/782881.shtml)
+- 2026-06-30 02:21 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/68411695932.shtml)
+- 2026-06-30 02:27 - [千香](https://www.share.minike.top/Article/details/31127.shtml)
+- 2026-06-30 02:36 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/55246530307.shtml)
+- 2026-06-30 02:24 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/6747788798.shtml)

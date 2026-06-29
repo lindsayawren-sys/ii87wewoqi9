@@ -1,49 +1,55 @@
-# 4月10日央行开展20亿元7天期逆回购操作
+# 刘诗雯再度当选国际乒联运动员委员会委员
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网4月10日电 据央行网站消息，2026年4月10日中国人民银行以固定利率、数量招标方式开展了20亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
+中新社伦敦5月7日电 国际乒联7日公布新一届运动员委员会选举结果，中国奥运冠军刘诗雯等10人当选委员。 国际乒联表示，本次选举于5月4日结束，共有300余人参与健全人运动员代表的投票。为确保洲际及性别比例上的平衡，共有8位健全人运动员进入新一届运动员委员会。除了两位现任主席刘诗雯和印度的阿昌塔以外，还有来自威尔士、加纳、英格兰、阿尔及利亚、厄瓜多尔、罗马尼亚的运动员代表。 此外
 
 ## 正文
 
-中新网4月10日电 据央行网站消息，2026年4月10日中国人民银行以固定利率、数量招标方式开展了20亿元7天期逆回购操作，全额满足了一级交易商需求。
+中新社伦敦5月7日电 国际乒联7日公布新一届运动员委员会选举结果，中国奥运冠军刘诗雯等10人当选委员。
 
-具体情况如下：
+国际乒联表示，本次选举于5月4日结束，共有300余人参与健全人运动员代表的投票。
+
+为确保洲际及性别比例上的平衡，共有8位健全人运动员进入新一届运动员委员会。
+
+除了两位现任主席刘诗雯和印度的阿昌塔以外，还有来自威尔士、加纳、英格兰、阿尔及利亚、厄瓜多尔、罗马尼亚的运动员代表。
+
+此外，运动员委员会还包括两名来自英格兰和美国的残疾人运动员代表。
+
+后续，还将选举产生新一届运动员委员会主席。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:21 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 02:26 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 02:06 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 02:35 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 02:19 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 02:27 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
-- 2026-06-30 02:18 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 02:12 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 02:30 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 02:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 02:22 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 02:26 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 02:31 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 02:22 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 02:32 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 02:31 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 02:24 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 02:34 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 02:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 02:16 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 02:20 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-30 02:30 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 02:25 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 02:39 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 02:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 02:40 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/8105755.shtml)
-- 2026-06-30 02:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/24222.shtml)
-- 2026-06-30 02:19 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/7682823191.shtml)
-- 2026-06-30 02:16 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/53051943.shtml)
-- 2026-06-30 02:07 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/4592973.shtml)
-- 2026-06-30 02:22 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/3491313.shtml)
-- 2026-06-30 02:30 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/2742605.shtml)
-- 2026-06-30 02:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/806427.shtml)
-- 2026-06-30 02:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/05938.shtml)
-- 2026-06-30 02:18 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/5467195.shtml)
-- 2026-06-30 02:18 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/2956707.shtml)
-- 2026-06-30 02:15 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/22796572.shtml)
-- 2026-06-30 02:25 - [天道](http://www.blog.minike.top/Article/details/719771896.shtml)
-- 2026-06-30 02:13 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/73233042830.shtml)
-- 2026-06-30 02:25 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/478063.shtml)
+- 2026-06-30 02:38 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/093010.shtml)
+- 2026-06-30 02:36 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/26365056446.shtml)
+- 2026-06-30 02:34 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/94863946.shtml)
+- 2026-06-30 02:28 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/301869.shtml)
+- 2026-06-30 02:30 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/77837829933.shtml)
+- 2026-06-30 02:14 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/60569219.shtml)
+- 2026-06-30 02:23 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/9111230862.shtml)
+- 2026-06-30 02:32 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/859619.shtml)
+- 2026-06-30 02:17 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/76029310764.shtml)
+- 2026-06-30 02:25 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/41278.shtml)
+- 2026-06-30 02:34 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/68224.shtml)
+- 2026-06-30 02:38 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/593655459169.shtml)
+- 2026-06-30 02:40 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/43327365888.shtml)
+- 2026-06-30 02:25 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/88879.shtml)
+- 2026-06-30 02:29 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/60611562.shtml)

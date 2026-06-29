@@ -1,58 +1,49 @@
-# 上海楼市报告：广告传媒及律师事务所为办公楼市场贡献显著 服饰与餐饮品牌活跃
+# 中国宏桥于5月7日斥资6.08亿港元回购1828.7万股
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网上海4月9日电 (记者 李佳佳)全球性地产服务和投资公司世邦魏理仕(CBRE)9日发布的《2026年第一季度上海房地产市场回顾报告》显示，第一季度，上海办公楼优质项目引领需求释放，带动全市去化环比持续改善。零售市场餐饮与服饰品牌表现活跃，市场在分化迭代中重塑竞争格局，消费结构升级趋势明显。 2026年第一季度，上海办公楼市场共录得4个新项目交付，新增体量合计约47.2万平
+中国宏桥（01378）发布公告，该公司于2026年5月7日斥资6.08亿港元回购1828.7万股股份，每股回购价格为32.84-34.22港元。责任编辑：卢昱君
 
 ## 正文
 
-中新网上海4月9日电 (记者 李佳佳)全球性地产服务和投资公司世邦魏理仕(CBRE)9日发布的《2026年第一季度上海房地产市场回顾报告》显示，第一季度，上海办公楼优质项目引领需求释放，带动全市去化环比持续改善。
+中国宏桥（01378）发布公告，该公司于2026年5月7日斥资6.08亿港元回购1828.7万股股份，每股回购价格为32.84-34.22港元。
 
-零售市场餐饮与服饰品牌表现活跃，市场在分化迭代中重塑竞争格局，消费结构升级趋势明显。
-
-2026年第一季度，上海办公楼市场共录得4个新项目交付，新增体量合计约47.2万平方米。
-
-这些优质甲级项目的入市，为企业升级搬迁提供了更多选择空间。
-
-从第一季度需求结构来看，专业服务业上升迅速，以21%的占比位居首位，其中广告传媒及律师事务所贡献最为显著，金融业位列第二，消费品行业排名第三，第三方办公及酒店分列第四、第五位，反映出在下行市场中租赁方式正逐步趋于多样化。
-
-世邦魏理仕中国区办公楼租赁交易负责人张越表示：“2026年首季度，上海办公楼市场在调整中展现出一定的结构性韧性。
-
-尽管整体租赁环境仍面临供应压力，但企业对高品质办公空间的偏好未减，以‘成本优化’与‘品质升级’为核心的搬迁需求持续释放，成为支撑市场稳健运行的关键力量。
-
-未来六个月，上海办公楼市场将迎来K11 Atelier、静安新中心等一批新增供应入市，这将进一步丰富核心板块的租赁选择，为市场注入新的活力。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:16 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 02:17 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-30 02:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 02:13 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 02:19 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 02:19 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 02:13 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 02:32 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 02:13 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 02:25 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 02:20 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 02:32 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 02:21 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-30 02:25 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 02:24 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 02:28 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 02:19 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 02:38 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 02:19 - [一生一世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 02:22 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 02:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-30 02:37 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 02:24 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 02:12 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 02:28 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 02:22 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 02:15 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/9724021.shtml)
-- 2026-06-30 02:25 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/09030369169.shtml)
-- 2026-06-30 02:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/39374.shtml)
-- 2026-06-30 02:07 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/016389.shtml)
-- 2026-06-30 02:07 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/8703188106.shtml)
-- 2026-06-30 02:06 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/3350247.shtml)
-- 2026-06-30 02:35 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/39238.shtml)
-- 2026-06-30 02:11 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/638657.shtml)
-- 2026-06-30 02:28 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/08047201.shtml)
-- 2026-06-30 02:31 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/61102812.shtml)
-- 2026-06-30 02:20 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/430929383.shtml)
-- 2026-06-30 02:30 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/511695384595.shtml)
-- 2026-06-30 02:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/078514.shtml)
-- 2026-06-30 02:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/27154682876.shtml)
-- 2026-06-30 02:35 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/44981836.shtml)
+- 2026-06-30 02:26 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.blog.kurohicncr.top/Article/details/22093.shtml)
+- 2026-06-30 02:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/64135.shtml)
+- 2026-06-30 02:37 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/06102292.shtml)
+- 2026-06-30 02:20 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/469970162.shtml)
+- 2026-06-30 02:18 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/913212887.shtml)
+- 2026-06-30 02:32 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/51553363.shtml)
+- 2026-06-30 02:27 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/685482159224.shtml)
+- 2026-06-30 02:38 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/368295285471.shtml)
+- 2026-06-30 02:28 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/88521712563.shtml)
+- 2026-06-30 02:31 - [马光远谈马斯克最大的价值](https://www.share.kurohicncr.top/Article/details/59233142972.shtml)
+- 2026-06-30 02:18 - [毒液2](https://www.share.kurohicncr.top/Article/details/1345718.shtml)
+- 2026-06-30 02:18 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/27546110.shtml)
+- 2026-06-30 02:21 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/68564.shtml)
+- 2026-06-30 02:28 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/89898551.shtml)
+- 2026-06-30 02:40 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/57117956.shtml)

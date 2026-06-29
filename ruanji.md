@@ -1,60 +1,53 @@
-# “乒乓外交”亲历者朱迪·霍夫罗斯特：我们比以往更需要合作
+# OPPO就母亲节文案致歉：已第一时间下架全部相关物料，全面审查内容审核机制
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电(刘梦青) 4月9日，“乒乓外交”亲历者朱迪·霍夫罗斯特在北京受访时表示，科技飞速发展的当下，我们比以往更需要合作。 今年是“乒乓外交”55周年。应中国人民对外友好协会邀请，朱迪·霍夫罗斯特来华出席10日在北京举行的中美“乒乓外交”55周年纪念大会，见证2026中美青少年体育交流系列活动启动。 谈及对中国的印象，先后来华10次的朱迪感慨中国的经济飞速增长和科技飞
+新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。 声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。我们已第一时间下架全部相关物料。我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。” 责任编辑：刘万里 SF0
 
 ## 正文
 
-中新网4月9日电(刘梦青) 4月9日，“乒乓外交”亲历者朱迪·霍夫罗斯特在北京受访时表示，科技飞速发展的当下，我们比以往更需要合作。
+新浪科技讯 5月8日下午消息，OPPO官微今日发布声明称，关于本次母亲节宣传文案引起的争议，诚恳表示歉意。
 
-今年是“乒乓外交”55周年。
+声明称，“我们的创作初衷，是希望打破刻板印象，呈现更多元、更立体的当代母亲形象：母亲可以热爱马拉松，可以沉浸文字创作，也可以拥有自己的追星爱好。
 
-应中国人民对外友好协会邀请，朱迪·霍夫罗斯特来华出席10日在北京举行的中美“乒乓外交”55周年纪念大会，见证2026中美青少年体育交流系列活动启动。
+我们已第一时间下架全部相关物料。
 
-谈及对中国的印象，先后来华10次的朱迪感慨中国的经济飞速增长和科技飞速发展。
+我们将认真倾听各方批评，全面审查内容审核机制，确保此类问题不再发生。
 
-“我印象里深圳就像一个小渔村。
-
-如今城市里高大建筑四处可见，令人惊叹。
-
-” 她还提到，如今科技的发展让大家的沟通变得迅捷。
-
-在她看来，中美唯有合作、共同努力，才能更好应对AI等新技术的挑战。
+” 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-30 02:16 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-30 02:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-30 02:12 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 02:19 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 02:09 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-30 02:07 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 02:21 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-30 02:33 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 02:15 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 02:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 02:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 02:18 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 02:19 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-30 02:39 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 02:40 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 02:18 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 02:29 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 02:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 02:20 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 02:34 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 02:14 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 02:21 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 02:25 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 02:24 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 02:41 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 02:31 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/63652.shtml)
-- 2026-06-30 02:32 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/33198169883.shtml)
-- 2026-06-30 02:23 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/46536520.shtml)
-- 2026-06-30 02:25 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/87456784727.shtml)
-- 2026-06-30 02:09 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/370933977085.shtml)
-- 2026-06-30 02:23 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/775667504019.shtml)
-- 2026-06-30 02:23 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/77125439.shtml)
-- 2026-06-30 02:34 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/8486675.shtml)
-- 2026-06-30 02:25 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/129023651959.shtml)
-- 2026-06-30 02:35 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/059165.shtml)
-- 2026-06-30 02:12 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/43542787.shtml)
-- 2026-06-30 02:19 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/8973518510.shtml)
-- 2026-06-30 02:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/58526091467.shtml)
-- 2026-06-30 02:14 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/194752231.shtml)
-- 2026-06-30 02:18 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/109261451.shtml)
+- 2026-06-30 02:35 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/09763466.shtml)
+- 2026-06-30 02:20 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/63308536375.shtml)
+- 2026-06-30 02:13 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/58059.shtml)
+- 2026-06-30 02:21 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/7519794692.shtml)
+- 2026-06-30 02:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/5181987493.shtml)
+- 2026-06-30 02:28 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/322609105.shtml)
+- 2026-06-30 02:37 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/04435.shtml)
+- 2026-06-30 02:23 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/8178781773.shtml)
+- 2026-06-30 02:18 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/25699036.shtml)
+- 2026-06-30 02:19 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/27166464420.shtml)
+- 2026-06-30 02:34 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/06135020.shtml)
+- 2026-06-30 02:33 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/6659588.shtml)
+- 2026-06-30 02:18 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/885817487067.shtml)
+- 2026-06-30 02:24 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/331450.shtml)
+- 2026-06-30 02:24 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/955795.shtml)

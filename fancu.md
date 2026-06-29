@@ -1,52 +1,60 @@
-# 国家矿山安全监察局：持续深化打击盗采矿产资源整治 加强汛期矿山安全风险防范
+# 谷歌调整垃圾邮件政策 以避免欧盟反垄断罚款
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-记者从今天(10日)召开的国家矿山安全监察局新闻发布会上获悉，一季度国家矿山安全监察局已组织公安部、自然资源部等5部门召开会商会议。持续深化打击盗采矿产资源整治，“点对点”督促尚未完成整治任务的地区落实属地责任，形成整治工作闭环，目前未完成封堵任务的地区已从14个减少到5个。同时加强汛期矿山安全风险防范，已提前部署汛期防汛度汛措施，强化矿山倒风季节通风管理，严格落实瓦斯、水害、
+欧盟执委会文件显示，Alphabet旗下的谷歌已提议修改其遭出版商批评的垃圾信息政策，此举或有助于其避免欧盟的反垄断罚款。 此前，出版商对谷歌的“网站声誉滥用政策”提出投诉，导致这家美国科技巨头成为欧盟监管机构的调查目标。该政策旨在打击在网站上发布第三方页面、试图利用主站排名信号来操纵搜索排名的做法，这种行为通常被称为“寄生SEO”。 这促使作为欧盟竞争执法机构的欧盟委员会于1
 
 ## 正文
 
-记者从今天(10日)召开的国家矿山安全监察局新闻发布会上获悉，一季度国家矿山安全监察局已组织公安部、自然资源部等5部门召开会商会议。
+欧盟执委会文件显示，Alphabet旗下的谷歌已提议修改其遭出版商批评的垃圾信息政策，此举或有助于其避免欧盟的反垄断罚款。
 
-持续深化打击盗采矿产资源整治，“点对点”督促尚未完成整治任务的地区落实属地责任，形成整治工作闭环，目前未完成封堵任务的地区已从14个减少到5个。
+此前，出版商对谷歌的“网站声誉滥用政策”提出投诉，导致这家美国科技巨头成为欧盟监管机构的调查目标。
 
-同时加强汛期矿山安全风险防范，已提前部署汛期防汛度汛措施，强化矿山倒风季节通风管理，严格落实瓦斯、水害、火灾、顶板、冲击地压等重大灾害风险防控措施，严防“桃花水”、融雪性洪水、露天矿山边坡冻融滑坡等引发事故。
+该政策旨在打击在网站上发布第三方页面、试图利用主站排名信号来操纵搜索排名的做法，这种行为通常被称为“寄生SEO”。
 
-(总台央视记者 唐国荣 高子轩)
+这促使作为欧盟竞争执法机构的欧盟委员会于11月根据《数字市场法》启动调查，该法案旨在遏制科技巨头的权力。
+
+文件称，谷歌已提出修改方案以符合《数字市场法》的要求，并给予相关方至下周的期限提交反馈意见。
+
+欧盟监管机构表示，其监测显示，当新闻媒体及其他发布商的网站包含来自商业合作伙伴的内容时，谷歌的垃圾信息政策会降低这些网站及其内容在谷歌搜索结果中的排名。
+
+监管机构指出，该政策直接影响了出版商通过网站和内容实现盈利的一种普遍且合法的方式。
+
+违反《数字市场法》可能导致企业面临最高相当于其全球年营业额10%的罚款。
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 02:09 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 02:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 02:10 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 02:25 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 02:26 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 02:35 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 02:31 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 02:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 02:11 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 02:17 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-30 02:06 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 02:16 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 02:29 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:37 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 02:13 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 02:24 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 02:27 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 02:41 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 02:30 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 02:21 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 02:27 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 02:37 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 02:22 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 02:25 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 02:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 02:36 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 02:28 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/68243819154.shtml)
-- 2026-06-30 02:23 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/4961346905.shtml)
-- 2026-06-30 02:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/940162.shtml)
-- 2026-06-30 02:10 - [第一炉香](https://www.share.minike.top/Article/details/88969633634.shtml)
-- 2026-06-30 02:22 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/776853387459.shtml)
-- 2026-06-30 02:11 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/62130.shtml)
-- 2026-06-30 02:14 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/8943282625.shtml)
-- 2026-06-30 02:12 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/55760851.shtml)
-- 2026-06-30 02:32 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/458972755897.shtml)
-- 2026-06-30 02:16 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/334047.shtml)
-- 2026-06-30 02:21 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/91730.shtml)
-- 2026-06-30 02:25 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/7644406231.shtml)
-- 2026-06-30 02:10 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/84940.shtml)
-- 2026-06-30 02:19 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/09269902962.shtml)
-- 2026-06-30 02:32 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/335002656460.shtml)
+- 2026-06-30 02:16 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/16192.shtml)
+- 2026-06-30 02:14 - [日本进球](http://www.share.minike.top/Article/details/42543654.shtml)
+- 2026-06-30 02:37 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/9938986.shtml)
+- 2026-06-30 02:17 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/22857.shtml)
+- 2026-06-30 02:24 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/11684668343.shtml)
+- 2026-06-30 02:28 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/821303.shtml)
+- 2026-06-30 02:29 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/0755055.shtml)
+- 2026-06-30 02:39 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/214062470.shtml)
+- 2026-06-30 02:28 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/1375414383.shtml)
+- 2026-06-30 02:39 - [绘画区你赢了](https://www.blog.minike.top/Article/details/74183.shtml)
+- 2026-06-30 02:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/5721827485.shtml)
+- 2026-06-30 02:41 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/660500.shtml)
+- 2026-06-30 02:22 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/18733438578.shtml)
+- 2026-06-30 02:41 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/141327387592.shtml)
+- 2026-06-30 02:36 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/438400157806.shtml)

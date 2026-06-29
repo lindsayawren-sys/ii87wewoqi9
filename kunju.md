@@ -1,52 +1,58 @@
-# 上证指数早盘重返4000点 创业板涨超3%创近四年半新高
+# 岛校接力生生不息 浙江大陈岛垦荒精神浸润少年心田
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-4月10日，中国资产早盘爆发，沪指重返4000点，港股、富时中国A50指数期货同步上涨！截至10点，上证指数拉升涨超1%，时隔14个交易日重回4000点，创业板指涨逾3%，再度刷新2021年12月底以来的阶段新高，科创综指、深圳成指涨超2%，市场超4600股上涨。 半导体芯片涨幅居前，德明利逼近涨停，续创历史新高，普冉股份、江波龙、佰维存储、兆易创新等跟涨；大金融板块走高，南华
+中新网台州5月7日电(周健 何赛)“我想站着讲，这样更能传达垦荒精神！”近日，在浙江台州椒江区大陈岛，有腿伤的83岁老垦荒队员高阿莲将凳子推到一边，挺直腰板，娓娓讲述当年的垦荒岁月。 70年前，467名青年登上大陈岛，以青春之力将废墟筑成家园，高阿莲就是其中之一。在连日来举行的“台州市岛校接力垦荒精神践行活动”中，高阿莲向垦荒后代、20名青少年分享垦荒故事，一场跨越三代人的精神
 
 ## 正文
 
-4月10日，中国资产早盘爆发，沪指重返4000点，港股、富时中国A50指数期货同步上涨！
+中新网台州5月7日电(周健 何赛)“我想站着讲，这样更能传达垦荒精神！
 
-截至10点，上证指数拉升涨超1%，时隔14个交易日重回4000点，创业板指涨逾3%，再度刷新2021年12月底以来的阶段新高，科创综指、深圳成指涨超2%，市场超4600股上涨。
+”近日，在浙江台州椒江区大陈岛，有腿伤的83岁老垦荒队员高阿莲将凳子推到一边，挺直腰板，娓娓讲述当年的垦荒岁月。
 
-半导体芯片涨幅居前，德明利逼近涨停，续创历史新高，普冉股份、江波龙、佰维存储、兆易创新等跟涨；大金融板块走高，南华期货涨停，中信证券涨超8%，东方财富、华泰证券、兴业证券、广发证券、银之杰、同花顺涨超5%。
+70年前，467名青年登上大陈岛，以青春之力将废墟筑成家园，高阿莲就是其中之一。
 
-锂电池产业链拉升，国轩高科、信宇人涨停。
+在连日来举行的“台州市岛校接力垦荒精神践行活动”中，高阿莲向垦荒后代、20名青少年分享垦荒故事，一场跨越三代人的精神接力拉开序幕。
 
-内蒙古本地股大面积高开，内蒙新华、欧晶科技一字涨停。
+“我16岁瞒着爸妈上了岛，岛上几乎见不到一棵树、一棵草。
 
-责任编辑：凌辰
+”高阿莲一边指向窗外，一边说，“你们看现在，有了路、有了房子、有了学校。
+
+这里早已成为我的家，我在这里燃烧青春，也在这里老去。
+
+” 受现场氛围感染，“垦二代”陈玲萍也上台分享了自己父母的故事。
 
 ## 相关推荐
 
-- 2026-06-30 02:22 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 02:20 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 02:12 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 02:07 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 02:28 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-30 02:15 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
-- 2026-06-30 02:17 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 02:21 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 02:34 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 02:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-30 02:37 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 02:25 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 02:39 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 02:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 02:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
+- 2026-06-30 02:21 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 02:26 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-30 02:27 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 02:28 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 02:17 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 02:26 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:20 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/040029.shtml)
-- 2026-06-30 02:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/56571509909.shtml)
-- 2026-06-30 02:11 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/6769338.shtml)
-- 2026-06-30 02:10 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/310886.shtml)
-- 2026-06-30 02:15 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/96334034339.shtml)
-- 2026-06-30 02:12 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/3249423.shtml)
-- 2026-06-30 02:20 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/24953549628.shtml)
-- 2026-06-30 02:13 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/26771731083.shtml)
-- 2026-06-30 02:23 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/115983984.shtml)
-- 2026-06-30 02:19 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/3713226955.shtml)
-- 2026-06-30 02:17 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/140536000.shtml)
-- 2026-06-30 02:32 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/5421339118.shtml)
-- 2026-06-30 02:34 - [日本进球](http://www.share.kurohicncr.top/Article/details/81776151.shtml)
-- 2026-06-30 02:11 - [斗破苍穹](http://www.share.minike.top/Article/details/3193266011.shtml)
-- 2026-06-30 02:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/243388465.shtml)
+- 2026-06-30 02:22 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/477862886.shtml)
+- 2026-06-30 02:25 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/065874.shtml)
+- 2026-06-30 02:13 - [千香](https://www.blog.kurohicncr.top/Article/details/20086741.shtml)
+- 2026-06-30 02:28 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/050481.shtml)
+- 2026-06-30 02:23 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/117149436.shtml)
+- 2026-06-30 02:26 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/017455.shtml)
+- 2026-06-30 02:31 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/93284542178.shtml)
+- 2026-06-30 02:34 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/9436070350.shtml)
+- 2026-06-30 02:34 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/1958874971.shtml)
+- 2026-06-30 02:39 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/64558020.shtml)
+- 2026-06-30 02:30 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/211509.shtml)
+- 2026-06-30 02:39 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/8737971.shtml)
+- 2026-06-30 02:14 - [日本领先巴西](https://www.blog.minike.top/Article/details/413430.shtml)
+- 2026-06-30 02:38 - [我和我的家乡](http://www.blog.minike.top/Article/details/6204025.shtml)
+- 2026-06-30 02:36 - [一见倾心](http://www.blog.minike.top/Article/details/42368181.shtml)

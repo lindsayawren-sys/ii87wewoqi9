@@ -1,56 +1,59 @@
-# 把产业优势变为就业机遇（民生一线）
+# “我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-多地做优做强特色产业劳务品牌 把产业优势变为就业机遇(民生一线) 人民日报 邱超奕 付同闯建设现代化产业体系离不开一支高素质劳动者队伍。 在广西，“嗍粉”带火了“八桂米粉师傅”；在河北，童车产业背后是技术精良的“平乡童车人”；在山东，“冠县仙芝灵匠”助力村民脱贫致富……经过多年培育，一批具有产业特色和技能特点的劳务品牌发展成为助发展、惠民生的重要载体，就业辐射带动能力不断增强。
+新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。#OPPO 文案价值观#也登上了微博热搜。 据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。”文案本意是为表达“是温柔妈妈，也是
 
 ## 正文
 
-多地做优做强特色产业劳务品牌 把产业优势变为就业机遇(民生一线) 人民日报 邱超奕 付同闯建设现代化产业体系离不开一支高素质劳动者队伍。
+新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。
 
-在广西，“嗍粉”带火了“八桂米粉师傅”；在河北，童车产业背后是技术精良的“平乡童车人”；在山东，“冠县仙芝灵匠”助力村民脱贫致富……经过多年培育，一批具有产业特色和技能特点的劳务品牌发展成为助发展、惠民生的重要载体，就业辐射带动能力不断增强。
+#OPPO 文案价值观#也登上了微博热搜。
 
-劳务品牌如何在优势产业中拓展就业机会？
+据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。
 
-怎样因地制宜培养专业人才？
+跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。
 
-如何促进产业升级和就业改善的良性循环？
+”文案本意是为表达“是温柔妈妈，也是追星女孩”的主题，但相关措辞引发网友吐槽，认为容易引发歧义，涉嫌违背公序良俗。
 
-记者进行了采访。
+引发争议后，目前该文案对外已不可见。
 
-扎根特色产业，带动就业创业 劳务品牌背靠产业，产业发展带动就业。
+今日下午，OPPO官微再次发布了一则新的母亲节文案，但在网友们的吐槽声中，该文案开启了评论精选。
 
-河北邢台市平乡县，是全国最大的自行车零配件和童车生产基地，自行车童车产量占国内市场的50%、国际市场的40%，产品畅销上百个国家和地区。
+针对此事，截至发稿前，OPPO官方暂无回应。
 
 ## 相关推荐
 
-- 2026-06-30 02:16 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 02:07 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 02:14 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 02:32 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 02:15 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 02:29 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
-- 2026-06-30 02:34 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-30 02:29 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 02:23 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
-- 2026-06-30 02:30 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 02:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 02:38 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 02:32 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 02:37 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 02:15 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 02:35 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-30 02:33 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 02:37 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 02:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 02:28 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-30 02:28 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 02:26 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 02:32 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/648610848847.shtml)
-- 2026-06-30 02:17 - [詹姆斯下赛季去哪](https://www.blog.minike.top/Article/details/81254171513.shtml)
-- 2026-06-30 02:08 - [斛珠夫人](https://www.share.minike.top/Article/details/44021952121.shtml)
-- 2026-06-30 02:23 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/76141.shtml)
-- 2026-06-30 02:24 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/56994177.shtml)
-- 2026-06-30 02:30 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/73855.shtml)
-- 2026-06-30 02:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/25897.shtml)
-- 2026-06-30 02:16 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/497602418.shtml)
-- 2026-06-30 02:07 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/2958142214.shtml)
-- 2026-06-30 02:18 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/5360089.shtml)
-- 2026-06-30 02:20 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/306276.shtml)
-- 2026-06-30 02:15 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/541665.shtml)
-- 2026-06-30 02:17 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/976628.shtml)
-- 2026-06-30 02:20 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/1466435469.shtml)
-- 2026-06-30 02:33 - [速度与激情9](https://www.blog.minike.top/Article/details/99407301590.shtml)
+- 2026-06-30 02:14 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/19246874.shtml)
+- 2026-06-30 02:19 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/086968.shtml)
+- 2026-06-30 02:31 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/858479014.shtml)
+- 2026-06-30 02:24 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/862051515614.shtml)
+- 2026-06-30 02:12 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/05971807.shtml)
+- 2026-06-30 02:40 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/21844311.shtml)
+- 2026-06-30 02:40 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/092103252192.shtml)
+- 2026-06-30 02:12 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/092727.shtml)
+- 2026-06-30 02:35 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/730460206.shtml)
+- 2026-06-30 02:27 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/245698561585.shtml)
+- 2026-06-30 02:40 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/9822469.shtml)
+- 2026-06-30 02:40 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/049308721911.shtml)
+- 2026-06-30 02:33 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/150573741.shtml)
+- 2026-06-30 02:22 - [世界杯](http://www.blog.minike.top/Article/details/52374736.shtml)
+- 2026-06-30 02:26 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/82146016.shtml)

@@ -1,47 +1,60 @@
-# 2025年我国留学回国人数达53.56万
+# 龙头地产逆市拉升！全市场唯一地产ETF（159707）涨超2%冲击六连阳！机构：板块估值筑底配置价值凸显
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-新华社北京4月10日电(记者王鹏、王明玉)记者10日从教育部留学服务中心获悉，2025年，中国出国留学人数超57万，留学回国人数达53.56万。
+5月8日，截至9时37分，龙头地产逆市飙升，代表A股龙头地产行情的中证800地产指数上涨2.23%，成份股方面，衢州发展领涨4.9%，滨江集团上涨3.4%，招商蛇口上涨2.59%。 热门ETF方面，全市场唯一跟踪中证800地产指数的华宝基金地产ETF（159707）盘中涨超2%日线冲击六连阳，资金实时净申购550万份！ 消息面上，4月28日高层会议定调“努力稳定房地产市场”后，
 
 ## 正文
 
-新华社北京4月10日电(记者王鹏、王明玉)记者10日从教育部留学服务中心获悉，2025年，中国出国留学人数超57万，留学回国人数达53.56万。
+5月8日，截至9时37分，龙头地产逆市飙升，代表A股龙头地产行情的中证800地产指数上涨2.23%，成份股方面，衢州发展领涨4.9%，滨江集团上涨3.4%，招商蛇口上涨2.59%。
+
+热门ETF方面，全市场唯一跟踪中证800地产指数的华宝基金地产ETF（159707）盘中涨超2%日线冲击六连阳，资金实时净申购550万份！
+
+消息面上，4月28日高层会议定调“努力稳定房地产市场”后，一线及强二线城市进入新政集中落地窗口期。
+
+深圳、广州、武汉、苏州、济南等核心城市相继出台楼市优化政策，从公积金放宽、以旧换新、限购优化等多维度打出组合拳。
+
+华泰证券表示，本轮政策给予刚需更实际的支持，坚持因城施策精准发力。
+
+我们认为地方新政潮有望持续夯实房价二阶导改善趋势，板块估值筑底配置价值凸显，建议在这一阶段逐步布局地产股。
+
+布局央国企及优质房企，建议重点关注地产ETF（159707）。
+
+资料显示，地产ETF（159707）跟踪中证800地产指数，汇集市场头部优质房企，在投资方向上具有明显的头部集中度优势，前十大成份股权重超9成，央国企含量高！
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 02:34 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 02:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 02:34 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 02:15 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 02:07 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 02:13 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 02:33 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 02:31 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 02:15 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-30 02:12 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 02:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 02:27 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 02:20 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 02:11 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 02:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 02:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-30 02:26 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 02:23 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 02:40 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 02:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 02:20 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 02:13 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 02:36 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 02:26 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 02:38 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 02:38 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 02:20 - [AI接过张雪峰志愿填报衣钵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 02:38 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/85177575.shtml)
-- 2026-06-30 02:25 - [日本领先巴西](https://www.share.minike.top/Article/details/18309474.shtml)
-- 2026-06-30 02:22 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/66184.shtml)
-- 2026-06-30 02:19 - [毒液2](https://www.blog.minike.top/Article/details/924343152.shtml)
-- 2026-06-30 02:26 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/259171185.shtml)
-- 2026-06-30 02:10 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/8478940107.shtml)
-- 2026-06-30 02:34 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/3243819.shtml)
-- 2026-06-30 02:31 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/35465553.shtml)
-- 2026-06-30 02:14 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/217417.shtml)
-- 2026-06-30 02:19 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/913743948200.shtml)
-- 2026-06-30 02:17 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/367645031.shtml)
-- 2026-06-30 02:15 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/562491.shtml)
-- 2026-06-30 02:18 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/99531.shtml)
-- 2026-06-30 02:35 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/26170062390.shtml)
-- 2026-06-30 02:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/073135819202.shtml)
+- 2026-06-30 02:26 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/5669412.shtml)
+- 2026-06-30 02:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/9967101.shtml)
+- 2026-06-30 02:29 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/41307358.shtml)
+- 2026-06-30 02:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/12376222354.shtml)
+- 2026-06-30 02:18 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/923869358.shtml)
+- 2026-06-30 02:14 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/6140268770.shtml)
+- 2026-06-30 02:29 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/9639618.shtml)
+- 2026-06-30 02:34 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/989464522791.shtml)
+- 2026-06-30 02:32 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/960032.shtml)
+- 2026-06-30 02:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/854502.shtml)
+- 2026-06-30 02:30 - [起风了](http://www.share.minike.top/Article/details/330322.shtml)
+- 2026-06-30 02:15 - [勇敢的心第二部](https://www.share.minike.top/Article/details/38699372.shtml)
+- 2026-06-30 02:15 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/49982806867.shtml)
+- 2026-06-30 02:26 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/96049.shtml)
+- 2026-06-30 02:33 - [庆祝中国共产党成立105周年音乐会](https://www.share.minike.top/Article/details/257734622024.shtml)

@@ -1,59 +1,59 @@
-# 开局起步“十五五”：海南重点面向“三外”深化制度集成创新
+# 日本3月份实际工资连续三个月增长，支持下月加息预期
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网海口4月10日电 (记者 王子谦)中共海南省委副秘书长、省委深改办(自贸港工委办)常务副主任关继荣10日在海口表示，“十五五”期间，海南将持续深化制度集成创新，特别是在做好外资、外贸、外国人“三外”工作方面，将以系统集成的改革创新，成为外来投资兴业的优选地、宜居地。制度集成创新，被摆在海南自贸港建设的突出位置。在当天举行的“开局起步‘十五五’——高标准建设海南自由贸易港”
+专题：内外利好共振 A股5月有望再攀新高 日本政府周五公布的数据显示，日本3月份实际工资同比增长1%，连续第三个月增长，这进一步支持了日本央行在6月份的下次政策会议上加息的预期。 该数据反映了日本工资增长稳健，3月份的春季工资谈判连续第三年实现超过5%的涨幅。 日本央行将于6月15日至16日进行下一次利率评估，并将工资和物价的持续上涨视为再次加息的先决条件。路透社调查的经济学家
 
 ## 正文
 
-中新网海口4月10日电 (记者 王子谦)中共海南省委副秘书长、省委深改办(自贸港工委办)常务副主任关继荣10日在海口表示，“十五五”期间，海南将持续深化制度集成创新，特别是在做好外资、外贸、外国人“三外”工作方面，将以系统集成的改革创新，成为外来投资兴业的优选地、宜居地。
+专题：内外利好共振 A股5月有望再攀新高 日本政府周五公布的数据显示，日本3月份实际工资同比增长1%，连续第三个月增长，这进一步支持了日本央行在6月份的下次政策会议上加息的预期。
 
-制度集成创新，被摆在海南自贸港建设的突出位置。
+该数据反映了日本工资增长稳健，3月份的春季工资谈判连续第三年实现超过5%的涨幅。
 
-在当天举行的“开局起步‘十五五’——高标准建设海南自由贸易港”专场新闻发布会上，关继荣说， “十五五”时期是全面深化改革开放、高标准建设海南自贸港的关键五年。
+日本央行将于6月15日至16日进行下一次利率评估，并将工资和物价的持续上涨视为再次加息的先决条件。
 
-海南将以制度型开放为牵引，以深层次改革为动力，坚持问题导向，强化部省联动，持续深化制度集成创新。
+路透社调查的经济学家中，近三分之二的人预计日本央行将在6月底前将基准利率上调至1.0%。
 
-他指出，特别是在做好外资、外贸、外国人“三外”工作方面，海南将持续提升贸易投资自由化便利化水平，降低企业跨境投资与经营成本，健全外商投资服务工作机制，完善境外人员生活便利制度。
+3月份经通胀调整后的工资增速（衡量家庭购买力的关键指标）较2月份修正后的2%有所放缓，但仍高于1月份0.7%的涨幅，后者标志着13个月以来的首次实际工资增长。
 
-关继荣表示，近年来，海南坚持把制度集成创新作为推动高质量发展、破解深层次难题、增创开放新优势的“金钥匙”，聚焦关键领域，系统谋划、集成突破、闭环落实，推出一系列具有标志性、引领性的改革创新成果。
+3月份平均名义工资（即现金收入总额）上涨2.7%至317，254日元（约合2029.52美元），低于2月份修正后的3.4%。
 
-截至目前，海南自贸港已培育形成22批181项制度集成创新案例，其中85项获国家层面认可，41项向全国推广。
+名义工资增长速度超过了消费者通胀率（3月份为1.6%），后者已连续第三个月低于日本央行2%的目标。
 
-这181项案例中，很多改革创新成果已经化入寻常百姓生活、深入市场主体运用。
+由于政府补贴抵消了日元疲软导致的进口成本上升以及伊朗冲突引发的油价飙升，日本的消费者通胀一直在放缓。
 
 ## 相关推荐
 
-- 2026-06-30 02:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 02:31 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 02:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 02:20 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-30 02:32 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-30 02:28 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 02:35 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 02:31 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 02:12 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 02:06 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 02:27 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 02:30 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 02:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-30 02:25 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 02:21 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 02:33 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-30 02:39 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 02:28 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 02:33 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 02:34 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 02:24 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 02:22 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 02:30 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-30 02:15 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 02:20 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 02:19 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/9600794304.shtml)
-- 2026-06-30 02:33 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/284659352735.shtml)
-- 2026-06-30 02:33 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/628595265967.shtml)
-- 2026-06-30 02:16 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/157666193926.shtml)
-- 2026-06-30 02:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/269005342541.shtml)
-- 2026-06-30 02:17 - [天道](http://www.blog.kurohicncr.top/Article/details/3246491.shtml)
-- 2026-06-30 02:19 - [田曦薇没招了](https://www.blog.minike.top/Article/details/908178867.shtml)
-- 2026-06-30 02:08 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/9351628877.shtml)
-- 2026-06-30 02:08 - [天道](https://www.share.minike.top/Article/details/59184253970.shtml)
-- 2026-06-30 02:32 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/200726930.shtml)
-- 2026-06-30 02:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/559001803559.shtml)
-- 2026-06-30 02:29 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/66915785610.shtml)
-- 2026-06-30 02:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/78818.shtml)
-- 2026-06-30 02:20 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/28430.shtml)
-- 2026-06-30 02:09 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/4897765.shtml)
+- 2026-06-30 02:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/78458096642.shtml)
+- 2026-06-30 02:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/18208460372.shtml)
+- 2026-06-30 02:39 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/84925.shtml)
+- 2026-06-30 02:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/35155262935.shtml)
+- 2026-06-30 02:28 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/285169536.shtml)
+- 2026-06-30 02:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/60631047.shtml)
+- 2026-06-30 02:23 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/5774149.shtml)
+- 2026-06-30 02:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/34750434.shtml)
+- 2026-06-30 02:32 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/185864710.shtml)
+- 2026-06-30 02:23 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/1901929.shtml)
+- 2026-06-30 02:21 - [我和我的家乡](https://www.share.minike.top/Article/details/961208610315.shtml)
+- 2026-06-30 02:26 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/582696660662.shtml)
+- 2026-06-30 02:28 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/15533235.shtml)
+- 2026-06-30 02:16 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/89196517.shtml)
+- 2026-06-30 02:19 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/23265722702.shtml)

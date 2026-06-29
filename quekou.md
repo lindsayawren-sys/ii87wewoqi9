@@ -1,61 +1,55 @@
-# （粤港澳大湾区）穗港企业共建大湾区航运联合交易中心香港平台
+# 特朗普称伊朗想达成协议
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新社广州4月10日电 (记者 王坚)广州航运联合交易中心(简称“航交中心”)10日在广州南沙牵手香港华光海运、海瀚资本，三方签署战略合作协议，共同建设大湾区航运联合交易中心香港平台。 作为建设大湾区航运联合交易中心的重要载体，航交中心已发展成为华南地区最大的船舶交易综合服务平台，服务范围涵盖船舶交易、价格评估、经纪服务等全链条业务，年均交易船舶约200艘，交易金额近40亿元(
+美国总统特朗普周三在白宫表示，与伊朗的冲突进展“顺利”，并称之为一场“小冲突”。他说，他认为军人母亲们会想知道这一点。特朗普说，德黑兰的谈判代表“希望达成一项协议”。 他说：“我们将看看他们能否达成一项令我们满意的协议，局势完全在我们的掌控之中。” 特朗普将其比作美国抓获委内瑞拉总统马杜罗的行动，并指出那是一次速战速决的行动。责任编辑：李桐
 
 ## 正文
 
-中新社广州4月10日电 (记者 王坚)广州航运联合交易中心(简称“航交中心”)10日在广州南沙牵手香港华光海运、海瀚资本，三方签署战略合作协议，共同建设大湾区航运联合交易中心香港平台。
+美国总统特朗普周三在白宫表示，与伊朗的冲突进展“顺利”，并称之为一场“小冲突”。
 
-作为建设大湾区航运联合交易中心的重要载体，航交中心已发展成为华南地区最大的船舶交易综合服务平台，服务范围涵盖船舶交易、价格评估、经纪服务等全链条业务，年均交易船舶约200艘，交易金额近40亿元(人民币，下同)。
+他说，他认为军人母亲们会想知道这一点。
 
-华光海运作为香港知名航运企业，行业资源雄厚、全球网络广泛；海瀚资本专注航运金融，拥有专业的跨境资本运作能力。
+特朗普说，德黑兰的谈判代表“希望达成一项协议”。
 
-根据协议，航交中心将通过其香港子公司，与香港华光海运、海瀚资本展开深度合作。
+他说：“我们将看看他们能否达成一项令我们满意的协议，局势完全在我们的掌控之中。
 
-三方将采用广州—香港“一体两翼、双中心协同”模式，充分发挥各自优势，打造大湾区航运资源跨境配置与高端服务一体化标杆平台。
+” 特朗普将其比作美国抓获委内瑞拉总统马杜罗的行动，并指出那是一次速战速决的行动。
 
-此外，航交中心将依托香港国际航运中心的金融、法律优势，聚焦国际船舶经纪、航运金融咨询、海事技术服务、交易资金第三方托管及跨境交接统筹等核心业务。
-
-这将有效助力破解船舶交易中“成交易、交接难”的行业痛点，推动航运服务要素在大湾区高效流通。
-
-(完)
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 02:19 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-30 02:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 02:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 02:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 02:08 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 02:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 02:33 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 02:11 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 02:16 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 02:29 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 02:30 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 02:31 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 02:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 02:29 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-30 02:26 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 02:27 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 02:24 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-30 02:31 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 02:28 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 02:23 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 02:12 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 02:27 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 02:30 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 02:36 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 02:13 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 02:40 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 02:23 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/3640671242.shtml)
-- 2026-06-30 02:11 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/313100.shtml)
-- 2026-06-30 02:31 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/0872022.shtml)
-- 2026-06-30 02:19 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/5408638094.shtml)
-- 2026-06-30 02:27 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/5068016078.shtml)
-- 2026-06-30 02:23 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/906321.shtml)
-- 2026-06-30 02:21 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/857647649543.shtml)
-- 2026-06-30 02:35 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/34814.shtml)
-- 2026-06-30 02:30 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/747488220.shtml)
-- 2026-06-30 02:31 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/8755857370.shtml)
-- 2026-06-30 02:30 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/45362872.shtml)
-- 2026-06-30 02:20 - [扫黑风暴](https://www.blog.minike.top/Article/details/228216320991.shtml)
-- 2026-06-30 02:25 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/018836991418.shtml)
-- 2026-06-30 02:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/746402034.shtml)
-- 2026-06-30 02:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/681939211500.shtml)
+- 2026-06-30 02:23 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/589181586.shtml)
+- 2026-06-30 02:26 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/4747495.shtml)
+- 2026-06-30 02:30 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/3571917.shtml)
+- 2026-06-30 02:37 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/7541271082.shtml)
+- 2026-06-30 02:32 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/15088283554.shtml)
+- 2026-06-30 02:25 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/52349174.shtml)
+- 2026-06-30 02:32 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/956682773580.shtml)
+- 2026-06-30 02:36 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/344795371.shtml)
+- 2026-06-30 02:40 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/28364101.shtml)
+- 2026-06-30 02:13 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/6353489.shtml)
+- 2026-06-30 02:30 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/0465117539.shtml)
+- 2026-06-30 02:18 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/01115.shtml)
+- 2026-06-30 02:14 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/191108767.shtml)
+- 2026-06-30 02:25 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/002300176409.shtml)
+- 2026-06-30 02:40 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/9752847.shtml)

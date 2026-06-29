@@ -1,51 +1,61 @@
-# 山东淄博：千亩连翘迎风绽 十里黄花入画来
+# 美国拟制裁伊拉克官员 指控其协助伊朗售油
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月09日 17:25 来源：中国新闻网 4月9日，山东淄博淄川区西石村，山峦沟壑梁峁间，千亩连翘迎风怒放。从高空俯瞰，金黄花海如绸缎般与群山相映成趣，勾勒出一幅唯美的春日画卷。作者：王泉 崔山 责任编辑：【魏聪聪】
+美国财政部计划于周四对伊拉克石油部副部长实施制裁，指控其参与一项违规计划：将伊朗原油与伊拉克原油掺混，借此规避国际禁运、帮助伊朗出售石油。 美国财政部即将公布，伊拉克石油部副部长阿里・马阿里吉・巴哈德利批准每日将价值数百万美元的伊拉克原油通过卡车运往一名走私者手中，该走私者再将其与伊朗原油混合。财政部称，马阿里吉还协助伪造文件，让混合原油伪装成纯伊拉克原油走私流入市场。 此举标
 
 ## 正文
 
-发布时间：2026年04月09日 17:25 来源：中国新闻网 4月9日，山东淄博淄川区西石村，山峦沟壑梁峁间，千亩连翘迎风怒放。
+美国财政部计划于周四对伊拉克石油部副部长实施制裁，指控其参与一项违规计划：将伊朗原油与伊拉克原油掺混，借此规避国际禁运、帮助伊朗出售石油。
 
-从高空俯瞰，金黄花海如绸缎般与群山相映成趣，勾勒出一幅唯美的春日画卷。
+美国财政部即将公布，伊拉克石油部副部长阿里・马阿里吉・巴哈德利批准每日将价值数百万美元的伊拉克原油通过卡车运往一名走私者手中，该走私者再将其与伊朗原油混合。
 
-作者：王泉 崔山 责任编辑：【魏聪聪】
+财政部称，马阿里吉还协助伪造文件，让混合原油伪装成纯伊拉克原油走私流入市场。
+
+此举标志着美国政府正加大对巴格达施压，要求其切断与德黑兰的经济联系。
+
+长期以来，伊朗一直借助伊拉克邻国身份规避国际制裁、获取硬通货。
+
+美国财政部在职制裁他国高级官员本就罕见，尤其对象还是与美国有着长期关系的伊拉克，更属非同寻常。
+
+伊拉克目前正处于政府换届过渡期，候任总理阿里・扎伊迪正在组建新内阁，并争取伊拉克议会支持；议会必须对其提名进行投票通过后，他才能正式就职。
+
+近几周，美国已在波斯湾附近实施海上封锁，拦截运载伊朗石油的油轮，并严厉打击该地区被指为伊朗规避制裁所用的航运公司及壳公司。
 
 ## 相关推荐
 
-- 2026-06-30 02:06 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 02:08 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 02:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 02:20 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 02:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 02:09 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 02:18 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 02:29 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 02:16 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 02:22 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 02:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 02:18 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 02:12 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 02:33 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 02:08 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-30 02:22 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 02:37 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 02:21 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 02:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 02:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 02:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 02:23 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 02:29 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 02:41 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
+- 2026-06-30 02:19 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 02:27 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 02:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 02:35 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 02:32 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 02:28 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:23 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/9224114.shtml)
-- 2026-06-30 02:14 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/439706.shtml)
-- 2026-06-30 02:35 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/0864431282.shtml)
-- 2026-06-30 02:32 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/26961354813.shtml)
-- 2026-06-30 02:13 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/136250532368.shtml)
-- 2026-06-30 02:28 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/7752945.shtml)
-- 2026-06-30 02:06 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/6971892907.shtml)
-- 2026-06-30 02:19 - [点菜也要教吗](http://www.blog.minike.top/Article/details/28734080570.shtml)
-- 2026-06-30 02:17 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/08104678055.shtml)
-- 2026-06-30 02:09 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/3697540966.shtml)
-- 2026-06-30 02:35 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/2398988641.shtml)
-- 2026-06-30 02:24 - [美股](https://www.blog.minike.top/Article/details/928129142457.shtml)
-- 2026-06-30 02:34 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/54659785262.shtml)
-- 2026-06-30 02:12 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/47139446.shtml)
-- 2026-06-30 02:18 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/9248127628.shtml)
+- 2026-06-30 02:37 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/801419804161.shtml)
+- 2026-06-30 02:31 - [绘画区你赢了](https://www.share.minike.top/Article/details/119377208825.shtml)
+- 2026-06-30 02:12 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/6901184685.shtml)
+- 2026-06-30 02:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/66904.shtml)
+- 2026-06-30 02:39 - [女心理师](https://www.share.minike.top/Article/details/27496154133.shtml)
+- 2026-06-30 02:31 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/08819.shtml)
+- 2026-06-30 02:22 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/230177.shtml)
+- 2026-06-30 02:24 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/00106532739.shtml)
+- 2026-06-30 02:26 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.kurohicncr.top/Article/details/280629134900.shtml)
+- 2026-06-30 02:13 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/1244191.shtml)
+- 2026-06-30 02:38 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/350375.shtml)
+- 2026-06-30 02:15 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/0639909.shtml)
+- 2026-06-30 02:12 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/0543986.shtml)
+- 2026-06-30 02:18 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/756661.shtml)
+- 2026-06-30 02:41 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/652419627820.shtml)

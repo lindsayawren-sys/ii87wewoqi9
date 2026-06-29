@@ -1,58 +1,56 @@
-# 盘前：纳指期货涨0.1% 3月CPI公布在即
+# AI热潮驱动数据中心需求激增，Arm营收展望小幅超预期
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-周五全球股市延续反弹势头，欧洲股市早盘上涨，亚洲股市则录得逾三年来最佳单周表现。投资者正密切关注美伊会谈，以判断当前脆弱的停火局面能否维持。与此同时，国际油价则有望录得近九个月来最大单周跌幅。 截至发稿，道指期货跌0.1%，标普500期指涨0.04%，纳指期货涨0.1%。 欧洲方面，斯托克600指数上涨0.6%，有望连续第三周收高。其中，医疗保健和科技板块领涨，分别上涨1%和0
+芯片设计公司Arm Holdings Plc发布财报，得益于科技公司大举投资人工智能计算带动的数据中心技术需求激增，其截至2026年6月的第一财季营收展望小幅超过市场预期。 Arm预计第一财季营收约为12.6亿美元，略高于分析师平均预期的12.5亿美元。第四财季财报同样亮眼，公司当季营收达14.9亿美元，超出市场预期的14.71亿美元。 Arm主要收入来源为向英伟达、苹果等公司
 
 ## 正文
 
-周五全球股市延续反弹势头，欧洲股市早盘上涨，亚洲股市则录得逾三年来最佳单周表现。
+芯片设计公司Arm Holdings Plc发布财报，得益于科技公司大举投资人工智能计算带动的数据中心技术需求激增，其截至2026年6月的第一财季营收展望小幅超过市场预期。
 
-投资者正密切关注美伊会谈，以判断当前脆弱的停火局面能否维持。
+Arm预计第一财季营收约为12.6亿美元，略高于分析师平均预期的12.5亿美元。
 
-与此同时，国际油价则有望录得近九个月来最大单周跌幅。
+第四财季财报同样亮眼，公司当季营收达14.9亿美元，超出市场预期的14.71亿美元。
 
-截至发稿，道指期货跌0.1%，标普500期指涨0.04%，纳指期货涨0.1%。
+Arm主要收入来源为向英伟达、苹果等公司授权芯片技术，并对基于其设计生产的每颗芯片收取版税。
 
-欧洲方面，斯托克600指数上涨0.6%，有望连续第三周收高。
+随着人工智能模型规模不断扩大，数据中心运营商对控制能耗的需求日益迫切，而Arm的芯片架构以低功耗著称，正成为这一领域的理想选择。
 
-其中，医疗保健和科技板块领涨，分别上涨1%和0.8%。
+Arm首席执行官Rene Haas表示：“我们对数据中心的需求非常看好，”并补充称，本季度“与数据中心相关的专利使用费出现了相当可观的增长”。
 
-此前乌克兰首席对俄谈判代表对和平谈判前景表示乐观。
+今年早些时候，Arm发布了面向AI工作负载的AGI CPU数据中心芯片，目前已锁定2027和2028财年价值20亿美元的客户需求。
 
-在连续七个交易日上涨后，美股走势出现震荡，股指期货基本持平，标普500指数现货本周则有望创下近一年来最大周涨幅。
+受此消息提振，Arm股价在周三美股盘后交易中上涨逾4%。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 02:24 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 02:25 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 02:26 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 02:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 02:28 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 02:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 02:06 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 02:12 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 02:18 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:20 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 02:26 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-30 02:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 02:32 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 02:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 02:25 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 02:16 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 02:33 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 02:27 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 02:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 02:32 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 02:31 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:34 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/20467837.shtml)
-- 2026-06-30 02:26 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/3437856.shtml)
-- 2026-06-30 02:17 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/3760807.shtml)
-- 2026-06-30 02:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/1404057.shtml)
-- 2026-06-30 02:17 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/919963.shtml)
-- 2026-06-30 02:29 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/01450.shtml)
-- 2026-06-30 02:13 - [《贺子珍》](http://www.blog.minike.top/Article/details/27953116842.shtml)
-- 2026-06-30 02:35 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/2013476595.shtml)
-- 2026-06-30 02:21 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/2834285.shtml)
-- 2026-06-30 02:27 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/230074.shtml)
-- 2026-06-30 02:21 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/127779.shtml)
-- 2026-06-30 02:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/885998555.shtml)
-- 2026-06-30 02:14 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/159672.shtml)
-- 2026-06-30 02:09 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/438433449628.shtml)
-- 2026-06-30 02:20 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/9893511.shtml)
+- 2026-06-30 02:14 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/177121658150.shtml)
+- 2026-06-30 02:29 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/99954599.shtml)
+- 2026-06-30 02:22 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/2830740274.shtml)
+- 2026-06-30 02:24 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/5359490405.shtml)
+- 2026-06-30 02:13 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/945393492586.shtml)
+- 2026-06-30 02:14 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/426808553922.shtml)
+- 2026-06-30 02:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/282495384.shtml)
+- 2026-06-30 02:15 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/76151976787.shtml)
+- 2026-06-30 02:31 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/9893302063.shtml)
+- 2026-06-30 02:16 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/498955656571.shtml)
+- 2026-06-30 02:40 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/08266860.shtml)
+- 2026-06-30 02:27 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/332299220603.shtml)
+- 2026-06-30 02:41 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/430656422594.shtml)
+- 2026-06-30 02:21 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/967659712486.shtml)
+- 2026-06-30 02:39 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/7097260.shtml)

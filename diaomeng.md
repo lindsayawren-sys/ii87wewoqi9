@@ -1,46 +1,59 @@
-# 专家：脑机接口从“科幻”走向“实用”
+# 晚上睡前刷牙、刷牙后漱口竟都是错的 很多人都在“无效刷牙”
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月10日 21:44 来源：中国新闻网 近日，“脑机时代，乒动未来”第十五届清华脑起搏器论坛在北京举行。论坛现场，神经调控国家工程研究中心副主任、北京天坛医院功能神经外科主任医师张建国深度解码脑机接口与闭环神经调控的前沿突破，他表示，脑机接口正从“科幻”走向“实用”。(李佳悦 唐梅芳） 责任编辑：【于晓】
+“每天刷牙，为什么牙齿还是坏了？”很多人总觉得只要每天刷牙就万事大吉。但你有没有想过，那些坚持了几十年的刷牙“老习惯”，可能从一开始就错了。 误区一：刷完牙马上漱口 相信大部分人刷完牙的第一件事，就是拿起杯子含口清水漱几下口吐掉。但真相是：这个再正常不过的动作恰恰让牙膏中最宝贵的护牙成分——氟，还没来得及发挥作用就被无情地冲掉了。 真正科学的做法是什么？2023年，中华口腔医学
 
 ## 正文
 
-发布时间：2026年04月10日 21:44 来源：中国新闻网 近日，“脑机时代，乒动未来”第十五届清华脑起搏器论坛在北京举行。
+“每天刷牙，为什么牙齿还是坏了？
 
-论坛现场，神经调控国家工程研究中心副主任、北京天坛医院功能神经外科主任医师张建国深度解码脑机接口与闭环神经调控的前沿突破，他表示，脑机接口正从“科幻”走向“实用”。
+”很多人总觉得只要每天刷牙就万事大吉。
 
-(李佳悦 唐梅芳） 责任编辑：【于晓】
+但你有没有想过，那些坚持了几十年的刷牙“老习惯”，可能从一开始就错了。
+
+误区一：刷完牙马上漱口 相信大部分人刷完牙的第一件事，就是拿起杯子含口清水漱几下口吐掉。
+
+但真相是：这个再正常不过的动作恰恰让牙膏中最宝贵的护牙成分——氟，还没来得及发挥作用就被无情地冲掉了。
+
+真正科学的做法是什么？
+
+2023年，中华口腔医学会明确指出：刷牙后，吐掉泡沫不要漱口。
+
+这是因为牙膏里的氟化物能帮助我们坚固牙釉质，有效抵御细菌和酸的侵蚀，甚至能修复早期微小的蛀牙。
 
 ## 相关推荐
 
-- 2026-06-30 02:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 02:31 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 02:33 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 02:16 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 02:25 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 02:32 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 02:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 02:27 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 02:16 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-30 02:11 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 02:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-30 02:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 02:31 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 02:18 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 02:25 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 02:21 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 02:16 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 02:39 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 02:24 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 02:26 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-30 02:31 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 02:14 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 02:23 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/1805343394.shtml)
-- 2026-06-30 02:33 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/901134.shtml)
-- 2026-06-30 02:16 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/1772118.shtml)
-- 2026-06-30 02:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/3703975264.shtml)
-- 2026-06-30 02:10 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/743537962.shtml)
-- 2026-06-30 02:16 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/250554848417.shtml)
-- 2026-06-30 02:35 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/348201779.shtml)
-- 2026-06-30 02:11 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/7176980520.shtml)
-- 2026-06-30 02:20 - [扫黑风暴](http://www.share.minike.top/Article/details/92419.shtml)
-- 2026-06-30 02:28 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/6908360.shtml)
-- 2026-06-30 02:22 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/59477784.shtml)
-- 2026-06-30 02:31 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/1491697699.shtml)
-- 2026-06-30 02:33 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/794027085754.shtml)
-- 2026-06-30 02:22 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/831490592477.shtml)
-- 2026-06-30 02:09 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/808937320993.shtml)
+- 2026-06-30 02:31 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/86926115.shtml)
+- 2026-06-30 02:34 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/47298.shtml)
+- 2026-06-30 02:12 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/19637151.shtml)
+- 2026-06-30 02:36 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/688729.shtml)
+- 2026-06-30 02:25 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/312897039.shtml)
+- 2026-06-30 02:36 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/2288943040.shtml)
+- 2026-06-30 02:35 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/2269539989.shtml)
+- 2026-06-30 02:25 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/27317117388.shtml)
+- 2026-06-30 02:19 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/75300510012.shtml)
+- 2026-06-30 02:36 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/55121.shtml)
+- 2026-06-30 02:33 - [一见倾心](https://www.share.minike.top/Article/details/43997891896.shtml)
+- 2026-06-30 02:24 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/474236580.shtml)
+- 2026-06-30 02:37 - [勇敢的心第二部](http://www.share.minike.top/Article/details/69586798.shtml)
+- 2026-06-30 02:27 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/662953695.shtml)
+- 2026-06-30 02:18 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/02381019707.shtml)

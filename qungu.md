@@ -1,59 +1,58 @@
-# 一文读懂科创创业人工智能ETF景顺（159142）把握弹性更强的AI产业链机会！
+# 罗氏至多斥资10.5亿美元收购 PathAI，强化AI诊断业务
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-近期，中东局势缓和带动权益市场风险偏好回暖，叠加DeepSeek等国产大模型持续迭代，AI产业链再度成为市场关注焦点。 如果希望借助一只产品把握国内AI核心资产中弹性更强的成长机会，科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）值得关注。 Q1：科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）
+这家制药巨头同意先行支付 7.5 亿美元，另最高 3 亿美元后续款项与业绩目标挂钩 瑞士制药集团罗氏控股宣布，已达成协议，最高以 10.5 亿美元收购 PathAI，旨在补强旗下诊断板块的人工智能产品布局。 这家药企巨头周四表示，收购美国企业 PathAI，是双方自 2021 年建立合作关系后的进一步深化；同时将这套AI 平台纳入自研体系，助力优化诊断工作流程、加快临床疗法研发
 
 ## 正文
 
-近期，中东局势缓和带动权益市场风险偏好回暖，叠加DeepSeek等国产大模型持续迭代，AI产业链再度成为市场关注焦点。
+这家制药巨头同意先行支付 7.5 亿美元，另最高 3 亿美元后续款项与业绩目标挂钩 瑞士制药集团罗氏控股宣布，已达成协议，最高以 10.5 亿美元收购 PathAI，旨在补强旗下诊断板块的人工智能产品布局。
 
-如果希望借助一只产品把握国内AI核心资产中弹性更强的成长机会，科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）值得关注。
+这家药企巨头周四表示，收购美国企业 PathAI，是双方自 2021 年建立合作关系后的进一步深化；同时将这套AI 平台纳入自研体系，助力优化诊断工作流程、加快临床疗法研发进程。
 
-Q1：科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）的基本信息是什么？
+交易条款显示：罗氏将先期支付 7.5 亿美元，另有最高 3 亿美元额外对价，视后续业绩目标达成情况支付。
 
-景顺长城中证科创创业人工智能交易型开放式指数证券投资基金（159142）是一只紧密跟踪中证科创创业人工智能指数（指数代码：932456.CSI）的被动型指数基金（ETF），由景顺长城基金管理有限公司发行与管理，拟任基金经理为张晓南先生。
+交易预计于今年下半年完成交割。
 
-本基金于2025年12月成立，联接基金A类（027047）和C类（027048）已于2026年4月1日开始募集。
+罗氏表示，计划把 PathAI 的技术向全球病理实验室、生物制药行业规模化推广。
 
-项目 内容 基金代码（场内） 159142 场内简称 科创创业人工智能ETF景顺 联接基金代码（A/C类） 027047 / 027048（正在募集） 基金类型 指数型（ETF） 跟踪指数 中证科创创业人工智能指数（932456.CSI） 投资目标 紧密跟踪标的指数，追求跟踪偏离度和跟踪误差最小化 业绩比较基准 中证科创创业人工智能指数收益率×95%+活期存款基准利率×5% 管理费 0.50%/年 托管费 0.10%/年 基金风险等级 中高风险（R4），适合积极型、激进型投资者 Q2：科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）跟踪的中证科创创业人工智能指数，有什么特点？
+公司将整合双方技术与产品，提升实验室运营效率，并助力挖掘潜在药物靶点、研发全新诊断工具。
 
-中证科创创业人工智能指数（932456.CSI，以下简称科创创业AI）从科创板和创业板中选取50只业务涉及人工智能基础资源、人工智能技术以及人工智能应用领域的上市公司证券作为指数样本，以反映上述板块中人工智能主题上市公司证券的整体表现。
-
-从编制方法看，该指数兼顾基础资源层、技术算法层和终端应用层，最终按市值排序选取前50只证券作为指数样本，单个样本权重不超过10%，单个板块权重不超过80%。
+责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-30 02:34 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 02:24 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 02:34 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
-- 2026-06-30 02:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 02:13 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-30 02:10 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 02:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 02:34 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 02:30 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 02:29 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 02:08 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 02:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 02:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 02:31 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 02:38 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 02:29 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 02:36 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 02:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 02:13 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 02:25 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 02:40 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 02:33 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 02:19 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 02:34 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 02:22 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 02:38 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/90296.shtml)
-- 2026-06-30 02:18 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/3312680910.shtml)
-- 2026-06-30 02:11 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/4055253.shtml)
-- 2026-06-30 02:35 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/408434097528.shtml)
-- 2026-06-30 02:10 - [流金岁月](http://www.share.minike.top/Article/details/1983828462.shtml)
-- 2026-06-30 02:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/78403703.shtml)
-- 2026-06-30 02:27 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/0130821.shtml)
-- 2026-06-30 02:33 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/897169.shtml)
-- 2026-06-30 02:12 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/937285.shtml)
-- 2026-06-30 02:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/61198091.shtml)
-- 2026-06-30 02:07 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/95463191892.shtml)
-- 2026-06-30 02:22 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/65639680078.shtml)
-- 2026-06-30 02:19 - [时光音乐会](http://www.blog.minike.top/Article/details/5898790.shtml)
-- 2026-06-30 02:13 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/072633005278.shtml)
-- 2026-06-30 02:09 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/45037048.shtml)
+- 2026-06-30 02:35 - [卡塞米罗头球破门](https://www.share.kurohicncr.top/Article/details/20767646994.shtml)
+- 2026-06-30 02:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/465884388490.shtml)
+- 2026-06-30 02:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/9707859.shtml)
+- 2026-06-30 02:36 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/671444.shtml)
+- 2026-06-30 02:17 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/7038727.shtml)
+- 2026-06-30 02:35 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/2163165314.shtml)
+- 2026-06-30 02:13 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/50961.shtml)
+- 2026-06-30 02:25 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/2071280.shtml)
+- 2026-06-30 02:31 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/525291.shtml)
+- 2026-06-30 02:30 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/861875.shtml)
+- 2026-06-30 02:31 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/48412.shtml)
+- 2026-06-30 02:32 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/4777435.shtml)
+- 2026-06-30 02:20 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/0904431.shtml)
+- 2026-06-30 02:20 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/134091673348.shtml)
+- 2026-06-30 02:36 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/29101.shtml)

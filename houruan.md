@@ -1,61 +1,49 @@
-# 华泰期货：美棉维持强势，原糖继续走弱
+# 航空股早盘涨幅居前 东方航空及中国国航均涨超6%
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约15340元/吨，较前一日变动+165元/吨，幅度+1.09%。现货方面，3128B棉新疆到厂价16550元/吨，较前一日变动-55元/吨，现货基差CF09+1210，较前一日变动-220；3128B棉全国均价16712元/吨，较前一日变动-51元/吨，现货基差CF09+1372，较前
+航空股早盘涨幅居前，截至发稿，东方航空（00670）上涨6.36%，报4.35港元；中国国航（00753）上涨6%，报5.30港元；南方航空（01055）上涨5.77%，报4.40港元；国泰航空（00293）上涨3.64%，报12.53港元。责任编辑：卢昱君
 
 ## 正文
 
-来源：华泰期货 作者： 李馨 棉花观点 市场要闻与重要数据 期货方面，昨日收盘棉花2609合约15340元/吨，较前一日变动+165元/吨，幅度+1.09%。
+航空股早盘涨幅居前，截至发稿，东方航空（00670）上涨6.36%，报4.35港元；中国国航（00753）上涨6%，报5.30港元；南方航空（01055）上涨5.77%，报4.40港元；国泰航空（00293）上涨3.64%，报12.53港元。
 
-现货方面，3128B棉新疆到厂价16550元/吨，较前一日变动-55元/吨，现货基差CF09+1210，较前一日变动-220；3128B棉全国均价16712元/吨，较前一日变动-51元/吨，现货基差CF09+1372，较前一日变动-216。
-
-近期市场资讯， 据美国农业部，3.27-4.2日一周美国2025/26年度陆地棉净签约72480吨，较前一周减少14%，较近四周平均增加25%；装运陆地棉77733吨，较前一周减少4%，较近四周平均减少2%。
-
-净签约皮马棉1464吨，较前一周减少58%；装运皮马棉2399吨，较前一周增加40%。
-
-签约下年度陆地棉3187吨，未签约下年度皮马棉。
-
-市场分析 昨日郑棉期价震荡反弹。
-
-国际方面，本年度全球供需格局整体仍偏宽松，不过近期美棉出口表现亮眼，签约和装运加速，对盘面有所提振。
-
-26/27年度全球棉市供需格局预期收紧，面积调减和主产区天气均存在较大不确定性，美棉前景依旧偏多。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 02:17 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 02:16 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 02:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 02:23 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-30 02:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 02:07 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 02:18 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 02:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 02:18 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 02:22 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:31 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 02:33 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 02:31 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-30 02:32 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 02:34 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 02:37 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 02:39 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 02:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 02:30 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 02:24 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 02:24 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 02:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 02:31 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 02:34 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 02:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 02:37 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 02:24 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-30 02:22 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
+- 2026-06-30 02:32 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/75890.shtml)
-- 2026-06-30 02:17 - [内马尔替补](http://www.share.minike.top/Article/details/88046619573.shtml)
-- 2026-06-30 02:29 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/637141760.shtml)
-- 2026-06-30 02:07 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/228920411901.shtml)
-- 2026-06-30 02:21 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/904890.shtml)
-- 2026-06-30 02:17 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/311992397.shtml)
-- 2026-06-30 02:26 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/448241086.shtml)
-- 2026-06-30 02:26 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/797353287.shtml)
-- 2026-06-30 02:27 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/591490357.shtml)
-- 2026-06-30 02:12 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/07232568127.shtml)
-- 2026-06-30 02:07 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/161139.shtml)
-- 2026-06-30 02:23 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/23680766.shtml)
-- 2026-06-30 02:23 - [逃狱兄弟](http://www.blog.minike.top/Article/details/8525055261.shtml)
-- 2026-06-30 02:06 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/37838.shtml)
-- 2026-06-30 02:32 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/6087204836.shtml)
+- 2026-06-30 02:21 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/921931997646.shtml)
+- 2026-06-30 02:24 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/16164160532.shtml)
+- 2026-06-30 02:25 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/81203445.shtml)
+- 2026-06-30 02:26 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/22067.shtml)
+- 2026-06-30 02:41 - [恋与深空 巧合](http://www.share.minike.top/Article/details/16527.shtml)
+- 2026-06-30 02:14 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/034310.shtml)
+- 2026-06-30 02:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/661891986.shtml)
+- 2026-06-30 02:36 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/0059571646.shtml)
+- 2026-06-30 02:41 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/24722021735.shtml)
+- 2026-06-30 02:42 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/10994519.shtml)
+- 2026-06-30 02:24 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/999823.shtml)
+- 2026-06-30 02:33 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/09815850187.shtml)
+- 2026-06-30 02:20 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/2510048626.shtml)
+- 2026-06-30 02:24 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/91017833.shtml)
+- 2026-06-30 02:37 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/7171938.shtml)

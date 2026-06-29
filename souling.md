@@ -1,50 +1,61 @@
-# 重庆市武隆区委原副书记、区长左军被“双开”
+# 八闽大地，台青向下扎根向上生长
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-中新网4月9日电 据重庆市纪委监委消息：经重庆市委批准，重庆市纪委监委对武隆区委原副书记、区长左军严重违纪违法问题进行了立案审查调查。 经查，左军丧失理想信念，背弃初心使命，政治意识淡薄，落实党中央决策部署打折扣，对抗组织审查，搞迷信活动；罔顾中央八项规定精神，违规收受礼品、礼金，接受可能影响公正执行公务的宴请；无视组织原则，在干部选拔任用工作中为他人谋利并收受财物；廉洁底线失
+“五一”假期，记者在采访中，处处可见一群群忙碌的青春身影：他们从海峡对岸跨海而来，有的穿梭在城市街巷间，一遍遍打磨创业项目；有的扎根在乡野阡陌里，执笔美丽乡村；有的驻足在直播间里，投身新兴产业……随着《中共中央 国务院关于支持福建探索海峡两岸融合发展新路 建设两岸融合发展示范区的意见》的不断落实落细，台青来闽发展的制度愈加完善、政策愈加务实、平台愈加专业，在闽台青正成为两岸融合
 
 ## 正文
 
-中新网4月9日电 据重庆市纪委监委消息：经重庆市委批准，重庆市纪委监委对武隆区委原副书记、区长左军严重违纪违法问题进行了立案审查调查。
+“五一”假期，记者在采访中，处处可见一群群忙碌的青春身影：他们从海峡对岸跨海而来，有的穿梭在城市街巷间，一遍遍打磨创业项目；有的扎根在乡野阡陌里，执笔美丽乡村；有的驻足在直播间里，投身新兴产业……随着《中共中央 国务院关于支持福建探索海峡两岸融合发展新路 建设两岸融合发展示范区的意见》的不断落实落细，台青来闽发展的制度愈加完善、政策愈加务实、平台愈加专业，在闽台青正成为两岸融合发展的实践者与推动者。
 
-经查，左军丧失理想信念，背弃初心使命，政治意识淡薄，落实党中央决策部署打折扣，对抗组织审查，搞迷信活动；罔顾中央八项规定精神，违规收受礼品、礼金，接受可能影响公正执行公务的宴请；无视组织原则，在干部选拔任用工作中为他人谋利并收受财物；廉洁底线失守，利用职权为亲属承揽项目谋利；违规干预和插手工程项目承发包；腐化堕落，公器私用，大搞权钱交易，利用职务上的便利以及职权或者地位形成的便利条件为他人在项目承揽、企业经营、职务调整等方面谋利，并非法收受巨额财物。
+以赛促创 明晰发展赛道 今年的“五一”假期，“95后”台青邱诗舒与先生吴圣辉忙着筹备台湾桃园新门店的开业事宜，再过不久他们就要实现“两岸理想家”的梦想，将福州的定制化家居事业拓展到台湾岛内。
 
-左军严重违反党的政治纪律、组织纪律、廉洁纪律、工作纪律和生活纪律，构成严重职务违法并涉嫌受贿犯罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
+邱诗舒是一名“台二代”，因父亲常年在福州经商，自幼便与福州结缘，对这座城市充满感情。
 
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经重庆市纪委常委会会议研究并报重庆市委批准，决定给予左军开除党籍处分；由重庆市监委给予其开除公职处分；终止其重庆市第六次党代会代表、武隆区第十五次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+土生土长的福州青年吴圣辉，大学期间曾赴台湾清华大学交换求学，对台湾的风土人情心生亲近。
+
+相似的两岸情缘、相通的情感共鸣，让二人相识相知，走到一起。
+
+2021年，他们选择定居福州，并肩开启家居设计的创业之路。
+
+起初，主修设计专业的吴圣辉负责主业，而毕业于新闻专业的邱诗舒则负责品牌推广。
+
+慢慢地，他们找到了事业的发展方向，2024年在福州注册成立了“大有可为”家居公司，旨在为两岸同胞打造一个个“理想之家”。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 02:17 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 02:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 02:28 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 02:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 02:27 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 02:30 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-30 02:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 02:31 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 02:31 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 02:35 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 02:25 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 02:41 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 02:28 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-30 02:26 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 02:36 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 02:28 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 02:24 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 02:26 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 02:41 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 02:33 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-30 02:18 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-30 02:33 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 02:22 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 02:29 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-30 02:38 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 02:15 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/6866453193.shtml)
-- 2026-06-30 02:27 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/27007.shtml)
-- 2026-06-30 02:35 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/6082719.shtml)
-- 2026-06-30 02:07 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/7726109433.shtml)
-- 2026-06-30 02:13 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/8897283.shtml)
-- 2026-06-30 02:30 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/446771600182.shtml)
-- 2026-06-30 02:21 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/89200270.shtml)
-- 2026-06-30 02:07 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/269150813.shtml)
-- 2026-06-30 02:30 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/76230551.shtml)
-- 2026-06-30 02:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/884791225.shtml)
-- 2026-06-30 02:16 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/843591.shtml)
-- 2026-06-30 02:20 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/54398756991.shtml)
-- 2026-06-30 02:27 - [逃狱兄弟](http://www.share.minike.top/Article/details/11644999746.shtml)
-- 2026-06-30 02:24 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/3420931346.shtml)
-- 2026-06-30 02:31 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/14495367932.shtml)
+- 2026-06-30 02:41 - [爱很美味](https://www.blog.minike.top/Article/details/44521914888.shtml)
+- 2026-06-30 02:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/7994097777.shtml)
+- 2026-06-30 02:23 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/29799.shtml)
+- 2026-06-30 02:32 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/35275463.shtml)
+- 2026-06-30 02:17 - [绘画区你赢了](https://www.blog.minike.top/Article/details/471618.shtml)
+- 2026-06-30 02:14 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/83061329540.shtml)
+- 2026-06-30 02:18 - [金刚川](http://www.share.kurohicncr.top/Article/details/70756.shtml)
+- 2026-06-30 02:18 - [曾沛慈和老公一起回台湾](http://www.blog.minike.top/Article/details/646784629.shtml)
+- 2026-06-30 02:34 - [一生一世](http://www.blog.kurohicncr.top/Article/details/9111735.shtml)
+- 2026-06-30 02:22 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/08099121530.shtml)
+- 2026-06-30 02:34 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/14018.shtml)
+- 2026-06-30 02:33 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/5472305.shtml)
+- 2026-06-30 02:35 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/698951705.shtml)
+- 2026-06-30 02:22 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/70490.shtml)
+- 2026-06-30 02:23 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/3684977720.shtml)

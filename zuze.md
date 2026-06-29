@@ -1,60 +1,58 @@
-# 巴克莱上调Marvell股票目标价 押注光学网络繁荣
+# 债务危机叠加年报延期 萃华珠宝半年内第二次被证监会立案
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-巴克莱将Marvell Technology的评级从“持股观望”上调至“超配”，并将这家半导体公司的目标价从105美元上调至150美元。 该机构的分析师指出，Marvell光学网络业务的快速增长是这一更为乐观立场的主要驱动力。行业调研显示，光学端口数量可能在2026年翻倍，然后在2027年再次翻倍，这一趋势似乎使Marvell有望实现显著的收入增长，即使面临日益激烈的竞争。 巴
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|文多 每经编辑|杨军 5月6日晚间，ST萃华（维权）（即萃华珠宝，SZ002731，股价4.35元，市值11.14亿元）披露，公司近日收到中国证监会下发的《立案告知书》，因公司未按规定披露定期报告，中国证监会决定对公司立案。 较为罕见的是，这已是萃华珠宝2026年以来第二次收到中国证监会下发的《立案告知书》。上一次是2
 
 ## 正文
 
-巴克莱将Marvell Technology的评级从“持股观望”上调至“超配”，并将这家半导体公司的目标价从105美元上调至150美元。
+登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|文多 每经编辑|杨军 5月6日晚间，ST萃华（维权）（即萃华珠宝，SZ002731，股价4.35元，市值11.14亿元）披露，公司近日收到中国证监会下发的《立案告知书》，因公司未按规定披露定期报告，中国证监会决定对公司立案。
 
-该机构的分析师指出，Marvell光学网络业务的快速增长是这一更为乐观立场的主要驱动力。
+较为罕见的是，这已是萃华珠宝2026年以来第二次收到中国证监会下发的《立案告知书》。
 
-行业调研显示，光学端口数量可能在2026年翻倍，然后在2027年再次翻倍，这一趋势似乎使Marvell有望实现显著的收入增长，即使面临日益激烈的竞争。
+上一次是2026年2月9日，ST萃华因涉嫌信息披露违法违规而被立案调查。
 
-巴克莱表示，Marvell的光学业务板块今年和明年的收入可能分别增长约90%。
+据《每日经济新闻》记者观察，除了未能按时披露年报引发退市风险，目前萃华珠宝还面临债务危机。
 
-该报告概述了一种情景：即使在考虑到主要云客户支出和市场份额变化的保守假设下，Marvell的盈利潜力仍具有韧性，约为每股5美元。
+萃华珠宝的年报披露过程可谓一波三折。
 
-分析师指出，随着近期生态系统的发展，他们对微软的业务增长越来越有信心。
+2026年1月31日，上市公司发布业绩预告，预计2025年度归母净利润虽然同比下降85.69%~90.31%，但金额也有2100万元~3100万元，扣非后净利润则同比大增154.81%~280.64%。
 
-由于该公司的近期前景与数据中心互连需求密切相关，巴克莱预计对Marvell的投资叙事将更直接地转向光学业务的执行层面，而不再那么关注更广泛的周期性担忧。
+然而，这份业绩预告背后也有着不确定性，比如商誉减少具体金额需以评估机构确认的数据为准。
 
-责任编辑：张俊 SF065
+危机在2月初集中爆发。
 
 ## 相关推荐
 
-- 2026-06-30 02:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 02:07 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 02:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 02:14 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 02:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 02:27 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 02:18 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-30 02:06 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 02:18 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-30 02:14 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 02:19 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 02:24 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 02:17 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 02:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-30 02:40 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 02:36 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 02:28 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 02:27 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 02:26 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 02:33 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-30 02:13 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 02:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 02:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 02:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:12 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-30 02:25 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:22 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/79963224254.shtml)
-- 2026-06-30 02:22 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/036791270.shtml)
-- 2026-06-30 02:34 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/5348166.shtml)
-- 2026-06-30 02:25 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/4402666023.shtml)
-- 2026-06-30 02:28 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/626367936610.shtml)
-- 2026-06-30 02:07 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/318747998.shtml)
-- 2026-06-30 02:19 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/006317.shtml)
-- 2026-06-30 02:22 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/5263056351.shtml)
-- 2026-06-30 02:17 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/1734959680.shtml)
-- 2026-06-30 02:30 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/66132.shtml)
-- 2026-06-30 02:11 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/613369.shtml)
-- 2026-06-30 02:22 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/143934367.shtml)
-- 2026-06-30 02:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/405603849041.shtml)
-- 2026-06-30 02:27 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/4772305.shtml)
-- 2026-06-30 02:35 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/70532.shtml)
+- 2026-06-30 02:15 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/7245053.shtml)
+- 2026-06-30 02:23 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/134364188240.shtml)
+- 2026-06-30 02:25 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/3511026294.shtml)
+- 2026-06-30 02:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/13923185.shtml)
+- 2026-06-30 02:16 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/756599.shtml)
+- 2026-06-30 02:29 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/72965067.shtml)
+- 2026-06-30 02:37 - [天道](http://www.share.kurohicncr.top/Article/details/2868109842.shtml)
+- 2026-06-30 02:28 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/388737148482.shtml)
+- 2026-06-30 02:39 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/721949.shtml)
+- 2026-06-30 02:41 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/44886757.shtml)
+- 2026-06-30 02:33 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/336780754077.shtml)
+- 2026-06-30 02:38 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/026267528983.shtml)
+- 2026-06-30 02:31 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/72994.shtml)
+- 2026-06-30 02:36 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/80198772167.shtml)
+- 2026-06-30 02:33 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/9641518400.shtml)

@@ -1,58 +1,60 @@
-# 持续扩大“丝路电商”朋友圈——踔厉奋发“十五五”系列谈
+# 微众银行收到超10万条投诉与建议，顾敏扛下“微粒贷”获客压力
 
-> 更新时间：2026-06-30 02:36:02 UTC+8
+> 更新时间：2026-06-30 02:42:02 UTC+8
 
 ## 摘要
 
-岳燕云 日前，商务部等6部门印发《关于更好服务实体经济 推进电子商务高质量发展的指导意见》，明确提出扩大“丝路电商”朋友圈，深化政策交流、产业对接、地方合作和能力建设。这一部署，释放出拓展“丝路电商”的积极而明确的政策信号。对新疆而言，关键在于如何把政策机遇转化为发展动能，这也是当前需要聚焦发力的课题。 新疆坐拥“五口通八国、一路连欧亚”的独特区位，发展“丝路电商”优势突出。近
+来源：银瑞社 十年，是一家企业发展的关键节点。 大多数人会聚焦于企业过去十年取得的成绩，但未来十年如何向前，更值得深思。 对于微众银行这家民营银行老大哥而言，2025年，是其正式迈入“第二个十年”的节点，也是全面实施新十年战略的第一年。 作为元老成员，微众银行董事长顾敏在任时间也超过了11年。 迈入新周期，既是对微众银行的考验，亦是对顾敏领导、管理能力的考验。 一些调整与变化已
 
 ## 正文
 
-岳燕云 日前，商务部等6部门印发《关于更好服务实体经济 推进电子商务高质量发展的指导意见》，明确提出扩大“丝路电商”朋友圈，深化政策交流、产业对接、地方合作和能力建设。
+来源：银瑞社 十年，是一家企业发展的关键节点。
 
-这一部署，释放出拓展“丝路电商”的积极而明确的政策信号。
+大多数人会聚焦于企业过去十年取得的成绩，但未来十年如何向前，更值得深思。
 
-对新疆而言，关键在于如何把政策机遇转化为发展动能，这也是当前需要聚焦发力的课题。
+对于微众银行这家民营银行老大哥而言，2025年，是其正式迈入“第二个十年”的节点，也是全面实施新十年战略的第一年。
 
-新疆坐拥“五口通八国、一路连欧亚”的独特区位，发展“丝路电商”优势突出。
+作为元老成员，微众银行董事长顾敏在任时间也超过了11年。
 
-近年来，从乌鲁木齐获批网购保税进口试点、成立跨境电商产业联盟，到“丝路电商”班列稳定开行、新疆迈入“包邮区”，再到阿里巴巴、唯品会、京东等电商巨头布局落子，新疆“丝路电商”发展势头强劲。
+迈入新周期，既是对微众银行的考验，亦是对顾敏领导、管理能力的考验。
 
-数据是最有力的证明：2024年，乌鲁木齐实现跨境电商进出口总值67亿元，同比增长2.2倍；2025年前5个月，霍尔果斯跨境电商贸易额达280.5亿元，同比增长890%；2025年上半年，阿拉山口跨境电商产业园累计出口包裹5598.19万票，货值约39.4亿元，同比增长99.6%。
+一些调整与变化已经发生了。
 
-这些亮眼数据，为新疆进一步做大做强“丝路电商”奠定了坚实基础。
+比如，人事方面的调整。
 
-我们应认识到，打造亚欧黄金通道和向西开放的桥头堡是党中央赋予新疆的“五大战略定位”之一，拓展“丝路电商”是其中应有之义。
+顾敏的左膀右臂换了。
 
 ## 相关推荐
 
-- 2026-06-30 02:24 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 02:06 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 02:14 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 02:12 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 02:12 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 02:26 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 02:33 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 02:30 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 02:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 02:14 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-30 02:12 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 02:16 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-30 02:14 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 02:37 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 02:17 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 02:13 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 02:19 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 02:15 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 02:40 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 02:39 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 02:16 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 02:25 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 02:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 02:17 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 02:24 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 02:37 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:25 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/49533.shtml)
-- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/75772975.shtml)
-- 2026-06-30 02:18 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/62008.shtml)
-- 2026-06-30 02:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/26181.shtml)
-- 2026-06-30 02:25 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/44435.shtml)
-- 2026-06-30 02:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/079666.shtml)
-- 2026-06-30 02:23 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/0989017467.shtml)
-- 2026-06-30 02:30 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/844067480.shtml)
-- 2026-06-30 02:26 - [月亮](https://www.blog.kurohicncr.top/Article/details/30313353.shtml)
-- 2026-06-30 02:35 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/7247730555.shtml)
-- 2026-06-30 02:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/683986993456.shtml)
-- 2026-06-30 02:20 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/610082032931.shtml)
-- 2026-06-30 02:22 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/71423754761.shtml)
-- 2026-06-30 02:15 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/04969377.shtml)
-- 2026-06-30 02:16 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/5760977.shtml)
+- 2026-06-30 02:27 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/051975.shtml)
+- 2026-06-30 02:31 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/5358492389.shtml)
+- 2026-06-30 02:21 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/511418.shtml)
+- 2026-06-30 02:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/840333889.shtml)
+- 2026-06-30 02:14 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/01224.shtml)
+- 2026-06-30 02:20 - [世界杯](https://www.share.kurohicncr.top/Article/details/43194482.shtml)
+- 2026-06-30 02:39 - [日本领先巴西](http://www.blog.minike.top/Article/details/5086615.shtml)
+- 2026-06-30 02:34 - [起风了](https://www.share.kurohicncr.top/Article/details/16818097.shtml)
+- 2026-06-30 02:19 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/345367.shtml)
+- 2026-06-30 02:24 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/43996038.shtml)
+- 2026-06-30 02:35 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/192592422150.shtml)
+- 2026-06-30 02:13 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/84309.shtml)
+- 2026-06-30 02:35 - [小娘惹](https://www.share.minike.top/Article/details/88048749.shtml)
+- 2026-06-30 02:27 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/987624323182.shtml)
+- 2026-06-30 02:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/1453997.shtml)
