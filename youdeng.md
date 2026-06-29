@@ -1,52 +1,56 @@
-# 广东发布漠阳江（江城段）洪水橙色预警
+# 美国“Z世代”为何“种草”中国游
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网广州5月22日电 (记者 王坚)据广东省水利厅22日消息，该省漠阳江双捷水文站(江城区双捷镇)21日22时流量3570立方米每秒，相应水位6.57米。广东省水文局于21日23时升级发布漠阳江(江城段)洪水橙色预警。 广东省水利厅介绍，受新一轮强降雨影响，预计双捷站22日上午出现约4000立方米每秒的洪峰流量，洪峰水位7米左右(警戒水位6.8米，左堤高程10.5米，右堤高程
+原标题：美国“Z世代”为何“种草”中国游(国际论道) 在重庆感受“赛博朋克”山城夜景，在上海体验现代化城市生活，在智慧酒店、服务机器人中触摸科技日常……近来，多家外媒关注到，越来越多美国“Z世代”和海外年轻人开始把中国列入旅行清单。 对许多“Z世代”国际游客而言，中国不只是长城、故宫、兵马俑等传统文化符号的集合，也是体验现代城市、数字生活和多元消费场景的理想目的地。 来华旅行成
 
 ## 正文
 
-中新网广州5月22日电 (记者 王坚)据广东省水利厅22日消息，该省漠阳江双捷水文站(江城区双捷镇)21日22时流量3570立方米每秒，相应水位6.57米。
+原标题：美国“Z世代”为何“种草”中国游(国际论道) 在重庆感受“赛博朋克”山城夜景，在上海体验现代化城市生活，在智慧酒店、服务机器人中触摸科技日常……近来，多家外媒关注到，越来越多美国“Z世代”和海外年轻人开始把中国列入旅行清单。
 
-广东省水文局于21日23时升级发布漠阳江(江城段)洪水橙色预警。
+对许多“Z世代”国际游客而言，中国不只是长城、故宫、兵马俑等传统文化符号的集合，也是体验现代城市、数字生活和多元消费场景的理想目的地。
 
-广东省水利厅介绍，受新一轮强降雨影响，预计双捷站22日上午出现约4000立方米每秒的洪峰流量，洪峰水位7米左右(警戒水位6.8米，左堤高程10.5米，右堤高程9.1米)。
+来华旅行成为“新潮选择”20岁的美国旅行内容创作者里德·亚当斯，小时候曾通过网络地图观察中国。
 
-广东省水利厅表示，受上游来水和天文潮汐影响，漠阳江下游段阳江河堤站(地处江城区马南水闸)21日22时30分水位复涨至3.78米，预计至24日阳江河堤站持续维持高水位(超警戒)。
+多年间，他注意到中国乡村和城市多了许多现代化设施，由此对中国的发展历程产生兴趣。
 
-广东省水文局于5月21日23时升级发布漠阳江(江城段)洪水橙色预警，请漠阳江下游、马南河、西濑河沿岸相关单位、沿河村镇和社会公众加强防范，及时避险。
+去年，他到四川成都、重庆、上海等地旅行，并将相关体验发布到社交媒体，目前已获得超过400万次浏览量。
 
-(完)
+美国《商业内幕》网站报道了里德·亚当斯的经历，并称一些美国“Z世代”正在通过社交媒体和亲身旅行重新认识中国。
+
+报道称，美国年轻人通过社交媒体看到中国高铁、城市交通、公共安全和消费便利，进而产生亲自到中国看一看的愿望。
+
+对他们而言，“中国游”不只是观光，也是一次对现代城市生活方式的观察。
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 05:14 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 05:03 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 05:15 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 05:09 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 05:17 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 05:26 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 05:18 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-30 05:14 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 05:16 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 05:18 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
+- 2026-06-30 05:32 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 05:22 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 05:30 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 05:34 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
+- 2026-06-30 05:23 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 05:16 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 05:34 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 05:32 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/67461188937.shtml)
-- 2026-06-30 05:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/81639308728.shtml)
-- 2026-06-30 05:01 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/776288503954.shtml)
-- 2026-06-30 05:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/11173956.shtml)
-- 2026-06-30 05:07 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/620703.shtml)
-- 2026-06-30 05:06 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/102827637.shtml)
-- 2026-06-30 05:03 - [日本16强魔咒](https://www.share.minike.top/Article/details/867613338775.shtml)
-- 2026-06-30 05:16 - [起风了](https://www.blog.minike.top/Article/details/456037325124.shtml)
-- 2026-06-30 05:13 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/484009.shtml)
-- 2026-06-30 05:21 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/34677672387.shtml)
-- 2026-06-30 05:22 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/41107971815.shtml)
-- 2026-06-30 05:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/0948804071.shtml)
-- 2026-06-30 05:12 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/555205.shtml)
-- 2026-06-30 05:18 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/203288588.shtml)
-- 2026-06-30 05:28 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/52817307447.shtml)
+- 2026-06-30 05:15 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/75678366722.shtml)
+- 2026-06-30 05:31 - [孙兴慜发长文致歉](http://www.blog.minike.top/Article/details/764468727.shtml)
+- 2026-06-30 05:14 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/030974425123.shtml)
+- 2026-06-30 05:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/37300417785.shtml)
+- 2026-06-30 05:31 - [日本进球](http://www.share.kurohicncr.top/Article/details/114091784.shtml)
+- 2026-06-30 05:10 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/8148442.shtml)
+- 2026-06-30 05:31 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/5150467.shtml)
+- 2026-06-30 05:14 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/389547.shtml)
+- 2026-06-30 05:20 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/62184.shtml)
+- 2026-06-30 05:30 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/553063.shtml)
+- 2026-06-30 05:13 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/52170828922.shtml)
+- 2026-06-30 05:14 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/57479.shtml)
+- 2026-06-30 05:15 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/52087.shtml)
+- 2026-06-30 05:35 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/0016351.shtml)
+- 2026-06-30 05:10 - [一见倾心](http://www.blog.minike.top/Article/details/4166197430.shtml)

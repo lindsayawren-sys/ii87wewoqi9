@@ -1,57 +1,50 @@
-# 2026重庆与新丝路国家经贸合作对接会签约超12亿元 多方共谋高质量发展
+# 我国成功发射实践三十一号卫星
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网重庆5月21日电 (记者 刘相琳)2026重庆与新丝路国家经贸合作对接会21日在重庆举行。本次对接会吸引了来自俄罗斯、吉尔吉斯斯坦、乌兹别克斯坦、哈萨克斯坦、塔吉克斯坦等国家的工商会领袖、政府官员及采购商，与重庆重点企业代表约200人齐聚一堂，现场达成采购意向金额超12亿元人民币。 本次对接会以“丝路携手 渝启新程”为主题，聚焦通用机械、汽车及零部件、跨境电商、新能源、建
+新华社西昌6月16日电(李国利、崔婉莹)6月16日17时45分，我国在西昌卫星发射中心使用长征三号乙运载火箭，成功将实践三十一号卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 实践三十一号卫星主要用于空间环境探测。 这次任务是长征系列运载火箭的第651次飞行。
 
 ## 正文
 
-中新网重庆5月21日电 (记者 刘相琳)2026重庆与新丝路国家经贸合作对接会21日在重庆举行。
+新华社西昌6月16日电(李国利、崔婉莹)6月16日17时45分，我国在西昌卫星发射中心使用长征三号乙运载火箭，成功将实践三十一号卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-本次对接会吸引了来自俄罗斯、吉尔吉斯斯坦、乌兹别克斯坦、哈萨克斯坦、塔吉克斯坦等国家的工商会领袖、政府官员及采购商，与重庆重点企业代表约200人齐聚一堂，现场达成采购意向金额超12亿元人民币。
+实践三十一号卫星主要用于空间环境探测。
 
-本次对接会以“丝路携手 渝启新程”为主题，聚焦通用机械、汽车及零部件、跨境电商、新能源、建筑建材、生物医药、大宗农产品等领域，推动重庆企业与境外采购商精准对接。
-
-重庆市贸促会会长、致公党重庆市委会副主委邓琳在会上表示，本次对接会聚焦重庆优势产业，邀请40余家境外对口机构及采购商与本地企业对接，打破供需壁垒、促成务实合作，助力重庆企业开拓海外市场、抢抓订单，也为各国企业共享重庆机遇搭建桥梁。
-
-期待相关方进一步深化经贸联通，强化产业协同，健全合作机制，共享发展红利。
-
-吉尔吉斯斯坦工商会副主席阿尔腾姆舍夫·艾别克在致辞中表示，吉尔吉斯斯坦与中国是友好邻邦，古丝绸之路将双方紧密相连。
-
-在“一带一路”倡议、西部陆海新通道以及成渝地区双城经济圈建设的推动下，两国合作正迈向更高水平。
-
-吉尔吉斯斯坦工商会汇聚了数千家企业，愿成为两国商界之间的可靠桥梁。
+这次任务是长征系列运载火箭的第651次飞行。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-30 05:08 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 05:24 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 05:13 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 05:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 05:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 05:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 05:04 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
-- 2026-06-30 05:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 05:21 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 05:04 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 05:24 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 05:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 05:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 05:27 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 05:12 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 05:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 05:31 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 05:12 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 05:29 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 05:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 05:24 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 05:06 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 05:06 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 05:32 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/981892252381.shtml)
-- 2026-06-30 05:07 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/30383750.shtml)
-- 2026-06-30 05:22 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/90557.shtml)
-- 2026-06-30 05:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/10152474.shtml)
-- 2026-06-30 05:13 - [金刚川](http://www.blog.kurohicncr.top/Article/details/3908829147.shtml)
-- 2026-06-30 05:02 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/751637005567.shtml)
-- 2026-06-30 05:22 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/157594118.shtml)
-- 2026-06-30 05:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/3328904253.shtml)
-- 2026-06-30 05:27 - [急先锋](http://www.share.kurohicncr.top/Article/details/48432183949.shtml)
-- 2026-06-30 05:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/615753978172.shtml)
-- 2026-06-30 05:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/4438752358.shtml)
-- 2026-06-30 05:09 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/674060770.shtml)
-- 2026-06-30 05:19 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/8928557086.shtml)
-- 2026-06-30 05:02 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/23839143.shtml)
-- 2026-06-30 05:26 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/9742791.shtml)
+- 2026-06-30 05:26 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/593296523.shtml)
+- 2026-06-30 05:25 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/8861599.shtml)
+- 2026-06-30 05:14 - [天道](http://www.share.minike.top/Article/details/0566330.shtml)
+- 2026-06-30 05:19 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/3229736.shtml)
+- 2026-06-30 05:23 - [【大鸣王潮1566】真拿你没办法](http://www.blog.kurohicncr.top/Article/details/737913.shtml)
+- 2026-06-30 05:13 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/89734677843.shtml)
+- 2026-06-30 05:20 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/44452287300.shtml)
+- 2026-06-30 05:11 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/535565530.shtml)
+- 2026-06-30 05:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/87454831462.shtml)
+- 2026-06-30 05:24 - [美人鱼](http://www.share.minike.top/Article/details/3772749426.shtml)
+- 2026-06-30 05:13 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/931884220113.shtml)
+- 2026-06-30 05:14 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/7535474.shtml)
+- 2026-06-30 05:31 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/7314609.shtml)
+- 2026-06-30 05:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/696298.shtml)
+- 2026-06-30 05:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/0910526034.shtml)

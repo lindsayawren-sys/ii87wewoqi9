@@ -1,58 +1,49 @@
-# CPT Markets:回升仍需资金确认
+# 创业板指涨超5% 重返4000点上方
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-5月22日，在价格回到区间上沿附近时，市场会更关注资金流与风险偏好的同步性，以判断反弹是否具备延续基础。CPT Markets表示，当现货与衍生品数据给出分化信号时，价格更可能以震荡方式完成仓位再平衡，而不是立即走出单边趋势。 从资金维度看，部分指标更多反映过去一段时间的行为，可能与短线反弹并不同步。CPT Markets认为，观察成交量、期权保护需求与资金费率的变化，有助于评
+发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。(记者 谢艺观） 责任编辑：【程春雨】
 
 ## 正文
 
-5月22日，在价格回到区间上沿附近时，市场会更关注资金流与风险偏好的同步性，以判断反弹是否具备延续基础。
+发布时间：2026年06月15日 16:13 来源：中国新闻网 15日，A股三大指数集体上涨，截至收盘，上证指数涨1.61%，深证成指涨3.79%，创业板指涨5.3%重返4000点上方，科创50指数涨5.12%。
 
-CPT Markets表示，当现货与衍生品数据给出分化信号时，价格更可能以震荡方式完成仓位再平衡，而不是立即走出单边趋势。
+盘面上，电子元器件、贵金属、通信设备等行业板块涨幅居前；概念板块方面，覆铜板、电路板、光模块(CPO)概念表现亮眼。
 
-从资金维度看，部分指标更多反映过去一段时间的行为，可能与短线反弹并不同步。
-
-CPT Markets认为，观察成交量、期权保护需求与资金费率的变化，有助于评估市场是在“补跌后的修复”还是在形成更稳固的底部结构。
-
-同时，宏观变量对风险资产的牵引仍不可忽视：当利率与美元波动加大时，数字资产可能被动承受情绪切换带来的波动，短周期的上冲与回吐会更频繁出现。
-
-后续关注点在于资金是否回流、关键价位能否被有效守住以及衍生品端是否继续降杠杆。
-
-CPT Markets分析称，只有在资金与情绪共同改善的情况下，反弹才更可能从区间震荡逐步过渡到趋势延展。
-
-责任编辑：陈平
+(记者 谢艺观） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 05:09 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 05:03 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-30 05:19 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 05:15 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 05:23 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 05:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 05:10 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 05:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 05:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 05:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-30 05:20 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
+- 2026-06-30 05:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 05:06 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 05:33 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 05:17 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 05:09 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 05:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 05:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 05:24 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-30 05:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 05:09 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 05:26 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 05:30 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 05:31 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/4419157.shtml)
-- 2026-06-30 05:13 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/38380066.shtml)
-- 2026-06-30 05:18 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/8807801.shtml)
-- 2026-06-30 05:16 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/399364.shtml)
-- 2026-06-30 05:10 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/492114899.shtml)
-- 2026-06-30 05:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/4677327114.shtml)
-- 2026-06-30 05:29 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/207877739250.shtml)
-- 2026-06-30 05:20 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/773145266956.shtml)
-- 2026-06-30 05:25 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/455925829.shtml)
-- 2026-06-30 05:00 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/971657409.shtml)
-- 2026-06-30 05:04 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/640050352.shtml)
-- 2026-06-30 05:03 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/3678877874.shtml)
-- 2026-06-30 05:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/9476437603.shtml)
-- 2026-06-30 05:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/87751149177.shtml)
-- 2026-06-30 05:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/28851.shtml)
+- 2026-06-30 05:33 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/8264470548.shtml)
+- 2026-06-30 05:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/4328549746.shtml)
+- 2026-06-30 05:13 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/77413085771.shtml)
+- 2026-06-30 05:34 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/44751061467.shtml)
+- 2026-06-30 05:16 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/946431913.shtml)
+- 2026-06-30 05:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/583761.shtml)
+- 2026-06-30 05:08 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/125439106734.shtml)
+- 2026-06-30 05:28 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/584495.shtml)
+- 2026-06-30 05:14 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/604869315.shtml)
+- 2026-06-30 05:22 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/740313312.shtml)
+- 2026-06-30 05:15 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/08032.shtml)
+- 2026-06-30 05:09 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/05947078192.shtml)
+- 2026-06-30 05:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/67970179882.shtml)
+- 2026-06-30 05:20 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/79224.shtml)
+- 2026-06-30 05:26 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/46760637770.shtml)

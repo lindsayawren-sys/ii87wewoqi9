@@ -1,59 +1,56 @@
-# 广西一航班紧急备降 空地联动抢救危重旅客
+# 2026甬港经济合作论坛促成20个合作项目签约
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月22日电(黄艳梅 马媛媛 蒋艺萍)广西北部湾航空有限责任公司22日介绍，5月21日，北部湾航空GX8823(南宁—亳州)航班起飞后不久，一名旅客突发严重呕血，生命危在旦夕，一场空地协同的紧急救援随即展开，为旅客打通空中绿色生命通道。当日航班于7时42分起飞。约8时15分，一名旅客流鼻血，乘务员上前查看。随后，乘务长迅速组成三人急救小组，同时通过广播寻找医生，并报告
+中新网香港6月16日电 (郑欣怡 戴小橦)2026甬港经济合作论坛15日在香港举行，活动现场及会前累计签约20个合作项目，合作领域涵盖港航服务、高端装备、生物医药、金融服务等多个重点方向。 活动上，浙江省委副书记、宁波市委书记王成致辞表示，甬港两地全方位、深层次、多维度合作持续走深走实。如今宁波已成为香港工商界投资兴业、拓展内地市场的热土，香港则是宁波最大的外资来源地、重要的贸
 
 ## 正文
 
-中新网南宁5月22日电(黄艳梅 马媛媛 蒋艺萍)广西北部湾航空有限责任公司22日介绍，5月21日，北部湾航空GX8823(南宁—亳州)航班起飞后不久，一名旅客突发严重呕血，生命危在旦夕，一场空地协同的紧急救援随即展开，为旅客打通空中绿色生命通道。
+中新网香港6月16日电 (郑欣怡 戴小橦)2026甬港经济合作论坛15日在香港举行，活动现场及会前累计签约20个合作项目，合作领域涵盖港航服务、高端装备、生物医药、金融服务等多个重点方向。
 
-当日航班于7时42分起飞。
+活动上，浙江省委副书记、宁波市委书记王成致辞表示，甬港两地全方位、深层次、多维度合作持续走深走实。
 
-约8时15分，一名旅客流鼻血，乘务员上前查看。
+如今宁波已成为香港工商界投资兴业、拓展内地市场的热土，香港则是宁波最大的外资来源地、重要的贸易伙伴和宁波企业境外上市的主要市场。
 
-随后，乘务长迅速组成三人急救小组，同时通过广播寻找医生，并报告机长。
+香港特区政府政务司副司长卓永兴致辞指出，香港和宁波在经贸、文化、创新科技及青年交流等方面一直合作无间。
 
-此时旅客病情迅速恶化，开始吐血。
+宁波是长三角制造业和港口枢纽，香港是国际金融、贸易、航运中心，两地优势互补、合作空间无限。
 
-机组当即决策并通报运行控制中心(AOC)就近备降桂林两江国际机场。
+特区政府将会继续推动甬港两地交流合作，双向联动、双向赋能。
 
-AOC立即启动应急响应，第一时间与桂林机场指挥中心取得联系，通报备降需求，协调急救车辆、专用机位及医护人员提前就位。
+香港贸易发展局主席马时亨发言提到，宁波与香港均为重要港口城市，改革开放以来，港商在宁波投资热情高涨，投资领域不断向高新技术产业延伸。
 
-桂林机场为航班开辟优先落地通道，安排距离急救中心最近的廊桥作为停靠机位，最大限度缩短转运时间。
+香港贸易发展局将积极搭建桥梁，一方面协助香港科创企业落地宁波，加速科技成果转化应用；另一方面助力内地企业依托香港平台开拓海外市场，提供全方位服务支持。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 05:10 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 05:11 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 05:20 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 05:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 05:25 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 05:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 05:02 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 05:15 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 05:20 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 05:00 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-30 05:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:29 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 05:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 05:07 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-30 05:31 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 05:06 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 05:34 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
+- 2026-06-30 05:32 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 05:21 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 05:25 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 05:06 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 05:20 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [TOP Prada](http://www.blog.minike.top/Article/details/9730855188.shtml)
-- 2026-06-30 05:16 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/449667495.shtml)
-- 2026-06-30 05:06 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/45158464.shtml)
-- 2026-06-30 05:15 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/285288541066.shtml)
-- 2026-06-30 05:22 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/31785.shtml)
-- 2026-06-30 05:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/96195.shtml)
-- 2026-06-30 05:02 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/428717956.shtml)
-- 2026-06-30 05:19 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/18547963.shtml)
-- 2026-06-30 05:03 - [TOP Prada](http://www.share.minike.top/Article/details/9914342519.shtml)
-- 2026-06-30 05:11 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/201365059.shtml)
-- 2026-06-30 05:11 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/288283.shtml)
-- 2026-06-30 05:14 - [蔚来车主罚站](https://www.share.minike.top/Article/details/414338908.shtml)
-- 2026-06-30 05:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/5968636.shtml)
-- 2026-06-30 05:05 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/51054067297.shtml)
-- 2026-06-30 05:18 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/26247083.shtml)
+- 2026-06-30 05:20 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/78950562512.shtml)
+- 2026-06-30 05:12 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/7866476.shtml)
+- 2026-06-30 05:31 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/75094453399.shtml)
+- 2026-06-30 05:32 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/9875684483.shtml)
+- 2026-06-30 05:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/15314.shtml)
+- 2026-06-30 05:15 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/80474.shtml)
+- 2026-06-30 05:35 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/711177348.shtml)
+- 2026-06-30 05:06 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/213936748.shtml)
+- 2026-06-30 05:10 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/430043.shtml)
+- 2026-06-30 05:24 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/46240.shtml)
+- 2026-06-30 05:22 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/0107374.shtml)
+- 2026-06-30 05:32 - [时光音乐会](http://www.share.minike.top/Article/details/90087710077.shtml)
+- 2026-06-30 05:25 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/2646934.shtml)
+- 2026-06-30 05:19 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/376414.shtml)
+- 2026-06-30 05:09 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/14991.shtml)

@@ -1,54 +1,57 @@
-# “台品甄选”助力上海台企拥抱大陆数字经济新机遇
+# 麦科奥特：公司核心产品被临床医生高度期待 不担心新药上市周期长市场被瓜分
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 16:00 来源：中国新闻网 5月20日，2026上海数字生活周暨“台品甄选”活动启动。第二批“台品甄选”名录同日公布，共有19家台湾品牌入选。这些品牌将在“政府搭台、市场运作”模式下，借助上海市电子商务行业的优势资源，实现“渠道+品牌”两翼驱动。 随着大陆电商新业态不断涌现，2025年，上海市网购商会联合上海市台湾同胞投资企业协会共同推出了“
+内地创新药企麦科医药-B （2335） 于6月15日至18日招股。预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。 公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。 公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化
 
 ## 正文
 
-发布时间：2026年05月21日 16:00 来源：中国新闻网 5月20日，2026上海数字生活周暨“台品甄选”活动启动。
+内地创新药企麦科医药-B （2335） 于6月15日至18日招股。
 
-第二批“台品甄选”名录同日公布，共有19家台湾品牌入选。
+预期将于6月24日挂牌买卖，建银国际、招商证券国际为联席保荐人。
 
-这些品牌将在“政府搭台、市场运作”模式下，借助上海市电子商务行业的优势资源，实现“渠道+品牌”两翼驱动。
+公司以18A章上市的创新药企麦科医药计划发行5805.4万股H股，10%在港公开发售，招股价介乎18.2元至21元，其余国际配售，集资最多12.2亿元。
 
-随着大陆电商新业态不断涌现，2025年，上海市网购商会联合上海市台湾同胞投资企业协会共同推出了“台品甄选”计划，聚焦品牌、直播、出海、AI(人工智能)四大方向，为入选台企提供数字化赋能。
+公司管理层在记者会中表示，核心新药MT1013目前进入III期临床，将在2028年初实现商业化，不担心新药上市周期长导致市场被瓜分，目前公司核心产品被临床医生高度期待。
 
-同年5月，首批25家企业名录正式公布。
+此外，公司另有六项药物在研发，包括主攻体重管理市场的减肥药XTL6001，预计本季度可完成一期临床试验。
 
-缪璐 狄权 上海报道 责任编辑：【罗攀】
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 05:15 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 05:10 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 05:13 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 05:17 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
-- 2026-06-30 05:12 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 05:04 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 05:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 05:22 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 05:05 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 05:18 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-30 05:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 05:08 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 05:20 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 05:15 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-30 05:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
+- 2026-06-30 05:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 05:18 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 05:11 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 05:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-30 05:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 05:09 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-30 05:30 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 05:20 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 05:06 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 05:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 05:25 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/4394715.shtml)
-- 2026-06-30 05:10 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/1419986.shtml)
-- 2026-06-30 05:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/25361518863.shtml)
-- 2026-06-30 05:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/907897654.shtml)
-- 2026-06-30 05:15 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/676425292.shtml)
-- 2026-06-30 05:02 - [巴西扳平比分](http://www.share.minike.top/Article/details/519592.shtml)
-- 2026-06-30 05:26 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/400265.shtml)
-- 2026-06-30 05:09 - [千香](http://www.blog.kurohicncr.top/Article/details/54792335483.shtml)
-- 2026-06-30 05:28 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/58476719.shtml)
-- 2026-06-30 05:22 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.minike.top/Article/details/255407505744.shtml)
-- 2026-06-30 05:12 - [蔚来车主罚站](https://www.share.minike.top/Article/details/10723719578.shtml)
-- 2026-06-30 05:07 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/411107238.shtml)
-- 2026-06-30 05:11 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/2166880.shtml)
-- 2026-06-30 05:03 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/14294251310.shtml)
-- 2026-06-30 05:16 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/658448181.shtml)
+- 2026-06-30 05:30 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/974828737923.shtml)
+- 2026-06-30 05:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/9671932.shtml)
+- 2026-06-30 05:06 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/62236387031.shtml)
+- 2026-06-30 05:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/0073505.shtml)
+- 2026-06-30 05:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/825071564439.shtml)
+- 2026-06-30 05:13 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/180311.shtml)
+- 2026-06-30 05:19 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/0979427545.shtml)
+- 2026-06-30 05:30 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/21642887570.shtml)
+- 2026-06-30 05:34 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/05897038.shtml)
+- 2026-06-30 05:15 - [日本进球](https://www.share.minike.top/Article/details/27102326.shtml)
+- 2026-06-30 05:15 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/36274603207.shtml)
+- 2026-06-30 05:26 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/446213.shtml)
+- 2026-06-30 05:18 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/406908441.shtml)
+- 2026-06-30 05:33 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/0896893235.shtml)
+- 2026-06-30 05:06 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/242128.shtml)

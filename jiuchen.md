@@ -1,61 +1,59 @@
-# 天津8月起全域开展跨境贸易高水平开放试点
+# 近一年收益超402%，这位基金经理，如何破解规模魔咒？
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网天津5月21日电 (记者 周亚强)记者从国家外汇管理局天津市分局获悉，该局近日印发跨境贸易高水平开放试点实施细则，明确自2026年8月1日起，在天津市全域开展跨境贸易高水平开放试点，通过多项便利化措施提升外汇服务实体经济质效。此次试点覆盖经常项目外汇收支的多个环节。审慎合规银行可按照“了解客户”“了解业务”“尽职审查”原则为优质企业办理经常项目外汇收支。单笔等值5万美元以
+公募行业向来有个难以打破的规律：规模偏小的基金凭借调仓灵活性，更容易跑出亮眼收益，而规模做大之后，许多产品都难以延续强势业绩，往往会陷入净值增长放缓的困境。 规模增长后，调仓难度、流动性压力随之增加。因而，想要在规模暴涨之后依旧守住业绩优势，历来是公募投资中极难完成的挑战。 但一位任职公募仅一年多的基金经理，却凭借一套内涵稳定且极具爆发力的投资打法，上演了一场惊艳行业的“大象起
 
 ## 正文
 
-中新网天津5月21日电 (记者 周亚强)记者从国家外汇管理局天津市分局获悉，该局近日印发跨境贸易高水平开放试点实施细则，明确自2026年8月1日起，在天津市全域开展跨境贸易高水平开放试点，通过多项便利化措施提升外汇服务实体经济质效。
+公募行业向来有个难以打破的规律：规模偏小的基金凭借调仓灵活性，更容易跑出亮眼收益，而规模做大之后，许多产品都难以延续强势业绩，往往会陷入净值增长放缓的困境。
 
-此次试点覆盖经常项目外汇收支的多个环节。
+规模增长后，调仓难度、流动性压力随之增加。
 
-审慎合规银行可按照“了解客户”“了解业务”“尽职审查”原则为优质企业办理经常项目外汇收支。
+因而，想要在规模暴涨之后依旧守住业绩优势，历来是公募投资中极难完成的挑战。
 
-单笔等值5万美元以上的服务贸易等项目外汇支出，可事后核验税务备案表。
+但一位任职公募仅一年多的基金经理，却凭借一套内涵稳定且极具爆发力的投资打法，上演了一场惊艳行业的“大象起舞”。
 
-据了解，跨境电商、保税维修等新型国际贸易结算将获创新金融支持，贸易收支轧差净额结算范围也进一步扩大，优质企业可与同一境外交易对手就货款、运费、返利等办理轧差结算，原则上每季度不少于一次。
+去年3月起，现任华商基金权益投资部总经理的张明昕开始正式管理公募产品，截至今年6月4日，其管理的华商均衡成长混合A近一年（2025.6.5 - 2026.6.4）回报高达402.05%，同期业绩比较基准收益率43.07%，超额收益358.98%。
 
-货物贸易超期限及无法原路退回的退汇业务免于事前登记，服务贸易项下代垫或分摊业务同步优化。
+虽来到公募领域仅一年多时间，但张明昕实际上自2008年底加入证券行业至今已有超17年（具有10.5年证券从业经历，其中5.3年证券研究经历、5.2年证券投资经历），历经券商资管、保险资管等多类机构历练，见证过多轮完整市场周期，也吃透了不同逻辑的投资体系。
 
-同时，试点便利涉外员工薪酬用汇，银行可根据企业提供的名单和薪酬材料，为员工核定免审单额度，额度内购付汇或收结汇无需提交单证。
+张明昕 特许金融分析师（CFA） 华商基金权益投资部总经理 华商均衡成长混合等基金经理 早在AI产业萌芽初期，他就扎根产业深入研究，沉淀出独树一帜的产业认知。
 
-符合条件的跨国公司办理经常项目资金集中收付和轧差净额结算，同样适用相关便利化安排。
+在本轮AI产业上涨中，他精准抓住斜率最陡峭的细分领域，实现了极强业绩弹性。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 05:17 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 05:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 05:29 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 05:15 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 05:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 05:10 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-30 05:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 05:17 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
-- 2026-06-30 05:10 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-30 05:18 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-30 05:14 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-30 05:05 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 05:09 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 05:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 05:30 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-30 05:35 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-30 05:35 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 05:17 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-30 05:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 05:12 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 05:30 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 05:23 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 05:30 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 05:07 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 05:07 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 05:29 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 05:09 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/090333.shtml)
-- 2026-06-30 05:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/973044300.shtml)
-- 2026-06-30 05:03 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/39124.shtml)
-- 2026-06-30 05:08 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/1966412020.shtml)
-- 2026-06-30 05:05 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/79341.shtml)
-- 2026-06-30 05:08 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/5467777902.shtml)
-- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/2398557490.shtml)
-- 2026-06-30 05:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/33413.shtml)
-- 2026-06-30 05:29 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/143442820647.shtml)
-- 2026-06-30 05:14 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/252543673.shtml)
-- 2026-06-30 05:01 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/576924139.shtml)
-- 2026-06-30 05:05 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/741594078.shtml)
-- 2026-06-30 05:20 - [小娘惹](http://www.share.minike.top/Article/details/648636191.shtml)
-- 2026-06-30 05:24 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/49868852.shtml)
-- 2026-06-30 05:04 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/2800754337.shtml)
+- 2026-06-30 05:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/556298037661.shtml)
+- 2026-06-30 05:17 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/008326752.shtml)
+- 2026-06-30 05:14 - [毒液2](http://www.blog.kurohicncr.top/Article/details/17080461.shtml)
+- 2026-06-30 05:28 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/755327784.shtml)
+- 2026-06-30 05:33 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/1700551.shtml)
+- 2026-06-30 05:33 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/4277896.shtml)
+- 2026-06-30 05:18 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/82477.shtml)
+- 2026-06-30 05:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/0831657653.shtml)
+- 2026-06-30 05:15 - [电影后室值得看吗](http://www.share.minike.top/Article/details/73410433.shtml)
+- 2026-06-30 05:17 - [巴西半场0比1日本](https://www.blog.kurohicncr.top/Article/details/6837902853.shtml)
+- 2026-06-30 05:27 - [世界杯](https://www.share.minike.top/Article/details/999845005338.shtml)
+- 2026-06-30 05:15 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/05731163.shtml)
+- 2026-06-30 05:06 - [流金岁月](https://www.blog.minike.top/Article/details/58136602.shtml)
+- 2026-06-30 05:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/695913.shtml)
+- 2026-06-30 05:29 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/38756915043.shtml)

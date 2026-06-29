@@ -1,56 +1,60 @@
-# 从“输血”到“造血” 临沂大学非遗传承“创演研”实践走出青春路径
+# 被欧盟列入对俄制裁名单，300910紧急公告！
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网临沂5月21日电 当“拉魂腔”不再拉得住年轻人的心，一门三百年历史的国家级非遗，还能否重获新生？ 中国国际大学生创新大赛(2025)获奖名单此前公布，山东临沂大学“创梨园”柳琴戏社团的“柳梦薪传——国家级非物质文化遗产柳琴戏保护与传承领航者”项目斩获铜奖。这支由“95后”“00后”大学生组成的团队，用一场“造血式”传承实验，给出了肯定的回答。 柳琴戏，源于清乾隆年间，唱腔
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经编辑|张锦河 6月16日，瑞丰新材（300910.SZ）公告称，公司被欧盟列入对俄制裁名单，欧盟称公司为俄军用机械润滑油供应化学添加剂。 公告表示，公司生产的润滑油添加剂产品应用于汽车发动机（包括天然气发动机）润滑油、工业润滑油、船用发动机油等民用领域。
 
 ## 正文
 
-中新网临沂5月21日电 当“拉魂腔”不再拉得住年轻人的心，一门三百年历史的国家级非遗，还能否重获新生？
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-中国国际大学生创新大赛(2025)获奖名单此前公布，山东临沂大学“创梨园”柳琴戏社团的“柳梦薪传——国家级非物质文化遗产柳琴戏保护与传承领航者”项目斩获铜奖。
+每经编辑|张锦河 6月16日，瑞丰新材（300910.SZ）公告称，公司被欧盟列入对俄制裁名单，欧盟称公司为俄军用机械润滑油供应化学添加剂。
 
-这支由“95后”“00后”大学生组成的团队，用一场“造血式”传承实验，给出了肯定的回答。
+公告表示，公司生产的润滑油添加剂产品应用于汽车发动机（包括天然气发动机）润滑油、工业润滑油、船用发动机油等民用领域。
 
-柳琴戏，源于清乾隆年间，唱腔婉转、一唱三叹，被鲁南苏北民众称为“拉魂腔”。
+公司未参与任何军用产品的研发、设计与生产，亦未取得任何军品生产或贸易资质。
 
-随着时代变迁，观众流失、人才断代，这门古老剧种一度面临“失魂”危机。
+公司已主动终止对俄业务，并上线出口管制与制裁合规助手，对交易主体进行合规筛查，持续对产品流向进行严格管控。
 
-传统保护多依赖财政补贴与抢救式记录，如同“输血”，难以长久。
+公司在与客户签订的购销合同中明确设置出口管制合规的条款，要求客户签署最终用户或用途声明，明确禁止将产品用于任何受联合国、欧盟、美国制裁的军事或相关用途，确保产品流向合法合规。
 
-临沂大学创梨园柳琴戏社团依托教育部中华优秀传统文化传承基地(柳琴戏)、国家革命文物协同研究中心等平台，探索出“创演研一体”为核心驱动、“课程培训—剧目演出—IP文创”三位一体的“造血式”传承模式。
+公司从未供应用于俄罗斯军用机械润滑油的化学添加剂，不属于为俄罗斯军工综合体提供支持的实体。
 
-社团由临沂大学音乐学院主导，依托教育部2020年设立的柳琴戏传承基地，省级非遗代表性传承人如刘桂红、梁福生担任特聘教授指导。
+针对本次事项，公司高度重视，已在第一时间启动全面应对机制，成立由公 司高管牵头的应急工作小组，全面核查被列入制裁名单的具体原因，并评估该事 项可能对公司业务、客户关系及融资渠道等方面带来的潜在影响。
 
 ## 相关推荐
 
-- 2026-06-30 05:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 05:04 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 05:01 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 05:00 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 05:23 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 05:07 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-30 05:12 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-30 05:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 05:06 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-30 05:27 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 05:28 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-30 05:18 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 05:21 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 05:19 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 05:06 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 05:06 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 05:19 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 05:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-30 05:10 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
+- 2026-06-30 05:17 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 05:32 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 05:31 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 05:12 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
+- 2026-06-30 05:18 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/713156030243.shtml)
-- 2026-06-30 05:01 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/16815725812.shtml)
-- 2026-06-30 05:29 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/732482.shtml)
-- 2026-06-30 05:27 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/8093803.shtml)
-- 2026-06-30 05:06 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/898012404652.shtml)
-- 2026-06-30 05:12 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/5124289.shtml)
-- 2026-06-30 05:08 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/50382312903.shtml)
-- 2026-06-30 05:18 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/9322057195.shtml)
-- 2026-06-30 05:08 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/41893040896.shtml)
-- 2026-06-30 05:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/10316136384.shtml)
-- 2026-06-30 05:07 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/67383894181.shtml)
-- 2026-06-30 05:22 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/068133485303.shtml)
-- 2026-06-30 05:26 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/050384.shtml)
-- 2026-06-30 05:10 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/330465.shtml)
-- 2026-06-30 05:26 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/65212.shtml)
+- 2026-06-30 05:13 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/790479683.shtml)
+- 2026-06-30 05:09 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/4053563879.shtml)
+- 2026-06-30 05:22 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/441075579767.shtml)
+- 2026-06-30 05:22 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/639352999108.shtml)
+- 2026-06-30 05:06 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/400756121334.shtml)
+- 2026-06-30 05:25 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/1983103.shtml)
+- 2026-06-30 05:31 - [点菜也要教吗](https://www.blog.minike.top/Article/details/001749.shtml)
+- 2026-06-30 05:12 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/60569496822.shtml)
+- 2026-06-30 05:10 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/94296.shtml)
+- 2026-06-30 05:16 - [巴西半场0比1日本](http://www.share.kurohicncr.top/Article/details/2834904.shtml)
+- 2026-06-30 05:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/1122794629.shtml)
+- 2026-06-30 05:33 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/5237212.shtml)
+- 2026-06-30 05:29 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/130805680976.shtml)
+- 2026-06-30 05:24 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/15065.shtml)
+- 2026-06-30 05:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/32096493.shtml)

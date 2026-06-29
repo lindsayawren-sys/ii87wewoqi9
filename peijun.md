@@ -1,57 +1,60 @@
-# 简柏特获评HFS数据现代化与AI领域“Horizon 3市场领导者”
+# 光大期货0616黄金点评：地缘局势缓和支撑金价，关注今日日央行议息情况
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-代理式与先进技术解决方案公司简柏特(Genpact)于5月21日宣布，在HFS研究公司发布的《HFS Horizons：数据现代化与AI，2026》报告中，被认定为“Horizon 3市场领导者”。 HFS报告指出，简柏特获此殊荣得益于其将交付、平台和代理式AI整合为单一运营体系的能力。该体系将数据现代化从“构建问题”转变为“规模化问题”，帮助企业解决大多数服务商仍停留在讨论阶
+6月15日，COMEX黄金高开震荡，报收4336.2美元/盎司，跌幅0.36%。国内SHFE金夜盘高开，小幅低走，报收942.90元/克，涨幅1.77%。 地缘政治方面，特朗普宣布美伊协议“已完成”，美伊和平协议签署在即，但双方关于海峡通行费的表态存在明显分歧，美国方面称霍尔木兹海峡将“长期开放且不收取通行费”，但据伊朗媒体称，伊朗仅同意60天免费期，期满后计划收取安全保障、航
 
 ## 正文
 
-代理式与先进技术解决方案公司简柏特(Genpact)于5月21日宣布，在HFS研究公司发布的《HFS Horizons：数据现代化与AI，2026》报告中，被认定为“Horizon 3市场领导者”。
+6月15日，COMEX黄金高开震荡，报收4336.2美元/盎司，跌幅0.36%。
 
-HFS报告指出，简柏特获此殊荣得益于其将交付、平台和代理式AI整合为单一运营体系的能力。
+国内SHFE金夜盘高开，小幅低走，报收942.90元/克，涨幅1.77%。
 
-该体系将数据现代化从“构建问题”转变为“规模化问题”，帮助企业解决大多数服务商仍停留在讨论阶段的难题。
+地缘政治方面，特朗普宣布美伊协议“已完成”，美伊和平协议签署在即，但双方关于海峡通行费的表态存在明显分歧，美国方面称霍尔木兹海峡将“长期开放且不收取通行费”，但据伊朗媒体称，伊朗仅同意60天免费期，期满后计划收取安全保障、航行服务等费用。
 
-报告还特别认可了简柏特在帮助客户将AI从试点项目规模化、并嵌入可衡量业务成果的运营模式方面的表现。
+地缘交易降温或继续支撑金价走势。
 
-简柏特数据与AI业务负责人表示，AI只有在现代化的数据基础上才能创造企业价值。
+央行方面，关注周二日央行议息会议，市场普遍预期日央行将加息25个基点，届时流动性收紧预期，或引起金融市场盘面的异动。
 
-当数据实现互联、受管治并持续激活时，企业才能更快行动并做出更优决策。
+美伊谈判取得突破性进展，后期关注霍尔木兹海峡通航问题，对黄金而言，随着油价下行，通胀预期回落，央行政策或不再激进鹰派，相对偏乐观。
 
-简柏特是第一季度唯一一家获得该评级的专业服务公司。
+另外，本周也将举行美联储6月FOMC决议，作为沃什首秀市场关心点在于点阵图如何调整与新主席表述，对黄金市场来说前后或有异动，但市场前期已有定价的情况下，或并不悲观看待。
 
-其2026财年第一季度财报显示，营收达12.96亿美元，同比增长6.7%，其中高级技术解决方案营收增长24%至3.45亿美元，占公司总营收的27%。
+综合来看，短期关注金价能否持续反弹，给市场注入更多信心。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 05:21 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-30 05:19 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-30 05:23 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 05:09 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
-- 2026-06-30 05:00 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 05:17 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 05:07 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-30 05:20 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 05:15 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 05:23 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 05:20 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 05:24 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 05:19 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-30 05:25 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 05:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 05:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 05:06 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:08 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-30 05:33 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-30 05:12 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 05:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 05:15 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 05:23 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/5627471.shtml)
-- 2026-06-30 05:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/025367150456.shtml)
-- 2026-06-30 05:09 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/959467894.shtml)
-- 2026-06-30 05:00 - [恋与深空 日服](https://www.blog.minike.top/Article/details/15077105613.shtml)
-- 2026-06-30 05:16 - [恋与深空 日服](http://www.blog.minike.top/Article/details/159180787517.shtml)
-- 2026-06-30 05:22 - [请回答王牌2019](https://www.blog.minike.top/Article/details/7758515.shtml)
-- 2026-06-30 05:03 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/761678.shtml)
-- 2026-06-30 05:00 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/153414138.shtml)
-- 2026-06-30 05:06 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/843742996907.shtml)
-- 2026-06-30 05:25 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/3104428.shtml)
-- 2026-06-30 05:23 - [极限挑战第一季](http://www.blog.minike.top/Article/details/86341.shtml)
-- 2026-06-30 05:17 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/05861228381.shtml)
-- 2026-06-30 05:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/323181.shtml)
-- 2026-06-30 05:10 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/6733163.shtml)
-- 2026-06-30 05:29 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/34621309439.shtml)
+- 2026-06-30 05:09 - [巴西vs日本](http://www.share.minike.top/Article/details/99825165041.shtml)
+- 2026-06-30 05:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/17120.shtml)
+- 2026-06-30 05:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/8408361.shtml)
+- 2026-06-30 05:33 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/11561.shtml)
+- 2026-06-30 05:13 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/366923651362.shtml)
+- 2026-06-30 05:08 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/74623269.shtml)
+- 2026-06-30 05:10 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/89092.shtml)
+- 2026-06-30 05:11 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/05106661032.shtml)
+- 2026-06-30 05:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/04781.shtml)
+- 2026-06-30 05:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/016208146.shtml)
+- 2026-06-30 05:18 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/59426598.shtml)
+- 2026-06-30 05:16 - [一见倾心](http://www.share.kurohicncr.top/Article/details/5965850368.shtml)
+- 2026-06-30 05:20 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/1689974.shtml)
+- 2026-06-30 05:30 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/624232.shtml)
+- 2026-06-30 05:24 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/4088658814.shtml)

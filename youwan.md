@@ -1,56 +1,61 @@
-# 斯特兰蒂斯推出700亿美元转型计划，目标2028年实现正向现金流
+# “银行系”公募换帅！张宏良到龄离任 非货规模缩水432亿，袁庆伟代行董事长职务
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-核心要点 斯特兰蒂斯汽车集团周四官宣全新五年战略方案，由首席执行官菲洛萨主导推进，整体投资规模 600 亿欧元，同时力争 2028 年实现年度降本 60 亿欧元。 本次规划中，360 亿欧元将用于旗下全系汽车品牌布局，六成资金投向北美市场。集团计划推出 60 余款全新车型，并对 50 款现有车型完成重大改款，产品覆盖纯电动、混动及传统燃油车品类。 剩余 240 亿欧元资金，将投
+近日，交银施罗德基金管理有限公司发布高级管理人员变更公告。公司董事长张宏良因近法定退休年龄，按内部制度要求退出一线管理岗位，正式卸任董事长职务。在公司新任董事长到任前，由总经理袁庆伟代为履行董事长职责。 张宏良掌舵一年半：总规模基本持平，产品数量扩张，非货规模有所下降 出生于1966年的张宏良，职业生涯横跨保险、银行理财与公募三界。历任中国太平洋人寿保险公司乌鲁木齐分公司、河南
 
 ## 正文
 
-核心要点 斯特兰蒂斯汽车集团周四官宣全新五年战略方案，由首席执行官菲洛萨主导推进，整体投资规模 600 亿欧元，同时力争 2028 年实现年度降本 60 亿欧元。
+近日，交银施罗德基金管理有限公司发布高级管理人员变更公告。
 
-本次规划中，360 亿欧元将用于旗下全系汽车品牌布局，六成资金投向北美市场。
+公司董事长张宏良因近法定退休年龄，按内部制度要求退出一线管理岗位，正式卸任董事长职务。
 
-集团计划推出 60 余款全新车型，并对 50 款现有车型完成重大改款，产品覆盖纯电动、混动及传统燃油车品类。
+在公司新任董事长到任前，由总经理袁庆伟代为履行董事长职责。
 
-剩余 240 亿欧元资金，将投入全球整车平台研发与前沿技术升级。
+张宏良掌舵一年半：总规模基本持平，产品数量扩张，非货规模有所下降 出生于1966年的张宏良，职业生涯横跨保险、银行理财与公募三界。
 
-去年集团因缩减纯电动业务产生 220 亿欧元重组减值亏损，全年合计亏损 223 亿欧元。
+历任中国太平洋人寿保险公司乌鲁木齐分公司、河南（郑州）分公司、上海分公司党委书记、总经理，交银人寿保险有限公司党委书记、董事长、总裁，兼任交银康联资产管理有限公司董事长，交银理财有限责任公司党委书记、董事长。
 
-公司此番定下目标，力争 2028 年扭转局面，实现正向自由现金流。
+2024年8月，张宏良加入交银施罗德基金担任党委书记、董事，同年10月起出任董事长，至卸任时任职仅一年多。
 
-集团计划 2030 年前各大核心区域营收稳步增长：北美市场营收目标增幅 25%，调整后营业利润率区间 8% 至 10%；欧洲扩容市场营收增长 15%，营业利润率 3% 至 5%；南美、中东、非洲营收有望实现两位数上涨；亚太地区营业利润率目标 4% 至 6%。
+这已是交银施罗德基金近两年内第二次因到达退休年龄而进行的董事长更替——2024年8月，前任董事长阮红同样因到龄退休卸任。
 
-品牌架构方面，14 个汽车品牌均不会关停。
+公司公告中，公司在公告中对张宏良任职期间的工作给予高度评价，称其“立足公司既有发展优势，带领公司积极应对行业变革，着力推动发展方式转变，形成“资产管理与财富管理双轮驱动”的发展格局。
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-30 05:17 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 05:10 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
-- 2026-06-30 05:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 05:26 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 05:12 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 05:03 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 05:09 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 05:01 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 05:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 05:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 05:11 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 05:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 05:20 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 05:35 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:14 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 05:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 05:26 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 05:26 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 05:15 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
+- 2026-06-30 05:25 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 05:20 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 05:27 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-30 05:30 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 05:08 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:17 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/184475642062.shtml)
-- 2026-06-30 05:01 - [女心理师](http://www.share.minike.top/Article/details/18829410470.shtml)
-- 2026-06-30 05:21 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/2852783835.shtml)
-- 2026-06-30 05:24 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/3482958.shtml)
-- 2026-06-30 05:27 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/19023082.shtml)
-- 2026-06-30 05:28 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/9051265212.shtml)
-- 2026-06-30 05:19 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/22041795075.shtml)
-- 2026-06-30 05:03 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/4206485.shtml)
-- 2026-06-30 05:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/10480.shtml)
-- 2026-06-30 05:21 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/967420397.shtml)
-- 2026-06-30 05:04 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/29363.shtml)
-- 2026-06-30 05:08 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/3038389967.shtml)
-- 2026-06-30 05:23 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/006805654372.shtml)
-- 2026-06-30 05:04 - [啊啊啊](http://www.blog.minike.top/Article/details/490197.shtml)
-- 2026-06-30 05:02 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/553337.shtml)
+- 2026-06-30 05:09 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/90874986.shtml)
+- 2026-06-30 05:17 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/61829.shtml)
+- 2026-06-30 05:22 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/4993331.shtml)
+- 2026-06-30 05:14 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/14778.shtml)
+- 2026-06-30 05:08 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/048704667044.shtml)
+- 2026-06-30 05:09 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/49408041.shtml)
+- 2026-06-30 05:34 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/39597.shtml)
+- 2026-06-30 05:25 - [巴西替补奇兵读秒绝杀](http://www.blog.kurohicncr.top/Article/details/49710.shtml)
+- 2026-06-30 05:32 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/36035484.shtml)
+- 2026-06-30 05:18 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/909152667.shtml)
+- 2026-06-30 05:34 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/12624912.shtml)
+- 2026-06-30 05:29 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/449240642.shtml)
+- 2026-06-30 05:24 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/36037.shtml)
+- 2026-06-30 05:31 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/9164364774.shtml)
+- 2026-06-30 05:32 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/365822415277.shtml)

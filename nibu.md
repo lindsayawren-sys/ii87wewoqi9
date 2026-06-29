@@ -1,56 +1,61 @@
-# 英前卫生大臣提议大幅上调资本利得税
+# 李萌：AI的泡沫不是本质问题 AI的金融属性强弱才是
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-英国前卫生大臣、执政党工党党魁潜在竞选人韦斯·斯特里廷21日提出最新政策主张，呼吁对英国现行资本利得税进行大幅度改革，使其与个人所得税率接轨，以构建更公平的税收体系。 斯特里廷强调，英国亟需建立行之有效的财富税机制，资产持有者的获利税率不应低于普通劳动者的劳动所得税率。根据其提出的方案，英国资本利得税率将从现行的18%至24%区间，大幅上调至40%乃至45%，具体征收标准将与个
+专题：第十届中关村数字金融大会 编者按： 6月11日，2026第十届中关村数字金融与金融安全大会在北京中关村国际技术交易中心隆重举办。作为国内金融科技领域极具影响力的行业品牌盛会，大会深耕数字金融创新与金融安全领域十年，持续聚焦行业前沿趋势与高质量发展核心议题。本届大会以“智能体与OPC协同 共筑金融科技新生态”为主题，重点围绕智能体应用、词元经济、一人公司新业态、金融数智化转
 
 ## 正文
 
-英国前卫生大臣、执政党工党党魁潜在竞选人韦斯·斯特里廷21日提出最新政策主张，呼吁对英国现行资本利得税进行大幅度改革，使其与个人所得税率接轨，以构建更公平的税收体系。
+专题：第十届中关村数字金融大会 编者按： 6月11日，2026第十届中关村数字金融与金融安全大会在北京中关村国际技术交易中心隆重举办。
 
-斯特里廷强调，英国亟需建立行之有效的财富税机制，资产持有者的获利税率不应低于普通劳动者的劳动所得税率。
+作为国内金融科技领域极具影响力的行业品牌盛会，大会深耕数字金融创新与金融安全领域十年，持续聚焦行业前沿趋势与高质量发展核心议题。
 
-根据其提出的方案，英国资本利得税率将从现行的18%至24%区间，大幅上调至40%乃至45%，具体征收标准将与个人的所得税缴纳等级挂钩。
+本届大会以“智能体与OPC协同 共筑金融科技新生态”为主题，重点围绕智能体应用、词元经济、一人公司新业态、金融数智化转型与金融安全治理等核心内容开展深度研讨。
 
-目前，英国仅对出售资产产生超过3000英镑（约合3900美元）的利润征收资本利得税。
+十四届全国政协委员、科学技术部原副部长李萌先生，出席本次大会，并发表题为《AI的泡沫不是本质问题 AI的金融属性强弱才是》的主题演讲。
 
-相关研究表明，该项税制改革每年有望为英国政府增加约120亿英镑的财政收入。
+李萌指出，辩证看待AI泡沫，关键在于AI是否发展出“过强金融属性”。
 
-责任编辑：龙运翔
+早期适度的泡沫基本符合技术革命一般规律，李萌认为当前算力市场呈现供不应求“卖方市场”特征，但应用层等领域存在估值虚高问题；如果AI金融属性过度泛化，将引发类似房地产的风险放大效应。
+
+李萌进一步指出，中国应建立“强金融支持、弱金融属性”的金融支持AI发展战略，在创新金融工具的同时，防止AI滑向过度金融化，始终将金融服务锚定在AI为实体经济服务上。
+
+演讲全文： 大家下午好！
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 05:29 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 05:14 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 05:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 05:18 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 05:16 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 05:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 05:23 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 05:28 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 05:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 05:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-30 05:18 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 05:14 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 05:13 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 05:13 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 05:12 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 05:27 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 05:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 05:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 05:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 05:18 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 05:06 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-30 05:22 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 05:15 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 05:22 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 05:11 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-30 05:13 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 05:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 05:13 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/525519321.shtml)
-- 2026-06-30 05:13 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/539673.shtml)
-- 2026-06-30 05:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/1985714768.shtml)
-- 2026-06-30 05:10 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/796838070.shtml)
-- 2026-06-30 05:18 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/44307667975.shtml)
-- 2026-06-30 05:00 - [日本反击率先破门](https://www.blog.minike.top/Article/details/30868317570.shtml)
-- 2026-06-30 05:10 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/348371.shtml)
-- 2026-06-30 05:21 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/909144876.shtml)
-- 2026-06-30 05:08 - [女心理师](https://www.share.kurohicncr.top/Article/details/52883719982.shtml)
-- 2026-06-30 05:15 - [周杰伦的歌勾起25年友情](https://www.blog.minike.top/Article/details/73004808219.shtml)
-- 2026-06-30 05:29 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/1149186230.shtml)
-- 2026-06-30 05:08 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/89797410249.shtml)
-- 2026-06-30 05:27 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/16572658.shtml)
-- 2026-06-30 05:07 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/21972621016.shtml)
-- 2026-06-30 05:26 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/1412710250.shtml)
+- 2026-06-30 05:24 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/230457696509.shtml)
+- 2026-06-30 05:26 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/16099104.shtml)
+- 2026-06-30 05:26 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/874436.shtml)
+- 2026-06-30 05:20 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/420615.shtml)
+- 2026-06-30 05:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/0397155969.shtml)
+- 2026-06-30 05:06 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/084768212.shtml)
+- 2026-06-30 05:12 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/690125517.shtml)
+- 2026-06-30 05:28 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/238022304.shtml)
+- 2026-06-30 05:25 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/625557926312.shtml)
+- 2026-06-30 05:17 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/04781.shtml)
+- 2026-06-30 05:12 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/145171166.shtml)
+- 2026-06-30 05:24 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/091432728320.shtml)
+- 2026-06-30 05:34 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/06136690.shtml)
+- 2026-06-30 05:26 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/3174155.shtml)
+- 2026-06-30 05:11 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/720870298.shtml)

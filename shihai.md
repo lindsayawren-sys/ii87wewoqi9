@@ -1,54 +1,44 @@
-# 智谱盘中涨超23% 智谱推出GLM-5.1高速版API 下月有望进入港股通名单
+# 四川能投发展将于7月20日派发末期股息每股0.8694元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-智谱（02513）早盘一度涨超23%，高见1247港元，截至发稿，股价上涨18.42%，现报1196港元，成交额13.69亿港元。 5月22日， 智谱宣布面向部分企业客户开放GLM-5.1高速版API（GLM-5.1-highspeed），模型输出速度达400 tokens/s，刷新全球大模型厂商API速度上限，且首次在国产大模型中实现旗舰级能力与极致低延迟的双重突破。 值得注
+四川能投发展（01713）发布公告，该公司将于2026年7月20日派发截至2025年12月31日止年度的末期股息每股0.8694元。责任编辑：卢昱君
 
 ## 正文
 
-智谱（02513）早盘一度涨超23%，高见1247港元，截至发稿，股价上涨18.42%，现报1196港元，成交额13.69亿港元。
-
-5月22日， 智谱宣布面向部分企业客户开放GLM-5.1高速版API（GLM-5.1-highspeed），模型输出速度达400 tokens/s，刷新全球大模型厂商API速度上限，且首次在国产大模型中实现旗舰级能力与极致低延迟的双重突破。
-
-值得注意的是，大摩此前发布报告称，智谱和MiniMax预计均将通过恒生科技指数6月审议，将于6月8日正式纳入，按5%-7%的权重测算，智谱和MiniMax合计将迎来约12.5亿至17.5亿美元的被动资金流入。
-
-此外，摩根士丹利预计，智谱将于6月8日同步纳入港股通。
-
-乐观情况下，智谱累计南向净流入约港币439亿元。
+四川能投发展（01713）发布公告，该公司将于2026年7月20日派发截至2025年12月31日止年度的末期股息每股0.8694元。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 05:14 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-30 05:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 05:10 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 05:11 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-30 05:03 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 05:16 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 05:18 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
-- 2026-06-30 05:06 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 05:00 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 05:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 05:16 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 05:18 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 05:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 05:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 05:27 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 05:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 05:15 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 05:21 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 05:34 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 05:31 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 05:26 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/05008951.shtml)
-- 2026-06-30 05:12 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/15378051.shtml)
-- 2026-06-30 05:22 - [世界杯](https://www.blog.kurohicncr.top/Article/details/3523584883.shtml)
-- 2026-06-30 05:15 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/83380357.shtml)
-- 2026-06-30 05:02 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/93871914.shtml)
-- 2026-06-30 05:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/030728577990.shtml)
-- 2026-06-30 05:25 - [一生一世](https://www.share.kurohicncr.top/Article/details/02758.shtml)
-- 2026-06-30 05:10 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/57940889.shtml)
-- 2026-06-30 05:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/740148536080.shtml)
-- 2026-06-30 05:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/37341.shtml)
-- 2026-06-30 05:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/675226445003.shtml)
-- 2026-06-30 05:04 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/57458571604.shtml)
-- 2026-06-30 05:19 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/393331256.shtml)
-- 2026-06-30 05:07 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/625418671.shtml)
-- 2026-06-30 05:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/6526827034.shtml)
+- 2026-06-30 05:15 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/074223.shtml)
+- 2026-06-30 05:33 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/24529.shtml)
+- 2026-06-30 05:13 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/1075252.shtml)
+- 2026-06-30 05:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/79612529918.shtml)
+- 2026-06-30 05:12 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/892986.shtml)
+- 2026-06-30 05:17 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/650141.shtml)
+- 2026-06-30 05:35 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/89931524.shtml)
+- 2026-06-30 05:18 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/40678.shtml)
+- 2026-06-30 05:06 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/90272987146.shtml)
+- 2026-06-30 05:16 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/950634662.shtml)
+- 2026-06-30 05:16 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/46456227275.shtml)
+- 2026-06-30 05:12 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/2321317.shtml)
+- 2026-06-30 05:11 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/4544799.shtml)
+- 2026-06-30 05:24 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/43011643147.shtml)
+- 2026-06-30 05:08 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/67838598380.shtml)

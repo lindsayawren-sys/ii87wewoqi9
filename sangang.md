@@ -1,57 +1,57 @@
-# 连亏六个季度，江淮高管集体降薪
+# 机构：此次升息虽然对日元有一定支撑作用，但并不足以缩小美日之间巨大的利差
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 营收增长却无法带来盈利改善，正成为江淮汽车目前的真实写照。 据江淮汽车披露的2026年一季度报告，公司报告期内实现营业收入114.59亿元，同比增长16.91%，但归属于上市公司股东的净利润亏损6.06亿元，上年同期亏损2.23亿元，亏损同比扩大171.74%。这已是江淮汽车自2024年第
+新加坡盛宝首席投资策略师Charu Chanana：日本央行采取了市场预期的举措，但市场反应显示其立场还不够鹰派，尚不足以引发日元的大幅重新定价。关键在于，日本央行显然更加担忧通胀，尤其是核心通胀率持续高于2%的目标，但其政策调整仍非常渐进，并继续表示金融环境将保持宽松。 这使得美元兑日元在160附近变得相当脆弱。此次升息虽然对日元有一定支撑作用，但并不足以缩小美日之间巨大的利
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新加坡盛宝首席投资策略师Charu Chanana：日本央行采取了市场预期的举措，但市场反应显示其立场还不够鹰派，尚不足以引发日元的大幅重新定价。
 
-来源：国际金融报 营收增长却无法带来盈利改善，正成为江淮汽车目前的真实写照。
+关键在于，日本央行显然更加担忧通胀，尤其是核心通胀率持续高于2%的目标，但其政策调整仍非常渐进，并继续表示金融环境将保持宽松。
 
-据江淮汽车披露的2026年一季度报告，公司报告期内实现营业收入114.59亿元，同比增长16.91%，但归属于上市公司股东的净利润亏损6.06亿元，上年同期亏损2.23亿元，亏损同比扩大171.74%。
+这使得美元兑日元在160附近变得相当脆弱。
 
-这已是江淮汽车自2024年第四季度以来，连续第六个季度陷入亏损。
+此次升息虽然对日元有一定支撑作用，但并不足以缩小美日之间巨大的利差，尤其是如果美联储保持谨慎的话。
 
-业绩承压之下，江淮汽车高管团队总薪酬集体下调。
+7比1的投票结果也略微削弱了政策信号，因为这表明日本央行内部仍对紧缩政策对经济增长和就业的影响存在一定担忧。
 
-数据显示，公司董事、监事和高级管理人员2025年报酬总额为735.75万元，较2024年的929.06万元下降20.81%。
+这对日本股市构成温和支撑，因为日本央行虽在收紧政策，但目前尚未威胁到流动性或企业盈利。
 
-其中，董事总经理李明从2024年的78万元降至71万元，副总经理张鹏从2024年的86.11万元降至76.08万元。
+就外汇市场而言，更大的问题在于日元能否守住涨幅。
 
-为何“增收不增利” 尽管营收有所增长，江淮汽车的利润端未见好转。
+如果美元兑日元在加息后仍维持在160上方，干预风险将持续存在——尤其是考虑到美联储即将做出的决定，美元走软的背景可能为日本当局提供更好的行动窗口。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 05:07 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-30 05:18 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 05:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 05:00 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 05:04 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 05:24 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 05:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-30 05:22 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 05:21 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 05:02 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 05:24 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 05:14 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 05:06 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 05:32 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 05:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 05:27 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 05:27 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 05:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 05:19 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 05:24 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 05:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/0937236.shtml)
-- 2026-06-30 05:06 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/1318647.shtml)
-- 2026-06-30 05:25 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/873253249.shtml)
-- 2026-06-30 05:10 - [斛珠夫人](http://www.blog.minike.top/Article/details/497557586956.shtml)
-- 2026-06-30 05:02 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/3655979.shtml)
-- 2026-06-30 05:10 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/61767.shtml)
-- 2026-06-30 05:18 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/98742.shtml)
-- 2026-06-30 05:07 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/106335062.shtml)
-- 2026-06-30 05:15 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/66907.shtml)
-- 2026-06-30 05:16 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/7598872133.shtml)
-- 2026-06-30 05:05 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/031259.shtml)
-- 2026-06-30 05:28 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/15967487.shtml)
-- 2026-06-30 05:17 - [扫黑风暴](http://www.blog.minike.top/Article/details/740422.shtml)
-- 2026-06-30 05:19 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/1728540799.shtml)
-- 2026-06-30 05:15 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/325996026.shtml)
+- 2026-06-30 05:07 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/244540021.shtml)
+- 2026-06-30 05:26 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/88359950.shtml)
+- 2026-06-30 05:30 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/41464.shtml)
+- 2026-06-30 05:12 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/82097865712.shtml)
+- 2026-06-30 05:24 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/18986426464.shtml)
+- 2026-06-30 05:10 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/87515230.shtml)
+- 2026-06-30 05:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/50392485.shtml)
+- 2026-06-30 05:27 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/955255624.shtml)
+- 2026-06-30 05:16 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/713223.shtml)
+- 2026-06-30 05:16 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/243987679.shtml)
+- 2026-06-30 05:26 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/787860341964.shtml)
+- 2026-06-30 05:15 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/6402397.shtml)
+- 2026-06-30 05:10 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/34923.shtml)
+- 2026-06-30 05:15 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/72315.shtml)
+- 2026-06-30 05:28 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/00101332167.shtml)

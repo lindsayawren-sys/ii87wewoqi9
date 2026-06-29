@@ -1,56 +1,56 @@
-# 海口市税务局通报员工上班纪律问题：责令检查、通报批评、调离原工作岗位
+# 盘前交易阶段SpaceX股价大涨11%，上涨动能持续增强
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网海口5月21日电 (记者 王子谦)近日，有网友发布视频称，海口市税务局一工作人员上班时间玩手机，观看游戏视频。5月21日，国家税务总局海口市税务局通报：责令检查、通报批评、调离原工作岗位。 通报称：“近期，有群众反映，我局一名工作人员存在不遵守工作纪律的问题。对此，我局高度重视，第一时间进行调查核实。经查，2026年5月18日上午，我局工作人员谢某在工作期间使用手机观看游
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 周二 SpaceX 股价暴涨 11%。这家由埃隆・马斯克创立的航天企业在上周五完成创纪录 IPO 后，股价持续一路飙升。 继上市首日全线大涨 20% 之后，这家航天与人工智能企业的股票在盘前交易阶段再度大幅冲高。 SpaceX 首席执行官马斯克周日在社交平台 X 发文称，公司 “有望在 2030 年实现约 1
 
 ## 正文
 
-中新网海口5月21日电 (记者 王子谦)近日，有网友发布视频称，海口市税务局一工作人员上班时间玩手机，观看游戏视频。
+专题：SpaceX市值超越两家“七巨头” 拉开美股巨型IPO浪潮序幕 周二 SpaceX 股价暴涨 11%。
 
-5月21日，国家税务总局海口市税务局通报：责令检查、通报批评、调离原工作岗位。
+这家由埃隆・马斯克创立的航天企业在上周五完成创纪录 IPO 后，股价持续一路飙升。
 
-通报称：“近期，有群众反映，我局一名工作人员存在不遵守工作纪律的问题。
+继上市首日全线大涨 20% 之后，这家航天与人工智能企业的股票在盘前交易阶段再度大幅冲高。
 
-对此，我局高度重视，第一时间进行调查核实。
+SpaceX 首席执行官马斯克周日在社交平台 X 发文称，公司 “有望在 2030 年实现约 1 万亿美元营收”。
 
-经查，2026年5月18日上午，我局工作人员谢某在工作期间使用手机观看游戏视频，工作作风散漫，造成不良影响。
+SpaceX 成立于 2002 年，依托星链（Starlink）业务和可回收火箭技术，在卫星领域占据绝对主导地位。
 
-依据干部管理相关规定，我局给予谢某责令检查、通报批评、调离原工作岗位处理。
+2025 年，马斯克已将人工智能初创公司 xAI 与社交平台 X 完成整合；今年 2 月，他又推动 SpaceX 与 xAI 完成合并。
 
-下一步，我局将以此为鉴，举一反三，加强作风纪律建设，防止此类问题再次发生。
-
-欢迎社会各界继续对我局工作进行监督。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 05:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-30 05:24 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:08 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 05:26 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 05:06 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 05:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 05:26 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 05:05 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-30 05:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-30 05:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 05:23 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 05:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 05:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 05:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 05:24 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 05:07 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 05:15 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 05:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 05:17 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 05:11 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 05:17 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/5786214655.shtml)
-- 2026-06-30 05:24 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/552771.shtml)
-- 2026-06-30 05:29 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/006679283.shtml)
-- 2026-06-30 05:25 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/848660519686.shtml)
-- 2026-06-30 05:04 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/02169.shtml)
-- 2026-06-30 05:27 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/12615.shtml)
-- 2026-06-30 05:15 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/42334.shtml)
-- 2026-06-30 05:26 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/020574271.shtml)
-- 2026-06-30 05:27 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.kurohicncr.top/Article/details/24502659.shtml)
-- 2026-06-30 05:09 - [房价什么时候能涨](https://www.share.minike.top/Article/details/693753675.shtml)
-- 2026-06-30 05:15 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/42777910.shtml)
-- 2026-06-30 05:01 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/439135958568.shtml)
-- 2026-06-30 05:28 - [《共患难》](http://www.blog.minike.top/Article/details/496861474.shtml)
-- 2026-06-30 05:23 - [沙丘](http://www.share.kurohicncr.top/Article/details/402343026938.shtml)
-- 2026-06-30 05:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/451505980145.shtml)
+- 2026-06-30 05:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/400375.shtml)
+- 2026-06-30 05:24 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/02796253532.shtml)
+- 2026-06-30 05:20 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/1524771729.shtml)
+- 2026-06-30 05:10 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/121115509389.shtml)
+- 2026-06-30 05:22 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/864209711.shtml)
+- 2026-06-30 05:18 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/88793310.shtml)
+- 2026-06-30 05:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/50518793618.shtml)
+- 2026-06-30 05:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/35299473774.shtml)
+- 2026-06-30 05:20 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/165311474.shtml)
+- 2026-06-30 05:26 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/1590866.shtml)
+- 2026-06-30 05:16 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/497513757.shtml)
+- 2026-06-30 05:15 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/77429604074.shtml)
+- 2026-06-30 05:12 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/88385.shtml)
+- 2026-06-30 05:26 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/50807161.shtml)
+- 2026-06-30 05:12 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/3880952613.shtml)

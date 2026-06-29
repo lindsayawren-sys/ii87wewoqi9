@@ -1,47 +1,60 @@
-# 特朗普：美国将向波兰“增派”5000名士兵
+# 长江有色: 美伊和谈缓解供应危机避险溢价退潮 16日铝价或大跌
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 据路透社报道，当地时间21日，美国总统特朗普在社交媒体上称，美国将向波兰“增派”5000名士兵。 报道称，这一消息是在美国副总统万斯日前向媒体表示，美军部队部署到波兰的计划被推迟之后发布的。
+长江有色金属网 长江铝价alu.ccmn.cn短评：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大跌4.52%十周低位；中国产量扩张库存触顶，铝价下行强，贴水及下游淡季补库乏力，今现铝或大跌。 【铝期货市场】：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大幅下滑，盘中跌幅创下十周低位，最新收盘报价3383美元/吨，收跌160美元，跌幅4.52%，成交量48091手增加24198手，
 
 ## 正文
 
-中新网5月22日电 据路透社报道，当地时间21日，美国总统特朗普在社交媒体上称，美国将向波兰“增派”5000名士兵。
+长江有色金属网 长江铝价alu.ccmn.cn短评：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大跌4.52%十周低位；中国产量扩张库存触顶，铝价下行强，贴水及下游淡季补库乏力，今现铝或大跌。
 
-报道称，这一消息是在美国副总统万斯日前向媒体表示，美军部队部署到波兰的计划被推迟之后发布的。
+【铝期货市场】：美伊和谈缓解供应危机避险溢价退潮，隔夜伦铝大幅下滑，盘中跌幅创下十周低位，最新收盘报价3383美元/吨，收跌160美元，跌幅4.52%，成交量48091手增加24198手，持仓量643394手减少5917手。
+
+晚间沪铝同步外盘铝价大幅下挫，盘中触及最低位23730元/吨刷新自2026年3月26日以来最低点；主力月2606合约最新收盘价报23795元/吨，跌435元，跌幅1.80%。
+
+伦敦金属交易所（LME）6月13日伦铝最新库存量报319500吨，较上个交易日下降425吨，跌幅0.13%。
+
+长江铝业网讯：6月15日现货铝价，长江现货A00铝锭价报24130元/吨，跌10元；广东现货A00铝锭价报24120元/吨，跌20元。
+
+宏观层面，美伊达成和平协议，霍尔木兹海峡预期重开，海湾铝生产商（占全球约9%）供货前景改善，前期因地缘冲突推高的供应溢价被快速挤出。
+
+周一伦铝单日重挫逾5%至3383美元/吨，为四年来最大单日跌幅，跌破100日移动均线（3395美元）关键支撑；沪铝同步走弱，跌至3月26日以来新低。
+
+现货对三月期价差由两周前的溢价105美元转为贴水21美元，反映实物紧缺预期快速消退。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 05:17 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 05:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 05:22 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 05:02 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 05:13 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 05:29 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-30 05:24 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 05:07 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 05:24 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-30 05:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 05:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 05:15 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 05:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 05:34 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 05:13 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 05:14 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 05:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 05:07 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-30 05:24 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 05:22 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-30 05:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 05:25 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 05:15 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 05:34 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 05:19 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-30 05:16 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:17 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/3301475270.shtml)
-- 2026-06-30 05:16 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.blog.kurohicncr.top/Article/details/92607905557.shtml)
-- 2026-06-30 05:21 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/390010076.shtml)
-- 2026-06-30 05:25 - [千香](http://www.share.minike.top/Article/details/6085126882.shtml)
-- 2026-06-30 05:01 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/6924219846.shtml)
-- 2026-06-30 05:27 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/49382.shtml)
-- 2026-06-30 05:07 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/448721300.shtml)
-- 2026-06-30 05:21 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/30757683.shtml)
-- 2026-06-30 05:05 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/6168594.shtml)
-- 2026-06-30 05:05 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/2638980.shtml)
-- 2026-06-30 05:24 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/50963.shtml)
-- 2026-06-30 05:10 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/56034.shtml)
-- 2026-06-30 05:10 - [沙丘](http://www.blog.minike.top/Article/details/14894152445.shtml)
-- 2026-06-30 05:06 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/2500058.shtml)
-- 2026-06-30 05:20 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/606194492338.shtml)
+- 2026-06-30 05:33 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/97691829.shtml)
+- 2026-06-30 05:22 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/51857.shtml)
+- 2026-06-30 05:32 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/21468.shtml)
+- 2026-06-30 05:25 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/2862706676.shtml)
+- 2026-06-30 05:33 - [DeepSeek V4正式版要来了](http://www.blog.minike.top/Article/details/722288.shtml)
+- 2026-06-30 05:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/642732133.shtml)
+- 2026-06-30 05:33 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/1462672176.shtml)
+- 2026-06-30 05:25 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/52764771.shtml)
+- 2026-06-30 05:16 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/29925.shtml)
+- 2026-06-30 05:18 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/51206.shtml)
+- 2026-06-30 05:31 - [巴西替补奇兵读秒绝杀](https://www.blog.kurohicncr.top/Article/details/2757227.shtml)
+- 2026-06-30 05:17 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/3580852.shtml)
+- 2026-06-30 05:18 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/061316.shtml)
+- 2026-06-30 05:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/4025209.shtml)
+- 2026-06-30 05:31 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/1532942136.shtml)

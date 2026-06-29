@@ -1,50 +1,43 @@
-# 杭州银行：净息差呈现阶段性企稳的积极信号，趋势拐点仍需进一步确认
+# 辽宁省沈阳市人大常委会副主任曹鹏接受审查调查
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-5月21日金融一线消息，杭州银行发布投资者关系活动记录表。谈及今年以来资产端利率走势大致情况，以及2026年息差整体趋势，杭州银行表示，2026 年，受宏观经济延续恢复态势、市场利率中枢低位运行等因素影响，本行资产端收益预计仍处于小幅下行通道，由于存款利率下降更快，一季度净息差实现了企稳回升。尽管净息差呈现了阶段性企稳的积极信号，但趋势拐点仍需进一步确认，后续需重点观察资产、负
+中新网6月16日电 据辽宁省纪委监委消息：辽宁省沈阳市人大常委会党组成员、副主任，市总工会党组书记、主席曹鹏涉嫌严重违纪违法，目前正接受辽宁省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-5月21日金融一线消息，杭州银行发布投资者关系活动记录表。
-
-谈及今年以来资产端利率走势大致情况，以及2026年息差整体趋势，杭州银行表示，2026 年，受宏观经济延续恢复态势、市场利率中枢低位运行等因素影响，本行资产端收益预计仍处于小幅下行通道，由于存款利率下降更快，一季度净息差实现了企稳回升。
-
-尽管净息差呈现了阶段性企稳的积极信号，但趋势拐点仍需进一步确认，后续需重点观察资产、负债端存量利率和新发生利率的变化节奏。
-
-责任编辑：李琳琳
+中新网6月16日电 据辽宁省纪委监委消息：辽宁省沈阳市人大常委会党组成员、副主任，市总工会党组书记、主席曹鹏涉嫌严重违纪违法，目前正接受辽宁省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:24 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 05:12 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-30 05:20 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 05:05 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 05:29 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-30 05:23 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 05:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 05:03 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 05:21 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 05:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 05:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 05:31 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-30 05:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 05:33 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-30 05:19 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 05:12 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 05:20 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 05:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 05:35 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 05:32 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-30 05:17 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 05:13 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/610567408.shtml)
-- 2026-06-30 05:12 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/318071.shtml)
-- 2026-06-30 05:28 - [起风了](https://www.share.kurohicncr.top/Article/details/466376681.shtml)
-- 2026-06-30 05:06 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/2840849.shtml)
-- 2026-06-30 05:02 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/498310.shtml)
-- 2026-06-30 05:03 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/679041720.shtml)
-- 2026-06-30 05:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/9976111.shtml)
-- 2026-06-30 05:24 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/74431593763.shtml)
-- 2026-06-30 05:13 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/311610224.shtml)
-- 2026-06-30 05:06 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/9831504.shtml)
-- 2026-06-30 05:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/66192734.shtml)
-- 2026-06-30 05:18 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/3923549.shtml)
-- 2026-06-30 05:08 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/0445005724.shtml)
-- 2026-06-30 05:04 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/95729218871.shtml)
-- 2026-06-30 05:20 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/35119.shtml)
+- 2026-06-30 05:32 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/4365963.shtml)
+- 2026-06-30 05:28 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/87830221754.shtml)
+- 2026-06-30 05:14 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/356125.shtml)
+- 2026-06-30 05:11 - [第一炉香](http://www.share.minike.top/Article/details/8743130230.shtml)
+- 2026-06-30 05:24 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/03496195.shtml)
+- 2026-06-30 05:19 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/92531.shtml)
+- 2026-06-30 05:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/8708044.shtml)
+- 2026-06-30 05:34 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/459611850.shtml)
+- 2026-06-30 05:13 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/59265332116.shtml)
+- 2026-06-30 05:13 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/944923355385.shtml)
+- 2026-06-30 05:22 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/399520655366.shtml)
+- 2026-06-30 05:11 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/137830368.shtml)
+- 2026-06-30 05:17 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/11742088715.shtml)
+- 2026-06-30 05:23 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/2712617.shtml)
+- 2026-06-30 05:22 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/49479432295.shtml)

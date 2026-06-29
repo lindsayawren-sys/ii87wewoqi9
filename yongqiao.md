@@ -1,50 +1,54 @@
-# 联想CEO称目标两年内年度营收达1000亿美元
+# 威胜控股盘中涨超6% 公司拟启动不超2亿港元公开市场回购股份计划
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-联想集团第四财季营收创下五年来最大增幅，其CEO杨元庆表示，公司目标在未来两年内实现年度营收达到1000亿美元。 他为此提出了一项三管齐下的战略，包括扩大联想集团在设备领域的领导地位、抓住多年期的AI基础设施机遇，以及扩大其服务业务的规模。 该公司还计划探索更多形式的AI设备，包括可穿戴设备。责任编辑：于健 SF069
+威胜控股（03393）盘中涨超6%，截至发稿，股价上涨4.88%，现报23.22港元，成交额4815.58万港元。 威胜控股发布公告，决定启动从公开市场上回购股份的计划，公司将视乎市场情况于合适时间以不超过2亿港元总代价进行股份回购。董事会评估认为公司目前财务状况稳健，拥有足够资源进行上述回购计划，不会影响正常营运。 值得注意的是，威胜控股上月公布，附属惟远能源2026年至今新
 
 ## 正文
 
-联想集团第四财季营收创下五年来最大增幅，其CEO杨元庆表示，公司目标在未来两年内实现年度营收达到1000亿美元。
+威胜控股（03393）盘中涨超6%，截至发稿，股价上涨4.88%，现报23.22港元，成交额4815.58万港元。
 
-他为此提出了一项三管齐下的战略，包括扩大联想集团在设备领域的领导地位、抓住多年期的AI基础设施机遇，以及扩大其服务业务的规模。
+威胜控股发布公告，决定启动从公开市场上回购股份的计划，公司将视乎市场情况于合适时间以不超过2亿港元总代价进行股份回购。
 
-该公司还计划探索更多形式的AI设备，包括可穿戴设备。
+董事会评估认为公司目前财务状况稳健，拥有足够资源进行上述回购计划，不会影响正常营运。
 
-责任编辑：于健 SF069
+值得注意的是，威胜控股上月公布，附属惟远能源2026年至今新增海外业务合约总金额超16亿元，主要涵盖数据中心关键基础设施及相关解决方案，以及重合器等海外配电产品。
+
+董事会认为，上述订单的取得进一步巩固了公司在数据中心基础设施领域的领先地位，将有助于提升未来收入基础，并对2026年度的经营业绩产生积极影响。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 05:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 05:00 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 05:11 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 05:24 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 05:20 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-30 05:07 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 05:01 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 05:10 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 05:28 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 05:26 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
-- 2026-06-30 05:04 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-30 05:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 05:12 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 05:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 05:35 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 05:32 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 05:25 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 05:11 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 05:31 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 05:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 05:10 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 05:10 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 05:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/65715.shtml)
-- 2026-06-30 05:11 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/89976149444.shtml)
-- 2026-06-30 05:03 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/8833322.shtml)
-- 2026-06-30 05:24 - [世界杯](http://www.share.minike.top/Article/details/151103.shtml)
-- 2026-06-30 05:04 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/246860913976.shtml)
-- 2026-06-30 05:23 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/097567038303.shtml)
-- 2026-06-30 05:19 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/895176.shtml)
-- 2026-06-30 05:28 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/26324.shtml)
-- 2026-06-30 05:15 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/12149695.shtml)
-- 2026-06-30 05:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/452332018.shtml)
-- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/70101662668.shtml)
-- 2026-06-30 05:29 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/73990.shtml)
-- 2026-06-30 05:28 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/59572903284.shtml)
-- 2026-06-30 05:08 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/90236.shtml)
-- 2026-06-30 05:20 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/951139.shtml)
+- 2026-06-30 05:19 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/28471.shtml)
+- 2026-06-30 05:06 - [斗破苍穹](https://www.blog.minike.top/Article/details/32763.shtml)
+- 2026-06-30 05:11 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/805204737.shtml)
+- 2026-06-30 05:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/27768.shtml)
+- 2026-06-30 05:17 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/594488.shtml)
+- 2026-06-30 05:12 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/323917.shtml)
+- 2026-06-30 05:34 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/85507946339.shtml)
+- 2026-06-30 05:26 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/8068628.shtml)
+- 2026-06-30 05:14 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/0818899.shtml)
+- 2026-06-30 05:09 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/407428333777.shtml)
+- 2026-06-30 05:16 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/98791.shtml)
+- 2026-06-30 05:27 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/75856.shtml)
+- 2026-06-30 05:29 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/102763644140.shtml)
+- 2026-06-30 05:26 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/30055.shtml)
+- 2026-06-30 05:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/79561.shtml)

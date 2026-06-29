@@ -1,61 +1,57 @@
-# 一年涨价三倍！存储芯片“老兵”退场，谁在接盘？
+# 必胜客被卖了，价格182亿元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 骆轶琪 在全球争夺AI基础设施产能背景下，越来越多存储芯片品类开始面临紧俏行情，产能转移造成的供需缺口正在持续放大。 在三星、铠侠、美光等国际大厂集体退出MLC（Multi-Level Cell，多层单元）NAND闪存市场的背景下，这一曾经不起眼的“老兵”，产品价格近期暴涨300%。由此造成的供应缺口，正对汽车电子、工业控制、医疗设备等产业造成潜在影响。
+记者丨刘婧汐 易佳颖 编辑丨唐铮玮 梁明 陶力 6月16日晚，百胜餐饮集团宣布，已达成最终协议，以总计27亿美元（约人民币182.43亿）的价格分两笔交易出售必胜客业务。其中，私募股权公司LongRange Capital收购除中国大陆以外的必胜客业务，百胜中国控股有限公司收购中国大陆的必胜客业务。预计两项交易将于2026年第三季度完成。 与此同时，中国最大的餐饮集团百胜中国控
 
 ## 正文
 
-21世纪经济报道记者 骆轶琪 在全球争夺AI基础设施产能背景下，越来越多存储芯片品类开始面临紧俏行情，产能转移造成的供需缺口正在持续放大。
+记者丨刘婧汐 易佳颖 编辑丨唐铮玮 梁明 陶力 6月16日晚，百胜餐饮集团宣布，已达成最终协议，以总计27亿美元（约人民币182.43亿）的价格分两笔交易出售必胜客业务。
 
-在三星、铠侠、美光等国际大厂集体退出MLC（Multi-Level Cell，多层单元）NAND闪存市场的背景下，这一曾经不起眼的“老兵”，产品价格近期暴涨300%。
+其中，私募股权公司LongRange Capital收购除中国大陆以外的必胜客业务，百胜中国控股有限公司收购中国大陆的必胜客业务。
 
-由此造成的供应缺口，正对汽车电子、工业控制、医疗设备等产业造成潜在影响。
+预计两项交易将于2026年第三季度完成。
 
-NAND行业的发展规律是通过纵向堆叠来进行扩容，MLC正如其名，一般采用二维平面堆叠方式，也就是2D NAND。
+与此同时，中国最大的餐饮集团百胜中国控股有限公司宣布，已与Yum！
 
-目前行业主流已经迭代到TLC（Triple-Level Cell，三层单元）和QLC（Quad-Level Cell，四层单元）阶段，也就是进入3D NAND维度。
+Brands （美国的百胜环球公司） 签署最终协议，以12亿美元现金对价收购必胜客品牌在中国大陆的所有权。
 
-因此不难发现，上游存储供应商决定将MLC逐渐停产，有基于产品自身迭代的因素考量，也有将更多产能留给更高利润空间的考虑。
+交易完成后，百胜中国将从必胜客品牌在中国大陆的“独家特许经营商”转变为“品牌所有者”，必胜客中国将无须再向Yum！
 
-随着海外大厂陆续停产，也为国内产业链厂商带来一定发展机会。
+Brands支付特许经营费。
 
-涨价传导，供应断层 上游存储原厂在整体产能有限条件下，正退出一些薄利市场，MLC NAND就在此之列。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 05:24 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 05:23 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 05:16 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 05:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 05:22 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 05:24 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 05:10 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 05:04 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 05:26 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 05:24 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-30 05:27 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-30 05:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 05:13 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 05:14 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 05:32 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 05:08 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 05:27 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
+- 2026-06-30 05:08 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 05:27 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 05:20 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 05:35 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 05:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 05:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 05:21 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 05:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/3061121.shtml)
-- 2026-06-30 05:26 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/899767.shtml)
-- 2026-06-30 05:12 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/236196.shtml)
-- 2026-06-30 05:28 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/361928502.shtml)
-- 2026-06-30 05:07 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/12786876.shtml)
-- 2026-06-30 05:03 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/938416084214.shtml)
-- 2026-06-30 05:26 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/317078212.shtml)
-- 2026-06-30 05:24 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/102358758126.shtml)
-- 2026-06-30 05:02 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/6378155935.shtml)
-- 2026-06-30 05:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/556840646845.shtml)
-- 2026-06-30 05:19 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/482367.shtml)
-- 2026-06-30 05:02 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/79333424.shtml)
-- 2026-06-30 05:00 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/86664135.shtml)
-- 2026-06-30 05:15 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/73684047517.shtml)
-- 2026-06-30 05:00 - [我觉得你是在无中生友](https://www.blog.kurohicncr.top/Article/details/52530253.shtml)
+- 2026-06-30 05:16 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/5013386464.shtml)
+- 2026-06-30 05:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/2328762403.shtml)
+- 2026-06-30 05:23 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/05481500478.shtml)
+- 2026-06-30 05:18 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/4438388.shtml)
+- 2026-06-30 05:26 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/6230113002.shtml)
+- 2026-06-30 05:22 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/77923.shtml)
+- 2026-06-30 05:21 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/5054449147.shtml)
+- 2026-06-30 05:32 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/23469525410.shtml)
+- 2026-06-30 05:28 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/97474.shtml)
+- 2026-06-30 05:09 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/737343759931.shtml)
+- 2026-06-30 05:22 - [世界杯](https://www.blog.kurohicncr.top/Article/details/45840140.shtml)
+- 2026-06-30 05:16 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/3127558941.shtml)
+- 2026-06-30 05:16 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/87686489.shtml)
+- 2026-06-30 05:22 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/97987730096.shtml)
+- 2026-06-30 05:16 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/344639699.shtml)

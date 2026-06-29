@@ -1,58 +1,56 @@
-# 免费抽蒜薹 这账怎么“蒜”
+# 李强同越南总理黎明兴通电话
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-本报全媒体记者 宋沣益 李梦露 “免费抽蒜薹，管大锅菜，抽多少带走多少！”“谁给我门口挂的蒜薹掂走！”今年4月以来，河南大蒜主产区的蒜农纷纷在短视频上喊话，热搜层出不穷。相声演员曹云金也发声关注，“要蒜薹不”成为农业热梗。 网友们从城市涌向田间，有人驱车上百公里跨省专程来“薅羊毛”，有人把抽蒜薹当作亲子活动或团建项目。蒜农们则端出大锅菜、矿泉水笑脸相迎。 一场“免费抽蒜薹”的全
+中新社北京6月15日电 6月15日上午，中国国务院总理李强应约同越南总理黎明兴通电话。 李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。中越有着深厚传统友谊。中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人
 
 ## 正文
 
-本报全媒体记者 宋沣益 李梦露 “免费抽蒜薹，管大锅菜，抽多少带走多少！
+中新社北京6月15日电 6月15日上午，中国国务院总理李强应约同越南总理黎明兴通电话。
 
-”“谁给我门口挂的蒜薹掂走！
+李强表示，今年4月，习近平总书记、国家主席同访华的苏林总书记、国家主席举行会晤，就构建更高水平具有战略意义的中越命运共同体达成重要共识。
 
-”今年4月以来，河南大蒜主产区的蒜农纷纷在短视频上喊话，热搜层出不穷。
+近段时期，两国各部门各地方加紧推进访问成果落实，取得积极进展。
 
-相声演员曹云金也发声关注，“要蒜薹不”成为农业热梗。
+中越有着深厚传统友谊。
 
-网友们从城市涌向田间，有人驱车上百公里跨省专程来“薅羊毛”，有人把抽蒜薹当作亲子活动或团建项目。
+中方始终将越南视为周边外交的优先方向，愿同越方一道遵循两党两国最高领导人战略引领，加强团结互信，拓展互利合作，更好促进两国共同发展繁荣。
 
-蒜农们则端出大锅菜、矿泉水笑脸相迎。
+李强指出，中方愿同越方深入对接发展战略，推动两国贸易不断扩面提质，推进基础设施互联互通，加快跨境经济合作区建设，拓展能源矿产、数字经济、人工智能、金融等领域合作，实现更高水平互利共赢。
 
-一场“免费抽蒜薹”的全民狂欢，看似热闹，实则折射出中国大蒜产业的一个老问题：丰收了，蒜薹却卖不出人工钱。
+双方要共同办好“中越旅游合作年”等活动，落实“小而美”民生项目，妥善管控海上分歧，夯实两国友好民意基础。
 
-这背后，是种植结构、市场波动、机械化短板等多重因素叠加的结果。
+当前全球单边主义、保护主义抬头，中方愿同越方加强在联合国、世贸组织等多边机制协调配合，相互支持办好今明两年的亚太经合组织领导人非正式会议，推动建设开放型亚太经济，维护自由贸易和经济全球化。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 05:20 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 05:14 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 05:00 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 05:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-30 05:17 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-30 05:12 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 05:21 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 05:21 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 05:12 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 05:15 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 05:03 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 05:35 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 05:27 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-30 05:33 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 05:22 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 05:14 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 05:28 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 05:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 05:17 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 05:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 05:06 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/424649400.shtml)
-- 2026-06-30 05:14 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/630531.shtml)
-- 2026-06-30 05:26 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/5542823.shtml)
-- 2026-06-30 05:17 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/066535692668.shtml)
-- 2026-06-30 05:21 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/713543989392.shtml)
-- 2026-06-30 05:20 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/049113.shtml)
-- 2026-06-30 05:26 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/72048485599.shtml)
-- 2026-06-30 05:16 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/013690365634.shtml)
-- 2026-06-30 05:19 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/0600598.shtml)
-- 2026-06-30 05:19 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/5467791.shtml)
-- 2026-06-30 05:13 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/8777175.shtml)
-- 2026-06-30 05:12 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/31320279519.shtml)
-- 2026-06-30 05:16 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/49479262.shtml)
-- 2026-06-30 05:27 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/0645035464.shtml)
-- 2026-06-30 05:12 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/83923.shtml)
+- 2026-06-30 05:10 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/991183.shtml)
+- 2026-06-30 05:17 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/82218579.shtml)
+- 2026-06-30 05:22 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/37267.shtml)
+- 2026-06-30 05:27 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/587582.shtml)
+- 2026-06-30 05:06 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/598845357051.shtml)
+- 2026-06-30 05:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/190845987.shtml)
+- 2026-06-30 05:35 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/605826913.shtml)
+- 2026-06-30 05:06 - [内马尔替补](http://www.share.minike.top/Article/details/83981718.shtml)
+- 2026-06-30 05:19 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/257219.shtml)
+- 2026-06-30 05:33 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/4494300759.shtml)
+- 2026-06-30 05:07 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/7903181763.shtml)
+- 2026-06-30 05:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/28327979727.shtml)
+- 2026-06-30 05:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/39434.shtml)
+- 2026-06-30 05:18 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/41397091.shtml)
+- 2026-06-30 05:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/36422.shtml)

@@ -1,47 +1,61 @@
-# 美军“尼米兹”号航母打击群进入加勒比海
+# 藏木水电站通过竣工验收 已累计发电超222亿千瓦时
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 15:41 来源：央视新闻 责任编辑：【王祎】
+中新网拉萨6月15日电 (邱云 江波)15日，中国电建集团成都勘测设计研究院有限公司(以下简称“成都院”)介绍，西藏自治区第一座大型水电站雅鲁藏布江藏木水电站工程竣工验收会议近日召开。经专家组及竣工验收委员会全面评议，由成都院规划论证并承担全阶段勘测设计的藏木水电站，各项指标均达到设计标准和验收要求，顺利通过竣工验收。这标志着雅鲁藏布江干流上诞生了第一座通过竣工验收的大型水电站
 
 ## 正文
 
-发布时间：2026年05月21日 15:41 来源：央视新闻 责任编辑：【王祎】
+中新网拉萨6月15日电 (邱云 江波)15日，中国电建集团成都勘测设计研究院有限公司(以下简称“成都院”)介绍，西藏自治区第一座大型水电站雅鲁藏布江藏木水电站工程竣工验收会议近日召开。
+
+经专家组及竣工验收委员会全面评议，由成都院规划论证并承担全阶段勘测设计的藏木水电站，各项指标均达到设计标准和验收要求，顺利通过竣工验收。
+
+这标志着雅鲁藏布江干流上诞生了第一座通过竣工验收的大型水电站工程。
+
+验收会上，专家组听取了成都院关于工程设计等情况汇报。
+
+验收意见指出，藏木水电站枢纽工程已按批准的设计规模和方案全部建成，水库蓄水以来安全经受11个汛期考验，枢纽建筑物和过鱼设施运行正常，机电及金属结构设备满足生产运行要求，鱼道过鱼效果显著。
+
+竣工阶段枢纽工程等专项验收、鱼道特殊专项验收均已取得同意通过验收的明确结论。
+
+藏木水电站装机容量510兆瓦，最大坝高116米，是雅鲁藏布江干流规划建设的第一座大型水电站。
+
+工程于2010年9月开工建设，2015年10月实现全部机组投产发电。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 05:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 05:17 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 05:20 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 05:18 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 05:22 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 05:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 05:00 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 05:02 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 05:06 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-30 05:02 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-30 05:12 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 05:24 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-30 05:22 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 05:25 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 05:32 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 05:19 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-30 05:20 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 05:22 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 05:26 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
+- 2026-06-30 05:16 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 05:34 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 05:10 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 05:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 05:15 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-30 05:30 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:07 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 05:21 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 05:23 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 05:23 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:08 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/87743.shtml)
-- 2026-06-30 05:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/32408598416.shtml)
-- 2026-06-30 05:29 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/2696699.shtml)
-- 2026-06-30 05:24 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/07133840960.shtml)
-- 2026-06-30 05:07 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/86059843066.shtml)
-- 2026-06-30 05:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/32651367.shtml)
-- 2026-06-30 05:11 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/154797647039.shtml)
-- 2026-06-30 05:11 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/48113972.shtml)
-- 2026-06-30 05:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/445191884468.shtml)
-- 2026-06-30 05:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/356269403491.shtml)
-- 2026-06-30 05:19 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/36098699718.shtml)
-- 2026-06-30 05:13 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/086673864802.shtml)
-- 2026-06-30 05:02 - [一见倾心](https://www.share.minike.top/Article/details/39497331.shtml)
-- 2026-06-30 05:29 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/422216633484.shtml)
-- 2026-06-30 05:19 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/52679907829.shtml)
+- 2026-06-30 05:21 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/809014.shtml)
+- 2026-06-30 05:16 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/262304098303.shtml)
+- 2026-06-30 05:08 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/50486104406.shtml)
+- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/534361.shtml)
+- 2026-06-30 05:35 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/53712.shtml)
+- 2026-06-30 05:17 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/62236167473.shtml)
+- 2026-06-30 05:20 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/175495898.shtml)
+- 2026-06-30 05:13 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/0403996037.shtml)
+- 2026-06-30 05:32 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/12215.shtml)
+- 2026-06-30 05:18 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/36365586769.shtml)
+- 2026-06-30 05:28 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/01215.shtml)
+- 2026-06-30 05:17 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/688070428.shtml)
+- 2026-06-30 05:15 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/5646258377.shtml)
+- 2026-06-30 05:18 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/578511.shtml)
+- 2026-06-30 05:14 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/87681743.shtml)

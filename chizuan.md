@@ -1,60 +1,61 @@
-# 共促成渝汽车产业协同发展 2026第三届成渝地区（成都）汽车产业链生态合作大会开幕
+# 以赛育才 全国多地“10后”摔跤新星长春争锋
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网成都5月21日电 (祝欢)21日，2026第三届成渝地区(成都)汽车产业链生态合作大会在蓉开幕。本次大会以“向新向智·链接未来”为主题，来自政府、行业协会、整车及零部件企业的千余名嘉宾齐聚一堂，共促成渝汽车产业协同发展。 近年来，成渝地区双城经济圈建设上升为国家战略，两地汽车产业协同发展成效显著。目前，成渝地区已建成我国第三大汽车产业集群，集聚了28家整车制造企业、150
+中新网长春6月16日电 (高龙安 李彦国)赛场上，来自广东的“10后”摔跤小将麦政炫发挥沉稳，精准捕捉对手破绽连续得分，以近10分优势拿下一局。 由国家体育总局举重摔跤柔道运动管理中心、中国摔跤协会主办的2026年全国U15国际式摔跤锦标赛正在吉林长春举行，北京、广东、浙江、吉林等地的80余支队伍参赛，参赛运动员、教练员总计近千人。 本次比赛采用单败淘汰单复活赛制，赛程自6月1
 
 ## 正文
 
-中新网成都5月21日电 (祝欢)21日，2026第三届成渝地区(成都)汽车产业链生态合作大会在蓉开幕。
+中新网长春6月16日电 (高龙安 李彦国)赛场上，来自广东的“10后”摔跤小将麦政炫发挥沉稳，精准捕捉对手破绽连续得分，以近10分优势拿下一局。
 
-本次大会以“向新向智·链接未来”为主题，来自政府、行业协会、整车及零部件企业的千余名嘉宾齐聚一堂，共促成渝汽车产业协同发展。
+由国家体育总局举重摔跤柔道运动管理中心、中国摔跤协会主办的2026年全国U15国际式摔跤锦标赛正在吉林长春举行，北京、广东、浙江、吉林等地的80余支队伍参赛，参赛运动员、教练员总计近千人。
 
-近年来，成渝地区双城经济圈建设上升为国家战略，两地汽车产业协同发展成效显著。
+本次比赛采用单败淘汰单复活赛制，赛程自6月13日至17日，分男子自由式摔跤、男子古典式摔跤、女子自由式摔跤三大组别，依次开展资格赛、淘汰赛、复活赛，决出各级别决赛参赛选手。
 
-目前，成渝地区已建成我国第三大汽车产业集群，集聚了28家整车制造企业、1500余家规上汽车零部件企业，产业规模突破8000亿元。
+麦政炫参与的是52公斤级男子自由式摔跤角逐。
 
-2025年，成渝两地汽车总产量达372万辆，占全国总产量的11%，其中新能源汽车产量152.8万辆，同比增长47.3%，高于全国18.3个百分点。
+本届比赛广东队共派出5名选手，均为队内新人。
 
-全国每9台汽车中就有1台“成渝造”。
+教练洪晓槟表示，全国高水平赛事参赛机会难得，队员通过与各地选手同场竞技，能够快速熟悉多元技术打法，积累宝贵的大赛实战经验。
 
-成都市作为成渝汽车产业协同发展的重要一极，2025年全年整车产量93.2万辆、同比增长23.6%，其中新能源汽车产量同比增长181%，营收同比增长47.4%。
+全国U15国际式摔跤锦标赛已连续两年落户长春，这两届赛事也是该锦标赛创办以来参赛规模最大的两届，所有参赛选手均为“10后”，堪称国内摔跤后备人才的集中大检阅。
 
-截至目前，成都市已聚集一汽-大众、一汽丰田等整车企业12户，零部件企业1000余户，拥有汽车产能145.4万辆，形成了产业基础规模较大、产品种类齐全、产业链结构完整的新能源汽车与智能汽车产业集群。
+赛事裁判长董文侠介绍，近年来，摔跤运动在青少年群体普及度持续提升。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 05:15 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 05:01 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 05:16 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 05:07 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 05:18 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 05:04 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 05:08 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 05:22 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 05:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 05:16 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 05:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 05:24 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 05:24 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 05:07 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 05:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 05:29 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 05:22 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 05:18 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 05:34 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 05:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 05:08 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-30 05:09 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 05:33 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-30 05:24 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 05:11 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 05:06 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 05:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/088187033025.shtml)
-- 2026-06-30 05:14 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/25616453.shtml)
-- 2026-06-30 05:06 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/779601816.shtml)
-- 2026-06-30 05:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/0517869243.shtml)
-- 2026-06-30 05:04 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/92778.shtml)
-- 2026-06-30 05:21 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/09490351276.shtml)
-- 2026-06-30 05:20 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/60773.shtml)
-- 2026-06-30 05:26 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/0885956903.shtml)
-- 2026-06-30 05:27 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/538063364.shtml)
-- 2026-06-30 05:18 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/465510710736.shtml)
-- 2026-06-30 05:06 - [日本领先巴西](http://www.share.minike.top/Article/details/376784682.shtml)
-- 2026-06-30 05:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/22529816816.shtml)
-- 2026-06-30 05:25 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/9606511.shtml)
-- 2026-06-30 05:07 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/89364338.shtml)
-- 2026-06-30 05:21 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/96458010909.shtml)
+- 2026-06-30 05:26 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/08971.shtml)
+- 2026-06-30 05:09 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/97356.shtml)
+- 2026-06-30 05:25 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/707665659.shtml)
+- 2026-06-30 05:15 - [巴西vs日本](https://www.share.minike.top/Article/details/99840.shtml)
+- 2026-06-30 05:09 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/233155057.shtml)
+- 2026-06-30 05:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/27403529996.shtml)
+- 2026-06-30 05:29 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/87039.shtml)
+- 2026-06-30 05:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/29503.shtml)
+- 2026-06-30 05:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/930406.shtml)
+- 2026-06-30 05:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/998891908.shtml)
+- 2026-06-30 05:21 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/85671719.shtml)
+- 2026-06-30 05:34 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/620943087476.shtml)
+- 2026-06-30 05:27 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/51831430522.shtml)
+- 2026-06-30 05:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/558006632863.shtml)
+- 2026-06-30 05:25 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/85369218615.shtml)

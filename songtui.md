@@ -1,58 +1,57 @@
-# 当AI越来越“会教”，教师该做什么
+# 广西贺州成功避让一起山体滑坡灾害
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-从大模型到智能体，过去两年，人工智能(AI)技术的迅猛发展给教育领域带来一轮又一轮颠覆式影响。与此同时，教学层面围绕AI的讨论重点已经从“能不能用”逐渐转移到“该怎么用”。 有高中生希望利用AI自动分析自己的错题数据，帮助发现知识漏洞；有教师开始借助智能体完成备课、批改与学情分析；也有越来越多学生习惯向AI提问、与AI对话，甚至把AI当作“学习搭子”。 在5月中旬举办的2026
+中新网贺州6月16日电 (何娜 方国庆)广西壮族自治区自然资源厅16日介绍，近日，贺州市八步区步头镇梅花村滩头组突发山体滑坡，滑坡体方量约4500立方米，造成2间房屋倒塌、3间房屋严重受损。 据介绍，6月13日下午5时，广西自然资源厅、贺州市自然资源局先后发布八步区地质灾害气象风险黄色预警，要求属地加大巡查监测力度，筑牢临灾避险第一道防线。当晚7时，结合实时降雨情况，八步区自然
 
 ## 正文
 
-从大模型到智能体，过去两年，人工智能(AI)技术的迅猛发展给教育领域带来一轮又一轮颠覆式影响。
+中新网贺州6月16日电 (何娜 方国庆)广西壮族自治区自然资源厅16日介绍，近日，贺州市八步区步头镇梅花村滩头组突发山体滑坡，滑坡体方量约4500立方米，造成2间房屋倒塌、3间房屋严重受损。
 
-与此同时，教学层面围绕AI的讨论重点已经从“能不能用”逐渐转移到“该怎么用”。
+据介绍，6月13日下午5时，广西自然资源厅、贺州市自然资源局先后发布八步区地质灾害气象风险黄色预警，要求属地加大巡查监测力度，筑牢临灾避险第一道防线。
 
-有高中生希望利用AI自动分析自己的错题数据，帮助发现知识漏洞；有教师开始借助智能体完成备课、批改与学情分析；也有越来越多学生习惯向AI提问、与AI对话，甚至把AI当作“学习搭子”。
+当晚7时，结合实时降雨情况，八步区自然资源局值班人员第一时间对步头镇开展叫应提醒。
 
-在5月中旬举办的2026世界数字教育大会“为未来学校准备教师”平行会议上，围绕人工智能如何重塑教师角色、课堂生态与学生学习方式，来自高校、国际组织、科技企业的多位专家学者通过一系列讨论，不断触及核心问题：当AI越来越“会教”，教师究竟该做什么？
+乡镇闻令而动，迅速将防灾提醒传达至各村委。
 
-如何教学生“毫无顾虑”地使用AI“教师不是创新的障碍，也不是体系中的问题；他们是体系的脊梁，也是体系转型的关键。
+村民黄亚金接到提醒后，当即收拾随身物品撤离，转移至安全地带。
 
-”论坛现场，爱尔兰教育大会主席安妮·鲁尼提出这一观点。
+6月14日早上6时许，黄亚金房屋后面山体发生滑坡，滑坡体方量约4500立方米，导致2间房屋倒塌、3间房屋严重受损，部分滑坡体涌入房屋，现场极为惊险。
 
-她注意到，全球越来越多国家正在重新构建教师能力框架，人工智能素养、AI驱动的新教学法和教师持续专业学习，已经成为未来教师的核心能力。
+依托自治区、市、县(区)等多级联动地质灾害防范体系，得益于预警传递、巡查监测、叫应转移等全流程高效落地，受威胁群众提前撤离至安全区域，成功避免人员伤亡。
 
-这种趋势，在中国基础教育领域同样明显。
+灾情发生后，广西自然资源厅第一时间派出广西地质环境监测站专家赶赴现场，联合属地划定危险区、设置警示线，勘查滑坡形成机理，科学排查潜在隐患，严防次生灾害发生。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 05:02 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 05:05 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 05:22 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-30 05:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 05:28 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 05:29 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
-- 2026-06-30 05:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:26 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 05:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 05:09 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-30 05:06 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 05:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 05:35 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 05:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 05:07 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 05:07 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 05:06 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 05:22 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 05:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 05:32 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 05:28 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 05:15 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/636071693972.shtml)
-- 2026-06-30 05:06 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/176379723354.shtml)
-- 2026-06-30 05:27 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/9996936044.shtml)
-- 2026-06-30 05:30 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/6133277701.shtml)
-- 2026-06-30 05:12 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/8404723.shtml)
-- 2026-06-30 05:20 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/12272.shtml)
-- 2026-06-30 05:05 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/74692706436.shtml)
-- 2026-06-30 05:24 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/147298561.shtml)
-- 2026-06-30 05:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/80350026.shtml)
-- 2026-06-30 05:10 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/027236.shtml)
-- 2026-06-30 05:22 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/8887083261.shtml)
-- 2026-06-30 05:17 - [猛龙快船交易或将达成](https://www.blog.minike.top/Article/details/15641622.shtml)
-- 2026-06-30 05:13 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/639588.shtml)
-- 2026-06-30 05:28 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/82637585044.shtml)
-- 2026-06-30 05:16 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/9568814.shtml)
+- 2026-06-30 05:07 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/2732050.shtml)
+- 2026-06-30 05:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/4773828798.shtml)
+- 2026-06-30 05:07 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/0563263.shtml)
+- 2026-06-30 05:23 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/2590338.shtml)
+- 2026-06-30 05:29 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/447258093611.shtml)
+- 2026-06-30 05:17 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/76629003.shtml)
+- 2026-06-30 05:25 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/968815785276.shtml)
+- 2026-06-30 05:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/3540582.shtml)
+- 2026-06-30 05:34 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/75650693836.shtml)
+- 2026-06-30 05:23 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/835194696808.shtml)
+- 2026-06-30 05:30 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/0052219.shtml)
+- 2026-06-30 05:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/0456784254.shtml)
+- 2026-06-30 05:13 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/2590776920.shtml)
+- 2026-06-30 05:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/28755143.shtml)
+- 2026-06-30 05:35 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/943411348621.shtml)

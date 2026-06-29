@@ -1,57 +1,57 @@
-# 摩科瑞起诉波罗的海交易所道达尔紧随其后 业界担忧运费基准遭操纵
+# 从187亿到1万亿：马斯克要用五年“再造50个SpaceX”
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-道达尔能源正考虑对波罗的海交易所采取法律行动，此前摩科瑞已提起类似诉讼。当前，法律纠纷正威胁着要撕裂关系紧密的石油航运世界。 霍尔木兹海峡事实上被封锁，已给航运业用于对冲全球油轮运价波动的基准指数和衍生品合约带来了混乱——航运业高管警告称，商业纠纷可能会持续“数年”。 其中最引人注目的是瑞士贸易商摩科瑞于4月30日在伦敦高等法院对波罗的海交易所提起的诉讼。据知情人士透露，道达尔
+来源：TechWeb 6月16日消息，当SpaceX以超2万亿美元的市值在纳斯达克挂牌，成为美国第六大上市公司时，埃隆·马斯克已经创造了历史，成为人类历史上首位净资产突破1万亿美元的富豪。 日前，马斯克在社交媒体平台X上抛出了一个更加惊人的目标。他表示，预计SpaceX到2030年的营收有望达到约1万亿美元，“如果到2031年营收没有超过1万亿美元，我会感到惊讶”。而根据Spa
 
 ## 正文
 
-道达尔能源正考虑对波罗的海交易所采取法律行动，此前摩科瑞已提起类似诉讼。
+来源：TechWeb 6月16日消息，当SpaceX以超2万亿美元的市值在纳斯达克挂牌，成为美国第六大上市公司时，埃隆·马斯克已经创造了历史，成为人类历史上首位净资产突破1万亿美元的富豪。
 
-当前，法律纠纷正威胁着要撕裂关系紧密的石油航运世界。
+日前，马斯克在社交媒体平台X上抛出了一个更加惊人的目标。
 
-霍尔木兹海峡事实上被封锁，已给航运业用于对冲全球油轮运价波动的基准指数和衍生品合约带来了混乱——航运业高管警告称，商业纠纷可能会持续“数年”。
+他表示，预计SpaceX到2030年的营收有望达到约1万亿美元，“如果到2031年营收没有超过1万亿美元，我会感到惊讶”。
 
-其中最引人注目的是瑞士贸易商摩科瑞于4月30日在伦敦高等法院对波罗的海交易所提起的诉讼。
+而根据SpaceX上市招股说明书披露的数据，公司2025年的营收约为187亿美元。
 
-据知情人士透露，道达尔能源的石油贸易部门Totsa也在考虑就该交易所的决定采取法律行动。
+这意味着，从187亿到1万亿，马斯克计划在短短五年内将营收翻超过50倍。
 
-该交易所负责评估并发布运价，这些运价为许多航运合同提供了定价依据。
+据外媒报道，高盛估计SpaceX在2030年的收入将超过4700亿美元，而摩根士丹利预计SpaceX在2028年的收入将达到1600亿美元，2030年达3300亿美元。
 
-伊朗战争的影响已波及航运和能源市场。
+支撑其野心的关键，是SpaceX无与伦比的垂直整合能力。
 
-海峡运输中断导致大量石油货物被取消或推迟交付，从而引发了石油买卖双方之间的诉讼激增。
+SpaceX早已不再是一家单纯的火箭发射公司，而是演变成了一个在航天、连接与人工智能三大支柱赛道构筑了极度垂直整合闭环的恐怖巨无霸。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 05:16 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 05:24 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 05:12 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 05:18 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 05:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 05:12 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 05:27 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 05:30 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 05:05 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 05:10 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 05:14 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-30 05:35 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 05:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 05:12 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 05:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 05:26 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 05:12 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 05:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 05:19 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 05:33 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 05:09 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/759802.shtml)
-- 2026-06-30 05:06 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/468211.shtml)
-- 2026-06-30 05:05 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/78237.shtml)
-- 2026-06-30 05:26 - [我们的少年时代2](http://www.share.minike.top/Article/details/29856327.shtml)
-- 2026-06-30 05:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/9367977316.shtml)
-- 2026-06-30 05:24 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/8738200.shtml)
-- 2026-06-30 05:20 - [刘念回应](https://www.share.minike.top/Article/details/560859.shtml)
-- 2026-06-30 05:27 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/879494450.shtml)
-- 2026-06-30 05:10 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/233609571260.shtml)
-- 2026-06-30 05:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/5388506.shtml)
-- 2026-06-30 05:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/396478372.shtml)
-- 2026-06-30 05:10 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/571954352694.shtml)
-- 2026-06-30 05:06 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/923834.shtml)
-- 2026-06-30 05:28 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/697856856.shtml)
-- 2026-06-30 05:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/387193.shtml)
+- 2026-06-30 05:26 - [内马尔替补](http://www.share.minike.top/Article/details/9733305.shtml)
+- 2026-06-30 05:14 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/9078551733.shtml)
+- 2026-06-30 05:30 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/18928419939.shtml)
+- 2026-06-30 05:07 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/73998380108.shtml)
+- 2026-06-30 05:15 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/4169993714.shtml)
+- 2026-06-30 05:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/2289078.shtml)
+- 2026-06-30 05:09 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/93397415478.shtml)
+- 2026-06-30 05:10 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/5646856.shtml)
+- 2026-06-30 05:27 - [在没有空调的巴黎感受世纪热浪](http://www.share.kurohicncr.top/Article/details/877271379831.shtml)
+- 2026-06-30 05:22 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/5579221.shtml)
+- 2026-06-30 05:08 - [佐野海舟远射破门](http://www.blog.kurohicncr.top/Article/details/25428679176.shtml)
+- 2026-06-30 05:15 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/5120547651.shtml)
+- 2026-06-30 05:10 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/83372697820.shtml)
+- 2026-06-30 05:15 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/81172.shtml)
+- 2026-06-30 05:32 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/49038.shtml)

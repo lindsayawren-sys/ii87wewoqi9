@@ -1,60 +1,52 @@
-# 从送水工到全国劳模：贾向东以焊花书写“匠心照征程”之路
+# 意大利监管机构依据欧盟数字法对苹果iCloud服务展开调查
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网太原5月22日电 题：从送水工到全国劳模：贾向东以焊花书写“匠心照征程”之路 作者 赵亮宇 “我是一名从农村走出来的工人，手里的焊枪，就是我追梦的翅膀。”5月22日，刚刚在全国总工会机关完成主题宣讲的全国劳动模范、全国五一劳动奖章获得者、中国能建山西院工程承包分公司一级技能专家贾向东，讲述了自己走出农村、从送水工成长为全国劳模的奋斗历程。 今年4月，贾向东站在全国总工会机
+意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。 根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。 该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位
 
 ## 正文
 
-中新网太原5月22日电 题：从送水工到全国劳模：贾向东以焊花书写“匠心照征程”之路 作者 赵亮宇 “我是一名从农村走出来的工人，手里的焊枪，就是我追梦的翅膀。
+意大利反垄断监管机构周二表示，已对苹果公司展开调查，以查明其是否遵守了《欧洲数字市场法》规定的互操作性义务。
 
-”5月22日，刚刚在全国总工会机关完成主题宣讲的全国劳动模范、全国五一劳动奖章获得者、中国能建山西院工程承包分公司一级技能专家贾向东，讲述了自己走出农村、从送水工成长为全国劳模的奋斗历程。
+根据该法规定，苹果必须确保第三方消费者云服务提供商能够与通过苹果iOS和iPadOS操作系统控制的硬件和软件组件有效且免费地互操作，并享有与苹果iCloud服务同等的访问权限。
 
-今年4月，贾向东站在全国总工会机关的报告台上，以《匠心铸魂实干建功以劳模精神、劳动精神、工匠精神书写新时代产业工人答卷》为题，回顾了自己的成长之路。
+该机构在声明中表示，他们有证据表明，其他消费者云服务提供商不可能与iCloud处于相同的地位，因为它们似乎无法访问苹果服务所使用的或提供给苹果的相同组件。
 
-这是他时隔多年再次走进全总机关，而最令他终生难忘的，是2013年4月28日——那一年他30岁，在这里参加了全国劳模代表座谈会。
+这是意大利监管机构首次根据欧盟《数字市场法》展开调查，该法允许各国监管机构进行初步调查。
 
-13年过去，当年的场景依然历历在目。
+该机构表示，调查结果将提交给欧盟委员会。
 
-他的这段珍贵经历，成为激励新时代产业工人的生动教材。
-
-这位从山西天镇贫困农村走出来的少年，从扛水桶的送水工，到手握焊枪的全国劳动模范、全国五一劳动奖章获得者，再到新能源总承包项目带头人，二十余载光阴，他以焊枪为笔，以匠心为墨，在焊花飞溅中书写着新时代产业工人的奋斗答卷。
-
-初心如磐：苦难里扎根 1983年，贾向东出生在山西天镇县的旧窑洞里。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 05:24 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 05:21 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 05:14 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 05:19 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 05:22 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 05:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 05:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-30 05:14 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 05:16 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 05:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 05:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 05:10 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
-- 2026-06-30 05:02 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 05:33 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 05:26 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 05:35 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:07 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 05:31 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 05:17 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 05:20 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 05:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 05:22 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 05:31 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:26 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/93521727.shtml)
-- 2026-06-30 05:10 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/97396816279.shtml)
-- 2026-06-30 05:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/275654481.shtml)
-- 2026-06-30 05:26 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/119898374.shtml)
-- 2026-06-30 05:26 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/566709999.shtml)
-- 2026-06-30 05:15 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/03101899.shtml)
-- 2026-06-30 05:26 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/68921.shtml)
-- 2026-06-30 05:21 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/46060833.shtml)
-- 2026-06-30 05:10 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/7637024440.shtml)
-- 2026-06-30 05:16 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/361724945.shtml)
-- 2026-06-30 05:14 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/565332.shtml)
-- 2026-06-30 05:07 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/32851000.shtml)
-- 2026-06-30 05:18 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/30155592512.shtml)
-- 2026-06-30 05:22 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/893972115297.shtml)
-- 2026-06-30 05:21 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/2197627.shtml)
+- 2026-06-30 05:33 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/0445986484.shtml)
+- 2026-06-30 05:26 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/35710211.shtml)
+- 2026-06-30 05:17 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/619952751488.shtml)
+- 2026-06-30 05:09 - [千香](https://www.share.minike.top/Article/details/2392141719.shtml)
+- 2026-06-30 05:12 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/46613062747.shtml)
+- 2026-06-30 05:32 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/0306401.shtml)
+- 2026-06-30 05:12 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/04809189.shtml)
+- 2026-06-30 05:15 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/68571559.shtml)
+- 2026-06-30 05:23 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/92544.shtml)
+- 2026-06-30 05:30 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/788121988401.shtml)
+- 2026-06-30 05:20 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/7835121559.shtml)
+- 2026-06-30 05:12 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/9067156.shtml)
+- 2026-06-30 05:31 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/19466817199.shtml)
+- 2026-06-30 05:09 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/09706433.shtml)
+- 2026-06-30 05:34 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/132713889348.shtml)

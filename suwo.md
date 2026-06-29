@@ -1,59 +1,58 @@
-# “靠酒生财”玩砸了？去年采购1.2亿元“茅台系列酒”，纯聚科技还是难挽亏损
+# 全国民营企业绿色发展大会签约27个项目 总投资额超100亿
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|刘明涛 每经编辑|肖芮冬 曾依靠电商渠道销售茅台系列酒走红的新三板企业纯聚科技，正遭遇业绩与资本双重打击。2025年该公司营收下滑、由盈转亏，亏损超过2000万元，资金链紧张不得不申请授信。 而其所在京东电商平台的茅台系列酒已无货销售，经营现状堪忧。《每日经济新闻·将进酒》记者注意到，纯聚科技此前冲击北交所IP
+中新网海口6月17日电(记者 符宇群)2026全国民营企业绿色发展大会民营企业投资项目对接活动签约仪式16日在海口举行。活动现场，27个项目签约，总投资额超100亿元，涵盖高端制造、跨境物流、文旅康养等领域，为海南自贸港现代化产业体系注入强劲动能。 本次大会签约项目质效兼备，精准赋能自贸港绿色发展。在高端制造与新材料项目，海口海南宏旺半导体、优达捷瑞智能应急装备研发生产基地、洋
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 每经记者|刘明涛 每经编辑|肖芮冬 曾依靠电商渠道销售茅台系列酒走红的新三板企业纯聚科技，正遭遇业绩与资本双重打击。
+中新网海口6月17日电(记者 符宇群)2026全国民营企业绿色发展大会民营企业投资项目对接活动签约仪式16日在海口举行。
 
-2025年该公司营收下滑、由盈转亏，亏损超过2000万元，资金链紧张不得不申请授信。
+活动现场，27个项目签约，总投资额超100亿元，涵盖高端制造、跨境物流、文旅康养等领域，为海南自贸港现代化产业体系注入强劲动能。
 
-而其所在京东电商平台的茅台系列酒已无货销售，经营现状堪忧。
+本次大会签约项目质效兼备，精准赋能自贸港绿色发展。
 
-《每日经济新闻·将进酒》记者注意到，纯聚科技此前冲击北交所IPO未果，且内控缺陷被监管点名，如今叠加白酒消费走弱，该公司已告别“靠酒生财”的黄金期。
+在高端制造与新材料项目，海口海南宏旺半导体、优达捷瑞智能应急装备研发生产基地、洋浦河北桥建冷轧带钢等项目落地，聚焦芯片研发、特种智能装备、特种钢材等细分领域，项目补齐产业链关键短板，践行节能降碳要求，不断夯实海南绿色制造产业根基。
 
-作为零售业企业，纯聚科技是面向国内优质消费类品牌的电子商务综合服务提供商，其曾因销售茅台系列酒和钓鱼台等名酒而备受一级市场关注。
+跨境商贸与现代物流项目方面，三亚圆通速递商贸物流中心、儋州电视保税维修等项目将依托海南自贸港零关税、保税维修、跨境电商等政策红利，打造国际货物中转、跨境资金结算、保税运维全链条服务体系，推广绿色仓储、低碳运输模式，助力外向型经济提质升级。
 
-然而，市场降温，却让纯聚科技的经营急转直下。
+绿色低碳与农林精深加工项目是本次大会招商的核心亮点。
 
-纯聚科技2025年年报显示，2025年公司营业收入3.11亿元，同比下降10.38%；归母净利润亏损2125.78万元，同比由盈转亏；毛利率更是从2024年的17.02%大跌至3.16%。
+海口生物降解材料生产及国际总部、澄迈新能源专用车产业区、保亭储能电站、定安双喜苹果防水涂料等项目集中落地，聚焦新型储能、可降解新材料、新能源装备、热带农产品深加工等赛道，积极服务无废岛、零碳园区建设，推动能源结构优化和产业绿色转型，实现生态效益、经济效益、乡村发展协同共进。
 
-纯聚科技方面表示，公司2025年业绩下滑主因是消费降级、白酒市场低迷，同时为完成酒厂配额，大幅降低毛利销售以快速回流资金。
+文旅康养、休闲渔业与城市综合开发领域方面，三亚国际高寒病专科医院、文昌糟粕醋文化休闲庄园、琼海博鳌留客文旅区改造等项目签约落地。
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 05:29 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 05:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 05:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 05:08 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 05:17 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-30 05:03 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 05:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 05:29 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 05:10 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 05:09 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 05:05 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-30 05:31 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 05:09 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 05:06 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 05:10 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-30 05:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 05:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 05:33 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 05:33 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 05:30 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 05:28 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 05:22 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 05:14 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/06974398969.shtml)
-- 2026-06-30 05:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/59882.shtml)
-- 2026-06-30 05:24 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/52286.shtml)
-- 2026-06-30 05:07 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/7133722618.shtml)
-- 2026-06-30 05:24 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/49066425.shtml)
-- 2026-06-30 05:14 - [啊啊啊](http://www.share.minike.top/Article/details/857218511.shtml)
-- 2026-06-30 05:20 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/425964.shtml)
-- 2026-06-30 05:20 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/472152.shtml)
-- 2026-06-30 05:23 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/6566522.shtml)
-- 2026-06-30 05:04 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/82046.shtml)
-- 2026-06-30 05:26 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/6552889.shtml)
-- 2026-06-30 05:21 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/65223947.shtml)
-- 2026-06-30 05:19 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/47945.shtml)
-- 2026-06-30 05:02 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/4143804.shtml)
-- 2026-06-30 05:07 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/28556.shtml)
+- 2026-06-30 05:23 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/211166479791.shtml)
+- 2026-06-30 05:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/2514861517.shtml)
+- 2026-06-30 05:33 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/111429.shtml)
+- 2026-06-30 05:14 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/0755496445.shtml)
+- 2026-06-30 05:25 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/294476664.shtml)
+- 2026-06-30 05:19 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/6880607424.shtml)
+- 2026-06-30 05:31 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/763218868.shtml)
+- 2026-06-30 05:14 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/606466.shtml)
+- 2026-06-30 05:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/518786267695.shtml)
+- 2026-06-30 05:15 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/4522287.shtml)
+- 2026-06-30 05:11 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/95347648.shtml)
+- 2026-06-30 05:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/784367252513.shtml)
+- 2026-06-30 05:14 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/868329695.shtml)
+- 2026-06-30 05:11 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/484387.shtml)
+- 2026-06-30 05:19 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/57024502535.shtml)

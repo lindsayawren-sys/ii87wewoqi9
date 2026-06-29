@@ -1,59 +1,61 @@
-# Barnwell第二季度净亏损收窄至每股0.09美元 成本削减初见成效
+# 华泰期货：沪金、沪银昨日大涨，后市怎么看？
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-Barnwell Industries于5月21日公布了截至2026年3月31日的第二财季业绩。财报显示，公司当季营收为253.5万美元，归属于Barnwell股东的净亏损为115万美元，合每股亏损0.09美元，较上一季度的每股亏损0.13美元有所改善。 公司在本季度继续受益于行政开支的降低、油气运营业绩的改善以及总部从夏威夷火奴鲁鲁迁至休斯顿的顺利完成。工资和奖金较上一季度下
+来源：华泰期货 作者： 新能源有色金属组 贵金属价格昨日内大幅走强，主力合约沪金2608收于938.94元/克，涨幅4.22%；主力合约沪银2608收于16876元/千克，涨幅7.70%。地缘上美伊谈判取得重大进展，市场对于基于原油价格的通胀预期显著降温，推动贵金属价格大幅反弹。 消息面上，美国总统特朗普表示，美国与伊朗协议已达成，特此全权批准霍尔木兹海峡免费通行，同时也授权立
 
 ## 正文
 
-Barnwell Industries于5月21日公布了截至2026年3月31日的第二财季业绩。
+来源：华泰期货 作者： 新能源有色金属组 贵金属价格昨日内大幅走强，主力合约沪金2608收于938.94元/克，涨幅4.22%；主力合约沪银2608收于16876元/千克，涨幅7.70%。
 
-财报显示，公司当季营收为253.5万美元，归属于Barnwell股东的净亏损为115万美元，合每股亏损0.09美元，较上一季度的每股亏损0.13美元有所改善。
+地缘上美伊谈判取得重大进展，市场对于基于原油价格的通胀预期显著降温，推动贵金属价格大幅反弹。
 
-公司在本季度继续受益于行政开支的降低、油气运营业绩的改善以及总部从夏威夷火奴鲁鲁迁至休斯顿的顺利完成。
+消息面上，美国总统特朗普表示，美国与伊朗协议已达成，特此全权批准霍尔木兹海峡免费通行，同时也授权立即解除美国海军对伊朗封锁。
 
-工资和奖金较上一季度下降26%，一般及行政开支从161.6万美元降至152.1万美元。
+巴基斯坦总理夏巴兹·谢里夫表示，经过密集谈判，美国与伊朗和平协议已达成。
 
-经调整后的现金一般及行政开支为139.2万美元，环比下降8%。
+双方宣布立即、永久停止所有战线军事行动，黎巴嫩境内战事亦同步终止。
 
-油气业务运营业绩环比增长11.9万美元，达到8.7万美元的正收益，主要得益于运营费用和折耗费用的下降。
+协议正式签署仪式将于6月19日在瑞士举行。
 
-公司继续保持无负债状态，季末现金及现金等价物为401.6万美元，营运资本为215.2万美元。
+此外伊朗高级官员称，根据与美国达成的谅解备忘录草案，德黑兰同意既不生产也不获取核武器。
 
-此外，公司正在对加拿大油气业务进行战略评估，包括潜在的资产出售可能性。
+在达成最终协议之前，伊朗同意维持核现状，包括不进行铀浓缩或扩建核设施。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 05:03 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 05:16 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-30 05:13 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 05:05 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
-- 2026-06-30 05:11 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 05:05 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 05:18 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 05:03 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-30 05:05 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-30 05:29 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 05:09 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 05:14 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-30 05:22 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 05:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 05:13 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 05:24 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-30 05:11 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 05:32 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 05:08 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 05:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 05:33 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 05:28 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 05:26 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 05:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 05:28 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 05:27 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/943208.shtml)
-- 2026-06-30 05:11 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/0607110.shtml)
-- 2026-06-30 05:03 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/895486556.shtml)
-- 2026-06-30 05:10 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/08569108.shtml)
-- 2026-06-30 05:19 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/7684926.shtml)
-- 2026-06-30 05:28 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/456109.shtml)
-- 2026-06-30 05:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/1221421.shtml)
-- 2026-06-30 05:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/6676002.shtml)
-- 2026-06-30 05:10 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/4314467.shtml)
-- 2026-06-30 05:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/9993476.shtml)
-- 2026-06-30 05:20 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/908704793.shtml)
-- 2026-06-30 05:04 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/898629225.shtml)
-- 2026-06-30 05:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/5226406.shtml)
-- 2026-06-30 05:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/101239.shtml)
-- 2026-06-30 05:07 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/0875238421.shtml)
+- 2026-06-30 05:29 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/11530470.shtml)
+- 2026-06-30 05:18 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/8136564.shtml)
+- 2026-06-30 05:28 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/890419443531.shtml)
+- 2026-06-30 05:22 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/83220140.shtml)
+- 2026-06-30 05:11 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/877728418611.shtml)
+- 2026-06-30 05:35 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/332341862800.shtml)
+- 2026-06-30 05:32 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/67267619081.shtml)
+- 2026-06-30 05:07 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/4725594.shtml)
+- 2026-06-30 05:26 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/648818600.shtml)
+- 2026-06-30 05:21 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/65945.shtml)
+- 2026-06-30 05:30 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/58777.shtml)
+- 2026-06-30 05:13 - [斛珠夫人](http://www.blog.minike.top/Article/details/534549261.shtml)
+- 2026-06-30 05:18 - [急先锋](http://www.blog.minike.top/Article/details/43654536949.shtml)
+- 2026-06-30 05:28 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/865164252219.shtml)
+- 2026-06-30 05:34 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/6671322364.shtml)

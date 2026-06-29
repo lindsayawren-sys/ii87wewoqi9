@@ -1,55 +1,57 @@
-# “茶和天下·雅集”暨“你好！中国”旅游推介活动在贝尔法斯特举行
+# 健康管理“知易行难”僵局松动：“保险+健康”进入AI融合快进期，生态升维加速兑现
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网伦敦5月22日电 (记者 欧阳开宇)5月21日，“国际茶日”当天，中国驻贝尔法斯特总领馆举办“茶和天下·雅集”暨“你好！中国”旅游推介活动。李南总领事出席并致辞，英国北爱尔兰政商文教旅各界逾50名嘉宾出席。李南介绍茶的历史渊源、精神智慧、国际影响与时代意义，表示中国是茶的故乡，“茶和天下”活动首次来到北爱，正是希望以茶为媒，传递和平、包容、共享的理念。 北爱艺委会首席执行
+蓝鲸新闻6月16日讯（记者 石雨）健康管理在保险业喊了多年，却始终“知易行难”——同质化严重、用户获得感低、闭环难形成。 如今，AI技术的快速迭代正让局面开始松动。从AI健康管家到运动数据联动保险激励，从千人千面的健康方案到可规模化的运营体系，保险机构正试图借AI撬动一场从被动理赔到主动干预的模式变革。 蓝鲸新闻记者注意到，“保险+AI+健康”的融合落地动作正在业内密集发生，互
 
 ## 正文
 
-中新网伦敦5月22日电 (记者 欧阳开宇)5月21日，“国际茶日”当天，中国驻贝尔法斯特总领馆举办“茶和天下·雅集”暨“你好！
+蓝鲸新闻6月16日讯（记者 石雨）健康管理在保险业喊了多年，却始终“知易行难”——同质化严重、用户获得感低、闭环难形成。
 
-中国”旅游推介活动。
+如今，AI技术的快速迭代正让局面开始松动。
 
-李南总领事出席并致辞，英国北爱尔兰政商文教旅各界逾50名嘉宾出席。
+从AI健康管家到运动数据联动保险激励，从千人千面的健康方案到可规模化的运营体系，保险机构正试图借AI撬动一场从被动理赔到主动干预的模式变革。
 
-李南介绍茶的历史渊源、精神智慧、国际影响与时代意义，表示中国是茶的故乡，“茶和天下”活动首次来到北爱，正是希望以茶为媒，传递和平、包容、共享的理念。
+蓝鲸新闻记者注意到，“保险+AI+健康”的融合落地动作正在业内密集发生，互动式AI健康险、健康险智能体、AI健身数据链接等新产品和路径落地，打开这一模式的新想象空间。
 
-北爱艺委会首席执行官麦克多诺、贝法女王大学副校长托平、安徽农业大学副校长蔡德军分别致辞，愿积极推动双边加深人文交流合作。
+健康管理“知易行难”，AI或打破僵局？
 
-本次活动由安徽农业大学和安徽省文化和旅游厅联合主办，通过茶艺展示、茶文化交流、非遗图片展等形式，展示中国茶文化的独特魅力，增进北爱各界对中华优秀传统文化的了解与认知。
+“以前做健康管理以概念为主，用户真正的获得感并不高”，一位保险机构相关负责人向记者坦言，“健康管理服务对于健康险业务是重要的布局方向，逻辑链早已被验证，但现实是，服务同质化严重，执行落地也存在困难，真正能形成闭环的落地案例还不多。
 
-(完)
+” 这也大幅削弱了险企通过健康管理服务实现赔付控费的预期效果。
+
+如何制定更为个性化的健康管理方案，如何推动健康服务的有效应用、形成闭环，是保险机构健康险业务布局的重点突破方向。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-30 05:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-30 05:22 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 05:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 05:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 05:18 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 05:08 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
-- 2026-06-30 05:29 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 05:22 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 05:02 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 05:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 05:06 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 05:14 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 05:17 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 05:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 05:16 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-30 05:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-30 05:17 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 05:06 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 05:14 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 05:21 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 05:25 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/698920306.shtml)
-- 2026-06-30 05:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/88737.shtml)
-- 2026-06-30 05:14 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.minike.top/Article/details/42959611869.shtml)
-- 2026-06-30 05:27 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/458927.shtml)
-- 2026-06-30 05:11 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/65156.shtml)
-- 2026-06-30 05:26 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/651297705034.shtml)
-- 2026-06-30 05:09 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/1909845309.shtml)
-- 2026-06-30 05:26 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/74215974.shtml)
-- 2026-06-30 05:21 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/1192051233.shtml)
-- 2026-06-30 05:09 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/29610339.shtml)
-- 2026-06-30 05:22 - [爱很美味](http://www.blog.minike.top/Article/details/919524276198.shtml)
-- 2026-06-30 05:14 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/06084342865.shtml)
-- 2026-06-30 05:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/1723079131.shtml)
-- 2026-06-30 05:15 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/348744265.shtml)
-- 2026-06-30 05:24 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/47679515.shtml)
+- 2026-06-30 05:23 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/928443990.shtml)
+- 2026-06-30 05:17 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/95379.shtml)
+- 2026-06-30 05:28 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/579762.shtml)
+- 2026-06-30 05:07 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/81286660.shtml)
+- 2026-06-30 05:34 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/837819.shtml)
+- 2026-06-30 05:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/102534741.shtml)
+- 2026-06-30 05:21 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/464116648.shtml)
+- 2026-06-30 05:13 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/050947029448.shtml)
+- 2026-06-30 05:21 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/073961687.shtml)
+- 2026-06-30 05:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/4911766.shtml)
+- 2026-06-30 05:17 - [考入南大计算机，复读考清北值吗？](https://www.blog.minike.top/Article/details/439420419168.shtml)
+- 2026-06-30 05:25 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/0935527156.shtml)
+- 2026-06-30 05:12 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/40182.shtml)
+- 2026-06-30 05:22 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/85565924792.shtml)
+- 2026-06-30 05:06 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/39091.shtml)

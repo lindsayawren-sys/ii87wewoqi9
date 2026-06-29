@@ -1,60 +1,55 @@
-# 第八届西洽会“投资重庆·渝见商机”跨国公司经贸对接会举办
+# 中信银行：吕天贵行长、首席合规官任职资格获核准
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电 据中国国际跨国公司促进会22日消息，第八届中国西部国际投资贸易洽谈会配套活动——“投资重庆·渝见商机”跨国公司经贸对接会日前在重庆举行。本次活动聚焦生命健康、绿色低碳、智能制造等重点产业，搭建政企对接、产业合作平台，助力成渝地区双城经济圈建设，推动重庆高水平对外开放。中国国际跨国公司促进会副会长苏德良指出，重庆市是西部内陆对外开放的前沿阵地，在国家区域发
+6月15日金融一线消息，中信银行公告称，近日，该行收到国家金融监督管理总局的批复，国家金融监督管理总局已核准吕天贵该行行长的任职资格。吕天贵自6月15日起正式就任该行行长、首席合规官。 简历显示，吕天贵，男，1972年10月出生，四川大学工商管理硕士，高级会计师。现任中信银行党委副书记。吕天贵先生曾任中信银行信用卡中心党委委员、总裁助理、副总裁、党委书记、总裁，总行零售银行部总
 
 ## 正文
 
-中新网北京5月22日电 据中国国际跨国公司促进会22日消息，第八届中国西部国际投资贸易洽谈会配套活动——“投资重庆·渝见商机”跨国公司经贸对接会日前在重庆举行。
+6月15日金融一线消息，中信银行公告称，近日，该行收到国家金融监督管理总局的批复，国家金融监督管理总局已核准吕天贵该行行长的任职资格。
 
-本次活动聚焦生命健康、绿色低碳、智能制造等重点产业，搭建政企对接、产业合作平台，助力成渝地区双城经济圈建设，推动重庆高水平对外开放。
+吕天贵自6月15日起正式就任该行行长、首席合规官。
 
-中国国际跨国公司促进会副会长苏德良指出，重庆市是西部内陆对外开放的前沿阵地，在国家区域发展和对外开放格局当中占据独特而重要的战略地位。
+简历显示，吕天贵，男，1972年10月出生，四川大学工商管理硕士，高级会计师。
 
-中国国际跨国公司促进会将充分发挥自身平台资源优势和智库优势，持续深化与重庆及西部地区的全方位深层次战略合作。
+现任中信银行党委副书记。
 
-数据显示，2025年，重庆外贸进出口突破了8000亿元，社会消费品零售总额达到了1.67万亿元，登顶全国城市首位。
+吕天贵先生曾任中信银行信用卡中心党委委员、总裁助理、副总裁、党委书记、总裁，总行零售银行部总经理、私人银行部总经理，总行业务总监、党委委员、副行长，中信信托有限责任公司党委书记、董事长；曾兼任中信百信银行股份有限公司董事、董事长，阿尔金银行董事，中国银联股份有限公司董事。
 
-进入2026年，一季度全市外贸进出口总值同比增长34.3%，实现良好开局。
-
-“市场活力就是投资的最佳证明。
-
-”重庆市商务委副主任叶力娜介绍，重庆有完整产业生态，在41个工业大类中拥有39个完备体系，这意味着无论生产汽车、电子、医药还是新材料，在重庆基本都能找到上下游的配套企业。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 05:16 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 05:26 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 05:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 05:00 - [恋与深空回应争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-30 05:16 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 05:12 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-30 05:27 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 05:16 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 05:18 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 05:11 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 05:16 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 05:18 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 05:19 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 05:07 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-30 05:07 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 05:33 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 05:11 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 05:16 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 05:08 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 05:32 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 05:33 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 05:12 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-30 05:24 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-30 05:23 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 05:06 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 05:18 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 05:19 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/2391151.shtml)
-- 2026-06-30 05:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/32531.shtml)
-- 2026-06-30 05:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/76427545849.shtml)
-- 2026-06-30 05:27 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/69891400.shtml)
-- 2026-06-30 05:00 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/814200.shtml)
-- 2026-06-30 05:29 - [恋与深空回应争议](https://www.share.minike.top/Article/details/104974762372.shtml)
-- 2026-06-30 05:02 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/224241792.shtml)
-- 2026-06-30 05:05 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/300581.shtml)
-- 2026-06-30 05:12 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/93528130.shtml)
-- 2026-06-30 05:27 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/554368.shtml)
-- 2026-06-30 05:27 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/15413006893.shtml)
-- 2026-06-30 05:22 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/9396673.shtml)
-- 2026-06-30 05:05 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/948595.shtml)
-- 2026-06-30 05:16 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/72396161958.shtml)
-- 2026-06-30 05:16 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/411749219.shtml)
+- 2026-06-30 05:35 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/789454966.shtml)
+- 2026-06-30 05:21 - [送你一朵小红花](https://www.share.minike.top/Article/details/45430224.shtml)
+- 2026-06-30 05:08 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/642090551079.shtml)
+- 2026-06-30 05:07 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/82012180872.shtml)
+- 2026-06-30 05:08 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/647445.shtml)
+- 2026-06-30 05:23 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/753864006.shtml)
+- 2026-06-30 05:12 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/8681278.shtml)
+- 2026-06-30 05:21 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/43135626339.shtml)
+- 2026-06-30 05:06 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/190814595373.shtml)
+- 2026-06-30 05:29 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/97725646.shtml)
+- 2026-06-30 05:34 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/453683199.shtml)
+- 2026-06-30 05:08 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/1547256.shtml)
+- 2026-06-30 05:20 - [德国vs巴拉圭](https://www.share.minike.top/Article/details/915739228759.shtml)
+- 2026-06-30 05:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/75241583633.shtml)
+- 2026-06-30 05:13 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/709645108040.shtml)

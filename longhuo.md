@@ -1,59 +1,61 @@
-# Service Properties Trust将出席Nareit 2026年REITweek投资者大会
+# 两单信托化险落地，贵州银行村镇银行改革路径可复制吗？
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-Service Properties Trust(SVC)宣布，公司总裁兼首席执行官Chris Bilotto及首席财务官兼财务主管Brian Donley将于2026年6月3日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间上午9时30分进行专题演讲。 投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约15分钟访问。 Ser
+界面新闻记者 | 曾令俊 继今年1月在龙里国丰村镇银行完成行业“首秀”后，贵州银行（06199.HK）再度将信托化处置模式推向市场。 近日，该行发布公告披露，拟对主发起设立的盘州万和村镇银行采用“债权置换信托受益份额”方式承接存款业务，以信托受益权作为交易对价完成改革化险。 在“村改支”“并购重组”成为行业主流路径的当下，这一不依赖现金支付、不触发股权变更的创新模式，正在为村镇
 
 ## 正文
 
-Service Properties Trust(SVC)宣布，公司总裁兼首席执行官Chris Bilotto及首席财务官兼财务主管Brian Donley将于2026年6月3日出席在纽约举行的Nareit REITweek 2026投资者大会，并于美国东部时间上午9时30分进行专题演讲。
+界面新闻记者 | 曾令俊 继今年1月在龙里国丰村镇银行完成行业“首秀”后，贵州银行（06199.HK）再度将信托化处置模式推向市场。
 
-投资者可通过公司官网投资者关系页面收听演讲直播，建议于会议开始前约15分钟访问。
+近日，该行发布公告披露，拟对主发起设立的盘州万和村镇银行采用“债权置换信托受益份额”方式承接存款业务，以信托受益权作为交易对价完成改革化险。
 
-Service Properties Trust是一家房地产投资信托基金，截至2026年3月31日，公司投资组合包括761处服务型零售净租赁物业，总面积超1360万平方英尺，以及93家酒店，逾2.1万间客房，投资总额约99亿美元。
+在“村改支”“并购重组”成为行业主流路径的当下，这一不依赖现金支付、不触发股权变更的创新模式，正在为村镇银行风险处置提供新的解题思路。
 
-近期公司持续推进战略转型。
+南开大学金融发展研究院院长田利辉对界面新闻记者说，这一模式用信托的独立财产功能，将村镇银行的风险资产从主发起行资产负债表中“隔离”出去，而非直接吸收。
 
-2026年第一季度，公司完成了约15亿美元的资本市场活动，包括发行7.45亿美元资产支持证券和5.75亿美元股权融资，用于偿还16亿美元债务，实现年化利息节省5900万美元。
+其核心优势在于不消耗现金、不陷入股权谈判、不触发挤兑，以“凭证换债权”的方式高效完成存款承接与风险缓释，为村镇银行的平稳退出赢得时间与空间。
 
-公司同时将2026年标准化营运资金指引上调至每股0.24至0.27美元。
+国家金融与发展实验室副主任曾刚对界面新闻记者分析称，此路径具备一定的可推广潜力，尤其适用于资产尚有残值的小型机构。
 
-市场关注管理层将在会议上就资产处置进展、酒店业绩改善及净租赁组合扩张等议题发表最新看法。
+不过，复制的前提是发起行自身资产负债表足够健康、当地信托公司具备相应能力，且监管部门认可该结构的合规性。
 
-责任编辑：张俊 SF065
+目前看属于“因地制宜的创新”，离标准化复制还需更多实践验证和制度配套。
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 05:12 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 05:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 05:04 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-30 05:18 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 05:20 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 05:10 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 05:14 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 05:11 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 05:26 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 05:10 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
-- 2026-06-30 05:01 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 05:00 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 05:30 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 05:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 05:27 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 05:07 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 05:20 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-30 05:33 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 05:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 05:17 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 05:09 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 05:14 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-30 05:09 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 05:14 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:27 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 05:11 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-30 05:22 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/9716634570.shtml)
-- 2026-06-30 05:11 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/098120267.shtml)
-- 2026-06-30 05:22 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/88078162.shtml)
-- 2026-06-30 05:02 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/6462645854.shtml)
-- 2026-06-30 05:07 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/249400.shtml)
-- 2026-06-30 05:06 - [毒液2](http://www.share.kurohicncr.top/Article/details/82957099.shtml)
-- 2026-06-30 05:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/107643319.shtml)
-- 2026-06-30 05:04 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/4929867.shtml)
-- 2026-06-30 05:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/60953518.shtml)
-- 2026-06-30 05:28 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/331107.shtml)
-- 2026-06-30 05:28 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/70474788.shtml)
-- 2026-06-30 05:04 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/6248682.shtml)
-- 2026-06-30 05:23 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/266730.shtml)
-- 2026-06-30 05:09 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/379680.shtml)
-- 2026-06-30 05:27 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/98905143179.shtml)
+- 2026-06-30 05:32 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/585487931205.shtml)
+- 2026-06-30 05:31 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/772214576797.shtml)
+- 2026-06-30 05:06 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/55485.shtml)
+- 2026-06-30 05:13 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/831591416.shtml)
+- 2026-06-30 05:22 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/838994.shtml)
+- 2026-06-30 05:18 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/677856813.shtml)
+- 2026-06-30 05:11 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/9614035185.shtml)
+- 2026-06-30 05:09 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/220457.shtml)
+- 2026-06-30 05:34 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/18895444.shtml)
+- 2026-06-30 05:11 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/054676.shtml)
+- 2026-06-30 05:33 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/64872248754.shtml)
+- 2026-06-30 05:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/847615.shtml)
+- 2026-06-30 05:21 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/9024652152.shtml)
+- 2026-06-30 05:28 - [巴西若输日本将创36年最差纪录](https://www.blog.minike.top/Article/details/673522457.shtml)
+- 2026-06-30 05:27 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/52440.shtml)

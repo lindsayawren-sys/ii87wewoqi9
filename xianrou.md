@@ -1,57 +1,60 @@
-# 特朗普周五主持美联储主席沃什宣誓就职仪式
+# 博时市场点评6月16日：两市涨跌不一，创业板涨1.72%
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-美国政府周四表示，总统特朗普周五将在白宫主持美联储主席沃什宣誓就职仪式。美国参议院5月13日表决确认沃什的任命案，他将接替鲍威尔担任美联储主席，不过鲍威尔将继续担任美联储理事直至2028年。现年56岁的沃什将展开四年的美联储主席任期及14年的美联储理事任期。特朗普选择他作为抵御进一步加息的堡垒。沃什长期以来一直表示希望在削减美联储资产负债表的同时降低利率。目前一些美联储决策官员
+🌟【博时市场点评6月16日】两市涨跌不一，创业板涨1.72% 📝每日观点 🎈今日沪深三大指数涨跌不一，沪指微跌0.11%，创业板指涨超1.7%，两市成交较昨日放量至近3.09万亿。国家统计局今日公布的5月份中国经济数据显示，内需偏弱仍是目前国内经济面对的核心问题。其中固定资产投资降幅意外扩大，结构分化明显，房地产开发投资是核心拖累，新质生产力方向投入保持韧性；社会消费品零售总额
 
 ## 正文
 
-美国政府周四表示，总统特朗普周五将在白宫主持美联储主席沃什宣誓就职仪式。
+🌟【博时市场点评6月16日】两市涨跌不一，创业板涨1.72% 📝每日观点 🎈今日沪深三大指数涨跌不一，沪指微跌0.11%，创业板指涨超1.7%，两市成交较昨日放量至近3.09万亿。
 
-美国参议院5月13日表决确认沃什的任命案，他将接替鲍威尔担任美联储主席，不过鲍威尔将继续担任美联储理事直至2028年。
+国家统计局今日公布的5月份中国经济数据显示，内需偏弱仍是目前国内经济面对的核心问题。
 
-现年56岁的沃什将展开四年的美联储主席任期及14年的美联储理事任期。
+其中固定资产投资降幅意外扩大，结构分化明显，房地产开发投资是核心拖累，新质生产力方向投入保持韧性；社会消费品零售总额同比由正转负，汽车消费疲软是主要拖累，刚需消费和数字化消费渠道起到支撑作用。
 
-特朗普选择他作为抵御进一步加息的堡垒。
+投资和消费两大内需引擎同时走弱，表明经济内生修复动能仍待改善，同时高技术产业投资、知识产权产品投资等结构性亮点表明经济转型仍在推进。
 
-沃什长期以来一直表示希望在削减美联储资产负债表的同时降低利率。
+当前内需偏弱叠加外部不确定性，市场对政策逆周期调节的预期升温。
 
-目前一些美联储决策官员正考虑加息以抑制伊朗战争所引发的通胀。
+在此宏观背景下，国内权益市场短期或仍呈现震荡状态，建议考虑均衡配置。
 
-根据周三公布的会议记录，在4月28日至29日的会议上，多数美联储决策者认为，如果通胀持续高于2%的目标，“采取一些政策收紧措施可能变得合适”。
+🔥消息面 🎈6月16日，国家统计局数据显示，5月份，规模以上工业增加值同比增长4.5%，比上月加快0.4个百分点；高技术制造业增加值增长15.1%，加快2.3个百分点。
 
-责任编辑：王永生
+社会消费品零售总额同比下降0.6%，环比下降0.38%。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 05:08 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 05:01 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-30 05:28 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 05:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 05:28 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-30 05:17 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 05:05 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 05:12 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 05:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-30 05:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-30 05:13 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 05:31 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-30 05:09 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 05:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 05:23 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 05:20 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 05:17 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-30 05:28 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 05:33 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 05:33 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 05:09 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-30 05:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 05:09 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 05:30 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/30172738779.shtml)
-- 2026-06-30 05:24 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/01892.shtml)
-- 2026-06-30 05:29 - [点菜也要教吗](http://www.blog.minike.top/Article/details/604143981918.shtml)
-- 2026-06-30 05:14 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/978467384.shtml)
-- 2026-06-30 05:00 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/104886390.shtml)
-- 2026-06-30 05:23 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/95061807.shtml)
-- 2026-06-30 05:00 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/27926376638.shtml)
-- 2026-06-30 05:16 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/0814133.shtml)
-- 2026-06-30 05:20 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/530072.shtml)
-- 2026-06-30 05:03 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/7124332.shtml)
-- 2026-06-30 05:11 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/2346590.shtml)
-- 2026-06-30 05:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/07510247.shtml)
-- 2026-06-30 05:00 - [天道](http://www.share.kurohicncr.top/Article/details/042749312926.shtml)
-- 2026-06-30 05:18 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/28233127451.shtml)
-- 2026-06-30 05:26 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/114321.shtml)
+- 2026-06-30 05:24 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/922918.shtml)
+- 2026-06-30 05:33 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/14622975691.shtml)
+- 2026-06-30 05:17 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/4180455.shtml)
+- 2026-06-30 05:11 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/8562933834.shtml)
+- 2026-06-30 05:12 - [起风了](https://www.share.kurohicncr.top/Article/details/46011860486.shtml)
+- 2026-06-30 05:13 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/929167892968.shtml)
+- 2026-06-30 05:20 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/394084.shtml)
+- 2026-06-30 05:09 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/32741.shtml)
+- 2026-06-30 05:14 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/65089.shtml)
+- 2026-06-30 05:31 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/3872975.shtml)
+- 2026-06-30 05:14 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/600149.shtml)
+- 2026-06-30 05:24 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/37547.shtml)
+- 2026-06-30 05:26 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/79280903.shtml)
+- 2026-06-30 05:30 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/47905958.shtml)
+- 2026-06-30 05:23 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/489627659287.shtml)

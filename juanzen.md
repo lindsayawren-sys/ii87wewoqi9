@@ -1,57 +1,57 @@
-# 黑龙江农信改革实质性启动：首批27家涉改机构名单出炉，东北三省全面采用分批合并路径
+# 德国总统施泰因迈尔访问印尼
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-每经记者|刘嘉魁 每经编辑|魏文艺 5月20日，黑龙江省农村信用社联合社官网发布公告，披露了首批27家涉改机构名单及联系方式。这标志着黑龙江省农信系统统一法人改革正式进入实施阶段。 公告显示，哈尔滨农商银行、五常农商银行、讷河农商银行等21家农商银行，海林市农村信用合作联社等3家市农信联社，以及3家由黑龙江省内农信机构发起设立的村镇银行，悉数被纳入首批涉改版图。 《每日经济新闻
+中新社雅加达6月15日电 (记者 李志全)德国总统施泰因迈尔15日抵达雅加达，对印度尼西亚进行访问。印尼方面表示，此访对印尼具有重要意义，体现了两国良好关系。 印尼总统普拉博沃当天在雅加达独立宫为施泰因迈尔举行欢迎仪式。随后，两国领导人举行双边会晤，并共同会见记者。印尼总统府表示，此访将进一步推动印尼与德国在多领域的合作。 普拉博沃在联合新闻声明中表示，双方讨论了加强经济、投资
 
 ## 正文
 
-每经记者|刘嘉魁 每经编辑|魏文艺 5月20日，黑龙江省农村信用社联合社官网发布公告，披露了首批27家涉改机构名单及联系方式。
+中新社雅加达6月15日电 (记者 李志全)德国总统施泰因迈尔15日抵达雅加达，对印度尼西亚进行访问。
 
-这标志着黑龙江省农信系统统一法人改革正式进入实施阶段。
+印尼方面表示，此访对印尼具有重要意义，体现了两国良好关系。
 
-公告显示，哈尔滨农商银行、五常农商银行、讷河农商银行等21家农商银行，海林市农村信用合作联社等3家市农信联社，以及3家由黑龙江省内农信机构发起设立的村镇银行，悉数被纳入首批涉改版图。
+印尼总统普拉博沃当天在雅加达独立宫为施泰因迈尔举行欢迎仪式。
 
-《每日经济新闻》记者（以下简称“每经记者”）注意到，根据黑龙江省农村信用社联合社此前披露的数据，全系统共有法人机构82家，其中省联社1家、市（地）行社14家、县级行社67家。
+随后，两国领导人举行双边会晤，并共同会见记者。
 
-首批27家机构约占全系统法人机构总数的三分之一，表明黑龙江选择的是分批次推进的路径。
+印尼总统府表示，此访将进一步推动印尼与德国在多领域的合作。
 
-此次黑龙江选择的是分批次推进的路径，这一策略在此轮农信改革中并不少见。
+普拉博沃在联合新闻声明中表示，双方讨论了加强经济、投资、能源转型、能源安全、教育及劳工等领域合作，并一致同意继续扩大互利共赢的贸易和投资规模。
 
-此前，内蒙古自治区曾一次性将121家涉改机构组建为统一法人农商行，创造了全国农信改革速度最快纪录。
+在具体合作方面，普拉博沃邀请德国扩大对印尼重点领域投资，包括能源转型、资源深加工、汽车及电动车产业和基础设施建设等，并欢迎德国企业参与印尼半导体产业发展以及关键矿产和稀土供应链合作。
 
-不过，更多省份倾向于稳扎稳打的分步操作策略。
+施泰因迈尔称，印尼是东盟地区重要的稳定力量。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 05:23 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 05:23 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 05:29 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 05:27 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 05:04 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
-- 2026-06-30 05:07 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-30 05:08 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 05:01 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-30 05:29 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 05:29 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 05:18 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:08 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 05:29 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 05:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 05:21 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 05:06 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 05:07 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 05:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 05:12 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 05:34 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 05:25 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/0182677.shtml)
-- 2026-06-30 05:29 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/6906678.shtml)
-- 2026-06-30 05:08 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/6182621907.shtml)
-- 2026-06-30 05:25 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/4155203255.shtml)
-- 2026-06-30 05:18 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/67314229.shtml)
-- 2026-06-30 05:18 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/731903612.shtml)
-- 2026-06-30 05:16 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/979779410478.shtml)
-- 2026-06-30 05:07 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/926859964544.shtml)
-- 2026-06-30 05:16 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/391177.shtml)
-- 2026-06-30 05:13 - [千与千寻](https://www.share.kurohicncr.top/Article/details/0774991.shtml)
-- 2026-06-30 05:29 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/267658004.shtml)
-- 2026-06-30 05:06 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/37136.shtml)
-- 2026-06-30 05:07 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/4306427.shtml)
-- 2026-06-30 05:19 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/471097709.shtml)
-- 2026-06-30 05:16 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/721613088391.shtml)
+- 2026-06-30 05:08 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/624071.shtml)
+- 2026-06-30 05:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/68515489.shtml)
+- 2026-06-30 05:25 - [斛珠夫人](https://www.blog.minike.top/Article/details/10226411965.shtml)
+- 2026-06-30 05:22 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/41474762898.shtml)
+- 2026-06-30 05:35 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/07431091641.shtml)
+- 2026-06-30 05:23 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/770561.shtml)
+- 2026-06-30 05:33 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/03245646570.shtml)
+- 2026-06-30 05:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/59059.shtml)
+- 2026-06-30 05:07 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/290256012.shtml)
+- 2026-06-30 05:28 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/757000.shtml)
+- 2026-06-30 05:20 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/85205644919.shtml)
+- 2026-06-30 05:26 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/158185999.shtml)
+- 2026-06-30 05:30 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/57585186919.shtml)
+- 2026-06-30 05:23 - [起风了](http://www.share.minike.top/Article/details/07746720.shtml)
+- 2026-06-30 05:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/501098209.shtml)

@@ -1,53 +1,56 @@
-# 花旗财富CIO：黄金在投资组合中分散风险的作用日益凸显
+# 1400亿山姆遭约谈，拷问极速达
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-花旗财富首席投资官（CIO）称，由于债券未能提供所需的支撑，黄金在其投资组合中的重要性日益凸显。Kate Moore在接受采访时表示，公司一直将黄金作为投资组合中的分散工具，以弥补债券在这方面的不足。黄金旨在用来充当投资组合中的“压舱石”，起到长期债券未能发挥的作用，因此去年在其投资组合中增加了黄金，并将继续增持。“债券无法像过去那样提供支撑和分散的作用”；“就拿地缘政治局势动
+狂飙的山姆，摊上事了。 6月15日，监管机构披露，已依法对沃尔玛（中国）投资有限公司，即山姆总部的负责人进行责任约谈，主要针对其门店及网店多发的食安问题。 这可谓是对山姆的系统性问责。 “针对约谈中监管部门指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。”山姆相关负责人回应《21CBR》称。 山姆已公开表示，已由管理层牵头，成立专项整改工作组，启动全渠道、全链路专项自查
 
 ## 正文
 
-花旗财富首席投资官（CIO）称，由于债券未能提供所需的支撑，黄金在其投资组合中的重要性日益凸显。
+狂飙的山姆，摊上事了。
 
-Kate Moore在接受采访时表示，公司一直将黄金作为投资组合中的分散工具，以弥补债券在这方面的不足。
+6月15日，监管机构披露，已依法对沃尔玛（中国）投资有限公司，即山姆总部的负责人进行责任约谈，主要针对其门店及网店多发的食安问题。
 
-黄金旨在用来充当投资组合中的“压舱石”，起到长期债券未能发挥的作用，因此去年在其投资组合中增加了黄金，并将继续增持。
+这可谓是对山姆的系统性问责。
 
-“债券无法像过去那样提供支撑和分散的作用”；“就拿地缘政治局势动荡期间的表现来看；由于预期财政支出增加和通胀加剧，利率和收益率均上升”。
+“针对约谈中监管部门指出的问题与整改要求，我们完全认可、深刻反思并诚恳接受。
 
-责任编辑：王永生
+”山姆相关负责人回应《21CBR》称。
+
+山姆已公开表示，已由管理层牵头，成立专项整改工作组，启动全渠道、全链路专项自查整改。
+
+记者查询公开信息，发现山姆线上配送服务“极速达”已多次卷入食安纷争，暴露出短板。
+
+“过去几年，山姆在中国的门店和前置仓数量翻倍增长，只是，供应链的精细化管理、冷链监控、人员培训没能跟上速度。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
-- 2026-06-30 05:12 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 05:19 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
-- 2026-06-30 05:26 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 05:19 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 05:22 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 05:16 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 05:28 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 05:09 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 05:13 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-30 05:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 05:28 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 05:00 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 05:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 05:07 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 05:34 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 05:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 05:18 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-30 05:27 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 05:17 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 05:31 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-30 05:25 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:13 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/944103.shtml)
-- 2026-06-30 05:15 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/07180038394.shtml)
-- 2026-06-30 05:18 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/537010035.shtml)
-- 2026-06-30 05:03 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/7813578.shtml)
-- 2026-06-30 05:26 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/70958191.shtml)
-- 2026-06-30 05:14 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/859108016.shtml)
-- 2026-06-30 05:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/66322190877.shtml)
-- 2026-06-30 05:10 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/461915676748.shtml)
-- 2026-06-30 05:11 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/655401166.shtml)
-- 2026-06-30 05:16 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/762929505108.shtml)
-- 2026-06-30 05:19 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/826145045949.shtml)
-- 2026-06-30 05:18 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/8447592.shtml)
-- 2026-06-30 05:00 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/89025.shtml)
-- 2026-06-30 05:01 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/7493679752.shtml)
-- 2026-06-30 05:12 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.minike.top/Article/details/675359.shtml)
+- 2026-06-30 05:09 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/642920687372.shtml)
+- 2026-06-30 05:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/271576983.shtml)
+- 2026-06-30 05:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/388685.shtml)
+- 2026-06-30 05:29 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/124770801.shtml)
+- 2026-06-30 05:08 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/08458255501.shtml)
+- 2026-06-30 05:28 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/57800821.shtml)
+- 2026-06-30 05:13 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/3586153.shtml)
+- 2026-06-30 05:21 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/970539754.shtml)
+- 2026-06-30 05:31 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/3350197086.shtml)
+- 2026-06-30 05:24 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/48435030431.shtml)
+- 2026-06-30 05:06 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/32886960.shtml)
+- 2026-06-30 05:12 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/90697.shtml)
+- 2026-06-30 05:29 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/49978007049.shtml)
+- 2026-06-30 05:17 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/1613143.shtml)
+- 2026-06-30 05:26 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/24059.shtml)

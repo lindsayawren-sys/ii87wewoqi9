@@ -1,60 +1,56 @@
-# 恭博礼物“绿盒子”亮相第二十二届文博会 诠释传统文化当代表达
+# 国家统计局展望二季度中国经济：长期向好基本面没有变
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网深圳5月22日电 文化和旅游部恭王府博物馆携“恭博礼物”21日起亮相第二十二届中国(深圳)国际文化产业博览交易会，全方位呈现恭博文化品牌建设与产业发展成果，诠释传统文化的当代表达。 恭王府博物馆展区以“恭博绿”为基调，沿用标志性的“绿盒子”视觉符号，创新再现恭王府五进式的院落格局。西洋门、海棠花等经典古建园林元素与现代设计语言巧妙交融，打造沉浸式传统建筑美学体验空间。展厅
+中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。 在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。 “但从整个发展大势看，中国
 
 ## 正文
 
-中新网深圳5月22日电 文化和旅游部恭王府博物馆携“恭博礼物”21日起亮相第二十二届中国(深圳)国际文化产业博览交易会，全方位呈现恭博文化品牌建设与产业发展成果，诠释传统文化的当代表达。
+中新社北京6月16日电 (记者 陈溯)展望二季度中国经济，中国国家统计局新闻发言人付凌晖16日在北京表示，经济长期向好的基本面没有变。
 
-恭王府博物馆展区以“恭博绿”为基调，沿用标志性的“绿盒子”视觉符号，创新再现恭王府五进式的院落格局。
+在当天的国新办新闻发布会上，付凌晖表示，今年以来，中国经济一季度增势较好，国内生产总值(GDP)同比增长5%。
 
-西洋门、海棠花等经典古建园林元素与现代设计语言巧妙交融，打造沉浸式传统建筑美学体验空间。
+二季度以来，受国际环境复杂变化、国内结构调整压力等影响，部分经济指标出现了增速回落，一些企业经营面临困难。
 
-展厅入口以恭王府秘云洞的洞天意象为灵感，设计“洞天福地”影壁墙，运用现代解构手法营造层叠穿越感，重现康熙御笔“天下第一福”福字碑的经典景致，使观众步入展区即刻感受到传统“福”文化的深厚底蕴。
+“但从整个发展大势看，中国经济运行总体平稳、稳中有进的态势没有改变，动能向新、结构向优的特征依然明显。
 
-展区内部以“春、夏、秋、冬”为主题分区，全景呈现恭王府园林意境，实现人文空间与自然美学的有机统一。
+”付凌晖表示，从下阶段情况看，尽管还面临一些困难和挑战，但是经济长期向好的基本面没有变，新质生产力发展培育壮大，改革开放的红利持续释放，宏观政策发力显效，将会继续支撑经济平稳运行、向新向优。
 
-展区集中展示了恭王府博物馆近年来文创产品开发的核心成果：“恭·时尚”品牌将恭王府大戏楼经典的紫藤缠枝彩绘元素与古法缠花、盘金刺绣等传统技艺相结合，设计开发服饰及配套文创产品，实现美学价值与实用功能的双重提升；“恭小主”IP手办、“恭小福食礼”饮品茶点、冰箱贴等爆款文创，以“传统纹样+当代潮流”设计语言，使传统文化可触摸、可品尝、可收藏。
+付凌晖表示，今年以来，面对全球能源市场大幅波动，中国经济顶住了压力，保持平稳增长，展现出了强大韧性。
 
-在文化产业开放合作方面，“恭博礼物”与知名品牌跨界携手推出新品，体现专业化和市场化的同时，更向世界展现了东方审美哲思与中式生活风雅。
+统计显示，1至5月，规模以上工业增加值、服务业生产指数分别同比增长5.4%、4.8%，均保持了较快增长；全国城镇调查失业率平均值为5.2%，居民消费价格同比上涨1%，均保持了总体平稳；外贸增长较快，中国货物进出口总额同比增长15.3%；人民币汇率稳中有升，5月末外汇储备稳定在3.4万亿美元以上。
 
-参展期间，“恭小主”人偶与现场观众互动合影，工作人员实时解说产品设计巧思。
+此外，中国产业创新引领作用持续显现。
 
 ## 相关推荐
 
-- 2026-06-30 05:30 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 05:25 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 05:25 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 05:20 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-30 05:15 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 05:10 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 05:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 05:12 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 05:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 05:14 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 05:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-30 05:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 05:21 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-30 05:19 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 05:11 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-30 05:11 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 05:08 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 05:11 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 05:23 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 05:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 05:23 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 05:32 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-30 05:08 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 05:35 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/886698477.shtml)
-- 2026-06-30 05:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/5268415698.shtml)
-- 2026-06-30 05:16 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/74896336058.shtml)
-- 2026-06-30 05:17 - [千与千寻](https://www.blog.minike.top/Article/details/8696131827.shtml)
-- 2026-06-30 05:26 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/542109.shtml)
-- 2026-06-30 05:01 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/989015662.shtml)
-- 2026-06-30 05:20 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/312958137.shtml)
-- 2026-06-30 05:05 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/9032398730.shtml)
-- 2026-06-30 05:13 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/4879826.shtml)
-- 2026-06-30 05:28 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/4916561775.shtml)
-- 2026-06-30 05:15 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/487868.shtml)
-- 2026-06-30 05:05 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/46631437768.shtml)
-- 2026-06-30 05:27 - [张碧晨最佳女歌手](https://www.share.minike.top/Article/details/96114751.shtml)
-- 2026-06-30 05:25 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/16437963678.shtml)
-- 2026-06-30 05:29 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/38123030356.shtml)
+- 2026-06-30 05:30 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/99184642.shtml)
+- 2026-06-30 05:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/1762473.shtml)
+- 2026-06-30 05:07 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/23034634963.shtml)
+- 2026-06-30 05:24 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/958317598791.shtml)
+- 2026-06-30 05:28 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/04457.shtml)
+- 2026-06-30 05:18 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/03942.shtml)
+- 2026-06-30 05:18 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/9503981169.shtml)
+- 2026-06-30 05:25 - [沙丘](https://www.share.kurohicncr.top/Article/details/6954125.shtml)
+- 2026-06-30 05:31 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/455073.shtml)
+- 2026-06-30 05:25 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/85439.shtml)
+- 2026-06-30 05:29 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/623598544634.shtml)
+- 2026-06-30 05:24 - [王欣瑜2-1击败科恰雷托](https://www.blog.kurohicncr.top/Article/details/217678523282.shtml)
+- 2026-06-30 05:06 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/371565.shtml)
+- 2026-06-30 05:18 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/33859.shtml)
+- 2026-06-30 05:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/5091721.shtml)

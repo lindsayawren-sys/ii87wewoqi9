@@ -1,55 +1,56 @@
-# 中老警务合作再添战果：494名涉诈犯罪嫌疑人移交中方
+# 广东多元手段活化侨批资源
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 据公安部微信公众号消息，为依法严厉打击跨国电信网络诈骗等违法犯罪活动，中国公安机关与老挝警方持续开展国际警务执法合作。近日，老挝警方将前期专项打击行动中，抓获的494名涉诈犯罪嫌疑人移交中方。这是两国警方联合打击跨国电信网络诈骗取得的又一重要战果。今年以来，随着柬埔寨不断加大对电信网络诈骗活动的打击清剿力度，部分电诈窝点及涉诈人员转移至老挝境内继续作案。按照
+中新社潮州6月15日电 (记者 李怡青)“侨批牵四海，科普启新章”2026年广东社会科学普及周主题日活动15日在广东潮州市举行。参与活动的专家学者紧扣侨批文脉，共同探讨多元手段活化侨批资源、社科普及下沉基层等实践探索与模式创新。 活动期间举行了2026年新增省级社科普及基地授牌仪式、侨批文化主题展览和社科普及高质量发展座谈会等。 广东省社会科学界联合会党组书记李宜航称，将充分发
 
 ## 正文
 
-中新网5月22日电 据公安部微信公众号消息，为依法严厉打击跨国电信网络诈骗等违法犯罪活动，中国公安机关与老挝警方持续开展国际警务执法合作。
+中新社潮州6月15日电 (记者 李怡青)“侨批牵四海，科普启新章”2026年广东社会科学普及周主题日活动15日在广东潮州市举行。
 
-近日，老挝警方将前期专项打击行动中，抓获的494名涉诈犯罪嫌疑人移交中方。
+参与活动的专家学者紧扣侨批文脉，共同探讨多元手段活化侨批资源、社科普及下沉基层等实践探索与模式创新。
 
-这是两国警方联合打击跨国电信网络诈骗取得的又一重要战果。
+活动期间举行了2026年新增省级社科普及基地授牌仪式、侨批文化主题展览和社科普及高质量发展座谈会等。
 
-今年以来，随着柬埔寨不断加大对电信网络诈骗活动的打击清剿力度，部分电诈窝点及涉诈人员转移至老挝境内继续作案。
+广东省社会科学界联合会党组书记李宜航称，将充分发挥“联”的优势，立足潮汕侨乡实际，将社科普及嵌入“百千万工程”、文旅融合与乡村振兴，让社科惠及于民。
 
-按照中老警务合作协定，老挝警方近期开展专项打击行动，抓获涉诈犯罪嫌疑人494名，在云南省西双版纳磨憨口岸移交中方。
+助力潮州打造侨乡文化传承与社科普及的创新样板。
 
-公安部已组织指挥四川、重庆公安机关成功接收上述犯罪嫌疑人，依法开展相关工作。
+他说，将通过数字技术、影视表达、创意设计等多元手段活化侨批资源，推动社科普及从“单向传输”迈向“沉浸体验”。
 
-公安部有关负责人表示，公安机关将持续深化与相关国家警务执法合作，进一步固化完善联合打击机制，持续开展窝点清剿、“金主”缉捕、人员遣返等工作，全力挤压电信网络诈骗犯罪活动空间，坚决遏制跨国电信网络诈骗犯罪高发态势。
+活动期间，《山海情书——潮汕侨批文化展》通过实物展品、影像史料、互动体验及专家现场解读，生动再现了侨批跨越山海、传递乡愁的历史场景。
+
+在手写侨批沉浸式体验区，还原旧时风貌，陈设老式红格信笺、毛笔、砚台、批封等传统物件。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 05:01 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 05:19 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 05:26 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 05:14 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 05:09 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-30 05:22 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 05:10 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 05:11 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 05:06 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 05:23 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 05:12 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 05:11 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 05:30 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 05:30 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 05:33 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 05:33 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 05:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-30 05:28 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 05:11 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-30 05:23 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:12 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/29409.shtml)
-- 2026-06-30 05:14 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/0810307.shtml)
-- 2026-06-30 05:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/568965.shtml)
-- 2026-06-30 05:04 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/674425357712.shtml)
-- 2026-06-30 05:18 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/405085907439.shtml)
-- 2026-06-30 05:07 - [全球最火存储ETF纳入兆易创新](http://www.blog.kurohicncr.top/Article/details/3109621.shtml)
-- 2026-06-30 05:28 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/4964232.shtml)
-- 2026-06-30 05:12 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/93304426961.shtml)
-- 2026-06-30 05:11 - [逃狱兄弟](https://www.blog.minike.top/Article/details/0132086.shtml)
-- 2026-06-30 05:03 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/1737683.shtml)
-- 2026-06-30 05:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/210143989.shtml)
-- 2026-06-30 05:13 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/37834965.shtml)
-- 2026-06-30 05:23 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/780649676.shtml)
-- 2026-06-30 05:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/833887320499.shtml)
-- 2026-06-30 05:16 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/820151.shtml)
+- 2026-06-30 05:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/425787.shtml)
+- 2026-06-30 05:18 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/94661686680.shtml)
+- 2026-06-30 05:21 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/27196923780.shtml)
+- 2026-06-30 05:18 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/2520500.shtml)
+- 2026-06-30 05:35 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/32845.shtml)
+- 2026-06-30 05:10 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/1879627421.shtml)
+- 2026-06-30 05:29 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/802487284058.shtml)
+- 2026-06-30 05:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.minike.top/Article/details/441105893.shtml)
+- 2026-06-30 05:22 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/0412975437.shtml)
+- 2026-06-30 05:32 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/06309708795.shtml)
+- 2026-06-30 05:17 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/83088144.shtml)
+- 2026-06-30 05:23 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/740610375949.shtml)
+- 2026-06-30 05:21 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/62653921.shtml)
+- 2026-06-30 05:23 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/908069.shtml)
+- 2026-06-30 05:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/05780441.shtml)

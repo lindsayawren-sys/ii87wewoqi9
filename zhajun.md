@@ -1,56 +1,58 @@
-# 中国倡议召开安理会高级别会议 外交部介绍情况
+# 重庆多措并举助考生填好志愿、上好大学
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-【#中国倡议召开安理会高级别会议# 外交部介绍情况】#外交部介绍安理会高级别会议情况# 5月22日，外交部发言人郭嘉昆主持例行记者会。会上，郭嘉昆宣布：中国作为联合国安理会本月轮值主席国，将于5月26日举办安理会高级别会议，主题为“维护联合国宪章宗旨和原则，加强以联合国为核心的国际体系”。中共中央政治局委员、外交部长王毅将赴纽约主持会议。 有记者提问，发言人能否介绍举办联合国安
+中新网重庆6月15日电 (记者 钟旖)迭代优化志愿填报辅助系统、深入开展志愿填报指导培训、拓展丰富志愿填报指导服务渠道……记者15日从重庆市教育考试院获悉，为深入开展“2026年高考护航行动”，进一步做实做细高考志愿填报服务工作，该市在往年基础上持续优化完善，多管齐下、多措并举，切实解决考生及家长的“急难愁盼”问题，助力重庆考生填好高考志愿、圆梦理想大学。据介绍，自2021年以
 
 ## 正文
 
-【#中国倡议召开安理会高级别会议# 外交部介绍情况】#外交部介绍安理会高级别会议情况# 5月22日，外交部发言人郭嘉昆主持例行记者会。
+中新网重庆6月15日电 (记者 钟旖)迭代优化志愿填报辅助系统、深入开展志愿填报指导培训、拓展丰富志愿填报指导服务渠道……记者15日从重庆市教育考试院获悉，为深入开展“2026年高考护航行动”，进一步做实做细高考志愿填报服务工作，该市在往年基础上持续优化完善，多管齐下、多措并举，切实解决考生及家长的“急难愁盼”问题，助力重庆考生填好高考志愿、圆梦理想大学。
 
-会上，郭嘉昆宣布：中国作为联合国安理会本月轮值主席国，将于5月26日举办安理会高级别会议，主题为“维护联合国宪章宗旨和原则，加强以联合国为核心的国际体系”。
+据介绍，自2021年以来，重庆市教育考试院以“互联网+公益服务”形式，免费向全市考生提供公益、权威的志愿填报辅助系统，系统具备“历史数据查询”“招生计划查询”“备选志愿参考”三大功能，为辅助考生填好志愿发挥主渠道作用。
 
-中共中央政治局委员、外交部长王毅将赴纽约主持会议。
+今年，该系统持续迭代升级，信息更全面、使用更便捷、功能更完善。
 
-有记者提问，发言人能否介绍举办联合国安理会高级别会议的设想，王毅外长希望推动会议发出什么信息？
+比如，进一步完善筛查选项、优化数据展示，让数据展示更贴合专业平行志愿填报规则。
 
-郭嘉昆表示，当今世界百年变局加速演进，变革动荡相互交织，战争冲突此起彼伏，以联合国为核心的国际体系面临前所未有的冲击和挑战。
+又如，针对不同院校大类招生专业名称相同但包含专业可能存在差异的情况，整理了近万条大类招生专业；深度对接教育部阳光高考信息平台，一键即可跳转至院校官网及招生章程板块，便捷查阅招生信息及录取规则。
 
-郭嘉昆介绍，作为联合国安理会5月轮值主席，中国倡议召开的此次安理会高级别会议，将聚焦联合国宪章的时代价值，遵守和践行宪章宗旨和原则，加强联合国及其安理会权威与效能等国际社会普遍关心的问题。
+在志愿填报指导培训方面，重庆采取线上+现场相结合的方式，分类、分层次开展全覆盖的培训，切实提升覆盖面和实效性。
 
-会议由王毅外长主持，向联合国全体会员国开放，多国外长及高级别代表已经确认出席，联合国秘书长古特雷斯将与会通报。
+在全面提供志愿填报辅助资料之外，重庆还创新开展志愿填报咨询活动、开通市级志愿填报服务热线电话，并指导区县、中学设立志愿填报服务站、开通咨询热线，引导有条件的区县组织开展线下咨询活动。
 
-“我们期待各方以此次会议为契机，重温宪章确立的崇高目标，重申对多边主义坚定承诺，以更大的团结与担当重振联合国地位与作用，汇聚改革完善全球治理的更大合力。
+为落实乡村振兴帮扶行动，重庆市教育考试院将组织市级专家团队，在该市的城口、巫溪、彭水、酉阳四个国家乡村振兴重点帮扶县，开展面向考生的志愿填报专题讲座，并邀请重庆市内外高校赴现场参与线下面对面咨询活动。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 05:11 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 05:07 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 05:27 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 05:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:01 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 05:29 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 05:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 05:03 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 05:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 05:21 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 05:06 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 05:22 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
+- 2026-06-30 05:22 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 05:17 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 05:10 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 05:28 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-30 05:13 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
+- 2026-06-30 05:15 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 05:35 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 05:20 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 05:16 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/195636520624.shtml)
-- 2026-06-30 05:04 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/719786.shtml)
-- 2026-06-30 05:19 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/701750906.shtml)
-- 2026-06-30 05:27 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/610463177.shtml)
-- 2026-06-30 05:11 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/06852422.shtml)
-- 2026-06-30 05:09 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/175614484.shtml)
-- 2026-06-30 05:15 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/31536.shtml)
-- 2026-06-30 05:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/261098920.shtml)
-- 2026-06-30 05:08 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/47197364062.shtml)
-- 2026-06-30 05:16 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/550944756.shtml)
-- 2026-06-30 05:12 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/638951944328.shtml)
-- 2026-06-30 05:27 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/2688977001.shtml)
-- 2026-06-30 05:14 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/4178046.shtml)
-- 2026-06-30 05:22 - [TOP Prada](http://www.blog.minike.top/Article/details/5939489440.shtml)
-- 2026-06-30 05:14 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/136660.shtml)
+- 2026-06-30 05:13 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/773795014.shtml)
+- 2026-06-30 05:12 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/13284434241.shtml)
+- 2026-06-30 05:14 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/776809125722.shtml)
+- 2026-06-30 05:35 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/344544196.shtml)
+- 2026-06-30 05:11 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/66606.shtml)
+- 2026-06-30 05:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/99472970.shtml)
+- 2026-06-30 05:33 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/6460452.shtml)
+- 2026-06-30 05:08 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/334170086559.shtml)
+- 2026-06-30 05:26 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/225520002449.shtml)
+- 2026-06-30 05:23 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/53016.shtml)
+- 2026-06-30 05:35 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/177915491.shtml)
+- 2026-06-30 05:06 - [卡塞米罗头球破门](http://www.blog.kurohicncr.top/Article/details/728712.shtml)
+- 2026-06-30 05:08 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/61515.shtml)
+- 2026-06-30 05:35 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/172628505322.shtml)
+- 2026-06-30 05:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/141672796.shtml)

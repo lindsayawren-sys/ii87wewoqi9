@@ -1,58 +1,48 @@
-# 高盛：共同基金难以追上不断走高的基准股指
+# 中国银行：将派发第三期境内优先股股息25.40亿元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-高盛分析师表示，大型共同基金虽然带来了正收益，但难以跟上不断上涨的基准股票指数。 今年迄今，纳斯达克指数上涨13%，标普500指数上涨8.6%。 包括Ryan Hammond在内的团队指出，年迄今，仅有29%的基金跑赢了其标的指数，远低于37%的历史平均水平。 今年以来，流入美国股票型共同基金和ETF的资金已加速，达1660亿美元。 共同基金继续加大对半导体行业的配置，并减持软
+6月16日金融一线消息，中国银行公告称，公司2026年4月29日董事会会议已审议通过第三期境内优先股（代码360033，简称中行优3）股息派发方案。计息期为2025年6月27日至2026年6月26日，每股优先股派发现金股息3.48元（税前），以发行量7.3亿股计，本次派发现金股息共25.404亿元（税前）。最后交易日为6月25日，股权登记日和除息日为6月26日，股息发放日为6月
 
 ## 正文
 
-高盛分析师表示，大型共同基金虽然带来了正收益，但难以跟上不断上涨的基准股票指数。
+6月16日金融一线消息，中国银行公告称，公司2026年4月29日董事会会议已审议通过第三期境内优先股（代码360033，简称中行优3）股息派发方案。
 
-今年迄今，纳斯达克指数上涨13%，标普500指数上涨8.6%。
+计息期为2025年6月27日至2026年6月26日，每股优先股派发现金股息3.48元（税前），以发行量7.3亿股计，本次派发现金股息共25.404亿元（税前）。
 
-包括Ryan Hammond在内的团队指出，年迄今，仅有29%的基金跑赢了其标的指数，远低于37%的历史平均水平。
+最后交易日为6月25日，股权登记日和除息日为6月26日，股息发放日为6月29日。
 
-今年以来，流入美国股票型共同基金和ETF的资金已加速，达1660亿美元。
-
-共同基金继续加大对半导体行业的配置，并减持软件股，目前对后者的持仓比例已降至至少自2012年以来的最低水平。
-
-基金继续低配美国科技巨头，主要由于投资组合多元化限制所致。
-
-基金积极减持所有所谓“七巨头”股票的净持股比例，其中Alphabet的减持幅度最大。
-
-现金头寸仍处低位，但自年初以来有所增加。
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 05:18 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 05:11 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 05:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 05:28 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 05:20 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-30 05:07 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-30 05:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 05:24 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 05:29 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-30 05:16 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-30 05:23 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 05:24 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-30 05:14 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 05:14 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 05:34 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 05:07 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 05:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 05:33 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 05:19 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 05:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/7223827.shtml)
-- 2026-06-30 05:22 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/53225.shtml)
-- 2026-06-30 05:29 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/3448923.shtml)
-- 2026-06-30 05:08 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/383306.shtml)
-- 2026-06-30 05:26 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/851115496.shtml)
-- 2026-06-30 05:18 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/828783368040.shtml)
-- 2026-06-30 05:09 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/155590224289.shtml)
-- 2026-06-30 05:05 - [TOP Prada](https://www.share.minike.top/Article/details/88154.shtml)
-- 2026-06-30 05:20 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/5704785810.shtml)
-- 2026-06-30 05:09 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/74131952074.shtml)
-- 2026-06-30 05:09 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/85281.shtml)
-- 2026-06-30 05:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/129380452.shtml)
-- 2026-06-30 05:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/064245798.shtml)
-- 2026-06-30 05:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/096422426450.shtml)
-- 2026-06-30 05:28 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/548083091.shtml)
+- 2026-06-30 05:32 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/01754.shtml)
+- 2026-06-30 05:22 - [为什么会有「念旧」的心理？](http://www.blog.minike.top/Article/details/9125587.shtml)
+- 2026-06-30 05:19 - [千与千寻](http://www.share.minike.top/Article/details/90506514.shtml)
+- 2026-06-30 05:31 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/1562223161.shtml)
+- 2026-06-30 05:11 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/85153739.shtml)
+- 2026-06-30 05:29 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/92596.shtml)
+- 2026-06-30 05:24 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/6529039426.shtml)
+- 2026-06-30 05:07 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/07851220.shtml)
+- 2026-06-30 05:17 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/425964235.shtml)
+- 2026-06-30 05:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/94918695.shtml)
+- 2026-06-30 05:15 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/52402.shtml)
+- 2026-06-30 05:07 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/35281846.shtml)
+- 2026-06-30 05:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/107710714264.shtml)
+- 2026-06-30 05:09 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/2661566408.shtml)
+- 2026-06-30 05:15 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/935279.shtml)

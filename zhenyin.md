@@ -1,53 +1,60 @@
-# 国际能源署署长：七八月份石油市场或将进入风险红色区间
+# （美加墨世界杯）“压抑和紧张”中的伊朗队首秀
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-国际能源署署长周四表示，夏季燃油需求进入旺季，叠加中东石油新增出口中断、库存持续消耗，今年七八月份石油市场或将迈入红色警戒区间，其并未进一步详述具体缘由。 法提赫・比罗尔在伦敦查塔姆研究所发表讲话时称，受伊朗战事引发石油供应危机之初，全球原油库存尚且充裕，一定程度上缓冲了市场冲击，但如今原油库存正不断缩减。 他表示，今年3月，拥有32个成员国的国际能源署协同释放4亿桶战略石油储
+中新社北京6月16日电(记者 国璇 邢翀) 当地时间15日，历经签证受阻、驻地变更、跨境参赛等层层关卡，伊朗队终于站上了2026年美加墨世界杯的赛场。队长塔雷米坦言，首次落地美国，让全队处处感受到“压抑和紧张”。此前六次出征世界杯的伊朗队有着较为丰富的杯赛参赛经验，在世界足坛留下“波斯铁骑”的名号。但受战争影响，伊朗队此次杯赛的参赛前景在相当长一段时间内充满不确定性，这是193
 
 ## 正文
 
-国际能源署署长周四表示，夏季燃油需求进入旺季，叠加中东石油新增出口中断、库存持续消耗，今年七八月份石油市场或将迈入红色警戒区间，其并未进一步详述具体缘由。
+中新社北京6月16日电(记者 国璇 邢翀) 当地时间15日，历经签证受阻、驻地变更、跨境参赛等层层关卡，伊朗队终于站上了2026年美加墨世界杯的赛场。
 
-法提赫・比罗尔在伦敦查塔姆研究所发表讲话时称，受伊朗战事引发石油供应危机之初，全球原油库存尚且充裕，一定程度上缓冲了市场冲击，但如今原油库存正不断缩减。
+队长塔雷米坦言，首次落地美国，让全队处处感受到“压抑和紧张”。
 
-他表示，今年3月，拥有32个成员国的国际能源署协同释放4亿桶战略石油储备以稳定市场，此次抛储规模创下历史之最，目前这批储备原油正以每日250万至300万桶的速度投放至市场。
+此前六次出征世界杯的伊朗队有着较为丰富的杯赛参赛经验，在世界足坛留下“波斯铁骑”的名号。
 
-比罗尔补充道，若形势需要，国际能源署随时准备协调开展新一轮战略原油投放行动。
+但受战争影响，伊朗队此次杯赛的参赛前景在相当长一段时间内充满不确定性，这是1930年世界杯开始举办以来，首次出现参赛国与东道主国家交战的情况。
 
-责任编辑：江学思
+本次杯赛，伊朗队与新西兰、比利时和埃及队同处G组，三场小组赛的地点均在美国境内，前两场在洛杉矶，第三场在西雅图。
+
+伊朗方面曾提出将其小组赛地点由美国更换至墨西哥，但该提议被国际足联否决。
+
+然而因为获取美国签证不顺，国际足联不得不批准将伊朗队驻地从美国亚利桑那州图森市改为墨西哥蒂华纳市。
+
+但根据美方要求，伊朗队仅可在比赛日前往美国，且必须在当天离境。
 
 ## 相关推荐
 
-- 2026-06-30 05:27 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 05:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 05:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 05:22 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 05:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 05:04 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 05:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 05:06 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-30 05:21 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 05:18 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-30 05:03 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-30 05:29 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 05:09 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 05:35 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 05:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 05:09 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 05:33 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 05:30 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 05:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 05:21 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 05:25 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 05:07 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 05:16 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-30 05:12 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 05:19 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
+- 2026-06-30 05:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 05:35 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:17 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/2869238.shtml)
-- 2026-06-30 05:20 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/09004110429.shtml)
-- 2026-06-30 05:14 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/519095504.shtml)
-- 2026-06-30 05:07 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/1397867883.shtml)
-- 2026-06-30 05:09 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/425867.shtml)
-- 2026-06-30 05:04 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/782711119.shtml)
-- 2026-06-30 05:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/3890323212.shtml)
-- 2026-06-30 05:11 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/093786775435.shtml)
-- 2026-06-30 05:10 - [南北多地暴雨和强对流天气持续](https://www.blog.minike.top/Article/details/74857433.shtml)
-- 2026-06-30 05:24 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/0857919375.shtml)
-- 2026-06-30 05:07 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/9698664332.shtml)
-- 2026-06-30 05:16 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/283538812.shtml)
-- 2026-06-30 05:03 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/1121746752.shtml)
-- 2026-06-30 05:08 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/84731397121.shtml)
-- 2026-06-30 05:14 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/012998007.shtml)
+- 2026-06-30 05:10 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/326607776008.shtml)
+- 2026-06-30 05:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/158142266.shtml)
+- 2026-06-30 05:10 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/95036211021.shtml)
+- 2026-06-30 05:25 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/69554307109.shtml)
+- 2026-06-30 05:34 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/136232433.shtml)
+- 2026-06-30 05:31 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/056672994678.shtml)
+- 2026-06-30 05:18 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/302198491.shtml)
+- 2026-06-30 05:21 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/344868.shtml)
+- 2026-06-30 05:34 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/1236987112.shtml)
+- 2026-06-30 05:24 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/234664347.shtml)
+- 2026-06-30 05:22 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/23929.shtml)
+- 2026-06-30 05:23 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/5729892637.shtml)
+- 2026-06-30 05:24 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/5572781290.shtml)
+- 2026-06-30 05:31 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/67718107.shtml)
+- 2026-06-30 05:10 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/9818794.shtml)

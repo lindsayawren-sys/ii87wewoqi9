@@ -1,60 +1,58 @@
-# 战争与能源冲击压顶 欧元区经济难承其重
+# 奔驰中国又裁员了？巨头奔驰的持续收缩意味着什么？
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-欧盟委员会表示，受伊朗战争引发的能源成本飙升冲击，欧元区经济增长将明显放缓，同时通胀将录得自2023年以来最快步伐。 在最新发布的经济预测中，该欧盟执行机构预计，欧元区经济今年将增长0.9%，明显低于去年的1.4%，也较去年11月的预测下调0.3个百分点。对于2027年，欧盟委员会将增长预期下调至1.2%。 通胀方面，欧盟委员会预计欧元区2026年平均通胀率将达到3%，远高于上
+曾经，开宝马坐奔驰是中国人的一种豪车信仰，然而就在最近这个信仰似乎发生了变化，在上次裁员一年多之后，奔驰中国又开始裁员的消息传来，巨头奔驰的持续缩水到底意味着什么？ 一、奔驰中国又裁员了？ 《经济日报》消息称，继2025年2月首轮人员优化之后，北京奔驰（以下简称“北奔”）在不到一年半的时间内，再度启动大规模结构性裁员。 本轮裁员主要集中在北奔销售板块，计划将现有约900名员工缩
 
 ## 正文
 
-欧盟委员会表示，受伊朗战争引发的能源成本飙升冲击，欧元区经济增长将明显放缓，同时通胀将录得自2023年以来最快步伐。
+曾经，开宝马坐奔驰是中国人的一种豪车信仰，然而就在最近这个信仰似乎发生了变化，在上次裁员一年多之后，奔驰中国又开始裁员的消息传来，巨头奔驰的持续缩水到底意味着什么？
 
-在最新发布的经济预测中，该欧盟执行机构预计，欧元区经济今年将增长0.9%，明显低于去年的1.4%，也较去年11月的预测下调0.3个百分点。
+一、奔驰中国又裁员了？
 
-对于2027年，欧盟委员会将增长预期下调至1.2%。
+《经济日报》消息称，继2025年2月首轮人员优化之后，北京奔驰（以下简称“北奔”）在不到一年半的时间内，再度启动大规模结构性裁员。
 
-通胀方面，欧盟委员会预计欧元区2026年平均通胀率将达到3%，远高于上一轮预测的1.9%，也显著高于欧洲央行2%的目标水平；预计到明年将回落至2.3%。
+本轮裁员主要集中在北奔销售板块，计划将现有约900名员工缩减至600人以内。
 
-布鲁塞尔官员警告称，在另一种假设伊朗危机导致局势长期动荡的情景下，通胀将难以回落，经济活动也无法在2027年实现反弹。
+裁员分为两个阶段推进，目前正在落地的裁员比例为10%，员工补偿标准为N+6；后续年底还将开启第二轮裁员工作，全面完成本轮组织缩编。
 
-欧盟经济事务专员Valdis Dombrovskis表示，“中东冲突引发了重大能源冲击，在本已充满地缘政治和贸易不确定性的环境下，欧洲正面临进一步考验。
+相较于2025年首轮调整，奔驰中国的第二轮裁员，力度与福利标准明显收紧。
 
-” 上述预测发布之前，Dombrovskis已多次警告称，欧洲正面临陷入“滞胀冲击”的现实风险，即低增长与高通胀并存。
+2025年2月，奔驰开启首轮大规模裁员时，给出的基础补偿为N+9，现场签约员工可额外获得3个月工资补贴；若员工两个月内未入职新单位，还可享受过渡期薪资补偿，整体最高赔付标准可达N+11，被视作豪华车企温和优化的典型案例。
 
-不过，欧洲央行行长拉加德对此说法予以淡化。
+而本轮裁员仅保留了N+6的基础补偿政策，取消了此前的签约奖励与过渡期工资补贴，员工权益保障力度缩水。
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 05:27 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 05:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 05:20 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 05:05 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 05:26 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 05:18 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 05:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-30 05:11 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 05:00 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
-- 2026-06-30 05:07 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 05:21 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 05:29 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 05:22 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-30 05:10 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 05:31 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 05:09 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 05:12 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 05:15 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 05:06 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 05:27 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 05:22 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 05:08 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 05:31 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 05:29 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 05:20 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/06646505.shtml)
-- 2026-06-30 05:14 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/67430280.shtml)
-- 2026-06-30 05:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/937543518261.shtml)
-- 2026-06-30 05:21 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/20060.shtml)
-- 2026-06-30 05:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/50225539.shtml)
-- 2026-06-30 05:04 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/5565574.shtml)
-- 2026-06-30 05:18 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/729523236853.shtml)
-- 2026-06-30 05:24 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/972478.shtml)
-- 2026-06-30 05:16 - [极限挑战第一季](http://www.share.minike.top/Article/details/02820.shtml)
-- 2026-06-30 05:01 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/132457275.shtml)
-- 2026-06-30 05:17 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/86276874.shtml)
-- 2026-06-30 05:06 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/96461607.shtml)
-- 2026-06-30 05:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/322627.shtml)
-- 2026-06-30 05:02 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/555391502.shtml)
-- 2026-06-30 05:06 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/527287213.shtml)
+- 2026-06-30 05:13 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/975193114774.shtml)
+- 2026-06-30 05:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/29758.shtml)
+- 2026-06-30 05:12 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/2393830216.shtml)
+- 2026-06-30 05:30 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/0896354.shtml)
+- 2026-06-30 05:18 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/49587.shtml)
+- 2026-06-30 05:30 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/602041778.shtml)
+- 2026-06-30 05:11 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/400667362.shtml)
+- 2026-06-30 05:30 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/91081073.shtml)
+- 2026-06-30 05:26 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/1398870.shtml)
+- 2026-06-30 05:22 - [千与千寻](http://www.blog.minike.top/Article/details/13736.shtml)
+- 2026-06-30 05:33 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/79613302113.shtml)
+- 2026-06-30 05:15 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/6937772617.shtml)
+- 2026-06-30 05:24 - [送你一朵小红花](https://www.share.minike.top/Article/details/59110769553.shtml)
+- 2026-06-30 05:19 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/476840248344.shtml)
+- 2026-06-30 05:06 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/46793828801.shtml)

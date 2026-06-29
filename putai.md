@@ -1,59 +1,61 @@
-# 欧洲股市小幅走弱，投资者静待中东和平局势最新进展
+# 柳州海关综合技术服务中心2026年“两新”项目实验室仪器设备采购项目公告
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-周四欧洲股市小幅走低，投资者保持谨慎，静待美伊和平谈判的进一步进展。 伊朗表示正在审议华盛顿方面提出的结束冲突的最新方案；而美国总统特朗普称，他愿意耐心等待德黑兰方面给出“满意答复”，但如果双方未能达成协议，美方将重启打击。 截至格林尼治标准时间07：01，泛欧斯托克600指数下跌0.2%，报618.79点；该指数周三曾上涨1.5%，逼近两周高位。 全球股市普遍反弹，但欧洲股市
+根据我单位工作需要，拟采购低速大容量离心机1台、纯水机1台。按照工作流程，本着公开、公平、公正的原则，现邀请符合条件且有意向承接该项工作的供应商参与，具体要求如下： 项目名称：柳州海关综合技术服务中心2026年“两新”项目实验室仪器设备采购项目。 采购设备：1.低速大容量离心机，预算金额：11万元。 2.纯水机，预算金额：12万元。二、项目预算 人民币贰拾叁万元整(¥23000
 
 ## 正文
 
-周四欧洲股市小幅走低，投资者保持谨慎，静待美伊和平谈判的进一步进展。
+根据我单位工作需要，拟采购低速大容量离心机1台、纯水机1台。
 
-伊朗表示正在审议华盛顿方面提出的结束冲突的最新方案；而美国总统特朗普称，他愿意耐心等待德黑兰方面给出“满意答复”，但如果双方未能达成协议，美方将重启打击。
+按照工作流程，本着公开、公平、公正的原则，现邀请符合条件且有意向承接该项工作的供应商参与，具体要求如下： 项目名称：柳州海关综合技术服务中心2026年“两新”项目实验室仪器设备采购项目。
 
-截至格林尼治标准时间07：01，泛欧斯托克600指数下跌0.2%，报618.79点；该指数周三曾上涨1.5%，逼近两周高位。
+采购设备：1.低速大容量离心机，预算金额：11万元。
 
-全球股市普遍反弹，但欧洲股市却未能回升至战前水平，主要受两大因素拖累：欧洲经济体高度依赖石油进口，且在人工智能科技领域布局有限。
+2.纯水机，预算金额：12万元。
 
-消息人士向路透社透露，欧洲央行6月加息的理由已基本成立，但该行可能对后续加息行动持模糊态度。
+二、项目预算 人民币贰拾叁万元整(¥230000.00)，供应商报价不得超出项目预算，否则按无效报价文件处理。
 
-目前货币市场定价显示，市场预期欧洲央行在年底前将累计加息超过两次。
+三、项目地点 广西柳州市海关路6号。
 
-个股方面，英国廉价航空公司易捷航空股价下跌1.8%。
+四、采购方式 协商谈判。
 
-该公司公布上半年业绩亏损，并表示受伊朗战争影响，全年业绩前景仍存在不确定性。
+五、采购要求 详见采购需求表(附件1)。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 05:05 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 05:20 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 05:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 05:03 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 05:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 05:25 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 05:26 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 05:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 05:08 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 05:07 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 05:23 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-30 05:12 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 05:30 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 05:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 05:13 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 05:17 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 05:31 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 05:07 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 05:12 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 05:16 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 05:24 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 05:23 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 05:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 05:32 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 05:29 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 05:16 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/649159963712.shtml)
-- 2026-06-30 05:19 - [《共患难》](http://www.share.kurohicncr.top/Article/details/137003914.shtml)
-- 2026-06-30 05:15 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/41692838427.shtml)
-- 2026-06-30 05:05 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/44935783.shtml)
-- 2026-06-30 05:05 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/733357250481.shtml)
-- 2026-06-30 05:00 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/258614190.shtml)
-- 2026-06-30 05:21 - [电影后室值得看吗](http://www.share.minike.top/Article/details/169950298.shtml)
-- 2026-06-30 05:25 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/561739.shtml)
-- 2026-06-30 05:22 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/36576626.shtml)
-- 2026-06-30 05:07 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/68870159760.shtml)
-- 2026-06-30 05:27 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/5198777599.shtml)
-- 2026-06-30 05:00 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/326274.shtml)
-- 2026-06-30 05:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/733046.shtml)
-- 2026-06-30 05:10 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/092109287.shtml)
-- 2026-06-30 05:27 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/022778750779.shtml)
+- 2026-06-30 05:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/68950226683.shtml)
+- 2026-06-30 05:19 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/968805466.shtml)
+- 2026-06-30 05:19 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/455573744478.shtml)
+- 2026-06-30 05:30 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/63641404507.shtml)
+- 2026-06-30 05:12 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/645598417366.shtml)
+- 2026-06-30 05:07 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/4890026293.shtml)
+- 2026-06-30 05:13 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/8491033.shtml)
+- 2026-06-30 05:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/8823602874.shtml)
+- 2026-06-30 05:14 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/351139849.shtml)
+- 2026-06-30 05:10 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/381182.shtml)
+- 2026-06-30 05:25 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/024567.shtml)
+- 2026-06-30 05:15 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/4195560554.shtml)
+- 2026-06-30 05:22 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/007908631.shtml)
+- 2026-06-30 05:16 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/6888564.shtml)
+- 2026-06-30 05:29 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/9585742.shtml)

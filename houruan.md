@@ -1,59 +1,57 @@
-# 中东局势拐点已至 黄金反弹机会临近？
+# 曝小红书计划本月底秘密提交香港IPO申请，估值曾达310亿美元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-来源：汇通网 周四（5月21日）亚欧时段，现货黄金走出冲高回落加探底回升的小幅震荡行情，目前交投于4538左右，依然守住4500点整数关口，在多方地缘政治力量的拉锯下，全球地缘政治格局正迎来关键拐点。 近期围绕美伊和谈、霍尔木兹海峡通行权以及以色列表态的系列动态，不仅直接牵动着中东的局势走向，也正在为国际黄金市场注入新的波动催化剂。 美伊和谈步入深水区：停战协议渐行渐近 最新消
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：三言科技）据彭博消息，小红书计划在本月底前秘密提交香港IPO申请，目前正与顾问机构合作推进相关准备工作。小红书由毛文超和瞿芳于2013年在上海创立，曾获腾讯与金沙江创投投资。2024年融资轮中，小红书估值约为170亿美元。随着业务增长，2025年9月二级市场交易中估值飙升至310亿美元，并向股东预测
 
 ## 正文
 
-来源：汇通网 周四（5月21日）亚欧时段，现货黄金走出冲高回落加探底回升的小幅震荡行情，目前交投于4538左右，依然守住4500点整数关口，在多方地缘政治力量的拉锯下，全球地缘政治格局正迎来关键拐点。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-近期围绕美伊和谈、霍尔木兹海峡通行权以及以色列表态的系列动态，不仅直接牵动着中东的局势走向，也正在为国际黄金市场注入新的波动催化剂。
+（来源：三言科技）据彭博消息，小红书计划在本月底前秘密提交香港IPO申请，目前正与顾问机构合作推进相关准备工作。
 
-美伊和谈步入深水区：停战协议渐行渐近 最新消息表明，美伊之间的外交接触正释放出近年来最强烈的缓和信号。
+小红书由毛文超和瞿芳于2013年在上海创立，曾获腾讯与金沙江创投投资。
 
-据外媒披露，美国前总统特朗普的周边幕僚正在施加压力，极力推动其与伊朗达成相关协议。
+2024年融资轮中，小红书估值约为170亿美元。
 
-目前，调解国卡塔尔和巴基斯坦已准备了一份修订后的和平备忘录。
+随着业务增长，2025年9月二级市场交易中估值飙升至310亿美元，并向股东预测2025年全年利润将达到约30亿美元。
 
-美方已向伊方递交文本草案（包含一份旨在正式结束战争并开启30天谈判的“意向书”），而伊朗伊斯兰共和国通讯社（ISNA）也公开证实，伊朗“正在回应美方的这份文本草案”。
+尽管今年香港市场对科技企业上市接受度较强，迎来MiniMax和壁仞科技等新兴AI企业的上市热潮，但新兴AI企业估值仍面临压力。
 
-此外，巴基斯坦陆军参谋长访问德黑兰，意在进一步缩小双方分歧，推动正式协议声明的达成。
-
-随着外交努力的升温，美方此前扣押船只上的20名伊朗船员已获释并返回家园。
+小红书此前曾尝试在美国上市，但2021年因监管环境变化搁置了计划。
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-30 05:02 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 05:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 05:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-30 05:17 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 05:13 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
-- 2026-06-30 05:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 05:01 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 05:15 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 05:30 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 05:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 05:23 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 05:13 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 05:11 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 05:13 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 05:22 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 05:34 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 05:13 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 05:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 05:11 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 05:22 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 05:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 05:20 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-30 05:15 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 05:08 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/347872.shtml)
-- 2026-06-30 05:08 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/88097098393.shtml)
-- 2026-06-30 05:19 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/62512.shtml)
-- 2026-06-30 05:07 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/01367.shtml)
-- 2026-06-30 05:07 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/1413425.shtml)
-- 2026-06-30 05:15 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/7609936.shtml)
-- 2026-06-30 05:29 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/81170416081.shtml)
-- 2026-06-30 05:21 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/680781247.shtml)
-- 2026-06-30 05:06 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/10232.shtml)
-- 2026-06-30 05:16 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/245251034394.shtml)
-- 2026-06-30 05:12 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/46302906066.shtml)
-- 2026-06-30 05:24 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/09993.shtml)
-- 2026-06-30 05:29 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/6896110992.shtml)
-- 2026-06-30 05:20 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/14788.shtml)
-- 2026-06-30 05:10 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/15535730.shtml)
+- 2026-06-30 05:30 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/754082.shtml)
+- 2026-06-30 05:20 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/3187190.shtml)
+- 2026-06-30 05:15 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/19689.shtml)
+- 2026-06-30 05:24 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/79725753.shtml)
+- 2026-06-30 05:20 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/2510957148.shtml)
+- 2026-06-30 05:24 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/38636591633.shtml)
+- 2026-06-30 05:18 - [警犬“多多”助民警寻回失联老人](http://www.blog.minike.top/Article/details/696512904.shtml)
+- 2026-06-30 05:16 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/0255728.shtml)
+- 2026-06-30 05:23 - [天道](https://www.blog.kurohicncr.top/Article/details/73830749075.shtml)
+- 2026-06-30 05:18 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/45651248931.shtml)
+- 2026-06-30 05:11 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/22390751572.shtml)
+- 2026-06-30 05:18 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/32800694092.shtml)
+- 2026-06-30 05:30 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/468810413.shtml)
+- 2026-06-30 05:28 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/01712961.shtml)
+- 2026-06-30 05:09 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/01428295078.shtml)

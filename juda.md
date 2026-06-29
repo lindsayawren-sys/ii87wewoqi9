@@ -1,51 +1,58 @@
-# 全球首例 内蒙古贺兰山重引入雪豹繁殖出“豹二代”
+# 香港打造国产智算中心 算力规模将超4万PFLOPS
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 14:48 来源：中国新闻网 近日，内蒙古贺兰山国家级自然保护区红外相机多次拍到雪豹幼崽活动的清晰画面。影像完整记录幼崽从近5月龄至1岁龄成长轨迹，包含跟随母豹在岩壁上嬉戏觅食、巡视领地及亚成体体态趋近成年的珍贵场景。 经卫星定位与影像分析确认，幼崽母本为2024年放归的雌豹“F2”，父本为2021年放归的雄豹“四王子 M1”。这一成果是全球雪
+中新网香港6月16日电 (记者 刘玥晴)香港科技园公司与商汤科技16日在香港签订合作备忘录，双方计划携手打造香港最大国产智算中心，目标于2030年前建成，算力规模预计超过4万PFLOPS(即petaFLOPS，相当于每秒一千万亿次的浮点运算)。 该中心将配备多元国产算力GPU(图形处理器)集群，为企业在模型训练、推理及大规模应用部署等不同场景提供高效稳定的算力支持，加快推动香港
 
 ## 正文
 
-发布时间：2026年05月22日 14:48 来源：中国新闻网 近日，内蒙古贺兰山国家级自然保护区红外相机多次拍到雪豹幼崽活动的清晰画面。
+中新网香港6月16日电 (记者 刘玥晴)香港科技园公司与商汤科技16日在香港签订合作备忘录，双方计划携手打造香港最大国产智算中心，目标于2030年前建成，算力规模预计超过4万PFLOPS(即petaFLOPS，相当于每秒一千万亿次的浮点运算)。
 
-影像完整记录幼崽从近5月龄至1岁龄成长轨迹，包含跟随母豹在岩壁上嬉戏觅食、巡视领地及亚成体体态趋近成年的珍贵场景。
+该中心将配备多元国产算力GPU(图形处理器)集群，为企业在模型训练、推理及大规模应用部署等不同场景提供高效稳定的算力支持，加快推动香港AI(人工智能)产业落地，进一步提升香港在全球创科发展中的竞争力。
 
-经卫星定位与影像分析确认，幼崽母本为2024年放归的雌豹“F2”，父本为2021年放归的雄豹“四王子 M1”。
+香港科技园公司行政总裁黄秉修在致辞时表示，算力建设是推动AI创新落地的核心动力。
 
-这一成果是全球雪豹重引入项目中首例完整实现“野放定植—自然配对—野外产崽—成功育幼”的重大突破，打破了长期以来雪豹重引入难以实现野外自然繁殖的困局，标志着中国雪豹保护从“种群恢复”迈入“历史分布区重建”的新时期。
+此次合作不但加速技术创新及本地应用落地，更推动香港“AI+”创科生态圈蓬勃发展，赋能百业，助力香港迈向“AI产业化、产业AI化”的未来。
 
-(记者 陈峰 视频来源 阿拉善盟融媒体中心) 责任编辑：【李季】
+商汤科技董事长兼首席执行官徐立受访时说，AI发展正从模型能力竞争，走向算力、模型、应用和生态的系统能力竞争。
+
+商汤科技将以“算力+模型+应用”的能力为支撑，参与建设全港最大国产智算中心，助力香港国际创科中心及人工智能枢纽建设。
+
+据悉，商汤科技已于香港交易所主板挂牌上市，业务涵盖生成式AI、视觉AI等，是香港科技园公司旗下香港科学园的首家独角兽企业，在北京、上海、新加坡、阿布扎比等地均设立了办公室。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:17 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-30 05:20 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 05:21 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 05:10 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 05:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-30 05:24 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 05:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-30 05:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 05:28 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 05:20 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 05:03 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 05:18 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 05:13 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 05:12 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 05:10 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 05:21 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 05:11 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-30 05:31 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 05:16 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 05:12 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 05:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 05:13 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 05:20 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:14 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/0030624.shtml)
-- 2026-06-30 05:03 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/7830851.shtml)
-- 2026-06-30 05:14 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/317277406.shtml)
-- 2026-06-30 05:16 - [日本 高位逼抢](https://www.blog.minike.top/Article/details/15632.shtml)
-- 2026-06-30 05:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/672323552.shtml)
-- 2026-06-30 05:29 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/865913516357.shtml)
-- 2026-06-30 05:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/95767.shtml)
-- 2026-06-30 05:09 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/568952.shtml)
-- 2026-06-30 05:18 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/60348.shtml)
-- 2026-06-30 05:21 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/478663669.shtml)
-- 2026-06-30 05:14 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/03759.shtml)
-- 2026-06-30 05:18 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/972469371601.shtml)
-- 2026-06-30 05:04 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/956687834588.shtml)
-- 2026-06-30 05:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/526361.shtml)
-- 2026-06-30 05:22 - [TOP Prada](https://www.blog.minike.top/Article/details/327882.shtml)
+- 2026-06-30 05:31 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/79894.shtml)
+- 2026-06-30 05:26 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/97313414.shtml)
+- 2026-06-30 05:08 - [爱很美味](http://www.share.minike.top/Article/details/32689876976.shtml)
+- 2026-06-30 05:16 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/14742900798.shtml)
+- 2026-06-30 05:18 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/8184685.shtml)
+- 2026-06-30 05:30 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/14600842.shtml)
+- 2026-06-30 05:12 - [田曦薇没招了](http://www.share.minike.top/Article/details/54414381232.shtml)
+- 2026-06-30 05:28 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/466339010.shtml)
+- 2026-06-30 05:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/16268.shtml)
+- 2026-06-30 05:10 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/309397.shtml)
+- 2026-06-30 05:29 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/03926.shtml)
+- 2026-06-30 05:15 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/27570970.shtml)
+- 2026-06-30 05:26 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/300632354082.shtml)
+- 2026-06-30 05:18 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/3465150817.shtml)
+- 2026-06-30 05:20 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/413165.shtml)

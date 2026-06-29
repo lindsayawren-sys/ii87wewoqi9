@@ -1,57 +1,58 @@
-# 沙特3月石油出口额飙升至三年新高
+# 原油：油价录得今年最长连跌 美伊协议提振供应预期
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中东战事全面爆发首月，沙特阿拉伯3月石油出口收入飙升至247亿美元，创三年多以来新高。该国依托红海航线转运运力，叠加能源价格走高，抵消了霍尔木兹海峡通行受阻带来的贸易冲击。 沙特总局统计局数据显示，3月沙特原油及石油制品出口总额同比大增37%，创下2022年10月以来最高值。2月末冲突爆发后原油及成品油价格大幅上涨，是收入走高的重要推手。 霍尔木兹海峡航运受阻后，沙特顺利通过境
+油价录得今年以来最长连跌走势，美国与伊朗达成重开霍尔木兹海峡的协议后，市场对供应恢复的预期升温，多家华尔街大行下调油价预测。 全球基准布伦特连续第四个交易日下跌，收于每桶79美元下方，为3月初以来最低水平。 美国和伊朗准备周五正式签署临时和平协议，该协议将允许自冲突爆发以来滞留的油轮驶离这一关键水道。 在有报道称协议将允许伊朗立即出售石油后，油价扩大跌幅。 根据接近最终版本的协
 
 ## 正文
 
-中东战事全面爆发首月，沙特阿拉伯3月石油出口收入飙升至247亿美元，创三年多以来新高。
+油价录得今年以来最长连跌走势，美国与伊朗达成重开霍尔木兹海峡的协议后，市场对供应恢复的预期升温，多家华尔街大行下调油价预测。
 
-该国依托红海航线转运运力，叠加能源价格走高，抵消了霍尔木兹海峡通行受阻带来的贸易冲击。
+全球基准布伦特连续第四个交易日下跌，收于每桶79美元下方，为3月初以来最低水平。
 
-沙特总局统计局数据显示，3月沙特原油及石油制品出口总额同比大增37%，创下2022年10月以来最高值。
+美国和伊朗准备周五正式签署临时和平协议，该协议将允许自冲突爆发以来滞留的油轮驶离这一关键水道。
 
-2月末冲突爆发后原油及成品油价格大幅上涨，是收入走高的重要推手。
+在有报道称协议将允许伊朗立即出售石油后，油价扩大跌幅。
 
-霍尔木兹海峡航运受阻后，沙特顺利通过境内输油管道将大部分原油转运至西海岸港口。
+根据接近最终版本的协议草案，美国还势将向伊朗提供其他经济利益，包括动用3000亿美元发展基金的权利，以及对伊朗原油、石化产品及其衍生品出口的豁免。
 
-伦敦基准原油价格3月大涨43%。
+摩根士丹利和高盛双双下调了未来几个季度的油价预期。
 
-霍尔木兹海峡近乎停航导致全球原油供给大幅缩减，重创部分海湾国家经济。
+高盛目前预计，波斯湾的出口到7月底将回到战前水平，较此前预测的时点提前一个月。
 
-而沙特迅速启用横贯本土的输油管线，将原油输送至红海沿岸备用港口，截至3月底，石油外运产能已恢复至战前约七成水平。
+油价基本抹去了冲突期间的大部分涨幅。
 
 ## 相关推荐
 
-- 2026-06-30 05:12 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-30 05:20 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 05:25 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 05:12 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 05:28 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 05:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 05:24 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 05:09 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-30 05:27 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 05:19 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-30 05:27 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 05:10 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 05:10 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 05:32 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 05:23 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 05:09 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 05:30 - [周杰伦的歌勾起25年友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 05:08 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 05:29 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-30 05:29 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 05:35 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-30 05:26 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 05:06 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/82048.shtml)
-- 2026-06-30 05:03 - [小娘惹](https://www.share.minike.top/Article/details/5568231.shtml)
-- 2026-06-30 05:04 - [女心理师](https://www.share.kurohicncr.top/Article/details/9517362818.shtml)
-- 2026-06-30 05:08 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/5257384999.shtml)
-- 2026-06-30 05:28 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/421591649.shtml)
-- 2026-06-30 05:09 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/67241.shtml)
-- 2026-06-30 05:12 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/61767548.shtml)
-- 2026-06-30 05:21 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/464447790.shtml)
-- 2026-06-30 05:11 - [田曦薇没招了](https://www.share.minike.top/Article/details/75158710.shtml)
-- 2026-06-30 05:20 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/7136703.shtml)
-- 2026-06-30 05:29 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/66660975307.shtml)
-- 2026-06-30 05:18 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/94763120597.shtml)
-- 2026-06-30 05:27 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/913017226.shtml)
-- 2026-06-30 05:08 - [田曦薇没招了](https://www.share.minike.top/Article/details/17634476012.shtml)
-- 2026-06-30 05:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/07065371431.shtml)
+- 2026-06-30 05:20 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/113204324.shtml)
+- 2026-06-30 05:28 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/391769.shtml)
+- 2026-06-30 05:14 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/02263.shtml)
+- 2026-06-30 05:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/351640.shtml)
+- 2026-06-30 05:14 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/3211040169.shtml)
+- 2026-06-30 05:17 - [张碧晨最佳女歌手](http://www.share.minike.top/Article/details/11579.shtml)
+- 2026-06-30 05:10 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/2727352936.shtml)
+- 2026-06-30 05:08 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/524467703.shtml)
+- 2026-06-30 05:19 - [小娘惹](http://www.share.minike.top/Article/details/017257.shtml)
+- 2026-06-30 05:10 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/2096685785.shtml)
+- 2026-06-30 05:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/2052869.shtml)
+- 2026-06-30 05:17 - [巴西绝杀日本](https://www.share.minike.top/Article/details/321701.shtml)
+- 2026-06-30 05:34 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/77908082.shtml)
+- 2026-06-30 05:30 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/024537977127.shtml)
+- 2026-06-30 05:26 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/075516464.shtml)

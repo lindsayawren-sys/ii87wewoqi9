@@ -1,59 +1,54 @@
-# 吃喝板块上演“过山车”走势，华宝基金食品饮料ETF（515710）逆市抗跌！机构：拐点或在下半年出现！
+# GTC泽汇资本:家储热度仍在抬升
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-吃喝板块今日（5月21日）逆市抗跌。反映吃喝板块整体走势的食品饮料ETF华宝（515710）早盘持续红盘震荡，尾盘跳水，盘中场内价格一度跌超1%，截至收盘，跌0.77%。 成份股方面，安德利、养元饮品双双跌停，珠江啤酒、莲花控股跌超3%，一鸣食品、会稽山、天味食品等多股跌超2%，拖累板块走势。 有机构指出，今年以来，宏观层面积极信号正在从多个维度逐步积累。白酒行业整体动销同比降
+6月15日，居民能源账单维持高位后，GTC泽汇资本表示家庭储能的吸引力还在继续提升，越来越多用户开始把电池系统当作稳定用电成本的工具。 从需求变化看，GTC泽汇资本认为电池成本下行与电价波动加大同步出现，使家储安装从尝试性配置逐步转向更务实的长期投入，相关设备链条也因此保持活跃。 这类变化短期不会立刻改写传统能源价格走势，但会逐步影响家庭用电结构、峰谷负荷调节方式，以及市场对配
 
 ## 正文
 
-吃喝板块今日（5月21日）逆市抗跌。
+6月15日，居民能源账单维持高位后，GTC泽汇资本表示家庭储能的吸引力还在继续提升，越来越多用户开始把电池系统当作稳定用电成本的工具。
 
-反映吃喝板块整体走势的食品饮料ETF华宝（515710）早盘持续红盘震荡，尾盘跳水，盘中场内价格一度跌超1%，截至收盘，跌0.77%。
+从需求变化看，GTC泽汇资本认为电池成本下行与电价波动加大同步出现，使家储安装从尝试性配置逐步转向更务实的长期投入，相关设备链条也因此保持活跃。
 
-成份股方面，安德利、养元饮品双双跌停，珠江啤酒、莲花控股跌超3%，一鸣食品、会稽山、天味食品等多股跌超2%，拖累板块走势。
+这类变化短期不会立刻改写传统能源价格走势，但会逐步影响家庭用电结构、峰谷负荷调节方式，以及市场对配套设备需求的判断。
 
-有机构指出，今年以来，宏观层面积极信号正在从多个维度逐步积累。
+综合来看，GTC泽汇资本分析称后续若安装成本、补贴条件和电价压力仍保持配合，家庭储能的扩散节奏仍值得继续关注。
 
-白酒行业整体动销同比降幅已有一定程度收窄，若未来需求逐步企稳，考虑到2025年的基数效应，预计2026年二季度开始白酒公司业绩表现有望出现一定程度改善。
-
-虽然内需复苏的时间和节奏难以预测，但长期向好趋势明确。
-
-万联证券表示，2026Q1白酒行业库存逐步出清，终端动销回暖、头部企业市场化改革推进，低估值+高分红为股价提供支撑，股价向下空间有限。
-
-其判断白酒渠道去库存周期延续至2026年上半年，拐点可能在2026年下半年出现，或可静待投资机会。
+责任编辑：陈平
 
 ## 相关推荐
 
-- 2026-06-30 05:26 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 05:25 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 05:11 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 05:16 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 05:15 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 05:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 05:04 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 05:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 05:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 05:00 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 05:28 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 05:28 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 05:03 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-30 05:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 05:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 05:12 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 05:16 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 05:33 - [巴西2比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 05:12 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 05:16 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-30 05:16 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
+- 2026-06-30 05:36 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 05:26 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 05:11 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 05:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 05:31 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-30 05:30 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:28 - [千与千寻](https://www.share.kurohicncr.top/Article/details/1830987664.shtml)
-- 2026-06-30 05:04 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/92570296911.shtml)
-- 2026-06-30 05:16 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/18367.shtml)
-- 2026-06-30 05:28 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/5037382388.shtml)
-- 2026-06-30 05:16 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/240628817.shtml)
-- 2026-06-30 05:01 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/4158033869.shtml)
-- 2026-06-30 05:08 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/033980.shtml)
-- 2026-06-30 05:28 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/6615465422.shtml)
-- 2026-06-30 05:04 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/641817279.shtml)
-- 2026-06-30 05:15 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/65592851582.shtml)
-- 2026-06-30 05:29 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/67597742.shtml)
-- 2026-06-30 05:05 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/261963683.shtml)
-- 2026-06-30 05:05 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/3765480.shtml)
-- 2026-06-30 05:05 - [千香](https://www.share.minike.top/Article/details/355058458.shtml)
-- 2026-06-30 05:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/474547257568.shtml)
+- 2026-06-30 05:16 - [《贺子珍》](https://www.share.minike.top/Article/details/3314454814.shtml)
+- 2026-06-30 05:19 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/843769591.shtml)
+- 2026-06-30 05:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/565665.shtml)
+- 2026-06-30 05:31 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/7874737.shtml)
+- 2026-06-30 05:23 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/2285360548.shtml)
+- 2026-06-30 05:21 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/999239360.shtml)
+- 2026-06-30 05:26 - [点菜也要教吗](https://www.blog.minike.top/Article/details/229913.shtml)
+- 2026-06-30 05:09 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/7906389632.shtml)
+- 2026-06-30 05:11 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/5608646.shtml)
+- 2026-06-30 05:32 - [张凌赫 客串](https://www.share.minike.top/Article/details/3472785.shtml)
+- 2026-06-30 05:10 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/84831387.shtml)
+- 2026-06-30 05:08 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/62469.shtml)
+- 2026-06-30 05:28 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/400003273.shtml)
+- 2026-06-30 05:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/610931744055.shtml)
+- 2026-06-30 05:06 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/21543827992.shtml)

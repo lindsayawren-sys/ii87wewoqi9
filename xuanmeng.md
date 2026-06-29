@@ -1,59 +1,61 @@
-# 骑乘电动车务必戴牢头盔 公安交管部门提示
+# 计划上市前夕，OpenAI去年支出达340亿美元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-新修订的《北京市非机动车管理条例》实施已三周，尽管交管部门和各区政府等部门持续强调规范佩戴安全头盔的重要性，近期仍有骑行人因未规范佩戴遇交通事故遭遇不幸。 5月12日晚9点多，在北京昌平区育知西路，一骑车人骑电动自行车由南向西横穿道路，与一辆由北向南直行的大客车发生碰撞事故，造成骑车人侧向倒地受伤，后经医院抢救无效不幸身亡。从监控视频中可以看到，事故发生时骑车人把安全头盔放在前
+ChatGPT开发商OpenAI去年全年支出达340亿美元。为抢占高速增长的人工智能市场主导权，公司在筹备上市前夕持续大手笔投入。 知情人士证实的经审计财务数据显示，2025年该公司研发投入约190亿美元，销售与营销支出近60亿美元，此外还有各类其他运营成本。 相较于前一年，OpenAI开支大幅飙升，这份数据罕见地揭开了人工智能行业繁荣背后的财务真相，尤其是OpenAI在大模型
 
 ## 正文
 
-新修订的《北京市非机动车管理条例》实施已三周，尽管交管部门和各区政府等部门持续强调规范佩戴安全头盔的重要性，近期仍有骑行人因未规范佩戴遇交通事故遭遇不幸。
+ChatGPT开发商OpenAI去年全年支出达340亿美元。
 
-5月12日晚9点多，在北京昌平区育知西路，一骑车人骑电动自行车由南向西横穿道路，与一辆由北向南直行的大客车发生碰撞事故，造成骑车人侧向倒地受伤，后经医院抢救无效不幸身亡。
+为抢占高速增长的人工智能市场主导权，公司在筹备上市前夕持续大手笔投入。
 
-从监控视频中可以看到，事故发生时骑车人把安全头盔放在前车筐中，并没有规范佩戴，头盔根本没能发挥应有的保护作用。
+知情人士证实的经审计财务数据显示，2025年该公司研发投入约190亿美元，销售与营销支出近60亿美元，此外还有各类其他运营成本。
 
-北京公安交管部门提示：安全头盔是电动自行车骑乘人员发生交通事故遇险时的“最后一道防线”，能有效降低交通事故带来的头部损伤风险，大幅减少伤亡概率。
+相较于前一年，OpenAI开支大幅飙升，这份数据罕见地揭开了人工智能行业繁荣背后的财务真相，尤其是OpenAI在大模型研发、数据中心建设、顶尖科研人才招聘上的巨额投入。
 
-骑行电动自行车请牢记并践行“骑车戴头盔，乘车戴头盔，喝酒不骑车，不闯灯、不逆行”，文明骑行、安全出行，共同维护首都安全、有序、畅通的道路交通环境。
+独立记者埃德・齐特龙率先向媒体披露了上述财务数据，数据显示OpenAI营收规模已跟不上成本上涨的速度。
 
-交管部门将持续常态化开展电动自行车交通违法治理与宣传引导工作，加强各类交通违法的查处治理，通过路面执法、科普宣传、温馨提示等多种形式，推动安全骑行理念深入人心。
+公司2025年全年营收约130亿美元；截至2025年末，月营收达到20亿美元，对比2024年末季度10亿美元的收入实现翻倍，使其成为史上增长速度最快的企业之一。
 
-(总台央视记者 赵学荣)
+但巨额投入也导致OpenAI归属净亏损同比扩大近7倍，从2024年的50亿美元飙升至2025年约390亿美元。
+
+知情人士表示，亏损大幅增长绝大部分源于一笔非现金会计调整，和公司此前特殊的股权架构相关，并非日常主营业务亏损。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 05:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-30 05:16 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-30 05:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 05:09 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 05:17 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 05:06 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 05:09 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-30 05:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 05:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 05:07 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 05:04 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 05:24 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 05:10 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 05:20 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 05:15 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-30 05:07 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 05:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 05:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 05:07 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-30 05:20 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 05:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 05:25 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 05:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 05:34 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
+- 2026-06-30 05:34 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-30 05:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 05:08 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 05:31 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 05:35 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/7792913300.shtml)
-- 2026-06-30 05:29 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/90257.shtml)
-- 2026-06-30 05:12 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/075238.shtml)
-- 2026-06-30 05:19 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/429868737187.shtml)
-- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/93596.shtml)
-- 2026-06-30 05:22 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/054821.shtml)
-- 2026-06-30 05:03 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/1808796.shtml)
-- 2026-06-30 05:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/461101122147.shtml)
-- 2026-06-30 05:27 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/8752541337.shtml)
-- 2026-06-30 05:28 - [千与千寻](https://www.blog.minike.top/Article/details/644154.shtml)
-- 2026-06-30 05:17 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/691475323909.shtml)
-- 2026-06-30 05:08 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/35327412.shtml)
-- 2026-06-30 05:21 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/39385875497.shtml)
-- 2026-06-30 05:26 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/776377867.shtml)
-- 2026-06-30 05:18 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/13302163016.shtml)
+- 2026-06-30 05:29 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/03923000270.shtml)
+- 2026-06-30 05:15 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/11522966264.shtml)
+- 2026-06-30 05:27 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/69501850074.shtml)
+- 2026-06-30 05:10 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/127809974152.shtml)
+- 2026-06-30 05:12 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/5614869320.shtml)
+- 2026-06-30 05:14 - [千香](http://www.blog.minike.top/Article/details/99990916494.shtml)
+- 2026-06-30 05:31 - [千香](https://www.share.minike.top/Article/details/142197767392.shtml)
+- 2026-06-30 05:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/629938.shtml)
+- 2026-06-30 05:13 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/0304162.shtml)
+- 2026-06-30 05:22 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/60190702.shtml)
+- 2026-06-30 05:25 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/8433869893.shtml)
+- 2026-06-30 05:33 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/005827340572.shtml)
+- 2026-06-30 05:20 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/049840694095.shtml)
+- 2026-06-30 05:23 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/97869707.shtml)
+- 2026-06-30 05:15 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/15244034.shtml)

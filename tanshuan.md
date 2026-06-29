@@ -1,57 +1,61 @@
-# 酒价内参5月22日价格发布：习酒君品小幅下跌1元，再度回落至月内次低位
+# 特朗普过去24小时都忙了什么？（2026-06-16）
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。 今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。上涨方面，青花郎涨幅居前，上涨5元/瓶，重
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十数据 1． 声称多艘装载石油船只正通过霍尔木兹海峡——当地时间6月15日，特朗普在社交媒体平台“真实社交”发文称，已有船只开始通过霍尔木兹海峡运输原油并驶离相关水域。 2． 将于周五签署协议后公布文本 油价跌了股市涨了——特朗普表示，霍尔木兹海峡于周五完全开放，协议已全部（以电子方式）签署。将在周
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月22日整体继续下行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9957元，较昨日下跌11元，创下近九天以来最低。
+来源：金十数据 1． 声称多艘装载石油船只正通过霍尔木兹海峡——当地时间6月15日，特朗普在社交媒体平台“真实社交”发文称，已有船只开始通过霍尔木兹海峡运输原油并驶离相关水域。
 
-市场在跌破万元关口后延续整理态势，终端交投情绪偏冷，核心单品涨跌分化依然显著。
+2． 将于周五签署协议后公布文本 油价跌了股市涨了——特朗普表示，霍尔木兹海峡于周五完全开放，协议已全部（以电子方式）签署。
 
-今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
+将在周五之后公布伊朗协议文本。
 
-上涨方面，青花郎涨幅居前，上涨5元/瓶，重返710元关口，平月内最高价纪录；五粮液普五八代上涨2元/瓶；五粮液1618小幅上涨1元/瓶。
+他强调，重要的是油价大幅下跌而股市正在上涨。
 
-下跌方面，洋河梦之蓝M6+跌幅居前，下跌6元/瓶，回吐前一日全部涨幅；国窖1573下跌4元/瓶，连续四日回落，价格进一步远离900元关口，回调至月内低位；飞天茅台、精品茅台、古井贡古20与水晶剑南春均下跌2元/瓶；古20遭遇四连阴，价格下探至月内新低；水晶剑南春平近一个月最低价纪录；习酒君品小幅下跌1元/瓶，价格再度回落至月内次低位。
+3． 弄混3亿和3000亿——当地时间6月16日凌晨，特朗普在社交平台发文称，“有关‘美国将向伊朗支付3亿美元’的报道是假新闻。
 
-青花汾20的价格环比保持不变，平月内最低价纪录。
+”而伊朗媒体昨天披露的伊美谅解备忘录14项条款中涉及具体金额的一项为：美国及其盟友有必要提出对伊朗的重建计划，金额至少3000亿美元。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+4． 伊朗协议谈判进入第二阶段 美国不会在伊朗投入任何资金——特朗普16日称，美国和伊朗已成功在线上签署谅解备忘录，现在美伊协议谈判已进入第二阶段。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-30 05:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 05:27 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 05:10 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-30 05:14 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 05:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-30 05:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 05:16 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 05:16 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-30 05:03 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-30 05:24 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 05:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 05:26 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 05:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 05:22 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 05:29 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 05:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 05:31 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-30 05:21 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 05:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 05:30 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 05:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 05:32 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 05:33 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-30 05:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-30 05:27 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/55878.shtml)
-- 2026-06-30 05:24 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/42137.shtml)
-- 2026-06-30 05:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/16316274361.shtml)
-- 2026-06-30 05:26 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/19536925233.shtml)
-- 2026-06-30 05:01 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/5624123746.shtml)
-- 2026-06-30 05:12 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/62459631.shtml)
-- 2026-06-30 05:08 - [扬名立万](https://www.blog.minike.top/Article/details/30501964640.shtml)
-- 2026-06-30 05:26 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/46517065.shtml)
-- 2026-06-30 05:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/8304198.shtml)
-- 2026-06-30 05:19 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/04526646414.shtml)
-- 2026-06-30 05:10 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/71861524.shtml)
-- 2026-06-30 05:06 - [乔家的儿女](http://www.blog.minike.top/Article/details/39183653249.shtml)
-- 2026-06-30 05:29 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/206421911369.shtml)
-- 2026-06-30 05:02 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/33306.shtml)
-- 2026-06-30 05:11 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/201943906.shtml)
+- 2026-06-30 05:30 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/212974.shtml)
+- 2026-06-30 05:18 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/6249983.shtml)
+- 2026-06-30 05:18 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/637646712043.shtml)
+- 2026-06-30 05:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/54602036310.shtml)
+- 2026-06-30 05:26 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/2114253.shtml)
+- 2026-06-30 05:07 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/58441545.shtml)
+- 2026-06-30 05:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/80307.shtml)
+- 2026-06-30 05:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/18808266.shtml)
+- 2026-06-30 05:32 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/933214168326.shtml)
+- 2026-06-30 05:31 - [DeepSeek启动成立来最大规模招聘](https://www.share.minike.top/Article/details/1119455.shtml)
+- 2026-06-30 05:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/8219213614.shtml)
+- 2026-06-30 05:25 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/792497438724.shtml)
+- 2026-06-30 05:10 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/174088036981.shtml)
+- 2026-06-30 05:32 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/914243604.shtml)
+- 2026-06-30 05:27 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/37811218.shtml)

@@ -1,56 +1,57 @@
-# 伊美在巴基斯坦调解下继续对话 浓缩铀和霍尔木兹海峡问题分歧明显
+# 重庆小面协会发声：地域公共品牌不支持独家垄断
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新社北京5月22日电 综合消息：在巴基斯坦方面调解下，伊朗与美国之间的消息和文本交换仍在继续，目标是达成协议框架。在伊朗保存浓缩铀、霍尔木兹海峡管辖问题上，伊美间仍存在明显分歧。 伊朗媒体22日称，巴基斯坦内政部长纳克维已与伊朗总统、外交部长、内政部长等多名官员举行会谈。目前，伊朗和美国通过巴基斯坦交换信息、起草文本，努力为达成结束战争的协议搭建正式框架。若达成预期协议框架，
+针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。 协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。重庆小面是承载巴渝民俗文脉的地域公共品牌，归属全体行业
 
 ## 正文
 
-中新社北京5月22日电 综合消息：在巴基斯坦方面调解下，伊朗与美国之间的消息和文本交换仍在继续，目标是达成协议框架。
+针对“遇见小面”起诉“南阳渝见小面”商标纠纷一事，重庆市小面协会15日发布倡议，表示支持企业合法合规商标维权，并认可撤诉处理。
 
-在伊朗保存浓缩铀、霍尔木兹海峡管辖问题上，伊美间仍存在明显分歧。
+协会认为，地域类公共名称，应服务于整个行业发展：依据商标法相关规定，“渝”为重庆地域行政区划简称，“小面”属于餐饮通用商品名称，二者均属于公共资源，不具备商标独占权属，业内主体可依规善意、合理使用。
 
-伊朗媒体22日称，巴基斯坦内政部长纳克维已与伊朗总统、外交部长、内政部长等多名官员举行会谈。
+重庆小面是承载巴渝民俗文脉的地域公共品牌，归属全体行业从业者，倡导全行业共享，不支持单一企业独家垄断。
 
-目前，伊朗和美国通过巴基斯坦交换信息、起草文本，努力为达成结束战争的协议搭建正式框架。
+协会还建议相关部门进一步细化裁判与适用标准，明晰行为界定边界。
 
-若达成预期协议框架，巴陆军参谋长穆尼尔将赴伊朗参与调解。
+一方面甄别恶意侵权、仿冒品牌等行为，另一方面认可小微商户对地域文化符号、品类名称的正常使用，兼顾品牌方知识产权与小微经营主体的合法权益。
 
-中东媒体当天称，有伊朗高级官员表示，“已经接近”达成协议，但另有伊朗消息人士称，“现在说是否能达成协议为时过早”。
+据媒体此前报道，近日，河南南阳一家“渝见小面”餐饮店被连锁品牌“遇见小面”起诉商标侵权，对方律师称撤诉需赔偿七八千元，“渝见小面”负责人哭诉“我八块钱一碗的面，至少得卖1000碗，1000碗还有成本”。
 
-美国总统特朗普21日表示，在签署协议前，不会放松对伊朗制裁。
+此事随之引发争议。
 
-他还称，伊朗必须交出其拥有的浓缩铀，美国拿到后可能将其销毁。
+6月13日，“遇见小面”发布关于商标事件的说明，称已第一时间沟通撤销对“渝见小面”的诉讼，并反思商标维权行动的流程。
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 05:21 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 05:27 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 05:15 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 05:27 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-30 05:24 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-30 05:29 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 05:04 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 05:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 05:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 05:27 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-30 05:32 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-30 05:11 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 05:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 05:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 05:26 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 05:25 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 05:08 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 05:06 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 05:23 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 05:08 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/7583078222.shtml)
-- 2026-06-30 05:27 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/01791888137.shtml)
-- 2026-06-30 05:09 - [日本16强魔咒](https://www.blog.minike.top/Article/details/739118.shtml)
-- 2026-06-30 05:08 - [第一炉香](https://www.blog.minike.top/Article/details/9240147.shtml)
-- 2026-06-30 05:13 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/9243689019.shtml)
-- 2026-06-30 05:19 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/404027011.shtml)
-- 2026-06-30 05:01 - [电影后室值得看吗](https://www.blog.kurohicncr.top/Article/details/4504102640.shtml)
-- 2026-06-30 05:14 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/697778.shtml)
-- 2026-06-30 05:01 - [美股](http://www.share.minike.top/Article/details/922283842.shtml)
-- 2026-06-30 05:22 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/61577311.shtml)
-- 2026-06-30 05:12 - [恋与深空 巧合](https://www.blog.kurohicncr.top/Article/details/479456384.shtml)
-- 2026-06-30 05:07 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/87978767.shtml)
-- 2026-06-30 05:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/896880202039.shtml)
-- 2026-06-30 05:28 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/92054293199.shtml)
-- 2026-06-30 05:27 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/9714076.shtml)
+- 2026-06-30 05:16 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/62584.shtml)
+- 2026-06-30 05:11 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/434252655.shtml)
+- 2026-06-30 05:08 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/704546.shtml)
+- 2026-06-30 05:09 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/1381458074.shtml)
+- 2026-06-30 05:06 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/3604251758.shtml)
+- 2026-06-30 05:28 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/524403794.shtml)
+- 2026-06-30 05:20 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/8762036209.shtml)
+- 2026-06-30 05:12 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/925525332.shtml)
+- 2026-06-30 05:26 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/83261828773.shtml)
+- 2026-06-30 05:15 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/04372825623.shtml)
+- 2026-06-30 05:29 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/80180251924.shtml)
+- 2026-06-30 05:10 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/65703.shtml)
+- 2026-06-30 05:35 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/043281195147.shtml)
+- 2026-06-30 05:27 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/277146.shtml)
+- 2026-06-30 05:24 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/611900874105.shtml)

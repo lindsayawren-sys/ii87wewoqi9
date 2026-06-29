@@ -1,56 +1,61 @@
-# 哈萨克斯坦出台发展规划推进核电建设“国产化”
+# 美伊和平协议初见曙光，石化板块迎来中长期配置时点
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新社阿斯塔纳5月21日电 据哈通社21日消息，哈萨克斯坦政府已批准《2026—2030年核工业本地化生产发展综合规划》，提出将本国企业和产品在核电建设项目中的参与比例提高至30%，以提升核电建设本土配套能力。哈萨克斯坦总统托卡耶夫此前表示，发展核电是保障该国国家能源安全的重要举措。根据其指示，哈萨克斯坦目前正推进至少3座核电站前期筹建工作。 规划显示，目前哈萨克斯坦本国工业仅
+本周末，终于传来了美伊初步达成和平协议的消息。周一开盘，国际油价应声大跌，布伦特原油主力合约一度跌破83美元。市场对霍尔木兹海峡能够快速恢复通航充满期待。但值得关注的是另一个现象：A股石化板块上周已经先于油价企稳，周一不仅没有跟随油价下跌，反而逆势走强，中证石化产业指数上涨1.97%。 这种背离，绝非简单的超跌反弹，而是全球石化产业格局发生深刻变化的预演。在地缘危机暂缓、海峡通
 
 ## 正文
 
-中新社阿斯塔纳5月21日电 据哈通社21日消息，哈萨克斯坦政府已批准《2026—2030年核工业本地化生产发展综合规划》，提出将本国企业和产品在核电建设项目中的参与比例提高至30%，以提升核电建设本土配套能力。
+本周末，终于传来了美伊初步达成和平协议的消息。
 
-哈萨克斯坦总统托卡耶夫此前表示，发展核电是保障该国国家能源安全的重要举措。
+周一开盘，国际油价应声大跌，布伦特原油主力合约一度跌破83美元。
 
-根据其指示，哈萨克斯坦目前正推进至少3座核电站前期筹建工作。
+市场对霍尔木兹海峡能够快速恢复通航充满期待。
 
-规划显示，目前哈萨克斯坦本国工业仅能满足核电项目约20%至22%的设备和相关配套需求。
+但值得关注的是另一个现象：A股石化板块上周已经先于油价企稳，周一不仅没有跟随油价下跌，反而逆势走强，中证石化产业指数上涨1.97%。
 
-哈政府计划将本国企业和产品在相关项目中的参与比例提高至30%，涉及金额约40亿至45亿美元。
+这种背离，绝非简单的超跌反弹，而是全球石化产业格局发生深刻变化的预演。
 
-规划指出，目前制约哈萨克斯坦核能产业发展的主要问题包括：相关设备和材料生产企业数量有限，部分生产体系尚未达到国际安全和质量标准，专业技术人才不足，以及缺乏核能领域经验等。
+在地缘危机暂缓、海峡通航预期恢复的背景下，中国石化产业正迎来一个由“需求长期复苏、供给端硬约束”驱动的中长期配置窗口。
 
-此外，质量监管体系也有待进一步加强。
+01 全球石化产能加速出清 事实上，近年来，受地缘形势影响，中国以外的全球石化产能进入一个缓慢出清的过程。
 
-根据规划，哈萨克斯坦将进一步完善相关法律法规体系，包括修订现行法律并出台新的规范性文件。
+而此次美伊冲突引发国际油价飙升及供应链中断，更是加速了这种出清过程。
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 05:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 05:02 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 05:08 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 05:16 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-30 05:24 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 05:15 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 05:07 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-30 05:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
-- 2026-06-30 05:20 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 05:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 05:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 05:29 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:28 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-30 05:29 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 05:33 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:15 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-30 05:27 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 05:23 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 05:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 05:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 05:33 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 05:27 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
+- 2026-06-30 05:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 05:10 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/9962567.shtml)
-- 2026-06-30 05:13 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/50185.shtml)
-- 2026-06-30 05:01 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/97428473.shtml)
-- 2026-06-30 05:05 - [《共患难》](http://www.share.kurohicncr.top/Article/details/4985108849.shtml)
-- 2026-06-30 05:09 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/47565029438.shtml)
-- 2026-06-30 05:09 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/4052222.shtml)
-- 2026-06-30 05:18 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/8422787845.shtml)
-- 2026-06-30 05:12 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/227858.shtml)
-- 2026-06-30 05:17 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/11293.shtml)
-- 2026-06-30 05:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/0560268.shtml)
-- 2026-06-30 05:02 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/96292411.shtml)
-- 2026-06-30 05:23 - [人类...完蛋了...](http://www.share.minike.top/Article/details/32949013.shtml)
-- 2026-06-30 05:06 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/105307.shtml)
-- 2026-06-30 05:16 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/86827.shtml)
-- 2026-06-30 05:12 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/749103553771.shtml)
+- 2026-06-30 05:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/946238.shtml)
+- 2026-06-30 05:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/6763774038.shtml)
+- 2026-06-30 05:26 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/015514997.shtml)
+- 2026-06-30 05:19 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/104606.shtml)
+- 2026-06-30 05:20 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/020769686429.shtml)
+- 2026-06-30 05:22 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/9726771418.shtml)
+- 2026-06-30 05:21 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/3374042899.shtml)
+- 2026-06-30 05:23 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/4536121.shtml)
+- 2026-06-30 05:29 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/80559228.shtml)
+- 2026-06-30 05:30 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/95133886109.shtml)
+- 2026-06-30 05:22 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/48497125.shtml)
+- 2026-06-30 05:26 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/7841106.shtml)
+- 2026-06-30 05:10 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/9495853893.shtml)
+- 2026-06-30 05:35 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/100797.shtml)
+- 2026-06-30 05:31 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/042498576646.shtml)

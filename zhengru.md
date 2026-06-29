@@ -1,46 +1,60 @@
-# 雷军谈特斯拉上海工厂原厂长宋钢加盟小米
+# 空缺三年后 中华保险新任总经理到位！旗下财险寿险业绩严重分化
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 11:24 来源：中国新闻网 21日晚，在小米人车家全生态新品发布会后的媒体采访环节上，曾任特斯拉上海工厂厂长的宋钢首次以小米集团汽车部副总裁身份面对媒体。谈及宋钢加入小米的经过，小米集团董事长、CEO雷军称：“经过了一年半长期不间断说服，特别高兴宋钢前不久正式加入了小米。”(记者 宋宇晟) 责任编辑：【程春雨】
+来源：险联社 “在正式履职前，邵晓怡将担任中华保险集团临时负责人，全权代行总经理职权、主持日常经营工作。” 长达三年的总经理空缺正式落幕。 近日，中华联合保险集团股份有限公司（下称“中华保险集团”）发布公告，正式聘任邵晓怡为集团总经理，任职资格尚待金融监管部门核准。在正式履职前，邵晓怡将担任集团临时负责人，全权代行总经理职权、主持日常经营工作。 随着这一关键岗位补位落地，叠加今
 
 ## 正文
 
-发布时间：2026年05月22日 11:24 来源：中国新闻网 21日晚，在小米人车家全生态新品发布会后的媒体采访环节上，曾任特斯拉上海工厂厂长的宋钢首次以小米集团汽车部副总裁身份面对媒体。
+来源：险联社 “在正式履职前，邵晓怡将担任中华保险集团临时负责人，全权代行总经理职权、主持日常经营工作。
 
-谈及宋钢加入小米的经过，小米集团董事长、CEO雷军称：“经过了一年半长期不间断说服，特别高兴宋钢前不久正式加入了小米。
+” 长达三年的总经理空缺正式落幕。
 
-”(记者 宋宇晟) 责任编辑：【程春雨】
+近日，中华联合保险集团股份有限公司（下称“中华保险集团”）发布公告，正式聘任邵晓怡为集团总经理，任职资格尚待金融监管部门核准。
+
+在正式履职前，邵晓怡将担任集团临时负责人，全权代行总经理职权、主持日常经营工作。
+
+随着这一关键岗位补位落地，叠加今年年初到岗的董事长刘元章，中华保险集团高层管理架构全面补齐，这家老牌国有险企正式迈入全新发展阶段。
+
+财务审计出身专业型高管 2023年，原总经理高兴华晋升董事长后，该岗位便陷入长期空缺。
+
+此后集团高层持续调整，2025年10月高兴华到龄退休，刘元章接任集团党委书记，并在2026年2月正式出任董事长。
+
+如今总经理顺利“到岗”，全新领导班子正式成型。
 
 ## 相关推荐
 
-- 2026-06-30 05:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 05:28 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 05:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 05:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 05:08 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 05:08 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 05:11 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 05:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 05:19 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 05:09 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 05:13 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 05:10 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 05:09 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 05:31 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 05:28 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-30 05:21 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 05:23 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 05:30 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 05:12 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 05:24 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 05:34 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 05:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 05:32 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 05:30 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/85600333228.shtml)
-- 2026-06-30 05:14 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/498516008176.shtml)
-- 2026-06-30 05:03 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/99582.shtml)
-- 2026-06-30 05:22 - [金刚川](http://www.blog.minike.top/Article/details/108386.shtml)
-- 2026-06-30 05:23 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/253918669629.shtml)
-- 2026-06-30 05:10 - [TOP Prada](https://www.blog.minike.top/Article/details/85129877.shtml)
-- 2026-06-30 05:25 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/3270411.shtml)
-- 2026-06-30 05:19 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/1811228954.shtml)
-- 2026-06-30 05:17 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/907523.shtml)
-- 2026-06-30 05:11 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/74497.shtml)
-- 2026-06-30 05:24 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/57922332824.shtml)
-- 2026-06-30 05:04 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/6568500.shtml)
-- 2026-06-30 05:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/922899988.shtml)
-- 2026-06-30 05:02 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/180630.shtml)
-- 2026-06-30 05:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/512278936.shtml)
+- 2026-06-30 05:16 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/03498779.shtml)
+- 2026-06-30 05:13 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/8166138.shtml)
+- 2026-06-30 05:13 - [爱很美味](http://www.share.kurohicncr.top/Article/details/27288276.shtml)
+- 2026-06-30 05:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/864977162.shtml)
+- 2026-06-30 05:32 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/43840832792.shtml)
+- 2026-06-30 05:21 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/498277.shtml)
+- 2026-06-30 05:28 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/336665872329.shtml)
+- 2026-06-30 05:31 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/825137126.shtml)
+- 2026-06-30 05:34 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/446322.shtml)
+- 2026-06-30 05:35 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/91870.shtml)
+- 2026-06-30 05:20 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/28044365.shtml)
+- 2026-06-30 05:23 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/10501.shtml)
+- 2026-06-30 05:35 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/5211254364.shtml)
+- 2026-06-30 05:23 - [不开心就去看三年前的购物订单](https://www.share.minike.top/Article/details/87299845824.shtml)
+- 2026-06-30 05:06 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/826631352561.shtml)

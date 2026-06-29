@@ -1,57 +1,57 @@
-# 成渝中线高铁蜀安隧道顺利贯通 即将启动铺轨
+# 下半年港股怎么走？多家机构“划重点”
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网成都5月22日电(记者 刘忠俊)5月22日，随着直径达14米的盾构机刀盘破壁出洞，成渝中线高铁控制性工程之一的蜀安隧道顺利贯通。至此，成渝中线高铁全线41座隧道已全部贯通，即将开启钢轨铺设工作，也为该条线路按期建成通车奠定了坚实基础。 据了解，作为国家“八纵八横”高速铁路网沿江通道的重要组成部分，成渝中线高铁是串联成渝地区双城经济圈的核心高速客运通道。线路起自重庆北站，向
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！21世纪经济报道记者 曹媛 近期，光大证券国际、中金公司、中信证券、国泰海通证券等多家机构发布2026年港股下半年投资策略报告。 受国内经济结构性分化、内外流动性双重收紧等因素影响，2026年上半年的港股明显落后于A股和全球股市。Wind数据显示，截至6月16日收盘，恒生指数、恒生中国企业指数、恒生科技指数
 
 ## 正文
 
-中新网成都5月22日电(记者 刘忠俊)5月22日，随着直径达14米的盾构机刀盘破壁出洞，成渝中线高铁控制性工程之一的蜀安隧道顺利贯通。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-至此，成渝中线高铁全线41座隧道已全部贯通，即将开启钢轨铺设工作，也为该条线路按期建成通车奠定了坚实基础。
+21世纪经济报道记者 曹媛 近期，光大证券国际、中金公司、中信证券、国泰海通证券等多家机构发布2026年港股下半年投资策略报告。
 
-据了解，作为国家“八纵八横”高速铁路网沿江通道的重要组成部分，成渝中线高铁是串联成渝地区双城经济圈的核心高速客运通道。
+受国内经济结构性分化、内外流动性双重收紧等因素影响，2026年上半年的港股明显落后于A股和全球股市。
 
-线路起自重庆北站，向西串联重庆两江新区、沙坪坝区、璧山区、铜梁区、大足区，途经四川资阳市后接入成都枢纽、终抵成都站，正线全长约292公里，设计时速350公里。
+Wind数据显示，截至6月16日收盘，恒生指数、恒生中国企业指数、恒生科技指数今年以来分别累计下跌4.43%、7.56%、15.54%。
 
-此次贯通的蜀安隧道位于简州站至成都站区间，为城市盾构高铁隧道，也是国内已建成的最大直径土压平衡盾构城市高铁隧道。
+但港股市场整体呈现“指数走弱、个股分化”特征：AI科技新股、头部大模型标的涨幅亮眼，但传统权重股持续调整；一级市场IPO热度高涨，港交所18C规则吸引大批AI科创企业赴港上市。
 
-该隧道全长10380米，采用“盾构法+明挖法”组合施工工艺，其中核心盾构掘进段长达9824米。
+进入下半年，多家机构判断：港股基本面利空已充分消化，估值回归合理区间，叠加海外流动性边际宽松、外资逐步回流，市场整体将以震荡运行为主，全面行情难现，但结构性机会十分清晰。
 
-为适配城区复杂施工环境，项目定制投入“蜀安号”“成渝号”两台超大直径土压平衡盾构机施工，最大开挖直径达14.5米，设备适配性与施工规模均位居国内同类隧道工程前列。
+上半年港股复盘：内外双重承压，市场分化加剧 综合多家机构观点，上半年港股整体走势偏弱，受基本面、流动性等多重因素影响： 一是国内经济“K型分化”影响指数表现。
 
-蜀安隧道施工条件极为复杂，全程穿越成都城市核心密集建筑区，先后下穿成都绕城高速、既有运营高铁、城市地铁、市政道路及各类地下管网等50余处重要构筑物，最大埋深62米。
+2026年一季度国内经济数据亮眼、增长态势稳健，但内部分化特征愈发凸显，整体呈现外需与科技强势、内需与消费疲软的格局。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 05:29 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-30 05:00 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 05:06 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-30 05:22 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 05:25 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-30 05:28 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 05:08 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 05:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 05:11 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 05:03 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 05:21 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 05:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 05:33 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-30 05:34 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 05:30 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 05:29 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 05:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 05:27 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 05:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-30 05:07 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/30177255174.shtml)
-- 2026-06-30 05:07 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/009440.shtml)
-- 2026-06-30 05:11 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/512953.shtml)
-- 2026-06-30 05:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/2775787770.shtml)
-- 2026-06-30 05:01 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/08387937737.shtml)
-- 2026-06-30 05:00 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/379757.shtml)
-- 2026-06-30 05:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/22039.shtml)
-- 2026-06-30 05:09 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/8726859.shtml)
-- 2026-06-30 05:06 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/1547990.shtml)
-- 2026-06-30 05:21 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/780477642489.shtml)
-- 2026-06-30 05:12 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/6881343.shtml)
-- 2026-06-30 05:21 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/41567.shtml)
-- 2026-06-30 05:21 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/863940454.shtml)
-- 2026-06-30 05:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/417620706831.shtml)
-- 2026-06-30 05:23 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/370393.shtml)
+- 2026-06-30 05:11 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/747082.shtml)
+- 2026-06-30 05:17 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/8197639.shtml)
+- 2026-06-30 05:23 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/9088735134.shtml)
+- 2026-06-30 05:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/601646915.shtml)
+- 2026-06-30 05:19 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/965624262.shtml)
+- 2026-06-30 05:21 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/813190329433.shtml)
+- 2026-06-30 05:14 - [张凌赫 客串](http://www.share.minike.top/Article/details/510129769574.shtml)
+- 2026-06-30 05:28 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/0065143.shtml)
+- 2026-06-30 05:06 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/8971666712.shtml)
+- 2026-06-30 05:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/394948.shtml)
+- 2026-06-30 05:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/73815167659.shtml)
+- 2026-06-30 05:32 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/52688424690.shtml)
+- 2026-06-30 05:35 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/16744993201.shtml)
+- 2026-06-30 05:16 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/405219.shtml)
+- 2026-06-30 05:27 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/6660737.shtml)

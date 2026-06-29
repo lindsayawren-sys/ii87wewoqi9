@@ -1,56 +1,60 @@
-# 黄金市场持续遭遇抛压，国际投行看法现明显分歧
+# 全国职工红色主题阅读活动在四川泸定启动
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-5月以来，国际黄金市场持续承压。现货黄金价格一度跌破4500美元/盎司关口，创年内新低，国内金饰价格同步大幅回落，部分品牌足金克价跌破1400元。 截至5月22日界面新闻发稿，伦敦金现报4526.58美元/盎司，下跌了0.34%。 回顾5月初的行情，金价已出现剧烈波动。5月4日，国际金价单日跌超90美元，跌幅超2%，伦敦现货黄金一度跌至4500.94美元/盎司；5月5日，国内黄
+中新网北京6月16日电 (记者 余湛奕)在庆祝中国共产党成立105周年、红军长征胜利90周年之际，“重走长征路 书香悟初心”——全国职工红色主题阅读首场活动，在四川泸定红军飞夺泸定桥纪念馆举行。全国总工会同步发布了职工红色阅读、爱国主义教育主题观影、红色思政课征集、“红心向党”职工文艺创作展演等系列活动，汇聚职工奋进“十五五”的磅礴力量。 活动在沉浸式舞台剧《七律·长征》中拉开
 
 ## 正文
 
-5月以来，国际黄金市场持续承压。
+中新网北京6月16日电 (记者 余湛奕)在庆祝中国共产党成立105周年、红军长征胜利90周年之际，“重走长征路 书香悟初心”——全国职工红色主题阅读首场活动，在四川泸定红军飞夺泸定桥纪念馆举行。
 
-现货黄金价格一度跌破4500美元/盎司关口，创年内新低，国内金饰价格同步大幅回落，部分品牌足金克价跌破1400元。
+全国总工会同步发布了职工红色阅读、爱国主义教育主题观影、红色思政课征集、“红心向党”职工文艺创作展演等系列活动，汇聚职工奋进“十五五”的磅礴力量。
 
-截至5月22日界面新闻发稿，伦敦金现报4526.58美元/盎司，下跌了0.34%。
+活动在沉浸式舞台剧《七律·长征》中拉开序幕，生动再现了“大渡桥横铁索寒”的英勇历史场景。
 
-回顾5月初的行情，金价已出现剧烈波动。
+随后围绕“高原铸魂”“巴蜀传薪”“烟火砺行”“强国兴邦”四个篇章依次展开，通过阅读分享、情景诵读、诗歌朗诵、合唱等形式，展现了不同行业劳动者坚守初心、实干奉献的精神风貌。
 
-5月4日，国际金价单日跌超90美元，跌幅超2%，伦敦现货黄金一度跌至4500.94美元/盎司；5月5日，国内黄金实时大盘价格跌破1000元/克关口，重回“三位数”。
+在阅读分享环节，全国劳动模范、“时代楷模”其美多吉结合阅读《习近平与一线职工朋友们》等书籍的感悟，讲述了自己数十年如一日坚守雪线邮路的经历；三星堆博物馆讲解员程静以《古蜀文明映匠心 文脉传承担使命》为题，分享了以匠心讲好中国故事的坚守；“最美外卖配送员”赵明阳结合奔波城市、服务民生的经历，畅谈《简读长征》给予他的精神力量；四川省劳动模范冯攀龙讲述了拜师学艺、攻坚型号任务的历程。
 
-5月16日，国际现货黄金价格单日跌超120美元，跌幅超过2%，直接跌破4540美元/盎司关口。
+活动还以视频形式呈现了身残志坚的外卖骑手熊天宇坚持在送餐间隙读书、用书香点亮逆境人生的故事，令在场观众动容。
 
-5月18日亚市早盘，现货黄金伦敦金一度失守4500美元/盎司，为3月底以来首次。
+活动在《再唱山歌给党听》激昂旋律中达到高潮，全体演职人员与观众齐声合唱，深情表达听党话、跟党走的坚定信念。
 
-日内最多下跌约1.3%，下探到4480.01美元/盎司。
+据了解，全国总工会将组织开展20场“重走长征路 书香悟初心”红色主题阅读活动，弘扬伟大建党精神和长征精神，引导亿万职工在阅读中传承红色基因，为全面推进强国建设、民族复兴伟业贡献智慧和力量。
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-30 05:17 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-30 05:06 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 05:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-30 05:13 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 05:26 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 05:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 05:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-30 05:04 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 05:04 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 05:31 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 05:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 05:08 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-30 05:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 05:24 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-30 05:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 05:26 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 05:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-30 05:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 05:14 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-30 05:10 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 05:26 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 05:31 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 05:24 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/35290932.shtml)
-- 2026-06-30 05:05 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/381017658.shtml)
-- 2026-06-30 05:08 - [日本淘汰](https://www.share.minike.top/Article/details/95448308523.shtml)
-- 2026-06-30 05:24 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/112339.shtml)
-- 2026-06-30 05:05 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/807610909.shtml)
-- 2026-06-30 05:03 - [同样是装空调差别怎么能这么大](http://www.share.kurohicncr.top/Article/details/68301273.shtml)
-- 2026-06-30 05:29 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/362278508.shtml)
-- 2026-06-30 05:26 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/753688693.shtml)
-- 2026-06-30 05:11 - [张帅晋级温网次轮](https://www.share.kurohicncr.top/Article/details/39446284.shtml)
-- 2026-06-30 05:00 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/6919848.shtml)
-- 2026-06-30 05:18 - [巴西半场0比1日本](http://www.blog.minike.top/Article/details/92228.shtml)
-- 2026-06-30 05:27 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/661670593.shtml)
-- 2026-06-30 05:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/8951454074.shtml)
-- 2026-06-30 05:26 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/899208178.shtml)
-- 2026-06-30 05:12 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/817466772.shtml)
+- 2026-06-30 05:26 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/8422110173.shtml)
+- 2026-06-30 05:30 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/547473904.shtml)
+- 2026-06-30 05:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/812012.shtml)
+- 2026-06-30 05:23 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/839346508.shtml)
+- 2026-06-30 05:32 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/279273.shtml)
+- 2026-06-30 05:29 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/80760.shtml)
+- 2026-06-30 05:22 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/742591562862.shtml)
+- 2026-06-30 05:16 - [巴西2比1日本](http://www.share.minike.top/Article/details/24730072.shtml)
+- 2026-06-30 05:32 - [《男人至死是傻得儿》](http://www.share.kurohicncr.top/Article/details/03912520.shtml)
+- 2026-06-30 05:26 - [巴西绝杀](https://www.blog.minike.top/Article/details/39583369167.shtml)
+- 2026-06-30 05:13 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/64924805.shtml)
+- 2026-06-30 05:22 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/369281936.shtml)
+- 2026-06-30 05:17 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/76034553.shtml)
+- 2026-06-30 05:32 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/0550626031.shtml)
+- 2026-06-30 05:34 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/6630606174.shtml)

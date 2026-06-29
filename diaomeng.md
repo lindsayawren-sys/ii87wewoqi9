@@ -1,61 +1,60 @@
-# 深成指半日涨1.39%，元件板块领涨
+# 端午假期南铁预计发送旅客567.3万人次
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新经纬5月22日电 A股三大指数高开震荡，截至午盘，沪指涨0.47%，报4096.24点；深成指涨1.39%，报15458.88点；创业板指涨1.91%，报3902.74点。 科创综指半日涨1.01%，报2122.87点。方邦股份、天承科技20%涨停，泰坦科技涨超17%，联瑞新材涨超16%，格灵深瞳涨超15%。 元件板块涨超6%，强达电路20%涨停，逸豪新材涨超16%，三环集
+中新网南昌6月15日电(刘力鑫 付森 胡梓威)中国铁路南昌局集团有限公司(以下简称“南铁”)15日发布消息称，2026年端午假期运输期限为6月18日至22日。端午假期运输期间，南铁预计发送旅客567.3万人次，客流最高峰为6月21日，预计发送旅客137万人次。 端午假期运输期间，南铁管内客流以短途探亲流、旅游流为主。长途出行方面，客流主要集中在赣闽两省前往上海、杭州及广深等大中
 
 ## 正文
 
-中新经纬5月22日电 A股三大指数高开震荡，截至午盘，沪指涨0.47%，报4096.24点；深成指涨1.39%，报15458.88点；创业板指涨1.91%，报3902.74点。
+中新网南昌6月15日电(刘力鑫 付森 胡梓威)中国铁路南昌局集团有限公司(以下简称“南铁”)15日发布消息称，2026年端午假期运输期限为6月18日至22日。
 
-科创综指半日涨1.01%，报2122.87点。
+端午假期运输期间，南铁预计发送旅客567.3万人次，客流最高峰为6月21日，预计发送旅客137万人次。
 
-方邦股份、天承科技20%涨停，泰坦科技涨超17%，联瑞新材涨超16%，格灵深瞳涨超15%。
+端午假期运输期间，南铁管内客流以短途探亲流、旅游流为主。
 
-元件板块涨超6%，强达电路20%涨停，逸豪新材涨超16%，三环集团涨超12%，鹏鼎控股、宝鼎科技、风华高科、景旺电子涨停。
+长途出行方面，客流主要集中在赣闽两省前往上海、杭州及广深等大中城市和周边省份热门旅游景点方向，预计发送旅客144万人次，同比增长1.8%。
 
-电子化学品板块涨超4%，国瓷材料涨超11%，格林达、宏和科技涨停。
+短途客流则集中在南昌、景德镇、上饶、婺源、泉州、平潭等赣闽两省热门旅游城市间，南铁管内预计发送旅客423.3万人次，同比增长2.1%。
 
-非金属材料、金属材料、塑料制品、工业金属、电机、电池等多板块涨势明显。
+为方便旅客端午假期出行，南铁科学分析旅客出行规律，精心制定假日运输方案，预计加开旅客列车615列，其中加开南昌至广州、厦门至上海等方向的夜间高铁67列。
 
-白酒板块跌超2%，皇台酒业跌超8%，金徽酒、酒鬼酒跌超4%。
+为提升旅客端午假期出行体验，萍乡北、赣州西、永安南等车站工作人员精心筹备，将推出形式多样、各具特色的端午民俗文化服务活动，营造浓厚节日氛围。
 
-券商板块跌超1%，锦龙股份、中信建投跌超3%。
+旅客可以在候车间隙编五彩绳、绘端午彩蛋、体验传统游戏、参与民俗问答，在轻松互动中了解端午习俗、感受传统文化魅力。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 05:23 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-30 05:15 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 05:10 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 05:29 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 05:20 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 05:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 05:12 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 05:10 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 05:20 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 05:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 05:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 05:22 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 05:16 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 05:23 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 05:35 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 05:17 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 05:23 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 05:31 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 05:24 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 05:13 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-30 05:17 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 05:33 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 05:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 05:06 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 05:26 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 05:07 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 05:16 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:18 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/4130933423.shtml)
-- 2026-06-30 05:11 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/1549958.shtml)
-- 2026-06-30 05:05 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/29576.shtml)
-- 2026-06-30 05:15 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/74531427276.shtml)
-- 2026-06-30 05:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/24822.shtml)
-- 2026-06-30 05:21 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/67117119.shtml)
-- 2026-06-30 05:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/15959069.shtml)
-- 2026-06-30 05:13 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/9386450887.shtml)
-- 2026-06-30 05:09 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/19700400365.shtml)
-- 2026-06-30 05:27 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/874852813580.shtml)
-- 2026-06-30 05:13 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/98029.shtml)
-- 2026-06-30 05:16 - [千香](https://www.share.minike.top/Article/details/678327722.shtml)
-- 2026-06-30 05:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/907451487094.shtml)
-- 2026-06-30 05:03 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/07157867296.shtml)
-- 2026-06-30 05:07 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/9204702.shtml)
+- 2026-06-30 05:10 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/3908385870.shtml)
+- 2026-06-30 05:27 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/696388.shtml)
+- 2026-06-30 05:23 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/69321686794.shtml)
+- 2026-06-30 05:18 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/09950733.shtml)
+- 2026-06-30 05:36 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/9941321.shtml)
+- 2026-06-30 05:35 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/826196143.shtml)
+- 2026-06-30 05:29 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/28245.shtml)
+- 2026-06-30 05:25 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/564821595099.shtml)
+- 2026-06-30 05:23 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/060378.shtml)
+- 2026-06-30 05:20 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/901427.shtml)
+- 2026-06-30 05:10 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/724459175.shtml)
+- 2026-06-30 05:21 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/0454667838.shtml)
+- 2026-06-30 05:07 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/48374.shtml)
+- 2026-06-30 05:24 - [金牌调解](http://www.share.minike.top/Article/details/183371814.shtml)
+- 2026-06-30 05:15 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/01193.shtml)

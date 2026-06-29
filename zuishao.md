@@ -1,54 +1,59 @@
-# 石药集团早盘涨超5% 布地奈德肠溶胶囊获药品注册批件
+# 酒价内参6月17日价格发布：五粮液普五八代上涨5元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-石药集团（01093）盘中涨超6% ，截至发稿，股价上涨5.31%，现报7.73港元，成交额2.20亿港元。 5月21日，石药集团宣布，集团开发的布地奈德肠溶胶囊（4mg）已获得中华人民共和国国家药品监督管理局颁发的药品注册批件。据悉，该产品用于治疗具有疾病进展风险的原发性免疫球蛋白A肾病（IgAN）成人患者，以减少肾功能损失。与其他药物相比，该产品为IgA肾病的对因治疗药物，
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基
 
 ## 正文
 
-石药集团（01093）盘中涨超6% ，截至发稿，股价上涨5.31%，现报7.73港元，成交额2.20亿港元。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月17日整体小幅回落。
 
-5月21日，石药集团宣布，集团开发的布地奈德肠溶胶囊（4mg）已获得中华人民共和国国家药品监督管理局颁发的药品注册批件。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9925元，较昨日微幅下跌2元，连续两日回落并创下三天以来最低。
 
-据悉，该产品用于治疗具有疾病进展风险的原发性免疫球蛋白A肾病（IgAN）成人患者，以减少肾功能损失。
+今日总价虽然自6月15日创下的23天以来最高位持续回落，但仍处于进入六月以来相对高位，终端交投情绪环比基本稳定，但核心单品的涨跌分化依然显著。
 
-与其他药物相比，该产品为IgA肾病的对因治疗药物，采用迟释和缓释的双重制剂工艺实现靶向治疗，全身暴露量低，安全性高。
+今日11大白酒单品四涨六跌一平，输家占据优势。
 
-石药集团表示该产品的获批将进一步丰富集团在肾病领域的产品线，提升集团在该领域的竞争力。
+上涨方面，青花郎涨幅居前，上涨7元/瓶，重新站上700元关口，创进入六月以来最高价；五粮液普五八代与五粮液1618均上涨5元/瓶，其中后者创近一月最大单日涨幅，自昨日创下的近一月最低点快速升至近一月次高位；水晶剑南春小幅上涨1元/瓶。
 
-责任编辑：卢昱君
+下跌方面，古井贡古20跌幅居前，下跌5元/瓶；国窖1573、洋河梦之蓝M6+与习酒君品均下跌4元/瓶，其中国窖1573连续两日回落，但仍守住880元关口，洋河梦之蓝M6+再度跌落600元大关，习酒君品结束此前三连阳，但仍处于进入六月以来高位；飞天茅台下跌2元/瓶；青花汾20小幅下跌1元/瓶，价格回落至月内最低位。
+
+精品茅台价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 05:02 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 05:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 05:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 05:18 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 05:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-30 05:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 05:15 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 05:02 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 05:21 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 05:13 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 05:29 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 05:27 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-30 05:20 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 05:25 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 05:28 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 05:26 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 05:30 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 05:28 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 05:25 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 05:09 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 05:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 05:13 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 05:15 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-30 05:22 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:23 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/100788793502.shtml)
-- 2026-06-30 05:02 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/941890719.shtml)
-- 2026-06-30 05:28 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/791171600383.shtml)
-- 2026-06-30 05:26 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/83125882.shtml)
-- 2026-06-30 05:10 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/4821489.shtml)
-- 2026-06-30 05:12 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/2380463.shtml)
-- 2026-06-30 05:24 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/1296330.shtml)
-- 2026-06-30 05:29 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/10995807146.shtml)
-- 2026-06-30 05:20 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/04513.shtml)
-- 2026-06-30 05:09 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/76599.shtml)
-- 2026-06-30 05:06 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/90502669.shtml)
-- 2026-06-30 05:00 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/771625943.shtml)
-- 2026-06-30 05:13 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/6797033.shtml)
-- 2026-06-30 05:27 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/97679469.shtml)
-- 2026-06-30 05:27 - [张凌赫 客串](https://www.blog.minike.top/Article/details/26320.shtml)
+- 2026-06-30 05:21 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/4063136261.shtml)
+- 2026-06-30 05:23 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/370327.shtml)
+- 2026-06-30 05:32 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/71828.shtml)
+- 2026-06-30 05:29 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/6742275.shtml)
+- 2026-06-30 05:07 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/486683502.shtml)
+- 2026-06-30 05:15 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/2563916235.shtml)
+- 2026-06-30 05:09 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/16681.shtml)
+- 2026-06-30 05:27 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/8184599.shtml)
+- 2026-06-30 05:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/58416266731.shtml)
+- 2026-06-30 05:33 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/056993729523.shtml)
+- 2026-06-30 05:35 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/599489.shtml)
+- 2026-06-30 05:19 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/37056251.shtml)
+- 2026-06-30 05:31 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/3360158905.shtml)
+- 2026-06-30 05:22 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/25570.shtml)
+- 2026-06-30 05:15 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/214993835.shtml)

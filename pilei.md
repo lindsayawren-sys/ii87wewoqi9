@@ -1,59 +1,52 @@
-# 雨夜洪灾广东阳春公安连夜转移14名被困群众
+# 万斯称美伊谅解备忘录已电子签署，19日将正式签署
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网广州5月22日电 (记者 方伟彬)记者22日从广东省公安厅获悉，5月20日18时至21时，广东阳江阳春市河口镇遭遇强降雨，龙门村委会辖区水位暴涨，多处民宅被淹。阳春市公安局迅速调集警力，联合救援队连夜赶赴西冲口村、大垌田村展开抢险，截至次日凌晨1时，成功将14名被困群众全部安全转移。 当晚19时许，救援警力接到报警，称一名高龄独居老人被困家中。由于家属无法准确描述位置，民
+中新网6月16日电 据美媒报道，美国副总统万斯当地时间15日表示，特朗普政府预计将在本周晚些时候公布与伊朗达成的谅解备忘录全文，此前美国官员已于14日通过电子方式签署了该文件。 报道称，万斯15日在《早安美国》节目中谈到这份旨在解除美国对霍尔木兹海峡封锁的协议时说道：“我们昨天已经通过电子方式签署了协议。” 正式的签署仪式将于19日在瑞士举行，但万斯没有透露美方代表团的具体成员
 
 ## 正文
 
-中新网广州5月22日电 (记者 方伟彬)记者22日从广东省公安厅获悉，5月20日18时至21时，广东阳江阳春市河口镇遭遇强降雨，龙门村委会辖区水位暴涨，多处民宅被淹。
+中新网6月16日电 据美媒报道，美国副总统万斯当地时间15日表示，特朗普政府预计将在本周晚些时候公布与伊朗达成的谅解备忘录全文，此前美国官员已于14日通过电子方式签署了该文件。
 
-阳春市公安局迅速调集警力，联合救援队连夜赶赴西冲口村、大垌田村展开抢险，截至次日凌晨1时，成功将14名被困群众全部安全转移。
+报道称，万斯15日在《早安美国》节目中谈到这份旨在解除美国对霍尔木兹海峡封锁的协议时说道：“我们昨天已经通过电子方式签署了协议。
 
-当晚19时许，救援警力接到报警，称一名高龄独居老人被困家中。
+” 正式的签署仪式将于19日在瑞士举行，但万斯没有透露美方代表团的具体成员。
 
-由于家属无法准确描述位置，民警在及腰深的积水中逐户排查。
+除了解除霍尔木兹海峡封锁之外，该协议的细节仍未对外公布。
 
-此时雨势猛烈，搜救难度极大。
+万斯表示：“如果伊朗愿意做出长期承诺，放弃核武器研发、接受完备核查，美国愿意接纳伊朗重回全球经济体系，解除部分制裁，让两国关系翻开新的一页。
 
-经过近半小时寻找，民警终于在一间老旧泥瓦房的阁楼内发现了蜷缩在角落、已无法正常应答的老人。
-
-当时水位已涨至民警颈部，且老屋墙体经雨水浸泡随时可能坍塌。
-
-危急关头，民警迅速背起老人冲出危房，将其转移至安全地带。
+”万斯表示，双方仍在磋商“技术性细则”，但政府计划于本周对外公布这份谅解备忘录的完整文本。
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 05:04 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
-- 2026-06-30 05:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 05:07 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 05:15 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-30 05:00 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 05:02 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 05:09 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 05:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 05:24 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 05:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-30 05:18 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 05:00 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 05:11 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 05:14 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-30 05:24 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 05:16 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 05:17 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 05:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 05:30 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 05:29 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 05:34 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 05:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/88904307.shtml)
-- 2026-06-30 05:27 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/1091637.shtml)
-- 2026-06-30 05:09 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/98737547014.shtml)
-- 2026-06-30 05:03 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/630449452.shtml)
-- 2026-06-30 05:12 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/93026732.shtml)
-- 2026-06-30 05:00 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/8469709.shtml)
-- 2026-06-30 05:18 - [逃狱兄弟](https://www.share.minike.top/Article/details/97505243975.shtml)
-- 2026-06-30 05:28 - [苗族银饰](http://www.share.minike.top/Article/details/570213.shtml)
-- 2026-06-30 05:08 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/88278160365.shtml)
-- 2026-06-30 05:24 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/33577638778.shtml)
-- 2026-06-30 05:27 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/159867347.shtml)
-- 2026-06-30 05:12 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/679290937.shtml)
-- 2026-06-30 05:20 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/917950859582.shtml)
-- 2026-06-30 05:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/703707472.shtml)
-- 2026-06-30 05:26 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/4533535.shtml)
+- 2026-06-30 05:08 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/972253551.shtml)
+- 2026-06-30 05:22 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/077041.shtml)
+- 2026-06-30 05:29 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/760488518.shtml)
+- 2026-06-30 05:28 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/026643.shtml)
+- 2026-06-30 05:21 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/467303656.shtml)
+- 2026-06-30 05:12 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/2164922.shtml)
+- 2026-06-30 05:29 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/76030745.shtml)
+- 2026-06-30 05:27 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/52625.shtml)
+- 2026-06-30 05:18 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/4756938.shtml)
+- 2026-06-30 05:06 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/63713.shtml)
+- 2026-06-30 05:10 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/236642.shtml)
+- 2026-06-30 05:16 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/5010430917.shtml)
+- 2026-06-30 05:11 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/27902853071.shtml)
+- 2026-06-30 05:11 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/916074633522.shtml)
+- 2026-06-30 05:17 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/405733678094.shtml)

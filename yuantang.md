@@ -1,60 +1,55 @@
-# 日本日经225指数收涨逾3% 受科技股热潮及中东局势缓解提振 软银涨停
+# 珠江口跨江工程狮子洋大桥首套主索鞍完成吊装
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-日本日经指数周四录得两周来最大涨幅，受科技股热情重燃以及与伊朗战争相关的地缘政治紧张局势缓解提振。日经225指数上涨3.14%，收于61，684.14点，创下自5月7日以来的最大单日涨幅。东证股价指数上涨1.64%，收于3，853.81点。 日经指数追随美股涨势，此前人工智能龙头企业英伟达公布财报，作出的第二季营收预期超出华尔街估计，并宣布一项800亿美元的股票回购计划。 美国
+发布时间：2026年06月15日 17:33 来源：中国新闻网 6月15日，世界首座超2000米双层悬索桥——狮子洋大桥15日凌晨完成主塔首套主索鞍吊装与测量，为后续先导索过江、猫道架设等上部结构施工奠定基础。 狮子洋通道是珠江口首条双层复合公路通道，起于广州市南沙区大岗镇，终于东莞市沙田、虎门镇，全长约35公里，是横跨珠江口“A”字形顶端的咽喉要道，是粤港澳大湾区发展的又一重
 
 ## 正文
 
-日本日经指数周四录得两周来最大涨幅，受科技股热情重燃以及与伊朗战争相关的地缘政治紧张局势缓解提振。
+发布时间：2026年06月15日 17:33 来源：中国新闻网 6月15日，世界首座超2000米双层悬索桥——狮子洋大桥15日凌晨完成主塔首套主索鞍吊装与测量，为后续先导索过江、猫道架设等上部结构施工奠定基础。
 
-日经225指数上涨3.14%，收于61，684.14点，创下自5月7日以来的最大单日涨幅。
+狮子洋通道是珠江口首条双层复合公路通道，起于广州市南沙区大岗镇，终于东莞市沙田、虎门镇，全长约35公里，是横跨珠江口“A”字形顶端的咽喉要道，是粤港澳大湾区发展的又一重要落子。
 
-东证股价指数上涨1.64%，收于3，853.81点。
+对于狮子洋大桥而言，全桥几乎所有承重，都将依靠两根直径约1.5米、单根重超4.3万吨的超大型主缆，它们从主跨向两岸延伸，像肩膀一样将荷载重量传递到主塔和锚碇之上。
 
-日经指数追随美股涨势，此前人工智能龙头企业英伟达公布财报，作出的第二季营收预期超出华尔街估计，并宣布一项800亿美元的股票回购计划。
+主索鞍位于东、西主塔顶部，是用于支撑主缆、承受主缆荷载、平顺过渡缆形的“基座”。
 
-美国总统特朗普表示结束伊朗战争的谈判已进入最后阶段，这缓解了市场对供应的担忧，受此影响，隔夜油价大幅下跌。
+首套主索鞍的安装，为大桥上部结构施工打通了关键工序。
 
-三星电子成功避免了可能扰乱韩国经济及全球芯片供应的罢工行动，此外有报道称OpenAI正筹备上市，这些消息也提振了投资者情绪。
+目前，项目正冲刺6月底先导索过江关键节点，下半年将开展猫道架设等核心施工任务，为粤港澳大湾区互联互通注入动能。
 
-作为OpenAI及其他人工智能初创企业的重要投资者，软银集团涨停。
-
-“在三星电子避免罢工以及Nvidia业绩等利好因素带动下，市场由人工智能和半导体相关股票领涨，”野村证券股票策略师Wataru Akiyama说。
+(记者 蔡敏婕 制作 徐妙巧 视频来源 广东交通集团） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 05:25 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 05:27 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 05:06 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 05:15 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-30 05:02 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 05:13 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-30 05:10 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 05:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
-- 2026-06-30 05:28 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 05:22 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 05:24 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 05:14 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 05:00 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-30 05:11 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 05:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-30 05:31 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:17 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 05:30 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-30 05:06 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-30 05:07 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 05:23 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 05:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-30 05:11 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 05:31 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-30 05:33 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:19 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/267384933072.shtml)
-- 2026-06-30 05:15 - [啊啊啊](https://www.share.minike.top/Article/details/359522917069.shtml)
-- 2026-06-30 05:10 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/930151.shtml)
-- 2026-06-30 05:17 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/12718684.shtml)
-- 2026-06-30 05:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/64260003.shtml)
-- 2026-06-30 05:01 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/7537351.shtml)
-- 2026-06-30 05:24 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/34876387628.shtml)
-- 2026-06-30 05:23 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/526804023178.shtml)
-- 2026-06-30 05:20 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/780073.shtml)
-- 2026-06-30 05:20 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/130259803448.shtml)
-- 2026-06-30 05:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/490094066.shtml)
-- 2026-06-30 05:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/067392804.shtml)
-- 2026-06-30 05:20 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/21647650.shtml)
-- 2026-06-30 05:16 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/22474023.shtml)
-- 2026-06-30 05:20 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/758320154.shtml)
+- 2026-06-30 05:19 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/59485499.shtml)
+- 2026-06-30 05:22 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/76039582023.shtml)
+- 2026-06-30 05:07 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/303401747218.shtml)
+- 2026-06-30 05:13 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/146418.shtml)
+- 2026-06-30 05:33 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/26908699.shtml)
+- 2026-06-30 05:18 - [金刚川](http://www.share.minike.top/Article/details/82396.shtml)
+- 2026-06-30 05:22 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/527251069.shtml)
+- 2026-06-30 05:25 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/76081.shtml)
+- 2026-06-30 05:10 - [一生一世](http://www.blog.kurohicncr.top/Article/details/770289274695.shtml)
+- 2026-06-30 05:06 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/45027183.shtml)
+- 2026-06-30 05:12 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/338010136836.shtml)
+- 2026-06-30 05:09 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/84170619.shtml)
+- 2026-06-30 05:24 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/297590821.shtml)
+- 2026-06-30 05:14 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/5930843736.shtml)
+- 2026-06-30 05:21 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/361071878012.shtml)

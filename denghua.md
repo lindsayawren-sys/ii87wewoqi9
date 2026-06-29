@@ -1,50 +1,48 @@
-# 中金：禾赛-W维持跑赢行业评级 目标价217.00港元
+# 厦门银行：获准发行资本补充债券
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中金发布研报称，维持禾赛-W（02525）2026年和2027年盈利预测不变。当前H股股价对应2026/2027年40.3倍/24.9倍P/E。当前US股股价对应2026/2027年40.0倍/24.8倍P/E。H股/US股均维持跑赢行业评级，并维持217.00港元/27.14美元目标价，H股对应55.2倍/34.0倍2026/2027年P/E，US股对应53.6倍/33.2倍
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月15日金融一线消息，厦门银行公告称，近日，公司收到《中国人民银行准予行政许可决定书》（银许准予决字〔2026〕第 54 号），中国人民银行同意公司在全国银行间市场及境外市场发行资本补充债券，行政许可有效期截止至2027年 6 月 30 日，有效期末资本补充债券新增余额不超过0 亿元，资本补充债券余额不超过 114 亿元，公司
 
 ## 正文
 
-中金发布研报称，维持禾赛-W（02525）2026年和2027年盈利预测不变。
+登录新浪财经APP 搜索【信披】查看更多考评等级 6月15日金融一线消息，厦门银行公告称，近日，公司收到《中国人民银行准予行政许可决定书》（银许准予决字〔2026〕第 54 号），中国人民银行同意公司在全国银行间市场及境外市场发行资本补充债券，行政许可有效期截止至2027年 6 月 30 日，有效期末资本补充债券新增余额不超过0 亿元，资本补充债券余额不超过 114 亿元，公司可在有效期内自主选择分期发行时间。
 
-当前H股股价对应2026/2027年40.3倍/24.9倍P/E。
+公司将按照《全国银行间债券市场金融债券发行管理办法》《全国银行间债券市场金融债券发行管理操作规程》《商业银行资本管理办法》等金融债券管理规定，做好资本补充债券发行及信息披露工作。
 
-当前US股股价对应2026/2027年40.0倍/24.8倍P/E。
-
-H股/US股均维持跑赢行业评级，并维持217.00港元/27.14美元目标价，H股对应55.2倍/34.0倍2026/2027年P/E，US股对应53.6倍/33.2倍2026/2027年P/E，分别有36.9%/34.0%的上行空间。
-
-责任编辑：卢昱君
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 05:17 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 05:08 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 05:18 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
-- 2026-06-30 05:23 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 05:24 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 05:24 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-30 05:15 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 05:20 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 05:03 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 05:31 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 05:18 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 05:06 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 05:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-30 05:15 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 05:32 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-30 05:16 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 05:31 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 05:19 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 05:20 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-30 05:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 05:24 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [这一刀 会很帅](http://www.share.minike.top/Article/details/168941809.shtml)
-- 2026-06-30 05:07 - [美股](https://www.share.kurohicncr.top/Article/details/97117.shtml)
-- 2026-06-30 05:14 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/874570561782.shtml)
-- 2026-06-30 05:26 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/523414445.shtml)
-- 2026-06-30 05:03 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/07290950748.shtml)
-- 2026-06-30 05:04 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/503045010.shtml)
-- 2026-06-30 05:08 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/59659556725.shtml)
-- 2026-06-30 05:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/497984.shtml)
-- 2026-06-30 05:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/7429801751.shtml)
-- 2026-06-30 05:27 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/8399720.shtml)
-- 2026-06-30 05:28 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/601378.shtml)
-- 2026-06-30 05:22 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/596566925.shtml)
-- 2026-06-30 05:19 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/446689312.shtml)
-- 2026-06-30 05:23 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/9131584.shtml)
-- 2026-06-30 05:09 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/59708364175.shtml)
+- 2026-06-30 05:16 - [明星大侦探第四季](http://www.share.minike.top/Article/details/267937.shtml)
+- 2026-06-30 05:29 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/3619728484.shtml)
+- 2026-06-30 05:14 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/39227.shtml)
+- 2026-06-30 05:20 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/63883205400.shtml)
+- 2026-06-30 05:27 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/37586296.shtml)
+- 2026-06-30 05:11 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/9566649239.shtml)
+- 2026-06-30 05:07 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/1627922808.shtml)
+- 2026-06-30 05:06 - [问心2金世佳追妻火葬场](https://www.blog.kurohicncr.top/Article/details/65525.shtml)
+- 2026-06-30 05:14 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/725280608314.shtml)
+- 2026-06-30 05:35 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/20350647.shtml)
+- 2026-06-30 05:33 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/83192.shtml)
+- 2026-06-30 05:06 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/5657906.shtml)
+- 2026-06-30 05:17 - [小娘惹](http://www.blog.minike.top/Article/details/80602079.shtml)
+- 2026-06-30 05:13 - [一生一世](http://www.blog.minike.top/Article/details/3026500.shtml)
+- 2026-06-30 05:16 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/5912680000.shtml)

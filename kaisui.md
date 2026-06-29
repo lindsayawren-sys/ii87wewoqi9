@@ -1,53 +1,57 @@
-# 【东西问】从《原神》到《黑神话》：数字互动产品如何打破文化壁垒？
+# 48幅中外画家写生精品在新疆伊犁展出
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 13:38 来源：中国新闻网 近年来，《原神》《黑神话·悟空》、中国网文、短剧等“华流”产品在西方年轻群体中热度持续攀升。数字技术降低了跨文化传播门槛，游戏、短视频等互动型产品推动中国文化从“观看”转向“参与”，更适配“Z世代”习惯。广西大学新闻与传播学院院长王仕勇在接受中新社“东西问”专访时指出，沉浸式、社群化的数字产品能弱化文化折扣，去官方
+中新网新疆伊宁6月16日电 (张家伟)16日，“美美与共·和美伊犁”中外知名艺术家走进伊犁创作写生作品展在新疆伊宁市开展。48幅写生精品集中亮相，生动描绘伊犁河谷的壮美山河与各族人民安居乐业的幸福图景。 此前，来自俄罗斯、哈萨克斯坦、乌兹别克斯坦三国的12位画家与12位中国画家，深入伊犁将军谷、唐布拉草原等地开展了为期数天的沉浸式采风创作。 展厅内，画作兼具国际视野与东方意境。
 
 ## 正文
 
-发布时间：2026年05月22日 13:38 来源：中国新闻网 近年来，《原神》《黑神话·悟空》、中国网文、短剧等“华流”产品在西方年轻群体中热度持续攀升。
+中新网新疆伊宁6月16日电 (张家伟)16日，“美美与共·和美伊犁”中外知名艺术家走进伊犁创作写生作品展在新疆伊宁市开展。
 
-数字技术降低了跨文化传播门槛，游戏、短视频等互动型产品推动中国文化从“观看”转向“参与”，更适配“Z世代”习惯。
+48幅写生精品集中亮相，生动描绘伊犁河谷的壮美山河与各族人民安居乐业的幸福图景。
 
-广西大学新闻与传播学院院长王仕勇在接受中新社“东西问”专访时指出，沉浸式、社群化的数字产品能弱化文化折扣，去官方化、市场化的形态避免意识形态抵制，实现柔性传播。
+此前，来自俄罗斯、哈萨克斯坦、乌兹别克斯坦三国的12位画家与12位中国画家，深入伊犁将军谷、唐布拉草原等地开展了为期数天的沉浸式采风创作。
 
-同时，民间个体叙事和烟火气内容以真实视角唤起情感共鸣，打破隔阂，形成长效、可感知的文明互鉴。
+展厅内，画作兼具国际视野与东方意境。
 
-(蒋雪林 王以照 黄令妍 广西南宁报道） 责任编辑：【罗攀】
+中国画家寥寥数笔便完成的山水图吸引外国画家驻足；乌兹别克斯坦画家笔下伊犁河畔的中式亭榭也让中国同行感到新鲜；不少前来观展的大学生也在画作前认真端详，并与画家探讨交流。
+
+赠画环节中，中外画家互赠作品，留下共同创作的回忆。
+
+随后举办的中外艺术沙龙上，中外艺术家与当地美术爱好者围坐一堂，畅谈采风感悟。
+
+江苏省美术馆江苏油画雕塑院院长孙俊说：“感谢主办方组织这么有意义的一次活动，汇聚了国外以及国内各地的艺术家，形成深层次的文化对话。
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 05:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 05:13 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-30 05:09 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 05:20 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 05:05 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 05:25 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 05:19 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 05:21 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 05:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 05:13 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 05:07 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 05:02 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 05:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 05:28 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 05:33 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 05:33 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 05:23 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 05:14 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-30 05:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 05:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 05:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 05:28 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 05:12 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:17 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/761263.shtml)
-- 2026-06-30 05:27 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/66793.shtml)
-- 2026-06-30 05:00 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/1211126283.shtml)
-- 2026-06-30 05:04 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/22034818383.shtml)
-- 2026-06-30 05:23 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/41009.shtml)
-- 2026-06-30 05:17 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/5777017068.shtml)
-- 2026-06-30 05:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/228308557324.shtml)
-- 2026-06-30 05:26 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/443757.shtml)
-- 2026-06-30 05:29 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/57397362895.shtml)
-- 2026-06-30 05:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/37951624914.shtml)
-- 2026-06-30 05:17 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/3570124.shtml)
-- 2026-06-30 05:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/362171.shtml)
-- 2026-06-30 05:09 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/4968108143.shtml)
-- 2026-06-30 05:29 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/338388.shtml)
-- 2026-06-30 05:24 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/221171971609.shtml)
+- 2026-06-30 05:12 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/7318327.shtml)
+- 2026-06-30 05:16 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/87691044.shtml)
+- 2026-06-30 05:11 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/80336.shtml)
+- 2026-06-30 05:27 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/26265.shtml)
+- 2026-06-30 05:20 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/6678738810.shtml)
+- 2026-06-30 05:26 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/192358192788.shtml)
+- 2026-06-30 05:32 - [内马尔替补](http://www.share.kurohicncr.top/Article/details/30596006.shtml)
+- 2026-06-30 05:18 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/31294.shtml)
+- 2026-06-30 05:07 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/3317188043.shtml)
+- 2026-06-30 05:09 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/20320.shtml)
+- 2026-06-30 05:25 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/54426993.shtml)
+- 2026-06-30 05:28 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/32151380.shtml)
+- 2026-06-30 05:10 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/351448507438.shtml)
+- 2026-06-30 05:13 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/040782578.shtml)
+- 2026-06-30 05:10 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/928090307.shtml)

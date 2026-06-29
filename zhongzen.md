@@ -1,50 +1,58 @@
-# 习言道｜90秒回顾中俄元首北京会晤重要时刻
+# 明日停牌！尾盘117万急拉涨停，创业板ETF富国疑现“乌龙指”
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 09:42 来源：中国新闻网 应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。一起回顾中俄元首北京会晤的重要时刻。 责任编辑：【阚枫】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月15日尾盘，创业板ETF富国迅速拉升，收盘涨停，涨幅达20.03%，二级市场溢价率达14.18%。 今日晚间，基金管理人紧急发布溢价风险提示公告及停复牌公告。公告显示，该基金将于明日开市起停牌，并在10：30起复牌，停牌期间本基金赎回业务照常办理。 据财联社，Choice数据显示，尾盘时快速推高该基金二
 
 ## 正文
 
-发布时间：2026年05月22日 09:42 来源：中国新闻网 应中国国家主席习近平邀请，俄罗斯总统普京于5月19日至20日对中国进行国事访问。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一起回顾中俄元首北京会晤的重要时刻。
+6月15日尾盘，创业板ETF富国迅速拉升，收盘涨停，涨幅达20.03%，二级市场溢价率达14.18%。
 
-责任编辑：【阚枫】
+今日晚间，基金管理人紧急发布溢价风险提示公告及停复牌公告。
+
+公告显示，该基金将于明日开市起停牌，并在10：30起复牌，停牌期间本基金赎回业务照常办理。
+
+据财联社，Choice数据显示，尾盘时快速推高该基金二级市场成交价的一笔交易，成交金额仅为117.2万元，市场猜测或为交易员操作失误所致。
+
+另据《中国基金报》报道，有市场观察人士指出，“一个大户手抖可能就会造成这个结果，这只ETF是收盘前最后一笔拉涨，做市商还来不及修正。
+
+”明天开盘后，溢价就会被抹平，大概率开盘先跌停，投资者“手抖”交易带来的损失也会体现出来。
+
+近年来，随着ETF投资者增多，ETF“乌龙指”也愈发常见。
 
 ## 相关推荐
 
-- 2026-06-30 05:23 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 05:21 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 05:20 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 05:11 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-30 05:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 05:11 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 05:01 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 05:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 05:10 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 05:10 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 05:03 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 05:11 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 05:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 05:07 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 05:08 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 05:29 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 05:30 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-30 05:35 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 05:31 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 05:29 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 05:22 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 05:28 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 05:24 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 05:17 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 05:11 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 05:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/983049.shtml)
-- 2026-06-30 05:16 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/28171736.shtml)
-- 2026-06-30 05:14 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/58218044379.shtml)
-- 2026-06-30 05:09 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/243925264017.shtml)
-- 2026-06-30 05:06 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/474478125.shtml)
-- 2026-06-30 05:09 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/45433308.shtml)
-- 2026-06-30 05:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/129652382.shtml)
-- 2026-06-30 05:09 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/0947071.shtml)
-- 2026-06-30 05:19 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/083030600313.shtml)
-- 2026-06-30 05:16 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/172103.shtml)
-- 2026-06-30 05:12 - [恋与深空 日服](http://www.share.minike.top/Article/details/388821331921.shtml)
-- 2026-06-30 05:24 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/86703.shtml)
-- 2026-06-30 05:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/186073243.shtml)
-- 2026-06-30 05:02 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/65840804.shtml)
-- 2026-06-30 05:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/3083453879.shtml)
+- 2026-06-30 05:20 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/7123329576.shtml)
+- 2026-06-30 05:31 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/14320340756.shtml)
+- 2026-06-30 05:20 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/276800.shtml)
+- 2026-06-30 05:12 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/27836567.shtml)
+- 2026-06-30 05:28 - [一生一世](https://www.share.minike.top/Article/details/429009.shtml)
+- 2026-06-30 05:16 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/130660564278.shtml)
+- 2026-06-30 05:12 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/93366414.shtml)
+- 2026-06-30 05:34 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/1293028.shtml)
+- 2026-06-30 05:12 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/2879167.shtml)
+- 2026-06-30 05:24 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/050870740.shtml)
+- 2026-06-30 05:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/289626464858.shtml)
+- 2026-06-30 05:06 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/594873.shtml)
+- 2026-06-30 05:15 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/290811166505.shtml)
+- 2026-06-30 05:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/726993926138.shtml)
+- 2026-06-30 05:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/36697200458.shtml)

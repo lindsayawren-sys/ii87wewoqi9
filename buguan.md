@@ -1,59 +1,56 @@
-# 港媒镜头下的青海：与香港“双向奔赴”赋能高原开放发展
+# 爆款频出+闭门拒客！科技基金火热行情下，公募基金如何布局？
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网西宁5月21日电 题：港媒镜头下的青海：与香港“双向奔赴”赋能高原开放发展 作者 潘雨洁 李隽 “整场发布会让我感受最深的是开放包容的氛围，青海已从过去的‘远在天边’变得‘近在眼前’。”20日，香港大公文汇传媒记者张仕珍表示，希望发挥港媒平台与传播优势，让更多人了解和走进“大美青海”。 当日，开局起步“十五五”青海专场新闻发布会召开，多家港媒记者参与并积极提问。 “这既是
+科技行情爆火背后，基金“上新”与“限购”并存。 近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。 这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩
 
 ## 正文
 
-中新网西宁5月21日电 题：港媒镜头下的青海：与香港“双向奔赴”赋能高原开放发展 作者 潘雨洁 李隽 “整场发布会让我感受最深的是开放包容的氛围，青海已从过去的‘远在天边’变得‘近在眼前’。
+科技行情爆火背后，基金“上新”与“限购”并存。
 
-”20日，香港大公文汇传媒记者张仕珍表示，希望发挥港媒平台与传播优势，让更多人了解和走进“大美青海”。
+近期，A股市场科技主线持续演绎，公募基金则出现了矛盾现象：一方面，强烈的赚钱效应带火了基金发行端，年内权益爆款频出，科技主题产品“一日售罄”已成家常便饭；另一侧却上演着绩优基金频频降额限购、“紧关车门”的画面，将汹涌而来的资金拒之门外。
 
-当日，开局起步“十五五”青海专场新闻发布会召开，多家港媒记者参与并积极提问。
+这种“上新”与“限购”并存的现象，再度折射出公募基金在行情短期高位之际，需要再度面对规模与业绩“再平衡”的难题。
 
-“这既是青海和香港‘双向奔赴’的缩影，更体现了大家对青海发展的关心。
+有公募分析人士指出，这需要公募基金、代销渠道等机构面对短期利润“诱惑”时，保持一定的克制力—公募基金要有限购的勇气，把规模控制在基金经理的能力圈里，代销渠道也得告别舒适区，在行情火爆之际做好冷静的买方投顾。
 
-”青海省委副书记、省长罗东川在现场表示。
+新发爆款与限购现象并存 一年多以来，科技板块展现出了极强的弹性，资金对于相关赛道的共识再度达到了历史峰值。
 
-“十四五”时期，青海省借港出海、借力赋能，两地经贸文化交流与合作迈向机制化、产业化、常态化双向互通，不断促进山水相连、民心相通。
+基金方面，多只重仓科技股的权益类基金净值持续上攻，“翻倍基”亦是稀松平常。
 
-过去五年“青字号”高原冷凉蔬菜供港实现历史性突破：从2023年8月“青字号”紫叶生菜、甘蓝等8种蔬菜装箱发往香港，实现青海冷凉蔬菜出口破“零”，发展至今，高原冷凉蔬菜种植面积稳定在60万亩左右，年产量179万吨，每年供港澳达到1万吨。
+赚钱效应还带动了基金在发行端的火爆，年内权益基金爆款频出，一日售罄已是家常便饭，带有“科技”“智选”等字样的基金更是尤为火爆。
 
-“高效便捷的冷链物流可以保证供港蔬菜‘朝发夕至’，早上采摘的蔬菜，晚上就可以送达，第二天就可以摆上香港人的超市和餐桌。
+如平安新鑫智选发行规模高达48.6亿元，诺安科技智选发行规模高达31.88亿元，还有泉果科技领航在10天时间内募集了17.40亿元。
 
 ## 相关推荐
 
-- 2026-06-30 05:21 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 05:01 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 05:22 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 05:07 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 05:12 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-30 05:29 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 05:21 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 05:03 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 05:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 05:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 05:05 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 05:18 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 05:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-30 05:22 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 05:35 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 05:34 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 05:27 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-30 05:24 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 05:34 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 05:31 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-30 05:26 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 05:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 05:14 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:06 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/446263071.shtml)
-- 2026-06-30 05:10 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/790053863.shtml)
-- 2026-06-30 05:03 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/20862.shtml)
-- 2026-06-30 05:05 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/08069838.shtml)
-- 2026-06-30 05:19 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/27888628913.shtml)
-- 2026-06-30 05:16 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/389663902.shtml)
-- 2026-06-30 05:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/46840789.shtml)
-- 2026-06-30 05:11 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/8602006.shtml)
-- 2026-06-30 05:05 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/02072216.shtml)
-- 2026-06-30 05:23 - [千与千寻](https://www.blog.minike.top/Article/details/494997664097.shtml)
-- 2026-06-30 05:01 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/4878411.shtml)
-- 2026-06-30 05:17 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/1370320.shtml)
-- 2026-06-30 05:07 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/06690383370.shtml)
-- 2026-06-30 05:18 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/5966021.shtml)
-- 2026-06-30 05:07 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/750781971884.shtml)
+- 2026-06-30 05:26 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/54680302754.shtml)
+- 2026-06-30 05:07 - [沉睡花园](https://www.blog.minike.top/Article/details/1236139288.shtml)
+- 2026-06-30 05:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/214167.shtml)
+- 2026-06-30 05:26 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/722620.shtml)
+- 2026-06-30 05:19 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/535141406306.shtml)
+- 2026-06-30 05:33 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/8157753405.shtml)
+- 2026-06-30 05:33 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/674430508099.shtml)
+- 2026-06-30 05:13 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/4885262229.shtml)
+- 2026-06-30 05:32 - [爱很美味](http://www.share.minike.top/Article/details/1723881.shtml)
+- 2026-06-30 05:15 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/890447.shtml)
+- 2026-06-30 05:20 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/514800.shtml)
+- 2026-06-30 05:32 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/6242966.shtml)
+- 2026-06-30 05:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/920764943340.shtml)
+- 2026-06-30 05:33 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/5655151.shtml)
+- 2026-06-30 05:15 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/35495809.shtml)

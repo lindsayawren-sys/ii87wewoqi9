@@ -1,59 +1,53 @@
-# （经济观察）解码“最牛风投城市”合肥产业发展的底层逻辑
+# 黑熊横渡界江穿村而过 民警紧急入户走访排查
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新社合肥5月22日电 (记者 张强 赵强 储玮玮)被业界冠以“最牛风投城市”的安徽合肥，近日再度备受关注：即将上市的中国DRAM(动态随机存取存储器)龙头长鑫科技集团股份有限公司披露招股书，其2026年一季度净利润达330亿元(人民币，下同)。 有机构估算，长鑫科技上市后市值或超3万亿元。据招股书，合肥国资相关主体持股比例达35%，该公司一旦上市，投资回报或高达万亿元级别。
+中新网鹤岗6月16日电(姜辉 张华廷)近日，鹤岗边境管理支队太平沟边境派出所接到鹤岗市萝北县太平沟乡金满屯村书记王雷紧急通报，一头野生黑熊从俄罗斯横渡中俄界江黑龙江，途经金满屯村后，潜入村落周边深山之中。 接到信息后，太平沟边境派出所第一时间启动应急处置预案，迅速联动太平沟乡政府、太平沟自然保护区等单位，同步共享黑熊活动轨迹，协同做好山林巡查、风险防控工作。 为防黑熊下山扰民、
 
 ## 正文
 
-中新社合肥5月22日电 (记者 张强 赵强 储玮玮)被业界冠以“最牛风投城市”的安徽合肥，近日再度备受关注：即将上市的中国DRAM(动态随机存取存储器)龙头长鑫科技集团股份有限公司披露招股书，其2026年一季度净利润达330亿元(人民币，下同)。
+中新网鹤岗6月16日电(姜辉 张华廷)近日，鹤岗边境管理支队太平沟边境派出所接到鹤岗市萝北县太平沟乡金满屯村书记王雷紧急通报，一头野生黑熊从俄罗斯横渡中俄界江黑龙江，途经金满屯村后，潜入村落周边深山之中。
 
-有机构估算，长鑫科技上市后市值或超3万亿元。
+接到信息后，太平沟边境派出所第一时间启动应急处置预案，迅速联动太平沟乡政府、太平沟自然保护区等单位，同步共享黑熊活动轨迹，协同做好山林巡查、风险防控工作。
 
-据招股书，合肥国资相关主体持股比例达35%，该公司一旦上市，投资回报或高达万亿元级别。
+为防黑熊下山扰民、发生野生动物伤人事故，太平沟边境派出所民警立即开展辖区入户走访排查，面对面提醒周边村民提高警惕，叮嘱村民尽量减少户外活动、切勿进山劳作、远离江边及山林边缘地带；如若偶遇黑熊、发现野兽踪迹，严禁围观、驱赶、擅自处置，保持安全距离迅速撤离，第一时间拨打派出所报警电话报备情况。
 
-这是合肥继投资京东方等企业之后，投中的又一个现象级项目。
+民警还依托微信群、村喇叭全域推送安全预警信息。
 
-然而，“敢赌”二字不足以解释这座城市屡屡“押注”成功的深层逻辑。
+下一步，太平沟边境派出所将联合属地政府、保护区工作人员加大沿线边境、村落、山林区域巡逻频次，实时紧盯黑熊动向，全方位守护辖区群众生命财产安全。
 
-“合肥的‘敢’，是建立在系统研判基础上的科学决策。
-
-”安徽大学经济学院金融学系主任邓道才指出，外界看到的是大手笔，看不到的是专业化、全链条的尽职调查。
-
-比如合肥市建投集团在决定注资蔚来汽车前，曾开辟技术研判、政策导向、法务尽调、商务谈判四条战线同步推进。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:07 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 05:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 05:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 05:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 05:17 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 05:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 05:28 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 05:14 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-30 05:11 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 05:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 05:24 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-30 05:19 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 05:07 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 05:22 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 05:34 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 05:07 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 05:16 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 05:16 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 05:15 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 05:09 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
+- 2026-06-30 05:10 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 05:06 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 05:14 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-30 05:06 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/38069598414.shtml)
-- 2026-06-30 05:28 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/71236975.shtml)
-- 2026-06-30 05:11 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/905054630.shtml)
-- 2026-06-30 05:25 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/986680.shtml)
-- 2026-06-30 05:01 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/48102791663.shtml)
-- 2026-06-30 05:15 - [巴西2比1日本](https://www.share.minike.top/Article/details/813939068.shtml)
-- 2026-06-30 05:14 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/016950435.shtml)
-- 2026-06-30 05:06 - [第一炉香](http://www.blog.minike.top/Article/details/323228867.shtml)
-- 2026-06-30 05:29 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/6345433.shtml)
-- 2026-06-30 05:19 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/813706615491.shtml)
-- 2026-06-30 05:09 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/527679146.shtml)
-- 2026-06-30 05:27 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/750414525100.shtml)
-- 2026-06-30 05:05 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/514758376936.shtml)
-- 2026-06-30 05:29 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/36061.shtml)
-- 2026-06-30 05:02 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/63750515462.shtml)
+- 2026-06-30 05:15 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/35628252886.shtml)
+- 2026-06-30 05:25 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/310094654517.shtml)
+- 2026-06-30 05:21 - [月亮](https://www.share.minike.top/Article/details/575400952581.shtml)
+- 2026-06-30 05:33 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/832508.shtml)
+- 2026-06-30 05:32 - [恋与深空 日服](https://www.share.minike.top/Article/details/97362.shtml)
+- 2026-06-30 05:18 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/3593221097.shtml)
+- 2026-06-30 05:19 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/255532267382.shtml)
+- 2026-06-30 05:20 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/1077427800.shtml)
+- 2026-06-30 05:21 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/862887.shtml)
+- 2026-06-30 05:26 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/354475.shtml)
+- 2026-06-30 05:18 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/11819426456.shtml)
+- 2026-06-30 05:15 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/4293022.shtml)
+- 2026-06-30 05:20 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/55132956644.shtml)
+- 2026-06-30 05:33 - [巴西绝杀日本](https://www.blog.kurohicncr.top/Article/details/923610294.shtml)
+- 2026-06-30 05:13 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/75948260.shtml)

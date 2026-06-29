@@ -1,56 +1,49 @@
-# 澳洲女首富斥资9700万美元加仓美国军工股
+# 力量发展获董事会主席具文忠增持50万股 每股作价约1.73港元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-澳大利亚首富Gina Rinehart旗下Hancock Prospecting公司于2026年第一季度斥资约9700万美元，大举买入四家美国军工巨头股份，同时增持矿业板块头寸。 根据向美国证券交易委员会提交的监管文件，Hancock Prospecting新建仓了RTX Corp、Northrop Grumman、L3Harris Technologies和Lockheed
+香港联交所最新资料显示，6月15日，董事会主席具文忠增持力量发展（01277）50万股，每股作价1.732港元，总金额为86.6万港元。增持后最新持股数目约为1682.17万股，最新持股比例为0.20%。责任编辑：卢昱君
 
 ## 正文
 
-澳大利亚首富Gina Rinehart旗下Hancock Prospecting公司于2026年第一季度斥资约9700万美元，大举买入四家美国军工巨头股份，同时增持矿业板块头寸。
+香港联交所最新资料显示，6月15日，董事会主席具文忠增持力量发展（01277）50万股，每股作价1.732港元，总金额为86.6万港元。
 
-根据向美国证券交易委员会提交的监管文件，Hancock Prospecting新建仓了RTX Corp、Northrop Grumman、L3Harris Technologies和Lockheed Martin四只军工股，持仓价值分别约为2469万美元、2420万美元、2416万美元和2360万美元。
+增持后最新持股数目约为1682.17万股，最新持股比例为0.20%。
 
-这些持仓截至3月31日总计价值约9700万美元。
-
-与此同时，Rinehart继续加码矿业投资。
-
-Hancock增持了加拿大铜锌矿商Hudbay Minerals 135万股，使其在该公司的总持仓增至约1590万股，价值约3.33亿美元；并新建仓全球最大金矿商Newmont Corp，持股价值约2060万美元。
-
-目前矿业及稀土板块持仓已占Hancock股票总仓位近半。
-
-Rinehart正致力于打造中国以外全球最大的稀土投资组合。
-
-她已成为美国唯一稀土运营商MP Materials的最大股东，并近期入股了新上市的美国稀土矿企Rare Earths Americas。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:09 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 05:16 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 05:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 05:29 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 05:11 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 05:08 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 05:27 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 05:11 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 05:08 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 05:11 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 05:31 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-30 05:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 05:13 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 05:27 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 05:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 05:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 05:27 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 05:21 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 05:15 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-30 05:34 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 05:12 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 05:31 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 05:23 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:25 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/6544626257.shtml)
-- 2026-06-30 05:05 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/83676022721.shtml)
-- 2026-06-30 05:07 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/53516068.shtml)
-- 2026-06-30 05:08 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/2080917.shtml)
-- 2026-06-30 05:09 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/512585645915.shtml)
-- 2026-06-30 05:07 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/01090.shtml)
-- 2026-06-30 05:13 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/08741293024.shtml)
-- 2026-06-30 05:09 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/1518558.shtml)
-- 2026-06-30 05:26 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/859058.shtml)
-- 2026-06-30 05:29 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/03314875338.shtml)
-- 2026-06-30 05:27 - [起风了](http://www.share.kurohicncr.top/Article/details/612246651023.shtml)
-- 2026-06-30 05:08 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/3959241.shtml)
-- 2026-06-30 05:04 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/6574996775.shtml)
-- 2026-06-30 05:07 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/308581152352.shtml)
-- 2026-06-30 05:10 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/38430215.shtml)
+- 2026-06-30 05:21 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/524955058090.shtml)
+- 2026-06-30 05:23 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/75378.shtml)
+- 2026-06-30 05:31 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/329787648508.shtml)
+- 2026-06-30 05:12 - [啊啊啊](http://www.blog.minike.top/Article/details/39788053.shtml)
+- 2026-06-30 05:14 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/75779.shtml)
+- 2026-06-30 05:31 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/961655593.shtml)
+- 2026-06-30 05:35 - [毒液2](https://www.blog.kurohicncr.top/Article/details/76933.shtml)
+- 2026-06-30 05:11 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/00839031.shtml)
+- 2026-06-30 05:14 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/2888469900.shtml)
+- 2026-06-30 05:07 - [曝多支争冠球队有意塞克斯顿](https://www.share.kurohicncr.top/Article/details/70543086360.shtml)
+- 2026-06-30 05:31 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/8574252.shtml)
+- 2026-06-30 05:32 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/2941266.shtml)
+- 2026-06-30 05:18 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/03350751253.shtml)
+- 2026-06-30 05:07 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/1940180.shtml)
+- 2026-06-30 05:25 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/70357137.shtml)

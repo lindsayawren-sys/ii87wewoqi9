@@ -1,57 +1,60 @@
-# 台商黄武勇在江西泰和台湾风情度假村打造“台湾知识馆”
+# 全球财富流动新变局！报告：越来越多富豪“出走”美国，欧洲喜忧参半
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 13:04 来源：中国新闻网 5月20日，江西吉安泰和县桃源度假村内的台湾知识馆迎来了数十名小学生的参观游览，向同学们介绍馆内展陈的正是该馆的创办人——台商黄武勇。 1997年，台湾桃园人黄武勇只身来到江西吉安泰和县投资兴业，在事业上取得了一番成就之后，他积极推动两岸交流。2011年4月，由他投资建设的桃源度假村开业迎客，具有浓郁台湾风情，成为
+美国既是全球财富最重要的生产地，也是高净值人士寻求"出口"最迫切的来源地。 就在SpaceX以史上最大规模IPO登陆纳斯达克、一夜间造富无数之际，最新报告却显示：越来越多的美国富人，正在离开美国。 总部位于伦敦的移民咨询机构亨利伙伴（Henley & Partners）最新发布的报告称，美国公民申请他国居留或公民身份的数量在2025年同比翻倍，2026年仍将维持在高位——美国既
 
 ## 正文
 
-发布时间：2026年05月22日 13:04 来源：中国新闻网 5月20日，江西吉安泰和县桃源度假村内的台湾知识馆迎来了数十名小学生的参观游览，向同学们介绍馆内展陈的正是该馆的创办人——台商黄武勇。
+美国既是全球财富最重要的生产地，也是高净值人士寻求"出口"最迫切的来源地。
 
-1997年，台湾桃园人黄武勇只身来到江西吉安泰和县投资兴业，在事业上取得了一番成就之后，他积极推动两岸交流。
+就在SpaceX以史上最大规模IPO登陆纳斯达克、一夜间造富无数之际，最新报告却显示：越来越多的美国富人，正在离开美国。
 
-2011年4月，由他投资建设的桃源度假村开业迎客，具有浓郁台湾风情，成为当地推广台湾文化的一扇窗口。
+总部位于伦敦的移民咨询机构亨利伙伴（Henley & Partners）最新发布的报告称，美国公民申请他国居留或公民身份的数量在2025年同比翻倍，2026年仍将维持在高位——美国既是全球财富最重要的生产地，也是高净值人士寻求移民最迫切的来源地。
 
-2025年，黄武勇又在桃源度假村打造了江西省内首个以台湾文化为主题的台湾知识馆，系统展示了台湾与大陆同根同源的历史渊源、一脉相承的传统文化，以及两岸交流合作的成果。
+新兴赢家 在本次评估中，新加坡以79.5分位居榜首，新西兰（75.8分）紧随其后。
 
-馆内还通过历史文献、民俗展品、互动体验等多种形式，让参观者能够沉浸式感受到两岸一家亲的深厚情谊。
+但报告中更引人关注的，是意大利、希腊等经济体的强势崛起。
 
-这也是他回馈社会的一种形式。
+意大利以72.3分跻身前列，成为本年度欧洲最亮眼的案例。
 
-在台湾知识馆一旁的草地上，还矗立着一块形似台湾地图的大石头。
+报告认为，驱动力主要来自三个方面：面向新居民的统一税率制度、较为宽松的遗产税框架，以及欧盟市场准入优势。
 
-黄武勇介绍，这是他在一次偶然在泰和游玩时发现的，成为度假村里连接两岸的“信物”。
+报告称，米兰正日益确立其作为国际金融中心和家族办公室聚集地的地位。
 
 ## 相关推荐
 
-- 2026-06-30 05:19 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 05:04 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 05:15 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 05:07 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-30 05:17 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
-- 2026-06-30 05:19 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 05:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 05:13 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 05:28 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 05:28 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 05:09 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 05:28 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 05:27 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-30 05:30 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 05:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 05:30 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-30 05:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 05:10 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 05:11 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 05:33 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 05:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 05:32 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-30 05:15 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 05:14 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 05:25 - [周生如故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:24 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/6625697656.shtml)
-- 2026-06-30 05:28 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/2053396.shtml)
-- 2026-06-30 05:07 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/512964348.shtml)
-- 2026-06-30 05:01 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/35426774.shtml)
-- 2026-06-30 05:05 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/474657483073.shtml)
-- 2026-06-30 05:23 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/13395858033.shtml)
-- 2026-06-30 05:04 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/240695120.shtml)
-- 2026-06-30 05:05 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/2444757080.shtml)
-- 2026-06-30 05:20 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/291525.shtml)
-- 2026-06-30 05:22 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/79447.shtml)
-- 2026-06-30 05:17 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/496131440.shtml)
-- 2026-06-30 05:20 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/770035897559.shtml)
-- 2026-06-30 05:12 - [世界杯](https://www.share.minike.top/Article/details/378937.shtml)
-- 2026-06-30 05:09 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/59280721.shtml)
-- 2026-06-30 05:17 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/718082394721.shtml)
+- 2026-06-30 05:31 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/90237054.shtml)
+- 2026-06-30 05:30 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/76520.shtml)
+- 2026-06-30 05:23 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/16912862292.shtml)
+- 2026-06-30 05:11 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/79343.shtml)
+- 2026-06-30 05:16 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/910833180956.shtml)
+- 2026-06-30 05:22 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/94087101184.shtml)
+- 2026-06-30 05:32 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/2373730332.shtml)
+- 2026-06-30 05:18 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/278971803.shtml)
+- 2026-06-30 05:23 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/57729372406.shtml)
+- 2026-06-30 05:11 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/1195666867.shtml)
+- 2026-06-30 05:20 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/9909530.shtml)
+- 2026-06-30 05:27 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/5631667707.shtml)
+- 2026-06-30 05:08 - [金牌调解](http://www.blog.minike.top/Article/details/4797345.shtml)
+- 2026-06-30 05:35 - [周生如故](http://www.blog.kurohicncr.top/Article/details/390001563.shtml)
+- 2026-06-30 05:07 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/5640858.shtml)

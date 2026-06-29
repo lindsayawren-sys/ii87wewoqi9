@@ -1,56 +1,57 @@
-# 三重力量推升人民币，后续走势“共识之下存在温差”
+# （聚焦海峡论坛）第二届海峡慈善论坛在福州开幕
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 张一诺 今年以来，人民币对美元汇率已连续突破6.9、6.8关口，继续走在升值路上，期间虽有震荡盘整，但总体趋势向上。 本轮人民币升值始于2025年4月，截至5月22日16：30分，在岸人民币对美元报1美元兑6.7947元人民币，较去年4月10日的低点7.3518升值8.2%，其中今年以来升值2.9%。 分析人士认为，经济基本面稳健与贸易高顺差、人民币资产吸引力
+中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。 台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时
 
 ## 正文
 
-界面新闻记者 | 张一诺 今年以来，人民币对美元汇率已连续突破6.9、6.8关口，继续走在升值路上，期间虽有震荡盘整，但总体趋势向上。
+中新社福州6月15日电 (叶秋云)第十八届海峡论坛·第二届海峡慈善论坛15日在福建福州开幕。
 
-本轮人民币升值始于2025年4月，截至5月22日16：30分，在岸人民币对美元报1美元兑6.7947元人民币，较去年4月10日的低点7.3518升值8.2%，其中今年以来升值2.9%。
+来自海峡两岸及港澳地区的慈善领域专家学者、公益慈善组织负责人等近500人与会。
 
-分析人士认为，经济基本面稳健与贸易高顺差、人民币资产吸引力回升、外部环境改善是本轮人民币升值的三大核心力量。
+台湾旺旺集团副董事长周锡玮在开幕式致辞中分享了他与福建的渊源及参与公益慈善的故事。
 
-分析师普遍认为，人民币对美元仍有升值空间，但在升值幅度和节奏上，中外机构存在显著区别——外资偏乐观、内资偏谨慎。
+他在接受中新社采访时表示，大陆始终以善意对待两岸同胞，尤其关心台湾农民、渔民等群体的需求，每当台湾农产品滞销或遭遇灾害、困境时，大陆都会主动伸出援手。
 
-第一重支撑：经常账户高景气 分析师表示，外贸出口超预期复苏、经常账户持续盈余，是支撑本轮人民币升值最底层、最可持续的核心逻辑。
+论坛上，7位来自海峡两岸及港澳地区的专家学者、慈善业界代表围绕“公益慈善与人心融合”等议题，就慈善事业创新、两岸公益协作、基层社会治理等内容发表主题演讲。
 
-2025年，以美元计，中国出口金额较上年增长5.5%，这一成绩是在复杂多变的外部环境取得的。
+台胞杨文山回忆了其在2009年汶川大地震一周年之际赴汶川大地震灾区捐赠台商台企物资的经历。
 
-今年以来，中国外贸继续高歌猛进，1-4月，以美元计的出口金额较上年同期增长14.5%，远超市场预期，不仅为国内经济增长注入了强大的动力，也让市场重新审视中国出口的韧性与潜力。
+他说，慈善是心与心、生命对生命的碰触，“我体会到公益带来的温暖，也真切感受到与大陆土地、同胞紧密相连的归属感”。
 
-“不同于过往依靠低端加工贸易的增长模式，本轮外贸高景气依托新质生产力实现结构性升级。
+福建省海峡两岸助残志愿者协会会长王永澄介绍，协会成立近一年来，聚焦两岸残疾人群体实际需求，在福建推动设立两岸残疾人养老示范点与盲人按摩医院，联动福建本地院校推进盲人特色科教班落地，推动两岸残疾人证件互通、职业技能联合培训等，在扶危济困中增进两岸同胞情谊，在守望相助中凝聚融合共识。
 
 ## 相关推荐
 
-- 2026-06-30 05:20 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 05:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 05:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-30 05:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-30 05:14 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 05:17 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 05:26 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-30 05:09 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 05:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 05:18 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 05:34 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 05:14 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 05:32 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 05:29 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 05:11 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 05:29 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 05:06 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 05:32 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 05:12 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 05:29 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 05:32 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/6709065.shtml)
-- 2026-06-30 05:26 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/01001.shtml)
-- 2026-06-30 05:24 - [请回答王牌2019](https://www.blog.minike.top/Article/details/9602967.shtml)
-- 2026-06-30 05:17 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/914208780542.shtml)
-- 2026-06-30 05:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/268197460225.shtml)
-- 2026-06-30 05:00 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/38016.shtml)
-- 2026-06-30 05:11 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/1014766.shtml)
-- 2026-06-30 05:10 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/40445.shtml)
-- 2026-06-30 05:06 - [老外对中国cosplay竟这样评价…](http://www.blog.kurohicncr.top/Article/details/6927377.shtml)
-- 2026-06-30 05:24 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/8093432.shtml)
-- 2026-06-30 05:18 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/92576.shtml)
-- 2026-06-30 05:13 - [为什么会有「念旧」的心理？](http://www.share.minike.top/Article/details/1178858199.shtml)
-- 2026-06-30 05:14 - [为什么会有「念旧」的心理？](https://www.blog.minike.top/Article/details/4650129749.shtml)
-- 2026-06-30 05:01 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/539395.shtml)
-- 2026-06-30 05:16 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/808725102.shtml)
+- 2026-06-30 05:26 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/301750034878.shtml)
+- 2026-06-30 05:21 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/99938091149.shtml)
+- 2026-06-30 05:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/273940.shtml)
+- 2026-06-30 05:25 - [苗族银饰](http://www.share.minike.top/Article/details/855759431195.shtml)
+- 2026-06-30 05:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/87365359966.shtml)
+- 2026-06-30 05:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/29582748135.shtml)
+- 2026-06-30 05:07 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/6265011922.shtml)
+- 2026-06-30 05:17 - [真实感受到千香是积压剧了](https://www.share.minike.top/Article/details/707487382879.shtml)
+- 2026-06-30 05:20 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/01893644341.shtml)
+- 2026-06-30 05:19 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/836616260.shtml)
+- 2026-06-30 05:25 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/192034230573.shtml)
+- 2026-06-30 05:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/21432.shtml)
+- 2026-06-30 05:34 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/0899640.shtml)
+- 2026-06-30 05:07 - [周生如故](https://www.share.minike.top/Article/details/918743815761.shtml)
+- 2026-06-30 05:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/2954608.shtml)

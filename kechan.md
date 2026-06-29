@@ -1,59 +1,50 @@
-# 美联储换帅叠加美元指数维持高位运行，黄金震荡修复
+# 葛海蛟会见新加坡金融管理局行长谢啇真
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 国际黄金市场周五亚洲交易时段整体维持谨慎震荡走势，现货黄金（XAU/USD）价格交投于4530美元附近。市场目前正在评估美国与伊朗停火谈判进展，以及美联储领导层更替可能带来的政策变化，黄金多空双方暂时陷入僵持。 近期推动黄金上涨的核心因素，仍然来自中东局势升级所带来的全球避险需求。伊朗官员表示，美国最新提出的方案已经在一定程度上缩小了双方分歧，但局势依然复杂
+来源：中国银行 6月16日，中国银行董事长葛海蛟在中国银行总行大厦会见新加坡金融管理局行长谢啇真一行，围绕深化中新经贸合作、推动新加坡离岸人民币市场发展等话题深入交流。中国银行副行长黄学玲参加会见。 双方一致表示，站在中国银行在新展业90周年的新起点上，将进一步深化在人民币国际使用、资本市场对接等领域的互利合作，积极探索金融创新服务模式，携手推动中新金融合作迈向更高水平。 Ge
 
 ## 正文
 
-文章来源：汇通财经 国际黄金市场周五亚洲交易时段整体维持谨慎震荡走势，现货黄金（XAU/USD）价格交投于4530美元附近。
+来源：中国银行 6月16日，中国银行董事长葛海蛟在中国银行总行大厦会见新加坡金融管理局行长谢啇真一行，围绕深化中新经贸合作、推动新加坡离岸人民币市场发展等话题深入交流。
 
-市场目前正在评估美国与伊朗停火谈判进展，以及美联储领导层更替可能带来的政策变化，黄金多空双方暂时陷入僵持。
+中国银行副行长黄学玲参加会见。
 
-近期推动黄金上涨的核心因素，仍然来自中东局势升级所带来的全球避险需求。
+双方一致表示，站在中国银行在新展业90周年的新起点上，将进一步深化在人民币国际使用、资本市场对接等领域的互利合作，积极探索金融创新服务模式，携手推动中新金融合作迈向更高水平。
 
-伊朗官员表示，美国最新提出的方案已经在一定程度上缩小了双方分歧，但局势依然复杂。
-
-伊朗最高领导层强调，德黑兰不会放弃铀储备，同时霍尔木兹海峡收费问题也继续成为双方主要争议点。
-
-市场人士认为，这意味着中东局势虽然出现缓和迹象，但距离真正达成全面协议仍存在明显障碍。
-
-美国总统特朗普此前警告称，如果伊朗不接受美国提出的条件，美方可能很快恢复军事行动。
-
-这种强硬表态限制了市场风险情绪的进一步改善，也继续支撑黄金避险需求。
+Ge Haijiao Meets with Chia Der Jiun， Managing Director of Monetary Authority of Singapore On June 16， Ge Haijiao， Chairman of Bank of China Limited， met with Chia Der Jiun， Managing Director of Monetary Authority of Singapore， at the Bank’s Head Office in Beijing． They held in-depth discussions on supporting China-Singapore economic and trade ties， developing Singapore’s offsho
 
 ## 相关推荐
 
-- 2026-06-30 05:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-30 05:16 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 05:17 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-30 05:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 05:06 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 05:03 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-30 05:14 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-30 05:26 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-30 05:08 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 05:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 05:18 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-30 05:29 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-30 05:22 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 05:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 05:20 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 05:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 05:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-30 05:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 05:10 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 05:09 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 05:25 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 05:08 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 05:21 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-30 05:11 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 05:36 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:29 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/4444093768.shtml)
-- 2026-06-30 05:29 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/93232.shtml)
-- 2026-06-30 05:22 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/322305525.shtml)
-- 2026-06-30 05:12 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/0622274687.shtml)
-- 2026-06-30 05:00 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/875604273.shtml)
-- 2026-06-30 05:14 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/2407016.shtml)
-- 2026-06-30 05:24 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/81865306893.shtml)
-- 2026-06-30 05:07 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/633580520528.shtml)
-- 2026-06-30 05:12 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/6776714.shtml)
-- 2026-06-30 05:12 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/2621588751.shtml)
-- 2026-06-30 05:06 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/424646.shtml)
-- 2026-06-30 05:08 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/424158.shtml)
-- 2026-06-30 05:10 - [扬名立万](https://www.share.minike.top/Article/details/4188719.shtml)
-- 2026-06-30 05:27 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/28148403.shtml)
-- 2026-06-30 05:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/684497.shtml)
+- 2026-06-30 05:25 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/382351439.shtml)
+- 2026-06-30 05:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/707911.shtml)
+- 2026-06-30 05:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/959397353456.shtml)
+- 2026-06-30 05:21 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/2327990.shtml)
+- 2026-06-30 05:13 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/09443284131.shtml)
+- 2026-06-30 05:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/60075073345.shtml)
+- 2026-06-30 05:07 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/767129308458.shtml)
+- 2026-06-30 05:31 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/484555.shtml)
+- 2026-06-30 05:12 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/33787.shtml)
+- 2026-06-30 05:16 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/8715524.shtml)
+- 2026-06-30 05:16 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/46369044372.shtml)
+- 2026-06-30 05:06 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/496011029005.shtml)
+- 2026-06-30 05:27 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/888697673.shtml)
+- 2026-06-30 05:13 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/29422535558.shtml)
+- 2026-06-30 05:10 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/01660422764.shtml)

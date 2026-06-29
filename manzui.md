@@ -1,56 +1,44 @@
-# 青海西宁：“古籍医生” 妙手修古籍
+# 6月17日隔夜要闻：SpaceX三天涨近50% 油价大跌 美伊协议允许伊朗可立即出售石油 华尔街大行下调油价预期
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！你的股票和黄金，后市怎么走？郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，
+市场 6月17日收盘：道指四连涨收高320点 纳指标普走低 6月17日美股成交额前20：SpaceX连涨3天 盘中市值一度超越亚马逊和微软 6月17日热门中概股多数下跌 百度跌超3% 小鹏跌超4% 大宗商品综述：油价跌至三个月低点 铝价小幅走高 金价上涨 欧洲股市上涨 霍尔木兹海峡重开前景提振乐观情绪 宏观 报道：按照美伊协议 伊朗将可立即开始出售石油 伊朗料从美伊协议获广泛经
 
 ## 正文
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
+市场 6月17日收盘：道指四连涨收高320点 纳指标普走低 6月17日美股成交额前20：SpaceX连涨3天 盘中市值一度超越亚马逊和微软 6月17日热门中概股多数下跌 百度跌超3% 小鹏跌超4% 大宗商品综述：油价跌至三个月低点 铝价小幅走高 金价上涨 欧洲股市上涨 霍尔木兹海峡重开前景提振乐观情绪 宏观 报道：按照美伊协议 伊朗将可立即开始出售石油 伊朗料从美伊协议获广泛经济回报 包括立即售油及3000亿美元发展基金 德黑兰在美伊协议中寻求关于资金获取的“充分保证” 瑞士称美伊临时协议定于周五在布尔根施托克签署 生活成本不断上升 美国人被迫动用退休储蓄应急 俄罗斯军舰向英国游艇鸣枪示警 英方将其视为孤立事件 公司 SpaceX上市后飙升49% 市值逼近亚马逊 苹果将于明年推出带摄像头的AirPods和折叠屏iPhone Mobileye计划202
 
-618大战，为何先从手机降价开始？
-
-埃及胡夫金字塔如何抗震？
-
-国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
-
-你的股票和黄金，后市怎么走？
-
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
-
-建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
-
-最高法案例“划重点”黄金，再跌也不能买了？
+探秘将人工智能算力打造成可交易大宗商品的行业尝试 欧洲天然气价格跌幅扩大 花旗称还有下行空间责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 05:22 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 05:20 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 05:05 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 05:01 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 05:26 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 05:06 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 05:03 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-30 05:24 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 05:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 05:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 05:35 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 05:06 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 05:13 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 05:21 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 05:26 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 05:15 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 05:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 05:20 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 05:06 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 05:10 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/83555591.shtml)
-- 2026-06-30 05:19 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/59990537.shtml)
-- 2026-06-30 05:23 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/70646.shtml)
-- 2026-06-30 05:01 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/14846676668.shtml)
-- 2026-06-30 05:12 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/81751340494.shtml)
-- 2026-06-30 05:13 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/012607539.shtml)
-- 2026-06-30 05:16 - [日本领先巴西](http://www.blog.minike.top/Article/details/06162295860.shtml)
-- 2026-06-30 05:25 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/94625472.shtml)
-- 2026-06-30 05:26 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/234435166.shtml)
-- 2026-06-30 05:10 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/607148779319.shtml)
-- 2026-06-30 05:15 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/271284.shtml)
-- 2026-06-30 05:16 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/43363.shtml)
-- 2026-06-30 05:29 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/729742.shtml)
-- 2026-06-30 05:05 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/81740824.shtml)
-- 2026-06-30 05:16 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/48217576833.shtml)
+- 2026-06-30 05:14 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/173883646729.shtml)
+- 2026-06-30 05:19 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/939417688393.shtml)
+- 2026-06-30 05:35 - [人类...完蛋了...](http://www.share.minike.top/Article/details/11001042.shtml)
+- 2026-06-30 05:10 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/985496517.shtml)
+- 2026-06-30 05:16 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/3674973691.shtml)
+- 2026-06-30 05:21 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/1213680695.shtml)
+- 2026-06-30 05:20 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/21880.shtml)
+- 2026-06-30 05:18 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/55400970.shtml)
+- 2026-06-30 05:22 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/9655609920.shtml)
+- 2026-06-30 05:33 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/774906929559.shtml)
+- 2026-06-30 05:11 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/376976748254.shtml)
+- 2026-06-30 05:19 - [巴西2比1日本](http://www.blog.minike.top/Article/details/7946994621.shtml)
+- 2026-06-30 05:28 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/311004841484.shtml)
+- 2026-06-30 05:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/69206340998.shtml)
+- 2026-06-30 05:27 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/82068.shtml)

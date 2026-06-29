@@ -1,58 +1,57 @@
-# 强生重症肌无力治疗新药获国家药监局批准上市
+# 实力蝉联！美孚1号车养护连续四年跻身中国汽车后市场连锁企业TOP50
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-美国强生公司21日宣布，其用于治疗全身型重症肌无力的药物尼卡利单抗（nipocalimab）已正式获得中国国家药品监督管理局批准。该药物的适用人群为12岁及以上的相关患者群体。 全身型重症肌无力是一种免疫相关的神经肌肉疾病，临床主要表现为眼部、口腔、咽喉及四肢等部位的骨骼肌无力。公开资料显示，强生公司于2020年通过斥资65亿美元收购Momenta公司，从而获取该药物的核心管线
+近日，中国连锁经营协会(CCFA)正式发布了“2026年中国汽车后市场连锁企业Top50”榜单，全面展现了行业连锁化、品牌化、规范化发展的最新格局。 凭借稳健的门店布局、成熟的运营体系与领先的服务能力，美孚1号车养护连续四年荣耀登榜，以持续稳定的高质量发展，稳居行业前列。 星盟计划持续赋能，网络规模提质扩容 作为埃克森美孚旗下的专业汽车养护服务品牌，美孚1号车养护自2020年品
 
 ## 正文
 
-美国强生公司21日宣布，其用于治疗全身型重症肌无力的药物尼卡利单抗（nipocalimab）已正式获得中国国家药品监督管理局批准。
+近日，中国连锁经营协会(CCFA)正式发布了“2026年中国汽车后市场连锁企业Top50”榜单，全面展现了行业连锁化、品牌化、规范化发展的最新格局。
 
-该药物的适用人群为12岁及以上的相关患者群体。
+凭借稳健的门店布局、成熟的运营体系与领先的服务能力，美孚1号车养护连续四年荣耀登榜，以持续稳定的高质量发展，稳居行业前列。
 
-全身型重症肌无力是一种免疫相关的神经肌肉疾病，临床主要表现为眼部、口腔、咽喉及四肢等部位的骨骼肌无力。
+星盟计划持续赋能，网络规模提质扩容 作为埃克森美孚旗下的专业汽车养护服务品牌，美孚1号车养护自2020年品牌焕新以来，依托全链路体系优势，稳步推进规模化布局。
 
-公开资料显示，强生公司于2020年通过斥资65亿美元收购Momenta公司，从而获取该药物的核心管线。
+2025年，美孚1号车养护提出“星盟计划”，聚焦品牌、营销、运营三大核心竞争力的再进化，创新升级门店经营计划与诊断等数字化工具，并通过新媒体及私域运营、专项服务项目赋能等系列举措，全方位助力加盟门店提质增效。
 
-此前，该药物已在美国、巴西及日本等多个海外市场获批上市。
+数据统计，截至2025年底，美孚1号车养护全国臻选门店数量突破1400家，服务网络覆盖全国250余座城市。
 
-业界普遍预期，该药物具有巨大的市场潜力，有望为企业带来显著的营收增长。
+同时，加盟门店整体满意度达90%，充分体现了品牌成熟的连锁运营与加盟赋能实力。
 
-目前，强生方面暂未就该药物在华的具体定价及上市时间表作出回应。
+布局新能源赛道，助力门店拓客增收 当前，国内新能源汽车保有量突破4400万辆，新能源汽车维保产业迈入规模化、专业化发展新阶段，越来越多的门店期望开展相关业务，抓住时代风口。
 
-在当前的中国医药市场中，包括翰森制药、再鼎医药及Argenx等企业研发的全身型重症肌无力治疗药物已先后获批上市。
+面对这一趋势，美孚1号车养护早已前瞻性布局，从专业产品、服务升级、门店培育、标准共建等维度，将在燃油车养护领域积累的深厚优势，延伸至新能源服务领域，为加盟门店提供多元化的新能源业务参与方案，助力传统维保门店抢占新兴市场红利。
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 05:26 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 05:15 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 05:26 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 05:21 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 05:30 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 05:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-30 05:17 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 05:18 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-30 05:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 05:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-30 05:17 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-30 05:31 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 05:22 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-30 05:33 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 05:18 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 05:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 05:18 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-30 05:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 05:08 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-30 05:23 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 05:12 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 05:32 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:10 - [巴西绝杀日本](http://www.share.minike.top/Article/details/6370959716.shtml)
-- 2026-06-30 05:10 - [国务院：探索延长义务教育年限](https://www.share.minike.top/Article/details/28661416.shtml)
-- 2026-06-30 05:17 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/42984190.shtml)
-- 2026-06-30 05:17 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/1230791702.shtml)
-- 2026-06-30 05:14 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/41348103.shtml)
-- 2026-06-30 05:11 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/02024989.shtml)
-- 2026-06-30 05:20 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/8328229889.shtml)
-- 2026-06-30 05:14 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/412735.shtml)
-- 2026-06-30 05:23 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/9643685711.shtml)
-- 2026-06-30 05:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/23084277.shtml)
-- 2026-06-30 05:13 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/71082207.shtml)
-- 2026-06-30 05:12 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/4351994.shtml)
-- 2026-06-30 05:25 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/496385711.shtml)
-- 2026-06-30 05:12 - [一生一世](https://www.share.minike.top/Article/details/81035.shtml)
-- 2026-06-30 05:24 - [日本进球](https://www.share.kurohicncr.top/Article/details/10904341406.shtml)
+- 2026-06-30 05:07 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/7466915.shtml)
+- 2026-06-30 05:20 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/30079351812.shtml)
+- 2026-06-30 05:28 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/0029511644.shtml)
+- 2026-06-30 05:19 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/6917259172.shtml)
+- 2026-06-30 05:34 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/180638.shtml)
+- 2026-06-30 05:09 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/83358.shtml)
+- 2026-06-30 05:21 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/0585402.shtml)
+- 2026-06-30 05:09 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/998524719043.shtml)
+- 2026-06-30 05:25 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/1440561426.shtml)
+- 2026-06-30 05:22 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.minike.top/Article/details/8890248.shtml)
+- 2026-06-30 05:09 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/70441.shtml)
+- 2026-06-30 05:32 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/0290417897.shtml)
+- 2026-06-30 05:30 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/317591.shtml)
+- 2026-06-30 05:11 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/669800.shtml)
+- 2026-06-30 05:20 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/32037436695.shtml)

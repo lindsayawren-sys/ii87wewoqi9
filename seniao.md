@@ -1,59 +1,59 @@
-# 近闻·读懂“世界百年变局中的关键恒量”
+# 预测市场交易员押注Anthropic或将很快恢复Fable 5的使用权限
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-大国外交的舞台上，又写下遒劲一笔。 5月19日至20日，应国家主席习近平邀请，俄罗斯总统普京来华进行国事访问。这是今年以来，两国元首首次面对面会晤。 “30年来，中俄关系栉风沐雨、与时俱进，关系定位不断提升，达到新时代全面战略协作伙伴关系的历史最高水平，树立起新型大国关系的典范。”习近平主席强调。 特殊节点，重要会晤。 中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》
+核心要点 人工智能巨头 Anthropic 上周五晚间官宣，为遵守美国政府的监管指令，公司关停了 Fable 5、Mythos 5 两款大模型的公开访问权限，这一举措令业内大为震惊。 不过预测交易平台卡尔希的交易员认为，Fable 系列模型大概率最快将于 7 月重新对美国普通用户开放。 交易数据显示，市场测算该公司在 7 月 1 日前恢复 Fable 5 访问权限的概率为 58
 
 ## 正文
 
-大国外交的舞台上，又写下遒劲一笔。
+核心要点 人工智能巨头 Anthropic 上周五晚间官宣，为遵守美国政府的监管指令，公司关停了 Fable 5、Mythos 5 两款大模型的公开访问权限，这一举措令业内大为震惊。
 
-5月19日至20日，应国家主席习近平邀请，俄罗斯总统普京来华进行国事访问。
+不过预测交易平台卡尔希的交易员认为，Fable 系列模型大概率最快将于 7 月重新对美国普通用户开放。
 
-这是今年以来，两国元首首次面对面会晤。
+交易数据显示，市场测算该公司在 7 月 1 日前恢复 Fable 5 访问权限的概率为 58%；若放宽至 7 月 10 日，恢复权限的概率则升至 74%。
 
-“30年来，中俄关系栉风沐雨、与时俱进，关系定位不断提升，达到新时代全面战略协作伙伴关系的历史最高水平，树立起新型大国关系的典范。
+只有当该 模型面向美国所有用户全面重新开放，这份事件预测合约才能判定为 “预测成立”。
 
-”习近平主席强调。
+美国政府要求 Anthropic 禁止所有外籍人员使用该 AI 技术，无论外籍用户身处美国境内还是海外。
 
-特殊节点，重要会晤。
+为确保合规落地，Anthropic 最终选择暂时对全部用户关停 Fable 5 模型访问通道。
 
-中俄战略协作伙伴关系建立30周年、《中俄睦邻友好合作条约》签署25周年、“中俄教育年”启动之年……一连串历史坐标，镌刻下中俄关系“一步一个脚印走到今天这个高度”，见证了“中俄关系进入更有作为、更快发展的新阶段”。
+就在该模型正式发布数日之后，这一监管限制便接踵而至。
 
-百年变局，风云激荡。
+早在今年 3 月，美国国防部就曾将 Anthropic 列为供应链安全风险企业，彼时这家公司就曾与特朗普政府产生监管摩擦。
 
 ## 相关推荐
 
-- 2026-06-30 05:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-30 05:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-30 05:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 05:28 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 05:18 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 05:08 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 05:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 05:14 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 05:07 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 05:09 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 05:16 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 05:29 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 05:09 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 05:34 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 05:28 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:23 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 05:06 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 05:22 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 05:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 05:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 05:08 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 05:25 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 05:33 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 05:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 05:28 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 05:17 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:20 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/65130.shtml)
-- 2026-06-30 05:28 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/334406451386.shtml)
-- 2026-06-30 05:30 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/257678.shtml)
-- 2026-06-30 05:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/13532675.shtml)
-- 2026-06-30 05:25 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/34513.shtml)
-- 2026-06-30 05:17 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/237923415.shtml)
-- 2026-06-30 05:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/434506506.shtml)
-- 2026-06-30 05:25 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/15701556.shtml)
-- 2026-06-30 05:16 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/9371637.shtml)
-- 2026-06-30 05:13 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/7898775993.shtml)
-- 2026-06-30 05:16 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/564357466167.shtml)
-- 2026-06-30 05:01 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/61493.shtml)
-- 2026-06-30 05:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/3708837881.shtml)
-- 2026-06-30 05:16 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/1803563347.shtml)
-- 2026-06-30 05:26 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/297637.shtml)
+- 2026-06-30 05:31 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/23368.shtml)
+- 2026-06-30 05:15 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/61916375674.shtml)
+- 2026-06-30 05:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/19193273957.shtml)
+- 2026-06-30 05:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/4206948984.shtml)
+- 2026-06-30 05:17 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/4376621897.shtml)
+- 2026-06-30 05:30 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/62036246249.shtml)
+- 2026-06-30 05:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/45380.shtml)
+- 2026-06-30 05:08 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/530609361.shtml)
+- 2026-06-30 05:26 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/876965542451.shtml)
+- 2026-06-30 05:18 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/22328.shtml)
+- 2026-06-30 05:27 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/02665189.shtml)
+- 2026-06-30 05:07 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/27450322.shtml)
+- 2026-06-30 05:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/61649.shtml)
+- 2026-06-30 05:14 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/23357.shtml)
+- 2026-06-30 05:28 - [急先锋](https://www.share.kurohicncr.top/Article/details/89966.shtml)

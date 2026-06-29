@@ -1,56 +1,48 @@
-# 脱胎华为系，算力巨头携53名股东冲刺IPO
+# 软银：将利用OpenAI技术在日本提供网络安全服务
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！算力巨头超聚变数字技术股份有限公司（简称“超聚变”）IPO有了新进展。 深交所官网5月22日披露，超聚变创业板IPO获受理，预计融资金额80亿元。 超聚变表示，公司本次申请首次公开发行股票并在A股上市，旨在抓住人工智能从“技术工具”向“智能体”演进的历史性机遇，通过资本市场赋能，构建“算力+算法+数据+应用
+软银集团（SoftBank Group）计划在日本利用OpenAI的技术提供网络安全服务。 这家日本科技投资公司周二表示，将开始提供网络安全服务，这些服务利用OpenAI的先进人工智能功能，旨在帮助企业评估网络安全漏洞并规划补救措施。 软银集团表示，这些服务通过其与ChatGPT开发商的合资企业提供，旨在保障日本关键基础设施的安全。责任编辑：刘明亮
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+软银集团（SoftBank Group）计划在日本利用OpenAI的技术提供网络安全服务。
 
-算力巨头超聚变数字技术股份有限公司（简称“超聚变”）IPO有了新进展。
+这家日本科技投资公司周二表示，将开始提供网络安全服务，这些服务利用OpenAI的先进人工智能功能，旨在帮助企业评估网络安全漏洞并规划补救措施。
 
-深交所官网5月22日披露，超聚变创业板IPO获受理，预计融资金额80亿元。
+软银集团表示，这些服务通过其与ChatGPT开发商的合资企业提供，旨在保障日本关键基础设施的安全。
 
-超聚变表示，公司本次申请首次公开发行股票并在A股上市，旨在抓住人工智能从“技术工具”向“智能体”演进的历史性机遇，通过资本市场赋能，构建“算力+算法+数据+应用”产业生态。
-
-根据招股说明书（申报稿），公司本次拟公开发行不低于9781.345万股且不高于22008.0262万股A股普通股股票，占发行后总股本的比例不低于10%且不高于20%。
-
-募集资金将应用于新一代算力基础设施研发及产业化项目、超聚变智慧制造园区及研发中心项目、面向智能算力、AI以及供电架构的关键技术研发项目，以及补充流动资金。
-
-财务数据显示，2023年、2024年、2025年报告期内，公司分别实现营业收入250.92亿元、442.67亿元和582.46亿元；分别实现归属于母公司股东的净利润5.07亿元、7.22亿元和10.3亿元。
-
-报告期各期，公司主营业务毛利率分别为14.27%、10.04%和8.58%。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 05:28 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 05:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-30 05:02 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 05:04 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 05:25 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 05:04 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 05:11 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 05:07 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 05:21 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 05:12 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 05:20 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-30 05:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 05:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 05:23 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 05:30 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 05:32 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-30 05:09 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 05:28 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 05:15 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-30 05:06 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/2087949652.shtml)
-- 2026-06-30 05:05 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/22261171815.shtml)
-- 2026-06-30 05:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/5156418591.shtml)
-- 2026-06-30 05:17 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/156775017.shtml)
-- 2026-06-30 05:29 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/420149945789.shtml)
-- 2026-06-30 05:25 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/12577.shtml)
-- 2026-06-30 05:01 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/42127.shtml)
-- 2026-06-30 05:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/402910.shtml)
-- 2026-06-30 05:23 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/94910558806.shtml)
-- 2026-06-30 05:04 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/358071.shtml)
-- 2026-06-30 05:06 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/923007582195.shtml)
-- 2026-06-30 05:14 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/430783197592.shtml)
-- 2026-06-30 05:03 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/028191507759.shtml)
-- 2026-06-30 05:18 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/026625.shtml)
-- 2026-06-30 05:11 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/95491930.shtml)
+- 2026-06-30 05:25 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/76858597205.shtml)
+- 2026-06-30 05:17 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/755664.shtml)
+- 2026-06-30 05:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/9514182912.shtml)
+- 2026-06-30 05:19 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/6527580459.shtml)
+- 2026-06-30 05:30 - [男子身高一米八二仍做断骨增高](https://www.share.kurohicncr.top/Article/details/1270882.shtml)
+- 2026-06-30 05:19 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/363663567.shtml)
+- 2026-06-30 05:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/90017505249.shtml)
+- 2026-06-30 05:20 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/72935772.shtml)
+- 2026-06-30 05:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/50415.shtml)
+- 2026-06-30 05:19 - [巴西2比1日本](http://www.blog.minike.top/Article/details/328394.shtml)
+- 2026-06-30 05:11 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/6813549727.shtml)
+- 2026-06-30 05:26 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/10613545.shtml)
+- 2026-06-30 05:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/27047.shtml)
+- 2026-06-30 05:31 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/9855344.shtml)
+- 2026-06-30 05:06 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/17263066480.shtml)

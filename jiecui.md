@@ -1,60 +1,60 @@
-# 巴基斯坦总理夏巴兹将访华 中方介绍相关情况
+# 高息存单加价倒卖暗流涌动 谁在灰色地带“炒利息”
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电(记者 谢雁冰 郭超凯)中国外交部发言人21日宣布：应国务院总理李强邀请，巴基斯坦伊斯兰共和国总理夏巴兹·谢里夫将于5月23日至26日对中国进行正式访问。 在当天举行的外交部例行记者会上，外交部发言人郭嘉昆应询介绍此访相关情况。郭嘉昆表示，今天是中国与巴基斯坦建交75周年纪念日。习近平主席和扎尔达里总统、李强总理和夏巴兹总理分别就此互致贺电。年初以来，双方
+存款利率持续下行，高息大额存单日渐稀缺，一场围绕存单转让的私下加价交易在社交平台上悄然升温。一边是转出方试图绕开官方平台以加价方式寻求更高回报；另一边是受让方愿意接受溢价，只为抢到心仪利率的存单。从定向转让、协商手续费，到黄牛倒卖、付费代抢，买方为何愿意接受溢价成交？其中潜藏着哪些风险？中国证券报记者就此展开调查。 ● 本报记者 石诗语 大额存单加价转让 在社交平台上，不少储户
 
 ## 正文
 
-中新网北京5月21日电(记者 谢雁冰 郭超凯)中国外交部发言人21日宣布：应国务院总理李强邀请，巴基斯坦伊斯兰共和国总理夏巴兹·谢里夫将于5月23日至26日对中国进行正式访问。
+存款利率持续下行，高息大额存单日渐稀缺，一场围绕存单转让的私下加价交易在社交平台上悄然升温。
 
-在当天举行的外交部例行记者会上，外交部发言人郭嘉昆应询介绍此访相关情况。
+一边是转出方试图绕开官方平台以加价方式寻求更高回报；另一边是受让方愿意接受溢价，只为抢到心仪利率的存单。
 
-郭嘉昆表示，今天是中国与巴基斯坦建交75周年纪念日。
+从定向转让、协商手续费，到黄牛倒卖、付费代抢，买方为何愿意接受溢价成交？
 
-习近平主席和扎尔达里总统、李强总理和夏巴兹总理分别就此互致贺电。
+其中潜藏着哪些风险？
 
-年初以来，双方还举行了丰富多彩的纪念活动。
+中国证券报记者就此展开调查。
 
-郭嘉昆说，夏巴兹总理对中国进行正式访问，是中巴两国在建交75周年之际的一次重要高层交往。
+● 本报记者 石诗语 大额存单加价转让 在社交平台上，不少储户主动发帖转让大额存单，试图以加价方式寻求更高回报。
 
-访问期间，习近平主席、李强总理将分别同夏巴兹总理会见、会谈。
+“我手里有两笔广东华兴银行的大额存单，都是20万元，剩余期限分别还有1241天和1246天。
 
-两国领导人将就双边关系和共同关心的问题深入交换意见，为新形势下中巴关系发展指明方向。
+”家住广州市的储户高先生告诉记者，这两笔大额存单都是他于2024年11月认购的，期限5年，年化利率2.85%。
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 05:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
-- 2026-06-30 05:29 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 05:14 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 05:19 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 05:00 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 05:10 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
-- 2026-06-30 05:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-30 05:07 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 05:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 05:24 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 05:02 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 05:24 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 05:20 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 05:22 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 05:17 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 05:20 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-30 05:15 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 05:33 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 05:31 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-30 05:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 05:21 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 05:27 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 05:25 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 05:15 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-30 05:15 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 05:20 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/17548173.shtml)
-- 2026-06-30 05:06 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/187920.shtml)
-- 2026-06-30 05:29 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/507823979.shtml)
-- 2026-06-30 05:04 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/616899.shtml)
-- 2026-06-30 05:12 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/8562812.shtml)
-- 2026-06-30 05:21 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/22201189230.shtml)
-- 2026-06-30 05:16 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/74081995.shtml)
-- 2026-06-30 05:18 - [日本进球](http://www.share.minike.top/Article/details/598068212715.shtml)
-- 2026-06-30 05:16 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/13489976824.shtml)
-- 2026-06-30 05:22 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/40061821.shtml)
-- 2026-06-30 05:26 - [金牌调解](http://www.share.kurohicncr.top/Article/details/23790911145.shtml)
-- 2026-06-30 05:11 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/3690501442.shtml)
-- 2026-06-30 05:12 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/3209747.shtml)
-- 2026-06-30 05:09 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/079511295591.shtml)
-- 2026-06-30 05:09 - [金刚川](https://www.share.kurohicncr.top/Article/details/5229875.shtml)
+- 2026-06-30 05:13 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/55542608794.shtml)
+- 2026-06-30 05:25 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/9900525236.shtml)
+- 2026-06-30 05:15 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/0782688229.shtml)
+- 2026-06-30 05:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/319381203835.shtml)
+- 2026-06-30 05:13 - [美股](http://www.blog.minike.top/Article/details/297266718.shtml)
+- 2026-06-30 05:29 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/8173612.shtml)
+- 2026-06-30 05:07 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/5684053582.shtml)
+- 2026-06-30 05:11 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/57107.shtml)
+- 2026-06-30 05:14 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/817802030.shtml)
+- 2026-06-30 05:27 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/527042652430.shtml)
+- 2026-06-30 05:17 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/21172153434.shtml)
+- 2026-06-30 05:13 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/379321477.shtml)
+- 2026-06-30 05:11 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/0701221.shtml)
+- 2026-06-30 05:09 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/43394765875.shtml)
+- 2026-06-30 05:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/87450124.shtml)

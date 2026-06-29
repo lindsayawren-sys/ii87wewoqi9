@@ -1,59 +1,58 @@
-# 中央气象台：江南黄淮等地有强降水
+# 英伟达五年来首次发行投资级债券 认购额高达850亿美元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 据中央气象台网站消息，昨日，华南、江南和四川、陕西等地部分地区出现大到暴雨，局地大暴雨。预计22日至23日中东部有大范围降雨，24日起又有新一轮强降雨过程，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、中小河流洪水、城市暴雨积涝和地质灾害。 江南黄淮等地有强降水 22-23日，中东部有较大范围降雨过程，西北地区东部、华北、黄淮及东北地区有小到
+芯片巨头英伟达周一势将通过投资级债券发行筹集250亿美元，认购需求达到拟发售规模的三倍以上，凸显投资者急切希望从人工智能中分一杯羹。 据知情人士透露，此次债券发行吸引的认购额高达850亿美元。另有知情人士称，英伟达此次将分七批发行的债券期限从2年期至30年期不等。 知情人士表示，英伟达此次发行的最长期限债券收益率定价为较美国国债收益率高大约0.65个百分点。该人士还表示，此次发
 
 ## 正文
 
-中新网5月22日电 据中央气象台网站消息，昨日，华南、江南和四川、陕西等地部分地区出现大到暴雨，局地大暴雨。
+芯片巨头英伟达周一势将通过投资级债券发行筹集250亿美元，认购需求达到拟发售规模的三倍以上，凸显投资者急切希望从人工智能中分一杯羹。
 
-预计22日至23日中东部有大范围降雨，24日起又有新一轮强降雨过程，关注对农业生产、交通运输、城市运行等影响，并加强防范局地山洪、中小河流洪水、城市暴雨积涝和地质灾害。
+据知情人士透露，此次债券发行吸引的认购额高达850亿美元。
 
-江南黄淮等地有强降水 22-23日，中东部有较大范围降雨过程，西北地区东部、华北、黄淮及东北地区有小到中雨，局地大到暴雨；江汉南部、江淮、江南、华南北部等地有中到大雨，局地暴雨或大暴雨，并伴有雷暴大风、短时强降水等强对流天气。
+另有知情人士称，英伟达此次将分七批发行的债券期限从2年期至30年期不等。
 
-预计，5月22日8时至23日8时，湖南北部、江西中北部和东部、浙江南部、福建中西部、广东北部、广西东北部以及四川东部、河北东部、天津、辽宁西南部、内蒙古东北部等地部分地区有大到暴雨，其中，江西东部、福建西部等地局地有大暴雨(100～150毫米)。
+知情人士表示，英伟达此次发行的最长期限债券收益率定价为较美国国债收益率高大约0.65个百分点。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～50毫米，局地可超过60毫米)，局地有雷暴大风等强对流天气。
+该人士还表示，此次发债募集的资金将用于再融资现有债务等用途。
 
-中央气象台5月22日6时继续发布暴雨蓝色预警。
+这将是英伟达五年来首次发行的债券。
 
-24-27日，中东部还有较大范围降雨过程，西北地区东南部、黄淮、江汉、江淮及江南北部等地有中到大雨，部分地区有暴雨，局地有大暴雨，并伴有雷暴大风、短时强降水等强对流天气。
+随着建设数据中心以及其他支撑人工智能快速发展的基础设施，Alphabet Inc．和亚马逊等企业正通过大规模发行债券涌入债务市场，融资规模累计已达数千亿美元。
 
-国内未来三天具体预报 5月22日8时至23日8时，湖南北部、江西中北部和东部、浙江南部、福建中西部、广东北部、广西东北部以及四川东部、河北东部、天津、辽宁西南部、内蒙古东北部等地部分地区有大到暴雨，其中，江西东部、福建西部等地局地有大暴雨(100～150毫米)。
+截至目前，投资者顺利消化了这些债券供应。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 05:12 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 05:20 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-30 05:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 05:20 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-30 05:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 05:12 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 05:22 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-30 05:20 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 05:24 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 05:01 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 05:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 05:02 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
+- 2026-06-30 05:06 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 05:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 05:16 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 05:10 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 05:22 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 05:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-30 05:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 05:12 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-30 05:35 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-30 05:21 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 05:20 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 05:19 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/532495973.shtml)
-- 2026-06-30 05:27 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/823020.shtml)
-- 2026-06-30 05:29 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/205696443.shtml)
-- 2026-06-30 05:03 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/33076.shtml)
-- 2026-06-30 05:04 - [张凌赫 客串](http://www.share.minike.top/Article/details/391407.shtml)
-- 2026-06-30 05:09 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/70646274.shtml)
-- 2026-06-30 05:25 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/04538040258.shtml)
-- 2026-06-30 05:04 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/55604493.shtml)
-- 2026-06-30 05:19 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/15362.shtml)
-- 2026-06-30 05:25 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/9483823145.shtml)
-- 2026-06-30 05:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/31687470.shtml)
-- 2026-06-30 05:21 - [创新药板块能否“苦尽甘来”](https://www.share.kurohicncr.top/Article/details/9429954.shtml)
-- 2026-06-30 05:20 - [我觉得你是在无中生友](https://www.share.kurohicncr.top/Article/details/751610.shtml)
-- 2026-06-30 05:29 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/9717824.shtml)
-- 2026-06-30 05:16 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/76780475.shtml)
+- 2026-06-30 05:27 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/59905281777.shtml)
+- 2026-06-30 05:14 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/551605992412.shtml)
+- 2026-06-30 05:11 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/260261054706.shtml)
+- 2026-06-30 05:26 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/07765162.shtml)
+- 2026-06-30 05:31 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.kurohicncr.top/Article/details/056989246.shtml)
+- 2026-06-30 05:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/258918586.shtml)
+- 2026-06-30 05:11 - [田曦薇没招了](http://www.share.minike.top/Article/details/784662.shtml)
+- 2026-06-30 05:08 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/26718.shtml)
+- 2026-06-30 05:20 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/79319634864.shtml)
+- 2026-06-30 05:28 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/50854.shtml)
+- 2026-06-30 05:32 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/54795.shtml)
+- 2026-06-30 05:25 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/26050.shtml)
+- 2026-06-30 05:27 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/864359795.shtml)
+- 2026-06-30 05:28 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/98201919074.shtml)
+- 2026-06-30 05:08 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/1852083195.shtml)

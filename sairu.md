@@ -1,60 +1,60 @@
-# 中路股份2025年年度内控被否、财报非标，受损投资者可预登记索赔
+# 李强主持国务院第二十次专题学习
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-根据最新消息，中路股份有限公司（以下简称“中路股份”）内控被否、财报非标，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年1月1日-2026年4月27日期间买入且有持仓，无论在2026年4月28日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。（赵敬国律师专栏） 回顾本案，2026年4月28日中路股份发布《董事会
+新华社北京6月15日电6月15日，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行第二十次专题学习。国务院总理李强在主持学习时强调，要深入学习贯彻习近平总书记关于实施主体功能区战略的重要指示精神和党中央有关决策部署，立足各地资源禀赋和比较优势，统筹优化农业、生态、城镇等各类空间布局，进一步健全主体功能区制度，分区分类施策，促进形成主体功能明显、优势互补、高质量发
 
 ## 正文
 
-根据最新消息，中路股份有限公司（以下简称“中路股份”）内控被否、财报非标，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2025年1月1日-2026年4月27日期间买入且有持仓，无论在2026年4月28日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+新华社北京6月15日电6月15日，国务院以“强化主体功能区战略实施，促进区域协调发展”为主题，进行第二十次专题学习。
 
-（赵敬国律师专栏） 回顾本案，2026年4月28日中路股份发布《董事会关于2025年度保留意见审计报告和否定意见内部控制审计报告涉及事项的专项说明》《内部控制审计报告书》《2025年度财务报告非标准审计意见的专项说明》等公告，中兴华会计师事务所对中路股份2025年度财务报表及财务报告内部控制的有效性进行了审计，并出具了保留意见审计报告和否定意见内部控制审计报告。
+国务院总理李强在主持学习时强调，要深入学习贯彻习近平总书记关于实施主体功能区战略的重要指示精神和党中央有关决策部署，立足各地资源禀赋和比较优势，统筹优化农业、生态、城镇等各类空间布局，进一步健全主体功能区制度，分区分类施策，促进形成主体功能明显、优势互补、高质量发展的国土空间开发保护新格局，为推动区域协调发展、优化重大生产力布局提供有力支撑。
 
-信本股民索赔团队提醒，中路股份2025年年度内控被否，财报非标，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+中国科学院院士、中科院地理科学与资源研究所研究员樊杰作讲解。
 
-索赔条件： 中路股份：于2025年1月1日-2026年4月27日期间买入且有持仓，无论在2026年4月28日及之后是否卖出（具体赔付范围由法院确定）（ST中路维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+国务院副总理何立峰、刘国中，国务委员谌贻琴作交流发言。
 
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+李强在听取讲解和交流发言后指出，这些年来，主体功能区战略从理念到实践取得重大进展，战略格局基本形成，“三区三线”全面划定。
 
-2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
+进入“十五五”时期，面对新的形势和任务，要深刻认识主体功能区战略的基础性作用、全局性影响，强化主体功能区战略实施，以钉钉子精神抓好推进落实。
 
-执业至今，赵敬国律师代理投资者诉多家上市公司索赔案件，已经胜诉或已经获赔的案件包括中安科索赔、中兵红箭索赔、步森服饰索赔、中潜股份索赔、奥瑞德索赔、獐子岛索赔、天神娱乐索赔、抚顺特钢索赔、飞乐音响索赔、香溢融通索赔、延安必康索赔、欢瑞世纪（维权）索赔、紫晶存储索赔、泽达易盛索赔、安妮股份索赔等。
+李强指出，要聚焦突出矛盾，找准切入点，更大力度推动主体功能区战略有效落地。
 
-） 责任编辑：韦子蓉
+要优化主体功能区划，推动空间治理更加精准精细。
 
 ## 相关推荐
 
-- 2026-06-30 05:18 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 05:05 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-30 05:03 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-30 05:20 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 05:16 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 05:23 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 05:07 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 05:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 05:21 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 05:02 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-30 05:12 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 05:15 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 05:13 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 05:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 05:27 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 05:11 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 05:12 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 05:29 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 05:35 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-30 05:08 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 05:06 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-30 05:14 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 05:09 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 05:19 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 05:20 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 05:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 05:35 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-30 05:10 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/23542.shtml)
-- 2026-06-30 05:04 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/21864299.shtml)
-- 2026-06-30 05:13 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/595298285628.shtml)
-- 2026-06-30 05:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/23867.shtml)
-- 2026-06-30 05:06 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/84064607.shtml)
-- 2026-06-30 05:17 - [千与千寻](https://www.share.kurohicncr.top/Article/details/185600751319.shtml)
-- 2026-06-30 05:03 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/94965159537.shtml)
-- 2026-06-30 05:17 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/3806959823.shtml)
-- 2026-06-30 05:04 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/99216.shtml)
-- 2026-06-30 05:18 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/025709782140.shtml)
-- 2026-06-30 05:02 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/35421126.shtml)
-- 2026-06-30 05:07 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/79369957.shtml)
-- 2026-06-30 05:24 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/0315626.shtml)
-- 2026-06-30 05:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/330420030.shtml)
-- 2026-06-30 05:22 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/79804.shtml)
+- 2026-06-30 05:14 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/690835.shtml)
+- 2026-06-30 05:11 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/693181824878.shtml)
+- 2026-06-30 05:08 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/112471060776.shtml)
+- 2026-06-30 05:28 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/98242063.shtml)
+- 2026-06-30 05:14 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/794371459270.shtml)
+- 2026-06-30 05:24 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/891547582.shtml)
+- 2026-06-30 05:22 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/95657421757.shtml)
+- 2026-06-30 05:12 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/424022132077.shtml)
+- 2026-06-30 05:35 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/30680.shtml)
+- 2026-06-30 05:29 - [日本淘汰](https://www.blog.minike.top/Article/details/68244507.shtml)
+- 2026-06-30 05:24 - [周生如故](http://www.blog.kurohicncr.top/Article/details/005798962262.shtml)
+- 2026-06-30 05:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/12458.shtml)
+- 2026-06-30 05:09 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/12845.shtml)
+- 2026-06-30 05:21 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/1916110.shtml)
+- 2026-06-30 05:13 - [一见倾心](https://www.blog.minike.top/Article/details/76648928.shtml)

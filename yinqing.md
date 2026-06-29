@@ -1,56 +1,60 @@
-# 第八届中国国际茶博会：高颜值茶空间令人流连
+# 摩根大通预计到2030年 AI基础设施建设总花费将达5.5万亿美元
 
-> 更新时间：2026-06-30 05:30:04 UTC+8
+> 更新时间：2026-06-30 05:36:03 UTC+8
 
 ## 摘要
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？618大战，为何先从手机降价开始？埃及胡夫金字塔如何抗震？国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！你的股票和黄金，后市怎么走？郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！建议欧洲议会集体观看《给阿嬷的情书》韩国股民，
+摩根大通上调对大型科技公司建设人工智能（AI）基础设施所需的花费和借款预估。 该行策略师在周二的一份研报中指出，他们预计到2030年，AI超大规模数据中心运营商将为此投入约5.5万亿美元，较11月时的预测增加4000亿美元。他们写道，其中约4.1万亿美元将来自债务融资，反映出市场预期这些公司将利用借入的资金来覆盖更大比例的支出。 围绕AI基础设施的投资竞赛已极大地推动企业债发行
 
 ## 正文
 
-国务院常务会议部署全国统一大市场建设“手搓经济”火热，AI真的让创业变容易了吗？
+摩根大通上调对大型科技公司建设人工智能（AI）基础设施所需的花费和借款预估。
 
-618大战，为何先从手机降价开始？
+该行策略师在周二的一份研报中指出，他们预计到2030年，AI超大规模数据中心运营商将为此投入约5.5万亿美元，较11月时的预测增加4000亿美元。
 
-埃及胡夫金字塔如何抗震？
+他们写道，其中约4.1万亿美元将来自债务融资，反映出市场预期这些公司将利用借入的资金来覆盖更大比例的支出。
 
-国际最新考古研究揭秘“糖果屋”归来：一代人的青春，终于等到续集这封信，写给两位离开五年的老人全球央行集体“翻脸”！
+围绕AI基础设施的投资竞赛已极大地推动企业债发行。
 
-你的股票和黄金，后市怎么走？
+包括Tarek Hamid在内的摩根大通策略师指出，自该行11月做出预测以来，与AI和数据中心有关的债券发行规模已超过3000亿美元。
 
-郑丽文拍桌“怒骂”赖清德30分钟：别再骗了，莱尔校长！
+他们表示，数据中心的债券发行是今年初债券发行量接近历史最高水平的最大推手。
 
-建议欧洲议会集体观看《给阿嬷的情书》韩国股民，怕泡沫破裂没有继承人，遗产谁来管？
+芯片制造巨头英伟达周一也加入了科技巨头大规模发债的浪潮，发行了250亿美元的高评级债券。
 
-最高法案例“划重点”黄金，再跌也不能买了？
+此次发行吸引了高达850亿美元的认购，投资者希望借此参与AI热潮。
 
 ## 相关推荐
 
-- 2026-06-30 05:24 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 05:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 05:14 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 05:13 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 05:11 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 05:21 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 05:25 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 05:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-30 05:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 05:06 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 05:13 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 05:09 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 05:26 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-30 05:11 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 05:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 05:09 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 05:34 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 05:31 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 05:18 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 05:16 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 05:24 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 05:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 05:16 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 05:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/60106.shtml)
-- 2026-06-30 05:00 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/868000454061.shtml)
-- 2026-06-30 05:25 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/1189857.shtml)
-- 2026-06-30 05:03 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/9254614.shtml)
-- 2026-06-30 05:27 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/03315.shtml)
-- 2026-06-30 05:14 - [巴西扳平比分](http://www.share.minike.top/Article/details/507882031514.shtml)
-- 2026-06-30 05:15 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/150550.shtml)
-- 2026-06-30 05:05 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/593429.shtml)
-- 2026-06-30 05:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/729015.shtml)
-- 2026-06-30 05:25 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/7645236.shtml)
-- 2026-06-30 05:03 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/27817646.shtml)
-- 2026-06-30 05:17 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/931976137754.shtml)
-- 2026-06-30 05:23 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/480650.shtml)
-- 2026-06-30 05:11 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/02884295122.shtml)
-- 2026-06-30 05:04 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/1271318.shtml)
+- 2026-06-30 05:15 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/479961707537.shtml)
+- 2026-06-30 05:09 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/164052079.shtml)
+- 2026-06-30 05:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/37618548609.shtml)
+- 2026-06-30 05:11 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/746395.shtml)
+- 2026-06-30 05:34 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/569341693.shtml)
+- 2026-06-30 05:34 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/47043.shtml)
+- 2026-06-30 05:34 - [毒液2](http://www.blog.kurohicncr.top/Article/details/672115.shtml)
+- 2026-06-30 05:30 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/97783.shtml)
+- 2026-06-30 05:19 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/14178405.shtml)
+- 2026-06-30 05:34 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/917805919.shtml)
+- 2026-06-30 05:17 - [一见倾心](https://www.blog.minike.top/Article/details/529309634408.shtml)
+- 2026-06-30 05:14 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/01327.shtml)
+- 2026-06-30 05:32 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/99011362859.shtml)
+- 2026-06-30 05:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/002836.shtml)
+- 2026-06-30 05:13 - [急先锋](https://www.share.kurohicncr.top/Article/details/591498116.shtml)
