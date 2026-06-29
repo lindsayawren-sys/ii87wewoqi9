@@ -1,45 +1,49 @@
-# 央行今日开展259亿元7天期逆回购操作
+# 我国自2026年5月1日起对所有非洲建交国实施零关税
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，据央行公告，2026年4月29日中国人民银行以固定利率、数量招标方式开展了259亿元7天期逆回购操作，全额满足了一级交易商需求。 责任编辑：曹睿潼
+国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。 对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零
 
 ## 正文
 
-4月29日金融一线消息，据央行公告，2026年4月29日中国人民银行以固定利率、数量招标方式开展了259亿元7天期逆回购操作，全额满足了一级交易商需求。
+国务院关税税则委员会发布公告，自2026年5月1日至2028年4月30日，对同中国建交的20个不属于最不发达国家的非洲国家以特惠税率形式实施零关税；其中关税配额产品仅将配额内关税税率降为零，配额外关税税率不变。
 
-责任编辑：曹睿潼
+2年实施期内，中方将继续推动与相关非洲国家商签共同发展经济伙伴关系协定。
+
+对于同中国建交的33个非洲最不发达国家，中方已自2024年12月1日起对其100%税目产品实施零关税。
+
+此次进一步对其余20个非洲建交国实施零关税，体现了中国扩大高水平对外开放的积极姿态，对加强中非经贸合作纽带、推动共筑新时代全天候中非命运共同体将发挥重要作用。
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 02:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-30 02:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 02:01 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 01:52 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 01:50 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-30 02:02 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 02:07 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 01:55 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-30 01:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 02:16 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 02:12 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 02:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 02:10 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 02:09 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 02:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-30 02:12 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-30 01:57 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 01:58 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 02:03 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 02:03 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 02:10 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [毒液2](http://www.blog.kurohicncr.top/Article/details/4424667.shtml)
-- 2026-06-30 02:00 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/79996217.shtml)
-- 2026-06-30 02:06 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/31898.shtml)
-- 2026-06-30 02:12 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/529394547.shtml)
-- 2026-06-30 02:01 - [美人鱼](http://www.blog.minike.top/Article/details/120643024.shtml)
-- 2026-06-30 01:54 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/50487133.shtml)
-- 2026-06-30 02:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/997908451.shtml)
-- 2026-06-30 02:17 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/954819.shtml)
-- 2026-06-30 01:55 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/1740699.shtml)
-- 2026-06-30 01:53 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/307915478751.shtml)
-- 2026-06-30 02:08 - [国常会听取人工智能发展情况汇报](http://www.blog.kurohicncr.top/Article/details/60370.shtml)
-- 2026-06-30 01:48 - [电影后室值得看吗](https://www.share.minike.top/Article/details/70953454125.shtml)
-- 2026-06-30 02:05 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/708406614916.shtml)
-- 2026-06-30 02:06 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/13219.shtml)
-- 2026-06-30 01:56 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/895221.shtml)
+- 2026-06-30 01:58 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/13827104.shtml)
+- 2026-06-30 02:07 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.minike.top/Article/details/49868.shtml)
+- 2026-06-30 02:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/81436065.shtml)
+- 2026-06-30 02:20 - [Prada在内娱首度签下偶像团体](http://www.share.minike.top/Article/details/94950172.shtml)
+- 2026-06-30 01:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/862579912146.shtml)
+- 2026-06-30 02:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/122529557.shtml)
+- 2026-06-30 02:17 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/69044039.shtml)
+- 2026-06-30 01:57 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.kurohicncr.top/Article/details/12697.shtml)
+- 2026-06-30 02:11 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/043773566.shtml)
+- 2026-06-30 02:19 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/77486.shtml)
+- 2026-06-30 01:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/34658754.shtml)
+- 2026-06-30 01:59 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/692905.shtml)
+- 2026-06-30 01:55 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/949442416.shtml)
+- 2026-06-30 02:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/229891275.shtml)
+- 2026-06-30 01:56 - [千香](http://www.blog.minike.top/Article/details/978717330.shtml)

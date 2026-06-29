@@ -1,57 +1,54 @@
-# 美迪西连亏三年：毛利率修复缓慢，诉讼与资产减值阴影未散
+# 时政微视频丨习近平与义乌的故事
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-尽管美迪西在2025年交出了一份营收增长、亏损收窄的“回暖”成绩单，但深挖财务数据与经营细节，这家CRO企业仍面临多重结构性挑战。连续三年亏损、毛利率远未恢复至历史水平、资产减值持续侵蚀利润，以及一桩金额高达1.5亿元的未决诉讼，均构成其未来发展的隐忧。 一、连亏三年，盈利能力尚未触底回升 2025年，美迪西实现营收11.63亿元，同比增长12%；归母净利润为-1.68亿元，扣
+发布时间：2026年04月29日 10:25 来源：中国新闻网 “小孩子成长太快，而衣服太小，得给成长快的孩子换上一件大衣服”，习近平用这句话为成长快速的义乌点明了发展路径。2002年到2007年，时任浙江省委书记习近平多次深入义乌调研，为其发展把脉开方。他创造性地用“莫名其妙、无中生有、点石成金”生动概括义乌发展经验，对义乌超常规快速发展中出现的一些情况作出专门批示。如今，“
 
 ## 正文
 
-尽管美迪西在2025年交出了一份营收增长、亏损收窄的“回暖”成绩单，但深挖财务数据与经营细节，这家CRO企业仍面临多重结构性挑战。
+发布时间：2026年04月29日 10:25 来源：中国新闻网 “小孩子成长太快，而衣服太小，得给成长快的孩子换上一件大衣服”，习近平用这句话为成长快速的义乌点明了发展路径。
 
-连续三年亏损、毛利率远未恢复至历史水平、资产减值持续侵蚀利润，以及一桩金额高达1.5亿元的未决诉讼，均构成其未来发展的隐忧。
+2002年到2007年，时任浙江省委书记习近平多次深入义乌调研，为其发展把脉开方。
 
-一、连亏三年，盈利能力尚未触底回升 2025年，美迪西实现营收11.63亿元，同比增长12%；归母净利润为-1.68亿元，扣非净利润为-1.81亿元，虽较上年同期大幅收窄，但这已是公司连续第三年陷入亏损（2023–2025年）。
+他创造性地用“莫名其妙、无中生有、点石成金”生动概括义乌发展经验，对义乌超常规快速发展中出现的一些情况作出专门批示。
 
-从盈利质量来看，公司仍远未实现真正意义上的“扭亏为盈”。
+如今，“换上大衣服”的义乌已然蝶变为国际化商都，书写着中国改革开放的生动篇章。
 
-更值得警惕的是，毛利率虽从2024年的6.31%回升至17.36%，提升了11个百分点，但与2022年40.8%的毛利率水平相比，仍存在明显差距。
-
-这意味着，行业价格战的影响仍在持续，客单价压力未根本缓解。
-
-在未恢复至30%以上毛利率区间前，美迪西的盈利中枢仍不稳固。
-
-二、资产减值与信用损失持续“吞噬”利润 近三年来，美迪西年年计提资产减值。
+总监制 俞岚 制片人 齐彬 柴燕菲 统筹 王玉平 编导 吴瑞 张昂 摄像 董易鑫 刘子琳 金家明 包装 杨嫣然 推广 范思忆 丰婷婷 鸣谢 中共义乌市委宣传部 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 01:50 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-30 02:07 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 02:10 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 02:09 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 01:56 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-30 01:53 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 01:59 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 01:56 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 02:08 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 02:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 01:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 01:56 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 02:06 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 02:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 02:13 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 02:01 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 02:22 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 02:21 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 02:00 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-30 02:18 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 02:18 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 01:58 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 02:14 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-30 02:23 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/702486072.shtml)
-- 2026-06-30 01:54 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/65136630713.shtml)
-- 2026-06-30 02:14 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/4921621.shtml)
-- 2026-06-30 01:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/8957951372.shtml)
-- 2026-06-30 02:04 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/025582.shtml)
-- 2026-06-30 02:16 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/84389.shtml)
-- 2026-06-30 01:55 - [刘念回应](https://www.share.minike.top/Article/details/161801.shtml)
-- 2026-06-30 02:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/63711199770.shtml)
-- 2026-06-30 01:48 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/73309.shtml)
-- 2026-06-30 01:58 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/4099802268.shtml)
-- 2026-06-30 02:15 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/1870500276.shtml)
-- 2026-06-30 02:13 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/46719827763.shtml)
-- 2026-06-30 01:50 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/834557677.shtml)
-- 2026-06-30 02:07 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/754110914.shtml)
-- 2026-06-30 02:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/57366504.shtml)
+- 2026-06-30 01:56 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/88753595973.shtml)
+- 2026-06-30 02:11 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/672645845.shtml)
+- 2026-06-30 02:23 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/84509328017.shtml)
+- 2026-06-30 02:02 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/30699.shtml)
+- 2026-06-30 02:07 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/629711001664.shtml)
+- 2026-06-30 02:21 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/56776888733.shtml)
+- 2026-06-30 02:14 - [MSI应援曲 如果季中成回忆](https://www.blog.kurohicncr.top/Article/details/04419480.shtml)
+- 2026-06-30 02:21 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/7563438302.shtml)
+- 2026-06-30 01:55 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/7494820867.shtml)
+- 2026-06-30 01:59 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/664455096.shtml)
+- 2026-06-30 01:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/37416705.shtml)
+- 2026-06-30 02:20 - [Prada在内娱首度签下偶像团体](https://www.share.kurohicncr.top/Article/details/479008451877.shtml)
+- 2026-06-30 01:57 - [这一刀 会很帅](http://www.share.minike.top/Article/details/26638.shtml)
+- 2026-06-30 02:23 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/3946094.shtml)
+- 2026-06-30 02:07 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/5898827908.shtml)

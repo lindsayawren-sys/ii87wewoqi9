@@ -1,56 +1,49 @@
-# 【理响中国】漫评：文脉活起来，“体验经济”点亮千年水脉
+# 东方盛虹：2025年净利润1.34亿元 同比扭亏
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画，文旅体验正悄然上演。 从“看风景”到“入剧情”的转变，让大运河“体验经济”持续升温，让千年水脉的文化生命力，以更鲜活、更贴近大众的方式奔涌向前。以往的文化传播，大多是单向的知识灌输，枯燥的讲解很难让大众尤其是青少年真正记住历史。扬州中国大运河博物馆打造的“大
+人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑
 
 ## 正文
 
-暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画，文旅体验正悄然上演。
+人民财讯4月28日电，东方盛虹（000301）4月28日披露年报，2025年实现营业收入1255.87亿元，同比下降8.78%；归母净利润1.34亿元，上年同期亏损22.97亿元；归属于上市公司股东的扣除非经常性损益的净利润亏损5.43亿元；基本每股收益0.02元。
 
-从“看风景”到“入剧情”的转变，让大运河“体验经济”持续升温，让千年水脉的文化生命力，以更鲜活、更贴近大众的方式奔涌向前。
+报告期内，聚酯化纤业务及化工新材料业务盈利水平良好，但2025年国际国内环境复杂多变，石化行业在供需两端面临多重挑战，原油价格呈宽幅震荡、中枢下移趋势，叠加部分下游行业需求阶段性承压，公司营业收入增长受到一定影响。
 
-以往的文化传播，大多是单向的知识灌输，枯燥的讲解很难让大众尤其是青少年真正记住历史。
-
-扬州中国大运河博物馆打造的“大明都水监之运河迷踪”沉浸式密室项目，彻底打破了这种传统模式。
-
-青少年化身监水使者，在闯关解密中探寻运河路线、辨识漕运船只、操作古闸通行，每一项游戏环节都藏着运河历史与水利知识。
-
-寓教于乐、趣味满满的探索，孩子们在玩乐中主动汲取知识，不知不觉读懂了古代漕运的运作逻辑。
-
-当历史变成可参与、可体验的场景，文化便能真正走进人心，扎根在大众的亲身经历里。
-
-影视IP赋能，让运河故事走入烟火人间。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 02:06 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 02:17 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
-- 2026-06-30 01:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-30 01:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 02:08 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 01:50 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 02:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-30 02:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
-- 2026-06-30 02:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 02:18 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 02:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 02:16 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-30 02:00 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
+- 2026-06-30 02:18 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 02:05 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 02:10 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 01:57 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-30 02:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 02:10 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 02:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 02:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-30 01:54 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:55 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/63282190.shtml)
-- 2026-06-30 01:57 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/58360330321.shtml)
-- 2026-06-30 01:52 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/245549944244.shtml)
-- 2026-06-30 02:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/858997.shtml)
-- 2026-06-30 02:10 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/92293492.shtml)
-- 2026-06-30 01:53 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/92192602.shtml)
-- 2026-06-30 02:08 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/71268620443.shtml)
-- 2026-06-30 01:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/85078704.shtml)
-- 2026-06-30 02:17 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/3554950.shtml)
-- 2026-06-30 01:55 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/613332876668.shtml)
-- 2026-06-30 01:48 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/76607.shtml)
-- 2026-06-30 02:10 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/068552.shtml)
-- 2026-06-30 02:00 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/3416414474.shtml)
-- 2026-06-30 02:09 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/90043137.shtml)
-- 2026-06-30 02:17 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/982490298.shtml)
+- 2026-06-30 02:13 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/721635794.shtml)
+- 2026-06-30 02:23 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/15306255085.shtml)
+- 2026-06-30 02:14 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/8870306058.shtml)
+- 2026-06-30 02:17 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/072472894251.shtml)
+- 2026-06-30 02:04 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/7905510800.shtml)
+- 2026-06-30 02:10 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/865535.shtml)
+- 2026-06-30 02:04 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/7762006484.shtml)
+- 2026-06-30 02:10 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/3506215137.shtml)
+- 2026-06-30 01:57 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/8896487133.shtml)
+- 2026-06-30 01:59 - [世界杯](http://www.blog.minike.top/Article/details/466063245.shtml)
+- 2026-06-30 02:20 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/24090031.shtml)
+- 2026-06-30 02:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/2861127.shtml)
+- 2026-06-30 02:22 - [张碧晨一开口梦回逐玉](http://www.blog.kurohicncr.top/Article/details/2417356.shtml)
+- 2026-06-30 02:14 - [田曦薇没招了](https://www.share.minike.top/Article/details/134608961582.shtml)
+- 2026-06-30 02:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/015490868.shtml)

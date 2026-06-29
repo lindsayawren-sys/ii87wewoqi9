@@ -1,49 +1,59 @@
-# 【同在国旗下】广东医科大学国旗护卫队再次上演热血名场面 个个英姿飒爽 气势满满
+# 外国车企警告特朗普政府，若美墨加协定不降低关税将停止在美生产低端车型
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 18:18 来源：中国新闻网 4月24日至26日，2026年粤港澳学校国旗护卫队交流展示活动在佛山大学举行。在这场汇聚了粤港澳三地178所学校、7000余名师生的高规格国防教育盛事中，广东医科大学国旗护卫队凭借扎实军事素养、顽强拼搏的作风和高度的团队默契，荣获本科组一等奖第一名，实现赛事八连冠。面对连日来的阴雨天气和强大的竞争压力，队员们身姿挺
+据知情人士称，外国汽车制造商已警告特朗普政府，如果《美墨加协定》（USMCA）未能续签或被大幅削弱，它们可能会将旗下最便宜的车型撤出美国市场。 消息人士称，特朗普的经济顾问已被告知，如果USMCA不复存在，或者续签后的协议未能大幅降低北美制造的汽车及零部件的关税，一些外国汽车制造商可能无法为美国市场生产和销售价格更低的汽车。 汽车行业敦促特朗普政府延长美墨加协定（USMCA），
 
 ## 正文
 
-发布时间：2026年04月29日 18:18 来源：中国新闻网 4月24日至26日，2026年粤港澳学校国旗护卫队交流展示活动在佛山大学举行。
+据知情人士称，外国汽车制造商已警告特朗普政府，如果《美墨加协定》（USMCA）未能续签或被大幅削弱，它们可能会将旗下最便宜的车型撤出美国市场。
 
-在这场汇聚了粤港澳三地178所学校、7000余名师生的高规格国防教育盛事中，广东医科大学国旗护卫队凭借扎实军事素养、顽强拼搏的作风和高度的团队默契，荣获本科组一等奖第一名，实现赛事八连冠。
+消息人士称，特朗普的经济顾问已被告知，如果USMCA不复存在，或者续签后的协议未能大幅降低北美制造的汽车及零部件的关税，一些外国汽车制造商可能无法为美国市场生产和销售价格更低的汽车。
 
-面对连日来的阴雨天气和强大的竞争压力，队员们身姿挺拔、动作标准，每一个细节都展现出了极高的训练水平和对国旗的无限敬仰。
+汽车行业敦促特朗普政府延长美墨加协定（USMCA），该协定今年将面临审查。
 
-责任编辑：【李光伟】
+汽车公司称这项贸易协定对美国汽车生产至关重要。
+
+墨西哥和加拿大一直希望通过USMCA谈判来缓解特朗普去年征收的高额关税带来的压力。
+
+这些关税给高度一体化的北美经济中的汽车制造商和其他行业造成了困难。
+
+美墨加三国原定于7月1日前完成贸易协定的谈判工作，但由于美加两国因特朗普的关税政策而产生的紧张关系，谈判进度受到了影响。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 02:10 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 01:48 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 01:55 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-30 01:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 02:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-30 02:06 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 01:57 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 01:56 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 02:01 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 02:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 02:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 01:57 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 02:09 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 02:19 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 02:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-30 02:19 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 01:54 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 02:07 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 02:15 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 02:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 02:09 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-30 02:16 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 02:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/608957.shtml)
-- 2026-06-30 02:06 - [流金岁月](http://www.share.minike.top/Article/details/092002.shtml)
-- 2026-06-30 02:02 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/4893857266.shtml)
-- 2026-06-30 02:00 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/111944007.shtml)
-- 2026-06-30 01:51 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/1506411.shtml)
-- 2026-06-30 02:01 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/881807825078.shtml)
-- 2026-06-30 02:02 - [青春环游记第三季](http://www.share.minike.top/Article/details/54289946038.shtml)
-- 2026-06-30 01:49 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/92041802.shtml)
-- 2026-06-30 02:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/21481877.shtml)
-- 2026-06-30 02:17 - [足球“出口导向”造就佛得角奇迹](http://www.share.kurohicncr.top/Article/details/693365251.shtml)
-- 2026-06-30 02:02 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/787940429.shtml)
-- 2026-06-30 01:54 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/077155840.shtml)
-- 2026-06-30 02:08 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/09595288.shtml)
-- 2026-06-30 01:58 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/54190.shtml)
-- 2026-06-30 01:52 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/433888997.shtml)
+- 2026-06-30 02:14 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/89401888.shtml)
+- 2026-06-30 02:13 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/7145923.shtml)
+- 2026-06-30 02:10 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/7684364115.shtml)
+- 2026-06-30 02:08 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/293194894112.shtml)
+- 2026-06-30 02:10 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/9661297.shtml)
+- 2026-06-30 02:10 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/272853.shtml)
+- 2026-06-30 02:20 - [问心2金世佳追妻火葬场](http://www.share.kurohicncr.top/Article/details/63286.shtml)
+- 2026-06-30 02:01 - [巴西醒醒 这是淘汰赛](http://www.blog.minike.top/Article/details/04050961.shtml)
+- 2026-06-30 02:13 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/581277062283.shtml)
+- 2026-06-30 02:04 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/416471664.shtml)
+- 2026-06-30 02:09 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/1862756619.shtml)
+- 2026-06-30 02:19 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/888579906.shtml)
+- 2026-06-30 02:17 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/80087278.shtml)
+- 2026-06-30 02:21 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/7973969475.shtml)
+- 2026-06-30 01:59 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/46043.shtml)

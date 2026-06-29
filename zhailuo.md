@@ -1,60 +1,55 @@
-# 中国市场监管部门严打网络食品销售虚假宣传乱象
+# 白宫据悉正在研讨恢复与Anthropic合作
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新社北京4月29日电 中国国家市场监管总局食品安全总监孙会川29日在新闻发布会上介绍，针对网络食品销售虚假宣传屡禁不止问题，该局决定在全国范围内开展为期半年的专项整治行动。 孙会川指出，近年来，网络食品销量快速增长，但网售食品虚假宣传、违法广告等突出问题屡禁不止。比如，涉嫌原产地造假、虚假宣传的“优思益”保健品，虚假标注相关成分、打品牌“擦边球”的同仁堂南极磷虾油等，都是近期
+据知情人士透露，白宫正在制定指导方针，允许各机构绕过对Anthropic的供应链风险的认定，并引入包括其迄今为止最强大的Mythos在内的新模型。 特朗普政府似乎对这家公司态度大转弯，此前它曾声称该公司构成严重的安全风险，必须将其从联邦政府中移除。 两位消息人士称，目前正在起草的一项行政命令草案，除其他与政府使用人工智能相关的措施外，可能还会为政府提供一种缓和与Anthropi
 
 ## 正文
 
-中新社北京4月29日电 中国国家市场监管总局食品安全总监孙会川29日在新闻发布会上介绍，针对网络食品销售虚假宣传屡禁不止问题，该局决定在全国范围内开展为期半年的专项整治行动。
+据知情人士透露，白宫正在制定指导方针，允许各机构绕过对Anthropic的供应链风险的认定，并引入包括其迄今为止最强大的Mythos在内的新模型。
 
-孙会川指出，近年来，网络食品销量快速增长，但网售食品虚假宣传、违法广告等突出问题屡禁不止。
+特朗普政府似乎对这家公司态度大转弯，此前它曾声称该公司构成严重的安全风险，必须将其从联邦政府中移除。
 
-比如，涉嫌原产地造假、虚假宣传的“优思益”保健品，虚假标注相关成分、打品牌“擦边球”的同仁堂南极磷虾油等，都是近期翻车的“网红产品”，让老百姓“舌尖上的期待”变成了“舌尖上的上当”。
+两位消息人士称，目前正在起草的一项行政命令草案，除其他与政府使用人工智能相关的措施外，可能还会为政府提供一种缓和与Anthropic公司对抗的途径。
 
-他介绍，针对网络食品销售虚假宣传屡禁不止的问题，此次专项整治行动的目标是把那些欺骗消费者、扰乱市场秩序的害群之马揪出来，把背后的黑灰产业链条彻底斩断。
+一位消息人士将白宫的举动描述为“挽回颜面，让他们重回正轨”。
 
-打法是“线上盯着查、线下追着打、全链条一锅端”。
+本月早些时候，白宫幕僚长怀尔斯与财长贝森特会见了Anthropic首席执行官达里奥，双方均称此次为富有成效的初步会谈，讨论了公司与政府如何开展合作。
 
-不让任何一个违法者心存侥幸，不让任何一条违法链条漏网。
+白宫本周正召集各行业公司，就潜在的行政行动以及部署Mythos的最佳实践提供意见。
 
-据悉，这次专项整治的检查对象涵盖5类主体：电商平台、平台内经营者、营销服务机构及人员、广告活动主体、食品生产经营者。
-
-重点整治3类违法违规行为：一是虚假宣传行为，比如普通食品却通过各种手段明示暗示自己可以“治病、保健、防病”的；保健食品夸大功效、暗示自己可以“治病”的；二是违法广告行为，比如对食品的产地、成分、功能等胡编乱造、张冠李戴的，利用所谓“专家、学者、白大褂”站台背书，误导消费者的；三是平台机构违法行为，比如对于虚假宣传放任不管，甚至纵容造假、配合忽悠的。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-30 01:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 01:50 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuairou.md)
-- 2026-06-30 01:59 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 02:15 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 02:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 02:09 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 02:16 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 02:09 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 01:56 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-30 02:16 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-30 02:18 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
-- 2026-06-30 02:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 02:16 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 02:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 02:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 01:58 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 02:11 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 02:02 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 02:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 02:22 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 02:10 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 02:07 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 02:18 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 01:55 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/20315306.shtml)
-- 2026-06-30 02:09 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/8922314.shtml)
-- 2026-06-30 01:48 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/9915122220.shtml)
-- 2026-06-30 01:48 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/461157084978.shtml)
-- 2026-06-30 01:56 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/780379453234.shtml)
-- 2026-06-30 01:50 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/4388353613.shtml)
-- 2026-06-30 02:07 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/8070105.shtml)
-- 2026-06-30 02:10 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/6248981.shtml)
-- 2026-06-30 01:55 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/46110188240.shtml)
-- 2026-06-30 02:11 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/8642505.shtml)
-- 2026-06-30 02:11 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/3328626.shtml)
-- 2026-06-30 01:58 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/731750.shtml)
-- 2026-06-30 02:11 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/498807345171.shtml)
-- 2026-06-30 01:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/68794978994.shtml)
-- 2026-06-30 02:17 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/560654297.shtml)
+- 2026-06-30 02:01 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/25671707.shtml)
+- 2026-06-30 02:08 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/893726124146.shtml)
+- 2026-06-30 02:18 - [网警提醒警惕高考查分陷阱](https://www.share.kurohicncr.top/Article/details/68542873059.shtml)
+- 2026-06-30 01:56 - [刘念回应](http://www.blog.minike.top/Article/details/81067189.shtml)
+- 2026-06-30 02:18 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/809946.shtml)
+- 2026-06-30 02:12 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/462290519.shtml)
+- 2026-06-30 01:58 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/560158956.shtml)
+- 2026-06-30 02:13 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/412042694672.shtml)
+- 2026-06-30 02:15 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/83566578.shtml)
+- 2026-06-30 02:10 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/4052829.shtml)
+- 2026-06-30 02:09 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/1820850.shtml)
+- 2026-06-30 02:11 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/01217.shtml)
+- 2026-06-30 02:18 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/38257.shtml)
+- 2026-06-30 02:22 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/50846584.shtml)
+- 2026-06-30 02:19 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/3760448.shtml)

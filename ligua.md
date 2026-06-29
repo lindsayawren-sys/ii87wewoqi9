@@ -1,59 +1,58 @@
-# 多只理财产品提前“退场”，啥情况？
+# 中信建投期货：4月28日工业品早报
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 “前几天我突然收到通知，持有的一款理财产品即将提前终止。”近日，来自北京的投资者王凌（化名）向《金融时报》记者反馈，原本持有期限尚未到期的银行理财，被通知提前终止运作，打乱了自身的资金配置计划。 记者梳理近期理财市场公告发现，年内有多家银行理财子公司密集宣布旗下理财产品提前终止。尤其自今年4月以来，银行理财提前终止案例集中涌现。 4月23日，交银理财连发两则产品
+铜：等待更多指引，铜价延续盘整 隔夜沪铜主力震荡走跌至102280元，伦铜收跌13226美金附近。 宏观中性。伊朗提出分三阶段推进的谈判框架，其中涉及的霍尔木兹海峡管理问题或与美国存在分歧，当前美伊局势持续陷入僵持。一季度中国规模以上工业企业利润同比增长15.5%，其中计算机通讯等制造业利润同比增幅领先。 基本面中性。昨日上期所铜仓单减少5672吨至10.63万吨，LME铜去库
 
 ## 正文
 
-来源：金融时报 “前几天我突然收到通知，持有的一款理财产品即将提前终止。
+铜：等待更多指引，铜价延续盘整 隔夜沪铜主力震荡走跌至102280元，伦铜收跌13226美金附近。
 
-”近日，来自北京的投资者王凌（化名）向《金融时报》记者反馈，原本持有期限尚未到期的银行理财，被通知提前终止运作，打乱了自身的资金配置计划。
+宏观中性。
 
-记者梳理近期理财市场公告发现，年内有多家银行理财子公司密集宣布旗下理财产品提前终止。
+伊朗提出分三阶段推进的谈判框架，其中涉及的霍尔木兹海峡管理问题或与美国存在分歧，当前美伊局势持续陷入僵持。
 
-尤其自今年4月以来，银行理财提前终止案例集中涌现。
+一季度中国规模以上工业企业利润同比增长15.5%，其中计算机通讯等制造业利润同比增幅领先。
 
-4月23日，交银理财连发两则产品提前终止公告，交银理财稳享灵动慧利半年鑫3号、稳享灵动慧利季季开6号私银尊享两款理财产品分别于今年5月11日、4月28日提前终止。
+基本面中性。
 
-除交银理财外，工银理财亦发布公告称，旗下鑫得利目标止盈策略ESG优选固收增强封闭式理财产品于今年4月22日提前终止。
+昨日上期所铜仓单减少5672吨至10.63万吨，LME铜去库1325吨至39.12万吨，周末SMM中国主要地区铜库存减少1万吨至24.8万吨。
 
-公告显示，根据产品说明书的提前终止条款约定，在止盈观察期内，该产品份额成立以来的年化收益率在观察日不低于止盈目标收益率，已达到提前终止条件。
+供应端，中国有色集团控股的赞比亚铜矿Luanshya计划于今年8月恢复上矿生产，下矿层预计2029年恢复生产，2030年有望达到年产10万吨铜。
 
-理财产品提前终止是指理财产品管理人对一些有固定期限的理财产品在合同约定期限还没到时就提前终止，或者是一些无固定期限的理财产品不再继续运作。
+需求端，假期临近下游虽有备货需求，但因铜价高企且新增订单乏力，现货升水克制。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 02:02 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 02:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 01:51 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 02:00 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 01:51 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 01:56 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 01:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 01:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 01:58 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-30 02:16 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 01:59 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 02:13 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:04 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 02:04 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-30 02:14 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 02:09 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-30 01:58 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
+- 2026-06-30 01:57 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-30 01:58 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 02:07 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 01:56 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 02:19 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 02:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 02:22 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/67018164.shtml)
-- 2026-06-30 01:57 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/5645922.shtml)
-- 2026-06-30 01:52 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/992831730.shtml)
-- 2026-06-30 01:55 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/769254243.shtml)
-- 2026-06-30 02:16 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/959044.shtml)
-- 2026-06-30 01:59 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/5195428546.shtml)
-- 2026-06-30 02:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/308977205031.shtml)
-- 2026-06-30 02:11 - [巴西vs日本](http://www.blog.minike.top/Article/details/3325303.shtml)
-- 2026-06-30 02:14 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/32543044243.shtml)
-- 2026-06-30 02:17 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/34049376.shtml)
-- 2026-06-30 02:12 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/60528767.shtml)
-- 2026-06-30 02:08 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/9731552101.shtml)
-- 2026-06-30 01:48 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/939319353236.shtml)
-- 2026-06-30 02:17 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/9621565.shtml)
-- 2026-06-30 01:54 - [流金岁月](http://www.blog.minike.top/Article/details/157376.shtml)
+- 2026-06-30 02:19 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/07169160017.shtml)
+- 2026-06-30 01:54 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/45129166583.shtml)
+- 2026-06-30 02:16 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/611117291.shtml)
+- 2026-06-30 02:22 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/29063494927.shtml)
+- 2026-06-30 02:00 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/6041383.shtml)
+- 2026-06-30 01:59 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/8209830890.shtml)
+- 2026-06-30 02:07 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/900816094923.shtml)
+- 2026-06-30 02:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/295056210.shtml)
+- 2026-06-30 02:20 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/43042861.shtml)
+- 2026-06-30 02:00 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/53914.shtml)
+- 2026-06-30 02:17 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/821536.shtml)
+- 2026-06-30 02:16 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/8859491939.shtml)
+- 2026-06-30 02:20 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/9756084.shtml)
+- 2026-06-30 02:15 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/314307581584.shtml)
+- 2026-06-30 02:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/29845212.shtml)

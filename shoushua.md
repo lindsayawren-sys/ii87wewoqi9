@@ -1,61 +1,56 @@
-# 十四届全国人大常委会举行第六十六次委员长会议 听取有关草案和议案审议情况汇报 赵乐际主持
+# 借力“中间走廊”深化合作 多国客商抢抓中欧班列机遇
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。赵乐际委员长主持。 会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。 会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和
+【欧洲专线】借力“中间走廊”深化合作 多国客商抢抓中欧班列机遇 中新社成都4月28日电 (单鹏)2026“中间走廊”国际客商成都行活动28日在成都举行。来自土耳其、哈萨克斯坦、阿塞拜疆等国的数十名客商及机构代表走进成都国际铁路港，围绕钢贸五金、装备制造、通道贸易等进行洽谈，达成多项合作意向。 “中间走廊”即跨里海国际运输走廊，是连接亚欧的黄金新通道。今年4月，伊兹密尔到成都回程
 
 ## 正文
 
-新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。
+【欧洲专线】借力“中间走廊”深化合作 多国客商抢抓中欧班列机遇 中新社成都4月28日电 (单鹏)2026“中间走廊”国际客商成都行活动28日在成都举行。
 
-赵乐际委员长主持。
+来自土耳其、哈萨克斯坦、阿塞拜疆等国的数十名客商及机构代表走进成都国际铁路港，围绕钢贸五金、装备制造、通道贸易等进行洽谈，达成多项合作意向。
 
-会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。
+“中间走廊”即跨里海国际运输走廊，是连接亚欧的黄金新通道。
 
-会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和国和哈萨克斯坦共和国、吉尔吉斯共和国、塔吉克斯坦共和国、土库曼斯坦、乌兹别克斯坦共和国永久睦邻友好合作条约》审议情况的汇报，审议了关于批准条约的决定草案代拟稿。
+今年4月，伊兹密尔到成都回程班列开通。
 
-会议听取了全国人大常委会秘书长刘奇作的关于个别代表的代表资格的报告和任免案审议情况的汇报等。
+截至目前，成都中欧班列已累计开行超2.1万列，联通境外城市135个。
 
-会议听取了全国人大常委会副秘书长刘俊臣作的关于新增人事任免事项的汇报。
+土耳其驻华大使馆首席商务参赞阿塔坎·奥兹德米尔在活动中表示，“中间走廊”的物流通道效率远超传统海运，成都国际铁路港作为联通亚欧的物流枢纽，通道优势显著、产业基础扎实；未来将依托中欧班列“中间走廊”，拓宽双向贸易通道，助力更多土耳其优质产品进入中国市场，并推动更多成都产品走向土耳其及欧洲。
 
-委员长会议决定，将上述草案修改稿等提交常委会会议审议。
+国际客商同样看好中欧班列优势。
 
-全国人大常委会副委员长李鸿忠、王东明、肖捷、郑建邦、丁仲礼、郝明金、蔡达峰、何维、武维华、铁凝、彭清华、张庆伟、洛桑江村、雪克来提·扎克尔出席会议。
+国际客商巴里什·梅莱克认为，“中间走廊”与“一带一路”倡议相辅相成，两条倡议相互赋能，惠及沿线国家、企业与民众。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 01:53 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 02:07 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 01:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-30 02:17 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 01:55 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 01:59 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 01:55 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 02:09 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 02:01 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 02:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 01:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 01:51 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
-- 2026-06-30 02:05 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 02:16 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 02:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 02:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 02:16 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 02:18 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 02:04 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
+- 2026-06-30 02:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 02:12 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 02:20 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 02:18 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 02:14 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/07357790228.shtml)
-- 2026-06-30 02:01 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/04237.shtml)
-- 2026-06-30 01:57 - [沉睡花园](http://www.share.minike.top/Article/details/0841951880.shtml)
-- 2026-06-30 02:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/47374519400.shtml)
-- 2026-06-30 02:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/6754223523.shtml)
-- 2026-06-30 02:07 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/67442111.shtml)
-- 2026-06-30 01:57 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/772275388614.shtml)
-- 2026-06-30 01:52 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/7733475224.shtml)
-- 2026-06-30 02:15 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/5261089.shtml)
-- 2026-06-30 02:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/946652558883.shtml)
-- 2026-06-30 02:06 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/853721131.shtml)
-- 2026-06-30 01:53 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/81151132647.shtml)
-- 2026-06-30 01:57 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/9253762197.shtml)
-- 2026-06-30 01:57 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/336408.shtml)
-- 2026-06-30 01:50 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/84258299.shtml)
+- 2026-06-30 01:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/0508359.shtml)
+- 2026-06-30 01:54 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/30912953077.shtml)
+- 2026-06-30 02:08 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/612458.shtml)
+- 2026-06-30 02:20 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/790054.shtml)
+- 2026-06-30 02:19 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/230512296877.shtml)
+- 2026-06-30 02:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/286285831746.shtml)
+- 2026-06-30 02:06 - [美人鱼](https://www.share.minike.top/Article/details/4211689.shtml)
+- 2026-06-30 02:02 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/359031.shtml)
+- 2026-06-30 02:10 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/084257.shtml)
+- 2026-06-30 02:20 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/60411112806.shtml)
+- 2026-06-30 02:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/92845657108.shtml)
+- 2026-06-30 01:55 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/32175808940.shtml)
+- 2026-06-30 02:08 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/7178507915.shtml)
+- 2026-06-30 02:00 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/194618208.shtml)
+- 2026-06-30 02:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/26207358473.shtml)

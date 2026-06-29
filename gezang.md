@@ -1,58 +1,61 @@
-# 推特前CEO创办AI初创公司完成融资 估值达20亿美元
+# 0.9秒破百！追觅硅谷发布会首日：火箭车携6大关键技术震撼登场
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-由推特前首席执行官帕拉格・阿格拉瓦尔创立的初创公司ParallelWebSystems，完成1亿美元B轮融资，凸显市场对自主智能体落地应用的关注度持续攀升。 本轮融资由红杉资本领投，这家坐落于加州帕洛阿托的企业估值由此攀升至20亿美元。凯鹏华盈、指数创投、科斯拉风投等现有投资方均跟投。 Parallel主打面向AI智能体的网页搜索平台，目前员工规模约50人。公司上一轮为去年11
+美国时间4月27日，以“DREAME NEXT”为主题的追觅硅谷发布会首日正式启幕，这是硅谷历史上首次迎来科技企业举办的发布会周。 在本次发布会上，追觅科技集中展示了迄今为止在海外规模最大、品类覆盖最全的“人车家”智能生态，涵盖智能汽车、智能家电、个人终端、精致个护等全品类产品矩阵，并亮相了多款创新产品及首创技术，系统呈现了未来智能生活的完整图景。 本次硅谷发布会周，追觅科技汇
 
 ## 正文
 
-由推特前首席执行官帕拉格・阿格拉瓦尔创立的初创公司ParallelWebSystems，完成1亿美元B轮融资，凸显市场对自主智能体落地应用的关注度持续攀升。
+美国时间4月27日，以“DREAME NEXT”为主题的追觅硅谷发布会首日正式启幕，这是硅谷历史上首次迎来科技企业举办的发布会周。
 
-本轮融资由红杉资本领投，这家坐落于加州帕洛阿托的企业估值由此攀升至20亿美元。
+在本次发布会上，追觅科技集中展示了迄今为止在海外规模最大、品类覆盖最全的“人车家”智能生态，涵盖智能汽车、智能家电、个人终端、精致个护等全品类产品矩阵，并亮相了多款创新产品及首创技术，系统呈现了未来智能生活的完整图景。
 
-凯鹏华盈、指数创投、科斯拉风投等现有投资方均跟投。
+本次硅谷发布会周，追觅科技汇集了包含顶尖科学家、行业泰斗等全球科技领袖，搭建创新交流平台，与全球创新力量共议未来十年的科技发展方向。
 
-Parallel主打面向AI智能体的网页搜索平台，目前员工规模约50人。
+硬核技术创新，以极致思维定义下一代产品 如果用最极致的角度思考，下一代汽车应该是什么样子？
 
-公司上一轮为去年11月的1亿美元A轮融资，彼时估值7.4亿美元；成立至今，累计融资总额达2.3亿美元。
+追觅在这场发布会上给出了答案：用行业极致技术创新突破物理极限，创造超越用户期待的产品体验。
 
-创始人兼首席执行官阿格拉瓦尔表示，本轮新资金将用于搭建销售与营销团队、扩充研发体系。
+发布会首日，追觅星空计划重磅亮相划时代产品“火箭车”——Nebula NEXT01 JET Edition。
 
-这家成立约三年的企业，还将持续发力拓展企业级客户。
+该车搭载专属定制的双固体火箭助推系统，可实现150毫秒瞬时响应，爆发出100千牛的最大推力，零百加速仅需0.9秒，打破传统汽车动力系统的极限。
 
-Parallel专为AI智能体提供底层服务。
+火箭车还搭载为“星空计划”量身打造的旗舰级激光雷达——DHX1，这款产品是星空计划与全球顶尖核心合作伙伴联合开发，基于6D全彩千线激光雷达平台，深度适配星空计划的专属智驾需求。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 01:56 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 01:56 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 02:05 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 02:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 02:14 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 02:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 01:51 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 02:09 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-30 02:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 01:53 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 01:56 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 02:20 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 02:23 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-30 02:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-30 02:05 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-30 02:08 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 01:55 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-30 02:13 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 02:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 02:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-30 02:20 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 02:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 02:01 - [电影后室值得看吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 01:59 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 02:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 02:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [天道](https://www.blog.kurohicncr.top/Article/details/842788.shtml)
-- 2026-06-30 02:13 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/01841388.shtml)
-- 2026-06-30 02:09 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/23438.shtml)
-- 2026-06-30 01:58 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/15468620673.shtml)
-- 2026-06-30 02:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/112064.shtml)
-- 2026-06-30 01:53 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/11871552.shtml)
-- 2026-06-30 02:12 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/303072.shtml)
-- 2026-06-30 01:52 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/3624519.shtml)
-- 2026-06-30 01:57 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/406314925663.shtml)
-- 2026-06-30 02:15 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/7982422.shtml)
-- 2026-06-30 01:57 - [急先锋](http://www.blog.minike.top/Article/details/41522012.shtml)
-- 2026-06-30 01:51 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/64257.shtml)
-- 2026-06-30 02:14 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/08903426596.shtml)
-- 2026-06-30 01:53 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/18255.shtml)
-- 2026-06-30 01:51 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/884019391731.shtml)
+- 2026-06-30 02:14 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/50871611217.shtml)
+- 2026-06-30 01:58 - [明星大侦探第一季](https://www.share.minike.top/Article/details/3012425.shtml)
+- 2026-06-30 02:17 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/1215277.shtml)
+- 2026-06-30 01:59 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/76337105660.shtml)
+- 2026-06-30 02:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/593385.shtml)
+- 2026-06-30 01:54 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/5705142.shtml)
+- 2026-06-30 02:15 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/7044112.shtml)
+- 2026-06-30 02:00 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/02512.shtml)
+- 2026-06-30 02:20 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/58824036596.shtml)
+- 2026-06-30 02:05 - [青春环游记第三季](http://www.blog.minike.top/Article/details/09997174.shtml)
+- 2026-06-30 02:13 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/17466.shtml)
+- 2026-06-30 02:21 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/242306915.shtml)
+- 2026-06-30 02:01 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/53379759.shtml)
+- 2026-06-30 02:23 - [一生一世](http://www.blog.minike.top/Article/details/197328765485.shtml)
+- 2026-06-30 02:08 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/68051382.shtml)

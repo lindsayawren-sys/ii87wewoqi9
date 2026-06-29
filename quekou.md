@@ -1,57 +1,59 @@
-# 伍德赛德一季度营收超预期，拟启动业务审查
+# 日本央行利率投票现分歧，植田和男时代最鹰派裂痕
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-澳大利亚伍德赛德能源公司周三表示，将对其业务进行审查，以简化运营并改善问责制。尽管受到飓风相关干扰，但更高的实现价格帮助其第一季度营收超出预期。 该公司股价一度上涨1.8%，至32.97澳元，创下4月17日以来最高水平。首席执行官表示，此次审查预计将加强组织效能和资本管理，同时保持安全、执行及运营可靠性。分析师指出，市场将期待至少中个位数的效率提升来验证此次审查，鉴于伍德赛德的
+日本央行（BOJ）在分歧投票中维持基准利率不变，此举提高了 6 月加息的可能性。 根据周二为期两天的政策会议结束后发布的声明，日本央行将政策利率稳定维持在0.75%。投票结果为6 票赞成、3 票反对，这是植田和男行长任内出现的最大分歧，显示出政策正常化的压力正在加剧。 决议公布后，日元走强，兑美元短暂突破159 关口。但在植田和男举行新闻发布会期间涨幅收窄，他表示，日本央行实现
 
 ## 正文
 
-澳大利亚伍德赛德能源公司周三表示，将对其业务进行审查，以简化运营并改善问责制。
+日本央行（BOJ）在分歧投票中维持基准利率不变，此举提高了 6 月加息的可能性。
 
-尽管受到飓风相关干扰，但更高的实现价格帮助其第一季度营收超出预期。
+根据周二为期两天的政策会议结束后发布的声明，日本央行将政策利率稳定维持在0.75%。
 
-该公司股价一度上涨1.8%，至32.97澳元，创下4月17日以来最高水平。
+投票结果为6 票赞成、3 票反对，这是植田和男行长任内出现的最大分歧，显示出政策正常化的压力正在加剧。
 
-首席执行官表示，此次审查预计将加强组织效能和资本管理，同时保持安全、执行及运营可靠性。
+决议公布后，日元走强，兑美元短暂突破159 关口。
 
-分析师指出，市场将期待至少中个位数的效率提升来验证此次审查，鉴于伍德赛德的运营及企业成本基础，这意味着每年约1至2亿美元的收益。
+但在植田和男举行新闻发布会期间涨幅收窄，他表示，日本央行实现经济与物价预期目标的可能性有所下降 —— 中东战争阴云笼罩增长前景，这为更长时间维持利率不变敞开了大门。
 
-伍德赛德运营收入下降1.6%至32.6亿美元，但高于Visible Alpha分析师共识预期的30.5亿美元。
+在随决议发布的声明中，央行表示，物价趋势有望在2026 财年下半年至 2027 财年期间符合 2% 的目标，这一时间点与此前指引基本一致。
 
-季度产量从去年同期的4910万桶油当量降至4520万桶油当量，原因是上个月西澳大利亚州的一场强热带气旋扰乱了西北大陆架陆上加工中心卡拉萨天然气厂的运营。
+“我们看到三张反对票，作为行长，我对此高度重视，” 植田和男向记者表示，“但究其原因，这反映了负面供给冲击的局面：经济走弱、物价上涨并存。
 
-公司维持全年产量预测在1.72亿至1.86亿桶油当量不变。
+在这种环境下，制定恰当的货币政策极具挑战性。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 02:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-30 02:12 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 02:08 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-30 01:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 02:07 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-30 01:53 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 02:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 02:03 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 01:55 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 02:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 02:19 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 02:19 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 02:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 01:58 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 02:14 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 01:59 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 02:08 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 02:23 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 02:17 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 02:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 01:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 02:12 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 02:09 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/401412.shtml)
-- 2026-06-30 02:00 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/63192.shtml)
-- 2026-06-30 02:16 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/922188937465.shtml)
-- 2026-06-30 02:15 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/12327.shtml)
-- 2026-06-30 01:56 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/24351829492.shtml)
-- 2026-06-30 01:53 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/1360598.shtml)
-- 2026-06-30 02:10 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/62449.shtml)
-- 2026-06-30 02:12 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/256201928.shtml)
-- 2026-06-30 02:17 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/74253292.shtml)
-- 2026-06-30 02:02 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/753605297212.shtml)
-- 2026-06-30 01:52 - [女心理师](https://www.share.minike.top/Article/details/10253207.shtml)
-- 2026-06-30 01:49 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/341336.shtml)
-- 2026-06-30 01:58 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/6904399606.shtml)
-- 2026-06-30 02:02 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/992069.shtml)
-- 2026-06-30 01:49 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/1151371.shtml)
+- 2026-06-30 02:10 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/52635070163.shtml)
+- 2026-06-30 02:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/38213672138.shtml)
+- 2026-06-30 02:19 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/441355997500.shtml)
+- 2026-06-30 02:21 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/07826056663.shtml)
+- 2026-06-30 02:09 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/23980317.shtml)
+- 2026-06-30 02:17 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/299515510.shtml)
+- 2026-06-30 02:13 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/43422.shtml)
+- 2026-06-30 01:55 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/2766442.shtml)
+- 2026-06-30 02:22 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/135217.shtml)
+- 2026-06-30 02:17 - [张凌赫 客串](https://www.blog.minike.top/Article/details/6399976.shtml)
+- 2026-06-30 01:59 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/81568548063.shtml)
+- 2026-06-30 01:54 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/281303747139.shtml)
+- 2026-06-30 02:22 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/599088.shtml)
+- 2026-06-30 02:16 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/8700926.shtml)
+- 2026-06-30 02:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/013790.shtml)

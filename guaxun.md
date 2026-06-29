@@ -1,58 +1,52 @@
-# 金融科技建设情况如何？北京银行董秘柳阳：取得三方面阶段性成果
+# 青岛啤酒股份绩后涨超3% 第一季度归母净利润同比增长5.2%
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。谈及金融科技方面建设情况，董事会秘书柳阳表示，在金融科技方面，北京银行取得的阶段性成果如下： 一是技术底座的重构与升级。实施核心系统“主机云化”迁移，将传统集中式架构平稳迁至云平台，显著提升系统处理能力、弹性伸缩性和资源利用率。 二是推进数据库分布式改造。构建高并发、高可用、易扩展的分布式数据
+青岛啤酒股份（00168）绩后涨超3%，截至发稿，股价上涨3.28%，现报52港元，成交额9946.74万港元。 4月27日，青岛啤酒股份发布2026年第一季度报告，报告期内，公司以高质量发展为引领，聚焦市场区域消费特点精準发力，以差异化策略推动区域市场协同发展；同时积极开源节流、提费效控成本，实现了经营发展提质增效。2026年一季度，公司累计实现产品销量220.2万千升，实现
 
 ## 正文
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。
+青岛啤酒股份（00168）绩后涨超3%，截至发稿，股价上涨3.28%，现报52港元，成交额9946.74万港元。
 
-谈及金融科技方面建设情况，董事会秘书柳阳表示，在金融科技方面，北京银行取得的阶段性成果如下： 一是技术底座的重构与升级。
+4月27日，青岛啤酒股份发布2026年第一季度报告，报告期内，公司以高质量发展为引领，聚焦市场区域消费特点精準发力，以差异化策略推动区域市场协同发展；同时积极开源节流、提费效控成本，实现了经营发展提质增效。
 
-实施核心系统“主机云化”迁移，将传统集中式架构平稳迁至云平台，显著提升系统处理能力、弹性伸缩性和资源利用率。
+2026年一季度，公司累计实现产品销量220.2万千升，实现营业收入人民币102.9亿元，同比下降1.54%；实现归属于上市公司股东的净利润人民币18亿元，同比增长5.2%。
 
-二是推进数据库分布式改造。
+报告期内，公司持续推进品牌优化和产品结构升级，以青岛啤酒经典、白啤等核心大单品为引领，加大经典及以上中高端产品的培育与推广力度，加快培育全麦、精酿以及0糖轻卡、无醇低醇等新品类、新赛道，产品结构及盈利能力稳步提升。
 
-构建高并发、高可用、易扩展的分布式数据库体系，夯实关键系统安全稳定与自主可控基础。
+报告期内，主品牌青岛啤酒实现产品销量138.1万千升，同比增长0.4%；中高端以上产品实现销量104.2万千升，同比增长3.1%。
 
-三是推进业务系统的重构与流程的再造。
-
-对全行超80%的业务系统进行深度重构或新建，结合业务痛点和客户需求优化系统架构与功能体验；同时我们围绕公司金融、零售金融、金融市场和运营管理四大业务条线，开展端到端流程重塑。
-
-通过梳理、精简、整合与自动化，打破部门竖井，消除冗余环节，显著提升效率与客户体验，实现从“以部门为中心”向“以客户旅程为中心”的转变。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:59 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 02:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 01:50 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 02:02 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 02:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 02:12 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 01:55 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 01:55 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 01:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 01:54 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 01:57 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 01:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 02:21 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 01:59 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 01:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 02:02 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 02:14 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 02:19 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 02:21 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
+- 2026-06-30 02:03 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-30 01:56 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 02:13 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/60839368566.shtml)
-- 2026-06-30 01:50 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/881503171.shtml)
-- 2026-06-30 01:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/42498104.shtml)
-- 2026-06-30 01:58 - [“十五五”优质本科扩容](http://www.blog.minike.top/Article/details/95405.shtml)
-- 2026-06-30 02:11 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/6459370849.shtml)
-- 2026-06-30 01:54 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/65190.shtml)
-- 2026-06-30 02:17 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/173319426.shtml)
-- 2026-06-30 01:55 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/20871177.shtml)
-- 2026-06-30 02:14 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/5672569.shtml)
-- 2026-06-30 02:02 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/677749.shtml)
-- 2026-06-30 02:17 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/31732338791.shtml)
-- 2026-06-30 02:15 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/492362494965.shtml)
-- 2026-06-30 01:53 - [女心理师](http://www.blog.minike.top/Article/details/28894863.shtml)
-- 2026-06-30 01:58 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/84580.shtml)
-- 2026-06-30 02:10 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/3102848.shtml)
+- 2026-06-30 02:05 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/250868354.shtml)
+- 2026-06-30 02:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/789688.shtml)
+- 2026-06-30 01:57 - [一见倾心](https://www.share.minike.top/Article/details/37185.shtml)
+- 2026-06-30 02:19 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/8628953408.shtml)
+- 2026-06-30 02:22 - [青春环游记第三季](http://www.blog.minike.top/Article/details/63428.shtml)
+- 2026-06-30 02:09 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/39168454683.shtml)
+- 2026-06-30 02:00 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/791400734790.shtml)
+- 2026-06-30 02:22 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/5842575.shtml)
+- 2026-06-30 02:00 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/0580244.shtml)
+- 2026-06-30 02:06 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/735374600754.shtml)
+- 2026-06-30 02:15 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/27797.shtml)
+- 2026-06-30 02:17 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/8959654552.shtml)
+- 2026-06-30 02:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.minike.top/Article/details/82340782.shtml)
+- 2026-06-30 01:56 - [不开心就去看三年前的购物订单](http://www.share.kurohicncr.top/Article/details/984536.shtml)
+- 2026-06-30 02:00 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/01699.shtml)

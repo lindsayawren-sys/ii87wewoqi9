@@ -1,51 +1,60 @@
-# 杭州护士夫妻度假时救回溺水女子 默契配合获全网点赞
+# 中方：巴勒斯坦问题在任何情况下都不应被边缘化
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 10:56 来源：中国新闻网 近日，一条“浙大一院护士夫妻在海南沙滩救人”的视频，在全网传开。视频中，一名女子口吐白沫倒在沙滩上，身旁一男一女跪在沙滩上救人，动作行云流水，配合默契。这对救人的夫妻便是来自浙大一院余杭院区急诊监护室的主管护师姜智文以及综合监护室护师袁苑。4月29日，二人在浙大一院接受采访，从急救配合、患者恢复情况到夫妻感情的升华
+中新社联合国4月28日电 联合国安理会28日举行中东问题高级别公开辩论会。中国常驻联合国代表傅聪在会上强调，巴勒斯坦问题始终是中东问题的核心，在任何情况下都不应被边缘化。 傅聪说，一段时间以来，中东局势急剧升温，影响持续扩散蔓延，严重冲击地区稳定，影响世界经济和能源安全。当前局势来到战和转换的关键阶段，中方呼吁各方抓住和平窗口，保持最大克制，拿出最大诚意，坚持政治解决方向不动摇
 
 ## 正文
 
-发布时间：2026年04月30日 10:56 来源：中国新闻网 近日，一条“浙大一院护士夫妻在海南沙滩救人”的视频，在全网传开。
+中新社联合国4月28日电 联合国安理会28日举行中东问题高级别公开辩论会。
 
-视频中，一名女子口吐白沫倒在沙滩上，身旁一男一女跪在沙滩上救人，动作行云流水，配合默契。
+中国常驻联合国代表傅聪在会上强调，巴勒斯坦问题始终是中东问题的核心，在任何情况下都不应被边缘化。
 
-这对救人的夫妻便是来自浙大一院余杭院区急诊监护室的主管护师姜智文以及综合监护室护师袁苑。
+傅聪说，一段时间以来，中东局势急剧升温，影响持续扩散蔓延，严重冲击地区稳定，影响世界经济和能源安全。
 
-4月29日，二人在浙大一院接受采访，从急救配合、患者恢复情况到夫妻感情的升华，分享了更多感人的细节。
+当前局势来到战和转换的关键阶段，中方呼吁各方抓住和平窗口，保持最大克制，拿出最大诚意，坚持政治解决方向不动摇，保持停火和谈判势头不倒退，争取早日恢复中东和海湾地区稳定。
 
-(肖健 制作 刘鹏） 责任编辑：【刘湃】
+傅聪表示，几十年来巴以冲突循环往复，根本症结在于“两国方案”只实现了一半，以色列国早已建立，而巴勒斯坦国仍遥不可及。
+
+如今激烈冲突虽已停止，但巴勒斯坦人民仍被迫与死亡和苦难为伴，巴勒斯坦被占领土局势仍在持续恶化，“两国方案”基础面临被掏空风险。
+
+动荡与战争不是巴勒斯坦人民的宿命，国际社会必须拿出最大的紧迫感，扭转负面局势，纠正巴勒斯坦遭受的历史不公。
+
+傅聪说，加沙不是永久战场，必须立即结束平民苦难。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 02:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 01:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 02:16 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-30 02:17 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 02:05 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 02:07 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-30 02:06 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 01:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-30 02:02 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 01:48 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 02:06 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-30 02:14 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 02:04 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 01:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-30 01:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 01:58 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 02:17 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-30 02:22 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:23 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 02:13 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 01:57 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 02:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 02:15 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 02:19 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/408011904789.shtml)
-- 2026-06-30 01:56 - [美股](https://www.blog.minike.top/Article/details/860940649.shtml)
-- 2026-06-30 02:01 - [日本进球](https://www.share.kurohicncr.top/Article/details/830892643212.shtml)
-- 2026-06-30 01:50 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/6213299.shtml)
-- 2026-06-30 02:18 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/15055216089.shtml)
-- 2026-06-30 01:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/0754882.shtml)
-- 2026-06-30 02:14 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/326864590.shtml)
-- 2026-06-30 01:59 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/264009354746.shtml)
-- 2026-06-30 02:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/73602.shtml)
-- 2026-06-30 02:05 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/133681.shtml)
-- 2026-06-30 02:04 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/16368.shtml)
-- 2026-06-30 01:58 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/794290558.shtml)
-- 2026-06-30 01:49 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/22849623.shtml)
-- 2026-06-30 02:14 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/640538.shtml)
-- 2026-06-30 01:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.minike.top/Article/details/482744.shtml)
+- 2026-06-30 02:16 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/52648.shtml)
+- 2026-06-30 02:22 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/774617.shtml)
+- 2026-06-30 01:55 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/10311.shtml)
+- 2026-06-30 02:21 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/152845902087.shtml)
+- 2026-06-30 02:08 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/653478181.shtml)
+- 2026-06-30 01:55 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/33261.shtml)
+- 2026-06-30 01:59 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/03472.shtml)
+- 2026-06-30 01:57 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/236301969.shtml)
+- 2026-06-30 01:56 - [月亮](http://www.share.kurohicncr.top/Article/details/2454754937.shtml)
+- 2026-06-30 02:12 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/6033579331.shtml)
+- 2026-06-30 02:08 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/355912.shtml)
+- 2026-06-30 02:06 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/08071856539.shtml)
+- 2026-06-30 01:57 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/745665.shtml)
+- 2026-06-30 02:03 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/5797215.shtml)
+- 2026-06-30 02:11 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.minike.top/Article/details/0896922.shtml)

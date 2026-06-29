@@ -1,56 +1,58 @@
-# 阜阳市侨联助力侨企出海布局泰国市场
+# 白宫枪击案后 美参议员欲修建安全宴会厅
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-近日，新天源国际泰国市场启动仪式暨徽商工程产业发展中心成立仪式在泰国曼谷顺利举办，这是市侨联助力侨企开拓海外市场、推动企业“走出去”的生动实践。 活动现场嘉宾云集，泰国中华总商会、在泰中资企业、各地商协会及业界代表齐聚见证。仪式上，新天源国际正式启动泰国市场布局，同步揭牌徽商工程产业发展中心，未来将聚焦工程产业资源整合、信息共享、合作落地，为中泰工程领域协同发展搭建高效桥梁。
+由美国南卡罗来纳州参议员林赛·格雷厄姆牵头的一批参议院共和党人正在推动一项法案，计划拨款在白宫修建一个占地9万平方英尺的安全宴会厅。他们表示，在周六一名枪手试图冲击白宫记者协会晚宴现场后，这一项目对国家安全至关重要。 格雷厄姆及其盟友表示，该项目的费用将通过国家公园使用费和海关规费来抵消，并且法案将授权在宴会厅下方建设与国家安全相关的基础设施，包括特勤局的附属设施。 格雷厄姆说
 
 ## 正文
 
-近日，新天源国际泰国市场启动仪式暨徽商工程产业发展中心成立仪式在泰国曼谷顺利举办，这是市侨联助力侨企开拓海外市场、推动企业“走出去”的生动实践。
+由美国南卡罗来纳州参议员林赛·格雷厄姆牵头的一批参议院共和党人正在推动一项法案，计划拨款在白宫修建一个占地9万平方英尺的安全宴会厅。
 
-活动现场嘉宾云集，泰国中华总商会、在泰中资企业、各地商协会及业界代表齐聚见证。
+他们表示，在周六一名枪手试图冲击白宫记者协会晚宴现场后，这一项目对国家安全至关重要。
 
-仪式上，新天源国际正式启动泰国市场布局，同步揭牌徽商工程产业发展中心，未来将聚焦工程产业资源整合、信息共享、合作落地，为中泰工程领域协同发展搭建高效桥梁。
+格雷厄姆及其盟友表示，该项目的费用将通过国家公园使用费和海关规费来抵消，并且法案将授权在宴会厅下方建设与国家安全相关的基础设施，包括特勤局的附属设施。
 
-作为市侨商会重点会员企业，新天源国际此次落地泰国市场、成立徽商工程产业发展中心，得到了市侨联的大力支持。
+格雷厄姆说：“要让一群重要人物聚集在同一个地方，除非那个地方非常、非常安全，否则相当困难。
 
-依托市侨联海内外侨界资源，企业顺利对接泰国当地商协会、中资工程企业与产业平台，为泰国市场拓展筑牢基础。
+我们生活的时代非同寻常。
 
-市侨联始终高度重视引导、支持侨企抢抓对外经贸合作机遇，主动搭建平台为企业出海布局提供全方位服务保障。
+我在这里已经待了一段时间，从未像今天这样感受到如此强烈的威胁。
 
-未来，市侨联将持续发挥侨联组织联通内外、桥梁纽带的优势，助力更多侨企深耕海外、稳健发展，服务国家“一带一路”建设与地方对外开放大局。
+” 他指出，除了特朗普总统外，副总统J·D·万斯和众议院议长迈克·约翰逊（路易斯安那州共和党人）——分别是总统继任顺序中的第二和第三顺位——周六均在晚宴现场。
 
-(阜阳侨联微信公众号)
+当时一名31岁男子持有一把霰弹枪、一把手枪和多把刀具，试图闯入宴会厅，后被特勤局人员制服。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 01:53 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 02:11 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 01:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-30 02:13 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 02:10 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 01:48 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 02:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 02:03 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 01:49 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 02:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 02:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 02:14 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 02:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 02:16 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-30 02:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 02:10 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 01:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 02:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 01:58 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 02:12 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 02:09 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/948216851903.shtml)
-- 2026-06-30 01:57 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/99812431387.shtml)
-- 2026-06-30 01:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/15668.shtml)
-- 2026-06-30 01:59 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/1014642808.shtml)
-- 2026-06-30 02:05 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/2517514427.shtml)
-- 2026-06-30 02:11 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/8199791.shtml)
-- 2026-06-30 02:12 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/10184969012.shtml)
-- 2026-06-30 01:53 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/233805652574.shtml)
-- 2026-06-30 02:04 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/5176054.shtml)
-- 2026-06-30 01:59 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/77434898477.shtml)
-- 2026-06-30 02:00 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/0659616109.shtml)
-- 2026-06-30 01:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/001521688088.shtml)
-- 2026-06-30 01:51 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/6180111166.shtml)
-- 2026-06-30 02:14 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/15272211.shtml)
-- 2026-06-30 02:10 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/0439080.shtml)
+- 2026-06-30 02:18 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/110735.shtml)
+- 2026-06-30 02:11 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/51259.shtml)
+- 2026-06-30 02:03 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/76373.shtml)
+- 2026-06-30 02:11 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/411452686761.shtml)
+- 2026-06-30 02:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/177628964005.shtml)
+- 2026-06-30 02:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/528023.shtml)
+- 2026-06-30 01:59 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/2366309514.shtml)
+- 2026-06-30 02:08 - [葫芦岛居民楼闪爆事故致3死](http://www.share.kurohicncr.top/Article/details/249813117901.shtml)
+- 2026-06-30 02:16 - [日本反击率先破门](https://www.share.minike.top/Article/details/39111135.shtml)
+- 2026-06-30 02:00 - [《贺子珍》](https://www.share.minike.top/Article/details/4186462.shtml)
+- 2026-06-30 01:58 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/345797.shtml)
+- 2026-06-30 01:56 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/11416068.shtml)
+- 2026-06-30 01:57 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/65611902.shtml)
+- 2026-06-30 02:21 - [日本进球](https://www.share.kurohicncr.top/Article/details/712158.shtml)
+- 2026-06-30 02:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/962720013696.shtml)

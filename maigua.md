@@ -1,58 +1,59 @@
-# 中波公司6.2万载重吨“哥白尼”轮正式命名
+# 广东举办“终身学习，人人出彩”主题宣讲活动
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-“哥白尼”轮即将满载风电设备及变压器等设备，奔赴中波红海航线。4月28日，中波轮船股份公司（简称中波公司）第8艘6.2万载重吨多用途重吊船“哥白尼”轮，在泰州口岸船厂正式命名。随着新船入列，新阶段中波船队单船运力最大、最坚实的多用途重吊运力编队建设完成，为中波公司即将迎来的75周年华诞，献上一份厚礼。波兰共和国驻上海总领事亚当·布拉尔赤克（Adam Bralczyk）出席仪式。
+中新网广州4月29日电 (记者 程景伟)由广东省委宣传部主办、广州市委宣传部协办的“终身学习，人人出彩”主题宣讲活动，28日在广州举行。 深耕一线的大国工匠、技能报国的世界冠军、扎根基层的育人典范……在宣讲活动现场，10组来自各行各业的宣讲员用亲身经历，讲述“学习点亮人生、奋斗成就梦想”的故事。 广州市浩洋电子股份有限公司董事长兼总经理蒋伟楷分享了自己的学习历程与创业故事。多年
 
 ## 正文
 
-“哥白尼”轮即将满载风电设备及变压器等设备，奔赴中波红海航线。
+中新网广州4月29日电 (记者 程景伟)由广东省委宣传部主办、广州市委宣传部协办的“终身学习，人人出彩”主题宣讲活动，28日在广州举行。
 
-4月28日，中波轮船股份公司（简称中波公司）第8艘6.2万载重吨多用途重吊船“哥白尼”轮，在泰州口岸船厂正式命名。
+深耕一线的大国工匠、技能报国的世界冠军、扎根基层的育人典范……在宣讲活动现场，10组来自各行各业的宣讲员用亲身经历，讲述“学习点亮人生、奋斗成就梦想”的故事。
 
-随着新船入列，新阶段中波船队单船运力最大、最坚实的多用途重吊运力编队建设完成，为中波公司即将迎来的75周年华诞，献上一份厚礼。
+广州市浩洋电子股份有限公司董事长兼总经理蒋伟楷分享了自己的学习历程与创业故事。
 
-波兰共和国驻上海总领事亚当·布拉尔赤克（Adam Bralczyk）出席仪式。
+多年前，蒋伟楷在广州番禺南村的一间小房里创办了舞台灯光器材厂，开启创业之路。
 
-中波公司、中远海发、口岸船厂等项目相关方领导先后致辞。
+2002年，他带着4款产品亮相意大利国际灯光音响展，用英语宣讲产品、洽谈合作，成功拿下多个国家的订单，公司国际化之路就此开启。
 
-总领事夫人卡塔日娜·布拉尔赤克（Katarzyna Bralczyk）担任新船教母，在她的祝福声中，“哥白尼”轮拉响汽笛、开启崭新航程。
+以《鸡舍里的学习之旅》为题，温氏食品集团股份有限公司高级畜牧师刘松柏分享了在求学路与鸡舍间走过的历程。
 
-据了解，新船承载着落实《中国和波兰关于加强全面战略伙伴关系的行动计划（2024-2027年）》（简称两国行动计划）新阶段的新任务，以新建运力，进一步为中波贸易发展提供海运服务，为友谊航船全速前进增添强劲动力。
+博士毕业后，刘松柏选择成为一名扎根生产一线的“养鸡人”，他带领团队建立中华土鸡数据库，成功研究基于净能体系的低蛋白日粮技术，每年创造了数亿元的经济效益。
 
-据悉，“哥白尼”轮首航将前往江苏太仓，装载中国出口风电、变压器等设备，奔赴中波红海航线，以高质量运输，服务“一带一路”国家建设，开启海上生涯。
+“虽然我学过裁缝，却因为不会操作电动缝纫机，被车间的流水线拒之门外。
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-30 02:15 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 01:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 01:51 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-30 02:13 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 02:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 02:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 02:02 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 02:13 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 02:11 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 02:01 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 02:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 02:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:59 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 01:59 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-30 02:08 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 02:20 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-30 02:00 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 02:07 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 02:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 02:17 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 02:21 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 02:21 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 02:07 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-30 02:21 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/65920780.shtml)
-- 2026-06-30 02:03 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/277440.shtml)
-- 2026-06-30 02:04 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/664668.shtml)
-- 2026-06-30 02:10 - [武汉西安站在了3小时临界线门槛上](https://www.share.kurohicncr.top/Article/details/643504.shtml)
-- 2026-06-30 01:49 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/09302.shtml)
-- 2026-06-30 01:56 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/636420.shtml)
-- 2026-06-30 02:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/091629837.shtml)
-- 2026-06-30 02:07 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/65517794.shtml)
-- 2026-06-30 01:56 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/6529607.shtml)
-- 2026-06-30 02:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/02541.shtml)
-- 2026-06-30 01:53 - [我们的少年时代2](http://www.share.minike.top/Article/details/545853.shtml)
-- 2026-06-30 02:15 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/337012821.shtml)
-- 2026-06-30 02:10 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/6168649.shtml)
-- 2026-06-30 02:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/93930774.shtml)
-- 2026-06-30 02:13 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/46975516.shtml)
+- 2026-06-30 02:18 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/608292022264.shtml)
+- 2026-06-30 02:10 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/842183037.shtml)
+- 2026-06-30 01:57 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/395699926.shtml)
+- 2026-06-30 02:11 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/963509.shtml)
+- 2026-06-30 02:21 - [新官上任三把火](https://www.share.minike.top/Article/details/12283.shtml)
+- 2026-06-30 02:23 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/8650805.shtml)
+- 2026-06-30 02:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/98406037.shtml)
+- 2026-06-30 02:13 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/8586298163.shtml)
+- 2026-06-30 01:54 - [女心理师](https://www.share.kurohicncr.top/Article/details/922606351524.shtml)
+- 2026-06-30 02:04 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/951483796021.shtml)
+- 2026-06-30 02:05 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/624078393.shtml)
+- 2026-06-30 02:05 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/39659.shtml)
+- 2026-06-30 01:58 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/46066.shtml)
+- 2026-06-30 02:17 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/2450451323.shtml)
+- 2026-06-30 02:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/3247954.shtml)

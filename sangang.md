@@ -1,61 +1,53 @@
-# 比亚迪汉EV闪充版携12大升级上市，售价17.98万～18.78万元
+# 中伟新材绩后涨超5% 第一季度归母净利润同比增长80.54%
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-4月28日，比亚迪王朝旗舰汉全新升级，汉 EV闪充版重磅上市，正式加入闪充阵营，共推出两款车型，售价区间为17.98万～18.78万元。新车全系搭载第二代刀片电池及闪充技术，同时实现闪充、续航、性能、智能与舒适等十二项核心升级，全面进阶，铸就全能旗舰轿车。 同时，比亚迪还为用户准备了置换无忧礼、1年免费闪充权益、0首付/0利息/0月供任选其一的金融礼、3年3次基础保养、包含3年
+中伟新材（02579）绩后涨超5%，截至发稿，股价上涨5.07%，现报45.18港元，成交额1.11亿港元。 4月28日，中伟新材发布公告，于2026年第一季度，营业收入约157.5亿元，同比增长46%；归属于上市公司股东的净利润约5.55亿元，同比增长80.54%；基本每股收益0.52元。公告称，营收增长主要系公司电池材料和新能源金属等销售增加所致。 此外，中伟新材在投资者交
 
 ## 正文
 
-4月28日，比亚迪王朝旗舰汉全新升级，汉 EV闪充版重磅上市，正式加入闪充阵营，共推出两款车型，售价区间为17.98万～18.78万元。
+中伟新材（02579）绩后涨超5%，截至发稿，股价上涨5.07%，现报45.18港元，成交额1.11亿港元。
 
-新车全系搭载第二代刀片电池及闪充技术，同时实现闪充、续航、性能、智能与舒适等十二项核心升级，全面进阶，铸就全能旗舰轿车。
+4月28日，中伟新材发布公告，于2026年第一季度，营业收入约157.5亿元，同比增长46%；归属于上市公司股东的净利润约5.55亿元，同比增长80.54%；基本每股收益0.52元。
 
-同时，比亚迪还为用户准备了置换无忧礼、1年免费闪充权益、0首付/0利息/0月供任选其一的金融礼、3年3次基础保养、包含3年免费取送车的尊享贵宾礼等共11项权益。
+公告称，营收增长主要系公司电池材料和新能源金属等销售增加所致。
 
-针对追求个性的用户，官方推出价值超1.2万元的“汉纳百川”进阶生活套装，限时特惠价仅需3999元。
+此外，中伟新材在投资者交流平台上答复投资者提问表示，公司通过参股、长协等多种形式牢固锁定超过6亿湿吨红土镍矿资源供应，随着未来镍矿出口配额收紧，将推动镍矿价格上涨，对公司参与的镍矿资源盈利能力具有积极影响。
 
-三大颠覆性技术，让自由行不再设限 汉EV闪充版全系搭载第二代刀片电池与比亚迪闪充技术，充电速度实现常温下10%-70% SOC仅需5分钟、10%-97% SOC仅需9分钟，零下30℃低温环境仅增加3分钟。
+此外，公司已建成镍资源冶炼产能约20万金属吨，打通资源、冶炼、材料的垂直一体化产业链生态，LME镍价上涨对公司经营利润有积极影响。
 
-配合零重力轻细枪线、T型滑轨优雅充及无感支付，全面优化补能体验。
-
-目前，比亚迪已在全国建成5500+座闪充站，覆盖311座城市，高速网络正全面推进覆盖京港澳、沈海等主要动脉。
-
-同时，汉EV闪充版推出限时专属礼遇，购车即享一年免费闪充权益，畅享无忧补能，尽享说走就走的出行自由。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 02:13 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 02:12 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 02:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-30 01:53 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 02:12 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 02:06 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
-- 2026-06-30 01:52 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-30 02:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 01:49 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 01:53 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 02:04 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 02:11 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 02:06 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 02:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 02:00 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 01:56 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 02:02 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 02:16 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 01:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 02:21 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 02:02 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 02:22 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 02:07 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-30 02:01 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 02:22 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:12 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/6311452483.shtml)
-- 2026-06-30 02:15 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/798323291450.shtml)
-- 2026-06-30 01:50 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/18567875091.shtml)
-- 2026-06-30 02:07 - [爱很美味](https://www.blog.minike.top/Article/details/3690282.shtml)
-- 2026-06-30 01:51 - [第一炉香](https://www.blog.minike.top/Article/details/1558316.shtml)
-- 2026-06-30 02:09 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/27407487.shtml)
-- 2026-06-30 01:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/2748917049.shtml)
-- 2026-06-30 02:14 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/42626.shtml)
-- 2026-06-30 01:54 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/534154.shtml)
-- 2026-06-30 02:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/86325150.shtml)
-- 2026-06-30 02:17 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/35998.shtml)
-- 2026-06-30 01:51 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/246238.shtml)
-- 2026-06-30 02:06 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/30075344064.shtml)
-- 2026-06-30 01:58 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/626029949.shtml)
-- 2026-06-30 02:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/034504782.shtml)
+- 2026-06-30 02:15 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/46880872.shtml)
+- 2026-06-30 02:17 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/49932.shtml)
+- 2026-06-30 02:12 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/38514246.shtml)
+- 2026-06-30 02:14 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/631212947904.shtml)
+- 2026-06-30 01:57 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/798621607.shtml)
+- 2026-06-30 02:00 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/95120.shtml)
+- 2026-06-30 02:21 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/8975647960.shtml)
+- 2026-06-30 02:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/40599882884.shtml)
+- 2026-06-30 01:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/45086.shtml)
+- 2026-06-30 02:00 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/95284.shtml)
+- 2026-06-30 02:15 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/520189440487.shtml)
+- 2026-06-30 02:04 - [金刚川](https://www.blog.minike.top/Article/details/169011.shtml)
+- 2026-06-30 02:05 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/53760173.shtml)
+- 2026-06-30 01:57 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/81400.shtml)
+- 2026-06-30 01:55 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/827903832784.shtml)

@@ -1,44 +1,60 @@
-# 受权发布丨中华人民共和国主席令（第七十五号）
+# 欧盟与匈牙利候任总理磋商冻结资金变通方案
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-新华社北京4月30日电 中华人民共和国主席令 第七十五号 《中华人民共和国社会救助法》已由中华人民共和国第十四届全国人民代表大会常务委员会第二十二次会议于2026年4月30日通过，现予公布，自2026年7月1日起施行。 中华人民共和国主席 习近平 2026年4月30日
+欧盟方面正与匈牙利候任总理毛焦尔磋商变通方案，以便将被冻结的100亿欧元新冠疫情复苏资金中的一部分，在8月截止日期后继续保留使用资格。 据知情人士透露，毛焦尔将于周三会晤欧盟委员会主席乌尔苏拉·冯德莱恩，商讨将部分资金划拨至匈牙利国家开发银行的可行方案。 此举旨在争取更多时间，发放因欧尔班政府时期法治问题而被冻结的疫情后复苏资金。 亲欧盟的保守派人士毛焦尔在上月选举中获胜，欧盟
 
 ## 正文
 
-新华社北京4月30日电 中华人民共和国主席令 第七十五号 《中华人民共和国社会救助法》已由中华人民共和国第十四届全国人民代表大会常务委员会第二十二次会议于2026年4月30日通过，现予公布，自2026年7月1日起施行。
+欧盟方面正与匈牙利候任总理毛焦尔磋商变通方案，以便将被冻结的100亿欧元新冠疫情复苏资金中的一部分，在8月截止日期后继续保留使用资格。
 
-中华人民共和国主席 习近平 2026年4月30日
+据知情人士透露，毛焦尔将于周三会晤欧盟委员会主席乌尔苏拉·冯德莱恩，商讨将部分资金划拨至匈牙利国家开发银行的可行方案。
+
+此举旨在争取更多时间，发放因欧尔班政府时期法治问题而被冻结的疫情后复苏资金。
+
+亲欧盟的保守派人士毛焦尔在上月选举中获胜，欧盟将此视为重启与布达佩斯关系、让这个最棘手成员国回归欧洲主流的契机。
+
+此次谈判也是对毛焦尔与欧盟合作意愿的早期考验。
+
+过去十余年间，欧盟与欧尔班政府始终难以达成共识，在俄乌冲突问题上分歧尤为突出。
+
+匈牙利方面希望重新获得总计超300亿欧元的资金使用权，其中包括76亿欧元常规欧盟资金，以及170亿欧元欧盟低成本防务贷款。
+
+三位了解谈判情况的人士表示，只要毛焦尔落实反腐举措，并拿出具体措施解决欧尔班时期遗留的问题，欧盟委员会就愿意延长复苏资金的使用期限。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-30 02:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 01:55 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 02:04 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-30 02:17 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-30 02:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-30 01:53 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-30 01:55 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 02:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 01:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 02:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 02:07 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-30 02:20 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-30 02:21 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 01:55 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 02:22 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 02:07 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-30 02:00 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 02:04 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 02:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 02:23 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 02:13 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 02:08 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 02:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:57 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/18196.shtml)
-- 2026-06-30 01:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/7858350.shtml)
-- 2026-06-30 01:51 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/527392717049.shtml)
-- 2026-06-30 01:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/9265650.shtml)
-- 2026-06-30 02:01 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/28998868094.shtml)
-- 2026-06-30 02:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/62277351.shtml)
-- 2026-06-30 01:49 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/375468551.shtml)
-- 2026-06-30 01:55 - [世界杯](http://www.blog.kurohicncr.top/Article/details/175778412876.shtml)
-- 2026-06-30 01:53 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/418709198.shtml)
-- 2026-06-30 02:07 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/85412224.shtml)
-- 2026-06-30 01:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/44768553040.shtml)
-- 2026-06-30 02:07 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/307106095082.shtml)
-- 2026-06-30 02:10 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/788993.shtml)
-- 2026-06-30 01:51 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/580311159.shtml)
-- 2026-06-30 02:03 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/9867592.shtml)
+- 2026-06-30 02:15 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/657934671.shtml)
+- 2026-06-30 02:19 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/966781834.shtml)
+- 2026-06-30 02:22 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/001390.shtml)
+- 2026-06-30 01:56 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/849090158.shtml)
+- 2026-06-30 01:55 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/830002675.shtml)
+- 2026-06-30 02:04 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/99430681735.shtml)
+- 2026-06-30 02:22 - [啊啊啊](http://www.blog.minike.top/Article/details/63334301.shtml)
+- 2026-06-30 02:02 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/3541396130.shtml)
+- 2026-06-30 02:14 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/5467219.shtml)
+- 2026-06-30 02:14 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/42195310681.shtml)
+- 2026-06-30 02:18 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/8631360747.shtml)
+- 2026-06-30 02:04 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/17758.shtml)
+- 2026-06-30 02:19 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/4563232380.shtml)
+- 2026-06-30 02:01 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/54224.shtml)
+- 2026-06-30 02:08 - [王灿兮被烫伤两年后维权成功](http://www.blog.minike.top/Article/details/679503418.shtml)

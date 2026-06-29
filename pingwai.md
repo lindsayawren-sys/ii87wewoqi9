@@ -1,61 +1,56 @@
-# OpenAI提前数年实现关键AI算力目标
+# 太疯狂！满屏涨停，席卷A股锂矿！两大逻辑，彻底引爆！
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-OpenAI提前数年实现在美国获取人工智能（AI）算力的关键里程碑，为这家初创公司雄心勃勃的数据中心扩张计划注入动力。 该公司周三在一篇博客文章中称，已签署了10吉瓦AI算力合同。该公司最初力争在2029年实现这一目标。 OpenAI表示，已签订合同的10吉瓦算力中，有3吉瓦是在过去90天敲定的。其中包括亚马逊提供的2吉瓦。1吉瓦的电力足以同时为约75万户美国家庭供电。 这家初
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！锂矿概念股大涨！ 午后，A股锂矿概念股再度大幅拉升，涨停潮再现。截至收盘，雅化集团、红星发展、融捷股份、永杉锂业等近10只相关概念股涨停，板块指数涨幅超过7%。 分析人士指出，近期锂矿概念股持续走高，有两大刺激因素：一是锂电产业链公司一季度业绩普遍大增；二是澳洲矿业公司IGO近日大幅下调全球最大硬岩锂矿Gr
 
 ## 正文
 
-OpenAI提前数年实现在美国获取人工智能（AI）算力的关键里程碑，为这家初创公司雄心勃勃的数据中心扩张计划注入动力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该公司周三在一篇博客文章中称，已签署了10吉瓦AI算力合同。
+锂矿概念股大涨！
 
-该公司最初力争在2029年实现这一目标。
+午后，A股锂矿概念股再度大幅拉升，涨停潮再现。
 
-OpenAI表示，已签订合同的10吉瓦算力中，有3吉瓦是在过去90天敲定的。
+截至收盘，雅化集团、红星发展、融捷股份、永杉锂业等近10只相关概念股涨停，板块指数涨幅超过7%。
 
-其中包括亚马逊提供的2吉瓦。
+分析人士指出，近期锂矿概念股持续走高，有两大刺激因素：一是锂电产业链公司一季度业绩普遍大增；二是澳洲矿业公司IGO近日大幅下调全球最大硬岩锂矿Greenbushes全年产量预期的消息，引发市场对碳酸锂上游原料供应紧张的担忧。
 
-1吉瓦的电力足以同时为约75万户美国家庭供电。
+锂矿概念股上演涨停潮 近期，锂矿概念股反复活跃。
 
-这家初创公司称，正在物色其他选址，“未来几年将大幅提升算力”。
+今日早盘，永杉锂业直线拉升至涨停板，激活了板块人气，永兴材料也在午盘前封死涨停。
 
-责任编辑：于健 SF069
+午后，锂矿概念股再度拉升，红星发展、融捷股份、西藏珠峰、大中矿业、雅化集团、江特电机等纷纷涨停，天华新能涨近19%。
 
 ## 相关推荐
 
-- 2026-06-30 02:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 01:54 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-30 01:53 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 02:06 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 02:05 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 01:59 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 01:57 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 02:16 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 02:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 02:05 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 02:13 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 02:15 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 01:56 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 02:11 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 02:17 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-30 02:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 02:06 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 02:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
+- 2026-06-30 01:56 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 01:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-30 02:01 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 02:05 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 02:03 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 02:02 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 02:07 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [绘画区你赢了](https://www.share.minike.top/Article/details/93069.shtml)
-- 2026-06-30 02:15 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/16666470722.shtml)
-- 2026-06-30 02:15 - [逃狱兄弟](http://www.blog.minike.top/Article/details/955109.shtml)
-- 2026-06-30 02:10 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/984241070837.shtml)
-- 2026-06-30 02:04 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/94029.shtml)
-- 2026-06-30 01:58 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/928224203163.shtml)
-- 2026-06-30 02:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/57261.shtml)
-- 2026-06-30 02:02 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/383556.shtml)
-- 2026-06-30 01:59 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/413434.shtml)
-- 2026-06-30 02:13 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/57292226.shtml)
-- 2026-06-30 02:09 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/7092832415.shtml)
-- 2026-06-30 01:58 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/73101.shtml)
-- 2026-06-30 02:16 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/013567409.shtml)
-- 2026-06-30 02:04 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/90432432.shtml)
-- 2026-06-30 02:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/464802137.shtml)
+- 2026-06-30 02:23 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/015408852414.shtml)
+- 2026-06-30 02:12 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/2827456192.shtml)
+- 2026-06-30 02:03 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/41082179.shtml)
+- 2026-06-30 02:02 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/31054300423.shtml)
+- 2026-06-30 02:06 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/617604.shtml)
+- 2026-06-30 02:11 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/61892955.shtml)
+- 2026-06-30 01:54 - [速度与激情9](https://www.blog.minike.top/Article/details/0902217546.shtml)
+- 2026-06-30 01:56 - [美人鱼](http://www.share.minike.top/Article/details/049083094780.shtml)
+- 2026-06-30 02:01 - [日本16强魔咒](http://www.blog.minike.top/Article/details/7325460.shtml)
+- 2026-06-30 02:01 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/12808398532.shtml)
+- 2026-06-30 01:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/058646649937.shtml)
+- 2026-06-30 02:03 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/85936.shtml)
+- 2026-06-30 02:09 - [爱很美味](http://www.share.kurohicncr.top/Article/details/15093265.shtml)
+- 2026-06-30 02:01 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/52715733580.shtml)
+- 2026-06-30 02:14 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/6922166837.shtml)

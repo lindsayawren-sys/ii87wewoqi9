@@ -1,61 +1,58 @@
-# 重磅会议定调！最新解读来了
+# 三七互娱押中智谱：营收降了，但投资收益暴增9倍
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-来源：中国基金报 【导读】中央政治局会议定调：宏观政策转向精准有效，扩内需仍是重点工作之首 中国基金报记者 李树超 张玲 4月28日，中共中央政治局召开会议，分析研究当前经济形势和经济工作。 受访市场专家解读，今年一季度我国经济实现良好开局，会议定调经济“起步有力”、韧性凸显，后续宏观政策转向精准有效，扩内需被列为首要任务，同时会议强调发展智能经济、深化国企改革，并推进资本市场
+游戏大厂集体“投AI”。 4月28日开盘，A股游戏厂商三七互娱（维权）（002555.SZ）一度涨近4%，截至10：30分报每股21.65元，涨2.36%，总市值478.9亿元。 4月27日晚，三七互娱发布2026年第一季度财报，一季度营收37.2亿元，同比下降12.3%；归母净利润为8.7亿元，同比增长59%；扣非后净利润6.1亿元，同比增长13.7%。 营收下降利润却上涨不
 
 ## 正文
 
-来源：中国基金报 【导读】中央政治局会议定调：宏观政策转向精准有效，扩内需仍是重点工作之首 中国基金报记者 李树超 张玲 4月28日，中共中央政治局召开会议，分析研究当前经济形势和经济工作。
+游戏大厂集体“投AI”。
 
-受访市场专家解读，今年一季度我国经济实现良好开局，会议定调经济“起步有力”、韧性凸显，后续宏观政策转向精准有效，扩内需被列为首要任务，同时会议强调发展智能经济、深化国企改革，并推进资本市场改革提振信心。
+4月28日开盘，A股游戏厂商三七互娱（维权）（002555.SZ）一度涨近4%，截至10：30分报每股21.65元，涨2.36%，总市值478.9亿元。
 
-亮点一： 一季度GDP同比增长5.0% 为全年经济工作奠定了良好基础 对于开年以来的经济形势，会议认为“我国经济起步有力，主要指标好于预期，彰显强大韧性和活力”。
+4月27日晚，三七互娱发布2026年第一季度财报，一季度营收37.2亿元，同比下降12.3%；归母净利润为8.7亿元，同比增长59%；扣非后净利润6.1亿元，同比增长13.7%。
 
-中国民生银行首席经济学家温彬认为，今年一季度GDP同比增长5.0%，较去年四季度回升0.5个百分点，落在全年目标区间上沿，实现良好开局。
+营收下降利润却上涨不少。
 
-3月PPI同比转正，一季度GDP平减指数转正在即，工业企业利润增速加快，经济主体的体感也在不断改善。
+财报提及，业绩增长主要源于主营游戏业务增长及投资收益贡献。
 
-申万宏源宏观表示，2026年一季度，我国实际GDP同比增长5.0%，处在年度经济增长目标区间上限，顺利实现全年发展良好开局。
+不过相较主营业务，更被业界所关注的是三七互娱的投资收益：一季度同比增长达981%，增加3.26亿元。
 
-围绕下一阶段经济部署，会议提出“要增强信心，以更大力度和更实举措抓好经济工作”。
+财报提及，报告期内三七互娱通过联营企业投资的智谱AI（北京智谱华章科技股份有限公司）挂牌上市，智谱股价变动导致联营企业公允价值变动收益有所上升，公司按持股比例相应确认了投资收益。
 
-太平洋证券研究院副院长、首席宏观分析师秦泰表示，会议认为我国经济“起步有力”“好于预期”。
+智谱在今年1月顶着“大模型第一股”的光环登陆港股，发行价116.2港元，此后三个月股价一路飙升，就在上周盘中触及1078港元的高点，涨幅超过9倍。
 
 ## 相关推荐
 
-- 2026-06-30 02:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 01:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 02:06 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 01:51 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 02:07 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 01:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-30 02:07 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 02:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 01:50 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 02:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 02:10 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 01:50 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 02:17 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 02:06 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 02:06 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 02:15 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 02:03 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 02:10 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 02:15 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 02:23 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-30 02:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-30 01:57 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 02:14 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 02:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 02:13 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 01:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/85683563603.shtml)
-- 2026-06-30 02:14 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/405679221497.shtml)
-- 2026-06-30 01:53 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/3112675383.shtml)
-- 2026-06-30 02:02 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/24253.shtml)
-- 2026-06-30 01:54 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/904079299034.shtml)
-- 2026-06-30 02:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/0846443.shtml)
-- 2026-06-30 02:00 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/89445.shtml)
-- 2026-06-30 02:01 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/25818495.shtml)
-- 2026-06-30 02:13 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/5902503112.shtml)
-- 2026-06-30 02:00 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/79416137736.shtml)
-- 2026-06-30 02:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/342322436.shtml)
-- 2026-06-30 02:06 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/8406230042.shtml)
-- 2026-06-30 02:00 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/13630051465.shtml)
-- 2026-06-30 02:15 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/808203.shtml)
-- 2026-06-30 01:52 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/213684344794.shtml)
+- 2026-06-30 02:09 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/51597341433.shtml)
+- 2026-06-30 02:06 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/413072424.shtml)
+- 2026-06-30 02:14 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/906058908.shtml)
+- 2026-06-30 02:19 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/907763958519.shtml)
+- 2026-06-30 02:19 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/1507136.shtml)
+- 2026-06-30 02:12 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/799026.shtml)
+- 2026-06-30 01:56 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/065976715217.shtml)
+- 2026-06-30 02:04 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/3508094.shtml)
+- 2026-06-30 02:10 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/02949468656.shtml)
+- 2026-06-30 02:15 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/033030378301.shtml)
+- 2026-06-30 02:03 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/5862465.shtml)
+- 2026-06-30 02:17 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/23094693369.shtml)
+- 2026-06-30 02:20 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/6361546807.shtml)
+- 2026-06-30 01:54 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/81835332.shtml)
+- 2026-06-30 01:59 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/646082636.shtml)

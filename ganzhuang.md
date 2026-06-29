@@ -1,59 +1,60 @@
-# 酒价内参4月30日价格发布：五粮液普五八代上涨2元
+# 华泰期货：能源板块整体上涨，建议保持谨慎
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。整体价格在高位快速下探，市场运行呈放量加速调整态势。 今日白酒市场11大单品三涨六跌两平，输家占据明显上风。上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380
+来源：华泰期货 作者： 能源组 相关品种：原油、沥青、LPG、低硫燃油、燃油 昨日国内能源板块期货品种整体大幅上涨，截至下午收盘，原油SC主力合约涨幅达到3.38%，燃料油FU主力合约涨幅达到5.31%，低硫燃料油LU主力合约涨幅达到3.42%，液化石油气PG主力合约涨幅达到6.09%，石油沥青主力合约BU涨幅达到4.01%。 从板块上涨的驱动因素来看，主要来自于地缘政治层面。
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。
+来源：华泰期货 作者： 能源组 相关品种：原油、沥青、LPG、低硫燃油、燃油 昨日国内能源板块期货品种整体大幅上涨，截至下午收盘，原油SC主力合约涨幅达到3.38%，燃料油FU主力合约涨幅达到5.31%，低硫燃料油LU主力合约涨幅达到3.42%，液化石油气PG主力合约涨幅达到6.09%，石油沥青主力合约BU涨幅达到4.01%。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。
+从板块上涨的驱动因素来看，主要来自于地缘政治层面。
 
-整体价格在高位快速下探，市场运行呈放量加速调整态势。
+目前中东局势处于僵持状态，美国和伊朗关于霍尔木兹海峡控制权、铀浓缩等问题的分歧较大，双方迟迟未展开新一轮谈判，霍尔木海峡通航持续受阻。
 
-今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
+随着海峡封锁时间不断延长，石油市场的供应缺口在持续积累，市场开始逐步修正此前的乐观预期，国际油价强势反弹，并带动下游能化品种上涨。
 
-上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380元关口上方；五粮液普五八代上涨2元/瓶；习酒君品小幅上涨1元/瓶。
+在能源板块内部，中东供应占比较大的是LPG和高硫燃料油，今天涨幅较为突出。
 
-下跌方面，国窖1573与古井贡古20跌幅居前，均下跌8元/瓶，后者已连续两天大幅下挫，跌破550元关口；青花郎下跌7元/瓶，回落至700元下方；精品茅台下跌4元/瓶；飞天茅台下跌3元/瓶；水晶剑南春下跌2元/瓶，但近期其价格中枢一直呈上升势头。
+此外，沥青估值相对较低，炼厂深度亏损环境下减产预期偏强，国内现货市场逐渐收紧。
 
-五粮液1618及洋河梦之蓝M6+的价格环比保持不变。
+低硫燃料油方面，中东直接出口量相对不大，近期巴西和尼日利亚的增量形成一定补充，但如果海峡封锁持续太久，炼厂降负、汽柴油分流将导致低硫燃料油供应显著收紧。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+考虑到伊朗局势的高度不确定性，盘面可能受到消息面影响反复波动，建议保持谨慎。
 
 ## 相关推荐
 
-- 2026-06-30 02:06 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
-- 2026-06-30 02:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-30 01:57 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 01:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 01:57 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 02:07 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 02:03 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 01:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 02:14 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 01:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
-- 2026-06-30 01:54 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 01:59 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-30 01:53 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 02:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 02:07 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 01:59 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:56 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
+- 2026-06-30 02:08 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 02:02 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 02:18 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 01:55 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 02:08 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 02:09 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 02:15 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-30 02:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 02:13 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-30 01:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/530471.shtml)
-- 2026-06-30 01:56 - [85花告别古偶](http://www.blog.minike.top/Article/details/97014672242.shtml)
-- 2026-06-30 02:05 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/67563231.shtml)
-- 2026-06-30 02:03 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/319709843.shtml)
-- 2026-06-30 01:57 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/131366920.shtml)
-- 2026-06-30 01:59 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/469194273734.shtml)
-- 2026-06-30 02:07 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/239844680.shtml)
-- 2026-06-30 02:12 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/027799.shtml)
-- 2026-06-30 02:01 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/354356.shtml)
-- 2026-06-30 01:57 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/8833107723.shtml)
-- 2026-06-30 02:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/71371762570.shtml)
-- 2026-06-30 02:14 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/596237872.shtml)
-- 2026-06-30 02:04 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/33552.shtml)
-- 2026-06-30 02:06 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/67879309037.shtml)
-- 2026-06-30 02:10 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/191415095959.shtml)
+- 2026-06-30 02:18 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/610520111153.shtml)
+- 2026-06-30 01:59 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/11956488.shtml)
+- 2026-06-30 02:02 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/30846216.shtml)
+- 2026-06-30 02:17 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/69636701935.shtml)
+- 2026-06-30 02:10 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/58985137251.shtml)
+- 2026-06-30 01:55 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/9070017.shtml)
+- 2026-06-30 02:10 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/644805.shtml)
+- 2026-06-30 02:02 - [小勒布伦WTT美国大满贯开门红](http://www.share.kurohicncr.top/Article/details/52908.shtml)
+- 2026-06-30 02:06 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/57459.shtml)
+- 2026-06-30 02:18 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/23357113.shtml)
+- 2026-06-30 02:04 - [巴西醒醒 这是淘汰赛](http://www.share.minike.top/Article/details/17174.shtml)
+- 2026-06-30 02:24 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/457892.shtml)
+- 2026-06-30 02:18 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/123456682050.shtml)
+- 2026-06-30 01:59 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/630051.shtml)
+- 2026-06-30 02:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/649658918269.shtml)

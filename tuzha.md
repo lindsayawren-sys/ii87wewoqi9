@@ -1,58 +1,58 @@
-# 香港金管局与银行业推出新一轮措施支持中小企业
+# 国台办：和平统一是台湾经济发展的空前良机和最大底气
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网香港4月29日电 香港金融管理局(简称“金管局”)联同银行业29日推出新一轮支持措施，协助香港中小企业应对当前多变的市场环境，包括提供信贷支持受油价上升影响的行业。 金管局表示，油价上升导致部分中小企业营运成本明显增加，尤其是运输物流业、制造业及进出口业。由金管局与香港银行公会共同成立的“中小企融资专责小组”参与银行会以包容的态度、在审慎风险管理原则下，按个别客户实际情况
+4月29日，国务院台办举行例行新闻发布会。有记者问，国务院台办发言人在之前发布会上已分别阐释了和平统一后台湾“七个更好”中的三个“更好”，受到两岸舆论高度关注。请问发言人对“和平统一后，有强大祖国做后盾，台湾经济发展会更好”有何阐释？发言人陈斌华答问表示，“十四五”时期大陆经济总量实现新跃升，国内生产总值跃上140万亿元新台阶，年均增长5.4%， 在全球主要经济当中位居前列。科
 
 ## 正文
 
-中新网香港4月29日电 香港金融管理局(简称“金管局”)联同银行业29日推出新一轮支持措施，协助香港中小企业应对当前多变的市场环境，包括提供信贷支持受油价上升影响的行业。
+4月29日，国务院台办举行例行新闻发布会。
 
-金管局表示，油价上升导致部分中小企业营运成本明显增加，尤其是运输物流业、制造业及进出口业。
+有记者问，国务院台办发言人在之前发布会上已分别阐释了和平统一后台湾“七个更好”中的三个“更好”，受到两岸舆论高度关注。
 
-由金管局与香港银行公会共同成立的“中小企融资专责小组”参与银行会以包容的态度、在审慎风险管理原则下，按个别客户实际情况与需要，为受影响的中小企业提供适切的信贷支持，包括具弹性的还款安排、相应延长贷款年期，以及更多贸易融资展期选项等，以缓解企业的资金流压力。
+请问发言人对“和平统一后，有强大祖国做后盾，台湾经济发展会更好”有何阐释？
 
-新一轮支持措施包括“中小企融资专责小组”参与银行进一步扩大其贷款组合中预留的中小企业专项资金规模，总额由2024年10月的3700亿港元，增加至现在的逾4500亿港元。
+发言人陈斌华答问表示，“十四五”时期大陆经济总量实现新跃升，国内生产总值跃上140万亿元新台阶，年均增长5.4%， 在全球主要经济当中位居前列。
 
-另外，银行业还会加快“中小企融资担保计划”申请审批流程、推出灵活还款贷款支持中小企业转型，以及深化利用金融科技和数据协助中小企业获得银行融资。
+科技和产业创新取得新突破，改革开放迈出新步伐，民生福祉达到新水平。
 
-自2024年以来，金管局与银行业已先后推出3轮支持中小企业措施，协助不同行业的中小企业应对外围环境不确定性和经济转型带来的挑战。
+“十五五”规划纲要为建设现代化产业体系、加快高水平科技自立自强、建设强大国内市场、加快构建高水平社会主义市场经济体制、扩大高水平对外开放等方面作出战略部署。
 
-至今已有超过8.9万宗中小企业个案受惠于相关措施，涉及信贷额度超过2090亿港元。
+今年是“十五五”开局之年，尽管外部环境更加复杂严峻，一季度大陆经济开局良好，国内生产总值增长5%，在全球主要经济体中继续名列前茅，主要宏观指标增速提升，新动能快速成长，新质生产力稳步发展。
 
-(完)
+大陆经济发展具有强劲动能和充沛活力，稳中向好、长期向好的基本面没有变，也不会变。
 
 ## 相关推荐
 
-- 2026-06-30 02:08 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 01:52 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 02:12 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
-- 2026-06-30 02:07 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 01:59 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 02:04 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 02:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 02:00 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:15 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-30 01:49 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 02:01 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 02:05 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 02:16 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 02:06 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 02:02 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-30 01:54 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 02:17 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:17 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 01:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 02:21 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-30 01:58 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-30 01:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 02:22 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 02:04 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/55059.shtml)
-- 2026-06-30 01:49 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/94288306396.shtml)
-- 2026-06-30 01:53 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/499302778.shtml)
-- 2026-06-30 02:14 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/012870.shtml)
-- 2026-06-30 02:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/81097082958.shtml)
-- 2026-06-30 02:09 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/553607324711.shtml)
-- 2026-06-30 02:02 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/621347207846.shtml)
-- 2026-06-30 01:55 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/534312026325.shtml)
-- 2026-06-30 02:01 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/270349019284.shtml)
-- 2026-06-30 02:18 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/660126522.shtml)
-- 2026-06-30 02:17 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/18060.shtml)
-- 2026-06-30 02:01 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/04205747.shtml)
-- 2026-06-30 02:14 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/8329436063.shtml)
-- 2026-06-30 01:55 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/410339235299.shtml)
-- 2026-06-30 02:03 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/920048213.shtml)
+- 2026-06-30 02:06 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/5102231.shtml)
+- 2026-06-30 02:21 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/891641756.shtml)
+- 2026-06-30 02:16 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/544337517.shtml)
+- 2026-06-30 02:13 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/92006058.shtml)
+- 2026-06-30 02:22 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/96523078.shtml)
+- 2026-06-30 02:21 - [刘宇宁胸肌腹肌全给看了](https://www.blog.kurohicncr.top/Article/details/98525501.shtml)
+- 2026-06-30 02:01 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/90267.shtml)
+- 2026-06-30 02:07 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/04993490069.shtml)
+- 2026-06-30 02:05 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/029561.shtml)
+- 2026-06-30 02:19 - [恋与深空致歉](https://www.share.minike.top/Article/details/6319031.shtml)
+- 2026-06-30 02:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/56098066608.shtml)
+- 2026-06-30 02:13 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/784150.shtml)
+- 2026-06-30 02:15 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/15886676.shtml)
+- 2026-06-30 02:05 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/73937865252.shtml)
+- 2026-06-30 02:07 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/534599742964.shtml)

@@ -1,56 +1,59 @@
-# 新疆塔克什肯口岸国际公路运输出口业务大幅增长
+# 新疆：天山脚下狮腾跃 少年胸中梦起航
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐4月29日电 (胡嘉琛 古丽娜)记者29日从阿勒泰海关获悉，今年一季度，新疆塔克什肯口岸TIR(国际公路运输)出口业务创历史同期新高。海关部门累计监管TIR出境车辆14辆次、货值497.28万元，同比分别增长133%和224%。塔克什肯口岸位于新疆阿勒泰地区青河县，是中蒙间重要贸易通道。该口岸通过TIR出口主要通达蒙古国等周边国家，承运货物从传统的日用百货拓展至精
+中新网乌鲁木齐4月28日电 (胡嘉琛)铿锵锣鼓声响起，18岁的阿不都艾则孜·阿地力双手稳稳托举起色彩斑斓的狮头，腾、挪、闪、扑，每一个动作都充满力量与美感。 “舞狮让我知道，再难的事，只要勇敢，就赢了一半。”这位来自新疆喀什地区疏附县的少年28日接受中新网采访时说。 2018年，在广东省对口支援新疆工作前方指挥部推动下，广州体育学院通过“集中培训—校本实践—赛事检验”模式，让传
 
 ## 正文
 
-中新网乌鲁木齐4月29日电 (胡嘉琛 古丽娜)记者29日从阿勒泰海关获悉，今年一季度，新疆塔克什肯口岸TIR(国际公路运输)出口业务创历史同期新高。
+中新网乌鲁木齐4月28日电 (胡嘉琛)铿锵锣鼓声响起，18岁的阿不都艾则孜·阿地力双手稳稳托举起色彩斑斓的狮头，腾、挪、闪、扑，每一个动作都充满力量与美感。
 
-海关部门累计监管TIR出境车辆14辆次、货值497.28万元，同比分别增长133%和224%。
+“舞狮让我知道，再难的事，只要勇敢，就赢了一半。
 
-塔克什肯口岸位于新疆阿勒泰地区青河县，是中蒙间重要贸易通道。
+”这位来自新疆喀什地区疏附县的少年28日接受中新网采访时说。
 
-该口岸通过TIR出口主要通达蒙古国等周边国家，承运货物从传统的日用百货拓展至精密仪器、机电产品等高附加值品类。
+2018年，在广东省对口支援新疆工作前方指挥部推动下，广州体育学院通过“集中培训—校本实践—赛事检验”模式，让传统民俗舞狮在疏附县的中小学校遍地开花。
 
-该口岸依托TIR通关优势，叠加中蒙俄沿亚洲公路网4号线(AH4)全线贯通的红利，跨境物流效率大幅提升。
+“初一那年，我被喧天的锣鼓声吸引进学校龙狮队。
 
-据青河县一物流公司相关负责人曹大鑫介绍，采用TIR模式加AH4通道，实现去程满载、返程高效配货，单趟运输收益较传统模式提升近一倍。
+”阿不都艾则孜回忆，初学舞狮时，端不稳狮头，练马步时腿发抖。
 
-“我们开设国际公路运输专用通道，实行预约通关，货物即到即查即放，推广电子预申报与证书‘云签发’，企业可全程线上办理，有效降低运营成本、压缩通关时长。
+但他没有放弃，经过不懈苦练，逐渐成长为校园小有名气的“狮王”，屡次在当地赛事中获奖。
 
-”阿勒泰海关驻塔克什肯办事处负责人蒋文杰说。
+据悉，伽师县已组建起100多支龙狮队伍，覆盖校园、乡村和社区。
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 01:54 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-30 02:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 01:56 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 02:10 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-30 01:57 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-30 01:48 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 02:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 01:58 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 02:17 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-30 02:20 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 01:58 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 02:22 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 02:04 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 02:01 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-30 01:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 02:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 02:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 01:57 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 01:57 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 02:19 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 02:03 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 02:08 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:56 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/202422199017.shtml)
-- 2026-06-30 01:56 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/596681659020.shtml)
-- 2026-06-30 01:51 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/926988721178.shtml)
-- 2026-06-30 02:06 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/178118135.shtml)
-- 2026-06-30 01:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/64696817.shtml)
-- 2026-06-30 02:10 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/17043.shtml)
-- 2026-06-30 02:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/85642259828.shtml)
-- 2026-06-30 02:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/566955273825.shtml)
-- 2026-06-30 01:54 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/051313585473.shtml)
-- 2026-06-30 02:01 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/22233620478.shtml)
-- 2026-06-30 02:12 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/987740.shtml)
-- 2026-06-30 02:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/045492198928.shtml)
-- 2026-06-30 01:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/99496.shtml)
-- 2026-06-30 02:10 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/312227229359.shtml)
-- 2026-06-30 02:05 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/62280661459.shtml)
+- 2026-06-30 02:01 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/48851000717.shtml)
+- 2026-06-30 02:18 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/4967610032.shtml)
+- 2026-06-30 01:59 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/967702.shtml)
+- 2026-06-30 01:58 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/9950560.shtml)
+- 2026-06-30 02:17 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/86843032667.shtml)
+- 2026-06-30 02:14 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/735688390644.shtml)
+- 2026-06-30 02:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/711671664.shtml)
+- 2026-06-30 02:06 - [日本16强魔咒](http://www.share.minike.top/Article/details/006121.shtml)
+- 2026-06-30 02:06 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/6213991.shtml)
+- 2026-06-30 02:11 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/7347545.shtml)
+- 2026-06-30 02:18 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/948410612.shtml)
+- 2026-06-30 02:19 - [孙兴慜道歉](https://www.share.minike.top/Article/details/275377645.shtml)
+- 2026-06-30 02:14 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/07185497.shtml)
+- 2026-06-30 02:02 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/61655143.shtml)
+- 2026-06-30 02:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/376568956.shtml)

@@ -1,48 +1,60 @@
-# 三花智控绩后涨逾5% 第一季度归母净利润9.28亿元同比增加2.68%
+# “好奇”号火星车新发现：多种有机分子首次确认存在于火星
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-三花智控（02050）绩后涨逾5%，截至发稿，股价上涨4.89%，现报33.44港元，成交额3.66亿港元。 4月29日，三花智控发布2026年第一季度报告，该公司取得营业收入77.74亿元，同比增加1.36%；归属于上市公司股东的净利润9.28亿元，同比增加2.68%；基本每股收益0.22元。 国信证券此前指出，三花智控持续推进数据中心领域发展，围绕全球数据中心及算力产业，持
+新华社洛杉矶4月27日电(记者谭晶晶)美国航空航天局近日发布公报说，在“好奇”号火星车采集的一块岩石样本中，研究人员发现迄今在火星探测到的种类最丰富的一组有机分子，其中多种有机分子为首次在火星上发现。该成果进一步表明，远古火星具备支持生命存在的化学条件。公报介绍说，这块岩石样本由“好奇”号火星车于2020年在火星夏普山区域采集。该区域数十亿年前曾存在湖泊和溪流，富含有利于保存有
 
 ## 正文
 
-三花智控（02050）绩后涨逾5%，截至发稿，股价上涨4.89%，现报33.44港元，成交额3.66亿港元。
+新华社洛杉矶4月27日电(记者谭晶晶)美国航空航天局近日发布公报说，在“好奇”号火星车采集的一块岩石样本中，研究人员发现迄今在火星探测到的种类最丰富的一组有机分子，其中多种有机分子为首次在火星上发现。
 
-4月29日，三花智控发布2026年第一季度报告，该公司取得营业收入77.74亿元，同比增加1.36%；归属于上市公司股东的净利润9.28亿元，同比增加2.68%；基本每股收益0.22元。
+该成果进一步表明，远古火星具备支持生命存在的化学条件。
 
-国信证券此前指出，三花智控持续推进数据中心领域发展，围绕全球数据中心及算力产业，持续跟踪行业趋势与需求变化，服务器液冷、机器人等新领域有望贡献增量。
+公报介绍说，这块岩石样本由“好奇”号火星车于2020年在火星夏普山区域采集。
 
-责任编辑：卢昱君
+该区域数十亿年前曾存在湖泊和溪流，富含有利于保存有机化合物的黏土矿物。
+
+有机分子是含碳化合物，被认为是构成生命的基本物质。
+
+该岩石样本被命名为“玛丽·安宁3号”，以纪念英国化石收藏家和古生物学家玛丽·安宁。
+
+在样本中检测出的21种含碳分子中，有7种为首次在火星上发现。
+
+新发现的分子中包括一种含氮杂环化合物，其环状分子结构中除了碳原子，还含有氮原子。
 
 ## 相关推荐
 
-- 2026-06-30 01:51 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 02:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 01:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 02:06 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
-- 2026-06-30 02:09 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 01:52 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 02:06 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 02:04 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 02:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-30 02:15 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 02:11 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 02:18 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 02:07 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 02:11 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 02:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:22 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-30 02:03 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 02:16 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 02:04 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 02:11 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-30 02:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 01:54 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 01:57 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 02:00 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/4356082.shtml)
-- 2026-06-30 02:10 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/5308956518.shtml)
-- 2026-06-30 02:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/29856234773.shtml)
-- 2026-06-30 01:56 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/02085117145.shtml)
-- 2026-06-30 01:57 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/95221519470.shtml)
-- 2026-06-30 02:03 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/069432436501.shtml)
-- 2026-06-30 01:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/9864697040.shtml)
-- 2026-06-30 01:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/14854653.shtml)
-- 2026-06-30 02:07 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/5827693181.shtml)
-- 2026-06-30 02:00 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/556940118.shtml)
-- 2026-06-30 01:49 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/6454112842.shtml)
-- 2026-06-30 01:58 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/422548.shtml)
-- 2026-06-30 01:58 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/27069.shtml)
-- 2026-06-30 02:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/1367782918.shtml)
-- 2026-06-30 02:07 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/24623.shtml)
+- 2026-06-30 02:00 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/634976936582.shtml)
+- 2026-06-30 01:58 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/870183507.shtml)
+- 2026-06-30 02:20 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/60100.shtml)
+- 2026-06-30 02:09 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/82074.shtml)
+- 2026-06-30 02:15 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/3791926503.shtml)
+- 2026-06-30 02:12 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/281593089210.shtml)
+- 2026-06-30 02:18 - [流金岁月](http://www.blog.minike.top/Article/details/99454970479.shtml)
+- 2026-06-30 02:00 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/940483015.shtml)
+- 2026-06-30 02:09 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/09996394376.shtml)
+- 2026-06-30 02:05 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/650764053.shtml)
+- 2026-06-30 02:16 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/62854.shtml)
+- 2026-06-30 02:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/3421524.shtml)
+- 2026-06-30 02:09 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/369975.shtml)
+- 2026-06-30 02:16 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/866298.shtml)
+- 2026-06-30 01:56 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/783320457.shtml)

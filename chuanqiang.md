@@ -1,59 +1,61 @@
-# 华商基金陈夏琼：关注AI、新能源、机器人等制造业景气方向
+# 融湾聚势侨启未来 汕头华侨试验区招商启新篇
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-近期，AI与新能源两大主线持续走强，助推创业板指跃升至近11年高位区间。在华商竞争力优选混合基金经理陈夏琼看来，AI的产业变革还在持续，带动AI硬件、下游智驾、机器人等产业发展；全球能源价格上涨，地缘及产业变动带动能源结构变化，也为国内储能锂电、风光、电力设备相关公司带来份额提升。她表示持续看好科技和能源变革投资机遇。 陈夏琼 华商竞争力优选混合基金经理 华商高端装备制造股票基
+中新网汕头4月29日电 (李怡青 林大森)“融湾聚势，侨启未来”——2026汕头东海岸新城招商会29日在广东汕头举办。 汕头华侨经济文化合作试验区(下称“华侨试验区”)管委会在会上介绍了试验区的区位优势、产业发展、国有储备用地分布、政策扶持等情况，直观展现东海岸新城营商环境与开发前景。 汕头东海岸新城位于广东省汕头市东部沿海，2014年被划入华侨试验区直管区，主要分为新津、新溪
 
 ## 正文
 
-近期，AI与新能源两大主线持续走强，助推创业板指跃升至近11年高位区间。
+中新网汕头4月29日电 (李怡青 林大森)“融湾聚势，侨启未来”——2026汕头东海岸新城招商会29日在广东汕头举办。
 
-在华商竞争力优选混合基金经理陈夏琼看来，AI的产业变革还在持续，带动AI硬件、下游智驾、机器人等产业发展；全球能源价格上涨，地缘及产业变动带动能源结构变化，也为国内储能锂电、风光、电力设备相关公司带来份额提升。
+汕头华侨经济文化合作试验区(下称“华侨试验区”)管委会在会上介绍了试验区的区位优势、产业发展、国有储备用地分布、政策扶持等情况，直观展现东海岸新城营商环境与开发前景。
 
-她表示持续看好科技和能源变革投资机遇。
+汕头东海岸新城位于广东省汕头市东部沿海，2014年被划入华侨试验区直管区，主要分为新津、新溪、塔岗围三大片区。
 
-陈夏琼 华商竞争力优选混合基金经理 华商高端装备制造股票基金经理 华商新能源汽车混合基金经理 陈夏琼，毕业于北京大学，于2015年加入华商基金，历任行业研究员、基金经理助理、基金经理，能力圈集中在制造业、新能源相关的上下游行业。
+东海岸新城作为粤东地区首个聚焦跨境数字经济的产业承载地，致力于推动区域数字产业集聚、赋能传统产业升级、链接全球数字资源。
 
-陈夏琼始终坚信“深度研究是穿越市场波动的基石”，并将这一理念深刻融入其投资管理中。
+此次招商会紧扣重点片区开发与重大项目落地，推介东海岸新城核心区位优质资源，搭建起政企对接、项目对接的高效平台。
 
-在当前AI+新能源双驱轮动的结构性行情中，华商基金陈夏琼凭借十余年深耕制造业与新能源的投研积淀（其中9.4年证券研究经历、1.2年证券投资经历），自2025年1月担任基金经理以来交出了一份亮眼成绩单。
+会上，华侨试验区管委会与泰国粤商会、招商公司、柏亚控股等代表共启意向合作仪式。
 
-据权威基金评价机构数据显示，截至2026年1季度末，陈夏琼管理的华商竞争力优选混合基金、参与共同管理的华商高端装备股票基金近一年业绩排名均位列同类前10%。
+会上举行了“山姆会员商店项目启动建设仪式”，作为粤东首家高端会员制零售门店落地汕头东海岸新城新溪片区，将有力促进周边商圈成熟，该地区将成为吸引整个粤东地区家庭节假日消费目的地，促进当地实现产业与城市的深度融合。
 
-尤为值得一提的是，华商高端装备股票基金近1年业绩位列同类第二（详见下表）。
+泰国粤商会执行会长吴庆荣说，这几年来，华侨试验区成为聚集海内外华侨华人资源发展的重要平台。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 02:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 01:48 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 02:12 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 01:50 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 02:07 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 02:12 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 02:16 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-30 01:51 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-30 01:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 02:04 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 02:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 01:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 02:02 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 01:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 02:12 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
+- 2026-06-30 02:15 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
+- 2026-06-30 02:15 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 02:16 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 02:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 02:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 02:06 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 02:23 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 02:08 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 01:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 02:03 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 02:17 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-30 02:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/3981619736.shtml)
-- 2026-06-30 01:50 - [日本进球](http://www.blog.kurohicncr.top/Article/details/611670079748.shtml)
-- 2026-06-30 02:07 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/8435762.shtml)
-- 2026-06-30 01:51 - [刘念回应](http://www.share.kurohicncr.top/Article/details/38847439.shtml)
-- 2026-06-30 02:06 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/87899635986.shtml)
-- 2026-06-30 02:10 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/054946692.shtml)
-- 2026-06-30 02:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/126035.shtml)
-- 2026-06-30 01:50 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/8730570.shtml)
-- 2026-06-30 02:04 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/709072650.shtml)
-- 2026-06-30 01:52 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/65905135858.shtml)
-- 2026-06-30 02:10 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/232530309163.shtml)
-- 2026-06-30 02:12 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/811355.shtml)
-- 2026-06-30 01:52 - [周杰伦的歌勾起25年友情](http://www.share.kurohicncr.top/Article/details/388246987.shtml)
-- 2026-06-30 02:11 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/692747471375.shtml)
-- 2026-06-30 02:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/53251107.shtml)
+- 2026-06-30 02:21 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/507411.shtml)
+- 2026-06-30 02:10 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/157814115618.shtml)
+- 2026-06-30 01:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/754581.shtml)
+- 2026-06-30 02:02 - [一生一世](https://www.share.kurohicncr.top/Article/details/26064178.shtml)
+- 2026-06-30 02:09 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/369563460655.shtml)
+- 2026-06-30 02:05 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/469469.shtml)
+- 2026-06-30 02:07 - [深扒韩国队淘汰背后原因](http://www.share.minike.top/Article/details/0180788.shtml)
+- 2026-06-30 02:07 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.minike.top/Article/details/1601896.shtml)
+- 2026-06-30 02:21 - [天道](https://www.share.minike.top/Article/details/8090611918.shtml)
+- 2026-06-30 02:01 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/47619.shtml)
+- 2026-06-30 02:21 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/5239358.shtml)
+- 2026-06-30 02:23 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/837331244790.shtml)
+- 2026-06-30 02:19 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/11305538.shtml)
+- 2026-06-30 02:14 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/71964.shtml)
+- 2026-06-30 02:19 - [千香](http://www.share.kurohicncr.top/Article/details/040301.shtml)

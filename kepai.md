@@ -1,60 +1,49 @@
-# 稳定币的绊脚石
+# “穿越”大明 南京闲置空间文旅融合华丽转身
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-近年来，区块链技术和资产代币化将在未来金融体系中扮演重要角色的信念，已获得稳步的认同。美国《天才法案》（Genius Act）等为稳定币设定监管框架的举措，进一步强化了这一趋势。 然而，稳定币——即价值与美元等资产挂钩的加密货币——被用于金融交易大规模结算的情形，不太可能实现。原因很简单：目前的稳定币安排不够安全，无法充当大规模的结算资产，至少在其当前形态下是如此。 批发市场的
+发布时间：2026年04月28日 16:05 来源：中国新闻网 4月27日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京市秦淮区金陵长乐坊。在这个由闲置超市改造而成的文化空间里，一步一景，生动展现了明代科举文化和市井文化，实现了文旅融合发展。(张传明） 责任编辑：【周驰】
 
 ## 正文
 
-近年来，区块链技术和资产代币化将在未来金融体系中扮演重要角色的信念，已获得稳步的认同。
+发布时间：2026年04月28日 16:05 来源：中国新闻网 4月27日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京市秦淮区金陵长乐坊。
 
-美国《天才法案》（Genius Act）等为稳定币设定监管框架的举措，进一步强化了这一趋势。
+在这个由闲置超市改造而成的文化空间里，一步一景，生动展现了明代科举文化和市井文化，实现了文旅融合发展。
 
-然而，稳定币——即价值与美元等资产挂钩的加密货币——被用于金融交易大规模结算的情形，不太可能实现。
-
-原因很简单：目前的稳定币安排不够安全，无法充当大规模的结算资产，至少在其当前形态下是如此。
-
-批发市场的特点是受监管的金融机构（如银行和经纪交易商）之间进行大额支付和证券交易，结算通常在被称为金融市场基础设施（financial market infrastructures，简称FMI）的专业实体中进行。
-
-由于其对全球金融体系运作的重要性，金融市场基础设施被视为“具有系统重要性”，并须遵守远超当今稳定币规则的监管标准。
-
-在2007至2009年金融危机之后，主要央行和证券监管机构就金融市场基础设施必须遵守的一套全面的24项原则达成了一致，这些原则此后已被纳入世界各国的国内立法。
-
-其中尤为重要的一项标准，涉及用于结算金融交易的货币的质量。
+(张传明） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-30 02:04 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 02:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-30 02:12 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 01:51 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 01:53 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-30 01:56 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 01:50 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 01:59 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 01:59 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 01:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 02:08 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 02:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 02:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 01:55 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 02:02 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 01:59 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 02:01 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 02:14 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 01:56 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 02:17 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 02:10 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 02:22 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-30 02:10 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 02:05 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 02:06 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 02:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/59060.shtml)
-- 2026-06-30 02:06 - [第一炉香](http://www.share.kurohicncr.top/Article/details/90283901057.shtml)
-- 2026-06-30 01:51 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/49520292.shtml)
-- 2026-06-30 02:04 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/8198440.shtml)
-- 2026-06-30 02:02 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/250879437342.shtml)
-- 2026-06-30 02:06 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/0909565549.shtml)
-- 2026-06-30 01:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/556187.shtml)
-- 2026-06-30 02:08 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/3963951643.shtml)
-- 2026-06-30 02:16 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/6732577294.shtml)
-- 2026-06-30 01:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/676703.shtml)
-- 2026-06-30 02:05 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/2208289083.shtml)
-- 2026-06-30 02:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/55715404087.shtml)
-- 2026-06-30 02:05 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/478096629872.shtml)
-- 2026-06-30 01:49 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/94047.shtml)
-- 2026-06-30 02:09 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/464294115783.shtml)
+- 2026-06-30 01:55 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/090123199995.shtml)
+- 2026-06-30 02:14 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/0933410343.shtml)
+- 2026-06-30 02:07 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/4365746029.shtml)
+- 2026-06-30 02:01 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/457183393.shtml)
+- 2026-06-30 02:19 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/90125086029.shtml)
+- 2026-06-30 02:15 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/2316121328.shtml)
+- 2026-06-30 02:21 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/141972.shtml)
+- 2026-06-30 02:19 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/0899943.shtml)
+- 2026-06-30 02:07 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/92671016.shtml)
+- 2026-06-30 02:23 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/16482075732.shtml)
+- 2026-06-30 02:16 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/15769.shtml)
+- 2026-06-30 02:05 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/038700.shtml)
+- 2026-06-30 02:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/966781.shtml)
+- 2026-06-30 02:21 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/92755.shtml)
+- 2026-06-30 02:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/04534.shtml)

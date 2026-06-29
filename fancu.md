@@ -1,57 +1,60 @@
-# 港股半导体走出独立行情！规模最大港股通信息技术ETF（159131）溢价持续走阔，再获申购1700万份！
+# 4月银行二永债井喷，发行规模突破3000亿元
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-4月29日，港股硬科技在昨日调整蓄势后再度回暖，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内温和上涨0.34%，溢价持续走阔，资金持续涌入，盘中实时净申购1700万份，此前连续3日连续获资金净流入超9800万元。 自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超17
+21世纪经济报道记者 叶麦穗 2026年一季度，商业银行二级资本债与永续债（以下简称“二永债”）的发行一直处于“冰冻”状态。但是，进入4月，伴随监管批文集中落地，银行“二永债”发行明显提速，国有大行与股份行密集落地大额发行，掀起年内资本补充新一轮热潮。截至目前，已经有4家银行发行了二级资本债、5家银行发行了永续债，合计规模达到了3150亿元。 一季度遇供给空档 4月27日，交通
 
 ## 正文
 
-4月29日，港股硬科技在昨日调整蓄势后再度回暖，同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内温和上涨0.34%，溢价持续走阔，资金持续涌入，盘中实时净申购1700万份，此前连续3日连续获资金净流入超9800万元。
+21世纪经济报道记者 叶麦穗 2026年一季度，商业银行二级资本债与永续债（以下简称“二永债”）的发行一直处于“冰冻”状态。
 
-自3月31日触底反弹以来，港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数（简称港股通信息C）累计涨幅超17%，同期恒生科技、港股通科技的涨幅分别为5.33%、2.92%，港股通信息C指数的锐度和弹性显著领先。
+但是，进入4月，伴随监管批文集中落地，银行“二永债”发行明显提速，国有大行与股份行密集落地大额发行，掀起年内资本补充新一轮热潮。
 
-统计区间：2026.3.31-2026.4.27。
+截至目前，已经有4家银行发行了二级资本债、5家银行发行了永续债，合计规模达到了3150亿元。
 
-港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
+一季度遇供给空档 4月27日，交通银行披露，经相关监管机构批准，该行在全国银行间债券市场公开发行“交通银行股份有限公司2026年第一期二级资本债券（债券通）”（以下简称“本期债券”），并已于2026年4月27日发行完毕。
 
-指数过往业绩不预示未来表现。
+本期债券发行规模为400亿元，票面利率为1.97%，为10年期固定利率债券，在第5年末附有条件的发行人赎回权。
 
-国元证券点评认为，港股市场在经历了情绪修复之后，上周受到外部环境影响出现震荡，对利率敏感度较高的资产表现普遍承压，而出现上涨的则主要是受益于AI产业较为明显的权益资产，港股中半导体板块走出了独立行情，表现显著优于其他板块。
+交通银行进一步说明，本期债券募集资金在扣除发行费用后，将依据适用法律和主管部门的批准全部用于补充本行二级资本。
 
-在伊朗与美国谈判期间，全球市场或有持续的震荡与反复，不过若未来谈判进展顺利，伴随着谈判形势逐渐明朗，未来市场的不确定性有望缩减，这将为港股的本轮修复行情提供一定的延续基础，港股有望维持震荡向上的格局。
+4月21日，中国银行也透露，该行于4月17日在全国银行间债券市场发行的总额500亿元减记型二级资本债券已完成发行。
 
-支持T+0交易！
+该债券为10年期固定利率品种，票面利率1.97%，在第5年末附发行人赎回权，募集资金将用于补充银行二级资本。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-30 02:14 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-30 02:04 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-30 02:09 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 01:50 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 02:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 02:09 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-30 02:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 02:09 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 02:04 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 02:06 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 01:58 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 02:14 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 02:02 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 02:03 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 02:22 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 02:20 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 02:02 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 02:13 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 02:04 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 02:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 02:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 02:19 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 02:04 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 02:06 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/67627217.shtml)
-- 2026-06-30 01:50 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/8653096287.shtml)
-- 2026-06-30 01:53 - [新官上任三把火](https://www.share.minike.top/Article/details/780392632.shtml)
-- 2026-06-30 01:48 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/07612553775.shtml)
-- 2026-06-30 02:06 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/800072.shtml)
-- 2026-06-30 01:54 - [日本16强魔咒](https://www.share.kurohicncr.top/Article/details/558890676762.shtml)
-- 2026-06-30 01:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/194417.shtml)
-- 2026-06-30 02:07 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/01655164.shtml)
-- 2026-06-30 01:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/515237.shtml)
-- 2026-06-30 02:11 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/407938.shtml)
-- 2026-06-30 02:01 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/2856853129.shtml)
-- 2026-06-30 01:54 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/8627934.shtml)
-- 2026-06-30 02:15 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/603229609.shtml)
-- 2026-06-30 02:02 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/25678850.shtml)
-- 2026-06-30 02:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/090344365989.shtml)
+- 2026-06-30 02:20 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/43452.shtml)
+- 2026-06-30 02:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/60552606.shtml)
+- 2026-06-30 01:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/0507690347.shtml)
+- 2026-06-30 02:20 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/431239021.shtml)
+- 2026-06-30 02:18 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/7186835.shtml)
+- 2026-06-30 02:16 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/01805.shtml)
+- 2026-06-30 02:05 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/8297859920.shtml)
+- 2026-06-30 01:55 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/184965732916.shtml)
+- 2026-06-30 02:07 - [爱很美味](https://www.share.kurohicncr.top/Article/details/14055330928.shtml)
+- 2026-06-30 02:16 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/10564.shtml)
+- 2026-06-30 02:07 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/06932232.shtml)
+- 2026-06-30 02:18 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/61461664.shtml)
+- 2026-06-30 02:19 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/31510429171.shtml)
+- 2026-06-30 02:07 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/678123852696.shtml)
+- 2026-06-30 02:07 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/64424.shtml)

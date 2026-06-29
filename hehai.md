@@ -1,56 +1,56 @@
-# 香港“最严禁烟令”今起实施：持有电子烟等另类烟最高可判6个月监禁
+# 欧洲股市上涨，因特朗普考虑伊朗和平提议
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 07:22 来源：中国新闻网 从4月30日起，香港将禁止任何人在公众场所持有另类吸烟产品，如电子烟、草本烟和加热烟。一旦被查获，最低罚款3000港元，最高可被罚款5万港元及监禁6个月。具体处罚有哪些细则？为什么要制定这样严苛的控烟规定？一条视频解答清楚。(记者 孙悦 温孟馨) 责任编辑：【黄钰涵】
+周二欧洲股市小幅走高，投资者一方面等待华盛顿对伊朗和平提议的回应，另一方面消化多家欧洲企业发布的财报。 泛欧斯托克 600 指数不久上涨近 0.1%，伦敦、巴黎、法兰克福和米兰股市全线走高。 板块表现分化。能源板块领涨，涨幅达 1.6%，布伦特原油价格飙升至每桶 111 美元，创三周新高；银行股上涨 1.2%；化工板块下跌约 1.1%。 主要指数行情： 企业财报密集发布日： 地
 
 ## 正文
 
-发布时间：2026年04月30日 07:22 来源：中国新闻网 从4月30日起，香港将禁止任何人在公众场所持有另类吸烟产品，如电子烟、草本烟和加热烟。
+周二欧洲股市小幅走高，投资者一方面等待华盛顿对伊朗和平提议的回应，另一方面消化多家欧洲企业发布的财报。
 
-一旦被查获，最低罚款3000港元，最高可被罚款5万港元及监禁6个月。
+泛欧斯托克 600 指数不久上涨近 0.1%，伦敦、巴黎、法兰克福和米兰股市全线走高。
 
-具体处罚有哪些细则？
+板块表现分化。
 
-为什么要制定这样严苛的控烟规定？
+能源板块领涨，涨幅达 1.6%，布伦特原油价格飙升至每桶 111 美元，创三周新高；银行股上涨 1.2%；化工板块下跌约 1.1%。
 
-一条视频解答清楚。
+主要指数行情： 企业财报密集发布日： 地缘政治消息： 白宫新闻秘书卡罗琳・莱维特周一证实，美国总统唐纳德・特朗普及其国家安全团队已讨论伊朗提出的和平提议：若美国解除封锁、结束战争，伊朗将重新开放霍尔木兹海峡。
 
-(记者 孙悦 温孟馨) 责任编辑：【黄钰涵】
+阿克西奥斯新闻网和美联社此前报道，该提议将推迟就伊朗核计划野心的谈判，留待日后进行。
+
+特朗普此前承诺，除非与伊朗的协议 “100% 达成”，否则不会解除封锁。
+
+目前尚不清楚他是否认真考虑了这项结束已持续两个月战争的提议。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-30 02:01 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
-- 2026-06-30 02:03 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 02:16 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 01:48 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 02:05 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 01:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 01:51 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 02:10 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 01:57 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 02:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 02:11 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-30 02:02 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 02:01 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-30 02:13 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 02:22 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 02:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 02:05 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 02:14 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 02:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 01:59 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 01:54 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:12 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 02:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/388518501.shtml)
-- 2026-06-30 01:50 - [千香](http://www.share.minike.top/Article/details/4472976266.shtml)
-- 2026-06-30 02:13 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/1247321508.shtml)
-- 2026-06-30 02:00 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/17280.shtml)
-- 2026-06-30 01:49 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/453188841.shtml)
-- 2026-06-30 02:04 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/18699.shtml)
-- 2026-06-30 02:07 - [一见倾心](https://www.blog.minike.top/Article/details/8185780087.shtml)
-- 2026-06-30 01:56 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/99616375.shtml)
-- 2026-06-30 02:13 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/22055.shtml)
-- 2026-06-30 02:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/941067.shtml)
-- 2026-06-30 01:48 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/647168838826.shtml)
-- 2026-06-30 02:01 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/122053235362.shtml)
-- 2026-06-30 02:06 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/1016290.shtml)
-- 2026-06-30 01:49 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/0929704.shtml)
-- 2026-06-30 02:07 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/7154298239.shtml)
+- 2026-06-30 02:05 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/34738.shtml)
+- 2026-06-30 02:10 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/6601053.shtml)
+- 2026-06-30 01:54 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/277438743363.shtml)
+- 2026-06-30 02:03 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/623485.shtml)
+- 2026-06-30 02:23 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/10832722.shtml)
+- 2026-06-30 02:22 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/906114778389.shtml)
+- 2026-06-30 01:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/624511.shtml)
+- 2026-06-30 02:08 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/52990.shtml)
+- 2026-06-30 02:14 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/104672790376.shtml)
+- 2026-06-30 02:05 - [美股](https://www.blog.minike.top/Article/details/949028.shtml)
+- 2026-06-30 02:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/9106346190.shtml)
+- 2026-06-30 02:00 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/54583325262.shtml)
+- 2026-06-30 01:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/926624.shtml)
+- 2026-06-30 02:19 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/846273530063.shtml)
+- 2026-06-30 01:54 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/7231310012.shtml)

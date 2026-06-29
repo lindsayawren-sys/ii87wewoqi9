@@ -1,57 +1,57 @@
-# 五粮液业绩报罕见“延期”，投资者猜测或与董事长被留置有关
+# 大陆打拼十五载 台青获“湖北青年五四奖章”
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 4月29日，日前，本该公布2025年年报及2026年一季报的五粮液罕见“延期”。 在新公告中，五粮液董事会解释称：为进一步完善定期报告编制和复核工作，公司将《2025年度报告》及《2026年第一季度报告》的披露时间延至2026年4月30日收市后。 五粮液表示：“公司董事会对此次调整定期报告披露时间给投资者带来的不便致以诚
+中新社武汉4月29日电 (记者 马芙蓉)2026年“湖北青年五四奖章”评选结果29日公布，武汉市中心医院泌尿外科主治医师、35岁台青甘家骅是获奖者之一。甘家骅表示，这是对他15年打拼的认可，也是激励他继续前行的动力。 2011年，他从台湾来到华中科技大学同济医学院学医，2022年入职武汉市中心医院。 2018年以来，大陆先后出台系列惠台措施，为台胞学习、创业、就业、生活提供同等
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 4月29日，日前，本该公布2025年年报及2026年一季报的五粮液罕见“延期”。
+中新社武汉4月29日电 (记者 马芙蓉)2026年“湖北青年五四奖章”评选结果29日公布，武汉市中心医院泌尿外科主治医师、35岁台青甘家骅是获奖者之一。
 
-在新公告中，五粮液董事会解释称：为进一步完善定期报告编制和复核工作，公司将《2025年度报告》及《2026年第一季度报告》的披露时间延至2026年4月30日收市后。
+甘家骅表示，这是对他15年打拼的认可，也是激励他继续前行的动力。
 
-五粮液表示：“公司董事会对此次调整定期报告披露时间给投资者带来的不便致以诚挚的歉意，敬请广大投资者谅解。
+2011年，他从台湾来到华中科技大学同济医学院学医，2022年入职武汉市中心医院。
 
-” 有投资者猜测这或与五粮液董事长被留置有关。
+2018年以来，大陆先后出台系列惠台措施，为台胞学习、创业、就业、生活提供同等待遇。
 
-公开信息显示，2月28日，五粮液发布公告：公司于近日收到中国共产党宜宾市纪律检查委员会、宜宾市监察委员会关于公司董事长曾从钦的《立案通知书》及宜宾市监察委员会的《留置通知书》。
+“我是惠台措施的直接受益者。
 
-五粮液表示，截至本公告日，公司其他董事和高级管理人员均正常履职，生产经营情况正常。
+”甘家骅说，从考取执业医师资格证、完成住院医师规范化培训，到主导科研项目、考取中级卫生专业技术资格证、晋升主治医师，一路畅通无阻。
 
-公司已对相关事项做了妥善安排，日常经营管理由高管团队负责，上述事项不会对公司生产经营产生重大影响。
+甘家骅参与完成的“前列腺癌早期诊断及治疗新策略的技术创新与应用”项目，获2025年湖北省科学技术进步奖二等奖。
+
+正在主持开展的“前列腺癌穿刺平台建设”项目，是武汉市科技创新局重点项目之一。
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 02:00 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 02:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 02:10 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 02:15 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 02:03 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 01:48 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 01:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 02:17 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-30 01:48 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-30 02:13 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 02:09 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 02:11 - [刘宇宁 好听](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 02:23 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-30 02:21 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 01:57 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 02:22 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 01:54 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 02:06 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 02:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 02:15 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-30 02:21 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 01:56 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-30 01:56 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/13632411.shtml)
-- 2026-06-30 01:56 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/2653618.shtml)
-- 2026-06-30 02:05 - [免费试吃发差评被店家挂店门避雷](http://www.share.minike.top/Article/details/716817898212.shtml)
-- 2026-06-30 02:15 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/6530635849.shtml)
-- 2026-06-30 01:53 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/9817532.shtml)
-- 2026-06-30 01:51 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/4101544.shtml)
-- 2026-06-30 01:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/75690401.shtml)
-- 2026-06-30 02:15 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/7693420907.shtml)
-- 2026-06-30 01:49 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/312180820.shtml)
-- 2026-06-30 01:56 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/4015853062.shtml)
-- 2026-06-30 01:50 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/21587186771.shtml)
-- 2026-06-30 01:59 - [庆祝中国共产党成立105周年音乐会](http://www.share.kurohicncr.top/Article/details/117986973166.shtml)
-- 2026-06-30 02:12 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/060932763.shtml)
-- 2026-06-30 01:57 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/526887.shtml)
-- 2026-06-30 02:05 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/779329659.shtml)
+- 2026-06-30 02:07 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/460915428.shtml)
+- 2026-06-30 02:13 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/42850853.shtml)
+- 2026-06-30 02:06 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/90980314.shtml)
+- 2026-06-30 02:09 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/5883967.shtml)
+- 2026-06-30 02:04 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/801723341000.shtml)
+- 2026-06-30 02:19 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/417534503476.shtml)
+- 2026-06-30 02:00 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/68208.shtml)
+- 2026-06-30 02:18 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/79551891.shtml)
+- 2026-06-30 02:17 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/64462335.shtml)
+- 2026-06-30 02:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/9129693314.shtml)
+- 2026-06-30 02:16 - [张凌赫 客串](https://www.share.minike.top/Article/details/38708818492.shtml)
+- 2026-06-30 02:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/093953.shtml)
+- 2026-06-30 02:23 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/245012662903.shtml)
+- 2026-06-30 02:19 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/79057160.shtml)
+- 2026-06-30 02:13 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/84792023.shtml)

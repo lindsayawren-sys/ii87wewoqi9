@@ -1,60 +1,56 @@
-# “五一”假期银川火车站预计发送旅客48万人次
+# 德国科尔伯基金会乔纳森・莱勒：欧洲增强自立能力至关重要
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网银川4月29日电 (记者 杨迪)“五一”假期旅客铁路运输期限为4月29日至5月6日，共8天。记者29日从铁路部门了解到，国铁兰州局银川车站预计发送旅客48.44万人次，日均发送旅客6.05万人次。其中，5月1日为客流高峰日，预计发送旅客7.9万人次。 “五一”假期期间，在“宁超”赛事的加持下，银川车站客流将保持高位运行。车站客流特点为头尾长途客流多，中间中短途客流多，主要
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。德国科尔伯基金会（Körber-Stiftung）国际事务部项目经理乔纳森・莱勒（Jonathan Lehrer）直言到，目前欧洲（尤其是德国）正处于艰难境地，很大程度上是自身的问题，“我们不应抱怨，而应主动应对”。 他强调，欧洲增强自立能力至关重要，要强化
 
 ## 正文
 
-中新网银川4月29日电 (记者 杨迪)“五一”假期旅客铁路运输期限为4月29日至5月6日，共8天。
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
 
-记者29日从铁路部门了解到，国铁兰州局银川车站预计发送旅客48.44万人次，日均发送旅客6.05万人次。
+德国科尔伯基金会（Körber-Stiftung）国际事务部项目经理乔纳森・莱勒（Jonathan Lehrer）直言到，目前欧洲（尤其是德国）正处于艰难境地，很大程度上是自身的问题，“我们不应抱怨，而应主动应对”。
 
-其中，5月1日为客流高峰日，预计发送旅客7.9万人次。
+他强调，欧洲增强自立能力至关重要，要强化自身产业基础，提升韧性。
 
-“五一”假期期间，在“宁超”赛事的加持下，银川车站客流将保持高位运行。
+乔纳森・莱勒提到，当前德国面临的现实令人担忧，高能源价格削弱了改革的成效，但从长远来看，欧洲的前景是光明的，正朝着更自立、更具韧性的方向发展。
 
-车站客流特点为头尾长途客流多，中间中短途客流多，主要以旅游流、探亲流及学生流为主。
+“但这种发展绝不是民族主义的，这一点至关重要。
 
-中长途客流主要集中在北京、上海、郑州、成都、西安、兰州等旅游城市，短途客流主要集中在管内吴忠、石嘴山、中卫及庆阳等周边城市。
+”新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-为最大限度满足旅客出行需求，“五一”假期期间，银川车站将实行高峰图，在出行高峰时段和热门线路方向灵活动态安排运力投放，为假期旅客出行提供更多出行选择和运力保障。
-
-假日期间，开行银川至西安北夜间动车组列车2.5对，银川至西安北动车组高峰线2对，银川至中卫南动车组临客1对，重联开行银川至上海虹桥动车组列车1对、银川至敦煌动车组列车1对、银川至北京北动车组列车1对，银川至成都东动车组列车1对。
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:51 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 02:15 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 01:58 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 02:05 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 02:05 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 02:00 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
-- 2026-06-30 01:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 02:11 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-30 02:12 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-30 01:59 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 02:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 02:07 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 02:14 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 02:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 02:03 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:18 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 02:15 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 02:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 01:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 02:05 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 02:06 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 02:11 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 02:12 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 02:23 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 02:14 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/480030557949.shtml)
-- 2026-06-30 01:57 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/18587734304.shtml)
-- 2026-06-30 01:50 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/423651.shtml)
-- 2026-06-30 01:54 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/0250607149.shtml)
-- 2026-06-30 02:02 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/9788416.shtml)
-- 2026-06-30 01:51 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/870654.shtml)
-- 2026-06-30 02:14 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/41100624256.shtml)
-- 2026-06-30 02:12 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/31287.shtml)
-- 2026-06-30 01:58 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/89357450.shtml)
-- 2026-06-30 01:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/68149821.shtml)
-- 2026-06-30 02:11 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/303593890.shtml)
-- 2026-06-30 01:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/6941194.shtml)
-- 2026-06-30 01:56 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/59568521.shtml)
-- 2026-06-30 02:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/88415.shtml)
-- 2026-06-30 02:13 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/137238.shtml)
+- 2026-06-30 02:03 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/5190469.shtml)
+- 2026-06-30 02:10 - [小娘惹](http://www.share.minike.top/Article/details/013715636909.shtml)
+- 2026-06-30 02:19 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/855061969616.shtml)
+- 2026-06-30 02:02 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/9286581.shtml)
+- 2026-06-30 02:04 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/26985980568.shtml)
+- 2026-06-30 02:17 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/56687.shtml)
+- 2026-06-30 02:10 - [拆解FIFA和世界杯的暗面](http://www.share.kurohicncr.top/Article/details/125417.shtml)
+- 2026-06-30 02:12 - [恋与深空 日服](https://www.blog.minike.top/Article/details/041027989.shtml)
+- 2026-06-30 02:03 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/4560763.shtml)
+- 2026-06-30 02:09 - [《贺子珍》](http://www.blog.minike.top/Article/details/60186006547.shtml)
+- 2026-06-30 01:55 - [天道](http://www.share.kurohicncr.top/Article/details/46392729236.shtml)
+- 2026-06-30 02:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/0575684.shtml)
+- 2026-06-30 02:16 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/4055353.shtml)
+- 2026-06-30 02:20 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/64715.shtml)
+- 2026-06-30 02:19 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/59033.shtml)

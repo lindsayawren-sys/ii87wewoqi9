@@ -1,56 +1,48 @@
-# 花旗：吉利汽车维持“买入”评级 目标价30港元
+# 新西兰罗托鲁瓦市市长点赞西安智造
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-花旗发布研报称，吉利汽车（00175）首季核心溢利（撇除汇兑）同比升31%至45.6亿元人民币，符预期。该行指出，吉利是期内唯一录得盈利按季增长的主要车企，维持“买入”评级，目标价30港元。 花旗表示，吉利首季收入同比升15%至838亿元人民币（下同）； 新能源汽车销量同比升9%至36.9万辆；整体市占率亦提升至12%。期内出口总量同比急升1.26倍至20.3万辆，当中新能源汽
+发布时间：2026年04月29日 08:28 来源：中国新闻网 4月28日，陕西西安，来自埃及、新西兰、约旦等多国城市市长及专家走进吉利“黑灯工厂”参观，近距离感受现代智能制造发展成果。高度自动化、智能化、柔性化的新能源汽车生产场景，给新西兰罗托鲁瓦市市长塔尼亚·塔普塞尔留下深刻印象。她表示，西安在能源高效利用、能效提升领域的实践成效显著，令人赞叹，期待深入了解当地技术创新成果
 
 ## 正文
 
-花旗发布研报称，吉利汽车（00175）首季核心溢利（撇除汇兑）同比升31%至45.6亿元人民币，符预期。
+发布时间：2026年04月29日 08:28 来源：中国新闻网 4月28日，陕西西安，来自埃及、新西兰、约旦等多国城市市长及专家走进吉利“黑灯工厂”参观，近距离感受现代智能制造发展成果。
 
-该行指出，吉利是期内唯一录得盈利按季增长的主要车企，维持“买入”评级，目标价30港元。
+高度自动化、智能化、柔性化的新能源汽车生产场景，给新西兰罗托鲁瓦市市长塔尼亚·塔普塞尔留下深刻印象。
 
-花旗表示，吉利首季收入同比升15%至838亿元人民币（下同）； 新能源汽车销量同比升9%至36.9万辆；整体市占率亦提升至12%。
+她表示，西安在能源高效利用、能效提升领域的实践成效显著，令人赞叹，期待深入了解当地技术创新成果，持续深化多领域交流合作。
 
-期内出口总量同比急升1.26倍至20.3万辆，当中新能源汽车出口12.5万辆，同比飙升5.72倍。
-
-毛利率受出口及高端销售组合改善带动，同比及按季分别扩阔1.8及0.6个百分点，至17.5%。
-
-行政开支同比减少6%，研发开支则同比增加38%，销售开支亦升20%。
-
-至于已计入一次性及汇兑亏损的经营溢利为47.2亿元，按季升41%。
-
-该行估算，核心除息税前盈利（EBIT）利润率改善至10.7%，按季及同比分别升2.3及1.9个百分点。
+(党田野 杨英琦 张一辰） 责任编辑：【黄钰涵】
 
 ## 相关推荐
 
-- 2026-06-30 02:16 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 02:09 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 02:10 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 02:02 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
-- 2026-06-30 02:15 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 01:48 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-30 01:54 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-30 02:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 01:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 02:08 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-30 02:19 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 02:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 01:58 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 02:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 02:04 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 02:23 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 02:14 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 01:54 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 02:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 02:22 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/96535.shtml)
-- 2026-06-30 01:49 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/739111306870.shtml)
-- 2026-06-30 01:55 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/89494889.shtml)
-- 2026-06-30 02:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/46601218.shtml)
-- 2026-06-30 02:16 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/18973016.shtml)
-- 2026-06-30 01:56 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/27689125170.shtml)
-- 2026-06-30 01:54 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/34077665.shtml)
-- 2026-06-30 02:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/91678783204.shtml)
-- 2026-06-30 02:13 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/765633114619.shtml)
-- 2026-06-30 02:07 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/4826738864.shtml)
-- 2026-06-30 01:48 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/435439.shtml)
-- 2026-06-30 02:15 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/363017964.shtml)
-- 2026-06-30 02:11 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/138207553271.shtml)
-- 2026-06-30 01:51 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/888649.shtml)
-- 2026-06-30 02:07 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/914517.shtml)
+- 2026-06-30 02:12 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/0765189.shtml)
+- 2026-06-30 02:14 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/336460.shtml)
+- 2026-06-30 02:19 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/92572.shtml)
+- 2026-06-30 02:19 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/57144767.shtml)
+- 2026-06-30 02:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/83226019018.shtml)
+- 2026-06-30 01:59 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/8806864076.shtml)
+- 2026-06-30 02:06 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/46610637.shtml)
+- 2026-06-30 02:07 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/595638428.shtml)
+- 2026-06-30 02:11 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/929776.shtml)
+- 2026-06-30 01:56 - [UP主复刻百万英镑牛排套餐](http://www.share.minike.top/Article/details/894535499.shtml)
+- 2026-06-30 02:00 - [女心理师](http://www.blog.minike.top/Article/details/170283.shtml)
+- 2026-06-30 02:02 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/1234283.shtml)
+- 2026-06-30 02:09 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/66310425.shtml)
+- 2026-06-30 02:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/89351.shtml)
+- 2026-06-30 02:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/333788668339.shtml)

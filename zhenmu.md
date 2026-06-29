@@ -1,59 +1,59 @@
-# 北方多地气温冲击30℃ 五一假期新一轮降雨来袭
+# 美国2月房价涨幅放缓
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-北方暖热升级多地将冲击30℃ 五一假期新一轮大范围降雨来袭 中国天气网讯 今天(4月30日)是五一假期前最后一个工作日，南方大部地区降雨暂歇，气温有所回升，华北、东北等多地气温将冲击30℃，或创今年来新高。不过，随着五一假期开启，新一轮降水过程又将发展，青藏高原、西北地区东部、黄淮南部及南方地区自西向东有大范围降雨，5月2日至3日南方雨势最强。 五一假期新一轮降水发展 南方2日
+受购房负担压力影响，美国2月房价涨幅有所放缓。 衡量全美房价走势的标普凯斯-席勒全国房价指数数据显示，截至2月的12个月里，房价同比上涨**0.7%**，而1月同比涨幅为0.8%。 标普道琼斯指数公司分析师表示：“2月，美国超半数主要都市圈房价同比下跌，这表明楼市降温态势已不再局限于阳光地带，而是呈现大范围蔓延之势。” 报告指出，美国通胀涨幅已连续九个月超过全国房价涨幅。 在本
 
 ## 正文
 
-北方暖热升级多地将冲击30℃ 五一假期新一轮大范围降雨来袭 中国天气网讯 今天(4月30日)是五一假期前最后一个工作日，南方大部地区降雨暂歇，气温有所回升，华北、东北等多地气温将冲击30℃，或创今年来新高。
+受购房负担压力影响，美国2月房价涨幅有所放缓。
 
-不过，随着五一假期开启，新一轮降水过程又将发展，青藏高原、西北地区东部、黄淮南部及南方地区自西向东有大范围降雨，5月2日至3日南方雨势最强。
+衡量全美房价走势的标普凯斯-席勒全国房价指数数据显示，截至2月的12个月里，房价同比上涨**0.7%**，而1月同比涨幅为0.8%。
 
-五一假期新一轮降水发展 南方2日至3日迎强降雨 4月26日夜间开始的南方强降雨过程，给广西、广东、贵州、湖南、江西等多地带来暴雨，不少地方甚至打破当地降雨量纪录。
+标普道琼斯指数公司分析师表示：“2月，美国超半数主要都市圈房价同比下跌，这表明楼市降温态势已不再局限于阳光地带，而是呈现大范围蔓延之势。
 
-昨天这轮过程有所减弱，但上海东部、浙江、福建东部和北部、广东东部及台湾岛北部等地出现大雨或暴雨，广东珠海、河源、潮州等局地遭遇大暴雨。
+” 报告指出，美国通胀涨幅已连续九个月超过全国房价涨幅。
 
-今天，南方降雨过程基本结束，全国大部地区天气晴好，仅西藏、青海等地有明显降水。
+在本次统计的20座城市中，芝加哥2月房价同比涨幅最高，达5.04%；纽约、克利夫兰紧随其后，同比涨幅分别为4.74%、4.15%。
 
-预计，西藏中北部、青海大部、川西高原北部、新疆南疆西部山区等地部分地区有小到中雪或雨夹雪，其中，西藏北部、青海西南部等地部分地区有大雪；西藏东南部、青海东部、云南西南部、台湾岛等地部分地区有中到大雨，其中，西藏东南部等地部分地区有暴雨。
+丹佛表现垫底，房价同比下跌2.18%。
 
-明天，五一假期将开启，新一轮降水又将发展起来，青藏高原、西北地区东部、华北大部、黄淮南部及南方地区自西向东将有大范围降水过程，其中江南、华南中北部等地有大到暴雨，局地大暴雨，部分地区伴有雷暴大风、短时强降水等强对流天气，强降雨时段主要在5月2日至3日。
-
-具体来看，明天降雨主要集中在青藏高原、西北地区东部、西南地区等地，预计内蒙古东北部、黑龙江西北部、新疆南疆西部山区、西藏中部、青海东部和南部、川西高原北部、甘肃河西等地部分地区有小到中雪或雨夹雪；西藏东南部、陕西南部、湖北西部、重庆大部、四川北部和东部等地部分地区有中到大雨，其中，西藏东南部等地部分地区有暴雨。
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-30 02:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
-- 2026-06-30 02:15 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 01:59 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-30 02:01 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 02:09 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 01:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 02:07 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 02:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 01:56 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 01:57 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 02:17 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-30 02:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 02:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-30 01:54 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 02:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 02:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-30 01:59 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 01:54 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 02:10 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 02:05 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:12 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 02:22 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-30 01:56 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 02:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-30 02:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-30 02:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/73999.shtml)
-- 2026-06-30 02:16 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/9847783503.shtml)
-- 2026-06-30 01:52 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/2043829.shtml)
-- 2026-06-30 02:01 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/3889674266.shtml)
-- 2026-06-30 01:49 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/6425091780.shtml)
-- 2026-06-30 02:15 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/015628755.shtml)
-- 2026-06-30 02:04 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/090902207826.shtml)
-- 2026-06-30 01:56 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/66575071.shtml)
-- 2026-06-30 02:17 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/1083680596.shtml)
-- 2026-06-30 01:49 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/407923873.shtml)
-- 2026-06-30 02:10 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/78762687.shtml)
-- 2026-06-30 02:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/986073.shtml)
-- 2026-06-30 02:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/73239.shtml)
-- 2026-06-30 02:08 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/08110788673.shtml)
-- 2026-06-30 01:55 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/81723738.shtml)
+- 2026-06-30 02:06 - [“十五五”优质本科扩容](http://www.share.kurohicncr.top/Article/details/7827445521.shtml)
+- 2026-06-30 01:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/97802489.shtml)
+- 2026-06-30 02:20 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/285319331.shtml)
+- 2026-06-30 01:56 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/2363736405.shtml)
+- 2026-06-30 02:23 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/0826404637.shtml)
+- 2026-06-30 02:16 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/157500559.shtml)
+- 2026-06-30 02:01 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/106865.shtml)
+- 2026-06-30 01:59 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/781615855.shtml)
+- 2026-06-30 02:03 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/1618313982.shtml)
+- 2026-06-30 02:00 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/686828997467.shtml)
+- 2026-06-30 02:00 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/67406.shtml)
+- 2026-06-30 02:09 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/2888632.shtml)
+- 2026-06-30 02:17 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/5026724.shtml)
+- 2026-06-30 01:57 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/29690.shtml)
+- 2026-06-30 02:17 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/55535867996.shtml)

@@ -1,59 +1,55 @@
-# 年薪297万的王良卸任，招商银行新行长浮出水面
+# 黑龙江伊春：产品溯源+行业标准 为桦树汁产业护航
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-来源：银瑞社 招商银行最新召开的全行干部大会，透出一个重大消息。 招商银行行长王良因年龄原因卸任，而原副行长、招商金控总经理王小青接任招商银行党委书记，后续将接任行长一职。 王良从2022年临危受命，接过了招商银行行长一职，至今已有四年时间。 彼时，招商银行面临原行长田惠宇被查的舆论危机，老将王良成为“救火队长”，稳定了这场震动。 2022年-2025年，王良年薪分别为642.
+发布时间：2026年04月28日 11:33 来源：中国新闻网 4月27日，黑龙江伊春铁力市，2026年黑龙江省白桦树汁产业高质量发展大会召开。大会汇聚行业专家、企业代表与相关部门负责人，活动聚焦行业标准制定、科技研发、品牌打造，助力产业规范化、标准化发展。在现场，完成研发基地授牌、区域品牌授权等多项内容，同步推广桦树汁产品责任保险与溯源体系建设。 近年来，黑龙江伊春坐拥优质森
 
 ## 正文
 
-来源：银瑞社 招商银行最新召开的全行干部大会，透出一个重大消息。
+发布时间：2026年04月28日 11:33 来源：中国新闻网 4月27日，黑龙江伊春铁力市，2026年黑龙江省白桦树汁产业高质量发展大会召开。
 
-招商银行行长王良因年龄原因卸任，而原副行长、招商金控总经理王小青接任招商银行党委书记，后续将接任行长一职。
+大会汇聚行业专家、企业代表与相关部门负责人，活动聚焦行业标准制定、科技研发、品牌打造，助力产业规范化、标准化发展。
 
-王良从2022年临危受命，接过了招商银行行长一职，至今已有四年时间。
+在现场，完成研发基地授牌、区域品牌授权等多项内容，同步推广桦树汁产品责任保险与溯源体系建设。
 
-彼时，招商银行面临原行长田惠宇被查的舆论危机，老将王良成为“救火队长”，稳定了这场震动。
+近年来，黑龙江伊春坐拥优质森林生态资源，深耕桦树汁特色产业，产业规模与质量效益实现双提升，已成为全省白桦树汁核心产区和技术标准创新策源地。
 
-2022年-2025年，王良年薪分别为642.5万元、345.3万元、296.2万元、297.1万元，下滑明显。
+黑龙江省轻工业技术协会常务副会长赵云财表示：“行业制定标准，避免恶性价格竞争的同时，倒逼企业技术升级、产出优质产品，对区域品牌的建设有重大意义。
 
-算下来，王良是招商银行历任行长里面，履职时间最短的一任。
-
-招商银行首任行长王世祯，履职时间12年，推出“一卡通”在国内率先实现一卡多户功能，而任期最长的是马蔚华，履职时间超过了14年，一举奠定了招商银行“零售之王”的地位，并推动A+H股上市。
-
-王良年龄不小，现年已经61岁，进入招商银行工作已有超30年的时间。
+” (制作 田德雨) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 02:00 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
-- 2026-06-30 02:10 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 02:15 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 02:07 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 02:17 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 01:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 02:01 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 02:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 01:55 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
-- 2026-06-30 01:56 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 02:14 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 02:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 02:05 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-30 01:55 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 02:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 02:17 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 02:07 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 02:08 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 02:06 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 02:17 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 02:10 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 02:15 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-30 02:18 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 02:04 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 01:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 02:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/05336.shtml)
-- 2026-06-30 02:03 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/133987.shtml)
-- 2026-06-30 01:51 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/511171914275.shtml)
-- 2026-06-30 01:58 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/6555449.shtml)
-- 2026-06-30 01:53 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.kurohicncr.top/Article/details/0844856334.shtml)
-- 2026-06-30 02:14 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/70285.shtml)
-- 2026-06-30 01:57 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/877154472.shtml)
-- 2026-06-30 02:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/896560870.shtml)
-- 2026-06-30 01:55 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/3186595932.shtml)
-- 2026-06-30 02:01 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/5735582.shtml)
-- 2026-06-30 02:12 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/44602.shtml)
-- 2026-06-30 01:58 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/8185008004.shtml)
-- 2026-06-30 02:05 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/91575913.shtml)
-- 2026-06-30 01:49 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/72333267.shtml)
-- 2026-06-30 02:00 - [巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/6040765472.shtml)
+- 2026-06-30 02:05 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/99905126820.shtml)
+- 2026-06-30 02:04 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/746716848.shtml)
+- 2026-06-30 02:02 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/4443188022.shtml)
+- 2026-06-30 02:13 - [日本16强魔咒](http://www.blog.minike.top/Article/details/6005006523.shtml)
+- 2026-06-30 02:10 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/53917005.shtml)
+- 2026-06-30 02:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/6228664008.shtml)
+- 2026-06-30 01:54 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/3724645084.shtml)
+- 2026-06-30 01:59 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/307391180.shtml)
+- 2026-06-30 01:59 - [沙丘](http://www.share.minike.top/Article/details/701797503.shtml)
+- 2026-06-30 02:22 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/222815.shtml)
+- 2026-06-30 02:16 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/9042937130.shtml)
+- 2026-06-30 02:06 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/801762259.shtml)
+- 2026-06-30 02:19 - [男子诋毁袁隆平科研成果被刑拘](http://www.share.minike.top/Article/details/5071310056.shtml)
+- 2026-06-30 01:59 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/050451249060.shtml)
+- 2026-06-30 02:12 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/747707269251.shtml)

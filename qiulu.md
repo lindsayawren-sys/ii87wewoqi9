@@ -1,59 +1,59 @@
-# 浙商证券2.2亿元诉讼拷问风控有效性 去年资管规模、收入、收益率皆下降 若无国都并表将跑输行业
+# 港股午评：恒指跌0.66% 科指跌1.23% 科网股普跌 锂电池股下挫 生物医药股逆势大涨
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：图灵 近日，浙商证券发布2025年年报以及2026年一季报，年报称业绩创下历史新高。 但仔细计算发现，如果没有并表国都证券，浙商证券2025年的营收、归母净利润增速将跑输行业。国都证券在“券商大年”营收、净利润皆出现下降，尤其自营收入在行情火热的2025年出现了近30%的
+4月28日消息，港股三大指数集体下跌。截至午间收盘，恒生指数跌0.66%，报25754.65，恒生科技指数跌1.23%，国企指数跌0.94%。盘面上，科网股普跌，快手、小米跌超2%，阿里巴巴跌2%，联想、哔哩哔哩、美团跌超1%；生物医药股大涨，药明康德涨超14%；中资券商股普涨，国联民生涨超5%；锂电池股下挫，宁德时代跌超6%；黄金股走弱，灵宝黄金跌超5%。 生物医药股大涨，药
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月28日消息，港股三大指数集体下跌。
 
-出品：新浪财经上市公司研究院 作者：图灵 近日，浙商证券发布2025年年报以及2026年一季报，年报称业绩创下历史新高。
+截至午间收盘，恒生指数跌0.66%，报25754.65，恒生科技指数跌1.23%，国企指数跌0.94%。
 
-但仔细计算发现，如果没有并表国都证券，浙商证券2025年的营收、归母净利润增速将跑输行业。
+盘面上，科网股普跌，快手、小米跌超2%，阿里巴巴跌2%，联想、哔哩哔哩、美团跌超1%；生物医药股大涨，药明康德涨超14%；中资券商股普涨，国联民生涨超5%；锂电池股下挫，宁德时代跌超6%；黄金股走弱，灵宝黄金跌超5%。
 
-国都证券在“券商大年”营收、净利润皆出现下降，尤其自营收入在行情火热的2025年出现了近30%的下滑。
+生物医药股大涨，药明康德涨超14%。
 
-其中，国都证券固收投资业务收入同比大降65.5%。
+药明康德Q1营收同比增长28.8%至124.4亿元，扣非净利暴增83.6%。
 
-浙商证券自营投资业务和经纪业务收入占比合计高达80%，“靠行情吃饭”特征明显。
+核心驱动力来自化学业务，其中小分子D&M业务增速超80%，TIDES业务带动公司提前启动常州新基地建设。
 
-反观公司资管业务收入，不仅占比低（4.82%）还出现下降，资管规模也逆行业趋势下降，并且资管收益率也同比下降。
+凭借CRDMO一体化模式，公司毛利率大幅跃升至50.4%，在手订单近600亿元。
 
-此外，浙商资管深陷2.2亿元的诉讼，前期尽调及风控合规面临很大争议，去年年底还因合规问题被出具警示函。
+中资券商股普涨，国联民生涨超5%。
 
 ## 相关推荐
 
-- 2026-06-30 02:15 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 01:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 02:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 02:00 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 02:02 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 02:14 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-30 01:50 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-30 01:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 02:10 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 02:01 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-30 01:55 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 02:02 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 02:10 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 01:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 02:02 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 02:06 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 02:07 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 02:19 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 01:58 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 02:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 02:17 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 02:11 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 02:16 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 02:23 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 02:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 02:07 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:53 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/05916282057.shtml)
-- 2026-06-30 02:08 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/00576159.shtml)
-- 2026-06-30 01:48 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/95773406.shtml)
-- 2026-06-30 02:01 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/7199422474.shtml)
-- 2026-06-30 01:49 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/329346.shtml)
-- 2026-06-30 02:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/764932787.shtml)
-- 2026-06-30 01:58 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/545252375.shtml)
-- 2026-06-30 02:01 - [巴西vs日本](http://www.share.minike.top/Article/details/99935483467.shtml)
-- 2026-06-30 02:12 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/49505266.shtml)
-- 2026-06-30 01:50 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/870322154.shtml)
-- 2026-06-30 02:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/6823546.shtml)
-- 2026-06-30 02:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/090947133.shtml)
-- 2026-06-30 01:59 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/897360122.shtml)
-- 2026-06-30 02:07 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/882710176516.shtml)
-- 2026-06-30 01:51 - [千与千寻](https://www.share.minike.top/Article/details/183668169.shtml)
+- 2026-06-30 02:19 - [内马尔替补](http://www.blog.minike.top/Article/details/8706458639.shtml)
+- 2026-06-30 02:22 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/3677807431.shtml)
+- 2026-06-30 01:58 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/708511738230.shtml)
+- 2026-06-30 02:01 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/1819358.shtml)
+- 2026-06-30 02:11 - [TFing最具影响力音乐厂牌](http://www.share.minike.top/Article/details/797633006203.shtml)
+- 2026-06-30 01:55 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/05826707375.shtml)
+- 2026-06-30 02:18 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/8373207.shtml)
+- 2026-06-30 02:01 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/1257246.shtml)
+- 2026-06-30 02:09 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/876893036.shtml)
+- 2026-06-30 01:55 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/3048206.shtml)
+- 2026-06-30 01:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/3836272605.shtml)
+- 2026-06-30 01:54 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/62359239.shtml)
+- 2026-06-30 01:58 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/29390.shtml)
+- 2026-06-30 02:09 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/216791756.shtml)
+- 2026-06-30 02:10 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/15780.shtml)

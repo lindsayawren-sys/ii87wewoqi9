@@ -1,56 +1,57 @@
-# 【劳动者之歌】以高质量劳动创造在新征程上展现新作为
+# 百傲化学（603360）被证监会立案调查，受损股民可索赔
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-央视新闻客户端消息(新闻联播)：劳动谱写时代华章，奋斗创造美好未来。在中国式现代化的伟大实践中，一批批先进模范人物立足岗位、奋发进取、拼搏奉献，以昂扬姿态奋进新征程、建功新时代。眼下，全国劳动模范唐世彪和团队正在加速推进新一代量子密钥分发设备研发，瞄准小型化、芯片化、集成化目标，持续迭代升级关键软硬件产品。 科技创新赋能未来发展，耕耘大地端稳中国饭碗。在北大荒的试验田里，全国劳
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，百傲化学（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。公告显示：大连百傲化学股份有限公司于近日收到中国证券监督管理委员会《立案告知书》。因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。目前具体违法事由尚未披露。
 
 ## 正文
 
-央视新闻客户端消息(新闻联播)：劳动谱写时代华章，奋斗创造美好未来。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，百傲化学（维权）发布《关于收到中国证券监督管理委员会立案告知书的公告》。
 
-在中国式现代化的伟大实践中，一批批先进模范人物立足岗位、奋发进取、拼搏奉献，以昂扬姿态奋进新征程、建功新时代。
+公告显示：大连百傲化学股份有限公司于近日收到中国证券监督管理委员会《立案告知书》。
 
-眼下，全国劳动模范唐世彪和团队正在加速推进新一代量子密钥分发设备研发，瞄准小型化、芯片化、集成化目标，持续迭代升级关键软硬件产品。
+因涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案调查。
 
-科技创新赋能未来发展，耕耘大地端稳中国饭碗。
+目前具体违法事由尚未披露。
 
-在北大荒的试验田里，全国劳动模范胡喜平和团队选育出的大豆优质新品种即将破土萌芽。
+上海百悦律师事务所牛彬律师表示，百傲化学遭证监会立案，投资者或可索赔。
 
-过去一年，他带领团队聚焦寒地高产高油、耐盐碱等育种核心难题，创新攻关，不断刷新寒地大豆高产纪录。
+暂定：于2026年4月28日之前买入百傲化学，且在2026年4月28日之后卖出或持有该股票的亏损投资者符合索赔条件。
 
-从业30年来，胡喜平跑遍了全国上百个试验田，选育出78个自主品种，实现了从传统育种到现代生物育种的跨越。
+初步索赔范围：上市后到2026年4月27日之间买入股票，且在2026年4月28日收盘时卖出或仍持有。
 
-锚定“十五五”，站在新的历史起点，优秀劳动者们以实干扛起责任，以坚守诠释担当，积极投身加快推进中国式现代化的火热实践中。
+（最终以法院裁决为准）（百傲化学维权入口） 索赔材料： 一、买卖百傲化学（603360）股票的对账单原件 （1）对账单原件需要加盖证券公司营业部印章； （2）对账单从第一次买入百傲化学（603360）股票开始打到打印日当天，所有该股票的交易记录，目前仍持有该股票的投资者还须显示剩余持股总数。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 02:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 02:04 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 01:59 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 01:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 02:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 02:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-30 02:02 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-30 02:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 01:57 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 02:20 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-30 02:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 02:01 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 02:09 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-30 02:10 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 02:13 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-30 02:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 02:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-30 02:03 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 02:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 01:56 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:53 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/183765284650.shtml)
-- 2026-06-30 01:56 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/90065734400.shtml)
-- 2026-06-30 02:04 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/267680950399.shtml)
-- 2026-06-30 02:10 - [斗破苍穹](https://www.blog.minike.top/Article/details/79612656.shtml)
-- 2026-06-30 01:48 - [送你一朵小红花](https://www.blog.minike.top/Article/details/6380503.shtml)
-- 2026-06-30 01:54 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/986510.shtml)
-- 2026-06-30 02:06 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/8497370.shtml)
-- 2026-06-30 02:06 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/06487497875.shtml)
-- 2026-06-30 02:14 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/17399.shtml)
-- 2026-06-30 01:58 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/619165.shtml)
-- 2026-06-30 01:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/675741.shtml)
-- 2026-06-30 02:16 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/372656.shtml)
-- 2026-06-30 01:59 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/86126073.shtml)
-- 2026-06-30 02:13 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/60651314.shtml)
-- 2026-06-30 02:07 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/40359915662.shtml)
+- 2026-06-30 02:11 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/9803879.shtml)
+- 2026-06-30 02:11 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/21076820.shtml)
+- 2026-06-30 02:19 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/31340.shtml)
+- 2026-06-30 02:03 - [刘宇宁 好听](http://www.share.minike.top/Article/details/770796892.shtml)
+- 2026-06-30 02:18 - [我们的少年时代2](http://www.share.minike.top/Article/details/03253180.shtml)
+- 2026-06-30 02:07 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/02966476.shtml)
+- 2026-06-30 02:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/80562575355.shtml)
+- 2026-06-30 02:17 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/061959756279.shtml)
+- 2026-06-30 02:00 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/02329962957.shtml)
+- 2026-06-30 01:54 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/77545.shtml)
+- 2026-06-30 02:03 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/889491690180.shtml)
+- 2026-06-30 02:07 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/87047.shtml)
+- 2026-06-30 02:05 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/38764983326.shtml)
+- 2026-06-30 02:20 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/677383008.shtml)
+- 2026-06-30 01:59 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/75311.shtml)

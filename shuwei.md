@@ -1,56 +1,56 @@
-# ZFX山海证券:FOMC会议前金价波动加大
+# “农商行”们，为何集体增资？
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-4月29日，国际金价在美联储议息会议前夕波动明显放大。ZFX山海证券表示，现货黄金价格回落至约4600美元/盎司，三周低位附近的关键支撑面临考验。市场对联邦公开市场委员会4月28日至29日会议结果普遍预期按兵不动，但对鲍威尔记者会的措辞高度敏感，金价短期走势取决于政策路径预期的微妙变化。 从市场预期看，本轮议息会议为非SEP会议。ZFX山海证券认为，由于不更新点阵图与经济预测，
+近日，杭州银行、顺德农商银行、中信银行等多家银行变更注册资本获得监管部门批复同意。据南都湾财社记者不完全统计发现，今年以来，至少69家银行变更注册资本或变更注册资本方案的申请，获得监管部门批复同意。这些银行以农商行为主，不少银行通过定向募股方式，引入新股东或获大股东增持。 银行密集增资，农商行居多 近日，多家银行变更注册资本获得监管部门批复同意。 4月24日，杭州银行变更注册资
 
 ## 正文
 
-4月29日，国际金价在美联储议息会议前夕波动明显放大。
+近日，杭州银行、顺德农商银行、中信银行等多家银行变更注册资本获得监管部门批复同意。
 
-ZFX山海证券表示，现货黄金价格回落至约4600美元/盎司，三周低位附近的关键支撑面临考验。
+据南都湾财社记者不完全统计发现，今年以来，至少69家银行变更注册资本或变更注册资本方案的申请，获得监管部门批复同意。
 
-市场对联邦公开市场委员会4月28日至29日会议结果普遍预期按兵不动，但对鲍威尔记者会的措辞高度敏感，金价短期走势取决于政策路径预期的微妙变化。
+这些银行以农商行为主，不少银行通过定向募股方式，引入新股东或获大股东增持。
 
-从市场预期看，本轮议息会议为非SEP会议。
+银行密集增资，农商行居多 近日，多家银行变更注册资本获得监管部门批复同意。
 
-ZFX山海证券认为，由于不更新点阵图与经济预测，所有政策信号都将通过会议声明和新闻发布会传递，因此市场可能放大解读边际表态。
+4月24日，杭州银行变更注册资本获得国家金融监督管理总局浙江监管局批复同意。
 
-一季度GDP数据、初请失业金人数等高频指标的同步公布也将影响美元与美债收益率走势，从而间接对黄金估值构成扰动。
+该行增加注册资本13.19亿元，由59.30亿元变更为72.49亿元。
 
-从中长期视角看，地缘风险与通胀粘性仍是支撑金价的关键变量。
+4月20日，国家金融监督管理总局佛山监管分局发布批复称，同意顺德农商银行增加注册资本2.54亿元，由50.82亿元变更为53.36亿元。
 
-中东能源供应受阻持续推升输入型通胀压力，央行抗通胀的政策选择空间受限，避险买盘维持稳定。
+4月10日，中信银行变更注册资本也获得国家金融监督管理总局同意。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 01:49 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 01:51 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-30 02:17 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 01:57 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 01:58 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 01:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-30 02:13 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-30 02:02 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:59 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 01:57 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 02:19 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 02:23 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 02:09 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 02:08 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-30 01:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-30 01:55 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
+- 2026-06-30 02:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 01:57 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 02:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/564642175.shtml)
-- 2026-06-30 02:03 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/1253171223.shtml)
-- 2026-06-30 02:04 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/474355589.shtml)
-- 2026-06-30 02:10 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/728739211128.shtml)
-- 2026-06-30 01:48 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/378039076251.shtml)
-- 2026-06-30 01:57 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/143702963.shtml)
-- 2026-06-30 01:49 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/382618085912.shtml)
-- 2026-06-30 01:54 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/50533349475.shtml)
-- 2026-06-30 02:11 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/62672827755.shtml)
-- 2026-06-30 02:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/435217473.shtml)
-- 2026-06-30 01:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/743137459.shtml)
-- 2026-06-30 02:00 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/86110018.shtml)
-- 2026-06-30 01:50 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/7114263.shtml)
-- 2026-06-30 02:03 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/6769638.shtml)
-- 2026-06-30 02:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/6178163384.shtml)
+- 2026-06-30 01:55 - [千香](http://www.share.minike.top/Article/details/65660.shtml)
+- 2026-06-30 02:03 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/53558.shtml)
+- 2026-06-30 02:15 - [日本 高位逼抢](https://www.share.minike.top/Article/details/7496847001.shtml)
+- 2026-06-30 01:58 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/1525591.shtml)
+- 2026-06-30 01:55 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/630026961.shtml)
+- 2026-06-30 02:06 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/8152487.shtml)
+- 2026-06-30 02:10 - [日本领先巴西](http://www.share.kurohicncr.top/Article/details/0222408548.shtml)
+- 2026-06-30 02:01 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/7800648158.shtml)
+- 2026-06-30 02:14 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/933051501013.shtml)
+- 2026-06-30 02:08 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/48287511.shtml)
+- 2026-06-30 02:20 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/98545.shtml)
+- 2026-06-30 02:01 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.kurohicncr.top/Article/details/650625.shtml)
+- 2026-06-30 02:18 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/45539962840.shtml)
+- 2026-06-30 02:12 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/601410882403.shtml)
+- 2026-06-30 02:10 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/02686010321.shtml)

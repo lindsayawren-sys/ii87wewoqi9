@@ -1,57 +1,56 @@
-# “120W”充电头玩“文字游戏” 认准参数一眼避坑
+# 大湾区采购商赴广西百色考察 推动优质芒果产销对接
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-充电头作为手机充电的重要工具之一，不仅决定了手机的实际充电速度，还关乎手机充电的安全问题。记者日前调查发现，市售的不少标称 “120W”的手机快充头，并非手机充电头的实际输出功率，“120W”只是商品的名称或型号名称而已。手机快充头玩“文字游戏”，暗藏哪些风险？消费者如何避坑？来看记者的报道。 “120W”不是实际功率 只是商品名或型号名 在电商平台内搜索“手机快充头”关键词可
+中新网广州4月28日电 (记者 程景伟)据广东区域协作消费帮扶产品交易中心消息，多家粤港澳大湾区重点采购商代表近日深入广西百色革命老区腹地——田东县、田阳区，展开了“农副产品直采直供基地”专项调研考察，重点推动百色优质芒果销往大湾区。 此次调研考察活动由粤桂协作办公室、粤桂协作工作队组织，广东区域协作消费帮扶产品交易中心运营合作方牵头带队，是粤桂协作落实助农增收行动、深化消费帮
 
 ## 正文
 
-充电头作为手机充电的重要工具之一，不仅决定了手机的实际充电速度，还关乎手机充电的安全问题。
+中新网广州4月28日电 (记者 程景伟)据广东区域协作消费帮扶产品交易中心消息，多家粤港澳大湾区重点采购商代表近日深入广西百色革命老区腹地——田东县、田阳区，展开了“农副产品直采直供基地”专项调研考察，重点推动百色优质芒果销往大湾区。
 
-记者日前调查发现，市售的不少标称 “120W”的手机快充头，并非手机充电头的实际输出功率，“120W”只是商品的名称或型号名称而已。
+此次调研考察活动由粤桂协作办公室、粤桂协作工作队组织，广东区域协作消费帮扶产品交易中心运营合作方牵头带队，是粤桂协作落实助农增收行动、深化消费帮扶的重要举措。
 
-手机快充头玩“文字游戏”，暗藏哪些风险？
+粤桂协作工作队以打造“订单农业+机械化生产+冷链加工+全渠道销售”高标准直采直供基地为抓手，把大湾区市场需求“送”到田间地头，推动生产端提质升级，降低中间流通成本，切实解决农产品“丰收滞销、淡季缺货”痛点。
 
-消费者如何避坑？
+在百色田东县，年产量40.42万吨的“田东香芒”不仅是中国-欧盟互认地理标志农产品，更是三十余万亩土地上农户们的“金饭碗”。
 
-来看记者的报道。
+在田东县林逢镇福兰村，2万亩芒果林蔚为壮观。
 
-“120W”不是实际功率 只是商品名或型号名 在电商平台内搜索“手机快充头”关键词可以发现，有不少“标称120W”或者“67W”的快充头在售卖，商家宣称此类快充头支持多种类型的快充，速度快，价格低。
+“这正是大湾区市场渴求的高品质产品源头。
 
-标称“120超级闪充”的充电头产品，介绍为适用于多个品牌的手机充电，号称使用了“充电黑科技”，更高效更小巧，安全快充不发烫。
+”广东中荔农业集团代表称，将导入成熟的品牌运营与线上销售网络，让百色好芒果卖出应有的价格。
 
-为了进一步验证，记者从主流电商平台，分别购买了11款不同品牌的快充头，商品到货后记者发现，所有快充头的包装或者本体上，都标注着“120W”或者“120W supercharge(超级快充)”等字样。
+在林锋镇公靖村的3665亩高标准香芒种植基地，水肥一体化灌溉、山顶产业路等配套设施齐全。
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-30 01:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 02:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 02:06 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 02:16 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 02:13 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 02:14 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 02:03 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-30 01:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 02:04 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 01:58 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 02:10 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 02:20 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 02:20 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 02:19 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-30 02:16 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 02:07 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 02:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-30 01:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 02:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 02:04 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/48590020.shtml)
-- 2026-06-30 01:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/7733834.shtml)
-- 2026-06-30 01:54 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/818207886286.shtml)
-- 2026-06-30 02:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/8888810.shtml)
-- 2026-06-30 02:08 - [青春环游记第三季](http://www.share.minike.top/Article/details/5338194.shtml)
-- 2026-06-30 01:49 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/80639452913.shtml)
-- 2026-06-30 01:48 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/497635024.shtml)
-- 2026-06-30 02:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/610667750.shtml)
-- 2026-06-30 02:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/79579.shtml)
-- 2026-06-30 02:03 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/51052134.shtml)
-- 2026-06-30 02:16 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/0395846817.shtml)
-- 2026-06-30 01:59 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/739837.shtml)
-- 2026-06-30 02:13 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/6453308388.shtml)
-- 2026-06-30 01:54 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/8549740.shtml)
-- 2026-06-30 02:02 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/3694826.shtml)
+- 2026-06-30 02:14 - [好像看到了人类带孩子崩溃的样子](http://www.share.minike.top/Article/details/534286.shtml)
+- 2026-06-30 02:06 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/0869528.shtml)
+- 2026-06-30 01:58 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/210914365.shtml)
+- 2026-06-30 02:18 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/139058.shtml)
+- 2026-06-30 02:07 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/38186199.shtml)
+- 2026-06-30 02:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/846726388.shtml)
+- 2026-06-30 02:03 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/901100038310.shtml)
+- 2026-06-30 02:18 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/237568828.shtml)
+- 2026-06-30 02:18 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/802749705471.shtml)
+- 2026-06-30 02:12 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/87265.shtml)
+- 2026-06-30 02:21 - [田曦薇没招了](https://www.blog.minike.top/Article/details/667989889.shtml)
+- 2026-06-30 02:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/20834149241.shtml)
+- 2026-06-30 02:15 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/820650279.shtml)
+- 2026-06-30 02:21 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/328294.shtml)
+- 2026-06-30 02:15 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/044914360.shtml)

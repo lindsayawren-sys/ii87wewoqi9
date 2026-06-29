@@ -1,44 +1,60 @@
-# 特朗普将“上”美国护照
+# 伊朗储油空间最快12天填满，5月中旬前或再减产150万桶/日
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-纪念建国250周年特朗普肖像将印上美国护照 美国国务院28日说，为纪念美国建国250周年，美国务院将推出一版限量版护照，护照内将印有现任总统特朗普的肖像。（记者杨伶 熊茂伶） 来源 | 新华社 审核 | 邓媛 编辑 | 许海婷 田欣责任编辑：郭建
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：金十 能源分析机构Kpler在周一发布报告称，伊朗当前可用的原油储存能力正在快速消耗，剩余空间仅能支撑约12至22天。这一变化意味着，这个曾是欧佩克第二大产油国的国家，可能在短期内被迫进一步压缩产量。 报告指出，若库存压力持续，伊朗或需在5月中旬之前对其当前产量再削减150万桶/日，即从目前水平下降一
 
 ## 正文
 
-纪念建国250周年特朗普肖像将印上美国护照 美国国务院28日说，为纪念美国建国250周年，美国务院将推出一版限量版护照，护照内将印有现任总统特朗普的肖像。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-（记者杨伶 熊茂伶） 来源 | 新华社 审核 | 邓媛 编辑 | 许海婷 田欣责任编辑：郭建
+来源：金十 能源分析机构Kpler在周一发布报告称，伊朗当前可用的原油储存能力正在快速消耗，剩余空间仅能支撑约12至22天。
+
+这一变化意味着，这个曾是欧佩克第二大产油国的国家，可能在短期内被迫进一步压缩产量。
+
+报告指出，若库存压力持续，伊朗或需在5月中旬之前对其当前产量再削减150万桶/日，即从目前水平下降一半以上，到5月中旬降至每日120至130万桶之间。
+
+储存空间趋紧，正在成为限制其继续生产的重要约束因素。
+
+此前，高盛集团上周表示，伊朗的每日原油产量已减少了多达250万桶。
+
+该投行还指出，波斯湾地区的石油供应将需要“数月”时间才能恢复。
+
+自2月28日冲突爆发以来，沙特、伊拉克、科威特和阿联酋等邻国产油国也不得不减少了产出。
 
 ## 相关推荐
 
-- 2026-06-30 02:03 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-30 02:12 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 02:04 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-30 01:53 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 02:16 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-30 02:09 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 02:10 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 02:13 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 02:11 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 01:57 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 02:00 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 02:13 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 02:07 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 01:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 02:14 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 02:05 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 02:02 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 02:11 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 02:14 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 02:21 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 02:07 - [曾沛慈和老公一起回台湾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-30 02:01 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 02:21 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/23248317.shtml)
-- 2026-06-30 01:54 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/967769358629.shtml)
-- 2026-06-30 01:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/0273993.shtml)
-- 2026-06-30 02:11 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/38018.shtml)
-- 2026-06-30 02:11 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/763144178.shtml)
-- 2026-06-30 02:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/1889847.shtml)
-- 2026-06-30 01:50 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/526838.shtml)
-- 2026-06-30 02:05 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/0370280251.shtml)
-- 2026-06-30 01:55 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/87994209921.shtml)
-- 2026-06-30 02:04 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/85878945.shtml)
-- 2026-06-30 02:16 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/518127633947.shtml)
-- 2026-06-30 01:51 - [金刚川](https://www.share.minike.top/Article/details/325929827.shtml)
-- 2026-06-30 02:07 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/89807.shtml)
-- 2026-06-30 01:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/535934718.shtml)
-- 2026-06-30 02:17 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/32637060.shtml)
+- 2026-06-30 02:17 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/4173367.shtml)
+- 2026-06-30 02:10 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/4130678.shtml)
+- 2026-06-30 02:12 - [第一炉香](https://www.share.minike.top/Article/details/92755.shtml)
+- 2026-06-30 02:16 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/7815706.shtml)
+- 2026-06-30 02:15 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/197183327646.shtml)
+- 2026-06-30 02:21 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/155136078881.shtml)
+- 2026-06-30 02:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/7441571866.shtml)
+- 2026-06-30 02:07 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/6187547.shtml)
+- 2026-06-30 02:19 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/126822.shtml)
+- 2026-06-30 02:14 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/39628377695.shtml)
+- 2026-06-30 02:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/054015.shtml)
+- 2026-06-30 02:22 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/13156.shtml)
+- 2026-06-30 01:56 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/10631.shtml)
+- 2026-06-30 02:11 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/94519.shtml)
+- 2026-06-30 02:11 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/649353671964.shtml)

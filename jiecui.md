@@ -1,58 +1,59 @@
-# 郑庆华：“难险脏繁杂情”六大场景是未来智能工程重点突破方向
+# 毕马威失去美国国防部合同，计划退出美国政府审计业务
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网福州4月29日电 (叶艺琳)“过去工具只是改变怎么做，今天人工智能正在参与并回答做什么，以及为何重要的问题。”29日，在福建福州开幕的第九届数字中国建设峰会主论坛上，中国工程院院士、同济大学党委书记郑庆华指出，人工智能赋能工程应用，当前最应聚焦“难、险、脏、繁、杂、情”六大人类不适宜场景，这些应用场景的突破将从根本上支撑生产力的革命性跃升和生产关系的重塑。郑庆华表示，人工
+据知情人士称，四大会计师事务所之一的毕马威（KPMG）在失去与美国国防部价值6000万美元的年度合同后，将关闭其联邦政府审计业务，并重新部署450多名美国员工。 毕马威曾为美国陆军提供近十年的审计服务，然而有报道称，美国国防部现在计划聘请一家新的会计师事务所来监管更大比例的军方账目。 此前，美国国防部连续第八年未能通过年度审计，引发了来自美国国会两党的日益严厉的批评。 美国国防
 
 ## 正文
 
-中新网福州4月29日电 (叶艺琳)“过去工具只是改变怎么做，今天人工智能正在参与并回答做什么，以及为何重要的问题。
+据知情人士称，四大会计师事务所之一的毕马威（KPMG）在失去与美国国防部价值6000万美元的年度合同后，将关闭其联邦政府审计业务，并重新部署450多名美国员工。
 
-”29日，在福建福州开幕的第九届数字中国建设峰会主论坛上，中国工程院院士、同济大学党委书记郑庆华指出，人工智能赋能工程应用，当前最应聚焦“难、险、脏、繁、杂、情”六大人类不适宜场景，这些应用场景的突破将从根本上支撑生产力的革命性跃升和生产关系的重塑。
+毕马威曾为美国陆军提供近十年的审计服务，然而有报道称，美国国防部现在计划聘请一家新的会计师事务所来监管更大比例的军方账目。
 
-郑庆华表示，人工智能既是“工具的革命”也是“革命的工具”，既改变生产力也改变生产关系，推动形成人类智能与机器智能“双螺旋”发展。
+此前，美国国防部连续第八年未能通过年度审计，引发了来自美国国会两党的日益严厉的批评。
 
-他指出，当前以大模型为代表的主要技术仍面临过拟合、幻觉、灾难性遗忘等局限，难以完全满足实际工程应用的可信、可靠、可控的需求。
+美国国防部已决定重组其财务报告，将分散的独立审计数量削减三分之二。
 
-为此，郑庆华详细分析未来工程智能的重点突破方向，即六大人类不适宜的应用场景：一是“难”，面对如大规模的芯片设计、新材料发现等高维复杂系统，突破传统穷举搜索方法的计算极限，实现精准建模与高效优化；二是“险”，在数据稀缺的化工生产、地质灾害等高危场景中，突破传统依赖大量历史样本建模的方式，实现高风险事件可预测、可推演、可验证；三是“脏”，突破传统人工依赖与刚性自动化局限，替代人类在高污染、强腐蚀、视野受限等恶劣环境中作业，实现智能系统长期稳定运行与安全作业；四是“繁”，承接高度重复、极易导致疲劳倦怠的监控、巡检等不适合人类长期值守的任务；五是“杂”，应对交通管制调度等涉及多类信息源、多任务线的复杂统筹；六是“情”，研究灾后心理援助、客户服务等持续高密度人际互动场景的智能共情与情感交互系统，减轻人类情感消耗和心理创伤。
+美国陆军是毕马威联邦审计业务的最大单一客户，该公司也在逐步终止与美国政府其他部门的合同。
 
-郑庆华强调，除六大场景外，在开放复杂环境领域下，上述场景还常常相互叠加、耦合关联，须突破传统静态建模和局部优化方法，实现跨尺度、跨系统的全局协调与实时控制。
+据悉，该公司已将部分员工安排到其他岗位，而其他员工将在2030年最后一份联邦合同到期前转到新的工作岗位。
 
-“总之，人类已经进入智能时代。
-
-我认为，未来将是人有人智、机有机智、各智其智、智智与共的美好时代。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 02:11 - [片寄凉太胖了好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-30 01:48 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 02:02 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 02:16 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 01:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 02:01 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 02:02 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-30 02:10 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 02:01 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
-- 2026-06-30 01:54 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 02:16 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
-- 2026-06-30 01:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 01:59 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 02:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 02:19 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 01:56 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 02:11 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 02:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-30 02:16 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-30 01:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-30 02:19 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-30 02:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 02:08 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 02:09 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 02:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 02:07 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 01:58 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:05 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/441312178.shtml)
-- 2026-06-30 02:02 - [穆祉丞年度人气艺人](http://www.blog.kurohicncr.top/Article/details/940256778710.shtml)
-- 2026-06-30 02:12 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/6640082662.shtml)
-- 2026-06-30 01:50 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/16306357549.shtml)
-- 2026-06-30 01:51 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/55621531453.shtml)
-- 2026-06-30 01:51 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/61663720.shtml)
-- 2026-06-30 02:06 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/4506061003.shtml)
-- 2026-06-30 02:10 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/296103780004.shtml)
-- 2026-06-30 02:03 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/89960056598.shtml)
-- 2026-06-30 02:12 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/4286653.shtml)
-- 2026-06-30 02:08 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/85011550052.shtml)
-- 2026-06-30 01:56 - [我们的少年时代2](https://www.blog.minike.top/Article/details/2263650741.shtml)
-- 2026-06-30 02:05 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/796547677428.shtml)
-- 2026-06-30 01:53 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/925997386703.shtml)
-- 2026-06-30 02:06 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/95708.shtml)
+- 2026-06-30 02:07 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/70794137500.shtml)
+- 2026-06-30 02:01 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/4358824.shtml)
+- 2026-06-30 02:16 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/7173983.shtml)
+- 2026-06-30 02:09 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/280372926175.shtml)
+- 2026-06-30 02:20 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/388808.shtml)
+- 2026-06-30 02:16 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/152363680.shtml)
+- 2026-06-30 02:05 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/257095900396.shtml)
+- 2026-06-30 02:02 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/111581897.shtml)
+- 2026-06-30 01:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/07696981.shtml)
+- 2026-06-30 01:56 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/572877962990.shtml)
+- 2026-06-30 02:07 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/9541678.shtml)
+- 2026-06-30 01:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/17864201392.shtml)
+- 2026-06-30 02:03 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/741893690295.shtml)
+- 2026-06-30 02:12 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/330948.shtml)
+- 2026-06-30 02:01 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/359448.shtml)

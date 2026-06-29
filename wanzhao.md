@@ -1,61 +1,59 @@
-# 长春市南关区侨联走进南关区文化馆开展文化体验活动
+# 星巴克营收、盈利超预期，上调全年业绩指引
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-为进一步凝聚侨心、汇聚侨力，丰富归侨侨眷精神文化生活，增强侨界群众对中华优秀传统文化的认同感与自豪感，4 月 24 日，长春市南关区归国华侨联合会组织侨界代表走进南关区文化馆，开展 “侨心共赴文化之约 携手品鉴艺术之美” 主题文化体验活动。区侨联主席冯佩春，区文化馆馆长高岩，区侨联秘书长于志涛出席活动。活动参观过程中，南关区文化馆为侨界代表们量身打造了传统文化沉浸式体验环节，让
+凭借连续两季度客流量回升的亮眼表现，星巴克于本周二上调了全年可比利润与同店销售增长目标。 首席执行官布莱恩・尼科尔在随公司 2026 财年第二季度财报一同发布的视频中表示：“本季度是星巴克的里程碑时刻，标志着品牌转型正式迎来拐点。” 针对 2026 财年，星巴克将全球及美国同店销售额增长预期，从此前的 3% 上调至至少 5%；同时上调调整后每股收益指引，由原先的每股 2.15–
 
 ## 正文
 
-为进一步凝聚侨心、汇聚侨力，丰富归侨侨眷精神文化生活，增强侨界群众对中华优秀传统文化的认同感与自豪感，4 月 24 日，长春市南关区归国华侨联合会组织侨界代表走进南关区文化馆，开展 “侨心共赴文化之约 携手品鉴艺术之美” 主题文化体验活动。
+凭借连续两季度客流量回升的亮眼表现，星巴克于本周二上调了全年可比利润与同店销售增长目标。
 
-区侨联主席冯佩春，区文化馆馆长高岩，区侨联秘书长于志涛出席活动。
+首席执行官布莱恩・尼科尔在随公司 2026 财年第二季度财报一同发布的视频中表示：“本季度是星巴克的里程碑时刻，标志着品牌转型正式迎来拐点。
 
-活动参观过程中，南关区文化馆为侨界代表们量身打造了传统文化沉浸式体验环节，让侨界代表们近距离感受本土文化的独特魅力。
+” 针对 2026 财年，星巴克将全球及美国同店销售额增长预期，从此前的 3% 上调至至少 5%；同时上调调整后每股收益指引，由原先的每股 2.15–2.40 美元，提升至2.25–2.45 美元。
 
-侨界代表们不时驻足交流，探讨传统文化的保护与传承路径，纷纷表示，此次活动搭建了侨界群众了解本土文化、感受艺术之美的良好平台，不仅加深了对南关区文化建设成果的认识，更激发了大家传承和弘扬中华优秀传统文化的热情。
+财报公布后，星巴克盘后股价大涨约 5%。
 
-大家表示，将充分发挥侨界桥梁纽带作用，当好中华优秀传统文化的传播者，讲好南关故事，为南关区文化事业发展贡献侨界力量。
+结合伦敦证券交易所集团的分析师调研，截至 3 月 29 日的第二财季，星巴克核心业绩与华尔街预期对比如下： 每股收益：调整后为 50 美分，预期为 43 美分； 营收：95.3亿美元，高于预期的91.6亿美元。
 
-此次活动是南关区侨联与区文化馆深化合作、联动共建的一次有益尝试，既是南关区侨联深化“侨心向党” 主题教育、凝聚侨界共识的重要举措，也是推动侨界文化交流、增强侨界凝聚力的生动实践。
+财报显示，星巴克第二财季归属公司净利润为 5.109 亿美元，折合每股收益 0.45 美元；去年同期净利润为 3.842 亿美元，每股收益 0.34 美元。
 
-下一步，南关区侨联将持续深化与区文化馆的合作，依托文化馆优质文化资源，聚焦侨界群众文化需求，策划开展更多形式多样、内容丰富的侨界专属文化活动，打造侨界文化交流新阵地，不断筑牢侨界群众的文化自信，引导广大侨界人士积极投身南关区高质量发展大局。
+剔除重组费用、资产减值及其他非经常性项目后，公司每股收益达 0.50 美元，大幅超出市场预期。
 
-(长春市侨联微信公众号)
+企业净销售额同比增长约 9%，达到 95.3 亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 02:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 02:00 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 02:01 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 02:01 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 02:16 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 01:48 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-30 01:49 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 02:05 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 02:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 02:01 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-30 02:12 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 02:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-30 02:14 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 01:48 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-30 02:07 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-30 01:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 02:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 02:03 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 02:16 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 02:15 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 02:09 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 01:56 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 02:08 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 02:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 02:22 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 02:14 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:05 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/7382783942.shtml)
-- 2026-06-30 02:05 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/5047988698.shtml)
-- 2026-06-30 02:14 - [美股](http://www.share.kurohicncr.top/Article/details/39837155.shtml)
-- 2026-06-30 02:02 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/869516628234.shtml)
-- 2026-06-30 01:54 - [刘念回应](https://www.share.minike.top/Article/details/64049.shtml)
-- 2026-06-30 01:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/41960630966.shtml)
-- 2026-06-30 01:52 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/64496.shtml)
-- 2026-06-30 01:54 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/68958765.shtml)
-- 2026-06-30 02:03 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/69599.shtml)
-- 2026-06-30 02:01 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/999737.shtml)
-- 2026-06-30 01:52 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/25241034.shtml)
-- 2026-06-30 02:10 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/403001271363.shtml)
-- 2026-06-30 02:14 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/7878623695.shtml)
-- 2026-06-30 02:09 - [《贺子珍》](http://www.blog.minike.top/Article/details/5021982.shtml)
-- 2026-06-30 02:05 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/25109015.shtml)
+- 2026-06-30 01:55 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/218326056.shtml)
+- 2026-06-30 02:06 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/5749966.shtml)
+- 2026-06-30 01:56 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/225909036523.shtml)
+- 2026-06-30 02:22 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/4597585861.shtml)
+- 2026-06-30 02:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/1522953116.shtml)
+- 2026-06-30 01:55 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/2939370752.shtml)
+- 2026-06-30 02:04 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/1266910.shtml)
+- 2026-06-30 02:13 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/935752033431.shtml)
+- 2026-06-30 02:06 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/27365826.shtml)
+- 2026-06-30 02:01 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/764355.shtml)
+- 2026-06-30 02:18 - [日本进球](https://www.blog.minike.top/Article/details/276292876.shtml)
+- 2026-06-30 01:56 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/8965597.shtml)
+- 2026-06-30 02:12 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/811179.shtml)
+- 2026-06-30 02:01 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/24339.shtml)
+- 2026-06-30 02:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/13298.shtml)

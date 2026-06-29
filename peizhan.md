@@ -1,60 +1,47 @@
-# CVC向立顿注入现金，45亿欧元茶饮交易陷入僵局
+# 中国人保：一季度实现归母净利润88.14亿元，同比下降31.4%
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-CVC资本合伙公司（CVC Capital Partners）正向其以45亿欧元从联合利华（Unilever）手中收购、如今陷入困境的茶饮业务注入2.1亿欧元，这家私募股权公司旨在避免PG Tips茶包生产商进行潜在的债务重组。 随着这家全球最大茶饮制造商业绩恶化，立顿（Lipton）发行的一笔15.75亿欧元贷款的价格已从去年初的95欧分跌至71欧分。投资者目前持有该债务所要
+4月29日金融一线消息，中国人保发布2026年一季度报告。数据显示，2026年第一季度营业总收入1485.36亿元，同比下降5.1%；利润总额118.05亿元，同比下降42.7%；归属于母公司股东的净利润88.14亿元，同比下降31.4%；基本每股收益0.20元/股，同比下降31.4%。 责任编辑：王馨茹
 
 ## 正文
 
-CVC资本合伙公司（CVC Capital Partners）正向其以45亿欧元从联合利华（Unilever）手中收购、如今陷入困境的茶饮业务注入2.1亿欧元，这家私募股权公司旨在避免PG Tips茶包生产商进行潜在的债务重组。
+4月29日金融一线消息，中国人保发布2026年一季度报告。
 
-随着这家全球最大茶饮制造商业绩恶化，立顿（Lipton）发行的一笔15.75亿欧元贷款的价格已从去年初的95欧分跌至71欧分。
+数据显示，2026年第一季度营业总收入1485.36亿元，同比下降5.1%；利润总额118.05亿元，同比下降42.7%；归属于母公司股东的净利润88.14亿元，同比下降31.4%；基本每股收益0.20元/股，同比下降31.4%。
 
-投资者目前持有该债务所要求的收益率为19%。
-
-在高通胀和利率上升的时期，立顿一直在32亿欧元的债务重压下举步维艰。
-
-根据英国税务海关总署的进口数据，随着年轻人转向喝咖啡，英国的饮茶量一直在缓慢下降。
-
-尽管在美国、中国和印度等主要市场，茶的消费仍在增长，但其驱动力是草本茶和宣称有益健康的“功能性”茶，而非传统的红茶。
-
-立顿旗下还拥有Pukka草本茶品牌，由于停产表现不佳的产品线，其年营收已从分拆前的20亿欧元降至2024年的15.7亿欧元。
-
-在公开可得的最新数据——2025年上半年，营收下降了13%，近7亿欧元。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 01:52 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-30 02:16 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 02:06 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 01:56 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 01:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 02:15 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 02:15 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 01:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 02:10 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 02:11 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 02:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 02:00 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 01:59 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-30 02:09 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 02:21 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 02:15 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 02:13 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 01:59 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 02:19 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 02:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 02:09 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-30 02:23 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 02:21 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
+- 2026-06-30 02:20 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/76922810492.shtml)
-- 2026-06-30 02:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/995781644773.shtml)
-- 2026-06-30 02:12 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/42155839608.shtml)
-- 2026-06-30 01:49 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/1313786851.shtml)
-- 2026-06-30 02:01 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/88193786.shtml)
-- 2026-06-30 01:53 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/469167.shtml)
-- 2026-06-30 02:00 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/79756.shtml)
-- 2026-06-30 01:48 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/56721898.shtml)
-- 2026-06-30 02:16 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/4613908.shtml)
-- 2026-06-30 02:11 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/3797416325.shtml)
-- 2026-06-30 02:18 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/68571412.shtml)
-- 2026-06-30 02:00 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/929825.shtml)
-- 2026-06-30 02:11 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/26946.shtml)
-- 2026-06-30 02:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/8058676.shtml)
-- 2026-06-30 02:02 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/1869679790.shtml)
+- 2026-06-30 02:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/19860381584.shtml)
+- 2026-06-30 02:04 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/91170283.shtml)
+- 2026-06-30 02:07 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/90728874229.shtml)
+- 2026-06-30 02:23 - [女心理师](https://www.blog.minike.top/Article/details/552120.shtml)
+- 2026-06-30 02:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/94917372869.shtml)
+- 2026-06-30 02:13 - [《贺子珍》](https://www.blog.minike.top/Article/details/2866590.shtml)
+- 2026-06-30 01:55 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/69318982955.shtml)
+- 2026-06-30 01:57 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/582253773290.shtml)
+- 2026-06-30 01:54 - [斗破苍穹](http://www.share.minike.top/Article/details/18565.shtml)
+- 2026-06-30 02:06 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/1969023.shtml)
+- 2026-06-30 02:13 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/23628.shtml)
+- 2026-06-30 02:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/27094771192.shtml)
+- 2026-06-30 02:15 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/101016.shtml)
+- 2026-06-30 02:11 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/411227923.shtml)
+- 2026-06-30 01:58 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/27334783.shtml)

@@ -1,57 +1,51 @@
-# 艺科交汇，全球对话：世界艺术与科技主题活动在京启动
+# 广西钦州子材大桥通车 平陆运河27座跨运河桥梁全部建成
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网北京4月29日电(薛凌桥)4月28日，由中国文联国际联络部、中国文联理论研究室、中国经济信息社主办的世界艺术与科技对话活动在北京开幕。本次活动以“演化与创生——艺术和科技的融合创新”为主题，汇聚众多中外艺术界、科技界权威嘉宾与行业领军人物，聚力研讨数字文艺创新、前沿技术应用等重要议题。 开幕式期间，中国文联党组书记、副主席张政和新华通讯社总编辑吕岩松发表致辞。 张政表示，
+发布时间：2026年04月29日 17:50 来源：中国新闻网 4月28日，位于广西钦州的平陆运河子材大桥正式通车，标志着平陆运河27座跨运河桥梁全部建成。平陆运河全线共涉及104座桥梁，其中27座为跨运河主桥。目前平陆运河工程整体工程完成超94%，预计将在今年9月实现通航。(翟李强 梁生 制作 徐妙巧) 责任编辑：【刘湃】
 
 ## 正文
 
-中新网北京4月29日电(薛凌桥)4月28日，由中国文联国际联络部、中国文联理论研究室、中国经济信息社主办的世界艺术与科技对话活动在北京开幕。
+发布时间：2026年04月29日 17:50 来源：中国新闻网 4月28日，位于广西钦州的平陆运河子材大桥正式通车，标志着平陆运河27座跨运河桥梁全部建成。
 
-本次活动以“演化与创生——艺术和科技的融合创新”为主题，汇聚众多中外艺术界、科技界权威嘉宾与行业领军人物，聚力研讨数字文艺创新、前沿技术应用等重要议题。
+平陆运河全线共涉及104座桥梁，其中27座为跨运河主桥。
 
-开幕式期间，中国文联党组书记、副主席张政和新华通讯社总编辑吕岩松发表致辞。
+目前平陆运河工程整体工程完成超94%，预计将在今年9月实现通航。
 
-张政表示，艺术穿透科技，科技承载艺术。
-
-科技越发展，越要关注艺术的人文价值。
-
-面对艺术与科技融合的全球性时代课题，要着眼人类文明交流互鉴、艺术科技交融共生，共同构建艺术科技融合的协作机制，共同实施一批示范性合作项目，共同推动关键标准与伦理准则的研究制定，共同促进融合成果的全球普惠共享。
-
-吕岩松说，在艺术与科技融合发展的进程中，媒体是见证者、记录者，也是参与者。
-
-新华社始终积极拥抱技术变革，直面信息化时代受众阅读审美需求的深刻变化，秉持“内容+技术+灵感+美学”的生产理念，持续打造融合报道精品。
+(翟李强 梁生 制作 徐妙巧) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 02:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 01:58 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 02:14 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-30 02:17 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-30 02:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 01:59 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 02:09 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 01:58 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 02:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 01:55 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 02:21 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 01:56 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 02:21 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 02:16 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:22 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 02:21 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 02:19 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-30 02:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 01:57 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 02:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 02:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 02:17 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 02:18 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:16 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/03293.shtml)
-- 2026-06-30 01:56 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/032830099856.shtml)
-- 2026-06-30 02:00 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/8719630.shtml)
-- 2026-06-30 02:13 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/983339326.shtml)
-- 2026-06-30 02:01 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/06973884672.shtml)
-- 2026-06-30 01:55 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/6686779507.shtml)
-- 2026-06-30 02:07 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/596136546347.shtml)
-- 2026-06-30 02:15 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/851008.shtml)
-- 2026-06-30 01:56 - [逃狱兄弟](https://www.blog.minike.top/Article/details/33457.shtml)
-- 2026-06-30 02:17 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/28869968.shtml)
-- 2026-06-30 02:01 - [刘宇宁 好听](https://www.blog.kurohicncr.top/Article/details/3067407282.shtml)
-- 2026-06-30 02:03 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/6565415485.shtml)
-- 2026-06-30 02:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/6201425.shtml)
-- 2026-06-30 02:16 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/48458739291.shtml)
-- 2026-06-30 02:11 - [当我知道豆包有后台审核人员](http://www.blog.kurohicncr.top/Article/details/4244804.shtml)
+- 2026-06-30 01:58 - [法媒点赞分享中国小区降温方案](https://www.blog.minike.top/Article/details/98602004.shtml)
+- 2026-06-30 02:06 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/1512977250.shtml)
+- 2026-06-30 01:55 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/29516.shtml)
+- 2026-06-30 02:10 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/28254.shtml)
+- 2026-06-30 02:13 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/869381810.shtml)
+- 2026-06-30 02:06 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/29208.shtml)
+- 2026-06-30 02:03 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/5681613.shtml)
+- 2026-06-30 02:22 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/96266.shtml)
+- 2026-06-30 02:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/30965.shtml)
+- 2026-06-30 02:12 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/234881.shtml)
+- 2026-06-30 02:15 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/20583433919.shtml)
+- 2026-06-30 02:03 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/3916471.shtml)
+- 2026-06-30 01:59 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/470124.shtml)
+- 2026-06-30 02:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/816468290.shtml)
+- 2026-06-30 02:15 - [千香](http://www.share.kurohicncr.top/Article/details/144192159945.shtml)

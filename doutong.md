@@ -1,58 +1,58 @@
-# 假期闲钱往哪放？这个底仓品种吸金461亿
+# 中国国家药品监督管理局原副局长陈时飞一审获刑14年
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-3月以来，全球市场波动明显加剧。地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？ 刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。在市场波动加剧的背景下，短债基金依然保持了可观的
+中新社北京4月29日电 (记者 张素)记者从中国最高人民法院获悉，4月29日，上海市第二中级人民法院一审公开宣判国家药品监督管理局原党组成员、副局长陈时飞受贿案，对被告人陈时飞以受贿罪判处有期徒刑十四年，并处罚金人民币四百万元；扣押在案的受贿所得财物及其孳息，依法上缴国库。公开资料显示，陈时飞生于1962年7月，浙江天台人。2025年2月，官方通报陈时飞被查；7月，官方通报其被
 
 ## 正文
 
-3月以来，全球市场波动明显加剧。
+中新社北京4月29日电 (记者 张素)记者从中国最高人民法院获悉，4月29日，上海市第二中级人民法院一审公开宣判国家药品监督管理局原党组成员、副局长陈时飞受贿案，对被告人陈时飞以受贿罪判处有期徒刑十四年，并处罚金人民币四百万元；扣押在案的受贿所得财物及其孳息，依法上缴国库。
 
-地缘局势持续拉扯，叠加一季报业绩验证期的到来，A股整体震荡幅度放大。
+公开资料显示，陈时飞生于1962年7月，浙江天台人。
 
-面对这样的环境，不少投资者开始重新审视账户配置：进攻端能够承受波动，而底仓是否足够稳健？
+2025年2月，官方通报陈时飞被查；7月，官方通报其被开除党籍。
 
-刚刚披露完毕的一季报，恰好提供了一个值得关注的视角。
+他被指“通过民间借贷获取大额回报”“退休后违规从事与原任职务管辖业务相关的营利活动”“靠药监吃药监”等。
 
-据Wind二级分类统计，今年一季度，短期纯债基金规模增长461亿元，存量规模超过1万亿元。
+经审理查明，2003年至2024年，被告人陈时飞利用担任浙江省药品监督管理局副局长，浙江省食品药品监督管理局副局长、局长，国家药品监督管理局副局长等职务上的便利，为他人在办理许可等事项上提供帮助，直接或通过其亲属非法收受财物共计折合人民币4643万余元。
 
-在市场波动加剧的背景下，短债基金依然保持了可观的资金流入，侧面印证了其作为资产配置底仓的独特价值——不投权益、主投高评级短期债券，波动可控，且假期票息收益不间断，恰好契合闲钱理财的核心诉求。
+法院认为，被告人陈时飞的行为构成受贿罪，受贿数额特别巨大，应依法惩处。
 
-眼下，五一小长假即将到来。
+鉴于其到案后如实供述罪行，认罪悔罪，积极退赃，受贿所得财物及其孳息已全部追缴到案，具有法定、酌定从轻处罚情节，依法可对其从轻处罚。
 
-需要留意的是，假期期间海外金融市场仍将正常交易，外围消息面存在不确定性。
+法庭遂作出上述判决。
 
 ## 相关推荐
 
-- 2026-06-30 02:10 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 02:17 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-30 02:13 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 02:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 02:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-30 01:53 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 01:53 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 01:48 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 02:01 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 01:49 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
-- 2026-06-30 02:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 01:56 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 02:05 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 01:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 02:11 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 02:10 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-30 02:22 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 02:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-30 01:54 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 02:08 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-30 02:09 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 02:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 02:04 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 02:21 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/33304410.shtml)
-- 2026-06-30 02:10 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/16791021.shtml)
-- 2026-06-30 02:01 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/163113273508.shtml)
-- 2026-06-30 01:49 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/57643.shtml)
-- 2026-06-30 02:01 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/20379408.shtml)
-- 2026-06-30 02:14 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/217781563453.shtml)
-- 2026-06-30 02:04 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/035561318.shtml)
-- 2026-06-30 02:06 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/19733138.shtml)
-- 2026-06-30 02:16 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/84792621951.shtml)
-- 2026-06-30 01:58 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/25081671722.shtml)
-- 2026-06-30 02:07 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/3088259653.shtml)
-- 2026-06-30 02:10 - [第一炉香](http://www.share.minike.top/Article/details/192283787.shtml)
-- 2026-06-30 02:06 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/707565.shtml)
-- 2026-06-30 02:09 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/55057.shtml)
-- 2026-06-30 02:12 - [一见倾心](http://www.share.kurohicncr.top/Article/details/564613695977.shtml)
+- 2026-06-30 02:06 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/88415016701.shtml)
+- 2026-06-30 02:12 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/5383821321.shtml)
+- 2026-06-30 02:22 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/88524875134.shtml)
+- 2026-06-30 02:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/844498745459.shtml)
+- 2026-06-30 01:58 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/019025.shtml)
+- 2026-06-30 02:13 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/8429557617.shtml)
+- 2026-06-30 02:19 - [陈小云又好好的养了自己一年](https://www.share.kurohicncr.top/Article/details/891840246486.shtml)
+- 2026-06-30 02:11 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/106005126.shtml)
+- 2026-06-30 02:03 - [湖南祁东原文化馆被指贱卖](http://www.blog.minike.top/Article/details/06654692999.shtml)
+- 2026-06-30 02:19 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/07849652262.shtml)
+- 2026-06-30 02:15 - [金牌调解](http://www.share.minike.top/Article/details/231202452.shtml)
+- 2026-06-30 02:23 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/73831399.shtml)
+- 2026-06-30 01:55 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/9266834487.shtml)
+- 2026-06-30 02:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/209664.shtml)
+- 2026-06-30 02:03 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/6256144.shtml)

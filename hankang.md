@@ -1,60 +1,57 @@
-# 西藏：一季度对尼贸易进出口总值超11亿
+# 国家开放大学将推出劳模工匠主题直播
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-新华社客户端西藏频道4月29日电(记者蒋梦辰)记者29日从拉萨海关获悉，今年一季度，西藏对尼泊尔进出口总值达11.76亿元，同比增长33.9%。 长期以来，尼泊尔稳居西藏第一大贸易伙伴。今年3月，日喀则市南木林县本土企业生产的1350千克豌豆粉条顺利通关，首次出口尼泊尔，独具特色的高原农特产品亮相南亚市场。 在日喀则樟木口岸，货物流转繁忙，一批批国产新能源汽车整装待发出境。西藏
+中新网北京4月28日电 (记者 谢雁冰)国家开放大学28日启动劳动教育学习宣传月活动，活动期间，将推出劳模工匠主题直播、劳模工匠讲堂资源专区等，推动劳动教育资源全域覆盖、全民共享。 据了解，劳动教育学习宣传月活动集中在5月进行，旨在以数字化赋能终身学习，以榜样力量引领价值风尚，在全社会营造劳动光荣、技能宝贵、创造伟大的浓厚氛围。 该宣传月以“匠心铸魂 劳动育人”为主题，依托国家
 
 ## 正文
 
-新华社客户端西藏频道4月29日电(记者蒋梦辰)记者29日从拉萨海关获悉，今年一季度，西藏对尼泊尔进出口总值达11.76亿元，同比增长33.9%。
+中新网北京4月28日电 (记者 谢雁冰)国家开放大学28日启动劳动教育学习宣传月活动，活动期间，将推出劳模工匠主题直播、劳模工匠讲堂资源专区等，推动劳动教育资源全域覆盖、全民共享。
 
-长期以来，尼泊尔稳居西藏第一大贸易伙伴。
+据了解，劳动教育学习宣传月活动集中在5月进行，旨在以数字化赋能终身学习，以榜样力量引领价值风尚，在全社会营造劳动光荣、技能宝贵、创造伟大的浓厚氛围。
 
-今年3月，日喀则市南木林县本土企业生产的1350千克豌豆粉条顺利通关，首次出口尼泊尔，独具特色的高原农特产品亮相南亚市场。
+该宣传月以“匠心铸魂 劳动育人”为主题，依托国家开放大学办学体系与资源平台优势，推出劳模工匠主题直播、劳模工匠讲堂资源专区、劳模工匠进校园等活动，构建线上线下同频共振的劳动教育格局。
 
-在日喀则樟木口岸，货物流转繁忙，一批批国产新能源汽车整装待发出境。
+国家开放大学联合国家智慧教育平台终身学习中心等权威平台，将推出多场劳模工匠云端讲堂直播。
 
-西藏旭达通贸易有限公司负责人表示：“尼泊尔市场对环保便捷的新能源车辆需求旺盛，市场发展前景广阔。
+直播聚焦匠心坚守、技能报国、创新成就、非遗传承四大主题。
 
-”一季度，西藏新能源汽车出口规模稳步攀升，同比增长25.1%。
+活动期间，国家开放大学还将在国家智慧教育平台终身学习中心、中华全国总工会“职工之家”平台、中宣部电影数字节目管理中心“光影育人”平台、学习强国、央视频、全国老年教育公共服务平台等10余个权威平台，同步上线劳模工匠讲堂精品资源专区，面向全社会开放，推动劳动教育资源全域覆盖、全民共享。
 
-进出口贸易的快速发展，离不开日益完善的基础设施。
+据悉，劳模工匠讲堂精品资源专区将呈现21门精品课程及系列短视频，所有课程均采用人物专题片形式。
 
-今年1月，在日喀则吉隆口岸，西藏首次实现中国集装箱式货车跨境运输，替代了以往分段转运、多次倒装的运输方式，跨境物流成本下降超10%；在日喀则国际陆地港，“陆港申报、属地查验、口岸直通”监管模式持续发挥作用，一季度，日喀则国际陆地港监管进出口货物355吨，同比增长1.5倍。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:09 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 01:55 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 02:12 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 01:52 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 02:02 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 02:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 01:51 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-30 01:50 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 01:59 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-30 01:57 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 02:17 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 01:50 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-30 02:09 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 01:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 02:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-30 02:23 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 02:24 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-30 02:11 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 02:00 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-30 01:57 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 02:12 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 02:09 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 02:01 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 02:21 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 02:21 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:03 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/4434060902.shtml)
-- 2026-06-30 01:59 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/258674.shtml)
-- 2026-06-30 01:50 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/77034671025.shtml)
-- 2026-06-30 01:59 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/730085053926.shtml)
-- 2026-06-30 02:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/0936696369.shtml)
-- 2026-06-30 02:06 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/4295848.shtml)
-- 2026-06-30 01:57 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/70574.shtml)
-- 2026-06-30 01:50 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/62363.shtml)
-- 2026-06-30 02:09 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/8693150.shtml)
-- 2026-06-30 01:50 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/00942422.shtml)
-- 2026-06-30 02:14 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/1144292.shtml)
-- 2026-06-30 02:02 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/1854319.shtml)
-- 2026-06-30 02:09 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/25637272064.shtml)
-- 2026-06-30 02:06 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/78149080.shtml)
-- 2026-06-30 01:59 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/568759019.shtml)
+- 2026-06-30 01:55 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/6804785952.shtml)
+- 2026-06-30 02:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/308225803834.shtml)
+- 2026-06-30 02:14 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/2846830791.shtml)
+- 2026-06-30 02:05 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/324966000139.shtml)
+- 2026-06-30 01:56 - [金牌调解](http://www.share.minike.top/Article/details/3343276.shtml)
+- 2026-06-30 02:00 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/74461093.shtml)
+- 2026-06-30 02:17 - [扬名立万](https://www.blog.minike.top/Article/details/24565802356.shtml)
+- 2026-06-30 02:18 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/419165150.shtml)
+- 2026-06-30 02:10 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/53137682778.shtml)
+- 2026-06-30 02:18 - [乔家的儿女](http://www.share.minike.top/Article/details/866757163.shtml)
+- 2026-06-30 01:55 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/641725398131.shtml)
+- 2026-06-30 02:04 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/58649813410.shtml)
+- 2026-06-30 02:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/037598735.shtml)
+- 2026-06-30 02:00 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/54685747599.shtml)
+- 2026-06-30 02:13 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/59769342980.shtml)

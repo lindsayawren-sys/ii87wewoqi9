@@ -1,56 +1,61 @@
-# “五一”叠加广交会 白云机场口岸出入境客流持续高位运行
+# 中国香港演员梁朝伟出任第28届上海国际电影节金爵奖评委会主席
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 23:02 来源：中国新闻网 4月29日，记者从白云边检站获悉，“五一”假期临近，叠加第139届广交会第三期影响，广州白云机场口岸客流或保持高位运行态势。据预测，口岸日均出入境客流约为5.5万人次、单日峰值近6万人次，口岸假期客流同比增长约15%，其中，外籍旅客占比接近50%。 据悉，第139届广交会开幕以来，跨境商贸往来活力持续释放，截至4月
+中新网上海4月28日电 (记者 王笈)上海国际电影节组委会28日宣布，中国香港演员梁朝伟(Tony Leung Chiu-wai)将出任第28届上海国际电影节金爵奖主竞赛单元评委会主席。 梁朝伟自幼喜爱电影，1982年入行，1983年从影，以细腻克制的表演风格与卓越的角色塑造力，在多种类型影片中均展现出极高艺术水准。从影40余年，他出演作品百余部，收获国内外个人奖项硕果累累，被
 
 ## 正文
 
-发布时间：2026年04月29日 23:02 来源：中国新闻网 4月29日，记者从白云边检站获悉，“五一”假期临近，叠加第139届广交会第三期影响，广州白云机场口岸客流或保持高位运行态势。
+中新网上海4月28日电 (记者 王笈)上海国际电影节组委会28日宣布，中国香港演员梁朝伟(Tony Leung Chiu-wai)将出任第28届上海国际电影节金爵奖主竞赛单元评委会主席。
 
-据预测，口岸日均出入境客流约为5.5万人次、单日峰值近6万人次，口岸假期客流同比增长约15%，其中，外籍旅客占比接近50%。
+梁朝伟自幼喜爱电影，1982年入行，1983年从影，以细腻克制的表演风格与卓越的角色塑造力，在多种类型影片中均展现出极高艺术水准。
 
-据悉，第139届广交会开幕以来，跨境商贸往来活力持续释放，截至4月29日0时，该站累计保障出入境人员约80万人次，同比增长14.6%。
+从影40余年，他出演作品百余部，收获国内外个人奖项硕果累累，被认为是华语影坛最具代表性与国际影响力的演员之一。
 
-其中，查验入出境外国人约40万人次，同比增长20.7%。
+他是王家卫导演的《花样年华》中克制且隐忍的周慕云，是张艺谋作品《英雄》中深情而决绝的残剑……在与伊尔蒂科·茵叶蒂、陈英雄、侯孝贤、李安、吴宇森等一众海内外导演的合作中，梁朝伟以收放自如的表演赋予了角色鲜活而持久的生命力。
 
-记者了解到，“五一”期间，口岸日均客运航班预计约300架次，同比增长8.4%，日均货运航班预计约60架次，同比增长24.3%。
+有人说，他是一位“天才魔术师演员”，有着一双天生“会说话的眼睛”，随戏而动，和角色“共享灵魂”；有人说，他拍戏一向随心，坚持自我，“拍想拍的戏，做想做的创作”。
 
-(王庆然 邵雪琪 淳毅 制作 徐妙巧) 责任编辑：【张令旗】
+2023年，梁朝伟获颁第80届威尼斯电影节终身成就金狮奖，成为首位获此荣誉的华人演员。
+
+上海是中国电影的摇篮，梁朝伟在他的多部代表作品中，曾精准捕捉并诠释了这座城市跨越时空的独特韵味。
+
+他在接受上海国际电影节的邀约后，向全球影人、影迷观众发出了问候和邀请：“电影是做梦的艺术，而上海正是中国电影做梦启航的光影邮轮。
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 02:17 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 02:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 02:15 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 02:13 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 02:18 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 02:07 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 02:17 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 02:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 02:09 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 02:07 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 01:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 02:09 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 02:04 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-30 02:19 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 02:09 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
+- 2026-06-30 01:56 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-30 02:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 02:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 02:07 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 01:54 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 01:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 01:59 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 02:15 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-30 02:11 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 02:00 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 01:57 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 02:11 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-30 01:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/95765.shtml)
-- 2026-06-30 01:57 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/38092137.shtml)
-- 2026-06-30 02:14 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/9438433469.shtml)
-- 2026-06-30 02:09 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/25134.shtml)
-- 2026-06-30 01:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/264211959.shtml)
-- 2026-06-30 02:06 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/37446422.shtml)
-- 2026-06-30 02:10 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/89508687.shtml)
-- 2026-06-30 01:54 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/9348485898.shtml)
-- 2026-06-30 02:09 - [沙丘](http://www.blog.minike.top/Article/details/990280357.shtml)
-- 2026-06-30 01:58 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/6938995.shtml)
-- 2026-06-30 01:50 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/42859655365.shtml)
-- 2026-06-30 02:04 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/9860753.shtml)
-- 2026-06-30 02:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/39024818.shtml)
-- 2026-06-30 01:55 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/813378.shtml)
-- 2026-06-30 02:03 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/0007025717.shtml)
+- 2026-06-30 02:02 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/921064613.shtml)
+- 2026-06-30 01:55 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/14935.shtml)
+- 2026-06-30 02:21 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/29225654564.shtml)
+- 2026-06-30 02:07 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/016760130291.shtml)
+- 2026-06-30 02:14 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/9408716975.shtml)
+- 2026-06-30 01:59 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/9917444203.shtml)
+- 2026-06-30 01:58 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/575933424.shtml)
+- 2026-06-30 02:21 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/947920285.shtml)
+- 2026-06-30 02:20 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/88624.shtml)
+- 2026-06-30 02:00 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/9943428.shtml)
+- 2026-06-30 01:56 - [AI接过张雪峰志愿填报衣钵](http://www.share.kurohicncr.top/Article/details/94998175.shtml)
+- 2026-06-30 02:18 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/287850706924.shtml)
+- 2026-06-30 02:07 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/3400811.shtml)
+- 2026-06-30 02:05 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/697596.shtml)
+- 2026-06-30 01:54 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/78097.shtml)

@@ -1,56 +1,56 @@
-# 闽港科创产业园福州开园
+# 天弘基金再迎新高管！前银监会处长宋永明出任副总经理，曾任职民生加银、浙商银行
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网福州4月30日电 (彭莉芳)29日，闽港数字经济合作暨医疗大数据与人工智能论坛在福建福州举行。 论坛上，闽港科创产业园正式开园，将以香港科学园为蓝本进行招商运营，对接科创、资本、产业等资源，为闽港两地创新项目落地提供承载空间。 近年来，闽港科技交流与产业合作持续深化。与会闽港业界人士普遍认为，该产业园将助力企业双向融通、共赢发展，并看好两地在医疗大数据与人工智能等领域的合
+近日，天弘基金发布高级管理人员变更的公告，新任宋永明为副总经理，任职日期2026年4月27日。这位拥有中国人民银行、中国银监会、民生加银基金及浙商银行等多维度从业经历的资深人士，或将为天弘基金的管理团队注入新的专业力量。 监管与银行双料背景，宋永明跨界加盟天弘 公开资料显示，宋永明的职业生涯起步于商业银行。1998年7月至1999年8月，他在中国建设银行山西省分行计划财务部担任
 
 ## 正文
 
-中新网福州4月30日电 (彭莉芳)29日，闽港数字经济合作暨医疗大数据与人工智能论坛在福建福州举行。
+近日，天弘基金发布高级管理人员变更的公告，新任宋永明为副总经理，任职日期2026年4月27日。
 
-论坛上，闽港科创产业园正式开园，将以香港科学园为蓝本进行招商运营，对接科创、资本、产业等资源，为闽港两地创新项目落地提供承载空间。
+这位拥有中国人民银行、中国银监会、民生加银基金及浙商银行等多维度从业经历的资深人士，或将为天弘基金的管理团队注入新的专业力量。
 
-近年来，闽港科技交流与产业合作持续深化。
+监管与银行双料背景，宋永明跨界加盟天弘 公开资料显示，宋永明的职业生涯起步于商业银行。
 
-与会闽港业界人士普遍认为，该产业园将助力企业双向融通、共赢发展，并看好两地在医疗大数据与人工智能等领域的合作前景。
+1998年7月至1999年8月，他在中国建设银行山西省分行计划财务部担任科员。
 
-香港生物科技协会主席于常海认为，香港近年持续加大资金与平台投入，深耕人工智能及生物科技，但受限于地域空间，需依托内地广阔市场，推进科研成果产业化落地，这为深化闽港科创合作带来广阔机遇。
+此后，他进入监管体系，2002年7月至2003年4月任中国人民银行银行管理司监管制度处主任科员；2003年5月至2017年7月，先后在中国银监会多个核心部门任职，包括银行监管一部国有银行改革办公室秘书处主任科员、人事部（党委组织部）综合处及机关人事处副处长、处长、办公厅处长、城市银行部综合处兼城商行监管处处长，以及国有重点金融机构监事会副巡视员（副局级）。
 
-聚焦医学人工智能领域的芨影科技有限公司，是香港科学园深圳分园首批入驻企业。
+长达15年的监管工作经历，使其对金融机构合规风控、公司治理有着深刻理解。
 
-公司总裁邱和松期待香港科创企业加强与福州对接合作，加速医疗AI项目在内地市场落地融合。
+2017年7月，宋永明从监管机构转战公募基金行业，出任民生加银基金管理有限公司副总经理，任职近七年。
 
-福建省肿瘤医院党委委员、副院长方主亭表示，福建“三医一张网”汇聚海量医疗大数据，可与香港在医疗数据隐私保护算法、AI模型研发、人才共育等方面开展更深层次合作。
+2024年4月，他离开公募，转任浙商银行发展规划部总经理，在银行体系积累了近两年的战略规划经验。
 
 ## 相关推荐
 
-- 2026-06-30 01:51 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-30 02:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 02:02 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 02:02 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-30 02:06 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 02:04 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 02:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 02:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
-- 2026-06-30 02:02 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 02:10 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 01:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-30 02:20 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-30 02:03 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-30 02:23 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 02:21 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-30 02:17 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 02:19 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 02:23 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-30 02:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 02:05 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:02 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/573227.shtml)
-- 2026-06-30 01:59 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/5427787311.shtml)
-- 2026-06-30 02:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/77231182525.shtml)
-- 2026-06-30 02:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/47715842.shtml)
-- 2026-06-30 02:16 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/71493413.shtml)
-- 2026-06-30 02:16 - [电影《后室》讲了一个什么故事？](https://www.share.minike.top/Article/details/95537.shtml)
-- 2026-06-30 02:03 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/6367750128.shtml)
-- 2026-06-30 02:09 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/33675772.shtml)
-- 2026-06-30 02:03 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/313398337.shtml)
-- 2026-06-30 02:17 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/64516264.shtml)
-- 2026-06-30 01:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/55114225258.shtml)
-- 2026-06-30 02:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/0995505132.shtml)
-- 2026-06-30 01:57 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/46188907.shtml)
-- 2026-06-30 02:06 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/07998819.shtml)
-- 2026-06-30 01:50 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/131691620.shtml)
+- 2026-06-30 01:59 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/078881657.shtml)
+- 2026-06-30 02:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/805826923.shtml)
+- 2026-06-30 02:02 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/71655390583.shtml)
+- 2026-06-30 02:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/8692853808.shtml)
+- 2026-06-30 02:18 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/93086114.shtml)
+- 2026-06-30 02:15 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/67030299424.shtml)
+- 2026-06-30 02:16 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/093317.shtml)
+- 2026-06-30 02:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/648969.shtml)
+- 2026-06-30 02:05 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/06820.shtml)
+- 2026-06-30 02:04 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/8238925.shtml)
+- 2026-06-30 02:15 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/305885594331.shtml)
+- 2026-06-30 01:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/323477275022.shtml)
+- 2026-06-30 01:57 - [勇敢的心第二部](http://www.share.minike.top/Article/details/573633857.shtml)
+- 2026-06-30 01:54 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/788783983627.shtml)
+- 2026-06-30 02:09 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/9208978531.shtml)

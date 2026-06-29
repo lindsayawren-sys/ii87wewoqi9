@@ -1,55 +1,42 @@
-# 快讯：恒指低开0.40% 科指跌0.68% 科网股普跌 半导体股活跃
+# 海南省公安厅原党委委员、副厅长董长青接受审查调查
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-美股周三个变发展，油价持续高企，打击大市气氛，联储局一如预期维持息率不变，对市场未有太大影响，三大指数收市升跌不一。美元走势向好，美国十年期债息上升至4.43厘水平，金价显著受压，油价则突破近日高位。 今日港股三大指数集体低开，恒指开盘跌0.40%，报26008.32点，恒科指跌0.68%，国企指数跌0.54%。盘面上，科网股普跌，哔哩哔哩跌超2%，快手、阿里巴巴、美团等跌超1
+中新网4月29日电 据海南省纪委监委消息：海南省公安厅原党委委员、副厅长董长青涉嫌严重违纪违法，目前正接受海南省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-美股周三个变发展，油价持续高企，打击大市气氛，联储局一如预期维持息率不变，对市场未有太大影响，三大指数收市升跌不一。
-
-美元走势向好，美国十年期债息上升至4.43厘水平，金价显著受压，油价则突破近日高位。
-
-今日港股三大指数集体低开，恒指开盘跌0.40%，报26008.32点，恒科指跌0.68%，国企指数跌0.54%。
-
-盘面上，科网股普跌，哔哩哔哩跌超2%，快手、阿里巴巴、美团等跌超1%；石油股活跃，中海油田服务涨近1%；半导体股部分上涨，兆易创新涨超5%；黄金股普跌，山东黄金跌超2%。
-
-责任编辑：郭栩彤
+中新网4月29日电 据海南省纪委监委消息：海南省公安厅原党委委员、副厅长董长青涉嫌严重违纪违法，目前正接受海南省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-30 02:12 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 01:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 02:09 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 02:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 01:55 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-30 02:14 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 01:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
-- 2026-06-30 01:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 01:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 02:09 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 02:07 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 01:55 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 02:03 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-30 01:55 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 01:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 02:22 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 02:03 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 02:17 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-30 02:19 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-30 02:08 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 02:02 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 02:12 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 02:23 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 02:12 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-30 02:09 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/762210734426.shtml)
-- 2026-06-30 01:59 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/90548.shtml)
-- 2026-06-30 02:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/37599592.shtml)
-- 2026-06-30 02:13 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/80595306.shtml)
-- 2026-06-30 02:17 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/32752199.shtml)
-- 2026-06-30 01:52 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/40654753.shtml)
-- 2026-06-30 02:09 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/523573.shtml)
-- 2026-06-30 02:07 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/196722.shtml)
-- 2026-06-30 01:57 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/36788136940.shtml)
-- 2026-06-30 02:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/69992287.shtml)
-- 2026-06-30 02:08 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/72415971768.shtml)
-- 2026-06-30 01:58 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/23611799857.shtml)
-- 2026-06-30 02:02 - [周生如故](http://www.share.minike.top/Article/details/686198.shtml)
-- 2026-06-30 01:55 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6976174597.shtml)
-- 2026-06-30 02:02 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.minike.top/Article/details/363817465.shtml)
+- 2026-06-30 02:08 - [刘念回应](http://www.share.kurohicncr.top/Article/details/61076308.shtml)
+- 2026-06-30 02:21 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/0270701.shtml)
+- 2026-06-30 02:11 - [锐评T1零封KC](http://www.share.minike.top/Article/details/0513976.shtml)
+- 2026-06-30 02:13 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/70101172.shtml)
+- 2026-06-30 02:14 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/1304528.shtml)
+- 2026-06-30 02:20 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/639495276.shtml)
+- 2026-06-30 01:57 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/818625311.shtml)
+- 2026-06-30 02:14 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/20388108.shtml)
+- 2026-06-30 01:59 - [张凌赫 客串](https://www.share.minike.top/Article/details/15342099.shtml)
+- 2026-06-30 01:59 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/67631081466.shtml)
+- 2026-06-30 02:07 - [千与千寻](https://www.share.minike.top/Article/details/914169704.shtml)
+- 2026-06-30 02:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/914703.shtml)
+- 2026-06-30 02:14 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/6340067720.shtml)
+- 2026-06-30 02:21 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/22054.shtml)
+- 2026-06-30 01:56 - [一生一世](http://www.blog.kurohicncr.top/Article/details/8282099.shtml)

@@ -1,58 +1,60 @@
-# “债市一姐”刘郁告别华西证券，拟转任兴业证券固收首席
+# 金佰利营收、利润双双增长
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。 中国证券报记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业
+专题：聚焦美股2026年第一季度财报 企业表示，业绩提振得益于产品创新与消费需求韧性支撑 生活用品巨头 金佰利（KMB） 一季度利润与销售额同步走高，公司将亮眼业绩归功于产品创新以及具备韧性的消费需求。 公司首席执行官许迈克于周二表示，尽管宏观经济与地缘政治存在不确定性，这家家居用品企业本季度仍持续扩大市场份额。 “我们聚焦消费者需求推进产品创新、提升品牌好感度，同时依靠高效团
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：聚焦美股2026年第一季度财报 企业表示，业绩提振得益于产品创新与消费需求韧性支撑 生活用品巨头 金佰利（KMB） 一季度利润与销售额同步走高，公司将亮眼业绩归功于产品创新以及具备韧性的消费需求。
 
-4月29日，有消息称，华西证券原首席经济学家兼研究所副所长刘郁已离职，中国证券协会官网的证券从业系统已经查不到其信息。
+公司首席执行官许迈克于周二表示，尽管宏观经济与地缘政治存在不确定性，这家家居用品企业本季度仍持续扩大市场份额。
 
-这位在固收研究领域享有“债市一姐”声誉的明星分析师，在加盟华西证券仅两年后再度选择新平台，其动向引发市场高度关注。
+“我们聚焦消费者需求推进产品创新、提升品牌好感度，同时依靠高效团队执行力达成目标。
 
-中国证券报记者经多方核实了解到，刘郁确已从华西证券离职，其下一站拟转任兴业证券固收首席分析师。
+” 许迈克称，“与此同时，我们持续落地降本措施，夯实财务基本面，为未来业务布局投入蓄力。
 
-公开资料显示，刘郁系复旦大学经济学博士，拥有多年固收研究经验。
+” 作为舒洁纸巾、好奇纸尿裤的生产商，金佰利当期净利润 6.65 亿美元，折合每股收益 2 美元；去年同期净利润 5.67 亿美元，每股收益 1.70 美元。
 
-在加入华西证券前，刘郁先后在国泰君安、招商证券、国盛证券及广发证券等券商研究所任职。
+剔除一次性项目后，公司调整后每股收益为 1.97 美元，高于 FactSet 统计的华尔街预期 1.93 美元。
 
-2024年3月，刘郁高调加盟华西证券，出任首席经济学家兼研究所副所长，被市场视为华西证券强化研究实力，尤其是在固收领域寻求突破的关键举措。
+金佰利提到，该业绩中有 0.13 美元收益，来自对泰诺、李施德林母公司 健赞（Kenvue） 的并购布局；这笔价值 400 亿美元的收购交易，预计于今年下半年完成交割。
 
-刘郁此次职业转换的两端——华西证券与兴业证券，在2025年及2026年一季度的业绩表现均呈现显著增长态势。
+许迈克表示：“核心业务稳步复苏，叠加第二季度将迎来史上最强的创新产品与商业化落地矩阵，借助收购健赞的契机，金佰利将把握跨世代的长期价值增长机遇。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 02:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 01:54 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-30 02:12 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 01:57 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 01:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 02:01 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-30 01:57 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 02:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-30 02:17 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-30 02:06 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 02:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 02:06 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 02:05 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 02:15 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-30 02:05 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 02:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
+- 2026-06-30 02:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 02:16 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 02:15 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 01:56 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 02:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 02:20 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 02:12 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-30 02:03 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 02:12 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:10 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/50352.shtml)
-- 2026-06-30 02:08 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/694445032452.shtml)
-- 2026-06-30 01:48 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/9769552179.shtml)
-- 2026-06-30 01:59 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/0890958.shtml)
-- 2026-06-30 01:58 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/878677.shtml)
-- 2026-06-30 01:57 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/6847898185.shtml)
-- 2026-06-30 02:01 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/243507.shtml)
-- 2026-06-30 02:09 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/0705209.shtml)
-- 2026-06-30 02:15 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/8630558590.shtml)
-- 2026-06-30 01:53 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/5105063822.shtml)
-- 2026-06-30 02:04 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/73903180274.shtml)
-- 2026-06-30 01:49 - [一生一世](https://www.share.kurohicncr.top/Article/details/3086866.shtml)
-- 2026-06-30 02:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/84586.shtml)
-- 2026-06-30 01:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/28334714569.shtml)
-- 2026-06-30 01:55 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/50929634778.shtml)
+- 2026-06-30 02:14 - [刘念回应](https://www.blog.minike.top/Article/details/9285317.shtml)
+- 2026-06-30 02:13 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/2242221327.shtml)
+- 2026-06-30 02:17 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/662852606.shtml)
+- 2026-06-30 02:07 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/559836066973.shtml)
+- 2026-06-30 01:54 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/0154937316.shtml)
+- 2026-06-30 02:18 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/31369454.shtml)
+- 2026-06-30 02:18 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/24614508998.shtml)
+- 2026-06-30 02:14 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/84435538088.shtml)
+- 2026-06-30 02:14 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/580316332345.shtml)
+- 2026-06-30 02:03 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/9302906.shtml)
+- 2026-06-30 02:23 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/9797715.shtml)
+- 2026-06-30 02:04 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/973649955.shtml)
+- 2026-06-30 02:15 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/421628545.shtml)
+- 2026-06-30 02:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/849753776024.shtml)
+- 2026-06-30 01:54 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/50366870.shtml)

@@ -1,61 +1,57 @@
-# 伊朗、霍尔木兹海峡，传出新消息！特朗普突发威胁！
+# 中坚科技、百傲化学遭证监会立案 投资者或可索赔
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-当地时间29日，美国总统特朗普威胁伊朗“放聪明点”。而此前一天，有美国官员称，特朗普已指示助手为长期封锁伊朗做准备。伊朗官员29日表示，伊朗不会放弃“对霍尔木兹海峡的主权权利”，与美谈判不是退缩，是“战斗的又一个阶段”。 特朗普威胁伊朗 据新华社消息，美国总统特朗普29日凌晨在社交媒体上发文称：“伊朗就是搞不明白，他们不知道怎么签署无核协议。他们最好快些放聪明点！” 特朗普还配
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，中坚科技（维权）、百傲化学（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。两家公司均表示：因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。 中坚科技2026 年4 月27 日还收到中国证券监督管理委员会浙江监管局
 
 ## 正文
 
-当地时间29日，美国总统特朗普威胁伊朗“放聪明点”。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月27日晚间，中坚科技（维权）、百傲化学（维权）均发布《关于收到中国证券监督管理委员会立案告知书的公告》。
 
-而此前一天，有美国官员称，特朗普已指示助手为长期封锁伊朗做准备。
+两家公司均表示：因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，中国证监会决定对公司立案。
 
-伊朗官员29日表示，伊朗不会放弃“对霍尔木兹海峡的主权权利”，与美谈判不是退缩，是“战斗的又一个阶段”。
+中坚科技2026 年4 月27 日还收到中国证券监督管理委员会浙江监管局下发的《关于对浙江中坚科技股份有限公司及相关人员采取出具警示函措施的决定》【2026】111 号，浙江证监局在对浙江中坚科技股份有限公司现场检查中发现公司 2025 年度存在相关合作备忘录签署事项信息披露不准确、互动易答复不完整的情况。
 
-特朗普威胁伊朗 据新华社消息，美国总统特朗普29日凌晨在社交媒体上发文称：“伊朗就是搞不明白，他们不知道怎么签署无核协议。
+（中坚科技维权入口） 在公告遭证监会立案的同时，百傲化学还发布了《关于前期会计差错更正及追溯调整的公告》，公告显示：经公司全面自查，公司控股子公司苏州芯慧联半导体科技有限公司因对收入确认相关会计判断及核算细节不够严谨，根据《公开发行证券的公司信息披露编报规则第 19 号——财务信息的更正及相关披露》以及《企业会计准则第 28 号——会计政策、会计估计变更和差错更正》等相关法律法规、规范性文件的规定，公司对 2024 年度涉及 4，093.60 万元营业收入会计差错事项进行更正。
 
-他们最好快些放聪明点！
+江苏振泽律师事务所合伙人张云律师表示，中坚科技、百傲化学遭证监会立案，投资者或可索赔。
 
-” 特朗普还配发一张图片，图片上是他持枪的“造型”，配有文字“不再有好好先生”。
+暂定：于2026年4月27日之前买入中坚科技、百傲化学，且在2026年4月28日之后卖出或持有中坚科技、百傲化学的亏损投资者符合索赔条件。
 
-美国《华尔街日报》28日援引美国官员的话报道说，特朗普已指示其助手，准备对伊朗实施长期封锁。
+（百傲化学维权入口） （本文由江苏振泽律师事务所合伙人张云律师供稿，不代表新浪财经的观点。
 
-报道说，在近期举行的会议中，特朗普选择通过阻止船只进出伊朗港口的方式，继续打压伊朗的经济和石油出口。
+张云律师，江苏振泽律师事务所合伙人，法学硕士，对证券金融类法律有着深入研究，从事证券诉讼多年，积累大量为投资者胜诉获赔案例）（张云律师专栏）责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-30 02:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 01:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 01:53 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 01:53 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 02:11 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 02:14 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
-- 2026-06-30 02:02 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 02:00 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 02:04 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-30 02:07 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 02:13 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 01:54 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 02:09 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 01:50 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-30 02:04 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 02:22 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 02:08 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 02:23 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
+- 2026-06-30 02:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 01:59 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-30 02:07 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 02:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 02:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-30 02:21 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 01:57 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 02:10 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:01 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/4732147.shtml)
-- 2026-06-30 02:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/44555.shtml)
-- 2026-06-30 02:13 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/127952047.shtml)
-- 2026-06-30 02:13 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/708445.shtml)
-- 2026-06-30 02:07 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/75957013.shtml)
-- 2026-06-30 02:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/320577.shtml)
-- 2026-06-30 01:54 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/77400908604.shtml)
-- 2026-06-30 01:56 - [警方回应两名老人多次到洗车店泼粪](http://www.share.minike.top/Article/details/8095711.shtml)
-- 2026-06-30 02:16 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/189864.shtml)
-- 2026-06-30 01:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/655837.shtml)
-- 2026-06-30 02:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/004132173.shtml)
-- 2026-06-30 02:14 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/233199575812.shtml)
-- 2026-06-30 01:56 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/539580920906.shtml)
-- 2026-06-30 02:14 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/528887.shtml)
-- 2026-06-30 01:50 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/2318929002.shtml)
+- 2026-06-30 02:20 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/76679.shtml)
+- 2026-06-30 02:08 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/903414877218.shtml)
+- 2026-06-30 02:12 - [我和我的家乡](https://www.share.minike.top/Article/details/7777469553.shtml)
+- 2026-06-30 01:55 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/10358.shtml)
+- 2026-06-30 01:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/37888787.shtml)
+- 2026-06-30 02:14 - [电影后室值得看吗](http://www.blog.minike.top/Article/details/908925122617.shtml)
+- 2026-06-30 01:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/56709502866.shtml)
+- 2026-06-30 02:00 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/40686160.shtml)
+- 2026-06-30 02:23 - [日本反击率先破门](http://www.blog.minike.top/Article/details/8319391.shtml)
+- 2026-06-30 01:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/54140.shtml)
+- 2026-06-30 02:23 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/579642.shtml)
+- 2026-06-30 02:15 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/12205823.shtml)
+- 2026-06-30 02:16 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/267030.shtml)
+- 2026-06-30 02:10 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/998757347183.shtml)
+- 2026-06-30 01:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/263737.shtml)

@@ -1,61 +1,58 @@
-# 尺素金声｜30余个医疗服务价格新项目，呵护“小的”照顾“老的”
+# 重庆国际消费节启幕 打造全域消费新场景
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-一老一小的健康福祉，牵动社会神经，也是人口高质量发展的重要内涵之一。截至目前，国家医保局已累计印发39批医疗服务价格项目立项指南，其中，30多个新的价格项目促进适老化、儿科医疗服务供给，另有一半以上的价格项目设置儿童加收，充分体现了医保部门呵护“小的”、照顾“老的”的工作焦点。新生命的孕育和成长，承载着社会和家庭最深切的期盼。国家医保局在编制印发医疗服务价格项目立项指南中，始终
+中新网重庆4月29日电 (记者 刘相琳)28日晚，2026中国(重庆)国际消费节在重庆市两江新区观音桥步行街正式拉开帷幕。本次活动以“爱尚重庆·乐购全球”为主题，将持续至5月31日，联动全市各大商圈、商业街区、品牌商家、线上平台及金融机构，推出千店让利、万款好物、五折起购等系列惠民促消费活动，打造一场持续不断的城市级新品发布与品质消费盛会。 与以往不同的是，本届消费节启动仪式打
 
 ## 正文
 
-一老一小的健康福祉，牵动社会神经，也是人口高质量发展的重要内涵之一。
+中新网重庆4月29日电 (记者 刘相琳)28日晚，2026中国(重庆)国际消费节在重庆市两江新区观音桥步行街正式拉开帷幕。
 
-截至目前，国家医保局已累计印发39批医疗服务价格项目立项指南，其中，30多个新的价格项目促进适老化、儿科医疗服务供给，另有一半以上的价格项目设置儿童加收，充分体现了医保部门呵护“小的”、照顾“老的”的工作焦点。
+本次活动以“爱尚重庆·乐购全球”为主题，将持续至5月31日，联动全市各大商圈、商业街区、品牌商家、线上平台及金融机构，推出千店让利、万款好物、五折起购等系列惠民促消费活动，打造一场持续不断的城市级新品发布与品质消费盛会。
 
-新生命的孕育和成长，承载着社会和家庭最深切的期盼。
+与以往不同的是，本届消费节启动仪式打破传统发布会模式，打造了一场“AI上重庆 乐购全球”情景秀。
 
-国家医保局在编制印发医疗服务价格项目立项指南中，始终关注产科和儿科医疗服务，通过设立专门价格项目、明确加收政策范围等方式，引导医疗机构提供更优质的医疗服务，更好守护生育和儿童健康。
+舞台变为沉浸式剧场，通过剧情演绎串联起品牌发布、新品首发、福利推介和入境服务等环节。
 
-完善生育相关价格项目，助力构建生育友好型社会。
+现场运用AR虚拟视觉技术，嘉宾扫码即可观看定制AR动画，感受虚拟信息叠加现实景观的沉浸式体验。
 
-聚焦孕妇产前检查，在超声检查类立项指南中设立胎儿彩超检查、胎儿系统性筛查、可疑胎儿产前诊断等多个价格项目，指导有条件的地区对接立项指南时，适当提高价格水平，让更多经验丰富的医生愿意从事高风险、高强度的产前筛查，从源头做好胎儿健康保障。
+在观音桥步行街主会场，集合了汽车、智能家居、非遗时尚、科技互动等多元板块。
 
-关注产妇分娩恐惧，在产科立项指南中，设立“分娩镇痛”“导乐分娩”“亲情陪产”等价格项目。
+卡萨帝推出全空间融合成套方案；宜家带来灵感新品展；奉节柔派眼镜展示集导航、翻译、AI互动等功能于一体的AI智能眼镜；重庆明月湖科创园集中展出哮天Sirius、魔镜3PLUS、宠物机器人等前沿科技产品。
 
-关注新生儿住院床位和护理服务，在综合诊查、护理类立项指南中，明确单独设立新生儿暖箱、新生儿床位、新生儿护理和早产儿护理等儿科专用价格项目，促进医疗机构调整儿科资源配置，引导医疗机构为新生儿、早产儿提供更加专业的床位保障和与其生理特点相匹配的护理服务。
+阿维塔12、深蓝S05、小米SU7等热门车型，以及老板AI消毒洗碗机等智能家电也同步亮相。
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-30 02:09 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 02:14 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 01:59 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 02:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 01:50 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-30 02:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
-- 2026-06-30 01:52 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-30 01:48 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
-- 2026-06-30 02:06 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 01:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 01:55 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-30 02:15 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 01:56 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 02:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 01:55 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 02:10 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 02:13 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 02:23 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 02:15 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-30 02:20 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 01:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 01:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 02:04 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 02:08 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-30 02:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-30 02:03 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/943072.shtml)
-- 2026-06-30 01:54 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/211553338.shtml)
-- 2026-06-30 02:07 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/32878.shtml)
-- 2026-06-30 02:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/876690708254.shtml)
-- 2026-06-30 01:53 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/61443.shtml)
-- 2026-06-30 02:16 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/7967966.shtml)
-- 2026-06-30 02:07 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/105774393.shtml)
-- 2026-06-30 02:10 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/862407581833.shtml)
-- 2026-06-30 01:57 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/19048.shtml)
-- 2026-06-30 02:02 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/64568323584.shtml)
-- 2026-06-30 02:12 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/454641543.shtml)
-- 2026-06-30 02:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/91523.shtml)
-- 2026-06-30 02:13 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/6290150322.shtml)
-- 2026-06-30 02:11 - [TOP Prada](http://www.blog.minike.top/Article/details/178761364563.shtml)
-- 2026-06-30 01:52 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/2834399.shtml)
+- 2026-06-30 02:03 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/57339.shtml)
+- 2026-06-30 02:13 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/55238.shtml)
+- 2026-06-30 02:18 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/63213.shtml)
+- 2026-06-30 02:16 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/48344.shtml)
+- 2026-06-30 01:57 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/3329892048.shtml)
+- 2026-06-30 02:10 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/56286856.shtml)
+- 2026-06-30 02:16 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/9814501916.shtml)
+- 2026-06-30 02:03 - [新官上任三把火](http://www.blog.kurohicncr.top/Article/details/74570041.shtml)
+- 2026-06-30 02:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/528472.shtml)
+- 2026-06-30 02:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/33114.shtml)
+- 2026-06-30 02:02 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/743015.shtml)
+- 2026-06-30 02:13 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5712665260.shtml)
+- 2026-06-30 02:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/30005929.shtml)
+- 2026-06-30 01:58 - [恋与深空回应争议](http://www.share.minike.top/Article/details/702906073647.shtml)
+- 2026-06-30 02:22 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/040052.shtml)

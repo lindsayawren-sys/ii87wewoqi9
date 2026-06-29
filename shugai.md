@@ -1,52 +1,59 @@
-# 三星电子一季度净利润同比增长474.3%
+# 榴莲价格腰斩，还能再降！
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-三星电子周四公布，其第一季度净利润为47.22万亿韩元（约合318亿美元），同比增长474.3%。 该公司在提交给监管机构的文件中表示，第一季度营业利润为57.23万亿韩元，同比增长756.1%。营收增长69.2%，达到133.87万亿韩元。 这与该公司本月较早时公布的未经审计的初步业绩基本一致，但当时该公司未公布净利润数据。责任编辑：于健 SF069
+中新经纬4月29日电 (闫淑鑫)近日，榴莲降价的消息引发关注。社交平台上，不少网友称榴莲价格便宜，“不到100元能买到一个5斤左右的”“回家路上看到18.9元/斤，立马买了一个”，还有人称“9.9元/斤指日可待”。 今年的“榴莲自由”为何来得那么早？榴莲价格还会更低吗？ 批发价跌破“2”字头 今年的榴莲有多便宜？ 北京新发地官网数据显示，4月20日，泰国金枕榴莲的批发均价为27
 
 ## 正文
 
-三星电子周四公布，其第一季度净利润为47.22万亿韩元（约合318亿美元），同比增长474.3%。
+中新经纬4月29日电 (闫淑鑫)近日，榴莲降价的消息引发关注。
 
-该公司在提交给监管机构的文件中表示，第一季度营业利润为57.23万亿韩元，同比增长756.1%。
+社交平台上，不少网友称榴莲价格便宜，“不到100元能买到一个5斤左右的”“回家路上看到18.9元/斤，立马买了一个”，还有人称“9.9元/斤指日可待”。
 
-营收增长69.2%，达到133.87万亿韩元。
+今年的“榴莲自由”为何来得那么早？
 
-这与该公司本月较早时公布的未经审计的初步业绩基本一致，但当时该公司未公布净利润数据。
+榴莲价格还会更低吗？
 
-责任编辑：于健 SF069
+批发价跌破“2”字头 今年的榴莲有多便宜？
+
+北京新发地官网数据显示，4月20日，泰国金枕榴莲的批发均价为27元/斤，越南金枕榴莲批发均价24元/斤，越南干尧榴莲批发均价20元/斤。
+
+其中，泰国金枕榴莲的批发均价同比降21.7%，越南干尧榴莲批发均价同比降57%。
+
+另据农业农村部全国农产品批发市场价格信息系统数据，4月27日，有批发市场榴莲批发均价为35元/公斤，即17.5元/斤。
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-30 02:08 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 01:52 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 02:03 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 02:02 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 01:57 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 02:13 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 02:04 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 01:52 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 02:10 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-30 01:49 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 02:10 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 01:56 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 02:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-30 02:10 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 02:14 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 02:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 01:57 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 02:07 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-30 02:20 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-30 01:55 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 02:16 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 02:22 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:11 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
+- 2026-06-30 02:05 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/192543.shtml)
-- 2026-06-30 01:56 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/54555.shtml)
-- 2026-06-30 01:51 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/21615454.shtml)
-- 2026-06-30 02:14 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/72222278340.shtml)
-- 2026-06-30 02:11 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/1535480118.shtml)
-- 2026-06-30 01:57 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/1877439881.shtml)
-- 2026-06-30 02:10 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/33720482.shtml)
-- 2026-06-30 01:58 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/93023776016.shtml)
-- 2026-06-30 01:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/51619750.shtml)
-- 2026-06-30 02:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.minike.top/Article/details/4647946951.shtml)
-- 2026-06-30 01:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/91629385.shtml)
-- 2026-06-30 02:09 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/4484939046.shtml)
-- 2026-06-30 02:13 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/44537001.shtml)
-- 2026-06-30 02:15 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/79098841.shtml)
-- 2026-06-30 02:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/791563235179.shtml)
+- 2026-06-30 02:15 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/16441.shtml)
+- 2026-06-30 02:18 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/737344484.shtml)
+- 2026-06-30 02:17 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/347763870.shtml)
+- 2026-06-30 02:09 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/632202080.shtml)
+- 2026-06-30 02:14 - [点菜也要教吗](http://www.blog.minike.top/Article/details/45305787.shtml)
+- 2026-06-30 02:18 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/7392493512.shtml)
+- 2026-06-30 02:01 - [网警提醒警惕高考查分陷阱](http://www.blog.kurohicncr.top/Article/details/360289585.shtml)
+- 2026-06-30 02:23 - [啊啊啊](https://www.blog.minike.top/Article/details/817851.shtml)
+- 2026-06-30 01:55 - [美股](https://www.share.kurohicncr.top/Article/details/3271908.shtml)
+- 2026-06-30 02:18 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/1557447.shtml)
+- 2026-06-30 02:15 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/3349777734.shtml)
+- 2026-06-30 02:03 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/48817290900.shtml)
+- 2026-06-30 02:09 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/64645035.shtml)
+- 2026-06-30 02:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/5016695.shtml)
+- 2026-06-30 02:13 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/9769560035.shtml)

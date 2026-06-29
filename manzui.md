@@ -1,52 +1,58 @@
-# 乌克兰议会批准延长国家战时状态90天
+# 中信建投期货：4月28日农产品早报
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-新华社基辅4月28日电 据乌克兰国际文传电讯社报道，乌最高拉达(议会)28日投票批准将国家战时状态和军事动员延长90天。 27日，乌克兰总统泽连斯基向最高拉达递交了法令草案，提议将国家战时状态和军事动员从5月4日延长至8月2日，共90天。 据报道，关于延长国家战时状态和军事动员的法令草案分别获得315名、304名议员支持，均高于通过所需的226票。 这是自2022年2月俄乌冲突
+玉米：中性 1．市场关注：短期政策收储边际减弱、新麦上市预期、进口谷物到港以及需求端疲软，构成当前市场的空头阵营；但贸易商挺价心态、稻谷拍卖迟迟未落地以及春播天气扰动，多空双方均无压倒性优势，预计主力合约在2375-2450元/吨宽幅区间内拉锯。中期来看，随着5-6月新麦收割入市、稻谷拍卖若最终落地、三季度能繁母猪产能去化效应逐步传导至生猪出栏端，供需格局的边际变化将是决定玉米
 
 ## 正文
 
-新华社基辅4月28日电 据乌克兰国际文传电讯社报道，乌最高拉达(议会)28日投票批准将国家战时状态和军事动员延长90天。
+玉米：中性 1．市场关注：短期政策收储边际减弱、新麦上市预期、进口谷物到港以及需求端疲软，构成当前市场的空头阵营；但贸易商挺价心态、稻谷拍卖迟迟未落地以及春播天气扰动，多空双方均无压倒性优势，预计主力合约在2375-2450元/吨宽幅区间内拉锯。
 
-27日，乌克兰总统泽连斯基向最高拉达递交了法令草案，提议将国家战时状态和军事动员从5月4日延长至8月2日，共90天。
+中期来看，随着5-6月新麦收割入市、稻谷拍卖若最终落地、三季度能繁母猪产能去化效应逐步传导至生猪出栏端，供需格局的边际变化将是决定玉米方向的关键变量，届时重新评估区间策略的适用边界。
 
-据报道，关于延长国家战时状态和军事动员的法令草案分别获得315名、304名议员支持，均高于通过所需的226票。
+2．观点总结：2375-2450元/吨宽幅震荡，下方支撑较强。
 
-这是自2022年2月俄乌冲突升级以来，乌最高拉达第19次批准延长相关法令。
+豆粕：中性偏多 1．荷兰近期对阿根廷豆粕发出多起未批准GMO事件检测警示，市场据此解读为相关货物面临退运风险，隔夜CBOT豆粕大涨，美豆跟随走强，短期海外市场等待特朗普访华进展以及5月USDA报告带来的指引。
+
+2．截至4月26日，全美大豆播种23%，快于去年同期17%以及五年均值12%。
+
+World Ag Weather预报显示，未来一周多数核心产区降雨整体偏少，有利于播种加快推进，但也可能加剧平原地区干旱发展风险。
+
+3．豆粕缺乏新的矛盾，短期仍主要跟随美盘波动，单边预计维持宽幅震荡。
+
+观点总结：区间交易思路，日内受美盘带动预计偏强运行，关注09合约在2900-3100元/吨区间表现。
 
 ## 相关推荐
 
-- 2026-06-30 02:16 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 01:55 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 02:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 02:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 02:05 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 02:04 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 02:12 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 02:02 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
-- 2026-06-30 02:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 02:15 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 02:13 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 02:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 02:01 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
-- 2026-06-30 02:14 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 02:01 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 02:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 02:17 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 02:16 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 01:56 - [千香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 02:23 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 01:54 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 02:03 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 01:54 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-30 02:23 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 02:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 01:56 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:04 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/333329.shtml)
-- 2026-06-30 01:55 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/04526.shtml)
-- 2026-06-30 01:56 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/051442344.shtml)
-- 2026-06-30 01:58 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/494775939.shtml)
-- 2026-06-30 01:58 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/066631141.shtml)
-- 2026-06-30 02:13 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/990483.shtml)
-- 2026-06-30 02:08 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/400524.shtml)
-- 2026-06-30 02:01 - [第一炉香](https://www.share.kurohicncr.top/Article/details/970227268.shtml)
-- 2026-06-30 02:01 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/0474051117.shtml)
-- 2026-06-30 01:57 - [小娘惹](https://www.blog.minike.top/Article/details/01145110.shtml)
-- 2026-06-30 02:04 - [“草莓月亮”浪漫现身](https://www.share.kurohicncr.top/Article/details/698985785.shtml)
-- 2026-06-30 02:17 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/104111.shtml)
-- 2026-06-30 01:59 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/02144142.shtml)
-- 2026-06-30 02:00 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/160786685.shtml)
-- 2026-06-30 01:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/862166057.shtml)
+- 2026-06-30 02:19 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/11029.shtml)
+- 2026-06-30 02:14 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/964544317619.shtml)
+- 2026-06-30 01:54 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/326088.shtml)
+- 2026-06-30 02:08 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/422899.shtml)
+- 2026-06-30 02:18 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/08601845804.shtml)
+- 2026-06-30 01:57 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/58080393560.shtml)
+- 2026-06-30 02:08 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/0762536640.shtml)
+- 2026-06-30 02:06 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/32468.shtml)
+- 2026-06-30 02:23 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/48405.shtml)
+- 2026-06-30 01:54 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/7538241994.shtml)
+- 2026-06-30 02:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/909696149588.shtml)
+- 2026-06-30 02:07 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/05764.shtml)
+- 2026-06-30 01:58 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/5889081205.shtml)
+- 2026-06-30 02:17 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/4713556.shtml)
+- 2026-06-30 01:59 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/8445367897.shtml)

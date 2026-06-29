@@ -1,61 +1,56 @@
-# 国台办：和平统一后，台湾的社会制度将被充分尊重
+# 韩国预计5月份石脑油供应量将达到伊朗冲突前水平的90%
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 4月29日，国台办举行例行新闻发布会。有记者问：近日，台湾“民主文教基金会”公布岛内最新民调显示，有55.2%民众认为台湾已很难“继续维持现状”，61.6%民众同意“与其等待大陆决定台湾命运，不如由台湾主动参与谈判、提出最有保障的制度条件”；如果两岸之间无法维持现状，67.4%民众担心失去现在的生活方式和权利。请问对此有何评论？ 国台办发言人陈斌华表示，相关
+韩国产业通商资源部周二表示，预计5月份韩国将锁定伊朗冲突前石脑油供应量的90%，并补充说，主要石化企业正在根据进口供应情况扩大工厂产能。 据韩国产业通商资源部的数据，此前因石脑油短缺而宣布部分产品遭遇不可抗力的丽川NCC公司，其工厂开工率已从4月1日的55%提高到上周五的65%。 同期，韩国石化工业公司的开工率也从62%提高到72%。 石脑油是一种重要的工业原料，广泛应用于石化
 
 ## 正文
 
-中新网4月29日电 4月29日，国台办举行例行新闻发布会。
+韩国产业通商资源部周二表示，预计5月份韩国将锁定伊朗冲突前石脑油供应量的90%，并补充说，主要石化企业正在根据进口供应情况扩大工厂产能。
 
-有记者问：近日，台湾“民主文教基金会”公布岛内最新民调显示，有55.2%民众认为台湾已很难“继续维持现状”，61.6%民众同意“与其等待大陆决定台湾命运，不如由台湾主动参与谈判、提出最有保障的制度条件”；如果两岸之间无法维持现状，67.4%民众担心失去现在的生活方式和权利。
+据韩国产业通商资源部的数据，此前因石脑油短缺而宣布部分产品遭遇不可抗力的丽川NCC公司，其工厂开工率已从4月1日的55%提高到上周五的65%。
 
-请问对此有何评论？
+同期，韩国石化工业公司的开工率也从62%提高到72%。
 
-国台办发言人陈斌华表示，相关民调表明，越来越多台湾同胞认识到祖国终将统一也必将统一的历史大势滚滚向前、不可阻挡。
+石脑油是一种重要的工业原料，广泛应用于石化及其他多个行业。
 
-在确保国家主权、安全、发展利益的前提下，和平统一后，台湾的社会制度和生活方式等将得到充分尊重，台湾同胞的私人财产、宗教信仰、合法权益将得到充分保障。
+下个月石脑油的稳定供应，正值政府努力确保替代供应并帮助降低国内企业进口该原料的成本之际。
 
-和平统一将给台湾经济社会发展创造巨大机遇，给广大台湾同胞带来实实在在的好处，台湾的未来将更加美好。
+韩国已从包括阿曼和沙特在内的四个中东国家确保在今年年底前获得210万吨石脑油。
 
-我们愿在坚持“九二共识”、反对“台独”的共同政治基础上，与台湾各党派、各界别、各阶层人士就两岸关系和国家统一问题开展广泛深入协商，共同推动两岸关系和平发展、推进祖国和平统一进程。
+这一数量相当于去年需求量约一个月的供应量。
 
-我们欢迎广大台湾同胞围绕实现祖国和平统一前景积极建言献策，把台湾的前途命运牢牢掌握在中国人自己手中。
+关于政府的原油互换机制，韩国产业通商资源部表示，主要炼油厂已申请本月和下月总额约3100万桶的互换协议。
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 02:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 02:04 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-30 01:56 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-30 01:53 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 02:04 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-30 01:58 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 01:50 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 01:49 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 02:00 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 02:07 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 02:02 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 02:10 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 01:58 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 02:13 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 02:03 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 02:10 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:09 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 02:06 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 01:55 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 02:07 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 02:01 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-30 02:03 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 02:02 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
+- 2026-06-30 02:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.kurohicncr.top/Article/details/80315548745.shtml)
-- 2026-06-30 01:48 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/241784.shtml)
-- 2026-06-30 02:17 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/1482781.shtml)
-- 2026-06-30 01:48 - [女心理师](http://www.share.kurohicncr.top/Article/details/1898683194.shtml)
-- 2026-06-30 01:58 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/712774926785.shtml)
-- 2026-06-30 02:00 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/862222089.shtml)
-- 2026-06-30 02:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/17531605143.shtml)
-- 2026-06-30 02:16 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/6548255.shtml)
-- 2026-06-30 01:57 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/512302465.shtml)
-- 2026-06-30 02:14 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/949906600.shtml)
-- 2026-06-30 01:50 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/187792211.shtml)
-- 2026-06-30 01:53 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/98954332193.shtml)
-- 2026-06-30 02:16 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/127058363.shtml)
-- 2026-06-30 01:58 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/7211400808.shtml)
-- 2026-06-30 02:11 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/109763466376.shtml)
+- 2026-06-30 02:21 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/84572623938.shtml)
+- 2026-06-30 01:55 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/873298016.shtml)
+- 2026-06-30 02:11 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/163774280.shtml)
+- 2026-06-30 01:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/984370.shtml)
+- 2026-06-30 02:18 - [日本反击率先破门](https://www.share.minike.top/Article/details/2837516691.shtml)
+- 2026-06-30 02:06 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/4929424.shtml)
+- 2026-06-30 02:21 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/0043346.shtml)
+- 2026-06-30 02:07 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/85995693814.shtml)
+- 2026-06-30 02:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/544916626928.shtml)
+- 2026-06-30 02:09 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/7160295.shtml)
+- 2026-06-30 02:10 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/1514421.shtml)
+- 2026-06-30 01:55 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/446803501359.shtml)
+- 2026-06-30 02:12 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/537856544.shtml)
+- 2026-06-30 02:14 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/1700933.shtml)
+- 2026-06-30 02:06 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/3363554.shtml)

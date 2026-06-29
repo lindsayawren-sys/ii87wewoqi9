@@ -1,58 +1,61 @@
-# AI眼镜产业生态大会推动人工智能与生命科学融合
+# 第26批赴藏博士服务团开展义诊暨健康科普志愿服务活动
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月29日电 (记者 索有为)“2026AI眼镜产业生态大会暨FAVS未来视听峰会”(下称“峰会”)4月27日至29日在深圳福田举行，峰会汇集了海内外近百位产业链上下游企业代表、头部投资机构，以及福田区从底层技术、敏捷制造到终端品牌的全链条本土力量。 峰会首日，聚焦福田空间载体的专场考察推介会在品牌联盟国际交流中心举办，活动立足政策导向、产业趋势，面向来自AI眼镜核心
+中新网拉萨4月28日电(拉巴卓玛)在西藏自治区党委组织部、西藏自治区党委社会工作部的指导下，中央组织部、团中央第26批赴藏博士服务团28日在拉萨市达孜区团结社区开展“雪域之光·健康‘月’你同行”多学科义诊暨健康科普志愿服务活动，把优质医疗服务送到民众家门口，吸引当地500余人次参与。 据悉，博士服务团提前一个月摸底基层健康需求，精准匹配资源，组建了由普外科、心内科、呼吸科、藏医
 
 ## 正文
 
-中新网深圳4月29日电 (记者 索有为)“2026AI眼镜产业生态大会暨FAVS未来视听峰会”(下称“峰会”)4月27日至29日在深圳福田举行，峰会汇集了海内外近百位产业链上下游企业代表、头部投资机构，以及福田区从底层技术、敏捷制造到终端品牌的全链条本土力量。
+中新网拉萨4月28日电(拉巴卓玛)在西藏自治区党委组织部、西藏自治区党委社会工作部的指导下，中央组织部、团中央第26批赴藏博士服务团28日在拉萨市达孜区团结社区开展“雪域之光·健康‘月’你同行”多学科义诊暨健康科普志愿服务活动，把优质医疗服务送到民众家门口，吸引当地500余人次参与。
 
-峰会首日，聚焦福田空间载体的专场考察推介会在品牌联盟国际交流中心举办，活动立足政策导向、产业趋势，面向来自AI眼镜核心供应链、品牌终端与头部投资机构的海内外代表团近40位嘉宾作推介。
+据悉，博士服务团提前一个月摸底基层健康需求，精准匹配资源，组建了由普外科、心内科、呼吸科、藏医科等11个重点科室以及传染病、慢性病科普专家构成的医疗团队，现场提供健康科普、疾病咨询、个体化健康指导和常用药品免费发放等一站式服务。
 
-X-HUB模力福地产业孵化中心(下称“X-HUB”)在大会上亮相。
+此次活动设置科普宣讲和专家诊疗两大区域。
 
-据了解，X-HUB依托超1万平方米孵化空间，重点布局生物医药研发制造、高端医疗器械、智慧医疗、医疗数据集、AI赋能生命科学等前沿产业集群，创新构建“研服居一体化”社区，以“空间赋能+生态链接”模式，结合“益企同行”品牌全要素产业服务，致力于成为技术与市场的超级连接器，为AI赋能生命科学等产业提供全方位支持，通过技术碰撞、场景共享，推动人工智能与生命科学深度融合、双向赋能，打造粤港澳大湾区生命科学产业孵化标杆品牌。
+科普专家围绕常见传染病知识和居民常见慢性病养护进行专题讲解，用丰富的案例把健康知识娓娓道来，与民众积极互动，气氛热烈。
 
-在峰会主论坛现场，福田区设置专属展位，全方位展示福田产投运营的百万产业空间矩阵及X-HUB的产业特色，团队与全球产业链伙伴一对一洽谈，20余家企业表达合作和落地意愿，其中包括聚焦户外运动科学等领域的垂类头部企业。
+在专家诊疗区，医务人员耐心接待每一位前来就诊的民众，仔细查看病历资料、详细询问病史、认真进行体格检查。
 
-AI眼镜产业与生命科学正在产生深刻的跨界融合，成为新一代“可穿戴医疗接口”。
+针对高血压、糖尿病、关节炎等高原常见病、多发病，他们现场开具个性化用药处方，讲解疾病预防和日常保健方法，并免费发放对症药品。
 
-主论坛开幕当天，深圳市工业和信息化局发布《关于征集智能眼镜应用场景的通知》，公开征集包括医疗健康、能源基建、工业制造等11大领域的应用场景需求与解决方案，旨在强化供需对接，赋能千行百业，助力深圳打造“AI眼镜第一城”。
+对部分复杂疑难病症，专家详细分析病情，明确后续诊疗方向，并积极帮助对接转诊资源。
 
-作为X-HUB的首批入驻企业及大会主办方，世界人工智能眼镜联盟(WAEA)表示，福田扎实的产业基础近在咫尺，将极大降低企业的协同创新成本。
+社区干部表示，团结社区及周边老年人较多、部分民众行动不便，这次义诊把健康和温暖送到民众心坎上，极大缓解了大家就医奔波之苦，欢迎专家们常来。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 01:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 01:51 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-30 01:57 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-30 02:12 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 02:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 02:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 02:04 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-30 02:08 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 02:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 01:57 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 02:17 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 02:05 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 02:09 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 01:59 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 01:58 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 02:06 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 02:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 02:22 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-30 02:11 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 01:54 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 02:23 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 02:06 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 02:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 02:00 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 02:21 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 02:03 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:11 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/57580.shtml)
-- 2026-06-30 02:04 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/5249407.shtml)
-- 2026-06-30 01:49 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/992773562.shtml)
-- 2026-06-30 01:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/891143732798.shtml)
-- 2026-06-30 01:56 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/247866520.shtml)
-- 2026-06-30 02:05 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/51863.shtml)
-- 2026-06-30 01:48 - [日本反击率先破门](https://www.blog.minike.top/Article/details/469213789126.shtml)
-- 2026-06-30 01:50 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/858215880.shtml)
-- 2026-06-30 02:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/34843591.shtml)
-- 2026-06-30 01:48 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/248423248621.shtml)
-- 2026-06-30 02:17 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/982739577.shtml)
-- 2026-06-30 01:49 - [恋与深空已删除锅里洗澡文案](http://www.share.kurohicncr.top/Article/details/46971.shtml)
-- 2026-06-30 02:11 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/998213257336.shtml)
-- 2026-06-30 01:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/274426121.shtml)
-- 2026-06-30 01:59 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/31431.shtml)
+- 2026-06-30 02:08 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/7640061.shtml)
+- 2026-06-30 02:12 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/63426337000.shtml)
+- 2026-06-30 02:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/0002711712.shtml)
+- 2026-06-30 01:56 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/1365818408.shtml)
+- 2026-06-30 02:15 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/9906536268.shtml)
+- 2026-06-30 02:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/29448681.shtml)
+- 2026-06-30 01:59 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/928853.shtml)
+- 2026-06-30 02:20 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.minike.top/Article/details/48420949082.shtml)
+- 2026-06-30 02:21 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/05520.shtml)
+- 2026-06-30 01:59 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/57758323294.shtml)
+- 2026-06-30 02:23 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/879549121228.shtml)
+- 2026-06-30 02:02 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/463017.shtml)
+- 2026-06-30 02:18 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/7653271140.shtml)
+- 2026-06-30 02:08 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/7259093.shtml)
+- 2026-06-30 02:09 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/517841933.shtml)

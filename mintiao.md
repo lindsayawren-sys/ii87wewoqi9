@@ -1,57 +1,58 @@
-# 埃尼重组化工业务，聘请摩根大通评估裂解厂出售
+# 艺科交汇，全球对话：世界艺术与科技主题活动在京启动
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-意大利能源巨头埃尼集团已聘请摩根大通担任财务顾问，以评估位于该国南部的布林迪西裂解厂的潜在出售事宜，一位熟悉内情的消息人士向路透社透露。 该裂解厂是埃尼亏损化学品业务重组计划的一部分，已于去年进入闲置状态。埃尼旗下化学品子公司Versalis的转型战略包括逐步退出基础石化品领域，转向生物燃料、塑料回收和特种化学品等高附加值业务。 意大利企业与“意大利制造”部长阿道夫·乌尔索周二
+中新网北京4月29日电(薛凌桥)4月28日，由中国文联国际联络部、中国文联理论研究室、中国经济信息社主办的世界艺术与科技对话活动在北京开幕。本次活动以“演化与创生——艺术和科技的融合创新”为主题，汇聚众多中外艺术界、科技界权威嘉宾与行业领军人物，聚力研讨数字文艺创新、前沿技术应用等重要议题。 开幕式期间，中国文联党组书记、副主席张政和新华通讯社总编辑吕岩松发表致辞。 张政表示，
 
 ## 正文
 
-意大利能源巨头埃尼集团已聘请摩根大通担任财务顾问，以评估位于该国南部的布林迪西裂解厂的潜在出售事宜，一位熟悉内情的消息人士向路透社透露。
+中新网北京4月29日电(薛凌桥)4月28日，由中国文联国际联络部、中国文联理论研究室、中国经济信息社主办的世界艺术与科技对话活动在北京开幕。
 
-该裂解厂是埃尼亏损化学品业务重组计划的一部分，已于去年进入闲置状态。
+本次活动以“演化与创生——艺术和科技的融合创新”为主题，汇聚众多中外艺术界、科技界权威嘉宾与行业领军人物，聚力研讨数字文艺创新、前沿技术应用等重要议题。
 
-埃尼旗下化学品子公司Versalis的转型战略包括逐步退出基础石化品领域，转向生物燃料、塑料回收和特种化学品等高附加值业务。
+开幕式期间，中国文联党组书记、副主席张政和新华通讯社总编辑吕岩松发表致辞。
 
-意大利企业与“意大利制造”部长阿道夫·乌尔索周二与埃尼高层会面，审查重组进展，特别关注布林迪西厂区的未来。
+张政表示，艺术穿透科技，科技承载艺术。
 
-会后发布的部委声明证实，埃尼已选定一家“顶级国际顾问”以寻找潜在工业买家，但未披露更多细节。
+科技越发展，越要关注艺术的人文价值。
 
-埃尼与摩根大通均拒绝对此发表评论。
+面对艺术与科技融合的全球性时代课题，要着眼人类文明交流互鉴、艺术科技交融共生，共同构建艺术科技融合的协作机制，共同实施一批示范性合作项目，共同推动关键标准与伦理准则的研究制定，共同促进融合成果的全球普惠共享。
 
-近年来，欧洲裂解行业因装置老化、能源成本高企及亚洲进口冲击而持续承压。
+吕岩松说，在艺术与科技融合发展的进程中，媒体是见证者、记录者，也是参与者。
 
-此次出售评估正值埃尼加速生物燃料业务扩张之际。
+新华社始终积极拥抱技术变革，直面信息化时代受众阅读审美需求的深刻变化，秉持“内容+技术+灵感+美学”的生产理念，持续打造融合报道精品。
 
 ## 相关推荐
 
-- 2026-06-30 02:05 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-30 01:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 02:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 01:55 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 02:12 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 02:00 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 01:54 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 01:53 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 02:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 02:17 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 02:04 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 01:55 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 02:19 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 01:54 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 02:12 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 01:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 02:17 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 02:02 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 02:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 02:07 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 02:09 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 02:00 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-30 02:22 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/2629689120.shtml)
-- 2026-06-30 01:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/831368.shtml)
-- 2026-06-30 01:57 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/42327.shtml)
-- 2026-06-30 02:07 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/7369624.shtml)
-- 2026-06-30 01:55 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/6422419047.shtml)
-- 2026-06-30 01:53 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/287591104976.shtml)
-- 2026-06-30 02:09 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/776112195434.shtml)
-- 2026-06-30 01:54 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.minike.top/Article/details/141738783.shtml)
-- 2026-06-30 02:09 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/94445.shtml)
-- 2026-06-30 02:13 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/39955685884.shtml)
-- 2026-06-30 02:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/774315386.shtml)
-- 2026-06-30 02:10 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/99713134.shtml)
-- 2026-06-30 01:50 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/354393746759.shtml)
-- 2026-06-30 02:07 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/7235505746.shtml)
-- 2026-06-30 01:59 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/38953739318.shtml)
+- 2026-06-30 02:18 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/491032649.shtml)
+- 2026-06-30 01:54 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/285098.shtml)
+- 2026-06-30 01:59 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/97040.shtml)
+- 2026-06-30 02:04 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/79317.shtml)
+- 2026-06-30 02:21 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/05157.shtml)
+- 2026-06-30 02:11 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/8103303421.shtml)
+- 2026-06-30 02:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/08405212862.shtml)
+- 2026-06-30 02:12 - [小娘惹](http://www.blog.minike.top/Article/details/5627217.shtml)
+- 2026-06-30 02:04 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/471482014.shtml)
+- 2026-06-30 02:17 - [这种关系可能正在悄悄“催老”你](http://www.blog.minike.top/Article/details/636709164569.shtml)
+- 2026-06-30 02:21 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/08874955017.shtml)
+- 2026-06-30 02:19 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/8063060.shtml)
+- 2026-06-30 02:08 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/04492.shtml)
+- 2026-06-30 01:57 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/819452.shtml)
+- 2026-06-30 01:56 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/378254079563.shtml)

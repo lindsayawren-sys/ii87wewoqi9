@@ -1,60 +1,59 @@
-# 闻泰科技将被*ST，停牌一天
+# 香港北都首个大型运输基建将通车 创多项世界第一
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨张嘉钰 编辑丨黎雨桐 4月29日晚，闻泰科技（维权）公告称，因容诚会计师事务所对公司2025年度财务会计报告出具无法表示意见的审计报告，且对2025年度财务报告内部控制出具无法表示意见的内部控制审计报告，公司股票将被实施退市风险警示并叠加其他风险警示。 公司股票及可转债“闻泰转债”将于2026年4月3
+中新社香港4月29日电 香港特区政府运输署29日表示，香港北部都会区首个落成的大型运输基建项目——粉岭绕道(东段)将于5月3日8时通车，该项目建设过程中引进内地先进技术及物料，创下多项世界第一。 香港特区政府土木工程拓展署介绍，粉岭绕道(东段)全长约4公里，工程2020年2月起分阶段动工，为提升建造效率，团队首次在香港应用桥梁横向转体技术，建造跨越东铁线的绕道桥梁结构，亦创下全
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社香港4月29日电 香港特区政府运输署29日表示，香港北部都会区首个落成的大型运输基建项目——粉岭绕道(东段)将于5月3日8时通车，该项目建设过程中引进内地先进技术及物料，创下多项世界第一。
 
-记者丨张嘉钰 编辑丨黎雨桐 4月29日晚，闻泰科技（维权）公告称，因容诚会计师事务所对公司2025年度财务会计报告出具无法表示意见的审计报告，且对2025年度财务报告内部控制出具无法表示意见的内部控制审计报告，公司股票将被实施退市风险警示并叠加其他风险警示。
+香港特区政府土木工程拓展署介绍，粉岭绕道(东段)全长约4公里，工程2020年2月起分阶段动工，为提升建造效率，团队首次在香港应用桥梁横向转体技术，建造跨越东铁线的绕道桥梁结构，亦创下全球最大弯曲度33度转体桥的纪录，整体工期缩短约一年。
 
-公司股票及可转债“闻泰转债”将于2026年4月30日停牌一天，自2026年5月6日起实施风险警示，股票简称变更为*ST闻泰，日涨跌幅限制为5%。
+土木工程拓展署提到，工程最艰巨的部分，是在龙跃头交汇处建造复杂的三层式结构，包括地下行车通道、地面回旋处，以及高架人行天桥，而该位置的地底同时铺设了煤气管、高压电缆、水喉等公共设施，增加工程难度。
 
-若2026年度未消除相关情形，公司股票可能被终止上市。
+施工团队引入了S960国产超高强钢建造龙跃头交汇处的人行天桥。
 
-同日，闻泰科技发布一季报，2026年第一季度实现营业收入8.16亿元，同比下降93.77%；归属于上市公司股东的净利润亏损1.89亿元，上年同期盈利2.61亿元，同比转亏。
+S960超高强钢的强度约为一般钢材的3倍，可大幅减少钢材使用量，显著减轻桥梁重量，同时有助于缩短施工时间。
 
-公告指出，业绩变动主要系2025年陆续剥离产品集成业务，且2025年第四季度起对安世境外相关主体控制权受限不再纳入合并范围，业务结构且本期业务规模较上年同期大幅减少。
+这条天桥也是全球首条应用此物料建造的人行天桥。
 
-二级市场上，闻泰科技近期股价呈下跌趋势，4月29日收涨1.15%报28.12元/股，最新市值为350亿元。
+土木工程拓展署总工程师张柏坚表示，项目通车后，上水和粉岭地区居民进出九龙可避开区内繁忙道路，预计可节省10分钟左右车程。
 
-责任编辑：杨红卜
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 02:06 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 02:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 02:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 02:04 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-30 01:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 01:52 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 01:56 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 02:05 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 01:56 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 01:55 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 02:02 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 02:16 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 02:03 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 02:00 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 02:24 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 01:55 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 02:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 02:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-30 02:22 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 02:02 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-30 02:15 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 02:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 02:18 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-30 02:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 02:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 02:16 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/694650299.shtml)
-- 2026-06-30 02:07 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/146495455.shtml)
-- 2026-06-30 01:51 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/204026.shtml)
-- 2026-06-30 02:05 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/27955008723.shtml)
-- 2026-06-30 01:58 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/59897140661.shtml)
-- 2026-06-30 01:53 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/4439308.shtml)
-- 2026-06-30 02:07 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/6397335.shtml)
-- 2026-06-30 01:55 - [《我落泪情绪零碎》](https://www.share.kurohicncr.top/Article/details/78083601856.shtml)
-- 2026-06-30 02:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/554380.shtml)
-- 2026-06-30 01:56 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/88316925.shtml)
-- 2026-06-30 02:10 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/853452.shtml)
-- 2026-06-30 01:51 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/63047.shtml)
-- 2026-06-30 01:49 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/0600120.shtml)
-- 2026-06-30 02:00 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/3044429444.shtml)
-- 2026-06-30 02:06 - [女心理师](https://www.share.kurohicncr.top/Article/details/6752494769.shtml)
+- 2026-06-30 02:02 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/88891580486.shtml)
+- 2026-06-30 02:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/81118901914.shtml)
+- 2026-06-30 02:14 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/57095.shtml)
+- 2026-06-30 02:18 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/926207146.shtml)
+- 2026-06-30 02:11 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/44602.shtml)
+- 2026-06-30 02:08 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/662019895138.shtml)
+- 2026-06-30 02:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/84979.shtml)
+- 2026-06-30 02:01 - [明星大侦探第四季](http://www.share.minike.top/Article/details/50260276.shtml)
+- 2026-06-30 01:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/298909.shtml)
+- 2026-06-30 02:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/615673606.shtml)
+- 2026-06-30 02:20 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/94092931.shtml)
+- 2026-06-30 02:04 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/83323780841.shtml)
+- 2026-06-30 02:06 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/805725.shtml)
+- 2026-06-30 02:17 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/34557.shtml)
+- 2026-06-30 02:14 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/3166246002.shtml)

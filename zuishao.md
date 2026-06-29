@@ -1,54 +1,47 @@
-# 印尼智库负责人称赞中国治国理政追求持久成效
+# 无锡银行：一季度实现归母净利润为6.35亿元，同比增长2.73%
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-印尼智库PARA Syndicate执行董事维尔迪卡·里兹基·乌塔马近日在接受《中国日报》专访时表示，在很多政治体制中，衡量成功的标准通常是那些立竿见影的成效，但表面成效并不一定能转化为持久价值。 他指出，中国强调“树立正确政绩观”，将治理重心置于切实改善人民的生活，取得长期的实际成果。乌塔马以中国的精准扶贫工作为例指出，有效的治理应致力于满足教育、医疗、就业等具体需求，同时认
+4月29日金融一线消息，无锡银行发布2026年一季度报告。数据显示，2026年1-3月营业收入为13.85亿元，较去年同期增长2.60%，归母净利润为6.35亿，较去年同期增长2.73%，每股收益0.29元。 责任编辑：王馨茹
 
 ## 正文
 
-印尼智库PARA Syndicate执行董事维尔迪卡·里兹基·乌塔马近日在接受《中国日报》专访时表示，在很多政治体制中，衡量成功的标准通常是那些立竿见影的成效，但表面成效并不一定能转化为持久价值。
+4月29日金融一线消息，无锡银行发布2026年一季度报告。
 
-他指出，中国强调“树立正确政绩观”，将治理重心置于切实改善人民的生活，取得长期的实际成果。
+数据显示，2026年1-3月营业收入为13.85亿元，较去年同期增长2.60%，归母净利润为6.35亿，较去年同期增长2.73%，每股收益0.29元。
 
-乌塔马以中国的精准扶贫工作为例指出，有效的治理应致力于满足教育、医疗、就业等具体需求，同时认识到健全的机制和社会信任等隐性因素对可持续发展至关重要。
-
-他补充说，许多发展中国家也面临类似挑战，并强调“在治理中真正重要的不是昙花一现的精彩表现，而是长远之计。
-
-”(中国日报网)
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-30 01:52 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 02:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 02:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-30 01:54 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 01:53 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 01:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 01:51 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 01:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 01:56 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 02:01 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 02:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 02:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 02:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-30 02:20 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 02:01 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
+- 2026-06-30 02:13 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 02:19 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 02:10 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 02:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 02:00 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 02:14 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 02:22 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 02:04 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 02:23 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/968460615444.shtml)
-- 2026-06-30 02:06 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/5200232165.shtml)
-- 2026-06-30 02:17 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/252314273.shtml)
-- 2026-06-30 01:48 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/68470984233.shtml)
-- 2026-06-30 02:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/23146823912.shtml)
-- 2026-06-30 01:58 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/1465465521.shtml)
-- 2026-06-30 02:17 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/4696357001.shtml)
-- 2026-06-30 01:59 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/263221351.shtml)
-- 2026-06-30 02:14 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/344275921400.shtml)
-- 2026-06-30 01:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/967030.shtml)
-- 2026-06-30 02:01 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/18296407670.shtml)
-- 2026-06-30 01:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/484630236477.shtml)
-- 2026-06-30 01:58 - [詹姆斯下赛季去哪](http://www.share.minike.top/Article/details/363895.shtml)
-- 2026-06-30 02:02 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/364582781.shtml)
-- 2026-06-30 02:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/1839174.shtml)
+- 2026-06-30 01:55 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/82285034159.shtml)
+- 2026-06-30 01:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/42521570.shtml)
+- 2026-06-30 01:54 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/90484518.shtml)
+- 2026-06-30 02:09 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/6517177965.shtml)
+- 2026-06-30 01:59 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/1495630969.shtml)
+- 2026-06-30 02:08 - [逃狱兄弟](http://www.blog.minike.top/Article/details/85905.shtml)
+- 2026-06-30 02:18 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/28573822678.shtml)
+- 2026-06-30 02:08 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/9584674094.shtml)
+- 2026-06-30 02:03 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/04836.shtml)
+- 2026-06-30 02:19 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/259537135.shtml)
+- 2026-06-30 02:11 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/5427239951.shtml)
+- 2026-06-30 01:57 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/255230948350.shtml)
+- 2026-06-30 02:08 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/369286625.shtml)
+- 2026-06-30 01:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/54353523656.shtml)
+- 2026-06-30 02:19 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/5391310.shtml)

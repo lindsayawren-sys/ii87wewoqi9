@@ -1,60 +1,58 @@
-# 民政部：着力推进普惠性、基础性、兜底性民生建设
+# 千名学子在北京密云共上“行走的思政课”
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网4月29日电 民政部4月29日举行2026年第二季度例行新闻发布会。民政部新闻发言人、办公厅(国际合作司)副主任武增锋通报第一季度民政重点工作进展情况和下一步工作安排。武增锋介绍，今年以来，民政部认真落实党中央、国务院决策部署，着力推进普惠性、基础性、兜底性民生建设，各项工作取得新的进展和成效。民生兜底保障方面 积极推动社会救助立法，持续健全分层分类的社会救助体系，完善临
+中新网北京4月29日电 (戴琪果)首都青少年“来密云看海”研学活动28日在北京密云拉开帷幕，北京市第二十中学1200余名师生走进密云，在一堂沉浸式“行走的思政课”中，感受生态之美、奉献之情和胸怀之广。 在密云水库展览馆内，泛黄的老照片、斑驳的工具实物和多媒体影像，再现了1958年20万建设者移山造海的场景，记录着密云人民守护密云水库的故事。 “以前觉得密云水库只是一个地名，今天
 
 ## 正文
 
-中新网4月29日电 民政部4月29日举行2026年第二季度例行新闻发布会。
+中新网北京4月29日电 (戴琪果)首都青少年“来密云看海”研学活动28日在北京密云拉开帷幕，北京市第二十中学1200余名师生走进密云，在一堂沉浸式“行走的思政课”中，感受生态之美、奉献之情和胸怀之广。
 
-民政部新闻发言人、办公厅(国际合作司)副主任武增锋通报第一季度民政重点工作进展情况和下一步工作安排。
+在密云水库展览馆内，泛黄的老照片、斑驳的工具实物和多媒体影像，再现了1958年20万建设者移山造海的场景，记录着密云人民守护密云水库的故事。
 
-武增锋介绍，今年以来，民政部认真落实党中央、国务院决策部署，着力推进普惠性、基础性、兜底性民生建设，各项工作取得新的进展和成效。
+“以前觉得密云水库只是一个地名，今天才真正理解，这是我们首都人民的‘大水缸’，它的背后凝聚着几十万人的汗水。
 
-民生兜底保障方面 积极推动社会救助立法，持续健全分层分类的社会救助体系，完善临时救助制度，强化社会救助对象动态监测，推进高效办成“社会救助一件事”，联合财政部下拨2026年中央财政困难群众救助补助资金1566.8亿元，开展“寒冬送温暖”专项救助行动。
+”聆听完讲解员深情讲述后，学生们对密云水库作用有了深刻了解，对水源保护重要性也有了更深刻体会。
 
-截至3月底，全国城市低保平均标准每人每月835元，农村低保平均标准每人每月623元。
+金叵罗农场里，研学成为了一堂看得见、摸得着的生态文明课。
 
-社会组织管理方面 组织召开推进社会组织高质量发展暨第五次“全国先进社会组织”表彰工作会议，授予286个社会团体、社会服务机构和基金会“全国先进社会组织”称号。
+学生们化身“新农人”，亲手制作环保酵素，在田间体验翻土、播种，感受劳动之美。
 
-公布新修订的《社会组织评估管理办法》。
+“原来有的垃圾还是可利用的资源，我要把制作酵素的过程记录下来，教爸妈一起用菜叶、果皮做肥料，从生活小事为绿色环保出份力。
 
-印发《2026年中央财政支持社会组织参与社会服务项目实施方案》的通知。
+”学生芈坤灿拎着刚封好的酵素桶兴奋地说。
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 01:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 02:01 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 01:49 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 02:13 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 02:11 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 02:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 02:07 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-30 02:12 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-30 01:58 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 01:54 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 02:08 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 01:48 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-30 02:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 02:15 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 02:22 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-30 01:55 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 02:02 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-30 02:09 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 01:59 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-30 02:22 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 02:19 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 02:22 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-30 01:55 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-30 02:01 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-30 02:13 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:08 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/156047197601.shtml)
-- 2026-06-30 01:55 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/764979681.shtml)
-- 2026-06-30 02:04 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/903887892429.shtml)
-- 2026-06-30 01:52 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/53621459134.shtml)
-- 2026-06-30 02:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/7258107071.shtml)
-- 2026-06-30 01:57 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/942750939502.shtml)
-- 2026-06-30 02:10 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/6371720.shtml)
-- 2026-06-30 02:04 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/6994689130.shtml)
-- 2026-06-30 01:51 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/111831953.shtml)
-- 2026-06-30 02:06 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/207505.shtml)
-- 2026-06-30 02:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/0895276.shtml)
-- 2026-06-30 01:53 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/282405802.shtml)
-- 2026-06-30 01:58 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/90612.shtml)
-- 2026-06-30 02:02 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/57530.shtml)
-- 2026-06-30 02:15 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/862564092452.shtml)
+- 2026-06-30 02:02 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/97970124.shtml)
+- 2026-06-30 02:23 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/736757495820.shtml)
+- 2026-06-30 02:03 - [世界杯](https://www.share.minike.top/Article/details/22800296.shtml)
+- 2026-06-30 02:02 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/374384452912.shtml)
+- 2026-06-30 02:14 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/3218629383.shtml)
+- 2026-06-30 02:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/58340272700.shtml)
+- 2026-06-30 01:58 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/3768848.shtml)
+- 2026-06-30 01:54 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/549444006238.shtml)
+- 2026-06-30 02:18 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/7312910.shtml)
+- 2026-06-30 02:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/40385.shtml)
+- 2026-06-30 02:14 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/2167810065.shtml)
+- 2026-06-30 02:14 - [美人鱼](https://www.blog.minike.top/Article/details/23236424156.shtml)
+- 2026-06-30 02:23 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/15538.shtml)
+- 2026-06-30 02:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.minike.top/Article/details/4406852436.shtml)
+- 2026-06-30 02:05 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/97109957.shtml)

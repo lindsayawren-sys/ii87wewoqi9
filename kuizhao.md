@@ -1,56 +1,51 @@
-# 深汕高铁龙岗隧道“拓荒牛”盾构机组装完成
+# 长沙银行：一季度实现归母净利润22.99亿元，同比增长5.77%
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网深圳4月29日电 (郭军 蔡震)4月29日，在深圳龙岗园山地下105米深处，随着开挖直径14.31米、长达130米的“拓荒牛”盾构机完成台车与主机的精准对接，由厦深铁路广东有限公司负责建设管理、中铁十四局承建的深汕铁路龙岗隧道横岗段盾构机全部组装完毕。 这是全国首例采用洞内分体空推工法完成设备组装的大直径盾构机，深汕铁路龙岗隧道横岗段即将进入盾构掘进阶段。 深汕铁路是国家
+4月28日金融一线消息，长沙银行发布2026年一季度报告。数据显示，报告期内，长沙银行实现营业收入71.93亿元，同比增长5.64%；归属于上市公司股东的净利润22.99亿元，同比增长5.77%。 截至一季度末，长沙银行资产总额1.32万亿元，较年初增加469.72亿元，增长3.70%；吸收存款本金总额8116.27亿元，较年初增加229.81亿元，增长2.91%；发放贷款及垫
 
 ## 正文
 
-中新网深圳4月29日电 (郭军 蔡震)4月29日，在深圳龙岗园山地下105米深处，随着开挖直径14.31米、长达130米的“拓荒牛”盾构机完成台车与主机的精准对接，由厦深铁路广东有限公司负责建设管理、中铁十四局承建的深汕铁路龙岗隧道横岗段盾构机全部组装完毕。
+4月28日金融一线消息，长沙银行发布2026年一季度报告。
 
-这是全国首例采用洞内分体空推工法完成设备组装的大直径盾构机，深汕铁路龙岗隧道横岗段即将进入盾构掘进阶段。
+数据显示，报告期内，长沙银行实现营业收入71.93亿元，同比增长5.64%；归属于上市公司股东的净利润22.99亿元，同比增长5.77%。
 
-深汕铁路是国家“八纵八横”高铁网沿海通道的重要组成部分，线路起于深圳西丽站，终至深汕合作区深汕站，正线全长125.486公里，设计时速350公里。
+截至一季度末，长沙银行资产总额1.32万亿元，较年初增加469.72亿元，增长3.70%；吸收存款本金总额8116.27亿元，较年初增加229.81亿元，增长2.91%；发放贷款及垫款本金总额6469.08亿元，较年初增加352.23亿元，增长5.76%。
 
-由中铁十四局承建的龙岗隧道横岗段全长10.307公里，其中盾构段3721米，施工中应用的“拓荒牛”盾构机，需要在超大断面洞室内完成盾构机组装、空推、始发、接收、回拖拆解全流程一体化作业，也是全国首例大直径盾构洞内全流程作业项目。
+资产质量方面，截至报告期末，长沙银行不良贷款率1.15%，拨备覆盖率281%，拨贷比3.23%。
 
-据悉，由于隧道位于深圳城区核心地带，地面建筑密集、交通流量大，同时紧邻东江二级水源保护区，传统地面始发井不具备实施条件。
-
-为此，项目创新采用“斜井运输+洞内组装”技术方案，修建园山斜井通道用于盾构机部件运输，并在山体地下百米处修建组装洞，完成组装、空推、始发等全套工序，实现在“螺蛳壳里做道场”。
-
-据中铁十四局龙岗隧道项目盾构经理蔡明聪介绍，园山斜井通道全长743米，最大坡度达10%，最小转弯半径仅80米，刀盘、主驱动等250吨级超大部件在运输过程中，与斜井结构间距仅有0.5米，任何轻微磕碰都可能造成设备损伤。
-
-与此同时，组装洞净长60米、宽16.55米，大型吊装设备无法施展，主驱动翻身、刀盘对接等操作犹如在“火柴盒”里造巨龙。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 01:54 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 01:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 01:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 02:05 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 02:12 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:12 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 02:00 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 02:09 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 02:17 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 02:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 02:20 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 01:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 02:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-30 02:13 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 02:03 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 02:10 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 02:02 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 01:56 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 01:58 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-30 02:05 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:13 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/98998928932.shtml)
-- 2026-06-30 01:58 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/42221592.shtml)
-- 2026-06-30 01:52 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/54922175777.shtml)
-- 2026-06-30 02:15 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/34157195654.shtml)
-- 2026-06-30 01:56 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/83964.shtml)
-- 2026-06-30 01:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/44259798590.shtml)
-- 2026-06-30 02:04 - [周生如故](http://www.blog.minike.top/Article/details/92751660.shtml)
-- 2026-06-30 02:11 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/47895.shtml)
-- 2026-06-30 02:06 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/78714242.shtml)
-- 2026-06-30 02:03 - [强制戒网瘾起诉父亲](https://www.blog.minike.top/Article/details/03878.shtml)
-- 2026-06-30 02:06 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/770356554.shtml)
-- 2026-06-30 02:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/80384.shtml)
-- 2026-06-30 02:07 - [美股](https://www.blog.kurohicncr.top/Article/details/6246972629.shtml)
-- 2026-06-30 02:11 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/44748545450.shtml)
-- 2026-06-30 02:13 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/44651295.shtml)
+- 2026-06-30 02:21 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/925178.shtml)
+- 2026-06-30 02:07 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/891213503738.shtml)
+- 2026-06-30 02:00 - [女心理师](http://www.blog.kurohicncr.top/Article/details/3050326.shtml)
+- 2026-06-30 02:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/50754946258.shtml)
+- 2026-06-30 01:56 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/0487910701.shtml)
+- 2026-06-30 02:12 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/474651984.shtml)
+- 2026-06-30 02:05 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/87992847.shtml)
+- 2026-06-30 02:19 - [啊啊啊](http://www.blog.minike.top/Article/details/8550380.shtml)
+- 2026-06-30 02:16 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/5762964.shtml)
+- 2026-06-30 02:06 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/69666356754.shtml)
+- 2026-06-30 02:20 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/976159497.shtml)
+- 2026-06-30 02:23 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/29380419.shtml)
+- 2026-06-30 02:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/73790.shtml)
+- 2026-06-30 02:15 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/2966686.shtml)
+- 2026-06-30 02:20 - [明星大侦探第一季](http://www.share.minike.top/Article/details/11380201.shtml)

@@ -1,61 +1,54 @@
-# Ocean Winds法国首个海上风电场全面投运
+# 赣锋锂业午前涨超6% 公司将于今日发布2026年首季度财报
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-由EDPR和ENGIE各持股50%的合资企业Ocean Winds公司在法国安装完成了Yeu岛和Noirmoutier海上风电场的最后一台风力涡轮机。 最后一台涡轮机的安装标志着建设工作的完成，该项目正式进入全面运营阶段。该风电场位于旺代省沿海，现已全面安装并投入运营。 自2025年6月以来，随着安装工作的推进，该项目已逐步为法国生产清洁电力。这个488兆瓦的项目包含61台涡轮
+赣锋锂业（01772）盘中涨超7%，截至发稿，股价上涨6.31%，现报83.45港元，成交额7.41亿港元。 4月29日，赣锋锂业将发布2026年首季度财报。此前赣锋锂业发盈喜，花旗指出，公司今年首季净利润转正，介乎16亿至21亿元人民币（下同），以中值计算核心净利润为15亿元，符合预期。业绩主要受惠于平均售价急升，期内碳酸锂均价为每吨15.4万元，按季增长75%。 值得一提的
 
 ## 正文
 
-由EDPR和ENGIE各持股50%的合资企业Ocean Winds公司在法国安装完成了Yeu岛和Noirmoutier海上风电场的最后一台风力涡轮机。
+赣锋锂业（01772）盘中涨超7%，截至发稿，股价上涨6.31%，现报83.45港元，成交额7.41亿港元。
 
-最后一台涡轮机的安装标志着建设工作的完成，该项目正式进入全面运营阶段。
+4月29日，赣锋锂业将发布2026年首季度财报。
 
-该风电场位于旺代省沿海，现已全面安装并投入运营。
+此前赣锋锂业发盈喜，花旗指出，公司今年首季净利润转正，介乎16亿至21亿元人民币（下同），以中值计算核心净利润为15亿元，符合预期。
 
-自2025年6月以来，随着安装工作的推进，该项目已逐步为法国生产清洁电力。
+业绩主要受惠于平均售价急升，期内碳酸锂均价为每吨15.4万元，按季增长75%。
 
-这个488兆瓦的项目包含61台涡轮机，目前产生的可再生电力相当于近80万人的年用电量，直接为法国的能源转型做出贡献。
+值得一提的是，在供应端，中国银河证券表示，津巴布韦此前2月的禁止锂矿出口或将在5月逐步影响国内锂盐的原料供应，此前公示换证的四家核心江西锂云母矿或将在5-6月停产进入换证审批流程，且IGO将格林布什锂矿2026财年的产量指引下调近18万吨。
 
-Ocean Winds首席执行官表示：“EMYN风电场从建设阶段过渡到全面运营，清楚地展示了Ocean Winds在欧洲市场大规模交付复杂海上风电项目的能力。
+供应的扰动与需求边际上行或将使国内碳酸锂供需缺口在度打开，进行库存去化，支撑锂价的上涨。
 
-这一里程碑反映了我们工业模式的成熟度、合作伙伴关系的力量，以及我们通过部署可靠的可再生发电资产为加强能源安全所做的贡献。
-
-这标志着我们在法国持续发展的重要一步。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:55 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
-- 2026-06-30 02:10 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 02:04 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 02:16 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 01:59 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 02:12 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-30 02:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 01:57 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 01:48 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-30 02:15 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 02:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 01:55 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 02:10 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 02:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 01:50 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 02:18 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-30 01:55 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
+- 2026-06-30 02:13 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-30 01:55 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 02:22 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 02:02 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 01:54 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-30 02:03 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-30 02:12 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-30 02:04 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/50445.shtml)
-- 2026-06-30 01:48 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/44734.shtml)
-- 2026-06-30 01:53 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/2821724.shtml)
-- 2026-06-30 02:10 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/697849440228.shtml)
-- 2026-06-30 02:00 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/5411777.shtml)
-- 2026-06-30 02:01 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/00579236206.shtml)
-- 2026-06-30 01:51 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/74588333222.shtml)
-- 2026-06-30 02:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/937702654302.shtml)
-- 2026-06-30 01:50 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/934289562752.shtml)
-- 2026-06-30 02:17 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/440044.shtml)
-- 2026-06-30 01:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/90870524495.shtml)
-- 2026-06-30 02:03 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/8355315.shtml)
-- 2026-06-30 01:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/480735176.shtml)
-- 2026-06-30 02:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.blog.kurohicncr.top/Article/details/846288.shtml)
-- 2026-06-30 01:49 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/08862.shtml)
+- 2026-06-30 02:09 - [张凌赫 客串](http://www.share.minike.top/Article/details/50972.shtml)
+- 2026-06-30 01:56 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/308134603084.shtml)
+- 2026-06-30 02:16 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/64609843.shtml)
+- 2026-06-30 02:01 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/72582721174.shtml)
+- 2026-06-30 01:54 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/175479.shtml)
+- 2026-06-30 02:05 - [日本反击率先破门](https://www.blog.minike.top/Article/details/34602506044.shtml)
+- 2026-06-30 02:20 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/02187435.shtml)
+- 2026-06-30 02:15 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/6867100127.shtml)
+- 2026-06-30 02:05 - [恋与深空致歉](http://www.blog.kurohicncr.top/Article/details/192332124719.shtml)
+- 2026-06-30 01:54 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/73785912731.shtml)
+- 2026-06-30 02:23 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/44157400.shtml)
+- 2026-06-30 02:09 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/22743440.shtml)
+- 2026-06-30 02:10 - [扬名立万](https://www.share.kurohicncr.top/Article/details/1565638.shtml)
+- 2026-06-30 02:00 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/37583.shtml)
+- 2026-06-30 01:57 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/057290361639.shtml)

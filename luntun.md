@@ -1,59 +1,57 @@
-# 博时市场点评4月29日：沪指站上4100点，创业板涨超2.5%
+# 黄河流域今年汛期预计旱涝并重
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-🌟【博时市场点评4月29日】沪指站上4100点，创业板涨超2.5% 📝每日观点 🎈今日沪深三大指数上涨，沪指站上4100点，创业板指涨超2.5%，两市成交较昨日放量至近2.61万亿。海外方面，阿联酋宣布自5月1日起退出OPEC，这件事对市场的意义，不只是少了一个成员国，而是OPEC内部约束力和未来配额协调机制的可信度受到挑战；伊朗提出三阶段谈判框架，涉及停火、霍尔木兹海峡管理及
+中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。 据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。降水集中时段出现在7月中旬中期、7月下
 
 ## 正文
 
-🌟【博时市场点评4月29日】沪指站上4100点，创业板涨超2.5% 📝每日观点 🎈今日沪深三大指数上涨，沪指站上4100点，创业板指涨超2.5%，两市成交较昨日放量至近2.61万亿。
+中新社郑州4月29日电 (记者 阚力)据中国水利部黄河水利委员会(以下简称黄委)29日消息，预计今年黄河流域汛期气候状况总体偏差，降水时空分布不均，旱涝并重，区域性、阶段性旱涝风险较高。
 
-海外方面，阿联酋宣布自5月1日起退出OPEC，这件事对市场的意义，不只是少了一个成员国，而是OPEC内部约束力和未来配额协调机制的可信度受到挑战；伊朗提出三阶段谈判框架，涉及停火、霍尔木兹海峡管理及核问题，这意味着中东局势对资产价格的影响，从“线性升级”转向“高位反复”；在此情况下，市场对两种情景同时定价。
+据黄河流域气象中心预测，预计今年汛期龙羊峡以上、中游中东部、下游降水偏多，其中源头、中游东部和下游大部分地区偏多二至三成，流域其他大部分地区偏少零至二成。
 
-国内方面，昨日中央政治局召开会议，按以往惯例，若非出现重大变化，每年4月末的政治局会议与前一年的中央经济工作会议精神基本一致，今年也是如此，但对一季度的情况略有调整。
+降水集中时段出现在7月中旬中期、7月下旬中后期至8月上旬前期、8月中旬中后期。
 
-一季度主要经济指标好于预期，经济起步有力，显示了强大的韧性和活力，在此情况下，财政和货币政策大概率延续此前力度，进一步宽松的必要性不高。
+流域大部气温偏高，其中黄河中游南部、下游地区高温日数偏多明显。
 
-目前国内权益市场的核心问题是业绩验证能否支撑前期估值扩张，短期或继续呈现“指数震荡、结构轮动”的路径，结构上或可关注“红利底仓+景气成长”的哑铃配置。
+黄委方面称，今年汛期黄河流域需密切注意防范区域性、阶段性强降水及其引发的中小河流洪水风险；要紧盯局地强对流天气，做好城市内涝、山洪、地质灾害等次生灾害应对；要防范台风暴雨灾害对流域中下游地区的不利影响；要关注中下游地区高温天气影响，警惕可能出现的区域性、阶段性干旱风险。
 
-🔥消息面 🎈4月28日，阿联酋宣布自5月1日起退出石油输出国组织（OPEC）及“OPEC+”机制，结束近60年成员国身份。
-
-阿联酋能源部称，退出决定基于国家利益，旨在更有效地满足国际市场需求，并将逐步提高石油产量。
-
-阿联酋计划到2027年将产能从约340万桶/日提升至500万桶/日。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-30 01:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 02:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
-- 2026-06-30 02:17 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 01:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 01:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 01:58 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-30 01:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 02:05 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-30 02:15 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 01:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 02:03 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 01:58 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 02:12 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-30 02:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 01:58 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 02:12 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 02:00 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 01:57 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 02:08 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 02:00 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 02:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 02:15 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 01:55 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 01:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 02:10 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 01:59 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-30 02:19 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/541243.shtml)
-- 2026-06-30 02:09 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/08663939583.shtml)
-- 2026-06-30 02:17 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/74317.shtml)
-- 2026-06-30 02:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/119866.shtml)
-- 2026-06-30 02:09 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/532956200.shtml)
-- 2026-06-30 01:48 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/361311284.shtml)
-- 2026-06-30 02:14 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/7960778494.shtml)
-- 2026-06-30 02:05 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/7044569025.shtml)
-- 2026-06-30 02:07 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/99686347.shtml)
-- 2026-06-30 01:49 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/93498328.shtml)
-- 2026-06-30 02:00 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/633189714.shtml)
-- 2026-06-30 02:08 - [起风了](https://www.share.minike.top/Article/details/58078415.shtml)
-- 2026-06-30 01:48 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/0128161.shtml)
-- 2026-06-30 01:50 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/37823391661.shtml)
-- 2026-06-30 01:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/8676474800.shtml)
+- 2026-06-30 02:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/411569767.shtml)
+- 2026-06-30 02:22 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/47193379.shtml)
+- 2026-06-30 02:23 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/443166.shtml)
+- 2026-06-30 02:07 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/7244888809.shtml)
+- 2026-06-30 02:07 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/894002835249.shtml)
+- 2026-06-30 02:09 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/99421.shtml)
+- 2026-06-30 02:13 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/452435.shtml)
+- 2026-06-30 02:12 - [刘念回应](http://www.blog.minike.top/Article/details/65156570.shtml)
+- 2026-06-30 02:22 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/337685371.shtml)
+- 2026-06-30 01:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/94439.shtml)
+- 2026-06-30 02:17 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/476716.shtml)
+- 2026-06-30 02:00 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/795422427370.shtml)
+- 2026-06-30 01:57 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/1369205711.shtml)
+- 2026-06-30 02:23 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/3435919837.shtml)
+- 2026-06-30 02:07 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/0424959209.shtml)

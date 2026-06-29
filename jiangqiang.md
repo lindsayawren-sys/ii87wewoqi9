@@ -1,60 +1,56 @@
-# 卓然股份遇年报危机，3名独董集体说不，20CM跌停市值跌至18亿 | 长三角资本局
+# 马斯克当庭就OpenAI诉讼陈述己方主张
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一份年报，被三名独董拦在了董事会门外，资本市场的反应来得很快。 4月29日，卓然股份（维权）（688121）开盘即遭“20CM”一字跌停，股价报7.72元/股，总市值18.04亿元。前一日晚间，公司披露重大风险提示公告称，董事会审计委员会3名独立董事对2025年年度报告及其摘要投出3票反对、0票赞成，年
+科技大亨周二接受己方律师友好问询；交叉质询仍待进行。 时隔两年、历经无数法律文书递交及多条社交媒体发文后，埃隆・马斯克终于在周二于法庭上有机会宣泄对 OpenAI 的不满。 这位全球首富指控 OpenAI 违背慈善信托初衷，并借当庭证词强调：本案将树立判例，决定非营利机构能否、以及以何种方式转型为商业公司。 在己方律师的友好问询下，马斯克首先回忆了 OpenAI 创立初期的历程
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 文|新浪财经上海站 十里 一份年报，被三名独董拦在了董事会门外，资本市场的反应来得很快。
+科技大亨周二接受己方律师友好问询；交叉质询仍待进行。
 
-4月29日，卓然股份（维权）（688121）开盘即遭“20CM”一字跌停，股价报7.72元/股，总市值18.04亿元。
+时隔两年、历经无数法律文书递交及多条社交媒体发文后，埃隆・马斯克终于在周二于法庭上有机会宣泄对 OpenAI 的不满。
 
-前一日晚间，公司披露重大风险提示公告称，董事会审计委员会3名独立董事对2025年年度报告及其摘要投出3票反对、0票赞成，年报因此无法提交董事会审议，预计无法在法定期限内披露。
+这位全球首富指控 OpenAI 违背慈善信托初衷，并借当庭证词强调：本案将树立判例，决定非营利机构能否、以及以何种方式转型为商业公司。
 
-这意味着，公司将自2026年4月30日法定披露期限届满之日起停牌2个月。
+在己方律师的友好问询下，马斯克首先回忆了 OpenAI 创立初期的历程，讲述自己 2015 年联合创办这家机构的初衷 —— 确保人工智能安全可控地发展。
 
-若停牌期内仍未披露年报，公司股票将被实施退市风险警示；若此后2个月仍未披露，公司股票将面临终止上市风险。
+他当庭回答了有关个人经历、以及过往与山姆・奥尔特曼和其他 OpenAI 联合创始人的邮件往来等问题。
 
-从“年报难产”到“退市链条”，时间窗口已被监管规则清晰框定。
+马斯克还预测，人工智能最早明年就能在所有任务上达到人类水平。
 
-市场的跌停，更像是对“年报过不了审计委员会”这一事件本身的直接定价。
+当被要求用自己的话解释这场诉讼的核心诉求时，马斯克表示：“其实道理很简单。
 
-卓然股份审计委员会由3名独立董事组成，此次全票反对，等于在公司治理流程的最前端按下了“暂停键”。
+” 他称，如果法院裁定 OpenAI、奥尔特曼及其他被告无责，“本案将成为判例、形成司法先例，在我看来，这等于给全美所有慈善机构的资产掠夺大开绿灯。
 
 ## 相关推荐
 
-- 2026-06-30 02:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 02:17 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 02:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 02:15 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-30 02:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 02:03 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 02:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 01:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 01:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
-- 2026-06-30 01:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 01:52 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-30 02:13 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 01:50 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 02:04 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 01:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 02:18 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 01:57 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 02:10 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 02:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-30 02:16 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 02:14 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 02:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-30 02:13 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 01:59 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:14 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/52730581314.shtml)
-- 2026-06-30 02:03 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/768320208651.shtml)
-- 2026-06-30 02:11 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/49480.shtml)
-- 2026-06-30 01:57 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/883062.shtml)
-- 2026-06-30 02:17 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/440049233.shtml)
-- 2026-06-30 02:14 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/7061496470.shtml)
-- 2026-06-30 01:49 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/243748642.shtml)
-- 2026-06-30 02:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/36228.shtml)
-- 2026-06-30 01:56 - [爱很美味](http://www.share.kurohicncr.top/Article/details/406834865031.shtml)
-- 2026-06-30 02:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/1936221623.shtml)
-- 2026-06-30 01:53 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/047033.shtml)
-- 2026-06-30 01:48 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/083277.shtml)
-- 2026-06-30 02:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/93140183.shtml)
-- 2026-06-30 02:17 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/40936498.shtml)
-- 2026-06-30 02:14 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/9458018.shtml)
+- 2026-06-30 02:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/41772996.shtml)
+- 2026-06-30 01:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/185647209772.shtml)
+- 2026-06-30 01:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/796575.shtml)
+- 2026-06-30 02:03 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/50289.shtml)
+- 2026-06-30 02:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/482051482269.shtml)
+- 2026-06-30 01:59 - [巴西vs日本](http://www.blog.minike.top/Article/details/61435117633.shtml)
+- 2026-06-30 02:11 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/962601.shtml)
+- 2026-06-30 02:11 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/071194988260.shtml)
+- 2026-06-30 02:07 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/835185238.shtml)
+- 2026-06-30 02:11 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/04216399295.shtml)
+- 2026-06-30 02:21 - [美人鱼](https://www.blog.minike.top/Article/details/8976789471.shtml)
+- 2026-06-30 02:00 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/8094105581.shtml)
+- 2026-06-30 02:20 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/322748.shtml)
+- 2026-06-30 02:14 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/07467.shtml)
+- 2026-06-30 01:56 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/610285147.shtml)

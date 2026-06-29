@@ -1,57 +1,57 @@
-# 公安机关发布铁路出行安全提示
+# 阿联酋宣布退出欧佩克，结束其长达近六十年的成员国身份，5月1日起生效
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据公安部微信公众号消息，“五一”假期期间，铁路出行集中。公安机关提示，旅客出行请提前通过铁路12306官方渠道了解列车开行信息、车票预售情况，合理规划出行时间和路线，尽量避开客流高峰时段和车次。购买车票时，请务必通过铁路12306官方网站、手机客户端或铁路授权代售点等正规渠道购买车票。切勿相信“黄牛”或非正规代购，勿点击不明链接、泄露验证码信息、私下转账验资
+阿联酋周二宣布，将于2026年5月1日正式退出石油输出国组织（OPEC）及更广泛的石油输出国组织及其盟友(OPEC+)联盟，结束其长达近六十年的成员国身份。这一决定是在中东地缘冲突持续扰乱全球石油供应的背景下作出的。 决定背景与战略考量 阿联酋官方通讯社WAM发布的声明称，这一决定“反映了阿联酋的长期战略和经济愿景以及不断变化的能源格局”，包括加速对国内能源生产的投资。该决定是
 
 ## 正文
 
-中新网4月30日电 据公安部微信公众号消息，“五一”假期期间，铁路出行集中。
+阿联酋周二宣布，将于2026年5月1日正式退出石油输出国组织（OPEC）及更广泛的石油输出国组织及其盟友(OPEC+)联盟，结束其长达近六十年的成员国身份。
 
-公安机关提示，旅客出行请提前通过铁路12306官方渠道了解列车开行信息、车票预售情况，合理规划出行时间和路线，尽量避开客流高峰时段和车次。
+这一决定是在中东地缘冲突持续扰乱全球石油供应的背景下作出的。
 
-购买车票时，请务必通过铁路12306官方网站、手机客户端或铁路授权代售点等正规渠道购买车票。
+决定背景与战略考量 阿联酋官方通讯社WAM发布的声明称，这一决定“反映了阿联酋的长期战略和经济愿景以及不断变化的能源格局”，包括加速对国内能源生产的投资。
 
-切勿相信“黄牛”或非正规代购，勿点击不明链接、泄露验证码信息、私下转账验资，以防泄露个人信息或遭受财产损失。
+该决定是在对其当前和未来的生产能力进行全面审查后作出的，基于国家利益和有效满足市场需求。
 
-一旦发现购票诈骗，请立即报警。
+阿联酋能源部长表示，这一决定是经过对能源和石油领域战略的仔细审视后作出的，是“主权国家决策”。
 
-已成功购票的旅客，请预留充足时间前往车站，避免因交通拥堵等原因耽误行程。
+他同时指出，由于霍尔木兹海峡通行受阻，阿联酋选择此时行动是“为了避免对市场造成重大冲击”。
 
-旅途中要提高警惕，不轻易向陌生人透露个人及家庭信息，不食用、不饮用陌生人的食品饮料，不轻信所谓“中奖”“求助”“带路”“超低价购买”等说辞，谨防上当受骗。
+不受配额限制，将逐步增产 退出OPEC+后，阿联酋将不再受联盟产量配额的约束。
 
-切勿帮助陌生人携带不明物品进站上车，以防被不法分子利用。
+阿联酋目前拥有约485万桶/日的生产能力，但在配额制度下，产量通常被限制在300万至350万桶/日之间。
 
 ## 相关推荐
 
-- 2026-06-30 01:56 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 02:11 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 02:05 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 01:55 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 01:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 02:10 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-30 02:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-30 02:16 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 02:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 02:11 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-30 01:59 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 02:14 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 02:00 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
+- 2026-06-30 01:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 02:12 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 02:05 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 02:13 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 02:19 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 02:02 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 01:59 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 01:55 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/783070871086.shtml)
-- 2026-06-30 02:17 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/449849.shtml)
-- 2026-06-30 02:06 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/94714525.shtml)
-- 2026-06-30 02:10 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/089139.shtml)
-- 2026-06-30 01:48 - [葫芦岛居民楼闪爆事故致3死](https://www.blog.kurohicncr.top/Article/details/3325470.shtml)
-- 2026-06-30 01:54 - [流金岁月](https://www.share.minike.top/Article/details/71088562798.shtml)
-- 2026-06-30 02:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/3372537.shtml)
-- 2026-06-30 02:08 - [恋与深空致歉](http://www.blog.minike.top/Article/details/842328536.shtml)
-- 2026-06-30 02:04 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/663467.shtml)
-- 2026-06-30 01:57 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/05379902806.shtml)
-- 2026-06-30 02:09 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/805038.shtml)
-- 2026-06-30 02:13 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/75090.shtml)
-- 2026-06-30 02:07 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/03147874.shtml)
-- 2026-06-30 02:14 - [急先锋](http://www.blog.kurohicncr.top/Article/details/61855830.shtml)
-- 2026-06-30 02:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/50762.shtml)
+- 2026-06-30 01:58 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/6015207.shtml)
+- 2026-06-30 01:54 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/266668.shtml)
+- 2026-06-30 02:23 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/60573270.shtml)
+- 2026-06-30 02:09 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/4059114493.shtml)
+- 2026-06-30 02:03 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/9401100327.shtml)
+- 2026-06-30 02:04 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/666407684.shtml)
+- 2026-06-30 02:03 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/96170748232.shtml)
+- 2026-06-30 01:58 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/750975.shtml)
+- 2026-06-30 02:09 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/06992.shtml)
+- 2026-06-30 02:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/10838.shtml)
+- 2026-06-30 02:11 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/13495.shtml)
+- 2026-06-30 02:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/808689970371.shtml)
+- 2026-06-30 02:11 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/99776825.shtml)
+- 2026-06-30 02:05 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/36082705833.shtml)
+- 2026-06-30 02:17 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/2547085560.shtml)

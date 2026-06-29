@@ -1,60 +1,60 @@
-# 股权信托财产登记试点在沪扩围增效 全国首单合伙企业形式股权家族信托落地
+# 揭秘守护淮河安澜的“智慧大脑”
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-中新网上海4月30日电 (高志苗)记者29日晚从上海金融监管局获悉，近日，两单试点案例在上海市普陀区市场监督管理局完成股权信托财产登记，推动股权信托登记运用范围进一步拓展到合伙制企业，运用场景进一步扩展至存量资产盘活等领域，展现了信托机制服务民生、服务实体经济的独特价值。2026年3月，上海市委金融办、上海金融监管局、上海市市场监督管理局、上海市民政局联合印发《关于开展股权信托
+中新网蚌埠4月29日电(记者 邵萌)淮河，自古“来水快、行洪慢”，洪、涝、旱等灾害频繁。它曾被称为中国“最难治理的河流”，也是新中国成立后第一条全面系统治理的大河。 历史上治淮，离不开“人海战术”，而现在，数字孪生技术赋予了淮河治理新的活力。76年治淮路，筑起了防洪除涝的坚固屏障，也见证着治水理念与技术手段的深刻变革。 给淮河装上“智慧大脑” 在几乎铺满一整面墙的大屏幕上，淮河
 
 ## 正文
 
-中新网上海4月30日电 (高志苗)记者29日晚从上海金融监管局获悉，近日，两单试点案例在上海市普陀区市场监督管理局完成股权信托财产登记，推动股权信托登记运用范围进一步拓展到合伙制企业，运用场景进一步扩展至存量资产盘活等领域，展现了信托机制服务民生、服务实体经济的独特价值。
+中新网蚌埠4月29日电(记者 邵萌)淮河，自古“来水快、行洪慢”，洪、涝、旱等灾害频繁。
 
-2026年3月，上海市委金融办、上海金融监管局、上海市市场监督管理局、上海市民政局联合印发《关于开展股权信托财产登记试点的通知》(以下简称《通知》)。
+它曾被称为中国“最难治理的河流”，也是新中国成立后第一条全面系统治理的大河。
 
-上海信托落地全国首单合伙企业形式股权家族信托，为民营企业家族财富管理和传承装上“安心锁”。
+历史上治淮，离不开“人海战术”，而现在，数字孪生技术赋予了淮河治理新的活力。
 
-该案例紧密围绕《通知》创新性地将股权信托登记范围扩大至合伙企业的政策导向，精准把握民营企业家族财富代际传承的窗口期，通过合伙企业形式构建起家族股权投资平台，以股权信托登记为纽带，串联起“家族治理+财富管理+企业传承”全链条，提供一站式综合服务方案，协助民营企业家有效降低股权传承中的相关风险，保障企业根基稳固、代际传承平稳有序，助力民营企业行稳致远。
+76年治淮路，筑起了防洪除涝的坚固屏障，也见证着治水理念与技术手段的深刻变革。
 
-该案例的落地不仅为民企家族财富管理和传承服务提供了可复制可推广的信托解决方案，也充分彰显了信托机制服务民营经济的温度与力度。
+给淮河装上“智慧大脑” 在几乎铺满一整面墙的大屏幕上，淮河流域的实时雨情、水情等数据清晰可见，推演与情景模拟精准直观......日前，记者走进水利部淮河水利委员会，了解数字孪生淮河建设如何为防汛备汛赋能。
 
-建元信托落地辖内首单股权信托财产登记的行政管理服务信托，为闲置资产盘活和价值提升提供“催化剂”。
+如果说包括预报、预警、预演、预案的防洪“四预”系统是淮河流域防汛备汛的重要支撑，那么数字孪生淮河就是其重要的技术“底座”。
 
-该案例落实《通知》关于“重点围绕财富管理、公益慈善、风险处置、资产盘活等场景设计信托服务模式”的精神，通过服务信托为地方资产管理公司参与闲置资产的法拍构建SPV平台，利用股权信托架构提供资产隔离、股权管理、灵活规划退出等核心功能，助力该资产后续改造为保障性租赁用房。
+防汛备汛，“预”字当先，汛情监测预报预警至关重要。
 
-该案例的落地既为资产服务信托参与闲置资产“盘活+管理+退出”探索了全新路径，也充分展现了股权信托登记制度对于提升存量资产盘活效率的支持保障作用。
+淮河水利委员会水文局(信息中心)副局长(副主任)王凯介绍，当前，淮河流域已建成包括14部水利测雨雷达、1.48万处雨量站、2973处水文(位)站在内的庞大站网，并广泛应用卫星遥感、无人机等先进技术，实现了对防汛抗旱、水资源调配等多要素的综合监测。
 
 ## 相关推荐
 
-- 2026-06-30 01:57 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 01:59 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 01:55 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 02:06 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 02:05 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 02:15 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 02:14 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
-- 2026-06-30 02:02 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 01:59 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 02:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 02:12 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-30 01:51 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 02:04 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 01:59 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-30 02:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 02:10 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 01:54 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-30 02:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 01:56 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 01:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
+- 2026-06-30 01:57 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 01:56 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-30 02:08 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
+- 2026-06-30 01:54 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 02:19 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 01:59 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 02:18 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 02:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:59 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/055501735.shtml)
-- 2026-06-30 01:56 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/057119910064.shtml)
-- 2026-06-30 01:52 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/37989.shtml)
-- 2026-06-30 02:14 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/8804459.shtml)
-- 2026-06-30 02:02 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/470635959.shtml)
-- 2026-06-30 02:14 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/743324.shtml)
-- 2026-06-30 02:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/6949296.shtml)
-- 2026-06-30 02:13 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/956557576212.shtml)
-- 2026-06-30 02:13 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/383783.shtml)
-- 2026-06-30 02:02 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/5939221.shtml)
-- 2026-06-30 01:56 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/2633016515.shtml)
-- 2026-06-30 02:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/696843162699.shtml)
-- 2026-06-30 02:09 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/635049689.shtml)
-- 2026-06-30 01:59 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/57192063391.shtml)
-- 2026-06-30 02:04 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.minike.top/Article/details/3118977.shtml)
+- 2026-06-30 02:11 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/746107249.shtml)
+- 2026-06-30 02:22 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/754606686.shtml)
+- 2026-06-30 02:04 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/03595886236.shtml)
+- 2026-06-30 02:16 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/04153986.shtml)
+- 2026-06-30 02:12 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/3812166194.shtml)
+- 2026-06-30 02:23 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/0307799.shtml)
+- 2026-06-30 02:03 - [勇敢的心第二部](https://www.share.minike.top/Article/details/99451.shtml)
+- 2026-06-30 02:03 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/05892.shtml)
+- 2026-06-30 02:15 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/655649.shtml)
+- 2026-06-30 02:14 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/11099203.shtml)
+- 2026-06-30 02:10 - [一见倾心](https://www.blog.minike.top/Article/details/1641175150.shtml)
+- 2026-06-30 02:11 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/03800.shtml)
+- 2026-06-30 02:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/05411.shtml)
+- 2026-06-30 02:24 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/694623.shtml)
+- 2026-06-30 02:05 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/26062538.shtml)

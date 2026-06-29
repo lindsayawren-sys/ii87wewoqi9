@@ -1,58 +1,52 @@
-# 优步年度产品发布会大举布局旅游、酒店及AI语音预订
+# 外交部：对非零关税彰显中非以稳定性为全球和平发展做贡献的决心
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-核心要点 优步正式进军旅游行业。 这家网约车平台周三在纽约年度 Go-Get 发布会上发布多款新产品，旨在吸引更多平台用户，并摆脱单一网约车业务依赖，打造差异化生态。 本次年度产品展示，优步并未重点宣传雄心勃勃的自动驾驶布局，而是集中推出酒店预订、线上购物等全新业务板块，致力于打造一站式超级应用。 除自动驾驶之外，优步此前已布局货运、专车服务、滑雪出行等领域；同时持续扩张生鲜配
+新华社北京4月29日电(记者万倩仪、马卓言)中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措。外交部发言人林剑29日在例行记者会上答问时表示，中方注意到非方对零关税举措的热切期待和积极反馈。当前全球保护主义、单边主义抬头，中东局势外溢效应波及至毗邻大陆，中国以零关税同非洲分享机遇，共同发展，彰显了中非以稳定性为全球和平发展做贡献的决心。 林剑表示，中方还将继续同
 
 ## 正文
 
-核心要点 优步正式进军旅游行业。
+新华社北京4月29日电(记者万倩仪、马卓言)中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措。
 
-这家网约车平台周三在纽约年度 Go-Get 发布会上发布多款新产品，旨在吸引更多平台用户，并摆脱单一网约车业务依赖，打造差异化生态。
+外交部发言人林剑29日在例行记者会上答问时表示，中方注意到非方对零关税举措的热切期待和积极反馈。
 
-本次年度产品展示，优步并未重点宣传雄心勃勃的自动驾驶布局，而是集中推出酒店预订、线上购物等全新业务板块，致力于打造一站式超级应用。
+当前全球保护主义、单边主义抬头，中东局势外溢效应波及至毗邻大陆，中国以零关税同非洲分享机遇，共同发展，彰显了中非以稳定性为全球和平发展做贡献的决心。
 
-除自动驾驶之外，优步此前已布局货运、专车服务、滑雪出行等领域；同时持续扩张生鲜配送业务，并与乔比航空合作推出纯电动空中出租车服务。
-
-优步首席执行官达拉・科斯罗萨西在现场活动中表示，全新旅游相关业务，旨在为忙碌用户简化出行流程、减轻旅途繁琐感。
-
-他称：“优步早已是全球出行首选平台。
-
-既然用户抵达一座城市会第一时间打开我们的 App，我们理所应当让整段旅程、全部出行体验变得更简单。
-
-” 以下是本次发布的核心新功能： 酒店预订 优步通过与亿客行（Expedia） 合作，在平台上线酒店预订服务。
+林剑表示，中方还将继续同相关非洲国家商签共同发展经济伙伴关系协定，同步升级对非农食产品输华绿色通道，不断提升中非贸易便利化水平。
 
 ## 相关推荐
 
-- 2026-06-30 02:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 01:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 01:56 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-30 02:09 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-30 01:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 01:54 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 02:09 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 01:58 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 01:53 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 01:50 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-30 02:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 01:56 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 02:06 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-30 02:11 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 02:10 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 02:15 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 02:03 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 02:06 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 02:15 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 01:59 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 02:07 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
+- 2026-06-30 01:54 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 01:55 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 02:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-30 02:23 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 02:19 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:00 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/55781037.shtml)
-- 2026-06-30 02:13 - [恋与深空 日服](https://www.share.minike.top/Article/details/57458096419.shtml)
-- 2026-06-30 01:51 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/5175568316.shtml)
-- 2026-06-30 02:01 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/08493265.shtml)
-- 2026-06-30 02:04 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/024970851237.shtml)
-- 2026-06-30 02:00 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/86339675878.shtml)
-- 2026-06-30 01:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/01590.shtml)
-- 2026-06-30 02:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/5696326.shtml)
-- 2026-06-30 02:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/077272.shtml)
-- 2026-06-30 02:15 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/1275065.shtml)
-- 2026-06-30 02:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/922091244143.shtml)
-- 2026-06-30 02:05 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/5858831503.shtml)
-- 2026-06-30 01:52 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/60169.shtml)
-- 2026-06-30 02:08 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/42361.shtml)
-- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/48498.shtml)
+- 2026-06-30 02:11 - [一生一世](https://www.blog.kurohicncr.top/Article/details/72788706220.shtml)
+- 2026-06-30 02:02 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/77936920.shtml)
+- 2026-06-30 02:11 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/21958.shtml)
+- 2026-06-30 02:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/14278.shtml)
+- 2026-06-30 01:55 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/9635982.shtml)
+- 2026-06-30 02:12 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/9345167.shtml)
+- 2026-06-30 02:14 - [斛珠夫人](https://www.share.minike.top/Article/details/10413619328.shtml)
+- 2026-06-30 01:58 - [法媒点赞分享中国小区降温方案](https://www.share.kurohicncr.top/Article/details/337252637.shtml)
+- 2026-06-30 01:56 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/92782388.shtml)
+- 2026-06-30 01:56 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/15693.shtml)
+- 2026-06-30 01:59 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/46940323927.shtml)
+- 2026-06-30 02:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/3210554131.shtml)
+- 2026-06-30 02:07 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/11348554.shtml)
+- 2026-06-30 02:12 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/9837262832.shtml)
+- 2026-06-30 02:21 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/48036617.shtml)

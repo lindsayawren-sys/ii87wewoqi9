@@ -1,56 +1,57 @@
-# 胖东来回应“249元奢侈品毛巾” 将进行严谨的落实和完善
+# 十四届全国人大常委会举行第六十六次委员长会议 听取有关草案和议案审议情况汇报 赵乐际主持
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-4月29日，胖东来发布关于“博主惊梦人发布探店观点”的说明，回应其提出“249元奢侈品毛巾”“令人失望”“走不出河南”等观点。 胖东来称，该博主发布多条对胖东来门店实地探访的视频，对于发表的视频观点中，“其对胖东来经营初心、经营理念的歪曲解读、盲目靠自我意识随意猜测、不负责任乃至污蔑性的言论，严重侵害胖东来品牌和社会信任，我们已启动依法维权程序，严肃进行追责！” 对于产品价格问
+新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。赵乐际委员长主持。 会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。 会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和
 
 ## 正文
 
-4月29日，胖东来发布关于“博主惊梦人发布探店观点”的说明，回应其提出“249元奢侈品毛巾”“令人失望”“走不出河南”等观点。
+新华社北京4月29日电 十四届全国人大常委会第六十六次委员长会议29日上午在北京人民大会堂举行。
 
-胖东来称，该博主发布多条对胖东来门店实地探访的视频，对于发表的视频观点中，“其对胖东来经营初心、经营理念的歪曲解读、盲目靠自我意识随意猜测、不负责任乃至污蔑性的言论，严重侵害胖东来品牌和社会信任，我们已启动依法维权程序，严肃进行追责！
+赵乐际委员长主持。
 
-” 对于产品价格问题，胖东来表示，以保障民生和合理毛利为核心，有严格规范的商品定价标准，明确禁止暴利。
+会议听取了全国人大宪法和法律委员会主任委员信春鹰作的关于监狱法修订草案修改意见的汇报、关于社会救助法草案修改意见的汇报，审议了相关草案修改稿。
 
-“品牌商品我们遵循品牌定价标准，尊重品牌价值。
+会议听取了全国人大外事委员会主任委员娄勤俭作的关于《中华人民共和国和阿塞拜疆共和国关于刑事司法协助的条约》《中华人民共和国和哈萨克斯坦共和国、吉尔吉斯共和国、塔吉克斯坦共和国、土库曼斯坦、乌兹别克斯坦共和国永久睦邻友好合作条约》审议情况的汇报，审议了关于批准条约的决定草案代拟稿。
 
-对于产品的价格、质量、价值方面的经营问题，我们会后续公示定价及毛利率，随着系统完善我们逐步实现二维码扫描即可查看的服务功能。
+会议听取了全国人大常委会秘书长刘奇作的关于个别代表的代表资格的报告和任免案审议情况的汇报等。
 
-” 胖东来还表示，对于博主质疑未经落实调查提出的“商品溢价高”、“质疑走不出河南”、“质疑员工工资”、“要求员工购买”等，以个人意识随意猜测、曲解的不实言论已对胖东来品牌造成严重伤害，并对社会造成了误导和不良影响，会坚定维护自身权益并追究法律责任。
+会议听取了全国人大常委会副秘书长刘俊臣作的关于新增人事任免事项的汇报。
 
-“针对博主反馈胖东来自身存在的问题，我们会进行严谨的落实和完善。
+委员长会议决定，将上述草案修改稿等提交常委会会议审议。
 
-”胖东来称。
+全国人大常委会副委员长李鸿忠、王东明、肖捷、郑建邦、丁仲礼、郝明金、蔡达峰、何维、武维华、铁凝、彭清华、张庆伟、洛桑江村、雪克来提·扎克尔出席会议。
 
 ## 相关推荐
 
-- 2026-06-30 02:02 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 02:10 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-30 02:06 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 02:07 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 01:58 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-30 02:09 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 01:50 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 01:48 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 02:16 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-30 02:08 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-30 02:09 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-30 02:15 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 02:21 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 02:07 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 02:03 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 02:08 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-30 02:21 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 02:23 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 02:23 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 02:06 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:06 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/40529855.shtml)
-- 2026-06-30 01:51 - [张帅时隔四年晋级温网第二轮](http://www.share.minike.top/Article/details/4448388162.shtml)
-- 2026-06-30 02:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/697737808.shtml)
-- 2026-06-30 02:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/22122.shtml)
-- 2026-06-30 01:56 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/2888526027.shtml)
-- 2026-06-30 01:50 - [《我落泪情绪零碎》](https://www.blog.minike.top/Article/details/41426218445.shtml)
-- 2026-06-30 02:13 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/267973922.shtml)
-- 2026-06-30 02:08 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.minike.top/Article/details/827904.shtml)
-- 2026-06-30 01:54 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/17193352478.shtml)
-- 2026-06-30 01:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/54969647626.shtml)
-- 2026-06-30 01:51 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/6874448039.shtml)
-- 2026-06-30 01:55 - [荷兰VS摩洛哥你看好谁](https://www.share.kurohicncr.top/Article/details/990007054313.shtml)
-- 2026-06-30 02:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/5024187.shtml)
-- 2026-06-30 02:03 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/0669151947.shtml)
-- 2026-06-30 02:02 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/839808634.shtml)
+- 2026-06-30 02:23 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/4724682228.shtml)
+- 2026-06-30 02:02 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/976078198.shtml)
+- 2026-06-30 02:01 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/96265568.shtml)
+- 2026-06-30 02:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/782627375.shtml)
+- 2026-06-30 02:08 - [电影后室值得看吗](https://www.share.minike.top/Article/details/9932404678.shtml)
+- 2026-06-30 02:14 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/0331213.shtml)
+- 2026-06-30 01:55 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/6357519976.shtml)
+- 2026-06-30 02:03 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/540728776681.shtml)
+- 2026-06-30 02:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/60220577031.shtml)
+- 2026-06-30 02:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/36985.shtml)
+- 2026-06-30 02:12 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/9569793628.shtml)
+- 2026-06-30 02:09 - [詹姆斯 勇士](http://www.share.kurohicncr.top/Article/details/783364782.shtml)
+- 2026-06-30 02:19 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/6056840.shtml)
+- 2026-06-30 02:05 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/72222.shtml)
+- 2026-06-30 02:00 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/83761.shtml)

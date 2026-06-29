@@ -1,49 +1,58 @@
-# 广西崇左：民警巧扮“接客司机” 抓获4名偷渡嫌疑人
+# 三元官宣发布全新明星大单品“北京纯牛奶”
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 10:32 来源：中国新闻网 近日，广西崇左边境管理支队罗回边境检查站，执勤民警对一辆轿车进行例行查验时，发现驾驶员神色慌张。面对民警的严密盘查，该驾驶员供认自己正准备接驳4名外籍人员的事实，民警随即伪装成接驳司机循线追踪，最终成功将4名外籍偷渡人员全部抓获。目前，案件正在进一步办理中。(作者：袁金锋 博林 韩中宽） 责任编辑：【魏聪聪】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日，“真心七十载 鲜活向未来”三元真鲜活品牌战略发布会举行。现场，三元牛奶官宣发布第三支明星大单品——北京纯牛奶。 据悉，该款牛奶每升含有700mg a-乳白蛋白700mg和500mg β-乳球蛋白，为日常营养加持。同时，三元北京纯牛奶拥有60天保质期，100%源自三元的自有奶源。 此前，三元牛奶已
 
 ## 正文
 
-发布时间：2026年04月29日 10:32 来源：中国新闻网 近日，广西崇左边境管理支队罗回边境检查站，执勤民警对一辆轿车进行例行查验时，发现驾驶员神色慌张。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-面对民警的严密盘查，该驾驶员供认自己正准备接驳4名外籍人员的事实，民警随即伪装成接驳司机循线追踪，最终成功将4名外籍偷渡人员全部抓获。
+4月28日，“真心七十载 鲜活向未来”三元真鲜活品牌战略发布会举行。
 
-目前，案件正在进一步办理中。
+现场，三元牛奶官宣发布第三支明星大单品——北京纯牛奶。
 
-(作者：袁金锋 博林 韩中宽） 责任编辑：【魏聪聪】
+据悉，该款牛奶每升含有700mg a-乳白蛋白700mg和500mg β-乳球蛋白，为日常营养加持。
+
+同时，三元北京纯牛奶拥有60天保质期，100%源自三元的自有奶源。
+
+此前，三元牛奶已拥有北京鲜牛奶和北京酸奶两款明星大单品。
+
+责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 02:17 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-30 01:57 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-30 02:01 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 01:58 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 02:00 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 01:48 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 02:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-30 02:06 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-30 02:03 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-30 02:03 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 01:57 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-30 02:02 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 02:03 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 02:23 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 01:54 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 02:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 02:14 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 02:12 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 02:02 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 02:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 01:54 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 01:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 02:23 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 02:19 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-30 02:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:17 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/52808478.shtml)
-- 2026-06-30 01:48 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/7291883255.shtml)
-- 2026-06-30 01:56 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/229379152005.shtml)
-- 2026-06-30 02:08 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/1154417598.shtml)
-- 2026-06-30 02:13 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/46410873.shtml)
-- 2026-06-30 01:50 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/727777.shtml)
-- 2026-06-30 02:07 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/06996935430.shtml)
-- 2026-06-30 02:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/48741.shtml)
-- 2026-06-30 01:52 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/4531672.shtml)
-- 2026-06-30 02:06 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/402202956.shtml)
-- 2026-06-30 01:48 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/57330185.shtml)
-- 2026-06-30 01:55 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/660261054692.shtml)
-- 2026-06-30 02:05 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/804391790344.shtml)
-- 2026-06-30 02:09 - [千与千寻](https://www.blog.minike.top/Article/details/171372.shtml)
-- 2026-06-30 01:55 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/39585584832.shtml)
+- 2026-06-30 01:54 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/648636.shtml)
+- 2026-06-30 02:09 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/55814863361.shtml)
+- 2026-06-30 02:18 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/23105094926.shtml)
+- 2026-06-30 01:54 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/9207914.shtml)
+- 2026-06-30 02:09 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/12824110.shtml)
+- 2026-06-30 02:16 - [极限挑战第一季](https://www.share.minike.top/Article/details/110696.shtml)
+- 2026-06-30 02:06 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/9210424410.shtml)
+- 2026-06-30 02:07 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/543044810.shtml)
+- 2026-06-30 02:18 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/47774.shtml)
+- 2026-06-30 02:18 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/6242955.shtml)
+- 2026-06-30 02:15 - [巴西vs日本前瞻](https://www.blog.minike.top/Article/details/72417.shtml)
+- 2026-06-30 02:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/0500058.shtml)
+- 2026-06-30 02:22 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/03954907641.shtml)
+- 2026-06-30 02:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/0118817.shtml)
+- 2026-06-30 02:14 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/54376653.shtml)

@@ -1,59 +1,60 @@
-# 2025年扣除后营业收入超过3亿元，*ST宇顺提交申请撤销退市风险警示
+# 降幅扩大至近10%！格力营收连续两年下滑，仍计划大手笔分红
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-4月28日盘后，深圳市宇顺电子股份有限公司（股票简称：*ST宇顺，股票代码：002289）发布2025年年报及2026年一季报。随着重大资产重组完成全部股权过户、标的资产正式纳入上市公司体系，公司2025年实现营业收入3.27亿元，同比增加48.64%；归母净利润和扣非净利润分别同比增加16.9%和26.36%，均大幅减亏；经营性现金流净额实现由负转正达到1.22亿元，同比大幅
+界面新闻记者 | 宋佳楠 4月28日晚，格力电器发布2025年年度报告，数据显示公司全年营收1704.47亿元，同比下降9.89%，这已是该公司连续第二年营收下滑；归母净利润290.03亿元，同比亦下降9.89%。即便业绩承压，格力仍计划大手笔派发现金红利。 2025年，格力电器全年营收较2024年的1891.64亿元减少187.17亿元，而2024年公司营收已较2023年的2
 
 ## 正文
 
-4月28日盘后，深圳市宇顺电子股份有限公司（股票简称：*ST宇顺，股票代码：002289）发布2025年年报及2026年一季报。
+界面新闻记者 | 宋佳楠 4月28日晚，格力电器发布2025年年度报告，数据显示公司全年营收1704.47亿元，同比下降9.89%，这已是该公司连续第二年营收下滑；归母净利润290.03亿元，同比亦下降9.89%。
 
-随着重大资产重组完成全部股权过户、标的资产正式纳入上市公司体系，公司2025年实现营业收入3.27亿元，同比增加48.64%；归母净利润和扣非净利润分别同比增加16.9%和26.36%，均大幅减亏；经营性现金流净额实现由负转正达到1.22亿元，同比大幅增加404.62%，经营质量与盈利结构持续优化。
+即便业绩承压，格力仍计划大手笔派发现金红利。
 
-进入2026年后经营持续向好，多项财务指标亮眼：*ST宇顺一季度实现营业收入2.65亿元，同比大幅增加480.44%；归母净利润4925.58万元，同比大幅增加4202.23%；扣非净利润4769.52万元，同比大幅增加9382.47%。
+2025年，格力电器全年营收较2024年的1891.64亿元减少187.17亿元，而2024年公司营收已较2023年的2039.79亿元下滑7.31%，连续两年下滑趋势明确。
 
-2025年，*ST宇顺在巩固原有核心业务的基础上，通过战略并购实现业务版图的重大拓展，切入 IDC 基础服务商赛道，构建起触控显示应用、气体检测仪器仪表、配电设备与数据中心基础设施服务三大业务格局。
+格力电器2025年核心业绩数据 对于营收下滑，格力在年报中解释称，“去年国内家电市场消费需求更趋理性，海外市场受全球经济复苏乏力、贸易政策变化等因素影响，整体需求偏弱，公司主营业务收入有所下降。
 
-IDC 业务从无到有的突破性落地，是上市公司经营回暖的重要原因。
+” 分业务来看，消费电器仍为格力业务的绝对支柱，2025年实现收入1330.55亿元，占总营收比重78.06%，但同比下降10.44%，成为拖累营收的主要因素；工业制品及绿色能源业务收入173.81亿元，占比10.20%，同比仅微增0.78%；智能装备业务表现亮眼，收入6.81亿元，同比大增60.51%，成为多元化布局中为数不多的亮点。
 
-在*ST宇顺收购中恩云（北京）数据科技有限公司等三家数据中心标的公司100%股权（以下合称“中恩云”）的过程中，2025年11月执行标的公司过渡期管理措施取得控制权，重组实现实质性落地；2025年12月起，中恩云正式纳入上市公司合并报表范围，并于2026 年4 月完成100%股权过户登记。
+分地区而言，国内市场收入1264.07亿元，占比74.16%，同比下降10.67%，但仍是稳定业绩的重要支撑；海外市场收入273.75亿元，占比16.06%，同比下降2.93%。
 
-得益于优质资产的并表，*ST宇顺2025年经营情况显著改善，新增IDC业务收入约8098.76万元，全年实现扣除后营业收入3.25亿元，远超退市相关规则中“扣除后营业收入低于3亿元”的警示红线。
+研发与现金流层面，格力2025年研发投入64.44亿元，占营收比例3.78%，同比下降9.75%。
 
-由于相关财务指标符合申请对股票交易撤销退市风险警示的条件，4月28日，*ST宇顺向深交所提出对公司股票交易撤销退市风险警示的申请。
+不过其研发人员数量保持15947人，占总员工数22.16%，累计专利申请量达13.89万件，其中发明专利7.69万件。
 
 ## 相关推荐
 
-- 2026-06-30 02:13 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 02:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 02:08 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 02:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 02:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-30 02:12 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 01:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-30 01:56 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 01:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-30 02:08 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 01:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 02:11 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-30 02:16 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 02:21 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
+- 2026-06-30 02:18 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 02:22 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 02:21 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 02:10 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 02:17 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 02:24 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 02:05 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 01:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 02:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 01:59 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 02:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-30 02:05 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 02:14 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:58 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/93210.shtml)
-- 2026-06-30 01:50 - [金刚川](http://www.share.minike.top/Article/details/486711.shtml)
-- 2026-06-30 02:12 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/13203291.shtml)
-- 2026-06-30 02:13 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/46128915.shtml)
-- 2026-06-30 02:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/28088146336.shtml)
-- 2026-06-30 01:52 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/116811.shtml)
-- 2026-06-30 01:50 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/85040336.shtml)
-- 2026-06-30 02:12 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/9364194.shtml)
-- 2026-06-30 02:11 - [起风了](http://www.blog.kurohicncr.top/Article/details/602017595.shtml)
-- 2026-06-30 02:15 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/63094161573.shtml)
-- 2026-06-30 01:48 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/628093.shtml)
-- 2026-06-30 02:17 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/350540548.shtml)
-- 2026-06-30 02:01 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/758802430253.shtml)
-- 2026-06-30 01:51 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/579726041.shtml)
-- 2026-06-30 01:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/39386508.shtml)
+- 2026-06-30 02:05 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/423307810888.shtml)
+- 2026-06-30 02:18 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/37601.shtml)
+- 2026-06-30 01:57 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/26278.shtml)
+- 2026-06-30 02:04 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/14219.shtml)
+- 2026-06-30 02:22 - [女心理师](http://www.share.minike.top/Article/details/173205382334.shtml)
+- 2026-06-30 02:23 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/560333786.shtml)
+- 2026-06-30 02:17 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/4077544.shtml)
+- 2026-06-30 02:15 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.kurohicncr.top/Article/details/076886.shtml)
+- 2026-06-30 02:04 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/43788440.shtml)
+- 2026-06-30 01:56 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/10934705.shtml)
+- 2026-06-30 02:20 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/90840163865.shtml)
+- 2026-06-30 02:03 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/28820248126.shtml)
+- 2026-06-30 02:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/4230227972.shtml)
+- 2026-06-30 02:12 - [这辈子过得最痛苦的生日...](http://www.blog.minike.top/Article/details/718544.shtml)
+- 2026-06-30 02:04 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/4971434.shtml)

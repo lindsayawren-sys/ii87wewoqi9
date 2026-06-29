@@ -1,48 +1,58 @@
-# 【小新的Vlog】一场串联八大菜系与五大洲风味的中国美食盛会
+# 伊拉克总统正式提名扎伊迪为候任总理
 
-> 更新时间：2026-06-30 02:18:03 UTC+8
+> 更新时间：2026-06-30 02:24:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 12:56 来源：中国新闻网 4月28日至5月2日，一场“美食市集”在宁夏银川市兰傒谷商务广场正式开市，持续5天。这里汇集了145个美食展位，分成五大主题市集——中华美食、世界美食、风土微醺、塞上风味、丝路生活。不用出银川，就能“一站式”吃遍全国、尝遍五大洲。 (记者 谢宇 宁夏银川报道） 责任编辑：【黄钰涵】
+中新社北京4月28日电 据伊拉克通讯社当地时间27日报道，伊拉克新任总统尼扎尔·阿米迪当晚宣布，提名国民议会最大党团“协调框架联盟”推举的阿里·扎伊迪为候任总理，并授权其组建新一届政府。 当天早些时候，“协调框架联盟”召开重要会议，选举扎伊迪为总理候选人。随后，阿米迪正式完成提名，呼吁伊拉克各政治力量支持候任总理并与其合作。 据美联社介绍，扎伊迪现任伊拉克国家控股公司董事会主席
 
 ## 正文
 
-发布时间：2026年04月29日 12:56 来源：中国新闻网 4月28日至5月2日，一场“美食市集”在宁夏银川市兰傒谷商务广场正式开市，持续5天。
+中新社北京4月28日电 据伊拉克通讯社当地时间27日报道，伊拉克新任总统尼扎尔·阿米迪当晚宣布，提名国民议会最大党团“协调框架联盟”推举的阿里·扎伊迪为候任总理，并授权其组建新一届政府。
 
-这里汇集了145个美食展位，分成五大主题市集——中华美食、世界美食、风土微醺、塞上风味、丝路生活。
+当天早些时候，“协调框架联盟”召开重要会议，选举扎伊迪为总理候选人。
 
-不用出银川，就能“一站式”吃遍全国、尝遍五大洲。
+随后，阿米迪正式完成提名，呼吁伊拉克各政治力量支持候任总理并与其合作。
 
-(记者 谢宇 宁夏银川报道） 责任编辑：【黄钰涵】
+据美联社介绍，扎伊迪现任伊拉克国家控股公司董事会主席，拥有商业和投资背景，此前未曾担任政治职务。
+
+他在获得提名后表示，将与各政治力量合作，组建一个能够回应民众对安全、稳定和全面发展方面诉求的政府。
+
+根据伊拉克宪法，候任总理有30天时间提出内阁成员名单并提交议会批准。
+
+“协调框架联盟”秘书长阿巴斯·阿米里说，将于28日与扎伊迪就内阁人选进行讨论。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 02:15 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 02:10 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 02:08 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 02:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 01:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 01:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 01:55 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
-- 2026-06-30 01:58 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-30 02:04 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 02:12 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 02:12 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 02:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 02:20 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 02:17 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 01:56 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 02:15 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 02:21 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 02:22 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 02:10 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 02:02 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-30 01:55 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:09 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/458845290.shtml)
-- 2026-06-30 01:50 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/7433306.shtml)
-- 2026-06-30 01:53 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/09738048.shtml)
-- 2026-06-30 01:56 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/026065551376.shtml)
-- 2026-06-30 02:10 - [恋与深空 日服](http://www.share.minike.top/Article/details/356111886.shtml)
-- 2026-06-30 02:17 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/2106009.shtml)
-- 2026-06-30 02:10 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/40599819085.shtml)
-- 2026-06-30 02:09 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/294850.shtml)
-- 2026-06-30 02:04 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/078686.shtml)
-- 2026-06-30 02:10 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/071316326.shtml)
-- 2026-06-30 02:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/9663917526.shtml)
-- 2026-06-30 02:02 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/8652288.shtml)
-- 2026-06-30 01:54 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/718936494021.shtml)
-- 2026-06-30 02:04 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/4095493952.shtml)
-- 2026-06-30 02:00 - [毒液2](http://www.blog.minike.top/Article/details/7641028239.shtml)
+- 2026-06-30 02:08 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/512153.shtml)
+- 2026-06-30 02:02 - [流金岁月](http://www.share.minike.top/Article/details/43948946.shtml)
+- 2026-06-30 02:01 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/1743698309.shtml)
+- 2026-06-30 02:03 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/52213796.shtml)
+- 2026-06-30 02:10 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/52283.shtml)
+- 2026-06-30 02:16 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/2717329.shtml)
+- 2026-06-30 02:01 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/74439.shtml)
+- 2026-06-30 01:54 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/7261104.shtml)
+- 2026-06-30 02:07 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/9819672703.shtml)
+- 2026-06-30 02:05 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/9513528.shtml)
+- 2026-06-30 02:20 - [美人鱼](https://www.share.minike.top/Article/details/65275403.shtml)
+- 2026-06-30 01:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/649243538099.shtml)
+- 2026-06-30 02:08 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/042516.shtml)
+- 2026-06-30 02:12 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/983478.shtml)
+- 2026-06-30 02:23 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/8277098861.shtml)
