@@ -1,58 +1,60 @@
-# PTC的Codebeamer平台助力马自达推进软件定义汽车开发
+# 美国消费者借贷再度强劲增加 创2022年以来最大连续两月增幅
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-工业软件提供商PTC宣布，马自达汽车公司已选择其Codebeamer应用生命周期管理解决方案，用于软件定义汽车的开发。马自达将借助Codebeamer对需求管理、测试及验证流程进行标准化，实现整车开发过程中的端到端可追溯性。 随着汽车日益由软件驱动，马自达KURUMA开发部门首席主任工程师足立友彦表示，产品开发团队在一个互联且规范的开发环境中协作变得至关重要。Codebeame
+美国消费者借款4月再次强劲增加，创下2022年底以来最大的连续两月增幅。 美联储周五公布的数据显示，4月未偿信贷总额增加207亿美元，3月修正后为增加222亿美元。接受调查的经济学家预估中值为增加177亿美元。 汽车贷款和学费贷款等非循环信贷4月增加91亿美元。信用卡和其他循环信贷未偿余额增加116亿美元。该报告不包括抵押贷款。 随着汽油价格上涨对收入造成更大挤压，许多美国人正
 
 ## 正文
 
-工业软件提供商PTC宣布，马自达汽车公司已选择其Codebeamer应用生命周期管理解决方案，用于软件定义汽车的开发。
+美国消费者借款4月再次强劲增加，创下2022年底以来最大的连续两月增幅。
 
-马自达将借助Codebeamer对需求管理、测试及验证流程进行标准化，实现整车开发过程中的端到端可追溯性。
+美联储周五公布的数据显示，4月未偿信贷总额增加207亿美元，3月修正后为增加222亿美元。
 
-随着汽车日益由软件驱动，马自达KURUMA开发部门首席主任工程师足立友彦表示，产品开发团队在一个互联且规范的开发环境中协作变得至关重要。
+接受调查的经济学家预估中值为增加177亿美元。
 
-Codebeamer帮助他们强化了需求的可追溯性与透明度，有效促进了各团队之间的协同配合。
+汽车贷款和学费贷款等非循环信贷4月增加91亿美元。
 
-该方案与马自达现有的基于模型的开发系统保持连通，并通过统一的产品数据基础取代原有分散的遗留工具体系，支持符合汽车行业标准的合规要求。
+信用卡和其他循环信贷未偿余额增加116亿美元。
 
-此次合作正值PTC近期财务表现强劲之际。
+该报告不包括抵押贷款。
 
-公司此前发布的2026财年第二季度财报显示，营收达7.74亿美元，同比增长22%，超出市场预期的7.12亿美元；调整后每股收益为2.69美元，远超分析师预期的2.10美元。
+随着汽油价格上涨对收入造成更大挤压，许多美国人正面临额外财务压力。
 
-PTC首席营收官Robert Dahdah表示，Codebeamer正帮助马自达整合分散的文档资料、支持需求管理与协作，助力其向软件定义汽车开发模式转型。
+尽管劳动力市场动能似乎正在增强，但工资增长正在放缓，这可能促使一些消费者举债或依靠储蓄来维持支出。
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 22:07 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 21:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 21:47 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 21:42 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 22:11 - [吴建豪和老婆差20岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 22:05 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 21:56 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-29 21:50 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 21:55 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 22:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 22:10 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 22:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 21:53 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 22:14 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 21:58 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 22:05 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 22:01 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 21:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 22:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 22:05 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 22:07 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 21:59 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 22:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 21:57 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 22:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/3989798448.shtml)
-- 2026-06-29 22:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/7405055.shtml)
-- 2026-06-29 22:11 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/2440672738.shtml)
-- 2026-06-29 21:50 - [黄金也扛不住了](http://www.share.kurohicncr.top/Article/details/365600555264.shtml)
-- 2026-06-29 21:45 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/83061109.shtml)
-- 2026-06-29 21:48 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/6724999363.shtml)
-- 2026-06-29 21:42 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/605391216.shtml)
-- 2026-06-29 21:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/314770.shtml)
-- 2026-06-29 21:55 - [让AI做一个账号，它会做成什么样？](http://www.blog.minike.top/Article/details/124657218.shtml)
-- 2026-06-29 21:52 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/144625.shtml)
-- 2026-06-29 22:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/92873576975.shtml)
-- 2026-06-29 22:04 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/88412.shtml)
-- 2026-06-29 21:49 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/36535077387.shtml)
-- 2026-06-29 21:50 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/18944.shtml)
-- 2026-06-29 22:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.minike.top/Article/details/164158480.shtml)
+- 2026-06-29 21:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/552051.shtml)
+- 2026-06-29 21:49 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.kurohicncr.top/Article/details/5797296.shtml)
+- 2026-06-29 21:51 - [女心理师](http://www.blog.minike.top/Article/details/26187.shtml)
+- 2026-06-29 22:03 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/05720.shtml)
+- 2026-06-29 22:14 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/774883.shtml)
+- 2026-06-29 22:12 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/68631338645.shtml)
+- 2026-06-29 21:58 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/8609561.shtml)
+- 2026-06-29 21:50 - [欧洲空调安装费用为何如此高昂](https://www.share.kurohicncr.top/Article/details/79855785259.shtml)
+- 2026-06-29 21:50 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/6885663295.shtml)
+- 2026-06-29 22:14 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/8117619.shtml)
+- 2026-06-29 22:14 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/485581.shtml)
+- 2026-06-29 22:03 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/58779813591.shtml)
+- 2026-06-29 21:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/44406828166.shtml)
+- 2026-06-29 22:03 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/632932.shtml)
+- 2026-06-29 22:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/121336.shtml)

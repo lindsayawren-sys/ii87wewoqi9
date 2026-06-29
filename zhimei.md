@@ -1,56 +1,60 @@
-# 习近平同俄罗斯总统普京共同会见记者
+# 重庆近三年为“绿”减税降费超191亿元
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新社北京5月20日电 (记者 黄钰钦)5月20日下午，中国国家主席习近平在北京人民大会堂同俄罗斯总统普京会谈后共同会见记者。 习近平指出，这是普京总统第二十五次访问中国，充分体现出中俄关系的高水平和特殊性。刚才，我同普京总统举行深入友好、富有成果的会谈，就一系列重大问题进行了战略沟通。我们共同签署两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明，见证达成多份重要双边
+中新网重庆6月5日电 (梁钦卿 余琦)今年6月5日是第55个世界环境日。当前，重庆正推进美丽中国省域先行区建设，绿色发展成绩斐然。重庆市税务局5日公布，近三年来，重庆市落实推动绿色发展的税费支持政策，累计实现减税降费超191亿元。在重庆市忠县，重庆海螺水泥有限责任公司在绿色转型前，生产过程中不仅要消耗大量矿产资源，产生的二氧化硫、氮氧化物等污染物还影响空气质量。 “环保税多排多
 
 ## 正文
 
-中新社北京5月20日电 (记者 黄钰钦)5月20日下午，中国国家主席习近平在北京人民大会堂同俄罗斯总统普京会谈后共同会见记者。
+中新网重庆6月5日电 (梁钦卿 余琦)今年6月5日是第55个世界环境日。
 
-习近平指出，这是普京总统第二十五次访问中国，充分体现出中俄关系的高水平和特殊性。
+当前，重庆正推进美丽中国省域先行区建设，绿色发展成绩斐然。
 
-刚才，我同普京总统举行深入友好、富有成果的会谈，就一系列重大问题进行了战略沟通。
+重庆市税务局5日公布，近三年来，重庆市落实推动绿色发展的税费支持政策，累计实现减税降费超191亿元。
 
-我们共同签署两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明，见证达成多份重要双边合作文件。
+在重庆市忠县，重庆海螺水泥有限责任公司在绿色转型前，生产过程中不仅要消耗大量矿产资源，产生的二氧化硫、氮氧化物等污染物还影响空气质量。
 
-两国还将发表关于倡导世界多极化和新型国际关系的联合声明。
+“环保税多排多缴、少排少缴，要降本增效就必须环保改造。
 
-习近平强调，今年是中俄战略协作伙伴关系建立30周年。
+”该公司安全环保处副处长陈吉火表示，近年来，公司累计投入5亿元进行烟气深度治理改造、除尘设备改造和一线、三线能效改造，大幅降低水泥生产过程中直接产生的碳排放，2025年节约标煤3.1万吨，节约用电2800万度，减少二氧化碳排放8.1万吨，公司每年节约生产成本上亿元，并自2018年以来累计减免环保税超1884万元。
 
-30年来，中俄关系栉风沐雨、与时俱进，关系定位不断提升，达到新时代全面战略协作伙伴关系的历史最高水平，树立起新型大国关系的典范。
+在重庆，越来越多的高耗能、高排放企业在绿色税制引导下，从“被动治污”转变为“主动减排”。
 
-今年也是《中俄睦邻友好合作条约》签署25周年。
+重庆市税务局数据显示，今年一季度，重庆市国家重点调控的大气污染物二氧化硫、氮氧化物环保税收入较2024年一季度下降44%、33%，形成政策激励与绿色发展的良性循环。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
-- 2026-06-29 22:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 21:58 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 22:00 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 22:07 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-29 21:58 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 22:01 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
-- 2026-06-29 22:11 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 21:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 21:53 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 21:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 21:53 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 22:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 21:54 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 21:48 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 22:06 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 21:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 21:59 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 21:51 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
+- 2026-06-29 21:58 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 22:01 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 21:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 21:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
+- 2026-06-29 22:12 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/289752072.shtml)
-- 2026-06-29 22:06 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/3192185579.shtml)
-- 2026-06-29 21:45 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/62003485.shtml)
-- 2026-06-29 22:10 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/2655811.shtml)
-- 2026-06-29 21:53 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/027350610.shtml)
-- 2026-06-29 22:10 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/075360.shtml)
-- 2026-06-29 21:55 - [温网](http://www.share.minike.top/Article/details/287714.shtml)
-- 2026-06-29 21:49 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/29996164332.shtml)
-- 2026-06-29 22:03 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/4493220214.shtml)
-- 2026-06-29 22:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/995276458237.shtml)
-- 2026-06-29 21:47 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/498256406.shtml)
-- 2026-06-29 22:10 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/590901698525.shtml)
-- 2026-06-29 21:57 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.kurohicncr.top/Article/details/36520167198.shtml)
-- 2026-06-29 21:50 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/28252690344.shtml)
-- 2026-06-29 21:49 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/3152277.shtml)
+- 2026-06-29 22:03 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/32102546328.shtml)
+- 2026-06-29 21:57 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/9131492.shtml)
+- 2026-06-29 21:56 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/0084849.shtml)
+- 2026-06-29 21:59 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/850919450095.shtml)
+- 2026-06-29 21:57 - [上世纪90年代玩具成新宠](http://www.share.minike.top/Article/details/866350048.shtml)
+- 2026-06-29 22:15 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/33564.shtml)
+- 2026-06-29 22:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/869488325.shtml)
+- 2026-06-29 22:03 - [毒液2](http://www.blog.minike.top/Article/details/403920793.shtml)
+- 2026-06-29 22:08 - [斛珠夫人](http://www.share.minike.top/Article/details/72683289.shtml)
+- 2026-06-29 21:54 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/255171.shtml)
+- 2026-06-29 22:06 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/192065.shtml)
+- 2026-06-29 21:56 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/0712570.shtml)
+- 2026-06-29 22:11 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/62491451.shtml)
+- 2026-06-29 21:53 - [肝不好身体这几处会“说话”](https://www.share.minike.top/Article/details/90658547.shtml)
+- 2026-06-29 21:51 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/333591740.shtml)

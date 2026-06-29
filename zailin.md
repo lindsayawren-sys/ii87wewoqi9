@@ -1,60 +1,61 @@
-# 刘国中在中国医科院、中国农科院调研时强调 加强“三农”和卫生健康领域基础研究 全面提升原始创新能力和科技水平
+# 地方财政运行平稳韧性凸显
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电 近日，中共中央政治局委员、国务院副总理刘国中到中国医学科学院、中国农业科学院调研基础研究工作。他强调，要深入学习贯彻习近平总书记在加强基础研究座谈会上的重要讲话精神，树立和践行正确政绩观，增强紧迫感责任感使命感，发挥新型举国体制优势，以更大力度、更实举措加强“三农”和卫生健康领域基础研究，全面提升原始创新能力和科技水平，为农业强国、健康中国建设提供有力支
+原标题：地方财政运行平稳韧性凸显 近期，各省份陆续发布前4个月地方财政收支数据。地方财政“成绩单”不仅是一组数字，更是各地财政运行、落实财政政策的答卷。从披露的情况来看，地方财政收支运行总体平稳，收入延续稳定，支出有力保障民生等重点领域，更加积极的财政政策落地见效。 收入普遍增长 财政部发布数据显示，2026年1月份至4月份，全国一般公共预算收入83404亿元，同比增长3.5%
 
 ## 正文
 
-新华社北京5月20日电 近日，中共中央政治局委员、国务院副总理刘国中到中国医学科学院、中国农业科学院调研基础研究工作。
+原标题：地方财政运行平稳韧性凸显 近期，各省份陆续发布前4个月地方财政收支数据。
 
-他强调，要深入学习贯彻习近平总书记在加强基础研究座谈会上的重要讲话精神，树立和践行正确政绩观，增强紧迫感责任感使命感，发挥新型举国体制优势，以更大力度、更实举措加强“三农”和卫生健康领域基础研究，全面提升原始创新能力和科技水平，为农业强国、健康中国建设提供有力支撑。
+地方财政“成绩单”不仅是一组数字，更是各地财政运行、落实财政政策的答卷。
 
-刘国中先后来到中国医学科学院本部和基础医学研究所、医学实验动物研究所，深入了解有关原始创新和关键核心技术攻关情况，并在中国农业科学院主持召开专题会议，听取相关部门、科研院所、专家的意见建议。
+从披露的情况来看，地方财政收支运行总体平稳，收入延续稳定，支出有力保障民生等重点领域，更加积极的财政政策落地见效。
 
-他强调，“三农”、卫生健康领域科技工作与人民群众日常生活、生命健康息息相关。
+收入普遍增长 财政部发布数据显示，2026年1月份至4月份，全国一般公共预算收入83404亿元，同比增长3.5%。
 
-要坚持“四个面向”战略导向，从国家急迫需要和长远需求出发，系统梳理相关领域重大基础科学问题，准确凝练研究方向。
+分中央和地方看，中央一般公共预算收入35474亿元，同比增长4.6%；地方一般公共预算本级收入47930亿元，同比增长2.7%。
 
-要积极开展有组织的基础研究，加强科技力量统筹，强化重大科技项目协同攻关。
+从地方已披露的数据来看，大多数省份保持增长态势，有的甚至以两位数增长，比如青海全省一般公共预算收入213.7亿元、同比增长18.4%，地方一般公共预算收入122.4亿元、同比增长12.7%。
 
-要落实科技体制改革要求，改善科研条件，构建良好科研生态，为基础研究提供长期稳定的投入保障和政策支持。
+“中央和地方一般公共预算收入的增长，说明财政运行态势总体平稳，同时呈现向上的趋势。
 
-要推动人工智能和基础研究深度融合，加快构建自主可控的科研数据库，加强重大科技基础设施布局建设。
+”中国社会科学院财经战略研究院财政研究室主任、研究员何代欣表示。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 22:08 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
-- 2026-06-29 21:51 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 22:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 21:54 - [回顾世界杯争议事件](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 22:07 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 22:07 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 21:55 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 21:42 - [郑钦文谈再战西尼亚科娃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 21:48 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 21:45 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 21:50 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 22:10 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-29 21:47 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 22:04 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 22:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 22:00 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 21:50 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 22:02 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 22:11 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 22:16 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 22:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-29 21:52 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-29 22:14 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 22:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 22:09 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 21:56 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 22:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 21:48 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/15409677011.shtml)
-- 2026-06-29 22:10 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/676693.shtml)
-- 2026-06-29 21:48 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/32034.shtml)
-- 2026-06-29 21:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/569347276.shtml)
-- 2026-06-29 21:56 - [美人鱼](http://www.share.kurohicncr.top/Article/details/84624972.shtml)
-- 2026-06-29 21:46 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/824966.shtml)
-- 2026-06-29 22:03 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/901779.shtml)
-- 2026-06-29 22:03 - [千与千寻](https://www.blog.minike.top/Article/details/191648.shtml)
-- 2026-06-29 21:50 - [网约车出事故平台拒赔称只是中介](https://www.share.minike.top/Article/details/55431750.shtml)
-- 2026-06-29 22:11 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/60584725001.shtml)
-- 2026-06-29 21:44 - [教育部高校学生资助热线7月1日开通](http://www.blog.kurohicncr.top/Article/details/274546915220.shtml)
-- 2026-06-29 21:46 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/9099198073.shtml)
-- 2026-06-29 22:03 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/22866.shtml)
-- 2026-06-29 21:47 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/1901434.shtml)
-- 2026-06-29 21:53 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/03616.shtml)
+- 2026-06-29 22:17 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/745450279.shtml)
+- 2026-06-29 22:07 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/39878.shtml)
+- 2026-06-29 21:56 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/4269350565.shtml)
+- 2026-06-29 21:52 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/9926975360.shtml)
+- 2026-06-29 22:04 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/249228855450.shtml)
+- 2026-06-29 22:09 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/517102167.shtml)
+- 2026-06-29 21:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/268457838958.shtml)
+- 2026-06-29 22:03 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/12149.shtml)
+- 2026-06-29 21:50 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/563887.shtml)
+- 2026-06-29 22:05 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/2382460.shtml)
+- 2026-06-29 21:58 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/13499847.shtml)
+- 2026-06-29 22:11 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/691334150.shtml)
+- 2026-06-29 21:57 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.blog.minike.top/Article/details/518172.shtml)
+- 2026-06-29 21:58 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/174524849.shtml)
+- 2026-06-29 21:53 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/740091.shtml)

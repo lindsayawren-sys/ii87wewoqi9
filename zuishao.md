@@ -1,59 +1,50 @@
-# 懂爱才更会爱 近八成受访大学生对恋爱课感兴趣
+# 旺山旺水-B建议委任国卫为新任核数师
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-恋爱是青春里的一个重要课题，但如何正确认识爱、表达爱、经营爱，是不少年轻人的现实困惑。为回应青年需求，越来越多高校开设了恋爱课，课程热度也很高。大学生希望提升哪些恋爱能力？他们对恋爱课有哪些期待？中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1341名在校大学生进行的一项调查显示，77.7%的受访大学生对恋爱课感兴趣。谈及对恋爱课的期待，63.9%的受访大学生
+旺山旺水-B（02630）发布公告，本公司的现任核数师德勤•关黄陈方会计师行（德勤）将于其当前任期届满后，即本公司将于2026年6月26日举行的年度股东会结束时退任本公司核数师，且不会于年度股东会续聘为本公司核数师。 于2026年5月22日，本公司审核委员会召开会议，建议委任国卫会计师事务所有限公司（国卫）为本公司新任核数师。于2026年6月4日，本公司董事会经适当考虑及审核委
 
 ## 正文
 
-恋爱是青春里的一个重要课题，但如何正确认识爱、表达爱、经营爱，是不少年轻人的现实困惑。
+旺山旺水-B（02630）发布公告，本公司的现任核数师德勤•关黄陈方会计师行（德勤）将于其当前任期届满后，即本公司将于2026年6月26日举行的年度股东会结束时退任本公司核数师，且不会于年度股东会续聘为本公司核数师。
 
-为回应青年需求，越来越多高校开设了恋爱课，课程热度也很高。
+于2026年5月22日，本公司审核委员会召开会议，建议委任国卫会计师事务所有限公司（国卫）为本公司新任核数师。
 
-大学生希望提升哪些恋爱能力？
+于2026年6月4日，本公司董事会经适当考虑及审核委员会提议，董事会决议建议委任国卫为本公司新任核数师，以接替德勤的退任，自年度股东会结束后生效，直至本公司下届年度股东会结束为止，须待本公司股东于年度股东会上予以批准。
 
-他们对恋爱课有哪些期待？
-
-中国青年报社社会调查中心联合问卷网(wenjuan.com)，对1341名在校大学生进行的一项调查显示，77.7%的受访大学生对恋爱课感兴趣。
-
-谈及对恋爱课的期待，63.9%的受访大学生希望学到如何恰当地沟通与交流，60.9%的受访大学生希望学习情绪管理与共情能力。
-
-受访大学生：恋爱课火爆，常被“一抢而空” 北京一所高校艺术类专业研一学生乔欣然介绍，学校的恋爱选修课很受欢迎，经常是选课系统一开放名额，课程便被“一抢而空”。
-
-“我是大三那年抢到的名额，每节课都座无虚席，还有不少同学来蹭课。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 22:11 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 21:57 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 21:53 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 22:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 21:52 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 22:11 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 21:45 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 21:56 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
-- 2026-06-29 21:51 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 21:49 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 22:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 21:45 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 22:00 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 22:11 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 22:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 21:54 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 22:08 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 22:00 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 22:13 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 22:10 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-29 22:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 22:14 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 21:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 21:54 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/136987764.shtml)
-- 2026-06-29 22:12 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/79027573424.shtml)
-- 2026-06-29 22:05 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/33928913521.shtml)
-- 2026-06-29 21:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/2375369.shtml)
-- 2026-06-29 22:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/654358792.shtml)
-- 2026-06-29 21:43 - [乔家的儿女](http://www.share.minike.top/Article/details/825169.shtml)
-- 2026-06-29 22:02 - [媒体：“虹吸执法”权力寻租该翻篇了](http://www.share.kurohicncr.top/Article/details/554803447.shtml)
-- 2026-06-29 22:04 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/608286480844.shtml)
-- 2026-06-29 22:03 - [齐思钧回复孙怡](https://www.share.kurohicncr.top/Article/details/458084.shtml)
-- 2026-06-29 21:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/4875415879.shtml)
-- 2026-06-29 22:05 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/703281947149.shtml)
-- 2026-06-29 22:09 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/621404712732.shtml)
-- 2026-06-29 21:50 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/6946202.shtml)
-- 2026-06-29 22:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/33680792.shtml)
-- 2026-06-29 22:03 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/2011210.shtml)
+- 2026-06-29 22:05 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/350463.shtml)
+- 2026-06-29 22:13 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/7570102542.shtml)
+- 2026-06-29 21:49 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/92425.shtml)
+- 2026-06-29 21:57 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/93401143666.shtml)
+- 2026-06-29 21:59 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/48440559.shtml)
+- 2026-06-29 21:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/17130993344.shtml)
+- 2026-06-29 21:52 - [中国气象局启动气象灾害四级应急响应](http://www.blog.minike.top/Article/details/98840.shtml)
+- 2026-06-29 22:00 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/677131591546.shtml)
+- 2026-06-29 22:03 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/92162.shtml)
+- 2026-06-29 21:54 - [毒液2](http://www.share.minike.top/Article/details/445349383.shtml)
+- 2026-06-29 22:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/63520063427.shtml)
+- 2026-06-29 22:10 - [海力士是全球AI行情的新亚盘风向标吗](http://www.blog.kurohicncr.top/Article/details/089301962.shtml)
+- 2026-06-29 21:57 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.minike.top/Article/details/61759138.shtml)
+- 2026-06-29 22:17 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/79893.shtml)
+- 2026-06-29 22:16 - [6.5万观众40分钟“丝滑”离场](http://www.share.minike.top/Article/details/498946000.shtml)

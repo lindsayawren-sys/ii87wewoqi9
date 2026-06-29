@@ -1,56 +1,47 @@
-# 比亚迪辟谣考虑收购玛莎拉蒂
+# 5只个股大宗交易超5000万元
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者|林健民 编辑|李燕娜 近日，《21辟谣》注意到，有消息称比亚迪有意收购Stellantis在欧洲的闲置产能工厂，并在评估收购或投资玛莎拉蒂等欧洲高端品牌的可能性。消息在多个平台上流传，引发市场关注。 针对上述传言，5月21日，21快讯记者向比亚迪方面进行求证。公司回应称，前述消息“不属实”“完全是谣言
+证券时报·数据宝统计，6月5日共有60只个股现身大宗交易平台，累计成交量0.69亿股，累计成交额12.70亿元，其中28只个股交易额超千万元。中力股份交易额最高，大宗交易共1笔，成交额3.10亿元；其次是世纪华通（维权），大宗交易共2笔，成交额1.44亿元。（数据宝）6月5日大宗交易成交额居前股票（文章来源：证券时报网）
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+证券时报·数据宝统计，6月5日共有60只个股现身大宗交易平台，累计成交量0.69亿股，累计成交额12.70亿元，其中28只个股交易额超千万元。
 
-记者|林健民 编辑|李燕娜 近日，《21辟谣》注意到，有消息称比亚迪有意收购Stellantis在欧洲的闲置产能工厂，并在评估收购或投资玛莎拉蒂等欧洲高端品牌的可能性。
+中力股份交易额最高，大宗交易共1笔，成交额3.10亿元；其次是世纪华通（维权），大宗交易共2笔，成交额1.44亿元。
 
-消息在多个平台上流传，引发市场关注。
-
-针对上述传言，5月21日，21快讯记者向比亚迪方面进行求证。
-
-公司回应称，前述消息“不属实”“完全是谣言”。
-
-当天，比亚迪A股股价冲高回落，截至5月21日收盘，报93.51元/股，涨0.16%，总市值为7992亿元。
-
-责任编辑：杨红卜
+（数据宝）6月5日大宗交易成交额居前股票（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 22:11 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 22:05 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
-- 2026-06-29 22:01 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 21:44 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 22:04 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 21:50 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 22:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 21:50 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 21:53 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-29 21:44 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 21:43 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 22:00 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 22:12 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 22:16 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 21:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 21:56 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 21:51 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 21:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 22:06 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 22:02 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 22:03 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 21:57 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/4020567.shtml)
-- 2026-06-29 21:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/5189039.shtml)
-- 2026-06-29 22:07 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/95921223327.shtml)
-- 2026-06-29 22:09 - [郑钦文谈再战西尼亚科娃](https://www.share.minike.top/Article/details/675660700.shtml)
-- 2026-06-29 22:04 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/12222748728.shtml)
-- 2026-06-29 22:07 - [世界杯“美洲德比”7月1日开打](https://www.blog.kurohicncr.top/Article/details/7759283770.shtml)
-- 2026-06-29 21:45 - [荷兰VS摩洛哥你看好谁](https://www.share.minike.top/Article/details/99462485.shtml)
-- 2026-06-29 21:43 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/759832.shtml)
-- 2026-06-29 21:44 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/955608380.shtml)
-- 2026-06-29 21:57 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/28111922.shtml)
-- 2026-06-29 22:03 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/074366252.shtml)
-- 2026-06-29 21:49 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/319355470971.shtml)
-- 2026-06-29 21:47 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/29983.shtml)
-- 2026-06-29 21:54 - [日本在最东端离岛部署导弹发射装置](http://www.blog.minike.top/Article/details/013058589.shtml)
-- 2026-06-29 21:48 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/53670852520.shtml)
+- 2026-06-29 22:09 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/9504077714.shtml)
+- 2026-06-29 21:52 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/33087475634.shtml)
+- 2026-06-29 22:08 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/73857709.shtml)
+- 2026-06-29 22:17 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/47652948356.shtml)
+- 2026-06-29 22:05 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/58607.shtml)
+- 2026-06-29 22:01 - [欧洲缘何成为变暖最快的大洲](http://www.share.minike.top/Article/details/48833.shtml)
+- 2026-06-29 21:58 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/0790716103.shtml)
+- 2026-06-29 22:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/115875.shtml)
+- 2026-06-29 21:51 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/6343264.shtml)
+- 2026-06-29 22:09 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/1543349.shtml)
+- 2026-06-29 22:03 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/2238284017.shtml)
+- 2026-06-29 22:02 - [巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/97866218.shtml)
+- 2026-06-29 22:03 - [专家：43℃热浪撕开欧洲环保假象](http://www.blog.minike.top/Article/details/4036755353.shtml)
+- 2026-06-29 21:54 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/16645.shtml)
+- 2026-06-29 22:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/1123609.shtml)

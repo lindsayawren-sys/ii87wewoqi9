@@ -1,58 +1,59 @@
-# 谁说老人搞不定AI？“冬香妈妈”带银发族玩转反诈AI不掉队
+# 一杯奶茶钱真不是小钱，消费前先学会避坑
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-大河网讯 (记者 朱丽文)“数字时代跑得很快，但我们的老年人一个都不能掉队。”5月19日，以“文明网络空间 昂扬奋进力量”为主题的2026年中国网络文明大会在广西召开，会上举行了2026年全民数字素养与技能提升月启动仪式，启动仪式上，焦作市山阳区艺新街道“冬香好妈妈”工作站党支部书记张冬香，在现场分享基层助老反诈、赋能老年数字生活的实践故事。谈及多年坚守的初衷，张冬香在采访中坦
+最近，“意识到了一杯奶茶钱真不是小钱”登上微博热搜，引发数万网友共鸣。有网友算了一笔账：每天一杯20元的奶茶，一年就是7300元，相当于一部新款手机的价格。而康师傅冰红茶“卖不动了”的话题也同时引发热议，背后折射出的是消费者对日常消费越来越理性的态度。 然而，比“奶茶钱花得值不值”更让人头疼的，是消费过程中遇到的各类纠纷——买到的饮料有异物、食品过期、外卖分量缩水、团购券用不了
 
 ## 正文
 
-大河网讯 (记者 朱丽文)“数字时代跑得很快，但我们的老年人一个都不能掉队。
+最近，“意识到了一杯奶茶钱真不是小钱”登上微博热搜，引发数万网友共鸣。
 
-”5月19日，以“文明网络空间 昂扬奋进力量”为主题的2026年中国网络文明大会在广西召开，会上举行了2026年全民数字素养与技能提升月启动仪式，启动仪式上，焦作市山阳区艺新街道“冬香好妈妈”工作站党支部书记张冬香，在现场分享基层助老反诈、赋能老年数字生活的实践故事。
+有网友算了一笔账：每天一杯20元的奶茶，一年就是7300元，相当于一部新款手机的价格。
 
-谈及多年坚守的初衷，张冬香在采访中坦言：“很多老人想学、又不敢学，看着智能手机满心好奇，可一怕操作失误、二怕被骗，最后干脆选择不用、不碰。
+而康师傅冰红茶“卖不动了”的话题也同时引发热议，背后折射出的是消费者对日常消费越来越理性的态度。
 
-” 日常走访中，她发现，不少老年人受视力、动手能力影响，看不懂智能设备操作流程。
+然而，比“奶茶钱花得值不值”更让人头疼的，是消费过程中遇到的各类纠纷——买到的饮料有异物、食品过期、外卖分量缩水、团购券用不了……这些问题看似不大，但维权过程往往让人身心俱疲。
 
-随着AI换脸、虚拟冒充等新型网络诈骗层出不穷，隐蔽性、迷惑性越来越强，很多老人稍有不慎就可能遭受财产损失，这也让大家对数字设备愈发抵触，成了老年人融入新生活的最大阻碍。
+日常消费维权 【下载黑猫投诉客户端】，有哪些靠谱渠道？
 
-为此，张冬香带领近3000名银发志愿者借力新技术，自制接地气、好理解的反诈短视频，直观拆解各类新型骗局套路、曝光诈骗陷阱。
+遇到消费纠纷，最常见的途径是直接与商家协商。
 
-“反诈不能照本宣科，老人看得懂、记得住、用得上，宣传才算有效。
+如果协商不成，消费者可以拨打12315热线，这是国家市场监督管理总局设立的全国统一投诉举报平台，覆盖食品、药品、商品质量等各类消费问题。
 
-”张冬香说道。
+12315的优点是权威性强、有行政执法权，但缺点也明显：热线繁忙时段可能需要排队等待，处理周期相对较长。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-29 21:50 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 21:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 21:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
-- 2026-06-29 21:44 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 22:01 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 22:00 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 22:05 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-29 21:55 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 22:09 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 21:44 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 21:43 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 22:17 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 21:54 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 22:13 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 21:52 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 21:50 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 21:52 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 22:06 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 22:00 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 22:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 22:11 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 21:58 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 21:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 21:59 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/01615.shtml)
-- 2026-06-29 21:54 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/030877176875.shtml)
-- 2026-06-29 21:55 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/38875.shtml)
-- 2026-06-29 21:53 - [天道](http://www.blog.kurohicncr.top/Article/details/96284.shtml)
-- 2026-06-29 21:58 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/173462592.shtml)
-- 2026-06-29 21:57 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/02762.shtml)
-- 2026-06-29 22:09 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/070109246724.shtml)
-- 2026-06-29 21:44 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/5330539.shtml)
-- 2026-06-29 21:57 - [广东水利防汛Ⅳ级应急响应结束](https://www.share.minike.top/Article/details/2671804.shtml)
-- 2026-06-29 21:47 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/811332045.shtml)
-- 2026-06-29 21:42 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/3889029703.shtml)
-- 2026-06-29 21:51 - [起风了](http://www.share.minike.top/Article/details/6468565.shtml)
-- 2026-06-29 22:11 - [原来周杰伦的龙拳是广告歌](https://www.blog.minike.top/Article/details/7742317.shtml)
-- 2026-06-29 22:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/05115244.shtml)
-- 2026-06-29 21:45 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/29645.shtml)
+- 2026-06-29 22:05 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/26214.shtml)
+- 2026-06-29 21:58 - [千与千寻](http://www.share.minike.top/Article/details/993382021500.shtml)
+- 2026-06-29 21:51 - [一诺变着花样秀新驾照](http://www.blog.minike.top/Article/details/66980756.shtml)
+- 2026-06-29 22:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/74240.shtml)
+- 2026-06-29 21:48 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/97620791.shtml)
+- 2026-06-29 22:07 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/60792367738.shtml)
+- 2026-06-29 21:50 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.minike.top/Article/details/14024723.shtml)
+- 2026-06-29 22:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/889514519.shtml)
+- 2026-06-29 22:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/96840.shtml)
+- 2026-06-29 22:09 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/26111243658.shtml)
+- 2026-06-29 21:56 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/298272693892.shtml)
+- 2026-06-29 21:57 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/58302973080.shtml)
+- 2026-06-29 22:17 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/090511010136.shtml)
+- 2026-06-29 22:05 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.kurohicncr.top/Article/details/4872557394.shtml)
+- 2026-06-29 22:06 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/7990788.shtml)

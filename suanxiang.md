@@ -1,56 +1,56 @@
-# 湖南石门县遭强降雨 已致5人死亡11人失联
+# 美国５月份非农就业人数增加17.2万人，失业率报4.3%
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-小满万物盈 茶香沁寰宇郑丽文：全世界都不支持“台独”洁丽雅晒老板出生证自证，都是短剧惹的祸？倾听民企心声，国家发改委多维发力护航民营经济从“月季花环”看中国9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？黄金白银，为何集体大跌？主任医师谈“网
+专题：美国5月非农就业岗位增长料放缓 但仍保持稳健 非农就业人数预估为增加8.8万人， 接受调查的77位经济学家的预测范围为增加4.5万人至增加12.5万人。 劳动力参与率为61.8%，与前一个月持平。 平均每小时工资较前一个月增加0.3%，预估为增加0.3%，前一个月为增加0.2%。 私营部门非农就业人数增加12万人，前一个月为增加17.7万人； 预估为增加8.9万人，接受调
 
 ## 正文
 
-小满万物盈 茶香沁寰宇郑丽文：全世界都不支持“台独”洁丽雅晒老板出生证自证，都是短剧惹的祸？
+专题：美国5月非农就业岗位增长料放缓 但仍保持稳健 非农就业人数预估为增加8.8万人， 接受调查的77位经济学家的预测范围为增加4.5万人至增加12.5万人。
 
-倾听民企心声，国家发改委多维发力护航民营经济从“月季花环”看中国9.9元的“抽象娃娃”卖疯了：有厂家半个月卖出几十万个法治护航民营经济行稳致远从三个“更”看中国有力护航民企“轻装上阵”六小龄童：愚公精神与西游精神一脉相承算法时代，如何让阅读更加深入？
+劳动力参与率为61.8%，与前一个月持平。
 
-黄金白银，为何集体大跌？
+平均每小时工资较前一个月增加0.3%，预估为增加0.3%，前一个月为增加0.2%。
 
-主任医师谈“网红洗眼液”：非医疗产品，是护理产品普京的“六褶包”：一场中俄文化的指尖对话一张圆桌映照中国制造全球新坐标平陆运河重塑广西开放新格局赖清德，如何走到被弹劾地步？
+私营部门非农就业人数增加12万人，前一个月为增加17.7万人； 预估为增加8.9万人，接受调查的46位经济学家预测为增加4万人至增加13.5万人。
 
-古今“驴友”大PK，谁才是狠人？
+制造业非农就业人数增加0.7万人，前一个月为持平；预估为增加0.2万人，接受调查的17位经济学家的预测范围为减少1万人至增加0.9万人。
 
-低空安全司亮相 万亿级产业“管理双翼”就位多方力量驰援湖南石门 爱心物资汇聚灾区多方救援力量驰援湖南石门“520”北京婚姻服务场景焕新江苏太仓：“0元租”婚纱小站传递幸福和新风探秘“气象国家队”：从110米/秒风洞到一滴雨的精准度量黑龙江鸡西：走进富有烟火气的北钢大集洋媳妇开拖拉机刨地种玉米圈粉500万蒙曼：今天诗词走红速度古人无法想象北京天坛的奠基土来自山西后土祠？
+失业率为4.3%，前一个月为4.3%；符合预期，接受调查的75位经济学家的预测范围为4.2%-4.5%。
 
-水下仿生机器鱼展演栩栩如生美国博主“车轮哥”带老外组团“朝圣”中国电车“法拉利大叔”自评走红视频醉驾男子路遇检查假装“路人”，交警一眼识破！
+就业不足率8.1%，前一个月为8.2%。
 
-河南南阳上演“沉浸式拆飞机”名场面夜鹭化身耐心“垂钓者” 上演“守株待鱼”今天，为什么不能打孩子？
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 21:50 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
-- 2026-06-29 21:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 21:46 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 21:52 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
-- 2026-06-29 22:08 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 22:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 22:05 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 21:52 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 21:54 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 22:14 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 22:17 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 22:01 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 22:11 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 22:03 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 21:52 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 22:02 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 22:03 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 21:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 22:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/23273445.shtml)
-- 2026-06-29 22:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/67178.shtml)
-- 2026-06-29 21:42 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/84074141.shtml)
-- 2026-06-29 22:05 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/80204.shtml)
-- 2026-06-29 21:57 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/90681.shtml)
-- 2026-06-29 21:48 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/5951746.shtml)
-- 2026-06-29 21:43 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/61416.shtml)
-- 2026-06-29 21:46 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/17870821670.shtml)
-- 2026-06-29 21:59 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/104189.shtml)
-- 2026-06-29 21:48 - [教育部高校学生资助热线7月1日开通](https://www.blog.minike.top/Article/details/57349.shtml)
-- 2026-06-29 21:54 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/4041060.shtml)
-- 2026-06-29 22:04 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/4244252738.shtml)
-- 2026-06-29 21:50 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/2740604354.shtml)
-- 2026-06-29 22:06 - [谁在推动“成都造”影视持续出圈](http://www.blog.kurohicncr.top/Article/details/94621849.shtml)
-- 2026-06-29 21:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/56768731138.shtml)
+- 2026-06-29 21:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/10058385278.shtml)
+- 2026-06-29 22:14 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/302968.shtml)
+- 2026-06-29 22:09 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/50869941.shtml)
+- 2026-06-29 22:17 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/1864839.shtml)
+- 2026-06-29 21:58 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/31091851437.shtml)
+- 2026-06-29 22:17 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/489530871141.shtml)
+- 2026-06-29 21:54 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/465260582908.shtml)
+- 2026-06-29 21:58 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/296281209.shtml)
+- 2026-06-29 22:13 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/26665.shtml)
+- 2026-06-29 22:04 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/918123741486.shtml)
+- 2026-06-29 21:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/44004.shtml)
+- 2026-06-29 22:15 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/000949108.shtml)
+- 2026-06-29 21:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/14955391464.shtml)
+- 2026-06-29 22:15 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/10745456521.shtml)
+- 2026-06-29 21:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/935200.shtml)

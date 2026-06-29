@@ -1,60 +1,50 @@
-# Advanced Drainage Systems发布2027财年强劲指引
+# 特锐德发布算力中心高压交直流预制舱供电站“算电岛”
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-水管理解决方案提供商Advanced Drainage Systems于5月21日发布2027财年业绩指引，预计全年营收将在33.5亿至35.5亿美元之间，调整后EBITDA预计为10亿至15亿美元。该指引的中值约34.5亿美元，较分析师一致预期的30.3亿美元高出约14%。 公司总裁兼首席执行官Scott Barbour表示，第四季度整体净销售额增长10%，主要得益于Alli
+6月6日消息，特锐德今天发布算力中心高压交直流预制舱供电站（简称“算电岛”）。 该设备是将高压变压器、GIS、中压开关柜及母线、环网柜、SST、微机保护、控制通信等设备，按照功能和结构在工厂内进行模块化设计、深度预制集成，现场各模块采用积木式安装的综合性大型装备，预制舱直连接入110/220kV高压电，N路直流800V母线直供至机房。 青岛特锐德电气股份有限公司执行总裁周君介绍
 
 ## 正文
 
-水管理解决方案提供商Advanced Drainage Systems于5月21日发布2027财年业绩指引，预计全年营收将在33.5亿至35.5亿美元之间，调整后EBITDA预计为10亿至15亿美元。
+6月6日消息，特锐德今天发布算力中心高压交直流预制舱供电站（简称“算电岛”）。
 
-该指引的中值约34.5亿美元，较分析师一致预期的30.3亿美元高出约14%。
+该设备是将高压变压器、GIS、中压开关柜及母线、环网柜、SST、微机保护、控制通信等设备，按照功能和结构在工厂内进行模块化设计、深度预制集成，现场各模块采用积木式安装的综合性大型装备，预制舱直连接入110/220kV高压电，N路直流800V母线直供至机房。
 
-公司总裁兼首席执行官Scott Barbour表示，第四季度整体净销售额增长10%，主要得益于Allied产品的强劲表现以及NDS收购带来的贡献。
+青岛特锐德电气股份有限公司执行总裁周君介绍，将供电站土建机电工程重塑为工厂预制舱制造，整站交付只需150天，充电HVDC升级到SST架构，效率≥98.5%，此外，算电岛通过绿电直连+储能移峰填谷+算电协同+折旧减少+能耗降低+智能运维等优化降本，可使Token用电成本下降30%；通过集成化设计、模块化预制、整体化交付、智能化运维全流程体系，现场减少用铜量50%、土建成本节约80%、施工和设备租赁节约70%，供电站综合造价直降20%。
 
-NDS收购于2026年2月完成，交易金额约10亿美元。
+本次发布会上，特锐德和中科曙光签署战略合作协议，双方将落地更多优质项目，共筑算力产业高地、共促区域经济升级、共推算电融合生态落地。
 
-该收购为公司Stormwater季度贡献了约4900万美元收入，预计全年将贡献约3亿美元。
-
-公司预计三年内可实现超过2500万美元的年化成本协同效应，早期整合进展已超出预期。
-
-尽管指引强劲，公司股价盘前下跌约4.5%。
-
-管理层对需求前景持谨慎态度，指出地缘政治不确定性、利率高企以及住宅建设放缓等因素带来压力。
+（刘丽丽）责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 22:08 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 22:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
-- 2026-06-29 21:48 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 21:50 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 21:58 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 22:11 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-29 21:55 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 22:10 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 21:50 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 21:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 21:58 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 22:00 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
-- 2026-06-29 21:56 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 21:57 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 22:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 22:07 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 22:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 21:53 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 21:49 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 22:09 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 22:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 21:52 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 21:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/0697528648.shtml)
-- 2026-06-29 21:47 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/96185376.shtml)
-- 2026-06-29 22:02 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/42994.shtml)
-- 2026-06-29 22:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/47058.shtml)
-- 2026-06-29 21:42 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/67630.shtml)
-- 2026-06-29 21:49 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.minike.top/Article/details/573973.shtml)
-- 2026-06-29 21:59 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/41871.shtml)
-- 2026-06-29 22:11 - [急先锋](https://www.share.minike.top/Article/details/5348025096.shtml)
-- 2026-06-29 21:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/203933.shtml)
-- 2026-06-29 22:11 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/780509.shtml)
-- 2026-06-29 21:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/4638380.shtml)
-- 2026-06-29 22:04 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/38791112.shtml)
-- 2026-06-29 22:00 - [铜价上涨 日本住宅水表失窃严重](http://www.share.kurohicncr.top/Article/details/54997183036.shtml)
-- 2026-06-29 22:08 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/9919237.shtml)
-- 2026-06-29 22:09 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/6441821848.shtml)
+- 2026-06-29 22:01 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/26558.shtml)
+- 2026-06-29 22:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/527988.shtml)
+- 2026-06-29 21:53 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/32531500.shtml)
+- 2026-06-29 22:13 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/07098716.shtml)
+- 2026-06-29 21:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/7382564.shtml)
+- 2026-06-29 22:03 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/21682098830.shtml)
+- 2026-06-29 21:56 - [谁在推动“成都造”影视持续出圈](https://www.blog.minike.top/Article/details/52284392.shtml)
+- 2026-06-29 21:50 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/670171300440.shtml)
+- 2026-06-29 22:12 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/0208359.shtml)
+- 2026-06-29 22:15 - [105岁女红军看到自己长征时的模样](http://www.blog.kurohicncr.top/Article/details/63808421439.shtml)
+- 2026-06-29 22:10 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/710409556057.shtml)
+- 2026-06-29 21:52 - [月亮](https://www.share.minike.top/Article/details/951234.shtml)
+- 2026-06-29 22:12 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/441304347.shtml)
+- 2026-06-29 21:53 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.blog.kurohicncr.top/Article/details/00726117215.shtml)
+- 2026-06-29 22:17 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/80998459996.shtml)

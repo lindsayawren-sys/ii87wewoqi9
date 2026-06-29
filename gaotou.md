@@ -1,57 +1,56 @@
-# 消费者扎堆涌入折扣零售卖场 TJX上调全年业绩预期
+# 民建邯郸市委召开十二届二次主委会暨理论学习中心组2026年第二次学习会议
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 公司将本财年同店销售额增长预期上调至 3%—4% 内容速览 TJX 集团一季度销售额与净利润双双走高，顺势上调全年经营业绩指引。 旗下拥有 TJ 麦克斯品牌的折扣零售巨头TJX 集团一季度营收业绩向好。在大众消费趋于谨慎的市场环境下，该品牌持续吸引客流入局，公司随即上调全年业绩预期。 财报显示，企业当期净利润达13.3 亿美元，折合每股收益
+为推进“参政为公、实干为民”主题教育走深走实、见行见效，凝聚思想政治共识、汇聚团结奋进力量，6月4日，民建邯郸市委召开十二届二次主委会暨理论学习中心组2026年第二次学习会议。民建邯郸市委主委凌涛主持会议，民建邯郸市委副主委王铁炜、杨晓梅、马腾壑、吴双印、张建平参加会议。会议学习了习近平总书记重要文章《前瞻布局和发展未来产业》，学习了各民主党派中央、全国工商联、无党派代表人士队
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 公司将本财年同店销售额增长预期上调至 3%—4% 内容速览 TJX 集团一季度销售额与净利润双双走高，顺势上调全年经营业绩指引。
+为推进“参政为公、实干为民”主题教育走深走实、见行见效，凝聚思想政治共识、汇聚团结奋进力量，6月4日，民建邯郸市委召开十二届二次主委会暨理论学习中心组2026年第二次学习会议。
 
-旗下拥有 TJ 麦克斯品牌的折扣零售巨头TJX 集团一季度营收业绩向好。
+民建邯郸市委主委凌涛主持会议，民建邯郸市委副主委王铁炜、杨晓梅、马腾壑、吴双印、张建平参加会议。
 
-在大众消费趋于谨慎的市场环境下，该品牌持续吸引客流入局，公司随即上调全年业绩预期。
+会议学习了习近平总书记重要文章《前瞻布局和发展未来产业》，学习了各民主党派中央、全国工商联、无党派代表人士队伍建设研讨会精神，学习了中共邯郸市委十届十二次全会精神，讨论通过了民建邯郸市第十二届专门委员会事宜，安排了近期工作。
 
-财报显示，企业当期净利润达13.3 亿美元，折合每股收益 1.19 美元；去年同期净利润为 10.4 亿美元，每股收益 0.92 美元，大幅高于市场预期的每股 1.02 美元。
+会议还研究了其它事项。
 
-季度净销售额从上年 131.1 亿美元增至143.2 亿美元，超出华尔街 140.2 亿美元的预估数值。
+会议强调，深入开展“参政为公、实干为民”主题教育，必须始终以坚持中国共产党领导、巩固团结奋斗共同思想政治基础为根本目标，加强自身建设、发挥我国新型政党制度优势，服务“十五五”高质量开局、助力中国式现代化，让“学思想、讲大局、重实干、出实绩”的总要求全面体现、深度落实。
 
-同店销售额同比上涨 6%，远超分析师此前 4.1% 的预测值。
+会议要求，要深入学习贯彻习近平新时代中国特色社会主义思想，自觉赓续“与党同心、爱国为民、精诚合作、敬业奉献”的优良传统，始终在思想上政治上行动上同以习近平同志为核心的中共中央保持高度一致。
 
-公司上调本财年业绩指引： 将全年同店销售额增速预期，从此前 2%—3% 上调至3%—4%； 全年每股收益预期同步上调，由 4.93—5.02 美元调整至5.08—5.15 美元。
+要把“公心”融入参政履职的全过程，把“民心”作为干事创业的风向标，树立“政绩为谁而树、树什么样的政绩、靠什么树政绩”的正确导向。
 
-市场机构普遍预测其全年同店销售增速为 3.4%，调整后每股收益 5.13 美元。
+要发挥“关键少数”的示范作用，带头深入基层、贴近群众，在调查研究中摸清实情、找准对策，在社会服务中践行初心、展现作为。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 21:56 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 21:54 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 22:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 22:09 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 21:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 21:45 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 21:57 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 22:05 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 22:07 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 21:44 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 22:06 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-29 22:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 22:16 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 21:59 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-29 22:02 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 22:07 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 22:00 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 22:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 22:15 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 21:54 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [温网](http://www.blog.kurohicncr.top/Article/details/619088895.shtml)
-- 2026-06-29 22:05 - [吴建豪和老婆差20岁](http://www.share.kurohicncr.top/Article/details/06798807.shtml)
-- 2026-06-29 22:00 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/300616.shtml)
-- 2026-06-29 22:10 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/0918251638.shtml)
-- 2026-06-29 21:54 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/205267314742.shtml)
-- 2026-06-29 21:54 - [大范围高温会带来哪些经济影响](http://www.blog.minike.top/Article/details/952765453658.shtml)
-- 2026-06-29 21:49 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/00100972.shtml)
-- 2026-06-29 21:43 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/650176585234.shtml)
-- 2026-06-29 21:51 - [速度与激情9](https://www.share.minike.top/Article/details/48709513.shtml)
-- 2026-06-29 21:51 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/130561206.shtml)
-- 2026-06-29 22:08 - [湖南姑娘被东北同事带偏口音](https://www.blog.kurohicncr.top/Article/details/2326788.shtml)
-- 2026-06-29 21:43 - [中国气象局启动气象灾害四级应急响应](http://www.share.minike.top/Article/details/25485.shtml)
-- 2026-06-29 22:00 - [绘画区你赢了](http://www.share.minike.top/Article/details/27331951.shtml)
-- 2026-06-29 22:05 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/29934.shtml)
-- 2026-06-29 22:00 - [铜价上涨 日本住宅水表失窃严重](https://www.share.minike.top/Article/details/90371260.shtml)
+- 2026-06-29 21:56 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/8415355125.shtml)
+- 2026-06-29 22:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/4189179.shtml)
+- 2026-06-29 21:53 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/39527.shtml)
+- 2026-06-29 21:55 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/6688053.shtml)
+- 2026-06-29 22:14 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/85342355.shtml)
+- 2026-06-29 21:54 - [起风了](https://www.share.kurohicncr.top/Article/details/19284329.shtml)
+- 2026-06-29 21:49 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/95376741190.shtml)
+- 2026-06-29 22:07 - [月亮](https://www.blog.minike.top/Article/details/68951981750.shtml)
+- 2026-06-29 22:08 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/361569111.shtml)
+- 2026-06-29 22:06 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/815404612.shtml)
+- 2026-06-29 21:48 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/5410348774.shtml)
+- 2026-06-29 22:02 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/25188.shtml)
+- 2026-06-29 22:03 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/17022574050.shtml)
+- 2026-06-29 22:01 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/588901426574.shtml)
+- 2026-06-29 21:50 - [沉睡花园](http://www.blog.minike.top/Article/details/4570125.shtml)

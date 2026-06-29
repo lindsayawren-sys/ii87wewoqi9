@@ -1,59 +1,60 @@
-# 方正富邦基金高管换防：崔建波卸任副总专心做投资，汤戈升任副总经理
+# 央行宏观审慎管理局局长周永坤出任央行四川省分行行长
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-近日，方正富邦基金发布高级管理人员变更公告，副总经理崔建波因临近退休，卸任管理职务，专注从事投资工作。同时，公司聘任汤戈为副总经理，任职日期为2026年5月14日。 17年老将崔建波“退居二线”：卸任副总专注投资，年化回报7.51%跑赢沪深300 公开资料显示，崔建波拥有学士学位，是一位有着超过17年投资管理经验的资深老将。他曾任天津市中融投资咨询有限公司研究员、申银万国证券天
+央行宏观审慎管理局局长周永坤履新。中国人民银行四川省分行的“机构领导”一栏显示，周永坤已出任中国人民银行四川省分行党委书记、行长，国家外汇管理局四川省分局局长。原央行四川省分行党委书记、行长，国家外汇管理局四川省分局局长严宝玉在今年4月30日被聘为四川省人民政府参事。在调任四川前，周永坤在央行宏观审慎管理局工作多年，先后出任副局长、局长。央行宏观审慎管理局负责牵头研究和建立宏观
 
 ## 正文
 
-近日，方正富邦基金发布高级管理人员变更公告，副总经理崔建波因临近退休，卸任管理职务，专注从事投资工作。
+央行宏观审慎管理局局长周永坤履新。
 
-同时，公司聘任汤戈为副总经理，任职日期为2026年5月14日。
+中国人民银行四川省分行的“机构领导”一栏显示，周永坤已出任中国人民银行四川省分行党委书记、行长，国家外汇管理局四川省分局局长。
 
-17年老将崔建波“退居二线”：卸任副总专注投资，年化回报7.51%跑赢沪深300 公开资料显示，崔建波拥有学士学位，是一位有着超过17年投资管理经验的资深老将。
+原央行四川省分行党委书记、行长，国家外汇管理局四川省分局局长严宝玉在今年4月30日被聘为四川省人民政府参事。
 
-他曾任天津市中融投资咨询有限公司研究员、申银万国证券天津佟楼营业部投资经纪顾问部经理、海融资讯系统有限公司研究员、和讯信息科技有限公司证券研究员、北方国际信托股份有限公司证券投资部信托高级投资经理。
+在调任四川前，周永坤在央行宏观审慎管理局工作多年，先后出任副局长、局长。
 
-之后，崔建波加入新华基金管理股份有限公司，历任权益投资部总监、副总经理兼投资总监兼基金经理。
+央行宏观审慎管理局负责牵头研究和建立宏观审慎政策框架、治理机制和基本制度。
 
-2021年12月，他加入方正富邦基金，出任公司副总裁、首席投资官、投资决策委员会副主任，并兼任权益投资部行政负责人和基金经理。
+识别并预防系统性金融风险，对可能引发系统性金融风险的顺周期及跨市场、跨业态、跨区域、跨境金融活动进行宏观审慎管理。
 
-截至2026年5月20日，崔建波的投资经理年限达17.25年，历任管理基金26只，在管基金6只，在管总规模9.53亿元。
+牵头建立系统重要性金融机构评估、识别和处置机制，拟订基本规则，开展监测分析及附加监管。
 
-其过往管理偏股产品的总回报达222.45%，年化回报7.51%，跑赢了同期沪深300指数表现。
+牵头房地产金融、互联网金融、非银金融领域等重要金融活动、金融市场宏观审慎管理。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 21:53 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 22:02 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 22:07 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 22:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
-- 2026-06-29 21:47 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
-- 2026-06-29 21:54 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 21:58 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 21:58 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 22:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
-- 2026-06-29 21:42 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-29 21:58 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 22:04 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 22:01 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 22:08 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 21:54 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 22:17 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 21:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 21:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 21:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 22:05 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 21:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 22:13 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 22:07 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 22:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 21:50 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 22:05 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/20280.shtml)
-- 2026-06-29 22:10 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/459584019.shtml)
-- 2026-06-29 21:47 - [夫妻生活太无聊，所以我……](https://www.blog.minike.top/Article/details/94827.shtml)
-- 2026-06-29 21:42 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/737771923.shtml)
-- 2026-06-29 21:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/45610.shtml)
-- 2026-06-29 22:10 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/132600135.shtml)
-- 2026-06-29 22:06 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.minike.top/Article/details/456160.shtml)
-- 2026-06-29 22:06 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/511096348.shtml)
-- 2026-06-29 21:48 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/89601379609.shtml)
-- 2026-06-29 21:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/4278499.shtml)
-- 2026-06-29 21:59 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/46412171625.shtml)
-- 2026-06-29 22:03 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/55460.shtml)
-- 2026-06-29 22:01 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/9006751.shtml)
-- 2026-06-29 22:00 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/91498887364.shtml)
-- 2026-06-29 21:47 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/3450691.shtml)
+- 2026-06-29 22:03 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/06858950510.shtml)
+- 2026-06-29 22:13 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/295132.shtml)
+- 2026-06-29 22:03 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/2378022316.shtml)
+- 2026-06-29 21:49 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/773865367241.shtml)
+- 2026-06-29 21:49 - [黄灿灿张慧雯落地签还没发的原因](http://www.blog.minike.top/Article/details/07150.shtml)
+- 2026-06-29 22:09 - [TFing最具影响力音乐厂牌](https://www.share.kurohicncr.top/Article/details/88303193934.shtml)
+- 2026-06-29 21:48 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/060293.shtml)
+- 2026-06-29 21:57 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/54952318778.shtml)
+- 2026-06-29 22:17 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/679433629269.shtml)
+- 2026-06-29 21:48 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/9051993.shtml)
+- 2026-06-29 22:11 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/18318.shtml)
+- 2026-06-29 22:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/104681583.shtml)
+- 2026-06-29 22:16 - [王安宇聪明到导演组炸了](http://www.blog.kurohicncr.top/Article/details/38720261.shtml)
+- 2026-06-29 22:06 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/14941881821.shtml)
+- 2026-06-29 22:09 - [急先锋](http://www.share.minike.top/Article/details/96616.shtml)

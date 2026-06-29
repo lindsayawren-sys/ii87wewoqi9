@@ -1,56 +1,61 @@
-# 湖南石门洪灾中的温暖瞬间：六岁孩童搬运物资，村民自发驰援“孤岛”
+# 美国股市：纳斯达克100指数创逾一年最大跌幅 交易员撤离科技股
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网常德5月21日电 (张雪盈 杨华峰 李盈)5月21日，在湖南常德石门县壶瓶山镇一处救灾物资存放点，63岁的王圣美和几名老人、孩子早早守在现场。直升机螺旋桨卷起的气流还未停歇，他们便主动上前，一趟趟帮忙搬运方便面、矿泉水等物资。 “有个6岁的小朋友在这里搬了一个多小时，他的爷爷奶奶拦都拦不住。”王圣美说，他们受了那么大的灾，大家都希望能尽一点微薄之力。 连日来，石门县遭遇今
+华尔街历史性的周度连涨告一段落。科技股抛售以及债券收益率走高冲击美股，早前发布的强劲就业报告推高了对美联储下一步利率动作将是加息的押注。 对估值的担忧日益加剧，推动标普500指数收跌2.6%，未能实现连续第十周上涨。 该指数11个板块中有5个日间上涨，消费必需品和公用事业板块领涨。 标普500指数中的信息科技板块重挫5.8%，瑞银一篮子受益于人工智能的股票猛跌7.0%，NuSc
 
 ## 正文
 
-中新网常德5月21日电 (张雪盈 杨华峰 李盈)5月21日，在湖南常德石门县壶瓶山镇一处救灾物资存放点，63岁的王圣美和几名老人、孩子早早守在现场。
+华尔街历史性的周度连涨告一段落。
 
-直升机螺旋桨卷起的气流还未停歇，他们便主动上前，一趟趟帮忙搬运方便面、矿泉水等物资。
+科技股抛售以及债券收益率走高冲击美股，早前发布的强劲就业报告推高了对美联储下一步利率动作将是加息的押注。
 
-“有个6岁的小朋友在这里搬了一个多小时，他的爷爷奶奶拦都拦不住。
+对估值的担忧日益加剧，推动标普500指数收跌2.6%，未能实现连续第十周上涨。
 
-”王圣美说，他们受了那么大的灾，大家都希望能尽一点微薄之力。
+该指数11个板块中有5个日间上涨，消费必需品和公用事业板块领涨。
 
-连日来，石门县遭遇今年第一轮强降雨过程，全县23个乡镇区场不同程度受灾。
+标普500指数中的信息科技板块重挫5.8%，瑞银一篮子受益于人工智能的股票猛跌7.0%，NuScale Power、Oklo Inc．和美满电子跌幅最大。
 
-截至21日8时，此次强降雨灾害已造成6人死亡、10人失联。
+露露乐蒙收跌8.6%，北美业务表现恶化导致这家运动服饰公司下调了全年预期。
 
-中新网现场走访发现，尽管纵贯石门全境的渫水水位已明显回落，暴雨留下的创伤依旧触目惊心。
+纳斯达克100指数收跌4.8%，创2025年4月以来最大跌幅。
 
-在受灾严重的石门县壶瓶山镇、南北镇，树木杂物被冲进河岸边居民屋内，多处道路桥梁被冲毁，部分村庄成为与外界隔绝的深山“孤岛”。
+一项衡量芯片制造商的指标下滑10%。
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 21:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 22:01 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:02 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 22:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 21:51 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 22:08 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 21:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 21:51 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 21:47 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 21:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 22:17 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 22:17 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-29 21:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 22:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-29 22:12 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 22:12 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 21:48 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 22:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 21:48 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 21:49 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
+- 2026-06-29 21:51 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 22:06 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 22:06 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 22:13 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [五只军犬招募领养人](http://www.blog.minike.top/Article/details/42688912235.shtml)
-- 2026-06-29 21:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/358579710.shtml)
-- 2026-06-29 22:06 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/807134.shtml)
-- 2026-06-29 21:45 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/7804050000.shtml)
-- 2026-06-29 21:50 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/519712.shtml)
-- 2026-06-29 21:47 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/36748087833.shtml)
-- 2026-06-29 21:52 - [一生一世](http://www.blog.minike.top/Article/details/27349186.shtml)
-- 2026-06-29 21:54 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/98936.shtml)
-- 2026-06-29 22:01 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/447382.shtml)
-- 2026-06-29 21:56 - [恋与深空致歉](http://www.share.minike.top/Article/details/267464.shtml)
-- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/411667838517.shtml)
-- 2026-06-29 21:57 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/264506389327.shtml)
-- 2026-06-29 22:10 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/8682347194.shtml)
-- 2026-06-29 22:05 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/09535.shtml)
-- 2026-06-29 21:58 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/84339.shtml)
+- 2026-06-29 21:51 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/533065312616.shtml)
+- 2026-06-29 22:03 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/4025452287.shtml)
+- 2026-06-29 22:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/053809.shtml)
+- 2026-06-29 22:09 - [起风了](https://www.blog.kurohicncr.top/Article/details/103518881055.shtml)
+- 2026-06-29 21:56 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/24973.shtml)
+- 2026-06-29 22:09 - [王冰冰向全网安利哈兰德](http://www.blog.kurohicncr.top/Article/details/531143465.shtml)
+- 2026-06-29 22:00 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/404949536.shtml)
+- 2026-06-29 22:12 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/796097492733.shtml)
+- 2026-06-29 22:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/707826443641.shtml)
+- 2026-06-29 21:51 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/458997.shtml)
+- 2026-06-29 21:59 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/794771267.shtml)
+- 2026-06-29 22:08 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.minike.top/Article/details/772118170.shtml)
+- 2026-06-29 22:06 - [金刚川](http://www.share.minike.top/Article/details/80660194.shtml)
+- 2026-06-29 21:50 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/408447.shtml)
+- 2026-06-29 22:13 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/96227459214.shtml)

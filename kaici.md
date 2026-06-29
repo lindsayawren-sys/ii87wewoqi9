@@ -1,59 +1,58 @@
-# Pimco首席投资官：若通胀预期继续上升 美联储将不得不采取行动
+# 吴清：努力为投资者创造中长期收益 不能回到“冲规模、赚快钱”的老路上去
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-品浩（Pimco）的首席投资官Daniel Ivascyn表示，在全球债券收益率飙升可能引发更广泛的金融市场动荡之际，如果通胀预期进一步上升，美联储和其他主要央行将不得不采取行动。 在美国2月底袭击伊朗后，油价急剧上涨，美国国债市场的通胀预期指标，即盈亏平衡通胀率，近期升至逾三年来最高水平。这一走势引发全球债券市场大幅抛售，推动美国30年期国债收益率本周升至2007年以来最高水
+6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。吴清强调，要坚持客户为本，始终注重投资者利益优先。 吴清表示，无论是公募基金还是私募基金，都要坚守“受人之托、代客理财”的信义义务，持续强化制度约束和利益重构，加快实现从“重规模”向“重回报”的转型。当前公募基金改革迎来了“棋至中盘”的关键节点，行业声誉有所回升，必须要毫不放松、再接再厉，
 
 ## 正文
 
-品浩（Pimco）的首席投资官Daniel Ivascyn表示，在全球债券收益率飙升可能引发更广泛的金融市场动荡之际，如果通胀预期进一步上升，美联储和其他主要央行将不得不采取行动。
+6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
 
-在美国2月底袭击伊朗后，油价急剧上涨，美国国债市场的通胀预期指标，即盈亏平衡通胀率，近期升至逾三年来最高水平。
+吴清强调，要坚持客户为本，始终注重投资者利益优先。
 
-这一走势引发全球债券市场大幅抛售，推动美国30年期国债收益率本周升至2007年以来最高水平。
+吴清表示，无论是公募基金还是私募基金，都要坚守“受人之托、代客理财”的信义义务，持续强化制度约束和利益重构，加快实现从“重规模”向“重回报”的转型。
 
-如果长期通胀预期“变得更加显著失去锚定，那么即便经济有些疲软，你也会看到政策收紧，” Ivascyn在一次采访中表示。
+当前公募基金改革迎来了“棋至中盘”的关键节点，行业声誉有所回升，必须要毫不放松、再接再厉，持续巩固拓展改革发展成果。
 
-“这就是市场的痛苦交易”，因为利率将会上升，并加大股市和信贷市场的压力。
+要强化利益绑定，在公司治理、产品发行、投资运作、绩效考核等各个方面落实好监管新规和改革要求，提升投资运作稳健性，增强逆周期思维，努力为投资者创造更可持续的中长期收益，坚决遏制赌押赛道、风格漂移、高位发行等顽疾，更不能回到“冲规模、赚快钱”的老路上去。
 
-政策收紧的前景为即将上任的美联储主席凯文·沃什营造了一个具有挑战性的环境。
+他提到，要注重权益投资，这是行业服务投资者的优势所在、关键所在，要下更大力气加强投研专业能力建设，强化权益投资的行业影响力和竞争力。
 
-在美国总统唐纳德·特朗普一直推动降低利率的背景下，沃什将于本月接掌美联储。
+要加强供需适配，重视含权低波等稳健类产品创设，推出更多适配中长期资金的投资产品，更好对接不同群体的差异化需求，同时加快推进向投资者回报导向的买方投顾转型，不断提升投资者满意度、获得感。
 
-虽然美联储今年迄今一直维持利率不变，但决策官员们对货币政策前景的分歧日益加大。
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 21:56 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 22:01 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 22:07 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-29 21:47 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
-- 2026-06-29 22:08 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 22:09 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 22:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-29 21:42 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 22:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-29 21:56 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
-- 2026-06-29 21:44 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 22:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 21:51 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 22:14 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 22:15 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 22:17 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 21:54 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 21:53 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 22:06 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 22:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 22:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 22:09 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 22:09 - [哈兰德玩游戏连女友都不让着](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 22:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:44 - [田曦薇 女装牛仔裤](http://www.share.kurohicncr.top/Article/details/75494.shtml)
-- 2026-06-29 22:03 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/1715135.shtml)
-- 2026-06-29 21:57 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/239306167.shtml)
-- 2026-06-29 21:46 - [田曦薇没招了](https://www.share.minike.top/Article/details/555883577061.shtml)
-- 2026-06-29 21:59 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/5014548.shtml)
-- 2026-06-29 21:45 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/51077016.shtml)
-- 2026-06-29 21:54 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/642268.shtml)
-- 2026-06-29 21:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/884103940.shtml)
-- 2026-06-29 21:50 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/37100393.shtml)
-- 2026-06-29 22:03 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/616239665191.shtml)
-- 2026-06-29 22:05 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/322996.shtml)
-- 2026-06-29 21:49 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.minike.top/Article/details/0609481.shtml)
-- 2026-06-29 21:50 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/132742.shtml)
-- 2026-06-29 21:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/67514661.shtml)
-- 2026-06-29 21:54 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/60011073.shtml)
+- 2026-06-29 21:57 - [房价什么时候能涨](https://www.share.minike.top/Article/details/7328081.shtml)
+- 2026-06-29 22:14 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/000771747563.shtml)
+- 2026-06-29 21:59 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/699777592024.shtml)
+- 2026-06-29 22:05 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/9417149.shtml)
+- 2026-06-29 22:16 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/1042182392.shtml)
+- 2026-06-29 22:12 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/915061576.shtml)
+- 2026-06-29 21:57 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/519553967770.shtml)
+- 2026-06-29 21:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/53910971202.shtml)
+- 2026-06-29 22:12 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/5946696047.shtml)
+- 2026-06-29 22:16 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/41526407548.shtml)
+- 2026-06-29 21:53 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/605731987.shtml)
+- 2026-06-29 22:07 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/6320089.shtml)
+- 2026-06-29 22:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/01134.shtml)
+- 2026-06-29 21:51 - [美以这对亲密盟友要掰了吗](http://www.share.kurohicncr.top/Article/details/060287516266.shtml)
+- 2026-06-29 22:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/26887325.shtml)

@@ -1,60 +1,51 @@
-# 独家！国寿集团副总裁杨丽平或已到龄退休
+# 西藏吉隆出入境边防检查站持续提升口岸整体通行效能
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-5月20日消息，金融一线独家获悉，国寿集团副总裁杨丽平或已到龄退休，目前集团官网已无其相关简历。 公开资料显示，杨丽平出生于1965年，现已年过六十周岁。毕业于中国政法大学，拥有法学硕士学位。 从任职经历看，杨丽平曾任银保监会首席检查官，先后负责银行监管三部、二部及国有控股大型商业银行监管部工作。据了解，任职期间，她曾推动小微企业贷款流向管理，参与制定降低企业融资成本政策，并推
+发布时间：2026年06月06日 11:33 来源：中国新闻网 6月4日，中尼边境吉隆口岸2026年出入境人员总量已突破7.5万人次，出入境车辆超1.5万辆次。面对口岸通关流量持续走高的运行态势，该站锚定国门安全管控主线，聚焦便民利企重要任务，严格依规落实边检查验规定，紧盯查验关键环节，严守查验安全底线，落细落实人、车、物全方位核查管控举措，以标准化作业、常态化巡查夯实口岸安全
 
 ## 正文
 
-5月20日消息，金融一线独家获悉，国寿集团副总裁杨丽平或已到龄退休，目前集团官网已无其相关简历。
+发布时间：2026年06月06日 11:33 来源：中国新闻网 6月4日，中尼边境吉隆口岸2026年出入境人员总量已突破7.5万人次，出入境车辆超1.5万辆次。
 
-公开资料显示，杨丽平出生于1965年，现已年过六十周岁。
+面对口岸通关流量持续走高的运行态势，该站锚定国门安全管控主线，聚焦便民利企重要任务，严格依规落实边检查验规定，紧盯查验关键环节，严守查验安全底线，落细落实人、车、物全方位核查管控举措，以标准化作业、常态化巡查夯实口岸安全治理根基。
 
-毕业于中国政法大学，拥有法学硕士学位。
-
-从任职经历看，杨丽平曾任银保监会首席检查官，先后负责银行监管三部、二部及国有控股大型商业银行监管部工作。
-
-据了解，任职期间，她曾推动小微企业贷款流向管理，参与制定降低企业融资成本政策，并推广知识产权质押融资业务。
-
-2020年3月，杨丽平曾表示，鼓励保险机构通过减费让利、适度延后保费缴纳时间等方式，加大小微企业的财产保险、责任保险、出口信用保险等业务的支持力度。
-
-支持人身保险公司在风险可控的前提下适度延长保单质押贷款的期限和适度提高贷款的额度，帮助客户缓解短期资金压力。
-
-2021年3月起，杨丽平任国寿集团党委委员、副总裁，兼任首席风险官。
+(肖富贵 制作 侯诗蕊） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 21:46 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-29 21:55 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 21:58 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 22:11 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 22:10 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 21:56 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-29 21:57 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 21:58 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 21:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-29 21:52 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 22:09 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 21:45 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 21:59 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 21:51 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 22:15 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 22:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 22:11 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 22:08 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 21:51 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 22:00 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 22:13 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 21:48 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 22:01 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
+- 2026-06-29 21:49 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 21:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 21:51 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 22:13 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 22:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 22:03 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/51789705989.shtml)
-- 2026-06-29 22:06 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/778181943.shtml)
-- 2026-06-29 21:54 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/2882464931.shtml)
-- 2026-06-29 22:10 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/05692980.shtml)
-- 2026-06-29 21:48 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/5965015557.shtml)
-- 2026-06-29 21:53 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/610534.shtml)
-- 2026-06-29 21:46 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/79115756700.shtml)
-- 2026-06-29 21:53 - [啊啊啊](https://www.blog.minike.top/Article/details/40159687977.shtml)
-- 2026-06-29 22:11 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/38947177.shtml)
-- 2026-06-29 22:04 - [金刚川](https://www.blog.kurohicncr.top/Article/details/5828982696.shtml)
-- 2026-06-29 22:09 - [巴西10号球衣是天才传承史](http://www.blog.minike.top/Article/details/4824860.shtml)
-- 2026-06-29 22:00 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/58271591781.shtml)
-- 2026-06-29 22:07 - [勇敢的心第二部](http://www.share.minike.top/Article/details/67536255.shtml)
-- 2026-06-29 21:53 - [男生180+，有腹肌是什么体验？](http://www.blog.minike.top/Article/details/2571034.shtml)
-- 2026-06-29 21:57 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/52055886049.shtml)
+- 2026-06-29 21:56 - [白玉兰答谢宴合影](https://www.share.kurohicncr.top/Article/details/950863.shtml)
+- 2026-06-29 22:12 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/685630669410.shtml)
+- 2026-06-29 21:56 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/860317.shtml)
+- 2026-06-29 22:16 - [《恋与深空》回应争议](http://www.blog.minike.top/Article/details/714255738.shtml)
+- 2026-06-29 22:07 - [电动车主等红灯遭三轮车横杆砸头](https://www.share.minike.top/Article/details/2696097037.shtml)
+- 2026-06-29 22:17 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/377985.shtml)
+- 2026-06-29 22:05 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/55612.shtml)
+- 2026-06-29 21:54 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/7051827605.shtml)
+- 2026-06-29 22:15 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/5309346922.shtml)
+- 2026-06-29 22:08 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/546220.shtml)
+- 2026-06-29 21:54 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/16899114114.shtml)
+- 2026-06-29 21:58 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/65614891.shtml)
+- 2026-06-29 22:13 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/07760009.shtml)
+- 2026-06-29 22:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/0616399.shtml)
+- 2026-06-29 21:59 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/89529.shtml)

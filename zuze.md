@@ -1,57 +1,47 @@
-# 2026年广西“潮动三月三·民族体育炫”系列比赛启幕
+# 兖矿能源：首次回购公司股份1965200股
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网柳州5月21日电(黄令妍)5月21日，第二届全国全民健身大赛(华南区)·2026年广西“潮动三月三·民族体育炫”系列比赛在广西柳州市三江侗族自治县启幕，来自国内多个省份及东盟国家代表队的运动员展开为期三天的激烈角逐。 开幕式环节精彩纷呈，先后上演侗族大歌、传统舞狮表演、芦笙踩堂民俗展演三大特色节目，浓郁的民族风情与体育活力交织。 赛事设置花炮、珍珠球、气(绣)排球、高脚竞
+证券日报网讯 6月5日，兖矿能源发布公告称，2026年6月5日，公司通过集中竞价交易方式首次回购A股股份1，965，200股，占公司总股本10，036，852，020股的比例为0.0196%，回购成交的最高价为25.99元/股，最低价为25.71元/股，支付的资金总额为人民币50，925，292.00元（不含交易费用）。（文章来源：证券日报）
 
 ## 正文
 
-中新网柳州5月21日电(黄令妍)5月21日，第二届全国全民健身大赛(华南区)·2026年广西“潮动三月三·民族体育炫”系列比赛在广西柳州市三江侗族自治县启幕，来自国内多个省份及东盟国家代表队的运动员展开为期三天的激烈角逐。
+证券日报网讯 6月5日，兖矿能源发布公告称，2026年6月5日，公司通过集中竞价交易方式首次回购A股股份1，965，200股，占公司总股本10，036，852，020股的比例为0.0196%，回购成交的最高价为25.99元/股，最低价为25.71元/股，支付的资金总额为人民币50，925，292.00元（不含交易费用）。
 
-开幕式环节精彩纷呈，先后上演侗族大歌、传统舞狮表演、芦笙踩堂民俗展演三大特色节目，浓郁的民族风情与体育活力交织。
-
-赛事设置花炮、珍珠球、气(绣)排球、高脚竞速、板鞋竞速、高脚竞技、独竹漂、陀螺、绣球、舞狮共10个极具民族特色与群众基础的比赛项目。
-
-来自广西、上海、广东、湖南、贵州等地及马来西亚、新加坡、越南的112支代表队、约1100名运动员参赛。
-
-据了解，“潮动三月三·民族体育炫”是“广西三月三·八桂嘉年华”重要板块之一，于2016年创办，已连续举办十届，系列赛事遍布城乡，成为广西群众体育特别是民族体育的标志性品牌。
-
-本届赛事与第二届全国全民健身大赛(华南区)融合举办，是体育、文化、旅游深度融合的创新实践，既丰富了民族体育赛事内涵，又推动全民健身与民族团结深度融合，将有力促进各民族交往交流交融，以体育赛事带动文旅消费。
-
-此次赛事由广西壮族自治区体育局、广西壮族自治区民族宗教事务委员会、广东省体育局、海南省旅游和文化广电体育厅、柳州市人民政府联合主办。
-
-作为本次系列活动的重要组成部分，2026年中国—东盟国际毽球邀请赛、第二届全国全民健身大赛毽球比赛(华南区)此前已在南宁举办，深化中国与东盟国家体育领域务实合作。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 21:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
-- 2026-06-29 21:50 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 21:42 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 21:59 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 21:48 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 21:48 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 22:00 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 22:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 21:53 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 21:57 - [普京建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 22:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 21:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 21:49 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 21:51 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-29 22:14 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 22:10 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 21:56 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
+- 2026-06-29 22:12 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 22:12 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 22:15 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 22:03 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-29 21:51 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 22:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [绘画区你赢了](http://www.share.minike.top/Article/details/196194748111.shtml)
-- 2026-06-29 22:03 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/29716.shtml)
-- 2026-06-29 22:10 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/0799595.shtml)
-- 2026-06-29 21:52 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/99709020.shtml)
-- 2026-06-29 22:01 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/05645111.shtml)
-- 2026-06-29 21:54 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/972010179608.shtml)
-- 2026-06-29 22:06 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/526697019.shtml)
-- 2026-06-29 21:58 - [网约车出事故平台拒赔称只是中介](http://www.blog.kurohicncr.top/Article/details/55284728037.shtml)
-- 2026-06-29 21:45 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/1651928183.shtml)
-- 2026-06-29 22:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/31054.shtml)
-- 2026-06-29 21:53 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/93072622182.shtml)
-- 2026-06-29 22:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/847388.shtml)
-- 2026-06-29 21:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/03887554.shtml)
-- 2026-06-29 21:42 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/58999192475.shtml)
-- 2026-06-29 21:43 - [一生一世](http://www.blog.kurohicncr.top/Article/details/3856146669.shtml)
+- 2026-06-29 21:51 - [上世纪90年代玩具成新宠](https://www.blog.minike.top/Article/details/03923117.shtml)
+- 2026-06-29 22:03 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/05909.shtml)
+- 2026-06-29 22:17 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/69812408.shtml)
+- 2026-06-29 22:04 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/036636685.shtml)
+- 2026-06-29 22:00 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/82628321.shtml)
+- 2026-06-29 22:13 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/306492.shtml)
+- 2026-06-29 22:01 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/95288.shtml)
+- 2026-06-29 22:14 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/43800.shtml)
+- 2026-06-29 21:58 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/5260649411.shtml)
+- 2026-06-29 22:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/73449099.shtml)
+- 2026-06-29 22:17 - [乌克兰发广告全球征兵](https://www.share.minike.top/Article/details/3106754.shtml)
+- 2026-06-29 22:04 - [教育部高校学生资助热线7月1日开通](http://www.share.kurohicncr.top/Article/details/76730182.shtml)
+- 2026-06-29 22:08 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/166110.shtml)
+- 2026-06-29 22:03 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/9026467045.shtml)
+- 2026-06-29 22:04 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/1502645167.shtml)

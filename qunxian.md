@@ -1,60 +1,53 @@
-# 2026年海淀区家风家教主题宣传活动在京举行
+# 《给阿嬷的情书》将登陆香港 香港潮州商会会长：爱国爱乡是潮汕人的血脉基因
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电 (记者 应妮)“海韵沐家风 幸福‘家’年华”——2026年海淀区家风家教主题宣传活动日前在京举行，故事分享、沉浸体验、互动参与等多种形式，为市民带来一场内容丰富、形式新颖的家风文化盛宴。 活动在《六尺巷》的歌声中启幕，“让他三尺又何妨”的谦和礼让，生动诠释了中华民族代代相传的家风底色。来自海淀区的红色家风代表家庭、文化传承代表家庭、孝老爱亲代表家庭、热心
+发布时间：2026年06月05日 20:23 来源：中国新闻网 温情侨批题材电影《给阿嬷的情书》6月18日将在香港上映，引发香港潮汕社团及市民的广泛期待。香港潮州商会会长高佩璇接受采访时，深情分享了自己对影片的深切期待与深刻共鸣。她表示，自己早已通过网络片段关注到这部影片，剧中鲜活的人物、细腻的故事情节，让人倍感熟悉与亲切，瞬间勾起了几代潮汕人的共同记忆。 (记者 刘轩廷 制作
 
 ## 正文
 
-中新网北京5月20日电 (记者 应妮)“海韵沐家风 幸福‘家’年华”——2026年海淀区家风家教主题宣传活动日前在京举行，故事分享、沉浸体验、互动参与等多种形式，为市民带来一场内容丰富、形式新颖的家风文化盛宴。
+发布时间：2026年06月05日 20:23 来源：中国新闻网 温情侨批题材电影《给阿嬷的情书》6月18日将在香港上映，引发香港潮汕社团及市民的广泛期待。
 
-活动在《六尺巷》的歌声中启幕，“让他三尺又何妨”的谦和礼让，生动诠释了中华民族代代相传的家风底色。
+香港潮州商会会长高佩璇接受采访时，深情分享了自己对影片的深切期待与深刻共鸣。
 
-来自海淀区的红色家风代表家庭、文化传承代表家庭、孝老爱亲代表家庭、热心公益代表家庭依次登台分享家风故事。
+她表示，自己早已通过网络片段关注到这部影片，剧中鲜活的人物、细腻的故事情节，让人倍感熟悉与亲切，瞬间勾起了几代潮汕人的共同记忆。
 
-活动还举行了赠书仪式，全国文明家庭获得者张宝柱家庭带来歌曲《让爱住我家》，将主舞台气氛推向高潮。
-
-现场的幸福长廊集中展示了海淀各街镇家风建设成果与50个优秀家风故事，打造出一条沉浸式最美家风示范路。
-
-活动还围绕“幸福工坊”“幸福市集”两大创新互动板块，精心设计了全家福拍摄、互动游戏、科普体验、手工制作、童趣市集等多种互动内容，打造集互动、学习、体验、打卡于一体的家风文化空间。
-
-“幸福工坊”区域设置了“明镜高悬”掷沙包、“立木为信”积木塔等家风主题游戏，将诚信、清廉、勤劳等美德融入趣味挑战；地震实验台、垃圾分类达人、电磁炮、离子推进器、化学魔术等科普与科技互动项目，吸引众多家庭踊跃参与，而多家海淀科技企业带来的AI足脊检测、AI心理测试等健康检测，用科技赋能家庭健康，引得市民排起长队。
-
-“幸福市集”的20个跳蚤市场摊位前，小小摊主们热情介绍自己的玩具、绘本、手作、小绿植等闲置物品，在公平交易、文明沟通中践行勤俭、诚信、分享的家风美德。
+(记者 刘轩廷 制作 侯诗蕊） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 22:04 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 22:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 21:45 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 21:44 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 21:42 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 22:11 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 21:47 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 22:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 21:48 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 22:07 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 22:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 21:57 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 21:43 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 22:17 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
+- 2026-06-29 22:07 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 21:58 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 21:51 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 22:09 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 22:06 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 21:49 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 22:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 21:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 22:16 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 21:52 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 22:10 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 21:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 22:02 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 21:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [一汽大众黄金超混技术来袭](https://www.blog.kurohicncr.top/Article/details/239421733228.shtml)
-- 2026-06-29 21:44 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/623453.shtml)
-- 2026-06-29 22:04 - [这一刀 会很帅](http://www.share.minike.top/Article/details/371063769.shtml)
-- 2026-06-29 22:08 - [𝗩𝟴 'singasong' Official MV](http://www.share.kurohicncr.top/Article/details/0420908023.shtml)
-- 2026-06-29 21:45 - [福建仙游一峡谷发生意外5人身亡](https://www.share.minike.top/Article/details/0727185948.shtml)
-- 2026-06-29 22:10 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/10605.shtml)
-- 2026-06-29 21:42 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/993183.shtml)
-- 2026-06-29 21:46 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/924745875837.shtml)
-- 2026-06-29 22:06 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/652394.shtml)
-- 2026-06-29 22:07 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/482708.shtml)
-- 2026-06-29 22:05 - [如何看法国总统候选人称加强与华合作](http://www.blog.minike.top/Article/details/433893497.shtml)
-- 2026-06-29 21:50 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/008717.shtml)
-- 2026-06-29 22:05 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/231758948256.shtml)
-- 2026-06-29 21:43 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/714430574.shtml)
-- 2026-06-29 22:07 - [教育部高校学生资助热线7月1日开通](https://www.share.kurohicncr.top/Article/details/674089483433.shtml)
+- 2026-06-29 21:57 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/62791.shtml)
+- 2026-06-29 21:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/155849571022.shtml)
+- 2026-06-29 21:58 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/9361800419.shtml)
+- 2026-06-29 21:52 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/86329.shtml)
+- 2026-06-29 22:09 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/859804194.shtml)
+- 2026-06-29 21:50 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/507477267.shtml)
+- 2026-06-29 22:13 - [千与千寻](https://www.blog.minike.top/Article/details/25660.shtml)
+- 2026-06-29 22:17 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/163025529418.shtml)
+- 2026-06-29 22:03 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/68130448320.shtml)
+- 2026-06-29 22:07 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/079671.shtml)
+- 2026-06-29 22:00 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/247900.shtml)
+- 2026-06-29 22:11 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/6442729464.shtml)
+- 2026-06-29 21:55 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/662159425.shtml)
+- 2026-06-29 22:03 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/24889.shtml)
+- 2026-06-29 21:53 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/35973019381.shtml)

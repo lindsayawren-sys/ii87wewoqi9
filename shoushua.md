@@ -1,61 +1,55 @@
-# 万亿限售股解禁压境，港股慌不慌？
+# 泰国寻求6月底前与美国达成贸易协议 目标关税为10%
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！市场主流测算的2026年港股解禁总规模在1.6万亿至1.7万亿港元之间，创下近年来的年度峰值。并且，全年有6个月的月度解禁规模超过1000亿港元，其中5月至9月压力较大，仅9月单月解禁市值预计即高达5300亿港元，约占全年总量的三分之一。 作者：老盈盈 封图：图虫创意 2025年，香港交易所共迎来119家企
+泰国正努力在6月底前与美国完成贸易谈判。 泰国商业部长素塔攀表示，泰国正寻求与美国达成互惠贸易协定，可能有助于将拟议的关税税率降低至10%。 他表示，泰国仍有约25个悬而未决的问题需要解决，才能达成协议。政府将派遣贸易代表前往华盛顿，密切关注谈判的最后阶段。责任编辑：于健 SF069
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+泰国正努力在6月底前与美国完成贸易谈判。
 
-市场主流测算的2026年港股解禁总规模在1.6万亿至1.7万亿港元之间，创下近年来的年度峰值。
+泰国商业部长素塔攀表示，泰国正寻求与美国达成互惠贸易协定，可能有助于将拟议的关税税率降低至10%。
 
-并且，全年有6个月的月度解禁规模超过1000亿港元，其中5月至9月压力较大，仅9月单月解禁市值预计即高达5300亿港元，约占全年总量的三分之一。
+他表示，泰国仍有约25个悬而未决的问题需要解决，才能达成协议。
 
-作者：老盈盈 封图：图虫创意 2025年，香港交易所共迎来119家企业挂牌上市，合计募集资金额达2869亿港元，登顶全球新股筹资额第一的宝座。
+政府将派遣贸易代表前往华盛顿，密切关注谈判的最后阶段。
 
-进入2026年，这股势头得以延续：2026年一季度共有40家公司上市，总集资额达1104亿港元，是2025年第一季度的近六倍。
-
-但新股市场繁荣也会带来一个问题——潜在的解禁压力。
-
-2025年港股大量上市的科技、生物医药等企业的基石投资者和Pre-IPO（上市前）股东，其6至12个月的锁定期在2026年陆续到期。
-
-记者从采访中了解到，市场主流测算的2026年港股解禁总规模在1.6万亿至1.7万亿港元之间，创下近年来的年度峰值。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 22:05 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 22:07 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-29 21:51 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 22:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-29 21:53 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 22:02 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 21:47 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 21:48 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 22:09 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 22:06 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 22:05 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 21:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 22:01 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-29 21:52 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 22:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 22:02 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-29 21:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 21:52 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 22:05 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-29 21:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 22:07 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 22:11 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 22:04 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
+- 2026-06-29 21:48 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 21:59 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 22:05 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 21:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 22:11 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 21:49 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/898826748.shtml)
-- 2026-06-29 21:48 - [金刚川](http://www.share.minike.top/Article/details/29419348638.shtml)
-- 2026-06-29 22:06 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/66469650761.shtml)
-- 2026-06-29 21:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.minike.top/Article/details/874810.shtml)
-- 2026-06-29 22:04 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/6920697755.shtml)
-- 2026-06-29 21:55 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/65288710.shtml)
-- 2026-06-29 22:00 - [马航MH370传来最新消息](http://www.share.minike.top/Article/details/713031592.shtml)
-- 2026-06-29 21:59 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/341223.shtml)
-- 2026-06-29 21:45 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/36430377.shtml)
-- 2026-06-29 21:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/596191.shtml)
-- 2026-06-29 22:00 - [恋与深空7天掉粉超50万](http://www.blog.minike.top/Article/details/45517166.shtml)
-- 2026-06-29 22:09 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/65851976.shtml)
-- 2026-06-29 22:10 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/12688309.shtml)
-- 2026-06-29 22:07 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/293413890977.shtml)
-- 2026-06-29 21:42 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/46787165.shtml)
+- 2026-06-29 22:08 - [流金岁月](https://www.share.minike.top/Article/details/453489364850.shtml)
+- 2026-06-29 21:59 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/25078963.shtml)
+- 2026-06-29 22:00 - [金牌调解](https://www.share.minike.top/Article/details/168050748681.shtml)
+- 2026-06-29 21:59 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/534852366791.shtml)
+- 2026-06-29 21:58 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/4182901811.shtml)
+- 2026-06-29 22:00 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/24020293.shtml)
+- 2026-06-29 22:07 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/850570983.shtml)
+- 2026-06-29 22:01 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/82094687.shtml)
+- 2026-06-29 22:12 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/47999855569.shtml)
+- 2026-06-29 22:06 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/686788.shtml)
+- 2026-06-29 21:59 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/039542943080.shtml)
+- 2026-06-29 22:11 - [货车司机恶意闯卡逃费被行拘](https://www.blog.kurohicncr.top/Article/details/090942.shtml)
+- 2026-06-29 22:03 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/563373091.shtml)
+- 2026-06-29 22:09 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/5611250.shtml)
+- 2026-06-29 22:06 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/7195242944.shtml)

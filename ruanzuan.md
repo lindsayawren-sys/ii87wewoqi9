@@ -1,59 +1,52 @@
-# 韩国Kospi指数走高 三星与工会达成初步协议后股价大涨
+# 追觅高管谈“机器人代替人类做家务”：五年内无法落地，能否进入家庭仍存疑
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-韩国股市基准指数Kospi一度上涨4.8%，三星电子与工会达成初步协议，避免了罢工。 三星、SK海力士对该指数的贡献最大。 三星一度上涨7%。 工会证实暂停原定于5月21日至6月7日举行的罢工计划。 “从减少不确定性的角度来看，劳资双方达成的初步协议是个利好，”Eugene Asset Management的投资总监Ha SeokKeun表示， “投资者的关注点可能会重新转向三
+新浪科技讯 6月5日下午消息，今日，追觅科技扫地机事业部全球总裁孟佳与新浪科技等媒体进行对话。 孟佳表示，类人形机器人进入家庭做家务的方案，可能未来五年都太能落地，“它的行走稳定性是非常大的问题，但我们可以做一些改变，让产品能更快的在家庭环境中去落地。未来真的造一台二三十万的机器人进入普通家庭（做家务），我觉得落地的可能性会稍微低一些。”责任编辑：刘万里 SF014
 
 ## 正文
 
-韩国股市基准指数Kospi一度上涨4.8%，三星电子与工会达成初步协议，避免了罢工。
+新浪科技讯 6月5日下午消息，今日，追觅科技扫地机事业部全球总裁孟佳与新浪科技等媒体进行对话。
 
-三星、SK海力士对该指数的贡献最大。
+孟佳表示，类人形机器人进入家庭做家务的方案，可能未来五年都太能落地，“它的行走稳定性是非常大的问题，但我们可以做一些改变，让产品能更快的在家庭环境中去落地。
 
-三星一度上涨7%。
+未来真的造一台二三十万的机器人进入普通家庭（做家务），我觉得落地的可能性会稍微低一些。
 
-工会证实暂停原定于5月21日至6月7日举行的罢工计划。
-
-“从减少不确定性的角度来看，劳资双方达成的初步协议是个利好，”Eugene Asset Management的投资总监Ha SeokKeun表示， “投资者的关注点可能会重新转向三星的基本面。
-
-由于对潜在罢工的担忧，三星相对于SK海力士的估值被严重低估，我们预计三星股价将强劲反弹”。
-
-韩国小型股Kosdaq指数一度上涨4.2%。
-
-责任编辑：王永生
+”责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 22:03 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 21:42 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 21:49 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 21:49 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 21:42 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 21:57 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 21:47 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 21:46 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 21:57 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 21:51 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-29 21:57 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 21:50 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-29 22:01 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 21:56 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 22:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 22:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-29 22:08 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 22:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 22:15 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 22:11 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 22:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 21:55 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 21:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 22:10 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 22:16 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 21:56 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/16223.shtml)
-- 2026-06-29 22:00 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/10886362099.shtml)
-- 2026-06-29 21:44 - [高考填志愿父亲和女儿产生分歧](https://www.blog.kurohicncr.top/Article/details/0560430016.shtml)
-- 2026-06-29 21:50 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/405494799.shtml)
-- 2026-06-29 22:00 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/1089048.shtml)
-- 2026-06-29 21:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/076739226.shtml)
-- 2026-06-29 21:49 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/07238886.shtml)
-- 2026-06-29 22:04 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/108050955497.shtml)
-- 2026-06-29 21:49 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/6699252.shtml)
-- 2026-06-29 21:55 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/65813046917.shtml)
-- 2026-06-29 22:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/0853742459.shtml)
-- 2026-06-29 21:48 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/00734117453.shtml)
-- 2026-06-29 21:47 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/016199268.shtml)
-- 2026-06-29 22:04 - [电影《抓特务》总票房破亿](http://www.share.kurohicncr.top/Article/details/1487521.shtml)
-- 2026-06-29 22:07 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/7341891632.shtml)
+- 2026-06-29 22:03 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/93080217.shtml)
+- 2026-06-29 22:12 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/251942442160.shtml)
+- 2026-06-29 22:12 - [乔家的儿女](https://www.share.minike.top/Article/details/36141743.shtml)
+- 2026-06-29 21:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/5416809.shtml)
+- 2026-06-29 21:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/1058398195.shtml)
+- 2026-06-29 22:15 - [汪苏泷年度歌手](https://www.blog.minike.top/Article/details/220122.shtml)
+- 2026-06-29 22:09 - [外交部回应中日经贸问题](http://www.share.minike.top/Article/details/04338752029.shtml)
+- 2026-06-29 22:06 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/290054625743.shtml)
+- 2026-06-29 21:58 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/71439994694.shtml)
+- 2026-06-29 22:17 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/19363.shtml)
+- 2026-06-29 22:09 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/5561849361.shtml)
+- 2026-06-29 21:54 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/462807.shtml)
+- 2026-06-29 22:00 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/78913407778.shtml)
+- 2026-06-29 22:15 - [TFing最具影响力音乐厂牌](https://www.blog.minike.top/Article/details/367819661.shtml)
+- 2026-06-29 21:59 - [日本队豪言击败巴西是自信还是傲慢](https://www.blog.kurohicncr.top/Article/details/97859.shtml)

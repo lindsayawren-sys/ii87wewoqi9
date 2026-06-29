@@ -1,54 +1,52 @@
-# 蒙曼：网络从未像今天这样有力量
+# 重庆全市拉响防空警报 悼念重庆大轰炸遇难者
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 13:56 来源：中国新闻网 2026年中国网络文明大会上，中央民族大学教授蒙曼表示，她讲解王国维《蝶恋花》的视频单日浏览量超400万，展现了网络强大的传播力。自媒体创作者翁忻怡因车祸致残后，通过记录康复历程获得网友鼓励，呼吁残障群体勇敢展示自我。意大利姑娘美纳斯与丈夫记录在广西农村的生活，展现真实的中国农村和跨国爱情，收获大量粉丝。网络让文明
+发布时间：2026年06月05日 17:21 来源：中国新闻网 6月5日是重庆大轰炸“六·五”大隧道惨案85周年纪念日，当天，重庆全市拉响防空警报，悼念抗日战争期间在重庆大轰炸中不幸遇难的同胞，并警醒市民勿忘历史。 在位于重庆市渝中区较场口的重庆大轰炸惨案遗址前，重庆社会各界人士向在重庆大轰炸中遇难的同胞默哀并敬献菊花。 二战期间，重庆作为世界反法西斯战争远东指挥中心和国民政府
 
 ## 正文
 
-发布时间：2026年05月21日 13:56 来源：中国新闻网 2026年中国网络文明大会上，中央民族大学教授蒙曼表示，她讲解王国维《蝶恋花》的视频单日浏览量超400万，展现了网络强大的传播力。
+发布时间：2026年06月05日 17:21 来源：中国新闻网 6月5日是重庆大轰炸“六·五”大隧道惨案85周年纪念日，当天，重庆全市拉响防空警报，悼念抗日战争期间在重庆大轰炸中不幸遇难的同胞，并警醒市民勿忘历史。
 
-自媒体创作者翁忻怡因车祸致残后，通过记录康复历程获得网友鼓励，呼吁残障群体勇敢展示自我。
+在位于重庆市渝中区较场口的重庆大轰炸惨案遗址前，重庆社会各界人士向在重庆大轰炸中遇难的同胞默哀并敬献菊花。
 
-意大利姑娘美纳斯与丈夫记录在广西农村的生活，展现真实的中国农村和跨国爱情，收获大量粉丝。
+二战期间，重庆作为世界反法西斯战争远东指挥中心和国民政府战时首都，遭受日军战略轰炸6年零10个月，史称“重庆大轰炸”。
 
-网络让文明传播更具力量。
+1941年6月5日，日军飞机对重庆实施长达5个多小时疲劳轰炸。
 
-王以照 王伟臣 广西南宁报道 责任编辑：【罗攀】
+十八梯、演武厅、石灰市防空隧道发生了避难者窒息践踏伤亡惨案，遇难者约2500人，即震惊中外的“六·五”大隧道惨案。
+
+(肖江川 江洲） 责任编辑：【叶攀】
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 21:58 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-29 21:54 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 21:55 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 21:44 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 21:59 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 22:11 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 22:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-29 21:43 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
-- 2026-06-29 21:49 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
-- 2026-06-29 22:02 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-29 21:43 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 21:50 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 21:58 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 22:16 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 21:54 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
+- 2026-06-29 22:10 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 21:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 21:48 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 22:14 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
+- 2026-06-29 22:16 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 21:52 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 21:52 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 22:15 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/15807507.shtml)
-- 2026-06-29 21:42 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/833359467.shtml)
-- 2026-06-29 22:04 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/58747.shtml)
-- 2026-06-29 22:08 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/1801475077.shtml)
-- 2026-06-29 22:04 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/72152916382.shtml)
-- 2026-06-29 21:49 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/49323.shtml)
-- 2026-06-29 21:44 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/517030.shtml)
-- 2026-06-29 21:57 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/3483578.shtml)
-- 2026-06-29 22:01 - [肝不好身体这几处会“说话”](https://www.blog.minike.top/Article/details/863643.shtml)
-- 2026-06-29 22:04 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/6479993188.shtml)
-- 2026-06-29 21:44 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/0974019836.shtml)
-- 2026-06-29 21:53 - [如何看法国总统候选人称加强与华合作](https://www.blog.kurohicncr.top/Article/details/708633.shtml)
-- 2026-06-29 22:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/25748396692.shtml)
-- 2026-06-29 21:47 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/3731690987.shtml)
-- 2026-06-29 21:56 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/315361.shtml)
+- 2026-06-29 22:07 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/10387.shtml)
+- 2026-06-29 21:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/77336015.shtml)
+- 2026-06-29 22:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/42591.shtml)
+- 2026-06-29 22:13 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/380844.shtml)
+- 2026-06-29 22:03 - [做完数学题 韩国队回家了](https://www.blog.minike.top/Article/details/9286119209.shtml)
+- 2026-06-29 21:54 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/631917.shtml)
+- 2026-06-29 21:59 - [世界杯](https://www.share.minike.top/Article/details/02111.shtml)
+- 2026-06-29 21:49 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/16422359280.shtml)
+- 2026-06-29 22:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/517325547.shtml)
+- 2026-06-29 22:02 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/571343.shtml)
+- 2026-06-29 21:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/532639722891.shtml)
+- 2026-06-29 21:52 - [店员光脚踩入盆中清洗土豆](http://www.blog.kurohicncr.top/Article/details/66557594.shtml)
+- 2026-06-29 22:04 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/34005.shtml)
+- 2026-06-29 22:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/938019557425.shtml)
+- 2026-06-29 21:55 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/457334051678.shtml)

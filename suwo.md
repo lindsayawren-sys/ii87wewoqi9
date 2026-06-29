@@ -1,61 +1,56 @@
-# （粤港澳大湾区）2026年江西—粤港澳大湾区经贸活动周签约金额约269亿元
+# 从“纸上建议”到“发展实效” 民进重庆市委会2025年履职纪实
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新社深圳5月21日电 (记者 吴鹏泉)江西省商务厅副厅长王春雷21日在深圳接受记者采访时披露，经过前期对接，2026年江西—粤港澳大湾区经贸活动周签约了60个项目，签约金额约269亿元人民币。 19日至21日，2026年江西—粤港澳大湾区经贸活动周在粤港澳地区举办。今年经贸活动周继续以“融入大湾区，‘赣’出新精彩”为主题，举办“1+19+N”场活动。 据王春雷介绍，今年经贸活
+中新网重庆6月5日电 题：从“纸上建议”到“发展实效” 民进重庆市委会2025年履职纪实 作者 刘相琳 郑常艳 从国资创投基金扩容赋能科创，到国家数据要素试点落地重庆，再到社区“一老一小”服务持续升级——民进重庆市委会2025年的多项调研建议，已陆续转化为可感可及的政策。 记者5日从民进重庆市委会获悉，2025年，民进重庆市委会52篇社情民意信息被全国政协采用，数量创历年新高；
 
 ## 正文
 
-中新社深圳5月21日电 (记者 吴鹏泉)江西省商务厅副厅长王春雷21日在深圳接受记者采访时披露，经过前期对接，2026年江西—粤港澳大湾区经贸活动周签约了60个项目，签约金额约269亿元人民币。
+中新网重庆6月5日电 题：从“纸上建议”到“发展实效” 民进重庆市委会2025年履职纪实 作者 刘相琳 郑常艳 从国资创投基金扩容赋能科创，到国家数据要素试点落地重庆，再到社区“一老一小”服务持续升级——民进重庆市委会2025年的多项调研建议，已陆续转化为可感可及的政策。
 
-19日至21日，2026年江西—粤港澳大湾区经贸活动周在粤港澳地区举办。
+记者5日从民进重庆市委会获悉，2025年，民进重庆市委会52篇社情民意信息被全国政协采用，数量创历年新高；5个区级组织、10名会员获评民进全国参政议政先进；14项成果获民进中央优秀成果奖。
 
-今年经贸活动周继续以“融入大湾区，‘赣’出新精彩”为主题，举办“1+19+N”场活动。
+一条“调研深、建言准、转化实”的履职之路，让一份份“纸上建议”变成了推动发展、惠及民生的鲜活实践。
 
-据王春雷介绍，今年经贸活动周实现了三个转变：一是从传统招商引资向贸易投资一体化转变，二是从单向承接产业转移向双向奔赴转变，三是从产业协作向全方位融合发展转变。
+深耕产业调研：为新质生产力注入民进智慧 “政府创投基金本该是撬动科创的杠杆，但我们调研发现，不少基金存在规模小、定位模糊、不敢投早期项目的问题。
 
-“江西将持续深化与粤港澳大湾区协同合作，计划每年在湾区举办100场以上小规模、分专业、分产业的专题对接活动。
+”民进巴南区委会副主委、巴南区金融发展中心副主任文砚全程参与了创投基金专题调研。
 
-”王春雷说，希望老区和湾区能有更多利益契合点，两地实现长期稳定共赢发展。
+为摸清实情，她和同事们用两个月跑遍12家国资创投、32家科创企业，开了12场座谈会，梳理出46条行业痛点，最终形成《做大做强政府出资和国资创业投资基金》调研报告，提出了明确两类基金功能定位、优化考核与尽职免责机制等具体建议。
 
-粤港澳大湾区是中国开放程度最高、经济活力最强的区域之一，也是江西开展经贸、产业、科技创新等领域合作的重要区域。
+如今，重庆已出台专项政策，将国资创投基金考核周期延长，降低短期财务指标权重，新增基金规模超50亿元，重点投向人工智能、生物医药等领域，为十余家早期科创企业解决了融资难题。
 
-这是江西第24次开展粤港澳大湾区经贸合作交流活动。
+“看到调研成果真的帮到了企业，所有的辛苦都值了。
 
 ## 相关推荐
 
-- 2026-06-29 21:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 22:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
-- 2026-06-29 21:49 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 21:56 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
-- 2026-06-29 21:59 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-29 22:04 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 22:11 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 21:44 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 22:01 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 21:44 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
-- 2026-06-29 22:08 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 21:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 22:09 - [腾讯与长鑫存储签200亿大单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 22:05 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-29 22:03 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 22:05 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 22:10 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 22:08 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 22:12 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 22:06 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-29 21:52 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 21:58 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 21:54 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 22:10 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 22:09 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [虞书欣和粉丝剧宣一个脑回路](http://www.blog.minike.top/Article/details/19853945420.shtml)
-- 2026-06-29 21:42 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/9144896925.shtml)
-- 2026-06-29 21:45 - [金牌调解](https://www.blog.minike.top/Article/details/090449.shtml)
-- 2026-06-29 22:00 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/14050.shtml)
-- 2026-06-29 21:48 - [韩国800万亿韩元押注半导体](https://www.share.kurohicncr.top/Article/details/84070369185.shtml)
-- 2026-06-29 21:57 - [直击委内瑞拉加拉加斯救援现场](https://www.share.minike.top/Article/details/9414641.shtml)
-- 2026-06-29 22:04 - [沙丘](http://www.share.kurohicncr.top/Article/details/9808283.shtml)
-- 2026-06-29 21:47 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/7572862946.shtml)
-- 2026-06-29 21:45 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/649798.shtml)
-- 2026-06-29 21:49 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/4158332928.shtml)
-- 2026-06-29 22:08 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/67113639537.shtml)
-- 2026-06-29 22:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/23188766394.shtml)
-- 2026-06-29 22:07 - [杨紫有3部作品入围金鹰奖](http://www.share.kurohicncr.top/Article/details/997237.shtml)
-- 2026-06-29 22:07 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/9249293416.shtml)
-- 2026-06-29 21:53 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/599892962968.shtml)
+- 2026-06-29 22:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/796035172.shtml)
+- 2026-06-29 22:00 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/592614477.shtml)
+- 2026-06-29 21:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/0793397251.shtml)
+- 2026-06-29 22:03 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/825786.shtml)
+- 2026-06-29 22:06 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/04609.shtml)
+- 2026-06-29 21:59 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/259052312579.shtml)
+- 2026-06-29 22:02 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/2655364.shtml)
+- 2026-06-29 22:04 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/8227438142.shtml)
+- 2026-06-29 22:00 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/7062896.shtml)
+- 2026-06-29 22:12 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/747638374.shtml)
+- 2026-06-29 21:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/513883922695.shtml)
+- 2026-06-29 21:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/095014749020.shtml)
+- 2026-06-29 21:55 - [穆祉丞躺TFING身上](http://www.share.kurohicncr.top/Article/details/1338769578.shtml)
+- 2026-06-29 21:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/52786.shtml)
+- 2026-06-29 21:59 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/73857663.shtml)

@@ -1,60 +1,57 @@
-# 中国石窟数字化保护渐趋多元并影响海外
+# 最高检发布6件生态环境检察公益诉讼典型案例
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网洛阳5月21日电(阚力 王佳宁)近年来，文化遗产数字化应用趋热。中国石窟数字化保护之路也渐趋多元，并影响海外。 近日，龙门石窟保护传承传播工作座谈会在河南洛阳举行，敦煌研究院文物数字化研究所副所长丁小胜在此间以敦煌研究院为例介绍，目前，敦煌数字化已通过应用定位纠正与测量，AR、VR全景影像采集与加工等关键技术，实现石窟寺壁画、可移动文物的数字化等。 洛阳龙门石窟也在不断探
+中新网6月5日电 据最高人民检察院网站消息，6月5日是世界环境日。今天，最高人民检察院发布一批“生态环境检察公益诉讼典型案例”，聚焦服务国家区域重大战略，注重深化协同履职，破解行业监管堵点，突出“诉”的刚性监督作用，助推生态环境系统保护，推动长效治理。该批典型案例共6件，分别是：江苏省扬州市江都区检察院督促整治固体废物污染行政公益诉讼案、江西省宜春市检察院督促整治赣江流域养殖污
 
 ## 正文
 
-中新网洛阳5月21日电(阚力 王佳宁)近年来，文化遗产数字化应用趋热。
+中新网6月5日电 据最高人民检察院网站消息，6月5日是世界环境日。
 
-中国石窟数字化保护之路也渐趋多元，并影响海外。
+今天，最高人民检察院发布一批“生态环境检察公益诉讼典型案例”，聚焦服务国家区域重大战略，注重深化协同履职，破解行业监管堵点，突出“诉”的刚性监督作用，助推生态环境系统保护，推动长效治理。
 
-近日，龙门石窟保护传承传播工作座谈会在河南洛阳举行，敦煌研究院文物数字化研究所副所长丁小胜在此间以敦煌研究院为例介绍，目前，敦煌数字化已通过应用定位纠正与测量，AR、VR全景影像采集与加工等关键技术，实现石窟寺壁画、可移动文物的数字化等。
+该批典型案例共6件，分别是：江苏省扬州市江都区检察院督促整治固体废物污染行政公益诉讼案、江西省宜春市检察院督促整治赣江流域养殖污染行政公益诉讼案、重庆市检察院第二分院督促整治赤泥污染行政公益诉讼案、湖南省郴州市检察院督促整治尾矿库污染行政公益诉讼案、青海省玛多县检察院督促整治三江源地区违法取水排水行政公益诉讼案、四川省成都市检察院诉简阳某页岩砖厂环境污染民事公益诉讼案。
 
-洛阳龙门石窟也在不断探索数字化保护之路。
+从案件类型看，这批典型案例包括5件行政公益诉讼案、1件民事公益诉讼案，涉及固体废物污染、养殖污染、水资源保护、大气污染等领域。
 
-譬如，龙门石窟研究院联合多方共同开展流散文物三维数据采集和复原展示项目，包括流散文物原位寻探、虚拟复位研究展示等。
+例如，在四川省成都市检察院诉简阳某页岩砖厂环境污染民事公益诉讼案中，检察机关对违法超标排污企业提起民事公益诉讼，追究其违法超标排污的生态环境损害责任，充分彰显了“环境有价、损害担责”的法治原则，并为当地同类砖瓦生产企业树立了合法经营的标准，有效守护了人居环境与区域大气生态环境安全。
 
-龙门石窟研究院文物保管展示与文献资料中心展陈数字科科长高俊苹介绍，龙门石窟有近200件海外流散文物，通过点云数据采集、三维建模等数字化复原手段，让流散文物完整再现造像的历史原貌。
+典型案例如下： 案例一 江苏省扬州市江都区人民检察院督促整治固体废物污染行政公益诉讼案 【关键词】 行政公益诉讼 提起诉讼 南水北调东线工程 固废污染治理 确认违法 【要旨】 多个行政机关怠于履行各自监管职责致使同一公益损害事实发生的，人民检察院可以一并立案。
 
-目前，龙门石窟已有万佛洞观世音菩萨像、宾阳中洞莲花藻井、《文昭皇后礼佛图》等14件流散文物完成数字化复原和数据共享。
+检察建议整改期限届满后，人民检察院经跟进调查发现行政机关存在敷衍整改、虚假整改情形的，应认定其未依法履职。
 
-在座谈会现场，大足石刻研究院副院长艾智科播放了一段大足石刻的裸眼3D视频，引发热议。
+【基本案情】 芒稻河位于江苏省扬州市，是南水北调东线工程调水源头区，也是淮河泄洪进入长江的主要水道，系长江一级支流。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
-- 2026-06-29 22:01 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 21:50 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-29 21:58 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 21:57 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 22:02 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 22:11 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 21:51 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 21:44 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 22:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-29 21:46 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 21:44 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 21:50 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 21:43 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 22:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 22:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 22:08 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 21:56 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 22:16 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 22:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-29 22:16 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 22:02 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 22:03 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 21:58 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 22:09 - [韩国队回国欢迎仪式取消](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [东方风云榜](https://www.blog.minike.top/Article/details/18684.shtml)
-- 2026-06-29 22:07 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/173234.shtml)
-- 2026-06-29 21:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/7996965.shtml)
-- 2026-06-29 21:52 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/92867.shtml)
-- 2026-06-29 21:57 - [乔家的儿女](https://www.share.minike.top/Article/details/1441526.shtml)
-- 2026-06-29 21:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/4953867.shtml)
-- 2026-06-29 22:11 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/86293.shtml)
-- 2026-06-29 22:01 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/20513.shtml)
-- 2026-06-29 21:45 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/83812365696.shtml)
-- 2026-06-29 21:48 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/142477103071.shtml)
-- 2026-06-29 22:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/3880587705.shtml)
-- 2026-06-29 21:46 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/55062698970.shtml)
-- 2026-06-29 21:46 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/25832626.shtml)
-- 2026-06-29 21:55 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/18461.shtml)
-- 2026-06-29 21:43 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/1942451.shtml)
+- 2026-06-29 21:51 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/134587.shtml)
+- 2026-06-29 22:07 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/33710.shtml)
+- 2026-06-29 22:17 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/841337217.shtml)
+- 2026-06-29 21:58 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/997508.shtml)
+- 2026-06-29 21:58 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/033010989910.shtml)
+- 2026-06-29 21:55 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/14728981.shtml)
+- 2026-06-29 22:00 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/127787.shtml)
+- 2026-06-29 22:06 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/823081646.shtml)
+- 2026-06-29 21:50 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/914216887.shtml)
+- 2026-06-29 22:13 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/93833323181.shtml)
+- 2026-06-29 22:08 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/2311483035.shtml)
+- 2026-06-29 22:09 - [杨紫有3部作品入围金鹰奖](https://www.share.kurohicncr.top/Article/details/786240.shtml)
+- 2026-06-29 22:05 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.minike.top/Article/details/07378741702.shtml)
+- 2026-06-29 22:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/7177263757.shtml)
+- 2026-06-29 22:16 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/44616804.shtml)

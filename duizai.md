@@ -1,61 +1,61 @@
-# 一场招商推介会背后的出海逻辑：宁德有货，侨商有路
+# 全环节严密监管 江西开展烟花爆竹全链条安全集中整治工作
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网宁德5月21日电 (吴允杰)世界福州十邑同乡总会宁德市招商推介会21日在福建省宁德市古田县举行，200余名福州十邑乡亲代表叙乡情、话商机、促发展。 作为中国新能源电池之都，宁德是全球锂电新能源创新策源地与产业制高点，2025年宁德锂电新能源产业产值突破3000亿元，动力电池、储能电池市占率连续多年居全球第一。但在今日的推介中，宁德端出的“硬菜”远不止“一块电池”。 宁德市
+中新网南昌6月5日电 (记者 李韵涵)6月5日，江西省烟花爆竹“打非治违”工作新闻发布会在南昌召开。记者从会上了解到，今年五月初以来，江西收缴、查扣烟花爆竹成品6.5万余箱、原材料约260公斤。 “江西是烟花爆竹主要产区，安全生产责任重大。”据江西省政府副秘书长邵高介绍，今年5月初以来，江西省委、省政府充分研判违规原辅材料流入、订单转移可能引发的超能力生产、非法生产、非法运输等
 
 ## 正文
 
-中新网宁德5月21日电 (吴允杰)世界福州十邑同乡总会宁德市招商推介会21日在福建省宁德市古田县举行，200余名福州十邑乡亲代表叙乡情、话商机、促发展。
+中新网南昌6月5日电 (记者 李韵涵)6月5日，江西省烟花爆竹“打非治违”工作新闻发布会在南昌召开。
 
-作为中国新能源电池之都，宁德是全球锂电新能源创新策源地与产业制高点，2025年宁德锂电新能源产业产值突破3000亿元，动力电池、储能电池市占率连续多年居全球第一。
+记者从会上了解到，今年五月初以来，江西收缴、查扣烟花爆竹成品6.5万余箱、原材料约260公斤。
 
-但在今日的推介中，宁德端出的“硬菜”远不止“一块电池”。
+“江西是烟花爆竹主要产区，安全生产责任重大。
 
-宁德市工信局总工程师、市现代产业指挥部产业招商二组组长雷彪华说，面向全球侨商、海外投资，宁德将在新能源、新材料、大健康、海洋经济、数字经济、现代服务六大赛道，精准匹配海外资源、技术、渠道与市场，商机实在、优势突出。
+”据江西省政府副秘书长邵高介绍，今年5月初以来，江西省委、省政府充分研判违规原辅材料流入、订单转移可能引发的超能力生产、非法生产、非法运输等突出风险，紧密部署从今年5月起至明年3月组织开展全省烟花爆竹全链条安全集中整治工作。
 
-据介绍，在新能源产业方面，宁德市将重点聚焦锂电池六大主材配套、智能装备、新型储能、电动航空、智能驾驶、车网互动、电池回收、海外储能电站与换电网络等领域开展合作；大健康产业方面，宁德市重点合作方向为中医药出海、功能性食品、健康装备、智慧医疗、国际康养旅居等领域；海洋经济产业方面，宁德市重点合作方向为现代渔业、海洋生物、海工装备、跨境冷链、滨海国际旅游等产业…… 一个个商机抛出的背后，是宁德市产业从“一座工厂”到“一片森林”的转变，而这片“森林”里，正源源不断地生长出走向全球的“宁德好物”。
+截至目前，江西共查处涉烟花爆竹刑事案件11起、行政案件682起，抓获违法犯罪嫌疑人450人，责令企业停产整顿93家次，罚款50余万元，收缴、查扣烟花爆竹成品6.5万余箱、原材料约260公斤，检查从业单位3.8万余家次，督促整改隐患7300余处，约谈警示从业单位94家次，一大批长期隐蔽、反复反弹的顽固性隐患得到有力整治。
 
-以大黄鱼产业为例，“中国大黄鱼之都”宁德市是全国规模最大的大黄鱼育种中心、养殖基地、产销中心。
+据了解，江西压实乡镇街道网格化排查责任，组织网格员、公安派出所、应急管理等力量，运用治安“三张图”和“慧探”App，聚焦高风险点位开展排查标注，排查可疑场所26万余处，重拳打击非法生产、储存烟花爆竹“黑窝点”。
 
-2025年，该市出口大黄鱼1.95万吨，产值9.28亿元，远销泰国、韩国、越南、菲律宾、日本、美国等国家。
+据介绍，公安机关发挥技术手段优势，加强情报研判，突出通道查控，查处非法、违规运输案件95起，会同乡镇和有关部门在重要省际口设置查缉点49个，排查可疑车辆6.7万余辆，查处非法、违规运输案件27起，牢牢守住入口“安全关”。
 
-在大健康领域，作为中国重要的茶叶产区，宁德市茶叶出口已覆盖23个国家和地区，正从原料出口向高附加值品牌茶升级；“中国食用菌之都”古田县银耳产量占全国90%以上，2025年食用菌企业出口额达7.24亿元；“中国长寿之乡”柘荣县盛产太子参等30多种中药材，正推动特色传统中药、大健康产品拓展共建“一带一路”国家市场…… 这些“宁德造”，正在加速走向全球。
+此外，江西各部门落实“管行业必须管安全、管业务必须管安全、管生产经营必须管安全”的要求，紧盯产、销、运、燃和质量全环节强化安全监管措施。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 21:44 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 21:52 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 22:08 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 21:46 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 21:52 - [高质量发展看新疆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-29 21:44 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 21:44 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
-- 2026-06-29 22:09 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 21:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 22:11 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 22:04 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 21:48 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 21:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-29 21:49 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 21:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 22:17 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 21:49 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 21:51 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 22:16 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 22:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 21:55 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
+- 2026-06-29 22:06 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 22:12 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 21:51 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 21:51 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 22:06 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 22:01 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
+- 2026-06-29 22:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 21:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/7336046.shtml)
-- 2026-06-29 21:47 - [金刚川](https://www.share.kurohicncr.top/Article/details/5508260.shtml)
-- 2026-06-29 21:52 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/531224957101.shtml)
-- 2026-06-29 21:55 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/5471144418.shtml)
-- 2026-06-29 21:59 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/09663718.shtml)
-- 2026-06-29 21:48 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.blog.minike.top/Article/details/068833386708.shtml)
-- 2026-06-29 22:08 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/0068038.shtml)
-- 2026-06-29 21:58 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/928774795924.shtml)
-- 2026-06-29 21:55 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/8171940642.shtml)
-- 2026-06-29 22:08 - [105岁女红军看到自己长征时的模样](http://www.blog.minike.top/Article/details/7255626.shtml)
-- 2026-06-29 21:51 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/1816076.shtml)
-- 2026-06-29 22:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/34121906837.shtml)
-- 2026-06-29 21:58 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/12137.shtml)
-- 2026-06-29 21:47 - [乔家的儿女](http://www.share.minike.top/Article/details/791608645.shtml)
-- 2026-06-29 22:10 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/098420469.shtml)
+- 2026-06-29 22:11 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/13162.shtml)
+- 2026-06-29 22:14 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/981685992.shtml)
+- 2026-06-29 21:58 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/71271940515.shtml)
+- 2026-06-29 22:09 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/2471185.shtml)
+- 2026-06-29 22:07 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/409936229648.shtml)
+- 2026-06-29 22:08 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/5595893.shtml)
+- 2026-06-29 22:10 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/80435913718.shtml)
+- 2026-06-29 21:56 - [小龙女配音去世 李若彤发文悼念](http://www.blog.minike.top/Article/details/418508897745.shtml)
+- 2026-06-29 21:54 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/067446.shtml)
+- 2026-06-29 22:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/221431.shtml)
+- 2026-06-29 21:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/988299.shtml)
+- 2026-06-29 22:00 - [袁咏仪张智霖儿子寸头近照](https://www.share.minike.top/Article/details/1915872.shtml)
+- 2026-06-29 21:50 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/63417286827.shtml)
+- 2026-06-29 21:59 - [一汽大众黄金超混技术来袭](http://www.share.kurohicncr.top/Article/details/64963.shtml)
+- 2026-06-29 22:17 - [哈兰德玩游戏连女友都不让着](https://www.blog.minike.top/Article/details/327604571612.shtml)

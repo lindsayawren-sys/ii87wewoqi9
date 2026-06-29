@@ -1,47 +1,60 @@
-# 江苏靖江：凡人挺身守善意 暖心善举传温情
+# 新加坡青年领袖：青年群体为中国—东盟协作注入创新动能丨世界观
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 09:26 来源：央视新闻 责任编辑：【王祎】
+中新网北京6月5日电 (记者 吴辛茹 薛凌桥)人工智能技术的飞速迭代与数字经济的迅猛发展，重塑了全球商业模式与创新发展逻辑。中国与东盟区域合作，也搭乘数字化浪潮前行。中国与东盟国家的青年群体，已然成为推动双边产业协作、深化创新合作的核心动能。 针对数字时代下中国—东盟协同发展与青年创新价值，新加坡中国协会青年团团长翟梓涵近日接受中新网专访。在他看来，新生代青年作为“数字原住民”
 
 ## 正文
 
-发布时间：2026年05月21日 09:26 来源：央视新闻 责任编辑：【王祎】
+中新网北京6月5日电 (记者 吴辛茹 薛凌桥)人工智能技术的飞速迭代与数字经济的迅猛发展，重塑了全球商业模式与创新发展逻辑。
+
+中国与东盟区域合作，也搭乘数字化浪潮前行。
+
+中国与东盟国家的青年群体，已然成为推动双边产业协作、深化创新合作的核心动能。
+
+针对数字时代下中国—东盟协同发展与青年创新价值，新加坡中国协会青年团团长翟梓涵近日接受中新网专访。
+
+在他看来，新生代青年作为“数字原住民”，熟悉数字化运作模式、适配智能化发展节奏，是区域创新协作当中不可或缺的中坚力量。
+
+结合新加坡青年发展现状，翟梓涵指出，应届毕业生与职场新人十分看重行业视野拓展与个人能力提升。
+
+为满足青年一代的成长需求，同时打通中国与东盟区域青年创新合作通道，其所在协会青年团正努力联动北京及中国国内多地对外友好协会，搭建综合性双向交流平台。
+
+“多年来，我们致力于组织各类交流项目以及学习考察活动，帮助来自新加坡、东盟其他国家以及中国的青年，了解经济发展动态和行业最新趋势。
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 21:51 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 22:11 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-29 22:06 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-29 21:59 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-29 22:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 22:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 21:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 21:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 22:08 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-29 22:03 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-29 22:01 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 21:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 22:08 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 22:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 21:54 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 22:02 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 21:52 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 22:08 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 22:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 22:03 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 22:05 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 21:54 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 22:03 - [小龙女配音去世 李若彤发文悼念](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-29 22:09 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 22:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-29 22:07 - [齐思钧回复孙怡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 22:11 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 21:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/74984689.shtml)
-- 2026-06-29 21:50 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/6781911.shtml)
-- 2026-06-29 21:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/800233.shtml)
-- 2026-06-29 21:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/935487.shtml)
-- 2026-06-29 21:50 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/721292118848.shtml)
-- 2026-06-29 21:53 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/77026871.shtml)
-- 2026-06-29 22:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/093615433.shtml)
-- 2026-06-29 22:01 - [韩国队回国欢迎仪式取消](http://www.share.minike.top/Article/details/8621932498.shtml)
-- 2026-06-29 22:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/241890045.shtml)
-- 2026-06-29 22:00 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/64492519.shtml)
-- 2026-06-29 22:01 - [哈兰德玩游戏连女友都不让着](http://www.blog.kurohicncr.top/Article/details/75605850230.shtml)
-- 2026-06-29 21:55 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/3690568.shtml)
-- 2026-06-29 21:56 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/67970.shtml)
-- 2026-06-29 21:56 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/634342.shtml)
-- 2026-06-29 22:04 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/91884773222.shtml)
+- 2026-06-29 21:58 - [一人一句祝党生日快乐](https://www.share.minike.top/Article/details/101825.shtml)
+- 2026-06-29 21:51 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/88650.shtml)
+- 2026-06-29 22:06 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/628247.shtml)
+- 2026-06-29 22:16 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/42932307092.shtml)
+- 2026-06-29 21:49 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/24866030.shtml)
+- 2026-06-29 22:16 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/794243.shtml)
+- 2026-06-29 22:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/668790498348.shtml)
+- 2026-06-29 22:14 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/1297451393.shtml)
+- 2026-06-29 22:11 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/89699.shtml)
+- 2026-06-29 21:52 - [恋与深空致歉](https://www.share.minike.top/Article/details/93431008.shtml)
+- 2026-06-29 22:06 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/189593816300.shtml)
+- 2026-06-29 21:52 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/043595130467.shtml)
+- 2026-06-29 21:56 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/421346.shtml)
+- 2026-06-29 22:10 - [任泽平：AI浪潮刚刚开始](https://www.share.kurohicncr.top/Article/details/445669.shtml)
+- 2026-06-29 21:55 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/74466.shtml)

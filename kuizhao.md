@@ -1,57 +1,59 @@
-# 美联储32年最大分歧会议纪要 鹰派要开香槟了吗？
+# 菲律宾5月通胀率回落 仍连三月高于官方目标
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 美联储发布了FOMC 4月的议息会议纪要，本次纪要揭开了其数十年来最严重的内部分歧的情况。 也向市场传递出清晰信号：通胀担忧已全面占据主导，决策层正悄然为潜在加息铺路。 这场由即将卸任的主席鲍威尔主持的收官会议，不仅暴露了美联储内部鹰鸽两派的激烈博弈，更预示着即将履新的主席凯文·沃什将接手一个立场愈发强硬的决策团队。 地缘冲突推升通胀，紧缩共识逐步凝聚 上月
+中新社马尼拉6月5日电 (记者 张兴龙)菲律宾国家统计局5日发布数据显示，该国5月通胀率为6.8%，较4月回落0.4个百分点，但已连续第三个月高于菲律宾中央银行设定的2%至4%全年通胀目标区间。 今年4月，菲律宾通胀率升至7.2%，创下2023年4月以来新高。数据显示，今年前5个月，菲律宾平均通胀率为4.5%，同样高于菲央行目标区间上限。 菲律宾5月通胀放缓主要受交通价格涨幅回
 
 ## 正文
 
-文章来源：汇通财经 美联储发布了FOMC 4月的议息会议纪要，本次纪要揭开了其数十年来最严重的内部分歧的情况。
+中新社马尼拉6月5日电 (记者 张兴龙)菲律宾国家统计局5日发布数据显示，该国5月通胀率为6.8%，较4月回落0.4个百分点，但已连续第三个月高于菲律宾中央银行设定的2%至4%全年通胀目标区间。
 
-也向市场传递出清晰信号：通胀担忧已全面占据主导，决策层正悄然为潜在加息铺路。
+今年4月，菲律宾通胀率升至7.2%，创下2023年4月以来新高。
 
-这场由即将卸任的主席鲍威尔主持的收官会议，不仅暴露了美联储内部鹰鸽两派的激烈博弈，更预示着即将履新的主席凯文·沃什将接手一个立场愈发强硬的决策团队。
+数据显示，今年前5个月，菲律宾平均通胀率为4.5%，同样高于菲央行目标区间上限。
 
-地缘冲突推升通胀，紧缩共识逐步凝聚 上月以来，伊朗地缘冲突的持续发酵成为推升通胀的关键变量，国际油价在此背景下飙升超50%，并引发物价压力向能源领域外扩散。
+菲律宾5月通胀放缓主要受交通价格涨幅回落带动。
 
-这一态势让越来越多美联储官员警惕，纷纷表态央行需提前做好政策铺垫，以便在通胀持续高企时随时启动加息。
+数据显示，菲5月交通价格同比上涨16.2%，低于4月的21.4%。
 
-在4月28日至29日的会议上，绝大多数FOMC的政策制定者达成共识：若通胀数据长期高于2%的既定目标，适度的货币紧缩举措将势在必行。
+与此同时，住房、水、电、燃气和其他燃料价格同比涨幅由8.2%降至7.8%；食品和非酒精饮料价格同比涨幅由6%放缓至5.7%，共同推动整体通胀回落。
 
-为此，多数参会官员明确主张，应删除会后声明中暗示未来可能降息的相关表述，彻底摒弃宽松政策倾向。
+食品方面，菲律宾5月食品通胀率为5.8%，低于上月的6.1%。
 
-鹰鸽阵营对立加剧，异议票数创32年新高 纪要清晰呈现了美联储内部的两大阵营分化：一方是规模持续壮大的鹰派阵营，他们极度警惕伊朗冲突催生的通胀上行风险，坚决反对任何降息讨论； 另一方则是势力不断萎缩的鸽派，仍坚守宽松立场主张下调借贷成本。
+其中，蔬菜类价格同比涨幅由4月的10.4%降至5月的6.2%，成为推动食品通胀放缓的主要因素。
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 22:09 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 21:45 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-29 21:52 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 22:01 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 22:10 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-29 22:01 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 22:11 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 22:09 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-29 22:08 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 22:02 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 21:51 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-29 22:05 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 21:54 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-29 21:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 22:14 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 22:10 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 22:05 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 22:02 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 21:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 22:03 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 22:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 21:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
+- 2026-06-29 22:02 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/7619251095.shtml)
-- 2026-06-29 22:03 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/60837.shtml)
-- 2026-06-29 22:07 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/6639392.shtml)
-- 2026-06-29 22:06 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.minike.top/Article/details/56114.shtml)
-- 2026-06-29 21:44 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/6022221698.shtml)
-- 2026-06-29 22:11 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/62393514840.shtml)
-- 2026-06-29 21:51 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/65615868.shtml)
-- 2026-06-29 21:59 - [被中方管控的20家日本实体什么来头](https://www.blog.minike.top/Article/details/270831.shtml)
-- 2026-06-29 22:01 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/018143.shtml)
-- 2026-06-29 21:59 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/5076822.shtml)
-- 2026-06-29 22:10 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/05714.shtml)
-- 2026-06-29 22:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/976078.shtml)
-- 2026-06-29 22:04 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/9953738135.shtml)
-- 2026-06-29 21:47 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/3184641.shtml)
-- 2026-06-29 22:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/01278914746.shtml)
+- 2026-06-29 22:04 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.minike.top/Article/details/95887081321.shtml)
+- 2026-06-29 22:16 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/11960565665.shtml)
+- 2026-06-29 21:51 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/635776660.shtml)
+- 2026-06-29 22:09 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/481576942357.shtml)
+- 2026-06-29 21:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/43417.shtml)
+- 2026-06-29 22:05 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/912137580.shtml)
+- 2026-06-29 22:02 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/197769.shtml)
+- 2026-06-29 22:04 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/39688170.shtml)
+- 2026-06-29 22:09 - [存储三巨头被告了](http://www.share.minike.top/Article/details/66603.shtml)
+- 2026-06-29 22:00 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/954098781222.shtml)
+- 2026-06-29 22:16 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/24519606.shtml)
+- 2026-06-29 22:15 - [委内瑞拉发生余震](http://www.blog.kurohicncr.top/Article/details/668388184.shtml)
+- 2026-06-29 21:53 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/1076288.shtml)
+- 2026-06-29 21:54 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/06734952.shtml)
+- 2026-06-29 21:53 - [肝不好身体这几处会“说话”](http://www.blog.kurohicncr.top/Article/details/14225.shtml)

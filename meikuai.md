@@ -1,45 +1,59 @@
-# 服务业经济平稳增长 发展潜力持续释放
+# 广东多地遭遇暴雨 深圳出现“水龙卷”
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 09:08 来源：央视综合 责任编辑：【王祎】
+中新社广州6月6日电 (记者 王坚)强对流天气6日袭击广东，广州、东莞、佛山等地遭遇暴雨，深圳出现“水龙卷”，佛山一小时最大降雨量达98.5毫米。 深圳气象部门介绍，当日上午，该市自西向东出现强雷雨，并伴有8级至9级短时大风；10时前后，深圳湾水域出现了“水龙卷”。 气象专家称，“水龙卷”俗称“龙吸水”，是发生在水面上的龙卷风，多发生在海面或湖面上空，可将水吸离水面，形成水柱甚
 
 ## 正文
 
-发布时间：2026年05月21日 09:08 来源：央视综合 责任编辑：【王祎】
+中新社广州6月6日电 (记者 王坚)强对流天气6日袭击广东，广州、东莞、佛山等地遭遇暴雨，深圳出现“水龙卷”，佛山一小时最大降雨量达98.5毫米。
+
+深圳气象部门介绍，当日上午，该市自西向东出现强雷雨，并伴有8级至9级短时大风；10时前后，深圳湾水域出现了“水龙卷”。
+
+气象专家称，“水龙卷”俗称“龙吸水”，是发生在水面上的龙卷风，多发生在海面或湖面上空，可将水吸离水面，形成水柱甚至与云相接。
+
+广东省气象部门介绍，截至6日17时48分，全省共有50个雷雨大风预警信号生效中；南海暴雨红色预警信号生效中；怀集、肇庆、江门等19个市县暴雨橙色预警信号生效中。
+
+6日的广州狂风暴雨，15时至16时，该市白云区龙归街道录得79毫米的降雨量。
+
+由于雨势太大，广州部分街道出现水浸，有的地方水深可到成年人小腿处。
+
+广州市气象台预计，该市近期天气不稳定，高温逐渐缓解。
+
+7日至9日高考期间，受西南季风、高空槽和切变线影响，广州有一次大到暴雨局部大暴雨过程。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 22:04 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 21:46 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 22:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 22:04 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 22:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 22:08 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 21:53 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 22:07 - [韩国800万亿韩元押注半导体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 22:11 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 22:06 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 22:03 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 22:05 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
+- 2026-06-29 22:01 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 22:05 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 22:07 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 22:09 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 22:03 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 22:01 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 22:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 22:07 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyykk.md)
+- 2026-06-29 21:53 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 21:58 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 21:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 21:49 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 21:59 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/1398345332.shtml)
-- 2026-06-29 21:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/60894291644.shtml)
-- 2026-06-29 21:43 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/525904.shtml)
-- 2026-06-29 21:57 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/374761281.shtml)
-- 2026-06-29 21:54 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/24285587024.shtml)
-- 2026-06-29 22:06 - [“坟爷”林耀昌旧案追诉案一审宣判](http://www.share.kurohicncr.top/Article/details/497091.shtml)
-- 2026-06-29 22:06 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/032985210.shtml)
-- 2026-06-29 22:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/49629733.shtml)
-- 2026-06-29 21:43 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/304282096053.shtml)
-- 2026-06-29 21:59 - [巴黎区长紧急采购50台中国空调](https://www.share.kurohicncr.top/Article/details/66960535.shtml)
-- 2026-06-29 22:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/21753.shtml)
-- 2026-06-29 22:08 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/66120548404.shtml)
-- 2026-06-29 22:00 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/19122291553.shtml)
-- 2026-06-29 22:02 - [恋与深空制作组回应争议](http://www.share.kurohicncr.top/Article/details/34174730680.shtml)
-- 2026-06-29 21:57 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/398980156.shtml)
+- 2026-06-29 21:58 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/5591606.shtml)
+- 2026-06-29 22:04 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/102759744.shtml)
+- 2026-06-29 22:11 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/566844990.shtml)
+- 2026-06-29 21:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/79356292272.shtml)
+- 2026-06-29 22:15 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/069059198.shtml)
+- 2026-06-29 21:48 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/22689.shtml)
+- 2026-06-29 22:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/22491189.shtml)
+- 2026-06-29 22:10 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/3329076.shtml)
+- 2026-06-29 21:58 - [高考1357分的同学如何报志愿？](http://www.blog.kurohicncr.top/Article/details/010036013508.shtml)
+- 2026-06-29 21:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/4000487003.shtml)
+- 2026-06-29 21:52 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/6054678014.shtml)
+- 2026-06-29 21:57 - [第一炉香](https://www.share.minike.top/Article/details/16923154107.shtml)
+- 2026-06-29 21:49 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/54295.shtml)
+- 2026-06-29 22:07 - [一生一世](https://www.blog.minike.top/Article/details/4332861.shtml)
+- 2026-06-29 22:01 - [曝iPhone涨价后不会再降](https://www.blog.minike.top/Article/details/96643.shtml)

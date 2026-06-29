@@ -1,61 +1,60 @@
-# “东北超”以足球之名 将东北人的手紧握一起
+# 汉倍优®三地获批，复宏汉霖“曲帕双靶”构筑全球壁垒
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新社沈阳5月20日电 (记者 刁海洋 韩宏)“‘东北超’正是以足球的名义，把东北人的手紧紧握在了一起。”辽宁省副省长楚天运20日在省政府新闻办召开的发布会上表示，全国首个跨省区联动的城市足球超级IP“东北超”即将启幕。近年来，中国各地群众性体育活动精彩纷呈，“苏超”等地方超级联赛引发广泛关注。由辽宁、吉林、黑龙江及内蒙古三省一区联合打造的“东北超”，将于5月23日在沈阳、长春
+国产乳腺癌生物类似药赛道再添重磅落子。近日，复宏汉霖宣布，其帕妥珠单抗注射液汉倍优®获国家药监局批准上市。至此，汉倍优®已先后在中国、美国、欧盟三大主流市场完成注册，与此前已在三地上市的汉曲优®（曲妥珠单抗）正式组成首个中美欧全面获批的国产“曲帕双靶”组合。 01帕妥珠单抗赛道进入白热化，国产选手加速卡位 帕妥珠单抗是HER2阳性乳腺癌治疗的关键靶向药物，与曲妥珠单抗联用的“双
 
 ## 正文
 
-中新社沈阳5月20日电 (记者 刁海洋 韩宏)“‘东北超’正是以足球的名义，把东北人的手紧紧握在了一起。
+国产乳腺癌生物类似药赛道再添重磅落子。
 
-”辽宁省副省长楚天运20日在省政府新闻办召开的发布会上表示，全国首个跨省区联动的城市足球超级IP“东北超”即将启幕。
+近日，复宏汉霖宣布，其帕妥珠单抗注射液汉倍优®获国家药监局批准上市。
 
-近年来，中国各地群众性体育活动精彩纷呈，“苏超”等地方超级联赛引发广泛关注。
+至此，汉倍优®已先后在中国、美国、欧盟三大主流市场完成注册，与此前已在三地上市的汉曲优®（曲妥珠单抗）正式组成首个中美欧全面获批的国产“曲帕双靶”组合。
 
-由辽宁、吉林、黑龙江及内蒙古三省一区联合打造的“东北超”，将于5月23日在沈阳、长春、哈尔滨、呼和浩特同时开哨。
+01帕妥珠单抗赛道进入白热化，国产选手加速卡位 帕妥珠单抗是HER2阳性乳腺癌治疗的关键靶向药物，与曲妥珠单抗联用的“双靶方案”已成为国际标准疗法。
 
-楚天运用四句话概括其独特之处，“东北一家亲、百姓唱主角、东北超级乐，市场挑大梁。
+长期以来，罗氏原研药帕捷特®占据中国市场绝对主导，2024年国内帕妥珠单抗市场规模已超过40亿元。
 
-” 谈及跨省区联手的缘由，楚天运说，东北山水相连、文脉相通、人缘相近，是办赛底气。
+巨大的市场空间吸引本土药企争相布局。
 
-三省一区八个赛区统一办赛标准、共享技术资源，并联合推出跨省区消费优惠。
+2024年12月，齐鲁制药的安赛珠®和正大天晴的帕乐坦®率先获批，抢下先发优势；2026年2月，贝达药业的贝泽汀®也顺利上市。
 
-“不管比赛是不是第一，反正友谊肯定第一。
+加上石药集团等在研品种，帕妥珠单抗生物类似药赛道已从“蓝海”迅速切换至“红海”竞争。
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-29 21:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-29 21:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 21:49 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 21:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 22:02 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-29 21:46 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-29 21:52 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-29 21:45 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 22:04 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 21:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 22:09 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 21:46 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 21:58 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 21:55 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 22:11 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
+- 2026-06-29 21:51 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-29 22:10 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 21:48 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 22:12 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 22:00 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 21:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 22:01 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-29 22:14 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 22:10 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 22:13 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 22:15 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 22:07 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 22:12 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/80311970.shtml)
-- 2026-06-29 22:06 - [《恋与深空》回应争议](https://www.blog.minike.top/Article/details/887693645510.shtml)
-- 2026-06-29 22:11 - [一生一世](http://www.blog.minike.top/Article/details/672564783.shtml)
-- 2026-06-29 21:46 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/17370.shtml)
-- 2026-06-29 22:08 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/74621.shtml)
-- 2026-06-29 21:49 - [孙俪开QQ的蛮好生活](http://www.blog.minike.top/Article/details/0169570163.shtml)
-- 2026-06-29 21:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/561046.shtml)
-- 2026-06-29 21:51 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/9992286.shtml)
-- 2026-06-29 21:53 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/82368.shtml)
-- 2026-06-29 22:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/128746894.shtml)
-- 2026-06-29 21:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/455054189.shtml)
-- 2026-06-29 21:55 - [虞书欣和粉丝剧宣一个脑回路](http://www.share.minike.top/Article/details/237183021804.shtml)
-- 2026-06-29 22:09 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/0404695.shtml)
-- 2026-06-29 22:07 - [中国妇女评网游娱乐化女性安全](http://www.blog.kurohicncr.top/Article/details/86722.shtml)
-- 2026-06-29 21:48 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/113065505185.shtml)
+- 2026-06-29 22:11 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/30253198644.shtml)
+- 2026-06-29 21:56 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/9467714587.shtml)
+- 2026-06-29 22:09 - [18岁高二体育生训练晕倒后离世](http://www.blog.minike.top/Article/details/835112.shtml)
+- 2026-06-29 22:12 - [美人鱼](https://www.blog.minike.top/Article/details/5237279018.shtml)
+- 2026-06-29 22:11 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/487011584.shtml)
+- 2026-06-29 22:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/180913.shtml)
+- 2026-06-29 22:07 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/331422467349.shtml)
+- 2026-06-29 22:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/84444.shtml)
+- 2026-06-29 21:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/173517660.shtml)
+- 2026-06-29 22:13 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/949164365.shtml)
+- 2026-06-29 21:52 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/48647280452.shtml)
+- 2026-06-29 22:01 - [王安宇聪明到导演组炸了](https://www.blog.minike.top/Article/details/941409.shtml)
+- 2026-06-29 22:02 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/05003285830.shtml)
+- 2026-06-29 22:14 - [啊啊啊](https://www.blog.minike.top/Article/details/82906065.shtml)
+- 2026-06-29 22:04 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.kurohicncr.top/Article/details/99753.shtml)

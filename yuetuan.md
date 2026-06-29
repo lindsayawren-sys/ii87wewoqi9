@@ -1,56 +1,47 @@
-# 鹰派沃什接棒！美联储政策或大转向，会议纪要释放加息信号，黄金牛市要终结了？
+# 周锡玮：两岸要一起，把中国好的理念传播出去
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-文章来源：华夏时报 本报（chinatimes.net.cn）记者叶青 北京报道 近期国际金价剧烈波动，多空博弈异常激烈。5月19日COMEX黄金遭遇断崖式下跌，单日暴跌72美元，跌幅1.56%，失守4500美元关口；5月20日延续跌势，最低下探至4455.1美元/盎司，创4月以来新低。截至5月21日11时，随着空头力量有所衰减，金价小幅反弹，暂报4542美元/盎司。 “金价跌
+发布时间：2026年06月05日 15:20 来源：中国新闻网 6月5日，2026海峡两岸新媒体产业发展研讨会在上海举行，台湾旺旺集团副董事长周锡玮表示，现在是一个中国人向外传播的时代，两岸要一起把我们中国人做的好的事情、好的理念传给全世界。(记者 缪璐 娄瀚锟 制作 田媛媛 王雪尔) 责任编辑：【罗攀】
 
 ## 正文
 
-文章来源：华夏时报 本报（chinatimes.net.cn）记者叶青 北京报道 近期国际金价剧烈波动，多空博弈异常激烈。
+发布时间：2026年06月05日 15:20 来源：中国新闻网 6月5日，2026海峡两岸新媒体产业发展研讨会在上海举行，台湾旺旺集团副董事长周锡玮表示，现在是一个中国人向外传播的时代，两岸要一起把我们中国人做的好的事情、好的理念传给全世界。
 
-5月19日COMEX黄金遭遇断崖式下跌，单日暴跌72美元，跌幅1.56%，失守4500美元关口；5月20日延续跌势，最低下探至4455.1美元/盎司，创4月以来新低。
-
-截至5月21日11时，随着空头力量有所衰减，金价小幅反弹，暂报4542美元/盎司。
-
-“金价跌破4500美元/盎司，主要是市场对美联储货币政策预期发生转变、美债收益率走高、地缘局势趋于缓和以及资金集中抛售等多重因素共振所致。
-
-这意味着短期内金价仍将维持震荡寻底走势，但是中长期金价上涨的牛市逻辑并未动摇。
-
-”北京黄金经济发展研究中心研究员许亚鑫在接受《华夏时报》记者采访时表示。
-
-瑞银大幅看空白银 “近期国际金价持续走出宽幅震荡走势，整体波动于4300至4800美元/盎司区间，行情主要受美伊局势影响。
-
-美国总统特朗普近期多次对伊朗发出威胁，若伊朗不接受协议，美国将重启对伊朗的军事打击，伊朗方面也作出严厉回应，表示已做好各项准备。
+(记者 缪璐 娄瀚锟 制作 田媛媛 王雪尔) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 21:45 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 21:48 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-29 21:49 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 22:09 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-29 21:56 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 21:53 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 22:11 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 21:57 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 21:52 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 22:04 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-29 22:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 21:54 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-29 22:13 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 22:02 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-29 21:50 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 22:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 22:05 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 22:12 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 21:50 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 22:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 21:57 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 21:57 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 21:51 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [欧洲高温会成下个印度吗](https://www.share.kurohicncr.top/Article/details/1667123698.shtml)
-- 2026-06-29 21:43 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/66483.shtml)
-- 2026-06-29 22:00 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/97456950.shtml)
-- 2026-06-29 22:00 - [东方风云榜直播](http://www.share.kurohicncr.top/Article/details/31633430.shtml)
-- 2026-06-29 21:59 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/1280359.shtml)
-- 2026-06-29 21:47 - [中国妇女评网游娱乐化女性安全](http://www.blog.minike.top/Article/details/25498270.shtml)
-- 2026-06-29 22:03 - [恋与深空道歉就够了吗](https://www.blog.minike.top/Article/details/66893713.shtml)
-- 2026-06-29 22:01 - [女生学医适合选什么专业](http://www.blog.minike.top/Article/details/81515097217.shtml)
-- 2026-06-29 21:56 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/73874.shtml)
-- 2026-06-29 22:12 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/117558290900.shtml)
-- 2026-06-29 21:51 - [不烧钱的低成本爱好](https://www.share.kurohicncr.top/Article/details/333728902.shtml)
-- 2026-06-29 21:43 - [白玉兰答谢宴合影](https://www.share.minike.top/Article/details/55927.shtml)
-- 2026-06-29 22:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/4788675.shtml)
-- 2026-06-29 22:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/8100899040.shtml)
-- 2026-06-29 21:50 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/212784783754.shtml)
+- 2026-06-29 22:08 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/70164169768.shtml)
+- 2026-06-29 21:52 - [蓝箭航天科创板IPO审核状态为已问询](https://www.share.kurohicncr.top/Article/details/3655452636.shtml)
+- 2026-06-29 22:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/9436436959.shtml)
+- 2026-06-29 21:57 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/491596.shtml)
+- 2026-06-29 22:17 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/7018063826.shtml)
+- 2026-06-29 22:01 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/991907.shtml)
+- 2026-06-29 21:59 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/064462823144.shtml)
+- 2026-06-29 21:58 - [18岁高二体育生训练晕倒后离世](http://www.share.kurohicncr.top/Article/details/39636636605.shtml)
+- 2026-06-29 22:07 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/5624959317.shtml)
+- 2026-06-29 21:58 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/07289778583.shtml)
+- 2026-06-29 22:17 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/465881904.shtml)
+- 2026-06-29 21:53 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/057502.shtml)
+- 2026-06-29 22:09 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/51306.shtml)
+- 2026-06-29 22:11 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/253635351575.shtml)
+- 2026-06-29 22:13 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/43397.shtml)

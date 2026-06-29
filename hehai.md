@@ -1,57 +1,60 @@
-# 周一欧美假期临近 日元交易员警惕干预风险
+# 提高烟草税 如何影响青少年控烟效果
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-日元交易员对周一可能出现的干预风险保持警惕，届时伦敦和纽约等地适逢假期，导致市场流动性下降。 投资者将密切关注东京时段之后的交易情况，届时参与者较少可能会加剧汇率波动。日元兑美元汇率目前徘徊在159附近，接近4月30日以来的最低水平。 交易员对节假日的担心不无道理。4月30日正值日本黄金周期间，日本政府进入外汇市场，在5月6日结束前，可能购买了高达10万亿日元（630亿美元）。
+“提高烟草税是国际公认最有效、最具成本效益的控烟措施之一。”在近日召开的“烟草税与健康”媒体沟通会上，中日友好医院控制吸烟与呼吸疾病防控部主任、世界卫生组织戒烟与呼吸疾病预防合作中心执行主任、北京市控制吸烟协会会长肖丹表示，世界卫生组织资料显示，烟草价格每提高10%，高收入国家烟草消费量约下降4%，低收入和中等收入国家约下降5%，对青少年、低收入人群和轻度吸烟者影响更明显。中国
 
 ## 正文
 
-日元交易员对周一可能出现的干预风险保持警惕，届时伦敦和纽约等地适逢假期，导致市场流动性下降。
+“提高烟草税是国际公认最有效、最具成本效益的控烟措施之一。
 
-投资者将密切关注东京时段之后的交易情况，届时参与者较少可能会加剧汇率波动。
+”在近日召开的“烟草税与健康”媒体沟通会上，中日友好医院控制吸烟与呼吸疾病防控部主任、世界卫生组织戒烟与呼吸疾病预防合作中心执行主任、北京市控制吸烟协会会长肖丹表示，世界卫生组织资料显示，烟草价格每提高10%，高收入国家烟草消费量约下降4%，低收入和中等收入国家约下降5%，对青少年、低收入人群和轻度吸烟者影响更明显。
 
-日元兑美元汇率目前徘徊在159附近，接近4月30日以来的最低水平。
+中国工程院院士王辰表示，对于中国这样的人口大国和吸烟人数众多的国家，控烟是最重要、最明确、最可行的公共卫生措施之一。
 
-交易员对节假日的担心不无道理。
+根据中国疾病预防控制中心发布的《2024年中国成人烟草调查主要结果和发现》，我国15岁及以上人群吸烟率已由2010年的28.1%下降至2024年的23.2%，但距离“健康中国2030”提出的20%以下目标仍有差距。
 
-4月30日正值日本黄金周期间，日本政府进入外汇市场，在5月6日结束前，可能购买了高达10万亿日元（630亿美元）。
+针对“烟草不是必需品为什么却让很多人离不了”这个问题，肖丹表示，烟草并非必需品，吸烟者感觉“离不了”的核心原因是烟草依赖。
 
-“日元再次全面走弱，”TJM Europe外汇销售和交易董事总经理Neil Jones表示，“日本财务省完全可能考虑在周一东京市场结束前抛售美元兑日元。
+烟草依赖是慢性成瘾性疾病，戒烟不能仅靠意志力。
 
-” 过去三个月里，由于中东战争导致油价上涨，加剧了通胀担忧，日元在G10货币中表现落后。
+她强调，所谓“离不了”更多是烟草依赖造成的主观感受，并不意味着无法戒断，通过科学戒烟支持与规范治疗，很多吸烟者能够成功摆脱依赖。
 
-此外，在日本首相高市早苗要求增加预算之后，市场对其支出计划的担忧进一步加剧了日元的压力。
+在肖丹看来，目前仍有大量吸烟者有戒烟意愿，税价政策可推动更多吸烟者从“知道有害但不行动”转向“开始考虑并尝试戒烟”。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:08 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 22:06 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 21:49 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 21:57 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 21:59 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 22:09 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 22:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 21:42 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 22:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 22:04 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 22:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 21:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
+- 2026-06-29 22:09 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 22:07 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 21:54 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 22:06 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 21:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 21:52 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 21:48 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 21:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 22:13 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 22:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 22:17 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:08 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/977153.shtml)
-- 2026-06-29 21:59 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/35765091558.shtml)
-- 2026-06-29 22:09 - [炽夏](https://www.blog.kurohicncr.top/Article/details/63401.shtml)
-- 2026-06-29 22:10 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/66381192.shtml)
-- 2026-06-29 21:58 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/13129.shtml)
-- 2026-06-29 21:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/380693862.shtml)
-- 2026-06-29 22:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/824100.shtml)
-- 2026-06-29 22:03 - [温网](http://www.blog.minike.top/Article/details/138991863513.shtml)
-- 2026-06-29 21:52 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/7123015.shtml)
-- 2026-06-29 22:07 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/4758614.shtml)
-- 2026-06-29 21:58 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/540329.shtml)
-- 2026-06-29 22:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/321817667.shtml)
-- 2026-06-29 22:08 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/832138127520.shtml)
-- 2026-06-29 21:58 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/70876.shtml)
-- 2026-06-29 22:05 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/36943308.shtml)
+- 2026-06-29 22:07 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/675707658.shtml)
+- 2026-06-29 22:15 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/31184919209.shtml)
+- 2026-06-29 22:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/7938812952.shtml)
+- 2026-06-29 21:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/452389415.shtml)
+- 2026-06-29 21:51 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/490720068.shtml)
+- 2026-06-29 22:17 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/2098492842.shtml)
+- 2026-06-29 21:59 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/4222152471.shtml)
+- 2026-06-29 22:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/871456229.shtml)
+- 2026-06-29 21:54 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/974259125.shtml)
+- 2026-06-29 22:00 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/96965650144.shtml)
+- 2026-06-29 21:54 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/21349.shtml)
+- 2026-06-29 21:48 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/297087686689.shtml)
+- 2026-06-29 22:17 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/939684795344.shtml)
+- 2026-06-29 21:52 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/01769991.shtml)
+- 2026-06-29 21:48 - [T1 3-0 KC赛后数据](https://www.blog.kurohicncr.top/Article/details/596847.shtml)

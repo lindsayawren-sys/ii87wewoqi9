@@ -1,50 +1,56 @@
-# 伊朗议长称敌人正寻求新一轮战争
+# 在“生命禁区”长出凝聚力
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社德黑兰5月20日电据伊朗媒体报道，伊朗伊斯兰议会议长卡利巴夫20日称，伊朗武装力量已充分利用停火机会重建自身能力。“敌人明里暗里的活动表明他们正在寻求新一轮战争”。（完）责任编辑：宋雅芳
+铸牢中华民族共同体意识丨在“生命禁区”长出凝聚力 海拔4600米至5200米的喀喇昆仑山腹地，氧气稀薄，冬季气温常跌破零下30摄氏度。这里被称作“生命禁区”，苦寒荒芜是这片土地最鲜明的标签。 然而，就在这片不毛之地上，新疆和田大红柳滩稀有金属矿开发建设项目(以下简称“大红柳滩项目”)逆势跑出了发展加速度：2026年一季度，项目产值同比增长423.8%，利润环比激增956.76%
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+铸牢中华民族共同体意识丨在“生命禁区”长出凝聚力 海拔4600米至5200米的喀喇昆仑山腹地，氧气稀薄，冬季气温常跌破零下30摄氏度。
 
-新华社德黑兰5月20日电据伊朗媒体报道，伊朗伊斯兰议会议长卡利巴夫20日称，伊朗武装力量已充分利用停火机会重建自身能力。
+这里被称作“生命禁区”，苦寒荒芜是这片土地最鲜明的标签。
 
-“敌人明里暗里的活动表明他们正在寻求新一轮战争”。
+然而，就在这片不毛之地上，新疆和田大红柳滩稀有金属矿开发建设项目(以下简称“大红柳滩项目”)逆势跑出了发展加速度：2026年一季度，项目产值同比增长423.8%，利润环比激增956.76%；与此同时，职工满意度高达98.33%。
 
-（完）责任编辑：宋雅芳
+一组看似矛盾却真实发生的数据背后，是一群高原建设者把“锂”想照进现实、将“苦寒之地”变成“幸福高地”的生动写照。
+
+项目稳产增产、效益攀升的实践充分证明：铸牢中华民族共同体意识一旦深度嵌入生产经营全链条，民族团结就不再是纸面标语，而成为赋能产能释放、优化运营管理、驱动技术创新的核心内生动力。
+
+融出来的凝聚力 6月4日清晨，大红柳滩项目厂区，脱水工序乙班副班长张玉宣正带队巡检设备。
+
+几年前，他还是个生手，师傅吐尔逊江·阿不列孜手把手教他认识每一根管道、每一个阀门。
+
+如今，张玉宣已成为技术骨干，在渣浆泵旁耐心教新职工听声音、看磨损、换零件。
 
 ## 相关推荐
 
-- 2026-06-29 21:42 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 21:59 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 22:11 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 22:00 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
-- 2026-06-29 22:07 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-29 22:02 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 22:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-29 22:00 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 21:44 - [媒体评恋与深空用“引狼入室”台词](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-29 22:07 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 21:55 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 21:42 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 21:51 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 21:53 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 21:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 22:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 22:08 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-29 21:50 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 21:54 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 22:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 21:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
+- 2026-06-29 22:14 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [沙丘](http://www.share.kurohicncr.top/Article/details/9101915779.shtml)
-- 2026-06-29 22:04 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/8586898.shtml)
-- 2026-06-29 21:51 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/032942962139.shtml)
-- 2026-06-29 21:53 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/756392297707.shtml)
-- 2026-06-29 21:51 - [孙俪开QQ的蛮好生活](https://www.share.minike.top/Article/details/5676885.shtml)
-- 2026-06-29 22:02 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/459628017946.shtml)
-- 2026-06-29 22:08 - [中国网友锐评韩国队外网爆火](https://www.share.minike.top/Article/details/219373742.shtml)
-- 2026-06-29 21:50 - [明星大侦探第一季](http://www.share.minike.top/Article/details/10332.shtml)
-- 2026-06-29 21:43 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/597093052831.shtml)
-- 2026-06-29 22:06 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/3332705817.shtml)
-- 2026-06-29 21:49 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/016789943890.shtml)
-- 2026-06-29 22:11 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/99713.shtml)
-- 2026-06-29 21:59 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/77092504.shtml)
-- 2026-06-29 21:50 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/5690385381.shtml)
-- 2026-06-29 22:03 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/26859888374.shtml)
+- 2026-06-29 22:01 - [世界杯](https://www.share.kurohicncr.top/Article/details/327004.shtml)
+- 2026-06-29 21:49 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/53849.shtml)
+- 2026-06-29 22:02 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/56865.shtml)
+- 2026-06-29 21:54 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/77850679.shtml)
+- 2026-06-29 21:54 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/8691972649.shtml)
+- 2026-06-29 22:02 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/9885194.shtml)
+- 2026-06-29 21:53 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/8306522.shtml)
+- 2026-06-29 21:54 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/519211.shtml)
+- 2026-06-29 22:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/744723646.shtml)
+- 2026-06-29 21:51 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/05614.shtml)
+- 2026-06-29 21:58 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/88460623.shtml)
+- 2026-06-29 22:07 - [记者暗访养老机构消防安全](https://www.blog.minike.top/Article/details/2439530549.shtml)
+- 2026-06-29 21:59 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/21604793.shtml)
+- 2026-06-29 22:15 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/344421094.shtml)
+- 2026-06-29 22:06 - [中外合作办学是“低分捷径”吗](https://www.blog.minike.top/Article/details/26110.shtml)

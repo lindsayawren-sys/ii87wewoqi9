@@ -1,61 +1,56 @@
-# 人工智能热潮席卷欧洲，多只相关个股年内暴涨超100%
+# “诗约四海”全球中文诗友会芒种雅集在南京收官 中外青年共赴诗词之约
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-核心要点 人工智能产业热潮目前仍由中美企业主导，但随着资金涌入布局人工智能底层基建的欧洲科技企业，多家欧洲相关个股今年股价迎来强势大涨。 半导体设备商爱思强年内涨幅达 189%；同属芯片制程设备领域的泰科诺普大涨 129%；欧洲芯片巨头意法半导体2026 年涨幅达 133%； 老牌通信巨头诺基亚转型布局人工智能赛道后，年内股价飙升 108%。 近年来，中美企业凭借前沿大模型与高
+中新网南京6月6日电 (记者 徐珊珊)6月5日，“诗约四海”全球中文诗友会芒种雅集收官活动在南京师范大学随园校区举行。400余名中外嘉宾齐聚一堂，以诗会友，共品中华诗词之美。活动由教育部中外语言交流合作中心、南京师范大学、南京大学、南京艺术学院联合主办。 该活动自4月20日在北京启动以来，先后在吉尔吉斯斯坦比什凯克、乌兹别克斯坦塔什干等六国七城举办线下诗会，收到来自93个国家的
 
 ## 正文
 
-核心要点 人工智能产业热潮目前仍由中美企业主导，但随着资金涌入布局人工智能底层基建的欧洲科技企业，多家欧洲相关个股今年股价迎来强势大涨。
+中新网南京6月6日电 (记者 徐珊珊)6月5日，“诗约四海”全球中文诗友会芒种雅集收官活动在南京师范大学随园校区举行。
 
-半导体设备商爱思强年内涨幅达 189%；同属芯片制程设备领域的泰科诺普大涨 129%；欧洲芯片巨头意法半导体2026 年涨幅达 133%； 老牌通信巨头诺基亚转型布局人工智能赛道后，年内股价飙升 108%。
+400余名中外嘉宾齐聚一堂，以诗会友，共品中华诗词之美。
 
-近年来，中美企业凭借前沿大模型与高端算力芯片优势，成为人工智能浪潮最大受益者。
+活动由教育部中外语言交流合作中心、南京师范大学、南京大学、南京艺术学院联合主办。
 
-摩根大通跨资产策略主管法比奥・巴希表示，随着算力需求持续攀升，投资资金开始流向数据中心、网络设备、芯片制造设备，以及电力、温控、软件工具等人工智能配套产业，资金也顺势涌入欧洲相关标的。
+该活动自4月20日在北京启动以来，先后在吉尔吉斯斯坦比什凯克、乌兹别克斯坦塔什干等六国七城举办线下诗会，收到来自93个国家的700余份创意视频作品。
 
-他称：“欧洲本土纯正且流动性充足的人工智能龙头标的数量稀少，资金因此扎堆涌入少数具备 AI 关联属性的标的，既贴合真实产业需求，也形成资金抱团行情。
+收官仪式上，教育部中外语言交流合作中心主任郁云峰、南京师范大学党委书记尚庆飞等嘉宾为视频征集活动获奖者颁奖。
 
-” 行情热潮 德国爱思强主营半导体镀膜沉积高端设备，过去十二个月股价涨幅超 300%，在斯托克欧洲 600 指数成分股中涨幅位居第二，仅次于药企阿比维克斯。
+在“诗润当下”环节，南京师范大学教授郦波与来自布隆迪的班超、哥斯达黎加的何诗怡、德国的马闻哲三位留学生展开对谈。
 
-花旗银行 4 月发布研报，上调爱思强目标价超 66%，理由是公司订单需求与盈利水平持续向好，并指出人工智能产业需求是其 2026 年业绩指引的核心支撑。
+班超表示，东汉班超连通丝绸之路，他取同名“是为激励自己与汉学结伴、与中国同行”。
 
-晨星资深股票分析师布莱恩・科莱洛表示：“人工智能产业建设拉动全品类半导体需求，利好意法半导体等同业企业。
+何诗怡用“海内存知己，天涯若比邻”形容留学生之间的跨国友谊。
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 21:58 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 22:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 21:44 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 21:44 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 21:43 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
-- 2026-06-29 21:58 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-29 21:49 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 21:44 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-29 22:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 21:52 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-29 21:46 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 22:03 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 21:56 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-29 21:53 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 22:10 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 22:05 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 21:59 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 21:50 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 21:54 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 22:01 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 21:55 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 22:06 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
+- 2026-06-29 21:54 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 22:11 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/637357.shtml)
-- 2026-06-29 21:56 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/9007197704.shtml)
-- 2026-06-29 22:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/4836914.shtml)
-- 2026-06-29 21:55 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.minike.top/Article/details/449083802.shtml)
-- 2026-06-29 21:58 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/9935656.shtml)
-- 2026-06-29 22:04 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/6206145.shtml)
-- 2026-06-29 22:09 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/823400826.shtml)
-- 2026-06-29 22:10 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/342205.shtml)
-- 2026-06-29 21:45 - [夫妻生活太无聊，所以我……](https://www.share.minike.top/Article/details/45818067413.shtml)
-- 2026-06-29 22:03 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/5708008.shtml)
-- 2026-06-29 22:00 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/620947306.shtml)
-- 2026-06-29 21:55 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/279859121.shtml)
-- 2026-06-29 21:47 - [湖南姑娘被东北同事带偏口音](https://www.blog.minike.top/Article/details/074783.shtml)
-- 2026-06-29 22:11 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.minike.top/Article/details/72369458.shtml)
-- 2026-06-29 21:56 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/8708397655.shtml)
+- 2026-06-29 21:57 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/7102116191.shtml)
+- 2026-06-29 22:16 - [小娘惹](https://www.share.kurohicncr.top/Article/details/103891304606.shtml)
+- 2026-06-29 21:53 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/01514460.shtml)
+- 2026-06-29 22:13 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/252252359.shtml)
+- 2026-06-29 22:11 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/20091.shtml)
+- 2026-06-29 21:53 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/96629857.shtml)
+- 2026-06-29 21:49 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/471395.shtml)
+- 2026-06-29 22:11 - [急先锋](https://www.share.minike.top/Article/details/136490164.shtml)
+- 2026-06-29 22:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/374676.shtml)
+- 2026-06-29 21:48 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/462575612716.shtml)
+- 2026-06-29 21:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/9025488615.shtml)
+- 2026-06-29 22:14 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/79919.shtml)
+- 2026-06-29 21:51 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/7896547520.shtml)
+- 2026-06-29 21:53 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/757773508.shtml)
+- 2026-06-29 22:08 - [吴建豪和老婆差20岁](http://www.share.minike.top/Article/details/162531.shtml)

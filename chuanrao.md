@@ -1,56 +1,56 @@
-# 中信建投期货：5月21日能化早报
+# 一边罚款过百万，一边狂卖5亿瓶：“五个女博士”经营暗藏五大隐忧
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-橡胶：日内波动放大，预计下方空间有限 周三，国产全乳胶17500/吨，环比上日下跌150元/吨；泰国20号混合胶17130元/吨，环比上日下跌90元/吨。 原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收67.8泰铢/公斤，环比上日持平；云南胶水报收16.6元/公斤，环比上日持平；海南胶水报收16.7元/公斤，环比上日持平。 截至2026年5月17日，中国天然橡胶
+当一款普通风味饮料以“口服美容神器”的名义卖出5亿瓶，当高知光环背后的产品连保健食品资质都不具备，当罚款不断却丝毫未能阻挡其增长势头——网红口服美容品牌“五个女博士”的“金刚不坏之身”，究竟能维持多久？ “老公气我，喝！熬夜追剧，喝！又老一岁，喝！”2023年，这则饱含情绪宣泄的电梯广告将“五个女博士”推向舆论风口。北京市朝阳区市场监督管理局因该广告“违背社会良好风尚”对品牌关
 
 ## 正文
 
-橡胶：日内波动放大，预计下方空间有限 周三，国产全乳胶17500/吨，环比上日下跌150元/吨；泰国20号混合胶17130元/吨，环比上日下跌90元/吨。
+当一款普通风味饮料以“口服美容神器”的名义卖出5亿瓶，当高知光环背后的产品连保健食品资质都不具备，当罚款不断却丝毫未能阻挡其增长势头——网红口服美容品牌“五个女博士”的“金刚不坏之身”，究竟能维持多久？
 
-原料端：泰国胶水报收84泰铢/公斤，环比上日持平；泰国杯胶报收67.8泰铢/公斤，环比上日持平；云南胶水报收16.6元/公斤，环比上日持平；海南胶水报收16.7元/公斤，环比上日持平。
+“老公气我，喝！
 
-截至2026年5月17日，中国天然橡胶社会库存131.6万吨，环比下降1.1万吨，降幅0.8%。
+熬夜追剧，喝！
 
-中国深色胶社会总库存为90.6万吨，降幅1%。
+又老一岁，喝！
 
-其中青岛现货库存降0.5%；云南降2.4%；越南10降13%；NR库存小计降3.4%。
+”2023年，这则饱含情绪宣泄的电梯广告将“五个女博士”推向舆论风口。
 
-中国浅色胶社会总库存为41万吨，环比降0.4%。
+北京市朝阳区市场监督管理局因该广告“违背社会良好风尚”对品牌关联公司开出40万元罚单，广告制作方和发布商也相继被罚，累计罚款超百万元。
 
-其中老全乳胶环比降1%，3L环比降6%，RU库存小计增加2.7%。
+然而，处罚并未让这家网红品牌收敛。
 
-观点：近期产区的天气条件或相对正常，预计割季将按照季节性顺利推进。
+2025年7月，山东淄博博山区市场监督管理局再次对其经销商作出行政处罚，原因是在京东平台使用“源头防护胶原流失”“符合全球47个国家的食品安全标准”等无法证实的宣传用语，构成虚假广告。
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-29 22:10 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 22:08 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-29 21:45 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 22:08 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 21:42 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flcth.md)
-- 2026-06-29 21:45 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 21:45 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 21:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 22:08 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 22:06 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 21:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
+- 2026-06-29 22:00 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 21:53 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 22:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 22:08 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 21:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 21:49 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-29 22:05 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 22:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:48 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/5088048617.shtml)
-- 2026-06-29 21:58 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/0896459.shtml)
-- 2026-06-29 21:46 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/62974.shtml)
-- 2026-06-29 21:43 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/27256.shtml)
-- 2026-06-29 21:50 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/59848500890.shtml)
-- 2026-06-29 21:46 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/4355084524.shtml)
-- 2026-06-29 22:09 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/2042361.shtml)
-- 2026-06-29 22:03 - [做完数学题 韩国队回家了](http://www.share.minike.top/Article/details/8872629.shtml)
-- 2026-06-29 22:01 - [厨房装空调还是装冷烟机](http://www.share.minike.top/Article/details/29339.shtml)
-- 2026-06-29 22:06 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/0273898426.shtml)
-- 2026-06-29 21:42 - [直击委内瑞拉加拉加斯救援现场](http://www.share.minike.top/Article/details/735859566.shtml)
-- 2026-06-29 21:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/2400264308.shtml)
-- 2026-06-29 21:54 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/0973720.shtml)
-- 2026-06-29 21:52 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/483976.shtml)
-- 2026-06-29 22:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/79128.shtml)
+- 2026-06-29 22:00 - [哈兰德玩游戏连女友都不让着](https://www.share.minike.top/Article/details/38543.shtml)
+- 2026-06-29 21:57 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/9808951004.shtml)
+- 2026-06-29 21:58 - [货车司机恶意闯卡逃费被行拘](https://www.share.kurohicncr.top/Article/details/753433.shtml)
+- 2026-06-29 21:53 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.kurohicncr.top/Article/details/50243612073.shtml)
+- 2026-06-29 22:05 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/20562409.shtml)
+- 2026-06-29 22:02 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/866169094.shtml)
+- 2026-06-29 22:10 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/38682064018.shtml)
+- 2026-06-29 21:54 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/3771870146.shtml)
+- 2026-06-29 22:14 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/86308467907.shtml)
+- 2026-06-29 22:16 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/35260979632.shtml)
+- 2026-06-29 22:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/393833.shtml)
+- 2026-06-29 22:03 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/4315967529.shtml)
+- 2026-06-29 21:51 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/495033460787.shtml)
+- 2026-06-29 22:00 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/73441415356.shtml)
+- 2026-06-29 22:14 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/423302.shtml)

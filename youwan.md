@@ -1,59 +1,59 @@
-# 印度总理赠礼引发资本市场乌龙 一软件企业股价异动上涨
+# 华泰期货：原油价格回调，沥青市场表现相对坚挺
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-受印度总理纳伦德拉·莫迪向意大利总理乔治娅·梅洛尼赠送特定品牌糖果一事发酵影响，印度资本市场出现一起乌龙交易事件。因部分投资者混淆企业名称，印度小型软件企业Parle Industries Ltd遭遇资金盲目买入，其股价单日异常上涨5%，创下近两个月以来的最大涨幅。 据悉，事件直接起因于梅洛尼日前在社交媒体发布的一段视频。视频画面显示，莫迪向其赠送了一包名为“Melody”的焦
+来源：华泰期货 作者： 康远宁 市场分析 1、6月4日沥青期货下午盘收盘行情：主力BU2609合约下午收盘价4339元/吨，较昨日结算价上涨45元/吨；持仓255653手，成交387302手，环比下跌27004手。 2、卓创资讯重交沥青现货结算价：东北，4650—4670元/吨；山东，4350—4620元/吨；华南，4650—4820元/吨；华东，4600—4800元/吨。 当
 
 ## 正文
 
-受印度总理纳伦德拉·莫迪向意大利总理乔治娅·梅洛尼赠送特定品牌糖果一事发酵影响，印度资本市场出现一起乌龙交易事件。
+来源：华泰期货 作者： 康远宁 市场分析 1、6月4日沥青期货下午盘收盘行情：主力BU2609合约下午收盘价4339元/吨，较昨日结算价上涨45元/吨；持仓255653手，成交387302手，环比下跌27004手。
 
-因部分投资者混淆企业名称，印度小型软件企业Parle Industries Ltd遭遇资金盲目买入，其股价单日异常上涨5%，创下近两个月以来的最大涨幅。
+2、卓创资讯重交沥青现货结算价：东北，4650—4670元/吨；山东，4350—4620元/吨；华南，4650—4820元/吨；华东，4600—4800元/吨。
 
-据悉，事件直接起因于梅洛尼日前在社交媒体发布的一段视频。
+当前伊朗局势仍不明朗，市场围绕消息面反复交易美伊达成协议、霍尔木兹海峡开放的预期。
 
-视频画面显示，莫迪向其赠送了一包名为“Melody”的焦糖太妃糖。
+美国总统特朗普最新表示，如果美国与伊朗最终达成协议，他不排除与伊朗新任最高领袖举行会晤的可能性。
 
-该互动引发网络关注后，部分印度投资者误将从事软件业务的上市企业Parle Industries Ltd，等同于该糖果及知名饼干品牌的实际生产商Parle Products Pvt，进而引发了此次脱离企业基本面的异动上涨。
+情绪溢价再度回落。
 
-针对此次市场炒作，相关金融分析人士指出，这显然是一起因身份错认导致的非理性交易行为。
+在油价下跌的同时，沥青现货与期货盘面表现相对坚挺。
 
-Kejriwal研究与投资服务公司创始人阿伦·凯杰里瓦尔（Arun Kejriwal）强调，当前印度资本市场中散户参与度持续攀升，中小投资者已成为一股重要力量，但由于缺乏专业的甄别能力，大量投资者仍极易受碎片化或错误信息误导，进而盲目跟风引发市场波动。
+在炼厂降负减产的背景下，供应端支撑偏强。
 
-责任编辑：龙运翔
+需要炼厂利润修复来驱动增产，从而缓解当前矛盾，这意味着在炼厂生产明显恢复前沥青表现或强于原油端。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-29 21:51 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 22:02 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 21:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 21:59 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 21:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-29 21:43 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 22:10 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 22:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 21:51 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 21:42 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-29 22:00 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 21:51 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 21:53 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 22:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 22:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 21:53 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 22:05 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 21:51 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 21:53 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-29 22:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 22:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 22:02 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 22:11 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 21:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 22:08 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/944993007.shtml)
-- 2026-06-29 22:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/940095552294.shtml)
-- 2026-06-29 21:45 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/23047325.shtml)
-- 2026-06-29 22:09 - [如何看待乌空军3架米格-29被摧毁](http://www.share.kurohicncr.top/Article/details/27257.shtml)
-- 2026-06-29 21:46 - [TI2026参赛战队出炉](https://www.blog.minike.top/Article/details/82556417485.shtml)
-- 2026-06-29 22:06 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/092188.shtml)
-- 2026-06-29 22:00 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/8490217510.shtml)
-- 2026-06-29 22:11 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/4946362157.shtml)
-- 2026-06-29 21:42 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/674181725.shtml)
-- 2026-06-29 21:45 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/264072.shtml)
-- 2026-06-29 22:02 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/94858607958.shtml)
-- 2026-06-29 21:43 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/267545638136.shtml)
-- 2026-06-29 21:52 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/491232.shtml)
-- 2026-06-29 22:09 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/93329504196.shtml)
-- 2026-06-29 21:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/829756284636.shtml)
+- 2026-06-29 21:49 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/047917214.shtml)
+- 2026-06-29 22:05 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/5168275209.shtml)
+- 2026-06-29 21:59 - [王楚钦开门红](https://www.share.kurohicncr.top/Article/details/6381947821.shtml)
+- 2026-06-29 21:57 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/4864326935.shtml)
+- 2026-06-29 22:01 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/21890374746.shtml)
+- 2026-06-29 22:17 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/7159866.shtml)
+- 2026-06-29 21:53 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/6029008.shtml)
+- 2026-06-29 21:56 - [王楚钦开门红](https://www.share.minike.top/Article/details/783849.shtml)
+- 2026-06-29 21:49 - [第一炉香](https://www.share.minike.top/Article/details/4984322142.shtml)
+- 2026-06-29 22:14 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/1037949884.shtml)
+- 2026-06-29 22:00 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/974057.shtml)
+- 2026-06-29 21:58 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/7302443690.shtml)
+- 2026-06-29 21:52 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/1426707424.shtml)
+- 2026-06-29 22:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/88736.shtml)
+- 2026-06-29 22:17 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/774076523160.shtml)

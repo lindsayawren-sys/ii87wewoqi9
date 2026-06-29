@@ -1,56 +1,56 @@
-# 金融科技公司Mercury完成新一轮融资，估值达52亿美元，14个月内大涨49%
+# 上海市高校绿色公益联盟正式成立
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-核心要点 美国消费者新闻与商业频道独家获悉，Mercury 本轮募资 2 亿美元，投后估值 52 亿美元，较上一轮融资估值上涨 49%；本轮融资由 TCV 领投，红杉资本、安德森・霍洛维茨基金、库图资本跟投。 就在此次融资数周前，Mercury 已获得美国货币监理署的附条件批准，可转型为受联邦监管的正规银行。获批后公司可自主开展放贷业务、接入泽勒即时支付系统，并减少对合作银行的
+中新网上海6月5日电 (记者 许婧)上海市高校绿色公益联盟成立仪式暨绿格公益团十周年启动大会5日在上海交通大学闵行校区举行。2026年全国“最美科技工作者”孔海南与2020年全国“最美大学生”、绿格公益团创始人刘智卓共同为新一届团员代表张睿、刘秋凡授旗，接续传承绿色使命。 2016年，上海交大环境学子响应美丽中国建设号召，怀揣“直到风沙止步”的初心理想创立绿格公益团。团队从最初
 
 ## 正文
 
-核心要点 美国消费者新闻与商业频道独家获悉，Mercury 本轮募资 2 亿美元，投后估值 52 亿美元，较上一轮融资估值上涨 49%；本轮融资由 TCV 领投，红杉资本、安德森・霍洛维茨基金、库图资本跟投。
+中新网上海6月5日电 (记者 许婧)上海市高校绿色公益联盟成立仪式暨绿格公益团十周年启动大会5日在上海交通大学闵行校区举行。
 
-就在此次融资数周前，Mercury 已获得美国货币监理署的附条件批准，可转型为受联邦监管的正规银行。
+2026年全国“最美科技工作者”孔海南与2020年全国“最美大学生”、绿格公益团创始人刘智卓共同为新一届团员代表张睿、刘秋凡授旗，接续传承绿色使命。
 
-获批后公司可自主开展放贷业务、接入泽勒即时支付系统，并减少对合作银行的依赖。
+2016年，上海交大环境学子响应美丽中国建设号召，怀揣“直到风沙止步”的初心理想创立绿格公益团。
 
-公司首席执行官伊马德・阿昆德表示，在整个金融科技行业整体遇冷的大环境下，Mercury 逆势增长，年化营收达到 6.5 亿美元，且已连续四年实现盈利；人工智能创业热潮也进一步带动了公司业务扩张。
+团队从最初8人小队起步，十年间不断发展壮大，目前已在甘肃博龙、宁夏石嘴山等地建成三大标准化治沙基地。
 
-这家专为初创企业提供银行金融服务的金融科技企业完成 2 亿美元新一轮融资，投后估值定格在52 亿美元。
+团队结合环境、农学等多学科专业优势，创新草方格固沙、梭梭育苗、肉苁蓉嫁接技术，打造“生态治理+惠农增收”可持续治沙模式。
 
-这家总部位于旧金山的企业，时隔仅 14 个月，估值较上一轮融资大幅攀升 49%，在金融科技行业普遍低迷的行情中实现逆势突围。
+十年来，项目联动海内外百所高校，超过2000名志愿者从世界各地奔赴西北荒漠，累计参与栽种苗木5000余株、固沙8000余亩。
 
-首席执行官伊马德・阿昆德透露，本次为 D 轮融资，由风投机构 TCV 牵头领投 —— 该机构也曾投资过汇元通、努银行等知名金融科技企业，红杉资本、安德森・霍洛维茨、库图资本等原有投资方继续加码入局。
+团队育人成效硕果累累，先后荣获2020年“挑战杯”中国大学生创业计划竞赛金奖、上海交通大学校长奖、上海交通大学年度人物等荣誉，团队创始人刘智卓获评全国“最美大学生”。
 
-疫情时期行业估值泡沫破裂后，多数金融科技企业发展遇阻，但 Mercury 与兰普、思杰支付等同赛道头部企业依旧保持稳健发展，成为行业内少数保持高增长的企业。
+多名团员毕业后选择扎根基层，继续投身生态环保事业，在生态文明建设舞台上发光发热。
 
 ## 相关推荐
 
-- 2026-06-29 21:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 21:43 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 21:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 22:08 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 21:44 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 22:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 22:05 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 21:48 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-29 22:08 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 22:07 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 22:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 22:04 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 21:51 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 22:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 21:49 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 21:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 22:16 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 22:15 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 21:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 22:03 - [一诺变着花样秀新驾照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [曼城官宣马雷斯卡出任主教练](http://www.blog.minike.top/Article/details/95484377.shtml)
-- 2026-06-29 21:42 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/82303437004.shtml)
-- 2026-06-29 22:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/6438570784.shtml)
-- 2026-06-29 22:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/240266.shtml)
-- 2026-06-29 22:05 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/124753515869.shtml)
-- 2026-06-29 22:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/41270.shtml)
-- 2026-06-29 22:10 - [周生如故](https://www.blog.kurohicncr.top/Article/details/8956604.shtml)
-- 2026-06-29 22:04 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/59808.shtml)
-- 2026-06-29 21:50 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/070471454941.shtml)
-- 2026-06-29 21:48 - [肝不好身体这几处会“说话”](https://www.blog.kurohicncr.top/Article/details/31047.shtml)
-- 2026-06-29 21:44 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/80556239.shtml)
-- 2026-06-29 22:06 - [C罗10球7球对垫底队](https://www.share.kurohicncr.top/Article/details/081172576.shtml)
-- 2026-06-29 21:57 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/95290.shtml)
-- 2026-06-29 22:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.kurohicncr.top/Article/details/725748.shtml)
-- 2026-06-29 22:04 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/1960541230.shtml)
+- 2026-06-29 22:04 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/597974393769.shtml)
+- 2026-06-29 21:57 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.kurohicncr.top/Article/details/677523913616.shtml)
+- 2026-06-29 22:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/238654713.shtml)
+- 2026-06-29 22:03 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/10670586524.shtml)
+- 2026-06-29 21:56 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/03390.shtml)
+- 2026-06-29 22:07 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/3764101302.shtml)
+- 2026-06-29 21:55 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/8574203.shtml)
+- 2026-06-29 22:17 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/103551318.shtml)
+- 2026-06-29 22:09 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/749924539828.shtml)
+- 2026-06-29 22:06 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/03631646163.shtml)
+- 2026-06-29 22:03 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/126238.shtml)
+- 2026-06-29 22:00 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/29573224.shtml)
+- 2026-06-29 21:57 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/95297203381.shtml)
+- 2026-06-29 21:52 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/92067825.shtml)
+- 2026-06-29 22:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/01696238221.shtml)

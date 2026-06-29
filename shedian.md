@@ -1,49 +1,59 @@
-# 韩国将把燃料税减免优惠延长至7月底
+# 谎称售卖“2026高考试题”，江西网警侦破涉高考诈骗案
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-媒体周四援引韩国企划财政部报导称，韩国将把燃料税减免优惠措施延长两个月，至7月底。 报导称，此举是政府为缓解燃料价格上涨给驾驶带来负担所采取的措施之一。责任编辑：王永生
+江西省宜春市网警侦破一起涉高考诈骗案，违法行为人在直播中宣称有“2026高考流出试题答案”，并企图以每份“试卷”2000元价格向他人出售，最后被抓获。 2026年6月5日，据“公安部网安局”微信公众号消息，公安网安部门高度重视高考网上安保工作，近日，江西宜春公安网安部门工作发现，网上有多条配有所谓“高考试卷袋”图片的视频，其制作人在直播中宣称有“2026高考流出试题答案”。 宜
 
 ## 正文
 
-媒体周四援引韩国企划财政部报导称，韩国将把燃料税减免优惠措施延长两个月，至7月底。
+江西省宜春市网警侦破一起涉高考诈骗案，违法行为人在直播中宣称有“2026高考流出试题答案”，并企图以每份“试卷”2000元价格向他人出售，最后被抓获。
 
-报导称，此举是政府为缓解燃料价格上涨给驾驶带来负担所采取的措施之一。
+2026年6月5日，据“公安部网安局”微信公众号消息，公安网安部门高度重视高考网上安保工作，近日，江西宜春公安网安部门工作发现，网上有多条配有所谓“高考试卷袋”图片的视频，其制作人在直播中宣称有“2026高考流出试题答案”。
 
-责任编辑：王永生
+宜春公安网安部门迅速开展调查，查明违法行为人况某实施诈骗的情况：该况于今年5月开始，在网上注册名为“高考加油”的短视频账号，连续发布了11条附有“2026年普通高等学校招生全国统一考试试卷袋”图片的视频，给网民制造其有“高考试卷”的假象。
+
+其后，况某趁网民向其询问“高考试卷”时，企图以每份“试卷”2000元价格向他人出售。
+
+因被公安机关及时查获，3名曾咨询索要“高考试卷”的网民避免了上当受骗。
+
+目前，属地公安机关已对行为人况某依法采取措施，并对其短视频账号进行关停处理。
+
+宜春网警提醒，此类诈骗通常遵循以下“三步走”套路：第一步：撒网引流。
+
+在短视频、贴吧、微信群等网络平台发布“有真题”“有门路”的虚假广告，利用考生焦虑心理吸引关注。
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 21:48 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 21:51 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 21:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 21:55 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-29 21:57 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 22:08 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 21:45 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 21:42 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 21:42 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 22:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
-- 2026-06-29 21:52 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 21:58 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:09 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
+- 2026-06-29 21:50 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 22:01 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 21:59 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-29 21:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 22:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 22:11 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 21:50 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-29 22:06 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 22:03 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 22:07 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 22:13 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 22:02 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [欧洲缘何成为变暖最快的大洲](http://www.blog.minike.top/Article/details/98756108196.shtml)
-- 2026-06-29 21:49 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/661131.shtml)
-- 2026-06-29 22:06 - [田曦薇没招了](https://www.blog.minike.top/Article/details/3882854617.shtml)
-- 2026-06-29 22:04 - [一诺变着花样秀新驾照](https://www.share.kurohicncr.top/Article/details/709938.shtml)
-- 2026-06-29 22:03 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/19616499620.shtml)
-- 2026-06-29 21:57 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/4590502720.shtml)
-- 2026-06-29 21:51 - [片寄凉太胖了好多](http://www.share.kurohicncr.top/Article/details/67961535273.shtml)
-- 2026-06-29 21:47 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/876890.shtml)
-- 2026-06-29 21:50 - [恋与深空致歉](https://www.share.kurohicncr.top/Article/details/3721600.shtml)
-- 2026-06-29 21:49 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/6336806104.shtml)
-- 2026-06-29 21:52 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/466595.shtml)
-- 2026-06-29 22:07 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/640973.shtml)
-- 2026-06-29 22:02 - [锐评白玉兰提名片段](https://www.share.kurohicncr.top/Article/details/81330466.shtml)
-- 2026-06-29 21:45 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/63075.shtml)
-- 2026-06-29 21:56 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/3680938881.shtml)
+- 2026-06-29 22:15 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/453838526.shtml)
+- 2026-06-29 22:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/16799632.shtml)
+- 2026-06-29 22:05 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/1927448451.shtml)
+- 2026-06-29 22:05 - [朱雀三号完成静态点火试验](http://www.blog.kurohicncr.top/Article/details/77005564.shtml)
+- 2026-06-29 21:53 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.minike.top/Article/details/1858212402.shtml)
+- 2026-06-29 22:13 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/395824522.shtml)
+- 2026-06-29 21:54 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/453440574.shtml)
+- 2026-06-29 22:13 - [媒体：日本边磨刀边要货是做梦](https://www.share.minike.top/Article/details/2375385086.shtml)
+- 2026-06-29 22:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/6129224.shtml)
+- 2026-06-29 21:57 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/80084.shtml)
+- 2026-06-29 22:13 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/65886266310.shtml)
+- 2026-06-29 22:11 - [曝iPhone涨价后不会再降](https://www.share.kurohicncr.top/Article/details/6317883.shtml)
+- 2026-06-29 22:11 - [法拉利车主已自行承担修理费近3万](http://www.blog.minike.top/Article/details/92495.shtml)
+- 2026-06-29 22:02 - [田曦薇没招了](https://www.share.kurohicncr.top/Article/details/8781756459.shtml)
+- 2026-06-29 21:52 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/955808.shtml)

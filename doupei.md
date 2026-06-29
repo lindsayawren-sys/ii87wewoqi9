@@ -1,60 +1,60 @@
-# 专业人士：香港为内地企业出海提供关键支撑
+# 华尔街预计到2030年SpaceX的人工智能业务收入将增长100倍
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新社北京5月21日电 (黄欣欣 张晓曦)“我们的业务涉及海外40余个国家，始终选择香港，作为(企业)出海最有力的平台支撑。”金风国际控股(香港)有限公司(以下简称“金风国际”)副总经理隋晓雯21日在北京表示。当天，香港特区政府驻北京办事处与中国香港(地区)商会联合举办“新时期 新势能 战略与实践分享会”。 香港已成为内地企业加速国际化布局的重要平台。作为清洁能源企业的国际业务
+华尔街研究分析师告诉SpaceX首次公开募股（IPO）的潜在投资者，模型预计该公司人工智能（AI）部门收入将在本十年末增长100倍，以此来证明1.8万亿美元的目标估值是合理的。 据一位知情人士透露，Evercore ISI研究分析师预计，SpaceX的AI部门到2031年销售额将达到7550亿美元，远高于去年的32亿美元。知情人士还表示，研究团队预计到2031年的总收入将超过1
 
 ## 正文
 
-中新社北京5月21日电 (黄欣欣 张晓曦)“我们的业务涉及海外40余个国家，始终选择香港，作为(企业)出海最有力的平台支撑。
+华尔街研究分析师告诉SpaceX首次公开募股（IPO）的潜在投资者，模型预计该公司人工智能（AI）部门收入将在本十年末增长100倍，以此来证明1.8万亿美元的目标估值是合理的。
 
-”金风国际控股(香港)有限公司(以下简称“金风国际”)副总经理隋晓雯21日在北京表示。
+据一位知情人士透露，Evercore ISI研究分析师预计，SpaceX的AI部门到2031年销售额将达到7550亿美元，远高于去年的32亿美元。
 
-当天，香港特区政府驻北京办事处与中国香港(地区)商会联合举办“新时期 新势能 战略与实践分享会”。
+知情人士还表示，研究团队预计到2031年的总收入将超过1万亿美元，而2025年的收入为187亿美元。
 
-香港已成为内地企业加速国际化布局的重要平台。
+由于信息尚未公开，知情人士要求匿名。
 
-作为清洁能源企业的国际业务控股平台，金风国际2010年在香港成立。
+华尔街公司周四上午与潜在买家会面，推介埃隆·马斯克麾下这家集火箭、卫星和AI业务于一身公司的历史性IPO交易。
 
-“从2009年起披露可持续发展报告，2020年‘碳中和’概念兴起后，我们发现过去基于香港监管标准打下的基础有多么重要。
+该公司此前启动规模750亿美元IPO的推介流程，预计将成为有史以来规模最大的IPO交易，发行价为每股135美元。
 
-”隋晓雯说，香港的合规要求帮助公司获得国际客户信任。
+高盛集团的研究团队列出了本十年结束之前的宏大预期目标，据部分知情人士透露，分析师预计到2030年总收入将达到4740亿美元，AI收入预计届时将增长约100倍，达到近3220亿美元。
 
-她介绍，该公司早期主攻北美等市场，海外业绩不被境外银行认可，只能依靠自有资金自建绿地项目、运营数年后再转让，这种重资产模式难以大规模复制。
+一位知情人士表示，Evercore预测2030年总收入将达到4860亿美元，AI收入将达到3310亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 22:05 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 22:04 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 22:09 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 21:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 21:53 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-29 22:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 21:53 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 22:06 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 21:50 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 22:02 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 21:58 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 21:56 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 22:03 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 22:12 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 22:08 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 21:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-29 22:14 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 21:49 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 22:15 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 22:13 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 22:04 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 21:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 22:08 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 22:10 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-29 21:53 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 21:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 22:04 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/5161347.shtml)
-- 2026-06-29 22:03 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/354212980.shtml)
-- 2026-06-29 21:57 - [媒体：“虹吸执法”权力寻租该翻篇了](https://www.share.kurohicncr.top/Article/details/9953693414.shtml)
-- 2026-06-29 22:05 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/133231608389.shtml)
-- 2026-06-29 21:45 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/1813600.shtml)
-- 2026-06-29 21:50 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/30691755.shtml)
-- 2026-06-29 22:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/6172965.shtml)
-- 2026-06-29 21:52 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/821516.shtml)
-- 2026-06-29 21:56 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/379217930624.shtml)
-- 2026-06-29 21:52 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/566453465.shtml)
-- 2026-06-29 21:52 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/6437734979.shtml)
-- 2026-06-29 21:51 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/852132028294.shtml)
-- 2026-06-29 21:52 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/6774165904.shtml)
-- 2026-06-29 21:45 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/06519.shtml)
-- 2026-06-29 22:06 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/3261935334.shtml)
+- 2026-06-29 22:15 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/5886465566.shtml)
+- 2026-06-29 21:56 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/634051.shtml)
+- 2026-06-29 21:52 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/020538.shtml)
+- 2026-06-29 22:13 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/924097467.shtml)
+- 2026-06-29 21:59 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/330706000.shtml)
+- 2026-06-29 22:15 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/685390125.shtml)
+- 2026-06-29 21:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/23114.shtml)
+- 2026-06-29 22:15 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/925257.shtml)
+- 2026-06-29 21:59 - [回顾世界杯争议事件](http://www.blog.minike.top/Article/details/2710444999.shtml)
+- 2026-06-29 22:05 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/4117230385.shtml)
+- 2026-06-29 22:13 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/546961389895.shtml)
+- 2026-06-29 22:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/08633550.shtml)
+- 2026-06-29 22:17 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/89987.shtml)
+- 2026-06-29 22:02 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/58786794.shtml)
+- 2026-06-29 22:03 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/1396357609.shtml)

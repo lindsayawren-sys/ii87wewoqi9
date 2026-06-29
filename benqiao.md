@@ -1,61 +1,58 @@
-# 印度为稳定卢比汇率绞尽脑汁 据悉在讨论加息、发美元债等多种方案
+# Coinbase上线SpaceX上市前永续合约，投资者可提前“买入”SpaceX相关权益
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-据知情人士透露，印度央行正在考虑所有稳定卢比汇率的可用办法，包括加息、增加货币互换以及从海外投资者处筹集美元。 他们称，在卢比本周跌到1美元兑97卢比边缘、再创新低后，包括行长Sanjay Malhotra在内，印度央行高层官员已召开一系列内部会议，讨论可行行动方案。由于事未公开，知情人士要求匿名。 其中一人称，在议方案之一是上调利率。下一次货币政策会议举行时间是6月5日，不过
+核心要点 Coinbase 于周四正式推出新品，用户可在企业 IPO 挂牌前参与其价格行情交易，首款产品为锚定 SpaceX 的永续期货（业内简称 perp）。 IPO 前置永续合约无需交易者实际持有目标公司股权，即可博弈非上市企业估值变化。Coinbase 首期上线 SpaceX 上市前永续合约，该衍生品以稳定币 USDC 结算，价格对标马斯克旗下航天公司的私募市场估值，仅限
 
 ## 正文
 
-据知情人士透露，印度央行正在考虑所有稳定卢比汇率的可用办法，包括加息、增加货币互换以及从海外投资者处筹集美元。
+核心要点 Coinbase 于周四正式推出新品，用户可在企业 IPO 挂牌前参与其价格行情交易，首款产品为锚定 SpaceX 的永续期货（业内简称 perp）。
 
-他们称，在卢比本周跌到1美元兑97卢比边缘、再创新低后，包括行长Sanjay Malhotra在内，印度央行高层官员已召开一系列内部会议，讨论可行行动方案。
+IPO 前置永续合约无需交易者实际持有目标公司股权，即可博弈非上市企业估值变化。
 
-由于事未公开，知情人士要求匿名。
+Coinbase 首期上线 SpaceX 上市前永续合约，该衍生品以稳定币 USDC 结算，价格对标马斯克旗下航天公司的私募市场估值，仅限美国以外地区投资者参与交易。
 
-其中一人称，在议方案之一是上调利率。
+当下优质企业私有化存续周期不断拉长，普通散户想要在明星公司登陆二级市场前布局的需求持续攀升；而这类投资机会过去仅面向风投、私募及合格投资者开放，Coinbase 这款产品顺势落地。
 
-下一次货币政策会议举行时间是6月5日，不过印度央行曾在2022年5月进行过一次超常规利率调整。
+Coinbase 衍生品主管莉兹・马丁表示：“对交易者而言，配置高景气、低相关性资产的需求空前旺盛。
 
-印度债券扭涨为跌；受印度央行宣布注入流动性影响，收益率早盘一度下跌6个基点。
+我们已经搭建起合规可信的加密货币交易平台，如今依托这套交易体系，让用户在顶尖未上市企业挂牌证券交易所之前就能参与其价格交易，这是适配当下市场环境的全新资产品类。
 
-卢比兑美元汇率上涨0.5%，报96.33。
+” 全球头部加密交易所币安已于上月先行上线 SpaceX 同类 IPO 前置永续产品。
 
-另一位知情人士表示，其他措施还包括，通过一个面向印度侨民的存款计划以及发行美元主权债在海外筹集美元资金；后者将由政府定夺。
+本周加密货币大盘接连创出新低，比特币周四跌至 61340.71 美元，创下 2 月 6 日以来最低价位；在此行情环境下推出新品，也助力 Coinbase 落地 “全品类交易所” 战略：即便现货行情走弱、现货交易量萎缩，平台依旧保有可交易品种，依靠多元化衍生品稳住营收。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 21:56 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 21:50 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-29 21:51 - [高质量发展看新疆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 21:46 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 21:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 21:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 21:44 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 21:49 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 21:43 - [网约车出事故平台拒赔称只是中介](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 21:50 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 21:47 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 21:53 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 22:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 21:45 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-29 22:02 - [巴黎区长紧急采购50台中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 21:54 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-29 22:08 - [中外合作办学是“低分捷径”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 22:02 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 22:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 21:56 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 22:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 21:59 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 22:06 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 21:59 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 21:50 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 22:15 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/0945615597.shtml)
-- 2026-06-29 21:51 - [央行首次3000亿元隔夜逆回购操作](https://www.share.minike.top/Article/details/14794042173.shtml)
-- 2026-06-29 21:47 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/1642669.shtml)
-- 2026-06-29 22:01 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/003365.shtml)
-- 2026-06-29 21:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/1780187.shtml)
-- 2026-06-29 22:04 - [新官上任三把火](https://www.share.minike.top/Article/details/71706806.shtml)
-- 2026-06-29 21:48 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/579428.shtml)
-- 2026-06-29 22:08 - [扬名立万](http://www.blog.minike.top/Article/details/209574162.shtml)
-- 2026-06-29 22:08 - [教育部高校学生资助热线7月1日开通](http://www.share.minike.top/Article/details/562656822.shtml)
-- 2026-06-29 22:08 - [85花告别古偶](http://www.blog.minike.top/Article/details/5528059.shtml)
-- 2026-06-29 21:48 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/105494239402.shtml)
-- 2026-06-29 21:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/229121.shtml)
-- 2026-06-29 21:46 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/73823.shtml)
-- 2026-06-29 21:58 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/6139781.shtml)
-- 2026-06-29 21:56 - [毒液2](https://www.share.kurohicncr.top/Article/details/105159803457.shtml)
+- 2026-06-29 21:54 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/6961542771.shtml)
+- 2026-06-29 22:07 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/42570.shtml)
+- 2026-06-29 21:56 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/78233.shtml)
+- 2026-06-29 21:52 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/10761.shtml)
+- 2026-06-29 21:55 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/7089629843.shtml)
+- 2026-06-29 21:57 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/78157902308.shtml)
+- 2026-06-29 22:14 - [格莱美唱作人锐评歌手第6期](http://www.share.minike.top/Article/details/53965578989.shtml)
+- 2026-06-29 22:10 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/330564752998.shtml)
+- 2026-06-29 22:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/96953067675.shtml)
+- 2026-06-29 21:49 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/459840.shtml)
+- 2026-06-29 22:08 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/565587.shtml)
+- 2026-06-29 21:57 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/8312736276.shtml)
+- 2026-06-29 22:11 - [韩国800万亿韩元押注半导体](https://www.share.minike.top/Article/details/86806646207.shtml)
+- 2026-06-29 22:11 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/93549.shtml)
+- 2026-06-29 22:02 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.kurohicncr.top/Article/details/39376972191.shtml)

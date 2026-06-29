@@ -1,56 +1,58 @@
-# 美银：对冲基金上周抛售美股规模创纪录
+# 合湛高铁为“海洋卫士”让路：一座跨海大桥的“生态加减法”
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-美国银行的客户上周抛售了美国股票，对冲基金创纪录的资金流出是主要推动因素。 对冲基金在科技股中也出现了创纪录的资金流出，且主要集中在大盘股，美银策略师Jill Carey Hall在一份日期为5月19日的报告中写道。 总体而言，11个行业板块中5个板块出现资金流出，其中通信服务和工业板块的流出量仅次于科技板块。 她补充道，金融股的资金流入量最大，其次是公用事业股。 她指出，机构
+中新网广西北海6月5日电 题：合湛高铁为“海洋卫士”让路：一座跨海大桥的“生态加减法” 中新网记者 蒋雪林 在广西北部湾畔的铁山港海域，连片的红树林沿着海岸线铺展蔓延，郁郁葱葱，鹭鸟翩跹。就在这片被誉为“海岸卫士”的珍稀湿地旁，广西合浦至广东湛江高速铁路(简称“合湛高铁”)建设正酣。全长近8500米的铁山港跨海特大桥正稳步推进——这是广西目前最长的跨海铁路桥梁，也是全线重点控制
 
 ## 正文
 
-美国银行的客户上周抛售了美国股票，对冲基金创纪录的资金流出是主要推动因素。
+中新网广西北海6月5日电 题：合湛高铁为“海洋卫士”让路：一座跨海大桥的“生态加减法” 中新网记者 蒋雪林 在广西北部湾畔的铁山港海域，连片的红树林沿着海岸线铺展蔓延，郁郁葱葱，鹭鸟翩跹。
 
-对冲基金在科技股中也出现了创纪录的资金流出，且主要集中在大盘股，美银策略师Jill Carey Hall在一份日期为5月19日的报告中写道。
+就在这片被誉为“海岸卫士”的珍稀湿地旁，广西合浦至广东湛江高速铁路(简称“合湛高铁”)建设正酣。
 
-总体而言，11个行业板块中5个板块出现资金流出，其中通信服务和工业板块的流出量仅次于科技板块。
+全长近8500米的铁山港跨海特大桥正稳步推进——这是广西目前最长的跨海铁路桥梁，也是全线重点控制性工程。
 
-她补充道，金融股的资金流入量最大，其次是公用事业股。
+大桥跨越铁山港湾的部分，有近1300米位于红树林保护区内，其中140号至164号墩更是红树林分布最密集、生态价值最高的区域，栖息着中华白海豚、鲎、文昌鱼等海洋珍稀保护物种。
 
-她指出，机构客户已连续第三周买入股票，而私人客户在上周抛售后重新转为买入。
+如何让一条时速350公里的高速铁路穿过这片区域，又不伤及珍贵的红树林？
 
-责任编辑：丁文武
+“六五世界环境日”前夕，记者走进合湛高铁铁山港跨海特大桥建设现场，了解建设者们为保护红树林写出的一份“加减法”答卷。
+
+“为树让路”的“减法”：桥墩减少21个 红树林是热带、亚热带海岸带海陆交错区生产能力最高的海洋生态系统之一，在净化海水、防风消浪、维持生物多样性、固碳储碳等方面发挥着独特而重要的作用。
+
+从高空俯瞰，合湛高铁铁山港跨海特大桥跨海段墩柱正在施工，而一旁的施工栈桥已经蜿蜒在红树林之间。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-29 22:03 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 21:51 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-29 22:09 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 21:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 22:05 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-29 22:00 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 22:07 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 21:42 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 21:58 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
-- 2026-06-29 22:07 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-29 22:00 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 21:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
-- 2026-06-29 22:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 22:11 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 22:05 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 21:52 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 21:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 22:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 22:15 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 22:12 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 21:50 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 21:50 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-29 22:10 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 21:48 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 22:05 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/162691154566.shtml)
-- 2026-06-29 21:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/88745334.shtml)
-- 2026-06-29 22:10 - [半导体和股市为何没让韩国人起飞](http://www.share.minike.top/Article/details/56604419590.shtml)
-- 2026-06-29 22:08 - [追觅称质量不行终身包修也没意义](http://www.blog.minike.top/Article/details/91350.shtml)
-- 2026-06-29 21:57 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/03288941.shtml)
-- 2026-06-29 22:01 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.minike.top/Article/details/5186502695.shtml)
-- 2026-06-29 22:06 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/5283262.shtml)
-- 2026-06-29 22:00 - [电动车主等红灯遭三轮车上横杆砸头](http://www.share.kurohicncr.top/Article/details/44179.shtml)
-- 2026-06-29 21:42 - [第一炉香](http://www.share.minike.top/Article/details/6313875.shtml)
-- 2026-06-29 22:11 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/41996420586.shtml)
-- 2026-06-29 21:42 - [《贺子珍》](https://www.blog.minike.top/Article/details/4768717.shtml)
-- 2026-06-29 21:46 - [高质量发展看新疆](https://www.blog.minike.top/Article/details/2167191.shtml)
-- 2026-06-29 21:42 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/23409160550.shtml)
-- 2026-06-29 21:50 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/34177.shtml)
-- 2026-06-29 22:01 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/49458219176.shtml)
+- 2026-06-29 22:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/38155.shtml)
+- 2026-06-29 21:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/7695941617.shtml)
+- 2026-06-29 21:59 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/550284739132.shtml)
+- 2026-06-29 22:10 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/4282256888.shtml)
+- 2026-06-29 22:01 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/134951125609.shtml)
+- 2026-06-29 22:01 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/833899698305.shtml)
+- 2026-06-29 21:51 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/793887.shtml)
+- 2026-06-29 22:17 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/70664202301.shtml)
+- 2026-06-29 22:08 - [千与千寻](https://www.share.minike.top/Article/details/104780201836.shtml)
+- 2026-06-29 21:57 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/616278105201.shtml)
+- 2026-06-29 22:12 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/24847.shtml)
+- 2026-06-29 22:07 - [一台空调背后的全球化逻辑](http://www.blog.kurohicncr.top/Article/details/55919322.shtml)
+- 2026-06-29 21:57 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/3002853393.shtml)
+- 2026-06-29 22:03 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/1138094.shtml)
+- 2026-06-29 22:01 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/04580234.shtml)

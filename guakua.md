@@ -1,60 +1,58 @@
-# 1.6万岗位揽才 海内外百所高校学子聚沈阳
+# 荷兰侨领王广义：中欧班列架起重庆与欧洲经贸文化交流桥梁
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网沈阳5月21日电 (李晛)5月21日，全国首届百所高校学子地方行(沈阳站)暨2026“博士沈阳行”活动开幕式在全球工业互联网大会会议中心举行。 作为东北地区招才引智核心品牌和重要载体，“博士沈阳行”自2023年举办以来，已吸引1.6万名海内外博士走进辽宁，4000余名博士扎根沈阳，仅2025年就有1600余名博士落地沈阳就业创业。本次活动汇聚东北“三省一区”近700家用人
+发布时间：2026年06月06日 12:57 来源：中国新闻网 6月5日，参加2026“一带一路”华侨华人合作发展大会的部分嘉宾走进重庆，参访内陆国际物流枢纽展示中心。荷兰华人青年企业家协会联席会长、长期深耕中欧经贸合作的王广义表示，中欧班列为重庆与欧洲经贸文化交流架起一座桥梁。 王广义表示，重庆不沿边、不靠海，曾是传统意义上的内陆腹地，而中欧班列的开通彻底改写了这座城市的开放
 
 ## 正文
 
-中新网沈阳5月21日电 (李晛)5月21日，全国首届百所高校学子地方行(沈阳站)暨2026“博士沈阳行”活动开幕式在全球工业互联网大会会议中心举行。
+发布时间：2026年06月06日 12:57 来源：中国新闻网 6月5日，参加2026“一带一路”华侨华人合作发展大会的部分嘉宾走进重庆，参访内陆国际物流枢纽展示中心。
 
-作为东北地区招才引智核心品牌和重要载体，“博士沈阳行”自2023年举办以来，已吸引1.6万名海内外博士走进辽宁，4000余名博士扎根沈阳，仅2025年就有1600余名博士落地沈阳就业创业。
+荷兰华人青年企业家协会联席会长、长期深耕中欧经贸合作的王广义表示，中欧班列为重庆与欧洲经贸文化交流架起一座桥梁。
 
-本次活动汇聚东北“三省一区”近700家用人单位，1.6万个优质岗位。
+王广义表示，重庆不沿边、不靠海，曾是传统意义上的内陆腹地，而中欧班列的开通彻底改写了这座城市的开放格局。
 
-在教育部指导下，本次活动实现全国首届“百校学子地方行”与“博士沈阳行”一体推进，国家级引才平台与本土特色招才品牌深度融合，推出专场招聘、海外学者研修、科创路演、产业调研、城市体验等多项特色内容。
+中欧班列解决了过去中欧运输成本高、周期长的痛点。
 
-岗位扩容至硕士与本科层次，共征集1.6万个优质岗位，其中博士岗位7356个，企业岗位占总岗位数的53.2%，较去年同期增长16.7%，新质产业岗位集中释放，报名学子人数超1.1万人。
+中欧班列不仅打通了中国西部直达欧洲的陆路国际贸易大通道，更成为连接重庆与欧洲经贸往来、文化互鉴的坚实桥梁。
 
-本次招聘会采取“线上+线下”方式，现场精心设置沈阳市招聘区、东北四市招聘区、沈阳都市圈及省内其他城市招聘区、“3+4+3”重点产业集群招聘区(含浑南科技城)等四大板块，精准匹配人才需求与产业布局。
+目前，重庆中欧班列已稳定运行线路53条，覆盖亚欧39个国家118个枢纽城市，成为“重庆造”产品走向世界的重要通道。
 
-除全球工业互联网会议中心外，活动同步在沈阳科学宫、中国沈阳人力资源服务产业园设置第二、三会场，三个会场联动开展现场招聘。
-
-活动现场，还同步举办了“智聚辽沈”博创会。
+(记者 肖江川） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 21:48 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 21:51 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
-- 2026-06-29 21:56 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 21:46 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 21:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-29 21:52 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 21:42 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 22:00 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 22:04 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 22:00 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 22:11 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 21:53 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 21:50 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 21:49 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrcmm.md)
+- 2026-06-29 21:53 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 22:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 22:06 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 21:58 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 22:01 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 22:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 21:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 21:54 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 22:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 22:13 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 21:56 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 21:53 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 21:52 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/64164838.shtml)
-- 2026-06-29 21:51 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/5462996201.shtml)
-- 2026-06-29 21:49 - [高考1357分的同学如何报志愿？](http://www.share.minike.top/Article/details/3238801223.shtml)
-- 2026-06-29 22:10 - [直击委内瑞拉加拉加斯救援现场](http://www.blog.minike.top/Article/details/8805147045.shtml)
-- 2026-06-29 21:56 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/14920.shtml)
-- 2026-06-29 22:01 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/808638425.shtml)
-- 2026-06-29 21:43 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/2378395.shtml)
-- 2026-06-29 22:11 - [恋与深空7天掉粉超50万](https://www.blog.kurohicncr.top/Article/details/243638461.shtml)
-- 2026-06-29 22:07 - [白玉兰答谢宴合影](https://www.blog.minike.top/Article/details/6205937.shtml)
-- 2026-06-29 21:57 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/115961.shtml)
-- 2026-06-29 22:11 - [穆祉丞东方风云榜红毯](https://www.blog.kurohicncr.top/Article/details/4751523.shtml)
-- 2026-06-29 21:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/74681866697.shtml)
-- 2026-06-29 22:05 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/557173449.shtml)
-- 2026-06-29 21:59 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/077786948.shtml)
-- 2026-06-29 21:47 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/397079415702.shtml)
+- 2026-06-29 22:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/267635967.shtml)
+- 2026-06-29 22:01 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/647552.shtml)
+- 2026-06-29 21:54 - [月亮](http://www.share.kurohicncr.top/Article/details/74367798691.shtml)
+- 2026-06-29 22:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/74651677376.shtml)
+- 2026-06-29 22:00 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/869655.shtml)
+- 2026-06-29 22:17 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/7806366.shtml)
+- 2026-06-29 22:10 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/69060123.shtml)
+- 2026-06-29 21:57 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.blog.minike.top/Article/details/94666536.shtml)
+- 2026-06-29 22:10 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/49332165.shtml)
+- 2026-06-29 21:56 - [被中方管控的20家日本实体什么来头](https://www.blog.kurohicncr.top/Article/details/449255.shtml)
+- 2026-06-29 22:02 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/25250083335.shtml)
+- 2026-06-29 21:59 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/244410.shtml)
+- 2026-06-29 22:10 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/516087449.shtml)
+- 2026-06-29 22:11 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/163833869034.shtml)
+- 2026-06-29 22:07 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/4002597.shtml)

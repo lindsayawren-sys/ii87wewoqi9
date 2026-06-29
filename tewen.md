@@ -1,56 +1,58 @@
-# 教育部等四部门印发《中小学基本办学条件底线要求》
+# 美国国家劳资关系委员会多项裁定认定星巴克违反劳工法
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-近日，教育部、国家发展改革委、财政部、住房城乡建设部四部门办公厅联合印发《中小学基本办学条件底线要求》(以下简称《底线要求》)，全面加强普通中小学校标准化建设，切实保障教育教学需要和学生身心健康成长。具体内容跟教育小微一起来看——《底线要求》在2014年《全面改善贫困地区义务教育薄弱学校基本办学条件底线要求》基础上进行了迭代升级，从学校校舍建设、安全防范建设、生活硬件配备、教学
+美国国家劳资关系委员会上周五作出两项裁定：其一，星巴克单方面调整着装规定的执行标准，未留出协商空间，违反联邦劳工法；其二，该咖啡品牌违规盘问员工是否参与罢工。 上述裁定维持了行政法法官的原有判决，认定这家咖啡企业在太平洋西北地区部分门店触犯《国家劳资关系法》。 星巴克与工会之间的劳资纠纷由来已久，工会为在全美众多门店推进组织工作，已向该委员会多次发起不当劳工行为指控，本次判决是
 
 ## 正文
 
-近日，教育部、国家发展改革委、财政部、住房城乡建设部四部门办公厅联合印发《中小学基本办学条件底线要求》(以下简称《底线要求》)，全面加强普通中小学校标准化建设，切实保障教育教学需要和学生身心健康成长。
+美国国家劳资关系委员会上周五作出两项裁定：其一，星巴克单方面调整着装规定的执行标准，未留出协商空间，违反联邦劳工法；其二，该咖啡品牌违规盘问员工是否参与罢工。
 
-具体内容跟教育小微一起来看——《底线要求》在2014年《全面改善贫困地区义务教育薄弱学校基本办学条件底线要求》基础上进行了迭代升级，从学校校舍建设、安全防范建设、生活硬件配备、教学设施装备、教职工配备五方面，明确提出了新的20条底线要求。
+上述裁定维持了行政法法官的原有判决，认定这家咖啡企业在太平洋西北地区部分门店触犯《国家劳资关系法》。
 
-这是全国普通中小学校办学条件必须要达到的“底线标准”，小规模学校及教学点根据实际情况参照执行。
+星巴克与工会之间的劳资纠纷由来已久，工会为在全美众多门店推进组织工作，已向该委员会多次发起不当劳工行为指控，本次判决是系列纠纷的最新结果。
 
-各地需结合实际，在底线要求基础上提高省定中小学办学条件标准，并持续推动学校达标建设。
+第一项裁定 委员会维持了行政法法官安德鲁·S·戈林2024年1月针对俄勒冈州波特兰市詹森海滩门店着装管理问题作出的判决。
 
-《底线要求》不仅聚焦硬件标准配置，更突出“五育并举”导向，重点强化了心理健康、美育、体育等方面的教学设施配备和师资保障要求。
+委员会表示：“星巴克单方面变更需经双方协商的事项，在未提前通知工会、未给予协商机会的情况下，收紧着装规定执行尺度。
 
-这种调整既符合教育规律，也适应新时代需求，为中小学生身心健康成长提供了更全面的条件支撑。
+因此，企业此番单方调整及据此作出的处罚，均违反《国家劳资关系法》。
 
-《底线要求》的出台，为各地应对学龄人口变化、开展中小学办学条件达标、提高教育教学质量、助力学生身心健康成长提供了明确指引。
+” 委员会责令星巴克：删除员工档案中因违反着装规定产生的所有处罚记录，撤销所有单方面出台的政策调整；同时禁止企业因员工支持工会、参与工会活动而对其进行惩处。
 
-下一步，各地要对照标准补齐短板，加快推进义务教育优质均衡和普通高中多样特色发展，进一步促进教育公平，为教育强国建设夯实基础。
+委员会共和党籍委员斯科特·梅耶在附注中提出不同意见，他认为委员会总法律顾问未能证明星巴克违规调整着装规定，并表示该着装规则本身合法，企业可根据违规情节轻重酌情作出包括解雇在内的不同处罚。
 
 ## 相关推荐
 
-- 2026-06-29 21:51 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
-- 2026-06-29 22:07 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 21:53 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 22:05 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 22:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 21:42 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 21:57 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 21:46 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 21:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 21:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 21:59 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 21:58 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 22:00 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 22:11 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 21:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 21:55 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 22:09 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 22:16 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 22:10 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 22:09 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 22:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 21:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/6370463.shtml)
-- 2026-06-29 22:04 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.kurohicncr.top/Article/details/71511554.shtml)
-- 2026-06-29 21:45 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/22307.shtml)
-- 2026-06-29 21:49 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/18798.shtml)
-- 2026-06-29 21:51 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/3828427.shtml)
-- 2026-06-29 21:46 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/47789624295.shtml)
-- 2026-06-29 21:57 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/94523933708.shtml)
-- 2026-06-29 21:46 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/691125744801.shtml)
-- 2026-06-29 22:04 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/67395582062.shtml)
-- 2026-06-29 21:55 - [半导体和股市为何没让韩国人起飞](http://www.blog.minike.top/Article/details/7345287.shtml)
-- 2026-06-29 22:09 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/028484.shtml)
-- 2026-06-29 21:58 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/52316.shtml)
-- 2026-06-29 21:59 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/42806786.shtml)
-- 2026-06-29 21:56 - [多人在马路中间打羽毛球 交警回应](http://www.share.kurohicncr.top/Article/details/375983.shtml)
-- 2026-06-29 21:46 - [一见倾心](https://www.share.minike.top/Article/details/77973204845.shtml)
+- 2026-06-29 21:59 - [中国农民给猪圈装空调 欧洲网友破防](https://www.blog.minike.top/Article/details/180126108570.shtml)
+- 2026-06-29 21:59 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/0622333.shtml)
+- 2026-06-29 21:53 - [爱奇艺抬高国剧新标尺](http://www.share.minike.top/Article/details/45640238172.shtml)
+- 2026-06-29 22:11 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/178319821604.shtml)
+- 2026-06-29 21:50 - [厨房装空调还是装冷烟机](https://www.share.minike.top/Article/details/8743086533.shtml)
+- 2026-06-29 21:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/94059.shtml)
+- 2026-06-29 22:04 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/8491622.shtml)
+- 2026-06-29 21:52 - [爱奇艺抬高国剧新标尺](https://www.blog.minike.top/Article/details/8002610.shtml)
+- 2026-06-29 22:14 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/79156106933.shtml)
+- 2026-06-29 22:10 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/629514015.shtml)
+- 2026-06-29 21:52 - [运-20网宣片中的“小六”或是六代机](https://www.share.minike.top/Article/details/823383.shtml)
+- 2026-06-29 22:02 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/7934818135.shtml)
+- 2026-06-29 21:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/7993476460.shtml)
+- 2026-06-29 22:07 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/2688830171.shtml)
+- 2026-06-29 22:10 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/23460415048.shtml)

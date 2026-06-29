@@ -1,57 +1,61 @@
-# SA分析师评级调整：谷歌获上调，塔吉特遭降级，以星与Nebius迎来新评级
+# 现实版《给阿嬷的情书》！台湾“中天小姐姐”再访北京奶奶，带来妈妈亲笔信
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-Seeking Alpha平台上的独立分析师于5月21日发布了一系列评级调整，覆盖Alphabet、塔吉特、以星综合航运及Nebius Group等四只重点股票。 谷歌获上调至看涨，AI优势被看好 Alphabet获得分析师Steven Fiorillo的评级上调至看涨。Fiorillo认为，谷歌在人工智能全栈的统治地位以及云业务的加速增长，使其成为AI投资者可获取的最大的纯投
+近日，被称为“中天小姐姐”的台湾新闻主播何橞瑢再度踏上北京土地，奔赴一场跨越海峡的“祖孙之约”。 她专程看望此前在胡同采访时认识的九旬孙奶奶，并带去母亲写的亲笔信。有网友形容这是现实版《给阿嬤的情书》，“期待未完待续”。 何橞瑢日前在社交媒体上发布了和孙奶奶长达79分钟的见面视频，并在介绍中写道：“超越血缘的真情流露，是最无法反驳的血脉牵绊。” “想你了，我还能见着你啊，真想你
 
 ## 正文
 
-Seeking Alpha平台上的独立分析师于5月21日发布了一系列评级调整，覆盖Alphabet、塔吉特、以星综合航运及Nebius Group等四只重点股票。
+近日，被称为“中天小姐姐”的台湾新闻主播何橞瑢再度踏上北京土地，奔赴一场跨越海峡的“祖孙之约”。
 
-谷歌获上调至看涨，AI优势被看好 Alphabet获得分析师Steven Fiorillo的评级上调至看涨。
+她专程看望此前在胡同采访时认识的九旬孙奶奶，并带去母亲写的亲笔信。
 
-Fiorillo认为，谷歌在人工智能全栈的统治地位以及云业务的加速增长，使其成为AI投资者可获取的最大的纯投资标的。
+有网友形容这是现实版《给阿嬤的情书》，“期待未完待续”。
 
-他指出，谷歌在搜索业务的韧性、AI货币化能力以及云计算领域的持续突破，为公司提供了坚实的多重增长引擎。
+何橞瑢日前在社交媒体上发布了和孙奶奶长达79分钟的见面视频，并在介绍中写道：“超越血缘的真情流露，是最无法反驳的血脉牵绊。
 
-尽管近期有机构投资者小幅减持，且公司董事亦进行了一定的内部抛售，但华尔街整体仍给予该股买入的共识评级，平均目标价约为365.23美元。
+” “想你了，我还能见着你啊，真想你。
 
-不过，Rosenblatt在5月21日同步维持了对谷歌的中性评级，目标价保持在393美元不变，显示出部分机构对当前估值仍持谨慎态度。
+”镜头前，孙奶奶紧握着何橞瑢的手，两人一见面便相拥而泣。
 
-塔吉特：财报亮眼难挡降级，估值引发担忧 尽管塔吉特于5月20日交出了一份超出预期的一季度财报，但Freedom Capital将其评级从强力买入直接下调至持有。
+上次的合影，奶奶就放在家中显眼处，让何橞瑢非常感动。
 
-SA分析师也指出，塔吉特在股价经历一轮强劲反弹后，估值吸引力下降，叠加宏观经济不确定性增加，是此次降级的主要原因。
+孙奶奶感慨，“两岸来来往往多好啊，这是我一生所盼的。
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-29 21:47 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 22:11 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 22:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
-- 2026-06-29 22:02 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 21:59 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 21:48 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 22:08 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 22:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 22:08 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 22:10 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 22:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 21:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 22:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 21:48 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 22:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 21:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 22:01 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
+- 2026-06-29 22:12 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 22:08 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 22:12 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 22:07 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 22:10 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 22:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 22:12 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 22:11 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/187127.shtml)
-- 2026-06-29 21:43 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/565695.shtml)
-- 2026-06-29 21:58 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/52083.shtml)
-- 2026-06-29 21:42 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/8315109.shtml)
-- 2026-06-29 22:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/918486.shtml)
-- 2026-06-29 22:00 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/16257752.shtml)
-- 2026-06-29 21:47 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/84101.shtml)
-- 2026-06-29 22:00 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/19997452.shtml)
-- 2026-06-29 21:56 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/86230.shtml)
-- 2026-06-29 21:48 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/1707978.shtml)
-- 2026-06-29 21:44 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/794788.shtml)
-- 2026-06-29 21:51 - [请回答王牌2019](http://www.share.minike.top/Article/details/08614606365.shtml)
-- 2026-06-29 22:00 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/530352770.shtml)
-- 2026-06-29 21:43 - [韩国队回国欢迎仪式取消](http://www.blog.kurohicncr.top/Article/details/46814013695.shtml)
-- 2026-06-29 21:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/167416486283.shtml)
+- 2026-06-29 22:13 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/03136028.shtml)
+- 2026-06-29 21:52 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/036260013009.shtml)
+- 2026-06-29 21:57 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/8512452581.shtml)
+- 2026-06-29 22:07 - [浙江进入梅雨最强“攻击时段”](http://www.blog.kurohicncr.top/Article/details/115675.shtml)
+- 2026-06-29 22:14 - [日防卫省正考虑引进美企人工智能系统](https://www.share.kurohicncr.top/Article/details/972950107.shtml)
+- 2026-06-29 22:04 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/881794.shtml)
+- 2026-06-29 22:10 - [普京建议乌俄停止打击对方纵深目标](http://www.blog.minike.top/Article/details/9889441178.shtml)
+- 2026-06-29 21:55 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/88462970.shtml)
+- 2026-06-29 22:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/01967144662.shtml)
+- 2026-06-29 22:16 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/915222907.shtml)
+- 2026-06-29 22:12 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/17903389825.shtml)
+- 2026-06-29 22:03 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/422470834.shtml)
+- 2026-06-29 22:04 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/878071206735.shtml)
+- 2026-06-29 21:53 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/618969905.shtml)
+- 2026-06-29 21:56 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/37775493213.shtml)

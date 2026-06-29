@@ -1,50 +1,56 @@
-# 朝中社：美国军售活动愈演愈烈 是亚太地区军事紧张根源
+# 特朗普称相信美国和印度将达成期待已久的贸易协议
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 朝中社21日发表评论文章说，美国对朝鲜半岛和东北亚地区的武器出售活动愈演愈烈，逐渐成为不可忽视的地区安保挑战。 文章称，美国国务院日前批准向韩国出售总价值超过40亿美元的直升机及零部件，并声称此次军售将会帮助韩国提高军事力量。朝鲜外务省发言人就此表示，美国向韩国、日本等亚太国家和地区大量出售武器，是引发亚太地区军事紧张的根源，预示着地区形势的不稳定前景。 文
+美国总统唐纳德·特朗普表示，相信华盛顿和新德里在本周结束新一轮谈判后，将达成期待已久的贸易协议。 “我们会达成协议的，因为我喜欢，你知道的，我非常喜欢你们的总理。”特朗普周四在椭圆形办公室对记者说，“他是我的好朋友。我们相处得很好，而且我们将达成协议。我们的关系非常好。”特朗普说的是印度总理纳伦德拉·莫迪。 在几个小时前，印度商务部表示，双方仍致力于达成双边贸易协定。由首席谈判
 
 ## 正文
 
-中新网5月22日电 朝中社21日发表评论文章说，美国对朝鲜半岛和东北亚地区的武器出售活动愈演愈烈，逐渐成为不可忽视的地区安保挑战。
+美国总统唐纳德·特朗普表示，相信华盛顿和新德里在本周结束新一轮谈判后，将达成期待已久的贸易协议。
 
-文章称，美国国务院日前批准向韩国出售总价值超过40亿美元的直升机及零部件，并声称此次军售将会帮助韩国提高军事力量。
+“我们会达成协议的，因为我喜欢，你知道的，我非常喜欢你们的总理。
 
-朝鲜外务省发言人就此表示，美国向韩国、日本等亚太国家和地区大量出售武器，是引发亚太地区军事紧张的根源，预示着地区形势的不稳定前景。
+”特朗普周四在椭圆形办公室对记者说，“他是我的好朋友。
 
-文章强调，朝鲜的防卫力量将以不断的更新升级和坚决的临战态势强力管控种种安保威胁，捍卫国家主权安全和地区和平，为保障全球战略稳定作出积极贡献。
+我们相处得很好，而且我们将达成协议。
+
+我们的关系非常好。
+
+”特朗普说的是印度总理纳伦德拉·莫迪。
+
+在几个小时前，印度商务部表示，双方仍致力于达成双边贸易协定。
+
+由首席谈判代表Brendan Lynch率领的美国代表团本周在新德里，旨在推进谈判进程并敲定临时协议的细节。
 
 ## 相关推荐
 
-- 2026-06-29 22:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 22:04 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 21:51 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 22:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 21:57 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
-- 2026-06-29 22:10 - [乌克兰发广告全球征兵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 22:03 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 21:58 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-29 22:02 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 21:51 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 21:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 21:42 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 22:14 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 22:07 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 22:16 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 21:56 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 21:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oblgo.md)
+- 2026-06-29 21:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 22:06 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 22:10 - [温网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 22:05 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 22:08 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/21243604532.shtml)
-- 2026-06-29 21:48 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/2468294.shtml)
-- 2026-06-29 22:07 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/456073317457.shtml)
-- 2026-06-29 22:07 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/9234780.shtml)
-- 2026-06-29 22:09 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/1286657892.shtml)
-- 2026-06-29 21:57 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/6868129.shtml)
-- 2026-06-29 22:05 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/59983.shtml)
-- 2026-06-29 21:46 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/12508.shtml)
-- 2026-06-29 22:01 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.kurohicncr.top/Article/details/547357971.shtml)
-- 2026-06-29 21:47 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/330379024.shtml)
-- 2026-06-29 21:56 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/318185652.shtml)
-- 2026-06-29 21:43 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/25294.shtml)
-- 2026-06-29 21:52 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/885792552126.shtml)
-- 2026-06-29 21:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/127210182042.shtml)
-- 2026-06-29 22:05 - [被中方管控的20家日本实体什么来头](http://www.blog.kurohicncr.top/Article/details/89412451.shtml)
+- 2026-06-29 22:04 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/90625166.shtml)
+- 2026-06-29 21:54 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/5446316731.shtml)
+- 2026-06-29 21:57 - [急先锋](http://www.blog.kurohicncr.top/Article/details/6151284743.shtml)
+- 2026-06-29 22:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/652769005938.shtml)
+- 2026-06-29 21:53 - [斗破苍穹](http://www.blog.minike.top/Article/details/490684626.shtml)
+- 2026-06-29 21:53 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/456215857307.shtml)
+- 2026-06-29 22:17 - [地震来临时铁路工作人员果断拦停列车](https://www.blog.kurohicncr.top/Article/details/164814261988.shtml)
+- 2026-06-29 22:13 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/14379811321.shtml)
+- 2026-06-29 21:57 - [TOP Prada](http://www.blog.minike.top/Article/details/70574410696.shtml)
+- 2026-06-29 22:05 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/273509044.shtml)
+- 2026-06-29 22:01 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/850259779.shtml)
+- 2026-06-29 21:51 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/396622269.shtml)
+- 2026-06-29 22:14 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/515077.shtml)
+- 2026-06-29 22:15 - [CORTIS登机迟到致航班延误](https://www.blog.kurohicncr.top/Article/details/18742.shtml)
+- 2026-06-29 21:54 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/1741686.shtml)

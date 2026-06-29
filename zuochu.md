@@ -1,57 +1,58 @@
-# CBA季后赛半决赛：深圳队拿下“生死战”
+# 516斤胖友在沪成功减重近100斤
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新社深圳5月21日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛21日晚在深圳举行。深圳马可波罗队(简称“深圳队”)坐镇主场以91:80战胜浙江浙商证券队(简称“浙江队”)。 CBA季后赛半决赛采取五场三胜制。此前，两队已进行两回合交锋，浙江队均主场获胜，以大比分2:0迎来赛点。此役，两队移师深圳，展开激烈争夺。 比赛开始，深圳队火力全开，
+中新网上海6月5日电 (记者 陈静)记者5日获悉，体重曾达516斤的林楠(化名)在沪接受了干预和微创手术(腹腔镜袖状胃切除术)。术后，上海多学科医生合作，对其开展加速康复策略和精细化管理，如今他成功减重近100斤。29岁的林楠因重度肥胖引发多种严重代谢疾病，日常起居、睡眠行动均严重受限，生命健康长期处于高危状态。为保障手术安全、最大化减重效果，上海交通大学医学院附属新华医院先为
 
 ## 正文
 
-中新社深圳5月21日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛半决赛21日晚在深圳举行。
+中新网上海6月5日电 (记者 陈静)记者5日获悉，体重曾达516斤的林楠(化名)在沪接受了干预和微创手术(腹腔镜袖状胃切除术)。
 
-深圳马可波罗队(简称“深圳队”)坐镇主场以91:80战胜浙江浙商证券队(简称“浙江队”)。
+术后，上海多学科医生合作，对其开展加速康复策略和精细化管理，如今他成功减重近100斤。
 
-CBA季后赛半决赛采取五场三胜制。
+29岁的林楠因重度肥胖引发多种严重代谢疾病，日常起居、睡眠行动均严重受限，生命健康长期处于高危状态。
 
-此前，两队已进行两回合交锋，浙江队均主场获胜，以大比分2:0迎来赛点。
+为保障手术安全、最大化减重效果，上海交通大学医学院附属新华医院先为其开展阶段性术前干预治疗，通过营养、运动、药物、心理多维度调理，帮助患者体重从516斤降至454斤，心肺、代谢、肝功能指标逐步改善，多种合并症得到初步控制。
 
-此役，两队移师深圳，展开激烈争夺。
+为攻克超高体重患者手术难题，医院组建普外科、麻醉科、呼吸内科、心理科等多学科核心诊疗团队，通过多次联合会诊，全面排查手术风险，结合患者身体耐受度，敲定个性化手术及围手术期诊疗方案，为高难度手术的顺利实施做好全方位筹备。
 
-比赛开始，深圳队火力全开，贺希宁突破上篮得分，容子峰连续命中两记三分，巴吉跳投得分，开局以15:5领先。
+5月中下旬，普外科专家龚伟带领减重外科团队，为林楠实施腹腔镜袖状胃切除术。
 
-随后，浙江队布朗内突外投，胡金秋跳投得分，将比分追近。
+本次手术面临多重挑战，患者的超大体重导致腹腔脂肪大量堆积，手术视野暴露、解剖结构分离、穿刺点位选择均存在极大阻碍；同时，重度肥胖引发的心肺功能储备不足，也让麻醉诱导、术中生命体征维持面临严峻挑战。
 
-末段，深圳队王浩然命中三分，阿立兹跳投得分，将领先优势扩大。
+整场手术仅耗时2小时，术中患者出血量仅10ml。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 22:08 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 21:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 21:47 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 21:59 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 21:52 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 21:45 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 21:56 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 22:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 21:46 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 21:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-29 21:55 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 22:05 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-29 21:53 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 22:07 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-29 22:00 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 22:01 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 21:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 21:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 22:08 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 22:17 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 22:10 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 22:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/55131756.shtml)
-- 2026-06-29 22:04 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/27669.shtml)
-- 2026-06-29 21:50 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/443175761.shtml)
-- 2026-06-29 21:57 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/6181064108.shtml)
-- 2026-06-29 21:44 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/38248.shtml)
-- 2026-06-29 21:54 - [田曦薇没招了](http://www.share.minike.top/Article/details/38425.shtml)
-- 2026-06-29 21:46 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/00472496.shtml)
-- 2026-06-29 21:43 - [第一炉香](https://www.share.minike.top/Article/details/79669.shtml)
-- 2026-06-29 22:09 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/89661861.shtml)
-- 2026-06-29 21:50 - [被裁员后30岁儿子被抓去戒网瘾](http://www.share.minike.top/Article/details/18043.shtml)
-- 2026-06-29 21:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/769049366.shtml)
-- 2026-06-29 21:43 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/93538388764.shtml)
-- 2026-06-29 21:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/050541.shtml)
-- 2026-06-29 22:10 - [赵今麦瘦好多](http://www.share.kurohicncr.top/Article/details/950363044135.shtml)
-- 2026-06-29 21:43 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/3192581185.shtml)
+- 2026-06-29 22:12 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/192399443.shtml)
+- 2026-06-29 22:08 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/42827560.shtml)
+- 2026-06-29 22:11 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/467314.shtml)
+- 2026-06-29 22:00 - [记者乘坐无人驾驶汽车去采访](http://www.share.kurohicncr.top/Article/details/1311936515.shtml)
+- 2026-06-29 22:00 - [天道](http://www.blog.minike.top/Article/details/1197388627.shtml)
+- 2026-06-29 22:14 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/5956113.shtml)
+- 2026-06-29 21:58 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/3428906.shtml)
+- 2026-06-29 21:59 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/1017521.shtml)
+- 2026-06-29 22:00 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/0206011.shtml)
+- 2026-06-29 22:08 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/09328796811.shtml)
+- 2026-06-29 21:57 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/93170330271.shtml)
+- 2026-06-29 21:56 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/16038.shtml)
+- 2026-06-29 21:59 - [炽夏](https://www.blog.minike.top/Article/details/0586854.shtml)
+- 2026-06-29 21:48 - [新官上任三把火](https://www.blog.minike.top/Article/details/260815514925.shtml)
+- 2026-06-29 22:17 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/66836088.shtml)

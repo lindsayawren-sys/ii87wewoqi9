@@ -1,60 +1,46 @@
-# 袁隆平墓前的“特殊礼物”：送秧苗、话科研进展
+# 盈新发展：长兴半导体聚焦于半导体存储应用产品的全链条能力建设
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网长沙5月22日电 (记者 唐小晴 徐志雄)5月22日是“杂交水稻之父”袁隆平逝世五周年纪念日。连日来，长沙唐人万寿园袁隆平纪念墓园里，社会各界人士自发前来追思缅怀这位“共和国勋章”获得者。他们带着精心准备的“特殊礼物”，以最真挚的方式，诉说对袁老的思念与敬意。 七旬老农携秧苗赴约 人群中，75岁的湖南长沙县春华镇种粮大户龙平鄂与两位农户一同提着沉甸甸的秧苗，格外引人注目。
+证券日报网6月5日讯 ，盈新发展在接受调研者提问时表示，长兴半导体聚焦于半导体存储应用产品的全链条能力建设，同时具备芯片设计（U盘）、固件算法开发、封装测试、模组制造的全栈能力，为市场提供消费级、工规级存储芯片以及行业存储软硬件应用解决方案。（文章来源：证券日报）
 
 ## 正文
 
-中新网长沙5月22日电 (记者 唐小晴 徐志雄)5月22日是“杂交水稻之父”袁隆平逝世五周年纪念日。
+证券日报网6月5日讯 ，盈新发展在接受调研者提问时表示，长兴半导体聚焦于半导体存储应用产品的全链条能力建设，同时具备芯片设计（U盘）、固件算法开发、封装测试、模组制造的全栈能力，为市场提供消费级、工规级存储芯片以及行业存储软硬件应用解决方案。
 
-连日来，长沙唐人万寿园袁隆平纪念墓园里，社会各界人士自发前来追思缅怀这位“共和国勋章”获得者。
-
-他们带着精心准备的“特殊礼物”，以最真挚的方式，诉说对袁老的思念与敬意。
-
-七旬老农携秧苗赴约 人群中，75岁的湖南长沙县春华镇种粮大户龙平鄂与两位农户一同提着沉甸甸的秧苗，格外引人注目。
-
-“这是启两优2216杂交稻秧苗，我特意带来给袁老师看的！
-
-”龙平鄂抚摸着嫩绿的秧苗，语气里满是自豪，“它的早稻亩产湿谷能达1200至1300斤，中稻1300至1500斤，晚稻也超1400斤，是名副其实的‘高产好品种’。
-
-” 视频：75岁种粮大户来到袁隆平墓前送秧苗 “今年产量可以 您安息吧”来源：中国新闻网 龙平鄂亲历过20世纪50年代末至60年代初的“三年自然灾害”。
-
-“那时候没饭吃的苦，我一辈子忘不了。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 21:48 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 21:53 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 22:01 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-29 21:49 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 21:59 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 22:11 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 21:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 21:49 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-29 21:49 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 22:08 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
-- 2026-06-29 21:59 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 21:52 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-29 22:10 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 21:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 22:13 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 22:00 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 21:48 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 21:55 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 22:12 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 22:11 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 22:13 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 22:11 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 22:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 22:05 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 21:59 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 22:13 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/07687.shtml)
-- 2026-06-29 21:54 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/032569115788.shtml)
-- 2026-06-29 22:04 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/105701755.shtml)
-- 2026-06-29 21:56 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/10405.shtml)
-- 2026-06-29 22:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/0486039.shtml)
-- 2026-06-29 21:59 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/193884.shtml)
-- 2026-06-29 22:06 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/957556171000.shtml)
-- 2026-06-29 21:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/9682570333.shtml)
-- 2026-06-29 21:53 - [铜价上涨 日本住宅水表失窃严重](http://www.share.minike.top/Article/details/5862867.shtml)
-- 2026-06-29 21:45 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/31327974.shtml)
-- 2026-06-29 21:48 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/183193318.shtml)
-- 2026-06-29 22:08 - [有什么好的高中网课推荐吗？](https://www.share.kurohicncr.top/Article/details/28406.shtml)
-- 2026-06-29 21:44 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/161281109770.shtml)
-- 2026-06-29 21:49 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/155968389327.shtml)
-- 2026-06-29 21:59 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/26168801572.shtml)
+- 2026-06-29 22:14 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/683844.shtml)
+- 2026-06-29 21:51 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/35391511080.shtml)
+- 2026-06-29 22:07 - [时光音乐会](http://www.blog.minike.top/Article/details/1983878.shtml)
+- 2026-06-29 21:49 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/547937.shtml)
+- 2026-06-29 21:50 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/7079901165.shtml)
+- 2026-06-29 22:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/949424.shtml)
+- 2026-06-29 22:13 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/322873.shtml)
+- 2026-06-29 22:13 - [被裁员后30岁儿子被抓去戒网瘾](https://www.share.minike.top/Article/details/807558.shtml)
+- 2026-06-29 21:52 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/99738.shtml)
+- 2026-06-29 22:08 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/6458227023.shtml)
+- 2026-06-29 21:58 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/639294295.shtml)
+- 2026-06-29 21:52 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/176757100333.shtml)
+- 2026-06-29 22:11 - [请回答王牌2019](https://www.share.minike.top/Article/details/8679723.shtml)
+- 2026-06-29 22:00 - [一见倾心](http://www.share.kurohicncr.top/Article/details/05357.shtml)
+- 2026-06-29 22:12 - [起风了](https://www.blog.minike.top/Article/details/341639030.shtml)

@@ -1,56 +1,61 @@
-# 山西首批农业设施确权抵押贷款在运城落地
+# Viridien任命前斯伦贝谢高管为首席执行官
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网太原5月21日电 (记者 杨杰英)记者21日从中国人民银行山西省分行获悉，山西省首批农业设施确权抵押贷款已在运城市夏县成功落地。6户农户于5月15日获得全省首批《农业设施确权登记证书》，并顺利取得5笔、170万元抵押贷款。此举旨在落实中国人民银行等三部门《关于推广农业设施和畜禽活体抵押融资的通知》要求，有效盘活农村资源要素。中国人民银行山西省分行指导运城市分行在夏县开展农
+法国地震勘探公司Viridien已任命亨宁·伯格为首席执行官兼董事，该任命已在公司年度股东大会上获得股东批准。 该任命于6月3日在巴黎举行的公司联合股东大会上获得批准，股东们同时还批准了伯格进入董事会。 会议结束后，董事会任命伯格为首席执行官。苏菲·祖尔基亚将继续担任董事会主席。 伯格于2026年3月加入Viridien担任首席运营官，随后被任命为首席执行官。他在能源领域拥有超
 
 ## 正文
 
-中新网太原5月21日电 (记者 杨杰英)记者21日从中国人民银行山西省分行获悉，山西省首批农业设施确权抵押贷款已在运城市夏县成功落地。
+法国地震勘探公司Viridien已任命亨宁·伯格为首席执行官兼董事，该任命已在公司年度股东大会上获得股东批准。
 
-6户农户于5月15日获得全省首批《农业设施确权登记证书》，并顺利取得5笔、170万元抵押贷款。
+该任命于6月3日在巴黎举行的公司联合股东大会上获得批准，股东们同时还批准了伯格进入董事会。
 
-此举旨在落实中国人民银行等三部门《关于推广农业设施和畜禽活体抵押融资的通知》要求，有效盘活农村资源要素。
+会议结束后，董事会任命伯格为首席执行官。
 
-中国人民银行山西省分行指导运城市分行在夏县开展农业设施抵押融资试点工作，取得突破性进展。
+苏菲·祖尔基亚将继续担任董事会主席。
 
-在政策层面，构建了“省级指导+市级引领+县级配套”三级政策体系。
+伯格于2026年3月加入Viridien担任首席运营官，随后被任命为首席执行官。
 
-中国人民银行山西省分行主要负责人赴夏县实地调研，解决难点堵点问题。
+他在能源领域拥有超过27年的经验，包括在斯伦贝谢担任领导职务，曾担任四个主要全球业务的总裁和副总裁。
 
-运城市分行联合市农业农村局等部门印发《运城市农业设施抵押融资工作方案》，明确农业农村部门承担确权颁证、抵押登记等核心职能。
+他的职业生涯涵盖了在欧洲、非洲、俄罗斯和美国的运营管理和全球领导角色，负责技术组合、服务和项目运营、并购整合活动以及业务增长计划。
 
-夏县人民政府出台《夏县农业设施确权登记实施办法》，规范申报材料、审批流程和权属证书范式，同步公开操作指南。
+伯格拥有热能工程与流体力学硕士学位以及石油天然气行业管理硕士学位。
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 21:58 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 22:01 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 22:06 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 22:03 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
-- 2026-06-29 21:54 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 22:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
-- 2026-06-29 21:55 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 21:44 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 21:47 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 22:11 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 22:00 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 22:17 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 22:03 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 21:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 22:07 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 22:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 22:09 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 22:03 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 22:03 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 21:55 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-29 21:48 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 21:55 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 21:53 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 22:12 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/056416920.shtml)
-- 2026-06-29 22:04 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/16961345.shtml)
-- 2026-06-29 22:11 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/084562.shtml)
-- 2026-06-29 21:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/416098.shtml)
-- 2026-06-29 22:02 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/10509643120.shtml)
-- 2026-06-29 22:09 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/69764.shtml)
-- 2026-06-29 21:54 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/67671774289.shtml)
-- 2026-06-29 21:51 - [货车司机恶意闯卡逃费被行拘](http://www.blog.kurohicncr.top/Article/details/98773.shtml)
-- 2026-06-29 21:54 - [世界杯高票价为何没劝退球迷](https://www.share.minike.top/Article/details/96479.shtml)
-- 2026-06-29 21:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/102706.shtml)
-- 2026-06-29 22:02 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/616954014.shtml)
-- 2026-06-29 21:52 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/898155813366.shtml)
-- 2026-06-29 22:03 - [网友分享整套中医手术刀](https://www.blog.minike.top/Article/details/693795534.shtml)
-- 2026-06-29 22:11 - [请回答王牌2019](http://www.blog.minike.top/Article/details/8836703998.shtml)
-- 2026-06-29 21:55 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/7645621368.shtml)
+- 2026-06-29 21:48 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/46731148314.shtml)
+- 2026-06-29 21:59 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/495829181926.shtml)
+- 2026-06-29 22:08 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/9626772331.shtml)
+- 2026-06-29 22:07 - [孙俪开QQ的蛮好生活](http://www.blog.kurohicncr.top/Article/details/899861720014.shtml)
+- 2026-06-29 22:16 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/831434675992.shtml)
+- 2026-06-29 22:07 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/8960527.shtml)
+- 2026-06-29 21:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/232966799.shtml)
+- 2026-06-29 22:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/0592076492.shtml)
+- 2026-06-29 22:10 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/70728362937.shtml)
+- 2026-06-29 21:49 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/5114966281.shtml)
+- 2026-06-29 22:02 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/70287.shtml)
+- 2026-06-29 22:15 - [乌是否掌握了扭转战局的钥匙](https://www.blog.minike.top/Article/details/454624782.shtml)
+- 2026-06-29 22:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/1473522.shtml)
+- 2026-06-29 22:11 - [爱直接对嘴喝饮料的人天塌了](http://www.share.minike.top/Article/details/5280022.shtml)
+- 2026-06-29 22:13 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.kurohicncr.top/Article/details/54375126041.shtml)

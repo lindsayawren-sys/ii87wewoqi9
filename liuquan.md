@@ -1,46 +1,57 @@
-# 中国铁建：2026年面向专业投资者公开发行科技创新公司债券(第一期)
+# 重庆：一把螺丝刀在气管里藏了一年 医生10分钟“丝滑取出”
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中国铁建（01186）发布公告，中国铁建股份有限公司2026年面向专业投资者公开发行科技创新公司债券（第一期）发行规模为不超过人民币30亿元（含30亿元）。根据网下专业机构投资者询价结果，经发行人和簿记管理人协商一致，最终确定本期债券品种一的票面利率为2.37%，品种二的票面利率为2.49%。责任编辑：卢昱君
+发布时间：2026年06月05日 20:22 来源：中国新闻网 一把不到3厘米长的金属螺丝刀，竟然在一位七旬老人的气管里“安家”了一年多。近日，西南医院江北院区呼吸与重症医学科成功为70岁的老人取出这枚藏匿于右肺下叶支气管内的异物，全程仅用时10分钟。 患者回忆，2024年11月在牙科诊所接受种植牙手术时，一把约2.5厘米长的螺丝刀意外掉入气道。因当时呼吸并无明显不适，诊所医生
 
 ## 正文
 
-中国铁建（01186）发布公告，中国铁建股份有限公司2026年面向专业投资者公开发行科技创新公司债券（第一期）发行规模为不超过人民币30亿元（含30亿元）。
+发布时间：2026年06月05日 20:22 来源：中国新闻网 一把不到3厘米长的金属螺丝刀，竟然在一位七旬老人的气管里“安家”了一年多。
 
-根据网下专业机构投资者询价结果，经发行人和簿记管理人协商一致，最终确定本期债券品种一的票面利率为2.37%，品种二的票面利率为2.49%。
+近日，西南医院江北院区呼吸与重症医学科成功为70岁的老人取出这枚藏匿于右肺下叶支气管内的异物，全程仅用时10分钟。
 
-责任编辑：卢昱君
+患者回忆，2024年11月在牙科诊所接受种植牙手术时，一把约2.5厘米长的螺丝刀意外掉入气道。
+
+因当时呼吸并无明显不适，诊所医生判断可能落入食道，老人便未在意。
+
+此后一年多，他偶尔咳嗽、呼吸不畅，一直当作感冒处理。
+
+直到今年3月的一次体检，CT检查才发现气管内的金属异物。
+
+由于异物位置刁钻、表面光滑且边缘锐利，常规软式支气管镜难以稳妥取出。
+
+医院呼吸与重症医学科副主任医师王兮决定采用硬质气管/支气管镜技术，在全麻下为患者实施异物取出术。
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 21:53 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 22:00 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 21:54 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 21:58 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-29 21:57 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 21:56 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 21:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 22:04 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 22:10 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 22:01 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 22:16 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 22:09 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 22:06 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-29 22:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 22:09 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 22:07 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 22:02 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 22:16 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 21:48 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 21:54 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/17404288.shtml)
-- 2026-06-29 22:02 - [周杰伦千禧年就有小卡了](http://www.blog.kurohicncr.top/Article/details/3114446.shtml)
-- 2026-06-29 22:08 - [教育部高校学生资助热线7月1日开通](https://www.blog.kurohicncr.top/Article/details/2319722.shtml)
-- 2026-06-29 21:54 - [小娘惹](http://www.blog.minike.top/Article/details/0778812044.shtml)
-- 2026-06-29 21:52 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/723600136.shtml)
-- 2026-06-29 21:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/44006774645.shtml)
-- 2026-06-29 21:43 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/50552825008.shtml)
-- 2026-06-29 22:03 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/09230244.shtml)
-- 2026-06-29 21:42 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/6642094613.shtml)
-- 2026-06-29 22:02 - [山东发布山洪灾害气象预警](http://www.share.kurohicncr.top/Article/details/88180.shtml)
-- 2026-06-29 22:02 - [记者乘坐无人驾驶汽车去采访](https://www.blog.kurohicncr.top/Article/details/32610606.shtml)
-- 2026-06-29 21:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/974237740.shtml)
-- 2026-06-29 21:59 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/22555456456.shtml)
-- 2026-06-29 21:59 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/361139158.shtml)
-- 2026-06-29 22:10 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/3475423.shtml)
+- 2026-06-29 22:02 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/6167419063.shtml)
+- 2026-06-29 21:54 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/234643388.shtml)
+- 2026-06-29 22:09 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/890833087901.shtml)
+- 2026-06-29 22:01 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/294614340477.shtml)
+- 2026-06-29 22:10 - [战略导弹部队60年如何炼成大国长剑](http://www.share.minike.top/Article/details/15828.shtml)
+- 2026-06-29 22:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/99711501886.shtml)
+- 2026-06-29 21:55 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/38112.shtml)
+- 2026-06-29 22:15 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/093189.shtml)
+- 2026-06-29 22:13 - [田曦薇没招了](https://www.share.minike.top/Article/details/159908759.shtml)
+- 2026-06-29 21:58 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/501650217371.shtml)
+- 2026-06-29 22:12 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/37860.shtml)
+- 2026-06-29 21:56 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/29447219391.shtml)
+- 2026-06-29 22:01 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/06090137.shtml)
+- 2026-06-29 21:58 - [运-20网宣片中的“小六”或是六代机](http://www.share.kurohicncr.top/Article/details/048144744.shtml)
+- 2026-06-29 21:57 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/678122392.shtml)

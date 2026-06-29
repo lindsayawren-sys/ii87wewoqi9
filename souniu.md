@@ -1,59 +1,58 @@
-# 南方基金旗下多只产品入选工商银行“工盈研选”系列
+# “双罚”超四百万：新局长上任后的保险业首张罚单开向太平财险
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。据悉，“工盈研选”从客户能理解、基层易营销的角度，围绕收益、回撤等核心指标设定量化标准，并与合作机构共同建设和维护产品池。首期推出的“安盈”“智盈”两大产品系列，分别匹配
+6月5日，丁向群被正式任命为国家金融监督管理总局局长。同日，金融监管总局发布了新局长到任后的首张保险业罚单，太平财险被罚373万元，同时7名相关责任人员被警告并共计罚款62万元。 罚单信息显示，太平财险此次被罚涉及多项事由，包括未按规定提取未决赔款准备金，未按照规定使用经批准或备案的保险条款、费率，报送数据不准确，跨区域开展业务等。 基于此，金融监管总局对太平财险进行警告并罚款
 
 ## 正文
 
-近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
+6月5日，丁向群被正式任命为国家金融监督管理总局局长。
 
-据悉，“工盈研选”从客户能理解、基层易营销的角度，围绕收益、回撤等核心指标设定量化标准，并与合作机构共同建设和维护产品池。
+同日，金融监管总局发布了新局长到任后的首张保险业罚单，太平财险被罚373万元，同时7名相关责任人员被警告并共计罚款62万元。
 
-首期推出的“安盈”“智盈”两大产品系列，分别匹配不同风险偏好与投资需求。
+罚单信息显示，太平财险此次被罚涉及多项事由，包括未按规定提取未决赔款准备金，未按照规定使用经批准或备案的保险条款、费率，报送数据不准确，跨区域开展业务等。
 
-具体来看，“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，为客户实现资产稳健增长提供支撑；“智盈”系列聚焦权益指数类产品，精选指数、指数增强产品，为追求更高收益的客户提供进攻性的收益增强工具。
+基于此，金融监管总局对太平财险进行警告并罚款373万元。
 
-在此次筛选中，南方基金旗下多只产品凭借良好的风险收益特征入选。
+同时，对任杰、许龙等7名相关责任人员警告并罚款共计62万元。
 
-其中，南方多利增强债券入选“安盈”系列；南方沪深300ETF联接、南方中证A500ETF联接、南方标普红利低波50ETF联接、南方中证科创创业50ETF联接、南方中证半导体产业指数发起、南方上证科创板芯片ETF发起联接等产品入选“智盈”系列。
+机构、人员“双罚”总额达435万元。
 
-具体来看，入选“安盈”系列的南方多利增强债券作为一级债基，以债券收益为基础，通过灵活运用可转债、新股申购等多元策略积极增厚收益。
+太平财险1月末发布的“太平财险不动产投资管理能力（直接投资不动产）建设及自评估情况”信息显示，任杰的职务为投资管理部总经理。
 
-数据显示，基金A份额近一年净值增长率达10.11%（同期业绩比较基准为-1.53%），成立以来累计收益率达143.34%（同期业绩比较基准为16.04%）。
+官网信息显示，太平财险是中国太平保险集团旗下财产保险子公司，成立于2001年，注册资本为76.7亿元。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 21:53 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 22:05 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 21:45 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 22:06 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 22:06 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 22:11 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 21:47 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 22:01 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 22:10 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 21:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-29 21:54 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 21:59 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 21:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 22:02 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 21:53 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 22:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 22:05 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 21:54 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-29 21:52 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 22:06 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 22:12 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 22:16 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-29 22:02 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 21:55 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/14472.shtml)
-- 2026-06-29 21:51 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/62180753503.shtml)
-- 2026-06-29 21:49 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/58984.shtml)
-- 2026-06-29 21:50 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/0593166.shtml)
-- 2026-06-29 21:51 - [巴西10号球衣是天才传承史](https://www.share.kurohicncr.top/Article/details/54152975394.shtml)
-- 2026-06-29 21:55 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/20682.shtml)
-- 2026-06-29 21:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/149347616383.shtml)
-- 2026-06-29 22:06 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/239020.shtml)
-- 2026-06-29 22:02 - [不烧钱的低成本爱好](http://www.blog.minike.top/Article/details/34481974.shtml)
-- 2026-06-29 21:44 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/6912675111.shtml)
-- 2026-06-29 22:08 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/812348352.shtml)
-- 2026-06-29 22:02 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/489052782090.shtml)
-- 2026-06-29 22:11 - [爱很美味](http://www.blog.minike.top/Article/details/0045336309.shtml)
-- 2026-06-29 22:10 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/6062450770.shtml)
-- 2026-06-29 22:02 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/1639570.shtml)
+- 2026-06-29 21:53 - [恋与深空7天掉粉超50万](https://www.blog.minike.top/Article/details/28084203.shtml)
+- 2026-06-29 21:58 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/819168.shtml)
+- 2026-06-29 22:12 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/2597610.shtml)
+- 2026-06-29 21:49 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/3475371.shtml)
+- 2026-06-29 22:15 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/219205.shtml)
+- 2026-06-29 21:53 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/252708.shtml)
+- 2026-06-29 22:12 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/17190822182.shtml)
+- 2026-06-29 22:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/1026574723.shtml)
+- 2026-06-29 21:57 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/0665972.shtml)
+- 2026-06-29 22:16 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/287607269.shtml)
+- 2026-06-29 22:09 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/066200.shtml)
+- 2026-06-29 22:05 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/18635701.shtml)
+- 2026-06-29 21:57 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/064549792.shtml)
+- 2026-06-29 21:59 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/67433.shtml)
+- 2026-06-29 22:01 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/8034462.shtml)

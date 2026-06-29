@@ -1,56 +1,49 @@
-# 拐点要来了！
+# 中信保诚人寿安阳中支被罚18万，涉编制虚假资料
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-来源：Mask的小酒馆 这一轮市场的钱，真是疯狂涌入科技。 比如科创芯片etf啊，半导体etf啊，还有我们上次说过的港股通信息技术ETF，他们的成交量也都在不断放大。 原因也很简单，就是港股通信息技术这个ETF主要聚焦的是硬科技，他不包含腾讯阿里等传统的互联网大公司，他的就是计算机软件占28.4%，消费电子占44%，半导体占27.5%。 而现在硬科技的业绩又是拿的出手的。 因为
+蓝鲸新闻6月5日讯，近日，国家金融监督管理总局安阳监管分局发布行政处罚决定书，剑指中信保诚人寿保险有限公司安阳中心支公司及其相关责任人。罚单显示，中信保诚人寿保险有限公司安阳中心支公司的主要违法违规行为是：编制虚假资料。针对以上问题，国家金融监督管理总局安阳监管分局对其罚款18万元。对时任中信保诚人寿保险有限公司安阳中心支公司副总经理的李斌，警告并处罚款2万元；对时任银保业务部
 
 ## 正文
 
-来源：Mask的小酒馆 这一轮市场的钱，真是疯狂涌入科技。
+蓝鲸新闻6月5日讯，近日，国家金融监督管理总局安阳监管分局发布行政处罚决定书，剑指中信保诚人寿保险有限公司安阳中心支公司及其相关责任人。
 
-比如科创芯片etf啊，半导体etf啊，还有我们上次说过的港股通信息技术ETF，他们的成交量也都在不断放大。
+罚单显示，中信保诚人寿保险有限公司安阳中心支公司的主要违法违规行为是：编制虚假资料。
 
-原因也很简单，就是港股通信息技术这个ETF主要聚焦的是硬科技，他不包含腾讯阿里等传统的互联网大公司，他的就是计算机软件占28.4%，消费电子占44%，半导体占27.5%。
+针对以上问题，国家金融监督管理总局安阳监管分局对其罚款18万元。
 
-而现在硬科技的业绩又是拿的出手的。
-
-因为全球AI的资本开支加大，硬科技公司基本上都赚钱了。
-
-比如中芯和华虹2026年的一季报业绩大涨，晶圆代工赚得盆满钵满。
-
-而且根据SEMI的报告，2025年全球半导体材料市场销售额同比增长6.8%，达到732亿美元。
-
-同时正在冲刺IPO的长江和长鑫，今年的业绩更是爆表。
+对时任中信保诚人寿保险有限公司安阳中心支公司副总经理的李斌，警告并处罚款2万元；对时任银保业务部总经理的谢松源，警告并处罚款1万元。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 21:51 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-29 22:08 - [周杰伦千禧年就有小卡了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 22:05 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
-- 2026-06-29 21:48 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 22:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 22:04 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 21:54 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 22:07 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-29 22:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 21:53 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 21:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 22:17 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 22:16 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 22:13 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 21:53 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 22:05 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 21:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 22:04 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 22:03 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 22:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:55 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/605271863148.shtml)
-- 2026-06-29 21:42 - [TFing最具影响力音乐厂牌](https://www.blog.kurohicncr.top/Article/details/029974442990.shtml)
-- 2026-06-29 22:03 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/30900970.shtml)
-- 2026-06-29 22:03 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/150378191.shtml)
-- 2026-06-29 22:05 - [千与千寻](https://www.share.minike.top/Article/details/786438165.shtml)
-- 2026-06-29 22:05 - [小龙女配音去世 李若彤发文悼念](http://www.share.minike.top/Article/details/239861.shtml)
-- 2026-06-29 21:53 - [女心理师](https://www.blog.minike.top/Article/details/38970498.shtml)
-- 2026-06-29 21:53 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/7584812.shtml)
-- 2026-06-29 21:42 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/909753276.shtml)
-- 2026-06-29 22:05 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/42031685.shtml)
-- 2026-06-29 21:46 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/1211327.shtml)
-- 2026-06-29 21:54 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/6283575243.shtml)
-- 2026-06-29 22:01 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/32166437.shtml)
-- 2026-06-29 21:53 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/1778088.shtml)
-- 2026-06-29 22:12 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.kurohicncr.top/Article/details/43789156671.shtml)
+- 2026-06-29 22:07 - [送你一朵小红花](https://www.share.minike.top/Article/details/341640524391.shtml)
+- 2026-06-29 22:03 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/844622857205.shtml)
+- 2026-06-29 21:52 - [扫黑风暴](https://www.share.minike.top/Article/details/840967591117.shtml)
+- 2026-06-29 22:05 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/07268.shtml)
+- 2026-06-29 22:05 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/120824611344.shtml)
+- 2026-06-29 21:55 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/382284600.shtml)
+- 2026-06-29 21:52 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/54294.shtml)
+- 2026-06-29 22:03 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.minike.top/Article/details/50050.shtml)
+- 2026-06-29 21:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/35858401.shtml)
+- 2026-06-29 22:16 - [被中方管控的20家日本实体什么来头](https://www.share.minike.top/Article/details/33772186862.shtml)
+- 2026-06-29 21:52 - [世界杯](http://www.blog.kurohicncr.top/Article/details/35148094.shtml)
+- 2026-06-29 22:12 - [中国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/5906262720.shtml)
+- 2026-06-29 22:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/81035.shtml)
+- 2026-06-29 21:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/0455080.shtml)
+- 2026-06-29 21:49 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/06185.shtml)

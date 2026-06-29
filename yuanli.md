@@ -1,45 +1,57 @@
-# 俄罗斯总统普京结束访华
+# 结伙徒步进山 多次在国家公园盗伐珍贵名木 26人被判刑
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-5月20日晚，俄罗斯总统普京结束对中国的国事访问，乘专机离开北京。 总监制丨申勇 监制丨龚雪辉 许达 记者丨史伟 王鹏飞 杨紫童 赵化 黄茜 吉生亮(央视新闻客户端)
+海南热带雨林国家公园，拥有众多独有的动植物种类及种质基因库。一棵棵百年古树，是维系这片绿色生态不可或缺的支撑。然而，为牟取暴利，犯罪团伙把这片自然遗产当作目标，持续盗伐珍贵名木。最终，因危害国家重点保护植物等罪名获刑。同时，部分被告人购买了碳汇，替代履行生态损害赔偿责任。 海南省乐东黎族自治县人民检察院检察官 邢标：被告人分三组在2016年到2024年2月份期间到案发地点，分别
 
 ## 正文
 
-5月20日晚，俄罗斯总统普京结束对中国的国事访问，乘专机离开北京。
+海南热带雨林国家公园，拥有众多独有的动植物种类及种质基因库。
 
-总监制丨申勇 监制丨龚雪辉 许达 记者丨史伟 王鹏飞 杨紫童 赵化 黄茜 吉生亮(央视新闻客户端)
+一棵棵百年古树，是维系这片绿色生态不可或缺的支撑。
+
+然而，为牟取暴利，犯罪团伙把这片自然遗产当作目标，持续盗伐珍贵名木。
+
+最终，因危害国家重点保护植物等罪名获刑。
+
+同时，部分被告人购买了碳汇，替代履行生态损害赔偿责任。
+
+海南省乐东黎族自治县人民检察院检察官 邢标：被告人分三组在2016年到2024年2月份期间到案发地点，分别砍伐紫荆木、绿楠、陆均松，又将这些木头加工成方木或者板块，从山上拖拽下来。
+
+检察官提到的这些木材，并不是普通的树木。
+
+其中，海南紫荆木是国家二级保护野生植物，木质极其坚韧，是海南特有的珍稀树种；而绿楠与陆均松，同样是热带雨林中极其珍贵的建群树种。
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 22:06 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
-- 2026-06-29 22:00 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 21:42 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 21:56 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 21:57 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 22:07 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 21:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 21:50 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 21:48 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 21:49 - [黄金也扛不住了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 22:05 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 22:00 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 21:49 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 21:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-29 22:00 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-29 22:17 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 22:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 22:12 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:59 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-29 22:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 21:49 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:53 - [曝iPhone涨价后不会再降](http://www.blog.kurohicncr.top/Article/details/99922640653.shtml)
-- 2026-06-29 21:54 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/9186310.shtml)
-- 2026-06-29 21:51 - [恋与深空客服的回应](http://www.share.kurohicncr.top/Article/details/4667619878.shtml)
-- 2026-06-29 22:04 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/53622486.shtml)
-- 2026-06-29 22:09 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/20090821171.shtml)
-- 2026-06-29 21:50 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/46850032712.shtml)
-- 2026-06-29 21:46 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/5285917.shtml)
-- 2026-06-29 22:08 - [流金岁月](https://www.share.kurohicncr.top/Article/details/992954916.shtml)
-- 2026-06-29 22:10 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/98363150878.shtml)
-- 2026-06-29 21:58 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/499288087171.shtml)
-- 2026-06-29 22:05 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/51535.shtml)
-- 2026-06-29 22:01 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/2367381.shtml)
-- 2026-06-29 22:06 - [王鸿薇要求删陆委会百余万特别费](https://www.blog.minike.top/Article/details/933448510.shtml)
-- 2026-06-29 21:58 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/763734907.shtml)
-- 2026-06-29 21:56 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/50313535.shtml)
+- 2026-06-29 22:01 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/068244947.shtml)
+- 2026-06-29 22:09 - [被中方管控的20家日本实体什么来头](http://www.blog.minike.top/Article/details/35890316901.shtml)
+- 2026-06-29 22:06 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/087493.shtml)
+- 2026-06-29 22:15 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/036844190.shtml)
+- 2026-06-29 21:58 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/0759329619.shtml)
+- 2026-06-29 21:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/4947142065.shtml)
+- 2026-06-29 22:07 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/531439.shtml)
+- 2026-06-29 21:48 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/129691.shtml)
+- 2026-06-29 21:54 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/98308.shtml)
+- 2026-06-29 22:13 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/718024.shtml)
+- 2026-06-29 21:57 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/4854322.shtml)
+- 2026-06-29 22:08 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/037095617932.shtml)
+- 2026-06-29 22:07 - [王鸿薇要求删陆委会百余万特别费](http://www.share.kurohicncr.top/Article/details/96769.shtml)
+- 2026-06-29 22:04 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/789291.shtml)
+- 2026-06-29 22:10 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/80531.shtml)

@@ -1,59 +1,56 @@
-# “火”上央视！奥比中光人形机器人客户订单增长再提速
+# 海外华文媒体走进成都崇州 解码小城文化“混血”基因
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-人形机器人正迈入量产提速与商业化落地的新阶段。5月20日，央视财经频道《正点财经》聚焦人形机器人产业链发展情况，报道国内核心零部件与本体企业协同创新趋势。奥比中光作为上游核心零部件企业代表亮相，展示了在产业链需求快速释放的背景下，公司订单增长、交付提效及产业协同等最新进展。环比翻倍一季度人形需求持续攀升在奥比中光的3D视觉感知产业智能制造基地，生产线正加速运转。央视财经报道指出
+中新网成都6月6日电 (祝欢)唐风蜀韵景区、北美风情街、藏文化收藏馆、川剧老茶馆……6日，“2026海外华文媒体川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进成都崇州唐人街特色街区，穿行数个“中西合璧、古今交融”场馆，实地感受这座川西小城独特的“文化混血”基因。 沿着主干道前行，中式风格蜀州牌楼与北美风情商业街隔街相望。这片被当地称为“唐人街”的区域，并非传统意义上的海
 
 ## 正文
 
-人形机器人正迈入量产提速与商业化落地的新阶段。
+中新网成都6月6日电 (祝欢)唐风蜀韵景区、北美风情街、藏文化收藏馆、川剧老茶馆……6日，“2026海外华文媒体川渝行——聚焦成渝地区双城经济圈建设”联合参访活动走进成都崇州唐人街特色街区，穿行数个“中西合璧、古今交融”场馆，实地感受这座川西小城独特的“文化混血”基因。
 
-5月20日，央视财经频道《正点财经》聚焦人形机器人产业链发展情况，报道国内核心零部件与本体企业协同创新趋势。
+沿着主干道前行，中式风格蜀州牌楼与北美风情商业街隔街相望。
 
-奥比中光作为上游核心零部件企业代表亮相，展示了在产业链需求快速释放的背景下，公司订单增长、交付提效及产业协同等最新进展。
+这片被当地称为“唐人街”的区域，并非传统意义上的海外华埠，而是一座小城主动拥抱多元文化、重塑文旅生态的地方。
 
-环比翻倍一季度人形需求持续攀升在奥比中光的3D视觉感知产业智能制造基地，生产线正加速运转。
+据介绍，崇州古称“蜀州”，有4300多年文明史，是古蜀文明的重要发源地之一。
 
-央视财经报道指出，过去人形机器人核心零部件长期依赖进口，近年来国内产业链技术持续突破，国产厂商迎来重要发展机遇。
+成都唐人街依托深厚文脉，深入挖掘地方文化资源，同时延伸展示盛唐文化的海外影响，通过建设北美风情街和欧洲风情街，再现海外唐人街的生活场景，生动表达中华文化的博大精深与华夏儿女血脉相连的民族情感，为海外华人回国创业、旅游、交流搭建了重要平台。
 
-奥比中光产品与技术支持中心负责人钟亮洪表示，3D视觉传感器作为人形机器人的“眼睛”，不仅要实现毫米级高精度，以满足精细操作需求，还需要拥有复杂环境下的场景适应能力。
+这种强烈的视觉对比与文化碰撞，令罗马尼亚《欧洲侨报》副社长孙雨梅颇感新奇。
 
-受益于行业需求快速增长，2025年以来，奥比中光人形机器人相关订单季度环比增速均超过60%；2026年第一季度，订单实现环比翻倍增长。
+“崇州的唐人街融入了更多中国文化和本土文化，充分体现了这座城市的包容性。
 
-与此同时，公司持续优化供应链与制造体系，整体交付周期已由约40天缩短至20天左右，进一步提升规模化交付能力。
+”孙雨梅表示，将充分宣传崇州的“文化混血”内涵和传承精神。
 
 ## 相关推荐
 
-- 2026-06-29 21:49 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 22:01 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 22:11 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 22:10 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-29 21:56 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 21:56 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 21:43 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-29 22:05 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 21:49 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 22:11 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 21:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 21:54 - [直击委内瑞拉加拉加斯救援现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 21:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-29 22:17 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 21:56 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 21:54 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 22:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 22:14 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-29 22:14 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 21:56 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-29 21:58 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 22:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 21:52 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/6234260.shtml)
-- 2026-06-29 21:56 - [沪指深V回升站稳4000点](https://www.share.minike.top/Article/details/7165654.shtml)
-- 2026-06-29 22:08 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/96934102.shtml)
-- 2026-06-29 22:09 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.minike.top/Article/details/68886546720.shtml)
-- 2026-06-29 21:56 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/93304795.shtml)
-- 2026-06-29 22:03 - [天气热脾气都变差了](http://www.share.minike.top/Article/details/7236312632.shtml)
-- 2026-06-29 21:52 - [恋与深空致歉](https://www.blog.minike.top/Article/details/55019006744.shtml)
-- 2026-06-29 21:49 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/100073.shtml)
-- 2026-06-29 22:06 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.kurohicncr.top/Article/details/746079069840.shtml)
-- 2026-06-29 22:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/5218599.shtml)
-- 2026-06-29 22:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/4843897020.shtml)
-- 2026-06-29 22:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/9953159.shtml)
-- 2026-06-29 21:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/89391.shtml)
-- 2026-06-29 21:53 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.kurohicncr.top/Article/details/1369300881.shtml)
-- 2026-06-29 21:55 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/12577612.shtml)
+- 2026-06-29 22:13 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/73496938.shtml)
+- 2026-06-29 21:49 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/991455266.shtml)
+- 2026-06-29 22:08 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/8074661762.shtml)
+- 2026-06-29 22:00 - [月亮](https://www.share.minike.top/Article/details/785229897462.shtml)
+- 2026-06-29 22:08 - [T1 3-0 KC赛后数据](https://www.share.kurohicncr.top/Article/details/75582629.shtml)
+- 2026-06-29 22:06 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/6172639.shtml)
+- 2026-06-29 22:11 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/2615124915.shtml)
+- 2026-06-29 22:15 - [乌克兰发广告全球征兵](https://www.blog.kurohicncr.top/Article/details/6195531392.shtml)
+- 2026-06-29 21:49 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/22326292.shtml)
+- 2026-06-29 21:52 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/69629813996.shtml)
+- 2026-06-29 22:12 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/0502671.shtml)
+- 2026-06-29 22:17 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/59345982.shtml)
+- 2026-06-29 22:06 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/1355443759.shtml)
+- 2026-06-29 22:05 - [欧洲高温会成下个印度吗](http://www.blog.minike.top/Article/details/798808.shtml)
+- 2026-06-29 22:12 - [因凡蒂诺小组赛期间乘私人飞机27次](http://www.share.kurohicncr.top/Article/details/60683829651.shtml)

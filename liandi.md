@@ -1,60 +1,61 @@
-# 羊卓雍措湖畔，书声越过山峦
+# 施乐获STARTEEPO持股增至6%以上， 股价应声上涨
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网拉萨5月21日电 题：羊卓雍措湖畔，书声越过山峦 中新网记者 贡桑拉姆 今年是西藏和平解放75周年。在羊卓雍措湖畔的山南市贡嘎县东拉乡芝龙小学，琅琅读书声穿透晨雾，回荡在海拔4480米的山谷间。这里的少年不仅能熟练运用国家通用语言文字诵读课文，更在沟通对话中，展现出从容自信的面貌。 多年来，西藏扎实推进国家通用语言文字教育教学，以语言为纽带搭建沟通之桥，不断增进各民族交往
+施乐公司股价周四上涨逾3%，此前另类投资机构STARTEEPO Invest披露已将在该公司的持股比例提升至6%以上。据STARTEEPO向美国证券交易委员会提交的修订版文件显示，该基金目前实益持有施乐约800万股普通股，并持有额外14万股的期权，已成为施乐第三大股东。 STARTEEPO董事会主席Frantisek Bostl在一份声明中表示，对该基金而言，施乐是一项高确信度
 
 ## 正文
 
-中新网拉萨5月21日电 题：羊卓雍措湖畔，书声越过山峦 中新网记者 贡桑拉姆 今年是西藏和平解放75周年。
+施乐公司股价周四上涨逾3%，此前另类投资机构STARTEEPO Invest披露已将在该公司的持股比例提升至6%以上。
 
-在羊卓雍措湖畔的山南市贡嘎县东拉乡芝龙小学，琅琅读书声穿透晨雾，回荡在海拔4480米的山谷间。
+据STARTEEPO向美国证券交易委员会提交的修订版文件显示，该基金目前实益持有施乐约800万股普通股，并持有额外14万股的期权，已成为施乐第三大股东。
 
-这里的少年不仅能熟练运用国家通用语言文字诵读课文，更在沟通对话中，展现出从容自信的面貌。
+STARTEEPO董事会主席Frantisek Bostl在一份声明中表示，对该基金而言，施乐是一项高确信度投资，也是其投资组合中最大的持仓之一。
 
-多年来，西藏扎实推进国家通用语言文字教育教学，以语言为纽带搭建沟通之桥，不断增进各民族交往交流交融。
+随着公司持续推进重组计划、Lexmark整合工作以及管理层对盈利能力和资产负债表的改善，投资信心正在增强。
 
-对于高原的孩子而言，这不仅是掌握一门语言，更是借助这把钥匙，打开通往广阔世界的大门。
+STARTEEPO还认为，施乐近期宣布的认股权证结构可能为公司提供了独特的去杠杆机会。
 
-5月20日，记者走进这所始建于1994年的乡村小学。
+随着股价上涨，认股权证的行权可能带来新股本发行并相应减少未偿债务。
 
-虽地处偏远农牧区，但校园内教学设施齐全、课程体系规范。
+施乐近期业绩确实呈现改善迹象。
 
-课堂上，孩子们目光如炬，沉浸在知识的海洋；课余时分，歌声、球赛与传统藏戏轮番上演，一张张稚嫩脸庞上，尽显高原少年的蓬勃朝气。
+公司第一季度财报显示，调整后营业利润率达3.9%，同比提升240个基点；调整后营业收入达7200万美元，同比增加5000万美元。
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 22:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 21:51 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 21:52 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
-- 2026-06-29 22:00 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 21:44 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 21:51 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
-- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 21:59 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 22:05 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 22:05 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-29 22:02 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-29 21:44 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-29 21:47 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 21:50 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 22:07 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 21:50 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 22:01 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 21:56 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 22:17 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-29 22:14 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 22:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 22:09 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 21:55 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 22:14 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 22:15 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 22:03 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 21:55 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 22:05 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/7174144941.shtml)
-- 2026-06-29 22:02 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/1953624861.shtml)
-- 2026-06-29 21:56 - [铜价上涨 日本住宅水表失窃严重](http://www.blog.kurohicncr.top/Article/details/509040256.shtml)
-- 2026-06-29 22:08 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/040597.shtml)
-- 2026-06-29 21:49 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.minike.top/Article/details/88160242804.shtml)
-- 2026-06-29 21:53 - [乌是否掌握了扭转战局的钥匙](https://www.share.minike.top/Article/details/5153707.shtml)
-- 2026-06-29 22:02 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/306401099.shtml)
-- 2026-06-29 21:50 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/903397487643.shtml)
-- 2026-06-29 21:44 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/07740361.shtml)
-- 2026-06-29 22:07 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/6394052331.shtml)
-- 2026-06-29 22:11 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/580718862.shtml)
-- 2026-06-29 22:02 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/3711737056.shtml)
-- 2026-06-29 22:03 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/844098.shtml)
-- 2026-06-29 21:44 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/375903.shtml)
-- 2026-06-29 21:50 - [中国多领域发布亮眼“成绩单”](http://www.share.minike.top/Article/details/6402934.shtml)
+- 2026-06-29 21:54 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/23447937882.shtml)
+- 2026-06-29 22:09 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/585312.shtml)
+- 2026-06-29 21:56 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/39383616887.shtml)
+- 2026-06-29 21:58 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/355741680299.shtml)
+- 2026-06-29 21:52 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/740919.shtml)
+- 2026-06-29 22:01 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/6822565382.shtml)
+- 2026-06-29 22:04 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/338919073.shtml)
+- 2026-06-29 21:52 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/19659111629.shtml)
+- 2026-06-29 21:56 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/221770799.shtml)
+- 2026-06-29 22:02 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/26691612467.shtml)
+- 2026-06-29 22:13 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/1812920.shtml)
+- 2026-06-29 22:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/35698515454.shtml)
+- 2026-06-29 21:48 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/5496239156.shtml)
+- 2026-06-29 22:06 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/77621.shtml)
+- 2026-06-29 21:54 - [电影《抓特务》总票房破亿](https://www.share.minike.top/Article/details/13352.shtml)

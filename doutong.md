@@ -1,58 +1,57 @@
-# 我国学龄儿童超重肥胖率达19% 你给孩子吃对了吗？
+# 在中东局势存在不确定性之际，日经指数或将下跌
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-今天(20日)是第37个中国学生营养日。数据显示，我国6至17岁的学龄儿童超重肥胖率高达19%，如果得不到有效遏制，到2030年我国儿童超重肥胖率可能达到31.8%。营养过剩与微量营养素缺乏的“隐性饥饿”并存成为当前学龄儿童健康的突出痛点。 我国学龄儿童营养过剩与“隐性饥饿”并存 监测数据显示，我国6~17岁学龄儿童膳食摄入呈现主食超标、荤食过量、微量营养素缺乏等主要问题。在膳
+随着中东冲突的不确定性持续存在，日本股市或将下跌。新加坡交易所的日经指数期货下跌0.4%，至67395点。隔夜科技股的下跌也可能拖累市场。投资者正关注伊朗战争的发展及其对能源和石化产品价格的影响。日经指数周四下跌1.4%，至67470.69点。责任编辑：王永生
 
 ## 正文
 
-今天(20日)是第37个中国学生营养日。
+随着中东冲突的不确定性持续存在，日本股市或将下跌。
 
-数据显示，我国6至17岁的学龄儿童超重肥胖率高达19%，如果得不到有效遏制，到2030年我国儿童超重肥胖率可能达到31.8%。
+新加坡交易所的日经指数期货下跌0.4%，至67395点。
 
-营养过剩与微量营养素缺乏的“隐性饥饿”并存成为当前学龄儿童健康的突出痛点。
+隔夜科技股的下跌也可能拖累市场。
 
-我国学龄儿童营养过剩与“隐性饥饿”并存 监测数据显示，我国6~17岁学龄儿童膳食摄入呈现主食超标、荤食过量、微量营养素缺乏等主要问题。
+投资者正关注伊朗战争的发展及其对能源和石化产品价格的影响。
 
-在膳食结构层面，儿童主食、畜禽肉摄入普遍超标，超过70%的儿童存在肉类过量摄入的情况，蔬菜、水果、奶及大豆制品摄入缺口明显，多数儿童奶类日均摄入量远低于300克的推荐标准，膳食纤维、优质植物蛋白摄入普遍不足。
+日经指数周四下跌1.4%，至67470.69点。
 
-除此之外，我国学龄儿童整体营养素养偏低，仅10.9%的学龄儿童具备合格营养素养，挑食偏食、三餐不规律、不吃早餐、零食替代正餐、久坐少动，进一步加剧了营养失衡问题。
-
-国家食品安全风险评估中心研究员 徐娇：慢性病现在低龄化出现比较多，一个是学生的血压开始升高了，还有痛风症状也都增加了，包括一些心脑血管疾病，也在儿童青少年中间出现一些发展的情况。
-
-主要原因还是跟生活方式有关系，一方面是膳食结构的不合理，另外一方面是运动量不够多，所以就从平衡的角度，我们认为是造成儿童这种慢性病比较多发的一个主要的原因。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 22:07 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 21:49 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 21:56 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 22:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 21:55 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 21:54 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-29 22:03 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 22:04 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 22:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 22:00 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 22:08 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 22:08 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-29 22:15 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 22:06 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 21:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 21:49 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:12 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 21:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 21:59 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-29 22:04 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 22:01 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 22:05 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 21:55 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 22:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 22:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 21:49 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/976113232.shtml)
-- 2026-06-29 21:42 - [送你一朵小红花](https://www.blog.minike.top/Article/details/98456.shtml)
-- 2026-06-29 21:54 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/78640834401.shtml)
-- 2026-06-29 22:07 - [世界杯](http://www.share.minike.top/Article/details/16060839084.shtml)
-- 2026-06-29 21:54 - [105岁女红军看到自己长征时的模样](https://www.share.minike.top/Article/details/43584.shtml)
-- 2026-06-29 22:03 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.kurohicncr.top/Article/details/569971.shtml)
-- 2026-06-29 22:00 - [花6万多相亲对象竟是50元请来的](http://www.share.kurohicncr.top/Article/details/0639102403.shtml)
-- 2026-06-29 21:56 - [急先锋](http://www.share.minike.top/Article/details/01157.shtml)
-- 2026-06-29 21:55 - [店员光脚踩入盆中清洗土豆](http://www.blog.minike.top/Article/details/4540360137.shtml)
-- 2026-06-29 21:56 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/191216096.shtml)
-- 2026-06-29 21:46 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/1389381.shtml)
-- 2026-06-29 21:55 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/0354542522.shtml)
-- 2026-06-29 21:52 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/9289258.shtml)
-- 2026-06-29 21:56 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/6558798980.shtml)
-- 2026-06-29 22:06 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/706441141186.shtml)
+- 2026-06-29 21:51 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/3466489032.shtml)
+- 2026-06-29 22:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/074984537062.shtml)
+- 2026-06-29 22:17 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/46003211697.shtml)
+- 2026-06-29 22:16 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/7076917.shtml)
+- 2026-06-29 21:57 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/9930499.shtml)
+- 2026-06-29 22:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/9847102.shtml)
+- 2026-06-29 21:49 - [多人将马路护栏当球网打羽毛球](https://www.share.minike.top/Article/details/69148013.shtml)
+- 2026-06-29 21:48 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/3867980943.shtml)
+- 2026-06-29 22:17 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/63249399.shtml)
+- 2026-06-29 21:59 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/67965563.shtml)
+- 2026-06-29 21:51 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/630101603810.shtml)
+- 2026-06-29 22:02 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/8868004.shtml)
+- 2026-06-29 22:14 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/527585236198.shtml)
+- 2026-06-29 21:58 - [任泽平：AI浪潮刚刚开始](https://www.blog.minike.top/Article/details/576348175714.shtml)
+- 2026-06-29 21:57 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/903853359641.shtml)

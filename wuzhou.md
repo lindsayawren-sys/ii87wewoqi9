@@ -1,58 +1,60 @@
-# 盗窃钢筋500余吨涉案金额上百万元 6名涉案人员被抓获
+# 四川省自贡市原副市长陈华斌一审获刑十年六个月
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-近日，四川凉山州西昌市公安局成功破获一起特大工地建材盗窃案，抓获犯罪嫌疑人6名，查获被盗钢筋500余吨，涉案金额达100余万元。 近期，西昌市某建筑工地向警方报警，称施工现场大量钢筋建材失窃。接警后，西昌公安全面开展现场勘查、痕迹比对、周边走访及视频研判工作。办案民警依托大数据分析与智慧警务手段，快速锁定3名核心盗窃嫌疑人，成功摸清该团伙人员结构、作案规律及销赃渠道。 为实现全
+中新网成都6月5日电 (记者 刘忠俊)6月5日，四川省乐山市中级人民法院一审公开宣判自贡市人民政府原党组成员、副市长陈华斌受贿一案。被告人陈华斌犯受贿罪，被判处有期徒刑十年六个月，并处罚金人民币100万元；对侦查机关查扣在案的受贿所得财物，依法予以追缴，上缴国库。 经法院审理查明，2012年至2023年，陈华斌利用其担任绵阳市投资促进局党组书记、局长，绵阳市游仙区委副书记、区长
 
 ## 正文
 
-近日，四川凉山州西昌市公安局成功破获一起特大工地建材盗窃案，抓获犯罪嫌疑人6名，查获被盗钢筋500余吨，涉案金额达100余万元。
+中新网成都6月5日电 (记者 刘忠俊)6月5日，四川省乐山市中级人民法院一审公开宣判自贡市人民政府原党组成员、副市长陈华斌受贿一案。
 
-近期，西昌市某建筑工地向警方报警，称施工现场大量钢筋建材失窃。
+被告人陈华斌犯受贿罪，被判处有期徒刑十年六个月，并处罚金人民币100万元；对侦查机关查扣在案的受贿所得财物，依法予以追缴，上缴国库。
 
-接警后，西昌公安全面开展现场勘查、痕迹比对、周边走访及视频研判工作。
+经法院审理查明，2012年至2023年，陈华斌利用其担任绵阳市投资促进局党组书记、局长，绵阳市游仙区委副书记、区长等职务便利，为他人在土地供应、项目承揽等方面提供便利、谋取利益，非法收受他人财物，共计折合人民币1179万余元，其中606万余元款项至案发尚未实际获取。
 
-办案民警依托大数据分析与智慧警务手段，快速锁定3名核心盗窃嫌疑人，成功摸清该团伙人员结构、作案规律及销赃渠道。
+乐山市中级人民法院审理认为，陈华斌身为党员领导干部、国家工作人员，利用职务便利收受他人财物、为他人谋利，其行为已构成受贿罪，且受贿数额特别巨大，依法应予从严惩处。
 
-为实现全链条打击，西昌市公安局刑侦大队联合川兴派出所同步开展集中收网行动，一举将3名盗窃嫌疑人、2名收赃人员及1名运输人员悉数抓获，斩断其“盗运销”黑色产业链。
+鉴于陈华斌部分受贿系未遂，其到案后如实供述监察机关已掌握的全部受贿犯罪事实，认罪认罚，积极退赃，受贿所得财物已全部追缴到案，对其可依法从轻处罚。
 
-经依法审查查明，该犯罪团伙分工明确、流窜作案，先后在建筑工地实施盗窃10余起，疯狂窃取建筑钢筋累计500余吨，涉案价值高达100余万元。
+法庭遂依法作出上述判决。
 
-目前，案件正在进一步侦办中。
+据了解，本案已于2026年3月31日在乐山市中级人民法院公开开庭审理。
 
-(总台记者 李朕 黄鹂)
+庭审中，检察机关依法出示了相关证据，被告人陈华斌及其辩护人进行了质证，控辩双方在法庭的主持下充分发表意见，陈华斌进行了最后陈述，并当庭表示认罪悔罪。
 
 ## 相关推荐
 
-- 2026-06-29 21:47 - [英法德葡存在什么隐患](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 21:59 - [王楚钦开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 21:45 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 21:49 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 22:06 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 21:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 21:54 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 22:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 22:10 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 21:53 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 22:08 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
-- 2026-06-29 21:52 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 21:58 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 22:13 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 22:04 - [教育部高校学生资助热线7月1日开通](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 22:14 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 22:03 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 21:48 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 22:05 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 22:16 - [任泽平：AI浪潮刚刚开始](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 22:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 22:07 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 22:08 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-29 22:16 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 22:15 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 22:05 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:50 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/89433351968.shtml)
-- 2026-06-29 21:42 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/9217307.shtml)
-- 2026-06-29 21:49 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/55953127874.shtml)
-- 2026-06-29 21:44 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.share.minike.top/Article/details/276107.shtml)
-- 2026-06-29 21:57 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/10454369.shtml)
-- 2026-06-29 21:50 - [王安宇聪明到导演组炸了](http://www.share.minike.top/Article/details/403404404337.shtml)
-- 2026-06-29 21:59 - [王楚钦开门红](https://www.share.minike.top/Article/details/11238.shtml)
-- 2026-06-29 22:10 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/68412.shtml)
-- 2026-06-29 22:02 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/294948.shtml)
-- 2026-06-29 22:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/9457715.shtml)
-- 2026-06-29 22:10 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/58625.shtml)
-- 2026-06-29 21:52 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/940281.shtml)
-- 2026-06-29 22:00 - [127只股涨停 最大封单资金6.04亿元](http://www.share.kurohicncr.top/Article/details/742386.shtml)
-- 2026-06-29 22:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/847687581.shtml)
-- 2026-06-29 22:03 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/93574105818.shtml)
+- 2026-06-29 21:58 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/239860737346.shtml)
+- 2026-06-29 22:05 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/133216205.shtml)
+- 2026-06-29 22:16 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/6262926685.shtml)
+- 2026-06-29 22:11 - [扬名立万](https://www.share.kurohicncr.top/Article/details/725769082.shtml)
+- 2026-06-29 22:12 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/6132633157.shtml)
+- 2026-06-29 22:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/840849.shtml)
+- 2026-06-29 21:58 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/8301115.shtml)
+- 2026-06-29 22:13 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/7413314.shtml)
+- 2026-06-29 21:50 - [美股三大指数高开 西部数据涨超2%](http://www.blog.minike.top/Article/details/172012311.shtml)
+- 2026-06-29 22:14 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/609858051813.shtml)
+- 2026-06-29 22:15 - [国常会听取人工智能发展情况汇报](https://www.share.minike.top/Article/details/3891107538.shtml)
+- 2026-06-29 22:01 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/52925881829.shtml)
+- 2026-06-29 22:14 - [腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/280802458.shtml)
+- 2026-06-29 22:09 - [中方在台湾岛以东海域活动合理合法](https://www.share.kurohicncr.top/Article/details/993683.shtml)
+- 2026-06-29 22:07 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/769988078.shtml)

@@ -1,54 +1,48 @@
-# 夏巴兹将访华，中巴会否讨论伊朗问题？ 中方回应
+# 国际“夜经济达人”献计上海
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电 (记者 谢雁冰)中国外交部发言人郭嘉昆21日主持例行记者会。 有记者提问：外交部刚发布了巴基斯坦总理夏巴兹将访华的消息。此访期间，双方是否会讨论伊朗问题？ 郭嘉昆：夏巴兹总理访华期间，中巴领导人将就双边关系和共同关心的问题深入交换意见。 关于伊朗问题，我们已经多次阐明立场，中方支持巴基斯坦为促和止战发挥公正平衡的斡旋作用。中方将根据习近平主席四点主张精神
+发布时间：2026年06月06日 14:42 来源：中国新闻网 6月5日晚，2026“精彩夜上海”黄浦区推介活动在沪拉开帷幕。作为上海夜间经济的标杆区域，黄浦区现场发布“2026黄浦区夜生活地图”，整合特色夜间消费、文化、休闲场景，为市民和游客提供一份实用的夏夜漫游指南。 现场吸引了一批全球夜经济专家，他们在受访时纷纷为上海夜间经济发展支招。 (记者 郑莹莹 制作 王佳琪） 责
 
 ## 正文
 
-中新网北京5月21日电 (记者 谢雁冰)中国外交部发言人郭嘉昆21日主持例行记者会。
+发布时间：2026年06月06日 14:42 来源：中国新闻网 6月5日晚，2026“精彩夜上海”黄浦区推介活动在沪拉开帷幕。
 
-有记者提问：外交部刚发布了巴基斯坦总理夏巴兹将访华的消息。
+作为上海夜间经济的标杆区域，黄浦区现场发布“2026黄浦区夜生活地图”，整合特色夜间消费、文化、休闲场景，为市民和游客提供一份实用的夏夜漫游指南。
 
-此访期间，双方是否会讨论伊朗问题？
+现场吸引了一批全球夜经济专家，他们在受访时纷纷为上海夜间经济发展支招。
 
-郭嘉昆：夏巴兹总理访华期间，中巴领导人将就双边关系和共同关心的问题深入交换意见。
-
-关于伊朗问题，我们已经多次阐明立场，中方支持巴基斯坦为促和止战发挥公正平衡的斡旋作用。
-
-中方将根据习近平主席四点主张精神，同包括巴方在内的国际社会一道，为早日恢复中东地区和平稳定作出积极贡献。
-
-(完)
+(记者 郑莹莹 制作 王佳琪） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 21:50 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-29 21:55 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 22:05 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-29 21:53 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-29 22:07 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 22:10 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 21:42 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 21:47 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 21:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 21:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 22:00 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 22:13 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 21:54 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 22:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 21:59 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 21:56 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 22:05 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 22:07 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 22:16 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 21:55 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/890597183.shtml)
-- 2026-06-29 21:43 - [佛得角队长门德斯被控强奸](https://www.share.kurohicncr.top/Article/details/4229941.shtml)
-- 2026-06-29 21:50 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/682149332277.shtml)
-- 2026-06-29 22:04 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/327222.shtml)
-- 2026-06-29 22:11 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/455421.shtml)
-- 2026-06-29 21:58 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/4159375806.shtml)
-- 2026-06-29 22:08 - [绘画区你赢了](https://www.blog.minike.top/Article/details/089142.shtml)
-- 2026-06-29 21:54 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/46312.shtml)
-- 2026-06-29 21:56 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/915337333.shtml)
-- 2026-06-29 21:48 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/53412789178.shtml)
-- 2026-06-29 22:01 - [恋与深空制作组回应争议](https://www.share.minike.top/Article/details/24139.shtml)
-- 2026-06-29 21:54 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/645052.shtml)
-- 2026-06-29 21:55 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/788485456442.shtml)
-- 2026-06-29 21:50 - [吴建豪和老婆差20岁](https://www.blog.kurohicncr.top/Article/details/78601.shtml)
-- 2026-06-29 22:10 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/4481809.shtml)
+- 2026-06-29 22:03 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/60413901661.shtml)
+- 2026-06-29 22:15 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/697370425.shtml)
+- 2026-06-29 22:10 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.kurohicncr.top/Article/details/0800395372.shtml)
+- 2026-06-29 22:06 - [一汽大众黄金超混技术来袭](https://www.share.minike.top/Article/details/79818332.shtml)
+- 2026-06-29 22:14 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/3167736.shtml)
+- 2026-06-29 22:02 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/145983908645.shtml)
+- 2026-06-29 21:51 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.minike.top/Article/details/12580367189.shtml)
+- 2026-06-29 21:49 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/61271523.shtml)
+- 2026-06-29 22:09 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/804392102.shtml)
+- 2026-06-29 21:56 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/635191192106.shtml)
+- 2026-06-29 21:50 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/83358906.shtml)
+- 2026-06-29 21:50 - [周生如故](https://www.share.minike.top/Article/details/073104700152.shtml)
+- 2026-06-29 22:14 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/393536562.shtml)
+- 2026-06-29 22:01 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/95276790.shtml)
+- 2026-06-29 22:08 - [外交部回应中日经贸问题](https://www.blog.minike.top/Article/details/790749073237.shtml)

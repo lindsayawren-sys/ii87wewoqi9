@@ -1,58 +1,58 @@
-# 香港立法会全体议员将首次赴北京参加研修考察
+# 同心护生态 粤桂六市深化云开山司法保护区域合作
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新社香港5月21日电 香港特区立法会主席李慧琼21日在社交平台发文公布，香港立法会全体议员将于今年7月19日至25日到北京参加国家事务研修考察。 李慧琼表示，这将是香港回归祖国以来，首次全体议员到北京研修考察，历史意义重大。特区立法会内务委员会将在5月22日讨论有关事宜。 她介绍，根据初步安排，研修考察行程相当丰富紧凑，包括拜访中央港澳办等；参与多个专题讲座并与专家交流，内容
+中新网茂名6月5日电 (梁盛 邹梦婵)5日是2026年“六五环境日”，以“粤桂同心护生态 法检聚力守云开”为主题的粤桂6市深化云开山司法保护区域合作会议在广东茂名市召开。广东茂名、湛江、阳江、云浮与广西梧州、玉林等6市中级法院、检察院，总结三年协作成效、签约深化合作意见，合力守护云开山粤桂生态安全屏障与生物多样性宝库。 活动中，粤桂6市中级法院、检察院签署《广东广西六市深化云开
 
 ## 正文
 
-中新社香港5月21日电 香港特区立法会主席李慧琼21日在社交平台发文公布，香港立法会全体议员将于今年7月19日至25日到北京参加国家事务研修考察。
+中新网茂名6月5日电 (梁盛 邹梦婵)5日是2026年“六五环境日”，以“粤桂同心护生态 法检聚力守云开”为主题的粤桂6市深化云开山司法保护区域合作会议在广东茂名市召开。
 
-李慧琼表示，这将是香港回归祖国以来，首次全体议员到北京研修考察，历史意义重大。
+广东茂名、湛江、阳江、云浮与广西梧州、玉林等6市中级法院、检察院，总结三年协作成效、签约深化合作意见，合力守护云开山粤桂生态安全屏障与生物多样性宝库。
 
-特区立法会内务委员会将在5月22日讨论有关事宜。
+活动中，粤桂6市中级法院、检察院签署《广东广西六市深化云开山司法保护区域合作的意见》文件，在跨域案件协作、生态修复联动、碳汇交易司法保障、建设生态环境司法修复基地、探索设立专门巡回法庭和检察工作室等方面达成深化合作共识，推动粤桂两地司法协作向纵深发展。
 
-她介绍，根据初步安排，研修考察行程相当丰富紧凑，包括拜访中央港澳办等；参与多个专题讲座并与专家交流，内容涵盖国家指导思想、国家五年规划制定、国际地缘政治格局、国家安全、数字中国建设等。
+会上，中山大学生物博物馆副馆长、高级工程师王英勇围绕云开山生态保护与农文旅融合发展等作专题发言。
 
-议员亦会走访不同机关及企业，实地考察新质生产力发展情况，包括航空航天、信息技术应用、传统工业绿色转型、新能源交通、人工智能等。
+会前，与会人员实地考察了茂名生态环境保护与绿色低碳发展情况，参观“云开山生态司法保护成果展”，全面了解协作机制运行以来的实践成效。
 
-李慧琼指出，议员作为香港特区立法机关及管治团队的一员，会借此机会了解全国人大的立法过程和监督工作。
+云开山脉横亘粤桂两地，山水同源、生态同脉，是粤西、桂东地区重要的生态安全屏障与生物多样性宝库，也是鉴江、黄华江等多条河流的发源地，被誉为粤西桂东生态屏障和岭南珍稀物种基因宝库。
 
-全体议员殷切期待更好掌握中央治国理念和发展战略，实地了解国家在多个重要领域的最新发展情况，为香港高质量发展“取经”。
+2023年，粤桂6市12家法检单位共同签署《云开山环境资源司法保护协作框架协议》，落地云开山环境资源司法保护基地，正式搭建跨区域环境资源司法保护协作机制，对云开山脉植被森林、动物资源、水资源、矿产资源和自然景观资源加强司法保护，助力云开山区域高质量发展。
 
-她表示，此次研修考察将有助于立法会协助特区政府制订首份香港五年规划，推动香港更有效对接国家“十五五”规划，更好融入并服务国家发展大局。
+协作机制建立以来，粤桂六市法检机关聚焦统一办案标准、抓实生态修复、延伸司法职能，取得阶段性显著成效。
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 21:51 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-29 21:57 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-29 22:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 22:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-29 22:00 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-29 21:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 21:50 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
-- 2026-06-29 21:54 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 22:00 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 21:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-29 21:56 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 22:08 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 22:11 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 22:17 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 21:52 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 21:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 21:54 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 21:51 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 21:52 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 22:12 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 21:52 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 21:50 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-29 22:14 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/87106205207.shtml)
-- 2026-06-29 21:44 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/913678985687.shtml)
-- 2026-06-29 22:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/385410.shtml)
-- 2026-06-29 21:44 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/31399.shtml)
-- 2026-06-29 21:55 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/662996.shtml)
-- 2026-06-29 21:52 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/58935.shtml)
-- 2026-06-29 22:01 - [千与千寻](http://www.blog.minike.top/Article/details/120625696078.shtml)
-- 2026-06-29 22:06 - [媒体评恋与深空用“引狼入室”台词](http://www.blog.kurohicncr.top/Article/details/5324955.shtml)
-- 2026-06-29 21:42 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/54248269.shtml)
-- 2026-06-29 22:00 - [美以这对亲密盟友要掰了吗](https://www.share.minike.top/Article/details/15515.shtml)
-- 2026-06-29 22:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/16601500118.shtml)
-- 2026-06-29 22:12 - [沙丘](http://www.blog.kurohicncr.top/Article/details/04923500.shtml)
-- 2026-06-29 21:56 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/6354803.shtml)
-- 2026-06-29 22:08 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/069257566.shtml)
-- 2026-06-29 21:55 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/56125857.shtml)
+- 2026-06-29 22:11 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/537642935520.shtml)
+- 2026-06-29 22:10 - [TFing最具影响力音乐厂牌](https://www.share.minike.top/Article/details/7980775537.shtml)
+- 2026-06-29 21:55 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/76127648.shtml)
+- 2026-06-29 21:59 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.minike.top/Article/details/0591340364.shtml)
+- 2026-06-29 22:08 - [美人鱼](http://www.blog.minike.top/Article/details/513729064.shtml)
+- 2026-06-29 22:10 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/85254823.shtml)
+- 2026-06-29 22:13 - [法媒点赞分享中国小区降温方案](http://www.blog.kurohicncr.top/Article/details/81096029626.shtml)
+- 2026-06-29 22:01 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/77473511.shtml)
+- 2026-06-29 21:55 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/8809600065.shtml)
+- 2026-06-29 21:59 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/99259325199.shtml)
+- 2026-06-29 21:50 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/0227729.shtml)
+- 2026-06-29 22:16 - [绘画区你赢了](http://www.share.minike.top/Article/details/379549.shtml)
+- 2026-06-29 22:17 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/9319991469.shtml)
+- 2026-06-29 22:11 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/807055.shtml)
+- 2026-06-29 22:14 - [福建海警位金门附近海域常态执法巡查](http://www.share.kurohicncr.top/Article/details/76387478.shtml)

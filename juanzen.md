@@ -1,60 +1,61 @@
-# 雪佛龙董事长将出席Bernstein战略决策会议并参与炉边问答
+# 由人民评判，让政绩经得起检验
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-雪佛龙公司宣布，公司董事长兼首席执行官迈克·沃斯将于2026年5月28日出席Bernstein第42届年度战略决策会议，并进行炉边问答。会议将于美国东部时间上午11时开始。 投资者可通过雪佛龙官网投资者关系页面观看直播。直播结束后，网站将提供回放。Bernstein年度战略决策会议是能源行业备受关注的投资峰会之一，埃克森美孚、Circle等公司高管也将出席并发言。 雪佛龙近期公
+作者：刘德中(中国社会科学院马克思主义研究院研究员)；张宁(中国社会科学院政治学研究所干部) 习近平总书记指出，“为民造福是最大政绩”，“业绩好不好，要看群众实际感受，由群众来评判”。政绩的标准是为民造福，政绩好不好也理应由人民说了算。干部干事创业、创造政绩，出发点和落脚点都是为了人民，一项工作算不算实绩，不能自以为是、仅凭自我判定，而应该以人民群众的真实感受、客观评价作为最终
 
 ## 正文
 
-雪佛龙公司宣布，公司董事长兼首席执行官迈克·沃斯将于2026年5月28日出席Bernstein第42届年度战略决策会议，并进行炉边问答。
+作者：刘德中(中国社会科学院马克思主义研究院研究员)；张宁(中国社会科学院政治学研究所干部) 习近平总书记指出，“为民造福是最大政绩”，“业绩好不好，要看群众实际感受，由群众来评判”。
 
-会议将于美国东部时间上午11时开始。
+政绩的标准是为民造福，政绩好不好也理应由人民说了算。
 
-投资者可通过雪佛龙官网投资者关系页面观看直播。
+干部干事创业、创造政绩，出发点和落脚点都是为了人民，一项工作算不算实绩，不能自以为是、仅凭自我判定，而应该以人民群众的真实感受、客观评价作为最终标尺。
 
-直播结束后，网站将提供回放。
+总而言之，人民是党的工作的最高裁决者和最终评判者，无疑也应该是政绩的最终评价者。
 
-Bernstein年度战略决策会议是能源行业备受关注的投资峰会之一，埃克森美孚、Circle等公司高管也将出席并发言。
+衡量干部业绩好不好，关键要看老百姓口碑好不好。
 
-雪佛龙近期公布的2026年第一季度财报显示，调整后每股收益为1.41美元，远超市场预期的0.92美元，营收达486亿美元，同比增长2.1%。
+这与老百姓所说“金杯银杯不如群众口碑，金奖银奖不如群众夸奖”是一致的。
 
-尽管受下游业务疲软和外汇不利因素拖累，报告净利润降至22.1亿美元，但美国上游产量同比增长24%，连续第三个季度保持在每日200万桶油当量以上，主要受益于赫斯公司资产的整合及二叠纪盆地的持续增长。
+因此，必须把群众满意度纳入政绩考核的“硬指标”，不断提升群众评价在选人用人中的权重。
 
-雪佛龙重申2026年全年100亿至200亿美元的股票回购目标，并已连续39年提高股息。
+那么，怎样做出得到群众公认的业绩？
 
 ## 相关推荐
 
-- 2026-06-29 21:43 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 22:11 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 21:51 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 21:52 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-29 22:11 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-29 21:43 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 21:56 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 21:46 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 21:42 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 21:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 22:10 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
-- 2026-06-29 21:47 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 22:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 21:55 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 22:14 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 22:14 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 21:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 21:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-29 22:17 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 21:54 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-29 21:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 22:05 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 22:15 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 22:07 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 21:57 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 22:06 - [锐评白玉兰提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 22:13 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 22:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
+- 2026-06-29 21:58 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/9802795153.shtml)
-- 2026-06-29 22:10 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/80862471.shtml)
-- 2026-06-29 21:59 - [记者：预计热火将追求小哈达威和康利](https://www.blog.minike.top/Article/details/03167.shtml)
-- 2026-06-29 22:03 - [周杰伦千禧年就有小卡了](http://www.share.minike.top/Article/details/19509726108.shtml)
-- 2026-06-29 22:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/426544.shtml)
-- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](http://www.blog.kurohicncr.top/Article/details/71541.shtml)
-- 2026-06-29 21:54 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/073002.shtml)
-- 2026-06-29 21:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/4156213.shtml)
-- 2026-06-29 22:11 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/3155452.shtml)
-- 2026-06-29 21:51 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/984587916181.shtml)
-- 2026-06-29 21:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/58208.shtml)
-- 2026-06-29 21:48 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/60047957498.shtml)
-- 2026-06-29 21:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/03802093.shtml)
-- 2026-06-29 21:51 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/97084.shtml)
-- 2026-06-29 22:09 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/35892316.shtml)
+- 2026-06-29 22:12 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/699220665.shtml)
+- 2026-06-29 21:50 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/1830193.shtml)
+- 2026-06-29 22:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/866423.shtml)
+- 2026-06-29 22:09 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/501915755.shtml)
+- 2026-06-29 22:11 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/38771152.shtml)
+- 2026-06-29 21:55 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/583976.shtml)
+- 2026-06-29 21:54 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/985284444.shtml)
+- 2026-06-29 21:52 - [上世纪90年代玩具成新宠](https://www.blog.kurohicncr.top/Article/details/956892133.shtml)
+- 2026-06-29 21:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/67637.shtml)
+- 2026-06-29 22:05 - [驻港部队军营开放日上演“肌肉秀”](http://www.share.kurohicncr.top/Article/details/3831007808.shtml)
+- 2026-06-29 21:59 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/570114592110.shtml)
+- 2026-06-29 21:59 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.kurohicncr.top/Article/details/190687891409.shtml)
+- 2026-06-29 21:52 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/77019013.shtml)
+- 2026-06-29 21:58 - [速度与激情9](https://www.blog.minike.top/Article/details/238725477681.shtml)
+- 2026-06-29 22:06 - [TOP Prada](http://www.blog.minike.top/Article/details/738182408.shtml)

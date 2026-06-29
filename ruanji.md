@@ -1,57 +1,60 @@
-# 策略师称金银短期涨幅充足，预警全球债务危机
+# 李强会见老挝人民革命党中央总书记、国家主席通伦
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——资深宏观策略分析师给出重磅预判，全球金融体系正深陷债务泥潭，一场大规模通缩下行浪潮即将来袭。危机爆发后各国央行只能大规模释放流动性救市，海量印钞又会催生恶性通胀，形成难以破解的经济死局。 市场短期仍将上演最后一轮加速冲高行情，贵金属迎来绝佳上涨窗口，而危机过后大类资产将迎来历史性抄底机遇，金融市场格局也将迎来彻底重塑。 市场末段冲顶 贵金属短期涨幅空间充足
+新华社北京6月5日电 6月5日上午，国务院总理李强在北京人民大会堂会见来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦。 李强表示，今年是中老建交65周年。65年来，两国始终相互依赖、守望相助，双边关系历久弥坚。特别是近些年，在两党两国最高领导人战略引领下，中老关系进入历史最好时期。今天下午，习近平总书记、国家主席将同通伦总书记、国家主席举行会谈，就深化发展两国关系作出
 
 ## 正文
 
-汇通财经APP讯——资深宏观策略分析师给出重磅预判，全球金融体系正深陷债务泥潭，一场大规模通缩下行浪潮即将来袭。
+新华社北京6月5日电 6月5日上午，国务院总理李强在北京人民大会堂会见来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦。
 
-危机爆发后各国央行只能大规模释放流动性救市，海量印钞又会催生恶性通胀，形成难以破解的经济死局。
+李强表示，今年是中老建交65周年。
 
-市场短期仍将上演最后一轮加速冲高行情，贵金属迎来绝佳上涨窗口，而危机过后大类资产将迎来历史性抄底机遇，金融市场格局也将迎来彻底重塑。
+65年来，两国始终相互依赖、守望相助，双边关系历久弥坚。
 
-市场末段冲顶 贵金属短期涨幅空间充足 逆向宏观咨询公司首席宏观策略师戴维·亨特（David Hunter）提出的市场推演逻辑，完全区别于华尔街主流投资观点。
+特别是近些年，在两党两国最高领导人战略引领下，中老关系进入历史最好时期。
 
-他认为持续数十年的资本市场长牛行情，即将迎来最后一轮急速拉涨，行情高点最早将于美国劳工节前后到来，冲顶结束后市场将会迎来跌幅高达八成的通缩大跌行情。
+今天下午，习近平总书记、国家主席将同通伦总书记、国家主席举行会谈，就深化发展两国关系作出进一步规划。
 
-在大跌行情来临前，权益市场与贵金属依旧具备充足上涨动能。
+面对变乱交织的世界，中方愿同老方加强战略沟通，紧密协作，推动中老命运共同体建设向更高水平迈进，不断增进两国人民福祉，共促地区乃至世界的稳定繁荣。
 
-当前美股标普五百指数保持高位震荡，黄金经过两年持续上涨站稳高位区间。
+李强指出，中方愿同老方加强发展战略对接，充分释放中方零关税政策积极效应，持续扩大双边贸易规模，深入推进中老铁路合作，加快推动中老经济走廊建设，拓展能源矿产、人工智能、数字经济等领域合作，取得更多务实成果。
 
-业内预判股市转势之前，黄金有望冲高至每盎司6800美元，白银上涨势头更为迅猛，目标价位直指每盎司180美元。
+中方愿进口老挝更多优质产品，鼓励中资企业赴老投资，希望老方为企业提供更好营商环境。
 
 ## 相关推荐
 
-- 2026-06-29 21:54 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
-- 2026-06-29 22:09 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-29 21:53 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 21:57 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 21:48 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-29 21:56 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-29 22:05 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-29 22:05 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-29 22:03 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 21:59 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 21:57 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-29 22:10 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 22:11 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 22:09 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 22:17 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 21:58 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
+- 2026-06-29 21:48 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-29 22:01 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 21:56 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 22:17 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-29 21:52 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 22:08 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 22:03 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 21:48 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 21:57 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [湖南姑娘被东北同事带偏口音](http://www.share.kurohicncr.top/Article/details/26558022.shtml)
-- 2026-06-29 21:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/407933365.shtml)
-- 2026-06-29 21:56 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/502838903828.shtml)
-- 2026-06-29 21:56 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/70438786.shtml)
-- 2026-06-29 22:02 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/38370711.shtml)
-- 2026-06-29 21:53 - [《恋与深空》回应争议](https://www.share.minike.top/Article/details/898405477428.shtml)
-- 2026-06-29 21:59 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/95294627.shtml)
-- 2026-06-29 21:58 - [谢霆锋王菲十指紧扣一起走](http://www.share.kurohicncr.top/Article/details/516013486521.shtml)
-- 2026-06-29 22:00 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/711982642450.shtml)
-- 2026-06-29 21:57 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/36355.shtml)
-- 2026-06-29 22:06 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/1502742836.shtml)
-- 2026-06-29 21:53 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/6454226.shtml)
-- 2026-06-29 21:44 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/306285.shtml)
-- 2026-06-29 21:48 - [网约车出事故平台拒赔称只是中介](http://www.share.kurohicncr.top/Article/details/515263288.shtml)
-- 2026-06-29 22:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/0571132.shtml)
+- 2026-06-29 21:59 - [运20对中国空军的意义是什么](https://www.blog.minike.top/Article/details/79349053188.shtml)
+- 2026-06-29 22:07 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/13816033.shtml)
+- 2026-06-29 22:16 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.blog.kurohicncr.top/Article/details/7776071.shtml)
+- 2026-06-29 21:58 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/8966693.shtml)
+- 2026-06-29 22:04 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/299098.shtml)
+- 2026-06-29 21:56 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/202689.shtml)
+- 2026-06-29 22:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/959354.shtml)
+- 2026-06-29 22:09 - [7月1日起 一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/032656.shtml)
+- 2026-06-29 21:52 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/39156.shtml)
+- 2026-06-29 21:50 - [回顾世界杯争议事件](https://www.share.minike.top/Article/details/135780638793.shtml)
+- 2026-06-29 21:59 - [东方风云榜](https://www.blog.minike.top/Article/details/18577.shtml)
+- 2026-06-29 22:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/702855.shtml)
+- 2026-06-29 22:09 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/31270070680.shtml)
+- 2026-06-29 22:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/209374.shtml)
+- 2026-06-29 21:54 - [穆祉丞躺TFING身上](https://www.blog.kurohicncr.top/Article/details/183602181.shtml)

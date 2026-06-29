@@ -1,58 +1,57 @@
-# 罗欣药业阿奇霉素被判定为劣药 子公司总经理被降级处分
+# 马来西亚国家石油公司签署海上石油采收协作协议
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电(记者 赵方园)因控股子公司生产销售的注射用阿奇霉素检验不合格被判定为“劣药”，罗欣药业集团股份有限公司(简称“罗欣药业”)于5月20日早间发布公告称，已启动产品召回及内部追责程序，即日起停止生产和商业化该产品，已经生产的库存全部报废处理。 5月18日，山东省药品监督管理局发布行政处罚信息显示，山东罗欣药业集团股份有限公司(简称：山东罗欣)因生产销售不符合
+马来西亚国家石油公司通过其马来西亚石油管理子公司，与多家地区勘探与生产运营商及国油科技大学签署了一份谅解备忘录，共同评估海上区块的提高石油采收率机会。 该协议由马石油、马石油探勘公司、国油科技大学、泰国国家石油公司砂拉越石油公司、泰国国家石油公司沙巴石油公司以及印尼国家石油公司马来西亚勘探生产公司共同签署。 此次合作旨在通过提高石油采收率和增强石油采收率技术，评估提高采收率、延
 
 ## 正文
 
-中新网北京5月20日电(记者 赵方园)因控股子公司生产销售的注射用阿奇霉素检验不合格被判定为“劣药”，罗欣药业集团股份有限公司(简称“罗欣药业”)于5月20日早间发布公告称，已启动产品召回及内部追责程序，即日起停止生产和商业化该产品，已经生产的库存全部报废处理。
+马来西亚国家石油公司通过其马来西亚石油管理子公司，与多家地区勘探与生产运营商及国油科技大学签署了一份谅解备忘录，共同评估海上区块的提高石油采收率机会。
 
-5月18日，山东省药品监督管理局发布行政处罚信息显示，山东罗欣药业集团股份有限公司(简称：山东罗欣)因生产销售不符合国家药品标准规定的注射用阿奇霉素，被没收注射用阿奇霉素609支，还被没收违法所得并处以罚款，罚没款合计186.84万元。
+该协议由马石油、马石油探勘公司、国油科技大学、泰国国家石油公司砂拉越石油公司、泰国国家石油公司沙巴石油公司以及印尼国家石油公司马来西亚勘探生产公司共同签署。
 
-资料显示，山东罗欣是上市公司罗欣药业的控股子公司。
+此次合作旨在通过提高石油采收率和增强石油采收率技术，评估提高采收率、延长油田寿命以及从海上资产中释放额外价值的机会。
 
-根据处罚公告，山东罗欣生产销售的注射用阿奇霉素(批号：524053043，规格：0.25g)不符合国家药品标准规定，其行为违反了《中华人民共和国药品管理法》第九十八条第一款。
+根据协议，各方将把马石油探勘公司、泰国国家石油公司砂拉越石油公司、泰国国家石油公司沙巴石油公司及印尼国家石油公司马来西亚勘探生产公司的运营经验和技术专长，与国油科技大学的研发能力和实验室设施相结合。
 
-根据该条款，“药品成分的含量不符合国家药品标准”的情形被归为“劣药”。
+工作重点将放在开展有实验室测试支持的、针对性的提高采收率和增强采收率研究，选定的技术和概念有可能推进到试点实施阶段。
 
-依据《药品管理法》(2019年修订)第117条，生产销售劣药的罚款为货值金额的10倍至20倍，货值不足10万元按10万元计。
+签署方表示，该倡议旨在加快采收解决方案的部署，加强区域技术能力，并支持海上盆地的可持续资源开发。
 
-山东罗欣被处以180万元罚款，相当于以10万元最低基数核算的18倍罚款，距法定上限20倍仅一步之遥，处罚力度接近顶格。
+马石油马来西亚石油管理高级副总裁巴乔·皮隆表示，此次合作汇集了各方的运营经验和研究专长，以加速提高采收率解决方案的机会。
 
-罗欣药业是国内大型化药企业，产品包括消化系统药物和抗生素药物等。
+通过整合地下认知、高性能计算和运营商能力，旨在加速针对性解决方案的成熟，从成熟油田释放额外价值，并通过跨境合作加强长期能源韧性。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 21:51 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-29 22:10 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 21:48 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 22:05 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 21:43 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 22:09 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 21:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 21:48 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 22:10 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-29 22:06 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 21:46 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 21:55 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
+- 2026-06-29 21:56 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 22:06 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 21:58 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 22:08 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 22:04 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 22:01 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 21:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-29 21:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 22:15 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 21:52 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:49 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/579602732927.shtml)
-- 2026-06-29 21:52 - [日本足球能掀翻巴西吗](https://www.share.kurohicncr.top/Article/details/06881.shtml)
-- 2026-06-29 21:53 - [85花告别古偶](http://www.blog.minike.top/Article/details/02650.shtml)
-- 2026-06-29 21:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/72029803.shtml)
-- 2026-06-29 21:48 - [温网](http://www.share.minike.top/Article/details/73967346337.shtml)
-- 2026-06-29 22:08 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/515271156766.shtml)
-- 2026-06-29 22:04 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/1104468.shtml)
-- 2026-06-29 21:48 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/143466437933.shtml)
-- 2026-06-29 21:49 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/280252327.shtml)
-- 2026-06-29 22:03 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/3479454885.shtml)
-- 2026-06-29 22:11 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/61553067439.shtml)
-- 2026-06-29 21:47 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/794894.shtml)
-- 2026-06-29 21:57 - [青春环游记第三季](https://www.blog.minike.top/Article/details/22571574.shtml)
-- 2026-06-29 21:44 - [直击委内瑞拉加拉加斯救援现场](https://www.blog.kurohicncr.top/Article/details/9227460995.shtml)
-- 2026-06-29 22:12 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/31503412.shtml)
+- 2026-06-29 22:00 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4380164.shtml)
+- 2026-06-29 21:53 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/560997396.shtml)
+- 2026-06-29 22:01 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/1436348333.shtml)
+- 2026-06-29 21:57 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/55417.shtml)
+- 2026-06-29 22:04 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/8803323.shtml)
+- 2026-06-29 22:17 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/468203.shtml)
+- 2026-06-29 22:13 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/0129080.shtml)
+- 2026-06-29 22:04 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/6885891.shtml)
+- 2026-06-29 22:08 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/01511488492.shtml)
+- 2026-06-29 22:15 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/585060336507.shtml)
+- 2026-06-29 21:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/432877861196.shtml)
+- 2026-06-29 22:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/990700592.shtml)
+- 2026-06-29 22:07 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/324909.shtml)
+- 2026-06-29 22:16 - [锐评T1零封KC](https://www.share.minike.top/Article/details/52239873.shtml)
+- 2026-06-29 22:06 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/26194080.shtml)

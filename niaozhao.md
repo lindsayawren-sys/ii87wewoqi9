@@ -1,53 +1,58 @@
-# 鸿雁成群、“鹿”丁兴旺：北京南海子的生物多样性答卷
+# 长龙航空负债率达90%、飞机自有率仅1成 盈利重度依赖政府、票价降幅超同行服务遭诟病
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 13:23 来源：中国新闻网 北京是世界上生物多样性最丰富的大都市之一。通过湿地修复、物种重引进、严格保护管理等持续努力，这座城市正为野生动植物留出越来越多的空间。第26个国际生物多样性日前夕，记者走进南海子公园，感受北京交出的“生物多样性答卷”。(记者 郎佳慧 北京报道） 责任编辑：【罗攀】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：昊 6月2日，浙江长龙航空股份有限公司（以下称“长龙航空”）首次公开发行股票并在主板上市申请获受理。 按照计划，长龙航空本次发行募集资金拟不超过20亿元，将用于A320系列飞机引进项目、备用发动机购置项目和补充流动资金。 值得注意的是，长龙航空现有77架运营飞机，其中仅8
 
 ## 正文
 
-发布时间：2026年05月21日 13:23 来源：中国新闻网 北京是世界上生物多样性最丰富的大都市之一。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-通过湿地修复、物种重引进、严格保护管理等持续努力，这座城市正为野生动植物留出越来越多的空间。
+出品：新浪财经上市公司研究院 作者：昊 6月2日，浙江长龙航空股份有限公司（以下称“长龙航空”）首次公开发行股票并在主板上市申请获受理。
 
-第26个国际生物多样性日前夕，记者走进南海子公园，感受北京交出的“生物多样性答卷”。
+按照计划，长龙航空本次发行募集资金拟不超过20亿元，将用于A320系列飞机引进项目、备用发动机购置项目和补充流动资金。
 
-(记者 郎佳慧 北京报道） 责任编辑：【罗攀】
+值得注意的是，长龙航空现有77架运营飞机，其中仅8架自有。
+
+由于高度依赖租赁以及融资渠道单一，长龙航空负债率达90%，远超其它几家可比民营航司，同时有息负债持续增加，在利率明显走低的背景下，公司利息费用下降非常有限。
+
+近三年来，长龙航空营收和净利保持增长，运力和载客量也呈上升趋势，但座公里收益和客公里收益连续下滑，且降幅超过同行，服务问题突出，内卷式降价特征明显。
+
+更重要的是，长龙航空政府补助以及合作航线收益高达13亿，远超公司年度净利润，一旦政府支持力度减弱，业绩无疑将受重大冲击。
+
+飞机自有率仅1成 负债率远超可比民营航司 日前，长龙航空在沪市主板披露招股书，若成功上市，公司将成为继2018年3月华夏航空之后，时隔8年又一家登陆A股的民营航司。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
-- 2026-06-29 21:57 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 22:00 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 21:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 21:59 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-29 22:08 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 21:46 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 22:00 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-29 21:43 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 21:49 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
-- 2026-06-29 21:55 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 21:49 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 22:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 21:56 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 21:59 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 22:16 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 21:54 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 22:12 - [湖南姑娘被东北同事带偏口音](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 22:11 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 22:04 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 21:50 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 22:10 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 22:05 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 22:05 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 21:57 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 21:51 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 21:49 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/98126.shtml)
-- 2026-06-29 22:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/79341.shtml)
-- 2026-06-29 21:54 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/9242476.shtml)
-- 2026-06-29 22:09 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/98544.shtml)
-- 2026-06-29 21:50 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/98324249322.shtml)
-- 2026-06-29 21:45 - [乌克兰发广告全球征兵](https://www.blog.minike.top/Article/details/58779436.shtml)
-- 2026-06-29 21:50 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/18518353.shtml)
-- 2026-06-29 22:05 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/88888.shtml)
-- 2026-06-29 21:46 - [小龙女配音去世 李若彤发文悼念](https://www.share.kurohicncr.top/Article/details/116816661960.shtml)
-- 2026-06-29 21:48 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/103485535.shtml)
-- 2026-06-29 21:56 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/255378545.shtml)
-- 2026-06-29 21:42 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/7114283.shtml)
-- 2026-06-29 22:03 - [高质量发展看新疆](http://www.share.minike.top/Article/details/60494.shtml)
-- 2026-06-29 21:57 - [恋与深空致歉](http://www.share.minike.top/Article/details/186671602.shtml)
-- 2026-06-29 22:11 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/527735039.shtml)
+- 2026-06-29 22:06 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/8514124.shtml)
+- 2026-06-29 22:17 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/746808676.shtml)
+- 2026-06-29 22:16 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/8332111127.shtml)
+- 2026-06-29 21:57 - [中外合作办学是“低分捷径”吗](http://www.blog.kurohicncr.top/Article/details/145139734105.shtml)
+- 2026-06-29 22:01 - [日本足球能掀翻巴西吗](http://www.blog.minike.top/Article/details/145027356.shtml)
+- 2026-06-29 21:59 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/11656.shtml)
+- 2026-06-29 22:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/387508.shtml)
+- 2026-06-29 22:07 - [一见倾心](http://www.share.minike.top/Article/details/591041.shtml)
+- 2026-06-29 22:13 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/754927.shtml)
+- 2026-06-29 22:12 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/09594451465.shtml)
+- 2026-06-29 22:06 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/24864.shtml)
+- 2026-06-29 22:01 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.minike.top/Article/details/22435186762.shtml)
+- 2026-06-29 21:55 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/5485112.shtml)
+- 2026-06-29 22:12 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/324371125.shtml)
+- 2026-06-29 22:08 - [格莱美唱作人锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/3024066.shtml)

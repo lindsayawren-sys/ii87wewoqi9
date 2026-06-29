@@ -1,43 +1,44 @@
-# 中天策略:5月20日市场分析
+# 美军通报：击落两架伊朗无人机
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-责任编辑：陈平
+中新网6月7日电 美军中央司令部6日在社交媒体上发文说，当天早些时候，美军击落了两架伊朗单向攻击无人机。 美军中央司令部称，美军仍保持戒备状态，做好准备防御并应对伊朗的攻击。
 
 ## 正文
 
-责任编辑：陈平
+中新网6月7日电 美军中央司令部6日在社交媒体上发文说，当天早些时候，美军击落了两架伊朗单向攻击无人机。
+
+美军中央司令部称，美军仍保持戒备状态，做好准备防御并应对伊朗的攻击。
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-29 22:10 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-29 22:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 22:04 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 22:08 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 21:57 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-29 21:46 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-29 21:43 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 22:02 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-29 21:59 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 22:05 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 22:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 22:06 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 22:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-29 22:15 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 22:13 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 21:56 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 22:06 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
+- 2026-06-29 22:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 22:08 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 22:11 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [中国再对日本出重拳](http://www.share.minike.top/Article/details/234547618952.shtml)
-- 2026-06-29 22:04 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/68742314.shtml)
-- 2026-06-29 21:56 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/97104552.shtml)
-- 2026-06-29 22:06 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/1310715346.shtml)
-- 2026-06-29 22:03 - [郑钦文谈再战西尼亚科娃](https://www.blog.kurohicncr.top/Article/details/497525.shtml)
-- 2026-06-29 22:06 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/192698833083.shtml)
-- 2026-06-29 22:04 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/64812112.shtml)
-- 2026-06-29 21:51 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/6470272.shtml)
-- 2026-06-29 21:50 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/980733145.shtml)
-- 2026-06-29 21:48 - [追觅称质量不行终身包修也没意义](https://www.blog.minike.top/Article/details/02816323730.shtml)
-- 2026-06-29 21:56 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/095964159.shtml)
-- 2026-06-29 22:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/1710407210.shtml)
-- 2026-06-29 21:48 - [记者：预计热火将追求小哈达威和康利](https://www.share.kurohicncr.top/Article/details/41020472.shtml)
-- 2026-06-29 22:05 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/914875186.shtml)
-- 2026-06-29 22:05 - [周生如故](http://www.blog.kurohicncr.top/Article/details/3456376.shtml)
+- 2026-06-29 22:16 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/33335197.shtml)
+- 2026-06-29 21:56 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/9359396276.shtml)
+- 2026-06-29 22:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/255958325848.shtml)
+- 2026-06-29 21:54 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/9950177165.shtml)
+- 2026-06-29 22:16 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/709469894866.shtml)
+- 2026-06-29 22:12 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/8277811.shtml)
+- 2026-06-29 21:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/816288128623.shtml)
+- 2026-06-29 21:57 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/2949303074.shtml)
+- 2026-06-29 21:51 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/51484.shtml)
+- 2026-06-29 22:05 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/95596877934.shtml)
+- 2026-06-29 22:08 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/726381834.shtml)
+- 2026-06-29 22:13 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/83366396.shtml)
+- 2026-06-29 22:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/82986.shtml)
+- 2026-06-29 21:50 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/6491593891.shtml)
+- 2026-06-29 21:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/13198210068.shtml)

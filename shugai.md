@@ -1,56 +1,61 @@
-# 唯品会Q2营收指引不及预期 REIT上市带来53亿元一次性收益
+# 加拿大出台国家人工智能战略 拟斥资超20亿加元构建本土AI产业生态
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-在线折扣零售商唯品会于5月21日发布2026年第一季度财报，同时给出低于市场预期的第二季度营收指引。不过，公司旗下商业REIT的成功上市将带来53亿元的一次性投资收益。 唯品会预计第二季度总净营收将在245亿元至258亿元之间，同比变动幅度约为下降5%至持平，低于市场普遍预期的263亿元。管理层指引偏保守，反映出3月以来消费需求持续疲软以及对618大促贡献的中性预期。 一季度业
+加拿大政府4日正式公布名为“全民人工智能”（AI for All）的国家人工智能新战略。该战略计划投入数十亿加元公共资金，通过设立技术增长基金、扩大主权算力基础设施以及加强法律监管等核心举措，加快构建本土人工智能产业体系，全面推动技术普及与主权安全。 据了解，该战略由加拿大总理马克·卡尼（Mark Carney）与人工智能和数字创新部部长埃文·所罗门（Evan Solomon）
 
 ## 正文
 
-在线折扣零售商唯品会于5月21日发布2026年第一季度财报，同时给出低于市场预期的第二季度营收指引。
+加拿大政府4日正式公布名为“全民人工智能”（AI for All）的国家人工智能新战略。
 
-不过，公司旗下商业REIT的成功上市将带来53亿元的一次性投资收益。
+该战略计划投入数十亿加元公共资金，通过设立技术增长基金、扩大主权算力基础设施以及加强法律监管等核心举措，加快构建本土人工智能产业体系，全面推动技术普及与主权安全。
 
-唯品会预计第二季度总净营收将在245亿元至258亿元之间，同比变动幅度约为下降5%至持平，低于市场普遍预期的263亿元。
+据了解，该战略由加拿大总理马克·卡尼（Mark Carney）与人工智能和数字创新部部长埃文·所罗门（Evan Solomon）在多伦多联合发布。
 
-管理层指引偏保守，反映出3月以来消费需求持续疲软以及对618大促贡献的中性预期。
+卡尼将人工智能定义为“时代的决定性技术”，并强调该战略旨在确保技术红利惠及全体民众，而非仅少数人获益。
 
-一季度业绩方面，唯品会实现营收265.7亿元，同比增长1.2%，基本符合预期；调整后每份美国存托凭证收益为4.68元，高于上年同期的4.43元及市场预期的4.58元。
+新战略的核心举措之一是设立规模达5亿加元（约合3.6亿美元）的“加拿大技术增长基金”（Canadian Tech Growth Fund）。
 
-商品交易总额增长8.6%至569亿元，超出市场预期，主要得益于春节假期高单价冬季服装的强劲销售。
+该基金旨在填补本土高成长性AI企业面临的规模化资本缺口。
 
-值得关注的是，唯品会旗下中金唯品会商业REIT已于4月底获得监管批准，5月19日完成询价定价，底层资产为郑州和哈尔滨两座杉杉奥特莱斯项目。
+政府将通过提供灵活资本及投资支持，甚至在必要时采取股权投资形式，协助本土企业吸引商业资本、留住核心人才与知识产权，从而提升全球竞争力。
 
-公司认购该REIT 49%的份额，自第二季度起两座奥莱将由并表转为权益法核算，预计一次性确认投资收益约53亿元，同时对应增加所得税约17亿元。
+数据显示，尽管加拿大目前有超过3500家企业从事先进AI模型与应用开发，累计吸纳风险投资超370亿加元，但国内技术普及率及基础设施自主化程度依然处于较低水平。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 21:49 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-29 21:57 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 21:52 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
-- 2026-06-29 22:09 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 21:48 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 21:45 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 21:44 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-29 21:57 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 21:45 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 22:08 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 21:51 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 22:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 21:54 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 21:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 21:51 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 22:11 - [恋与深空制作组回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 21:51 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 22:15 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 22:00 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 22:16 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 21:55 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 22:10 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 22:11 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-29 21:53 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:47 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/79372212.shtml)
-- 2026-06-29 21:43 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/61499.shtml)
-- 2026-06-29 21:59 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/45020.shtml)
-- 2026-06-29 22:05 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/722966.shtml)
-- 2026-06-29 21:42 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/84369219641.shtml)
-- 2026-06-29 21:42 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/6106393624.shtml)
-- 2026-06-29 22:04 - [恋与深空客服的回应](https://www.share.kurohicncr.top/Article/details/47445996.shtml)
-- 2026-06-29 21:51 - [金刚川](https://www.blog.kurohicncr.top/Article/details/26277291560.shtml)
-- 2026-06-29 22:05 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/550784626.shtml)
-- 2026-06-29 22:07 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/152579808926.shtml)
-- 2026-06-29 22:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/886830568.shtml)
-- 2026-06-29 22:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/094300316.shtml)
-- 2026-06-29 21:50 - [美以这对亲密盟友要掰了吗](http://www.blog.kurohicncr.top/Article/details/762822847.shtml)
-- 2026-06-29 21:57 - [杨紫被质疑未使用原名](https://www.blog.minike.top/Article/details/502737451692.shtml)
-- 2026-06-29 22:11 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/243054.shtml)
+- 2026-06-29 21:56 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/002255688157.shtml)
+- 2026-06-29 22:13 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/10647162022.shtml)
+- 2026-06-29 21:50 - [教育部高校学生资助热线7月1日开通](http://www.blog.minike.top/Article/details/37664042.shtml)
+- 2026-06-29 21:56 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/356668526587.shtml)
+- 2026-06-29 21:58 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/984827661142.shtml)
+- 2026-06-29 21:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/46105061.shtml)
+- 2026-06-29 22:15 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/872239.shtml)
+- 2026-06-29 22:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/423611.shtml)
+- 2026-06-29 21:58 - [警方回应两名老人多次到洗车店泼粪](https://www.share.minike.top/Article/details/406382.shtml)
+- 2026-06-29 22:10 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/7172835.shtml)
+- 2026-06-29 22:10 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.kurohicncr.top/Article/details/10960587.shtml)
+- 2026-06-29 22:03 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/75878635.shtml)
+- 2026-06-29 22:03 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/309318777507.shtml)
+- 2026-06-29 21:59 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/01219404.shtml)
+- 2026-06-29 22:13 - [一汽大众黄金超混技术来袭](http://www.blog.kurohicncr.top/Article/details/655589650.shtml)

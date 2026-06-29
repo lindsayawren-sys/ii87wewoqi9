@@ -1,50 +1,57 @@
-# 小米雷军回应纽北纪录被保时捷反超：祝贺保时捷破纪录，车企之间你追我赶才是更健康的态度
+# 支付业年内最大罚单出炉，易票联被罚没4834.9万元
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-IT之家5月21日消息，据新浪科技报道，在小米人车家全生态新品发布会后，小米集团董事长、CEO雷军与媒体对话。5 月上旬，小米SU7Ultra在纽北保持的纽北量产电动车纪录被保时捷搭载Manthey套件的Taycan Turbo GT反超。雷军被问及此事表示，祝贺保时捷破纪录，车企之间你追我赶，才是更健康的态度，一步步向保时捷学习，争取未来再次超过保时捷。据IT之家报道，在今晚
+界面新闻记者 | 江怡曼 6月4日，央行广东省分行网站披露行政处罚决定信息公示表显示，因违反支付结算、金融科技、反洗钱管理有关规定，易票联支付有限公司（以下简称为“易票联支付”）被央行广东省分行给予警告、通报批评，没收违法所得1005.16万元，合计处罚款3829.74万元，罚没款合计4834.90万元。 据了解，这是2026年以来第三方支付机构收到的最大金额罚单。 两名相关责
 
 ## 正文
 
-IT之家5月21日消息，据新浪科技报道，在小米人车家全生态新品发布会后，小米集团董事长、CEO雷军与媒体对话。
+界面新闻记者 | 江怡曼 6月4日，央行广东省分行网站披露行政处罚决定信息公示表显示，因违反支付结算、金融科技、反洗钱管理有关规定，易票联支付有限公司（以下简称为“易票联支付”）被央行广东省分行给予警告、通报批评，没收违法所得1005.16万元，合计处罚款3829.74万元，罚没款合计4834.90万元。
 
-5 月上旬，小米SU7Ultra在纽北保持的纽北量产电动车纪录被保时捷搭载Manthey套件的Taycan Turbo GT反超。
+据了解，这是2026年以来第三方支付机构收到的最大金额罚单。
 
-雷军被问及此事表示，祝贺保时捷破纪录，车企之间你追我赶，才是更健康的态度，一步步向保时捷学习，争取未来再次超过保时捷。
+两名相关责任人亦被追责。
 
-据IT之家报道，在今晚的发布会上，雷军宣布，小米YU7GT以7分22秒755的成绩刷新纽北SUV圈速纪录14s，成为纽北史上最速SUV。
+信息公示表显示，苏某安对易票联支付违反支付结算、反洗钱管理有关规定负有责任，被给予警告、通报批评，被处罚款37.5万元。
+
+陈某，易票联支付技术运维部，对易票联支付有限公司违反金融科技管理有关规定负有责任，被处罚款2万元。
+
+公司网站介绍，易票联支付成立于1999年，为国内最早开展支付业务的公司之一，于2011年获得中国人民银行颁发的《支付业务许可证》，并于2021年12月第二次获得续展。
+
+易票联支付是中国银联、Mastercard成员单位，并通过VisaQSP和GARS资质认证。
+
+在此之前，易票联支付已多次被罚。
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 21:58 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 22:04 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-29 22:07 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 22:08 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 22:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 22:01 - [黄金也扛不住了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 21:51 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 21:42 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 22:08 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 22:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-29 22:09 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 21:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 22:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 21:50 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 21:49 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 22:08 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 22:17 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 22:17 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 21:52 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 22:02 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-29 22:11 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 21:54 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/4710298410.shtml)
-- 2026-06-29 21:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/191967870.shtml)
-- 2026-06-29 22:09 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/068919.shtml)
-- 2026-06-29 21:58 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.kurohicncr.top/Article/details/82000786011.shtml)
-- 2026-06-29 22:02 - [沙丘](http://www.share.minike.top/Article/details/39543199.shtml)
-- 2026-06-29 21:53 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/96948171.shtml)
-- 2026-06-29 22:03 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/70559703.shtml)
-- 2026-06-29 21:53 - [曼城官宣马雷斯卡出任主教练](http://www.blog.kurohicncr.top/Article/details/8754877.shtml)
-- 2026-06-29 21:51 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/6400006969.shtml)
-- 2026-06-29 21:51 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/596458.shtml)
-- 2026-06-29 22:09 - [王鸿薇要求删陆委会百余万特别费](https://www.share.minike.top/Article/details/6024345.shtml)
-- 2026-06-29 21:59 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/6840473.shtml)
-- 2026-06-29 22:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/11091751.shtml)
-- 2026-06-29 21:56 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/142776028103.shtml)
-- 2026-06-29 21:45 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/43622904.shtml)
+- 2026-06-29 22:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/9702598.shtml)
+- 2026-06-29 22:02 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/08325096.shtml)
+- 2026-06-29 21:52 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/75907572212.shtml)
+- 2026-06-29 22:02 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/42391246.shtml)
+- 2026-06-29 22:10 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/77981569.shtml)
+- 2026-06-29 22:17 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/21421266.shtml)
+- 2026-06-29 22:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/2637659.shtml)
+- 2026-06-29 22:01 - [小龙女配音去世 李若彤发文悼念](https://www.blog.kurohicncr.top/Article/details/7190075033.shtml)
+- 2026-06-29 21:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/39392.shtml)
+- 2026-06-29 22:05 - [恋与深空7天掉粉超50万](https://www.share.kurohicncr.top/Article/details/338672.shtml)
+- 2026-06-29 22:09 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/52960222282.shtml)
+- 2026-06-29 22:01 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/98787105.shtml)
+- 2026-06-29 21:51 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/553103.shtml)
+- 2026-06-29 22:02 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/20666863190.shtml)
+- 2026-06-29 22:03 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/5447331080.shtml)

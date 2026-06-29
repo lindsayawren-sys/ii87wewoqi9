@@ -1,56 +1,58 @@
-# 国内油价迎年内第8次上涨 加满一箱油将多花3元
+# 阿波罗放弃20亿美元正式收购要约，鲍迪克股价大跌9.4%
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网北京5月21日电(记者 张尼)国内油价迎年内第八次上涨。据国家发改委消息，自5月21日24时起，国内汽、柴油(标准品)价格每吨分别上调75元、70元。 机构测算，此次调价折合92号汽油每升上调0.06元，95号汽油每升上调0.06元，0号柴油每升上调0.06元。 2026年至今的调价格局呈现“八涨一跌一搁浅”，此次调价后，私家车主用油成本略有增加，以油箱容量50L的普通私
+美国私募信贷巨头阿波罗全球管理决定不再向金属热处理企业鲍迪克（Bodycote）出具正式收购报价，历时数月、作价 15.2 亿英镑（折合 20.4 亿美元）的收购洽谈就此终止，受此利空影响，鲍迪克股价周五应声下跌。 欧洲早盘交易时段，该股大跌 9.4%，报 746 便士；但年初至今股价仍累计上涨 6.6%。 这家富时 250 成分股、英国热处理龙头企业表示，公司对自身发展战略保
 
 ## 正文
 
-中新网北京5月21日电(记者 张尼)国内油价迎年内第八次上涨。
+美国私募信贷巨头阿波罗全球管理决定不再向金属热处理企业鲍迪克（Bodycote）出具正式收购报价，历时数月、作价 15.2 亿英镑（折合 20.4 亿美元）的收购洽谈就此终止，受此利空影响，鲍迪克股价周五应声下跌。
 
-据国家发改委消息，自5月21日24时起，国内汽、柴油(标准品)价格每吨分别上调75元、70元。
+欧洲早盘交易时段，该股大跌 9.4%，报 746 便士；但年初至今股价仍累计上涨 6.6%。
 
-机构测算，此次调价折合92号汽油每升上调0.06元，95号汽油每升上调0.06元，0号柴油每升上调0.06元。
+这家富时 250 成分股、英国热处理龙头企业表示，公司对自身发展战略保有信心，该战略旨在打造抗周期、成长性优异的优质业务。
 
-2026年至今的调价格局呈现“八涨一跌一搁浅”，此次调价后，私家车主用油成本略有增加，以油箱容量50L的普通私家车计算，车主加满一箱油将多花3元左右。
+2026 年公司经营开局向好，业绩与成长性优化工作稳步落地。
 
-隆众资讯分析师夏文红表示，本轮计价周期内，国际原油市场先扬后抑。
+总部位于纽约的阿波罗表态：“我方依旧高度认可鲍迪克公司及其管理团队”，但并未披露终止收购谈判的具体缘由。
 
-期初，美伊双方分歧明显令和谈陷入僵局，供应风险忧虑增强，国际油价上涨。
+早在 5 月 22 日，阿波罗便向鲍迪克抛出收购方案：每股现金对价 885 便士。
 
-期末，有消息称美伊和谈取得新进展，市场担忧情绪缓和，国际油价下跌。
+按照原收购条款，股东还可照常领取 2025 年度末期股息，每股分红 16.1 便士。
 
-整体来看，计价周期内挂靠油种均价上移，所对应的原油综合变化率正向区间运行，开启本轮零售价上调窗口。
+此前因这份较市价溢价近 27% 的收购预案落地，鲍迪克股价一度暴涨，创下 2022 年 1 月以来股价新高。
 
 ## 相关推荐
 
-- 2026-06-29 21:52 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 21:53 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 22:04 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 22:10 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 21:44 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 22:00 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-29 21:56 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 21:46 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 22:08 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 22:06 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 21:48 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 22:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 22:09 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 21:52 - [铜价上涨 日本住宅水表失窃严重](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-29 21:51 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
+- 2026-06-29 22:08 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 21:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-29 22:12 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 22:04 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 22:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-29 22:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 22:02 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:45 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/43312.shtml)
-- 2026-06-29 21:57 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/516270023914.shtml)
-- 2026-06-29 22:03 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/0244584.shtml)
-- 2026-06-29 21:46 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/066152570.shtml)
-- 2026-06-29 21:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/49408623.shtml)
-- 2026-06-29 21:42 - [世界杯高票价为何没劝退球迷](http://www.share.minike.top/Article/details/05193.shtml)
-- 2026-06-29 22:01 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/49013.shtml)
-- 2026-06-29 22:09 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/72892014.shtml)
-- 2026-06-29 21:52 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/5433177999.shtml)
-- 2026-06-29 22:09 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/04109052245.shtml)
-- 2026-06-29 22:03 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/0346415948.shtml)
-- 2026-06-29 21:50 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/18421979.shtml)
-- 2026-06-29 22:10 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/7748375236.shtml)
-- 2026-06-29 21:45 - [恋与深空7天掉粉超50万](https://www.share.minike.top/Article/details/6181377.shtml)
-- 2026-06-29 22:09 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/817621730173.shtml)
+- 2026-06-29 21:57 - [一汽大众黄金超混技术来袭](http://www.blog.minike.top/Article/details/69460804.shtml)
+- 2026-06-29 22:08 - [千与千寻](https://www.blog.minike.top/Article/details/04840084280.shtml)
+- 2026-06-29 22:04 - [运-20网宣片中的“小六”或是六代机](https://www.share.kurohicncr.top/Article/details/080022535922.shtml)
+- 2026-06-29 21:49 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/950063.shtml)
+- 2026-06-29 22:13 - [运-20网宣片中的“小六”或是六代机](http://www.blog.kurohicncr.top/Article/details/835339.shtml)
+- 2026-06-29 22:09 - [韩国800万亿韩元押注半导体](http://www.share.kurohicncr.top/Article/details/529260712.shtml)
+- 2026-06-29 21:54 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/771863.shtml)
+- 2026-06-29 22:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/557624.shtml)
+- 2026-06-29 21:55 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/446353.shtml)
+- 2026-06-29 22:16 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/59852491.shtml)
+- 2026-06-29 21:57 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/13134750.shtml)
+- 2026-06-29 21:51 - [马来西亚同意延长马航370残骸搜寻](http://www.share.kurohicncr.top/Article/details/495941501.shtml)
+- 2026-06-29 21:58 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/45857120630.shtml)
+- 2026-06-29 21:53 - [店员光脚踩入盆中清洗土豆](https://www.share.kurohicncr.top/Article/details/180441386188.shtml)
+- 2026-06-29 21:55 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/0791781883.shtml)

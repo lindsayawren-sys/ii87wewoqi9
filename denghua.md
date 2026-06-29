@@ -1,46 +1,50 @@
-# 大普微：受益于全球AI算力基础设施建设的推进，企业级SSD市场需求展现出较快增长
+# 中国人民银行副行长陆磊出席加勒比开发银行2026年年会
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-证券日报网5月21日讯，大普微在接受调研者提问时表示，受益于全球AI算力基础设施建设的推进，企业级SSD市场需求展现出较快增长，后续业绩数据请以公司公告为准。
+2026年6月3日至4日，中国人民银行副行长陆磊出席在巴哈马举行的加勒比开发银行2026年年会，并代表区外非借款成员国在开幕式上致辞。参会各方就加勒比地区转型和未来发展等议题进行交流。会议期间，陆磊会见了加勒比开发银行行长丹尼尔·贝斯特，就加强双边合作等议题交换了意见。责任编辑：曹睿潼
 
 ## 正文
 
-证券日报网5月21日讯，大普微在接受调研者提问时表示，受益于全球AI算力基础设施建设的推进，企业级SSD市场需求展现出较快增长，后续业绩数据请以公司公告为准。
+2026年6月3日至4日，中国人民银行副行长陆磊出席在巴哈马举行的加勒比开发银行2026年年会，并代表区外非借款成员国在开幕式上致辞。
+
+参会各方就加勒比地区转型和未来发展等议题进行交流。
+
+会议期间，陆磊会见了加勒比开发银行行长丹尼尔·贝斯特，就加强双边合作等议题交换了意见。
+
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 21:54 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 22:08 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 22:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 22:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 21:46 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 21:53 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-29 21:57 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 22:11 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 21:47 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 21:55 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 22:06 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 21:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 21:42 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 22:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 22:11 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 22:01 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-29 21:48 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 21:53 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 21:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 22:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 22:11 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 21:56 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 22:03 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 21:55 - [上世纪90年代玩具成新宠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 22:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 22:15 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:51 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2694740.shtml)
-- 2026-06-29 21:49 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/624598962346.shtml)
-- 2026-06-29 22:05 - [在巴西能拍到什么？](http://www.blog.minike.top/Article/details/48078780467.shtml)
-- 2026-06-29 21:51 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/30571566888.shtml)
-- 2026-06-29 22:00 - [王楚钦开门红](https://www.blog.kurohicncr.top/Article/details/23235456854.shtml)
-- 2026-06-29 22:06 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/33316.shtml)
-- 2026-06-29 21:53 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/9193066.shtml)
-- 2026-06-29 22:05 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/8461461070.shtml)
-- 2026-06-29 22:07 - [《恋与深空》回应争议](http://www.share.kurohicncr.top/Article/details/4946388943.shtml)
-- 2026-06-29 21:43 - [韩文体部宣布对韩足协开展审计](https://www.blog.kurohicncr.top/Article/details/03107892028.shtml)
-- 2026-06-29 21:45 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/60088993.shtml)
-- 2026-06-29 21:48 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.minike.top/Article/details/219834711.shtml)
-- 2026-06-29 21:50 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/6037389.shtml)
-- 2026-06-29 21:51 - [炽夏](https://www.share.minike.top/Article/details/852605971.shtml)
-- 2026-06-29 21:55 - [大范围高温会带来哪些经济影响](http://www.share.kurohicncr.top/Article/details/20203142744.shtml)
+- 2026-06-29 21:54 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/6065148331.shtml)
+- 2026-06-29 21:49 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/845349.shtml)
+- 2026-06-29 22:13 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/58177861714.shtml)
+- 2026-06-29 22:02 - [五只军犬招募领养人](http://www.share.minike.top/Article/details/22183.shtml)
+- 2026-06-29 22:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/16727.shtml)
+- 2026-06-29 21:54 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/941893.shtml)
+- 2026-06-29 22:01 - [地震来临时铁路工作人员果断拦停列车](https://www.share.minike.top/Article/details/56601960.shtml)
+- 2026-06-29 22:04 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/26849566.shtml)
+- 2026-06-29 22:06 - [世界杯](http://www.share.minike.top/Article/details/61718503177.shtml)
+- 2026-06-29 22:06 - [哈兰德吃饭被镜中自己吓到](http://www.blog.minike.top/Article/details/784481056.shtml)
+- 2026-06-29 21:58 - [欧洲高温会成下个印度吗](http://www.share.minike.top/Article/details/792300672093.shtml)
+- 2026-06-29 22:13 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/21898278.shtml)
+- 2026-06-29 21:57 - [恋与深空已删除锅里洗澡文案](http://www.share.minike.top/Article/details/2377576.shtml)
+- 2026-06-29 21:58 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/9974882109.shtml)
+- 2026-06-29 22:12 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/204902.shtml)

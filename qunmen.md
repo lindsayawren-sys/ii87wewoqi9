@@ -1,56 +1,55 @@
-# IEA署长：3月投放4亿桶之后仍有80%石油库存 愿意采取进一步行动
+# 吴清：基金行业服务投资者超过8.6亿人渗透率达60%，公募近五年累计分红2.5万亿元
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-国际能源署（IEA）署长法提赫·比罗尔表示，为应对伊朗战争而释放的石油储备仅占库存的约20%，如果各国希望进一步向市场注入储备，该机构已做好准备。 今年3月，在IEA的协调下，美国、德国和日本等成员国承诺从其应急储备中投放创纪录的4亿桶原油。 “我们目前仍保有80%的库存，” 比罗尔周四在伦敦查塔姆研究所举办的一场活动上表示，“至于释放多少，以及是否释放，将取决于市场如何演变，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。吴清表示，近年来，基金行业主动适应居民多元化资产配置需要，加快推动指数型、配置型、绝对收益产品发展，服务投资者超过8.6亿人、渗透率达60%。其中，公募基金规模已突破39万亿元，五年来累计分红2.5万亿元，为投资者创造
 
 ## 正文
 
-国际能源署（IEA）署长法提赫·比罗尔表示，为应对伊朗战争而释放的石油储备仅占库存的约20%，如果各国希望进一步向市场注入储备，该机构已做好准备。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今年3月，在IEA的协调下，美国、德国和日本等成员国承诺从其应急储备中投放创纪录的4亿桶原油。
+6月6日，中国证券投资基金业协会第四届会员代表大会举行，证监会主席吴清出席会议并发表讲话。
 
-“我们目前仍保有80%的库存，” 比罗尔周四在伦敦查塔姆研究所举办的一场活动上表示，“至于释放多少，以及是否释放，将取决于市场如何演变，以及成员国政府是否做出决定。
+吴清表示，近年来，基金行业主动适应居民多元化资产配置需要，加快推动指数型、配置型、绝对收益产品发展，服务投资者超过8.6亿人、渗透率达60%。
 
-” IEA在本月早些时候发布的一份报告中指出，3月和4月期间，全球可观测的石油库存正以每日约400万桶的速度下降。
+其中，公募基金规模已突破39万亿元，五年来累计分红2.5万亿元，为投资者创造利润3.6万亿元，已成为投资者共享中国经济发展红利的重要渠道之一。
 
-随着中东冲突导致霍尔木兹海峡实际上处于持续关闭状态，全球石油出口受到的冲击正日益加剧。
+私募证券投资基金规模超过7.8万亿元，较“十三五”末增长近一倍，在满足差异化资产配置需求方面发挥着越来越重要的作用。
 
-尽管由IEA协调的石油储备释放帮助遏制了原油期货价格的涨势，但目前油价仍维持在每桶100美元以上。
-
-责任编辑：江学思
+责任编辑：常福强
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 22:00 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 21:44 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 21:59 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
-- 2026-06-29 22:00 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 21:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 21:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 21:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 21:48 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 21:47 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 21:45 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
-- 2026-06-29 21:52 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 21:50 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-29 22:04 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 22:04 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 22:15 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 22:12 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 21:48 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 21:48 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-29 21:55 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 22:08 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 21:55 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 22:17 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-29 22:11 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 22:14 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:52 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/95178679051.shtml)
-- 2026-06-29 21:44 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/040720.shtml)
-- 2026-06-29 22:06 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/7097566.shtml)
-- 2026-06-29 21:43 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/0553546.shtml)
-- 2026-06-29 22:09 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/6356316147.shtml)
-- 2026-06-29 21:42 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/858268253338.shtml)
-- 2026-06-29 21:58 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/8470859.shtml)
-- 2026-06-29 21:59 - [朱雀三号完成静态点火试验](https://www.blog.minike.top/Article/details/87912440.shtml)
-- 2026-06-29 21:53 - [恋与深空制作组回应争议](https://www.share.kurohicncr.top/Article/details/39570.shtml)
-- 2026-06-29 22:04 - [一诺变着花样秀新驾照](https://www.share.minike.top/Article/details/1499514337.shtml)
-- 2026-06-29 21:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/50058016660.shtml)
-- 2026-06-29 22:11 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/89769759564.shtml)
-- 2026-06-29 21:56 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/0130844.shtml)
-- 2026-06-29 21:51 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/6465656.shtml)
-- 2026-06-29 22:08 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/97936653.shtml)
+- 2026-06-29 22:13 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/323745094.shtml)
+- 2026-06-29 21:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/8636673.shtml)
+- 2026-06-29 22:17 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/29459029763.shtml)
+- 2026-06-29 21:59 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/66041730.shtml)
+- 2026-06-29 22:15 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/329315916.shtml)
+- 2026-06-29 22:12 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/7118686.shtml)
+- 2026-06-29 22:01 - [乌是否掌握了扭转战局的钥匙](http://www.blog.kurohicncr.top/Article/details/23572166.shtml)
+- 2026-06-29 21:53 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/443603209197.shtml)
+- 2026-06-29 22:15 - [普京建议乌俄停止打击对方纵深目标](http://www.share.minike.top/Article/details/998177010.shtml)
+- 2026-06-29 21:58 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/359211.shtml)
+- 2026-06-29 22:16 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/4299593000.shtml)
+- 2026-06-29 22:09 - [高质量发展看新疆](https://www.blog.kurohicncr.top/Article/details/81235420012.shtml)
+- 2026-06-29 21:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/064437.shtml)
+- 2026-06-29 21:53 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.kurohicncr.top/Article/details/686446384.shtml)
+- 2026-06-29 21:49 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/56811509.shtml)

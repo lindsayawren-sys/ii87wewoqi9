@@ -1,49 +1,45 @@
-# 美银证券：招商证券目标价上调至16.60港元 升至“买入”评级
+# 习言道｜人生理想的风帆要靠奋斗来扬起
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-美银证券发布研报称，将招商证券（06099）评级由“跑输大市”升两级至“买入”，以反映A股交投上升带来盈利上行空间，以及第二至第四季潜在 IPO 相关的投资收益。该行对招商证券的H股目标价由15.3港元升至16.6港元，以反映2026年每股盈利预测上调16%至1.68元人民币，以及中期股本回报率预期由8%升至8.8%，并认为近期管理层变动及长鑫存储 IPO 消息将是短期催化剂，
+奋斗是青春最亮丽的底色。习近平总书记常常鼓励青年追求梦想、努力奋斗，强调人生理想的风帆要靠奋斗来扬起。
 
 ## 正文
 
-美银证券发布研报称，将招商证券（06099）评级由“跑输大市”升两级至“买入”，以反映A股交投上升带来盈利上行空间，以及第二至第四季潜在 IPO 相关的投资收益。
+奋斗是青春最亮丽的底色。
 
-该行对招商证券的H股目标价由15.3港元升至16.6港元，以反映2026年每股盈利预测上调16%至1.68元人民币，以及中期股本回报率预期由8%升至8.8%，并认为近期管理层变动及长鑫存储 IPO 消息将是短期催化剂，而自第一季末以来“国家队”的资金流出放缓亦应有助股价上行。
-
-责任编辑：卢昱君
+习近平总书记常常鼓励青年追求梦想、努力奋斗，强调人生理想的风帆要靠奋斗来扬起。
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 21:50 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 22:10 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 21:57 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 21:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-29 22:08 - [恋与深空客服的回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 21:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 21:58 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 22:06 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-29 21:50 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-29 22:00 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-29 21:45 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 21:51 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 21:58 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 22:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
+- 2026-06-29 21:48 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 22:10 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 22:09 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 22:07 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 22:04 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 21:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 21:52 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-29 22:15 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 22:02 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:42 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/29058963.shtml)
-- 2026-06-29 21:47 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/70667.shtml)
-- 2026-06-29 21:53 - [王菲谢霆锋十指紧扣好甜](https://www.share.kurohicncr.top/Article/details/586640.shtml)
-- 2026-06-29 21:52 - [绿营污蔑大陆“海上袭扰”被批](https://www.share.kurohicncr.top/Article/details/379418311.shtml)
-- 2026-06-29 21:42 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/7047511902.shtml)
-- 2026-06-29 21:57 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/36678.shtml)
-- 2026-06-29 21:43 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/00268286.shtml)
-- 2026-06-29 22:07 - [追觅称质量不行终身包修也没意义](https://www.share.minike.top/Article/details/3732283163.shtml)
-- 2026-06-29 21:54 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/2243674059.shtml)
-- 2026-06-29 22:02 - [齐思钧回复孙怡](https://www.blog.kurohicncr.top/Article/details/69271858297.shtml)
-- 2026-06-29 21:51 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/1936665335.shtml)
-- 2026-06-29 21:46 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/71688355920.shtml)
-- 2026-06-29 22:04 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/676276020.shtml)
-- 2026-06-29 21:51 - [逃狱兄弟](https://www.share.minike.top/Article/details/61501788748.shtml)
-- 2026-06-29 21:57 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/0290250220.shtml)
+- 2026-06-29 21:50 - [我和我的家乡](https://www.blog.minike.top/Article/details/10540.shtml)
+- 2026-06-29 21:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/1301640.shtml)
+- 2026-06-29 21:51 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/922276582336.shtml)
+- 2026-06-29 22:16 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/238617663491.shtml)
+- 2026-06-29 21:49 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.minike.top/Article/details/4850257.shtml)
+- 2026-06-29 22:05 - [存储三巨头被告了](https://www.share.minike.top/Article/details/5510720045.shtml)
+- 2026-06-29 21:59 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.minike.top/Article/details/6359981408.shtml)
+- 2026-06-29 21:52 - [蓝箭航天科创板IPO审核状态为已问询](http://www.blog.kurohicncr.top/Article/details/4341692181.shtml)
+- 2026-06-29 21:48 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/417155.shtml)
+- 2026-06-29 21:50 - [女心理师](http://www.blog.minike.top/Article/details/0270142131.shtml)
+- 2026-06-29 22:11 - [巴黎区长紧急采购50台中国空调](https://www.blog.kurohicncr.top/Article/details/3751704840.shtml)
+- 2026-06-29 22:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/509559.shtml)
+- 2026-06-29 22:09 - [乔家的儿女](https://www.blog.minike.top/Article/details/031100432.shtml)
+- 2026-06-29 22:01 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/390030409.shtml)
+- 2026-06-29 21:50 - [沉睡花园](http://www.share.minike.top/Article/details/2251032.shtml)

@@ -1,44 +1,60 @@
-# 湖北新一轮降雨过程今日将开启
+# （乡村行·看振兴）乡厨小料散发“国际香” 吉林紫苏开启全球美食拓展之旅
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月21日 13:22 来源：央视新闻 责任编辑：【王祎】
+中新网吉林6月6日电 题：乡厨小料散发“国际香” 吉林紫苏开启全球美食拓展之旅 中新网记者 苍雁 石洪宇 一片过去只在东北乡村厨房里充当调味小料的绿叶，如今正以面条、食用油、糖果的形式，出现在日本、韩国，以及东南亚、欧洲地区的超市货架上。 吉林(中国—新加坡)食品区(下称“中新食品区”)一家食品企业车间内，一批紫苏面条刚刚下线。煮熟后的紫苏面条色泽温润，带着淡淡清香。去年，以这
 
 ## 正文
 
-发布时间：2026年05月21日 13:22 来源：央视新闻 责任编辑：【王祎】
+中新网吉林6月6日电 题：乡厨小料散发“国际香” 吉林紫苏开启全球美食拓展之旅 中新网记者 苍雁 石洪宇 一片过去只在东北乡村厨房里充当调味小料的绿叶，如今正以面条、食用油、糖果的形式，出现在日本、韩国，以及东南亚、欧洲地区的超市货架上。
+
+吉林(中国—新加坡)食品区(下称“中新食品区”)一家食品企业车间内，一批紫苏面条刚刚下线。
+
+煮熟后的紫苏面条色泽温润，带着淡淡清香。
+
+去年，以这款面条为代表的面食产品出口1000多吨，成为受欢迎的“明星产品”。
+
+“国外消费者对紫苏的独特风味接受度很高。
+
+”企业董事长刘坤介绍，这款面条专为海外市场研发，目前已进入多个国家的超市与餐厅。
+
+产品广受好评后，不少客户提出定制需求，企业可根据订单灵活调整紫苏添加比例。
+
+紫苏在中国已有两千余年种植史，吉林省永吉县是优质紫苏的核心产区。
 
 ## 相关推荐
 
-- 2026-06-29 21:47 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 21:51 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-29 21:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-29 22:08 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 21:57 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 22:02 - [C罗10球7球对垫底队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-29 21:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 22:02 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-29 22:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 21:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 21:53 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-29 21:45 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 22:16 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 22:12 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 21:57 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 22:01 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 21:51 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 22:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 22:10 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 22:12 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 22:15 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 22:07 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 21:57 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 22:10 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 22:16 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 22:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [店员光脚踩入盆中清洗土豆](http://www.blog.kurohicncr.top/Article/details/446835719471.shtml)
-- 2026-06-29 21:44 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/59573271.shtml)
-- 2026-06-29 22:10 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/1337204207.shtml)
-- 2026-06-29 21:59 - [恋与深空将调整引狼入室文本](https://www.share.minike.top/Article/details/78943040792.shtml)
-- 2026-06-29 22:01 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/6181588738.shtml)
-- 2026-06-29 21:59 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/422509805.shtml)
-- 2026-06-29 22:11 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/76973.shtml)
-- 2026-06-29 22:08 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/2555180.shtml)
-- 2026-06-29 22:04 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/786818054446.shtml)
-- 2026-06-29 21:50 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/3100739129.shtml)
-- 2026-06-29 22:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/770662435128.shtml)
-- 2026-06-29 22:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/0879045.shtml)
-- 2026-06-29 21:49 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/837746808441.shtml)
-- 2026-06-29 21:47 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/86799218.shtml)
-- 2026-06-29 21:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/581546925.shtml)
+- 2026-06-29 21:53 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/712786330.shtml)
+- 2026-06-29 21:54 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/367306.shtml)
+- 2026-06-29 21:49 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/45805.shtml)
+- 2026-06-29 22:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/74332440.shtml)
+- 2026-06-29 21:52 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/8514023.shtml)
+- 2026-06-29 21:55 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/887831693661.shtml)
+- 2026-06-29 21:52 - [仙游一峡谷5人身亡知情者发声](http://www.share.kurohicncr.top/Article/details/56148328.shtml)
+- 2026-06-29 22:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/90963327.shtml)
+- 2026-06-29 22:11 - [韩国队回国欢迎仪式取消](http://www.blog.minike.top/Article/details/516595277.shtml)
+- 2026-06-29 21:53 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/79655193.shtml)
+- 2026-06-29 21:58 - [《贺子珍》](https://www.share.minike.top/Article/details/75401366768.shtml)
+- 2026-06-29 21:57 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/0024987105.shtml)
+- 2026-06-29 21:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/1768367.shtml)
+- 2026-06-29 22:03 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/2955158299.shtml)
+- 2026-06-29 22:14 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/396342.shtml)

@@ -1,58 +1,56 @@
-# 大黄鱼品质分级将迎来统一衡量标准
+# 俄罗斯称北溪2号幸存管线可“明天”恢复对德供气
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-中新网宁德5月21日电 (吴允杰)21日，《高品质大黄鱼等级评价技术规范》团体标准新闻发布会在福建省宁德市举行，解读全国首个覆盖福建、浙江等大黄鱼主产区的高品质分级评价标准——《高品质大黄鱼等级评价技术规范》团体标准。 据介绍，《高品质大黄鱼等级评价技术规范》团体标准由中国渔业协会权威发布，由宁德市大黄鱼产业分指挥部、市大黄鱼产业协会联合闽浙两地顶尖科研力量与龙头企业共同起草，
+俄罗斯总统普京周四表示，俄方已准备好恢复通过北溪管道向德国供应天然气。他指出，北溪2号的两条管线中有一条完好无损，只要德国政府做出政治决策，“按下按钮”，天然气就可以在“明天”开始输送。 普京在圣彼得堡国际经济论坛上对媒体表示：“我不是在开玩笑——只要按下按钮，天然气就开始流动。但这需要德国政府的决定。”他同时指出，北溪项目目前仍在美国制裁之下，德国需要就解除这些制裁达成协议。
 
 ## 正文
 
-中新网宁德5月21日电 (吴允杰)21日，《高品质大黄鱼等级评价技术规范》团体标准新闻发布会在福建省宁德市举行，解读全国首个覆盖福建、浙江等大黄鱼主产区的高品质分级评价标准——《高品质大黄鱼等级评价技术规范》团体标准。
+俄罗斯总统普京周四表示，俄方已准备好恢复通过北溪管道向德国供应天然气。
 
-据介绍，《高品质大黄鱼等级评价技术规范》团体标准由中国渔业协会权威发布，由宁德市大黄鱼产业分指挥部、市大黄鱼产业协会联合闽浙两地顶尖科研力量与龙头企业共同起草，于2026年5月15日发布，并将于2026年6月15日正式实施，旨在规范高品质大黄鱼的等级评定、引导市场透明消费、践行优质优价理念，推动大黄鱼从“按规格卖鱼”向“按品质卖鱼”转变。
+他指出，北溪2号的两条管线中有一条完好无损，只要德国政府做出政治决策，“按下按钮”，天然气就可以在“明天”开始输送。
 
-宁德市海洋与渔业局党组成员、副局长，市大黄鱼产业协会秘书长游成银称，该标准的发布，第一次让大黄鱼的品质高低有了全国统一的度量衡，引领大黄鱼产业发展，分等分级引导理性消费，促进全国统一大市场的形成，“高品质大黄鱼，从此有了自己的品质‘话语权’”。
+普京在圣彼得堡国际经济论坛上对媒体表示：“我不是在开玩笑——只要按下按钮，天然气就开始流动。
 
-大黄鱼，又叫黄瓜鱼，素有“国鱼”美誉。
+但这需要德国政府的决定。
 
-长期以来，大黄鱼市场交易遵循“凭重量分等、靠感觉分级”，导致“好鱼难找、好价难卖”。
+”他同时指出，北溪项目目前仍在美国制裁之下，德国需要就解除这些制裁达成协议。
 
-为此，“中国大黄鱼之都”宁德市立足自身产业优势，针对当前市场“有品质差异、无统一标尺”的行业痛点，全面对标食品安全底线，系统整合现有标准优势，采集福建、浙江等大黄鱼主产区海捕、养殖大黄鱼239批次检测数据，历经多轮论证与试验，经中国渔业协会2026年第三次团体标准技术审查会议的高层级审定，批准发布《高品质大黄鱼等级评价技术规范》团体标准。
+普京称，俄方每年可供应多达280亿立方米天然气，“但我们只需要德国合作伙伴向俄气公司给出一个明确的答案——他们要不要。
 
-在东海水产研究所宁德创新研究院执行院长、宁德市大黄鱼产业协会标准化技术委员会主任郭全友看来，《高品质大黄鱼等级评价技术规范》团体标准相较于目前现行的通用行业标准、地方标准，在评判逻辑、分级架构、市场管控层面实现了多项突破性创新，针对性补齐了原有标准偏重通用性、缺乏高品质专项判定的短板。
+否则，我们将把这些天然气投放到其他市场，卖给其他合作伙伴”。
 
-据介绍，《高品质大黄鱼等级评价技术规范》团体标准根据形体与感官、营养与风味、质量追溯与信用保证等，将养殖大黄鱼划分为AAAAA级(黄金尊)、AAAA级(黄金龙)、AAA级(黄金鳞)、AA级(石首黄)、A级(桂花黄)5个等级，构建科学严密的综合评价体系。
+爆炸事件与当前背景 北溪1号和2号管道于2022年9月因海底爆炸严重受损，导致德国被迫紧急寻找替代能源供应，至今未能完全摆脱由此引发的能源冲击。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 21:47 - [东方风云榜直播](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 22:11 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 22:01 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 22:09 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 21:59 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 22:04 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 21:59 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 21:50 - [记者乘坐无人驾驶汽车去采访](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-29 21:49 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 21:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 22:05 - [华工科技龙虎榜数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 21:55 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 21:52 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 21:57 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 21:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 22:16 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 22:04 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
+- 2026-06-29 22:11 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 22:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 22:09 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 22:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [齐思钧回复孙怡](https://www.blog.minike.top/Article/details/95187497817.shtml)
-- 2026-06-29 22:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/32337217629.shtml)
-- 2026-06-29 21:46 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/473061746477.shtml)
-- 2026-06-29 21:46 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/8863684874.shtml)
-- 2026-06-29 22:04 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/2456783477.shtml)
-- 2026-06-29 21:47 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/70655553.shtml)
-- 2026-06-29 21:55 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/91461818.shtml)
-- 2026-06-29 22:10 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/0829043.shtml)
-- 2026-06-29 21:57 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/509377208442.shtml)
-- 2026-06-29 21:44 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/390691624528.shtml)
-- 2026-06-29 22:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/90614973651.shtml)
-- 2026-06-29 21:47 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/837235243753.shtml)
-- 2026-06-29 21:56 - [毒液2](https://www.blog.kurohicncr.top/Article/details/4385397.shtml)
-- 2026-06-29 21:42 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/618745022.shtml)
-- 2026-06-29 22:10 - [金刚川](http://www.blog.kurohicncr.top/Article/details/169441.shtml)
+- 2026-06-29 22:06 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/8044521.shtml)
+- 2026-06-29 22:04 - [乔家的儿女](https://www.share.minike.top/Article/details/71343903.shtml)
+- 2026-06-29 22:10 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/548069438.shtml)
+- 2026-06-29 21:52 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/7865937.shtml)
+- 2026-06-29 21:53 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/2711343.shtml)
+- 2026-06-29 22:05 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/794696253.shtml)
+- 2026-06-29 22:14 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/77053.shtml)
+- 2026-06-29 22:04 - [被中方管控的20家日本实体什么来头](http://www.share.kurohicncr.top/Article/details/93598905.shtml)
+- 2026-06-29 22:07 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/4648594.shtml)
+- 2026-06-29 22:06 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/871832052470.shtml)
+- 2026-06-29 22:06 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/51270.shtml)
+- 2026-06-29 22:00 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/897225537231.shtml)
+- 2026-06-29 22:11 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/7093003941.shtml)
+- 2026-06-29 21:48 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/650302247.shtml)
+- 2026-06-29 22:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/857858.shtml)

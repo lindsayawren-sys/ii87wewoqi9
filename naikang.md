@@ -1,60 +1,57 @@
-# ETF放量突破上市高点！买点信号显现？澜起科技涨超10%，华宝基金科创人工智能ETF盘中拉升2.2%续创新高
+# 尾盘：三大股指悉数走高 道指涨逾800点
 
-> 更新时间：2026-06-29 22:12:02 UTC+8
+> 更新时间：2026-06-29 22:18:03 UTC+8
 
 ## 摘要
 
-接着奏乐接着舞！今日（5月21日）A股主要指数悉数上涨，科创50、科创综指等科创板表现显著居前，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内价格盘中涨超2.2%，现涨1.95%，续创历史新高！ 值得关注的是，昨日，该ETF放量突破上市高点，或为资金买点信号，事实上，该ETF昨天单日吸金230万元，或已有资金逐步进场布局！ 成份股方面，星环科技-U
+北京时间6月5日凌晨，美股周四尾盘走高。道指上涨逾800点并创历史新高。投资者从芯片股转向银行和零售股，并继续关注中东局势的最新发展。 道指涨879.27点，涨幅为1.73%，报51566.34点；纳指涨51.13点，涨幅为0.19%，报26905.10点；标普500指数涨39.40点，涨幅为0.52%，报7593.08点。 联合健康领涨道指，涨幅超过5%。摩根大通和沃尔玛分别
 
 ## 正文
 
-接着奏乐接着舞！
+北京时间6月5日凌晨，美股周四尾盘走高。
 
-今日（5月21日）A股主要指数悉数上涨，科创50、科创综指等科创板表现显著居前，同时具备科创板+AI赛道双重优势的科创人工智能ETF华宝（589520）场内价格盘中涨超2.2%，现涨1.95%，续创历史新高！
+道指上涨逾800点并创历史新高。
 
-值得关注的是，昨日，该ETF放量突破上市高点，或为资金买点信号，事实上，该ETF昨天单日吸金230万元，或已有资金逐步进场布局！
+投资者从芯片股转向银行和零售股，并继续关注中东局势的最新发展。
 
-成份股方面，星环科技-U领涨超13%，澜起科技涨逾10%，道通科技、奥比中光-W、金山办公、乐鑫科技等个股跟涨。
+道指涨879.27点，涨幅为1.73%，报51566.34点；纳指涨51.13点，涨幅为0.19%，报26905.10点；标普500指数涨39.40点，涨幅为0.52%，报7593.08点。
 
-在AI热潮推动下，半导体方向正在经历一轮罕见的大行情，即便经历大幅上涨，著名经济学家洪灝认为，存储半导体未来两年的产能或已全部卖完，半导体的盈利至少未来两年无法证伪，半导体行情还没有走完。
+联合健康领涨道指，涨幅超过5%。
 
-而国泰海通证券认为，AI Agent将开启下一轮产业链通胀周期。
+摩根大通和沃尔玛分别为该基准指数的上涨作出贡献，分别上涨4%和1%。
 
-Agent落地，使Token消耗量实现指数级跃升，供需矛盾将进一步加剧，预计引发AI全产业链新一轮资源争夺与价格上行。
+道指之外的非科技股，如好市多和礼来，分别上涨超过1%和5%。
 
-业绩层面，权重股寒武纪一季度营收28.85亿元，同比大增159.56%，归母净利润10.13亿元，同比飙升185.04%，双双创下历史最优纪录。
+投资者观察到资金从芯片股转向银行和零售股的趋势。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 21:52 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-29 22:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 22:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-29 21:59 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 21:44 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-29 21:55 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-29 22:08 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 22:02 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
-- 2026-06-29 21:59 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-29 22:00 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 22:11 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-29 22:11 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 21:48 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 22:04 - [乌克兰发广告全球征兵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-29 22:03 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 22:17 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 22:16 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 22:06 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 22:05 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 22:15 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 21:53 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 21:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 22:13 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 22:10 - [济南航空航天全面起势](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/1724074.shtml)
-- 2026-06-29 21:50 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/84446826743.shtml)
-- 2026-06-29 22:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/1220807.shtml)
-- 2026-06-29 21:45 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/6320082.shtml)
-- 2026-06-29 22:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/59878.shtml)
-- 2026-06-29 22:07 - [三大外卖平台承诺不开展分钟级竞速](https://www.share.kurohicncr.top/Article/details/54970980290.shtml)
-- 2026-06-29 21:55 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.minike.top/Article/details/479003245182.shtml)
-- 2026-06-29 21:57 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/43810459507.shtml)
-- 2026-06-29 22:06 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/4209655810.shtml)
-- 2026-06-29 21:51 - [江语晨 好恨江语晨前夫](http://www.share.kurohicncr.top/Article/details/747910.shtml)
-- 2026-06-29 21:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/5955734477.shtml)
-- 2026-06-29 21:55 - [湖北云南这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/8465693029.shtml)
-- 2026-06-29 22:01 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/588025264.shtml)
-- 2026-06-29 21:45 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/6836194643.shtml)
-- 2026-06-29 22:10 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/5672731595.shtml)
+- 2026-06-29 21:55 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/8555301803.shtml)
+- 2026-06-29 22:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/13777.shtml)
+- 2026-06-29 22:17 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/979164135.shtml)
+- 2026-06-29 22:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.minike.top/Article/details/064927683974.shtml)
+- 2026-06-29 22:15 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/5823231.shtml)
+- 2026-06-29 22:16 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/9188064.shtml)
+- 2026-06-29 22:13 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/261578.shtml)
+- 2026-06-29 22:09 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/7440053167.shtml)
+- 2026-06-29 22:02 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/700464092.shtml)
+- 2026-06-29 22:14 - [五只军犬招募领养人](http://www.blog.kurohicncr.top/Article/details/034494920.shtml)
+- 2026-06-29 22:11 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/661104.shtml)
+- 2026-06-29 21:49 - [白玉兰答谢宴合影](http://www.blog.kurohicncr.top/Article/details/12673.shtml)
+- 2026-06-29 22:09 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/372990.shtml)
+- 2026-06-29 21:52 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/86240.shtml)
+- 2026-06-29 21:58 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/5267146.shtml)
