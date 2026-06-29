@@ -1,53 +1,61 @@
-# 乌克兰称其袭击了与Sheskharis相关俄罗斯石油设施
+# 侨博士聚穗 广州邀英才筑梦大湾区
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-乌克兰武装部队总参谋部在社交媒体上表示，乌军夜间袭击了俄罗斯Krasnodar地区Grushovaya Balka附近的一座石油转运油库。 袭击导致该设施起火。 这座油库属于相关基础设施的一部分，用于向俄罗斯位于黑海的Sheskharis终端输送石油 乌军还袭击了俄罗斯Volgograd地区的Krasny Yar燃料分输站。 乌方表示，这座分输站属于向Volgograd炼油厂和
+中新网广州5月15日电 (记者 蔡敏婕)“一个人在什么地方最能发挥价值？那一定是最需要他的地方。”中国科学院院士、中国侨联常委赵宇亮14日在广州结合早年的求学经历进行分享。 他还向广大侨博士推介广州：“广州是一座有着独特魅力的城市，既有绵延两千多年的历史文化，又处在改革开放的最前沿，是一个集历史积淀与现代活力于一身的创新创业热土。” 从美国、英国、德国、新加坡等国家学成归来的十
 
 ## 正文
 
-乌克兰武装部队总参谋部在社交媒体上表示，乌军夜间袭击了俄罗斯Krasnodar地区Grushovaya Balka附近的一座石油转运油库。
+中新网广州5月15日电 (记者 蔡敏婕)“一个人在什么地方最能发挥价值？
 
-袭击导致该设施起火。
+那一定是最需要他的地方。
 
-这座油库属于相关基础设施的一部分，用于向俄罗斯位于黑海的Sheskharis终端输送石油 乌军还袭击了俄罗斯Volgograd地区的Krasny Yar燃料分输站。
+”中国科学院院士、中国侨联常委赵宇亮14日在广州结合早年的求学经历进行分享。
 
-乌方表示，这座分输站属于向Volgograd炼油厂和Sheskharis终端供应石油的基础设施的一部分。
+他还向广大侨博士推介广州：“广州是一座有着独特魅力的城市，既有绵延两千多年的历史文化，又处在改革开放的最前沿，是一个集历史积淀与现代活力于一身的创新创业热土。
 
-责任编辑：江学思
+” 从美国、英国、德国、新加坡等国家学成归来的十余位海外侨博士，当天与海内外广州茶居主理人代表、广州侨界挚友代表等齐聚广东粤港澳大湾区国家纳米科技创新研究院本部园区，共同参加广州茶居·侨博士茶局茶叙。
+
+本次活动由广州市归国华侨联合会、广东粤港澳大湾区国家纳米科技创新研究院主办。
+
+今年，广州市侨联将参与主办第十五届中国创新创业大赛纳米产业技术创新专业赛，同时，经向工信部申请，本次大赛还将首次增设侨博士精英赛赛道，旨在为海内外侨界英才展现科创成果、匹配全周期创业支持提供重要平台。
+
+广州市侨联党组书记、主席卞勇邀请广大侨博士参与侨博士精英赛以及即将举办的2026“百万英才创在广州”活动。
 
 ## 相关推荐
 
-- 2026-06-30 05:01 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-30 05:07 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 04:45 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 05:00 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 04:57 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 05:04 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 05:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-30 04:54 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-30 05:08 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 05:02 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 05:01 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 05:10 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 04:45 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 05:02 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-30 05:12 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 04:54 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-30 05:15 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 05:02 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 05:13 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-30 04:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 05:15 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-30 05:07 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 04:48 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 04:51 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 05:08 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 05:11 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 05:05 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 05:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/9666283926.shtml)
-- 2026-06-30 04:58 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/18139593.shtml)
-- 2026-06-30 04:54 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/37761.shtml)
-- 2026-06-30 05:03 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/8898730.shtml)
-- 2026-06-30 04:46 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/86431.shtml)
-- 2026-06-30 04:44 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/8668905098.shtml)
-- 2026-06-30 04:50 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/952675.shtml)
-- 2026-06-30 05:09 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/987120.shtml)
-- 2026-06-30 05:02 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/80424442.shtml)
-- 2026-06-30 04:58 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.minike.top/Article/details/311991.shtml)
-- 2026-06-30 04:49 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/63232456.shtml)
-- 2026-06-30 05:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/59329977026.shtml)
-- 2026-06-30 04:50 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/55930111030.shtml)
-- 2026-06-30 05:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/371899037.shtml)
-- 2026-06-30 05:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/12538492303.shtml)
+- 2026-06-30 05:17 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/34191750.shtml)
+- 2026-06-30 05:17 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/5629668864.shtml)
+- 2026-06-30 05:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/24887490163.shtml)
+- 2026-06-30 04:49 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/536076.shtml)
+- 2026-06-30 05:11 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/3952000526.shtml)
+- 2026-06-30 05:05 - [强制戒网瘾起诉父亲](https://www.share.minike.top/Article/details/694437711318.shtml)
+- 2026-06-30 05:12 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/46126.shtml)
+- 2026-06-30 05:15 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/1168227.shtml)
+- 2026-06-30 05:08 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/6066047630.shtml)
+- 2026-06-30 05:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/448365.shtml)
+- 2026-06-30 05:10 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/130932539.shtml)
+- 2026-06-30 05:03 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/0962484255.shtml)
+- 2026-06-30 05:02 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/1706923165.shtml)
+- 2026-06-30 05:09 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/145094669.shtml)
+- 2026-06-30 05:15 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/193453059.shtml)

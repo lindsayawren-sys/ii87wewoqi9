@@ -1,45 +1,51 @@
-# 6月8日央行开展2185亿元7天期逆回购操作
+# 美国农业部：截至5月7日当周，美国大豆净销量降至10万吨
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新网6月8日电 据央行网站消息，2026年6月8日中国人民银行以固定利率、数量招标方式开展了2185亿元7天期逆回购操作，全额满足了一级交易商需求。具体情况如下：
+（来源：粮信网） 外媒5月14日消息：美国农业部周四发布的周度出口销售数据显示，截至2026年5月7日当周，美国2025/26年度大豆净销售量为102，100吨，创下年度新低，低于前一周的141，900吨。 当周报告美国对中国销售6.9万吨大豆（其中6.6万吨转自未知目的地），之前一周对华销售6.7万吨大豆（其中6.6万吨转自未知目的地）。 当周美国大豆出口量为67.1万吨，高
 
 ## 正文
 
-中新网6月8日电 据央行网站消息，2026年6月8日中国人民银行以固定利率、数量招标方式开展了2185亿元7天期逆回购操作，全额满足了一级交易商需求。
+（来源：粮信网） 外媒5月14日消息：美国农业部周四发布的周度出口销售数据显示，截至2026年5月7日当周，美国2025/26年度大豆净销售量为102，100吨，创下年度新低，低于前一周的141，900吨。
 
-具体情况如下：
+当周报告美国对中国销售6.9万吨大豆（其中6.6万吨转自未知目的地），之前一周对华销售6.7万吨大豆（其中6.6万吨转自未知目的地）。
+
+当周美国大豆出口量为67.1万吨，高于一周前的53.1万吨。
+
+主要目的地包括中国（33.7万吨），高于一周前的20.1万吨。
+
+责任编辑：李铁民
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 05:05 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 04:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 05:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 04:47 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 04:43 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 04:47 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
-- 2026-06-30 04:45 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 04:51 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 05:04 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 04:56 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 05:01 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-30 04:59 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 05:06 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 05:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 04:56 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 04:53 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 05:00 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-30 04:57 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 05:03 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 05:04 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 04:54 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/337102709928.shtml)
-- 2026-06-30 04:50 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/404786.shtml)
-- 2026-06-30 04:52 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/04548.shtml)
-- 2026-06-30 04:48 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/919761.shtml)
-- 2026-06-30 04:57 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/3063064230.shtml)
-- 2026-06-30 04:54 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/067978.shtml)
-- 2026-06-30 04:53 - [二次元提前预演明日巴西对日本](https://www.share.kurohicncr.top/Article/details/9429070774.shtml)
-- 2026-06-30 04:42 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/8288530251.shtml)
-- 2026-06-30 04:53 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/782772047.shtml)
-- 2026-06-30 04:59 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/61739750.shtml)
-- 2026-06-30 05:07 - [巴西vs日本](https://www.blog.minike.top/Article/details/35137.shtml)
-- 2026-06-30 05:07 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/898525496.shtml)
-- 2026-06-30 04:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/398797.shtml)
-- 2026-06-30 04:48 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/716407052.shtml)
-- 2026-06-30 05:06 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/752242097.shtml)
+- 2026-06-30 04:55 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/8462767.shtml)
+- 2026-06-30 05:13 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/4265452.shtml)
+- 2026-06-30 05:03 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/542731.shtml)
+- 2026-06-30 05:10 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/04178681.shtml)
+- 2026-06-30 04:48 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/846993084.shtml)
+- 2026-06-30 04:59 - [请回答王牌2019](https://www.share.minike.top/Article/details/6941943827.shtml)
+- 2026-06-30 05:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/9122950.shtml)
+- 2026-06-30 05:01 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/1974471625.shtml)
+- 2026-06-30 04:54 - [日本领先巴西](http://www.blog.minike.top/Article/details/78562549469.shtml)
+- 2026-06-30 05:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/57785960392.shtml)
+- 2026-06-30 05:09 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/11794.shtml)
+- 2026-06-30 04:55 - [赵今麦瘦好多](https://www.blog.minike.top/Article/details/4271214.shtml)
+- 2026-06-30 05:11 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/80891.shtml)
+- 2026-06-30 05:12 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/60944136.shtml)
+- 2026-06-30 05:01 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/270143.shtml)

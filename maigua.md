@@ -1,61 +1,48 @@
-# 阿里接洽核电央企建小堆？AI算力缺电破局在即，电价模式成最大悬念
+# 官宣：这类人群可享淡季火车票优惠，5月15日开始发售
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-据财联社6月9日报道，核电央企人士证实，阿里巴巴曾就建设小型核反应堆以解决其杭州仁和数据中心巨大电力需求一事进行接洽，该数据中心作为浙江首个云计算中心，正为强脑科技、灵伴科技等AI企业提供算力支撑；面对AI发展带来的稳定清洁电力迫切需求，这一动向与美国科技巨头探索小型模块化反应堆的趋势相呼应，但目前双方合作的核心瓶颈在于电价与供电模式的确立。 ETF投资工具可关注：159146
+为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。 国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5
 
 ## 正文
 
-据财联社6月9日报道，核电央企人士证实，阿里巴巴曾就建设小型核反应堆以解决其杭州仁和数据中心巨大电力需求一事进行接洽，该数据中心作为浙江首个云计算中心，正为强脑科技、灵伴科技等AI企业提供算力支撑；面对AI发展带来的稳定清洁电力迫切需求，这一动向与美国科技巨头探索小型模块化反应堆的趋势相呼应，但目前双方合作的核心瓶颈在于电价与供电模式的确立。
+为更好服务老年旅客出行需求，铁路部门近期将推出老年旅客淡季周中购票优惠服务，相关优惠车票将于5月15日开始发售。
 
-ETF投资工具可关注：159146。
+国铁集团客运中心相关负责人介绍，此次优惠服务面向年满60周岁及以上且使用中华人民共和国居民身份证、港澳居民居住证、台湾居民居住证、港澳居民来往内地通行证、台湾居民来往大陆通行证、外国人永久居留身份证、临时身份证明及居民户口簿购票的老年旅客，线上或线下购买开车时间在5月29日至6月30日期间的周中时段(周一12:00至周五12:00，6月18日至22日端午假期运输除外)，部分动车组列车车票可享受执行票价9折优惠，实行“折上折”。
 
-热点追踪 随着人工智能算力需求的爆发，电力供应已成为制约科技巨头发展的核心瓶颈。
+铁路12306在相关优惠车次后标注“敬”字，享受优惠的车票在订单详情和本人车票页面标识“长者优惠”字样；年满60周岁及以上的持有残疾军人证、伤残人民警察证、国家综合性消防救援队伍残疾人员证的中国公民，在享受原有优待票价的基础上，可再享受9折优惠。
 
-阿里巴巴接洽核电央企探讨小型模块化反应堆（SMR）为数据中心供电，正是这一背景下寻求能源突破的缩影。
-
-当前，美国用电量受数据中心驱动预计大幅增长，SMR因体积小、可扩展且融资路径逐渐清晰，被视为解决AI缺电问题的关键方案。
-
-然而，先进核能商业化仍面临高昂建设成本、技术风险及劳动力短缺等障碍，且目前尚未实现大规模并网发电。
-
-在此背景下，“电价与供电模式”的确构成核心瓶颈。
-
-一方面，核能项目前期资本投入巨大，尽管Meta、亚马逊等巨头通过长期购电协议提供资金支持以锁定风险，但投资者整体仍持谨慎态度。
+成功购票出行的老年会员旅客，同时享受普通常旅客会员的3倍积分优惠，积分可用于兑换火车票或办理座位升席业务。
 
 ## 相关推荐
 
-- 2026-06-30 04:42 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 04:48 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-30 05:06 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 04:56 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 04:48 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 04:44 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 04:58 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:52 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-30 04:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-30 05:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 04:51 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 05:08 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 05:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 04:55 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 04:55 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 04:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-30 05:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 04:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 05:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 05:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 05:17 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 05:12 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 05:12 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 05:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-30 05:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/4183221.shtml)
-- 2026-06-30 05:11 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/949075.shtml)
-- 2026-06-30 04:43 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/6707580.shtml)
-- 2026-06-30 05:05 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/0008274.shtml)
-- 2026-06-30 04:49 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/04125528824.shtml)
-- 2026-06-30 04:46 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/22519397163.shtml)
-- 2026-06-30 04:54 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/201589964.shtml)
-- 2026-06-30 05:01 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/389039824.shtml)
-- 2026-06-30 04:42 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/074768643719.shtml)
-- 2026-06-30 04:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/08423621131.shtml)
-- 2026-06-30 05:05 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/088378100414.shtml)
-- 2026-06-30 04:51 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/4249548.shtml)
-- 2026-06-30 04:51 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/068827.shtml)
-- 2026-06-30 04:50 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/80809643287.shtml)
-- 2026-06-30 04:56 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/6530428453.shtml)
+- 2026-06-30 04:55 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/919527612.shtml)
+- 2026-06-30 04:50 - [日本淘汰](https://www.blog.minike.top/Article/details/095329700750.shtml)
+- 2026-06-30 04:57 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/63916178114.shtml)
+- 2026-06-30 04:49 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/04819986.shtml)
+- 2026-06-30 04:52 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/87735.shtml)
+- 2026-06-30 05:09 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/02439875.shtml)
+- 2026-06-30 05:15 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/89926946976.shtml)
+- 2026-06-30 04:57 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/574514120540.shtml)
+- 2026-06-30 05:02 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/9003429043.shtml)
+- 2026-06-30 05:05 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/8109637.shtml)
+- 2026-06-30 04:50 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/04328.shtml)
+- 2026-06-30 05:17 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/1690938.shtml)
+- 2026-06-30 05:18 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/2646978829.shtml)
+- 2026-06-30 05:03 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/728705729036.shtml)
+- 2026-06-30 05:12 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/973379057.shtml)

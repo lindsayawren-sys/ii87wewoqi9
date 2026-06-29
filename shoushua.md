@@ -1,59 +1,58 @@
-# 两岸同胞共话泉金航线开通20周年：“不只是回家的路”
+# Anthropic已敲定300亿美元融资条款 红杉资本等领投
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新网泉州6月8日电 (记者 孙虹)“20年前的今天，石井泉金客运码头与金门水头码头同时响起汽笛声，泉州轮从石井起航，新金龙号自金门驶来。”作为泉(州)金(门)客运航线的首批乘客，泉州市金门同胞联谊会常务副会长张亚轮记忆犹新，“这条航线不只是回家的路，它连的是两岸血脉亲情，温暖了两岸民心”。 作为大陆第三条对台海上直航客运航线，泉金航线于2006年6月8日正式开通。据泉州市边检
+Anthropic已敲定300亿美元融资条款，投后估值达9000亿美元，预计最快本月完成交割。公司借今年爆发式增长，估值将超越竞争对手OpenAI。 据两位知情人士透露，投资方Dragoneer、Greenoaks、红杉资本及Altimeter Capital已同意联合领投此轮融资。不含新增资金，本轮将把这家AI实验室的估值推至9000亿美元，较此前增长近两倍。 知情人士称，每
 
 ## 正文
 
-中新网泉州6月8日电 (记者 孙虹)“20年前的今天，石井泉金客运码头与金门水头码头同时响起汽笛声，泉州轮从石井起航，新金龙号自金门驶来。
+Anthropic已敲定300亿美元融资条款，投后估值达9000亿美元，预计最快本月完成交割。
 
-”作为泉(州)金(门)客运航线的首批乘客，泉州市金门同胞联谊会常务副会长张亚轮记忆犹新，“这条航线不只是回家的路，它连的是两岸血脉亲情，温暖了两岸民心”。
+公司借今年爆发式增长，估值将超越竞争对手OpenAI。
 
-作为大陆第三条对台海上直航客运航线，泉金航线于2006年6月8日正式开通。
+据两位知情人士透露，投资方Dragoneer、Greenoaks、红杉资本及Altimeter Capital已同意联合领投此轮融资。
 
-据泉州市边检站统计数据，开通20年来，泉金航线已累计安全运营超3.2万航次，运送两岸旅客总量突破160万人次。
+不含新增资金，本轮将把这家AI实验室的估值推至9000亿美元，较此前增长近两倍。
 
-在8日举行的泉金客运航线通航20周年纪念活动上，航线的推动者、亲历者以及金门同胞代表相聚一堂，围绕“廿载泉金通航路、奋楫扬帆启新程”主题，回顾过去、畅想未来。
+知情人士称，每家领投方拟投资20亿美元及以上。
 
-其间，已是耄耋之年的金门县议会前议长王再生现场挥毫，写下“造福两岸”抒发对泉金航线的感悟。
+Anthropic正与其他投资者洽谈，补足剩余融资额，正式官宣前条款仍可能调整。
 
-“即便1987年两岸开放探亲，回家的路依然遥远。
+本轮融资推进速度极快：知情人士透露，上月投资方主动接洽Anthropic，首席财务官克里希纳・拉奥在过去两周启动与潜在投资方的正式谈判。
 
-”王再生告诉中新网记者，当时金门民众到大陆需先前往台湾本岛，再经港澳地区或者菲律宾转机，全程耗时约两天，时间长且成本高。
+本轮融资距CEO达里奥・阿莫代伊带领公司上一轮300亿美元融资（估值3500亿美元）仅过去三个月。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 04:57 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 04:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-30 05:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 05:07 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 04:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 05:03 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 04:48 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 04:44 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 05:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-30 04:51 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 05:06 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-30 04:43 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 04:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 05:09 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 05:00 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 05:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 05:13 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 04:54 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 05:01 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 04:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 05:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 05:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 04:54 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 04:56 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/2310309624.shtml)
-- 2026-06-30 05:06 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/5694327.shtml)
-- 2026-06-30 05:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/3132027797.shtml)
-- 2026-06-30 04:52 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/488173434.shtml)
-- 2026-06-30 04:50 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/6100015.shtml)
-- 2026-06-30 04:47 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/264871480499.shtml)
-- 2026-06-30 04:46 - [毒液2](https://www.share.minike.top/Article/details/691253972.shtml)
-- 2026-06-30 05:04 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/917920.shtml)
-- 2026-06-30 04:43 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/19394729879.shtml)
-- 2026-06-30 04:50 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/1635312970.shtml)
-- 2026-06-30 04:56 - [毒液2](http://www.blog.minike.top/Article/details/5419687084.shtml)
-- 2026-06-30 05:04 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/658255.shtml)
-- 2026-06-30 05:05 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/22724181.shtml)
-- 2026-06-30 05:11 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/244114625.shtml)
-- 2026-06-30 04:54 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/5099153263.shtml)
+- 2026-06-30 05:15 - [扬名立万](https://www.blog.minike.top/Article/details/019445995.shtml)
+- 2026-06-30 04:53 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/0831081.shtml)
+- 2026-06-30 05:03 - [毒液2](http://www.blog.minike.top/Article/details/862102984913.shtml)
+- 2026-06-30 05:13 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/4003161.shtml)
+- 2026-06-30 05:10 - [《共患难》](http://www.share.kurohicncr.top/Article/details/589833.shtml)
+- 2026-06-30 05:15 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/785531.shtml)
+- 2026-06-30 04:52 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/21677821248.shtml)
+- 2026-06-30 04:56 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/30975631.shtml)
+- 2026-06-30 05:14 - [扬名立万](https://www.share.kurohicncr.top/Article/details/9533105.shtml)
+- 2026-06-30 05:04 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/07467253906.shtml)
+- 2026-06-30 05:13 - [恋与深空制作组回应近期争议](https://www.share.kurohicncr.top/Article/details/235389095.shtml)
+- 2026-06-30 05:11 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/1381536030.shtml)
+- 2026-06-30 05:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/79601.shtml)
+- 2026-06-30 05:16 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/8219928.shtml)
+- 2026-06-30 05:16 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/743855.shtml)

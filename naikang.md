@@ -1,58 +1,61 @@
-# 长盛基金：外围冲击引发调整，市场进入高低切换震荡期
+# 桂粤海事部门联合开展船员防范船碰桥专项警示教育活动
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-6月8日A股三大指数集体收跌，上证指数跌1.70%报3959.34点失守4000点整数关口，深成指跌3.22%，创业板指跌3.69%，科创50重挫4.30%，北证50逆势涨1.33%。两市成交额约2.79万亿元较前一日缩量近3000亿，全市场超4500只个股下跌，赚钱效应冰点。 板块呈现极端分化，仅银行、油气开采、工程机械等少数防御及低估值板块逆势飘红，而半导体、电力、算力、贵
+中新网梧州5月15日电(黄艳梅 杨光 宋长旺)记者15日从广西海事部门获悉，广西梧州海事局当日联合广东肇庆海事局在梧州市长洲水利枢纽坝上航段开展船员防范船碰桥专项警示教育活动。 当前正值汛期，西江流域持续遭遇强降雨天气。强降雨导致桥区水域流态紊乱、航道净空高度变化频繁，极大增加了船舶碰撞桥梁的风险。 活动中，两地海事执法人员登临待闸船舶，重点抽查船员对航经桥梁通航要素及实时净空
 
 ## 正文
 
-6月8日A股三大指数集体收跌，上证指数跌1.70%报3959.34点失守4000点整数关口，深成指跌3.22%，创业板指跌3.69%，科创50重挫4.30%，北证50逆势涨1.33%。
+中新网梧州5月15日电(黄艳梅 杨光 宋长旺)记者15日从广西海事部门获悉，广西梧州海事局当日联合广东肇庆海事局在梧州市长洲水利枢纽坝上航段开展船员防范船碰桥专项警示教育活动。
 
-两市成交额约2.79万亿元较前一日缩量近3000亿，全市场超4500只个股下跌，赚钱效应冰点。
+当前正值汛期，西江流域持续遭遇强降雨天气。
 
-板块呈现极端分化，仅银行、油气开采、工程机械等少数防御及低估值板块逆势飘红，而半导体、电力、算力、贵金属等前期热门赛道遭遇集中抛售，其中半导体板块净流出超52亿元。
+强降雨导致桥区水域流态紊乱、航道净空高度变化频繁，极大增加了船舶碰撞桥梁的风险。
 
-今日市场大幅调整主要受三重因素共振影响。
+活动中，两地海事执法人员登临待闸船舶，重点抽查船员对航经桥梁通航要素及实时净空高度计算方法的掌握情况，现场讲解桥梁通航净空高度、水流影响、船舶操纵特性等要点，提醒船员通过桥区水域时务必谨慎驾驶，切勿冒险通过。
 
-外围市场剧烈波动是直接导火索，美国5月非农数据超预期强化加息预期，叠加中东地缘局势升温，导致隔夜美股纳斯达克指数暴跌并引发全球科技股估值重估，亚太股市普遍承压。
+同时，活动邀请船员培训机构上船开展“面对面现身说法”现场教育，老船长以亲身经历剖析操作失误、冒险航行等行为的严重后果。
 
-资金层面，临近半年末机构面临业绩考核与调仓压力，前期涨幅巨大的科技成长赛道获利盘集中兑现，资金加速向低估值、高股息的防御性板块进行高低切换。
+海事执法人员向船员发放《防范船碰桥三字经》宣传册，并就交界水域的桥区分布、船舶流量、常见违章类型及执法难点进行深入研讨，就建立常态化联合宣教和执法机制达成共识。
 
-技术面上，指数在连续上涨后本身存在消化估值和筹码的内在需求，外围扰动与内部调仓形成共振，放大了短期波动。
+此次联合行动共检查船舶20余艘，开展现场集中警示教育3场次。
 
-展望未来，市场短期将延续震荡整固格局，系统性风险可控但结构性分化加剧。
+梧州、肇庆海事部门表示，将持续深化跨区域联动机制，强化桥区水域巡航检查和宣教力度，共同织密西江干线两广水域水上交通安全防护网。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 04:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 04:43 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-30 04:47 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 04:45 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 04:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 04:45 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 04:50 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 04:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 05:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 04:45 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 04:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 04:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 05:17 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 05:05 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-30 05:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 04:57 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-30 04:57 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 04:52 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 05:14 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 04:57 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 05:17 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 04:50 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 04:56 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 05:11 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 04:57 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 04:52 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.kurohicncr.top/Article/details/7833022.shtml)
-- 2026-06-30 05:09 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/304347456.shtml)
-- 2026-06-30 05:03 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/880948628229.shtml)
-- 2026-06-30 04:46 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/91879281.shtml)
-- 2026-06-30 04:59 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/512616.shtml)
-- 2026-06-30 04:58 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/29233657.shtml)
-- 2026-06-30 05:07 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/816362.shtml)
-- 2026-06-30 04:59 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/31459557843.shtml)
-- 2026-06-30 05:04 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/663926.shtml)
-- 2026-06-30 04:43 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/81852710110.shtml)
-- 2026-06-30 05:02 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/75150522674.shtml)
-- 2026-06-30 05:05 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/02906444159.shtml)
-- 2026-06-30 05:11 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/61017.shtml)
-- 2026-06-30 05:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/788424422877.shtml)
-- 2026-06-30 04:44 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/6957129.shtml)
+- 2026-06-30 04:57 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/60300.shtml)
+- 2026-06-30 05:16 - [扬名立万](http://www.share.minike.top/Article/details/5218672.shtml)
+- 2026-06-30 04:48 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/808549.shtml)
+- 2026-06-30 05:04 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/04887.shtml)
+- 2026-06-30 05:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/171492390.shtml)
+- 2026-06-30 04:59 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/95523785.shtml)
+- 2026-06-30 05:10 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/89039322225.shtml)
+- 2026-06-30 05:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/2093869.shtml)
+- 2026-06-30 05:13 - [TOP Prada](http://www.blog.kurohicncr.top/Article/details/721164713.shtml)
+- 2026-06-30 04:58 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/06916191.shtml)
+- 2026-06-30 04:51 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/55862527165.shtml)
+- 2026-06-30 04:59 - [“柠檬茶能换怀表？”](https://www.blog.minike.top/Article/details/3662882634.shtml)
+- 2026-06-30 04:50 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/70697037016.shtml)
+- 2026-06-30 05:14 - [《贺子珍》](https://www.blog.minike.top/Article/details/07649383.shtml)
+- 2026-06-30 05:17 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/36977575.shtml)

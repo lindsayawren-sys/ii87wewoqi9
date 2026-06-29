@@ -1,42 +1,56 @@
-# 两部门发布黄色地质灾害气象风险预警 浙闽粤桂渝黔滇藏等地警惕地质灾害
+# 美国4月进出口价格指数显示通胀压力持续升温
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 11:01 来源：央视新闻 责任编辑：【李骏】
+美国劳工统计局周四公布的数据显示，4月进出口价格涨幅双双远超市场预期，创下多年新高，进一步表明中东冲突引发的能源成本上涨正在持续向美国经济输入通胀压力。 进口价格飙升，能源成主因 4月进口价格环比上涨1.9%，远高于市场预期的1.0%，也较3月上修后的0.9%涨幅扩大整整1个百分点。从同比看，进口价格上涨4.2%，为2022年10月以来最大涨幅。 能源价格是此次上涨的主要推手：
 
 ## 正文
 
-发布时间：2026年06月09日 11:01 来源：央视新闻 责任编辑：【李骏】
+美国劳工统计局周四公布的数据显示，4月进出口价格涨幅双双远超市场预期，创下多年新高，进一步表明中东冲突引发的能源成本上涨正在持续向美国经济输入通胀压力。
+
+进口价格飙升，能源成主因 4月进口价格环比上涨1.9%，远高于市场预期的1.0%，也较3月上修后的0.9%涨幅扩大整整1个百分点。
+
+从同比看，进口价格上涨4.2%，为2022年10月以来最大涨幅。
+
+能源价格是此次上涨的主要推手：燃料价格暴涨16.3%，创下四年多来最大涨幅；石油及石油产品价格飙升19%。
+
+剔除燃料后，核心进口价格环比上涨0.7%，表明能源之外的更广泛价格压力同样存在。
+
+分品类看，资本品价格上涨1.1%，非燃料供应品以及食品和饮料价格也有所上涨，消费品价格涨幅相对温和，汽车价格则小幅下跌。
+
+出口价格创逾四年最大涨幅 出口方面涨幅更为惊人。
+
+4月出口价格环比飙升3.3%，远高于市场预期的1.2%，创下2022年3月以来最大月度涨幅。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-30 05:05 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 05:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 04:45 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 05:11 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
-- 2026-06-30 05:05 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 04:53 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-30 05:11 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 04:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 05:08 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 05:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 04:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-30 05:16 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 05:11 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-30 04:59 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 05:17 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-30 04:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-30 04:58 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-30 04:56 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 04:52 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/1160177503.shtml)
-- 2026-06-30 04:53 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/9479382013.shtml)
-- 2026-06-30 04:57 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/49524828.shtml)
-- 2026-06-30 05:00 - [“草莓月亮”浪漫现身](http://www.blog.kurohicncr.top/Article/details/8781751.shtml)
-- 2026-06-30 04:58 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/032506115.shtml)
-- 2026-06-30 05:07 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/615831799.shtml)
-- 2026-06-30 04:55 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/37241988848.shtml)
-- 2026-06-30 05:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/2945859.shtml)
-- 2026-06-30 04:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/024167839684.shtml)
-- 2026-06-30 04:49 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0546971.shtml)
-- 2026-06-30 05:07 - [爱很美味](http://www.share.kurohicncr.top/Article/details/5309038266.shtml)
-- 2026-06-30 04:57 - [沙丘](http://www.share.kurohicncr.top/Article/details/003992.shtml)
-- 2026-06-30 05:07 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/45420812297.shtml)
-- 2026-06-30 04:58 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/324740560.shtml)
-- 2026-06-30 05:09 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.minike.top/Article/details/86961.shtml)
+- 2026-06-30 05:17 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/669872.shtml)
+- 2026-06-30 04:48 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/7065340.shtml)
+- 2026-06-30 05:06 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/217487.shtml)
+- 2026-06-30 04:51 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/765864136.shtml)
+- 2026-06-30 05:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/77672115584.shtml)
+- 2026-06-30 04:54 - [多人在马路中间打羽毛球 交警回应](http://www.blog.minike.top/Article/details/03133.shtml)
+- 2026-06-30 04:57 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/22074347476.shtml)
+- 2026-06-30 04:51 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/664585808.shtml)
+- 2026-06-30 05:11 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/560588547685.shtml)
+- 2026-06-30 05:09 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/66614722.shtml)
+- 2026-06-30 05:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/2935337.shtml)
+- 2026-06-30 05:14 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/80539.shtml)
+- 2026-06-30 05:09 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/1051499.shtml)
+- 2026-06-30 04:56 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/514606311882.shtml)
+- 2026-06-30 05:06 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/359937.shtml)

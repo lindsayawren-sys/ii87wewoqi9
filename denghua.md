@@ -1,59 +1,52 @@
-# 韩国监管机构因误导性广告对Coupang罚款5亿韩元
+# 中国数智科技早盘涨超7% 终止控股股东股份出售协议
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-韩国公平交易委员会（FTC）周二对Coupang韩国分公司处以5亿韩元（约合32.7万美元）的罚款，原因是该平台针对付费会员折扣发布误导性广告。 韩国公平交易委员会表示，此次对Coupang公司的处罚是法律允许的最高罚款额度。该公司在2020年8月至2022年5月期间，在其网站上发布了关于付费会员权益的误导性广告。 该机构称，该公司告知用户，Coupang Wow会员可以以低于
+中国数智科技（01796）早盘涨超7%，截至发稿，股价上涨7.58%，现报0.71港元，成交额1568.55万港元。 中国数智科技发布公告，于2026年5月14日，终止控股股东股份出售协议，并申请股份于2026年5月15日9时起复牌。 于2026年4月14日， 中国体育资产管理有限公司（前称元丰创投有限公司，“卖方”）与深圳市淏奕投资有限公司（买方）与黄后女士作为担保人（为卖方
 
 ## 正文
 
-韩国公平交易委员会（FTC）周二对Coupang韩国分公司处以5亿韩元（约合32.7万美元）的罚款，原因是该平台针对付费会员折扣发布误导性广告。
+中国数智科技（01796）早盘涨超7%，截至发稿，股价上涨7.58%，现报0.71港元，成交额1568.55万港元。
 
-韩国公平交易委员会表示，此次对Coupang公司的处罚是法律允许的最高罚款额度。
+中国数智科技发布公告，于2026年5月14日，终止控股股东股份出售协议，并申请股份于2026年5月15日9时起复牌。
 
-该公司在2020年8月至2022年5月期间，在其网站上发布了关于付费会员权益的误导性广告。
+于2026年4月14日， 中国体育资产管理有限公司（前称元丰创投有限公司，“卖方”）与深圳市淏奕投资有限公司（买方）与黄后女士作为担保人（为卖方的唯一股东）订立了一项股份出售协议，卖方拟向买房出售约2.56亿股公司股份（占公司已发行股本当中约53.3%），现金代价总额为6396.5万港元。
 
-该机构称，该公司告知用户，Coupang Wow会员可以以低于普通顾客的价格购买某些商品，但并未说明这些折扣是通过一次性优惠券提供的。
+因相关交易先决条件预计无法如期达成，买卖双方协定即时终止股权转让事宜，交易不再推进。
 
-韩国公平交易委员会在一份声明中表示：“Coupang发布的广告给人一种错觉，仿佛Coupang Wow会员拥有独立的定价系统，可以享受与普通顾客不同的永久折扣。
-
-” “但建议的折扣价只能通过会员订阅时获得的优惠券享受一次，”声明补充道，并指出该公司未能明确告知用户折扣附带的条件。
-
-该监管机构表示，Coupang在取消会员资格的过程中，也夸大了付费会员折扣的优惠信息，例如使用“您将无法再以Wow会员价格购买商品”之类的措辞。
-
-韩国公平交易委员会表示，Coupang的行为可能构成《公平标签和广告法》规定的“欺骗性广告”，干扰了消费者的合理购买决策。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 04:52 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 05:01 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 04:42 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 04:49 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 04:56 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 05:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-30 04:49 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 05:03 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-30 04:56 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 04:55 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 05:10 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-30 04:56 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 04:53 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 05:13 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 05:14 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 04:49 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 04:55 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-30 04:51 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-30 05:03 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 04:50 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 04:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 05:14 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 05:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 05:01 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/022186647049.shtml)
-- 2026-06-30 04:47 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/8921222281.shtml)
-- 2026-06-30 04:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/236319738.shtml)
-- 2026-06-30 05:05 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/833699170148.shtml)
-- 2026-06-30 04:44 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/565621645330.shtml)
-- 2026-06-30 05:06 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/75209708.shtml)
-- 2026-06-30 05:08 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/28015827296.shtml)
-- 2026-06-30 04:57 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/34475464957.shtml)
-- 2026-06-30 04:45 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/347670890412.shtml)
-- 2026-06-30 04:57 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/52142632.shtml)
-- 2026-06-30 04:52 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/36314902769.shtml)
-- 2026-06-30 05:11 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/40872.shtml)
-- 2026-06-30 04:55 - [流金岁月](https://www.share.kurohicncr.top/Article/details/629193984583.shtml)
-- 2026-06-30 04:46 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/7543333404.shtml)
-- 2026-06-30 04:58 - [湖南祁东原文化馆被指贱卖](http://www.share.minike.top/Article/details/0299497.shtml)
+- 2026-06-30 04:52 - [世界杯](https://www.share.minike.top/Article/details/930749973870.shtml)
+- 2026-06-30 05:03 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/13820709.shtml)
+- 2026-06-30 04:49 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/9109749957.shtml)
+- 2026-06-30 05:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/80923.shtml)
+- 2026-06-30 04:53 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/86583.shtml)
+- 2026-06-30 05:08 - [天道](https://www.share.kurohicncr.top/Article/details/65839601573.shtml)
+- 2026-06-30 05:17 - [日本16强魔咒](https://www.blog.minike.top/Article/details/153019340379.shtml)
+- 2026-06-30 04:59 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/912762.shtml)
+- 2026-06-30 04:55 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/82834311351.shtml)
+- 2026-06-30 04:55 - [官方：建立健全学龄人口预测预警机制](http://www.blog.minike.top/Article/details/6489646692.shtml)
+- 2026-06-30 04:56 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/4622963555.shtml)
+- 2026-06-30 05:14 - [速度与激情9](https://www.blog.minike.top/Article/details/6278852.shtml)
+- 2026-06-30 05:01 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/614805558077.shtml)
+- 2026-06-30 04:51 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/547265088.shtml)
+- 2026-06-30 05:15 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/779793946.shtml)

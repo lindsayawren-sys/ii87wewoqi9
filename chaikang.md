@@ -1,58 +1,58 @@
-# 第三届伯明翰国际青年学者论坛在英举行
+# 法官正在审议民主党诉求，拟阻止特朗普签署的选举相关行政令生效
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新网伦敦6月8日电 (记者 欧阳开宇)第三届伯明翰国际青年学者论坛日前在英国伯明翰大学举行。本届论坛汇聚了全英30余所高校及科研院所的近200名青年学者和专家教授，旨在为海外青年科研人才搭建跨学科交流平台，弘扬科学精神，激发报国情怀。论坛特邀嘉宾、李四光先生外孙女邹宗平女士首先致辞。她勉励海外青年科研工作者追求真理，继承和发扬李四光等老一辈科学家留学报国的光荣传统，矢志报国，
+美国唐纳德・特朗普总统收紧邮寄投票规则的行政令，周四迎来首次重大司法考验：联邦法官开庭审理民主党律师的诉求，后者认为该令会剥夺数百万合格选民的投票权新华网。 在华盛顿举行的两小时庭审中，联邦地区法官卡尔・尼科尔斯未当庭裁定民主党领袖提出的、阻止 3 月 31 日行政令生效的请求新华网。他表示将择期发布书面裁决，并补充称 “知悉本案时间紧迫”。 共和党人特朗普多年来一直宣扬202
 
 ## 正文
 
-中新网伦敦6月8日电 (记者 欧阳开宇)第三届伯明翰国际青年学者论坛日前在英国伯明翰大学举行。
+美国唐纳德・特朗普总统收紧邮寄投票规则的行政令，周四迎来首次重大司法考验：联邦法官开庭审理民主党律师的诉求，后者认为该令会剥夺数百万合格选民的投票权新华网。
 
-本届论坛汇聚了全英30余所高校及科研院所的近200名青年学者和专家教授，旨在为海外青年科研人才搭建跨学科交流平台，弘扬科学精神，激发报国情怀。
+在华盛顿举行的两小时庭审中，联邦地区法官卡尔・尼科尔斯未当庭裁定民主党领袖提出的、阻止 3 月 31 日行政令生效的请求新华网。
 
-论坛特邀嘉宾、李四光先生外孙女邹宗平女士首先致辞。
+他表示将择期发布书面裁决，并补充称 “知悉本案时间紧迫”。
 
-她勉励海外青年科研工作者追求真理，继承和发扬李四光等老一辈科学家留学报国的光荣传统，矢志报国，将个人理想融入国家发展伟业。
+共和党人特朗普多年来一直宣扬2020 年大选败于大规模选民舞弊的不实说法，并在 11 月中期选举前呼吁收紧邮寄投票规则 —— 届时共和党将努力保住国会微弱多数席位新华网。
 
-随后，大会主席、伯明翰大学工程学院徐宏明教授随后致辞。
+该行政令要求政府： 编制各州合格选民的美国公民确认名单； 利用联邦数据协助州选举官员核验选民资格。
 
-他表示，青年兴则国家兴，希望寄予青年、未来属于青年，鼓励在场青年学者勇于创新、担当使命，为科技进步与国家繁荣贡献青春力量。
+同时规定： 美国邮政仅可向各州核准的邮寄选票名单选民投递选票； 各州须将选举相关记录保存五年。
 
-在主旨报告环节，张玉峰教授，英国皇家工程院院士、伯明翰大学材料与冶金学院教授董洪标，英国皇家医学院院士、伯明翰大学医学教授高昉先后围绕AI赋能价值创造、学者职业生涯发展与社会责任、现代医生培养体系等话题，结合个人经历分享了独到的见解和研究成果。
+本案原告包括纽约州联邦参议员、参议院少数党领袖查克・舒默及民主党全国委员会。
 
-接着，论坛联合主办单位天津大学代表、人事处处长马德刚教授，围绕天津大学事业发展与人才引进政策，介绍天津大学发展历程，畅谈新时代国内大学教育兴国与人才培养使命担当，诚邀海外英才加盟天大，为服务国家战略贡献来自海外青年学者的力量与智慧。
+原告律师拉利・马杜里向尼科尔斯表示：“本案法理清晰，我们所质疑的行政令中各项指令，均无成文法授权。
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 05:11 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 04:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 04:45 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 04:56 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 04:49 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-30 04:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 05:10 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 04:48 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 04:44 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 04:58 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 05:03 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 04:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 05:04 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 05:14 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 05:18 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 04:59 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 05:13 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-30 05:15 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 04:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 05:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 05:06 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 04:54 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 05:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:05 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/80176.shtml)
-- 2026-06-30 05:06 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/0361311693.shtml)
-- 2026-06-30 04:42 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/6681212820.shtml)
-- 2026-06-30 05:05 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/413023.shtml)
-- 2026-06-30 05:06 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/96136.shtml)
-- 2026-06-30 05:06 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/18827177889.shtml)
-- 2026-06-30 05:06 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/385487741.shtml)
-- 2026-06-30 05:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/86182.shtml)
-- 2026-06-30 04:47 - [急先锋](http://www.share.minike.top/Article/details/01165.shtml)
-- 2026-06-30 04:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/26958.shtml)
-- 2026-06-30 04:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/0512785931.shtml)
-- 2026-06-30 05:11 - [斗破苍穹](https://www.share.minike.top/Article/details/25670591.shtml)
-- 2026-06-30 05:04 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/514934524.shtml)
-- 2026-06-30 05:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/6527880315.shtml)
-- 2026-06-30 05:11 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/45533233.shtml)
+- 2026-06-30 05:02 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/850433524.shtml)
+- 2026-06-30 05:07 - [苗族银饰](https://www.share.minike.top/Article/details/3347755540.shtml)
+- 2026-06-30 05:15 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/772235976.shtml)
+- 2026-06-30 05:01 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/742398235.shtml)
+- 2026-06-30 05:14 - [港股科技股强势反弹](https://www.share.minike.top/Article/details/4957419804.shtml)
+- 2026-06-30 04:51 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/76083.shtml)
+- 2026-06-30 04:52 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/730883.shtml)
+- 2026-06-30 04:52 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/306382.shtml)
+- 2026-06-30 04:50 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/479704256271.shtml)
+- 2026-06-30 04:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/908528.shtml)
+- 2026-06-30 04:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/87166569.shtml)
+- 2026-06-30 04:51 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/1049965352.shtml)
+- 2026-06-30 05:07 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/65293.shtml)
+- 2026-06-30 05:06 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/144122.shtml)
+- 2026-06-30 05:14 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/21354361652.shtml)

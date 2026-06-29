@@ -1,57 +1,57 @@
-# 金融监管总局：深入整治金融领域无序竞争
+# （粤港澳大湾区）深圳前海一季度实际使用外资同比增长75.6%
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-6月8日金融一线消息，金融监管总局党委召开扩大会议，研究部署近期重点工作。会议要求，要着力推动行业高质量发展。大力推动各类机构错位发展、优势互补、各展所长。坚定推进中小金融机构减量提质，因地制宜优化机构布局。深入整治金融领域无序竞争，推动由追求速度和规模向以质量和效益为中心转变，持续提升核心竞争力。推动多渠道补充资本，增强金融机构资本实力和可持续发展能力。引导做好金融“五篇大文
+中新社深圳5月14日电 (记者 索有为)深圳市前海管理局14日发布统计数据显示，今年一季度，前海深港现代服务业合作区(下称“前海”)实际使用外资116.2亿元(人民币，下同)，同比增长75.6%，占深圳市的比重为68.5%。其中实际使用港资115.3亿元，同比增长191.2%，占前海实际使用外资的比重为99.2%。今年一季度，前海合作区新增外资企业615家。截至一季度末，前海外
 
 ## 正文
 
-6月8日金融一线消息，金融监管总局党委召开扩大会议，研究部署近期重点工作。
+中新社深圳5月14日电 (记者 索有为)深圳市前海管理局14日发布统计数据显示，今年一季度，前海深港现代服务业合作区(下称“前海”)实际使用外资116.2亿元(人民币，下同)，同比增长75.6%，占深圳市的比重为68.5%。
 
-会议要求，要着力推动行业高质量发展。
+其中实际使用港资115.3亿元，同比增长191.2%，占前海实际使用外资的比重为99.2%。
 
-大力推动各类机构错位发展、优势互补、各展所长。
+今年一季度，前海合作区新增外资企业615家。
 
-坚定推进中小金融机构减量提质，因地制宜优化机构布局。
+截至一季度末，前海外资企业总量已达1.34万家，其中港资企业1.1万家，深港产业协同的纽带愈发紧密，成为前海引资的核心支撑。
 
-深入整治金融领域无序竞争，推动由追求速度和规模向以质量和效益为中心转变，持续提升核心竞争力。
+作为前海首个试点“香港建设模式”的投资项目，前海嘉里中心成为外资集聚的“标杆载体”。
 
-推动多渠道补充资本，增强金融机构资本实力和可持续发展能力。
+从韩国最大资管集团未来资产金融科技研发中心，到IBM、西门子等国际科技巨头，再到东亚前海证券、大新银行等跨境金融创新企业，这里的150家企业覆盖15个国家和17个地区，涵盖港资金融总部、外资券商、国际资管、跨境银行、金融科技等多个领域。
 
-引导做好金融“五篇大文章”，服务经济社会高质量发展。
+去年底，富邦银行(香港)深圳分行入驻前海嘉里中心，成立富邦金控内地首家分行。
 
-责任编辑：李琳琳
+国际社会对前海的关注与认可也在持续升温。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 04:51 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 04:59 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 04:48 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 04:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 05:04 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 05:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
-- 2026-06-30 04:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-30 05:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 05:01 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 05:08 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 05:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 04:58 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 05:14 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 05:12 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 04:50 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 05:08 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 04:51 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-30 05:06 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 05:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-30 04:54 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 05:16 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/98488.shtml)
-- 2026-06-30 04:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/626650311.shtml)
-- 2026-06-30 04:49 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/00355.shtml)
-- 2026-06-30 04:46 - [天道](http://www.blog.kurohicncr.top/Article/details/474767975174.shtml)
-- 2026-06-30 05:06 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/64602.shtml)
-- 2026-06-30 04:48 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/553136450.shtml)
-- 2026-06-30 05:07 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/47188.shtml)
-- 2026-06-30 04:58 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/1357165.shtml)
-- 2026-06-30 04:58 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/06960816.shtml)
-- 2026-06-30 05:09 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/778178246.shtml)
-- 2026-06-30 04:59 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/6246606864.shtml)
-- 2026-06-30 04:42 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/261341.shtml)
-- 2026-06-30 04:45 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/10602243807.shtml)
-- 2026-06-30 05:01 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/649745144.shtml)
-- 2026-06-30 05:10 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/660085203832.shtml)
+- 2026-06-30 04:51 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0845222771.shtml)
+- 2026-06-30 04:53 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/76790054024.shtml)
+- 2026-06-30 04:56 - [点菜也要教吗](https://www.blog.minike.top/Article/details/6265911234.shtml)
+- 2026-06-30 05:13 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/192339921.shtml)
+- 2026-06-30 04:53 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/9199366814.shtml)
+- 2026-06-30 04:54 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/024153179607.shtml)
+- 2026-06-30 04:59 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/702765.shtml)
+- 2026-06-30 05:02 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/827708.shtml)
+- 2026-06-30 05:12 - [如何改变自己太负责任的性格?](http://www.share.minike.top/Article/details/61931.shtml)
+- 2026-06-30 05:04 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/710628332299.shtml)
+- 2026-06-30 04:48 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/4036295234.shtml)
+- 2026-06-30 05:15 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/2089398.shtml)
+- 2026-06-30 05:00 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/441074753354.shtml)
+- 2026-06-30 04:56 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/735741847208.shtml)
+- 2026-06-30 05:01 - [内马尔替补](https://www.blog.minike.top/Article/details/529140.shtml)

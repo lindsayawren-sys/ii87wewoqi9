@@ -1,56 +1,56 @@
-# 射击奥运冠军盛李豪 每一环成绩，都是汗水换来的
+# 花旗：周大福创建维持“买入”评级 目标价上调至10.9港元
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-射击奥运冠军盛李豪 每一环成绩，都是汗水换来的(名场面的背后​) 名场面 当地时间5月30日，国际射联射击世界杯德国慕尼黑站结束，中国队选手盛李豪与搭档王子菲携手出战10米气步枪混合团体决赛，最终以505.5环成功摘金，继4月世界杯西班牙格拉纳达站后，两人再度拿到混团冠军。“享受比赛”“平时会看对手的比赛录像”。夺冠后的盛李豪话不多，眼神中却透着纯粹与笃定。在射击这项“与自己较
+花旗发布研报称，周大福创建（00659）宣布以约16.1亿元人民币的代价，向两家上海国资委关联公司出售其持有的长沙至浏阳高速公路（长浏高速）营运目标公司100%股权。其中约1.09亿元人民币将预留作支付出售过程中可能产生的成本。花旗上调周大福创建目标价，由10.6港元升至10.9港元，维持“买入”评级。 公司预计2026财年将因是次出售录得约8，000万元人民币的税后亏损。交易
 
 ## 正文
 
-射击奥运冠军盛李豪 每一环成绩，都是汗水换来的(名场面的背后​) 名场面 当地时间5月30日，国际射联射击世界杯德国慕尼黑站结束，中国队选手盛李豪与搭档王子菲携手出战10米气步枪混合团体决赛，最终以505.5环成功摘金，继4月世界杯西班牙格拉纳达站后，两人再度拿到混团冠军。
+花旗发布研报称，周大福创建（00659）宣布以约16.1亿元人民币的代价，向两家上海国资委关联公司出售其持有的长沙至浏阳高速公路（长浏高速）营运目标公司100%股权。
 
-“享受比赛”“平时会看对手的比赛录像”。
+其中约1.09亿元人民币将预留作支付出售过程中可能产生的成本。
 
-夺冠后的盛李豪话不多，眼神中却透着纯粹与笃定。
+花旗上调周大福创建目标价，由10.6港元升至10.9港元，维持“买入”评级。
 
-在射击这项“与自己较量”的运动中，21岁的盛李豪(见图，新华社发)已经拿到了优异的成绩：两届奥运会获得两金一银，同时手握10米气步枪男子资格赛和混团资格赛等多项世界纪录。
+公司预计2026财年将因是次出售录得约8，000万元人民币的税后亏损。
 
-用成绩说话，是盛李豪的表达方式。
+交易完成后，目标公司约21.1亿元人民币的银行借贷将继续由其自身承担。
 
-如何波澜不惊 能从情绪中走出来 上一站世界杯赛，盛李豪拿到男子10米气步枪和混合团体两枚金牌，为自己新赛季国际赛事开了个好头。
+该行料交易最快2027财年上半年完成（即2026年下半年）。
 
-但本站世界杯，他却经历了不小的考验。
+花旗认为，是次交易代价加上债务移除后的综合价值，较该行对目标公司总资产价值的计算高出约105%。
 
-在率先进行的男子10米气步枪比赛中，他手感不佳，在资格赛阶段出现波动，最终无缘决赛。
+该行指出，此次资产出售反映管理层积极进行资本回收的思维，有助进一步缩减公司目前的资产净值（NAV）折让（目前约36%）。
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 04:54 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 04:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 05:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 04:52 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 04:47 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 05:00 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 05:03 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 04:43 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 05:03 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 05:08 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 04:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 04:59 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-30 05:02 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-30 05:11 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 05:07 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 05:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 04:59 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
+- 2026-06-30 04:49 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 04:49 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/33462.shtml)
-- 2026-06-30 04:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/523241.shtml)
-- 2026-06-30 04:43 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/750570.shtml)
-- 2026-06-30 04:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/2864599.shtml)
-- 2026-06-30 05:10 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/8291081.shtml)
-- 2026-06-30 04:48 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/76621343.shtml)
-- 2026-06-30 05:11 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/84144.shtml)
-- 2026-06-30 05:00 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/684162550233.shtml)
-- 2026-06-30 04:52 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/203296.shtml)
-- 2026-06-30 04:45 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/32142534.shtml)
-- 2026-06-30 04:53 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/025865.shtml)
-- 2026-06-30 04:46 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/36818378.shtml)
-- 2026-06-30 04:57 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/66759.shtml)
-- 2026-06-30 04:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/743546.shtml)
-- 2026-06-30 04:45 - [千与千寻](http://www.share.kurohicncr.top/Article/details/619401571.shtml)
+- 2026-06-30 05:01 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/422388949946.shtml)
+- 2026-06-30 05:17 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/71171472.shtml)
+- 2026-06-30 04:51 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/446649359.shtml)
+- 2026-06-30 05:08 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/911640682.shtml)
+- 2026-06-30 04:50 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/2718400748.shtml)
+- 2026-06-30 05:15 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/360184914911.shtml)
+- 2026-06-30 05:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/7975472853.shtml)
+- 2026-06-30 05:01 - [周生如故](http://www.blog.minike.top/Article/details/29779545.shtml)
+- 2026-06-30 05:04 - [极限挑战第一季](https://www.blog.minike.top/Article/details/68845348.shtml)
+- 2026-06-30 04:52 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/0814757604.shtml)
+- 2026-06-30 05:12 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/31192.shtml)
+- 2026-06-30 04:58 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/47814445285.shtml)
+- 2026-06-30 04:54 - [这一刀 会很帅](http://www.share.minike.top/Article/details/67634471083.shtml)
+- 2026-06-30 04:52 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/1077066.shtml)
+- 2026-06-30 04:52 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/4770850.shtml)

@@ -1,59 +1,59 @@
-# 2026年法网：兹维列夫首夺大满贯男单冠军
+# 司法部新闻发言人就欧盟外国补贴调查相关做法构成不当域外管辖答记者问
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新社巴黎6月7日电 (记者 李洋)2026年法国网球公开赛当地时间7日举行男单决赛，赛会2号种子、德国名将兹维列夫战胜10号种子、意大利选手科博利夺冠。这是他在赛场征战多年后首次夺得大满贯男单冠军。 兹维列夫虽已拿过众多冠军奖项，还曾赢得奥运会网球男单金牌，但此前三度打入大满贯男单决赛均未能夺冠。今年法网对兹维列夫夺冠无疑很有利：男单卫冕冠军、西班牙名将阿尔卡拉斯因伤退赛；头
+中新网5月15日电 据司法部微信公众号消息，司法部新闻发言人就欧盟外国补贴调查相关做法构成不当域外管辖答记者问。 问：2026年5月15日，司法部发布公告，认定欧盟利用其《外国补贴条例》在对同方威视调查中对中国实体采取的相关跨境调查做法构成不当域外管辖。请问有何考虑？ 答：欧盟利用其《外国补贴条例》对同方威视进行调查，肆意向中国实体跨境索取广泛的、非必要的中国境内信息，是对相关
 
 ## 正文
 
-中新社巴黎6月7日电 (记者 李洋)2026年法国网球公开赛当地时间7日举行男单决赛，赛会2号种子、德国名将兹维列夫战胜10号种子、意大利选手科博利夺冠。
+中新网5月15日电 据司法部微信公众号消息，司法部新闻发言人就欧盟外国补贴调查相关做法构成不当域外管辖答记者问。
 
-这是他在赛场征战多年后首次夺得大满贯男单冠军。
+问：2026年5月15日，司法部发布公告，认定欧盟利用其《外国补贴条例》在对同方威视调查中对中国实体采取的相关跨境调查做法构成不当域外管辖。
 
-兹维列夫虽已拿过众多冠军奖项，还曾赢得奥运会网球男单金牌，但此前三度打入大满贯男单决赛均未能夺冠。
+请问有何考虑？
 
-今年法网对兹维列夫夺冠无疑很有利：男单卫冕冠军、西班牙名将阿尔卡拉斯因伤退赛；头号种子、意大利名将辛纳早早爆冷出局；塞尔维亚名将德约科维奇在第三轮比赛中被淘汰。
+答：欧盟利用其《外国补贴条例》对同方威视进行调查，肆意向中国实体跨境索取广泛的、非必要的中国境内信息，是对相关实体施加的不当要求，明显违反国际法与国际关系基本准则。
 
-而决赛中的对手科博利，兹维列夫曾多次取胜。
+为维护国家主权、安全和发展利益，保护中国公民、法人或其他组织的合法权益，司法部根据《中华人民共和国反外国不当域外管辖条例》，会同商务部等有关部门依法识别，认定欧盟上述做法构成不当域外管辖措施。
 
-夺冠对于他来说已近在咫尺。
+任何组织、个人不得执行或者协助执行该不当域外管辖措施。
 
-兹维列夫在决赛首盘开局便实现破发，较快进入状态。
+欧盟《外国补贴条例》是其自行创设的单边工具。
 
-科博利首次闯入大满贯决赛，心理上显得紧张。
+自实施以来，欧盟频繁利用《外国补贴条例》对中国企业进行调查，具有明显针对性和歧视性，是典型的以“公平竞争”之名行“保护主义”之实。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-30 05:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
-- 2026-06-30 05:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 05:10 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 05:05 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
-- 2026-06-30 04:46 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-30 04:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-30 05:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 04:57 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 04:56 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
-- 2026-06-30 05:03 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 05:00 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 05:10 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 04:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 04:52 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-30 05:11 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 05:03 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 04:55 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 05:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 05:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 04:57 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 04:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-30 04:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 05:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 05:06 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 05:15 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:47 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/613224465293.shtml)
-- 2026-06-30 04:58 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/95479696.shtml)
-- 2026-06-30 05:05 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/47224.shtml)
-- 2026-06-30 04:56 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/2252517090.shtml)
-- 2026-06-30 05:01 - [浙江队将获百万元世界杯补偿](http://www.blog.minike.top/Article/details/27556.shtml)
-- 2026-06-30 04:59 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/17665269283.shtml)
-- 2026-06-30 04:53 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/32364.shtml)
-- 2026-06-30 05:10 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/82419.shtml)
-- 2026-06-30 04:55 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/27466920033.shtml)
-- 2026-06-30 04:45 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/250906.shtml)
-- 2026-06-30 05:03 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/68186751875.shtml)
-- 2026-06-30 04:52 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/50209880.shtml)
-- 2026-06-30 04:54 - [送你一朵小红花](http://www.share.minike.top/Article/details/876550614.shtml)
-- 2026-06-30 05:11 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/38504361703.shtml)
-- 2026-06-30 04:42 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/85213182.shtml)
+- 2026-06-30 04:53 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/01170187111.shtml)
+- 2026-06-30 05:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/7996078.shtml)
+- 2026-06-30 05:07 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/5839703.shtml)
+- 2026-06-30 04:59 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/56631095942.shtml)
+- 2026-06-30 05:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/481687945290.shtml)
+- 2026-06-30 04:59 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/91769254173.shtml)
+- 2026-06-30 05:09 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/3618361510.shtml)
+- 2026-06-30 04:52 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/835917367.shtml)
+- 2026-06-30 05:02 - [巴西2-1绝杀日本](http://www.blog.minike.top/Article/details/187897268441.shtml)
+- 2026-06-30 04:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/80237.shtml)
+- 2026-06-30 04:59 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/59241110.shtml)
+- 2026-06-30 05:13 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/4605085911.shtml)
+- 2026-06-30 05:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/669062475192.shtml)
+- 2026-06-30 05:15 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/2024186347.shtml)
+- 2026-06-30 05:06 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/902598737.shtml)

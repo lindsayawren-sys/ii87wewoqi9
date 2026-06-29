@@ -1,56 +1,51 @@
-# 期权市场押注美光财报将波动20%，AI内存需求面临大考
+# 世卫组织：已确认10例汉坦病毒感染病例
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-美光科技将于6月24日发布2026财年第三季度财报，期权市场正在为其股价可能出现约20%的大幅波动定价，这反映出投资者对这家AI内存芯片巨头业绩的高度期待与紧张情绪。 华尔街分析师普遍预期美光将交出爆炸性增长的成绩单。根据市场数据，预计美光Q3每股收益将达19.72美元，同比增长约932%；营收预计约为343.8亿美元，同比增幅约270%。这一预期略高于公司此前指引的335亿美
+当地时间5月15日，世界卫生组织表示，截至目前，已确认10例汉坦病毒感染病例，其中3人死亡。 世卫组织总干事谭德塞表示，未来可能确认更多的病例，但这并不意味着疫情范围扩大。他表示，目前工作尚未结束，要进一步研究起因和传播过程。(总台记者 薛婧萌)
 
 ## 正文
 
-美光科技将于6月24日发布2026财年第三季度财报，期权市场正在为其股价可能出现约20%的大幅波动定价，这反映出投资者对这家AI内存芯片巨头业绩的高度期待与紧张情绪。
+当地时间5月15日，世界卫生组织表示，截至目前，已确认10例汉坦病毒感染病例，其中3人死亡。
 
-华尔街分析师普遍预期美光将交出爆炸性增长的成绩单。
+世卫组织总干事谭德塞表示，未来可能确认更多的病例，但这并不意味着疫情范围扩大。
 
-根据市场数据，预计美光Q3每股收益将达19.72美元，同比增长约932%；营收预计约为343.8亿美元，同比增幅约270%。
+他表示，目前工作尚未结束，要进一步研究起因和传播过程。
 
-这一预期略高于公司此前指引的335亿美元营收和约18.90美元的每股收益。
-
-公司核心业务——用于AI服务器的高带宽内存需求依然旺盛，其2026年全年的HBM供应已告售罄。
-
-然而，美光股价近期已出现大幅波动。
-
-在截至6月5日的当周，该股从历史高点回落约20%，部分原因是博通公布的AI销售预测不及预期，引发了市场对整个AI硬件板块的担忧。
-
-尽管如此，华尔街整体对美光保持乐观，共识评级为“强力买入”，分析师平均目标价约为919美元。
+(总台记者 薛婧萌)
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 04:51 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
-- 2026-06-30 04:44 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 05:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-30 04:56 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 05:08 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 04:44 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 05:07 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 04:58 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 05:08 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 04:52 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 05:09 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 05:04 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-30 04:57 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 04:57 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 04:52 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 04:57 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 05:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 04:57 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 05:08 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 05:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 04:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
+- 2026-06-30 05:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/3924188.shtml)
-- 2026-06-30 05:07 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/05233066.shtml)
-- 2026-06-30 04:52 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/48540079.shtml)
-- 2026-06-30 05:07 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/548741924.shtml)
-- 2026-06-30 04:45 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/94678.shtml)
-- 2026-06-30 05:01 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/964378070.shtml)
-- 2026-06-30 05:02 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/1264544896.shtml)
-- 2026-06-30 04:50 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/327795068679.shtml)
-- 2026-06-30 05:10 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/1316782309.shtml)
-- 2026-06-30 05:07 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/62202.shtml)
-- 2026-06-30 04:52 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/738592452.shtml)
-- 2026-06-30 04:54 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/573705.shtml)
-- 2026-06-30 05:09 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/5362170668.shtml)
-- 2026-06-30 04:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/47248922.shtml)
-- 2026-06-30 04:58 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/39337309427.shtml)
+- 2026-06-30 05:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/802122571.shtml)
+- 2026-06-30 04:48 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/53277666882.shtml)
+- 2026-06-30 05:00 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/27882389.shtml)
+- 2026-06-30 04:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/03314566.shtml)
+- 2026-06-30 05:05 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/44832229.shtml)
+- 2026-06-30 05:06 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/871904.shtml)
+- 2026-06-30 05:03 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/76205.shtml)
+- 2026-06-30 04:58 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/3571367.shtml)
+- 2026-06-30 05:05 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/582951.shtml)
+- 2026-06-30 05:15 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/24473797223.shtml)
+- 2026-06-30 05:04 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/694056127.shtml)
+- 2026-06-30 04:59 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/62317606.shtml)
+- 2026-06-30 05:12 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/8734405.shtml)
+- 2026-06-30 04:52 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.minike.top/Article/details/66662622770.shtml)
+- 2026-06-30 04:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/9536945.shtml)

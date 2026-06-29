@@ -1,60 +1,61 @@
-# 中式主题乐园重塑文旅赛道（经济聚焦）
+# 舒某编造涉“湖北人造大米生产线”网络谣言，造成民众恐慌，网警依法打击
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-注重沉浸体验，满足情绪价值 中式主题乐园重塑文旅赛道(经济聚焦) 人民日报 证券时报记者 韩忠楠 秦燕玲 郭博昊记者近日实地探访“只有河南·戏剧幻城”、清明上河园等沉浸式文旅项目，发现年轻游客逐渐青睐兼具文化底蕴、沉浸体验与情感共鸣的本土文旅业态。依托实景演绎、NPC(非玩家角色)互动等玩法，新建园区与老牌景区双双实现业绩突破，有老牌景区3年营收增长约15倍。 热潮背后，是国内
+近期，湖南省怀化市溆浦县公安局网安大队在工作中发现，辖区内一网民舒某在某平台发布“湖北人造大米生产线”的视频，吸引大量网民关注和讨论，视频谣称产品质量不合格，造成部分群众恐慌。 部分网民在未核实信息的情况下，继续传播不实信息，导致相关谣言呈现进一步扩散的趋势。 溆浦县公安局网安大队第一时间开展核查调查。 经核实，该视频内容不实，内容疑似AI生成稿件。 溆浦县公安局网络安全保卫大
 
 ## 正文
 
-注重沉浸体验，满足情绪价值 中式主题乐园重塑文旅赛道(经济聚焦) 人民日报 证券时报记者 韩忠楠 秦燕玲 郭博昊记者近日实地探访“只有河南·戏剧幻城”、清明上河园等沉浸式文旅项目，发现年轻游客逐渐青睐兼具文化底蕴、沉浸体验与情感共鸣的本土文旅业态。
+近期，湖南省怀化市溆浦县公安局网安大队在工作中发现，辖区内一网民舒某在某平台发布“湖北人造大米生产线”的视频，吸引大量网民关注和讨论，视频谣称产品质量不合格，造成部分群众恐慌。
 
-依托实景演绎、NPC(非玩家角色)互动等玩法，新建园区与老牌景区双双实现业绩突破，有老牌景区3年营收增长约15倍。
+部分网民在未核实信息的情况下，继续传播不实信息，导致相关谣言呈现进一步扩散的趋势。
 
-热潮背后，是国内主题乐园跳出复刻海外、比拼硬件的发展模式，转向以IP(知识产权)为重点、情绪消费为驱动力的消费新赛道。
+溆浦县公安局网安大队第一时间开展核查调查。
 
-与此同时，政策也进一步为提供新供给的优质文旅企业创造良好营商环境。
+经核实，该视频内容不实，内容疑似AI生成稿件。
 
-市场、政策双重红利之下，中式主题乐园迎来发展关键节点。
+溆浦县公安局网络安全保卫大队教导员 钟洪：当时她的(视频)浏览量达到了10.05万，还有几万点击量和传播量，我当时觉得这个情况应该是非常严重了。
 
-根植地方特色、以文化IP重塑体验的中式乐园蓬勃发展 走进“只有河南·戏剧幻城”，只见328米的夯土城墙连绵矗立。
+因为这个关系到我们的民生领域，一个食品安全问题，如果大量转发，肯定造成严重的食品卫生领域方面的恐慌。
 
-近5年，这座“城”吸引着八方来客。
+经查，舒某为博人眼球，吸引流量，利用AI工具生成文案和视频，编造称“随着食品加工技术的发展，人造大米逐渐进入大众视野，湖北作为国内粮机产业重镇，荆门、武汉等地已建成多条标准化人造大米生产线。
 
-该项目自2021年6月运营以来，截至2025年底，累计观剧人次超过5800万，其中80%来自省外，85%为18至35岁的年轻人。
+”“湖北部分小作坊生产线使用霉碎米、陈米为原料加工，通过散装渠道流入低端市场，这些劣质产品存在黄曲霉毒素超标等问题”。
 
 ## 相关推荐
 
-- 2026-06-30 04:44 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 05:09 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-30 05:05 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-30 04:59 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kzknr.md)
-- 2026-06-30 05:08 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 05:09 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-30 05:09 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-30 04:59 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-30 04:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 05:05 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
-- 2026-06-30 04:57 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 04:53 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 05:08 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 04:53 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 05:13 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-30 05:18 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-30 04:48 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 05:02 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 05:12 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 04:53 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 04:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 04:56 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-30 04:53 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 05:04 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-30 04:59 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 05:05 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 04:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-30 04:51 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 05:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/432896862.shtml)
-- 2026-06-30 04:42 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.blog.kurohicncr.top/Article/details/1792437989.shtml)
-- 2026-06-30 04:55 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/8375846.shtml)
-- 2026-06-30 04:52 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/85999532.shtml)
-- 2026-06-30 04:46 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/150175702.shtml)
-- 2026-06-30 05:04 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/7848999.shtml)
-- 2026-06-30 04:43 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/96127657221.shtml)
-- 2026-06-30 04:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/49649828.shtml)
-- 2026-06-30 05:07 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/43911.shtml)
-- 2026-06-30 04:59 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/9201229573.shtml)
-- 2026-06-30 04:50 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/463184.shtml)
-- 2026-06-30 04:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/99729415.shtml)
-- 2026-06-30 05:01 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/09819759171.shtml)
-- 2026-06-30 04:51 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/1607147952.shtml)
-- 2026-06-30 05:08 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/98471016.shtml)
+- 2026-06-30 05:00 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/656440518121.shtml)
+- 2026-06-30 04:56 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/104919119.shtml)
+- 2026-06-30 04:50 - [中国再对日本出重拳](https://www.share.minike.top/Article/details/4965862494.shtml)
+- 2026-06-30 05:16 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/42609346326.shtml)
+- 2026-06-30 04:56 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/97369740.shtml)
+- 2026-06-30 04:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/4087760122.shtml)
+- 2026-06-30 05:07 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/72473678.shtml)
+- 2026-06-30 04:54 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/890274.shtml)
+- 2026-06-30 04:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/825971306.shtml)
+- 2026-06-30 05:11 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/774266045493.shtml)
+- 2026-06-30 05:08 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/735162.shtml)
+- 2026-06-30 04:53 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/3319461.shtml)
+- 2026-06-30 04:57 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/43179431.shtml)
+- 2026-06-30 05:01 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/709415325835.shtml)
+- 2026-06-30 05:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/632343.shtml)

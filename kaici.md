@@ -1,61 +1,61 @@
-# 云知声正式发布新一代自研通用大语言模型-U2
+# 阿里、腾讯资本开支再提速，百亿港股互联网ETF华宝（513770）上探3.77%！创业板人工智能ETF六连阳后暂休整
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-云知声（09678）发布公告，2026年6月8日，本公司正式发布新一代自研通用大语言模型 — U2。 U2大模型采用行业前沿的基于快慢思考融合的MoE混合专家范式架构搭建，依托高精度数据提纯与高密度语义表征能力，以2660亿参数规模实现了顶级水准的大模型性能。模型以“智能密度×Token价值”为核心底层逻辑聚焦提升单位 Token有效知识的承载量与业务产出价值，打造高价值、高效
+今日（5月14日）市场震荡盘整，A股主要指数悉数飘绿，沪指失守4200点，全市场超4300只个股下跌。沪深京三市成交额33884亿元，较昨日放量1239亿元，连续第七个交易日突破3万亿元。 市场萎靡之际，银行奋起护盘，工农中建交携手收红，百亿银行ETF华宝（512800）场内价格逆市收涨0.51%，此前一日狂揽2.37亿元；政策密集托底，猪肉板块反弹，天邦食品、神农集团涨停，全
 
 ## 正文
 
-云知声（09678）发布公告，2026年6月8日，本公司正式发布新一代自研通用大语言模型 — U2。
+今日（5月14日）市场震荡盘整，A股主要指数悉数飘绿，沪指失守4200点，全市场超4300只个股下跌。
 
-U2大模型采用行业前沿的基于快慢思考融合的MoE混合专家范式架构搭建，依托高精度数据提纯与高密度语义表征能力，以2660亿参数规模实现了顶级水准的大模型性能。
+沪深京三市成交额33884亿元，较昨日放量1239亿元，连续第七个交易日突破3万亿元。
 
-模型以“智能密度×Token价值”为核心底层逻辑聚焦提升单位 Token有效知识的承载量与业务产出价值，打造高价值、高效率的大模型基座。
+市场萎靡之际，银行奋起护盘，工农中建交携手收红，百亿银行ETF华宝（512800）场内价格逆市收涨0.51%，此前一日狂揽2.37亿元；政策密集托底，猪肉板块反弹，天邦食品、神农集团涨停，全市场首只*农牧渔ETF华宝（159275）场内收红；吃喝板块上演“过山车行情”，食品饮料ETF华宝（515710）午后拉升翻红，场内价格一度上涨1.5%，近4日连续获资金净流入1523万元。
 
-U2为原生Agent驱动大模型，实现全栈开发、智能编排与深度推理一体化交付。
+在AI需求强劲预期下，大厂AI资本开支再提速，腾讯、阿里绩后纷纷上调预期，港股AI核心工具——港股互联网ETF华宝（513770）场内价格最高上探3.77%；港股通创新药三连跌，出海与政策双线驱动，机构提示配置机遇，100%创新药研发标的——港股通创新药ETF华宝（520880）近10日吸金超4.3亿元。
 
-依托首创的原生推理路径蒸馏技术，可自主完成任务拆解、执行、校验与优化，形成全链路闭环，是新一代AI Agent的理想原生基座。
+热辣滚烫的光模块冲高回落，“易中天”股价盘中均创历史新高，光模块CPO占比超50%的创业板人工智能ETF华宝（159363）日线6连阳+刷新上市新高后，首度回调，资金获迎来逢跌布局机会。
 
-同时，模型创新搭载混合思考模式，并采用模型Harness同步训练机制，大幅降低单任务Token消耗，显著提升Token整体使用效率，形成突出的推理成本优势，可广泛适配多领域、多场景商业化应用。
+同样火热的芯片产业链传来大消息，台积电预计2030年全球芯片市场规模将超1.5万亿美元，比此前预测的高出50%，全“芯”布局芯片产业的科创芯片ETF华宝（589190）亦在3连涨+创新高后，随市盘整回调，中金公司认为，科创芯片上涨逻辑已从估值修复，转向业绩驱动。
 
-在权威专业评测中，U2大模型综合表现优异：在指令遵循、长上下文、科学推理、软件工程智能体、特定工具链适配（Claw评测）等硬核赛道上，性能可对标全球顶尖模型。
+* 中金公司指出，A股“924行情”已延续近两年时间。
 
-本次U2大模型的正式发布，标志着本公司AI商业化路径迎来全新升级。
+中期视角下，坚定看好A股市场延续震荡上行趋势，当前A股市场整体估值仍处于合理水平。
 
 ## 相关推荐
 
-- 2026-06-30 04:43 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-30 04:54 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 05:01 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 05:04 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-30 05:03 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 05:08 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 04:45 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-30 04:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 05:11 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
-- 2026-06-30 04:44 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 05:03 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 04:47 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
-- 2026-06-30 04:55 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 05:02 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 04:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 05:04 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 05:06 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 05:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 04:56 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-30 05:16 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 04:59 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 05:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 04:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 05:15 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-30 04:58 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
+- 2026-06-30 05:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-30 05:12 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 04:51 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 04:59 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 04:58 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/917454724638.shtml)
-- 2026-06-30 05:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/325651056295.shtml)
-- 2026-06-30 05:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/07412077920.shtml)
-- 2026-06-30 04:57 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/24298145007.shtml)
-- 2026-06-30 04:51 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/57803353422.shtml)
-- 2026-06-30 04:43 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/84309.shtml)
-- 2026-06-30 04:42 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/654194.shtml)
-- 2026-06-30 04:43 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/50476176.shtml)
-- 2026-06-30 04:42 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/5900539119.shtml)
-- 2026-06-30 04:47 - [王欣瑜2-1击败科恰雷托](http://www.blog.minike.top/Article/details/272810977287.shtml)
-- 2026-06-30 04:57 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/84210420427.shtml)
-- 2026-06-30 05:07 - [金刚川](http://www.share.minike.top/Article/details/582906652.shtml)
-- 2026-06-30 04:58 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/699966.shtml)
-- 2026-06-30 05:05 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/633199503213.shtml)
-- 2026-06-30 04:46 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/867098822395.shtml)
+- 2026-06-30 05:17 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/869703722.shtml)
+- 2026-06-30 05:06 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/1641363.shtml)
+- 2026-06-30 04:58 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/252029512606.shtml)
+- 2026-06-30 05:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/40217328459.shtml)
+- 2026-06-30 05:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6988505.shtml)
+- 2026-06-30 05:06 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/6369153.shtml)
+- 2026-06-30 05:13 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/217140208208.shtml)
+- 2026-06-30 05:10 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/963307970767.shtml)
+- 2026-06-30 05:01 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/17540.shtml)
+- 2026-06-30 04:51 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/4815222.shtml)
+- 2026-06-30 05:07 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/4601943.shtml)
+- 2026-06-30 05:01 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/4743775.shtml)
+- 2026-06-30 05:06 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/81631697.shtml)
+- 2026-06-30 05:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/90406808514.shtml)
+- 2026-06-30 04:52 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/7858224491.shtml)

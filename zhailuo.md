@@ -1,57 +1,56 @@
-# 密集路演股价狂飙，261亿大牛股收关注函
+# 印尼一非法金矿发生山体滑坡致9人遇难
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 两个多月股价狂飙4倍的大牛股唯特偶，突遭监管问询。 6月4日，深交所向唯特偶下发关注函，就公司近期股价异常波动及路演活动中频繁提及光模块、先进封装等热点领域相关业务的情况展开问询。 6月7日，唯特偶
+中新社雅加达5月15日电 (记者 李志全)印度尼西亚西苏门答腊省西均琼县一处非法金矿附近14日发生山体滑坡。截至15日，搜救人员已找到9名遇难者遗体。 西苏门答腊省警察局公共关系处负责人15日表示，事发地点涉及非法金矿开采活动。初步统计，事发时现场共有12名矿工被滑坡掩埋，其中3人成功逃生。 据介绍，警方与当地政府持续整治非法采矿活动，包括开展预防行动、发布警示、加强宣传教育及
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社雅加达5月15日电 (记者 李志全)印度尼西亚西苏门答腊省西均琼县一处非法金矿附近14日发生山体滑坡。
 
-来源：雷达Finance 雷达财经出品 文|丁禹 编|孟帅 两个多月股价狂飙4倍的大牛股唯特偶，突遭监管问询。
+截至15日，搜救人员已找到9名遇难者遗体。
 
-6月4日，深交所向唯特偶下发关注函，就公司近期股价异常波动及路演活动中频繁提及光模块、先进封装等热点领域相关业务的情况展开问询。
+西苏门答腊省警察局公共关系处负责人15日表示，事发地点涉及非法金矿开采活动。
 
-6月7日，唯特偶就关注函进行回复，其中提到“截至目前，公司在光模块及先进封装领域的营收占比贡献率较低，均不到1%”。
+初步统计，事发时现场共有12名矿工被滑坡掩埋，其中3人成功逃生。
 
-雷达财经注意到，4月初唯特偶股价尚不足30元，截至6月8日收盘，唯特偶股价报143.49元/股，较4月初涨约4倍，最新市值约261亿元。
+据介绍，警方与当地政府持续整治非法采矿活动，包括开展预防行动、发布警示、加强宣传教育及赴现场执法等。
 
-而就在股价上涨之际，公司大股东杜宣、董事兼副总裁桑泽林于4月末抛出减持计划。
+执法行动结束后，非法采矿活动往往死灰复燃。
 
-截至5月29日，杜宣合计减持约206万股，套现1.94亿元。
+印尼矿产资源丰富，受强降雨及复杂地质条件影响，矿区坍塌、山体滑坡等事故雨季多发。
 
-此外，今年3月2日，公司控股股东、实际控制人廖高兵一致行动人深圳利乐缘完成此前披露的减持计划，共套现约6319万元。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-30 04:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 05:03 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-30 05:11 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-30 05:09 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 04:58 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 04:52 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 04:48 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-30 04:46 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-30 04:48 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-30 04:43 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-30 04:59 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-30 05:02 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 04:49 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-30 04:57 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 05:04 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 04:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-30 05:05 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 05:15 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
+- 2026-06-30 05:09 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 04:51 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:09 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/833361.shtml)
-- 2026-06-30 05:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.minike.top/Article/details/43601178.shtml)
-- 2026-06-30 04:52 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/22791.shtml)
-- 2026-06-30 05:06 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/8639265.shtml)
-- 2026-06-30 05:11 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/26032907.shtml)
-- 2026-06-30 05:03 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/79571100237.shtml)
-- 2026-06-30 04:52 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/421021988316.shtml)
-- 2026-06-30 04:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/50928851.shtml)
-- 2026-06-30 04:55 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/2087082996.shtml)
-- 2026-06-30 05:03 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/82707209293.shtml)
-- 2026-06-30 04:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/301943937627.shtml)
-- 2026-06-30 05:04 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/2846347.shtml)
-- 2026-06-30 04:52 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/267673.shtml)
-- 2026-06-30 04:56 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/121503643450.shtml)
-- 2026-06-30 05:03 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/567552.shtml)
+- 2026-06-30 04:49 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/90956670.shtml)
+- 2026-06-30 05:11 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/22768470003.shtml)
+- 2026-06-30 05:01 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/896722250.shtml)
+- 2026-06-30 05:14 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/92452.shtml)
+- 2026-06-30 05:09 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/22764247884.shtml)
+- 2026-06-30 05:10 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/485295108.shtml)
+- 2026-06-30 04:53 - [乔家的儿女](https://www.blog.minike.top/Article/details/83963877886.shtml)
+- 2026-06-30 05:04 - [又一美国科技巨头转向中国大模型](https://www.blog.minike.top/Article/details/2515473.shtml)
+- 2026-06-30 04:51 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/942465046.shtml)
+- 2026-06-30 05:03 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/824276269115.shtml)
+- 2026-06-30 04:55 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/54562429.shtml)
+- 2026-06-30 05:14 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/897393088065.shtml)
+- 2026-06-30 04:53 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/09872487.shtml)
+- 2026-06-30 05:14 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/1810768.shtml)
+- 2026-06-30 04:49 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/95277937.shtml)

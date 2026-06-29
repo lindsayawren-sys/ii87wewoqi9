@@ -1,60 +1,56 @@
-# 金价大跌！有人越跌越买，“狂买48根金条”；有人变现94万离场
+# 5·15投资者保护宣传日丨中欧基金以《服务公约》践行投资者陪伴的长期主义
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新经纬6月8日电 (李自曼)“昨天人挺多的，今天人也不少。现在10克的投资金条缺货(无花样纹饰)，昨天有个人买了48根10克的投资金条，下次到货大约1周，也可能有变动。”8日，北京菜百首饰投资金条柜台的一位销售人员说。 8日，现货黄金一度失守4300美元/盎司，上海黄金交易所Au99.99收盘价为941.01元/克，最低价为932.0元/克。中新经纬以投资者的身份走访北京地区
+专题：515投资者保护！新浪财经2026年度投教案例评选结果公布 近日，由证券时报和中欧基金联合举办的“匠心不语，公约有声”服务公约暨非遗美学共赏活动在广东省非物质文化遗产馆举行。活动以非遗匠心映照资管初心，借跨界对话传递长期温度，既是对中欧基金《服务公约》的深度践行，也是对“长期主义”与“有温度的金融服务”的生动诠释。 5·15全国投资者保护宣传日之际，中欧基金以本次非遗主题
 
 ## 正文
 
-中新经纬6月8日电 (李自曼)“昨天人挺多的，今天人也不少。
+专题：515投资者保护！
 
-现在10克的投资金条缺货(无花样纹饰)，昨天有个人买了48根10克的投资金条，下次到货大约1周，也可能有变动。
+新浪财经2026年度投教案例评选结果公布 近日，由证券时报和中欧基金联合举办的“匠心不语，公约有声”服务公约暨非遗美学共赏活动在广东省非物质文化遗产馆举行。
 
-”8日，北京菜百首饰投资金条柜台的一位销售人员说。
+活动以非遗匠心映照资管初心，借跨界对话传递长期温度，既是对中欧基金《服务公约》的深度践行，也是对“长期主义”与“有温度的金融服务”的生动诠释。
 
-8日，现货黄金一度失守4300美元/盎司，上海黄金交易所Au99.99收盘价为941.01元/克，最低价为932.0元/克。
+5·15全国投资者保护宣传日之际，中欧基金以本次非遗主题活动为载体，践行投资者陪伴与保护的要求，以匠心致初心，以陪伴赴长远，持续提升投资者获得感，共探行业高质量发展新路径。
 
-中新经纬以投资者的身份走访北京地区最热门的首饰店铺——菜百首饰，了解金饰和投资金条的消费情况。
+《服务公约》持续深耕 四大服务准则实践再创新 去年9月，中欧基金在中国证券博物馆正式发布《服务公约》，提出四大服务准则——常走动、常分享、常沟通、常创新，旨在积极响应“坚持以投资者为本”的监管号召，倡导长期且专业的投资者服务，真正提升投资者获得感。
 
-30克金手镯比年初便宜近万元 在菜百首饰一楼黄金首饰柜台前，有时几位销售人员并排站立，比来挑选的顾客还多。
+作为资管行业高质量服务的践行者，中欧基金始终锚定金融强国建设与行业高质量发展核心要求，坚守“以投资者为本”，力争以稳健的长期投资业绩回馈客户信任，同时持续推动客户服务体系迭代升级。
 
-这与此前排长队的火爆场面形成了鲜明反差。
+历经近一年的深耕，中欧基金“常走动、常分享、常沟通、常创新”四大服务准则在实践中焕发创新。
 
-黄金首饰柜台 中新经纬李自曼 摄 菜百首饰销售人员表示，金价下跌以来，虽然客流较年初高点明显减少，但周末人流量好于工作日。
+活动现场，中欧基金总经理助理方伊详细阐释了公司近一年围绕客户需求尝试了哪些新的做法，全方位拆解基于服务公约的精细化、长效化的投资者陪伴体系。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 04:56 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 04:56 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 04:57 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 04:56 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 05:07 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 05:10 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-30 04:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 05:09 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 04:56 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 05:02 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 04:56 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 05:08 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 04:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 05:14 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 05:17 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 05:16 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-30 05:02 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 05:01 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 05:00 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 05:15 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 04:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 05:01 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 04:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:06 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/05974458.shtml)
-- 2026-06-30 04:44 - [千与千寻](https://www.blog.minike.top/Article/details/9385156.shtml)
-- 2026-06-30 04:58 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/25043.shtml)
-- 2026-06-30 04:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5963012521.shtml)
-- 2026-06-30 04:42 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/123621404.shtml)
-- 2026-06-30 04:48 - [巴西2比1日本](https://www.blog.minike.top/Article/details/492680994.shtml)
-- 2026-06-30 04:49 - [金牌调解](https://www.blog.kurohicncr.top/Article/details/2771120124.shtml)
-- 2026-06-30 05:04 - [美人鱼](http://www.share.kurohicncr.top/Article/details/557522224.shtml)
-- 2026-06-30 04:55 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/6388534.shtml)
-- 2026-06-30 04:48 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/674721851001.shtml)
-- 2026-06-30 05:00 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/733215530.shtml)
-- 2026-06-30 05:02 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/615414343.shtml)
-- 2026-06-30 05:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/67501554.shtml)
-- 2026-06-30 04:54 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/437980.shtml)
-- 2026-06-30 05:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/31632968.shtml)
+- 2026-06-30 05:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/341054.shtml)
+- 2026-06-30 04:59 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/27349.shtml)
+- 2026-06-30 05:17 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/06914104636.shtml)
+- 2026-06-30 04:50 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/697018.shtml)
+- 2026-06-30 05:11 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/309275097.shtml)
+- 2026-06-30 04:55 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/272360.shtml)
+- 2026-06-30 05:04 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/50267.shtml)
+- 2026-06-30 05:02 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/37117.shtml)
+- 2026-06-30 05:12 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/5959792452.shtml)
+- 2026-06-30 05:15 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/39659879.shtml)
+- 2026-06-30 04:57 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/030127003271.shtml)
+- 2026-06-30 05:14 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/14342903.shtml)
+- 2026-06-30 05:02 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/54056639423.shtml)
+- 2026-06-30 05:03 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/393343491186.shtml)
+- 2026-06-30 04:55 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/777748220531.shtml)

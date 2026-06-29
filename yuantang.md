@@ -1,59 +1,48 @@
-# 英伟达CEO黄仁勋结束对韩国访问
+# 此行间·跟随中美元首天坛行，看中国古建筑的智慧
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-英伟达CEO黄仁勋周二结束了对韩国为期五天的访问，此行的重点是扩大与韩国主要科技公司在人工智能（AI）生态系统各个领域的合作关系。 黄仁勋在首尔西部的金浦国际机场登机前对记者表示，此次行程“非常好”，并强调了英伟达与韩国公司建立的牢固合作关系。 他指出此次访问期间宣布了几项重要成果，包括与SK集团达成多年技术合作协议，以及与Naver和SK电信开展人工智能云合作。 当被问及是否
+习近平主席同特朗普总统参观天坛。跟随中美元首天坛行，看中国古建筑的智慧。
 
 ## 正文
 
-英伟达CEO黄仁勋周二结束了对韩国为期五天的访问，此行的重点是扩大与韩国主要科技公司在人工智能（AI）生态系统各个领域的合作关系。
+习近平主席同特朗普总统参观天坛。
 
-黄仁勋在首尔西部的金浦国际机场登机前对记者表示，此次行程“非常好”，并强调了英伟达与韩国公司建立的牢固合作关系。
-
-他指出此次访问期间宣布了几项重要成果，包括与SK集团达成多年技术合作协议，以及与Naver和SK电信开展人工智能云合作。
-
-当被问及是否计划再次访问韩国时，黄仁勋开玩笑说他的“烤肉和炸鸡朋友们需要休息一下”，并补充说他期待再次访问韩国，探讨未来的合作机会。
-
-此次访问期间，黄仁勋会见了SK集团会长崔泰源、现代汽车集团执行会长郑义宣、LG集团会长具光模和Naver会长李海镇。
-
-他还与韩国科技信息通信部部长裴京勋、游戏和机器人初创企业的负责人以及研究人员举行了会谈，旨在深化韩国更广泛的人工智能生态系统内的合作。
-
-责任编辑：于健 SF069
+跟随中美元首天坛行，看中国古建筑的智慧。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-30 04:43 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 05:01 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 05:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 05:00 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-30 05:06 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 04:55 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 04:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 05:08 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 05:11 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-30 05:05 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-30 05:03 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 04:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
-- 2026-06-30 05:01 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-30 05:05 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-30 05:16 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 05:08 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 05:00 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 04:56 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 05:08 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 04:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-30 05:09 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 04:58 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-30 04:56 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-30 05:13 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 04:50 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-30 05:02 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-30 05:17 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 05:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [点菜也要教吗](https://www.blog.minike.top/Article/details/60490.shtml)
-- 2026-06-30 04:42 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/4553215305.shtml)
-- 2026-06-30 05:07 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/102965.shtml)
-- 2026-06-30 04:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/654470.shtml)
-- 2026-06-30 04:56 - [金牌调解](http://www.share.minike.top/Article/details/030044933.shtml)
-- 2026-06-30 04:52 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/373805077.shtml)
-- 2026-06-30 04:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/55484.shtml)
-- 2026-06-30 04:47 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/792829722.shtml)
-- 2026-06-30 05:00 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/281991.shtml)
-- 2026-06-30 04:49 - [金刚川](https://www.share.minike.top/Article/details/50259.shtml)
-- 2026-06-30 04:45 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/339720813306.shtml)
-- 2026-06-30 04:42 - [沙丘](http://www.blog.kurohicncr.top/Article/details/64151.shtml)
-- 2026-06-30 05:07 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/543039229395.shtml)
-- 2026-06-30 05:01 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/116624747.shtml)
-- 2026-06-30 04:50 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/5342806.shtml)
+- 2026-06-30 04:57 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/80689.shtml)
+- 2026-06-30 05:15 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/49744.shtml)
+- 2026-06-30 05:08 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/85898226.shtml)
+- 2026-06-30 04:56 - [巴西绝杀日本](http://www.share.minike.top/Article/details/59185.shtml)
+- 2026-06-30 05:11 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/576181798.shtml)
+- 2026-06-30 05:02 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/02254515947.shtml)
+- 2026-06-30 04:58 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/6598421830.shtml)
+- 2026-06-30 05:07 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/5759054.shtml)
+- 2026-06-30 05:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/51540.shtml)
+- 2026-06-30 05:16 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/27081.shtml)
+- 2026-06-30 05:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/93130129.shtml)
+- 2026-06-30 05:15 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/78611.shtml)
+- 2026-06-30 04:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.minike.top/Article/details/4709928.shtml)
+- 2026-06-30 05:07 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/457051851929.shtml)
+- 2026-06-30 05:07 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/8074485.shtml)

@@ -1,56 +1,59 @@
-# FDA准辉瑞公司一款用于治疗儿童出血性疾病的药物
+# 参议员提出法案，禁止议员离职后担任说客
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-辉瑞公司周一表示，美国食品药品监督管理局（FDA）已批准其药物Hympavzi用于预防或减少儿童及部分血友病患者的出血发作频率。 此次批准使辉瑞的Hympavzi成为首个可用于6至11岁B型血友病儿童患者的非凝血因子疗法，无论患者是否存在抑制剂。 监管机构还将适用范围扩大至12岁及以上、存在抑制剂（一种抗体）的A型或B型血友病患者。 Hympavzi此前已获批用于12岁及以上、
+核心要点 美国国会两院议员卸任后将被终身禁止担任说客 —— CNBC 独家报道，一项跨党派新法案提出了上述规定。 该法案不仅禁止参议员及众议员注册为职业说客，还严禁其代表企业或利益集团，通过影响在职议员及政府工作人员获取报酬。此举旨在堵住法律漏洞，杜绝前议员以非注册身份从事游说活动的现象。 该法案由佛罗里达州共和党参议员里克・斯科特与马萨诸塞州民主党参议员伊丽莎白・沃伦联合提出
 
 ## 正文
 
-辉瑞公司周一表示，美国食品药品监督管理局（FDA）已批准其药物Hympavzi用于预防或减少儿童及部分血友病患者的出血发作频率。
+核心要点 美国国会两院议员卸任后将被终身禁止担任说客 —— CNBC 独家报道，一项跨党派新法案提出了上述规定。
 
-此次批准使辉瑞的Hympavzi成为首个可用于6至11岁B型血友病儿童患者的非凝血因子疗法，无论患者是否存在抑制剂。
+该法案不仅禁止参议员及众议员注册为职业说客，还严禁其代表企业或利益集团，通过影响在职议员及政府工作人员获取报酬。
 
-监管机构还将适用范围扩大至12岁及以上、存在抑制剂（一种抗体）的A型或B型血友病患者。
+此举旨在堵住法律漏洞，杜绝前议员以非注册身份从事游说活动的现象。
 
-Hympavzi此前已获批用于12岁及以上、体内未产生阻碍凝血蛋白合成的抗体的患者。
+该法案由佛罗里达州共和党参议员里克・斯科特与马萨诸塞州民主党参议员伊丽莎白・沃伦联合提出。
 
-该药物通过自动注射笔皮下给药，是每周往往需要多次输注的静脉注射疗法的替代方案。
+当前，越来越多议员公开反对民选官员利用职权谋私，本届国会已推出多项跨党派法案，包括禁止议员持有并交易股票、禁止参与预测市场投注等。
 
-血友病是一种罕见疾病，患者因体内缺乏足够的凝血蛋白（即凝血因子）而导致血液难以凝固，从而在受伤或手术后引发自发性严重出血。
+尽管该法案落地可能性极低，但明确规定：违规一次罚款 5 万美元，最高可判处 5 年监禁。
 
-其中，最常见的A型血友病是由凝血因子VIII缺乏或水平低下引起的；而B型血友病则由凝血因子IX缺乏或水平低下引起。
+斯科特向 CNBC 表示：“民众对政府机构的信任跌至历史最低点，国会山与 K 街（游说机构聚集地）之间的‘旋转门’乱象是核心原因之一。
 
-在该后期临床试验中，Hympavzi显著降低了患有A型或B型血友病且伴有抑制剂的12岁及以上成人和青少年的平均年化出血率。
+我们必须重建民众对政府的信任，因此我自豪地提出这项跨党派法案，让政府真正回归为民服务的本质。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-30 04:58 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 05:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-30 04:45 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 04:51 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-30 05:02 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 05:06 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 04:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 05:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 04:49 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 05:02 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 05:02 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 05:02 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 04:51 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 04:53 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 04:52 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 05:16 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
+- 2026-06-30 04:48 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 05:03 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-30 04:49 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 05:09 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 04:57 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
+- 2026-06-30 04:57 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:07 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/6568676.shtml)
-- 2026-06-30 04:43 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/457243492.shtml)
-- 2026-06-30 04:50 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/93859847103.shtml)
-- 2026-06-30 04:46 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/71024.shtml)
-- 2026-06-30 05:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/511704974.shtml)
-- 2026-06-30 04:49 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/69236243.shtml)
-- 2026-06-30 04:49 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/073223131.shtml)
-- 2026-06-30 04:53 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/048193.shtml)
-- 2026-06-30 04:49 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/414656.shtml)
-- 2026-06-30 04:44 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/581446.shtml)
-- 2026-06-30 05:06 - [恋与深空 日服](http://www.blog.minike.top/Article/details/03658917.shtml)
-- 2026-06-30 04:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/213220.shtml)
-- 2026-06-30 05:02 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/273441487.shtml)
-- 2026-06-30 05:07 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/679658454.shtml)
-- 2026-06-30 04:55 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/6065207379.shtml)
+- 2026-06-30 04:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/7046576835.shtml)
+- 2026-06-30 05:02 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/3798417.shtml)
+- 2026-06-30 05:08 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/84664.shtml)
+- 2026-06-30 05:00 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/55378.shtml)
+- 2026-06-30 04:51 - [斗破苍穹](https://www.share.minike.top/Article/details/160845588.shtml)
+- 2026-06-30 04:54 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/30935.shtml)
+- 2026-06-30 05:11 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/375047.shtml)
+- 2026-06-30 05:11 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/68804287595.shtml)
+- 2026-06-30 05:00 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/50822774341.shtml)
+- 2026-06-30 04:51 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/03651.shtml)
+- 2026-06-30 04:49 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/387217854208.shtml)
+- 2026-06-30 05:10 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/3841573765.shtml)
+- 2026-06-30 04:56 - [《共患难》](https://www.share.kurohicncr.top/Article/details/127881724.shtml)
+- 2026-06-30 04:54 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/950528857588.shtml)
+- 2026-06-30 05:00 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/321157156254.shtml)

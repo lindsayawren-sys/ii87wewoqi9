@@ -1,61 +1,59 @@
-# 山东沂南打造沉浸式演艺集群 实现“村庄即剧场”
+# 苏州银行：张伟、毛竹春、蒋亮获批担任董事，夏平、赵欣、吴杰获批担任独立董事
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-古典学家王焕生：“奥德赛时期”，靠四个字度过“国补”叠加电商促销推动中国年中消费热吃薯条、闭眼打盹？特朗普现场观赛，球迷一片嘘声历史首次！美国总统特朗普观战NBA总决赛世界杯各种“伙伴”、赞助商、支持商，都有啥区别？三峡水运新通道“新”在何处？金价大跌！有人越跌越买，有人变现94万离场《论语》为何说“有教无类”，而非“有诲无类”？保险公司用“赔付过泰坦尼克号”证明实力？客服回应
+5月15日金融一线消息，苏州银行今日发布公告称，该行该行近日收到《江苏金融监管局关于张伟等 6 人苏州银行董事、独立董事任职资格的批复》（苏金复〔2026〕139号），核准张伟、毛竹春、蒋亮等 3 人该行董事的任职资格，核准夏平、赵欣、吴杰等 3 人该行独立董事的任职资格。 公开资料显示，张伟，男，1988 年 4 月出生，硕士研究生学历，高级会计师、中级经济师，现任苏州高新区
 
 ## 正文
 
-古典学家王焕生：“奥德赛时期”，靠四个字度过“国补”叠加电商促销推动中国年中消费热吃薯条、闭眼打盹？
+5月15日金融一线消息，苏州银行今日发布公告称，该行该行近日收到《江苏金融监管局关于张伟等 6 人苏州银行董事、独立董事任职资格的批复》（苏金复〔2026〕139号），核准张伟、毛竹春、蒋亮等 3 人该行董事的任职资格，核准夏平、赵欣、吴杰等 3 人该行独立董事的任职资格。
 
-特朗普现场观赛，球迷一片嘘声历史首次！
+公开资料显示，张伟，男，1988 年 4 月出生，硕士研究生学历，高级会计师、中级经济师，现任苏州高新区国有资本控股集团有限公司总经理助理。
 
-美国总统特朗普观战NBA总决赛世界杯各种“伙伴”、赞助商、支持商，都有啥区别？
+历任苏州高新区经济发展集团总公司内控部科员、副科长，苏州新港物业服务有限公司财务副总监，苏州苏高新科技产业发展有限公司财务副总监、二级财务总监，苏州苏高新集团有限公司内控部主任助理、副主任等职。
 
-三峡水运新通道“新”在何处？
+毛竹春，男，1973 年 10 月出生，本科学历，注册会计师，现任江苏吴中集团有限公司执行副总裁、财务总监。
 
-金价大跌！
+历任江南学院经济管理学助教，江苏吴中集团有限公司资产审计部经理，江苏吴中集团有限公司财务总监，中国汇融金融控股有限公司执行董事、首席财务官等职。
 
-有人越跌越买，有人变现94万离场《论语》为何说“有教无类”，而非“有诲无类”？
+蒋亮，女，1981 年 11 月出生，硕士研究生学历，现任本行总行群团工作部总经理。
 
-保险公司用“赔付过泰坦尼克号”证明实力？
+历任中国银行悉尼分行公司部客户经理，交通银行总行公司部产品经理、投资管理部投资并购专员（其间挂职交通银行苏州分行零贷部副总经理、授信部副总经理、投行部副总经理、托管部总经理、金融同业部总经理），本行公司银行总部综合管理部副总经理、公司银行总部企划综合部副总经理、总行办公室副主任。
 
-客服回应南方多地高考撞上强降雨，雨水还将持续多久？
+夏平，男，1963 年 7 月出生，研究生学历，硕士学位，正高级经济师。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 05:02 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 04:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 04:47 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 05:07 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 05:00 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 04:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 04:45 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-30 04:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 05:07 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 05:07 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 04:46 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 04:59 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 05:08 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 04:44 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 05:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 05:18 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 05:03 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 04:57 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 04:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 05:16 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 05:01 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 05:12 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 05:05 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 04:51 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-30 04:48 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 04:55 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-30 05:11 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/74823810.shtml)
-- 2026-06-30 04:58 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/26488731211.shtml)
-- 2026-06-30 05:03 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/664576930.shtml)
-- 2026-06-30 04:55 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/24074.shtml)
-- 2026-06-30 04:54 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/2712013.shtml)
-- 2026-06-30 05:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/18151205.shtml)
-- 2026-06-30 04:52 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/5445597097.shtml)
-- 2026-06-30 05:07 - [小娘惹](https://www.blog.minike.top/Article/details/38277032301.shtml)
-- 2026-06-30 04:44 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/403130125301.shtml)
-- 2026-06-30 05:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/89247197707.shtml)
-- 2026-06-30 05:05 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/58306944706.shtml)
-- 2026-06-30 05:10 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/194890337.shtml)
-- 2026-06-30 05:08 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/51331937.shtml)
-- 2026-06-30 05:04 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/515925.shtml)
-- 2026-06-30 04:51 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/011538183.shtml)
+- 2026-06-30 05:11 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/921479096488.shtml)
+- 2026-06-30 05:10 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/67035559.shtml)
+- 2026-06-30 04:53 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/9673009222.shtml)
+- 2026-06-30 05:13 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/98072.shtml)
+- 2026-06-30 04:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/324992274925.shtml)
+- 2026-06-30 05:00 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/83512.shtml)
+- 2026-06-30 05:14 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/96012095562.shtml)
+- 2026-06-30 05:09 - [在巴西能拍到什么？](https://www.share.kurohicncr.top/Article/details/440086887104.shtml)
+- 2026-06-30 05:01 - [乔家的儿女](https://www.blog.minike.top/Article/details/23209.shtml)
+- 2026-06-30 04:57 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/27729256.shtml)
+- 2026-06-30 04:53 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/0284682466.shtml)
+- 2026-06-30 05:16 - [千与千寻](https://www.share.minike.top/Article/details/395267.shtml)
+- 2026-06-30 04:54 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/9014072509.shtml)
+- 2026-06-30 05:09 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/78715.shtml)
+- 2026-06-30 05:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/94305.shtml)

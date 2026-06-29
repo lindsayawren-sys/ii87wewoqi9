@@ -1,48 +1,60 @@
-# 中国国家市场监管总局约谈美宜佳总部
+# 东西问｜美国总统特朗普访华，为何逛北京的这座公园？
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月8日电 中国国家市场监管总局8日公布，针对一段时期以来监管发现和媒体曝光的美宜佳多个门店销售过期食品等食品安全问题，近日，国家市场监管总局依法对美宜佳控股有限公司(即美宜佳总部)负责人进行了责任约谈，要求其严格遵守《中华人民共和国食品安全法》以及《食品销售连锁企业落实食品安全主体责任监督管理规定》等法律法规，建立健全覆盖总部、分支机构、门店等经营管理各层级、经营活
+中新网北京5月14日电 (记者 杜燕 徐婧)5月14日，国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。这座拥有六百多年历史的建筑群，有何独特之处？ 不见“天坛”的天坛 始建于明永乐十八年(1420年)的天坛，初名“天地坛”，实行天地合祀。明嘉靖九年(1530)，改合祀为分祀，在南天门外建圜丘坛，此处专为祭祀上天和祈求丰收的场所，并改名为“天坛”。清代沿用之，遂有今日
 
 ## 正文
 
-中新社北京6月8日电 中国国家市场监管总局8日公布，针对一段时期以来监管发现和媒体曝光的美宜佳多个门店销售过期食品等食品安全问题，近日，国家市场监管总局依法对美宜佳控股有限公司(即美宜佳总部)负责人进行了责任约谈，要求其严格遵守《中华人民共和国食品安全法》以及《食品销售连锁企业落实食品安全主体责任监督管理规定》等法律法规，建立健全覆盖总部、分支机构、门店等经营管理各层级、经营活动全链条的风险管控制度机制和食品安全追溯体系，全面落实食品安全主体责任，切实保障公众饮食安全，保护消费者合法权益。
+中新网北京5月14日电 (记者 杜燕 徐婧)5月14日，国家主席习近平同来华进行国事访问的美国总统特朗普参观天坛。
 
-(完)
+这座拥有六百多年历史的建筑群，有何独特之处？
+
+不见“天坛”的天坛 始建于明永乐十八年(1420年)的天坛，初名“天地坛”，实行天地合祀。
+
+明嘉靖九年(1530)，改合祀为分祀，在南天门外建圜丘坛，此处专为祭祀上天和祈求丰收的场所，并改名为“天坛”。
+
+清代沿用之，遂有今日之格局。
+
+天坛占地273万平方米，面积是紫禁城的近乎四倍。
+
+整体建筑规整有序，呈“回”字形布局，坛域北呈圆形，南为方形，象征“天圆地方”。
+
+内外两道坛墙将坛域划分为内坛和外坛，又以界墙横隔：北为“祈谷坛”，主体建筑祈年殿；南为“圜丘坛”，主体建筑为圜丘。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-30 04:57 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
-- 2026-06-30 04:58 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
-- 2026-06-30 05:04 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-30 05:10 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 04:52 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 05:08 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 05:03 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 05:00 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 04:53 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 04:57 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 05:07 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 04:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-30 05:05 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-30 05:15 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-30 05:17 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 04:52 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-30 05:13 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-30 04:57 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 05:00 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 05:00 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 04:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-30 05:13 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-30 05:15 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 05:04 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-30 04:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-30 04:54 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 04:50 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/455166.shtml)
-- 2026-06-30 04:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/558329.shtml)
-- 2026-06-30 04:51 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/63150.shtml)
-- 2026-06-30 04:53 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/999196404549.shtml)
-- 2026-06-30 04:46 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/73018390922.shtml)
-- 2026-06-30 05:07 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/13719918.shtml)
-- 2026-06-30 05:02 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/736573.shtml)
-- 2026-06-30 04:47 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/77156144975.shtml)
-- 2026-06-30 05:11 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/350800.shtml)
-- 2026-06-30 05:00 - [詹姆斯 勇士](https://www.share.minike.top/Article/details/89539237.shtml)
-- 2026-06-30 04:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.share.kurohicncr.top/Article/details/2134559895.shtml)
-- 2026-06-30 04:50 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/7803835279.shtml)
-- 2026-06-30 04:47 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/197816.shtml)
-- 2026-06-30 04:45 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/818509.shtml)
-- 2026-06-30 05:00 - [TOP Prada](https://www.share.minike.top/Article/details/28210247605.shtml)
+- 2026-06-30 05:10 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/29524476182.shtml)
+- 2026-06-30 04:57 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/90042708.shtml)
+- 2026-06-30 05:09 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/269919085356.shtml)
+- 2026-06-30 05:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/647957028975.shtml)
+- 2026-06-30 04:56 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/051820.shtml)
+- 2026-06-30 05:08 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/18786045380.shtml)
+- 2026-06-30 05:16 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/83344604.shtml)
+- 2026-06-30 05:12 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/893365.shtml)
+- 2026-06-30 04:57 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/146267551626.shtml)
+- 2026-06-30 04:48 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/40411111809.shtml)
+- 2026-06-30 04:59 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/28543626971.shtml)
+- 2026-06-30 04:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/06706198.shtml)
+- 2026-06-30 04:52 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/60687690686.shtml)
+- 2026-06-30 05:06 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/845149963.shtml)
+- 2026-06-30 05:00 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/923247792.shtml)

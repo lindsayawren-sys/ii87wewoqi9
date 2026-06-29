@@ -1,58 +1,58 @@
-# 遇持续强降雨 长途旅行如何做好全程攻略
+# 佛吉亚潘锋：重卡长途运输是氢能主要推广方向，百公里成本可降至200元
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-近日有网友反映，6月6日，长春至昆明的Z328次旅客列车在出发7小时后，在第四站山海关站折返。记者从国铁沈阳局了解到，事发原因是列车行至山海关站，接到天气预警，列车即将途经的沪昆铁路大龙至贵定区段普降暴雨，为主动避险，确保旅客列车运行安全，调度部门根据实际情况向列车下发折返指令。车上旅客未乘区段全额退票，一部分在山海关自行下车换乘其他交通工具，另一部分跟随列车原路返回始发地。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。佛吉亚氢能中国区总经理潘锋在演讲表示，在“又重又长”的49吨重卡、跨省跨长途运输场景下，氢能车是主要的推广方向。 潘锋解释到，纯电动重卡存在电池重量较大、补能时间较长的问题，而氢能车补能快、对续航帮助大。目前中国“又重又长”的重卡物流车辆约有400万台，基本上全部
 
 ## 正文
 
-近日有网友反映，6月6日，长春至昆明的Z328次旅客列车在出发7小时后，在第四站山海关站折返。
+专题：第十八届轩辕汽车蓝皮书论坛 5月15日-5月17日，“第十八届轩辕汽车蓝皮书论坛”在广州举行，主题为“转折”。
 
-记者从国铁沈阳局了解到，事发原因是列车行至山海关站，接到天气预警，列车即将途经的沪昆铁路大龙至贵定区段普降暴雨，为主动避险，确保旅客列车运行安全，调度部门根据实际情况向列车下发折返指令。
+佛吉亚氢能中国区总经理潘锋在演讲表示，在“又重又长”的49吨重卡、跨省跨长途运输场景下，氢能车是主要的推广方向。
 
-车上旅客未乘区段全额退票，一部分在山海关自行下车换乘其他交通工具，另一部分跟随列车原路返回始发地。
+潘锋解释到，纯电动重卡存在电池重量较大、补能时间较长的问题，而氢能车补能快、对续航帮助大。
 
-遇持续强降雨 长途旅行如何做好全程攻略 近期多地持续强降雨天气，给长途旅行带来诸多不便，有计划乘坐长途列车出行的旅客该如何做好全程攻略，以确保顺利出行呢？
+目前中国“又重又长”的重卡物流车辆约有400万台，基本上全部使用柴油或天然气。
 
-首先要查询列车运行图，以Z328次列车为例，从时长上来说，全程运行时间49小时，相当于两天两夜，旅客购票时要查询列车运行全程的沿线天气预报。
+据他测算，如果氢气价格降至每公斤25元以下，按百公里氢耗8公斤计算，百公里运行成本可做到约200元，就可以与柴油、天然气的运行成本竞争。
 
-此外，列车运行线路也要提前关注，从长春到昆明的这趟列车在湖南、贵州两省途经山区线路较多，雨季行车线路受降雨影响较大。
+“这400万台柴油和天然气重卡的新能源替代，氢能将是一个很大的板块。
 
-国铁成都局六盘水工电段桥路检查工区工长 王鑫：综合雨量数据和现场情况，来研判是直接通行、迂回，还是直接折返或终止运行，这就是我们说的“源头避险”。
+” 此外，在中短距离运输领域，他预计，新能源化主要向电动化方向发展。
 
-铁路沿线降雨量达到一定值后，可能会引发道床冲空等问题，危及行车安全，遇极端天气铁路优先保障安全，临时调整属于避险刚需。
+但其中一个细分板块——冷链物流，电动与氢能可以形成互补。
 
 ## 相关推荐
 
-- 2026-06-30 05:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-30 05:03 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 04:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 04:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 05:06 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
-- 2026-06-30 05:10 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
-- 2026-06-30 04:46 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 05:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-30 05:06 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 05:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 05:04 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
-- 2026-06-30 05:08 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 05:04 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 05:13 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 04:56 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 04:51 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-30 05:16 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-30 04:54 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 05:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-30 04:56 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-30 04:55 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 05:01 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 05:04 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 04:54 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:00 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/70501560348.shtml)
-- 2026-06-30 05:02 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/626513574.shtml)
-- 2026-06-30 04:54 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/71460795762.shtml)
-- 2026-06-30 05:02 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/36549308.shtml)
-- 2026-06-30 05:07 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/11804492.shtml)
-- 2026-06-30 04:47 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/250687977577.shtml)
-- 2026-06-30 04:52 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/338047026.shtml)
-- 2026-06-30 05:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/813088244.shtml)
-- 2026-06-30 05:01 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/5112447.shtml)
-- 2026-06-30 05:01 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/49024508553.shtml)
-- 2026-06-30 05:10 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/983288.shtml)
-- 2026-06-30 04:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/37606615399.shtml)
-- 2026-06-30 05:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/261735.shtml)
-- 2026-06-30 05:06 - [陈小云又好好的养了自己一年](https://www.share.minike.top/Article/details/540620858.shtml)
-- 2026-06-30 05:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/2341588948.shtml)
+- 2026-06-30 04:55 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/7491272472.shtml)
+- 2026-06-30 04:54 - [金刚川](https://www.blog.kurohicncr.top/Article/details/6702962069.shtml)
+- 2026-06-30 05:00 - [金刚川](http://www.share.kurohicncr.top/Article/details/156421146317.shtml)
+- 2026-06-30 04:51 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/96211.shtml)
+- 2026-06-30 05:16 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/32233792.shtml)
+- 2026-06-30 05:10 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/890771450830.shtml)
+- 2026-06-30 05:11 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/997274980.shtml)
+- 2026-06-30 05:17 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/120912.shtml)
+- 2026-06-30 04:51 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/43920861943.shtml)
+- 2026-06-30 04:52 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/918146574554.shtml)
+- 2026-06-30 04:54 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/850102358122.shtml)
+- 2026-06-30 05:02 - [警犬“多多”助民警寻回失联老人](https://www.blog.minike.top/Article/details/48030618.shtml)
+- 2026-06-30 05:11 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/031727.shtml)
+- 2026-06-30 05:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/0545939.shtml)
+- 2026-06-30 05:12 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/826927125189.shtml)

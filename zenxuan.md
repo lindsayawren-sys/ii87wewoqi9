@@ -1,59 +1,53 @@
-# 日经指数下跌3.7%，受电子和金属股拖累 软银集团股价下跌9%
+# 东北书博会设《救国时报》手创空间 民众重温抗战岁月
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-日本股市下跌，此前周五强劲的美国就业数据提升了对美联储可能加息的预期，并重创美国科技股。在伊朗周日向以色列发射多波导弹后，对中东局势的不确定性也令市场承压。日经指数下跌3.7%，报64110.41点。 电子和金属股领跌。东京电子下跌5.1%，JX Advanced Metals下跌5.8%。软银集团股价下跌9%。投资者正密切关注中东局势的发展。责任编辑：王永生
+发布时间：2026年05月15日 21:10 来源：中国新闻网 5月15日，在吉林长春举办的第三届东北图书交易博览会上，《救国时报》手工体验空间展位吸引众多参观者驻足。现场民众通过粘贴贴纸的形式，选取相关文稿与历史图片、设计版面样式，手工制作一张“报纸”，在沉浸式体验中重温抗战历史。 据介绍，贴纸素材均取自《救国时报》影印版面，内容涵盖抗战时期有关东北抗联、海外华侨华人的新闻报
 
 ## 正文
 
-日本股市下跌，此前周五强劲的美国就业数据提升了对美联储可能加息的预期，并重创美国科技股。
+发布时间：2026年05月15日 21:10 来源：中国新闻网 5月15日，在吉林长春举办的第三届东北图书交易博览会上，《救国时报》手工体验空间展位吸引众多参观者驻足。
 
-在伊朗周日向以色列发射多波导弹后，对中东局势的不确定性也令市场承压。
+现场民众通过粘贴贴纸的形式，选取相关文稿与历史图片、设计版面样式，手工制作一张“报纸”，在沉浸式体验中重温抗战历史。
 
-日经指数下跌3.7%，报64110.41点。
+据介绍，贴纸素材均取自《救国时报》影印版面，内容涵盖抗战时期有关东北抗联、海外华侨华人的新闻报道与历史影像资料。
 
-电子和金属股领跌。
+1935年，中国共产党在法国巴黎创办《救国时报》，对宣传中国共产党的抗战主张、发动海内外同胞团结抗战、揭露日本侵略者暴行等方面作出了重大贡献。
 
-东京电子下跌5.1%，JX Advanced Metals下跌5.8%。
-
-软银集团股价下跌9%。
-
-投资者正密切关注中东局势的发展。
-
-责任编辑：王永生
+(高龙安 金乔 制作 乐小敏) 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-30 04:49 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 04:50 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-30 05:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 04:58 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-30 05:06 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 04:50 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-30 05:00 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-30 04:46 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
-- 2026-06-30 05:01 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
-- 2026-06-30 04:59 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 05:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-30 04:58 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 04:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 04:54 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 05:01 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 05:07 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-30 04:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 05:06 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 05:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 04:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 04:56 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
+- 2026-06-30 04:49 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 04:58 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-30 05:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-30 04:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/537546.shtml)
-- 2026-06-30 05:10 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/09722908906.shtml)
-- 2026-06-30 04:54 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/36261687674.shtml)
-- 2026-06-30 04:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/7712774969.shtml)
-- 2026-06-30 04:59 - [送你一朵小红花](https://www.blog.minike.top/Article/details/542545.shtml)
-- 2026-06-30 05:11 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/818872361.shtml)
-- 2026-06-30 04:47 - [日本进球](http://www.share.kurohicncr.top/Article/details/206280960937.shtml)
-- 2026-06-30 05:04 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/33563156590.shtml)
-- 2026-06-30 05:06 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/1984179.shtml)
-- 2026-06-30 05:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/19336.shtml)
-- 2026-06-30 05:06 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/6149987075.shtml)
-- 2026-06-30 04:56 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/93473924.shtml)
-- 2026-06-30 04:50 - [巴西绝杀日本](https://www.share.kurohicncr.top/Article/details/606219420.shtml)
-- 2026-06-30 04:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/40370.shtml)
-- 2026-06-30 04:59 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/952566317711.shtml)
+- 2026-06-30 04:58 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/9855575.shtml)
+- 2026-06-30 04:50 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/7960147297.shtml)
+- 2026-06-30 05:00 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/439405.shtml)
+- 2026-06-30 04:53 - [周杰伦的歌勾起25年友情](https://www.share.minike.top/Article/details/2917387932.shtml)
+- 2026-06-30 04:52 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/161670507563.shtml)
+- 2026-06-30 05:04 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/564581397.shtml)
+- 2026-06-30 05:08 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/37736500445.shtml)
+- 2026-06-30 04:51 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/39602.shtml)
+- 2026-06-30 05:08 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/4382738.shtml)
+- 2026-06-30 05:06 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/12854357.shtml)
+- 2026-06-30 04:55 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/46782990726.shtml)
+- 2026-06-30 04:55 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/8918504153.shtml)
+- 2026-06-30 05:02 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/2109985473.shtml)
+- 2026-06-30 04:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/09149730.shtml)
+- 2026-06-30 05:05 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/091277.shtml)

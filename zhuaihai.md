@@ -1,55 +1,55 @@
-# 广东暴雨 启动防汛Ⅳ级应急响应
+# 世行预计越南今年经济增速放缓至6.8%
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新网广州6月8日电 (记者 王坚)受高空波动和切变线影响，广东多地8日中午遭遇暴雨。广东于8日10时启动防汛Ⅳ级应急响应。截至当日13时2分，封开、信宜、高州、化州等地暴雨橙色预警，以及全省26个暴雨黄色预警和52个雷雨大风黄色预警处于生效中。 广东省应急管理厅介绍，据气象部门监测预报，6月8至9日，全省有大雨到暴雨，其中粤东、珠江三角洲南部、粤西的部分市县有暴雨局部大暴雨或
+世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。 世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。 世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。” 越南的目标是今年及未来十年每年GDP增速至少达到10%。 受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的
 
 ## 正文
 
-中新网广州6月8日电 (记者 王坚)受高空波动和切变线影响，广东多地8日中午遭遇暴雨。
+世界银行周五表示，预计越南今年的经济增速将从去年的8%放缓至6.8%。
 
-广东于8日10时启动防汛Ⅳ级应急响应。
+世界银行在一份声明中指出，越南的经济前景依然稳健，但短期内风险仍然较高。
 
-截至当日13时2分，封开、信宜、高州、化州等地暴雨橙色预警，以及全省26个暴雨黄色预警和52个雷雨大风黄色预警处于生效中。
+世界银行驻越南主任玛丽亚姆·谢尔曼表示：“全球经济疲软加剧了越南外部环境的挑战，石油危机更是雪上加霜。
 
-广东省应急管理厅介绍，据气象部门监测预报，6月8至9日，全省有大雨到暴雨，其中粤东、珠江三角洲南部、粤西的部分市县有暴雨局部大暴雨或特大暴雨，雷雨时伴有短时强降水和局地8至10级短时大风等强对流天气，发生中小河流洪水、山洪和地质灾害、城乡内涝等灾害风险较大。
+” 越南的目标是今年及未来十年每年GDP增速至少达到10%。
 
-广东省防汛防旱防风总指挥部要求，各地各部门要加强会商研判，及时启动应急响应，落实各项防御措施，全力保障人民群众生命财产安全，最大程度降低灾害损失。
+受伊朗冲突影响，越南面临通胀压力，4月份通胀率高于政府设定的4.5%的目标。
 
-当前正值高考期间，各地及教育、交通、电力、公安、消防等部门要做好洪涝灾害应急处突准备，在高考考点、城市易涝点、重要电力设施等重点部位提前预置消防救援、应急排涝、电力抢修、交通保畅等专业应急队伍，第一时间处置突发险情灾情，全力保障高考顺利进行。
-
-(完)
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 04:53 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 05:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 04:54 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 04:45 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 04:46 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 04:48 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 04:52 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-30 04:50 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 04:48 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 05:08 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 05:06 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 05:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 05:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-30 05:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-30 05:05 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 05:06 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 04:59 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 05:02 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 04:59 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 05:04 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 04:58 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-30 05:14 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 05:16 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 04:54 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/69579514047.shtml)
-- 2026-06-30 04:47 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/8832221.shtml)
-- 2026-06-30 05:06 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/04877.shtml)
-- 2026-06-30 05:09 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/784488798498.shtml)
-- 2026-06-30 05:01 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/3972267543.shtml)
-- 2026-06-30 05:09 - [星链在轨运行卫星已突破1.24万颗](http://www.share.minike.top/Article/details/2518791049.shtml)
-- 2026-06-30 04:56 - [我们的少年时代2](http://www.share.minike.top/Article/details/90233546.shtml)
-- 2026-06-30 05:02 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/218975412634.shtml)
-- 2026-06-30 05:04 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/918873513.shtml)
-- 2026-06-30 05:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/07356050885.shtml)
-- 2026-06-30 04:48 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/674730853.shtml)
-- 2026-06-30 04:56 - [真实感受到千香是积压剧了](http://www.share.kurohicncr.top/Article/details/75040982649.shtml)
-- 2026-06-30 05:00 - [极限挑战第一季](https://www.blog.minike.top/Article/details/913570.shtml)
-- 2026-06-30 04:59 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/553201759119.shtml)
-- 2026-06-30 04:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/98973777703.shtml)
+- 2026-06-30 05:13 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/45983467.shtml)
+- 2026-06-30 05:02 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/238652609707.shtml)
+- 2026-06-30 05:11 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/846922373.shtml)
+- 2026-06-30 05:15 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/1251327920.shtml)
+- 2026-06-30 04:56 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/678592071.shtml)
+- 2026-06-30 04:54 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/09431.shtml)
+- 2026-06-30 05:01 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/4743101684.shtml)
+- 2026-06-30 04:50 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/345661922421.shtml)
+- 2026-06-30 04:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/75908.shtml)
+- 2026-06-30 04:49 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/918280419.shtml)
+- 2026-06-30 04:54 - [恋与深空 日服](https://www.blog.minike.top/Article/details/272171084426.shtml)
+- 2026-06-30 04:57 - [扫黑风暴](https://www.blog.minike.top/Article/details/53233438711.shtml)
+- 2026-06-30 05:11 - [人类...完蛋了...](https://www.share.minike.top/Article/details/22010923431.shtml)
+- 2026-06-30 05:14 - [安切洛蒂 换人](http://www.share.kurohicncr.top/Article/details/83108.shtml)
+- 2026-06-30 04:58 - [流金岁月](http://www.blog.minike.top/Article/details/451470440.shtml)

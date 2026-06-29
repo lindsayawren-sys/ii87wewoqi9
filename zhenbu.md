@@ -1,51 +1,55 @@
-# 星悦康旅获宋浩东增持96.4万股 每股作价0.27港元
+# Anthropic同意以9000亿美元估值开展融资轮的条款
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-香港联交所最新数据显示，6月5日，宋浩东增持星悦康旅（03662）96.4万股，每股作价0.27港元，总金额约为26.03万港元。增持后最新持股数目为7293.3万股，最新持股比例为10.04%。责任编辑：卢昱君
+据媒体援引两位知情人士的消息报道，投资者Dragoneer、Greenoaks、红杉资本和Altimeter Capital已同意共同领投Anthropic的融资轮。 每位共同领投方可能投资20亿美元或更多。 Anthropic正在与其他投资者洽谈，以筹措余下资金。 在交易正式公布之前，条款仍可能发生变化。 Anthropic的年化收入预计将很快突破450亿美元。 Anthro
 
 ## 正文
 
-香港联交所最新数据显示，6月5日，宋浩东增持星悦康旅（03662）96.4万股，每股作价0.27港元，总金额约为26.03万港元。
+据媒体援引两位知情人士的消息报道，投资者Dragoneer、Greenoaks、红杉资本和Altimeter Capital已同意共同领投Anthropic的融资轮。
 
-增持后最新持股数目为7293.3万股，最新持股比例为10.04%。
+每位共同领投方可能投资20亿美元或更多。
 
-责任编辑：卢昱君
+Anthropic正在与其他投资者洽谈，以筹措余下资金。
+
+在交易正式公布之前，条款仍可能发生变化。
+
+Anthropic的年化收入预计将很快突破450亿美元。
+
+Anthropic和红杉资本不予置评；Dragoneer、Altimeter和Greenoaks暂未回复置评请求。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 04:49 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-30 04:56 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-30 04:46 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 04:45 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 04:56 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 05:06 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-30 04:54 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 04:57 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-30 04:52 - [内马尔替补](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 05:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 05:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 05:07 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 04:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 04:51 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-30 05:03 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 05:08 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 05:15 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 05:17 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-30 05:04 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-30 04:59 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-30 05:03 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 04:59 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 05:15 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 04:58 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-30 04:52 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:03 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/89057045.shtml)
-- 2026-06-30 04:56 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/72886005.shtml)
-- 2026-06-30 05:07 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/421133405372.shtml)
-- 2026-06-30 04:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/8699129989.shtml)
-- 2026-06-30 04:58 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/241586.shtml)
-- 2026-06-30 04:54 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/725405013.shtml)
-- 2026-06-30 04:55 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/453594527.shtml)
-- 2026-06-30 04:56 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/5464976.shtml)
-- 2026-06-30 04:47 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/01207.shtml)
-- 2026-06-30 05:06 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/191886702.shtml)
-- 2026-06-30 04:45 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/103006.shtml)
-- 2026-06-30 04:50 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/286498288.shtml)
-- 2026-06-30 04:59 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/67044487.shtml)
-- 2026-06-30 04:57 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/885784961.shtml)
-- 2026-06-30 04:56 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.minike.top/Article/details/87032542.shtml)
+- 2026-06-30 04:52 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/937823.shtml)
+- 2026-06-30 05:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/6771285425.shtml)
+- 2026-06-30 05:02 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/4294628.shtml)
+- 2026-06-30 04:51 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/1514642.shtml)
+- 2026-06-30 04:56 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/61617.shtml)
+- 2026-06-30 05:15 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/24586533.shtml)
+- 2026-06-30 05:12 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/1185898.shtml)
+- 2026-06-30 05:07 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/81117.shtml)
+- 2026-06-30 04:50 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/8208709989.shtml)
+- 2026-06-30 04:54 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/07375512.shtml)
+- 2026-06-30 04:59 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/37874614781.shtml)
+- 2026-06-30 04:58 - [乔家的儿女](http://www.share.minike.top/Article/details/80704.shtml)
+- 2026-06-30 05:02 - [巴西2-1绝杀日本](http://www.blog.kurohicncr.top/Article/details/78864.shtml)
+- 2026-06-30 05:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/8669956884.shtml)
+- 2026-06-30 04:52 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/438686967552.shtml)

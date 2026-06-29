@@ -1,59 +1,58 @@
-# 订单护航+科技助力 各地抢抓农时守好“粮袋子”
+# 作家鲁引弓在穗谈家庭教育：“舍得之间 静待花开”
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-农业农村部最新小麦机收进度显示，截至昨天17时，全国已收获夏粮小麦2.1亿亩，收获进度61.82%。安徽麦收基本完成，河南过九成半，江苏过六成半，山东过三成，陕西过两成半，山西过一成，河北近一成。 小麦迎集中收获期 父子搭档收麦忙 眼下，山西运城市的435万亩小麦迎来集中收获期。在盐湖区的田间地头，一对父子农机手搭档上阵、分工协作，从早忙到晚。正午时分，在山西运城市盐湖区的一块
+中新网广州5月15日电 (程景伟 林菁)今年5月15日是第33个国际家庭日。“世纪风华”系列首场活动——“舍得之间 静待花开”家庭主题讲座14日在广州陈济棠公馆举行，知名作家鲁引弓就家庭教育等话题进行了分享。 鲁引弓的代表作是被誉为“中国教育四重奏”的《小别离》《小欢喜》《小舍得》《小痛爱》。这一系列小说聚焦低龄留学、中考、高考、小升初乃至爱的教育，覆盖了从幼儿园到高考的全部教
 
 ## 正文
 
-农业农村部最新小麦机收进度显示，截至昨天17时，全国已收获夏粮小麦2.1亿亩，收获进度61.82%。
+中新网广州5月15日电 (程景伟 林菁)今年5月15日是第33个国际家庭日。
 
-安徽麦收基本完成，河南过九成半，江苏过六成半，山东过三成，陕西过两成半，山西过一成，河北近一成。
+“世纪风华”系列首场活动——“舍得之间 静待花开”家庭主题讲座14日在广州陈济棠公馆举行，知名作家鲁引弓就家庭教育等话题进行了分享。
 
-小麦迎集中收获期 父子搭档收麦忙 眼下，山西运城市的435万亩小麦迎来集中收获期。
+鲁引弓的代表作是被誉为“中国教育四重奏”的《小别离》《小欢喜》《小舍得》《小痛爱》。
 
-在盐湖区的田间地头，一对父子农机手搭档上阵、分工协作，从早忙到晚。
+这一系列小说聚焦低龄留学、中考、高考、小升初乃至爱的教育，覆盖了从幼儿园到高考的全部教育节点，将社会发展中的教育、阶层与家庭关系熔于一炉，以文学的共情力为无数家庭“松绑”。
 
-正午时分，在山西运城市盐湖区的一块麦田里，90后农机手王帅还在忙碌。
+鲁引弓也因此被读者称为“最懂中国家庭的作家”。
 
-为了抓紧收完这块地，他从早上7点开始就下地干活了，顾不上喝水、吃饭。
+此后，他还创作了《小宅门》《小欢喜2》等作品，持续以“小切口”描摹大时代的众生百态。
 
-王帅忙着收割村里的大块田，父亲王俊明则负责收割小地块。
+活动现场，鲁引弓表示，在一些中国家庭，孩子在考试分数上“多一分”被当成天大的事。
 
-有的田地情况复杂，需要先清理碎石、杂物，才能开始作业。
+但那“一分”本质上只是筛选工具，并非代表真正的优秀。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-30 04:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 04:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-30 04:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-30 04:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 04:43 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 04:52 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-30 04:57 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 05:00 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-30 04:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 04:51 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 04:51 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 05:06 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 04:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 04:58 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 04:49 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 04:59 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-30 05:11 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 04:48 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-30 05:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 05:13 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 05:13 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 04:50 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 04:54 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 04:52 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/595172842.shtml)
-- 2026-06-30 04:53 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/8594178.shtml)
-- 2026-06-30 04:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/058622783648.shtml)
-- 2026-06-30 05:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/06231323723.shtml)
-- 2026-06-30 04:55 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/16018898098.shtml)
-- 2026-06-30 04:45 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/15629.shtml)
-- 2026-06-30 04:57 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/2920831.shtml)
-- 2026-06-30 04:43 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/40290201254.shtml)
-- 2026-06-30 04:47 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/09690.shtml)
-- 2026-06-30 04:53 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.minike.top/Article/details/747419591.shtml)
-- 2026-06-30 05:11 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/39026.shtml)
-- 2026-06-30 05:04 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/25487620.shtml)
-- 2026-06-30 05:10 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/28097293942.shtml)
-- 2026-06-30 04:56 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/43318496351.shtml)
-- 2026-06-30 04:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/0554437.shtml)
+- 2026-06-30 05:10 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/626945292.shtml)
+- 2026-06-30 05:10 - [法国小学众筹装空调后市长下令拆除](http://www.share.kurohicncr.top/Article/details/2636156.shtml)
+- 2026-06-30 05:06 - [电影后室值得看吗](https://www.share.minike.top/Article/details/00139245902.shtml)
+- 2026-06-30 04:56 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/74160441002.shtml)
+- 2026-06-30 05:03 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/30880376.shtml)
+- 2026-06-30 05:16 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/60509.shtml)
+- 2026-06-30 04:57 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/18264.shtml)
+- 2026-06-30 05:02 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/8196492325.shtml)
+- 2026-06-30 05:05 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/22177823135.shtml)
+- 2026-06-30 05:12 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/731327003.shtml)
+- 2026-06-30 05:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/45459354.shtml)
+- 2026-06-30 05:07 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.kurohicncr.top/Article/details/181236.shtml)
+- 2026-06-30 04:52 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/87913.shtml)
+- 2026-06-30 04:58 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/994388089.shtml)
+- 2026-06-30 05:04 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/1413890633.shtml)

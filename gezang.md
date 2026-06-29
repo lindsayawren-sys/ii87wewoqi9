@@ -1,57 +1,56 @@
-# 万里长征记（伟大征程）
+# 宗馥莉出手！宏胜集团人事“大地震”：行政、销售、法务、生产四大业务负责人均已离职，宗馥莉直管营销中心
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-人民日报 本报记者 贾丰丰 陕北黄土高原，阳光洒在中央红军长征胜利纪念馆的墙面上。纪念馆展厅里，人潮涌动。展柜中，磨穿的草鞋、锈迹斑斑的马灯、泛黄的行军文件等，静静地诉说着历史。 “当年，将士们跨越千山万水，为民族解放奋勇向前；今天，老区儿女接过火炬，为中华民族伟大复兴贡献力量。”中央红军长征胜利纪念馆讲解员张晓芹说。1935年10月19日，中央红军抵达陕西吴起。两天后，“切尾
+记者|叶晓丹编辑|何小桃 杨翼 杜恒峰校对|金冥羽5月14日，《每日经济新闻》记者从多个信源处获悉，宏胜集团总裁办主任叶雅琼离职。据消息人士透露，叶雅琼此前为宏胜集团的核心骨干成员之一。5月14日，《每日经济新闻》记者向娃哈哈方面求证此事，未有回应。天眼查信息显示，2024年8月，叶雅琼等人作为新董事入驻娃哈哈集团董事会，此前娃哈哈几名老臣悉数退场。公开报道显示，叶雅琼于202
 
 ## 正文
 
-人民日报 本报记者 贾丰丰 陕北黄土高原，阳光洒在中央红军长征胜利纪念馆的墙面上。
+记者|叶晓丹编辑|何小桃 杨翼 杜恒峰校对|金冥羽5月14日，《每日经济新闻》记者从多个信源处获悉，宏胜集团总裁办主任叶雅琼离职。
 
-纪念馆展厅里，人潮涌动。
+据消息人士透露，叶雅琼此前为宏胜集团的核心骨干成员之一。
 
-展柜中，磨穿的草鞋、锈迹斑斑的马灯、泛黄的行军文件等，静静地诉说着历史。
+5月14日，《每日经济新闻》记者向娃哈哈方面求证此事，未有回应。
 
-“当年，将士们跨越千山万水，为民族解放奋勇向前；今天，老区儿女接过火炬，为中华民族伟大复兴贡献力量。
+天眼查信息显示，2024年8月，叶雅琼等人作为新董事入驻娃哈哈集团董事会，此前娃哈哈几名老臣悉数退场。
 
-”中央红军长征胜利纪念馆讲解员张晓芹说。
+公开报道显示，叶雅琼于2021年任娃哈哈集团旗下销售公司的党支部书记，2023年出任集团营销中心办公室主任，此后还担任娃哈哈集团政务中心总监。
 
-1935年10月19日，中央红军抵达陕西吴起。
+此外，叶雅琼还担任宏胜集团总裁办主任。
 
-两天后，“切尾巴”战役打响，中央红军赢得长征最后一仗的胜利。
+5月14日，《每日经济新闻》记者查询天眼查了解到，目前，叶雅琼仍担任杭州娃哈哈集团有限公司、浙江娃哈哈实业股份有限公司董事一职。
 
-时隔90余年，人们站在纪念馆门口远眺，可见绿染黄土，满目苍翠。
+据财新网报道，多名人士透露，与叶雅琼同期离任的，还有宏胜集团销售总经理吴汀燕、法务部部长周卓盈，及生产管理科科长吴潘潘。
 
 ## 相关推荐
 
-- 2026-06-30 04:44 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-30 04:49 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 05:05 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 04:45 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 04:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-30 04:46 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 04:56 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
-- 2026-06-30 05:00 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
-- 2026-06-30 04:42 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 04:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-30 05:02 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 05:01 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 05:13 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-30 05:14 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 05:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 05:12 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-30 04:53 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 05:13 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-30 05:02 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-30 04:49 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 05:12 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/936844.shtml)
-- 2026-06-30 05:05 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/705494417914.shtml)
-- 2026-06-30 04:46 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/471196399.shtml)
-- 2026-06-30 04:46 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/377509.shtml)
-- 2026-06-30 05:05 - [张帅时隔四年晋级温网第二轮](http://www.blog.minike.top/Article/details/078796245615.shtml)
-- 2026-06-30 04:48 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/5183619.shtml)
-- 2026-06-30 05:06 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.minike.top/Article/details/8664319247.shtml)
-- 2026-06-30 04:48 - [穆祉丞年度人气艺人](https://www.share.minike.top/Article/details/04299495.shtml)
-- 2026-06-30 05:00 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/6112587539.shtml)
-- 2026-06-30 05:04 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/03368016.shtml)
-- 2026-06-30 05:05 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/11728.shtml)
-- 2026-06-30 04:47 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/14891679.shtml)
-- 2026-06-30 05:06 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/78873.shtml)
-- 2026-06-30 04:54 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/48526.shtml)
-- 2026-06-30 05:07 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/6681522791.shtml)
+- 2026-06-30 05:00 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/8908932027.shtml)
+- 2026-06-30 05:10 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/18645052075.shtml)
+- 2026-06-30 04:59 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/90841154599.shtml)
+- 2026-06-30 05:16 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/2033113754.shtml)
+- 2026-06-30 04:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/71578.shtml)
+- 2026-06-30 05:05 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/150591602.shtml)
+- 2026-06-30 05:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/169802756.shtml)
+- 2026-06-30 04:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/815597937.shtml)
+- 2026-06-30 04:59 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/48671.shtml)
+- 2026-06-30 04:57 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/440222.shtml)
+- 2026-06-30 04:53 - [日本反击率先破门](https://www.share.minike.top/Article/details/164823.shtml)
+- 2026-06-30 04:51 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/898038570.shtml)
+- 2026-06-30 04:51 - [严浩翔张峻豪师兄弟同台](https://www.share.kurohicncr.top/Article/details/54533.shtml)
+- 2026-06-30 04:55 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/331188849293.shtml)
+- 2026-06-30 04:58 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/117775912283.shtml)

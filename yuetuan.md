@@ -1,58 +1,57 @@
-# WWDC26：库克以首席执行官身份出席的最后一届苹果全球开发者大会
+# 韩股收盘暴跌逾6%，短暂突破8000点后遭外资抛售
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-这场苹果软件生态发布会提前揭晓iOS、macOS等系统的全新功能。据传Siri将迎来重大升级，同时这也是库克以首席执行官身份出席的最后一届苹果全球开发者大会。 苹果年度中期软件盛会——2026苹果全球开发者大会（WWDC）将于6月8日明日上午10点（太平洋时间）在苹果园区开启主旨演讲，对应东部时间下午1点、英国夏令时傍晚6点。我们将近距离了解这家科技巨头今年晚些时候为全球数亿台
+韩国股市周五暴跌逾6%，尽管早盘一度短暂突破历史性的8000点大关。投资者在经历创纪录的上涨后，纷纷抛售科技股和其他权重股，而中东危机带来的不确定性也持续存在。 韩国综合股价指数（KOSPI）下跌488.23点，跌幅6.12%，收于7493.18点，盘中最高触及8046.78点。 该指数开盘小幅走低，但不久便开始上涨，迅速突破8000点大关，这主要得益于隔夜华尔街股市的上涨，而
 
 ## 正文
 
-这场苹果软件生态发布会提前揭晓iOS、macOS等系统的全新功能。
+韩国股市周五暴跌逾6%，尽管早盘一度短暂突破历史性的8000点大关。
 
-据传Siri将迎来重大升级，同时这也是库克以首席执行官身份出席的最后一届苹果全球开发者大会。
+投资者在经历创纪录的上涨后，纷纷抛售科技股和其他权重股，而中东危机带来的不确定性也持续存在。
 
-苹果年度中期软件盛会——2026苹果全球开发者大会（WWDC）将于6月8日明日上午10点（太平洋时间）在苹果园区开启主旨演讲，对应东部时间下午1点、英国夏令时傍晚6点。
+韩国综合股价指数（KOSPI）下跌488.23点，跌幅6.12%，收于7493.18点，盘中最高触及8046.78点。
 
-我们将近距离了解这家科技巨头今年晚些时候为全球数亿台iPhone、Mac以及AppleWatch准备的系统更新内容。
+该指数开盘小幅走低，但不久便开始上涨，迅速突破8000点大关，这主要得益于隔夜华尔街股市的上涨，而后者的上涨又受到人工智能（AI）相关股票大幅上涨和地缘政治乐观局面的提振。
 
-更值得关注的是，本届大会发布的信息也有望透露苹果下半年的硬件新品动向，包括iPhone18以及传闻已久的折叠屏iPhone。
+然而，在取得这一成就后不久，KOSPI开始暴跌，一度跌至7371.68点，并在当地时间下午1点28分左右触发了卖方熔断指令。
 
-我们基本可以确定本次大会的发布内容：今年晚些时候将推出新版iOS、iPadOS、macOS以及watchOS，发布会结束后开发者大概率就能下载对应的测试版。
+这是自4月2日以来，韩国主要交易所运营商首次发布卖方熔断指令。
 
-按照以往惯例，苹果会在7月向公众开放新版系统测试版。
+当天成交量巨大，达到 8.787 亿股，成交额达57.8 万亿韩元（385 亿美元），其中下跌股数量远超上涨股数量，比例为 704 对 165。
 
-外界预计苹果还会公布其他项目进展，包括将谷歌Gemini人工智能模型接入Siri，以及对苹果智能体系进行更多优化升级。
+分析师表示，由于投资者，尤其是外国投资者，纷纷抛售大型半导体和科技股获利了结，该指数面临沉重的抛售压力。
 
 ## 相关推荐
 
-- 2026-06-30 05:08 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-30 04:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
-- 2026-06-30 05:09 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 05:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-30 04:55 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 05:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 05:09 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:58 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-30 05:08 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-30 04:54 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 04:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-30 04:50 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-30 05:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-30 04:52 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-30 05:17 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 04:53 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 05:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 05:17 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 05:10 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 05:13 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 05:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 04:59 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 05:09 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:50 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/31574.shtml)
-- 2026-06-30 05:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.minike.top/Article/details/362625265352.shtml)
-- 2026-06-30 04:45 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/5649819.shtml)
-- 2026-06-30 04:51 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/787285341628.shtml)
-- 2026-06-30 04:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/7470097317.shtml)
-- 2026-06-30 05:02 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/39980.shtml)
-- 2026-06-30 04:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/3300123.shtml)
-- 2026-06-30 04:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/193938869219.shtml)
-- 2026-06-30 04:57 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/05122.shtml)
-- 2026-06-30 04:48 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/88250.shtml)
-- 2026-06-30 04:59 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/3998659667.shtml)
-- 2026-06-30 04:54 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.minike.top/Article/details/927869241.shtml)
-- 2026-06-30 05:06 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/00654.shtml)
-- 2026-06-30 04:42 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/18091289713.shtml)
-- 2026-06-30 05:05 - [二次元提前预演明日巴西对日本](http://www.blog.kurohicncr.top/Article/details/637299581905.shtml)
+- 2026-06-30 05:00 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/2156668912.shtml)
+- 2026-06-30 05:05 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/005132.shtml)
+- 2026-06-30 04:57 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/028173225818.shtml)
+- 2026-06-30 05:08 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/2128168.shtml)
+- 2026-06-30 04:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.kurohicncr.top/Article/details/82952.shtml)
+- 2026-06-30 05:14 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/8795256.shtml)
+- 2026-06-30 05:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/07628702268.shtml)
+- 2026-06-30 05:02 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/912381.shtml)
+- 2026-06-30 05:07 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/49384.shtml)
+- 2026-06-30 05:15 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/24598418.shtml)
+- 2026-06-30 04:59 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/57302025.shtml)
+- 2026-06-30 05:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/840617306613.shtml)
+- 2026-06-30 05:07 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/8682253.shtml)
+- 2026-06-30 05:12 - [沉睡花园](https://www.blog.minike.top/Article/details/2084175586.shtml)
+- 2026-06-30 05:09 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/59448.shtml)

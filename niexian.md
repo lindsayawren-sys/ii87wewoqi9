@@ -1,59 +1,54 @@
-# 铸造铝合金期货交易一周年 服务实体功能初显
+# 宁忠岩获聘校外辅导员：希望更多黑龙江籍运动员扛起中国冰雪运动大旗
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-6月10日，我国首个再生商品期货交易品种——铸造铝合金期货及期权合约在上海期货交易所（下称上期所）上市一周年，市场总体运行平稳，期现价格联动紧密，规模稳步提升，交割顺畅有序，功能发挥逐步显现。 铸造铝合金期货及期权上市一年来，市场功能有效发挥。一是市场规模稳步增加，交割平稳顺畅。截至2026年6月9日，累计成交量（单边统计，下同） 227.47万手，约合2274.69万吨；日均
+发布时间：2026年05月14日 16:21 来源：中国新闻网 5月13日，“罗致焕讲坛”揭牌仪式、全省冰雪体育文化巡展暨冠军精神宣讲活动在哈尔滨举行。讲坛以哈尔滨体育学院优秀校友和世界冠军为精神IP，打造“体育+思政”育人新阵地和学术交流平台。米兰冬奥会冠军宁忠岩作讲坛首场报告，分享励志成长经历。哈体院向宁忠岩颁发校外辅导员聘书，宁忠岩向母校70周年校庆回赠纪念礼物。 米兰冬
 
 ## 正文
 
-6月10日，我国首个再生商品期货交易品种——铸造铝合金期货及期权合约在上海期货交易所（下称上期所）上市一周年，市场总体运行平稳，期现价格联动紧密，规模稳步提升，交割顺畅有序，功能发挥逐步显现。
+发布时间：2026年05月14日 16:21 来源：中国新闻网 5月13日，“罗致焕讲坛”揭牌仪式、全省冰雪体育文化巡展暨冠军精神宣讲活动在哈尔滨举行。
 
-铸造铝合金期货及期权上市一年来，市场功能有效发挥。
+讲坛以哈尔滨体育学院优秀校友和世界冠军为精神IP，打造“体育+思政”育人新阵地和学术交流平台。
 
-一是市场规模稳步增加，交割平稳顺畅。
+米兰冬奥会冠军宁忠岩作讲坛首场报告，分享励志成长经历。
 
-截至2026年6月9日，累计成交量（单边统计，下同） 227.47万手，约合2274.69万吨；日均成交量0.94万手，约合9.36万吨；日均持仓1.95万手，折合现货规模约20万吨，约占国内铸造铝合金月度消费量50%；累计成交金额5027.30亿元。
+哈体院向宁忠岩颁发校外辅导员聘书，宁忠岩向母校70周年校庆回赠纪念礼物。
 
-铸造铝合金期货完成7次交割，累计交割量约76680吨，累计交割金额约16.87亿元。
+米兰冬奥会冠军宁忠岩表示：“希望未来能有更多黑龙江籍的运动员能扛起中国冰雪运动的大旗。
 
-铸造铝合金期权累计成交量42.54万手，日均成交量0.18万手，日均持仓0.53万手，累计成交金额9.37亿元。
-
-二是期现价格联动紧密，合约结构合理。
-
-铸造铝合金期现价格相关性达0.99，基差保持在合理区间，到期价差良好收敛；各合约价格呈现近低远高结构，充分反映了市场各方对未来供需变化的预期。
+”(制作 田德雨） 责任编辑：【刘湃】
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 04:53 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 04:47 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-30 04:52 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-30 05:09 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 04:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 05:05 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-30 05:11 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 05:08 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 04:59 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 04:45 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-30 05:05 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 05:01 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 04:56 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 05:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-30 05:01 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 05:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-30 04:50 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 04:49 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 05:02 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 05:07 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 04:51 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 04:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-30 05:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 05:01 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/2426562.shtml)
-- 2026-06-30 05:01 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/40522.shtml)
-- 2026-06-30 04:46 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/2517786.shtml)
-- 2026-06-30 05:09 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/53099043.shtml)
-- 2026-06-30 04:54 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/6222042860.shtml)
-- 2026-06-30 04:56 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/2678460.shtml)
-- 2026-06-30 04:56 - [月亮](http://www.blog.minike.top/Article/details/675902901.shtml)
-- 2026-06-30 04:57 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/942244021.shtml)
-- 2026-06-30 04:43 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/3686613555.shtml)
-- 2026-06-30 05:02 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/008747758754.shtml)
-- 2026-06-30 04:42 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/48852.shtml)
-- 2026-06-30 04:55 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/7304224331.shtml)
-- 2026-06-30 04:47 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/4308592.shtml)
-- 2026-06-30 04:49 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/700582.shtml)
-- 2026-06-30 04:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/917789897.shtml)
+- 2026-06-30 05:06 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/56054.shtml)
+- 2026-06-30 05:00 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/69896550753.shtml)
+- 2026-06-30 05:16 - [网警提醒4类“高考查分陷阱”](https://www.blog.minike.top/Article/details/93185.shtml)
+- 2026-06-30 05:01 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/731277366615.shtml)
+- 2026-06-30 04:53 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/80755448910.shtml)
+- 2026-06-30 05:16 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/56853884145.shtml)
+- 2026-06-30 05:10 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/37943350752.shtml)
+- 2026-06-30 04:51 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/781176.shtml)
+- 2026-06-30 05:06 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/28951237.shtml)
+- 2026-06-30 05:03 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.kurohicncr.top/Article/details/7950075.shtml)
+- 2026-06-30 05:05 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/926306797917.shtml)
+- 2026-06-30 04:49 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/26915.shtml)
+- 2026-06-30 04:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/8546880974.shtml)
+- 2026-06-30 05:10 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/38768454864.shtml)
+- 2026-06-30 05:14 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/837676913.shtml)

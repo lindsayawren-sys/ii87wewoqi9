@@ -1,61 +1,61 @@
-# 【市场聚焦】花生：一个巴掌拍不响
+# 英国经济增速超过美国？
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中粮期货研究中心 摘要 1、截至上周，花生期货和现货价格一同下跌到溢价挤出，并迎来反弹，在新季面积兑现的窗口，如此活跃的花生期货，背后少不了市场群体对新季供应的巨大分歧，目前看来，落脚点在河南产区。 2、如此量价格局的花生期货市场，需要一场减仓行动，来彻底终结原有的震荡区间。 3、花生期货几乎磨底了两个产季，未来的产季级别的行情，需要供需两方面的合力推动，即供给侧的减面积减单产
+当地时间5月14日，英国国家统计局（ONS）公布数据显示，英国2026年一季度国内生产总值（GDP）环比增长0.6%，高于2025年四季度修正后的0.2%，创下近一年来最快季度增速。《华尔街日报》等国际媒体按照年化口径测算，英国一季度经济增速约为2.6%，略高于美国商务部公布的同期约2.0%的GDP折年率增幅。一时间，“英国经济增速阶段性超过美国”迅速成为国际财经市场关注的焦点
 
 ## 正文
 
-中粮期货研究中心 摘要 1、截至上周，花生期货和现货价格一同下跌到溢价挤出，并迎来反弹，在新季面积兑现的窗口，如此活跃的花生期货，背后少不了市场群体对新季供应的巨大分歧，目前看来，落脚点在河南产区。
+当地时间5月14日，英国国家统计局（ONS）公布数据显示，英国2026年一季度国内生产总值（GDP）环比增长0.6%，高于2025年四季度修正后的0.2%，创下近一年来最快季度增速。
 
-2、如此量价格局的花生期货市场，需要一场减仓行动，来彻底终结原有的震荡区间。
+《华尔街日报》等国际媒体按照年化口径测算，英国一季度经济增速约为2.6%，略高于美国商务部公布的同期约2.0%的GDP折年率增幅。
 
-3、花生期货几乎磨底了两个产季，未来的产季级别的行情，需要供需两方面的合力推动，即供给侧的减面积减单产，以及需求端的结构性增量。
+一时间，“英国经济增速阶段性超过美国”迅速成为国际财经市场关注的焦点。
 
-【市场聚焦】花生：一个巴掌拍不响 2026年6月8日 一、花生期货的热度上升 1、上周花生期货增仓，且低开高走，成交量出现脉冲式增长。
+服务业成核心驱动力过去几年，市场普遍认为，美国经济明显强于欧洲，而英国经济则长期处于“低增长、高通胀、弱复苏”的状态。
 
-其中，品种总持仓量增加30%至近35万手的历史持仓高位，单日总成交量在上周五跳增至52万余手的历史第二高水平，主力合约PK610的日线向上突破自5月中旬以来的本产季低位震荡区间，收盘价8294元/吨，结算价8252元/吨。
+如今，英国却突然交出了一份阶段性“跑赢”美国的成绩单，自然让人颇感意外。
 
-2、尝试分析上周行情的核心因素。
+从数据结构来看，这一轮英国经济反弹，主要由服务业带动。
 
-估值方面，现货供应充足且处于买方市场，期货处于往年同期均值两倍以上的历史性的持仓高位，期货、现货价格已跌回当前产季全面上新时点的价位，也是各自往年历史同期的较低价位（其中，东北现货的价格跌至期货远月合约的成本参照区间，可以说，现货溢价已被陆续挤出，当前部分贸易商已经提升了赴东北产区看货的意愿）。
+英国国家统计局数据显示，一季度服务业增长约0.8%，成为核心驱动力。
 
-题材方面，上周河南麦收大头落地，河南耕地夏播进度过半，豫南夏播完成大半，而期货在上周之初尚未计价河南花生面积题材和天气升水题材。
+与此同时，居民消费和政府支出有所改善，同时部分企业出现提前备货现象。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-30 04:45 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 05:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 05:04 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
-- 2026-06-30 04:51 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-30 05:06 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 05:01 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 04:56 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 05:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-30 04:47 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 04:59 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 04:44 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-30 04:48 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 04:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
-- 2026-06-30 04:54 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 04:58 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 05:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 04:58 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 05:11 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 04:56 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 04:52 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
+- 2026-06-30 05:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-30 05:14 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 04:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-30 05:08 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 05:14 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 04:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-30 04:53 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-30 05:05 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 05:12 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/72849.shtml)
-- 2026-06-30 05:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/9980562707.shtml)
-- 2026-06-30 04:44 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/247900523806.shtml)
-- 2026-06-30 05:10 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/0413120777.shtml)
-- 2026-06-30 05:02 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/723195985.shtml)
-- 2026-06-30 04:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/0816439.shtml)
-- 2026-06-30 04:46 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/7034637.shtml)
-- 2026-06-30 05:00 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/82683.shtml)
-- 2026-06-30 04:54 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/1319663.shtml)
-- 2026-06-30 04:56 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/53740.shtml)
-- 2026-06-30 04:44 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/981329073213.shtml)
-- 2026-06-30 04:45 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/185914110543.shtml)
-- 2026-06-30 04:55 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/2356180453.shtml)
-- 2026-06-30 04:49 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/72695332953.shtml)
-- 2026-06-30 04:52 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/61657.shtml)
+- 2026-06-30 05:15 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/266944.shtml)
+- 2026-06-30 05:08 - [法国小学众筹装空调后市长下令拆除](https://www.share.minike.top/Article/details/51671208.shtml)
+- 2026-06-30 04:52 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/4838317.shtml)
+- 2026-06-30 05:03 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/974244.shtml)
+- 2026-06-30 04:59 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.kurohicncr.top/Article/details/26330959.shtml)
+- 2026-06-30 05:02 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/043435812349.shtml)
+- 2026-06-30 05:15 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/811324261.shtml)
+- 2026-06-30 05:00 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/5798915.shtml)
+- 2026-06-30 04:50 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/31945357514.shtml)
+- 2026-06-30 04:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/146101257.shtml)
+- 2026-06-30 05:05 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/9896576115.shtml)
+- 2026-06-30 05:10 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/2616159377.shtml)
+- 2026-06-30 04:57 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/10288813.shtml)
+- 2026-06-30 04:54 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/729252003218.shtml)
+- 2026-06-30 05:10 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/523262.shtml)

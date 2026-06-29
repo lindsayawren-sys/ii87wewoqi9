@@ -1,60 +1,57 @@
-# 东阳光转型算力：成立不足两月子公司拿下310亿元订单 严苛履约条件拷问公司垫资能力
+# 日本长期国债暴跌 全球抛售潮加剧压力
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-6月2日，东阳光发布公告，称控股子公司东莞东阳光云智算科技有限公司（以下简称“东阳光云智算”）与某企业B公司（仅代称，无实际指代对象）签署《算力服务采购合同》，合同预计总金额区间为人民币100亿元至120亿元。 而不到一个月之前，该子公司刚刚与另一匿名客户A公司签署金额为人民币160亿元至190亿元的算力大单。两份合同订单金额最高可达到310亿元，是东阳光2025年全年营收的两
+尽管30年期国债拍卖需求强劲，但受全球收益率持续上行拖累，日本长期国债周四价格下跌。 30年期国债收益率一度攀升10个基点至3.915%，创该品种1999年推出以来新高；20年期与40年期国债收益率也同步升至数十年高位，分别上涨8个基点和7.5个基点。 本周美国经济数据强化通胀加速迹象，美债收益率随之走高，交易员进而加大对美联储加息的押注，引发此次抛售潮。英国长期国债也因首相面
 
 ## 正文
 
-6月2日，东阳光发布公告，称控股子公司东莞东阳光云智算科技有限公司（以下简称“东阳光云智算”）与某企业B公司（仅代称，无实际指代对象）签署《算力服务采购合同》，合同预计总金额区间为人民币100亿元至120亿元。
+尽管30年期国债拍卖需求强劲，但受全球收益率持续上行拖累，日本长期国债周四价格下跌。
 
-而不到一个月之前，该子公司刚刚与另一匿名客户A公司签署金额为人民币160亿元至190亿元的算力大单。
+30年期国债收益率一度攀升10个基点至3.915%，创该品种1999年推出以来新高；20年期与40年期国债收益率也同步升至数十年高位，分别上涨8个基点和7.5个基点。
 
-两份合同订单金额最高可达到310亿元，是东阳光2025年全年营收的两倍多。
+本周美国经济数据强化通胀加速迹象，美债收益率随之走高，交易员进而加大对美联储加息的押注，引发此次抛售潮。
 
-市场比较关注的是，公司已手握成熟IDC资产秦淮数据，为什么却让一家新设子公司主导百亿订单的落地？
+英国长期国债也因首相面临辞职压力而下跌，加剧了包括日本国债在内的全球主要债市疲软态势。
 
-东阳光成立于1996年，目前其主营业务包括电器元器件、高端铝箔、化工新材料、能源材料四大板块，其中高端铝箔为公司第一大业务，2025年营收规模59.21亿元，营收占比高达39.65%，但该业务毛利率在四大业务中排名倒数，仅为4.12%，比上年同比下降0.45个百分点。
+与此同时，油价高位运行令通胀压力持续；伊朗冲突结束前景仍不明朗，而美国总统特朗普正访华出席高风险峰会。
 
-东阳光第二大业务为化工新材料，2025年营收40.60亿元，营收占比27.18%，毛利率为43.33%。
+日本央行委员增田和幸表示，若经济未显现陷入困境迹象，应尽快加息，理由是伊朗战争带来更持久的通胀风险。
 
-从业务属性来看，铝箔业务盈利能力薄弱，化工新材料业务又严重受制于行业周期，公司的业务基本盘缺乏高盈利、高成长板块的支撑。
+Lombard Odier高级宏观策略师李浩民称，日本国债市场波动“主要受增田的鹰派言论与英国国债市场波动的情绪溢出共同推动”。
 
-在此情形下，东阳光将目光转向了AI基础设施赛道。
+他补充道，全球债市震荡或正在推动期限溢价发生转变。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-30 04:48 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 05:02 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-30 05:01 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 04:58 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 05:08 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 04:47 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 04:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 04:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 04:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 05:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-30 05:06 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 05:06 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
-- 2026-06-30 05:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 04:52 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 05:05 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 05:13 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 04:54 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 05:02 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 05:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 05:00 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 04:54 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 05:17 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 05:16 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 05:02 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/936276.shtml)
-- 2026-06-30 04:53 - [世界杯：德国vs巴拉圭](https://www.share.kurohicncr.top/Article/details/851110.shtml)
-- 2026-06-30 04:59 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.kurohicncr.top/Article/details/21643834.shtml)
-- 2026-06-30 05:01 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/5040613186.shtml)
-- 2026-06-30 05:10 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/198291622.shtml)
-- 2026-06-30 05:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/2759172484.shtml)
-- 2026-06-30 05:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/068082.shtml)
-- 2026-06-30 04:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/09164.shtml)
-- 2026-06-30 05:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/369795312.shtml)
-- 2026-06-30 04:52 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/27063.shtml)
-- 2026-06-30 04:56 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/878714476.shtml)
-- 2026-06-30 04:43 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/7247122220.shtml)
-- 2026-06-30 04:53 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/6120216.shtml)
-- 2026-06-30 05:09 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/475857320975.shtml)
-- 2026-06-30 04:48 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/918598.shtml)
+- 2026-06-30 04:51 - [本西奇成本届温网女单首位晋级球员](https://www.share.minike.top/Article/details/941014493.shtml)
+- 2026-06-30 05:13 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/93565.shtml)
+- 2026-06-30 05:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/8118066413.shtml)
+- 2026-06-30 05:09 - [张凌赫杨超越 峨眉](http://www.blog.kurohicncr.top/Article/details/086397247.shtml)
+- 2026-06-30 05:15 - [爱很美味](http://www.share.minike.top/Article/details/4024531.shtml)
+- 2026-06-30 05:00 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/765220.shtml)
+- 2026-06-30 05:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/8838373.shtml)
+- 2026-06-30 04:57 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/6715996873.shtml)
+- 2026-06-30 05:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/383768499160.shtml)
+- 2026-06-30 04:48 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/476692066527.shtml)
+- 2026-06-30 05:10 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/11633208286.shtml)
+- 2026-06-30 05:15 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/147250146174.shtml)
+- 2026-06-30 05:00 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/734253686.shtml)
+- 2026-06-30 05:17 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/7534980.shtml)
+- 2026-06-30 05:03 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.kurohicncr.top/Article/details/581161.shtml)

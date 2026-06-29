@@ -1,51 +1,61 @@
-# 视频|刘晓艳当选基金业协会第四届理事会兼职会长
+# A股氦气板块周四走强
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-专题：官宣！易方达刘晓艳当选基金业协会兼职会长！ 责任编辑：石秀珍 SF183
+中新社北京5月14日电 (记者 陈康亮)中国A股14日(周四)遭遇调整，主要股指悉数下跌；氦气概念板块逆势上涨，表现亮眼。 根据金融数据服务商东方财富的统计，氦气概念板块当天上涨3.41%，领涨A股所有概念板块。个股方面，正帆科技、侨源股份、和远气体、冰轮环境当天股价均涨逾5%。 据媒体报道，中东战事不仅推高了石油、天然气的价格，还加剧了全球工业氦气的供应短缺。卡塔尔是全球第二
 
 ## 正文
 
-专题：官宣！
+中新社北京5月14日电 (记者 陈康亮)中国A股14日(周四)遭遇调整，主要股指悉数下跌；氦气概念板块逆势上涨，表现亮眼。
 
-易方达刘晓艳当选基金业协会兼职会长！
+根据金融数据服务商东方财富的统计，氦气概念板块当天上涨3.41%，领涨A股所有概念板块。
 
-责任编辑：石秀珍 SF183
+个股方面，正帆科技、侨源股份、和远气体、冰轮环境当天股价均涨逾5%。
+
+据媒体报道，中东战事不仅推高了石油、天然气的价格，还加剧了全球工业氦气的供应短缺。
+
+卡塔尔是全球第二大氦气生产国，其氦气产量约占全球产量的三分之一。
+
+霍尔木兹海峡航运受阻，导致卡塔尔生产的氦气无法运出。
+
+国盛证券分析师花小伟表示，全球氦气市场已进入新一轮短缺周期。
+
+半导体、医疗核磁共振、光纤构成中国氦气三大核心消费场景，航天航空等新兴领域应用持续拓展，行业需求刚性不断凸显。
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-30 04:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 05:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 04:49 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-30 04:44 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 04:55 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 04:59 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 04:53 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-30 04:45 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 04:52 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 04:59 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 04:53 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 05:05 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 04:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:51 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 05:16 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
+- 2026-06-30 04:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 04:59 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 04:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 05:06 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 04:59 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 05:00 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
+- 2026-06-30 05:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 05:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 05:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 04:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 04:54 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-30 05:04 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
+- 2026-06-30 05:10 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 04:51 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/0901423862.shtml)
-- 2026-06-30 04:51 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/0162022095.shtml)
-- 2026-06-30 04:54 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/462450.shtml)
-- 2026-06-30 04:54 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/43600.shtml)
-- 2026-06-30 05:02 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/04265409.shtml)
-- 2026-06-30 05:00 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/825108.shtml)
-- 2026-06-30 05:04 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/780331033.shtml)
-- 2026-06-30 04:49 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/894639.shtml)
-- 2026-06-30 04:51 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/89320531.shtml)
-- 2026-06-30 04:45 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/78046.shtml)
-- 2026-06-30 05:06 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/231166394.shtml)
-- 2026-06-30 04:43 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/40657.shtml)
-- 2026-06-30 04:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/544400932.shtml)
-- 2026-06-30 04:44 - [巴西2比1日本](http://www.blog.minike.top/Article/details/21396.shtml)
-- 2026-06-30 04:56 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/581814055381.shtml)
+- 2026-06-30 05:02 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/7356155.shtml)
+- 2026-06-30 04:52 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/894750458.shtml)
+- 2026-06-30 04:56 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/8494953.shtml)
+- 2026-06-30 05:02 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/752864356218.shtml)
+- 2026-06-30 05:15 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/0976454543.shtml)
+- 2026-06-30 04:54 - [金刚川](https://www.blog.minike.top/Article/details/40272.shtml)
+- 2026-06-30 04:50 - [内马尔替补](http://www.blog.minike.top/Article/details/8162595.shtml)
+- 2026-06-30 05:03 - [一切民族英雄都是中华民族的脊梁](http://www.blog.minike.top/Article/details/226929014.shtml)
+- 2026-06-30 05:09 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/756084191786.shtml)
+- 2026-06-30 04:50 - [沙丘](https://www.share.minike.top/Article/details/206941.shtml)
+- 2026-06-30 05:13 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/489601648.shtml)
+- 2026-06-30 05:16 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/28058457319.shtml)
+- 2026-06-30 04:50 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/0227535875.shtml)
+- 2026-06-30 04:53 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/99591203.shtml)
+- 2026-06-30 04:54 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/0163989.shtml)

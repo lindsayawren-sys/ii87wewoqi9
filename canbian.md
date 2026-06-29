@@ -1,45 +1,48 @@
-# 三峡水运新通道开工
+# 特朗普：热情期待在华盛顿接待习近平主席
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-6月8日 我国“十五五”时期开工建设的 首个国家重大标志性工程 三峡水运新通道正式开工 工程包含 三峡枢纽新通道和葛洲坝航运扩能 设计通航船舶为10000吨级 三峡水运新通道 工程规模巨大、难度空前 历经十余年论证设计、数十年技术储备 总投资约772.08亿元 工程建成后将大幅提升航运效率 有利于 长江综合立体交通走廊高质量发展 有利于 推动长江经济带发展战略实施 有利于 构建
+新华社北京5月15日电 美国总统特朗普15日表示，非常感谢习近平主席邀请我到中南海做客。此次访华是一次非常成功的访问，举世瞩目，令人难忘。我愿同习近平主席继续保持诚恳深入沟通，热情期待在华盛顿接待习近平主席。(完)
 
 ## 正文
 
-6月8日 我国“十五五”时期开工建设的 首个国家重大标志性工程 三峡水运新通道正式开工 工程包含 三峡枢纽新通道和葛洲坝航运扩能 设计通航船舶为10000吨级 三峡水运新通道 工程规模巨大、难度空前 历经十余年论证设计、数十年技术储备 总投资约772.08亿元 工程建成后将大幅提升航运效率 有利于 长江综合立体交通走廊高质量发展 有利于 推动长江经济带发展战略实施 有利于 构建国内国际双循环发展格局 有利于 生态优先绿色发展理念落地见效 记者：戴小河、李思远 海报制作：贾稀荃 新华社国内部、新华社湖北分社 联合出品
+新华社北京5月15日电 美国总统特朗普15日表示，非常感谢习近平主席邀请我到中南海做客。
+
+此次访华是一次非常成功的访问，举世瞩目，令人难忘。
+
+我愿同习近平主席继续保持诚恳深入沟通，热情期待在华盛顿接待习近平主席。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 04:49 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 04:59 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 04:51 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 04:42 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 05:07 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 04:52 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 04:47 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 05:06 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-30 04:56 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 05:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 05:08 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-30 04:46 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 05:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-30 04:56 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-30 05:03 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 05:04 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 05:11 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-30 04:54 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-30 05:08 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-30 05:13 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 04:56 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 04:49 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:04 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/1134305997.shtml)
-- 2026-06-30 04:54 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/888251312.shtml)
-- 2026-06-30 04:57 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.kurohicncr.top/Article/details/7021717974.shtml)
-- 2026-06-30 05:10 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/9362596.shtml)
-- 2026-06-30 04:52 - [老外对中国cosplay竟这样评价…](http://www.share.minike.top/Article/details/056182275.shtml)
-- 2026-06-30 04:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/93184175.shtml)
-- 2026-06-30 04:46 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/12158894289.shtml)
-- 2026-06-30 04:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/7672494350.shtml)
-- 2026-06-30 05:01 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/9469140306.shtml)
-- 2026-06-30 04:59 - [又一家县级医院关停门诊输液大厅](http://www.blog.kurohicncr.top/Article/details/716997.shtml)
-- 2026-06-30 04:53 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/35584104.shtml)
-- 2026-06-30 04:50 - [世界杯](https://www.blog.kurohicncr.top/Article/details/42720880098.shtml)
-- 2026-06-30 04:46 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/2434124.shtml)
-- 2026-06-30 04:44 - [逃狱兄弟](https://www.blog.minike.top/Article/details/5300215.shtml)
-- 2026-06-30 04:56 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/81665.shtml)
+- 2026-06-30 05:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/649262686.shtml)
+- 2026-06-30 04:52 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/07672883540.shtml)
+- 2026-06-30 05:18 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/019186.shtml)
+- 2026-06-30 05:00 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/916575.shtml)
+- 2026-06-30 05:12 - [《共患难》](http://www.blog.minike.top/Article/details/61346049.shtml)
+- 2026-06-30 05:10 - [逃狱兄弟](http://www.blog.minike.top/Article/details/15326428409.shtml)
+- 2026-06-30 05:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/99671.shtml)
+- 2026-06-30 04:53 - [巴西扳平比分](https://www.share.minike.top/Article/details/08892.shtml)
+- 2026-06-30 04:57 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/21784758206.shtml)
+- 2026-06-30 05:13 - [天道](http://www.share.kurohicncr.top/Article/details/758249.shtml)
+- 2026-06-30 04:57 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/604008858.shtml)
+- 2026-06-30 05:14 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/582684019.shtml)
+- 2026-06-30 05:06 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/76424.shtml)
+- 2026-06-30 05:11 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/88816684.shtml)
+- 2026-06-30 05:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/30179096.shtml)

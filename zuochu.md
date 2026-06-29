@@ -1,57 +1,57 @@
-# Upstart遭集体诉讼，首席原告申请截止日期为6月8日
+# 声声鼓劲同筑梦 处处关情促振兴——农工党中央定点帮扶大方县工作综述
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-知名证券律师事务所Faruqi & Faruqi， LLP提醒Upstart Holdings， Inc．（纳斯达克代码：UPST）的投资者，针对该公司的联邦证券集体诉讼中，申请担任首席原告的截止日期为2026年6月8日。 该诉讼指控Upstart及其高管在2025年5月14日至2025年11月4日期间，违反了联邦证券法，做出了虚假和/或误导性陈述。诉讼的核心涉及Upstart
+1988年毕节试验区建立，农工党中央就和大方县结下深情厚谊。1994年11月，农工党中央正式定点帮扶大方县，从此与这片土地同频共振。30多年来，农工党中央充分发挥医药卫生人才密集的界别优势，推行“中央统筹、项目依托、结对帮扶、沉底乡镇”帮扶模式，举全党之力帮扶大方县。2021年，实现全国30个省级组织、15个副省级城市组织和12个专委会“一对多”“多对一”结对帮扶大方县29个乡
 
 ## 正文
 
-知名证券律师事务所Faruqi & Faruqi， LLP提醒Upstart Holdings， Inc．（纳斯达克代码：UPST）的投资者，针对该公司的联邦证券集体诉讼中，申请担任首席原告的截止日期为2026年6月8日。
+1988年毕节试验区建立，农工党中央就和大方县结下深情厚谊。
 
-该诉讼指控Upstart及其高管在2025年5月14日至2025年11月4日期间，违反了联邦证券法，做出了虚假和/或误导性陈述。
+1994年11月，农工党中央正式定点帮扶大方县，从此与这片土地同频共振。
 
-诉讼的核心涉及Upstart引以为傲的“Model 22”人工智能信贷承销模型。
+30多年来，农工党中央充分发挥医药卫生人才密集的界别优势，推行“中央统筹、项目依托、结对帮扶、沉底乡镇”帮扶模式，举全党之力帮扶大方县。
 
-根据诉状，被告未能向投资者披露以下关键事实：Model 22在执行风险分离过程中，经常对负面宏观经济信号反应过度；因此，该模型的整体准确性和提高贷款批准率的能力被夸大；该模型对信贷和宏观经济状况的过于保守评估对Upstart的营收结果产生了显著的负面影响，导致公司此前发布的2025年全年营收指引变得不可靠且不切实际。
+2021年，实现全国30个省级组织、15个副省级城市组织和12个专委会“一对多”“多对一”结对帮扶大方县29个乡(镇、街道)，帮扶全域覆盖。
 
-真相于2025年11月4日开始浮出水面。
+2023年7月，中央统战部启动统一战线“地域+领域”组团式帮扶毕节新机制，农工党中央绵绵用力，对大方开展全方位、立体式精准帮扶。
 
-当天，Upstart发布了2025年第三季度的财务业绩，报告营收为2.77亿美元，低于公司此前约2.8亿美元的业绩指引和市场预期的2.62亿美元。
+三十余载倾情相守，农工党中央运用健康、产业、智力、公益、消费等组合拳，汇聚各方智慧力量，助力大方县打赢脱贫攻坚战，打造“同心助医工程”“同心全科医生特岗人才计划”“同心圆博爱家园乡村振兴项目”“贫困人口精准医疗爱心行动”“四川大学华西医院协作医院”“同心助学”等一批特色帮扶品牌，同心携手书写共谋发展的动人篇章。
 
-公司还将2025年第四季度的营收预期下调至2.88亿美元，远低于市场预期的3.037亿美元。
+秉持“大方脱了贫，农工党不断线”的庄严承诺，30多年来，农工党中央、农工党贵州省委先后选派17名干部到大方挂职帮扶。
 
-同时，Upstart将2025年全年的营收指引从约10.55亿美元下调至约10.35亿美元，并将来自费用的收入预期从约9.90亿美元下调至约9.46亿美元。
+各级组织累计引进实施帮扶项目近300个，投入资金70多亿元，捐赠款物3.498亿元，推动大方县如期实现全面小康，以崭新姿态迈步高质量发展新征程。
 
 ## 相关推荐
 
-- 2026-06-30 05:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 05:01 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 04:43 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-30 05:04 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 04:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
-- 2026-06-30 04:50 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 04:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 04:59 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 04:45 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 05:05 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
-- 2026-06-30 05:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-30 04:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 05:09 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 04:49 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 04:51 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 05:00 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
+- 2026-06-30 04:54 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-30 05:08 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-30 05:04 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 04:49 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
+- 2026-06-30 05:15 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-30 05:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/07563392.shtml)
-- 2026-06-30 05:02 - [巴西2比1日本](https://www.blog.minike.top/Article/details/353012610.shtml)
-- 2026-06-30 04:43 - [TOP Prada](http://www.share.minike.top/Article/details/411275479336.shtml)
-- 2026-06-30 05:10 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/0267801.shtml)
-- 2026-06-30 04:43 - [巴西vs日本](http://www.share.minike.top/Article/details/92818.shtml)
-- 2026-06-30 05:11 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/5969383.shtml)
-- 2026-06-30 05:07 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/629315393461.shtml)
-- 2026-06-30 04:51 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/63377035858.shtml)
-- 2026-06-30 04:42 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/215006409.shtml)
-- 2026-06-30 05:06 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/521920.shtml)
-- 2026-06-30 05:03 - [起风了](http://www.blog.minike.top/Article/details/426265023669.shtml)
-- 2026-06-30 04:57 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/703646.shtml)
-- 2026-06-30 05:06 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/83840975266.shtml)
-- 2026-06-30 05:01 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/443495086254.shtml)
-- 2026-06-30 04:58 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/510566705.shtml)
+- 2026-06-30 04:59 - [沙丘](https://www.blog.kurohicncr.top/Article/details/86159833.shtml)
+- 2026-06-30 05:08 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/00964780506.shtml)
+- 2026-06-30 05:08 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/138564424.shtml)
+- 2026-06-30 05:15 - [美人鱼](https://www.share.kurohicncr.top/Article/details/875929814.shtml)
+- 2026-06-30 05:09 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/76376.shtml)
+- 2026-06-30 04:56 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/6454697.shtml)
+- 2026-06-30 04:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/6582574373.shtml)
+- 2026-06-30 05:00 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/95285980577.shtml)
+- 2026-06-30 04:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/644781835378.shtml)
+- 2026-06-30 05:01 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/23090923531.shtml)
+- 2026-06-30 05:05 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/05638005.shtml)
+- 2026-06-30 04:50 - [本科毕业生为何涌入专科学校](https://www.share.minike.top/Article/details/202149.shtml)
+- 2026-06-30 05:13 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/82250321840.shtml)
+- 2026-06-30 04:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/144396637786.shtml)
+- 2026-06-30 05:09 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/5625895402.shtml)

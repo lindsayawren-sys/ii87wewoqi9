@@ -1,60 +1,53 @@
-# 香港拟借“4T”框架强化企业财资中心地位
+# 日媒：日本政府研究向菲律宾出口导弹
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新社香港6月9日电 (记者 魏华都)香港特区政府财经事务及库务局局长许正宇9日公布《香港企业财资中心发展行动计划》(简称“行动计划”)，希望通过“4T”框架，吸引更多跨国企业在香港设立企业财资中心，并协助在港营运的企业财资中心扩大规模。 当天，由香港特区政府财经事务及库务局、税务局、香港金融管理局和投资推广署主办的企业财资中心论坛在香港特区政府总部举行。 许正宇在会上介绍，香
+中新网5月15日电 据日本共同社15日援引相关人士的消息报道，日本政府正在研究向菲律宾出口88式岸舰导弹。 据报道，日本政府4月修改了“防卫装备转移三原则”及其运用指针，解禁了具有杀伤能力武器的出口。 日本防卫大臣小泉进次郎在15日的记者会上就导弹出口一事说明称“目前尚未有最终决定”，但他同时提及5月5日与菲律宾国防部长特奥多罗会谈时同意设立的装备合作协商框架，并表示希望“积极
 
 ## 正文
 
-中新社香港6月9日电 (记者 魏华都)香港特区政府财经事务及库务局局长许正宇9日公布《香港企业财资中心发展行动计划》(简称“行动计划”)，希望通过“4T”框架，吸引更多跨国企业在香港设立企业财资中心，并协助在港营运的企业财资中心扩大规模。
+中新网5月15日电 据日本共同社15日援引相关人士的消息报道，日本政府正在研究向菲律宾出口88式岸舰导弹。
 
-当天，由香港特区政府财经事务及库务局、税务局、香港金融管理局和投资推广署主办的企业财资中心论坛在香港特区政府总部举行。
+据报道，日本政府4月修改了“防卫装备转移三原则”及其运用指针，解禁了具有杀伤能力武器的出口。
 
-许正宇在会上介绍，香港已跃居为全球第一的跨境财富管理中心，更是全球最大的离岸人民币业务中心。
+日本防卫大臣小泉进次郎在15日的记者会上就导弹出口一事说明称“目前尚未有最终决定”，但他同时提及5月5日与菲律宾国防部长特奥多罗会谈时同意设立的装备合作协商框架，并表示希望“积极讨论”以确定出口的具体装备。
 
-过去10年在香港设立的企业财资中心数目显著增长，为进一步把香港打造为企业财资中心的主要基地，上述四部门制订行动计划，从革新税制(Tax Revamp)、持续扩展全面性避免双重课税协定网络(Tax Agreements)、针对性推广(Targeted Promotion)及与业界沟通并培训人才(Talent and Dialogue)四大方面入手，鼓励来自世界各地的跨国企业集中在香港管理资金、配置资产和管控风险。
-
-他解释，香港将革新税务优惠制度，引入更具竞争力的分级制度，具体包括优化现行宽减措施，并增设“预先审核”机制，让获批企业的财资中心及关联企业享有更多税务优惠、更高的税务确定性，以及在合规安排上拥有更大弹性。
-
-其次，香港会持续积极拓展全面性避免双重课税协定网络。
-
-特区政府目前已与57个经济体签订了全面性避免双重课税协定，未来会持续扩展网络，重点聚焦共建“一带一路”经济体，让以香港为基地的企业在对外拓展业务时可享有更大税务确定性及避免双重课税。
-
-他说，特区政府会进行具有针对性的市场推广，包括中国内地及亚洲企业，尤其是新经济领域的公司；同时联合业界建立优质人才库。
+报道分析称，小泉的态度显示出日方对于向菲律宾出口导弹的积极意愿。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 04:52 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 04:49 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-30 04:58 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 04:43 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 05:00 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 05:11 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 05:05 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 05:08 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 04:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 04:54 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-30 05:00 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
-- 2026-06-30 04:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 05:10 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 05:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-30 05:11 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
+- 2026-06-30 05:00 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
+- 2026-06-30 04:59 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 05:00 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-30 04:52 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 05:08 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
+- 2026-06-30 04:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 05:11 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 04:53 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 05:01 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-30 04:48 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 05:10 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 05:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 05:11 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [起风了](https://www.blog.minike.top/Article/details/15995715167.shtml)
-- 2026-06-30 05:09 - [沉睡花园](http://www.blog.minike.top/Article/details/6603565978.shtml)
-- 2026-06-30 04:51 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/75399.shtml)
-- 2026-06-30 05:09 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/26818.shtml)
-- 2026-06-30 05:09 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/661594647.shtml)
-- 2026-06-30 04:55 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/598487917089.shtml)
-- 2026-06-30 04:56 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/29535683807.shtml)
-- 2026-06-30 04:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/64391674.shtml)
-- 2026-06-30 05:03 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/30758032.shtml)
-- 2026-06-30 04:42 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/036016453.shtml)
-- 2026-06-30 05:00 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/568750822.shtml)
-- 2026-06-30 04:56 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/50631578800.shtml)
-- 2026-06-30 05:00 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/332590549734.shtml)
-- 2026-06-30 05:02 - [我们的少年时代2](https://www.blog.minike.top/Article/details/92809026486.shtml)
-- 2026-06-30 05:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/5945169195.shtml)
+- 2026-06-30 05:00 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/8137138766.shtml)
+- 2026-06-30 05:11 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/87519165.shtml)
+- 2026-06-30 05:17 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/795685.shtml)
+- 2026-06-30 04:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/2288277047.shtml)
+- 2026-06-30 05:00 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/94554480.shtml)
+- 2026-06-30 05:12 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/39833938167.shtml)
+- 2026-06-30 05:14 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/6697249.shtml)
+- 2026-06-30 05:16 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/2749339.shtml)
+- 2026-06-30 05:09 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/296547322.shtml)
+- 2026-06-30 05:12 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/9193648.shtml)
+- 2026-06-30 05:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/811931101514.shtml)
+- 2026-06-30 05:12 - [点菜也要教吗](https://www.blog.minike.top/Article/details/25181819174.shtml)
+- 2026-06-30 04:53 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/21756087.shtml)
+- 2026-06-30 05:02 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/916676364010.shtml)
+- 2026-06-30 05:16 - [85花告别古偶](http://www.share.minike.top/Article/details/5400983941.shtml)

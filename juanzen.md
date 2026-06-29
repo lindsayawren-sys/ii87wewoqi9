@@ -1,55 +1,59 @@
-# 伊以再度爆发冲突 外交部：深表关切 各方应履行停火承诺
+# 台湾少数民族同胞参访良渚：从史前文明看见共同根脉
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-6月8日，外交部发言人林剑主持例行记者会。当地时间6月7日，伊朗向以色列发射了四轮导弹袭击，以回应数小时前以色列对黎巴嫩首都贝鲁特进行的致命空袭。法新社记者在会上就此提问，中方对伊朗和以色列在周末互袭有何评论？ 林剑表示，中方对当前的局势深表关切，战事再起不符合任何一方的利益。希望相关各方履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东
+中新网杭州5月15日电 题：台湾少数民族同胞参访良渚：从史前文明看见共同根脉 作者 李百加 “良渚文明中的祭仪观念、图腾符号，和台湾少数民族的许多传统相通。站在遗址遗迹前，故事跨海相连。”台湾泰雅人许玉珍14日在杭州对中新网记者说。 5月13日至17日，由台盟中央主办的“同心筑梦·南岛溯源”浙台共探南岛语族文明根脉活动在浙江举行。14日，30余名台湾少数民族同胞走进良渚博物院、
 
 ## 正文
 
-6月8日，外交部发言人林剑主持例行记者会。
+中新网杭州5月15日电 题：台湾少数民族同胞参访良渚：从史前文明看见共同根脉 作者 李百加 “良渚文明中的祭仪观念、图腾符号，和台湾少数民族的许多传统相通。
 
-当地时间6月7日，伊朗向以色列发射了四轮导弹袭击，以回应数小时前以色列对黎巴嫩首都贝鲁特进行的致命空袭。
+站在遗址遗迹前，故事跨海相连。
 
-法新社记者在会上就此提问，中方对伊朗和以色列在周末互袭有何评论？
+”台湾泰雅人许玉珍14日在杭州对中新网记者说。
 
-林剑表示，中方对当前的局势深表关切，战事再起不符合任何一方的利益。
+5月13日至17日，由台盟中央主办的“同心筑梦·南岛溯源”浙台共探南岛语族文明根脉活动在浙江举行。
 
-希望相关各方履行停火承诺，保持谈判势头，坚持通过政治外交途径化解争端，尽早实现全面持久停火，为恢复中东海湾地区和平安宁创造必要条件。
+14日，30余名台湾少数民族同胞走进良渚博物院、良渚古城遗址公园，实地探寻南岛语族的文明源流与历史根脉。
 
-责任编辑：刘万里 SF014
+良渚博物院内，玉琮、玉璧、石器等文物有序陈列，稻作遗存复原模型及古城聚落沙盘吸引参访团成员驻足细看。
+
+近10公里外的良渚古城遗址公园内，河道纵横，湿地、稻田相接，勾勒出数千年前先民依水而居的生活图景。
+
+许玉珍对博物院内纺织器具印象尤深。
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-30 05:01 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-30 05:09 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 04:52 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-30 04:50 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-30 04:54 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-30 04:49 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-30 04:44 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-30 05:09 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 04:47 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 04:44 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 04:48 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 05:12 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-30 05:07 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 05:01 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-30 05:00 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 04:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 05:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 04:53 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 04:58 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 05:00 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 05:04 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 05:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 05:11 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 04:50 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-30 05:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:53 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/391219757.shtml)
-- 2026-06-30 05:00 - [刘念回应](https://www.blog.minike.top/Article/details/4392530.shtml)
-- 2026-06-30 04:42 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/20992118342.shtml)
-- 2026-06-30 04:44 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/64970408.shtml)
-- 2026-06-30 05:00 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/8718297.shtml)
-- 2026-06-30 04:58 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/362463049907.shtml)
-- 2026-06-30 04:49 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/8080170.shtml)
-- 2026-06-30 04:43 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/553976809886.shtml)
-- 2026-06-30 04:49 - [张碧晨最佳女歌手](https://www.share.kurohicncr.top/Article/details/344572.shtml)
-- 2026-06-30 04:54 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/9057069656.shtml)
-- 2026-06-30 04:43 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/29607004898.shtml)
-- 2026-06-30 04:49 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/8518748.shtml)
-- 2026-06-30 05:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/56799760.shtml)
-- 2026-06-30 04:47 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/609075435.shtml)
-- 2026-06-30 05:10 - [小娘惹](https://www.blog.minike.top/Article/details/02263596.shtml)
+- 2026-06-30 04:55 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/5998186391.shtml)
+- 2026-06-30 05:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/007733.shtml)
+- 2026-06-30 04:49 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/28353.shtml)
+- 2026-06-30 04:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/51160921.shtml)
+- 2026-06-30 04:57 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/494313566.shtml)
+- 2026-06-30 04:56 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/96650665.shtml)
+- 2026-06-30 05:12 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/849664.shtml)
+- 2026-06-30 05:10 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.kurohicncr.top/Article/details/3752790.shtml)
+- 2026-06-30 04:49 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/14702.shtml)
+- 2026-06-30 04:52 - [月亮](https://www.blog.minike.top/Article/details/0051841.shtml)
+- 2026-06-30 04:50 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/76844575648.shtml)
+- 2026-06-30 05:02 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/9885344.shtml)
+- 2026-06-30 05:03 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/662058705051.shtml)
+- 2026-06-30 05:14 - [女心理师](https://www.share.minike.top/Article/details/06374311.shtml)
+- 2026-06-30 05:04 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/76190912.shtml)

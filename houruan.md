@@ -1,58 +1,56 @@
-# 告别泡泡玛特、老铺黄金，广发基金吴远怡在管广发价值核心混合“风格漂移”
+# 政务服务集成式自助终端管理服务规范发布
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。 6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。 这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
+中新网5月14日电 据“市说新语”微信公众号消息，近日，市场监管总局批准发布《政务服务集成式自助终端管理服务规范》(GB/T 47483—2026)国家标准。该标准为各地政务服务集成式自助终端建设提供统一标尺，推动政务服务迈向标准化、规范化、便利化。该标准规定了政务服务集成式自助终端总体要求、事项管理、功能管理、服务接口、安全管理等全流程要求，推动自助终端打破部门壁垒，整合多部
 
 ## 正文
 
-来源：财报星球 原标题：告别泡泡玛特、老铺黄金，广发基金吴远怡在管基金“风格漂移” 卸任百亿规模基金产品，广发基金吴远怡在管基金仍面临合规考验。
+中新网5月14日电 据“市说新语”微信公众号消息，近日，市场监管总局批准发布《政务服务集成式自助终端管理服务规范》(GB/T 47483—2026)国家标准。
 
-6月3日，广发基金发布了一则人事公告，号称“爆款捕手”的吴远怡在同日卸任了广发成长领航一年持有、广发创新升级以及广发小盘成长3只产品的基金经理职务。
+该标准为各地政务服务集成式自助终端建设提供统一标尺，推动政务服务迈向标准化、规范化、便利化。
 
-这位曾经的百亿主动权益基金经理，因为提前押中泡泡玛特、老铺黄金等爆款标的而声名鹊起。
+该标准规定了政务服务集成式自助终端总体要求、事项管理、功能管理、服务接口、安全管理等全流程要求，推动自助终端打破部门壁垒，整合多部门、多层级政务服务事项，实现从单一功能向集成服务升级。
 
-如今，收缩战线的吴远怡如何再出发？
+在便民服务方面，该标准要求优先上线流程简便、操作便捷的高频服务事项，设置敬老服务专区、“高效办成一件事”专区、企业服务专区等特色板块。
 
-卸任押中“爆款”的基金产品 在公募江湖，吴远怡的崛起路径极具辨识度。
+同时，融入人工智能技术，提供智能语音导办、智能填表、智能客服等智能化服务，支持“一键转接”人工客服，推动政务自助服务从“可用”向“好用、易用”升级。
 
-这位拥有理学硕士学位的基金经理，曾任职于申银万国证券研究所、惠理基金（香港）及中国人寿资产，2020年加入广发基金。
+在互联互通方面，该标准提出依托全国一体化政务服务平台实现跨层级、跨区域数据共享互通，保障“跨域通办”高效落地，让企业和群众实现“就近办、异地办、便捷办”。
 
-其真正的“封神之作”无疑是广发成长领航一年持有。
+在安全保障方面，该标准明确要求构建全方位安全防护体系，严禁植入商业广告、泄露用户敏感信息，保障终端运行、数据内容安全。
 
-截至2026年6月初，吴远怡在该产品的任职回报高达181.69%，同类平均为31.02%，在同期6700余只同类产品中排名第122位。
+在运维管理方面，该标准推动建立事项清单动态更新、设备运维保障、服务监督评价等机制，要求定期分析终端使用频次，停用单一功能、低使用率设备，以杜绝资源浪费，依托数据分析优化站点布局，通过“好差评”系统收集群众意见，持续迭代服务品质，推动自助服务体系科学、集约、高效运行。
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-30 05:08 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 04:57 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 05:01 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 04:45 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-30 04:56 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 04:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 04:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 05:03 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 05:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 05:11 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-30 04:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-30 05:00 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 04:53 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 05:04 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 04:50 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 05:11 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 05:00 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 05:17 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 05:07 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 04:50 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-30 04:53 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/88864737352.shtml)
-- 2026-06-30 05:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/643758.shtml)
-- 2026-06-30 04:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/1971447.shtml)
-- 2026-06-30 04:58 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/614202439170.shtml)
-- 2026-06-30 04:59 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/61411712.shtml)
-- 2026-06-30 05:11 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/8766891.shtml)
-- 2026-06-30 05:05 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/44387481.shtml)
-- 2026-06-30 05:01 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/42632401057.shtml)
-- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/58425803652.shtml)
-- 2026-06-30 05:11 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/65747107.shtml)
-- 2026-06-30 04:58 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/4773533.shtml)
-- 2026-06-30 04:51 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/689192248.shtml)
-- 2026-06-30 04:51 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/6839267.shtml)
-- 2026-06-30 05:02 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/50307.shtml)
-- 2026-06-30 05:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/836351569118.shtml)
+- 2026-06-30 04:59 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/69523990184.shtml)
+- 2026-06-30 04:49 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/7135912.shtml)
+- 2026-06-30 05:15 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/054158.shtml)
+- 2026-06-30 05:09 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/367343598.shtml)
+- 2026-06-30 05:12 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/2612502.shtml)
+- 2026-06-30 04:49 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/3442827.shtml)
+- 2026-06-30 05:02 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/171525356.shtml)
+- 2026-06-30 04:53 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/32664999.shtml)
+- 2026-06-30 05:12 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/1634380831.shtml)
+- 2026-06-30 04:48 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/01245795.shtml)
+- 2026-06-30 04:49 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/246502189323.shtml)
+- 2026-06-30 05:13 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.minike.top/Article/details/88211572.shtml)
+- 2026-06-30 05:05 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/72757067416.shtml)
+- 2026-06-30 04:51 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/677283123.shtml)
+- 2026-06-30 04:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/12496.shtml)

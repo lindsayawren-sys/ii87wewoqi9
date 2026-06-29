@@ -1,59 +1,60 @@
-# 安徽小麦收获基本完成 8天抢收3630万亩
+# 广州“百企强百村”研训开班 197名“新班长”学“造血”
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新社合肥6月8日电 (记者 张强)记者8日从安徽省农业农村厅获悉，截至当日，该省4300多万亩小麦收获基本完成，机收率超99%，夏粮生产形势总体平稳向好。 安徽是中国夏粮第三大主产省。今年“三夏”期间，该省积极应对5月中下旬降雨不利影响，投入高性能联合收割机逾16万台，抢抓降雨间隙全力抢收。 在小麦主产区集中收获期间，安徽日均投入联合收割机6.9万台，峰值日投入达11.1万台
+中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。 针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导
 
 ## 正文
 
-中新社合肥6月8日电 (记者 张强)记者8日从安徽省农业农村厅获悉，截至当日，该省4300多万亩小麦收获基本完成，机收率超99%，夏粮生产形势总体平稳向好。
+中新网广州5月14日电 (记者 方伟彬)广州市委统战部、市农业农村局、市工商联14日联合举办“百企强百村”集体经济发展专题研训活动。
 
-安徽是中国夏粮第三大主产省。
+该市197个集体经济相对薄弱村的党组织书记集中“充电”，学习产业规划、电商运营及村企对接新模式，旨在贯彻落实广东“百千万工程”推进会精神，为乡村振兴蓄力。
 
-今年“三夏”期间，该省积极应对5月中下旬降雨不利影响，投入高性能联合收割机逾16万台，抢抓降雨间隙全力抢收。
+针对换届后近半数村支书履新、基层经验不足的现状，本次研训将85名新任书记列为重点对象，实行导师结对辅导。
 
-在小麦主产区集中收获期间，安徽日均投入联合收割机6.9万台，峰值日投入达11.1万台；同步投入2万余台粮食烘干机，有效解决阴雨天气下粮食烘干晾晒难题，确保夏粮收获品质。
+老书记则自愿参训。
 
-其中，该省于5月29日至6月5日的8天内抢收小麦3630万亩。
+广州市委统战部相关负责人表示，研训不仅是落实“五年显著变化”目标的关键举措，更是为了将“投资于物”与“投资于人”结合，建强基层“头雁方阵”。
 
-据安徽省农业农村厅初步监测情况，该省小麦机收平均损失率稳定在1%以内，收成、品质整体优良。
+自去年起，广州创新推行“行政专班+专业运营”双轮驱动模式。
 
-在夏粮收购方面，安徽省粮食和物资储备局今年安排各市县提前准备收购仓容322.9亿斤、收购资金逾304亿元人民币，努力做到“有仓收粮、有钱收粮、有人收粮、有车运粮”。
+通过引入农业农村部专家及专业机构，以“理论+实操+陪跑”方式，指导197个村定制“一村一策”发展计划，成功导入淡水蓝龙虾等优质项目。
 
-(完)
+农业农村部专家顾益康评价称，该模式既强化了政策统筹，又激活了市场效能。
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 04:47 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 05:11 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 04:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 04:58 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 05:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 04:52 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 05:05 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 05:00 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 05:08 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 04:50 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 05:01 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 04:57 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-30 05:03 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-30 04:50 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 04:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 04:57 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 04:48 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-30 05:07 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 05:12 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-30 04:56 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 05:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 05:12 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-30 05:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 04:56 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 04:51 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-30 05:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [美人鱼](https://www.share.minike.top/Article/details/1916256675.shtml)
-- 2026-06-30 04:49 - [官方：建立健全学龄人口预测预警机制](https://www.share.minike.top/Article/details/4076896.shtml)
-- 2026-06-30 04:46 - [小娘惹](http://www.blog.minike.top/Article/details/29835908104.shtml)
-- 2026-06-30 05:00 - [沙丘](http://www.share.minike.top/Article/details/598103598.shtml)
-- 2026-06-30 04:50 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/78676.shtml)
-- 2026-06-30 04:46 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/19368.shtml)
-- 2026-06-30 05:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/755100.shtml)
-- 2026-06-30 04:44 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/935292.shtml)
-- 2026-06-30 04:42 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/75365.shtml)
-- 2026-06-30 05:05 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/4224866.shtml)
-- 2026-06-30 05:03 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/76325769717.shtml)
-- 2026-06-30 04:57 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/421167.shtml)
-- 2026-06-30 04:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/8023280274.shtml)
-- 2026-06-30 04:49 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/463479874.shtml)
-- 2026-06-30 04:58 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/20732.shtml)
+- 2026-06-30 04:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/801760253.shtml)
+- 2026-06-30 04:49 - [孙兴慜道歉](https://www.share.minike.top/Article/details/67705205.shtml)
+- 2026-06-30 05:04 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/98877679.shtml)
+- 2026-06-30 05:05 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/8265332031.shtml)
+- 2026-06-30 04:52 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/17641571685.shtml)
+- 2026-06-30 05:05 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/073270479246.shtml)
+- 2026-06-30 04:59 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/08126487.shtml)
+- 2026-06-30 05:15 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/0153374421.shtml)
+- 2026-06-30 04:48 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/029039.shtml)
+- 2026-06-30 04:58 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/814777.shtml)
+- 2026-06-30 05:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/6776010.shtml)
+- 2026-06-30 04:53 - [一见倾心](http://www.share.minike.top/Article/details/97337289157.shtml)
+- 2026-06-30 05:11 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/79110004.shtml)
+- 2026-06-30 04:57 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/24030.shtml)
+- 2026-06-30 05:04 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/72611816.shtml)

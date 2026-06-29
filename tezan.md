@@ -1,58 +1,61 @@
-# 长江有色：8日镍价上涨 现货回暖惜售市场博弈观望
+# 银行持债破百万亿，“债券+信贷”重塑融资新格局
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍小涨，沪期镍主力月2607合约开盘138650元/吨，盘中最高报140520元/吨，最低价报138200元/吨，收盘报139090元/吨，上涨350元/吨，涨幅为0.25%，沪镍主力月2607主力合约成交量275398手。 据长江有色属网统计：6月8日ccmn长江综合1#镍价报140000元/吨-141300元/吨，均价报140
+21世纪经济报道记者 余纪昕 “金市部在商业银行的含金量还在上升。”一位分管金融市场部的长三角农商行副行长对记者表示。 “曾经我们这部门是‘配菜’，现在也荣升‘主菜’了。”他笑谈道。在他麾下，几个交易员每年人均创利好几千万，金市部成为实打实的银行净利润“顶梁柱”部门。他还透露，有基金公司愿意支付百万年薪，挖角他们这个区域银行的债券交易员去上海工作。 这位副行长所言非虚，近年来债
 
 ## 正文
 
-长江有色金属网 ccmn沪镍走势：今日午盘后沪期镍小涨，沪期镍主力月2607合约开盘138650元/吨，盘中最高报140520元/吨，最低价报138200元/吨，收盘报139090元/吨，上涨350元/吨，涨幅为0.25%，沪镍主力月2607主力合约成交量275398手。
+21世纪经济报道记者 余纪昕 “金市部在商业银行的含金量还在上升。
 
-据长江有色属网统计：6月8日ccmn长江综合1#镍价报140000元/吨-141300元/吨，均价报140650元/吨，较前一日价格上涨1350元，长江现货1#镍报140050元/吨-141450元/吨，均价报140750元/吨，较前一日价格上涨1400元，广东现货镍报140950元/吨-141350元/吨，均价报141150元/吨，较前一日价格上涨1100元。
+”一位分管金融市场部的长三角农商行副行长对记者表示。
 
-宏观面影响因素 美国 5 月非农表现超预期，劳动力市场韧性十足，市场彻底终结年内降息预期，加息氛围持续升温。
+“曾经我们这部门是‘配菜’，现在也荣升‘主菜’了。
 
-美元、美债收益率同步走高，高利率环境引发资金撤离，全球风险资产普遍下行。
+”他笑谈道。
 
-美联储新任主席即将迎来首次议息会议，后续经济数据与中东局势仍值得重点留意。
+在他麾下，几个交易员每年人均创利好几千万，金市部成为实打实的银行净利润“顶梁柱”部门。
 
-国内镍市处于消费淡季，但新能源需求坚挺，不锈钢补库逐步启动。
+他还透露，有基金公司愿意支付百万年薪，挖角他们这个区域银行的债券交易员去上海工作。
 
-印尼大幅收紧镍矿供给，原料与冶炼成本抬升，产业利好对冲宏观利空，镍市多空博弈加剧。
+这位副行长所言非虚，近年来债券交易在银行的地位确实突飞猛进。
 
-本交易日长江现货市场镍价小幅上涨。
+根据央行《2026年第一季度货币政策执行报告》，截至2025年末，我国银行持有的债券规模历史性突破100万亿元大关，占银行总资产的25%，较2015年上升7个百分点；同时，债券与贷款的比例升至35%，较2015年上升6个百分点。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-30 04:59 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 04:51 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 04:58 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 04:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 04:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 05:03 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 05:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 05:06 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 05:11 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 04:52 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 04:49 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 04:51 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 05:06 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-30 04:54 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
+- 2026-06-30 04:58 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 05:15 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 04:59 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 05:01 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 04:57 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
+- 2026-06-30 05:09 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 04:57 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 04:56 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 05:12 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-30 04:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 05:12 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-30 05:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/21422.shtml)
-- 2026-06-30 05:10 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/682182675.shtml)
-- 2026-06-30 05:01 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/47330807.shtml)
-- 2026-06-30 05:08 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/8482291431.shtml)
-- 2026-06-30 05:12 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/30111024.shtml)
-- 2026-06-30 04:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/487443.shtml)
-- 2026-06-30 04:45 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.minike.top/Article/details/4510856484.shtml)
-- 2026-06-30 05:03 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/3569849076.shtml)
-- 2026-06-30 04:49 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/247735597.shtml)
-- 2026-06-30 04:42 - [刘念回应](http://www.share.kurohicncr.top/Article/details/03910746.shtml)
-- 2026-06-30 04:48 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/709284.shtml)
-- 2026-06-30 05:07 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/9753560.shtml)
-- 2026-06-30 05:08 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/844130692596.shtml)
-- 2026-06-30 04:46 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/47587863003.shtml)
-- 2026-06-30 05:01 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/9714839.shtml)
+- 2026-06-30 05:08 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/499973424185.shtml)
+- 2026-06-30 05:14 - [恋与深空 日服](http://www.share.minike.top/Article/details/2220281.shtml)
+- 2026-06-30 05:00 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/08489.shtml)
+- 2026-06-30 05:08 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/921997076.shtml)
+- 2026-06-30 05:00 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/729796726.shtml)
+- 2026-06-30 04:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/9552828562.shtml)
+- 2026-06-30 04:53 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/3016756963.shtml)
+- 2026-06-30 04:58 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/05179494.shtml)
+- 2026-06-30 05:08 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/475518.shtml)
+- 2026-06-30 04:55 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/33868.shtml)
+- 2026-06-30 05:10 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/29152892.shtml)
+- 2026-06-30 05:12 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/74270.shtml)
+- 2026-06-30 05:13 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/49292904.shtml)
+- 2026-06-30 05:02 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/032709.shtml)
+- 2026-06-30 05:14 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/320302.shtml)

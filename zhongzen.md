@@ -1,60 +1,61 @@
-# 向日葵（300111）股民索赔再提交立案，上海易连（600836）索赔案再获得法院立案
+# 广东省乡村酒店（民宿）全连接展助力乡村产业振兴
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的向日葵（维权）（300111）虚假陈述投资者索赔案再向绍兴市中级人民法院提交一次立案。（许峰律师专栏） 此前许峰律师代理的向日葵投资者索赔案已获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排。律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2026年4月8日晚，向日葵公告收到浙江
+中新网广州5月14日电 (记者 王坚)2026年“白云宿集”民宿大会暨广东省乡村酒店(民宿)全连接展13日在广州白云区举行。 大会以“全连接”为核心理念，通过实地考察、行业交流、展览展示等方式，把民宿产业从设计、投资、运营到培训、用品、平台等各个环节真正串联起来，推动上下游务实合作，强化资源整合和品牌打造，让乡村住宿逐步走向标准化、特色化、品牌化，用农文旅的深度融合为乡村产业振
 
 ## 正文
 
-2026年6月3日，上海久诚律师事务所股票索赔律师许峰代理的向日葵（维权）（300111）虚假陈述投资者索赔案再向绍兴市中级人民法院提交一次立案。
+中新网广州5月14日电 (记者 王坚)2026年“白云宿集”民宿大会暨广东省乡村酒店(民宿)全连接展13日在广州白云区举行。
 
-（许峰律师专栏） 此前许峰律师代理的向日葵投资者索赔案已获得绍兴市中级人民法院立案，目前正在等待法院的下一步安排。
+大会以“全连接”为核心理念，通过实地考察、行业交流、展览展示等方式，把民宿产业从设计、投资、运营到培训、用品、平台等各个环节真正串联起来，推动上下游务实合作，强化资源整合和品牌打造，让乡村住宿逐步走向标准化、特色化、品牌化，用农文旅的深度融合为乡村产业振兴添力。
 
-律师团队目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+大会现场，“白云宿集”民宿产业联盟正式成立。
 
-2026年4月8日晚，向日葵公告收到浙江证监局出具的《行政处罚决定书》，经查明，当事人存在以下违法事实： 2025年9月22日，向日葵披露《发行股份及支付现金购买资产并募集配套资金暨关联交易预案》，称公司拟通过发行股份及支付现金的方式购买漳州兮璞材料科技有限公司（以下简称兮璞材料）100%股权、浙江贝得药业有限公司40%股权，并募集配套资金，交易预计构成重大资产重组。
+“白云宿集”民宿产业联盟联合发起人、广东民宿发展研究院创始人徐灵枝表示，“白云宿集”民宿产业联盟整合民宿产业链上下游资源，上游连接设计与集采，中游赋能运营管理，下游带动研学、文创等配套，旨在通过资源共享、会员互荐，并引入高校人才，为投资者提供从设计到运营的一站式解决方案，推动白云民宿从分散走向链动共生。
 
-《预案》披露兮璞材料的主要盈利模式为“定制化代工+自主生产”相结合。
+会上，首批白云民宿推荐官、产业发展智库专家获颁证书，6家乡村酒店(民宿)入选“粤宿大奖·2026年第二批‘金枕头’必睡推荐榜单”，其中白云区三顾茅庐、卓思道·悦舍、帕玛谷康养民宿上榜并获授牌。
 
-截至披露日，兮璞材料自有工厂仍在建、尚不具备自主生产能力，且主要产品系标准化产品，前述主要盈利模式存在误导性陈述。
+在签约环节，白云区文化广电旅游体育局与中建八局西北公司、陕西文化产业投资控股(集团)有限公司榆林公司等签署城乡文旅战略合作协议；同程旅行艺龙酒店科技与多个乡村酒店(民宿)项目签署意向合作协议，实现“基建+文旅”“平台+线下”的双重连接。
 
-《预案》披露后，向日葵股价连续3个交易日涨停、成交量显著放大。
+白云区政府表示，将以“白云宿集”品牌为牵引，依托“四大枢纽”“十大产业平台”及生态资源优势，推动制造业与文旅业双向赋能，下一步将加快出台专项扶持政策，在土地、金融、人才等方面提供精准支持。
 
-2025年12月26日，深圳证券交易所针对前述《预案》事项向公司下发《关注函》。
+活动现场，白云区文化广电旅游体育局、白云区农业农村局分别推介文旅资源和农业产业，共同为投资方和资源方搭建了直接互动的“连接”桥梁。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
-- 2026-06-30 05:10 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
-- 2026-06-30 05:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-30 05:06 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 05:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-30 04:59 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-30 05:10 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 05:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 05:08 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-30 04:50 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-30 04:47 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 05:08 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 05:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 04:54 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 05:06 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 05:10 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-30 05:13 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 04:55 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 05:03 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 05:02 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 05:00 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 05:02 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 04:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-30 05:11 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 04:52 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-30 05:02 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-30 05:07 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-30 04:56 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 05:10 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/45511.shtml)
-- 2026-06-30 04:52 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/767795539955.shtml)
-- 2026-06-30 05:05 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/75153174.shtml)
-- 2026-06-30 04:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/28880993.shtml)
-- 2026-06-30 04:57 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/97242.shtml)
-- 2026-06-30 04:57 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/2836048289.shtml)
-- 2026-06-30 05:06 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/180006801646.shtml)
-- 2026-06-30 05:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/18957625558.shtml)
-- 2026-06-30 04:44 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/2118702908.shtml)
-- 2026-06-30 04:48 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/7426633697.shtml)
-- 2026-06-30 04:45 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/93693.shtml)
-- 2026-06-30 04:49 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/310439434000.shtml)
-- 2026-06-30 05:11 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/181497948171.shtml)
-- 2026-06-30 04:58 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/936376.shtml)
-- 2026-06-30 04:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/139271208.shtml)
+- 2026-06-30 05:09 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/217522489.shtml)
+- 2026-06-30 05:05 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/14771.shtml)
+- 2026-06-30 05:11 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/71934278420.shtml)
+- 2026-06-30 04:53 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/69338836790.shtml)
+- 2026-06-30 04:48 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/198968.shtml)
+- 2026-06-30 04:50 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/97949561034.shtml)
+- 2026-06-30 04:59 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/12755122.shtml)
+- 2026-06-30 04:53 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3595092.shtml)
+- 2026-06-30 04:55 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/9240500358.shtml)
+- 2026-06-30 05:08 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/3429791.shtml)
+- 2026-06-30 05:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/89449707.shtml)
+- 2026-06-30 05:12 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.kurohicncr.top/Article/details/435231283909.shtml)
+- 2026-06-30 05:09 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/14874169036.shtml)
+- 2026-06-30 05:14 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/5317725.shtml)
+- 2026-06-30 05:08 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/698384.shtml)

@@ -1,59 +1,58 @@
-# 股价业绩翻倍！千亿存储牛股们，密集减持、赴港上市
+# 首届中国新文创市集在北京开幕
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨吴佳楠 编辑丨孙超逸 曾静娇 张伟贤 6月9日，A股四大指数集体大涨，存储芯片指数涨超4%，普冉股份、恒烁股份等4股涨超9%，江波龙、佰维存储、兆易创新等多只千亿市值个股涨超5%。今年以来，存储芯片概念一路上行，共有10股股价涨幅已超100%，前三位为商络电子（259%）、普冉股份（222%）、德明利
+中新社北京5月15日电 (记者 徐婧)首届中国新文创市集暨潮玩游园会15日在北京开幕。活动汇聚全国31个省区市、新疆生产建设兵团以及港澳地区的优质机构，带来文博文创、潮玩文创、数字科技体验等。 本次活动以“文创市集、潮玩体验、公园游园”融合模式，打造开放沉浸、可游、可购、可体验的文创消费新场景。打破传统市集边界，创新规划“三区两线”游园体验空间，串联文创、商务、游园三大功能区，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月15日电 (记者 徐婧)首届中国新文创市集暨潮玩游园会15日在北京开幕。
 
-记者丨吴佳楠 编辑丨孙超逸 曾静娇 张伟贤 6月9日，A股四大指数集体大涨，存储芯片指数涨超4%，普冉股份、恒烁股份等4股涨超9%，江波龙、佰维存储、兆易创新等多只千亿市值个股涨超5%。
+活动汇聚全国31个省区市、新疆生产建设兵团以及港澳地区的优质机构，带来文博文创、潮玩文创、数字科技体验等。
 
-今年以来，存储芯片概念一路上行，共有10股股价涨幅已超100%，前三位为商络电子（259%）、普冉股份（222%）、德明利（170%）。
+本次活动以“文创市集、潮玩体验、公园游园”融合模式，打造开放沉浸、可游、可购、可体验的文创消费新场景。
 
-2026年行至年中，江波龙、佰维存储等一批A股存储概念股业绩爆发，股价扶摇直上，纷纷叩开千亿市值的大门。
+打破传统市集边界，创新规划“三区两线”游园体验空间，串联文创、商务、游园三大功能区，打通步行与水上两条游览动线，让古今文化与潮流生活深度交融。
 
-然而，这些刚刚站上千亿市值台阶的存储新贵们，其资本动作却耐人寻味。
+文创区打造两大主题板块，兼顾东方美学与潮流元素，实现传统与现代的双向奔赴。
 
-一方面，产业资本、创始人或董监高密集抛出减持计划，大额套现、落袋为安。
+其中，东方新美学板块集结故宫博物院、国家博物馆、三星堆博物馆等46家国内文博机构，携手带来爆款文创；43项非遗技艺同台展演，让游客近距离感受传统文化温度。
 
-另一方面，公司主体争相奔赴港股，寻求更便捷的国际资本通道以开启二次融资，急迫补血扩张。
+在澳门青年文创产业联合会展台，以咖啡豆为原型的IP“豆人Beanie”微喷版画吸引观众驻足。
 
-在这场存储芯片的周期狂欢中，站在千亿市值之巅的存储概念股公司又将如何押注未来？
+现场负责人李伟杰介绍，本次参展带来多个澳门热门IP的文创产品，上述版画将香港、成都、北京实景与卡通形象结合，首次在北京亮相。
 
 ## 相关推荐
 
-- 2026-06-30 04:58 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 05:11 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-30 04:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 04:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 05:06 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 04:58 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 05:07 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 04:58 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 04:51 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 04:56 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-30 04:53 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 04:46 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 05:05 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 04:59 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 05:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 04:58 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-30 05:16 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 04:52 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 04:56 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 05:02 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 04:54 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 04:54 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 05:15 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-30 05:02 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-30 05:13 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/35414406.shtml)
-- 2026-06-30 04:51 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/059830193.shtml)
-- 2026-06-30 05:11 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/44569085176.shtml)
-- 2026-06-30 05:11 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/259363306183.shtml)
-- 2026-06-30 05:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/136657298952.shtml)
-- 2026-06-30 04:56 - [第一炉香](http://www.blog.minike.top/Article/details/73780117.shtml)
-- 2026-06-30 04:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/444330427.shtml)
-- 2026-06-30 04:53 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/53305.shtml)
-- 2026-06-30 05:00 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.kurohicncr.top/Article/details/448179.shtml)
-- 2026-06-30 05:01 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/21849758621.shtml)
-- 2026-06-30 04:53 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/709811.shtml)
-- 2026-06-30 05:05 - [张凌赫 客串](http://www.share.minike.top/Article/details/925353931171.shtml)
-- 2026-06-30 04:50 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/126615977.shtml)
-- 2026-06-30 04:57 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/503595.shtml)
-- 2026-06-30 05:04 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/69874468781.shtml)
+- 2026-06-30 04:55 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/474515.shtml)
+- 2026-06-30 05:13 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/68814.shtml)
+- 2026-06-30 04:53 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/969927701.shtml)
+- 2026-06-30 04:53 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/8170707205.shtml)
+- 2026-06-30 05:08 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/0522728.shtml)
+- 2026-06-30 04:54 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/55709.shtml)
+- 2026-06-30 05:13 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/02406936983.shtml)
+- 2026-06-30 04:55 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/03191821.shtml)
+- 2026-06-30 05:13 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/782489.shtml)
+- 2026-06-30 05:01 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/01818602.shtml)
+- 2026-06-30 05:10 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/78021064159.shtml)
+- 2026-06-30 05:03 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/98631750.shtml)
+- 2026-06-30 04:51 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/3313792.shtml)
+- 2026-06-30 04:50 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/7864194067.shtml)
+- 2026-06-30 04:56 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/2509473003.shtml)

@@ -1,61 +1,51 @@
-# 腾讯控股早盘涨超4% 旗下微信发布关于开发者接入微信AI生态指引
+# 第二届香港演艺博览10月启幕 将呈现逾40个国际演出和项目推介
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-腾讯控股（00700）早盘涨超4%，截至发稿，股价上涨4.17%，现报465港元。 6月8日，据微信公开课消息，为给用户提供更智能的交互体验，微信开放平台在充分尊重开发者权益和自主选择的基础上，面向开发者提供了便捷接入微信AI生态的能力。开发者需在“小程序管理后台-AI能力”主动授权接入微信AI。 同时平台提供了两种选项，以满足不同规模团队的开发需求。自动模式方面，授权平台提审
+发布时间：2026年05月15日 07:58 来源：中国新闻网 5月14日，香港艺术发展局举行发布会，介绍第二届香港演艺博览相关亮点。据悉，本届香港演艺博览将于10月9日至13日举行，汇聚来自全球五大洲的艺术家及艺团，呈献超过40个国际演出及项目推介，以及逾30场对话及交流活动，内容涵盖舞蹈、戏剧、音乐、戏曲及跨媒介艺术。并设立全新环节，聚焦本地独立艺术家及中小型艺团，在国际舞
 
 ## 正文
 
-腾讯控股（00700）早盘涨超4%，截至发稿，股价上涨4.17%，现报465港元。
+发布时间：2026年05月15日 07:58 来源：中国新闻网 5月14日，香港艺术发展局举行发布会，介绍第二届香港演艺博览相关亮点。
 
-6月8日，据微信公开课消息，为给用户提供更智能的交互体验，微信开放平台在充分尊重开发者权益和自主选择的基础上，面向开发者提供了便捷接入微信AI生态的能力。
+据悉，本届香港演艺博览将于10月9日至13日举行，汇聚来自全球五大洲的艺术家及艺团，呈献超过40个国际演出及项目推介，以及逾30场对话及交流活动，内容涵盖舞蹈、戏剧、音乐、戏曲及跨媒介艺术。
 
-开发者需在“小程序管理后台-AI能力”主动授权接入微信AI。
+并设立全新环节，聚焦本地独立艺术家及中小型艺团，在国际舞台上彰显香港独特而多元的表演艺术面貌，同时为全球表演艺术从业者提供专业交流平台。
 
-同时平台提供了两种选项，以满足不同规模团队的开发需求。
-
-自动模式方面，授权平台提审时读取小程序源码，无需投入额外开发；平台将分析你的小程序页面，让微信AI能直接操作。
-
-开发模式方面，开发者可基于小程序业务特性，自主个性化开发；通过平台评测与审核后，可被微信Al调用。
-
-两种模式不互斥，可同时开启。
-
-责任编辑：卢昱君
+(记者 程宇） 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 04:44 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 05:04 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 04:48 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 05:06 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-30 04:55 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 04:45 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 04:46 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 04:58 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-30 05:00 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 05:01 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-30 04:46 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
-- 2026-06-30 05:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 04:46 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 04:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 05:00 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-30 04:48 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 05:01 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 05:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 05:05 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 04:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
+- 2026-06-30 05:08 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 04:55 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 05:07 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 04:48 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-30 04:52 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-30 05:11 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-30 04:55 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:11 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/64926412910.shtml)
-- 2026-06-30 04:53 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/22954100.shtml)
-- 2026-06-30 04:55 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/477188.shtml)
-- 2026-06-30 05:11 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/48266.shtml)
-- 2026-06-30 05:07 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/60364.shtml)
-- 2026-06-30 04:52 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/8008418701.shtml)
-- 2026-06-30 04:45 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/5544400398.shtml)
-- 2026-06-30 04:57 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/395380352.shtml)
-- 2026-06-30 04:57 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/9284939113.shtml)
-- 2026-06-30 04:42 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/91075720723.shtml)
-- 2026-06-30 05:03 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/038885980.shtml)
-- 2026-06-30 05:11 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/74195667023.shtml)
-- 2026-06-30 04:57 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/138599472118.shtml)
-- 2026-06-30 04:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/776531336.shtml)
-- 2026-06-30 05:05 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/65797835354.shtml)
+- 2026-06-30 04:56 - [卡塞米罗头球破门](http://www.share.kurohicncr.top/Article/details/98689295.shtml)
+- 2026-06-30 04:58 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.kurohicncr.top/Article/details/390017229454.shtml)
+- 2026-06-30 04:50 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/04793311.shtml)
+- 2026-06-30 04:51 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/752258308.shtml)
+- 2026-06-30 05:03 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/53509999.shtml)
+- 2026-06-30 05:02 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/956292.shtml)
+- 2026-06-30 04:56 - [日本进球](http://www.share.minike.top/Article/details/01963.shtml)
+- 2026-06-30 04:54 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/53425.shtml)
+- 2026-06-30 05:02 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/396393067930.shtml)
+- 2026-06-30 05:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.kurohicncr.top/Article/details/528396.shtml)
+- 2026-06-30 04:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/5132943.shtml)
+- 2026-06-30 04:56 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/95141530154.shtml)
+- 2026-06-30 05:03 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/60276271723.shtml)
+- 2026-06-30 04:53 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/22863502842.shtml)
+- 2026-06-30 05:06 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/913511427.shtml)

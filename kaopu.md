@@ -1,50 +1,59 @@
-# 惠陶集团拟发行本金总额为350万港元的可换股债券
+# 5月15日热门中概股多数下跌 B站跌9.04%，世纪互联跌7.36%
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-惠陶集团（08238）发布公告，于2026年6月8日，公司与认购人马海杨先生订立认购协议，内容有关发行本金总额为350万港元的可换股债券。于可换股债券按初步换股价每股换股股份0.2港元（可予调整）获悉数转换后，合共1741.8万股换股股份将予发行，相当于公司现有已发行股本当中约5%及经发行换股股份扩大的已发行股本当中约4.76%。 认购事项所得款项总额将为350万港元，而所得款
+5月15日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌3.37%。 上涨个股（按市值从高到低）：台积电涨4.48%，联电涨7.63%，中国新城农村涨1.97%，微牛涨3.11%，奇景光电涨0.46%。 下跌个股（按市值从高到低）：阿里巴巴跌3.21%，拼多多跌4.04%，日月光半导体跌0.62%，网易跌2.99%，百度跌4.79%，京东跌2.69%，中华电信跌0.09
 
 ## 正文
 
-惠陶集团（08238）发布公告，于2026年6月8日，公司与认购人马海杨先生订立认购协议，内容有关发行本金总额为350万港元的可换股债券。
+5月15日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）收跌3.37%。
 
-于可换股债券按初步换股价每股换股股份0.2港元（可予调整）获悉数转换后，合共1741.8万股换股股份将予发行，相当于公司现有已发行股本当中约5%及经发行换股股份扩大的已发行股本当中约4.76%。
+上涨个股（按市值从高到低）：台积电涨4.48%，联电涨7.63%，中国新城农村涨1.97%，微牛涨3.11%，奇景光电涨0.46%。
 
-认购事项所得款项总额将为350万港元，而所得款项净额将约为320万港元。
+下跌个股（按市值从高到低）：阿里巴巴跌3.21%，拼多多跌4.04%，日月光半导体跌0.62%，网易跌2.99%，百度跌4.79%，京东跌2.69%，中华电信跌0.09%，携程跌3.83%，贝壳跌3.75%，理想汽车跌3.75%，富途控股跌0.86%，中通跌3.16%，蔚来跌4.28%，小鹏汽车跌3.42%，华住酒店集团跌3.22%，腾讯音乐跌3.86%，满帮跌3.34%，哔哩哔哩跌9.04%，万国数据跌2.08%，慧荣科技跌2.23%，新东方跌1.11%，唯品会跌5.54%，BOSS直聘跌2.71%，WSP控股跌0.69%，金山云跌5.47%，亚朵集团跌0.24%，名创优品跌1.68%，小马智行跌2.55%，世纪互联跌7.36%，欢聚跌3.79%。
 
-集团拟将发行可换股债券筹集的所得款项净额用于一般营运资金。
+美股周四收高，道指重新站上5万点关口。
 
-责任编辑：卢昱君
+纳指与标普500指数再创历史新高。
+
+市场关注思科强劲财报以及中美高层会谈。
+
+美国4月进出口价格均创下多年新高。
+
+道指涨370.26点，涨幅为0.75%，报50063.46点；纳指涨232.88点，涨幅为0.88%，报26635.22点；标普500指数涨56.99点，涨幅为0.77%，报7501.24点。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 05:10 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 04:42 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 05:11 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 04:58 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 04:54 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 04:59 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 04:43 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 04:42 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 05:08 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 04:52 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 05:08 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-30 04:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 04:49 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 05:07 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 04:57 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 04:58 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 04:50 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 05:00 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 05:09 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-30 05:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 04:56 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 04:53 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:02 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/705420.shtml)
-- 2026-06-30 05:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/3671735407.shtml)
-- 2026-06-30 04:57 - [逃狱兄弟](https://www.blog.minike.top/Article/details/2216660.shtml)
-- 2026-06-30 04:43 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/76162.shtml)
-- 2026-06-30 04:52 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/062397184.shtml)
-- 2026-06-30 04:52 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/432706083.shtml)
-- 2026-06-30 04:54 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/406187672483.shtml)
-- 2026-06-30 04:49 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/95999591.shtml)
-- 2026-06-30 04:52 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/45926.shtml)
-- 2026-06-30 04:50 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/42092125635.shtml)
-- 2026-06-30 04:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.kurohicncr.top/Article/details/218467026573.shtml)
-- 2026-06-30 05:08 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/5978121635.shtml)
-- 2026-06-30 04:45 - [巴西替补奇兵读秒绝杀](http://www.blog.minike.top/Article/details/3905367850.shtml)
-- 2026-06-30 04:58 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/300833783.shtml)
-- 2026-06-30 04:55 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/517857680780.shtml)
+- 2026-06-30 05:03 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/75058231921.shtml)
+- 2026-06-30 04:56 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/20412436733.shtml)
+- 2026-06-30 04:54 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/593608073128.shtml)
+- 2026-06-30 05:16 - [斗破苍穹](https://www.blog.minike.top/Article/details/59863491763.shtml)
+- 2026-06-30 05:10 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/66470320.shtml)
+- 2026-06-30 05:18 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/7822444565.shtml)
+- 2026-06-30 05:01 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/83118.shtml)
+- 2026-06-30 05:15 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/4751984.shtml)
+- 2026-06-30 05:11 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/182615840651.shtml)
+- 2026-06-30 05:13 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/5071014319.shtml)
+- 2026-06-30 05:01 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/40405.shtml)
+- 2026-06-30 04:57 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/020884280.shtml)
+- 2026-06-30 04:56 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/63738.shtml)
+- 2026-06-30 04:50 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/9944681330.shtml)
+- 2026-06-30 05:03 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/4218689.shtml)

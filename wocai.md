@@ -1,60 +1,58 @@
-# 光模块继续调整，高“光”创业板人工智能ETF华宝（159363）跌超2%，机构：把握光通信龙头回调布局机会
+# 印度阿达尼与其侄子同意支付1800万美元 就欺诈指控与美国SEC达成和解
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-6月8日早盘，光模块CPO等海外算力链大幅低开后跌幅收窄，天孚通信跌超4%，新易盛跌超3%，中际旭创逼近翻红。热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）场内低开逾5%后，现跌幅收窄至2%，实时成交超6亿元。 消息面上，6月5日美股上演“黑色星期五”，科技股遭遇大面积调整。背后的触发原因，一是美股AI芯片龙头博通业绩不及预
+核心要点 在美国监管机构向法院申请批准与印度亿万富豪高塔姆・阿达尼及其侄子萨加尔・阿达尼的民事诉讼和解协议后，阿达尼企业与阿达尼绿色能源股价周五早盘跌幅收窄。 伦敦证券交易所集团数据显示，两只个股仍维持在 52 周高位上方；阿达尼企业年内累计涨幅约 24%，阿达尼绿色能源涨幅约 41%。 美国证券交易委员会（SEC）指控二人在关联印度光伏项目合同的贿赂及欺诈行为中误导投资者。根
 
 ## 正文
 
-6月8日早盘，光模块CPO等海外算力链大幅低开后跌幅收窄，天孚通信跌超4%，新易盛跌超3%，中际旭创逼近翻红。
+核心要点 在美国监管机构向法院申请批准与印度亿万富豪高塔姆・阿达尼及其侄子萨加尔・阿达尼的民事诉讼和解协议后，阿达尼企业与阿达尼绿色能源股价周五早盘跌幅收窄。
 
-热门ETF方面，光模块CPO含量超50%且“易中天”含量高的创业板人工智能ETF华宝（159363）场内低开逾5%后，现跌幅收窄至2%，实时成交超6亿元。
+伦敦证券交易所集团数据显示，两只个股仍维持在 52 周高位上方；阿达尼企业年内累计涨幅约 24%，阿达尼绿色能源涨幅约 41%。
 
-消息面上，6月5日美股上演“黑色星期五”，科技股遭遇大面积调整。
+美国证券交易委员会（SEC）指控二人在关联印度光伏项目合同的贿赂及欺诈行为中误导投资者。
 
-背后的触发原因，一是美股AI芯片龙头博通业绩不及预期，二是美国强劲的非农数据推升流动性紧缩预期。
+根据和解协议，高塔姆・阿达尼需缴纳 600 万美元罚款，萨加尔・阿达尼缴纳 1200 万美元罚款。
 
-兴业证券表示，本轮调整并非支撑行情的核心逻辑发生变化，更多是情绪层面的扰动，且影响偏结构。
+印度可再生能源企业阿达尼绿色能源向印度交易所提交公告称，二人同意接受最终判决生效，既不承认也不否认民事诉状中的相关指控，并按规定缴纳罚金。
 
-近期的外部扰动并不能改变、反而有望更加强化A股盈利驱动的底层逻辑。
+公司同时表示，自身并未卷入此次诉讼程序，未受到任何指控。
 
-当前，以AI为代表的科技成长仍是业绩确定性强、且景气优势延续的方向，近期的扰动并不构成系统性风格切换的信号。
+受 SEC 和解消息提振，集团旗舰企业阿达尼企业股价收涨 1.8%，身处贿赂指控核心的阿达尼绿色能源从早盘下跌中回升，最终上涨 0.6%。
 
-聚焦光模块CPO，广发证券认为，回调时机应重视光通信龙头的投资机会，应充分把握该回调窗口期。
+美国证券交易委员会对阿达尼叔侄以及 Azure Power Global 多名高管提起的民事诉讼，核心指控为在印度政府光伏能源项目招标中涉嫌行贿。
 
 ## 相关推荐
 
-- 2026-06-30 05:03 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-30 05:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 04:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 04:43 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-30 04:56 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 04:46 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-30 04:56 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-30 05:11 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-30 05:06 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-30 04:46 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-30 05:09 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 04:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 04:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 05:01 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 05:15 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-30 05:05 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-30 04:58 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 05:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 04:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 04:48 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-30 05:07 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 05:12 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 05:15 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 05:06 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-30 05:12 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 05:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:47 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/651123851709.shtml)
-- 2026-06-30 04:57 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/973568632.shtml)
-- 2026-06-30 04:49 - [二次元提前预演明日巴西对日本](https://www.blog.minike.top/Article/details/47093.shtml)
-- 2026-06-30 04:51 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/1236034.shtml)
-- 2026-06-30 04:43 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.minike.top/Article/details/184076287.shtml)
-- 2026-06-30 05:10 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/9313986376.shtml)
-- 2026-06-30 05:02 - [王灿兮被烫伤两年后维权成功](https://www.blog.kurohicncr.top/Article/details/2728645.shtml)
-- 2026-06-30 04:51 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/48732386831.shtml)
-- 2026-06-30 04:52 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/24477034533.shtml)
-- 2026-06-30 05:00 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/366221.shtml)
-- 2026-06-30 04:55 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/486654982.shtml)
-- 2026-06-30 04:42 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/4138096.shtml)
-- 2026-06-30 04:54 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/39091.shtml)
-- 2026-06-30 05:04 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/795331.shtml)
-- 2026-06-30 04:56 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/30688700.shtml)
+- 2026-06-30 05:11 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/31363.shtml)
+- 2026-06-30 05:05 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/55059.shtml)
+- 2026-06-30 05:15 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/2716681119.shtml)
+- 2026-06-30 05:15 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/44675.shtml)
+- 2026-06-30 05:04 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/1226282083.shtml)
+- 2026-06-30 05:09 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/3645991865.shtml)
+- 2026-06-30 04:50 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/324651647388.shtml)
+- 2026-06-30 04:57 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/99821277.shtml)
+- 2026-06-30 05:05 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/171887439.shtml)
+- 2026-06-30 04:51 - [千与千寻](http://www.share.minike.top/Article/details/5389239.shtml)
+- 2026-06-30 04:52 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/71384430102.shtml)
+- 2026-06-30 04:51 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/934162.shtml)
+- 2026-06-30 04:50 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/16646632952.shtml)
+- 2026-06-30 05:10 - [在巴西能拍到什么？](https://www.share.minike.top/Article/details/9325681.shtml)
+- 2026-06-30 04:54 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/946513916629.shtml)

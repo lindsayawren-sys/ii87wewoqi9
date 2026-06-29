@@ -1,56 +1,57 @@
-# 中金公司王曙光：推动形成市场活跃、收益良好、投资者持续进入的良性生态
+# 深耕家文化 共筑幸福路 | 新时代家庭文化创新发展大会在成都召开
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-专题：基金业“棋至中盘”：吴清定调“四个坚持”，多位公私募高管共议下一程 6月6日上午，中国证券投资基金业协会第四届会员代表大会在京举行。证监会主席吴清在会上表示，力争“十五五”时期建设一流投资机构取得突破性进展。为此，他强调全行业要做到“四个坚持”：坚持规范为先，不断夯实合规风控内在基础；坚持客户为本，始终注重投资者利益优先；坚持功能为要，更好发挥培育新质生产力作用；坚持创新
+蓉城锦绣，文脉绵长，家韵悠扬。5月13日，“一脉家文化·万家幸福路——新时代家庭文化创新发展大会”在浸润千年文明、氤氲烟火温情的天府之国成都隆重举行。本次活动由中国家庭文化研究会主办，四川省妇女儿童中心、四川省妇女儿童发展促进会承办。大会深入践行习近平文化思想和总书记关于注重家庭家教家风建设重要论述精神，汇聚各方力量共谋家庭文化高质量发展。来自全国各地的家庭文化研究者、妇女儿童
 
 ## 正文
 
-专题：基金业“棋至中盘”：吴清定调“四个坚持”，多位公私募高管共议下一程 6月6日上午，中国证券投资基金业协会第四届会员代表大会在京举行。
+蓉城锦绣，文脉绵长，家韵悠扬。
 
-证监会主席吴清在会上表示，力争“十五五”时期建设一流投资机构取得突破性进展。
+5月13日，“一脉家文化·万家幸福路——新时代家庭文化创新发展大会”在浸润千年文明、氤氲烟火温情的天府之国成都隆重举行。
 
-为此，他强调全行业要做到“四个坚持”：坚持规范为先，不断夯实合规风控内在基础；坚持客户为本，始终注重投资者利益优先；坚持功能为要，更好发挥培育新质生产力作用；坚持创新为基，持续增强行业高质量发展内生动力。
+本次活动由中国家庭文化研究会主办，四川省妇女儿童中心、四川省妇女儿童发展促进会承办。
 
-当日，多家公私募机构负责人密集发声，围绕打造“一流投资机构、一流行业协会”及“十五五”发展目标作出回应。
+大会深入践行习近平文化思想和总书记关于注重家庭家教家风建设重要论述精神，汇聚各方力量共谋家庭文化高质量发展。
 
-中金公司总裁王曙光表示，展望“十五五”，我国基金行业有望进一步迎来大发展。
+来自全国各地的家庭文化研究者、妇女儿童工作者，四川省各级妇联干部以及全国最美家庭、五好家庭代表等二百余人参加会议。
 
-围绕服务建设金融强国，需要行业机构加快打造一流投资机构，这对行业提出了新的更高要求。
+中国家庭文化研究会会长邓丽出席大会并致辞。
 
-一方面，需要围绕科技自立自强等国家重大战略，不断提升投资能力，持续引导更多长期资本、耐心资本，加大对战略新兴产业、未来产业的支持力度，做深做实金融“五篇大文章”。
+她强调，要以习近平文化思想赋能新时代家庭文化建设，系统建构中国特色家庭文化理论体系，着力打造顺应时代发展的家庭文化新格局、新实践、新生态。
 
-另一方面，作为服务数亿投资者的行业，要在维护资本市场稳定、提振投资者信心上发挥更大的作用。
+要紧扣国家“十五五”规划纲要部署，推动家庭家教家风建设理论研究与实践应用双向赋能、互促共进，为中国式现代化汇聚家庭力量。
 
 ## 相关推荐
 
-- 2026-06-30 05:11 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 04:55 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 05:01 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 04:50 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 05:09 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 05:03 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-30 05:01 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 05:10 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 04:52 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 05:01 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-30 05:15 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 04:56 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-30 04:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 05:05 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-30 05:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 04:52 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 05:09 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-30 05:06 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 05:00 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 05:01 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 05:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/7138057374.shtml)
-- 2026-06-30 04:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/717578.shtml)
-- 2026-06-30 04:42 - [沉睡花园](http://www.share.minike.top/Article/details/420184389.shtml)
-- 2026-06-30 05:10 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/856884.shtml)
-- 2026-06-30 05:05 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/6472611.shtml)
-- 2026-06-30 04:42 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/35061850.shtml)
-- 2026-06-30 05:07 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/86574768485.shtml)
-- 2026-06-30 04:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/544267705.shtml)
-- 2026-06-30 04:46 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/2898860144.shtml)
-- 2026-06-30 05:01 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/092048552594.shtml)
-- 2026-06-30 04:45 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/477854479.shtml)
-- 2026-06-30 04:54 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/577807739.shtml)
-- 2026-06-30 04:47 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/8943649115.shtml)
-- 2026-06-30 05:07 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/21281635.shtml)
-- 2026-06-30 05:02 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.kurohicncr.top/Article/details/7717461652.shtml)
+- 2026-06-30 05:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/285604.shtml)
+- 2026-06-30 04:53 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/735986942.shtml)
+- 2026-06-30 05:09 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/93873.shtml)
+- 2026-06-30 05:15 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/137086499.shtml)
+- 2026-06-30 04:49 - [世界杯](http://www.share.kurohicncr.top/Article/details/176302501.shtml)
+- 2026-06-30 05:03 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/8840634.shtml)
+- 2026-06-30 05:07 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/5875028.shtml)
+- 2026-06-30 05:07 - [日本反击率先破门](https://www.blog.minike.top/Article/details/64131384.shtml)
+- 2026-06-30 04:53 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/68106.shtml)
+- 2026-06-30 04:53 - [扬名立万](https://www.share.minike.top/Article/details/1058998210.shtml)
+- 2026-06-30 05:00 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/395623.shtml)
+- 2026-06-30 05:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/19485.shtml)
+- 2026-06-30 04:59 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/3200849.shtml)
+- 2026-06-30 05:12 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/911253.shtml)
+- 2026-06-30 04:56 - [巴西绝杀](https://www.blog.minike.top/Article/details/33683481.shtml)

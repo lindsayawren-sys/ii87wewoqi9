@@ -1,43 +1,57 @@
-# 【一图看懂】多省敲定“十五五”外贸发展重点，这些行业迎机遇
+# 近400家公司拟减持合计超千亿，多只翻倍股遭套现
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-责任编辑：刘万里 SF014
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨李益文 编辑丨叶映橙 视频丨许婷婷 4月以来，A股市场走出持续向上的独立行情，核心指数悉数刷新阶段乃至历史高点。上证指数向上突破4200点重要关口，创2015年7月以来近11年新高；创业板指同样一举突破2015年6月的历史高点，刷新历史最高纪录。 截至5月14日收盘，4月以来上证指数累计涨幅超7%，深
 
 ## 正文
 
-责任编辑：刘万里 SF014
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+记者丨李益文 编辑丨叶映橙 视频丨许婷婷 4月以来，A股市场走出持续向上的独立行情，核心指数悉数刷新阶段乃至历史高点。
+
+上证指数向上突破4200点重要关口，创2015年7月以来近11年新高；创业板指同样一举突破2015年6月的历史高点，刷新历史最高纪录。
+
+截至5月14日收盘，4月以来上证指数累计涨幅超7%，深证成指累计涨幅超16%，创业板指涨幅超24%。
+
+从市场成交规模来看，A股市场的交易活跃度持续处于历史高位。
+
+5月14日，市场单日成交额再度突破3万亿元，达3.39万亿元，这已是A股市场连续第7个交易日维持单日成交额3万亿元以上的规模。
+
+然而，在行情一片火热之际，资本市场却意外迎来一轮密集的上市公司股东减持公告潮。
+
+21快讯记者据同花顺iFinD数据统计，自2026年4月以来，A股市场共有397家上市公司发布股东减持相关公告，涉及减持股东734名，拟减持总金额（以减持公告日期的公司收盘价计算）上限合计约1202.30亿元。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 04:47 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 05:03 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
-- 2026-06-30 04:43 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 04:45 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 05:06 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
-- 2026-06-30 05:10 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 05:10 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-30 04:47 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
-- 2026-06-30 05:11 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-30 05:08 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 05:16 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-30 05:12 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 05:16 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 05:07 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 04:48 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-30 04:51 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 05:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 05:17 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 04:56 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 05:10 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 04:48 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 05:01 - [日本进球](https://www.share.kurohicncr.top/Article/details/292115.shtml)
-- 2026-06-30 04:59 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/813411305.shtml)
-- 2026-06-30 04:50 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/30570932.shtml)
-- 2026-06-30 04:53 - [恋与深空回应争议](http://www.share.minike.top/Article/details/55358.shtml)
-- 2026-06-30 05:09 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/68596733.shtml)
-- 2026-06-30 04:52 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/83215897.shtml)
-- 2026-06-30 04:48 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/576309.shtml)
-- 2026-06-30 05:03 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/12555.shtml)
-- 2026-06-30 05:09 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/473973653410.shtml)
-- 2026-06-30 05:03 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/12311.shtml)
-- 2026-06-30 04:53 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/454356335614.shtml)
-- 2026-06-30 05:09 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/682276215.shtml)
-- 2026-06-30 05:10 - [恋与深空制作组回应近期争议](http://www.blog.minike.top/Article/details/38012.shtml)
-- 2026-06-30 05:03 - [【大鸣王潮1566】真拿你没办法](http://www.share.kurohicncr.top/Article/details/366168.shtml)
-- 2026-06-30 05:05 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/595779045802.shtml)
+- 2026-06-30 05:14 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/4832151.shtml)
+- 2026-06-30 05:12 - [领克07GT搭载超跑同源MRC悬架](https://www.share.kurohicncr.top/Article/details/9914168000.shtml)
+- 2026-06-30 04:58 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/03972.shtml)
+- 2026-06-30 05:02 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/0292919518.shtml)
+- 2026-06-30 05:11 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/216660555099.shtml)
+- 2026-06-30 05:15 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/97817.shtml)
+- 2026-06-30 05:02 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/603738.shtml)
+- 2026-06-30 05:16 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/45586765.shtml)
+- 2026-06-30 05:06 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/00365.shtml)
+- 2026-06-30 04:50 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/244024802367.shtml)
+- 2026-06-30 05:17 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/76579110.shtml)
+- 2026-06-30 04:56 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/0096893202.shtml)
+- 2026-06-30 05:00 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/7337319.shtml)
+- 2026-06-30 05:17 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/71470269188.shtml)
+- 2026-06-30 05:01 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/7345967.shtml)

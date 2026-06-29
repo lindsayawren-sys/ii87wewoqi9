@@ -1,57 +1,58 @@
-# 云南推42条惠企措施 民资参与铁路水电等项目持股可超10%
+# 伊朗战事冲击发酵 新航参股的印度航空取消27%国际航班
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月9日电 (陆希成)近日，云南省发展和改革委员会、云南省工业和信息化厅等十二部门联合印发《云南省进一步促进民间投资发展有关措施及任务分工》(以下简称《措施》)，推出42条举措，为民间资本进入重大项目、新兴领域拓宽准入，并在政府采购、融资等方面加大支持，以激发民间投资活力。在重大项目建设领域，《措施》明确，对需报国家审批(核准)、具有一定收益的铁路、水电、跨省跨区直流
+核心要点 受伊朗战事引发的空域管制、航空燃油价格创下历史新高影响，运营承压，新加坡航空参股的印度航空将在 6 至 8 月出行旺季大幅削减国际航班。 航空业内专家表示，印度航空每周将削减近 140 班航班，约占其国际航班总量的 27%。 印度航空周三发布声明称：“此次航班调整旨在优化航线网络稳定性，减少旅客临时行程变动带来的不便。” 由塔塔集团与新加坡航空合资控股的印度航空，将减
 
 ## 正文
 
-中新网昆明6月9日电 (陆希成)近日，云南省发展和改革委员会、云南省工业和信息化厅等十二部门联合印发《云南省进一步促进民间投资发展有关措施及任务分工》(以下简称《措施》)，推出42条举措，为民间资本进入重大项目、新兴领域拓宽准入，并在政府采购、融资等方面加大支持，以激发民间投资活力。
+核心要点 受伊朗战事引发的空域管制、航空燃油价格创下历史新高影响，运营承压，新加坡航空参股的印度航空将在 6 至 8 月出行旺季大幅削减国际航班。
 
-在重大项目建设领域，《措施》明确，对需报国家审批(核准)、具有一定收益的铁路、水电、跨省跨区直流输电通道、油气管道、进口液化天然气接收和储运设施、供水等项目，鼓励民间资本参与，持股比例可在10%以上。
+航空业内专家表示，印度航空每周将削减近 140 班航班，约占其国际航班总量的 27%。
 
-在政府和社会资本合作领域，《措施》要求严格执行支持民营企业参与的特许经营项目清单，并针对民营企业独资或控股、股权占比不低于35%等领域项目，引导项目业主在特许经营方案、招标文件中合理设置民间资本参与的条件；严格审核特许经营方案中投向领域、使用者付费、民营企业参与等情况。
+印度航空周三发布声明称：“此次航班调整旨在优化航线网络稳定性，减少旅客临时行程变动带来的不便。
 
-在政府采购领域，《措施》要求，超过400万元人民币、适宜中小企业的工程采购项目，严格按规定预留该部分采购项目预算总额的40%以上专门面向中小企业采购；并鼓励将民营企业的合同预付款比例提高至合同金额的30%以上。
+” 由塔塔集团与新加坡航空合资控股的印度航空，将减少飞往北美、欧洲、澳大利亚及亚洲多地的航班班次。
 
-在科技创新领域，《措施》提出多项举措：支持民营企业牵头承担省级重点研发计划项目；支持龙头民营企业牵头，联合高校、科研院所组建创新联合体申报国家重大科研项目；围绕新材料、新能源、生物医药、高原特色农业等云南重点产业，支持民营企业牵头或参与建设概念验证中心、中试基地(平台)；并整合国有企业、高校和科研院所等中试资源，支持有条件的单位结合实际面向民营企业提供试验验证、检验检测等市场化中试服务。
+航空数据服务商 OAG 数据显示，印度航空是印度第二大航空公司，运力达 360 万个座位，占据国内 14% 的市场份额。
 
-在低空经济领域，《措施》着眼打造“10分钟城区快送网、20分钟城郊配送网、30分钟城乡投送网”，鼓励民间资本投资建设货物集散地、维修保养站点等配套设施，并支持其在医院、景区、商圈、社区建设一批起降设施。
+业内专家表示，中东冲突爆发后，印度航司受冲击尤为严重，伊朗、伊拉克、以色列、科威特、卡塔尔、阿联酋等多国空域关闭，严重影响航线运行。
 
-在拓宽融资渠道方面，《措施》对民间投资项目的不动产投资信托基金(REITs)申报实行“靠前服务、主动协调、申报单列、加快审核”，帮助民营企业盘活存量资产、回笼资金；同时落实科技型企业上市融资、并购重组的“绿色通道”政策。
+航空咨询公司 Avialaz 首席执行官桑杰・拉扎尔指出，印度航司原本就面临巴基斯坦、中国部分空域的通行限制。
 
-(完)
+拉扎尔表示：飞行时长增加、机组人力成本攀升、航线绕行额外消耗燃油，已让航空业运营彻底陷入亏损难以为继的状态。
 
 ## 相关推荐
 
-- 2026-06-30 04:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 05:03 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 05:11 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
-- 2026-06-30 05:01 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
-- 2026-06-30 05:07 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 04:53 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 04:42 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 05:05 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
-- 2026-06-30 04:56 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 05:01 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
-- 2026-06-30 05:11 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-30 05:04 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 04:59 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 04:51 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-30 05:07 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 04:59 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 05:16 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-30 05:16 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 05:07 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 04:59 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 05:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 04:50 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 04:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:52 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.kurohicncr.top/Article/details/33605.shtml)
-- 2026-06-30 04:56 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/723052909.shtml)
-- 2026-06-30 05:07 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/90862828.shtml)
-- 2026-06-30 04:58 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/303925.shtml)
-- 2026-06-30 05:08 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/08520.shtml)
-- 2026-06-30 04:58 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/4580470337.shtml)
-- 2026-06-30 04:56 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/404277525.shtml)
-- 2026-06-30 04:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/8488076.shtml)
-- 2026-06-30 05:09 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/98814.shtml)
-- 2026-06-30 04:45 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/782065141.shtml)
-- 2026-06-30 04:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/4491290038.shtml)
-- 2026-06-30 04:51 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/483366398998.shtml)
-- 2026-06-30 05:03 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/3845860.shtml)
-- 2026-06-30 04:48 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/16988.shtml)
-- 2026-06-30 05:04 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/4703962.shtml)
+- 2026-06-30 05:13 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/044287057853.shtml)
+- 2026-06-30 05:10 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/761895.shtml)
+- 2026-06-30 04:57 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/01627181213.shtml)
+- 2026-06-30 05:16 - [第一炉香](https://www.blog.minike.top/Article/details/702586455684.shtml)
+- 2026-06-30 05:16 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/068769.shtml)
+- 2026-06-30 05:12 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/2722084110.shtml)
+- 2026-06-30 05:11 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/888302070931.shtml)
+- 2026-06-30 05:01 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/83922179.shtml)
+- 2026-06-30 05:08 - [在巴西能拍到什么？](http://www.share.kurohicncr.top/Article/details/02673292136.shtml)
+- 2026-06-30 05:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/9601718150.shtml)
+- 2026-06-30 05:16 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/67514814.shtml)
+- 2026-06-30 04:52 - [网友分享整套中医手术刀](https://www.share.kurohicncr.top/Article/details/811308338958.shtml)
+- 2026-06-30 04:50 - [流金岁月](https://www.share.minike.top/Article/details/840176.shtml)
+- 2026-06-30 04:58 - [请回答王牌2019](https://www.share.minike.top/Article/details/84068574.shtml)
+- 2026-06-30 04:50 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/469751351.shtml)

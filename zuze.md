@@ -1,57 +1,57 @@
-# 周期轮动下多元配置迎机遇 银华华瑞 FOF正在发行中
+# A股新晋“股王”突发，副总经理被刑拘！
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-全球市场起伏加剧，单一资产单边波动、股债走势同步抬升等扰动因素接连显现，如何筛选优质资产、借助多元配置平滑波动，成为当前资产配置的重要命题。 面对这一问题，银华基金FOF投资管理部基金经理王嘉鹏给出了朴素而直接的答案：在周期的往复轮转中，力争寻找高性价比的资产。 立足于周期思维，王嘉鹏长期深耕大类资产配置与基金优选，打造出多只产品。眼下，拟由其担纲的银华华瑞多元配置三个月持有期
+源杰科技副总经理陈文君因涉嫌刑事犯罪被公安机关刑事拘留。 源杰科技（688498）5月14日晚间公告，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。 截至本公告披露日，公司未接到公安机关对该事件的通知。目前，公司生产经营情况正常、稳定，公司已经对该副总经理负责的相关工作做了妥善安排和处理，该事件不影响公司的正常
 
 ## 正文
 
-全球市场起伏加剧，单一资产单边波动、股债走势同步抬升等扰动因素接连显现，如何筛选优质资产、借助多元配置平滑波动，成为当前资产配置的重要命题。
+源杰科技副总经理陈文君因涉嫌刑事犯罪被公安机关刑事拘留。
 
-面对这一问题，银华基金FOF投资管理部基金经理王嘉鹏给出了朴素而直接的答案：在周期的往复轮转中，力争寻找高性价比的资产。
+源杰科技（688498）5月14日晚间公告，公司于近日收到公司副总经理陈文君家属的通知，陈文君因涉嫌刑事犯罪被公安机关刑事拘留，无法正常履行公司副总经理职责。
 
-立足于周期思维，王嘉鹏长期深耕大类资产配置与基金优选，打造出多只产品。
+截至本公告披露日，公司未接到公安机关对该事件的通知。
 
-眼下，拟由其担纲的银华华瑞多元配置三个月持有期混合（FOF）（A类：027506；C类：027507）正在发行中。
+目前，公司生产经营情况正常、稳定，公司已经对该副总经理负责的相关工作做了妥善安排和处理，该事件不影响公司的正常经营活动。
 
-该产品致力于为投资者提供多元配置的解决方案，通过动态调整力求适应多变市场。
+公告称，陈文君在任期间主要分管公司产品销售及营销相关工作，鉴于其已无法正常履行公司副总经理职责，为保障公司相关业务平稳衔接、不间断推进，公司于2026年5月14日召开第二届董事会第三十次会议，审议通过了《关于解聘公司高级管理人员的议案》，解除陈文君的副总经理职务，解聘后其仍在公司担任其他职务，解聘事项自董事会审议通过之日起生效。
 
-立足周期思维，摒弃静态拼盘配置 在王嘉鹏看来，所有的资产都有其固定的周期轮动规律，没有一种资产可以长期维持超高的收益率。
-
-基于这一判断，他锚定全球资产，通过多元均衡配置力争降低市场波动的影响，追求不同品类阶段性投资机会。
-
-此次发行的银华华瑞多元配置三个月持有期混合（FOF）正是这一理念的落地实践，该基金将关注中债、A股、港股、美股、黄金等资产的投资机遇，力争兼顾组合的风险和收益。
+今年以来，源杰科技股价持续走高，最新股价报1635元/股，目前为A股最高价个股，年内累计涨幅超150%；总市值为1405亿元。
 
 ## 相关推荐
 
-- 2026-06-30 05:06 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-30 05:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 04:43 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 04:52 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 04:52 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 05:05 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 05:10 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-30 04:49 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 05:05 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 05:03 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 05:05 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-30 05:08 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 05:13 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-30 05:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 04:48 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 05:10 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 05:04 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 05:15 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 05:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 04:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 05:11 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
+- 2026-06-30 05:15 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 04:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-30 05:11 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 05:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-30 04:56 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/473885239928.shtml)
-- 2026-06-30 05:01 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/90760874.shtml)
-- 2026-06-30 04:45 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/4236850.shtml)
-- 2026-06-30 05:08 - [卡塞米罗头球破门](https://www.share.minike.top/Article/details/06773586.shtml)
-- 2026-06-30 05:09 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/149475046010.shtml)
-- 2026-06-30 04:43 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/656997882.shtml)
-- 2026-06-30 04:47 - [点菜也要教吗](http://www.share.minike.top/Article/details/24894836.shtml)
-- 2026-06-30 05:07 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/1483974.shtml)
-- 2026-06-30 05:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/040824.shtml)
-- 2026-06-30 04:44 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/79526812.shtml)
-- 2026-06-30 05:05 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/22309.shtml)
-- 2026-06-30 04:46 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/32643726396.shtml)
-- 2026-06-30 05:05 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/919366821017.shtml)
-- 2026-06-30 05:01 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/3008487.shtml)
-- 2026-06-30 04:50 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/589959112339.shtml)
+- 2026-06-30 05:11 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/41599583458.shtml)
+- 2026-06-30 05:12 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/322355595.shtml)
+- 2026-06-30 04:59 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/84796.shtml)
+- 2026-06-30 04:54 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/10536924.shtml)
+- 2026-06-30 04:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/125215370187.shtml)
+- 2026-06-30 05:01 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/413834844.shtml)
+- 2026-06-30 05:08 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/085646827949.shtml)
+- 2026-06-30 04:53 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/79226304.shtml)
+- 2026-06-30 05:12 - [花少8要去世界杯举办国](https://www.blog.minike.top/Article/details/43577426057.shtml)
+- 2026-06-30 05:05 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/485465.shtml)
+- 2026-06-30 05:08 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/210895623766.shtml)
+- 2026-06-30 05:14 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/0605189231.shtml)
+- 2026-06-30 04:57 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/94693118323.shtml)
+- 2026-06-30 04:48 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/884408223612.shtml)
+- 2026-06-30 05:04 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.minike.top/Article/details/16926143149.shtml)

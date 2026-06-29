@@ -1,54 +1,46 @@
-# 海外刷屏的国风上海豫园妆造，实测到底有多惊艳？
+# 2026年的经营策略是怎么样的？宁波银行董事长庄灵君回应
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月09日 20:20 来源：中国新闻网 跨越山海，奔赴一场东方美学之约。如今，中国国风造型风靡海外，无数外国游客来到上海豫园，为的就是专程打卡中式妆造。 描黛眉、挽发髻、着华裳，沉浸式感受千年国风的独特魅力。古香古色的上海豫园，碰撞鲜活新潮的妆造旅拍体验，古今交融的上海，又诞生了全新的玩法，东方古韵惊艳外国人的同时，也向世界讲述着当今中国文旅之美。(完)
+5月15日金融一线消息，宁波银行今日举行2025年度网上业绩说明会。谈及2026年的经营策略，董事长庄灵君表示，2026年，是国家”十五五“规划的开局之年，也是公司新一轮三年规划的起步之年，面对复杂多变的外部形势，公司将不断完善党的领导和公司治理机制，坚持稳中求进的总基调，在服务实体经济的过程中，持续强化党建引领，不断深化经营主线，扎实完善全面风险管理，积极增强金融科技支撑，努
 
 ## 正文
 
-发布时间：2026年06月09日 20:20 来源：中国新闻网 跨越山海，奔赴一场东方美学之约。
+5月15日金融一线消息，宁波银行今日举行2025年度网上业绩说明会。
 
-如今，中国国风造型风靡海外，无数外国游客来到上海豫园，为的就是专程打卡中式妆造。
+谈及2026年的经营策略，董事长庄灵君表示，2026年，是国家”十五五“规划的开局之年，也是公司新一轮三年规划的起步之年，面对复杂多变的外部形势，公司将不断完善党的领导和公司治理机制，坚持稳中求进的总基调，在服务实体经济的过程中，持续强化党建引领，不断深化经营主线，扎实完善全面风险管理，积极增强金融科技支撑，努力为客户创造更大价值，继续推动银行实现稳健可持续发展。
 
-描黛眉、挽发髻、着华裳，沉浸式感受千年国风的独特魅力。
-
-古香古色的上海豫园，碰撞鲜活新潮的妆造旅拍体验，古今交融的上海，又诞生了全新的玩法，东方古韵惊艳外国人的同时，也向世界讲述着当今中国文旅之美。
-
-(完) 责任编辑：【刘湃】
+责任编辑：李琳琳
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-30 05:05 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 04:52 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 04:55 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 04:45 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-30 05:03 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 04:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 05:11 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 04:56 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-30 04:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 05:10 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 04:49 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 04:52 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-30 04:50 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 05:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 05:14 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 05:09 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 04:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 04:51 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 04:52 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 05:03 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 04:49 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 04:57 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 05:06 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/50575.shtml)
-- 2026-06-30 04:57 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/14757432254.shtml)
-- 2026-06-30 05:03 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/796474093710.shtml)
-- 2026-06-30 05:06 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/0090735073.shtml)
-- 2026-06-30 04:54 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/19200.shtml)
-- 2026-06-30 04:42 - [极限挑战第一季](http://www.blog.minike.top/Article/details/389787.shtml)
-- 2026-06-30 04:47 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/562547613877.shtml)
-- 2026-06-30 04:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/723500.shtml)
-- 2026-06-30 04:54 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/536130.shtml)
-- 2026-06-30 04:56 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/313706.shtml)
-- 2026-06-30 04:52 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/19163745736.shtml)
-- 2026-06-30 04:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/63259004.shtml)
-- 2026-06-30 05:11 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/69208259159.shtml)
-- 2026-06-30 05:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/163130606.shtml)
-- 2026-06-30 04:42 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/896652570.shtml)
+- 2026-06-30 04:58 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/560918891.shtml)
+- 2026-06-30 05:09 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/338968951765.shtml)
+- 2026-06-30 05:16 - [千香](http://www.share.kurohicncr.top/Article/details/51139293.shtml)
+- 2026-06-30 05:17 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/57882.shtml)
+- 2026-06-30 05:05 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/414693718.shtml)
+- 2026-06-30 04:56 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/695302990441.shtml)
+- 2026-06-30 05:12 - [王源近几年没有路演了](https://www.share.minike.top/Article/details/44546.shtml)
+- 2026-06-30 05:08 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.minike.top/Article/details/27526663302.shtml)
+- 2026-06-30 05:16 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/206422939.shtml)
+- 2026-06-30 04:55 - [官方：建立健全学龄人口预测预警机制](https://www.share.kurohicncr.top/Article/details/55261963.shtml)
+- 2026-06-30 05:02 - [《共患难》](http://www.blog.minike.top/Article/details/0292486.shtml)
+- 2026-06-30 04:51 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/30372784.shtml)
+- 2026-06-30 04:55 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/703327279.shtml)
+- 2026-06-30 05:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/414410.shtml)
+- 2026-06-30 04:50 - [逃狱兄弟](https://www.blog.minike.top/Article/details/3231266.shtml)

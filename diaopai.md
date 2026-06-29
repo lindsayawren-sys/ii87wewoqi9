@@ -1,58 +1,56 @@
-# 时隔7个月再访韩国，黄仁勋带去了物理AI“生意”
+# Curtiss-Wright连续第10年提高股息，季度派息上调8%至0.26美元
 
-> 更新时间：2026-06-30 05:12:02 UTC+8
+> 更新时间：2026-06-30 05:18:02 UTC+8
 
 ## 摘要
 
-黄仁勋曾表示，物理AI的“ChatGPT时刻”已经到来。 北京时间6月8日，英伟达官宣与多家韩国科技企业达成合作，它们分别是SK海力士、SK电讯、斗山集团、LG集团、NAVER。其中，人工智能、机器人技术是重点合作领域。 韩国是亚洲制造业强国，拥有芯片、电子、汽车等优势产业。黄仁勋表示，芯片制造将越来越多地由人工智能和机器人技术驱动，可以将在韩国发明的机器人技术和物理AI技术应
+航空航天与国防工程制造商Curtiss-Wright公司宣布，其董事会已批准将季度股息提高8%，从每股0.24美元上调至0.26美元，标志着公司连续第10年实现股息增长。 股息详情 根据公司公告，上调后的季度股息每股0.26美元，按年化计算相当于每股1.04美元。本次股息将于2026年7月6日支付给2026年6月15日登记在册的股东。 Curtiss-Wright董事长兼首席执
 
 ## 正文
 
-黄仁勋曾表示，物理AI的“ChatGPT时刻”已经到来。
+航空航天与国防工程制造商Curtiss-Wright公司宣布，其董事会已批准将季度股息提高8%，从每股0.24美元上调至0.26美元，标志着公司连续第10年实现股息增长。
 
-北京时间6月8日，英伟达官宣与多家韩国科技企业达成合作，它们分别是SK海力士、SK电讯、斗山集团、LG集团、NAVER。
+股息详情 根据公司公告，上调后的季度股息每股0.26美元，按年化计算相当于每股1.04美元。
 
-其中，人工智能、机器人技术是重点合作领域。
+本次股息将于2026年7月6日支付给2026年6月15日登记在册的股东。
 
-韩国是亚洲制造业强国，拥有芯片、电子、汽车等优势产业。
+Curtiss-Wright董事长兼首席执行官Lynn M． Bamford表示，这标志着公司连续第10年提高股息。
 
-黄仁勋表示，芯片制造将越来越多地由人工智能和机器人技术驱动，可以将在韩国发明的机器人技术和物理AI技术应用于工业领域。
+她强调，公司致力于通过持续的股票回购为股东提供稳定回报，并承诺随着长期销售增长而稳步增加股息。
 
-此前在2025年10月底访问韩国时，英伟达宣布与韩国三大企业集团——三星、SK集团和现代汽车集团达成合作，共同打造人工智能（AI）工厂。
+在严谨的资本配置策略下，公司仍将致力于通过战略收购作为有机增长的推手，同时瞄准回报率最高的运营投资，以推动长期股东价值。
 
-此次合作消息发布后，“物理AI”在国内A股市场也引发了关注，当天相关概念股持续走强。
+业绩支撑与业务概况 此次股息上调得到了公司强劲财务表现的支持。
 
-目前，有多家上市公司涉及物理AI概念，如中望软件、凡拓数创、天娱数科、能科科技等盘中涨停，索辰科技、汉鑫科技、奥比中光均涨超10%。
+公司此前公布的第一季度财报显示，营收达9.14亿美元，同比增长13%，调整后稀释每股收益为3.48美元，同比增长23%。
 
 ## 相关推荐
 
-- 2026-06-30 05:10 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 04:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-30 04:56 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 04:53 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-30 04:48 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 04:42 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 05:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 05:05 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 05:10 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 04:42 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 04:58 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-30 04:44 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 04:55 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 05:11 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 05:17 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-30 05:13 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 05:08 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 05:09 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 04:54 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 04:59 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 05:11 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 04:58 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/5180606.shtml)
-- 2026-06-30 04:46 - [猛龙快船交易或将达成](http://www.share.minike.top/Article/details/6498990.shtml)
-- 2026-06-30 04:57 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/066856429677.shtml)
-- 2026-06-30 05:04 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/3688520.shtml)
-- 2026-06-30 04:51 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/615378414.shtml)
-- 2026-06-30 05:05 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/29179283667.shtml)
-- 2026-06-30 05:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/28094562773.shtml)
-- 2026-06-30 05:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/01168.shtml)
-- 2026-06-30 04:57 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/410654.shtml)
-- 2026-06-30 05:04 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/31506.shtml)
-- 2026-06-30 04:59 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/1851338153.shtml)
-- 2026-06-30 05:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/303056305310.shtml)
-- 2026-06-30 04:45 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/187482911.shtml)
-- 2026-06-30 04:58 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/37141.shtml)
-- 2026-06-30 04:45 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/373766236306.shtml)
+- 2026-06-30 04:52 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/293632799.shtml)
+- 2026-06-30 05:04 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/557475.shtml)
+- 2026-06-30 05:00 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/8879174.shtml)
+- 2026-06-30 04:59 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/88536.shtml)
+- 2026-06-30 05:02 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/16321.shtml)
+- 2026-06-30 04:55 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/6486323.shtml)
+- 2026-06-30 04:59 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/27667054424.shtml)
+- 2026-06-30 05:06 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/737057977.shtml)
+- 2026-06-30 04:54 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/26636712.shtml)
+- 2026-06-30 05:06 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/013860.shtml)
+- 2026-06-30 05:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/435160.shtml)
+- 2026-06-30 05:02 - [世界杯：德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/5405082.shtml)
+- 2026-06-30 04:49 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/535369.shtml)
+- 2026-06-30 05:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/50506.shtml)
+- 2026-06-30 05:04 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/61206857211.shtml)
