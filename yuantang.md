@@ -1,45 +1,61 @@
-# 以色列总理称不允许伊朗拥有核武器
+# 一场阅读活动，为何能齐聚这么多大咖？
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月03日 08:56 来源：央视新闻 责任编辑：【王祎】
+4月25日，作为黄浦区首个全民阅读活动周重要活动，一场以“万物生花·阅读宇宙”为主题的全民阅读特别活动，在太平洋新天地观光厅55楼盛大举行。 活动由黄浦区委宣传部、区委统战部主办，区新联会、海燕博客公益发展中心和百花洲(文艺联盟)上海书友会承办，上海市新联会协办。 思想的剧场： 当故乡、成长与诗歌相遇据悉，黄浦区“阅读大会”至今已创办12载，多年来以“书香黄浦”为引领，持续深耕
 
 ## 正文
 
-发布时间：2026年06月03日 08:56 来源：央视新闻 责任编辑：【王祎】
+4月25日，作为黄浦区首个全民阅读活动周重要活动，一场以“万物生花·阅读宇宙”为主题的全民阅读特别活动，在太平洋新天地观光厅55楼盛大举行。
+
+活动由黄浦区委宣传部、区委统战部主办，区新联会、海燕博客公益发展中心和百花洲(文艺联盟)上海书友会承办，上海市新联会协办。
+
+思想的剧场： 当故乡、成长与诗歌相遇据悉，黄浦区“阅读大会”至今已创办12载，多年来以“书香黄浦”为引领，持续深耕全民阅读领域，常态化开展各类阅读推广活动，推动文商旅体展深度融合，以书香为核、花展为媒、咖啡为伴，为市民献上了一场春日文化盛宴。
+
+下午2时，场内座无虚席， “趁年轻，阅读吧。
+
+”零点有数董事长、黑苹果青年公益发起人袁岳以这句话点燃了开场。
+
+他用自己跨界的经历与敏锐的社会观察，鼓励年轻人在阅读中寻找方向与力量。
+
+纪录片导演、旅行家徐承华(老极)带来了《珠峰下的成长课：读万卷书，行万里路》。
+
+他带着妻子和儿子辛巴进行了三次极地长途旅行，倡导“经历是最好的成长”这一教育理念。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 15:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-29 15:32 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 15:12 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 15:11 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 15:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 15:27 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 15:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 15:31 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 15:17 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 15:23 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-29 15:13 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 15:32 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 15:24 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 15:26 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 15:20 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 15:12 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-29 15:27 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 15:21 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 15:12 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 15:27 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-29 15:31 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 15:12 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 15:27 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 15:33 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-29 15:37 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 15:12 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 15:37 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:08 - [发反科学内容为何会有200万粉丝](http://www.share.minike.top/Article/details/412837243993.shtml)
-- 2026-06-29 15:14 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/48790911304.shtml)
-- 2026-06-29 15:10 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/7998756867.shtml)
-- 2026-06-29 15:18 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/456508.shtml)
-- 2026-06-29 15:33 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/448516642893.shtml)
-- 2026-06-29 15:22 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/492769419464.shtml)
-- 2026-06-29 15:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/62577481.shtml)
-- 2026-06-29 15:26 - [3D打印不是工业革命，它是……](https://www.blog.minike.top/Article/details/7346284.shtml)
-- 2026-06-29 15:28 - [毒液2](http://www.share.minike.top/Article/details/01083.shtml)
-- 2026-06-29 15:08 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/658455807.shtml)
-- 2026-06-29 15:24 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/015955124504.shtml)
-- 2026-06-29 15:13 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/41568302581.shtml)
-- 2026-06-29 15:35 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/8984429197.shtml)
-- 2026-06-29 15:07 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/474589.shtml)
-- 2026-06-29 15:33 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/2803300.shtml)
+- 2026-06-29 15:18 - [女心理师](https://www.share.kurohicncr.top/Article/details/4296932.shtml)
+- 2026-06-29 15:24 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/967659472.shtml)
+- 2026-06-29 15:31 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/0025469.shtml)
+- 2026-06-29 15:25 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/43047.shtml)
+- 2026-06-29 15:21 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/77206666824.shtml)
+- 2026-06-29 15:25 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/6204059.shtml)
+- 2026-06-29 15:33 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/8472732557.shtml)
+- 2026-06-29 15:40 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/123168686.shtml)
+- 2026-06-29 15:31 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/5179929626.shtml)
+- 2026-06-29 15:17 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/774053881.shtml)
+- 2026-06-29 15:26 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/336951.shtml)
+- 2026-06-29 15:29 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/303882775462.shtml)
+- 2026-06-29 15:38 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/2561892961.shtml)
+- 2026-06-29 15:34 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/66740318.shtml)
+- 2026-06-29 15:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/499045837.shtml)

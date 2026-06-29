@@ -1,60 +1,60 @@
-# 空气炸锅纸加热致癌？咖啡滤纸含荧光剂？真相来了
+# 2026年“北京世园公园杯”京张公路自行车公开赛鸣枪
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。 25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。 检测
+中新网北京4月26日电 2026年“北京世园公园杯”京张公路自行车公开赛第一站赛事25日在北京世园国际旅游度假区鸣枪开赛，来自全国各地的19支车队、近500名运动员齐聚延庆，在世园春光中以速度与激情开启新赛季征程。 首站比赛竞争激烈，富士达车队的刘奥林夺得男子公开组冠军。团体成绩方面，富士达车队凭借默契的团队协作与战术执行能力成功摘得团体桂冠。女子公开组比赛，武琳怡(精创车队)
 
 ## 正文
 
-近期，“空气炸锅纸加热致癌”“蒸笼纸存在蒸发残渣值超标”“白色咖啡滤纸含有荧光剂”等网络传言出现，这些是真的吗？
+中新网北京4月26日电 2026年“北京世园公园杯”京张公路自行车公开赛第一站赛事25日在北京世园国际旅游度假区鸣枪开赛，来自全国各地的19支车队、近500名运动员齐聚延庆，在世园春光中以速度与激情开启新赛季征程。
 
-上海市消保委对市面上主流的25款烹饪用纸进行了检测，揭开真相。
+首站比赛竞争激烈，富士达车队的刘奥林夺得男子公开组冠军。
 
-25款烹饪用纸未检出致癌物 近期，网传“蒸笼纸蒸发残渣值超标”以及“蒸笼纸中含有3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP (1,3-二氯-2-丙醇)两种致癌物”的说法引发了消费者关注。
+团体成绩方面，富士达车队凭借默契的团队协作与战术执行能力成功摘得团体桂冠。
 
-检测人员模拟蒸笼纸接触油性、酸性等不同食物的实际使用场景开展安全检测，本次共检测了25款烹饪用纸，包含7款空气炸锅纸、6款蒸笼垫纸、6款食物吸油纸和6款咖啡滤纸。
+女子公开组比赛，武琳怡(精创车队)凭借全程稳定的发挥与出色的冲刺能力斩获桂冠。
 
-蒸发残渣值，是指纸张在特定高温下，析出并迁移到食物中的非挥发性物质总量。
+值得一提的是，本赛季北京市自行车运动协会启动的“车队孵化计划”8支车队也完成首秀，其中怀柔超越单车车队的李思轶在比赛中表现亮眼，取得第十名，女子孵化车队ETM北京女子联队的王璐遥获得女子公开组季军。
 
-本次检测结果显示，所有样品的蒸发残渣值均在标准限值内，也并未检出3-MCPD(3-氯-1,2-丙二醇)和1,3-DCP(1,3-二氯-2-丙醇)等致癌物。
+该计划以赛事为纽带，通过孵化支持，鼓励更多自行车爱好者组队参赛、稳定参赛，培养兼具竞技潜力与团队协作能力的自行车运动力量。
 
-网传“空气炸锅纸加热有毒、会致癌”？
+据悉，世园国际旅游度假区本年度计划推出自行车主题培训营、青少年骑行研学、企业团建骑行等产品，将“周末赛事”延伸为“全年运营”。
 
-除了蒸笼纸，有关空气炸锅纸的安全问题也有不少争议，有网友担心高温加热会释放致癌物。
+园区拟与专业骑行机构合作设立骑行训练基地，配套骑行驿站、维修点、淋浴房等设施，实现从“比赛场”到“训练场”的功能升级。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 15:27 - [抓特务票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-29 15:24 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-29 15:13 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-29 15:29 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
-- 2026-06-29 15:33 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
-- 2026-06-29 15:16 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 15:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 15:08 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 15:19 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 15:35 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
-- 2026-06-29 15:32 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 15:18 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 15:22 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 15:17 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 15:20 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 15:12 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-29 15:27 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 15:22 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 15:25 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 15:34 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 15:24 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 15:26 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 15:36 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-29 15:23 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-29 15:35 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 15:30 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-29 15:33 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/43375968.shtml)
-- 2026-06-29 15:10 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/4690606.shtml)
-- 2026-06-29 15:13 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/7383295.shtml)
-- 2026-06-29 15:26 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/06531.shtml)
-- 2026-06-29 15:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/611335.shtml)
-- 2026-06-29 15:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/08416801.shtml)
-- 2026-06-29 15:06 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/77271671.shtml)
-- 2026-06-29 15:24 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/19399301.shtml)
-- 2026-06-29 15:22 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/92647952.shtml)
-- 2026-06-29 15:14 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/074625897486.shtml)
-- 2026-06-29 15:10 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/877542343549.shtml)
-- 2026-06-29 15:06 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/262071905005.shtml)
-- 2026-06-29 15:06 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/60506878.shtml)
-- 2026-06-29 15:26 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/93621829319.shtml)
-- 2026-06-29 15:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/986097.shtml)
+- 2026-06-29 15:34 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/960601367693.shtml)
+- 2026-06-29 15:26 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/17949.shtml)
+- 2026-06-29 15:30 - [苹果ultra2阔折叠已开模测试](https://www.blog.minike.top/Article/details/1719519.shtml)
+- 2026-06-29 15:17 - [国家体育总局政策法规司原副司长获刑](https://www.blog.minike.top/Article/details/311783795.shtml)
+- 2026-06-29 15:28 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/4445409.shtml)
+- 2026-06-29 15:27 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/94317598174.shtml)
+- 2026-06-29 15:34 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/8783577.shtml)
+- 2026-06-29 15:14 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/26343.shtml)
+- 2026-06-29 15:23 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/8421931.shtml)
+- 2026-06-29 15:15 - [锐评浪姐7总决赛](https://www.blog.minike.top/Article/details/30375.shtml)
+- 2026-06-29 15:41 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/3076819.shtml)
+- 2026-06-29 15:23 - [流金岁月](http://www.share.minike.top/Article/details/575026907.shtml)
+- 2026-06-29 15:31 - [一生一世](https://www.share.minike.top/Article/details/15926320.shtml)
+- 2026-06-29 15:14 - [血糖高的人能吃西瓜吗](https://www.blog.kurohicncr.top/Article/details/016015.shtml)
+- 2026-06-29 15:17 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/15527750.shtml)

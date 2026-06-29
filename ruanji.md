@@ -1,47 +1,49 @@
-# 中国红十字会总会紧急向黑龙江省调拨救灾物资
+# 中国人寿获中国平安保险(集团)增持399.7万股 每股作价约27.36港元
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据中国红十字会微信公众号消息，近日，黑龙江省多地出现雷暴大风极端天气。6月2日，根据黑龙江省红十字会上报的灾情及需求，中国红十字会总会紧急向受灾地区调拨赈济家庭包500个，中国红十字基金会调拨赈济家庭包500个，支持当地救灾救助工作。
+香港联交所最新资料显示，4月22日，中国平安保险（集团）股份有限公司增持中国人寿（02628）399.7万股，每股作价27.3629港元，总金额约为1.09亿港元。增持后最新持股数目约为8.95亿股，最新持股比例为12.02%。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月3日电 据中国红十字会微信公众号消息，近日，黑龙江省多地出现雷暴大风极端天气。
+香港联交所最新资料显示，4月22日，中国平安保险（集团）股份有限公司增持中国人寿（02628）399.7万股，每股作价27.3629港元，总金额约为1.09亿港元。
 
-6月2日，根据黑龙江省红十字会上报的灾情及需求，中国红十字会总会紧急向受灾地区调拨赈济家庭包500个，中国红十字基金会调拨赈济家庭包500个，支持当地救灾救助工作。
+增持后最新持股数目约为8.95亿股，最新持股比例为12.02%。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 15:22 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 15:09 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-29 15:24 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-29 15:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 15:18 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 15:14 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 15:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 15:25 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 15:08 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 15:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 15:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 15:32 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-29 15:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 15:29 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 15:24 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 15:18 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 15:19 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 15:23 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:37 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
+- 2026-06-29 15:14 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 15:20 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-29 15:17 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 15:33 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 15:21 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-29 15:29 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [湖北钟祥市委书记张勇拟任新职](http://www.share.minike.top/Article/details/26649.shtml)
-- 2026-06-29 15:12 - [评论员：日菲勾连各有盘算](https://www.blog.kurohicncr.top/Article/details/4367764278.shtml)
-- 2026-06-29 15:14 - [评论员：日菲勾连各有盘算](https://www.blog.minike.top/Article/details/9201404774.shtml)
-- 2026-06-29 15:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/3728108.shtml)
-- 2026-06-29 15:26 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/389199752701.shtml)
-- 2026-06-29 15:30 - [1个视频看懂2026志愿填报新专业](http://www.blog.minike.top/Article/details/799896742868.shtml)
-- 2026-06-29 15:23 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/0205134.shtml)
-- 2026-06-29 15:23 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.minike.top/Article/details/81679.shtml)
-- 2026-06-29 15:14 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/16432.shtml)
-- 2026-06-29 15:14 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/6942141273.shtml)
-- 2026-06-29 15:20 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/90967472339.shtml)
-- 2026-06-29 15:11 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/343765.shtml)
-- 2026-06-29 15:19 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/971403762529.shtml)
-- 2026-06-29 15:13 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/526929456505.shtml)
-- 2026-06-29 15:20 - [绘画区你赢了](https://www.share.minike.top/Article/details/841314.shtml)
+- 2026-06-29 15:13 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/5958187.shtml)
+- 2026-06-29 15:31 - [苹果回应恋与深空低分](http://www.share.kurohicncr.top/Article/details/6747671531.shtml)
+- 2026-06-29 15:37 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/430301715.shtml)
+- 2026-06-29 15:15 - [上班主打一个薪尽自然凉](http://www.blog.kurohicncr.top/Article/details/96206113.shtml)
+- 2026-06-29 15:20 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/9113013.shtml)
+- 2026-06-29 15:14 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/398305.shtml)
+- 2026-06-29 15:29 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/17660247.shtml)
+- 2026-06-29 15:41 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/607537527.shtml)
+- 2026-06-29 15:38 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/916578436323.shtml)
+- 2026-06-29 15:20 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/346714891.shtml)
+- 2026-06-29 15:30 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/716201447337.shtml)
+- 2026-06-29 15:27 - [大 周 礼 时 代(4)](http://www.blog.kurohicncr.top/Article/details/47579352.shtml)
+- 2026-06-29 15:39 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/033737918.shtml)
+- 2026-06-29 15:13 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/9483601367.shtml)
+- 2026-06-29 15:32 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/2524397443.shtml)

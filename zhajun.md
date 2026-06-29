@@ -1,59 +1,57 @@
-# 亲宝宝割韭菜？批量下载自己照片被迫开248元会员！有人用近10年记录孩子成长
+# 公募一季度申赎生变 抗跌低位绩优产品获青睐
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：北京商报 “照片是我自己的，批量上传亲宝宝没跟我收费，为什么现在导出自己的照片要花钱？” 北京商报记者丨吴其芸 批量上传照片免费，当家长需要使用App上的照片集中下载时，却被告知“下载自己上传的照片需要付费”。今年儿童节前夕，多位家长向北京商报记者反映，亲宝宝在没有任何通知的情况下，上线付费会员体系，
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 □本报记者 张韵 “地缘冲突导致的市场回调中，许多基金遭遇赎回。”这一现象在近日披露的2026年公募基金一季报中得到了验证。天相投顾数据显示，一季度，无论是股基、混合基，还是债基，都出现明显净赎回。所谓的股债跷跷板效应有所失灵，股基、债基净赎回份额均超过1000亿份。取而代之的
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-来源：北京商报 “照片是我自己的，批量上传亲宝宝没跟我收费，为什么现在导出自己的照片要花钱？
+张坤、葛兰等最新布局出炉 □本报记者 张韵 “地缘冲突导致的市场回调中，许多基金遭遇赎回。
 
-” 北京商报记者丨吴其芸 批量上传照片免费，当家长需要使用App上的照片集中下载时，却被告知“下载自己上传的照片需要付费”。
+”这一现象在近日披露的2026年公募基金一季报中得到了验证。
 
-今年儿童节前夕，多位家长向北京商报记者反映，亲宝宝在没有任何通知的情况下，上线付费会员体系，将原本免费的批量导出照片等功能划入会员专属权益，导致消费者需要付费开通每年248元的年卡，才能批量导出自己多年前上传的照片，否则只能一张张手动进行下载。
+天相投顾数据显示，一季度，无论是股基、混合基，还是债基，都出现明显净赎回。
 
-而此前承诺的会员每月免费试用产品权益被突然取消。
+所谓的股债跷跷板效应有所失灵，股基、债基净赎回份额均超过1000亿份。
 
-不仅如此，隐蔽的客服入口让家长们沟通无门。
+取而代之的是，资金避险操作选择了货币型基金，净申购超5000亿份。
 
-需要进入会员付费通道，才能找到在线客服。
+在一众非货基金陷入赎回潮之际，也不乏基金逆势吸金。
 
-多位家长反馈，由于亲宝宝属于成长记录型App，家长们一路按照孩子的成长轨迹上传照片，少的有几千张，多的数万张。
+QDII产品一季度整体获净申购超1000亿份，但内部分化明显，恒生科技指数产品强势吸金超800亿份。
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 15:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 15:10 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 15:24 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 15:09 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 15:30 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 15:21 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
-- 2026-06-29 15:31 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 15:17 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 15:17 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 15:23 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 15:28 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 15:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 15:29 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 15:41 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 15:18 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 15:20 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 15:33 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 15:22 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 15:15 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 15:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 15:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 15:24 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 15:12 - [大六座SUV进入黄金时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/9625125.shtml)
-- 2026-06-29 15:07 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/42053168458.shtml)
-- 2026-06-29 15:12 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/81559.shtml)
-- 2026-06-29 15:16 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/71974706056.shtml)
-- 2026-06-29 15:27 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/565925.shtml)
-- 2026-06-29 15:06 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/8346608.shtml)
-- 2026-06-29 15:16 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/99273.shtml)
-- 2026-06-29 15:19 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/3081635.shtml)
-- 2026-06-29 15:31 - [上海一小区水池内出现一条鳄鱼](https://www.share.kurohicncr.top/Article/details/72818363.shtml)
-- 2026-06-29 15:35 - [孙怡告别浪姐千字文](http://www.share.kurohicncr.top/Article/details/409271632.shtml)
-- 2026-06-29 15:07 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/4770013162.shtml)
-- 2026-06-29 15:18 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/61521.shtml)
-- 2026-06-29 15:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/6308691.shtml)
-- 2026-06-29 15:06 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/3896773.shtml)
-- 2026-06-29 15:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/165073599.shtml)
+- 2026-06-29 15:22 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/439198.shtml)
+- 2026-06-29 15:33 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/0413771.shtml)
+- 2026-06-29 15:16 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/088325658.shtml)
+- 2026-06-29 15:13 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/526362.shtml)
+- 2026-06-29 15:36 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/057943561.shtml)
+- 2026-06-29 15:34 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/44450363.shtml)
+- 2026-06-29 15:35 - [明星大侦探第四季](https://www.share.minike.top/Article/details/006150294860.shtml)
+- 2026-06-29 15:39 - [汪东城回应45岁婚约](http://www.share.kurohicncr.top/Article/details/912385156236.shtml)
+- 2026-06-29 15:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/7736985.shtml)
+- 2026-06-29 15:31 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/872007.shtml)
+- 2026-06-29 15:14 - [广东一地发现极危植物新物种](https://www.blog.minike.top/Article/details/77170881560.shtml)
+- 2026-06-29 15:41 - [绘画区你赢了](http://www.share.minike.top/Article/details/9999479218.shtml)
+- 2026-06-29 15:37 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/158362.shtml)
+- 2026-06-29 15:32 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.kurohicncr.top/Article/details/2286536204.shtml)
+- 2026-06-29 15:17 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/28896254286.shtml)

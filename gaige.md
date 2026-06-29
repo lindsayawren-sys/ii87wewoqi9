@@ -1,61 +1,60 @@
-# 欧美同学会（中国留学人员联谊会）第二次全国会员代表大会召开 李干杰出席开幕会并讲话
+# 11级大风、大暴雨！最强影响时段来了
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 (黄欣欣)欧美同学会(中国留学人员联谊会)第二次全国会员代表大会6月1日在北京召开。中共中央政治局委员、中央统战部部长李干杰出席开幕会并讲话。 李干杰表示，五年来，欧美同学会坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平总书记重要讲话和重要贺信精神，始终把政治建设摆在首位，强化思想引领，服务党和国家中心大局，持续完善组织体系建设，开创事业
+今日(4月27日) 中央气象台持续发布 大风黄色预警 暴雨蓝色预警强对流天气蓝色预警 预计未来几天 北方在频繁冷空气影响下 多大风天气 南方新一轮降雨过程到来 部分地区有大到暴雨 局地大暴雨 局地11级大风，防风防沙！ 近期，在弱冷空气频繁影响下，北方多大风天气。 大风黄色预警：预计4月27日08时至28日08时，内蒙古中西部、山西东北部、河北北部和西部、北京、天津、辽宁中西部
 
 ## 正文
 
-中新社北京6月1日电 (黄欣欣)欧美同学会(中国留学人员联谊会)第二次全国会员代表大会6月1日在北京召开。
+今日(4月27日) 中央气象台持续发布 大风黄色预警 暴雨蓝色预警强对流天气蓝色预警 预计未来几天 北方在频繁冷空气影响下 多大风天气 南方新一轮降雨过程到来 部分地区有大到暴雨 局地大暴雨 局地11级大风，防风防沙！
 
-中共中央政治局委员、中央统战部部长李干杰出席开幕会并讲话。
+近期，在弱冷空气频繁影响下，北方多大风天气。
 
-李干杰表示，五年来，欧美同学会坚持以习近平新时代中国特色社会主义思想为指导，深入贯彻落实习近平总书记重要讲话和重要贺信精神，始终把政治建设摆在首位，强化思想引领，服务党和国家中心大局，持续完善组织体系建设，开创事业发展新局面。
+大风黄色预警：预计4月27日08时至28日08时，内蒙古中西部、山西东北部、河北北部和西部、北京、天津、辽宁中西部、山东东部等地部分地区有6~8级风，阵风8~10级，局地阵风可达11级以上。
 
-李干杰表示，以习近平同志为核心的党中央高度重视留学人员工作，习近平总书记作出一系列重要论述，为做好新时代留学人员工作指明了前进方向、提供了根本遵循。
+防范这些潜在“风”险 大风天气可能造成高空坠物、广告牌坠落、树木倾倒等，增加户外作业和出行安全风险，还可能引发火灾事故。
 
-欧美同学会要坚持正确政治方向，加强对留学人员的团结引导。
+防范这些潜在“风”险，这样应对！
 
-要着眼“十五五”时期经济社会发展任务要求，发挥“留学报国人才库、建言献策智囊团、民间外交生力军”优势作用。
+▶警惕高空坠物 避开安装不牢固的广告牌、枯树、空调外机等，避免在老旧建筑周边或玻璃幕墙附近停留。
 
-要发扬改革创新精神，不断提高引领力、组织力、服务力。
+▶停止户外活动 停止高空、动火、水上等户外作业，危险地带人员和危房居民尽量转到避风场所避风。
 
-全国人大常委会副委员长、欧美同学会会长丁仲礼代表第八届理事会作工作报告。
+停止露天集体活动，并立即疏散人员。
 
 ## 相关推荐
 
-- 2026-06-29 15:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 15:09 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 15:17 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 15:11 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 15:10 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-29 15:24 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 15:14 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 15:31 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 15:13 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 15:31 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-29 15:31 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-29 15:09 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 15:26 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 15:35 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 15:24 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 15:35 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 15:13 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 15:22 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 15:26 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 15:31 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 15:27 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 15:12 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 15:15 - [TFING全员黑西装](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 15:21 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-29 15:20 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 15:33 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 15:20 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 15:25 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 15:14 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/99362.shtml)
-- 2026-06-29 15:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/088790422.shtml)
-- 2026-06-29 15:07 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/797072347421.shtml)
-- 2026-06-29 15:17 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/16683.shtml)
-- 2026-06-29 15:29 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/36075.shtml)
-- 2026-06-29 15:31 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/8757956.shtml)
-- 2026-06-29 15:29 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/4723193279.shtml)
-- 2026-06-29 15:11 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/85199.shtml)
-- 2026-06-29 15:30 - [抓特务票房破亿](http://www.share.kurohicncr.top/Article/details/96230300493.shtml)
-- 2026-06-29 15:23 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/43141.shtml)
-- 2026-06-29 15:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/86459811480.shtml)
-- 2026-06-29 15:06 - [中国创新药股价要反攻了吗](http://www.share.minike.top/Article/details/038988713.shtml)
-- 2026-06-29 15:33 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/62111818.shtml)
-- 2026-06-29 15:25 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/48092.shtml)
-- 2026-06-29 15:29 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/61723738.shtml)
+- 2026-06-29 15:30 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/8902078948.shtml)
+- 2026-06-29 15:31 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/44436788.shtml)
+- 2026-06-29 15:34 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/66004.shtml)
+- 2026-06-29 15:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/058845.shtml)
+- 2026-06-29 15:24 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/58778052.shtml)
+- 2026-06-29 15:41 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/1479813047.shtml)
+- 2026-06-29 15:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/49504404.shtml)
+- 2026-06-29 15:32 - [恋与深空失控领地](http://www.blog.kurohicncr.top/Article/details/94784058.shtml)
+- 2026-06-29 15:14 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/7686560015.shtml)
+- 2026-06-29 15:39 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/45495434816.shtml)
+- 2026-06-29 15:25 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/93695.shtml)
+- 2026-06-29 15:16 - [巴西球员：日本队有点傲慢了](https://www.blog.kurohicncr.top/Article/details/445658519995.shtml)
+- 2026-06-29 15:12 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/158206736.shtml)
+- 2026-06-29 15:27 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/35124757.shtml)
+- 2026-06-29 15:18 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/82628035706.shtml)

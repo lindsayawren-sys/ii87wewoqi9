@@ -1,57 +1,58 @@
-# 云南法检公三机关联发通告严打拒执犯罪
+# 散户大举进场！ETF个人持有比例飙升，多只产品超九成
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网昆明6月3日电 (杨帆)为依法惩治拒不执行判决、裁定犯罪，切实维护当事人合法权益与人民法院生效裁判司法权威，云南省高级人民法院、云南省人民检察院、云南省公安厅近日联合发布《关于严厉打击拒不执行判决、裁定等犯罪行为的通告》(以下简称《通告》)，在云南省集中打击拒不执行判决、裁定，妨害公务，非法处置查封、扣押、冻结的财产，虚假诉讼等犯罪行为。《通告》明确，凡在云南法院立案执行
+近期上市的ETF，个人投资者成为绝对认购主力。 以上周（4月20日—24日）上市的ETF和本周（4月27日—30日）拟上市的ETF为例，大部分产品的个人持有比例在80%以上甚至在90%以上。 时间拉长看，这种情况在今年和去年同样存在。他们偏好医药等热门主题产品，呈现出“户数多、户均金额小”特征。截至2025年末，个人投资者在ETF中平均持有占比尚未超过机构投资者，但比例已超过4
 
 ## 正文
 
-中新网昆明6月3日电 (杨帆)为依法惩治拒不执行判决、裁定犯罪，切实维护当事人合法权益与人民法院生效裁判司法权威，云南省高级人民法院、云南省人民检察院、云南省公安厅近日联合发布《关于严厉打击拒不执行判决、裁定等犯罪行为的通告》(以下简称《通告》)，在云南省集中打击拒不执行判决、裁定，妨害公务，非法处置查封、扣押、冻结的财产，虚假诉讼等犯罪行为。
+近期上市的ETF，个人投资者成为绝对认购主力。
 
-《通告》明确，凡在云南法院立案执行但尚未履行生效法律文书确定义务的公民、法人及其他组织，应当自觉到法院如实报告财产并履行义务，不得实施抗拒执行、逃避执行、规避执行、妨碍执行的行为。
+以上周（4月20日—24日）上市的ETF和本周（4月27日—30日）拟上市的ETF为例，大部分产品的个人持有比例在80%以上甚至在90%以上。
 
-对拒不配合的，法院将依法采取罚款、拘留、限制消费、纳入失信被执行人名单等惩戒措施；构成犯罪的，将依法追究刑事责任。
+时间拉长看，这种情况在今年和去年同样存在。
 
-《通告》共7条，其中详尽列举了被执行人、协助执行义务人、担保人等负有执行义务的公民、法人及其他组织会被依法追究刑事责任的十三种情形，涵盖隐瞒、转移、故意毁损财产，通过放弃债权、虚假和解等方式恶意处分财产权益，伪造、毁灭、隐匿有关履行能力的重要证据，妨碍法院取证等行为，还有拒不申报或虚报财产，以恐吓、辱骂、聚众哄闹、威胁等方式阻碍执行人员进入执行现场，甚至暴力阻挠执行等行为。
+他们偏好医药等热门主题产品，呈现出“户数多、户均金额小”特征。
 
-《通告》鼓励纠错，在通告发布后、案件移送公安立案侦查前，相关义务人主动到法院履行义务、违法情节轻微危害不大的，可不予移送刑事处理；主动投案自首、如实供述罪行的，依法从轻、减轻处罚；积极履约且符合法定条件的，检察机关可依法作出不起诉决定。
+截至2025年末，个人投资者在ETF中平均持有占比尚未超过机构投资者，但比例已超过42%。
 
-而对通告发布后仍顽固拒不执行的，司法机关将从严从重惩处。
+在参与更广泛的ETF联接基金方面，个人持有比例则超过了85%，2024年至今逐步提升。
 
-《通告》支持申请执行人对涉嫌拒不执行人民法院判决、裁定犯罪的被执行人依法提出刑事自诉。
+受访人士对券商中国记者称，个人投资者持续转向ETF，意味着他们逐步认可指数化工具产品，且呈现出了组合配置和风险分散意识。
 
-在刑事自诉立案或者审理过程中，自诉人要求复制已由执行法院收集和固定，能证明其人身、财产权利受到侵犯的证据，法院将依法及时提供。
+但从广泛参与到成为中长期耐心资本，他们还需要长期持续的良性引导。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 15:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
-- 2026-06-29 15:27 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 15:28 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 15:23 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 15:18 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 15:13 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-29 15:13 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-29 15:28 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 15:10 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 15:22 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 15:38 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 15:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 15:13 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 15:17 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 15:25 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 15:16 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 15:28 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 15:22 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
+- 2026-06-29 15:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 15:27 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 15:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 15:26 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [周生如故](http://www.blog.kurohicncr.top/Article/details/11521339330.shtml)
-- 2026-06-29 15:33 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/986927614.shtml)
-- 2026-06-29 15:26 - [新一代影后杨紫](http://www.share.kurohicncr.top/Article/details/72164.shtml)
-- 2026-06-29 15:15 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/03841691.shtml)
-- 2026-06-29 15:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/923314235.shtml)
-- 2026-06-29 15:20 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/34533.shtml)
-- 2026-06-29 15:09 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/69490372945.shtml)
-- 2026-06-29 15:12 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/2100353700.shtml)
-- 2026-06-29 15:22 - [周杰伦演唱会真的好多人啊](http://www.blog.minike.top/Article/details/9722996.shtml)
-- 2026-06-29 15:16 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/49404.shtml)
-- 2026-06-29 15:11 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/92783649.shtml)
-- 2026-06-29 15:27 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/35924.shtml)
-- 2026-06-29 15:26 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.share.minike.top/Article/details/512965955.shtml)
-- 2026-06-29 15:07 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/98349.shtml)
-- 2026-06-29 15:31 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/49671010725.shtml)
+- 2026-06-29 15:26 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/48488.shtml)
+- 2026-06-29 15:20 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/029894.shtml)
+- 2026-06-29 15:35 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/42965.shtml)
+- 2026-06-29 15:38 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/74187.shtml)
+- 2026-06-29 15:31 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/3740499439.shtml)
+- 2026-06-29 15:22 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/507799540.shtml)
+- 2026-06-29 15:41 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/57875000346.shtml)
+- 2026-06-29 15:15 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/039582.shtml)
+- 2026-06-29 15:13 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/01355.shtml)
+- 2026-06-29 15:40 - [戒掉咖啡后我的身体变化](https://www.share.kurohicncr.top/Article/details/2303584.shtml)
+- 2026-06-29 15:30 - [papi酱在救赎窦文涛](http://www.share.minike.top/Article/details/49637041.shtml)
+- 2026-06-29 15:22 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/144741554961.shtml)
+- 2026-06-29 15:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/09666530047.shtml)
+- 2026-06-29 15:20 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/64274807571.shtml)
+- 2026-06-29 15:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/35448705894.shtml)

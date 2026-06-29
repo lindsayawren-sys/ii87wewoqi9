@@ -1,61 +1,60 @@
-# 新能源汽车“太胖了”！该如何“减重”？
+# 净息差最高1.87%！头部银行利息净收入艰难企稳
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券日报之声 2026年北京车展上，自主品牌纷纷亮出“9系”旗舰：蔚来ES9整备质量达2915kg，小鹏GX增程版逼近2890kg，理想L9 Livis达2835kg，比亚迪大唐EV高配版达2970kg。腾势D9 115度电版更是重达3015公斤，尊界V800车长近5.5米，总质量达3.8吨。 新能源
+21世纪经济报道记者张欣 连续多个季度，贷款定价下行持续压缩银行经营空间，净息差持续走弱，直接拖累净利息收入表现，这一核心盈利指标的走向，成为观察银行业基本面的关键。 随着2025年A股上市银行年报披露收官，21世纪经济报道记者选取6家国有大行、9家全国性股份制银行共计15家头部银行经营数据为样本进行分析。整体来看，行业分化特征显著：国有大行的利息净收入以小幅收缩守住盈利基本盘
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+21世纪经济报道记者张欣 连续多个季度，贷款定价下行持续压缩银行经营空间，净息差持续走弱，直接拖累净利息收入表现，这一核心盈利指标的走向，成为观察银行业基本面的关键。
 
-来源：证券日报之声 2026年北京车展上，自主品牌纷纷亮出“9系”旗舰：蔚来ES9整备质量达2915kg，小鹏GX增程版逼近2890kg，理想L9 Livis达2835kg，比亚迪大唐EV高配版达2970kg。
+随着2025年A股上市银行年报披露收官，21世纪经济报道记者选取6家国有大行、9家全国性股份制银行共计15家头部银行经营数据为样本进行分析。
 
-腾势D9 115度电版更是重达3015公斤，尊界V800车长近5.5米，总质量达3.8吨。
+整体来看，行业分化特征显著：国有大行的利息净收入以小幅收缩守住盈利基本盘，股份制银行依托灵活经营率先修复。
 
-新能源汽车越造越大、越来越重，成为近期行业内外关注和讨论的热点。
+综合来看，在负债成本优化的支撑下，银行业净息差下行节奏放缓，利息净收入正在告别连续多年的深度下滑，整体进入企稳修复周期。
 
-“根据机动车上险数据统计，2026年1至4月，我国新能源乘用车平均整备质量达1939.3公斤，较2020年增长27.5%。
+大行微降守盘，股份行率先企稳 从15家样本银行整体表现看，2025 年利息净收入告别此前的快速下行，进入温和调整、结构改善阶段。
 
-”中国汽车战略与政策研究中心绿色低碳与税收政策研究部高级总监周玮援引最新数据证实了这一现象。
+作为银行业的“压舱石”，6家国有大行2025年继续扮演着稳大盘的角色。
 
-动力电池系统作为新能源汽车能量储存与供应的关键，是“增重”的主要来源。
+年报数据显示，国有大行全年合计实现利息净收入2.67万亿元。
 
-直观来看，以同品牌同款式的中型轿车为例，内燃机版本整备质量1600公斤左右，纯电动版本则超过2000公斤。
+从个体表现看，国有大行呈现“一增五降”格局。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 15:28 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-29 15:14 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 15:13 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 15:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 15:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
-- 2026-06-29 15:10 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
-- 2026-06-29 15:26 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 15:20 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-29 15:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 15:08 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 15:13 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
-- 2026-06-29 15:35 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 15:17 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 15:07 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-29 15:37 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-29 15:32 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 15:15 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 15:35 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 15:14 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 15:31 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 15:12 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 15:29 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 15:40 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 15:35 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
+- 2026-06-29 15:25 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 15:36 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 15:30 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 15:18 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/38576875614.shtml)
-- 2026-06-29 15:07 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/91507.shtml)
-- 2026-06-29 15:34 - [河南考699分女生已接到清华大学电话](http://www.blog.minike.top/Article/details/82178597869.shtml)
-- 2026-06-29 15:10 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/75267.shtml)
-- 2026-06-29 15:19 - [AG 宫斗](https://www.share.kurohicncr.top/Article/details/66890762.shtml)
-- 2026-06-29 15:35 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/033217.shtml)
-- 2026-06-29 15:33 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/229124.shtml)
-- 2026-06-29 15:31 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/261159804.shtml)
-- 2026-06-29 15:34 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/408558372.shtml)
-- 2026-06-29 15:25 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.kurohicncr.top/Article/details/77959822.shtml)
-- 2026-06-29 15:09 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/9686540.shtml)
-- 2026-06-29 15:07 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/7565006.shtml)
-- 2026-06-29 15:22 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/462275010.shtml)
-- 2026-06-29 15:29 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/15527864332.shtml)
-- 2026-06-29 15:11 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/530147.shtml)
+- 2026-06-29 15:18 - [AG 宫斗](http://www.blog.kurohicncr.top/Article/details/5344728.shtml)
+- 2026-06-29 15:16 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/7198024406.shtml)
+- 2026-06-29 15:19 - [欧洲人驾车200公里抢购中国空调](https://www.share.minike.top/Article/details/582002132280.shtml)
+- 2026-06-29 15:33 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/29489.shtml)
+- 2026-06-29 15:17 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.minike.top/Article/details/10614396004.shtml)
+- 2026-06-29 15:19 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/87953414.shtml)
+- 2026-06-29 15:21 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/76159370.shtml)
+- 2026-06-29 15:38 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/413636018874.shtml)
+- 2026-06-29 15:12 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/8394974960.shtml)
+- 2026-06-29 15:25 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/023212679684.shtml)
+- 2026-06-29 15:36 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/0889964278.shtml)
+- 2026-06-29 15:18 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.kurohicncr.top/Article/details/4053831254.shtml)
+- 2026-06-29 15:25 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/986465984.shtml)
+- 2026-06-29 15:36 - [斗破苍穹](http://www.share.minike.top/Article/details/38596399.shtml)
+- 2026-06-29 15:39 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/6255292.shtml)

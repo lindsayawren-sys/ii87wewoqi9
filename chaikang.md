@@ -1,61 +1,58 @@
-# 酒价内参6月2日价格发布：五粮液普五八代下跌4元
+# 五千跑者竞逐九龙山 生态文旅助力全民健身
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款
+中新网陕西宝鸡4月26日电 (记者 张一辰)2026年陕西省路跑精英赛暨宝鸡陈仓九龙山10公里精英赛26日在宝鸡市陈仓区九龙山景区鸣枪开跑。5000名跑者的矫健身姿与赭红丹霞、苍翠山峦交相辉映，用一场路跑为全民健身发展助力。 本次赛事纳入“陕耀之路”省级路跑联赛体系，赛事致力于省级路跑品牌落地推广，全力打造省级短距离标杆赛事，赢得行业及跑圈的广泛关注。 赛道步步皆景，奔跑全程入
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。
+中新网陕西宝鸡4月26日电 (记者 张一辰)2026年陕西省路跑精英赛暨宝鸡陈仓九龙山10公里精英赛26日在宝鸡市陈仓区九龙山景区鸣枪开跑。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。
+5000名跑者的矫健身姿与赭红丹霞、苍翠山峦交相辉映，用一场路跑为全民健身发展助力。
 
-市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款酒品均为大涨。
+本次赛事纳入“陕耀之路”省级路跑联赛体系，赛事致力于省级路跑品牌落地推广，全力打造省级短距离标杆赛事，赢得行业及跑圈的广泛关注。
 
-今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
+赛道步步皆景，奔跑全程入画。
 
-上涨方面，习酒君品的涨幅居前，上涨7元/瓶，两连阳快速走出月内低点；飞天茅台上涨3元/瓶，成功固守1735元一线；国窖1573上涨2元/瓶。
+赛道沿九龙山至灵宝峡旅游专线铺展，起终点均设在九龙山景区P4停车场，一路串起九龙山文化广场、玉兔沟、笔架山、怡心茶苑等核心景观，全程穿行于壮美丹霞与葱郁青山之间，山水相融、风光如画，被参赛选手们誉为“人在画中跑”的最美赛道。
 
-下跌方面，古井贡古20与青花郎跌幅居前，均下跌6元/瓶，前者仍囿于月内低点附近，后者再度失守700元关口；精品茅台下跌5元/瓶；五粮液普五八代下跌4元/瓶；洋河梦之蓝M6+下跌3元/瓶，回吐昨日全部涨幅，再度失守600元大关；水晶剑南春下跌2元/瓶，亦尽失昨日涨幅。
+同时，凭借坡度平缓、路况平整、规划科学的优势，为选手冲击个人最好成绩提供了绝佳条件。
 
-五粮液1618与青花汾20的价格环比保持不变，后者平近一个月最低价纪录。
+比赛现场气氛热烈，观众欢呼声此起彼伏。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+经过激烈比拼，男子组方面，来自宁夏石嘴山的王乐以31分36秒摘得冠军；女子组方面，来自内蒙古鄂尔多斯的官颖以38分29秒斩获冠军。
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 15:14 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 15:19 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 15:14 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-29 15:16 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-29 15:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 15:34 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 15:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 15:22 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-29 15:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 15:06 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 15:06 - [存储三巨头被告了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 15:13 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 15:25 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 15:26 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 15:37 - [当我回母校教书](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 15:28 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-29 15:28 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 15:34 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 15:13 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 15:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 15:25 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 15:38 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 15:28 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 15:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 15:28 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 15:14 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/9935419.shtml)
-- 2026-06-29 15:34 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/30064.shtml)
-- 2026-06-29 15:08 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/4197199.shtml)
-- 2026-06-29 15:30 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/260391.shtml)
-- 2026-06-29 15:33 - [领克900大型SUV值得购买吗?](http://www.share.kurohicncr.top/Article/details/832315184117.shtml)
-- 2026-06-29 15:20 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/4918075428.shtml)
-- 2026-06-29 15:32 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/52342.shtml)
-- 2026-06-29 15:09 - [爸爸当家](https://www.share.minike.top/Article/details/7341053.shtml)
-- 2026-06-29 15:08 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/7730553235.shtml)
-- 2026-06-29 15:19 - [有什么好的高中网课推荐吗？](http://www.blog.kurohicncr.top/Article/details/8621765000.shtml)
-- 2026-06-29 15:31 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/899479.shtml)
-- 2026-06-29 15:26 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/106025566833.shtml)
-- 2026-06-29 15:14 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/348496905.shtml)
-- 2026-06-29 15:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/7458848427.shtml)
-- 2026-06-29 15:15 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/01366.shtml)
+- 2026-06-29 15:17 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/230749839.shtml)
+- 2026-06-29 15:18 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/24027.shtml)
+- 2026-06-29 15:31 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/5448012.shtml)
+- 2026-06-29 15:36 - [驻日美军航母沦为“毒窝”](http://www.blog.kurohicncr.top/Article/details/023833319858.shtml)
+- 2026-06-29 15:29 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/616472122.shtml)
+- 2026-06-29 15:24 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/799991469865.shtml)
+- 2026-06-29 15:24 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/79771410331.shtml)
+- 2026-06-29 15:17 - [沙丘](http://www.blog.minike.top/Article/details/76333517445.shtml)
+- 2026-06-29 15:17 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/946115.shtml)
+- 2026-06-29 15:40 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/222390369.shtml)
+- 2026-06-29 15:25 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/535740.shtml)
+- 2026-06-29 15:34 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/985659860.shtml)
+- 2026-06-29 15:21 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/661804598172.shtml)
+- 2026-06-29 15:13 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/81235577.shtml)
+- 2026-06-29 15:34 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/11310033165.shtml)

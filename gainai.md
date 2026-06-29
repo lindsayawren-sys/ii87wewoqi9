@@ -1,52 +1,59 @@
-# 三井住友金融集团高管：日本央行应在6月加息后明确未来利率路径
+# 中方对禁止外资收购Manus有何评论？外交部回应
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-三井住友金融集团（SMFG）全球市场主管Arihiro Nagata在接受采访时表示，市场普遍预期日本央行将于本月加息，此后日本央行应明确阐述政策正常化的路径，以稳定国债市场。 这家日本第二大银行呼吁日本央行提供更清晰的指引之际，10年期日本国债收益率已升至30年来高点，而在大规模干预后日元兑美元仍再度走弱，接近160日元这一心理关口。 “日本央行应该在6月加息，我预期会的——
+4月28日，外交部发言人林剑主持例行记者会。 法新社记者提问，中方禁止外资收购Manus，中国官方反对该交易继续进行。中方对此交易有何评论？以及对于出口禁令有何评论？ 林剑表示：“具体问题请向中方主管部门了解。作为原则我想强调，中国政府依法依规对外商投资进行审查，并作出有关的决定。” 澎湃新闻记者 杨文钦 谢瑞强责任编辑：刘万里 SF014
 
 ## 正文
 
-三井住友金融集团（SMFG）全球市场主管Arihiro Nagata在接受采访时表示，市场普遍预期日本央行将于本月加息，此后日本央行应明确阐述政策正常化的路径，以稳定国债市场。
+4月28日，外交部发言人林剑主持例行记者会。
 
-这家日本第二大银行呼吁日本央行提供更清晰的指引之际，10年期日本国债收益率已升至30年来高点，而在大规模干预后日元兑美元仍再度走弱，接近160日元这一心理关口。
+法新社记者提问，中方禁止外资收购Manus，中国官方反对该交易继续进行。
 
-“日本央行应该在6月加息，我预期会的——这次肯定会，”Arihiro Nagata在采访中表示，并补充称，日本央行6月15日至16日会议的关键在于，将如何清晰地传达迈向政策正常化的路径。
+中方对此交易有何评论？
 
-“政策路径越明确，长期利率进一步上升的空间就越可能缩小，”他说道。
+以及对于出口禁令有何评论？
 
-Nagata补充道，日本央行只需表明其与市场预期基本一致即可，当前市场已经预计今年将进行接近两次加息，并且在一定程度上还预期未来会有进一步的政策收紧。
+林剑表示：“具体问题请向中方主管部门了解。
 
-责任编辑：王永生
+作为原则我想强调，中国政府依法依规对外商投资进行审查，并作出有关的决定。
+
+” 澎湃新闻记者 杨文钦 谢瑞强责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 15:11 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 15:30 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 15:30 - [共享单车“价格刺客”79分钟30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 15:07 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-29 15:11 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
-- 2026-06-29 15:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 15:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 15:10 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 15:17 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 15:22 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
+- 2026-06-29 15:28 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 15:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 15:36 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 15:32 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 15:18 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 15:40 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 15:29 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 15:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
+- 2026-06-29 15:32 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 15:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 15:23 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 15:12 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 15:22 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 15:39 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/869272.shtml)
-- 2026-06-29 15:16 - [苹果ultra2阔折叠已开模测试](http://www.blog.kurohicncr.top/Article/details/87925291.shtml)
-- 2026-06-29 15:31 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/07366.shtml)
-- 2026-06-29 15:25 - [中餐厅南北饮食差异](http://www.share.kurohicncr.top/Article/details/151750190667.shtml)
-- 2026-06-29 15:11 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/62335.shtml)
-- 2026-06-29 15:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/165860.shtml)
-- 2026-06-29 15:18 - [我国多领域成果密集上新](https://www.share.kurohicncr.top/Article/details/706674.shtml)
-- 2026-06-29 15:14 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/13665180540.shtml)
-- 2026-06-29 15:32 - [金牌调解](http://www.share.minike.top/Article/details/14571903285.shtml)
-- 2026-06-29 15:24 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/1649367652.shtml)
-- 2026-06-29 15:19 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/5003888.shtml)
-- 2026-06-29 15:23 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/461388663755.shtml)
-- 2026-06-29 15:09 - [青春环游记第三季](https://www.share.minike.top/Article/details/062968.shtml)
-- 2026-06-29 15:14 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/37855976947.shtml)
-- 2026-06-29 15:13 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/99152320913.shtml)
+- 2026-06-29 15:21 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/824816.shtml)
+- 2026-06-29 15:27 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.kurohicncr.top/Article/details/5575618361.shtml)
+- 2026-06-29 15:26 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/307644472993.shtml)
+- 2026-06-29 15:14 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/9013946893.shtml)
+- 2026-06-29 15:41 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/368944975.shtml)
+- 2026-06-29 15:32 - [明星大侦探第四季](http://www.share.minike.top/Article/details/129146.shtml)
+- 2026-06-29 15:38 - [中国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/48974457651.shtml)
+- 2026-06-29 15:29 - [东方风云榜](http://www.blog.minike.top/Article/details/9192657423.shtml)
+- 2026-06-29 15:13 - [王祖蓝现场观看美加墨世界杯](http://www.blog.kurohicncr.top/Article/details/3111622965.shtml)
+- 2026-06-29 15:28 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/74806379882.shtml)
+- 2026-06-29 15:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/0821207667.shtml)
+- 2026-06-29 15:17 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.minike.top/Article/details/36916.shtml)
+- 2026-06-29 15:25 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/94393307.shtml)
+- 2026-06-29 15:34 - [失明的我带老妈去了趟“火星”](http://www.blog.kurohicncr.top/Article/details/869805.shtml)
+- 2026-06-29 15:32 - [世界杯淘汰赛首轮五场焦点对决](https://www.share.minike.top/Article/details/96454078.shtml)

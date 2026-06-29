@@ -1,59 +1,54 @@
-# 打破“只买不卖”惯例 Strategy出售所持部分比特币
+# 2026年新疆阿勒泰地区夏秋季旅游启动
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-全球最大的比特币企业级持有者Strategy出售了约250万美元的比特币，这是该公司自2022年以来首次减持这一加密货币。 联合创始人Michael Saylor上个月在公司季度业绩电话会上已暗示未来存在出售比特币的可能性。这与他多年来反复向股东保证“不会出售所持比特币”的立场相比，是一次显著转变。 Strategy表示，未来出售比特币将成为其更有策略地管理和积累比特币资产的一
+中新网新疆阿勒泰4月27日电 (袁鹏冲)2026年“5·19中国旅游日”阿勒泰地区分会场活动暨阿勒泰地区2026年“我的阿勒泰·清凉一夏”夏秋季旅游启动仪式，26日在新疆阿勒泰市举行，现场展示阿勒泰优质夏秋季文旅资源、特色产品与惠民举措。 活动现场发布阿勒泰地区夏秋季文体旅系列活动、精品旅游线路及文体旅惠民措施，为游客奉上丰富多样的出行选择，还推出景区网络达人扶持政策，通过免票
 
 ## 正文
 
-全球最大的比特币企业级持有者Strategy出售了约250万美元的比特币，这是该公司自2022年以来首次减持这一加密货币。
+中新网新疆阿勒泰4月27日电 (袁鹏冲)2026年“5·19中国旅游日”阿勒泰地区分会场活动暨阿勒泰地区2026年“我的阿勒泰·清凉一夏”夏秋季旅游启动仪式，26日在新疆阿勒泰市举行，现场展示阿勒泰优质夏秋季文旅资源、特色产品与惠民举措。
 
-联合创始人Michael Saylor上个月在公司季度业绩电话会上已暗示未来存在出售比特币的可能性。
+活动现场发布阿勒泰地区夏秋季文体旅系列活动、精品旅游线路及文体旅惠民措施，为游客奉上丰富多样的出行选择，还推出景区网络达人扶持政策，通过免票入园、专属服务等礼遇，鼓励全网达人聚焦阿勒泰山水人文，讲好阿勒泰故事。
 
-这与他多年来反复向股东保证“不会出售所持比特币”的立场相比，是一次显著转变。
+仪式上，阿勒泰地区旅游协会代表发布旅游行业提升旅游服务质量倡议书，切实保障游客合法权益。
 
-Strategy表示，未来出售比特币将成为其更有策略地管理和积累比特币资产的一部分。
+本次活动同步设置五大特色展销体验街区与三大互动特色活动，构建“可看、可玩、可购、可感”的文旅消费场景。
 
-公司认为，此类交易不仅可能带来税务上的好处，也有助于在数字资产长期熊市环境下更灵活地增持比特币。
+其中，非遗展示体验一条街呈现民族刺绣、毛皮雪板制作等传统技艺，搭配民谣演唱、民俗舞蹈，让游客近距离感受非遗魅力。
 
-尽管进行了减持，Strategy目前仍持有价值约610亿美元比特币。
+阿勒泰地区文化体育广播电视和旅游局党组成员、副局长王新慧表示，将以此次活动为契机，持续完善文旅服务配套、规范旅游市场秩序、丰富文旅消费业态，全力打造夏季避暑旅游目的地，用心用情为广大游客提供安心、舒心、放心的旅游体验。
 
-Strategy股价盘前下跌约5%，比特币价格则下跌约2%至7.2万美元左右。
-
-责任编辑：刘明亮
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 15:35 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 15:31 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 15:22 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 15:34 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 15:20 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 15:29 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 15:27 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 15:26 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 15:30 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
-- 2026-06-29 15:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-29 15:11 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-29 15:09 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 15:40 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 15:30 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 15:33 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 15:19 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 15:41 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 15:27 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 15:20 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 15:40 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 15:26 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 15:22 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/918648.shtml)
-- 2026-06-29 15:19 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/33767099.shtml)
-- 2026-06-29 15:12 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.share.minike.top/Article/details/40714851.shtml)
-- 2026-06-29 15:13 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/806831.shtml)
-- 2026-06-29 15:20 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/153119.shtml)
-- 2026-06-29 15:26 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/8292054645.shtml)
-- 2026-06-29 15:28 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/5782133.shtml)
-- 2026-06-29 15:08 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/503883382267.shtml)
-- 2026-06-29 15:16 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/5840043327.shtml)
-- 2026-06-29 15:06 - [20年前的周杰伦](https://www.share.minike.top/Article/details/85740305331.shtml)
-- 2026-06-29 15:07 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/307387.shtml)
-- 2026-06-29 15:15 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/81307086.shtml)
-- 2026-06-29 15:34 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/6950659.shtml)
-- 2026-06-29 15:22 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.minike.top/Article/details/6151492.shtml)
-- 2026-06-29 15:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/34621641.shtml)
+- 2026-06-29 15:22 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/59834222.shtml)
+- 2026-06-29 15:13 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/247598650.shtml)
+- 2026-06-29 15:36 - [千亿存储巨头悄悄在深圳蛰伏](https://www.blog.minike.top/Article/details/45558891862.shtml)
+- 2026-06-29 15:17 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/449440.shtml)
+- 2026-06-29 15:18 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/95081.shtml)
+- 2026-06-29 15:22 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/849975654260.shtml)
+- 2026-06-29 15:32 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/186160580.shtml)
+- 2026-06-29 15:31 - [央视曝光涉黄App诈骗陷阱](http://www.blog.minike.top/Article/details/272224.shtml)
+- 2026-06-29 15:14 - [世界杯上那些封神的门将](http://www.share.minike.top/Article/details/0745137.shtml)
+- 2026-06-29 15:35 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/691351739.shtml)
+- 2026-06-29 15:36 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/09343928170.shtml)
+- 2026-06-29 15:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/518283169163.shtml)
+- 2026-06-29 15:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/16309.shtml)
+- 2026-06-29 15:27 - [《贺子珍》](https://www.blog.minike.top/Article/details/05623693162.shtml)
+- 2026-06-29 15:41 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/3351236.shtml)

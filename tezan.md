@@ -1,61 +1,53 @@
-# 蒙曼：只要《敕勒歌》还在，敕勒人就永远不朽；《越人歌》的故事更早，也更传奇……
+# 油车、电车怎么选？2026北京车展 听听观众怎么说？
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-作者 蒙曼 中央民族大学教授 中华民族是一个诗的民族。 《公羊传》云：“饥者歌其食，劳者歌其事。”这里的“饥者”和“劳者”，其实已经涵盖了中华历史上的各个民族。每个民族都有属于自己的歌声，与此同时，用汉语吟诵、汉文书写的古典诗词则具有更为广泛的包容力和感染力，让生活在中国这片土地上的各民族都以它为媒介，歌唱生活，抒发情感，也熔铸出中华民族共享的审美情趣和共同的精神气质。 古典诗
+发布时间：2026年04月27日 21:52 来源：中国新闻网 2026北京国际汽车展览会正在进行。本届车展规模空前，共有1451台展车亮相，其中全球首发车型多达181台。在新能源渗透率突破50%的当下，传统油车与智能电车该如何抉择？我们走进车展现场，听听观众和业内人士怎么说。 记者 刘超 谢龙飞 北京报道 责任编辑：【周驰】
 
 ## 正文
 
-作者 蒙曼 中央民族大学教授 中华民族是一个诗的民族。
+发布时间：2026年04月27日 21:52 来源：中国新闻网 2026北京国际汽车展览会正在进行。
 
-《公羊传》云：“饥者歌其食，劳者歌其事。
+本届车展规模空前，共有1451台展车亮相，其中全球首发车型多达181台。
 
-”这里的“饥者”和“劳者”，其实已经涵盖了中华历史上的各个民族。
+在新能源渗透率突破50%的当下，传统油车与智能电车该如何抉择？
 
-每个民族都有属于自己的歌声，与此同时，用汉语吟诵、汉文书写的古典诗词则具有更为广泛的包容力和感染力，让生活在中国这片土地上的各民族都以它为媒介，歌唱生活，抒发情感，也熔铸出中华民族共享的审美情趣和共同的精神气质。
+我们走进车展现场，听听观众和业内人士怎么说。
 
-古典诗词作为中国灿烂文化中的一颗明珠，本身就映照出中华民族和衷共济的历史进程，情感交融的精神光辉。
-
-中华各民族的共同创造 中国古人按地理方位，把人群分成了诸夏、“东夷”、“西戎”、“北狄”和“南蛮”。
-
-《诗经》中已包含了不同人群的心声。
-
-《诗经·商颂·玄鸟》云：“天命玄鸟，降而生商。
+记者 刘超 谢龙飞 北京报道 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
-- 2026-06-29 15:23 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 15:14 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 15:07 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-29 15:21 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 15:29 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-29 15:19 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 15:35 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-29 15:09 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 15:23 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 15:19 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-29 15:27 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-29 15:14 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 15:22 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-29 15:29 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 15:35 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 15:34 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-29 15:33 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
+- 2026-06-29 15:24 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 15:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 15:28 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
+- 2026-06-29 15:28 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 15:19 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 15:18 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 15:23 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 15:22 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 15:32 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 15:18 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/245223364.shtml)
-- 2026-06-29 15:33 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/55659764535.shtml)
-- 2026-06-29 15:31 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/260262728669.shtml)
-- 2026-06-29 15:09 - [广州一高校通报网传禁止小米汽车入校](http://www.share.minike.top/Article/details/32142.shtml)
-- 2026-06-29 15:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/10346149712.shtml)
-- 2026-06-29 15:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/47030936334.shtml)
-- 2026-06-29 15:31 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/43527.shtml)
-- 2026-06-29 15:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/120159558.shtml)
-- 2026-06-29 15:13 - [职业选手禁止参赛！](http://www.share.kurohicncr.top/Article/details/44459976690.shtml)
-- 2026-06-29 15:11 - [天道](https://www.blog.minike.top/Article/details/91240103115.shtml)
-- 2026-06-29 15:22 - [梅朗雄主张法国退出北约](https://www.share.kurohicncr.top/Article/details/70408.shtml)
-- 2026-06-29 15:07 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/68639587.shtml)
-- 2026-06-29 15:10 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/76713694974.shtml)
-- 2026-06-29 15:13 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/497043773691.shtml)
-- 2026-06-29 15:13 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/16177.shtml)
+- 2026-06-29 15:19 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.minike.top/Article/details/7499505089.shtml)
+- 2026-06-29 15:22 - [小娘惹](http://www.blog.minike.top/Article/details/4192018.shtml)
+- 2026-06-29 15:32 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/228810167008.shtml)
+- 2026-06-29 15:36 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/55893224.shtml)
+- 2026-06-29 15:29 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/1680791.shtml)
+- 2026-06-29 15:28 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/19977.shtml)
+- 2026-06-29 15:24 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/41731665689.shtml)
+- 2026-06-29 15:23 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/2058543954.shtml)
+- 2026-06-29 15:22 - [乔家的儿女](https://www.blog.minike.top/Article/details/11728.shtml)
+- 2026-06-29 15:32 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/80333720.shtml)
+- 2026-06-29 15:42 - [媒体：高考后消费应量力而行适度有度](https://www.blog.kurohicncr.top/Article/details/1107784324.shtml)
+- 2026-06-29 15:21 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/024987324720.shtml)
+- 2026-06-29 15:29 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/861005707.shtml)
+- 2026-06-29 15:12 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/248713797.shtml)
+- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](https://www.share.kurohicncr.top/Article/details/142949260882.shtml)

@@ -1,59 +1,57 @@
-# 中国—东盟人工智能创新合作研修班启动
+# 美伊和谈陷入僵局，国际油价上涨2%
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。 中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动
+国际油价上涨约2%，此前美伊第二轮和平谈判计划再次陷入僵局。 另据报道，伊朗革命卫队还在霍尔木兹海峡附近登船检查了两艘货船，这条战略航道的紧张局势依然严峻。 截至美国东部时间周日下午6点27分（北京时间周一早晨6点27分），国际基准布伦特原油期货价格上涨超过2%，至每桶107.89美元。美国原油价格也上涨超过2%，至每桶96.63美元。 当地时间周六，美国总统特朗普取消了派遣美
 
 ## 正文
 
-中新网南宁6月2日电(黄令妍 韦天聪)6月1日，由广西国际博览事务局(中国—东盟博览会秘书处)承办的中国—东盟人工智能创新合作研修班在南宁启动。
+国际油价上涨约2%，此前美伊第二轮和平谈判计划再次陷入僵局。
 
-来自文莱、柬埔寨、老挝、马来西亚、泰国5个东盟国家的28名学员跨越山海，共同开启人工智能创新合作的学习之旅。
+另据报道，伊朗革命卫队还在霍尔木兹海峡附近登船检查了两艘货船，这条战略航道的紧张局势依然严峻。
 
-中国—东盟博览会秘书处秘书长王继才表示，当前，人工智能正以前所未有的速度重塑产业格局，重构经济形态，也为中国—东盟合作注入新动力。
+截至美国东部时间周日下午6点27分（北京时间周一早晨6点27分），国际基准布伦特原油期货价格上涨超过2%，至每桶107.89美元。
 
-中国—东盟自贸区3.0版即将实施，双方人工智能合作前景广阔。
+美国原油价格也上涨超过2%，至每桶96.63美元。
 
-中国—东盟博览会已举办22届，搭建双边合作的重要平台，也开展了一系列面向东盟的研修培训项目，包括中国—东盟青年领军者成长计划研修班、中国—东盟农产品电商贸易研修班、中国—东盟东部增长区电子商务(新业态)研修班等，受到东盟国家参训学员的广泛好评。
+当地时间周六，美国总统特朗普取消了派遣美国特使史蒂夫·威特科夫和贾里德·库什纳前往巴基斯坦伊斯兰堡与伊朗进行谈判的计划。
 
-老挝科技与通信部国家信息中心副主任瓦拉赛·达拉莱作为学员代表发言。
+“浪费太多时间在路上，工作量太大！
 
-他表示，人工智能已经成为推动全球发展的变革力量，中国引领人工智能研究、创新和应用场景落地，东盟各国正致力于将AI技术融入各行各业。
+此外，他们的‘领导层’内部纷争不断，一片混乱，”特朗普在Truth Social网站上发帖写道。
 
-此次研修班项目为东盟国家提供了绝佳平台，让各国学员更好地学习中国的先进经验、交流心得，有助于整体提升东盟国家人工智能运用能力。
+“没人知道谁说了算，包括他们自己，”特朗普说，“而且，我们掌握着所有筹码；他们一无所有！
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 15:27 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 15:07 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 15:25 - [普京介绍前线战事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 15:25 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-29 15:11 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-29 15:22 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 15:30 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 15:28 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-29 15:29 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 15:18 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 15:35 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 15:08 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 15:25 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-29 15:21 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 15:20 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 15:21 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 15:29 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 15:12 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 15:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 15:31 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-29 15:12 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 15:39 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 15:27 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:10 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/912503901.shtml)
-- 2026-06-29 15:07 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/12509477160.shtml)
-- 2026-06-29 15:09 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/3666969.shtml)
-- 2026-06-29 15:24 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/219315559290.shtml)
-- 2026-06-29 15:18 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/2644715325.shtml)
-- 2026-06-29 15:18 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/55497624366.shtml)
-- 2026-06-29 15:23 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/239723358.shtml)
-- 2026-06-29 15:06 - [抓特务票房破亿](http://www.share.minike.top/Article/details/61790001.shtml)
-- 2026-06-29 15:34 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/42880401998.shtml)
-- 2026-06-29 15:24 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/450834234187.shtml)
-- 2026-06-29 15:32 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/093308146036.shtml)
-- 2026-06-29 15:26 - [南部战区位南海海域进行例行巡航](http://www.blog.minike.top/Article/details/10387.shtml)
-- 2026-06-29 15:24 - [宜宾珙县部分地区因地震停电 正抢修](https://www.blog.minike.top/Article/details/98424484.shtml)
-- 2026-06-29 15:27 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/717182505.shtml)
-- 2026-06-29 15:09 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/3800953.shtml)
+- 2026-06-29 15:23 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/140148195663.shtml)
+- 2026-06-29 15:38 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/20266064.shtml)
+- 2026-06-29 15:14 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/18869295.shtml)
+- 2026-06-29 15:20 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/5770313.shtml)
+- 2026-06-29 15:20 - [做完数学题 韩国队回家了](https://www.share.kurohicncr.top/Article/details/9386245.shtml)
+- 2026-06-29 15:31 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/886170269.shtml)
+- 2026-06-29 15:16 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/2871733738.shtml)
+- 2026-06-29 15:40 - [央视曝光高价回收老物件骗局](http://www.share.kurohicncr.top/Article/details/042999.shtml)
+- 2026-06-29 15:41 - [一见倾心](http://www.share.minike.top/Article/details/93591530289.shtml)
+- 2026-06-29 15:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/08685086.shtml)
+- 2026-06-29 15:25 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/8529202265.shtml)
+- 2026-06-29 15:37 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/680876902840.shtml)
+- 2026-06-29 15:12 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/07457431.shtml)
+- 2026-06-29 15:31 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/962693321417.shtml)
+- 2026-06-29 15:21 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/418440.shtml)

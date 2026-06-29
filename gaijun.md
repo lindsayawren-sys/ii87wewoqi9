@@ -1,56 +1,59 @@
-# Apollo公司浮式风电快速连接器向商业应用迈进一步
+# 多部门协同发力 上海出台14项举措助力民营经济高质量发展
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-Apollo公司已获得必维国际检验集团（Bureau Veritas）为其PALM快速连接系统颁发的原则性认可（2级）。该技术旨在简化浮式海上风力涡轮机动态电缆的连接与断开操作。 此项认证是在完成了一项为期12个月的全尺寸前端工程设计研究之后获得的。该研究由“海上风电增长伙伴关系”和“苏格兰波浪能源”共同资助。 Apollo表示，该认证确认PALM快速连接系统已根据行业标准通过
+中新网上海4月28日电(范宇斌)上海市委统战部、中国人民银行上海总部、上海市工商联(总商会)27日召开金融支持民营企业高质量发展暨“政会银企”机制推进会。上海市委常委、统战部部长陈通出席会议并讲话。 会上，九部门发布《2026年上海金融助力民营经济高质量发展工作指引》，围绕积极运用新设结构性货币政策工具、强化财政金融协同力度、丰富民营企业增信渠道等方面推出14项具体举措。会上还
 
 ## 正文
 
-Apollo公司已获得必维国际检验集团（Bureau Veritas）为其PALM快速连接系统颁发的原则性认可（2级）。
+中新网上海4月28日电(范宇斌)上海市委统战部、中国人民银行上海总部、上海市工商联(总商会)27日召开金融支持民营企业高质量发展暨“政会银企”机制推进会。
 
-该技术旨在简化浮式海上风力涡轮机动态电缆的连接与断开操作。
+上海市委常委、统战部部长陈通出席会议并讲话。
 
-此项认证是在完成了一项为期12个月的全尺寸前端工程设计研究之后获得的。
+会上，九部门发布《2026年上海金融助力民营经济高质量发展工作指引》，围绕积极运用新设结构性货币政策工具、强化财政金融协同力度、丰富民营企业增信渠道等方面推出14项具体举措。
 
-该研究由“海上风电增长伙伴关系”和“苏格兰波浪能源”共同资助。
+会上还成立了上海市工商联民营经济金融服务实体阵地，将在G60科创走廊、张江科学城等重点园区及相关金融机构布设18个服务站点，引入AI数字员工，为民营企业免费提供政策查询、融资对接、产品匹配等一站式服务。
 
-Apollo表示，该认证确认PALM快速连接系统已根据行业标准通过独立评估，现可进入技术认证和型式认可阶段。
+会议指出，上海着力破解民营企业融资难题，不断深化“政会银企”合作机制建设，以优质金融服务赋能民营经济高质量发展。
 
-PALM快速连接系统设计用于动态电缆的连接与断开，无需专用船舶、潜水员或人员转运。
+如何持续深化“政会银企”合作机制？
 
-据Apollo称，该系统在海上现场测试中已成功完成50次连接与断开操作。
+本次会议对进一步提升民营经济金融服务精准度提出要求：要更加精准地打破信息壁垒，畅通银企信息交流渠道，加大“商会批次贷”工作力度，引导民营企业规范治理、加强信息披露，提升民营企业融资的可得性；要更加精准地贴近企业需求，用好中小微企业贴息、民间投资担保、“随申融”应用等惠企政策与服务阵地，健全覆盖企业全生命周期的金融服务体系，以科技赋能提升民营企业获得感；要更加精准地用好科技金融政策，强化科技创新金融支持，共同打造“科技、产业、金融”协同发展的良好局面，更好地推动上海民营企业科技创新和高质量发展。
 
-该公司表示，与传统海上作业可能需要数天时间相比，该技术可在5.5小时内重新连接动态电缆，并在吉瓦级规模的浮式海上风电场全生命周期内可能节省1.61亿美元（1.2亿英镑）的成本。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 15:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 15:27 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 15:29 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-29 15:06 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 15:16 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-29 15:14 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 15:24 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 15:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 15:07 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
+- 2026-06-29 15:37 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-29 15:16 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 15:38 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 15:13 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 15:36 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 15:13 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 15:25 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 15:34 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 15:14 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 15:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 15:42 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-29 15:32 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 15:31 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/351160440.shtml)
-- 2026-06-29 15:11 - [千与千寻](http://www.share.kurohicncr.top/Article/details/466863943.shtml)
-- 2026-06-29 15:20 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/70498536.shtml)
-- 2026-06-29 15:19 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/917097327.shtml)
-- 2026-06-29 15:09 - [AG 宫斗](http://www.share.kurohicncr.top/Article/details/97898.shtml)
-- 2026-06-29 15:29 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/40254281555.shtml)
-- 2026-06-29 15:24 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/919419.shtml)
-- 2026-06-29 15:12 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/7739551.shtml)
-- 2026-06-29 15:14 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/17659.shtml)
-- 2026-06-29 15:14 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/5565187702.shtml)
-- 2026-06-29 15:32 - [急先锋](https://www.share.minike.top/Article/details/6561203891.shtml)
-- 2026-06-29 15:27 - [42岁郭碧婷纯素颜状态](http://www.blog.kurohicncr.top/Article/details/2863166.shtml)
-- 2026-06-29 15:20 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/31652083732.shtml)
-- 2026-06-29 15:34 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.share.minike.top/Article/details/38955.shtml)
-- 2026-06-29 15:22 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/574263486874.shtml)
+- 2026-06-29 15:41 - [行程万里不忘初心](https://www.share.minike.top/Article/details/204595813.shtml)
+- 2026-06-29 15:31 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/710279.shtml)
+- 2026-06-29 15:22 - [《虎吹最难绷の一集》](https://www.blog.minike.top/Article/details/1011854337.shtml)
+- 2026-06-29 15:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.kurohicncr.top/Article/details/68151021.shtml)
+- 2026-06-29 15:27 - [中国创新药股价要反攻了吗](http://www.share.kurohicncr.top/Article/details/39995336845.shtml)
+- 2026-06-29 15:41 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/53638611.shtml)
+- 2026-06-29 15:12 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/242039078225.shtml)
+- 2026-06-29 15:17 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/006538.shtml)
+- 2026-06-29 15:31 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/62239920861.shtml)
+- 2026-06-29 15:36 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/92705.shtml)
+- 2026-06-29 15:31 - [沉睡花园](http://www.blog.minike.top/Article/details/2272161558.shtml)
+- 2026-06-29 15:16 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/69403816164.shtml)
+- 2026-06-29 15:36 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/3387808412.shtml)
+- 2026-06-29 15:18 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/651651581786.shtml)
+- 2026-06-29 15:35 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/767707.shtml)

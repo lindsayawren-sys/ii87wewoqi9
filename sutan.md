@@ -1,61 +1,53 @@
-# 天津智能科技“军团”以硬核实力赋能民生
+# 姚高员辞去杭州市市长职务
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-央广网天津6月1日消息(记者周思杨)5月28日至31日，2026世界智能产业博览会在国家会展中心(天津)盛大启幕。作为全球智能产业领域的标杆盛会，本届展会汇聚740余家国内外企业，集中展示人工智能、具身智能、智慧生活等前沿技术与创新成果。在智汇天津展区的AI for Life板块，天津恒达文博科技股份有限公司、天津智汇云界科技发展有限公司、天津工研科技发展有限公司三家天津本土科
+中新社杭州4月27日电 4月27日，杭州市十四届人大常委会举行第三十四次会议。经审议表决，会议决定接受姚高员辞去杭州市人民政府市长职务，报杭州市人民代表大会备案。 公开资料显示，姚高员生于1968年，浙江慈溪人，曾任浙江省温州市市长、浙江省经济和信息化厅厅长等职，2022年任杭州市市长。(完)
 
 ## 正文
 
-央广网天津6月1日消息(记者周思杨)5月28日至31日，2026世界智能产业博览会在国家会展中心(天津)盛大启幕。
+中新社杭州4月27日电 4月27日，杭州市十四届人大常委会举行第三十四次会议。
 
-作为全球智能产业领域的标杆盛会，本届展会汇聚740余家国内外企业，集中展示人工智能、具身智能、智慧生活等前沿技术与创新成果。
+经审议表决，会议决定接受姚高员辞去杭州市人民政府市长职务，报杭州市人民代表大会备案。
 
-在智汇天津展区的AI for Life板块，天津恒达文博科技股份有限公司、天津智汇云界科技发展有限公司、天津工研科技发展有限公司三家天津本土科技企业同台亮相，以多元AI应用场景，生动诠释智能科技赋能民生、服务生活的硬核实力。
+公开资料显示，姚高员生于1968年，浙江慈溪人，曾任浙江省温州市市长、浙江省经济和信息化厅厅长等职，2022年任杭州市市长。
 
-AI赋能文博 让文化遗产“活”起来 作为国家级专精特新“小巨人”企业、全国成长性文化企业30强，天津恒达文博深耕文博科技26年，聚焦文旅装备、智慧场馆、数字展览、人工智能、文化创意五大业务板块，服务全国99%的一级博物馆与数百家景区。
-
-展会上，恒达文博重点展示文博领域专属大语言模型、3A智能导览系统、文物数字化采集与知识图谱等核心技术，呈现大数据、物联网与文物展示深度融合的数说犀尊等标杆案例，展现AI在智能问答、AR互动、导航定位、文物活化利用中的创新应用。
-
-企业以科技阐释文化为使命，凭借近400项自主知识产权，打造文化资源从数字化到智能化、知识化的全流程解决方案，助力文博行业数字化转型与文化传播创新。
-
-可信数据驱动 AI守护全民健康 成立于2024年的天津智汇云界，是京津冀数字经济联盟孵化的科技创新企业，专注可信数据空间、行业高质量数据集与AI深度融合，以大健康为核心赛道，构建数据—算法—硬件—生态一体化体系。
-
-作为天津市医疗健康领域唯一的可信数据空间创新发展试点，企业携自研精卫多模态医疗健康大模型、精卫识仪、艾灸机器人、脑电波反馈治疗仪等智能终端亮相，展示覆盖筛查—预防—诊断—治疗—康复—保障全周期的健康管理生态，以及数智骨科、智慧社区健康服务等标杆场景。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:06 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 15:18 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-29 15:08 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 15:16 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-29 15:21 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 15:24 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 15:21 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-29 15:10 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
-- 2026-06-29 15:09 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
-- 2026-06-29 15:27 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 15:19 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-29 15:22 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 15:33 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 15:27 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 15:29 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 15:24 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-29 15:25 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 15:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 15:21 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 15:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
+- 2026-06-29 15:21 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 15:15 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-29 15:31 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 15:14 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 15:36 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 15:28 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 15:38 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 15:40 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 15:34 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 15:36 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/44154553.shtml)
-- 2026-06-29 15:11 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/91927440188.shtml)
-- 2026-06-29 15:23 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/13697.shtml)
-- 2026-06-29 15:10 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/9081159539.shtml)
-- 2026-06-29 15:13 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/12248820.shtml)
-- 2026-06-29 15:06 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/933449478952.shtml)
-- 2026-06-29 15:06 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/48974.shtml)
-- 2026-06-29 15:12 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/381403772417.shtml)
-- 2026-06-29 15:20 - [周生如故](https://www.blog.kurohicncr.top/Article/details/58942806.shtml)
-- 2026-06-29 15:06 - [美的空调 卡bug](https://www.share.minike.top/Article/details/410928628.shtml)
-- 2026-06-29 15:20 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/446690.shtml)
-- 2026-06-29 15:10 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.blog.minike.top/Article/details/256992082.shtml)
-- 2026-06-29 15:20 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/8492886845.shtml)
-- 2026-06-29 15:07 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/9070976157.shtml)
-- 2026-06-29 15:31 - [105年初心滚烫](http://www.share.minike.top/Article/details/35341734862.shtml)
+- 2026-06-29 15:30 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/5785641.shtml)
+- 2026-06-29 15:17 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/6397951.shtml)
+- 2026-06-29 15:36 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/49189973.shtml)
+- 2026-06-29 15:37 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/378312076678.shtml)
+- 2026-06-29 15:25 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/81114370.shtml)
+- 2026-06-29 15:29 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/18120230518.shtml)
+- 2026-06-29 15:18 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.kurohicncr.top/Article/details/440492297.shtml)
+- 2026-06-29 15:30 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/41730.shtml)
+- 2026-06-29 15:37 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/58203.shtml)
+- 2026-06-29 15:22 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/77271.shtml)
+- 2026-06-29 15:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/07231922.shtml)
+- 2026-06-29 15:19 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/134041510.shtml)
+- 2026-06-29 15:33 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/612277.shtml)
+- 2026-06-29 15:30 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/16190.shtml)
+- 2026-06-29 15:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/29702.shtml)

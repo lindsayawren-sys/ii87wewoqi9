@@ -1,60 +1,58 @@
-# 第二届世界古典学大会将在希腊举办
+# 一口“鲜甜”放倒多人 医生：芥末、白酒杀不死寄生虫
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 (记者 韩禹)记者6月1日从中国社会科学院在北京举行的第二届世界古典学大会媒体吹风会上获悉，第二届世界古典学大会将于6月9日至10日在希腊雅典举办。 中国社科院国际合作局副局长岳云霞介绍，大会以“古今对话：古典智慧的现代启示”为主题，将广泛邀请中外古典学研究专业学者以及文明、文化、考古等领域专家学者与会，围绕古典文明相关议题深入对话，为世界古典文明研究者交
+中新网广州4月27日电 (记者 蔡敏婕)广东河源一家8口聚餐食用淡水鱼生后，多人相继出现反复发烧、腹痛、恶心厌食等症状。在医生的追问下，终于揭开了谜底，罪魁祸首就是那顿看似“原生态”的淡水鱼生。 “很多患者问，鱼生用醋、芥末、高度白酒腌过，是不是就安全了？”广州医科大学附属第二医院感染病科主任医师罗润齐表示：“芥末、醋、白酒在短时间内根本无法杀死肝吸虫囊蚴，唯一有效的方法，就是
 
 ## 正文
 
-中新社北京6月1日电 (记者 韩禹)记者6月1日从中国社会科学院在北京举行的第二届世界古典学大会媒体吹风会上获悉，第二届世界古典学大会将于6月9日至10日在希腊雅典举办。
+中新网广州4月27日电 (记者 蔡敏婕)广东河源一家8口聚餐食用淡水鱼生后，多人相继出现反复发烧、腹痛、恶心厌食等症状。
 
-中国社科院国际合作局副局长岳云霞介绍，大会以“古今对话：古典智慧的现代启示”为主题，将广泛邀请中外古典学研究专业学者以及文明、文化、考古等领域专家学者与会，围绕古典文明相关议题深入对话，为世界古典文明研究者交流思想、凝聚共识提供重要平台。
+在医生的追问下，终于揭开了谜底，罪魁祸首就是那顿看似“原生态”的淡水鱼生。
 
-中国社科院外国文学研究所古典学研究室主任、第二届世界古典学大会学术顾问贺方婴表示，本次大会是中国古典学家首次在“西方文明祖庭”雅典的集体亮相，具有世界文明史上的里程碑意义。
+“很多患者问，鱼生用醋、芥末、高度白酒腌过，是不是就安全了？
 
-据介绍，本届大会由中国社会科学院、中国教育部、中国文化和旅游部、希腊文化部、希腊雅典科学院共同主办。
+”广州医科大学附属第二医院感染病科主任医师罗润齐表示：“芥末、醋、白酒在短时间内根本无法杀死肝吸虫囊蚴，唯一有效的方法，就是彻底煮熟。
 
-除开幕式及全体会议、闭幕式外，大会还将围绕“德性与教化：古典教育的现代阐释”“友爱与共同体：古今之变中的伦理共同体”“和平与秩序：全球变局的文明方案”“技术与文明：数智时代的人文精神”等议题举行四场平行分论坛。
+” 近一个月来，女童小黄持续反复高烧、腹痛、身形日渐消瘦，辗转就医迟迟查不出病因；其母亲长期恶心乏力、食欲衰退，小黄的舅舅反复腹痛久治无果。
 
-大会期间将发布“以古典智慧照亮人类前行之路”的共同倡议、“中国古典文明研究院全球学者驻研访学计划”等成果；举行以“让古典走进现代——世界古典文明成果展”为主题的配套展览，展示中外古典学典籍、研究文献，中华传统医学典籍，科技考古与文化遗产保护重大成果等；组织中医药文化动态展示和体验活动，通过多维度、沉浸式的展陈方式，促进跨学科对话与文明互鉴。
+多方就诊无果后，家属前往广医二院就诊。
 
-会后，将组织与会嘉宾赴中国与希腊首个联合考古项目安杰洛卡斯特洛考古遗址参访。
+医生追问饮食史得知众人曾同食鱼生。
 
-(完)
+随即安排筛查，最终查出肝吸虫卵，8人里6人血嗜酸性粒细胞明显升高，这正是寄生虫感染的典型信号，而且粪便中也直接检出了肝吸虫卵。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 15:30 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 15:33 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 15:22 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 15:19 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 15:12 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 15:15 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 15:17 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 15:28 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 15:26 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 15:35 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 15:15 - [“养路费”谁来交 油电车主大吵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 15:12 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 15:19 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 15:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 15:16 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 15:13 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 15:20 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 15:34 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 15:14 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 15:31 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 15:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 15:15 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 15:15 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 15:29 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-29 15:35 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/3068123.shtml)
-- 2026-06-29 15:33 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/346967287204.shtml)
-- 2026-06-29 15:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/736511509182.shtml)
-- 2026-06-29 15:29 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/3461650.shtml)
-- 2026-06-29 15:13 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.kurohicncr.top/Article/details/378852.shtml)
-- 2026-06-29 15:27 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.kurohicncr.top/Article/details/183934.shtml)
-- 2026-06-29 15:07 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/85098931344.shtml)
-- 2026-06-29 15:33 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/574755247794.shtml)
-- 2026-06-29 15:20 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/5557348.shtml)
-- 2026-06-29 15:30 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/76651190.shtml)
-- 2026-06-29 15:20 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/9819485.shtml)
-- 2026-06-29 15:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/72033340.shtml)
-- 2026-06-29 15:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/310201505865.shtml)
-- 2026-06-29 15:23 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/76779877025.shtml)
-- 2026-06-29 15:26 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/80964939.shtml)
+- 2026-06-29 15:41 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/20128012.shtml)
+- 2026-06-29 15:34 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.minike.top/Article/details/9053656558.shtml)
+- 2026-06-29 15:22 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/777048.shtml)
+- 2026-06-29 15:39 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/33532038.shtml)
+- 2026-06-29 15:32 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/23579128492.shtml)
+- 2026-06-29 15:23 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/0215953753.shtml)
+- 2026-06-29 15:21 - [乔家的儿女](https://www.share.minike.top/Article/details/84568610.shtml)
+- 2026-06-29 15:23 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/43572316.shtml)
+- 2026-06-29 15:39 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/823971075699.shtml)
+- 2026-06-29 15:19 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/06990126315.shtml)
+- 2026-06-29 15:12 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/808745971766.shtml)
+- 2026-06-29 15:29 - [灿如繁星定档](http://www.blog.minike.top/Article/details/49223906906.shtml)
+- 2026-06-29 15:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/1659045.shtml)
+- 2026-06-29 15:31 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/389912.shtml)
+- 2026-06-29 15:21 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/573580623.shtml)

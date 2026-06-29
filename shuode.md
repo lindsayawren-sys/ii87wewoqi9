@@ -1,58 +1,54 @@
-# SpaceX要求压低IPO承销费率 但华尔街投行仍有望分食5亿美元收入
+# 广西钦州市突降暴雨 武警官兵紧急救援
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。 马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的
+发布时间：2026年04月27日 22:51 来源：中国新闻网 4月27日，广西钦州市遭遇强暴雨极端天气，主城区新华路与明阳街交叉口出现严重城市内涝，积水倒灌致使多名民众被困房屋内，生命安全受到严重威胁。武警广西总队钦州支队闻令而动、迅速响应，紧急抽调37名官兵奔赴受灾核心区域开展抢险救援。 到达现场后，武警官兵们发现洪水已经将部分区域围成＂孤岛＂，水位还在不断上升，官兵们迅速
 
 ## 正文
 
-马斯克旗下SpaceX正在与经手其IPO的华尔街投行谈判，希望支付极低的费率。
+发布时间：2026年04月27日 22:51 来源：中国新闻网 4月27日，广西钦州市遭遇强暴雨极端天气，主城区新华路与明阳街交叉口出现严重城市内涝，积水倒灌致使多名民众被困房屋内，生命安全受到严重威胁。
 
-不过，即便收费标准大幅压低，负责此次上市的银行仍有望从这场创纪录的IPO中获得约5亿美元收入。
+武警广西总队钦州支队闻令而动、迅速响应，紧急抽调37名官兵奔赴受灾核心区域开展抢险救援。
 
-马斯克旗下这家航天与人工智能集团计划于本月进行IPO，目标募资规模750亿美元，据知情人士透露，目前该公司正争取将承销费率压低至0.75%以下。
+到达现场后，武警官兵们发现洪水已经将部分区域围成＂孤岛＂，水位还在不断上升，官兵们迅速驾驶皮划艇穿梭在洪水中，挨家挨户搜寻被困民众，转移至安全区域。
 
-尽管这一费率远低于通常水平，但仍将成为这些负责安排此次IPO的华尔街银行历史上最赚钱的上市项目之一。
+经过数小时的救援，截至19时，武警官兵们共转移民众350余人。
 
-作为本次IPO的牵头行，高盛集团和摩根士丹利预计将从承销费用中获得比其他21家参与券商更大的份额。
+当前降雨仍在持续，现场救援工作还在紧张有序推进中，武警官兵坚守一线，全力守护民众生命财产安全。
 
-知情人士表示，上述数字仅反映SpaceX支付的基础承销费用，并未包含可能额外发放的奖励性费用。
-
-由于讨论尚未公开信息，知情人士要求匿名。
-
-投资银行通常会对IPO收取4%至7%的承销费用，而此类IPO的募资规模平均不到10亿美元。
+(视频来源 武警广西总队钦州支队 制作 陈沿佑) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 15:35 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 15:26 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 15:16 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 15:23 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 15:34 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 15:31 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 15:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 15:29 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 15:14 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 15:17 - [105年初心滚烫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 15:15 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 15:36 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-29 15:39 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 15:22 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 15:35 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-29 15:27 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-29 15:37 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 15:20 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 15:15 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 15:30 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-29 15:13 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 15:21 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 15:40 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:27 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.minike.top/Article/details/792890176.shtml)
-- 2026-06-29 15:34 - [韩国队出局是因为内讧吗](http://www.share.minike.top/Article/details/7207316.shtml)
-- 2026-06-29 15:10 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/14628.shtml)
-- 2026-06-29 15:35 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/8938700.shtml)
-- 2026-06-29 15:25 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/5511136.shtml)
-- 2026-06-29 15:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/53688091.shtml)
-- 2026-06-29 15:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/35562.shtml)
-- 2026-06-29 15:20 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/0561774.shtml)
-- 2026-06-29 15:33 - [未来5年全国能源体系将呈现这些特征](http://www.blog.minike.top/Article/details/346854848.shtml)
-- 2026-06-29 15:18 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/0629554467.shtml)
-- 2026-06-29 15:20 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/764903797.shtml)
-- 2026-06-29 15:17 - [刘烨16岁儿子诺一颜值](https://www.blog.minike.top/Article/details/533530.shtml)
-- 2026-06-29 15:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/764406.shtml)
-- 2026-06-29 15:22 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/45330017955.shtml)
-- 2026-06-29 15:26 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/95597340.shtml)
+- 2026-06-29 15:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/8754450.shtml)
+- 2026-06-29 15:30 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/122206934.shtml)
+- 2026-06-29 15:23 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/478480402347.shtml)
+- 2026-06-29 15:31 - [男孩复读一年减重20斤涨分111分](http://www.share.kurohicncr.top/Article/details/567123287.shtml)
+- 2026-06-29 15:26 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/333695269854.shtml)
+- 2026-06-29 15:24 - [这一刀 会很帅](https://www.share.minike.top/Article/details/4813573147.shtml)
+- 2026-06-29 15:40 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/4178047627.shtml)
+- 2026-06-29 15:37 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/207028.shtml)
+- 2026-06-29 15:37 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/8744030640.shtml)
+- 2026-06-29 15:38 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/09945438259.shtml)
+- 2026-06-29 15:34 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/27194.shtml)
+- 2026-06-29 15:15 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/931822901402.shtml)
+- 2026-06-29 15:21 - [金刚川](https://www.blog.kurohicncr.top/Article/details/348240044.shtml)
+- 2026-06-29 15:16 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/155475.shtml)
+- 2026-06-29 15:28 - [一生一世](https://www.share.minike.top/Article/details/52190.shtml)

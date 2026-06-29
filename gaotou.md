@@ -1,59 +1,55 @@
-# 对口援疆持续发力 2026年台州直飞阿拉尔首航包机抵达
+# 北京银行：聘任刘江涛为证券事务代表
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐6月2日电 (张家伟 郑亮)2026年首批152名浙江省台州市游客，日前乘坐2026台州直飞阿拉尔首航包机抵达阿拉尔塔里木机场，标志着这条由台州对口援疆搭建的空中桥梁今年正式启航，为新疆生产建设兵团第一师阿拉尔市夏季文旅市场注入新活力。 工作人员在机场接机口欢迎远道而来的台州宾客。独具特色的歌舞表演精彩纷呈，欢快的节奏、优美的舞姿瞬间点燃现场氛围。 游客安书奇说：
+4月27日金融一线消息，北京银行发布公告称，董事会同意聘任刘江涛为该行证券事务代表，协助董事会秘书履行职责，自董事会审议通过之日起履职。 简历显示，刘江涛，1981年7月生，44岁，经济学硕士。2007年7月参加工作。2024年1月至今担任董事会办公室主任，2020年6月至2024年1月担任办公室（党委办公室）副主任，2020年3月至2020年6月担任办公室（党委办公室）副主任
 
 ## 正文
 
-中新网乌鲁木齐6月2日电 (张家伟 郑亮)2026年首批152名浙江省台州市游客，日前乘坐2026台州直飞阿拉尔首航包机抵达阿拉尔塔里木机场，标志着这条由台州对口援疆搭建的空中桥梁今年正式启航，为新疆生产建设兵团第一师阿拉尔市夏季文旅市场注入新活力。
+4月27日金融一线消息，北京银行发布公告称，董事会同意聘任刘江涛为该行证券事务代表，协助董事会秘书履行职责，自董事会审议通过之日起履职。
 
-工作人员在机场接机口欢迎远道而来的台州宾客。
+简历显示，刘江涛，1981年7月生，44岁，经济学硕士。
 
-独具特色的歌舞表演精彩纷呈，欢快的节奏、优美的舞姿瞬间点燃现场氛围。
+2007年7月参加工作。
 
-游客安书奇说：“第一次来到美丽的新疆，非常兴奋。
+2024年1月至今担任董事会办公室主任，2020年6月至2024年1月担任办公室（党委办公室）副主任，2020年3月至2020年6月担任办公室（党委办公室）副主任、文秘室经理，2019年1月至2020年3月担任办公室（党委办公室）副主任、宣传中心（二级）副主任、文秘室经理，2015年4月至2019年1月担任办公室（党委办公室）主任助理、文秘室经理，2014年12月至2015年4月担任办公室（党委办公室）文秘室经理，2012年12月至2014年12月担任办公室（党委办公室）文秘室副经理，2007年7月至2012年12月在办公室（党委办公室）从事相关工作。
 
-刚落地就感受到了阿拉尔人民的热情。
-
-我相信，接下来一定会有一个美好的旅程。
-
-” 此前，台州游客前往阿拉尔需经多地中转，旅途耗时长、出行成本高，极大限制两地人员往来。
-
-台州至阿拉尔包机直飞，大幅缩短时空距离，提升游客出行体验，让东海之滨的民众能够高效、便捷地打卡阿拉尔。
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-29 15:21 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 15:34 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-29 15:31 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 15:09 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
-- 2026-06-29 15:17 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 15:31 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 15:12 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 15:07 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-29 15:28 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 15:11 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 15:26 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
-- 2026-06-29 15:10 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 15:06 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 15:16 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 15:41 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 15:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 15:35 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 15:41 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-29 15:37 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-29 15:25 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 15:27 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 15:25 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 15:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-29 15:18 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 15:16 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 15:21 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 15:24 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 15:25 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/78338857.shtml)
-- 2026-06-29 15:10 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/9298560.shtml)
-- 2026-06-29 15:06 - [四川宜宾地震](http://www.blog.minike.top/Article/details/36874796.shtml)
-- 2026-06-29 15:26 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.kurohicncr.top/Article/details/192297480.shtml)
-- 2026-06-29 15:17 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/048914801502.shtml)
-- 2026-06-29 15:29 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/6245874241.shtml)
-- 2026-06-29 15:19 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/956897020.shtml)
-- 2026-06-29 15:21 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/3527721362.shtml)
-- 2026-06-29 15:21 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/2632842.shtml)
-- 2026-06-29 15:06 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/220131946722.shtml)
-- 2026-06-29 15:31 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/289696421455.shtml)
-- 2026-06-29 15:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/03898752.shtml)
-- 2026-06-29 15:15 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/47916.shtml)
-- 2026-06-29 15:11 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/03949295.shtml)
-- 2026-06-29 15:08 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/755834072.shtml)
+- 2026-06-29 15:20 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/3409721.shtml)
+- 2026-06-29 15:27 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/1944754415.shtml)
+- 2026-06-29 15:22 - [TI2026参赛战队出炉](http://www.blog.kurohicncr.top/Article/details/031243312262.shtml)
+- 2026-06-29 15:12 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/510852.shtml)
+- 2026-06-29 15:30 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/7057988161.shtml)
+- 2026-06-29 15:36 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/5650797771.shtml)
+- 2026-06-29 15:22 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/553750481.shtml)
+- 2026-06-29 15:30 - [急先锋](https://www.blog.kurohicncr.top/Article/details/314851.shtml)
+- 2026-06-29 15:27 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/32064322725.shtml)
+- 2026-06-29 15:23 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/929003923638.shtml)
+- 2026-06-29 15:34 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/493697.shtml)
+- 2026-06-29 15:34 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/955814758910.shtml)
+- 2026-06-29 15:20 - [盛秋平任南昌市委书记](http://www.blog.kurohicncr.top/Article/details/47484825.shtml)
+- 2026-06-29 15:34 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/26388687.shtml)
+- 2026-06-29 15:15 - [媒体：中国田径压力与期待并存](http://www.share.kurohicncr.top/Article/details/25262507252.shtml)

@@ -1,56 +1,57 @@
-# 广西北海：“共享空间”画出民族团结“同心圆”
+# 江水奔流处 南京书写“与江共生”新故事
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网北海6月1日电 题：广西北海：“共享空间”画出民族团结“同心圆” 作者 余俊永 在广西北海市海城区，“同心厨房”“同心舞蹈室”等50多个功能共享空间，让来自天南海北的“候鸟”人群与本地居民在共居共乐中实现心相通、情相融，“新、老北海人”亲如一家的和谐图景正在社区里徐徐展开。 近日，走进海城区东街街道茶亭路社区，“同心厨房”里飘出阵阵香气——东北的饺子、西北的面食、南方的海
+【开局之年看中国·遇见不一样的江苏】江水奔流处 南京书写“与江共生”新故事视频：【开局之年看中国·遇见不一样的江苏】江水奔流处 南京书写“与江共生”新故事来源：央广网 央广网南京4月27日消息(记者吕倩媛)幕燕滨江，江涛拍岸。古金陵四十八景中，幕府登高、燕矶夕照、永济江流、达摩古洞……每一处皆是长江文明的注脚，亦是南京“跨江立城”的烙印。“十五五”规划纲要强调，坚持共抓大保护、
 
 ## 正文
 
-中新网北海6月1日电 题：广西北海：“共享空间”画出民族团结“同心圆” 作者 余俊永 在广西北海市海城区，“同心厨房”“同心舞蹈室”等50多个功能共享空间，让来自天南海北的“候鸟”人群与本地居民在共居共乐中实现心相通、情相融，“新、老北海人”亲如一家的和谐图景正在社区里徐徐展开。
+【开局之年看中国·遇见不一样的江苏】江水奔流处 南京书写“与江共生”新故事视频：【开局之年看中国·遇见不一样的江苏】江水奔流处 南京书写“与江共生”新故事来源：央广网 央广网南京4月27日消息(记者吕倩媛)幕燕滨江，江涛拍岸。
 
-近日，走进海城区东街街道茶亭路社区，“同心厨房”里飘出阵阵香气——东北的饺子、西北的面食、南方的海鲜琳琅满目，在一道道美食制作中，地域的界限悄然消融。
+古金陵四十八景中，幕府登高、燕矶夕照、永济江流、达摩古洞……每一处皆是长江文明的注脚，亦是南京“跨江立城”的烙印。
 
-不远处的“同心舞蹈室”同样热闹非凡，社区舞蹈队的成员们伴随着音乐翩翩起舞，欢笑声此起彼伏。
+“十五五”规划纲要强调，坚持共抓大保护、不搞大开发，坚持生态优先、绿色发展，持续推进长江经济带高质量发展。
 
-“刚来北海那会儿，人生地不熟，整天闷在屋里。
+近日，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动走进南京，看这座跨江发展的城市，如何在江水奔流处绘出文脉新卷。
 
-后来社区工作人员邀请我来‘同心厨房’包饺子，一进门就看到天南海北的姐妹都在忙活，一下子就找到了家的感觉。
+南京地处长江下游，是长江经济带最发达的城市之一。
 
-”来自黑龙江的“候鸟”居民吴冬荣一边擀着饺子皮，一边笑着说。
+长江南京段全长97公里，长江岸线总长约280.82公里，是南京最为重要的城市轴线和得天独厚的生态资源。
 
-如今，她不仅成为“同心厨房”的常客，还主动教本地居民做东北菜，“老北海人”也手把手教她烹制海鲜。
+2023年2月，南京印发《关于加强保护传承营建高品质国家历史文化名城的实施意见》，提出要“统筹推进南京大运河文化带和长江国家文化公园建设，加强长江及大运河相关文化遗产保护展示，彰显南京文化‘标识’”。
 
-这些看似寻常的共享空间，恰恰成为社区融合最有效的催化剂。
+南京还专门制定了《长江国家文化公园南京段建设规划》，并编制《长江国家文化公园南京段建设保护实施规划》。
 
 ## 相关推荐
 
-- 2026-06-29 15:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 15:23 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 15:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-29 15:32 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-29 15:14 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-29 15:13 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 15:20 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-29 15:08 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 15:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 15:10 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-29 15:35 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 15:13 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 15:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 15:17 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 15:36 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 15:29 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 15:35 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 15:25 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:27 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 15:28 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 15:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [大六座SUV进入黄金时代](https://www.share.minike.top/Article/details/34214.shtml)
-- 2026-06-29 15:14 - [普京介绍前线战事](https://www.share.minike.top/Article/details/40475469.shtml)
-- 2026-06-29 15:10 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/2956659.shtml)
-- 2026-06-29 15:26 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/705281353281.shtml)
-- 2026-06-29 15:09 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/948172.shtml)
-- 2026-06-29 15:19 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/8941845.shtml)
-- 2026-06-29 15:07 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/74034909.shtml)
-- 2026-06-29 15:29 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/2200292388.shtml)
-- 2026-06-29 15:17 - [小说《无悔追踪》翻红](http://www.blog.kurohicncr.top/Article/details/60917284.shtml)
-- 2026-06-29 15:28 - [韩国国脚无缘上亿韩元奖金](https://www.share.kurohicncr.top/Article/details/879211.shtml)
-- 2026-06-29 15:20 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/8682552.shtml)
-- 2026-06-29 15:11 - [中方将20家日本实体列入出口管制名单](https://www.share.minike.top/Article/details/8217837.shtml)
-- 2026-06-29 15:22 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/602263.shtml)
-- 2026-06-29 15:29 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/925709813.shtml)
-- 2026-06-29 15:12 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/254433225.shtml)
+- 2026-06-29 15:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/474678457354.shtml)
+- 2026-06-29 15:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/81701.shtml)
+- 2026-06-29 15:15 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/21080216.shtml)
+- 2026-06-29 15:22 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/910777629177.shtml)
+- 2026-06-29 15:39 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/78864386.shtml)
+- 2026-06-29 15:26 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/69093250.shtml)
+- 2026-06-29 15:34 - [“养路费”谁来交 油电车主大吵](http://www.share.minike.top/Article/details/929397908.shtml)
+- 2026-06-29 15:16 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/048407575617.shtml)
+- 2026-06-29 15:36 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/919992976367.shtml)
+- 2026-06-29 15:20 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/9832872138.shtml)
+- 2026-06-29 15:18 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/9329033.shtml)
+- 2026-06-29 15:13 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/430825.shtml)
+- 2026-06-29 15:21 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/02333439932.shtml)
+- 2026-06-29 15:38 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/63992.shtml)
+- 2026-06-29 15:29 - [扬名立万](http://www.share.kurohicncr.top/Article/details/98083163.shtml)

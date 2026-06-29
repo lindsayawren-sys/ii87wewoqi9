@@ -1,59 +1,59 @@
-# 高温范围今日将达近期最大 南方新一轮降水过程上线
+# 大行评级|德银上调迅策（03317.HK）目标价至351港元，维持“买入”评级
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中国天气网讯 今明天(6月2日至3日)，东北及内蒙古多地仍有强对流天气，南方新一轮降雨过程也将上线，西南地区东部等地雨势较强，需警惕山体滑坡等次生灾害的发生。同时，高温也在发展，今天高温范围将达近期最大，北方局地最高气温可达39℃；华南本周前期闷热不下线，海南多地将现持续性高温，需注意防暑。 东北及内蒙古多地仍有强对流 南方新一轮降雨将上线 昨天，东北、内蒙古多地再迎强对流天气
+4月27日，德意志银行发布研报，维持对迅策（3317.HK）的“买入”评级，基于现金流折现（DCF）估值的12个月目标价为351港元，较4月27日收盘价（305港元）隐含约15%的上涨空间；较上次给予的目标价85港元上调312.9%。 德银指出，迅策近期经历显著的估值重估，主要由两大因素驱动：一是优质数据需求激增。随着AI Agent技术快速发展，企业对高精度决策数据的需求显著
 
 ## 正文
 
-中国天气网讯 今明天(6月2日至3日)，东北及内蒙古多地仍有强对流天气，南方新一轮降雨过程也将上线，西南地区东部等地雨势较强，需警惕山体滑坡等次生灾害的发生。
+4月27日，德意志银行发布研报，维持对迅策（3317.HK）的“买入”评级，基于现金流折现（DCF）估值的12个月目标价为351港元，较4月27日收盘价（305港元）隐含约15%的上涨空间；较上次给予的目标价85港元上调312.9%。
 
-同时，高温也在发展，今天高温范围将达近期最大，北方局地最高气温可达39℃；华南本周前期闷热不下线，海南多地将现持续性高温，需注意防暑。
+德银指出，迅策近期经历显著的估值重估，主要由两大因素驱动：一是优质数据需求激增。
 
-东北及内蒙古多地仍有强对流 南方新一轮降雨将上线 昨天，东北、内蒙古多地再迎强对流天气，南方强降雨主要集中在贵州、广西西部等地。
+随着AI Agent技术快速发展，企业对高精度决策数据的需求显著上升。
 
-监测显示，贵州南部、广西北部、广东中部等地部分地区出现大到暴雨，贵州黔西南、广西河池和柳州、广东肇庆等局地大暴雨。
+迅策凭借专业领域数据优势，能够帮助企业生产高价值决策Token，在垂直企业AI发展中占据关键地位。
 
-今明两天，冷涡仍将盘旋在内蒙古东部、东北一带上空，受其影响，辽宁、内蒙古东部、华北北部等地仍将有强对流天气，风雹天气较明显，局地有短时强降水。
+二是“Token经济”模式转型。
 
-同时，随着冷空气南下，暖湿气流将再度加强，南方降雨将再度发展增多，局地有暴雨或大暴雨。
+迅策正在从传统订阅模式转向基于Token的变现框架，定价从三个维度扩展——数据稀缺性、Token调用频率和模块应用数。
 
-中央气象台预计，今天，黑龙江中部、江南北部和西部、西南地区东南部、广西西北部等地部分地区有中到大雨，其中，湖南西部、重庆东南部、贵州东北部和西南部、广西西北部等地部分地区有暴雨或大暴雨。
+公司预计，到2026年底，基于Token的业务模式占比将从目前的5%提升至20%-30%。
 
-明天，内蒙古东北部、东北地区中南部、华北东部、江汉东部、江南大部、西南地区东南部、华南北部等地部分地区有中到大雨，其中，安徽南部、江西北部、浙江中北部、湖南西部和东部、贵州南部、广西北部等地部分地区有暴雨或大暴雨。
+该行认为，此前的上涨已反映其能力和潜力，下一阶段的重新评估将取决于执行情况，特别是其核心能力向更广泛垂直领域的拓展，例如先进制造、机器人和商业航空航天等。
 
 ## 相关推荐
 
-- 2026-06-29 15:32 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 15:28 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-29 15:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 15:34 - [明天睁眼按时来取代我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 15:14 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 15:09 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-29 15:18 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-29 15:31 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 15:10 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 15:20 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 15:23 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 15:24 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 15:19 - [世界杯淘汰赛首轮五场焦点对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 15:28 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 15:31 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 15:28 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 15:37 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-29 15:28 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 15:22 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 15:14 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 15:19 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-29 15:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 15:37 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-29 15:16 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 15:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 15:24 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:25 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/01101413440.shtml)
-- 2026-06-29 15:10 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/86250733718.shtml)
-- 2026-06-29 15:35 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/6831640090.shtml)
-- 2026-06-29 15:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/3671352.shtml)
-- 2026-06-29 15:12 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/942729325.shtml)
-- 2026-06-29 15:10 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/80014271.shtml)
-- 2026-06-29 15:21 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/20270191.shtml)
-- 2026-06-29 15:12 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/289654646700.shtml)
-- 2026-06-29 15:10 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/3412207445.shtml)
-- 2026-06-29 15:25 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/371730963044.shtml)
-- 2026-06-29 15:15 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/263969.shtml)
-- 2026-06-29 15:34 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/951144016320.shtml)
-- 2026-06-29 15:10 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/230363.shtml)
-- 2026-06-29 15:23 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/95748.shtml)
-- 2026-06-29 15:18 - [美国近12万名科技员工被解雇](http://www.blog.minike.top/Article/details/164654.shtml)
+- 2026-06-29 15:41 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/1340987764.shtml)
+- 2026-06-29 15:17 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/26238806.shtml)
+- 2026-06-29 15:32 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/402033.shtml)
+- 2026-06-29 15:38 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/87227021434.shtml)
+- 2026-06-29 15:15 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/4007060.shtml)
+- 2026-06-29 15:20 - [NBA交易](http://www.blog.minike.top/Article/details/02554375971.shtml)
+- 2026-06-29 15:22 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.minike.top/Article/details/67989150.shtml)
+- 2026-06-29 15:27 - [滾石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/8988762.shtml)
+- 2026-06-29 15:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4315383.shtml)
+- 2026-06-29 15:12 - [世界杯上那些封神的门将](https://www.share.minike.top/Article/details/4629409.shtml)
+- 2026-06-29 15:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/056259119957.shtml)
+- 2026-06-29 15:19 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/915170304.shtml)
+- 2026-06-29 15:35 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/611967243035.shtml)
+- 2026-06-29 15:24 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/22209750.shtml)
+- 2026-06-29 15:26 - [世界杯十大帅哥必吃榜](https://www.share.minike.top/Article/details/1206632.shtml)

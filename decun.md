@@ -1,56 +1,55 @@
-# 6连板！600265，紧急澄清！
+# 江河与共丨九三学社中央主席武维华：“既找病灶又开药方” 九三学社助力长江生态保护
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！控股股东拟协议转让股份事项官宣后，*ST景谷（600265）连续大涨，截至目前已收获六连涨停，最新股价为26.95元/股，市值35亿元。 6月2日晚间，*ST景谷再度发布股价异动公告，对相关事项进行澄清。 回溯来看，5月25日，*ST景谷公告，控股股东周大福投资有限公司（以下简称“周大福投资”）与上海弈和资
+发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。 九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月28日 07:03 来源：中国新闻网 从2021年6月开始，各民主党派中央、无党派人士受中共中央委托，开展为期五年的长江生态环境保护民主监督。
 
-控股股东拟协议转让股份事项官宣后，*ST景谷（600265）连续大涨，截至目前已收获六连涨停，最新股价为26.95元/股，市值35亿元。
+从冰川之巅到东海之滨，民主监督如涓涓细流，正不断汇入长江保护的磅礴力量，书写出江河与共新篇章。
 
-6月2日晚间，*ST景谷再度发布股价异动公告，对相关事项进行澄清。
+九三学社中央主席武维华表示，自接受中共中央委托开展长江生态环境保护民主监督工作以来，九三学社中央始终将其视为重大的政治责任和光荣使命。
 
-回溯来看，5月25日，*ST景谷公告，控股股东周大福投资有限公司（以下简称“周大福投资”）与上海弈和资产管理有限公司（以下简称“弈和资产”）达成股份转让协议，拟向后者管理的弈丰1号、北耀1号合计转让1300万股股份，占总股本的10.02%，交易对价为2.49亿元。
+工作中，九三学社带着问题深入调研，在调研中深挖症结、共商对策，尽可能“既找病灶又开药方”。
 
-值得一提的是，股份受让方弈丰1号、北耀1号承诺，24个月内不会减持本次协议转让获得的股份。
+从专业视角深入分析问题，努力提出科学可行的解决问题的方案。
 
-前述消息发布后，*ST景谷立即获得二级市场追捧。
+通过本轮专项监督，九三学社亲身见证了中国生态文明建设取得的历史性成就，进一步激励其按照中共中央统一部署，立足人民群众对美好生活的向往，出实招、聚共识、谋发展，凝聚起助力美丽中国建设的九三力量。
 
-在今日的异动公告中，公司坦言，目前股价已严重偏离基本面，存在市场情绪过热及非理性炒作的情形，存在短期大幅下跌的风险。
-
-市场对本次协议转让的关注点，集中在后续弈和资产将如何赋能公司主业，拓展公司发展边界。
+责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 15:13 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 15:13 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 15:11 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 15:24 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 15:09 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 15:24 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 15:21 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 15:12 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 15:35 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 15:24 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-29 15:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 15:21 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 15:16 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 15:25 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 15:40 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 15:22 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-29 15:13 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 15:25 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 15:41 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 15:40 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-29 15:37 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:33 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/0344801.shtml)
-- 2026-06-29 15:13 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/978233123604.shtml)
-- 2026-06-29 15:15 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.minike.top/Article/details/0460306729.shtml)
-- 2026-06-29 15:13 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/015712374999.shtml)
-- 2026-06-29 15:14 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/776242482.shtml)
-- 2026-06-29 15:24 - [戒掉咖啡后我的身体变化](http://www.blog.minike.top/Article/details/515862.shtml)
-- 2026-06-29 15:19 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/3196381.shtml)
-- 2026-06-29 15:24 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/75793438550.shtml)
-- 2026-06-29 15:08 - [一生一世](http://www.share.minike.top/Article/details/1839259.shtml)
-- 2026-06-29 15:33 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/0535770.shtml)
-- 2026-06-29 15:28 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/695740.shtml)
-- 2026-06-29 15:06 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/715859.shtml)
-- 2026-06-29 15:25 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/8385053.shtml)
-- 2026-06-29 15:12 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/1280477266.shtml)
-- 2026-06-29 15:24 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/13471186.shtml)
+- 2026-06-29 15:20 - [李在明称韩国足协任命了无能之人](https://www.share.minike.top/Article/details/03430643.shtml)
+- 2026-06-29 15:26 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/76027874165.shtml)
+- 2026-06-29 15:23 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/290734.shtml)
+- 2026-06-29 15:23 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/50789119875.shtml)
+- 2026-06-29 15:18 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/4681266078.shtml)
+- 2026-06-29 15:39 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/59781743.shtml)
+- 2026-06-29 15:39 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/695298165.shtml)
+- 2026-06-29 15:40 - [中国战机大片上新](http://www.blog.minike.top/Article/details/0526701.shtml)
+- 2026-06-29 15:26 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/82749631.shtml)
+- 2026-06-29 15:39 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/039626.shtml)
+- 2026-06-29 15:12 - [NBA交易](https://www.share.minike.top/Article/details/14328.shtml)
+- 2026-06-29 15:27 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/6983602418.shtml)
+- 2026-06-29 15:30 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/841173582.shtml)
+- 2026-06-29 15:30 - [法国紧急下单3万台空调](https://www.share.kurohicncr.top/Article/details/795010233.shtml)
+- 2026-06-29 15:24 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/96969.shtml)

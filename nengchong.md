@@ -1,60 +1,49 @@
-# 一曲《阿嬷的话》戳中人心 尤长靖：共鸣比满分更珍贵
+# 伟能集团公布于4月27日上午起复牌
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网长沙6月2日电(记者 邓霞)上周《歌手2026》袭榜赛中，尤长靖一首闽南语歌《阿嬷的话》令不少观众动容，也引发许多人对于亲情的共鸣。6月1日晚，尤长靖线上接受媒体群访时道出一路走来的心路历程：“唱最想唱的歌，唱当下最真实的自己。” 尤长靖2025年就收到了《歌手》邀约。“当时很兴奋，但也犹豫，我想等自己准备好再来。”他说，所谓“准备好”，不是准备比赛或证明什么，而是准备好
+伟能集团（01608）发布公告，公司股份将于2026年4月27日上午九时正起恢复买卖。责任编辑：卢昱君
 
 ## 正文
 
-中新网长沙6月2日电(记者 邓霞)上周《歌手2026》袭榜赛中，尤长靖一首闽南语歌《阿嬷的话》令不少观众动容，也引发许多人对于亲情的共鸣。
+伟能集团（01608）发布公告，公司股份将于2026年4月27日上午九时正起恢复买卖。
 
-6月1日晚，尤长靖线上接受媒体群访时道出一路走来的心路历程：“唱最想唱的歌，唱当下最真实的自己。
-
-” 尤长靖2025年就收到了《歌手》邀约。
-
-“当时很兴奋，但也犹豫，我想等自己准备好再来。
-
-”他说，所谓“准备好”，不是准备比赛或证明什么，而是准备好把这些年想唱的歌，好好唱给大家听。
-
-所以今年再次收到邀约，便立刻决定参加。
-
-两期竞演下来，尤长靖的《是你想成为的大人吗》和《阿嬷的话》都收获了很高关注。
-
-但他直言两场竞演都不完美，如果一定要选哪场表现更好，他还是会选《阿嬷的话》。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 15:10 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 15:15 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-29 15:27 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 15:22 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 15:33 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
-- 2026-06-29 15:26 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 15:10 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 15:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-29 15:10 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 15:09 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 15:26 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
-- 2026-06-29 15:28 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 15:25 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 15:20 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 15:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 15:23 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
+- 2026-06-29 15:28 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 15:15 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 15:27 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 15:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 15:18 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-29 15:19 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 15:30 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 15:16 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 15:14 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 15:31 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 15:25 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.kurohicncr.top/Article/details/56576975.shtml)
-- 2026-06-29 15:21 - [斗破苍穹](http://www.share.minike.top/Article/details/8543015.shtml)
-- 2026-06-29 15:20 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/021328.shtml)
-- 2026-06-29 15:16 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/556202.shtml)
-- 2026-06-29 15:13 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/4747028678.shtml)
-- 2026-06-29 15:28 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/084917942.shtml)
-- 2026-06-29 15:22 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/458937.shtml)
-- 2026-06-29 15:27 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/752588129.shtml)
-- 2026-06-29 15:31 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/7416164.shtml)
-- 2026-06-29 15:27 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/017395023.shtml)
-- 2026-06-29 15:14 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/740042591003.shtml)
-- 2026-06-29 15:18 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/383322680.shtml)
-- 2026-06-29 15:29 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/82815880.shtml)
-- 2026-06-29 15:26 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/47451.shtml)
-- 2026-06-29 15:15 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/884755571.shtml)
+- 2026-06-29 15:19 - [美的“卡bug”空调在欧洲卖爆](https://www.share.minike.top/Article/details/03828598434.shtml)
+- 2026-06-29 15:25 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/09651.shtml)
+- 2026-06-29 15:30 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/6127634103.shtml)
+- 2026-06-29 15:30 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/373518.shtml)
+- 2026-06-29 15:28 - [河南四位大妈景区跳舞爆火](http://www.blog.minike.top/Article/details/28975098.shtml)
+- 2026-06-29 15:13 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/9437348966.shtml)
+- 2026-06-29 15:28 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/810867.shtml)
+- 2026-06-29 15:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/99875595022.shtml)
+- 2026-06-29 15:14 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/606152.shtml)
+- 2026-06-29 15:24 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/463249353843.shtml)
+- 2026-06-29 15:37 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/5639955.shtml)
+- 2026-06-29 15:41 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/07387.shtml)
+- 2026-06-29 15:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/9811959.shtml)
+- 2026-06-29 15:39 - [青春环游记第三季](https://www.blog.minike.top/Article/details/397324891.shtml)
+- 2026-06-29 15:13 - [欧盟为什么越来越倾向贸易保护](https://www.share.minike.top/Article/details/462219217886.shtml)

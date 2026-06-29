@@ -1,49 +1,47 @@
-# 星太链集团接获联交所复牌指引 继续停牌
+# 马斯克诉奥特曼案开庭
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-星太链集团（00399）发并公告，于2026年5月28日，本公司已接获联交所的函件，当中载列以下关于恢复股份买卖的指引（复牌指引）： （i） 证明本公司遵守上市规则第13.24条；及 （ii） 告知市场所有重要资料，以供本公司股东及投资者评估本公司的状况。 此外，公司股份继续停牌。责任编辑：卢昱君
+埃隆·马斯克寻求撤销OpenAI营利性结构的诉讼已进入庭审程序，这可能对微软等合作伙伴以及马斯克在特斯拉的其他企业产生影响。责任编辑：张俊 SF065
 
 ## 正文
 
-星太链集团（00399）发并公告，于2026年5月28日，本公司已接获联交所的函件，当中载列以下关于恢复股份买卖的指引（复牌指引）： （i） 证明本公司遵守上市规则第13.24条；及 （ii） 告知市场所有重要资料，以供本公司股东及投资者评估本公司的状况。
+埃隆·马斯克寻求撤销OpenAI营利性结构的诉讼已进入庭审程序，这可能对微软等合作伙伴以及马斯克在特斯拉的其他企业产生影响。
 
-此外，公司股份继续停牌。
-
-责任编辑：卢昱君
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 15:35 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 15:14 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 15:29 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 15:16 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 15:30 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-29 15:33 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 15:23 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 15:27 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-29 15:20 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 15:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 15:33 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 15:10 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 15:29 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 15:22 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 15:32 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:29 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
+- 2026-06-29 15:34 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-29 15:20 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 15:36 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 15:35 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 15:15 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 15:40 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 15:24 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 15:27 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 15:37 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 15:34 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/235489149.shtml)
-- 2026-06-29 15:26 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/65948651001.shtml)
-- 2026-06-29 15:34 - [急先锋](https://www.share.kurohicncr.top/Article/details/1406361.shtml)
-- 2026-06-29 15:21 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/3025526503.shtml)
-- 2026-06-29 15:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/63932.shtml)
-- 2026-06-29 15:15 - [航空运输旅客服务质量国标将实施](http://www.share.minike.top/Article/details/66137217.shtml)
-- 2026-06-29 15:21 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/9602010818.shtml)
-- 2026-06-29 15:18 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/0469094759.shtml)
-- 2026-06-29 15:17 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/20037213.shtml)
-- 2026-06-29 15:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.minike.top/Article/details/88597.shtml)
-- 2026-06-29 15:22 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/42181098.shtml)
-- 2026-06-29 15:09 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/4190883.shtml)
-- 2026-06-29 15:22 - [习近平会见白俄罗斯总统卢卡申科](https://www.blog.kurohicncr.top/Article/details/27407393843.shtml)
-- 2026-06-29 15:24 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/854149.shtml)
-- 2026-06-29 15:35 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/53741.shtml)
+- 2026-06-29 15:31 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/45018505.shtml)
+- 2026-06-29 15:32 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/976082.shtml)
+- 2026-06-29 15:21 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/90441.shtml)
+- 2026-06-29 15:13 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/33717119.shtml)
+- 2026-06-29 15:34 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/693120.shtml)
+- 2026-06-29 15:18 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/577926233.shtml)
+- 2026-06-29 15:17 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/215391498415.shtml)
+- 2026-06-29 15:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/67816447.shtml)
+- 2026-06-29 15:27 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/512559.shtml)
+- 2026-06-29 15:38 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/950630.shtml)
+- 2026-06-29 15:24 - [千与千寻](http://www.share.kurohicncr.top/Article/details/492185.shtml)
+- 2026-06-29 15:41 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/777469.shtml)
+- 2026-06-29 15:15 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/4558425242.shtml)
+- 2026-06-29 15:20 - [教育部发布预警 事关高招录取](https://www.share.kurohicncr.top/Article/details/699127232.shtml)
+- 2026-06-29 15:24 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/770456671.shtml)

@@ -1,59 +1,56 @@
-# 营收连降3年，市值2个月翻倍，力量钻石靠“散热”翻身？
+# 一季度我国交通运输多项指标增长明显
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 “钻石恒久远，一颗永流传。”你知道吗？金刚石除了可以加工成象征爱情的钻石，如今还能给AI芯片和数据中心“散热”。 近日，金刚石材料板块大涨，一度位列A股行业板块涨幅榜第一。其中，力量钻石5月29日盘中股价一度涨至89.74元，总市值一度突破230亿元，2个月
+央视网消息(新闻联播)：交通运输部最新数据显示， 一季度，我国货运量、港口货物吞吐量等主要指标延续较快增长势头。营业性货运量达131.9亿吨，同比增长4.1%。其中，完成公路货运量98.8亿吨，同比增长4.0%；完成水路货运量20.3亿吨，同比增长5.7%。港口集装箱吞吐量达8964万标箱，其中，内、外贸集装箱吞吐量分别同比增长2.3%、11.6%。人员流动量方面，一季度，我国
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+央视网消息(新闻联播)：交通运输部最新数据显示， 一季度，我国货运量、港口货物吞吐量等主要指标延续较快增长势头。
 
-来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 “钻石恒久远，一颗永流传。
+营业性货运量达131.9亿吨，同比增长4.1%。
 
-”你知道吗？
+其中，完成公路货运量98.8亿吨，同比增长4.0%；完成水路货运量20.3亿吨，同比增长5.7%。
 
-金刚石除了可以加工成象征爱情的钻石，如今还能给AI芯片和数据中心“散热”。
+港口集装箱吞吐量达8964万标箱，其中，内、外贸集装箱吞吐量分别同比增长2.3%、11.6%。
 
-近日，金刚石材料板块大涨，一度位列A股行业板块涨幅榜第一。
+人员流动量方面，一季度，我国跨区域人员流动量达177.7亿人次，同比增长2.2%。
 
-其中，力量钻石5月29日盘中股价一度涨至89.74元，总市值一度突破230亿元，2个月时间翻倍，随后有所回落。
+一季度，我国民航运输呈现“客稳货快”的运行态势。
 
-截至6月2日收盘，公司最新股价75.81元，总市值为197.3亿元。
+客运方面，旅客运输量达2.0亿人次，其中，国际航线旅客运输量达2081.9万人次，同比增长10.0%。
 
-这场行情的升温，与央视新闻对金刚石散热应用的报道有关，让沉寂已久的金刚石材料赛道重新回到聚光灯下。
+中国至中亚、欧洲等航线旅客量和客座率均显著提高。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 15:23 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
-- 2026-06-29 15:32 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 15:20 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-29 15:33 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 15:21 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 15:26 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-29 15:34 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 15:25 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 15:10 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
-- 2026-06-29 15:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 15:12 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
-- 2026-06-29 15:17 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
+- 2026-06-29 15:26 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-29 15:19 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 15:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 15:20 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 15:32 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 15:16 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 15:13 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-29 15:35 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 15:41 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-29 15:23 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/57151447.shtml)
-- 2026-06-29 15:17 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/1839117122.shtml)
-- 2026-06-29 15:33 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/5756731639.shtml)
-- 2026-06-29 15:30 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/24241236.shtml)
-- 2026-06-29 15:22 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/35526292.shtml)
-- 2026-06-29 15:25 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/971871073769.shtml)
-- 2026-06-29 15:09 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/1766581.shtml)
-- 2026-06-29 15:29 - [评论员：高温撕开欧洲“遮羞布”](http://www.share.minike.top/Article/details/95303092.shtml)
-- 2026-06-29 15:27 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/38932481.shtml)
-- 2026-06-29 15:14 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/679608255519.shtml)
-- 2026-06-29 15:20 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/317097139.shtml)
-- 2026-06-29 15:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/98713008.shtml)
-- 2026-06-29 15:30 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/96481293.shtml)
-- 2026-06-29 15:07 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/427658322649.shtml)
-- 2026-06-29 15:33 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/986629426.shtml)
+- 2026-06-29 15:14 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/86260515.shtml)
+- 2026-06-29 15:16 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/0720022.shtml)
+- 2026-06-29 15:37 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/41906.shtml)
+- 2026-06-29 15:19 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/67410.shtml)
+- 2026-06-29 15:24 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/897553176571.shtml)
+- 2026-06-29 15:18 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/8785288526.shtml)
+- 2026-06-29 15:34 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/314463017.shtml)
+- 2026-06-29 15:39 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/174217844907.shtml)
+- 2026-06-29 15:24 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/213383.shtml)
+- 2026-06-29 15:15 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/45800168270.shtml)
+- 2026-06-29 15:36 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/84149.shtml)
+- 2026-06-29 15:40 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/48359527.shtml)
+- 2026-06-29 15:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/34672.shtml)
+- 2026-06-29 15:41 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/3956794715.shtml)
+- 2026-06-29 15:39 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/866700847.shtml)

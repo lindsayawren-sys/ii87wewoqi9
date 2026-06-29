@@ -1,47 +1,61 @@
-# 游勤获批担任宁夏银行独立董事 吴永鹏获批担任宁夏银行董事
+# 华尔街预计通用汽车一季度业绩稳健，福特与斯泰兰蒂斯力求业务回暖
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-6月2日金融一线消息，宁夏金融监管局发布批复，核准游勤宁夏银行股份有限公司独立董事的任职资格，以及吴永鹏宁夏银行股份有限公司董事的任职资格。 责任编辑：曹睿潼
+专题：聚焦美股2026年第一季度财报 核心要点 受伊朗冲突影响，原油与大宗商品成本持续走高，美国头部三大车企即将在本周发布一季度财报，三家企业当下处境却截然不同。 通用汽车发展最为平稳，华尔街普遍看好其延续稳健表现； 福特汽车前路坎坷，首席执行官法利的转型计划遭遇波折、被迫调整战略；斯泰兰蒂斯则深陷艰难经营周期，不过旗下 Jeep 品牌、搭载赫米 V8 发动机的公羊皮卡，仍为公
 
 ## 正文
 
-6月2日金融一线消息，宁夏金融监管局发布批复，核准游勤宁夏银行股份有限公司独立董事的任职资格，以及吴永鹏宁夏银行股份有限公司董事的任职资格。
+专题：聚焦美股2026年第一季度财报 核心要点 受伊朗冲突影响，原油与大宗商品成本持续走高，美国头部三大车企即将在本周发布一季度财报，三家企业当下处境却截然不同。
 
-责任编辑：曹睿潼
+通用汽车发展最为平稳，华尔街普遍看好其延续稳健表现； 福特汽车前路坎坷，首席执行官法利的转型计划遭遇波折、被迫调整战略；斯泰兰蒂斯则深陷艰难经营周期，不过旗下 Jeep 品牌、搭载赫米 V8 发动机的公羊皮卡，仍为公司提供业绩支撑。
+
+行业大环境进一步放大了各家的经营压力：电动车业务普遍巨额亏损、消费者新车购买意愿降温、供应链紧张叠加伊朗地缘冲突，全面推高生产与原材料成本。
+
+华尔街一季度业绩预期，直观反映出三者的差距： 路孚特数据显示，市场平均预测，通用一季度调整后每股收益可达 2.61 美元，领跑同城车企；福特预计仅为 0.19 美元。
+
+斯泰兰蒂斯一季度分析师预估数据未达到 CNBC 可比统计标准，但其全年每股收益预期为 0.73 欧元（折合 0.85 美元）。
+
+法国巴黎银行股权研究高级分析师、美国汽车行业研究主管詹姆斯・皮卡里耶洛表示： “一家优秀车企需要做到三件事：市场份额稳步微增、利润率扎实稳定、稳定利润转化为充沛自由现金流，最终回馈股东。
+
+通用汽车长期以来全部达标，且优势仍在延续。
+
+” 金融数据机构富途赛特统计的综合分析师评级显示： 通用汽车评级为增持，目标价 94.71 美元；福特、斯泰兰蒂斯评级均为持有，目标价分别为 13.67 美元、9.09 美元。
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 15:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
-- 2026-06-29 15:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 15:08 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-29 15:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 15:07 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 15:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 15:21 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 15:34 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
-- 2026-06-29 15:27 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-29 15:12 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 15:19 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 15:30 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 15:12 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 15:24 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 15:36 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 15:17 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 15:20 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 15:19 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 15:17 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 15:24 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 15:39 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 15:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 15:29 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 15:13 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 15:15 - [网友飞机上偶遇肖战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 15:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 15:36 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/3211522631.shtml)
-- 2026-06-29 15:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/6697735.shtml)
-- 2026-06-29 15:07 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.kurohicncr.top/Article/details/15895.shtml)
-- 2026-06-29 15:26 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.blog.minike.top/Article/details/8147561071.shtml)
-- 2026-06-29 15:22 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/193536962415.shtml)
-- 2026-06-29 15:19 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/740289.shtml)
-- 2026-06-29 15:13 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/330167.shtml)
-- 2026-06-29 15:27 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/5040106.shtml)
-- 2026-06-29 15:35 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/76097325.shtml)
-- 2026-06-29 15:19 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/144171399.shtml)
-- 2026-06-29 15:11 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/789535834166.shtml)
-- 2026-06-29 15:28 - [行程万里不忘初心](https://www.share.minike.top/Article/details/49508.shtml)
-- 2026-06-29 15:13 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/845478.shtml)
-- 2026-06-29 15:26 - [青春环游记第三季](http://www.blog.minike.top/Article/details/73249525456.shtml)
-- 2026-06-29 15:31 - [千与千寻](http://www.blog.minike.top/Article/details/2059946736.shtml)
+- 2026-06-29 15:42 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/413814742.shtml)
+- 2026-06-29 15:35 - [起风了](https://www.share.kurohicncr.top/Article/details/35641.shtml)
+- 2026-06-29 15:40 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/1200905895.shtml)
+- 2026-06-29 15:41 - [比亚迪市值为何蒸发8000亿](http://www.share.kurohicncr.top/Article/details/28160719.shtml)
+- 2026-06-29 15:18 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/03193220.shtml)
+- 2026-06-29 15:24 - [去了一趟潮汕。](http://www.share.kurohicncr.top/Article/details/6429270.shtml)
+- 2026-06-29 15:31 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/54620.shtml)
+- 2026-06-29 15:30 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/2875804815.shtml)
+- 2026-06-29 15:26 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/72474.shtml)
+- 2026-06-29 15:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/0427231.shtml)
+- 2026-06-29 15:34 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/436895791178.shtml)
+- 2026-06-29 15:29 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/602446145684.shtml)
+- 2026-06-29 15:15 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/42039.shtml)
+- 2026-06-29 15:40 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/78410.shtml)
+- 2026-06-29 15:30 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/6132291680.shtml)

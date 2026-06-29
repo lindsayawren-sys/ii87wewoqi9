@@ -1,52 +1,60 @@
-# 法尔斯通讯社：伊朗声称在阿曼海袭击了一艘集装箱船
+# 离境退税销售额和退税额一年增9倍多
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-据伊朗半官方的法尔斯通讯社报道，伊朗伊斯兰革命卫队海军声称对在阿曼海使用巡航导弹袭击MSC Sariska号集装箱船的行动负责。 伊朗伊斯兰革命卫队声称，该船由以色列和美国所有。 此次打击是对美国在阿曼海袭击伊朗船只Lian Star的直接报复。责任编辑：丁文武
+为了更好满足境外旅客购物离境退税需求，促进消费，中国自去年4月在全国范围内全面推广离境退税“即买即退”等系列服务升级措施。这一升级措施实施至今刚好满一年，政策效应比较明显。 税务总局披露最新数据显示，一年来，离境退税“即买即退”措施有效激发入境消费活力，全国办理人数同比增长12.96倍，退税销售额和退税额同比增长9.35倍，业务规模实现快速增长。 为促进消费，中国此前早已实施了
 
 ## 正文
 
-据伊朗半官方的法尔斯通讯社报道，伊朗伊斯兰革命卫队海军声称对在阿曼海使用巡航导弹袭击MSC Sariska号集装箱船的行动负责。
+为了更好满足境外旅客购物离境退税需求，促进消费，中国自去年4月在全国范围内全面推广离境退税“即买即退”等系列服务升级措施。
 
-伊朗伊斯兰革命卫队声称，该船由以色列和美国所有。
+这一升级措施实施至今刚好满一年，政策效应比较明显。
 
-此次打击是对美国在阿曼海袭击伊朗船只Lian Star的直接报复。
+税务总局披露最新数据显示，一年来，离境退税“即买即退”措施有效激发入境消费活力，全国办理人数同比增长12.96倍，退税销售额和退税额同比增长9.35倍，业务规模实现快速增长。
 
-责任编辑：丁文武
+为促进消费，中国此前早已实施了离境退税政策。
+
+不过，境外旅客需要在离境口岸离境时，对其在退税商店购买的退税物品退还增值税，目前中国增值税基本税率为13%。
+
+此后，在部分地方开展了离境退税“即买即退”试点，即境外旅客在已实施离境退税政策地区的“即买即退”商店购买退税物品时，签订协议书并办理信用卡预授权后，即可在该“即买即退”商店现场申领与退税款等额的预付金。
+
+为了让境外旅客退税更加便利，去年4月，税务总局发文将离境退税“即买即退”服务措施从多地试点推广至全国，并简化退税操作，进一步提升境外旅客退税体验。
+
+一些地方也在不断探索优化退税服务。
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 15:30 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-29 15:23 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 15:25 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 15:32 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 15:06 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 15:07 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
-- 2026-06-29 15:34 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 15:16 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 15:23 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 15:20 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 15:29 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
-- 2026-06-29 15:35 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
-- 2026-06-29 15:16 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-29 15:26 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 15:36 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 15:12 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 15:23 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 15:29 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-29 15:27 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 15:24 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 15:14 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-29 15:28 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 15:13 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 15:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 15:33 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 15:38 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 15:12 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:09 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/9837364.shtml)
-- 2026-06-29 15:22 - [1个视频看懂2026志愿填报新专业](http://www.share.kurohicncr.top/Article/details/389416728121.shtml)
-- 2026-06-29 15:14 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/23264988800.shtml)
-- 2026-06-29 15:29 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/07566660031.shtml)
-- 2026-06-29 15:32 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/18966657489.shtml)
-- 2026-06-29 15:24 - [84岁英国教授成中国网红](https://www.share.kurohicncr.top/Article/details/739965988986.shtml)
-- 2026-06-29 15:29 - [千与千寻](https://www.blog.minike.top/Article/details/9422486.shtml)
-- 2026-06-29 15:12 - [首尔商铺禁止洪明甫入内](http://www.blog.minike.top/Article/details/08090028.shtml)
-- 2026-06-29 15:25 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/867807493845.shtml)
-- 2026-06-29 15:23 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/86058389.shtml)
-- 2026-06-29 15:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/50404092776.shtml)
-- 2026-06-29 15:10 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/56210.shtml)
-- 2026-06-29 15:16 - [美的空调 卡bug](https://www.share.kurohicncr.top/Article/details/97289.shtml)
-- 2026-06-29 15:09 - [和阿根廷球员家属一起看球](http://www.blog.minike.top/Article/details/753354678.shtml)
-- 2026-06-29 15:26 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/403618056.shtml)
+- 2026-06-29 15:12 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/31962.shtml)
+- 2026-06-29 15:39 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/8889278.shtml)
+- 2026-06-29 15:37 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/05493.shtml)
+- 2026-06-29 15:24 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/24564012.shtml)
+- 2026-06-29 15:41 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/421561231.shtml)
+- 2026-06-29 15:34 - [龟梨和也田中美奈实结婚](https://www.blog.kurohicncr.top/Article/details/276526.shtml)
+- 2026-06-29 15:24 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/338553367.shtml)
+- 2026-06-29 15:18 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/5872741.shtml)
+- 2026-06-29 15:27 - [血糖高的人能吃西瓜吗](https://www.blog.minike.top/Article/details/470293519.shtml)
+- 2026-06-29 15:34 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/52447993.shtml)
+- 2026-06-29 15:21 - [恋与深空 731](https://www.blog.minike.top/Article/details/2539589.shtml)
+- 2026-06-29 15:28 - [哈兰德之歌火到国外](https://www.share.kurohicncr.top/Article/details/0833080569.shtml)
+- 2026-06-29 15:34 - [TI2026参赛战队出炉](https://www.share.minike.top/Article/details/6770050682.shtml)
+- 2026-06-29 15:39 - [金牌调解](https://www.blog.minike.top/Article/details/9777140377.shtml)
+- 2026-06-29 15:36 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/46415.shtml)

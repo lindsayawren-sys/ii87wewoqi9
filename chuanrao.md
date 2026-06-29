@@ -1,59 +1,54 @@
-# 申万宏源：2026年面向专业投资者公开发发行公司债券(第一期)品种一票面利率为1.64%
+# 吉林推文旅“礼包” 凭火车票可享多项优惠
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-申万宏源（06806）发布公告，申万宏源集团股份有限公司（以下简称“发行人”）面向专业投资者公开发行面值总额不超过人民币102亿元公司债券于2024年9月5日经中国证券监督管理委员会注册（证监许可\[2024\]1245号）。 申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）（以下简称“本期债券”）发行规模为不超过人民币38亿元（含38亿元）。本期债券分为
+发布时间：2026年04月27日 19:28 来源：中国新闻网 4月27日，有“北国江城”之称的吉林市推出“票根经济”优惠政策。游客凭火车票、高铁票，可在当地多个景区、酒店、餐饮等场所享受折扣或减免。 时下，吉林市正借松花湖开江鱼美食季活动掀起春季文旅热潮。此番举措将交通票务与消费场景直接联动，旨在服务游客畅游。 目前，吉林站还推出开江鱼美食季专属安检、出站专属通道。(记者 苍
 
 ## 正文
 
-申万宏源（06806）发布公告，申万宏源集团股份有限公司（以下简称“发行人”）面向专业投资者公开发行面值总额不超过人民币102亿元公司债券于2024年9月5日经中国证券监督管理委员会注册（证监许可\[2024\]1245号）。
+发布时间：2026年04月27日 19:28 来源：中国新闻网 4月27日，有“北国江城”之称的吉林市推出“票根经济”优惠政策。
 
-申万宏源集团股份有限公司2026年面向专业投资者公开发行公司债券（第一期）（以下简称“本期债券”）发行规模为不超过人民币38亿元（含38亿元）。
+游客凭火车票、高铁票，可在当地多个景区、酒店、餐饮等场所享受折扣或减免。
 
-本期债券分为两个品种，品种一为3年期，品种二为5年期。
+时下，吉林市正借松花湖开江鱼美食季活动掀起春季文旅热潮。
 
-本期债券设品种间回拨选择权，回拨比例不受限制，发行人和簿记管理人将根据本期债券发行申购情况，在总发行规模内，由发行人和簿记管理人协商一致，决定是否行使品种间回拨选择权，即减少其中一个品种的发行规模，同时对另一品种的发行规模增加相同金额，单一品种最大拨出规模不超过其最大可发行规模的100%。
+此番举措将交通票务与消费场景直接联动，旨在服务游客畅游。
 
-本期债券各品种总计发行规模不超过38亿元（含38亿元）。
+目前，吉林站还推出开江鱼美食季专属安检、出站专属通道。
 
-2026年6月2日，发行人和主承销商在网下向专业机构投资者进行了票面利率询价，品种一利率询价区间为1.30%-2.30%，品种二利率询价区间为1.40%-2.40%。
-
-根据网下向专业机构投资者询价结果，最终确定品种一票面利率为1.64%，品种二票面利率为1.79%。
-
-责任编辑：卢昱君
+(记者 苍雁 石洪宇） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 15:28 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 15:17 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-29 15:27 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 15:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 15:16 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 15:18 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 15:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 15:14 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 15:19 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-29 15:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-29 15:29 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 15:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 15:41 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 15:26 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 15:20 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 15:31 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-29 15:22 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 15:38 - [一见倾心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 15:12 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 15:22 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 15:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 15:13 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 15:13 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 15:26 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [沉睡花园](https://www.blog.minike.top/Article/details/12006.shtml)
-- 2026-06-29 15:08 - [网警提醒4类高考查分陷阱考生速看](https://www.share.minike.top/Article/details/20367349.shtml)
-- 2026-06-29 15:30 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/612831352.shtml)
-- 2026-06-29 15:25 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/938648040221.shtml)
-- 2026-06-29 15:16 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/3510505831.shtml)
-- 2026-06-29 15:19 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/473940144140.shtml)
-- 2026-06-29 15:16 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/3879110104.shtml)
-- 2026-06-29 15:28 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/6312712453.shtml)
-- 2026-06-29 15:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/320672.shtml)
-- 2026-06-29 15:12 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/363951780.shtml)
-- 2026-06-29 15:20 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/416003.shtml)
-- 2026-06-29 15:14 - [急先锋](https://www.share.kurohicncr.top/Article/details/270003.shtml)
-- 2026-06-29 15:24 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/421723769877.shtml)
-- 2026-06-29 15:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/407370069.shtml)
-- 2026-06-29 15:26 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/116249918.shtml)
+- 2026-06-29 15:28 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/7051242882.shtml)
+- 2026-06-29 15:36 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.minike.top/Article/details/69751669313.shtml)
+- 2026-06-29 15:14 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/2199195.shtml)
+- 2026-06-29 15:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/58658866.shtml)
+- 2026-06-29 15:37 - [世界杯十大帅哥必吃榜](http://www.share.minike.top/Article/details/582633385997.shtml)
+- 2026-06-29 15:30 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/890980882261.shtml)
+- 2026-06-29 15:22 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/5531077918.shtml)
+- 2026-06-29 15:24 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/302688.shtml)
+- 2026-06-29 15:41 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/474522.shtml)
+- 2026-06-29 15:20 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/853088.shtml)
+- 2026-06-29 15:29 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/127657.shtml)
+- 2026-06-29 15:40 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/80560646865.shtml)
+- 2026-06-29 15:15 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/9934665295.shtml)
+- 2026-06-29 15:38 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/15060097.shtml)
+- 2026-06-29 15:24 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/57725.shtml)

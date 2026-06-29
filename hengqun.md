@@ -1,54 +1,56 @@
-# 油价飙升 德国国债和英国国债跌幅扩大 受伊朗相关报道影响
+# 美联储，重磅来袭！降息，大消息！
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-据当地媒体报道，有消息称伊朗将暂停与美国的沟通以抗议以色列。受此影响，油价跃升至盘中高点，德国国债和英国国债收益率曲线继续呈现熊市趋平走势。 德国10年期国债收益率上涨6个基点至2.99%；英国同期限国债收益率攀升4个基点至4.86%。 布伦特原油跳涨5.4%。责任编辑：刘明亮
+全球金融市场即将迎来“超级央行周”。展望下周，美联储、欧洲央行、英国央行、日本央行和加拿大央行都将陆续公布利率决议，目前市场普遍预期，五大央行都将“按兵不动”。值得一提的是，即将召开的议息会议或将是美联储主席鲍威尔的“最后一舞”，其主席任期将于5月15日结束。美国司法部最新表示，将结束对鲍威尔的刑事调查，从而扫清了阻碍美国总统特朗普提名的下任美联储主席人选凯文·沃什接任的关键障
 
 ## 正文
 
-据当地媒体报道，有消息称伊朗将暂停与美国的沟通以抗议以色列。
+全球金融市场即将迎来“超级央行周”。
 
-受此影响，油价跃升至盘中高点，德国国债和英国国债收益率曲线继续呈现熊市趋平走势。
+展望下周，美联储、欧洲央行、英国央行、日本央行和加拿大央行都将陆续公布利率决议，目前市场普遍预期，五大央行都将“按兵不动”。
 
-德国10年期国债收益率上涨6个基点至2.99%；英国同期限国债收益率攀升4个基点至4.86%。
+值得一提的是，即将召开的议息会议或将是美联储主席鲍威尔的“最后一舞”，其主席任期将于5月15日结束。
 
-布伦特原油跳涨5.4%。
+美国司法部最新表示，将结束对鲍威尔的刑事调查，从而扫清了阻碍美国总统特朗普提名的下任美联储主席人选凯文·沃什接任的关键障碍。
 
-责任编辑：刘明亮
+受此影响，市场对美联储2026年年内降息的预期有所升温。
+
+与此同时，美股市场还将迎来“超级财报周”——美股“科技七巨头”中的苹果、谷歌、微软、Meta和亚马逊将密集披露财报。
+
+有分析指出，考虑到“科技七巨头”在美股市场的市值占比，一旦业绩不及预期，或将引发美股市场剧烈波动。
+
+“超级央行周”来袭展望下周，全球金融市场关注的焦点将是美联储的议息会议。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 15:24 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 15:15 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-29 15:26 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-29 15:12 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:18 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 15:34 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 15:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 15:26 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 15:13 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 15:35 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 15:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 15:22 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-29 15:18 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-29 15:32 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 15:28 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 15:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 15:22 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 15:31 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 15:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 15:29 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 15:23 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 15:14 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 15:28 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/310166982.shtml)
-- 2026-06-29 15:12 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/25082113835.shtml)
-- 2026-06-29 15:25 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/130346916.shtml)
-- 2026-06-29 15:35 - [巴基斯坦军方打死29名武装分子](http://www.blog.kurohicncr.top/Article/details/8198826.shtml)
-- 2026-06-29 15:10 - [明星大侦探第一季](http://www.share.minike.top/Article/details/5361727113.shtml)
-- 2026-06-29 15:10 - [媒体：网络测评不能只剩“生意”](https://www.share.kurohicncr.top/Article/details/294556307.shtml)
-- 2026-06-29 15:07 - [男孩复读一年减重20斤涨分111分](https://www.blog.kurohicncr.top/Article/details/47720838718.shtml)
-- 2026-06-29 15:14 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/521406.shtml)
-- 2026-06-29 15:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/0816693.shtml)
-- 2026-06-29 15:08 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/479035.shtml)
-- 2026-06-29 15:06 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/82248.shtml)
-- 2026-06-29 15:14 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/823520301190.shtml)
-- 2026-06-29 15:07 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/77080973.shtml)
-- 2026-06-29 15:18 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/335631.shtml)
-- 2026-06-29 15:28 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/888443043624.shtml)
+- 2026-06-29 15:12 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/499661844390.shtml)
+- 2026-06-29 15:32 - [逃狱兄弟](http://www.share.minike.top/Article/details/27470352.shtml)
+- 2026-06-29 15:25 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/503276.shtml)
+- 2026-06-29 15:24 - [端午节加班工资应该怎么算](https://www.share.minike.top/Article/details/16852.shtml)
+- 2026-06-29 15:41 - [教育部发布高考志愿填报预警](https://www.blog.kurohicncr.top/Article/details/4003835082.shtml)
+- 2026-06-29 15:41 - [我国多领域成果密集上新](http://www.share.minike.top/Article/details/30460.shtml)
+- 2026-06-29 15:20 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/012534026852.shtml)
+- 2026-06-29 15:39 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.minike.top/Article/details/1390725.shtml)
+- 2026-06-29 15:31 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/1980550260.shtml)
+- 2026-06-29 15:24 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/96768300.shtml)
+- 2026-06-29 15:27 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/31016.shtml)
+- 2026-06-29 15:17 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/827980837173.shtml)
+- 2026-06-29 15:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/411928.shtml)
+- 2026-06-29 15:17 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/1189631.shtml)
+- 2026-06-29 15:17 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.kurohicncr.top/Article/details/43169391309.shtml)

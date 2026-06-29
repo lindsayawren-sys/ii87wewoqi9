@@ -1,60 +1,51 @@
-# 马来西亚新规实施：16岁以下青少年禁注册社交媒体账号
+# 为人民出政绩丨“既要做显功，也要做潜功”
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新社吉隆坡6月1日电 (记者 刘育英)马来西亚从6月1日起正式实施针对16岁以下用户的社交媒体使用限制措施，禁止未满16岁者新注册社交媒体账号，旨在加强对未成年人的网络安全保护。 这项措施是基于《网络安全法2025》框架下《儿童保护守则》及《风险降低守则》的要求，由马来西亚通信和多媒体委员会(MCMC)统筹执行。 该措施适用范围涵盖脸书(Facebook)、照片墙(Insta
+政绩观问题是一个关乎立党为公、执政为民的根本性问题。习近平总书记指出：“要牢固树立正确政绩观，既要做让老百姓看得见、摸得着、得实惠的实事，也要做为后人作铺垫、打基础、利长远的好事，既要做显功，也要做潜功”。 文案、制作：黄瑾 资料来源：人民日报、央视新闻等
 
 ## 正文
 
-中新社吉隆坡6月1日电 (记者 刘育英)马来西亚从6月1日起正式实施针对16岁以下用户的社交媒体使用限制措施，禁止未满16岁者新注册社交媒体账号，旨在加强对未成年人的网络安全保护。
+政绩观问题是一个关乎立党为公、执政为民的根本性问题。
 
-这项措施是基于《网络安全法2025》框架下《儿童保护守则》及《风险降低守则》的要求，由马来西亚通信和多媒体委员会(MCMC)统筹执行。
+习近平总书记指出：“要牢固树立正确政绩观，既要做让老百姓看得见、摸得着、得实惠的实事，也要做为后人作铺垫、打基础、利长远的好事，既要做显功，也要做潜功”。
 
-该措施适用范围涵盖脸书(Facebook)、照片墙(Instagram)、TikTok、优兔(YouTube)等持牌大型社交媒体平台。
-
-根据新规，用户须通过政府认可的身份验证机制确认年龄。
-
-不仅限于新用户，现有用户亦需进行年龄验证；若经验证确认未满16岁，平台将给予一个月时间下载或转移照片、视频等个人资料。
-
-MCMC在当日发布的公告中强调，社交媒体服务商有责任落实包括最低年龄门槛在内的多项安全义务。
-
-一个月宽限期结束后，平台将对仍不符合资格的账号采取限制使用、暂停账号或其他适当措施。
-
-(完)
+文案、制作：黄瑾 资料来源：人民日报、央视新闻等
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 15:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 15:07 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 15:24 - [A股收评：科创50指数大涨4.61%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 15:31 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 15:24 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 15:31 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 15:34 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-29 15:09 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-29 15:10 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 15:15 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-29 15:10 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 15:31 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 15:14 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
+- 2026-06-29 15:30 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-29 15:24 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 15:18 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 15:40 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 15:32 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-29 15:34 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 15:40 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 15:22 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 15:38 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 15:34 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:25 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 15:39 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 15:32 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-29 15:31 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
+- 2026-06-29 15:33 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/679982268592.shtml)
-- 2026-06-29 15:12 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/813909453.shtml)
-- 2026-06-29 15:17 - [名记：勇士想先交易浓眉再签詹姆斯](http://www.share.kurohicncr.top/Article/details/71545511.shtml)
-- 2026-06-29 15:29 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/37431442184.shtml)
-- 2026-06-29 15:21 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/18173549344.shtml)
-- 2026-06-29 15:25 - [戒掉咖啡后我的身体变化](http://www.blog.kurohicncr.top/Article/details/7633864.shtml)
-- 2026-06-29 15:33 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/96383383252.shtml)
-- 2026-06-29 15:30 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/36805006297.shtml)
-- 2026-06-29 15:26 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/52681.shtml)
-- 2026-06-29 15:26 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/6990863.shtml)
-- 2026-06-29 15:21 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/031004421006.shtml)
-- 2026-06-29 15:30 - [女心理师](http://www.share.minike.top/Article/details/238332.shtml)
-- 2026-06-29 15:35 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/2644673550.shtml)
-- 2026-06-29 15:32 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/358013442434.shtml)
-- 2026-06-29 15:34 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/1512023.shtml)
+- 2026-06-29 15:23 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/877382466449.shtml)
+- 2026-06-29 15:33 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/69416.shtml)
+- 2026-06-29 15:15 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/673954762582.shtml)
+- 2026-06-29 15:29 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/695626809.shtml)
+- 2026-06-29 15:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/53565483129.shtml)
+- 2026-06-29 15:20 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/279746.shtml)
+- 2026-06-29 15:35 - [世界杯十大帅哥必吃榜](http://www.share.kurohicncr.top/Article/details/48539039145.shtml)
+- 2026-06-29 15:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/656407.shtml)
+- 2026-06-29 15:29 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/24873.shtml)
+- 2026-06-29 15:18 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/827993.shtml)
+- 2026-06-29 15:36 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/673814515.shtml)
+- 2026-06-29 15:23 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/17655.shtml)
+- 2026-06-29 15:33 - [请回答王牌2019](https://www.blog.minike.top/Article/details/74890.shtml)
+- 2026-06-29 15:29 - [速度与激情9](https://www.share.minike.top/Article/details/2485417.shtml)
+- 2026-06-29 15:36 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/33087772.shtml)

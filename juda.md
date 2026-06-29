@@ -1,57 +1,60 @@
-# 2026世界旅游城市联合会北京香山旅游峰会在京举办
+# 东北足球盛会蓄势待发 吉林多元备赛推动文体商深度融合
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 22:36 来源：中国新闻网 6月2日，2026世界旅游城市联合会北京香山旅游峰会，在北京中关村国际创新中心开幕。本届峰会以“数智引领未来旅游”为主题，举办会员大会、理事会会议、开幕式、展览展示等系列活动。峰会吸引全球56个国家和地区、73座城市代表参会，汇集2位境外国家旅游部副部长、5位国际组织负责人、23位境外城市市长级嘉宾齐聚北京。 当下
+中新网长春4月27日电 (谭伟旗 金乔)首届东北地区城市足球联赛(“东北超”)即将开赛，吉林目前已备赛就绪。官方表示，将以体育赛事为纽带，深度联动文旅资源，多措并举拉动区域消费升级。 27日，吉林省政府新闻办召开新闻发布会，介绍首届东北地区城市足球联赛相关筹备情况。本届赛事将于5月下旬开赛，由吉林、辽宁、黑龙江、内蒙古三省一区联合举办。 吉林省体育局副局长刘琦介绍，吉林省已优选
 
 ## 正文
 
-发布时间：2026年06月02日 22:36 来源：中国新闻网 6月2日，2026世界旅游城市联合会北京香山旅游峰会，在北京中关村国际创新中心开幕。
+中新网长春4月27日电 (谭伟旗 金乔)首届东北地区城市足球联赛(“东北超”)即将开赛，吉林目前已备赛就绪。
 
-本届峰会以“数智引领未来旅游”为主题，举办会员大会、理事会会议、开幕式、展览展示等系列活动。
+官方表示，将以体育赛事为纽带，深度联动文旅资源，多措并举拉动区域消费升级。
 
-峰会吸引全球56个国家和地区、73座城市代表参会，汇集2位境外国家旅游部副部长、5位国际组织负责人、23位境外城市市长级嘉宾齐聚北京。
+27日，吉林省政府新闻办召开新闻发布会，介绍首届东北地区城市足球联赛相关筹备情况。
 
-当下，人工智能、大数据、智慧基建已成为文旅产业发展的基础支撑，深度融入文旅规划布局、品牌营销推广、游客全程服务、动态客流管控等各个环节。
+本届赛事将于5月下旬开赛，由吉林、辽宁、黑龙江、内蒙古三省一区联合举办。
 
-本次发布的北京文旅十大科技应用场景，深度融合人工智能、大数据等前沿数字技术，覆盖机器人智慧服务、AI旅居管家、无感便捷通行、数字文物活化、XR沉浸式演艺、AIGC个性化内容定制等多元业态，贯穿游客出行全周期、文旅运营全链条，集中展现了北京数字文旅建设的根基与硬实力。
+吉林省体育局副局长刘琦介绍，吉林省已优选确定长春、延边两支代表队参赛。
 
-(李佳悦) 责任编辑：【胡寒笑】
+其中，长春队依托亚泰梯队底蕴，整合社会足球骨干力量系统磨合；延边队传承“足球之乡”优良基因，汇聚本土优质人才，两支队伍竞技状态良好、特色鲜明。
+
+此次参赛，吉林省打破专业赛事壁垒，构建“青训核心+高校力量+社会精英+都市圈联动”的多元参赛体系。
+
+50人大参赛名单以长春亚泰青训为根基，吸纳高校学子、出租车司机、外卖骑手等社会足球爱好者，集结长春都市圈优秀球员与城市体育推广大使，真正彰显全民足球理念。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 15:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 15:08 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 15:33 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 15:06 - [韩国国脚无缘上亿韩元奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-29 15:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-29 15:16 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-29 15:21 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 15:12 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
-- 2026-06-29 15:09 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 15:10 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 15:07 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 15:06 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 15:25 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-29 15:22 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 15:15 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 15:21 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 15:23 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 15:28 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 15:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 15:14 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 15:22 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 15:37 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 15:21 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 15:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 15:30 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-29 15:32 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 15:20 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 15:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:30 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/71565415301.shtml)
-- 2026-06-29 15:23 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/730961015383.shtml)
-- 2026-06-29 15:07 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/80481999.shtml)
-- 2026-06-29 15:19 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/6319340.shtml)
-- 2026-06-29 15:06 - [网警提醒4类高考查分陷阱考生速看](https://www.share.kurohicncr.top/Article/details/8747498.shtml)
-- 2026-06-29 15:09 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/081267.shtml)
-- 2026-06-29 15:32 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/3900182.shtml)
-- 2026-06-29 15:14 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/84702732607.shtml)
-- 2026-06-29 15:14 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/073213358.shtml)
-- 2026-06-29 15:13 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/500111064240.shtml)
-- 2026-06-29 15:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/8110858090.shtml)
-- 2026-06-29 15:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/504112860.shtml)
-- 2026-06-29 15:18 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/1201232530.shtml)
-- 2026-06-29 15:30 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/177608670990.shtml)
-- 2026-06-29 15:20 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/044158122.shtml)
+- 2026-06-29 15:17 - [网警提醒4类高考查分陷阱考生速看](https://www.share.kurohicncr.top/Article/details/6374787.shtml)
+- 2026-06-29 15:12 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/10649.shtml)
+- 2026-06-29 15:31 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/014331035.shtml)
+- 2026-06-29 15:30 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/68366.shtml)
+- 2026-06-29 15:18 - [我国文化产业营收规模突破20万亿元](http://www.share.kurohicncr.top/Article/details/86663152792.shtml)
+- 2026-06-29 15:12 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/67289581.shtml)
+- 2026-06-29 15:19 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/11224130.shtml)
+- 2026-06-29 15:39 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/33617596.shtml)
+- 2026-06-29 15:35 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/347948.shtml)
+- 2026-06-29 15:35 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/01764887.shtml)
+- 2026-06-29 15:25 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/68758.shtml)
+- 2026-06-29 15:32 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/31264.shtml)
+- 2026-06-29 15:15 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/745444588017.shtml)
+- 2026-06-29 15:34 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.minike.top/Article/details/70405538310.shtml)
+- 2026-06-29 15:37 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/150012798.shtml)

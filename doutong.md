@@ -1,58 +1,61 @@
-# 特朗普被曝同内塔尼亚胡通话时爆粗口
+# 半导体炸圈了……
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据美国阿克西奥斯新闻网站报道，美国总统特朗普1日与以色列总理内塔尼亚胡通话时，就以色列升级在黎巴嫩军事行动一事严厉斥责对方，措辞激烈，言语间夹杂粗口。 报道称，当天早些时候，因以色列升级在黎巴嫩的行动，伊朗威胁要退出与美国的谈判。两名消息人士称，特朗普在与内塔尼亚胡通话中称后者“疯了”，并指责其忘恩负义，同时叫停了以色列袭击黎巴嫩首都贝鲁特的计划。 一名美国官
+来源：硬核姬老板 财报季，市场轮动速度极快，快到你还没反应过来，市场又对强叙事但业绩不及预期的板块选择了原谅。 比如昨天（4月27日）的BFHC，虽然Q1业绩不及预期，但在国产算力的烘托下，也就浅低开表示了一下后，直接冲击了一波涨停。 财报季马上就全部披露完了，看样子市场又有的玩了。 一、半导体周期又来了？ 其实4月份虽然不断有一些“雷点”，但市场已经从美伊冲突的第一轮冲击中走
 
 ## 正文
 
-中新网6月2日电 据美国阿克西奥斯新闻网站报道，美国总统特朗普1日与以色列总理内塔尼亚胡通话时，就以色列升级在黎巴嫩军事行动一事严厉斥责对方，措辞激烈，言语间夹杂粗口。
+来源：硬核姬老板 财报季，市场轮动速度极快，快到你还没反应过来，市场又对强叙事但业绩不及预期的板块选择了原谅。
 
-报道称，当天早些时候，因以色列升级在黎巴嫩的行动，伊朗威胁要退出与美国的谈判。
+比如昨天（4月27日）的BFHC，虽然Q1业绩不及预期，但在国产算力的烘托下，也就浅低开表示了一下后，直接冲击了一波涨停。
 
-两名消息人士称，特朗普在与内塔尼亚胡通话中称后者“疯了”，并指责其忘恩负义，同时叫停了以色列袭击黎巴嫩首都贝鲁特的计划。
+财报季马上就全部披露完了，看样子市场又有的玩了。
 
-一名美国官员称，特朗普告诉内塔尼亚胡，如果以方兑现轰炸黎巴嫩首都贝鲁特的威胁，将使以色列在国际上进一步陷入孤立。
+一、半导体周期又来了？
 
-两名消息人士称，特朗普还提到，自己曾在内塔尼亚胡腐败案审理期间支持过对方，并称“要不是我，你现在就在监狱里。
+其实4月份虽然不断有一些“雷点”，但市场已经从美伊冲突的第一轮冲击中走了出来。
 
-我一直在救你。
+我A不少板块也已经新高，而回顾这一个月，真正支撑市场的几条主线依旧是AI和半导体以及以锂矿为主的部分核心资源股等。
 
-现在所有人都恨你。
+AI和锂矿之前写过很多了，半导体月初提过一次，这次再说一下。
 
-所有人都恨以色列”。
+如果对美股关注度较高的人会发现，费城半导体指数已经18连阳了，美股那边，德州仪器（TI）、意法半导体、安森美、恩智浦等模拟芯片巨头都在涨。
 
 ## 相关推荐
 
-- 2026-06-29 15:06 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 15:06 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 15:34 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 15:26 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 15:27 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 15:07 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
-- 2026-06-29 15:20 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 15:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 15:18 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 15:16 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-29 15:33 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-29 15:13 - [papi酱在救赎窦文涛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 15:15 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 15:27 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 15:25 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 15:30 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 15:18 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 15:14 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-29 15:38 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 15:37 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 15:15 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 15:20 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 15:16 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 15:41 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 15:17 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 15:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 15:26 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:35 - [AG 宫斗](https://www.blog.minike.top/Article/details/9586535.shtml)
-- 2026-06-29 15:19 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/7870246377.shtml)
-- 2026-06-29 15:32 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/293162617.shtml)
-- 2026-06-29 15:22 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/81308.shtml)
-- 2026-06-29 15:06 - [刘世锦：建议划拨20万亿国资充实社保](https://www.blog.kurohicncr.top/Article/details/21673434.shtml)
-- 2026-06-29 15:24 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/110523033717.shtml)
-- 2026-06-29 15:36 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/268414.shtml)
-- 2026-06-29 15:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/851608378.shtml)
-- 2026-06-29 15:34 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/07453.shtml)
-- 2026-06-29 15:18 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/403831761551.shtml)
-- 2026-06-29 15:29 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/1534320298.shtml)
-- 2026-06-29 15:35 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/8314375545.shtml)
-- 2026-06-29 15:30 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/21759870153.shtml)
-- 2026-06-29 15:11 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/989853812.shtml)
-- 2026-06-29 15:32 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/8367409177.shtml)
+- 2026-06-29 15:16 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/3883788.shtml)
+- 2026-06-29 15:19 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/05149829497.shtml)
+- 2026-06-29 15:21 - [一家三口吃溪石斑鱼中毒](https://www.share.kurohicncr.top/Article/details/74423.shtml)
+- 2026-06-29 15:36 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/832912.shtml)
+- 2026-06-29 15:24 - [美的“卡bug”空调在欧洲卖爆](https://www.blog.minike.top/Article/details/0563711046.shtml)
+- 2026-06-29 15:30 - [恋与深空失控领地](https://www.share.minike.top/Article/details/22192174.shtml)
+- 2026-06-29 15:16 - [复盘曾沛慈浪姐夺冠之路](https://www.share.minike.top/Article/details/50029845.shtml)
+- 2026-06-29 15:23 - [沙丘](https://www.share.minike.top/Article/details/0356700695.shtml)
+- 2026-06-29 15:36 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/23298783176.shtml)
+- 2026-06-29 15:23 - [南非老帅布罗斯的梦没能做完](http://www.blog.minike.top/Article/details/196535228168.shtml)
+- 2026-06-29 15:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/52570511.shtml)
+- 2026-06-29 15:23 - [上海一小区水池内出现一条鳄鱼](https://www.blog.kurohicncr.top/Article/details/19611792454.shtml)
+- 2026-06-29 15:15 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.minike.top/Article/details/14918.shtml)
+- 2026-06-29 15:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/961903276571.shtml)
+- 2026-06-29 15:18 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/40775.shtml)

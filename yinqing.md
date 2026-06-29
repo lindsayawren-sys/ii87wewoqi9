@@ -1,59 +1,57 @@
-# AI双雄上市 OpenAI和Anthropic能否经受住考验
+# 西大特色烹饪课：烟火润心传校韵 实践课堂育品格
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-SpaceX筹划中的首次公开募股（IPO）成为今春投资界热议焦点。然而，当纳斯达克上市庆典的彩带尚未清扫干净时，OpenAI和Anthropic PBC也将接踵登陆美股市场。这两家人工智能领域最具影响力的公司预计最快将于今年秋季上市。 6月1日，Anthropic宣称已保密提交IPO注册文件草案，而OpenAI预计将在未来数天或数周内跟进。作为ChatGPT的开发商，OpenA
+中新网西安4月27日电 (阿琳娜 党乐瑶)围裙整齐挂放，工具依次排列，在黄油与糖粉的甜香中，一堂有温度、有文化的创意烹饪课，正在西北大学校园里上演。指尖触碰面团，香气在烤箱升温中弥漫开来，师生同心，将手工烘焙的烟火气，融入立德树人的教育实践。 “作为百年名校、西部高等教育的重要源头，西北大学文脉绵长、英才辈出，在人文社科、基础科研、区域发展服务等领域硕果累累。”在西北大学哲学学
 
 ## 正文
 
-SpaceX筹划中的首次公开募股（IPO）成为今春投资界热议焦点。
+中新网西安4月27日电 (阿琳娜 党乐瑶)围裙整齐挂放，工具依次排列，在黄油与糖粉的甜香中，一堂有温度、有文化的创意烹饪课，正在西北大学校园里上演。
 
-然而，当纳斯达克上市庆典的彩带尚未清扫干净时，OpenAI和Anthropic PBC也将接踵登陆美股市场。
+指尖触碰面团，香气在烤箱升温中弥漫开来，师生同心，将手工烘焙的烟火气，融入立德树人的教育实践。
 
-这两家人工智能领域最具影响力的公司预计最快将于今年秋季上市。
+“作为百年名校、西部高等教育的重要源头，西北大学文脉绵长、英才辈出，在人文社科、基础科研、区域发展服务等领域硕果累累。
 
-6月1日，Anthropic宣称已保密提交IPO注册文件草案，而OpenAI预计将在未来数天或数周内跟进。
+”在西北大学哲学学院曹振明副教授的讲授中，这堂烹饪课不再是简单的动手操作，而是一场沉浸式的校史学习与浸润。
 
-作为ChatGPT的开发商，OpenAI今年3月估值达到8520亿美元，而开发了Claude模型的Anthropic融资估值已超过9650亿美元。
+曹振明娓娓道来的百年校史，口中讲述的大礼堂、实际寺，成为了学生手中制作的饼干图样。
 
-按这一水平计算，这两家公司每一家的市值都将超过摩根大通和埃克森美孚等企业巨头。
+大家将黄油饼干制作成西大校园的经典地标，赋予每一块饼干独特的精神印记。
 
-为什么SpaceX的IPO与其他任何IPO都不同 围绕这些公司的狂热情绪席卷私募市场。
+来自不同学院的老师、同学们齐动手，带着对烘焙的热爱与实践的热情投入课堂。
 
-在那里，只有富裕投资者、金融机构和相关企业员工才能接触到这类股票。
+来自土库曼斯坦的留学生宛美，正兴致勃勃地与同学们交流着，“通过制作地标文化建筑，我直观感受到了学校的文化底蕴，也更加理解西大深厚的校史内涵。
 
 ## 相关推荐
 
-- 2026-06-29 15:12 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 15:17 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 15:33 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 15:26 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-29 15:06 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 15:33 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 15:13 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 15:14 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 15:32 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 15:23 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 15:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 15:06 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 15:27 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 15:28 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 15:17 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-29 15:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 15:20 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
+- 2026-06-29 15:36 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-29 15:28 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 15:33 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 15:18 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 15:39 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 15:21 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 15:17 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/6743397.shtml)
-- 2026-06-29 15:33 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/858672127151.shtml)
-- 2026-06-29 15:16 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/157899200041.shtml)
-- 2026-06-29 15:24 - [谢霆锋王菲十指紧扣一起走](http://www.share.minike.top/Article/details/791556.shtml)
-- 2026-06-29 15:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.kurohicncr.top/Article/details/610014.shtml)
-- 2026-06-29 15:32 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/15480147.shtml)
-- 2026-06-29 15:23 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/12100.shtml)
-- 2026-06-29 15:31 - [盛秋平任南昌市委书记](https://www.share.kurohicncr.top/Article/details/265076.shtml)
-- 2026-06-29 15:20 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/090795.shtml)
-- 2026-06-29 15:22 - [TI2026参赛战队出炉](http://www.share.kurohicncr.top/Article/details/66445.shtml)
-- 2026-06-29 15:15 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/040415.shtml)
-- 2026-06-29 15:19 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/1834470518.shtml)
-- 2026-06-29 15:06 - [欧委会总部只给高层开空调](http://www.share.minike.top/Article/details/30841.shtml)
-- 2026-06-29 15:33 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/756637425.shtml)
-- 2026-06-29 15:12 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/38063.shtml)
+- 2026-06-29 15:19 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/1164956536.shtml)
+- 2026-06-29 15:23 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/44200551068.shtml)
+- 2026-06-29 15:15 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/922655358.shtml)
+- 2026-06-29 15:37 - [安切洛蒂称像对待决赛一样备战日本](https://www.blog.kurohicncr.top/Article/details/58776.shtml)
+- 2026-06-29 15:29 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/65271.shtml)
+- 2026-06-29 15:15 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/27934842.shtml)
+- 2026-06-29 15:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/745203712.shtml)
+- 2026-06-29 15:40 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/335966.shtml)
+- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/59049601900.shtml)
+- 2026-06-29 15:34 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/7081243511.shtml)
+- 2026-06-29 15:21 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/921258.shtml)
+- 2026-06-29 15:31 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/5732941.shtml)
+- 2026-06-29 15:41 - [我和我的家乡](https://www.blog.minike.top/Article/details/9287886442.shtml)
+- 2026-06-29 15:33 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/51850.shtml)
+- 2026-06-29 15:30 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/74811.shtml)

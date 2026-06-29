@@ -1,52 +1,53 @@
-# Quantinuum寻求通过IPO筹集至多14.6亿美元
+# 日本岩手县已有超3000人因山火接到避难指示
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-Quantinuum寻求通过IPO发行2650万股A类普通股，每股价格为53至55美元，目标筹集不超14.6亿美元的资金。 拟在纳斯达克上市，股票代码为QNT。 此次发行后，该公司将有两类普通股。责任编辑：江学思
+中新网东京4月28日电 据日本共同社28日报道，岩手县大槌町22日发生山火后，当地已有超过3000名居民接到避难指示。 据报道，当地山火28日进入第7天，火势大体已得到控制。截至28日上午，过火面积已达1633公顷。此外，包括住宅在内的8栋建筑在火灾中受损。 岩手县28日发布消息说，当日将出动约1400名消防人员继续进行地面灭火。(完)
 
 ## 正文
 
-Quantinuum寻求通过IPO发行2650万股A类普通股，每股价格为53至55美元，目标筹集不超14.6亿美元的资金。
+中新网东京4月28日电 据日本共同社28日报道，岩手县大槌町22日发生山火后，当地已有超过3000名居民接到避难指示。
 
-拟在纳斯达克上市，股票代码为QNT。
+据报道，当地山火28日进入第7天，火势大体已得到控制。
 
-此次发行后，该公司将有两类普通股。
+截至28日上午，过火面积已达1633公顷。
 
-责任编辑：江学思
+此外，包括住宅在内的8栋建筑在火灾中受损。
+
+岩手县28日发布消息说，当日将出动约1400名消防人员继续进行地面灭火。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:09 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-29 15:17 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-29 15:28 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-29 15:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 15:20 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 15:30 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 15:24 - [普京介绍前线战事](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
-- 2026-06-29 15:06 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 15:27 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 15:11 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 15:25 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-29 15:13 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 15:07 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 15:32 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 15:22 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 15:39 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 15:40 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 15:30 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 15:21 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 15:14 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 15:24 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 15:41 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 15:39 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 15:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 15:19 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:29 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/474028881817.shtml)
-- 2026-06-29 15:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/9976586.shtml)
-- 2026-06-29 15:34 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/80722102.shtml)
-- 2026-06-29 15:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/58570.shtml)
-- 2026-06-29 15:06 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/2158076.shtml)
-- 2026-06-29 15:16 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/96814913189.shtml)
-- 2026-06-29 15:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/31784.shtml)
-- 2026-06-29 15:22 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/35261696149.shtml)
-- 2026-06-29 15:34 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/1523313740.shtml)
-- 2026-06-29 15:18 - [医院大厅放钢琴是形式主义吗](http://www.blog.minike.top/Article/details/795148072.shtml)
-- 2026-06-29 15:26 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/363119220.shtml)
-- 2026-06-29 15:32 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/1339178.shtml)
-- 2026-06-29 15:20 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.kurohicncr.top/Article/details/10872494.shtml)
-- 2026-06-29 15:15 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.share.kurohicncr.top/Article/details/2099943457.shtml)
-- 2026-06-29 15:12 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/5784083.shtml)
+- 2026-06-29 15:33 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/01269962.shtml)
+- 2026-06-29 15:40 - [国家体育总局政策法规司原副司长获刑](https://www.blog.kurohicncr.top/Article/details/2659989.shtml)
+- 2026-06-29 15:22 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/56363187.shtml)
+- 2026-06-29 15:39 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/6278959.shtml)
+- 2026-06-29 15:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/85814.shtml)
+- 2026-06-29 15:32 - [抓特务票房破亿](http://www.share.minike.top/Article/details/996009743346.shtml)
+- 2026-06-29 15:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/10571.shtml)
+- 2026-06-29 15:14 - [T1 3-0 KC赛后数据](https://www.share.minike.top/Article/details/870916559037.shtml)
+- 2026-06-29 15:26 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/1905124043.shtml)
+- 2026-06-29 15:17 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/873435.shtml)
+- 2026-06-29 15:28 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/83020199431.shtml)
+- 2026-06-29 15:40 - [T1 vs KC MSI](https://www.blog.minike.top/Article/details/203399988258.shtml)
+- 2026-06-29 15:33 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/49094811.shtml)
+- 2026-06-29 15:28 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/8420309.shtml)
+- 2026-06-29 15:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/98238.shtml)

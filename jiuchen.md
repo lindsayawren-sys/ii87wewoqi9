@@ -1,57 +1,58 @@
-# 陈映玲：在“时光的残忍”里，守住一声“奴啊”
+# 特朗普在白宫迎接英国国王查尔斯进行国事访问
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。看着他们，我很心疼，所以想把他们的故事记录下来。”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。 无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，
+美国总统唐纳德·特朗普在白宫欢迎来访的英国国王查尔斯三世。此次访问笼罩在对英美所谓“特殊关系”未来走向的疑虑之中，同时白宫记者协会晚宴枪击案也导致安全担忧重燃。 查尔斯及妻子卡米拉周一开启为期四天的访问，特朗普和第一夫人梅拉尼娅·特朗普迎接了他们。这是查尔斯自2022年登基以来首次对美国进行国事访问。两对夫妇在白宫南门廊握手并合影，然后进入白宫。 这项筹划已久的活动旨在纪念美国
 
 ## 正文
 
-中新网北京6月2日电 题：陈映玲：在“时光的残忍”里，守住一声“奴啊” 中新网记者 徐文欣 “很多人老了以后，那种对故乡的思念和对时光流逝的无力感，会变得特别强烈。
+美国总统唐纳德·特朗普在白宫欢迎来访的英国国王查尔斯三世。
 
-看着他们，我很心疼，所以想把他们的故事记录下来。
+此次访问笼罩在对英美所谓“特殊关系”未来走向的疑虑之中，同时白宫记者协会晚宴枪击案也导致安全担忧重燃。
 
-”短视频账号“泰国V姐”创作者陈映玲日前接受中国侨网“华人故事”栏目专访时说道。
+查尔斯及妻子卡米拉周一开启为期四天的访问，特朗普和第一夫人梅拉尼娅·特朗普迎接了他们。
 
-无心插柳，做时光的记录者 陈映玲的父母早年定居泰国，她自幼在泰中两国间往返生活、读书，从小耳濡目染侨社事务。
+这是查尔斯自2022年登基以来首次对美国进行国事访问。
 
-如今她也担任泰国中华总商会会董、泰国华商中心执行主任等侨社职务。
+两对夫妇在白宫南门廊握手并合影，然后进入白宫。
 
-三年前，陈映玲开始拍摄短视频，记录身边的故事。
+这项筹划已久的活动旨在纪念美国脱离英国独立250周年，但鉴于特朗普最近与英国首相基尔·斯塔默围绕伊朗冲突发生的争执，此行背负着更加紧迫的外交使命。
 
-谈及初心，她说，看到一些老前辈身体越来越差，心里很不是滋味。
+尽管周六白宫记者协会在华盛顿举行的晚宴现场附近发生枪击事件，英方仍决定按计划进行访问。
 
-再不记录下来，他们的故事可能就再也听不到了。
+特朗普周日表示，查尔斯将“非常安全”。
 
 ## 相关推荐
 
-- 2026-06-29 15:17 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 15:31 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 15:14 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-29 15:30 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-29 15:31 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 15:19 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 15:32 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 15:17 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 15:27 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 15:06 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 15:08 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 15:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
+- 2026-06-29 15:41 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 15:34 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 15:33 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-29 15:21 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 15:34 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 15:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 15:37 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 15:28 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 15:28 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 15:34 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 15:27 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/51120.shtml)
-- 2026-06-29 15:14 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/623151649016.shtml)
-- 2026-06-29 15:20 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/56479076723.shtml)
-- 2026-06-29 15:28 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/039529.shtml)
-- 2026-06-29 15:26 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/374020.shtml)
-- 2026-06-29 15:12 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/7955432.shtml)
-- 2026-06-29 15:22 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/198425562.shtml)
-- 2026-06-29 15:13 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/6768044.shtml)
-- 2026-06-29 15:14 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/9723332.shtml)
-- 2026-06-29 15:31 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/72194265116.shtml)
-- 2026-06-29 15:34 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/162323610063.shtml)
-- 2026-06-29 15:18 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/6953084.shtml)
-- 2026-06-29 15:34 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/26328705.shtml)
-- 2026-06-29 15:08 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/83188535.shtml)
-- 2026-06-29 15:30 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/79446155097.shtml)
+- 2026-06-29 15:35 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/9079019819.shtml)
+- 2026-06-29 15:23 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/056683565657.shtml)
+- 2026-06-29 15:15 - [天道](http://www.blog.minike.top/Article/details/8192034.shtml)
+- 2026-06-29 15:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/546486234.shtml)
+- 2026-06-29 15:12 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/6930351.shtml)
+- 2026-06-29 15:21 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/409709.shtml)
+- 2026-06-29 15:16 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/463958.shtml)
+- 2026-06-29 15:38 - [行程万里不忘初心](https://www.share.minike.top/Article/details/87934440.shtml)
+- 2026-06-29 15:27 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/62025014.shtml)
+- 2026-06-29 15:35 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/40214135431.shtml)
+- 2026-06-29 15:33 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/4670618112.shtml)
+- 2026-06-29 15:27 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/085110680.shtml)
+- 2026-06-29 15:38 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/828535897842.shtml)
+- 2026-06-29 15:27 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/304782597774.shtml)
+- 2026-06-29 15:40 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/64652.shtml)

@@ -1,57 +1,59 @@
-# 阅文战略投资艺画开天28.22%股权 代价约为4亿元
+# 蒋某某故意杀人、强奸案一审宣判
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日晚间消息，阅文集团（以下简称“阅文”）发布关联交易公告。公告显示，阅文将战略投资艺画开天28.22%股权，代价约为人民币4亿元。公告发布日，阅文持有艺画开天约31.48%股权，本次股权转让完成后持股比例将增至59.7%。 资料显示，艺画开天成立于2015年，主要从事动画及游戏内容的开发及运营，持有核
+新华社昆明4月28日电 4月28日，云南省曲靖市中级人民法院一审公开宣判被告人蒋某某故意杀人、强奸一案，以故意杀人罪、强奸罪判处蒋某某无期徒刑，剥夺政治权利终身。 经审理查明，被告人蒋某某(时年14岁)与被害人方某某(殁年15岁)系同学。2025年7月6日晚至7日凌晨，蒋某某采用暴力手段企图对方某某实施奸淫，后恐罪行败露用双手掐住方某某颈部致其死亡。 曲靖市中级人民法院认为，被
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新华社昆明4月28日电 4月28日，云南省曲靖市中级人民法院一审公开宣判被告人蒋某某故意杀人、强奸一案，以故意杀人罪、强奸罪判处蒋某某无期徒刑，剥夺政治权利终身。
 
-6月2日晚间消息，阅文集团（以下简称“阅文”）发布关联交易公告。
+经审理查明，被告人蒋某某(时年14岁)与被害人方某某(殁年15岁)系同学。
 
-公告显示，阅文将战略投资艺画开天28.22%股权，代价约为人民币4亿元。
+2025年7月6日晚至7日凌晨，蒋某某采用暴力手段企图对方某某实施奸淫，后恐罪行败露用双手掐住方某某颈部致其死亡。
 
-公告发布日，阅文持有艺画开天约31.48%股权，本次股权转让完成后持股比例将增至59.7%。
+曲靖市中级人民法院认为，被告人蒋某某的行为分别构成强奸罪、故意杀人罪，依法应数罪并罚。
 
-资料显示，艺画开天成立于2015年，主要从事动画及游戏内容的开发及运营，持有核心IP“灵笼”。
+蒋某某犯罪情节特别恶劣，后果严重，应依法严惩。
 
-“灵笼”系列最初作为一个动画系列剧集推出，首季于2019年播出，凭借极致的画面质感、深刻的剧情内核，成为国创科幻动画标杆，全平台累计播放量超100亿次。
+蒋某某犯罪时不满十八周岁，依法不适用死刑。
 
-公告披露，艺画开天与阅文之间的战略协同体现在双方IP价值链中的垂直互补能力。
+根据其犯罪事实、性质、情节和对社会的危害程度，遂作出上述判决。
 
-作为国内领先的IP孵化平台，阅文拥有海量优质网文IP及成熟的IP运营经验，IP产业链布局覆盖网络文学、漫画、动画、电视剧、网剧、电影、网络游戏、短剧、AI漫画及IP衍生品等多种形式。
+被害人家属，部分人大代表、政协委员，新闻媒体记者旁听了宣判。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 15:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-29 15:21 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-29 15:28 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 15:17 - [AG 宫斗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 15:17 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 15:12 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-29 15:22 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 15:35 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 15:09 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 15:07 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 15:18 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 15:35 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 15:18 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 15:29 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-29 15:12 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 15:35 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 15:23 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 15:26 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 15:32 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 15:18 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 15:14 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 15:18 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 15:39 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/434964210974.shtml)
-- 2026-06-29 15:35 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/83214.shtml)
-- 2026-06-29 15:26 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/001374349485.shtml)
-- 2026-06-29 15:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/949134152056.shtml)
-- 2026-06-29 15:30 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/324404404297.shtml)
-- 2026-06-29 15:16 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/5979744101.shtml)
-- 2026-06-29 15:25 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/2096745700.shtml)
-- 2026-06-29 15:12 - [当我回母校教书](https://www.share.minike.top/Article/details/194232.shtml)
-- 2026-06-29 15:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/425489748.shtml)
-- 2026-06-29 15:24 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/1123427.shtml)
-- 2026-06-29 15:22 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/91908085560.shtml)
-- 2026-06-29 15:13 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.minike.top/Article/details/40554784832.shtml)
-- 2026-06-29 15:11 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/69958744.shtml)
-- 2026-06-29 15:33 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/092365971413.shtml)
-- 2026-06-29 15:14 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/72694.shtml)
+- 2026-06-29 15:12 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/7743097.shtml)
+- 2026-06-29 15:13 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/252860.shtml)
+- 2026-06-29 15:19 - [做完数学题 韩国队回家了](http://www.blog.kurohicncr.top/Article/details/29904890.shtml)
+- 2026-06-29 15:18 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/023174492.shtml)
+- 2026-06-29 15:18 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/395592.shtml)
+- 2026-06-29 15:36 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/3947375183.shtml)
+- 2026-06-29 15:39 - [王楚钦 表演球擦网](http://www.blog.kurohicncr.top/Article/details/8790865941.shtml)
+- 2026-06-29 15:24 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/640446734.shtml)
+- 2026-06-29 15:12 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/815663646.shtml)
+- 2026-06-29 15:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/8341502251.shtml)
+- 2026-06-29 15:19 - [未来5年全国能源体系将呈现这些特征](http://www.blog.kurohicncr.top/Article/details/629910.shtml)
+- 2026-06-29 15:32 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/114173855284.shtml)
+- 2026-06-29 15:25 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/386060210111.shtml)
+- 2026-06-29 15:25 - [7款商保创新药“转道”](http://www.share.kurohicncr.top/Article/details/075560378445.shtml)
+- 2026-06-29 15:35 - [为何说今日日本似战前日本](http://www.blog.kurohicncr.top/Article/details/913275706.shtml)

@@ -1,55 +1,60 @@
-# 广东珠海：青茂口岸学童快捷查验专道启用三载 惠及240 万人次
+# 白宫：特朗普与高级幕僚讨论伊朗提出的霍尔木兹海峡提议
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 19:54 来源：中国新闻网 6月1日，珠海青茂口岸全国首批跨境学童合作快捷查验专道迎来了启用三周年。三年间，该项举措累计惠及跨境学童约240万人次。 据介绍，青茂口岸是粤港澳大湾区互联互通的重要枢纽，位于珠海拱北片区，与澳门青洲片区紧密相连，周围聚集了十余所澳门中小学及幼儿园。口岸开通以来，凭借良好的通关环境和便捷的通关模式，该口岸逐渐成为珠
+白宫新闻秘书卡罗琳·莱维特周一证实，美国总统特朗普及其国家安全团队当天上午讨论了伊朗提出的一项提议：若美国解除封锁并结束战争，伊朗将重新开放霍尔木兹海峡。据报道，该提议将有关伊朗核计划的谈判推迟至日后进行。 莱维特在周一下午的新闻发布会上表示：“我确认总统今天上午已与国家安全团队会面。会议可能仍在进行，但该提议正在被讨论。”她强调，特朗普在伊朗问题上的红线已向美国公众和团队明确
 
 ## 正文
 
-发布时间：2026年06月02日 19:54 来源：中国新闻网 6月1日，珠海青茂口岸全国首批跨境学童合作快捷查验专道迎来了启用三周年。
+白宫新闻秘书卡罗琳·莱维特周一证实，美国总统特朗普及其国家安全团队当天上午讨论了伊朗提出的一项提议：若美国解除封锁并结束战争，伊朗将重新开放霍尔木兹海峡。
 
-三年间，该项举措累计惠及跨境学童约240万人次。
+据报道，该提议将有关伊朗核计划的谈判推迟至日后进行。
 
-据介绍，青茂口岸是粤港澳大湾区互联互通的重要枢纽，位于珠海拱北片区，与澳门青洲片区紧密相连，周围聚集了十余所澳门中小学及幼儿园。
+莱维特在周一下午的新闻发布会上表示：“我确认总统今天上午已与国家安全团队会面。
 
-口岸开通以来，凭借良好的通关环境和便捷的通关模式，该口岸逐渐成为珠澳跨境学童求学的“热门通道”。
+会议可能仍在进行，但该提议正在被讨论。
 
-目前，该口岸每日跨境学童通行量达到约5000人次。
+”她强调，特朗普在伊朗问题上的红线已向美国公众和团队明确传达。
 
-记者 邓媛雯 韦杰夫 广东报道 责任编辑：【叶攀】
+但她迅速补充说，她并非表示特朗普及其团队正在“考虑”该提议，并称总统可能会在不久后直接谈论此事。
+
+然而，国务卿马可·鲁比奥在周一早些时候的新闻采访中对伊朗的任何提议泼了冷水。
+
+当被问及特朗普称伊朗发来了一份“好得多”的提议时，鲁比奥表示：“他们所说的开放海峡的意思是，‘是的，海峡是开放的，只要你与伊朗协调、获得我们的许可，否则我们就炸毁你并向你收费’。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 15:25 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 15:06 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 15:22 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 15:26 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-29 15:08 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 15:29 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 15:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 15:19 - [于小华病逝 曾给小龙女和冯程程配音](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
-- 2026-06-29 15:32 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 15:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 15:33 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 15:23 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-29 15:40 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 15:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 15:16 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 15:15 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 15:37 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 15:16 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 15:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 15:19 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 15:23 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 15:26 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-29 15:34 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 15:22 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 15:18 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-29 15:24 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/8308678.shtml)
-- 2026-06-29 15:21 - [A股收评：科创50指数大涨4.61%](http://www.share.kurohicncr.top/Article/details/279095.shtml)
-- 2026-06-29 15:26 - [把古诗里的动作换成加班](http://www.share.kurohicncr.top/Article/details/2070197.shtml)
-- 2026-06-29 15:28 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/57729966703.shtml)
-- 2026-06-29 15:18 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/4111645.shtml)
-- 2026-06-29 15:07 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/4170957.shtml)
-- 2026-06-29 15:10 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/86602490155.shtml)
-- 2026-06-29 15:21 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/24504.shtml)
-- 2026-06-29 15:29 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/372740006539.shtml)
-- 2026-06-29 15:12 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/12188.shtml)
-- 2026-06-29 15:28 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/6242158929.shtml)
-- 2026-06-29 15:20 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/0955380.shtml)
-- 2026-06-29 15:33 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/23181875.shtml)
-- 2026-06-29 15:15 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/182934819602.shtml)
-- 2026-06-29 15:30 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/365706722.shtml)
+- 2026-06-29 15:30 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/5472973.shtml)
+- 2026-06-29 15:24 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/139125.shtml)
+- 2026-06-29 15:28 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.blog.kurohicncr.top/Article/details/52473.shtml)
+- 2026-06-29 15:38 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/75510441743.shtml)
+- 2026-06-29 15:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/8875891.shtml)
+- 2026-06-29 15:42 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/954034392.shtml)
+- 2026-06-29 15:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/7502560.shtml)
+- 2026-06-29 15:29 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/371873732.shtml)
+- 2026-06-29 15:27 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.minike.top/Article/details/7689637.shtml)
+- 2026-06-29 15:31 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/22536.shtml)
+- 2026-06-29 15:30 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/67550.shtml)
+- 2026-06-29 15:16 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/079711766.shtml)
+- 2026-06-29 15:29 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/9915867070.shtml)
+- 2026-06-29 15:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/89223.shtml)
+- 2026-06-29 15:33 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.kurohicncr.top/Article/details/81550.shtml)

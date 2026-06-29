@@ -1,60 +1,56 @@
-# 报告：北京位列全球数字旅游引领型城市榜首
+# 进军即饮咖啡赛道，瑞幸即享咖啡推出门店爆款风味瓶装咖啡
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新社北京6月2日电 (记者 徐婧 陈杭)2026世界旅游城市联合会北京香山旅游峰会2日开幕。会上发布的《2026世界旅游目的地数智竞争力报告》(简称“报告”)显示，北京位列全球数字旅游引领型城市榜单第一。 报告由世界旅游城市联合会、亚太旅游协会联合编制，立足数字化、人工智能发展视角，对全球重点旅游城市开展系统性综合评估，发布全球数字旅游引领型城市榜单。其中，北京位列榜首，新加
+“瑞一杯”之外，“瑞一瓶”终于来了，4月28日，瑞幸即享咖啡正式推出全新瓶装即饮咖啡，同步官宣王一博为瑞幸即享咖啡全球品牌代言人。首批上市生椰拿铁、经典美式、柚 C美式三款口味，陆续上架全国各地商超及便利店，零售价约6-7元。此次瓶装咖啡上市与一线明星代言双重布局，标志着瑞幸“全品类、多元化、全场景”战略实现关键性跨越，同时将门店现制饮品的品质优势延伸至零售领域。 瑞幸即享咖啡
 
 ## 正文
 
-中新社北京6月2日电 (记者 徐婧 陈杭)2026世界旅游城市联合会北京香山旅游峰会2日开幕。
+“瑞一杯”之外，“瑞一瓶”终于来了，4月28日，瑞幸即享咖啡正式推出全新瓶装即饮咖啡，同步官宣王一博为瑞幸即享咖啡全球品牌代言人。
 
-会上发布的《2026世界旅游目的地数智竞争力报告》(简称“报告”)显示，北京位列全球数字旅游引领型城市榜单第一。
+首批上市生椰拿铁、经典美式、柚 C美式三款口味，陆续上架全国各地商超及便利店，零售价约6-7元。
 
-报告由世界旅游城市联合会、亚太旅游协会联合编制，立足数字化、人工智能发展视角，对全球重点旅游城市开展系统性综合评估，发布全球数字旅游引领型城市榜单。
+此次瓶装咖啡上市与一线明星代言双重布局，标志着瑞幸“全品类、多元化、全场景”战略实现关键性跨越，同时将门店现制饮品的品质优势延伸至零售领域。
 
-其中，北京位列榜首，新加坡(新加坡)、首尔(韩国)分别位列第二和第三。
+瑞幸即享咖啡首批上市的瓶装即饮咖啡，源自瑞幸门店已被亿万消费者验证的爆款口味，每瓶规格300mL，依托成熟的产品研发体系与无菌冷灌生产工艺，有效保障风味稳定与饮用品质。
 
-当前，数智科技与文旅产业融合步伐持续加快，如何顺应数字化转型浪潮、抢占未来旅游发展先机，成为全球旅游业界共同关注的核心命题。
+在配方上，瑞幸即享咖啡将“健康与专业”贯彻到底，生椰拿铁选用100%冷压榨椰肉汁调配，采用低糖配方，好喝低负担；柚C美式添加真实红西柚汁，清爽柚香与100%阿拉比卡咖啡完美融合，口感层次丰富；经典美式坚守0糖0脂配方，还原纯粹黑咖风味，满足不同消费者的口味偏好与健康需求。
 
-本届峰会以“数智引领未来旅游”为主题，来自56个国家和地区的代表参会。
+为覆盖多元生活场景，践行“随时随地，即享好咖啡”的品牌理念，瑞幸即享咖啡搭建起“线上+线下”销售渠道矩阵，提升全场景消费便捷度。
 
-峰会提出“未来旅游”理念，契合数字经济与文旅深度融合趋势，为全球旅游城市数智化转型凝聚行业共识。
+线上端，瑞幸即享咖啡布局天猫、京东、抖音、拼多多等主流电商平台，同步打通瑞幸官方APP、小程序等自有渠道；在线下，三款产品将广泛进驻大型商超及连锁便利店，并同步拓展即时零售平台、量贩零食连锁系统，以及交通出行、校园等消费场景，渗透消费者日常生活圈，真正实现“随时随地来一瓶”的咖啡消费体验。
 
-开幕式上，秘鲁马丘比丘市市长埃尔维斯·拉托雷·乌尼亚科里表示，旅游业是撬动经济、社会、文化协同发展的重要动力，不仅能够释放经济发展活力，更搭建起北京与秘鲁马丘比丘民众往来互通的纽带，持续推动两地文明交流互鉴。
+值得称道的是，瑞幸即享瓶装咖啡力图以门店现制咖啡的口味标准打造。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 15:09 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-29 15:15 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-29 15:16 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 15:34 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 15:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 15:20 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-29 15:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-29 15:26 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 15:26 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 15:24 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 15:22 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 15:22 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 15:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 15:25 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 15:16 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 15:36 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-29 15:24 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 15:16 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 15:42 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 15:32 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-29 15:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 15:33 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 15:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/391528483967.shtml)
-- 2026-06-29 15:28 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/649624.shtml)
-- 2026-06-29 15:26 - [金刚川](https://www.share.minike.top/Article/details/680663107.shtml)
-- 2026-06-29 15:33 - [崔韩率还以为韩娱来新人了](http://www.share.kurohicncr.top/Article/details/89702530416.shtml)
-- 2026-06-29 15:06 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/7064305.shtml)
-- 2026-06-29 15:15 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/087696636066.shtml)
-- 2026-06-29 15:24 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/849674868.shtml)
-- 2026-06-29 15:35 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/30842.shtml)
-- 2026-06-29 15:29 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/1125630229.shtml)
-- 2026-06-29 15:18 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/55438.shtml)
-- 2026-06-29 15:31 - [一生一世](https://www.share.minike.top/Article/details/9541642634.shtml)
-- 2026-06-29 15:35 - [F1奥地利正赛战报](http://www.blog.kurohicncr.top/Article/details/7659800.shtml)
-- 2026-06-29 15:31 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/77035806.shtml)
-- 2026-06-29 15:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/2305004263.shtml)
-- 2026-06-29 15:23 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.kurohicncr.top/Article/details/895261579300.shtml)
+- 2026-06-29 15:25 - [新能源车能当外接空调用吗](https://www.blog.kurohicncr.top/Article/details/63689.shtml)
+- 2026-06-29 15:38 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/26299563386.shtml)
+- 2026-06-29 15:31 - [本届世界杯已有5名球员卷入性侵风波](http://www.blog.kurohicncr.top/Article/details/074451093.shtml)
+- 2026-06-29 15:32 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/02231923935.shtml)
+- 2026-06-29 15:32 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.kurohicncr.top/Article/details/5567961901.shtml)
+- 2026-06-29 15:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/090367.shtml)
+- 2026-06-29 15:41 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/3157657126.shtml)
+- 2026-06-29 15:13 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.kurohicncr.top/Article/details/1325201.shtml)
+- 2026-06-29 15:25 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/48790.shtml)
+- 2026-06-29 15:35 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/10456528007.shtml)
+- 2026-06-29 15:25 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/9492323573.shtml)
+- 2026-06-29 15:19 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.minike.top/Article/details/04229192.shtml)
+- 2026-06-29 15:40 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/57843092323.shtml)
+- 2026-06-29 15:15 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/67862160.shtml)
+- 2026-06-29 15:22 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/7182580989.shtml)

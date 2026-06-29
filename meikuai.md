@@ -1,46 +1,46 @@
-# 万东医疗：2026年5 月，公司未实施股份回购
+# 俄国防部：俄多地遭无人机袭击
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-证券日报网讯6月1日，万东医疗发布公告称，2026年5月，公司未实施股份回购。
+俄罗斯国防部26日早发布通报说，莫斯科时间25日晚至26日早晨，俄防空系统在别尔哥罗德州、布良斯克州、莫斯科州、罗斯托夫州、梁赞州等地拦截并摧毁了乌克兰固定翼无人机。 (央视新闻客户端 总台记者 程谟)
 
 ## 正文
 
-证券日报网讯6月1日，万东医疗发布公告称，2026年5月，公司未实施股份回购。
+俄罗斯国防部26日早发布通报说，莫斯科时间25日晚至26日早晨，俄防空系统在别尔哥罗德州、布良斯克州、莫斯科州、罗斯托夫州、梁赞州等地拦截并摧毁了乌克兰固定翼无人机。
+
+(央视新闻客户端 总台记者 程谟)
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
-- 2026-06-29 15:22 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 15:14 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqejz.md)
-- 2026-06-29 15:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 15:10 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 15:33 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 15:31 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 15:16 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 15:26 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 15:31 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 15:19 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 15:19 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 15:12 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-29 15:31 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 15:39 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 15:37 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 15:34 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
+- 2026-06-29 15:23 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-29 15:31 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 15:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 15:26 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 15:13 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 15:24 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
+- 2026-06-29 15:40 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 15:17 - [7款商保创新药“转道”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:26 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/639694219593.shtml)
-- 2026-06-29 15:14 - [毒液2](https://www.share.kurohicncr.top/Article/details/0745613903.shtml)
-- 2026-06-29 15:31 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/95509.shtml)
-- 2026-06-29 15:13 - [千与千寻](https://www.share.minike.top/Article/details/32641202.shtml)
-- 2026-06-29 15:07 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/4494319385.shtml)
-- 2026-06-29 15:35 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/53089308.shtml)
-- 2026-06-29 15:22 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/487708.shtml)
-- 2026-06-29 15:19 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/39099091.shtml)
-- 2026-06-29 15:31 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/6227413011.shtml)
-- 2026-06-29 15:11 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/73420601449.shtml)
-- 2026-06-29 15:11 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/63913618.shtml)
-- 2026-06-29 15:26 - [医院大厅放钢琴是形式主义吗](https://www.share.minike.top/Article/details/19987161.shtml)
-- 2026-06-29 15:27 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/25936877.shtml)
-- 2026-06-29 15:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/095757.shtml)
-- 2026-06-29 15:22 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/9200790356.shtml)
+- 2026-06-29 15:14 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/3952160.shtml)
+- 2026-06-29 15:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/3475411238.shtml)
+- 2026-06-29 15:38 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/646678856254.shtml)
+- 2026-06-29 15:21 - [BB大王横店拍戏](https://www.blog.kurohicncr.top/Article/details/55804572.shtml)
+- 2026-06-29 15:26 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.minike.top/Article/details/9215335892.shtml)
+- 2026-06-29 15:33 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.kurohicncr.top/Article/details/380115.shtml)
+- 2026-06-29 15:25 - [医院大厅放钢琴是形式主义吗](http://www.share.minike.top/Article/details/433102258.shtml)
+- 2026-06-29 15:28 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/4896289766.shtml)
+- 2026-06-29 15:27 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/7664939118.shtml)
+- 2026-06-29 15:33 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/03219901714.shtml)
+- 2026-06-29 15:36 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/461214802346.shtml)
+- 2026-06-29 15:23 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/194699192112.shtml)
+- 2026-06-29 15:22 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/748513551.shtml)
+- 2026-06-29 15:32 - [韩剧编剧又升级了](https://www.blog.minike.top/Article/details/960285.shtml)
+- 2026-06-29 15:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.kurohicncr.top/Article/details/4019196.shtml)

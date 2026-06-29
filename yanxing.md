@@ -1,57 +1,56 @@
-# 原油价格延续涨势 美伊和平谈判进展停滞且地区冲突再起
+# 上海银行行长：今年净息差可能还会小幅收窄，幅度应该好于市场平均水平
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-油价连续第三天上涨，投资者对美国和伊朗达成和平协议的前景感到悲观，并且中东地区再次出现新的冲突。 布伦特油价升向每桶97美元；WTI原油期货在95美元附近波动，本周前两个交易日上涨超过7%。以色列继续袭击黎巴嫩，令华盛顿和德黑兰之间脆弱的马拉松式谈判受到影响，与此同时，伊朗向周边国家发射了导弹。 以色列和黎巴嫩之间的又一轮会谈定于周三举行。美国总统唐纳德·特朗普说，他仍然乐观认
+4月27日，上海银行行长兼首席财务官、首席合规官施红敏在该行2025年度暨2026年一季度业绩说明会上展望2026年业绩时表示，营业收入总体上会保持相对增长态势，总资产将保持相对稳健的增长，其中在重点区域、重点客群和重点产品方面的业务增长会相对更快些。 对于市场高度关注的净利润，他指出短期内会存在一定扰动，但从长期来看，向好的态势不会发生变化。 2025年上海银行实现营业收入5
 
 ## 正文
 
-油价连续第三天上涨，投资者对美国和伊朗达成和平协议的前景感到悲观，并且中东地区再次出现新的冲突。
+4月27日，上海银行行长兼首席财务官、首席合规官施红敏在该行2025年度暨2026年一季度业绩说明会上展望2026年业绩时表示，营业收入总体上会保持相对增长态势，总资产将保持相对稳健的增长，其中在重点区域、重点客群和重点产品方面的业务增长会相对更快些。
 
-布伦特油价升向每桶97美元；WTI原油期货在95美元附近波动，本周前两个交易日上涨超过7%。
+对于市场高度关注的净利润，他指出短期内会存在一定扰动，但从长期来看，向好的态势不会发生变化。
 
-以色列继续袭击黎巴嫩，令华盛顿和德黑兰之间脆弱的马拉松式谈判受到影响，与此同时，伊朗向周边国家发射了导弹。
+2025年上海银行实现营业收入547.61亿元，同比增长3.35%；实现归属于母公司股东的净利润241.93亿元，同比增长2.69%。
 
-以色列和黎巴嫩之间的又一轮会谈定于周三举行。
+今年一季度实现营业收入141.75亿元，同比增长4.25%，实现归属于母公司股东的净利润63.34亿元，同比增长0.66%。
 
-美国总统唐纳德·特朗普说，他仍然乐观认为美国可以很快与德黑兰达成临时和平协议，驳斥了伊朗国家媒体关于因黎巴嫩战事而暂停与华盛顿谈判的报道。
+截至2025年末，上海银行不良贷款率1.18%，与上年末持平。
 
-“美国和伊朗之间的分歧表明，要达成恢复通航的协议都还有很长的路要走，”ING集团新加坡大宗商品策略主管Warren Patterson表示。
+在展望资产质量时，施红敏表示，在后续的管理过程中，受到外部宏观环境的变化、监管政策的调整以及房地产等特定市场因素的影响，会有一些波动，这些风险仍然存在。
 
-“风险偏向上行，尤其是在我们即将进入第三季度之际，因为第三季度通常是需求旺季。
+该行将一户一策，进一步细化管控措施，最大程度地降低影响。
 
-” 与此同时，中东地区的冲突再现。
+总的来看，资产质量长期稳定的趋势应该是不会改变的。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 15:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 15:06 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 15:30 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
-- 2026-06-29 15:25 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 15:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 15:09 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 15:08 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 15:17 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 15:19 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 15:23 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 15:34 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-29 15:39 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 15:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 15:27 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-29 15:18 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 15:17 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 15:15 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 15:24 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
+- 2026-06-29 15:33 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 15:12 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:32 - [美的空调 卡bug](https://www.share.minike.top/Article/details/0105157753.shtml)
-- 2026-06-29 15:30 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/030361720.shtml)
-- 2026-06-29 15:15 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.minike.top/Article/details/70794822.shtml)
-- 2026-06-29 15:06 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/401362507255.shtml)
-- 2026-06-29 15:35 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/196012553269.shtml)
-- 2026-06-29 15:13 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/15993313.shtml)
-- 2026-06-29 15:35 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/37839.shtml)
-- 2026-06-29 15:21 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/03857533587.shtml)
-- 2026-06-29 15:34 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/2830261435.shtml)
-- 2026-06-29 15:25 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/98183780.shtml)
-- 2026-06-29 15:12 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/521712.shtml)
-- 2026-06-29 15:35 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/349946892158.shtml)
-- 2026-06-29 15:32 - [毒液2](https://www.share.kurohicncr.top/Article/details/7435166177.shtml)
-- 2026-06-29 15:19 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/81633759504.shtml)
-- 2026-06-29 15:34 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/367817.shtml)
+- 2026-06-29 15:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/429319816992.shtml)
+- 2026-06-29 15:20 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/935847869504.shtml)
+- 2026-06-29 15:13 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/972754384.shtml)
+- 2026-06-29 15:32 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/9559360.shtml)
+- 2026-06-29 15:33 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/200425080.shtml)
+- 2026-06-29 15:32 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/52736.shtml)
+- 2026-06-29 15:33 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/8036796.shtml)
+- 2026-06-29 15:12 - [韩国国脚无缘上亿韩元奖金](https://www.blog.minike.top/Article/details/9338593294.shtml)
+- 2026-06-29 15:17 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.minike.top/Article/details/6552455.shtml)
+- 2026-06-29 15:14 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/8290672.shtml)
+- 2026-06-29 15:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/77733.shtml)
+- 2026-06-29 15:28 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/2319468761.shtml)
+- 2026-06-29 15:37 - [赵露思爸爸拍vlog翻车了](http://www.share.minike.top/Article/details/80002509198.shtml)
+- 2026-06-29 15:36 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/61834347.shtml)
+- 2026-06-29 15:31 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/446126.shtml)

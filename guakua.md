@@ -1,61 +1,59 @@
-# 美元兑日元兵临160城下！5月反弹超1.5%，非农数据或成“胜负手”
+# “上海论坛2026”年会开幕
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——周二（6月2日）亚洲时段，美元兑日元交投于159.70附近，守住隔夜涨幅，距离160心理关口仅一步之遥。 汇价自5月初低点附近反弹以来，已累计上涨超1.5%。 能源冲击：日本受损更重，美国受益支撑美元 虽然没有人知道海湾停火何时才能真正落实、能源供应才能自由通过霍尔木兹海峡，但持续的不确定性暴露了日本的一个重大脆弱性。日本约90%的石油依赖从中东进口，即使油
+专题：上海论坛2026 （通讯员 汪蒙琪 李怡洁 杨于琛 黄晨） 4月24日上午，“上海论坛2026”在上海世界会客厅开幕。本届论坛为期三天，以“重构的时代：创新与共治”为主题，来自全球50多个国家和地区的智库、高校、政府、企业、媒体等机构的近400名与会者围绕人工智能治理、绿色转型、全球南方发展等议题展开对话交流，为推动包容、可持续的全球发展贡献多元方案。 开幕式上，上海市人
 
 ## 正文
 
-汇通财经APP讯——周二（6月2日）亚洲时段，美元兑日元交投于159.70附近，守住隔夜涨幅，距离160心理关口仅一步之遥。
+专题：上海论坛2026 （通讯员 汪蒙琪 李怡洁 杨于琛 黄晨） 4月24日上午，“上海论坛2026”在上海世界会客厅开幕。
 
-汇价自5月初低点附近反弹以来，已累计上涨超1.5%。
+本届论坛为期三天，以“重构的时代：创新与共治”为主题，来自全球50多个国家和地区的智库、高校、政府、企业、媒体等机构的近400名与会者围绕人工智能治理、绿色转型、全球南方发展等议题展开对话交流，为推动包容、可持续的全球发展贡献多元方案。
 
-能源冲击：日本受损更重，美国受益支撑美元 虽然没有人知道海湾停火何时才能真正落实、能源供应才能自由通过霍尔木兹海峡，但持续的不确定性暴露了日本的一个重大脆弱性。
+开幕式上，上海市人大常委会副主任、上海市人民对外友好协会会长陈靖，复旦大学校长金力，韩国SK集团董事长兼首席执行官崔泰源致辞，复旦大学党委书记裘新主持开幕式。
 
-日本约90%的石油依赖从中东进口，即使油价维持在95美元附近，年度进口账单也将增加数百亿美元。
+博鳌亚洲论坛理事长、联合国第八任秘书长潘基文发表特别演讲。
 
-叠加日元贬值的影响，日本正面临“高油价+弱日元”的双重挤压，4月实际工资已连续第13个月下降。
+美国前助理国务卿、斯坦福大学弗里曼·斯伯格利国际研究所研究员冯稼时（Thomas Fingar），稀宇科技（MiniMax）副总裁、资本市场负责人薛子钊，马克斯-普朗克气象研究所所长、美国地球物理联合会会士比约恩·史蒂文斯（Bjorn Stevens），复旦大学技术创新战略研究中心教授、华为技术有限公司前常务董事徐文伟发表主旨演讲，韩国崔钟贤学术院院长金裕锡主持主旨演讲。
 
-作为重要的能源净进口国，能源价格上涨威胁到日本的贸易条件和经常账户状况，对日元构成逆风。
+西班牙IE大学政治经济与全球事务学院院长、意大利前总理恩里克·莱塔（Enrico Letta），联合国环境规划署数字办公室司长萨里·拉德万（Golestan Sally Radwan），韩国前驻联合国大使金塾，SK中国董事长朴成泽、联席总裁崔东昱，国际关系学院院长胡继平，上海市友协副会长傅继红，复旦大学副校长陈志敏等出席开幕式。
 
-而美国则面临相反的驱动力——美国是全球最大的石油生产国，高油价改善其能源企业盈利和贸易条件，这有助于支撑美元。
+创新与共治：于不确定性中寻找创新锚点 潘基文指出，我们正生活在一个深刻的全球重构时代：单边主义抬头，保护主义加剧，信任不断侵蚀，气候变化也在加速。
 
-再加上持续的美国经济例外主义——部分由AI基础设施的持续建设所推动——这构成了美元兑日元上行的强劲组合。
+与此同时，人工智能和生物技术带来希望，但也带来了深刻的不确定性。
 
 ## 相关推荐
 
-- 2026-06-29 15:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 15:23 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-29 15:15 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 15:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 15:25 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 15:21 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 15:12 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 15:27 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 15:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-29 15:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 15:14 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 15:13 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-29 15:15 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 15:26 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 15:30 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 15:41 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 15:19 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 15:40 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 15:19 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 15:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 15:21 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 15:27 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 15:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 15:25 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
+- 2026-06-29 15:28 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 15:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
+- 2026-06-29 15:25 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 15:23 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.kurohicncr.top/Article/details/779389.shtml)
-- 2026-06-29 15:14 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/590521586968.shtml)
-- 2026-06-29 15:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/001321957.shtml)
-- 2026-06-29 15:25 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/2863537.shtml)
-- 2026-06-29 15:30 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/145787484.shtml)
-- 2026-06-29 15:29 - [赵露思爸爸拍vlog“翻车”](https://www.share.minike.top/Article/details/73962.shtml)
-- 2026-06-29 15:27 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/3749479008.shtml)
-- 2026-06-29 15:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/809443242872.shtml)
-- 2026-06-29 15:20 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/877687.shtml)
-- 2026-06-29 15:15 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/490563317.shtml)
-- 2026-06-29 15:25 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/45863.shtml)
-- 2026-06-29 15:06 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/8326222.shtml)
-- 2026-06-29 15:30 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/84469300.shtml)
-- 2026-06-29 15:22 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/48779796.shtml)
-- 2026-06-29 15:21 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/502701031117.shtml)
+- 2026-06-29 15:38 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/5836890891.shtml)
+- 2026-06-29 15:30 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/719236083.shtml)
+- 2026-06-29 15:14 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/298531.shtml)
+- 2026-06-29 15:29 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/273446881.shtml)
+- 2026-06-29 15:36 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/21691.shtml)
+- 2026-06-29 15:34 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/88041389.shtml)
+- 2026-06-29 15:15 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/39463393.shtml)
+- 2026-06-29 15:39 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/65705697.shtml)
+- 2026-06-29 15:31 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/487260286797.shtml)
+- 2026-06-29 15:32 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/79522381.shtml)
+- 2026-06-29 15:25 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/6946969.shtml)
+- 2026-06-29 15:13 - [一人一句祝党生日快乐](http://www.blog.minike.top/Article/details/19840938.shtml)
+- 2026-06-29 15:33 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/261695.shtml)
+- 2026-06-29 15:35 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/434696624.shtml)
+- 2026-06-29 15:17 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/2575510.shtml)

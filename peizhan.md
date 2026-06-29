@@ -1,46 +1,56 @@
-# 新疆库车：独库公路恢复开通首日车水马龙
+# 谷歌不顾员工反对 与美国国防部签署机密人工智能合作协议
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 22:27 来源：中国新闻网 2026年6月1日，被称为“中国最美公路”之一的独库公路恢复开通。在独库公路库车段，来往车辆川流不息，形成了一条长龙穿梭在天山之间，蔚为壮观。(作者：张镭、李东) 责任编辑：【魏聪聪】
+据知情人士透露，谷歌已与美国国防部达成协议，允许军方在机密项目中使用谷歌人工智能模型。知情人士称，该协议授权国防部将谷歌 AI 技术用于 “任何合法的政府用途”，这一条款此前在其他科技企业与军方的 AI 合作谈判中一直颇具争议。周一，多名谷歌员工联名致信首席执行官桑达尔・皮查伊，强烈要求公司拒绝该项合作。就在协议落地之际，超过 600 名谷歌员工于当日向 CEO 皮查伊递交联名
 
 ## 正文
 
-发布时间：2026年06月01日 22:27 来源：中国新闻网 2026年6月1日，被称为“中国最美公路”之一的独库公路恢复开通。
+据知情人士透露，谷歌已与美国国防部达成协议，允许军方在机密项目中使用谷歌人工智能模型。
 
-在独库公路库车段，来往车辆川流不息，形成了一条长龙穿梭在天山之间，蔚为壮观。
+知情人士称，该协议授权国防部将谷歌 AI 技术用于 “任何合法的政府用途”，这一条款此前在其他科技企业与军方的 AI 合作谈判中一直颇具争议。
 
-(作者：张镭、李东) 责任编辑：【魏聪聪】
+周一，多名谷歌员工联名致信首席执行官桑达尔・皮查伊，强烈要求公司拒绝该项合作。
+
+就在协议落地之际，超过 600 名谷歌员工于当日向 CEO 皮查伊递交联名信，要求否决这份合作。
+
+员工主张，拒绝承接涉密军事业务，是防止谷歌人工智能技术被滥用的唯一途径。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 15:11 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 15:15 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 15:17 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 15:11 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 15:25 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 15:12 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
-- 2026-06-29 15:35 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 15:34 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 15:32 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 15:06 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 15:18 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 15:28 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 15:24 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-29 15:33 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 15:31 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
+- 2026-06-29 15:27 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-29 15:38 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 15:33 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 15:22 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 15:18 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 15:38 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 15:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-29 15:39 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 15:37 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:18 - [沉睡花园](http://www.share.minike.top/Article/details/818594946362.shtml)
-- 2026-06-29 15:27 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/167752660.shtml)
-- 2026-06-29 15:06 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/2867484547.shtml)
-- 2026-06-29 15:25 - [叶一茜森碟一起回北京了](https://www.share.minike.top/Article/details/0329417.shtml)
-- 2026-06-29 15:12 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/27484111816.shtml)
-- 2026-06-29 15:31 - [一见倾心](http://www.share.kurohicncr.top/Article/details/1214396.shtml)
-- 2026-06-29 15:14 - [医院大厅放钢琴是形式主义吗](https://www.share.kurohicncr.top/Article/details/563194976.shtml)
-- 2026-06-29 15:33 - [时光音乐会](http://www.share.minike.top/Article/details/076198.shtml)
-- 2026-06-29 15:29 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/84684711641.shtml)
-- 2026-06-29 15:09 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/03136808.shtml)
-- 2026-06-29 15:34 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/326011.shtml)
-- 2026-06-29 15:11 - [起风了](http://www.blog.minike.top/Article/details/670329940245.shtml)
-- 2026-06-29 15:06 - [美的空调 卡bug](http://www.blog.minike.top/Article/details/636725.shtml)
-- 2026-06-29 15:31 - [T1 vs KC MSI](https://www.share.kurohicncr.top/Article/details/93456.shtml)
-- 2026-06-29 15:30 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.minike.top/Article/details/435506764650.shtml)
+- 2026-06-29 15:22 - [明星大侦探第四季](http://www.share.minike.top/Article/details/2027405227.shtml)
+- 2026-06-29 15:31 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/50930.shtml)
+- 2026-06-29 15:28 - [崔韩率还以为韩娱来新人了](https://www.blog.minike.top/Article/details/752586.shtml)
+- 2026-06-29 15:13 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/53318652017.shtml)
+- 2026-06-29 15:23 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/70401718.shtml)
+- 2026-06-29 15:29 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/22879013796.shtml)
+- 2026-06-29 15:28 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.minike.top/Article/details/920097713306.shtml)
+- 2026-06-29 15:27 - [本届世界杯已有5名球员卷入性侵风波](https://www.share.minike.top/Article/details/8087258174.shtml)
+- 2026-06-29 15:28 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/38536.shtml)
+- 2026-06-29 15:22 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/770029676574.shtml)
+- 2026-06-29 15:30 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/840422.shtml)
+- 2026-06-29 15:38 - [刘烨16岁儿子诺一颜值](https://www.share.kurohicncr.top/Article/details/42964502.shtml)
+- 2026-06-29 15:17 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/7393187.shtml)
+- 2026-06-29 15:35 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/088126650.shtml)
+- 2026-06-29 15:26 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/0947129.shtml)

@@ -1,60 +1,56 @@
-# “十五五”吉林考古转向：从发现历史到解读历史
+# 关注“体验经济”丨看风景到入剧情 大运河“体验经济”升温
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网长春6月2日电 (谭伟旗 阚若桐 金乔)吉林省文物局局长宋薇2日在吉林省政府新闻办举行的新闻发布会上介绍，“十五五”时期，该省将开启从“发现历史”走向“解读历史”、从“学术象牙塔”走向“公众视野”的考古新征程；紧扣“边疆考古”与“吉林特色”，用考古的方式解码吉林大地的万年文脉。 吉林省有种类丰富的文化遗存，是东北亚历史发展的珍贵实物见证。前不久，吉林东部长白山旧石器时代遗
+新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。 这是一个开在博物馆里的“密室
 
 ## 正文
 
-中新网长春6月2日电 (谭伟旗 阚若桐 金乔)吉林省文物局局长宋薇2日在吉林省政府新闻办举行的新闻发布会上介绍，“十五五”时期，该省将开启从“发现历史”走向“解读历史”、从“学术象牙塔”走向“公众视野”的考古新征程；紧扣“边疆考古”与“吉林特色”，用考古的方式解码吉林大地的万年文脉。
+新华社南京4月26日电 题：看风景到入剧情 大运河“体验经济”升温 新华社记者邱冰清 暮春时节，运河三湾风景如画，游客沿运河边步道缓缓而行，岸边垂柳与远处的剪影桥在碧波中映出倒影，风一吹，涟漪荡开一幅水墨画。
 
-吉林省有种类丰富的文化遗存，是东北亚历史发展的珍贵实物见证。
+不远处的扬州中国大运河博物馆内传来阵阵惊叹——一群青少年“穿越”回明朝，化身监水使者，手持一本卷宗，在“大明都水监之运河迷踪”展厅里闯关解密。
 
-前不久，吉林东部长白山旧石器时代遗址群成功获评2025年度全国十大考古新发现。
+这是一个开在博物馆里的“密室逃脱”，孩子们需要根据墙上视频资料选择大运河正确路线，判断适合出行的船只，根据风向决定船帆朝向，用铅块在卷宗上拓印文字、清理淤泥、操作澳闸让船只通行等，每道关卡都藏着运河历史知识。
 
-“我们不会停步。
+“孩子玩了一个多小时，居然能跟我大致讲清古代漕运怎么运作。
 
-”宋薇表示，未来五年，将对长白山脉及周边区域进行地毯式“扫描”，不仅要摸清古人类在东北亚的迁徙路线，更要通过多学科融合，重建古环境与年代框架。
+”陪儿子“闯关”成功的徐州游客陈初感叹道，通过边玩边学，不知不觉就让孩子记住了很多知识点。
 
-“十五五”期间，吉林省将重启帽儿山墓地考古工作，进一步夯实夫余文化的研究基础。
+当剧情成为注意力的锚点，用参与激发情感连接，文化不再是被灌输的知识，而是被亲身经历的记忆。
 
-“我们将重点锁定霸王朝山城遗址、龙岗遗址群。
+改编自茅盾文学奖作品的电视剧《北上》的热播，让运河文化体验从博物馆的展厅“流淌”到更广阔的运河两岸。
 
-就像是在拼一幅千年的拼图：霸王朝的发掘将揭示高句丽早期山城的防御体系与生活面貌，龙岗遗址群的发掘将为高句丽文化起源及形成模式提供学术支撑。
+荧幕里，运河边的船来船往、青石板上的童年记忆、老茶馆里的家长里短，勾勒出一幅充满烟火气的水乡生活画卷。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 15:16 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
-- 2026-06-29 15:21 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 15:18 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 15:26 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
-- 2026-06-29 15:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 15:08 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 15:33 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 15:08 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 15:16 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 15:19 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 15:19 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 15:34 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 15:15 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 15:26 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 15:12 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 15:25 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 15:34 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 15:35 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 15:23 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 15:24 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 15:23 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 15:36 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-29 15:31 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/69207.shtml)
-- 2026-06-29 15:12 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/348525653.shtml)
-- 2026-06-29 15:27 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.kurohicncr.top/Article/details/6130527817.shtml)
-- 2026-06-29 15:18 - [每代父母都困在自己的时代里](http://www.blog.minike.top/Article/details/9475255723.shtml)
-- 2026-06-29 15:22 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/90233891695.shtml)
-- 2026-06-29 15:07 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/377601.shtml)
-- 2026-06-29 15:26 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/39859863.shtml)
-- 2026-06-29 15:35 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/47561954593.shtml)
-- 2026-06-29 15:15 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/453728.shtml)
-- 2026-06-29 15:16 - [T1 vs KC MSI](http://www.blog.kurohicncr.top/Article/details/747049618.shtml)
-- 2026-06-29 15:26 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/643607849882.shtml)
-- 2026-06-29 15:14 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/964160549933.shtml)
-- 2026-06-29 15:09 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/2745931394.shtml)
-- 2026-06-29 15:12 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/30016.shtml)
-- 2026-06-29 15:13 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.kurohicncr.top/Article/details/91281.shtml)
+- 2026-06-29 15:15 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/519353.shtml)
+- 2026-06-29 15:32 - [上海小区惊现鳄鱼](https://www.blog.minike.top/Article/details/8770393133.shtml)
+- 2026-06-29 15:26 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/4721418.shtml)
+- 2026-06-29 15:36 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/52641214660.shtml)
+- 2026-06-29 15:41 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/43434630032.shtml)
+- 2026-06-29 15:29 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/748425343245.shtml)
+- 2026-06-29 15:34 - [森保一坚信日本能赢巴西](http://www.blog.kurohicncr.top/Article/details/630971.shtml)
+- 2026-06-29 15:19 - [东方风云榜](http://www.share.minike.top/Article/details/58057789.shtml)
+- 2026-06-29 15:30 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/6048761.shtml)
+- 2026-06-29 15:19 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/5370268494.shtml)
+- 2026-06-29 15:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/932175411.shtml)
+- 2026-06-29 15:24 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/78152297084.shtml)
+- 2026-06-29 15:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/1489312.shtml)
+- 2026-06-29 15:28 - [小孩曾卓君夺第八个EVO冠军](http://www.share.kurohicncr.top/Article/details/46795297372.shtml)
+- 2026-06-29 15:29 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/811912675445.shtml)

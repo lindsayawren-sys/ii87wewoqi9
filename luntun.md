@@ -1,59 +1,57 @@
-# 高盛：联想集团维持“买入”评级 目标价升至31港元
+# 中央网信办通报33款App个人信息收集使用问题
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-高盛发布研报称，上调联想集团（00992）目标价14.8%，从27港元升至31港元，维持“买入”评级。 高盛对联想2027-2028自然年的每股盈利预测每年增长25%，此前预测为增长24%；经营利润率为3.8%，此前的预测为3.7%。该行预计该公司的基础设施方案业务集团（ISG），AI个人电脑，AI服务器可以驱动公司的重新评级，使其多元化并摆脱竞争激烈的消费性电子市场，并受益于
+中新网4月27日电 据“网信中国”微信公众号消息，根据中央网信办、工业和信息化部、公安部联合发布的《关于开展2026年个人信息保护系列专项行动的公告》，依据《网络安全法》《个人信息保护法》《网络数据安全管理条例》《App违法违规收集使用个人信息行为认定方法》等法律法规和有关规定，中央网信办组织对App(含小程序)收集使用个人信息行为进行检测，现对有关问题予以通报： 一、全能查询
 
 ## 正文
 
-高盛发布研报称，上调联想集团（00992）目标价14.8%，从27港元升至31港元，维持“买入”评级。
+中新网4月27日电 据“网信中国”微信公众号消息，根据中央网信办、工业和信息化部、公安部联合发布的《关于开展2026年个人信息保护系列专项行动的公告》，依据《网络安全法》《个人信息保护法》《网络数据安全管理条例》《App违法违规收集使用个人信息行为认定方法》等法律法规和有关规定，中央网信办组织对App(含小程序)收集使用个人信息行为进行检测，现对有关问题予以通报： 一、全能查询宝、商伴同恒等15款App无个人信息收集使用规则或在首次运行时未通过弹窗等明显方式提示用户阅读个人信息收集使用规则(详见下表)。
 
-高盛对联想2027-2028自然年的每股盈利预测每年增长25%，此前预测为增长24%；经营利润率为3.8%，此前的预测为3.7%。
+二、雅思斩单词、票豆等2款App未逐一列出收集使用个人信息的SDK，未取得用户同意(详见下表)。
 
-该行预计该公司的基础设施方案业务集团（ISG），AI个人电脑，AI服务器可以驱动公司的重新评级，使其多元化并摆脱竞争激烈的消费性电子市场，并受益于生成式AI的发展趋势。
+三、贝利自动点击器、万达普惠等4款App违反必要原则，收集与其提供的服务无关的个人信息(详见下表)。
 
-该行预期联想作为全球领先的PC品牌，将成为AI个人电脑发展趋势的主要受益者。
+四、初念、零零汽等12款App未提供有效账号注销途径或为用户注销账号设置不合理条件(详见下表)。
 
-联想的个人AI代理将推动其在设备、基础设施和软件方面的整体AI解决方案。
+相关App运营者应当于本通报发布之日起的15个工作日内完成整改，并将整改情况报网信办。
 
-联想笔记本电脑在2025自然年的全球市占率为27%，该行预期在2028自然年达到28%。
+网信办将会同有关部门进行核查，并结合整改情况依法依规开展处置处罚。
 
-届时，AI笔记本电脑的渗透率将达到66%，推动其综合平均销售单价在2028年达到1114美元，即2025-2028年期间复合年增长率达到8%。
-
-责任编辑：卢昱君
+联系电话：010-55635865，邮箱：appzhili@cac.gov.cn
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 15:34 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 15:29 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-29 15:22 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 15:20 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 15:24 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 15:30 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
-- 2026-06-29 15:12 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
-- 2026-06-29 15:27 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 15:24 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 15:06 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 15:20 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 15:24 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 15:12 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 15:19 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 15:34 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-29 15:29 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 15:41 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 15:19 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 15:40 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-29 15:23 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
+- 2026-06-29 15:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-29 15:26 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
+- 2026-06-29 15:35 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 15:32 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 15:33 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:16 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/02623656881.shtml)
-- 2026-06-29 15:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/652910.shtml)
-- 2026-06-29 15:07 - [博主：全球股市进入“AI极端共振”](https://www.blog.minike.top/Article/details/21969600.shtml)
-- 2026-06-29 15:34 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/183815.shtml)
-- 2026-06-29 15:34 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.minike.top/Article/details/3042610.shtml)
-- 2026-06-29 15:19 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/674245.shtml)
-- 2026-06-29 15:32 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/106971786.shtml)
-- 2026-06-29 15:23 - [沙丘](http://www.share.kurohicncr.top/Article/details/50858607.shtml)
-- 2026-06-29 15:24 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/883344761012.shtml)
-- 2026-06-29 15:09 - [papi酱在救赎窦文涛](http://www.blog.kurohicncr.top/Article/details/83625603868.shtml)
-- 2026-06-29 15:24 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/99049.shtml)
-- 2026-06-29 15:11 - [汪东城回应45岁婚约](http://www.blog.kurohicncr.top/Article/details/48975029.shtml)
-- 2026-06-29 15:08 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/1747605036.shtml)
-- 2026-06-29 15:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/034663669.shtml)
-- 2026-06-29 15:27 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/550665272672.shtml)
+- 2026-06-29 15:41 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/21203405212.shtml)
+- 2026-06-29 15:30 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/7993432.shtml)
+- 2026-06-29 15:37 - [清华姚班UP主详解AI专业就业](http://www.share.kurohicncr.top/Article/details/89886.shtml)
+- 2026-06-29 15:18 - [韩国主帅洪明甫辞职](http://www.blog.kurohicncr.top/Article/details/7470455.shtml)
+- 2026-06-29 15:28 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/6106674334.shtml)
+- 2026-06-29 15:37 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.minike.top/Article/details/65153807007.shtml)
+- 2026-06-29 15:33 - [妹妹的正确用法！](https://www.share.minike.top/Article/details/634770.shtml)
+- 2026-06-29 15:35 - [恋与深空 731](https://www.blog.kurohicncr.top/Article/details/61735.shtml)
+- 2026-06-29 15:29 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/930872138058.shtml)
+- 2026-06-29 15:20 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.kurohicncr.top/Article/details/621976.shtml)
+- 2026-06-29 15:15 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/71956.shtml)
+- 2026-06-29 15:21 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/92219610454.shtml)
+- 2026-06-29 15:39 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/173114.shtml)
+- 2026-06-29 15:21 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/39507.shtml)
+- 2026-06-29 15:13 - [唐国强打卡贵阳孔学堂](https://www.share.kurohicncr.top/Article/details/93708515721.shtml)

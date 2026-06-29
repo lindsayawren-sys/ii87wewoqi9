@@ -1,56 +1,60 @@
-# 特朗普据悉继续获得税务审计豁免 但18亿美元基金计划面临变数
+# 标准引领科技赋能 黑龙江省打造白桦树汁产业高质量发展“新引擎”
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，美国官员正继续执行禁止政府对总统唐纳德·特朗普及其企业的过往税务申报进行调查的协议，而设立“反武器化基金”的计划已被搁置。 此前报道称，特朗普政府周一私下表示，将暂停推进这项规模18亿美元的基金。该基金原计划用于补偿所谓遭政府“武器化”对待的受害者。 知情人士称，协议的另一部分要求不得推进在和解前对特朗普、其家族成员及其公司启动的任何审计和税务相关调查，这部分不
+中新网伊春4月28日电(刘璐 田德雨)4月27日，“森林甘露·共启远方”2026黑龙江省白桦树汁产业高质量发展大会在伊春铁力市召开。大会依托标准引领、科技赋能，推动桦树汁产业规范化、标准化、高端化、品牌化发展。 据悉，伊春被誉为“中国林都”“天然氧吧”。多年来，依托得天独厚的生态资源和广袤无垠的森林宝库，将发展白桦树汁产业作为打造践行大食物观先行地的重要抓手，产业规模与质量效益
 
 ## 正文
 
-据知情人士透露，美国官员正继续执行禁止政府对总统唐纳德·特朗普及其企业的过往税务申报进行调查的协议，而设立“反武器化基金”的计划已被搁置。
+中新网伊春4月28日电(刘璐 田德雨)4月27日，“森林甘露·共启远方”2026黑龙江省白桦树汁产业高质量发展大会在伊春铁力市召开。
 
-此前报道称，特朗普政府周一私下表示，将暂停推进这项规模18亿美元的基金。
+大会依托标准引领、科技赋能，推动桦树汁产业规范化、标准化、高端化、品牌化发展。
 
-该基金原计划用于补偿所谓遭政府“武器化”对待的受害者。
+据悉，伊春被誉为“中国林都”“天然氧吧”。
 
-知情人士称，协议的另一部分要求不得推进在和解前对特朗普、其家族成员及其公司启动的任何审计和税务相关调查，这部分不受搁置该基金的的决定影响。
+多年来，依托得天独厚的生态资源和广袤无垠的森林宝库，将发展白桦树汁产业作为打造践行大食物观先行地的重要抓手，产业规模与质量效益实现双提升。
 
-白宫将相关问题转给了特朗普的私人法律团队。
+如今，伊春已发展成为黑龙江省白桦树汁核心产区和技术标准创新策源地。
 
-“美国国税局错误地允许一名行为失范、出于政治动机的员工，向媒体泄露有关特朗普总统、其家族以及特朗普集团的私人和保密信息，”特朗普律师团队在声明中表示。
+活动中，与会嘉宾赴桦树汁企业、铁力市综合检验检测中心、铁力市顺丰云仓进行观摩。
 
-“特朗普总统将继续追究损害美国及美国人民利益者的责任。
+“此前围绕白桦树汁质量分级、检测办法、生产规范已制定了团体标准，今年将制定桦树汁原料标准，通过全产业链标准覆盖，避免恶性价格竞争、倒逼企业技术升级，让更多产品卖出优质价格。
 
-” 特朗普上个月在与美国国税局的法律纠纷中取得重大胜利，司法部禁止这家长期遭特朗普抨击的税务机构继续对其纳税申报表展开任何“已知或未知”的调查。
+”黑龙江省轻工业科学技术协会常务副会长赵云财说。
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 15:28 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 15:10 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 15:14 - [四川宜宾地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 15:12 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 15:15 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 15:17 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-29 15:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-29 15:11 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 15:25 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-29 15:15 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 15:14 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-29 15:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 15:16 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 15:21 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 15:26 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 15:26 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 15:31 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 15:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 15:13 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
+- 2026-06-29 15:18 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 15:21 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 15:23 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 15:42 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.minike.top/Article/details/7818418.shtml)
-- 2026-06-29 15:09 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/80583941.shtml)
-- 2026-06-29 15:28 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/85551848089.shtml)
-- 2026-06-29 15:19 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/49009924.shtml)
-- 2026-06-29 15:32 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/579585145.shtml)
-- 2026-06-29 15:12 - [送你一朵小红花](http://www.blog.minike.top/Article/details/97425380.shtml)
-- 2026-06-29 15:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/49347992327.shtml)
-- 2026-06-29 15:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/77085983034.shtml)
-- 2026-06-29 15:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/415383463.shtml)
-- 2026-06-29 15:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/51309047904.shtml)
-- 2026-06-29 15:34 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/151187122.shtml)
-- 2026-06-29 15:23 - [吴昕要助理买的药6年前已停产](https://www.share.minike.top/Article/details/13723.shtml)
-- 2026-06-29 15:34 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/14935.shtml)
-- 2026-06-29 15:24 - [森保一：日本队要亲手改写历史](http://www.blog.minike.top/Article/details/69032.shtml)
-- 2026-06-29 15:21 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/877841228434.shtml)
+- 2026-06-29 15:41 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/080018286900.shtml)
+- 2026-06-29 15:22 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/506399937.shtml)
+- 2026-06-29 15:23 - [媒体：网络测评不能只剩“生意”](http://www.blog.kurohicncr.top/Article/details/159121393.shtml)
+- 2026-06-29 15:14 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/22617.shtml)
+- 2026-06-29 15:29 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/489606.shtml)
+- 2026-06-29 15:14 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/908361393131.shtml)
+- 2026-06-29 15:20 - [扫黑风暴](http://www.blog.minike.top/Article/details/45015.shtml)
+- 2026-06-29 15:29 - [流金岁月](http://www.share.minike.top/Article/details/76716.shtml)
+- 2026-06-29 15:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/2064072497.shtml)
+- 2026-06-29 15:37 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.minike.top/Article/details/73516679445.shtml)
+- 2026-06-29 15:34 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/78735.shtml)
+- 2026-06-29 15:24 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/972695657.shtml)
+- 2026-06-29 15:19 - [女心理师](http://www.blog.kurohicncr.top/Article/details/75203161.shtml)
+- 2026-06-29 15:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/1729458652.shtml)
+- 2026-06-29 15:33 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/20499626536.shtml)

@@ -1,47 +1,56 @@
-# 进入高温季 空调使用指南请收好：空调如何使用既舒适又节能？
+# 云南临沧：三把“遗址钥匙”打开西南边疆融合之门
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:19 来源：央视新闻 责任编辑：【王祎】
+中新网临沧4月26日电 (缪超 徐珊珊)从4万年前旧石器时代，到4000年前新石器时代，再到3000年前青铜器时代，云南临沧先民在澜沧江流域留下一道道深刻的生产生活痕迹，成为解开人类历史谜团的钥匙之一，还原出一幅幅西南边疆的历史图腾。 农克硝洞遗址：改写亚洲史前文化 1981年，第二次全国文物普查期间，文物工作者首次踏足临沧农克硝洞，发现了一种在中华大地从未见过的石器类型，彼时
 
 ## 正文
 
-发布时间：2026年06月02日 13:19 来源：央视新闻 责任编辑：【王祎】
+中新网临沧4月26日电 (缪超 徐珊珊)从4万年前旧石器时代，到4000年前新石器时代，再到3000年前青铜器时代，云南临沧先民在澜沧江流域留下一道道深刻的生产生活痕迹，成为解开人类历史谜团的钥匙之一，还原出一幅幅西南边疆的历史图腾。
+
+农克硝洞遗址：改写亚洲史前文化 1981年，第二次全国文物普查期间，文物工作者首次踏足临沧农克硝洞，发现了一种在中华大地从未见过的石器类型，彼时，无人预料，这里将改写亚洲史前文化的认知版图。
+
+经过40余年持续考古调查研究，农克硝洞的秘密终于浮出水面，8米多厚的原生文化层如同时间的书页，层层叠压。
+
+人牙、骨环、穿孔猴牙、石制品……5000余件出土文物，静静讲述着数万年前的故事。
+
+2015年，中外联合研究团队公布震撼学界的结论：农克硝洞遗址出土具有切割、砍伐、挖掘、研磨等多种功能的石器组合，是距今4.35万年至2.4万年的旧石器时代遗存，该石器组合正是“和平文化”的标志性器具，但比东南亚大陆各个国家同类石器早至少1万年。
+
+中国科学院昆明动物研究所研究员、古人类与旧石器时代考古学家吉学平介绍，“和平文化”是广泛分布于东南亚大陆的史前文化，农克硝洞的发现，将“和平文化”的源头指向了中国澜沧江流域，显然这里的古人类发明出这套工具后，向南开拓去了更遥远的地方，东西南北文化交流在此悄然拉开序幕，见证了人类命运共同体在旧石器时代开始铸就的历史。
+
+忙怀遗址：文明交汇的节点 农克硝洞并非孤立的文化坐标，将目光转向澜沧江中下游的云县忙怀。
+
+1974年，一个普通的田野调查日，文物工作者的脚步停在了澜沧江与顺甸河的交汇处：河水冲刷出的台地上，散落着一些鹅卵石，有些石头不太一样——它们被打制过、被切割过，被赋予了形状。
 
 ## 相关推荐
 
-- 2026-06-29 15:26 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 15:10 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 15:08 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-29 15:09 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 15:24 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 15:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 15:30 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 15:15 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 15:36 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 15:20 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 15:18 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 15:07 - [抓特务票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 15:08 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 15:23 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 15:29 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 15:33 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 15:40 - [逆天祖国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 15:38 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 15:37 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 15:29 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 15:24 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 15:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 15:35 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 15:41 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 15:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/57839829466.shtml)
-- 2026-06-29 15:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/810228506733.shtml)
-- 2026-06-29 15:15 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/698502.shtml)
-- 2026-06-29 15:22 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/620227.shtml)
-- 2026-06-29 15:29 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/80944.shtml)
-- 2026-06-29 15:11 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/86595213199.shtml)
-- 2026-06-29 15:35 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/60015462957.shtml)
-- 2026-06-29 15:22 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/601521373742.shtml)
-- 2026-06-29 15:20 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/420193.shtml)
-- 2026-06-29 15:07 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/619811442.shtml)
-- 2026-06-29 15:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/94175.shtml)
-- 2026-06-29 15:14 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/736286733.shtml)
-- 2026-06-29 15:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/93244074316.shtml)
-- 2026-06-29 15:29 - [如果你一直单身，你准备怎么养老？](http://www.blog.minike.top/Article/details/803360074496.shtml)
-- 2026-06-29 15:24 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/61558203.shtml)
+- 2026-06-29 15:33 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.kurohicncr.top/Article/details/548614911094.shtml)
+- 2026-06-29 15:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/220145096.shtml)
+- 2026-06-29 15:14 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/9862777391.shtml)
+- 2026-06-29 15:13 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/5942431.shtml)
+- 2026-06-29 15:40 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/09055474310.shtml)
+- 2026-06-29 15:24 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/77038185.shtml)
+- 2026-06-29 15:29 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/52019227.shtml)
+- 2026-06-29 15:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/02074677.shtml)
+- 2026-06-29 15:30 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/075743344963.shtml)
+- 2026-06-29 15:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/7567402.shtml)
+- 2026-06-29 15:16 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/620255203814.shtml)
+- 2026-06-29 15:33 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/091904994.shtml)
+- 2026-06-29 15:22 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/8622614649.shtml)
+- 2026-06-29 15:35 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/64697.shtml)
+- 2026-06-29 15:37 - [TFING全员黑西装](http://www.blog.minike.top/Article/details/897500176363.shtml)

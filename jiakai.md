@@ -1,51 +1,61 @@
-# 一条小红裙 跨越山海“治愈”非洲小萌娃
+# 美联航放弃收购竞争对手美国航空集团
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:31 来源：中国新闻网 当地时间6月1日，在非洲卢旺达，一场治愈的跨国暖心事，在第26批中国援卢旺达医疗队(以下简称医疗队)的见证下上演。 医疗队的医生尼日特奔赴非洲前，同事家的小女孩梁然听说了他们的援非行程，悄悄准备了一条好看的红裙子，拜托医护人员送给卢旺达同龄的小伙伴。 “六一”国际儿童节当天，医疗队找到当地一位3岁的女童送上礼物。小
+美联航（United Airlines）首席执行官表示，与美国航空集团（American Airlines）的合并本可带来变革，但这笔交易已告吹，因为美国航空不愿接洽。 周一，美联航首席执行官斯科特·柯比阐述了收购美国航空的理由。这项雄心勃勃的交易本可将美国两家顶级航空公司合并。他也承认推进该交易面临重重障碍，尤其是美国航空不愿接洽。他表示，“寻求与美国航空谈判的努力已经结束”
 
 ## 正文
 
-发布时间：2026年06月02日 10:31 来源：中国新闻网 当地时间6月1日，在非洲卢旺达，一场治愈的跨国暖心事，在第26批中国援卢旺达医疗队(以下简称医疗队)的见证下上演。
+美联航（United Airlines）首席执行官表示，与美国航空集团（American Airlines）的合并本可带来变革，但这笔交易已告吹，因为美国航空不愿接洽。
 
-医疗队的医生尼日特奔赴非洲前，同事家的小女孩梁然听说了他们的援非行程，悄悄准备了一条好看的红裙子，拜托医护人员送给卢旺达同龄的小伙伴。
+周一，美联航首席执行官斯科特·柯比阐述了收购美国航空的理由。
 
-“六一”国际儿童节当天，医疗队找到当地一位3岁的女童送上礼物。
+这项雄心勃勃的交易本可将美国两家顶级航空公司合并。
 
-小女孩穿上红裙子瞬间笑开了花，甜甜的一句感谢，在场医护全都被这份跨越山海的童真善意治愈。
+他也承认推进该交易面临重重障碍，尤其是美国航空不愿接洽。
 
-(陈峰 闫龙） 责任编辑：【罗攀】
+他表示，“寻求与美国航空谈判的努力已经结束”。
+
+柯比在周一的一份声明中表示，鉴于美国航空公开表示反感，这项将全球两家最大航空公司合并的交易在“可预见的未来已不在考虑之列”。
+
+不过，他仍为美联航的这一尝试进行了辩护。
+
+他认为，合并本可让美联航将服务扩展至国际市场和较小社区，通过向市场增加经济舱座位来提升客户价值，并更好地与外国航空公司竞争。
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
-- 2026-06-29 15:17 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 15:23 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 15:34 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-29 15:16 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 15:09 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 15:21 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-29 15:14 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 15:08 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-29 15:10 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 15:36 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 15:28 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 15:30 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 15:31 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 15:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-29 15:13 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
+- 2026-06-29 15:31 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 15:38 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-29 15:14 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 15:41 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-29 15:39 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 15:33 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 15:25 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 15:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 15:41 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 15:25 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/6205352433.shtml)
-- 2026-06-29 15:31 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/4225281.shtml)
-- 2026-06-29 15:08 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/266100224548.shtml)
-- 2026-06-29 15:12 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/2972339171.shtml)
-- 2026-06-29 15:14 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/73503836612.shtml)
-- 2026-06-29 15:11 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/42724.shtml)
-- 2026-06-29 15:14 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/57176579.shtml)
-- 2026-06-29 15:12 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/05111458611.shtml)
-- 2026-06-29 15:29 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/7755110.shtml)
-- 2026-06-29 15:09 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/7124367427.shtml)
-- 2026-06-29 15:09 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/935085.shtml)
-- 2026-06-29 15:07 - [金牌调解](https://www.share.minike.top/Article/details/864631.shtml)
-- 2026-06-29 15:26 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/621006666987.shtml)
-- 2026-06-29 15:31 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/77937458.shtml)
-- 2026-06-29 15:12 - [一生一世](http://www.share.kurohicncr.top/Article/details/778333141.shtml)
+- 2026-06-29 15:18 - [世界杯十大帅哥必吃榜](http://www.share.minike.top/Article/details/62238.shtml)
+- 2026-06-29 15:35 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/01669639.shtml)
+- 2026-06-29 15:12 - [扬名立万](http://www.share.kurohicncr.top/Article/details/417193809117.shtml)
+- 2026-06-29 15:20 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/45437.shtml)
+- 2026-06-29 15:21 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/2114393454.shtml)
+- 2026-06-29 15:34 - [我国文化产业营收规模突破20万亿元](http://www.blog.minike.top/Article/details/1530334.shtml)
+- 2026-06-29 15:16 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/10395.shtml)
+- 2026-06-29 15:13 - [毒液2](https://www.share.minike.top/Article/details/3837472.shtml)
+- 2026-06-29 15:37 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/7376162.shtml)
+- 2026-06-29 15:12 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/72168.shtml)
+- 2026-06-29 15:23 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/78026572271.shtml)
+- 2026-06-29 15:20 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/5769677.shtml)
+- 2026-06-29 15:39 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/64740945.shtml)
+- 2026-06-29 15:28 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/801048.shtml)
+- 2026-06-29 15:19 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/230446.shtml)

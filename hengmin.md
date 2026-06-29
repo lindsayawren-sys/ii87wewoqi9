@@ -1,58 +1,56 @@
-# Adobe将于2026年6月11日发布第二财季财报，市场聚焦AI战略与增长动能
+# 20支队伍角逐国科大第三届弘扬“两弹一星”精神话剧大赛决赛
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。 根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。公司此前给出的官方指引为：营收64.3亿至64.8亿美元
+中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。 决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。 本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学
 
 ## 正文
 
-Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。
+中新网北京4月26日电 (记者 孙自法)中国科学院大学(国科大)第三届弘扬“两弹一星”精神话剧大赛决赛4月25日晚在雁栖湖校区举办，共有来自20个培养单位及院系的20支队伍参赛。
 
-财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。
+决赛现场还特别展演AI短片《跨越时空的薪火》，通过跨时空对话形式，让“两弹一星”元勋与当代国科大青年相遇，生动传承科技报国的薪火。
 
-根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。
+本次决赛邀请北京人民艺术剧院、中国国家话剧院、中央戏剧学院、中国科学院科学家精神宣讲团等单位专家担任评委。
 
-公司此前给出的官方指引为：营收64.3亿至64.8亿美元，非GAAP每股收益5.80至5.85美元，GAAP每股收益4.35至4.40美元。
+通过激烈角逐，大赛一二三等奖及最佳剧本、最佳导演等单项奖评选揭晓。
 
-第一季度，Adobe实现营收64亿美元，同比增长12%，非GAAP每股收益6.06美元，双双超出市场预期。
+其中，中国科学院西安光学精密机械研究所《光与希望》、国科大玉泉书院《昆仑山上的一棵草》获一等奖；国科大集成电路学院《无声的坚守》、马克思主义学院《我与我同行》、国际学院《半页图纸》获二等奖；中国科学院空天信息创新研究院《追梦863》、大连化学物理研究所《重水十年》、上海微系统与信息技术研究所《自助者天助》获三等奖。
 
-投资者将密切关注几个核心指标：数字媒体业务的年度经常性收入增长、Firefly等AI产品的商业化进展，以及创意云和专业消费者业务的订阅增长势头。
+《光与希望》获最佳剧本奖；《昆仑山上的一棵草》摘得最佳舞台美术奖、最佳导演奖，剧中陈能宽院士饰演者王翊帆获最佳男演员奖；《我与我同行》青年王承书和中年王承书饰演者拥忠初、解筱冰获最佳女演员奖。
 
-第一季度总ARR达260.6亿美元，同比增长10.9%，AI优先应用的ARR同比增长超过两倍。
+此外，优秀组织奖也同步揭晓并颁奖。
 
-过去一年，Adobe正经历从传统软件许可模式向AI驱动的订阅服务的深度转型。
+决赛现场，国科大校长周琪，“两弹一星”元勋陈芳允院士、“两弹一星”攻关科学家张存浩院士、国科大外语系教授李佩等人的亲属代表，以及中国科学院、怀柔区、培养单位、国科大师生代表等参加活动。
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 15:19 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-29 15:27 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-29 15:34 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 15:19 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-29 15:31 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 15:15 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 15:09 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-29 15:30 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-29 15:35 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-29 15:35 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-29 15:26 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-29 15:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 15:17 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 15:39 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-29 15:39 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
+- 2026-06-29 15:17 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 15:37 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 15:17 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 15:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 15:23 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 15:41 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:27 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.kurohicncr.top/Article/details/562895.shtml)
-- 2026-06-29 15:23 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/95582273508.shtml)
-- 2026-06-29 15:33 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/92350987.shtml)
-- 2026-06-29 15:11 - [森保一坚信日本能赢巴西](https://www.blog.minike.top/Article/details/911475160798.shtml)
-- 2026-06-29 15:15 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/0579198966.shtml)
-- 2026-06-29 15:28 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/33489218.shtml)
-- 2026-06-29 15:22 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/103991.shtml)
-- 2026-06-29 15:34 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.kurohicncr.top/Article/details/608102224.shtml)
-- 2026-06-29 15:18 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/096236.shtml)
-- 2026-06-29 15:24 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/656364397524.shtml)
-- 2026-06-29 15:26 - [教育部发布高考志愿填报预警](https://www.blog.kurohicncr.top/Article/details/2116135852.shtml)
-- 2026-06-29 15:24 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/121148566.shtml)
-- 2026-06-29 15:18 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/0044046320.shtml)
-- 2026-06-29 15:26 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/830020581255.shtml)
-- 2026-06-29 15:13 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/8893677400.shtml)
+- 2026-06-29 15:22 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.minike.top/Article/details/82087953.shtml)
+- 2026-06-29 15:41 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/669457.shtml)
+- 2026-06-29 15:32 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/431605078205.shtml)
+- 2026-06-29 15:19 - [在委侨团负责人：家乡的帮助很及时](https://www.share.minike.top/Article/details/97499389.shtml)
+- 2026-06-29 15:40 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/73622432.shtml)
+- 2026-06-29 15:22 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/689015.shtml)
+- 2026-06-29 15:25 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/939515805387.shtml)
+- 2026-06-29 15:17 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/362136504289.shtml)
+- 2026-06-29 15:17 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/773435757.shtml)
+- 2026-06-29 15:19 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/28997365205.shtml)
+- 2026-06-29 15:41 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/094336.shtml)
+- 2026-06-29 15:32 - [爸爸当家](https://www.blog.minike.top/Article/details/805346.shtml)
+- 2026-06-29 15:15 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/710535493.shtml)
+- 2026-06-29 15:22 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/509640.shtml)
+- 2026-06-29 15:12 - [84岁英国教授成中国网红](http://www.share.kurohicncr.top/Article/details/316381591.shtml)

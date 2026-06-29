@@ -1,61 +1,55 @@
-# 鸿星科技IPO：林氏家族控股近88%，递表前分红5.69亿
+# 摩根大通称投资者可利用股市疲软机会增加配置
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-来源：瑞财经 瑞财经严明会 5月12日，鸿星科技（集团）股份有限公司（以下简称：鸿星科技）深交所创业板IPO获受理，保荐机构为国投证券，保荐代表人为俞高平、钱润，会计师事务所为立信。 值得注意的是，这并非鸿星科技首次尝试登陆资本市场。2023年3月3日，鸿星科技上交所主板IPO获得受理，随后收到两轮IPO问询函。2025年9月29日，公司撤回发行上市申请，IPO终止。 鸿星科技
+摩根大通策略师表示，投资者可利用股市走弱之时增加股票配置，尽管地缘政治风险消息频出，但军事、政治和经济方面的制约因素意味着局势不太可能长期升级。 Mislav Matejka等策略师表示，即便经历了V形反弹，他们仍对全球股市持建设性看法，理由包括企业盈利动能依然具有韧性，以及流动性和利率环境可能出现改善。 与去年由少数几家超大型公司推动的狭窄上涨行情不同，今年的市场领头羊股票可
 
 ## 正文
 
-来源：瑞财经 瑞财经严明会 5月12日，鸿星科技（集团）股份有限公司（以下简称：鸿星科技）深交所创业板IPO获受理，保荐机构为国投证券，保荐代表人为俞高平、钱润，会计师事务所为立信。
+摩根大通策略师表示，投资者可利用股市走弱之时增加股票配置，尽管地缘政治风险消息频出，但军事、政治和经济方面的制约因素意味着局势不太可能长期升级。
 
-值得注意的是，这并非鸿星科技首次尝试登陆资本市场。
+Mislav Matejka等策略师表示，即便经历了V形反弹，他们仍对全球股市持建设性看法，理由包括企业盈利动能依然具有韧性，以及流动性和利率环境可能出现改善。
 
-2023年3月3日，鸿星科技上交所主板IPO获得受理，随后收到两轮IPO问询函。
+与去年由少数几家超大型公司推动的狭窄上涨行情不同，今年的市场领头羊股票可能会更加多元。
 
-2025年9月29日，公司撤回发行上市申请，IPO终止。
+近期大幅下跌后尽管策略师对“人工智能风险股”持谨慎态度，但认为这些股票短期内可能出现战术性反弹，不过最终会在12-18个月利用反弹机会卖出。
 
-鸿星科技的前身为鸿星有限，成立于1993年12月，注册资本 125 万美元，由台湾鸿星及华瑞电子分别持有80%及20%。
+从区域层面来看，他们预计随着美元指数和收益率走低以及市场参与度扩大，国际股市将恢复优异表现。
 
-其中，台湾鸿星所持股权是替洪福电子持有。
+仍高配新兴市场而非发达市场，并且对矿业板块保持乐观。
 
-为将代持还原，2001年7月，H-TEC受让了台湾鸿星于鸿星有限的股权。
-
-2023年初，鸿星科技最大股东为H-TEC，持股比例78.9241%，其余21名股东单独持股均不超过3%。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 15:07 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 15:34 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 15:15 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-29 15:27 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-29 15:34 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 15:33 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 15:23 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-29 15:25 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 15:21 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 15:35 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 15:32 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-29 15:22 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 15:14 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 15:10 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 15:08 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 15:23 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 15:21 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 15:29 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-29 15:25 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 15:32 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-29 15:13 - [你有像江语晨恨前夫一样恨过一个人吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 15:32 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 15:36 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 15:39 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 15:41 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 15:33 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/144141.shtml)
-- 2026-06-29 15:31 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/24007765.shtml)
-- 2026-06-29 15:24 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/8961049.shtml)
-- 2026-06-29 15:22 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/844130.shtml)
-- 2026-06-29 15:35 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/1348411.shtml)
-- 2026-06-29 15:22 - [永远保持对人民的赤子之心](http://www.blog.kurohicncr.top/Article/details/518800167.shtml)
-- 2026-06-29 15:23 - [千与千寻](http://www.blog.minike.top/Article/details/09720.shtml)
-- 2026-06-29 15:10 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/42378.shtml)
-- 2026-06-29 15:12 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/63155.shtml)
-- 2026-06-29 15:08 - [男子网购乖乖水迷晕女子后猥亵](https://www.share.kurohicncr.top/Article/details/913035.shtml)
-- 2026-06-29 15:30 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/43117.shtml)
-- 2026-06-29 15:33 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/6047751755.shtml)
-- 2026-06-29 15:31 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/989840.shtml)
-- 2026-06-29 15:35 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/2434007734.shtml)
-- 2026-06-29 15:09 - [急先锋](http://www.share.minike.top/Article/details/938534917119.shtml)
+- 2026-06-29 15:39 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/42255837128.shtml)
+- 2026-06-29 15:12 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/23731852163.shtml)
+- 2026-06-29 15:18 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/4029293.shtml)
+- 2026-06-29 15:39 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/465296785548.shtml)
+- 2026-06-29 15:28 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/3066464.shtml)
+- 2026-06-29 15:17 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/926246009.shtml)
+- 2026-06-29 15:23 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/55368.shtml)
+- 2026-06-29 15:30 - [我国文化产业营收规模突破20万亿元](http://www.blog.kurohicncr.top/Article/details/492007097.shtml)
+- 2026-06-29 15:23 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/105941302.shtml)
+- 2026-06-29 15:21 - [金刚川](http://www.share.kurohicncr.top/Article/details/885117822641.shtml)
+- 2026-06-29 15:33 - [明天睁眼按时来取代我](http://www.blog.kurohicncr.top/Article/details/606072.shtml)
+- 2026-06-29 15:33 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/32103956822.shtml)
+- 2026-06-29 15:26 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/2760057.shtml)
+- 2026-06-29 15:24 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/369608.shtml)
+- 2026-06-29 15:28 - [沉睡花园](http://www.share.minike.top/Article/details/78678921056.shtml)

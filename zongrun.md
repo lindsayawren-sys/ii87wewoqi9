@@ -1,58 +1,52 @@
-# 中信证券：“关税交易”再起，铜价有望再创新高
+# 大美边疆看我家丨黑龙江绥滨：边境小城 人间烟火
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|涂耀廷 拜俊飞 敖翀 美铜关税评估的最终时点临近，“关税交易”与库存囤积重回铜市场主线。我们认为，海外“备货性”库存囤积为铜基本面提供坚实支撑，而近期COMEX库存加速攀升所反映的“交易性”库存囤积，有望激化铜价和铜板块走强，年内铜价高点有望冲击15000美元/吨。重点推荐铜板块盈利弹性与
+发布时间：2026年04月28日 10:01 来源：中国新闻网 在祖国东北边陲，三江平原腹地，藏着一座温润鲜活的边境小城——黑龙江省鹤岗市绥滨县。它静卧在黑龙江与松花江交汇地带，北以黑龙江主航道为界与俄罗斯隔江相望，三面环水的地貌，让这里兼具北国辽阔与水乡温婉。在绥滨，可以感受边陲小城的独特韵味，遇见烟火与诗意共生的美好。(作者：程子傲) 责任编辑：【魏聪聪】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月28日 10:01 来源：中国新闻网 在祖国东北边陲，三江平原腹地，藏着一座温润鲜活的边境小城——黑龙江省鹤岗市绥滨县。
 
-中信证券研究 文|涂耀廷 拜俊飞 敖翀 美铜关税评估的最终时点临近，“关税交易”与库存囤积重回铜市场主线。
+它静卧在黑龙江与松花江交汇地带，北以黑龙江主航道为界与俄罗斯隔江相望，三面环水的地貌，让这里兼具北国辽阔与水乡温婉。
 
-我们认为，海外“备货性”库存囤积为铜基本面提供坚实支撑，而近期COMEX库存加速攀升所反映的“交易性”库存囤积，有望激化铜价和铜板块走强，年内铜价高点有望冲击15000美元/吨。
+在绥滨，可以感受边陲小城的独特韵味，遇见烟火与诗意共生的美好。
 
-重点推荐铜板块盈利弹性与估值弹性共振的配置机遇。
-
-▍“关税交易”与美铜库存囤积再起重燃市场情绪。
-
-2026年6月1日，LME铜和COMEX铜日度涨幅分别达到2.0%和2.8%，分别收于13897美元/吨和14485美元/吨。
-
-根据彭博社，美国商务部需在6月30日前向特朗普提交一份最新的铜市场评估报告，并对美国是否对精炼铜征收进口关税给出建议。
-
-此前美国从2025年8月1日起执行的关税方案未对精炼铜征收费用，计划从2027年起分阶段征收关税，起始税率为15%。
+(作者：程子傲) 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 15:31 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 15:22 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 15:17 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 15:16 - [给阿嬷的情书海外口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 15:13 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 15:20 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 15:35 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 15:13 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 15:28 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 15:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 15:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 15:29 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-29 15:31 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 15:16 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 15:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 15:40 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 15:27 - [宜宾珙县部分地区因地震停电 正抢修](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 15:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-29 15:16 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 15:36 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 15:38 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 15:36 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 15:12 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-29 15:41 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 15:13 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 15:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:10 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/0511912035.shtml)
-- 2026-06-29 15:31 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/1061753260.shtml)
-- 2026-06-29 15:33 - [豆包收费了，你还会用吗？](http://www.blog.minike.top/Article/details/851168560765.shtml)
-- 2026-06-29 15:20 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/1646366.shtml)
-- 2026-06-29 15:26 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/98621124276.shtml)
-- 2026-06-29 15:10 - [起风了](https://www.share.kurohicncr.top/Article/details/1739775162.shtml)
-- 2026-06-29 15:12 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/753213.shtml)
-- 2026-06-29 15:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/07579247905.shtml)
-- 2026-06-29 15:16 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/26294694.shtml)
-- 2026-06-29 15:33 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/355734.shtml)
-- 2026-06-29 15:25 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/95646.shtml)
-- 2026-06-29 15:20 - [林昀儒止步美国大满贯首轮](https://www.blog.kurohicncr.top/Article/details/801187432.shtml)
-- 2026-06-29 15:29 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/739034200.shtml)
-- 2026-06-29 15:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/56428.shtml)
-- 2026-06-29 15:11 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/6864481850.shtml)
+- 2026-06-29 15:21 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/8697179670.shtml)
+- 2026-06-29 15:36 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/3786429.shtml)
+- 2026-06-29 15:27 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/04776133.shtml)
+- 2026-06-29 15:21 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/02212.shtml)
+- 2026-06-29 15:34 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/12999.shtml)
+- 2026-06-29 15:40 - [斗破苍穹](http://www.share.minike.top/Article/details/742414.shtml)
+- 2026-06-29 15:24 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/33738126.shtml)
+- 2026-06-29 15:31 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/5760914.shtml)
+- 2026-06-29 15:26 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/2717407.shtml)
+- 2026-06-29 15:13 - [媒体：网络测评不能只剩“生意”](http://www.blog.minike.top/Article/details/31785127.shtml)
+- 2026-06-29 15:28 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/52770.shtml)
+- 2026-06-29 15:24 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/25959960641.shtml)
+- 2026-06-29 15:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/02907.shtml)
+- 2026-06-29 15:34 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/878112923.shtml)
+- 2026-06-29 15:18 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/475316.shtml)

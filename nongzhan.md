@@ -1,58 +1,56 @@
-# 伯克希尔68亿美元收购住宅建筑商泰勒莫里森，阿贝尔上任首笔大型交易敲定
+# 2026年度中国青年五四奖章暨新时代青年先锋奖颁奖仪式在京举行
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-伯克希尔哈撒韦公司周日宣布，已同意以约68亿美元全现金收购美国住宅建筑商泰勒莫里森房屋公司，此举标志着新任首席执行官格雷格·阿贝尔执掌以来首笔数十亿美元级并购正式落地。 根据协议，伯克希尔将以每股72.50美元的价格收购泰勒莫里森全部股份，较该公司上周五收盘价58.50美元溢价24%。计入债务后，该交易的企业总价值约为85亿美元。消息公布后，泰勒莫里森股价在周一盘前交易中飙升逾
+中新网北京4月27日电(记者 国璇)2026年度中国青年五四奖章暨新时代青年先锋奖颁奖仪式27日下午在北京举行。 本次评选经过严格程序，最终产生中国青年五四奖章个人29名、集体30个，新时代青年先锋749名，覆盖科技创新、乡村振兴、绿色发展、社会服务、卫国戍边等各领域。 在宣讲环节，获奖代表聚焦“建功‘十五五’ 青春为中国式现代化挺膺担当”主题，分别从不同角度生动讲述深学细悟笃
 
 ## 正文
 
-伯克希尔哈撒韦公司周日宣布，已同意以约68亿美元全现金收购美国住宅建筑商泰勒莫里森房屋公司，此举标志着新任首席执行官格雷格·阿贝尔执掌以来首笔数十亿美元级并购正式落地。
+中新网北京4月27日电(记者 国璇)2026年度中国青年五四奖章暨新时代青年先锋奖颁奖仪式27日下午在北京举行。
 
-根据协议，伯克希尔将以每股72.50美元的价格收购泰勒莫里森全部股份，较该公司上周五收盘价58.50美元溢价24%。
+本次评选经过严格程序，最终产生中国青年五四奖章个人29名、集体30个，新时代青年先锋749名，覆盖科技创新、乡村振兴、绿色发展、社会服务、卫国戍边等各领域。
 
-计入债务后，该交易的企业总价值约为85亿美元。
+在宣讲环节，获奖代表聚焦“建功‘十五五’ 青春为中国式现代化挺膺担当”主题，分别从不同角度生动讲述深学细悟笃行习近平新时代中国特色社会主义思想，牢记党的嘱托、矢志拼搏奉献、推动高质量发展的励志故事，充分表达了团结引领广大青年发扬五四精神、再创青春佳绩的信心和决心。
 
-消息公布后，泰勒莫里森股价在周一盘前交易中飙升逾22%。
+团中央直属机关各部门单位负责同志，全国系统团(工)委负责同志，首都各界青少年代表等600余人在现场参加活动。
 
-此次收购被视为阿贝尔接替沃伦·巴菲特出任伯克希尔CEO后的首个重大战略动作。
+据悉，团中央将于近期集中开展主题宣讲活动，邀请获奖代表和各领域青年典型到基层一线与广大青年交流分享，进一步发挥示范带动作用。
 
-巴菲特于2025年底退休，阿贝尔于2026年1月1日正式接任。
-
-阿贝尔在声明中表示：“泰勒莫里森是一家由卓越团队领导的全国领先住宅建筑商。
-
-我们计划将旗下现场建造业务整合为统一平台，帮助更多美国人实现拥有住房的梦想。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 15:25 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 15:32 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-29 15:09 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 15:21 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-29 15:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 15:21 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 15:32 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 15:09 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 15:24 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 15:23 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-29 15:17 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 15:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 15:24 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 15:12 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 15:18 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
+- 2026-06-29 15:37 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 15:17 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 15:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-29 15:17 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-29 15:38 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 15:23 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 15:41 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-29 15:41 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 15:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
+- 2026-06-29 15:19 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 15:22 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:06 - [天道](https://www.share.minike.top/Article/details/005566281677.shtml)
-- 2026-06-29 15:18 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/935915413.shtml)
-- 2026-06-29 15:32 - [把古诗里的动作换成加班](http://www.blog.kurohicncr.top/Article/details/448190.shtml)
-- 2026-06-29 15:14 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/264167.shtml)
-- 2026-06-29 15:24 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/965760306.shtml)
-- 2026-06-29 15:07 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/59311.shtml)
-- 2026-06-29 15:22 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/51393488.shtml)
-- 2026-06-29 15:10 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/532393491890.shtml)
-- 2026-06-29 15:29 - [逆天祖国人](http://www.share.minike.top/Article/details/85029736.shtml)
-- 2026-06-29 15:09 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/9602315.shtml)
-- 2026-06-29 15:08 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/81439572.shtml)
-- 2026-06-29 15:25 - [斛珠夫人](http://www.blog.minike.top/Article/details/46563.shtml)
-- 2026-06-29 15:35 - [吴昕要助理买的药6年前已停产](http://www.share.minike.top/Article/details/2817579362.shtml)
-- 2026-06-29 15:09 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/02258.shtml)
-- 2026-06-29 15:32 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/2270775.shtml)
+- 2026-06-29 15:19 - [当我回母校教书](http://www.share.minike.top/Article/details/004971.shtml)
+- 2026-06-29 15:36 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/50846853149.shtml)
+- 2026-06-29 15:32 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/1849352872.shtml)
+- 2026-06-29 15:18 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/18104.shtml)
+- 2026-06-29 15:35 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/06706650755.shtml)
+- 2026-06-29 15:24 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/9090740.shtml)
+- 2026-06-29 15:22 - [把古诗里的动作换成加班](http://www.blog.minike.top/Article/details/580875.shtml)
+- 2026-06-29 15:33 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/59084225563.shtml)
+- 2026-06-29 15:36 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/59017090487.shtml)
+- 2026-06-29 15:32 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/157774654.shtml)
+- 2026-06-29 15:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/8536854.shtml)
+- 2026-06-29 15:17 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/970394829159.shtml)
+- 2026-06-29 15:23 - [爸爸当家](https://www.blog.minike.top/Article/details/69879434.shtml)
+- 2026-06-29 15:40 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/16579.shtml)
+- 2026-06-29 15:13 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/583312505159.shtml)

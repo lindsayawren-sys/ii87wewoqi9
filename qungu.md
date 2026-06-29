@@ -1,58 +1,58 @@
-# Royce Micro-Cap Trust宣布第二季度每股派息0.21美元
+# Vertiv收购Strategic Thermal Labs，强化AI散热全链条能力
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-Royce Micro-Cap Trust， Inc．（纽约证券交易所代码：RMT）今日宣布，将向普通股股东派发2026年第二季度现金股息，每股0.21美元，与上一季度持平。 根据公告，本次股息将于2026年6月29日支付，股权登记日为6月11日，除息日为6月11日。股东可选择以现金形式收取股息，或以股息再投资方式增持基金股份。股份再投资的价格将于6月18日确定。 Royce
+随着AI和高性能计算推动芯片功率密度达到前所未有的水平，维谛技术宣布收购芯片级液冷技术厂商Strategic Thermal Labs，以增强其从服务器侧到基础设施侧的完整热管理能力。 瞄准AI算力“发热”痛点 根据双方协议，Strategic Thermal Labs将并入Vertiv，带来冷板设计、服务器侧液冷以及高密度热验证等核心技术。这些技术将使Vertiv能够更好地模
 
 ## 正文
 
-Royce Micro-Cap Trust， Inc．（纽约证券交易所代码：RMT）今日宣布，将向普通股股东派发2026年第二季度现金股息，每股0.21美元，与上一季度持平。
+随着AI和高性能计算推动芯片功率密度达到前所未有的水平，维谛技术宣布收购芯片级液冷技术厂商Strategic Thermal Labs，以增强其从服务器侧到基础设施侧的完整热管理能力。
 
-根据公告，本次股息将于2026年6月29日支付，股权登记日为6月11日，除息日为6月11日。
+瞄准AI算力“发热”痛点 根据双方协议，Strategic Thermal Labs将并入Vertiv，带来冷板设计、服务器侧液冷以及高密度热验证等核心技术。
 
-股东可选择以现金形式收取股息，或以股息再投资方式增持基金股份。
+这些技术将使Vertiv能够更好地模拟真实的高密度计算环境，优化热系统与电力系统的协同。
 
-股份再投资的价格将于6月18日确定。
+Vertiv首席产品和技术官表示：“随着AI和高性能计算将功率密度推向前所未有的水平，在芯片层面理解和解决热量挑战对于系统设计、性能和可靠性变得至关重要。
 
-Royce Micro-Cap Trust为封闭式多元化管理投资公司，其普通股在纽约证券交易所上市交易。
+” 此次收购是Vertiv热管理战略的重要一环，其技术恰好处于服务器侧液冷与数据中心基础设施冷源之间的接口位置。
 
-基金的主要投资目标为长期资本增值，在正常情况下，至少将80%的净资产投资于微型公司，即市值不超过罗素2000指数中最小市值公司的市值的公司。
+随着英伟达新一代GPU功率突破1500W，传统风冷已逼近物理极限，液冷从“可选项”变为“必选项”。
 
-基金采用与Royce Small-Cap Trust类似的季度派息政策，按前四个日历季度末资产净值滚动平均值的7%年化率进行分配。
+Vertiv通过收购该团队，意在打通从芯片基板到干冷器的全链路自研能力，形成闭环解决方案。
 
-截至2026年5月31日，本次0.21美元股息的资金来源构成预估为：净投资收入0美元（占比0%），已实现短期收益0.0683美元（占比33%），已实现长期收益0.1417美元（占比67%），无资本返还。
+持续并购意图构建“热管理帝国” 本次收购是Vertiv近两个月内完成的第三笔交易——4月初收购了预制模块化数据中心厂商BMarko Structures，还在推进对热交换器制造商ThermoKey的收购。
 
 ## 相关推荐
 
-- 2026-06-29 15:29 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-29 15:06 - [恋与深空 731](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 15:33 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 15:35 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 15:11 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 15:26 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-29 15:08 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 15:12 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 15:12 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 15:07 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 15:16 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 15:24 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 15:15 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 15:13 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 15:39 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 15:24 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 15:28 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 15:23 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 15:28 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
+- 2026-06-29 15:21 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 15:12 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 15:25 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 15:20 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-29 15:22 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/49152.shtml)
-- 2026-06-29 15:09 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/926237682.shtml)
-- 2026-06-29 15:30 - [爱很美味](http://www.share.kurohicncr.top/Article/details/4791671.shtml)
-- 2026-06-29 15:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/01564887306.shtml)
-- 2026-06-29 15:12 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.kurohicncr.top/Article/details/580352.shtml)
-- 2026-06-29 15:21 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/529098798784.shtml)
-- 2026-06-29 15:19 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/040101790.shtml)
-- 2026-06-29 15:15 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/01906.shtml)
-- 2026-06-29 15:28 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/84147885.shtml)
-- 2026-06-29 15:20 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/4644929.shtml)
-- 2026-06-29 15:08 - [媒体：中国田径压力与期待并存](https://www.blog.kurohicncr.top/Article/details/05878263791.shtml)
-- 2026-06-29 15:18 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/41000495356.shtml)
-- 2026-06-29 15:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/153743366.shtml)
-- 2026-06-29 15:10 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/79388.shtml)
-- 2026-06-29 15:23 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/84141317432.shtml)
+- 2026-06-29 15:35 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/073676072.shtml)
+- 2026-06-29 15:38 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.kurohicncr.top/Article/details/92803691.shtml)
+- 2026-06-29 15:34 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/77929.shtml)
+- 2026-06-29 15:12 - [恋与深空 731](https://www.blog.minike.top/Article/details/69711373.shtml)
+- 2026-06-29 15:14 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/04823.shtml)
+- 2026-06-29 15:35 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/499044.shtml)
+- 2026-06-29 15:27 - [日本主帅：目标是冠军](https://www.blog.minike.top/Article/details/450330.shtml)
+- 2026-06-29 15:31 - [袁隆平院士 不容诋毁！](https://www.share.minike.top/Article/details/412018.shtml)
+- 2026-06-29 15:19 - [滾石唱片要求万豪酒店道歉](http://www.share.kurohicncr.top/Article/details/849956.shtml)
+- 2026-06-29 15:21 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/030552886244.shtml)
+- 2026-06-29 15:31 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/0681999.shtml)
+- 2026-06-29 15:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/24635.shtml)
+- 2026-06-29 15:36 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3167920.shtml)
+- 2026-06-29 15:31 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/10905229.shtml)
+- 2026-06-29 15:23 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/0990570.shtml)

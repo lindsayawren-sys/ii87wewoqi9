@@ -1,61 +1,57 @@
-# 科梁信息港股IPO：递表前夕大批战投清仓退出、关联方突击入股 反向持股海外核心供应商 现金流持续波动
+# 迈威生物-B首挂上市 早盘上涨5.28%
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-出品：新浪财经上市公司研究院 作者：渚 5月20日，上海科梁信息科技股份有限公司（下称“科梁信息”）正式向联交所主板提交上市申请，国金证券（香港）担任其独家保荐人。 本次申报前夕，科梁信息多家战略投资者集中清仓离场，关联企业宏力达却在此时点突击受让大额股份，入股成本低于前期融资价。 经营层面，科梁信息多重经营风险交织。公司作为无电网背景的第三方服务商，同时面对国内同业白热化竞争
+迈威生物-B（02493）首挂上市，公告显示，每股定价27.64港元，共发行4713.02万股股份，每手200股，所得款项净额约11.89亿港元。截至发稿，股价上涨5.28%，现报29.10港元，成交额5842.71万港元。 公开资料显示，迈威生物（02493）是一家具备从药物发现至商业化销售的端到端能力的创新药企，其研发布局集中在当下备受瞩目的ADC（抗体偶联药物）与TCE（
 
 ## 正文
 
-出品：新浪财经上市公司研究院 作者：渚 5月20日，上海科梁信息科技股份有限公司（下称“科梁信息”）正式向联交所主板提交上市申请，国金证券（香港）担任其独家保荐人。
+迈威生物-B（02493）首挂上市，公告显示，每股定价27.64港元，共发行4713.02万股股份，每手200股，所得款项净额约11.89亿港元。
 
-本次申报前夕，科梁信息多家战略投资者集中清仓离场，关联企业宏力达却在此时点突击受让大额股份，入股成本低于前期融资价。
+截至发稿，股价上涨5.28%，现报29.10港元，成交额5842.71万港元。
 
-经营层面，科梁信息多重经营风险交织。
+公开资料显示，迈威生物（02493）是一家具备从药物发现至商业化销售的端到端能力的创新药企，其研发布局集中在当下备受瞩目的ADC（抗体偶联药物）与TCE（T细胞衔接抗体）两大热门肿瘤领域。
 
-公司作为无电网背景的第三方服务商，同时面对国内同业白热化竞争与海外厂商技术挤压，公司招标中标率、招标收入连续三年下滑，高端装备电气业务收入大幅缩水，境外市场收入持续萎缩，市场拓展空间受限。
+公司的王牌产品9MW2821临床进度全球领先，多项适应症已进入III期临床阶段；与此同时，公司已有4款产品实现商业化，初步验证了从研发到销售的全链条兑现能力。
 
-供应链方面，科梁信息过半采购额依赖单一加拿大供应商，还反向持有对方股权并签订独家经销协议，供应链高度绑定海外主体，地缘环境变化、合作关系变动都将直接冲击主营业务。
+值得注意的是，上交所及深交所发布公告称，因迈威生物-B在香港联合交易所有限公司上市不适用价格稳定期机制，且相应A股上市满10个交易日，港股通标的证券名单调入迈威生物-B，4月28日起生效。
 
-大批战投清仓退出 关联方突击入股 科梁信息创建于2007年，是一家“以模型驱动开发，以创新创造价值”的数字能源科技公司，致力于为新型电力系统与高端装备电气系统的规划、设计、建设、运行全生命周期，提供仿真测试类专业软硬件工具产品与定制化综合解决方案。
+据悉，2022年1月，公司A股在上交所科创板上市，并于2024年3月获纳入富时全球股票指数。
 
-科梁信息曾多次筹划A股上市。
-
-2021年1月，公司向上海证监局提交辅导备案，辅导机构为安信证券（现国投证券），该次辅导于2023年3月终止。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 15:27 - [外网预言中国举办世界杯时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 15:21 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 15:07 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 15:17 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 15:17 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 15:17 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 15:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-29 15:08 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-29 15:32 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-29 15:30 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 15:15 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 15:19 - [逆天祖国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 15:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-29 15:14 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 15:16 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 15:19 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 15:30 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 15:14 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-29 15:24 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 15:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-29 15:41 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 15:21 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 15:33 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-29 15:33 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 15:29 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 15:29 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 15:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/800586646972.shtml)
-- 2026-06-29 15:14 - [中国邮政上海分公司总经理李柏平被查](http://www.share.minike.top/Article/details/080446720.shtml)
-- 2026-06-29 15:08 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/87701776.shtml)
-- 2026-06-29 15:35 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.blog.kurohicncr.top/Article/details/74596400.shtml)
-- 2026-06-29 15:26 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/0595984.shtml)
-- 2026-06-29 15:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/595929000127.shtml)
-- 2026-06-29 15:12 - [灿如繁星定档](http://www.blog.minike.top/Article/details/883725846974.shtml)
-- 2026-06-29 15:30 - [哈基米歌王争霸赛](https://www.blog.minike.top/Article/details/083090892.shtml)
-- 2026-06-29 15:35 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/15809.shtml)
-- 2026-06-29 15:28 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/50482472731.shtml)
-- 2026-06-29 15:10 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/817706205.shtml)
-- 2026-06-29 15:28 - [我国文化产业营收规模突破20万亿元](https://www.blog.kurohicncr.top/Article/details/9371968.shtml)
-- 2026-06-29 15:21 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/420220.shtml)
-- 2026-06-29 15:21 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/759142.shtml)
-- 2026-06-29 15:29 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/2548467.shtml)
+- 2026-06-29 15:13 - [小娘惹](http://www.share.kurohicncr.top/Article/details/66837.shtml)
+- 2026-06-29 15:13 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/58703.shtml)
+- 2026-06-29 15:21 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/093874977.shtml)
+- 2026-06-29 15:17 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/64240854594.shtml)
+- 2026-06-29 15:16 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/11306190.shtml)
+- 2026-06-29 15:41 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://www.blog.minike.top/Article/details/367371.shtml)
+- 2026-06-29 15:37 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/80721206558.shtml)
+- 2026-06-29 15:12 - [明天睁眼按时来取代我](http://www.blog.minike.top/Article/details/2953434.shtml)
+- 2026-06-29 15:27 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/9304116675.shtml)
+- 2026-06-29 15:19 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/4109128.shtml)
+- 2026-06-29 15:20 - [南非老帅布罗斯的梦没能做完](https://www.blog.kurohicncr.top/Article/details/928103.shtml)
+- 2026-06-29 15:31 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/409692785548.shtml)
+- 2026-06-29 15:39 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/54955250932.shtml)
+- 2026-06-29 15:35 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/0560569.shtml)
+- 2026-06-29 15:29 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/96638601523.shtml)

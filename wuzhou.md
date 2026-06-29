@@ -1,56 +1,51 @@
-# 智谱、MiniMax“齐入”恒指，谁在导演这场千亿“接盘”戏码？
+# 东盟中青年成广西凭祥入境游主力
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：环球老虎财经app 2026年涨势凶猛的AI“双雄”智谱、MiniMax即将加入恒生综合指数以及恒生科技指数，距离进入港股通也渐行渐近。目前，外界关乎两者的“接盘论”讨论激烈，而在港股市场“入通即崩”愈演愈烈的当下，究竟是哪些资本在导演这场接盘戏码呢？ 恒生系列指数的“迎新季”将至。 5月22日，恒生
+发布时间：2026年04月26日 12:25 来源：中国新闻网 广西凭祥地处中越边境，境内友谊关口岸是中国通往东盟最为便捷的陆路通道之一。当前，东盟客源市场正日趋年轻化，游客对科技体验、商贸旅游青睐有加。25岁至45岁的中青年游客，成为当地入境游主力军。 据了解，中越游客互访有着明显特征，中国游客赴越南旅游旨在体验民俗风情，越南游客赴中国旅游则更关心中国的文化、经济和商品。(陈
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月26日 12:25 来源：中国新闻网 广西凭祥地处中越边境，境内友谊关口岸是中国通往东盟最为便捷的陆路通道之一。
 
-来源：环球老虎财经app 2026年涨势凶猛的AI“双雄”智谱、MiniMax即将加入恒生综合指数以及恒生科技指数，距离进入港股通也渐行渐近。
+当前，东盟客源市场正日趋年轻化，游客对科技体验、商贸旅游青睐有加。
 
-目前，外界关乎两者的“接盘论”讨论激烈，而在港股市场“入通即崩”愈演愈烈的当下，究竟是哪些资本在导演这场接盘戏码呢？
+25岁至45岁的中青年游客，成为当地入境游主力军。
 
-恒生系列指数的“迎新季”将至。
+据了解，中越游客互访有着明显特征，中国游客赴越南旅游旨在体验民俗风情，越南游客赴中国旅游则更关心中国的文化、经济和商品。
 
-5月22日，恒生指数公司公布了最新一期指数调仓名单。
-
-其中，恒生综合指数、恒生科技指数成分股均新增智谱、MiniMax。
-
-若加入恒生科技指数，智谱可能在6月8日即可纳入港股通。
-
-而MiniMax同股不同权，其在后续满足市值与成交额的条件下，有望于8月纳入港股通。
+(陈沿佑 俞靖 杨陈 广西凭祥报道） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [世界杯上那些封神的门将](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 15:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 15:35 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 15:30 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 15:31 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 15:07 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 15:22 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-29 15:28 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 15:24 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 15:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 15:27 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-29 15:33 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 15:25 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 15:18 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 15:30 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 15:13 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-29 15:24 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 15:31 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 15:36 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 15:19 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 15:30 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/79627619126.shtml)
-- 2026-06-29 15:30 - [记者率先试乘西十高铁](http://www.share.minike.top/Article/details/1594835173.shtml)
-- 2026-06-29 15:35 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.kurohicncr.top/Article/details/694299239684.shtml)
-- 2026-06-29 15:12 - [吴建豪老婆](https://www.share.minike.top/Article/details/244139947466.shtml)
-- 2026-06-29 15:29 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/79907120571.shtml)
-- 2026-06-29 15:09 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/14904653.shtml)
-- 2026-06-29 15:15 - [小娘惹](https://www.blog.minike.top/Article/details/9234817496.shtml)
-- 2026-06-29 15:09 - [20年前的周杰伦](http://www.share.minike.top/Article/details/07006067.shtml)
-- 2026-06-29 15:35 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/08156145.shtml)
-- 2026-06-29 15:28 - [小说《无悔追踪》翻红](http://www.blog.minike.top/Article/details/862360183184.shtml)
-- 2026-06-29 15:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.minike.top/Article/details/74624950621.shtml)
-- 2026-06-29 15:22 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/715044832905.shtml)
-- 2026-06-29 15:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/293115521617.shtml)
-- 2026-06-29 15:17 - [沉睡花园](http://www.blog.minike.top/Article/details/2570994633.shtml)
-- 2026-06-29 15:22 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/83599758455.shtml)
+- 2026-06-29 15:22 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/852328343.shtml)
+- 2026-06-29 15:33 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/20930814258.shtml)
+- 2026-06-29 15:36 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/813734091.shtml)
+- 2026-06-29 15:20 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/549927772.shtml)
+- 2026-06-29 15:23 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/4078540.shtml)
+- 2026-06-29 15:13 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/70621991.shtml)
+- 2026-06-29 15:18 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/79043555977.shtml)
+- 2026-06-29 15:26 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/670051950900.shtml)
+- 2026-06-29 15:22 - [恋与深空评分暴跌至1.8](http://www.blog.kurohicncr.top/Article/details/99908742690.shtml)
+- 2026-06-29 15:37 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/483855613560.shtml)
+- 2026-06-29 15:30 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/93260699998.shtml)
+- 2026-06-29 15:27 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/224325.shtml)
+- 2026-06-29 15:35 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/66963.shtml)
+- 2026-06-29 15:37 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/99954.shtml)
+- 2026-06-29 15:12 - [逃狱兄弟](http://www.share.minike.top/Article/details/92565.shtml)

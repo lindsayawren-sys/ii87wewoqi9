@@ -1,56 +1,59 @@
-# 《喜欢你我也是6》先导片释出
+# 中电联：预计2026年太阳能发电装机规模将首次超过煤电装机规模
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-《喜欢你我也是6》先导片释出，高颜值嘉宾集结海边勇敢爱 近日，由爱奇艺出品，元气森林独家冠名的青年社交观察恋爱治愈系节目《喜欢你我也是》第六季正式释出先导片，并同步官宣本季素人嘉宾阵容：杜晨晨、杜媛春子、武炼治、章梓馨、樊子华、何江、李嘉昊、 朱昊谦。随着高颜值嘉宾集体亮相、假面舞会暧昧开启，节目迅速引发网友热议，“恋综颜值天花板”“全员长嘴恋爱太爽了”等相关话题持续升温，为节
+4月28日消息，中国电力企业联合会今天发布《2026年一季度全国电力供需形势分析预测报告》（以下简称“报告”）。报告指出，作为“十五五”开局之年的首个季度，一季度电力行业运行呈现“消费向好、结构向优、投资向新、保障有力”四大特征，电力系统安全稳定运行，电力消费稳中向好，电力供应持续绿色低碳转型，电力供需总体平衡。 报告显示，一季度全国全社会用电量2.51万亿千瓦时，同比增长5.
 
 ## 正文
 
-《喜欢你我也是6》先导片释出，高颜值嘉宾集结海边勇敢爱 近日，由爱奇艺出品，元气森林独家冠名的青年社交观察恋爱治愈系节目《喜欢你我也是》第六季正式释出先导片，并同步官宣本季素人嘉宾阵容：杜晨晨、杜媛春子、武炼治、章梓馨、樊子华、何江、李嘉昊、 朱昊谦。
+4月28日消息，中国电力企业联合会今天发布《2026年一季度全国电力供需形势分析预测报告》（以下简称“报告”）。
 
-随着高颜值嘉宾集体亮相、假面舞会暧昧开启，节目迅速引发网友热议，“恋综颜值天花板”“全员长嘴恋爱太爽了”等相关话题持续升温，为节目正式开播提前积蓄期待值。
+报告指出，作为“十五五”开局之年的首个季度，一季度电力行业运行呈现“消费向好、结构向优、投资向新、保障有力”四大特征，电力系统安全稳定运行，电力消费稳中向好，电力供应持续绿色低碳转型，电力供需总体平衡。
 
-作为陪伴观众走过多个夏天的经典恋综IP，《喜欢你我也是》第六季此次将故事搬至珠海海边。
+报告显示，一季度全国全社会用电量2.51万亿千瓦时，同比增长5.2%。
 
-在蓝天、海浪与落日构成的天然浪漫氛围中，一群年轻人带着不同的爱情观与人生状态相遇，开启一场关于勇敢表达、真诚靠近的心动实验。
+截至3月底，全国全口径发电装机容量39.6亿千瓦，其中非化石能源发电装机容量24.6亿千瓦，同比增长21.3%，占总装机容量比重为62.0%。
 
-相较于传统恋综偏慢热的情感推进方式，第六季以“全开麦”为核心概念，鼓励嘉宾主动表达情绪与好感，不回避、不猜测、不内耗，让“敢喜欢、敢表达、敢靠近”成为这一季最鲜明的情感底色。
+一季度，风电和太阳能发电合计新增装机5716万千瓦，占新增发电装机总容量比重68.2%，电力行业绿色低碳转型持续推进。
 
-高颜值素人阵容集结，假面舞会氛围感拉满 此次曝光的先导片中，节目以一场充满仪式感的假面舞会拉开序幕。
+报告预测，2026年我国宏观经济将继续保持平稳增长，拉动电力消费需求平稳较快增长，新型基础设施建设驱动相关行业用电快速增长。
 
-在正式见面前，男女嘉宾首先通过“爱情观手环”感知彼此的情感态度，在未知与期待中完成第一次双向选择。
+预计2026年全国全社会用电量10.9-11万亿千瓦时，同比增长5%-6%，其中二季度全国全社会用电量增速5%左右。
 
-伴随着音乐与灯光，一众嘉宾佩戴面具陆续登场，整体画面宛如青春爱情电影。
+预计全年统调最大负荷在15.7-16.3亿千瓦左右。
 
 ## 相关推荐
 
-- 2026-06-29 15:24 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 15:23 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-29 15:23 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 15:22 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-29 15:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 15:26 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-29 15:31 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-29 15:29 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
-- 2026-06-29 15:24 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 15:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-29 15:37 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 15:38 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 15:29 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-29 15:30 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 15:26 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 15:37 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
+- 2026-06-29 15:30 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 15:15 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 15:20 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuosha.md)
+- 2026-06-29 15:17 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 15:34 - [德云色预测世界杯16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 15:20 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 15:40 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:34 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/90240642.shtml)
-- 2026-06-29 15:14 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/576872990154.shtml)
-- 2026-06-29 15:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/170964550.shtml)
-- 2026-06-29 15:20 - [行程万里不忘初心](https://www.share.minike.top/Article/details/4592128.shtml)
-- 2026-06-29 15:31 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/8268908.shtml)
-- 2026-06-29 15:07 - [极限挑战第一季](https://www.share.minike.top/Article/details/751069968121.shtml)
-- 2026-06-29 15:15 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/2205600.shtml)
-- 2026-06-29 15:29 - [于小华病逝 曾给小龙女和冯程程配音](https://www.share.minike.top/Article/details/102643344.shtml)
-- 2026-06-29 15:30 - [本届世界杯已有5名球员卷入性侵风波](http://www.share.minike.top/Article/details/68695927.shtml)
-- 2026-06-29 15:21 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/43704.shtml)
-- 2026-06-29 15:17 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/929223.shtml)
-- 2026-06-29 15:33 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/46103.shtml)
-- 2026-06-29 15:25 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/29067.shtml)
-- 2026-06-29 15:30 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/74308.shtml)
-- 2026-06-29 15:27 - [灿如繁星定档](https://www.blog.minike.top/Article/details/28458.shtml)
+- 2026-06-29 15:37 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/6853759486.shtml)
+- 2026-06-29 15:41 - [papi酱在救赎窦文涛](https://www.blog.kurohicncr.top/Article/details/245681.shtml)
+- 2026-06-29 15:31 - [共享单车“价格刺客”79分钟30元](https://www.share.minike.top/Article/details/231724.shtml)
+- 2026-06-29 15:32 - [唐国强打卡贵阳孔学堂](https://www.share.minike.top/Article/details/55420588755.shtml)
+- 2026-06-29 15:41 - [行程万里不忘初心](http://www.blog.kurohicncr.top/Article/details/324873645.shtml)
+- 2026-06-29 15:20 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/020697293.shtml)
+- 2026-06-29 15:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/332807210.shtml)
+- 2026-06-29 15:30 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/9391862.shtml)
+- 2026-06-29 15:36 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/4155007.shtml)
+- 2026-06-29 15:38 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/897459262810.shtml)
+- 2026-06-29 15:14 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/522329701.shtml)
+- 2026-06-29 15:12 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/23850.shtml)
+- 2026-06-29 15:38 - [亲妈因家庭矛盾虐待3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/7094729.shtml)
+- 2026-06-29 15:30 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/081402300081.shtml)
+- 2026-06-29 15:34 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/74203190.shtml)

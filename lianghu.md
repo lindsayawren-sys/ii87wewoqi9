@@ -1,56 +1,60 @@
-# Aldeyra将出席2026年杰富瑞全球医疗保健会议
+# 雪佛龙CEO：委内瑞拉需出台更多举措振兴石油工业
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-Aldeyra Therapeutics周二宣布，公司总裁兼首席执行官Todd C． Brady博士将出席2026年杰富瑞全球医疗保健会议，并参与炉边对话环节。 根据公司公告，Brady博士与杰富瑞生物技术股票研究副总裁Amin Makarem的对话定于6月4日（周四）上午8时45分（美国东部时间）在纽约举行。感兴趣的投资者可通过Aldeyra官网投资者关系页面观看现场网络直播
+雪佛龙公司首席执行官迈克・沃斯表示，委内瑞拉调整石油政策是吸引外资的积极进展，但该国仍需推出更多配套措施。 沃斯在哥伦比亚广播公司《面向全国》节目中指出：“这一调整朝着积极方向迈进，但仍有改进空间，目前的力度或许不足以吸引理想规模的投资。因此我认为，进展确实存在。” 今年1月，美国推翻马杜罗政权、罗德里格斯出任代总统后，沃斯对特朗普政府的委内瑞拉政策表示看好。马杜罗被扣押后短短
 
 ## 正文
 
-Aldeyra Therapeutics周二宣布，公司总裁兼首席执行官Todd C． Brady博士将出席2026年杰富瑞全球医疗保健会议，并参与炉边对话环节。
+雪佛龙公司首席执行官迈克・沃斯表示，委内瑞拉调整石油政策是吸引外资的积极进展，但该国仍需推出更多配套措施。
 
-根据公司公告，Brady博士与杰富瑞生物技术股票研究副总裁Amin Makarem的对话定于6月4日（周四）上午8时45分（美国东部时间）在纽约举行。
+沃斯在哥伦比亚广播公司《面向全国》节目中指出：“这一调整朝着积极方向迈进，但仍有改进空间，目前的力度或许不足以吸引理想规模的投资。
 
-感兴趣的投资者可通过Aldeyra官网投资者关系页面观看现场网络直播，会议结束后，回放将在网站上存档90天。
+因此我认为，进展确实存在。
 
-Aldeyra Therapeutics是一家专注于发现和开发创新疗法以治疗免疫介导疾病的生物技术公司。
+” 今年1月，美国推翻马杜罗政权、罗德里格斯出任代总统后，沃斯对特朗普政府的委内瑞拉政策表示看好。
 
-该公司的技术路径侧重于开发调节蛋白质系统的药物，而非直接抑制或激活单一蛋白质靶点，目标是同时优化多条通路并最大限度降低毒性。
+马杜罗被扣押后短短数周内，委内瑞拉一改长期奉行的石油国有化政策，以期吸引海外投资者。
 
-公司的产品管线包括RASP调节剂ADX-248、ADX-246及相关分子，用于潜在治疗全身性和视网膜免疫介导疾病。
+上周，一批美国石油企业高管在加拉加斯与罗德里格斯会面，要求对方提供投资安全保障。
 
-其中，处于后期开发阶段的核心候选产品包括reproxalap，这是一种RASP调节剂，用于潜在治疗干眼症和过敏性结膜炎；以及ADX-2191，这是一种新型玻璃体内注射甲氨蝶呤制剂，用于潜在治疗原发性玻璃体视网膜淋巴瘤和色素性视网膜炎。
+此举表明，随着特朗普呼吁重振委内瑞拉石油生产，美国石油公司的投资兴趣已不再局限于雪佛龙等少数行业巨头。
 
-此次杰富瑞全球医疗保健会议汇聚了来自全球的生物技术、制药及医疗健康领域的上市公司和私营企业，是行业内最具影响力的投资者会议之一。
+沃斯表示：“委内瑞拉增产将提升美国的能源供应可靠性与保障水平。
 
 ## 相关推荐
 
-- 2026-06-29 15:34 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 15:20 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 15:19 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-29 15:12 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-29 15:24 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-29 15:28 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 15:21 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 15:10 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 15:13 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-29 15:31 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 15:16 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 15:23 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 15:25 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 15:41 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 15:32 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 15:20 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 15:26 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 15:17 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 15:23 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 15:34 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 15:24 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 15:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-29 15:40 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 15:34 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:20 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/258765264826.shtml)
-- 2026-06-29 15:25 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/25531168949.shtml)
-- 2026-06-29 15:22 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/71992745.shtml)
-- 2026-06-29 15:23 - [内马尔打日本前先买百万美元豪表](http://www.blog.minike.top/Article/details/0255126509.shtml)
-- 2026-06-29 15:11 - [巴基斯坦军方打死29名武装分子](https://www.blog.kurohicncr.top/Article/details/62005582673.shtml)
-- 2026-06-29 15:11 - [博主：全球股市进入“AI极端共振”](http://www.blog.minike.top/Article/details/6593795.shtml)
-- 2026-06-29 15:27 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/711333.shtml)
-- 2026-06-29 15:29 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.blog.minike.top/Article/details/83855.shtml)
-- 2026-06-29 15:26 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/2944155.shtml)
-- 2026-06-29 15:34 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/38684.shtml)
-- 2026-06-29 15:29 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/670889084.shtml)
-- 2026-06-29 15:30 - [大六座SUV进入黄金时代](https://www.blog.minike.top/Article/details/9139066.shtml)
-- 2026-06-29 15:19 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/96813765.shtml)
-- 2026-06-29 15:12 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/5311422.shtml)
-- 2026-06-29 15:18 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/066390825.shtml)
+- 2026-06-29 15:28 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/2232050.shtml)
+- 2026-06-29 15:24 - [每代父母都困在自己的时代里](https://www.blog.minike.top/Article/details/22777.shtml)
+- 2026-06-29 15:22 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/85181883.shtml)
+- 2026-06-29 15:18 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/361230.shtml)
+- 2026-06-29 15:13 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/732856955.shtml)
+- 2026-06-29 15:27 - [端午节加班工资应该怎么算](https://www.share.kurohicncr.top/Article/details/77470350.shtml)
+- 2026-06-29 15:34 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/19944980837.shtml)
+- 2026-06-29 15:12 - [苹果ultra2阔折叠已开模测试](https://www.share.minike.top/Article/details/55844240.shtml)
+- 2026-06-29 15:18 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/01715978435.shtml)
+- 2026-06-29 15:20 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/0197318921.shtml)
+- 2026-06-29 15:33 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/551212.shtml)
+- 2026-06-29 15:40 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/4107769.shtml)
+- 2026-06-29 15:25 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/674483.shtml)
+- 2026-06-29 15:13 - [博主：美航母沦为毒品集散窝点](http://www.share.kurohicncr.top/Article/details/2086159.shtml)
+- 2026-06-29 15:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/41888680912.shtml)

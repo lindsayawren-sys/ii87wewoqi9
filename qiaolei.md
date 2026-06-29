@@ -1,61 +1,60 @@
-# Millennium前高管领导的对冲基金据悉新聘10个交易团队并将增资
+# 华泰期货：市场担忧5月全球可能发生厄尔尼诺现象，支撑橡胶价格
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-据一位知情人士透露，专注于亚洲市场的对冲基金公司Arrowpoint Investment Partners正寻求在下半年将资本增加到25亿至30亿美元之间，且有更多团队将加入这家所谓的“多重经理人基金”（pod-shop）公司。 这位知情人士表示，在现有和新投资者的注资以及今年1-5月回报率达8.3%的帮助下，该公司资产已增至近20亿美元。由于涉及更公开资讯，知情人士要求匿名
+来源：华泰期货 作者： 陈莉 市场要闻与数据 期货方面，昨日收盘RU主力合约17225元/吨，较前一日变动+165元/吨；NR主力合约14280元/吨，较前一日变动+140元/吨；BR主力合约15500元/吨，较前一日变动-200元/吨。 现货方面，云南产全乳胶上海市场价格17100元/吨，较前一日变动+200元/吨。青岛保税区泰混16350元/吨，较前一日变动+170元/吨。
 
 ## 正文
 
-据一位知情人士透露，专注于亚洲市场的对冲基金公司Arrowpoint Investment Partners正寻求在下半年将资本增加到25亿至30亿美元之间，且有更多团队将加入这家所谓的“多重经理人基金”（pod-shop）公司。
+来源：华泰期货 作者： 陈莉 市场要闻与数据 期货方面，昨日收盘RU主力合约17225元/吨，较前一日变动+165元/吨；NR主力合约14280元/吨，较前一日变动+140元/吨；BR主力合约15500元/吨，较前一日变动-200元/吨。
 
-这位知情人士表示，在现有和新投资者的注资以及今年1-5月回报率达8.3%的帮助下，该公司资产已增至近20亿美元。
+现货方面，云南产全乳胶上海市场价格17100元/吨，较前一日变动+200元/吨。
 
-由于涉及更公开资讯，知情人士要求匿名。
+青岛保税区泰混16350元/吨，较前一日变动+170元/吨。
 
-该人士表示，Arrowpoint已签约10个新的投资团队，这些团队将在今年剩余时间内开始运作，目前积极交易的团队数量约为20个。
+青岛保税区泰国20号标胶2170美元/吨，较前一日变动+45美元/吨。
 
-一位驻香港的合伙人Elizabeth Lo拒绝置评。
+青岛保税区印尼20号标胶2095美元/吨，较前一日变动+20美元/吨。
 
-自2017年以来，聘雇多个团队的多策略公司持续吸引全球对冲基金业的大部分新增资金，满足了投资者对能够产生稳定回报的一站式服务需求。
+中石油齐鲁石化BR9000出厂价格15800元/吨，较前一日变动-300元/吨。
 
-这加剧人才争夺战与资金竞争。
+浙江传化BR9000市场价15750元/吨，较前一日变动-50元/吨。
 
-然而，这种竞争环境也令新成立的基金格外承压，要求其在创业初期便须成功招募优秀投资人才、持续创造绩效并建立稳定资金来源。
+市场资讯 2026年3月中国天然橡胶（含技术分类、胶乳、烟胶片、初级形状、混合胶、复合胶）进口量61.62万吨，环比增加33.52%，同比增加3.72%，2026年1-3月累计进口数量172.27万吨，累计同比增加2.19%。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-29 15:34 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 15:21 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-29 15:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-29 15:07 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 15:21 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 15:31 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 15:33 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 15:31 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-29 15:12 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 15:08 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-29 15:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 15:11 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 15:09 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 15:21 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 15:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 15:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 15:33 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 15:29 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 15:22 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-29 15:12 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 15:18 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 15:39 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 15:39 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 15:27 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 15:18 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
+- 2026-06-29 15:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 15:16 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
+- 2026-06-29 15:26 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:31 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/50654151808.shtml)
-- 2026-06-29 15:15 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/4287645611.shtml)
-- 2026-06-29 15:27 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/099019716097.shtml)
-- 2026-06-29 15:06 - [盛秋平任南昌市委书记](http://www.share.kurohicncr.top/Article/details/0964306587.shtml)
-- 2026-06-29 15:16 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/188189902248.shtml)
-- 2026-06-29 15:17 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://www.share.kurohicncr.top/Article/details/84002.shtml)
-- 2026-06-29 15:19 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/9225533.shtml)
-- 2026-06-29 15:25 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/693413803.shtml)
-- 2026-06-29 15:34 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/828068682049.shtml)
-- 2026-06-29 15:08 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/9544244990.shtml)
-- 2026-06-29 15:09 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/6421670932.shtml)
-- 2026-06-29 15:25 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/94906695.shtml)
-- 2026-06-29 15:34 - [法国紧急下单3万台空调](https://www.blog.minike.top/Article/details/08083214.shtml)
-- 2026-06-29 15:17 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/448259005.shtml)
-- 2026-06-29 15:17 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/3437632.shtml)
+- 2026-06-29 15:41 - [金牌调解](https://www.share.minike.top/Article/details/77019206.shtml)
+- 2026-06-29 15:32 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/50456267.shtml)
+- 2026-06-29 15:39 - [送你一朵小红花](https://www.share.minike.top/Article/details/886637423671.shtml)
+- 2026-06-29 15:41 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.kurohicncr.top/Article/details/406189.shtml)
+- 2026-06-29 15:34 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/0633708658.shtml)
+- 2026-06-29 15:40 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/059495382.shtml)
+- 2026-06-29 15:32 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/197786487867.shtml)
+- 2026-06-29 15:32 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/82762639.shtml)
+- 2026-06-29 15:30 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/0665548693.shtml)
+- 2026-06-29 15:39 - [苹果ultra2阔折叠已开模测试](http://www.share.minike.top/Article/details/22145839787.shtml)
+- 2026-06-29 15:14 - [BB大王横店拍戏](http://www.share.kurohicncr.top/Article/details/47864090.shtml)
+- 2026-06-29 15:16 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/51814429720.shtml)
+- 2026-06-29 15:34 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/500857379201.shtml)
+- 2026-06-29 15:36 - [恋与深空 731](https://www.share.minike.top/Article/details/146808.shtml)
+- 2026-06-29 15:21 - [5万块的威力](http://www.blog.minike.top/Article/details/92859.shtml)

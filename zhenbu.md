@@ -1,58 +1,59 @@
-# 橡胶热点评论：NR交割品调整的影响
+# 一季度浙江算力中心用电规模和增速创新高
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-大地期货研究院 核心观点 NR新增非洲胶交割品，贴水400交割，立马实施；NR11之后对印尼胶也设置400的贴水。 NR06、NR07仍然是以印尼胶定价。 NR08-NR10是以印尼胶为底，非洲胶船货+400为顶，对于NR08挤仓的资金有一定打击，情绪会有所回落。 NR11之后以非洲+400定价，NR10-11价差或许要继续拉开。 无论是近端还是远期，目前非洲胶还无法交割进入N
+中新社杭州4月27日电 (鲍梦妮 张悦)据中国国家电网浙江省电力有限公司27日消息，一季度浙江全省算力中心用电量达15.29亿千瓦时，同比(下同)增长26.43%，规模与增速均刷新历史纪录。 一季度，从用电结构来看，浙江大型与超大型算力项目成为增长“主力军”。大型算力中心用电量达7.24亿千瓦时，增长42.06%，对浙江算力用电增量的贡献率超六成；超大型算力中心用电量激增186
 
 ## 正文
 
-大地期货研究院 核心观点 NR新增非洲胶交割品，贴水400交割，立马实施；NR11之后对印尼胶也设置400的贴水。
+中新社杭州4月27日电 (鲍梦妮 张悦)据中国国家电网浙江省电力有限公司27日消息，一季度浙江全省算力中心用电量达15.29亿千瓦时，同比(下同)增长26.43%，规模与增速均刷新历史纪录。
 
-NR06、NR07仍然是以印尼胶定价。
+一季度，从用电结构来看，浙江大型与超大型算力项目成为增长“主力军”。
 
-NR08-NR10是以印尼胶为底，非洲胶船货+400为顶，对于NR08挤仓的资金有一定打击，情绪会有所回落。
+大型算力中心用电量达7.24亿千瓦时，增长42.06%，对浙江算力用电增量的贡献率超六成；超大型算力中心用电量激增1863.15%，贡献率达20.20%；中小型算力中心平稳运行，增长5.85%。
 
-NR11之后以非洲+400定价，NR10-11价差或许要继续拉开。
+今年3月，浙江全省算力中心最大用电负荷达111.06万千瓦，平均负荷100.83万千瓦，同比均实现30%以上增长；日最小与最大负荷平均比值达92.72%，峰谷差极小。
 
-无论是近端还是远期，目前非洲胶还无法交割进入NR，都没有交割利润，理论上NR远期需要给到16050以上。
+节假日算力中心日均负荷率达98.06%，略高于工作日，算力需求不受假期影响，全天候稳定运转。
 
-目前上游仍然没有卖货到中国的利润，尤其是泰国和印尼，目前正在通过价格上涨来解决这个矛盾。
+近年来浙江算力基础设施建设提速扩容。
 
-01 调整内容 新增非洲胶交割品。
+截至2025年底，该省已建成投用的总算力规模超156EFLOPS，算力构成高度向智算聚焦，其中智能算力达151EFLOPS，占比96.58%。
 
-NR新增非洲胶交割品（两个牌号），贴水400（60美金），立马实施，对可交割的仓单生产日期没有明确（一般NR的交割品是必须要在生产日期三个月内）。
+预计到2026年底，该省算力规模有望实现翻番。
 
 ## 相关推荐
 
-- 2026-06-29 15:16 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 15:22 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 15:15 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 15:34 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-29 15:16 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 15:28 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
-- 2026-06-29 15:09 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 15:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 15:23 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 15:23 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
-- 2026-06-29 15:10 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 15:27 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 15:30 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 15:34 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 15:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-29 15:34 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 15:37 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-29 15:39 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 15:31 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 15:22 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 15:12 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 15:23 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 15:23 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 15:30 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 15:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:23 - [周生如故](https://www.blog.kurohicncr.top/Article/details/5374202182.shtml)
-- 2026-06-29 15:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/83874.shtml)
-- 2026-06-29 15:30 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/486228279.shtml)
-- 2026-06-29 15:24 - [上海一小区水池内出现一条鳄鱼](http://www.share.minike.top/Article/details/208118489535.shtml)
-- 2026-06-29 15:16 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/58976030131.shtml)
-- 2026-06-29 15:15 - [当我回母校教书](http://www.share.minike.top/Article/details/374336.shtml)
-- 2026-06-29 15:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/42200282.shtml)
-- 2026-06-29 15:33 - [沉睡花园](https://www.blog.minike.top/Article/details/281953422.shtml)
-- 2026-06-29 15:23 - [光与夜之恋](https://www.share.minike.top/Article/details/90007.shtml)
-- 2026-06-29 15:31 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/704402233333.shtml)
-- 2026-06-29 15:26 - [极限挑战第一季](http://www.blog.minike.top/Article/details/41927.shtml)
-- 2026-06-29 15:33 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/580057.shtml)
-- 2026-06-29 15:27 - [绘画区你赢了](https://www.share.minike.top/Article/details/47948.shtml)
-- 2026-06-29 15:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/15499986586.shtml)
-- 2026-06-29 15:20 - [评论员：日菲勾连各有盘算](http://www.blog.minike.top/Article/details/176973140875.shtml)
+- 2026-06-29 15:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/43977977.shtml)
+- 2026-06-29 15:40 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/0755672.shtml)
+- 2026-06-29 15:14 - [内马尔打日本前先买百万美元豪表](http://www.share.minike.top/Article/details/889147.shtml)
+- 2026-06-29 15:18 - [爸爸当家](http://www.share.minike.top/Article/details/81533804781.shtml)
+- 2026-06-29 15:27 - [韩国国脚无缘上亿韩元奖金](http://www.share.kurohicncr.top/Article/details/3710860562.shtml)
+- 2026-06-29 15:40 - [女儿称是生父强奸所生拒付赡养费](https://www.share.kurohicncr.top/Article/details/6860569.shtml)
+- 2026-06-29 15:25 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/1873744491.shtml)
+- 2026-06-29 15:39 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/2526276.shtml)
+- 2026-06-29 15:20 - [天道](http://www.blog.kurohicncr.top/Article/details/0336272849.shtml)
+- 2026-06-29 15:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/674242937.shtml)
+- 2026-06-29 15:26 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/0140701420.shtml)
+- 2026-06-29 15:18 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.kurohicncr.top/Article/details/68256772541.shtml)
+- 2026-06-29 15:23 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/2858706.shtml)
+- 2026-06-29 15:15 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/34923058.shtml)
+- 2026-06-29 15:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/851561546.shtml)

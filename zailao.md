@@ -1,51 +1,47 @@
-# 报道：特朗普对内塔尼亚胡称维护以色列在全球的地位很难
+# 兆易创新将于5月29日派发末期股息每股0.8555198港元
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-以色列媒体援引一位未具名“非常高级别”的以色列官员报道称，美国总统唐纳德·特朗普周一在与以色列总理本雅明·内塔尼亚胡通话时表示，维护以色列在全球的地位很困难，而且会招致仇恨。 报道称，特朗普并未像其他媒体报道的那样，谈到内塔尼亚胡本可能入狱等表态，也没有说内塔尼亚胡遭到全球的痛恨。 报道还称，这通“气氛紧张”的电话主要围绕双方在社交媒体上的相互矛盾表述展开：特朗普称，内塔尼亚胡
+兆易创新（03986）发布公告，将于2026年5月29日派发截至2025年12月31日止年度的末期股息每股0.8555198港元。责任编辑：卢昱君
 
 ## 正文
 
-以色列媒体援引一位未具名“非常高级别”的以色列官员报道称，美国总统唐纳德·特朗普周一在与以色列总理本雅明·内塔尼亚胡通话时表示，维护以色列在全球的地位很困难，而且会招致仇恨。
+兆易创新（03986）发布公告，将于2026年5月29日派发截至2025年12月31日止年度的末期股息每股0.8555198港元。
 
-报道称，特朗普并未像其他媒体报道的那样，谈到内塔尼亚胡本可能入狱等表态，也没有说内塔尼亚胡遭到全球的痛恨。
-
-报道还称，这通“气氛紧张”的电话主要围绕双方在社交媒体上的相互矛盾表述展开：特朗普称，内塔尼亚胡暗示战争仍在全面持续；而内塔尼亚胡则称，特朗普暗示已实现全面停火。
-
-报道说，通话结束时双方达成一项谅解：只要以色列本土不遭到攻击，将暂缓对贝鲁特发动打击。
-
-责任编辑：何云
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 15:14 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 15:19 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 15:32 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 15:31 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 15:15 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 15:08 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
-- 2026-06-29 15:17 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-29 15:10 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 15:21 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-29 15:16 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 15:21 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 15:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 15:36 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 15:14 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 15:30 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 15:40 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-29 15:22 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 15:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 15:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 15:26 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 15:29 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 15:24 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 15:34 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 15:37 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:22 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/504524029.shtml)
-- 2026-06-29 15:31 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/1705782382.shtml)
-- 2026-06-29 15:28 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/69214743390.shtml)
-- 2026-06-29 15:31 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.minike.top/Article/details/3100612574.shtml)
-- 2026-06-29 15:33 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/883159.shtml)
-- 2026-06-29 15:33 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/63547922.shtml)
-- 2026-06-29 15:34 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/101086479883.shtml)
-- 2026-06-29 15:09 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/08899.shtml)
-- 2026-06-29 15:31 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/3264207.shtml)
-- 2026-06-29 15:17 - [崔韩率还以为韩娱来新人了](http://www.share.minike.top/Article/details/05645966892.shtml)
-- 2026-06-29 15:18 - [网警提醒警惕高考查分陷阱](https://www.blog.kurohicncr.top/Article/details/9046430155.shtml)
-- 2026-06-29 15:32 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/419502762058.shtml)
-- 2026-06-29 15:23 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](http://www.share.minike.top/Article/details/4145068.shtml)
-- 2026-06-29 15:07 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/89727264.shtml)
-- 2026-06-29 15:28 - [夏天被这些虫子咬了可能致命](https://www.blog.kurohicncr.top/Article/details/64520061.shtml)
+- 2026-06-29 15:12 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/1799509943.shtml)
+- 2026-06-29 15:38 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/82797.shtml)
+- 2026-06-29 15:20 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/9702050.shtml)
+- 2026-06-29 15:30 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/37753017657.shtml)
+- 2026-06-29 15:39 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/16138721003.shtml)
+- 2026-06-29 15:18 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/987053834796.shtml)
+- 2026-06-29 15:25 - [四川宜宾地震已致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/915879870706.shtml)
+- 2026-06-29 15:27 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/369510322.shtml)
+- 2026-06-29 15:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/13320107.shtml)
+- 2026-06-29 15:17 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/382192266.shtml)
+- 2026-06-29 15:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/502605025147.shtml)
+- 2026-06-29 15:18 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/87926842392.shtml)
+- 2026-06-29 15:25 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/8641908316.shtml)
+- 2026-06-29 15:40 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/94245256.shtml)
+- 2026-06-29 15:35 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/18098.shtml)

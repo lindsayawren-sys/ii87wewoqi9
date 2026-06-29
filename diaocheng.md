@@ -1,57 +1,59 @@
-# Else Nutrition启动2026年第二季度生产计划，以解决断货问题
+# 当“绿水青山”成为世界语言——见证生态环境国际对话
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-Else Nutrition Holdings Inc．宣布启动一项生产计划，以应对美国和加拿大市场日益增长的消费需求，并解决过去一年中因库存不足而导致的多次断货问题。 该公司表示，此前的断货情况已严重影响了公司营收并延缓了增长。新启动的生产计划将确保2026年夏季期间在美国和加拿大市场维持充足库存。公司计划将这一生产势头延续整个夏季，为今年剩余时间储备足够货品。 Else N
+当前，世界百年未有之大变局加速演进，人类赖以生存的地球家园遭遇着气候变化、生物多样性丧失、环境污染“三重危机”，但单边主义、保护主义抬头，生态环境领域多边合作遭遇逆流，给全球环境治理带来严峻挑战。面对人类可持续发展该何去何从的世界之问，中国坚持以习近平生态文明思想为引领，承担大国责任、展现大国担当，实现了由全球环境治理参与者到引领者的重大转变。 这些年，由于工作关系，我直接参与
 
 ## 正文
 
-Else Nutrition Holdings Inc．宣布启动一项生产计划，以应对美国和加拿大市场日益增长的消费需求，并解决过去一年中因库存不足而导致的多次断货问题。
+当前，世界百年未有之大变局加速演进，人类赖以生存的地球家园遭遇着气候变化、生物多样性丧失、环境污染“三重危机”，但单边主义、保护主义抬头，生态环境领域多边合作遭遇逆流，给全球环境治理带来严峻挑战。
 
-该公司表示，此前的断货情况已严重影响了公司营收并延缓了增长。
+面对人类可持续发展该何去何从的世界之问，中国坚持以习近平生态文明思想为引领，承担大国责任、展现大国担当，实现了由全球环境治理参与者到引领者的重大转变。
 
-新启动的生产计划将确保2026年夏季期间在美国和加拿大市场维持充足库存。
+这些年，由于工作关系，我直接参与了不少生态环境领域的国际交流合作活动，愈发深刻感受到这一重大转变背后的中国智慧、中国方案、中国力量，也愈发深刻体会到习近平生态文明思想的真理力量和实践伟力。
 
-公司计划将这一生产势头延续整个夏季，为今年剩余时间储备足够货品。
+从参与者到引领者的角色转变，不是自说自话，而是扎根于中国生态文明建设的历史性、转折性、全局性变化，印证于一系列看得见、摸得着、举世瞩目的巨大成就中。
 
-Else Nutrition首席执行官兼联合创始人Hamutal Yitzhak表示：“我非常高兴能够启动这项生产计划以避免断货。
+作为新时代生态文明建设的一线参与者和见证者，我有幸更加近距离地感受到习近平生态文明思想，在“听到—读懂—认同—借鉴”的轨迹上，不断深入人心、走向世界，指引全球绿色转型和环境治理沿着正确的航向，驶向清洁、美丽、可持续的未来。
 
-这将使我们能够支持美国市场不断增长的产品需求以及加拿大市场的产品重新推出。
+从“听到中国声音”到“读懂中国理念” 早些年我们出去交流，更多是讲清楚“中国做了什么”。
 
-拥有充足的产品来满足不断增长的消费者需求，将使公司能够回归增长轨道并实现盈利目标。
+我们带着各种数据图表、案例图片去参加国际会议，告诉大家我们的森林覆盖率增加了，空气质量变好了，河水变清了。
 
-” Else Nutrition是一家专注于为婴儿、幼儿、儿童和成人开发全植物基营养产品的企业。
+那时，得到的反馈常常是：“很了不起，但这是你们的国情，在别的国家不一定行得通。
 
 ## 相关推荐
 
-- 2026-06-29 15:30 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 15:26 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 15:27 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 15:22 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 15:20 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-29 15:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 15:17 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 15:08 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 15:12 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-29 15:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 15:12 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 15:15 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 15:19 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 15:26 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 15:15 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 15:41 - [抓特务票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 15:21 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 15:27 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 15:38 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 15:20 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 15:25 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-29 15:16 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 15:37 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 15:21 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:27 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/78707.shtml)
-- 2026-06-29 15:11 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/226628153.shtml)
-- 2026-06-29 15:14 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/97993235.shtml)
-- 2026-06-29 15:32 - [逆天祖国人](http://www.share.kurohicncr.top/Article/details/9933390.shtml)
-- 2026-06-29 15:20 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/97908680657.shtml)
-- 2026-06-29 15:19 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/429323.shtml)
-- 2026-06-29 15:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/61494.shtml)
-- 2026-06-29 15:16 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/79507045.shtml)
-- 2026-06-29 15:17 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/72533.shtml)
-- 2026-06-29 15:24 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/034964.shtml)
-- 2026-06-29 15:26 - [周生如故](http://www.share.minike.top/Article/details/47600756763.shtml)
-- 2026-06-29 15:21 - [恋与深空 731](http://www.share.minike.top/Article/details/266767821.shtml)
-- 2026-06-29 15:33 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/20047995636.shtml)
-- 2026-06-29 15:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/4438569.shtml)
-- 2026-06-29 15:09 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/7750036.shtml)
+- 2026-06-29 15:28 - [国家体育总局政策法规司原副司长获刑](http://www.share.kurohicncr.top/Article/details/972271.shtml)
+- 2026-06-29 15:28 - [速度与激情9](https://www.share.minike.top/Article/details/590316.shtml)
+- 2026-06-29 15:35 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/73854562.shtml)
+- 2026-06-29 15:16 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/43837.shtml)
+- 2026-06-29 15:31 - [撒旦的腋窝是什么比喻](https://www.share.kurohicncr.top/Article/details/63558348092.shtml)
+- 2026-06-29 15:13 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/20016.shtml)
+- 2026-06-29 15:21 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/66817720143.shtml)
+- 2026-06-29 15:26 - [84岁英国教授成中国网红](http://www.share.kurohicncr.top/Article/details/17208848.shtml)
+- 2026-06-29 15:37 - [驻日美军航母沦为“毒窝”](https://www.blog.minike.top/Article/details/1251515.shtml)
+- 2026-06-29 15:31 - [女心理师](http://www.share.minike.top/Article/details/4011627.shtml)
+- 2026-06-29 15:15 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/5738077.shtml)
+- 2026-06-29 15:30 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/174389881.shtml)
+- 2026-06-29 15:16 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/656561.shtml)
+- 2026-06-29 15:40 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/51814517790.shtml)
+- 2026-06-29 15:21 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/830626770.shtml)

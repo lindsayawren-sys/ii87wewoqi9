@@ -1,61 +1,57 @@
-# 2026年西江干流首次生态敏感期水量调度开展
+# 人民银行上海总部联合上海市委统战部、市工商联举办金融支持民营企业高质量发展暨“政会银企”机制推进会
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网广州6月1日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)1日消息，近日，受持续性强降雨影响，西江干流及支流柳江出现明显涨水过程。该委抢抓主汛期前窗口期，统筹开展2026年西江干流首次生态敏感期水量调度，科学实施洪水塑造，调度成效显著。珠江委介绍，该委在确保流域防洪安全的前提下，会同相关电网、流域有关省(自治区)水利部门，科学调度大藤峡水利枢纽，同步联合运用龙
+来源：中国人民银行上海总部 4月27日，人民银行上海总部联合上海市委统战部、市工商联举办2026年金融支持民营企业高质量发展暨“政会银企”机制推进会，持续深化“上海金融支持民营经济高质量发展服务月”活动，进一步推动“政会银企”工作机制提质见效。市委常委、统战部部长陈通出席会议并讲话，市政协副主席、市工商联主席寿子琪主持会议，人民银行上海总部主任兼上海市分行行长金鹏辉出席会议。上
 
 ## 正文
 
-中新网广州6月1日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)1日消息，近日，受持续性强降雨影响，西江干流及支流柳江出现明显涨水过程。
+来源：中国人民银行上海总部 4月27日，人民银行上海总部联合上海市委统战部、市工商联举办2026年金融支持民营企业高质量发展暨“政会银企”机制推进会，持续深化“上海金融支持民营经济高质量发展服务月”活动，进一步推动“政会银企”工作机制提质见效。
 
-该委抢抓主汛期前窗口期，统筹开展2026年西江干流首次生态敏感期水量调度，科学实施洪水塑造，调度成效显著。
+市委常委、统战部部长陈通出席会议并讲话，市政协副主席、市工商联主席寿子琪主持会议，人民银行上海总部主任兼上海市分行行长金鹏辉出席会议。
 
-珠江委介绍，该委在确保流域防洪安全的前提下，会同相关电网、流域有关省(自治区)水利部门，科学调度大藤峡水利枢纽，同步联合运用龙滩、岩滩等其他水库，优化各水库下泄流量与时机，使控制断面大湟江口站实现连续4天涨水、日均涨幅达到1000立方米每秒以上的调度目标，成功塑造与目标产卵场代表性鱼类产卵繁殖需求精准匹配的可控涨水过程。
+上海市有关部门负责同志、上海金融监管局和上海证监局负责同志，各区工商联负责同志，基层商会协会负责人，相关金融机构及企业代表参会。
 
-珠江委水文局生态监测结果显示，调度期间，西江干流中下游河段鱼类卵苗径流量增幅显著。
+人民银行上海总部代表九部门正式发布《2026上海金融助力民营经济高质量发展工作指引》，以14条务实举措推动金融机构积极运用科技创新和技术改造再贷款新增额度，强化央行低成本资金与财政贴息在提振消费、扩大民间投资等领域的协同，充分发挥债券风险分担工具对民营企业发债的支持作用，引导私募基金加大对科技型民营企业的投资布局，进一步提升汇率避险产品便利度，着力优化民营企业融资环境。
 
-5月18日至22日，桂平监测断面日均鱼类卵苗径流量为调度前的近10倍；其中5月21日单日鱼卵径流量达到调度前的266倍。
+会议宣布民营经济金融服务实体阵地正式启动，首批18个服务站落地本市重点产业园区及金融机构，为民营企业打造“触手可及”的精准金融服务网络。
 
-本次洪水塑造为西江中下游河段鱼类繁殖注入有力的“生态脉冲”，有效激发亲鱼聚集与产卵活动，推动繁殖规模实现数量级跃升。
+在沪金融监管部门、农业银行上海市分行、中国人寿上海市分公司、虹口区工商联、奉贤区工商联和民营企业代表就做好民营企业金融服务进行交流。
 
-珠江委表示，下一步，该委将及时总结评估本次调度成效与经验，持续加强雨水情滚动预测，不断探索洪水塑造技术方法和实践路径，为西江流域生物多样性保护和河流生命健康提供坚实保障。
+市财政局和市经济信息中心围绕中小微企业贴息、民间投资专项担保计划、“随申融”应用等中小微企业一揽子融资信用服务作政策宣讲。
 
-(完)
+下一步，人民银行上海总部将按照此次会议精神，进一步发挥民营企业再贷款、科技创新和技术改造再贷款等结构性货币政策工具的引导撬动作用，加强财政金融协同，持续提升“政会银企”工作能级，共同推动上海民营经济高质量发展。
 
 ## 相关推荐
 
-- 2026-06-29 15:27 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 15:09 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 15:07 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 15:15 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 15:09 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 15:08 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 15:16 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 15:27 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 15:19 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-29 15:20 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 15:07 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-29 15:19 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 15:08 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 15:13 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 15:33 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 15:25 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 15:38 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 15:12 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 15:29 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 15:24 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 15:23 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 15:15 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 15:21 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 15:39 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 15:32 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 15:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [苹果回应恋与深空低分](https://www.blog.kurohicncr.top/Article/details/1901405.shtml)
-- 2026-06-29 15:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/455752390.shtml)
-- 2026-06-29 15:33 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/0557836331.shtml)
-- 2026-06-29 15:09 - [刘世锦：建议划拨20万亿国资充实社保](http://www.blog.minike.top/Article/details/1285879533.shtml)
-- 2026-06-29 15:33 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/845987557104.shtml)
-- 2026-06-29 15:35 - [第一炉香](http://www.share.kurohicncr.top/Article/details/131931617.shtml)
-- 2026-06-29 15:28 - [天道](http://www.share.minike.top/Article/details/792444554.shtml)
-- 2026-06-29 15:18 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/34932.shtml)
-- 2026-06-29 15:31 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/769438031690.shtml)
-- 2026-06-29 15:33 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/7849557095.shtml)
-- 2026-06-29 15:08 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/75560.shtml)
-- 2026-06-29 15:12 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/440305082001.shtml)
-- 2026-06-29 15:23 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/29199249.shtml)
-- 2026-06-29 15:29 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/972259566.shtml)
-- 2026-06-29 15:21 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.minike.top/Article/details/527971.shtml)
+- 2026-06-29 15:35 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/72331.shtml)
+- 2026-06-29 15:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.kurohicncr.top/Article/details/5831814.shtml)
+- 2026-06-29 15:41 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/6033781.shtml)
+- 2026-06-29 15:34 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/3269584.shtml)
+- 2026-06-29 15:14 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/981077078.shtml)
+- 2026-06-29 15:28 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/1466424153.shtml)
+- 2026-06-29 15:31 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/12026.shtml)
+- 2026-06-29 15:12 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/9631750.shtml)
+- 2026-06-29 15:38 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/1599037421.shtml)
+- 2026-06-29 15:20 - [豆包收费了，你还会用吗？](https://www.share.minike.top/Article/details/527406576.shtml)
+- 2026-06-29 15:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/8747451.shtml)
+- 2026-06-29 15:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/54926399512.shtml)
+- 2026-06-29 15:24 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/2725526688.shtml)
+- 2026-06-29 15:39 - [请回答王牌2019](http://www.blog.minike.top/Article/details/77112375233.shtml)
+- 2026-06-29 15:24 - [世界杯上那些封神的门将](http://www.blog.kurohicncr.top/Article/details/078005897696.shtml)

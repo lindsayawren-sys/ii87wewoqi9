@@ -1,58 +1,57 @@
-# 第九届“选择法国”峰会聚焦人工智能和数据中心项目
+# 青海河南蒙旗草原：“指尖”经济带动牧民家门口致富
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新社巴黎6月1日电(记者 李洋)第九届“选择法国”峰会当地时间6月1日在巴黎郊外凡尔赛宫举行。本届峰会主要聚焦人工智能和数据中心项目。 法国总统马克龙在峰会期间表示，外国企业在本届峰会上承诺在法投资总额达930亿欧元，涵盖71个项目，预计将创造1.5万个就业岗位。930亿欧元的投资总额中包括日本软银集团承诺投资的450亿欧元项目。 软银集团的相关投资项目在此次峰会期间受到关注
+中新网青海黄南4月27日电 题：青海河南蒙旗草原：“指尖”经济带动牧民家门口致富 作者 祁绣娟 春日的青海省黄南藏族自治州河南蒙古族自治县(以下简称：河南县)蒙旗草原，寒风瑟瑟。 走进位于县城的阿群服装制作有限公司车间，一股淡淡的羊皮香扑面而来，工人们在岗位上有序忙碌。 作为青海唯一的蒙古族自治县，这座牧业小城依托生态畜牧业、畜产品加工以及“指尖”经济，让越来越多牧民实现家门口
 
 ## 正文
 
-中新社巴黎6月1日电(记者 李洋)第九届“选择法国”峰会当地时间6月1日在巴黎郊外凡尔赛宫举行。
+中新网青海黄南4月27日电 题：青海河南蒙旗草原：“指尖”经济带动牧民家门口致富 作者 祁绣娟 春日的青海省黄南藏族自治州河南蒙古族自治县(以下简称：河南县)蒙旗草原，寒风瑟瑟。
 
-本届峰会主要聚焦人工智能和数据中心项目。
+走进位于县城的阿群服装制作有限公司车间，一股淡淡的羊皮香扑面而来，工人们在岗位上有序忙碌。
 
-法国总统马克龙在峰会期间表示，外国企业在本届峰会上承诺在法投资总额达930亿欧元，涵盖71个项目，预计将创造1.5万个就业岗位。
+作为青海唯一的蒙古族自治县，这座牧业小城依托生态畜牧业、畜产品加工以及“指尖”经济，让越来越多牧民实现家门口就业。
 
-930亿欧元的投资总额中包括日本软银集团承诺投资的450亿欧元项目。
+今年70岁的公保扎西是黄南州级非物质文化遗产代表性项目河南县苏和泽制作技艺代表性传承人。
 
-软银集团的相关投资项目在此次峰会期间受到关注。
+他所承担的工作是用特制木杖鞣制羊皮，起落间，细密纹理顺着羊皮肌理浮现。
 
-软银集团董事长兼首席执行官孙正义1日早些时候在巴黎与马克龙会面。
+不远处，63岁的索南措专注裁剪，“以前在家自己做‘苏和泽’，2019年公司成立后我来上班，每月能拿5000元工资，既能挣钱，还能传习技艺、带徒弟。
 
-软银集团计划投入450亿欧元在上法兰西大区建设一座数据中心，预期到2031年可达3.1吉瓦容量。
+” “苏和泽”意为蒙式羊皮袄，是蒙藏文化深度交融的见证，一件成品需经二十余道纯手工工序。
 
-这被认为是该公司在欧洲规模最大的人工智能基础设施投资之一。
+2024年，河南县举办大规模“苏和泽”服饰展演，1068名民众身着自制服饰亮相，斩获WRCA世界纪录，让这门老手艺广为人知。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 15:13 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 15:29 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 15:30 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 15:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 15:21 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 15:27 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-29 15:29 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
-- 2026-06-29 15:28 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 15:11 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 15:26 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 15:08 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 15:23 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 15:12 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 15:38 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-29 15:34 - [媒体：网络测评不能只剩“生意”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 15:33 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-29 15:29 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
+- 2026-06-29 15:32 - [妹妹的正确用法！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 15:15 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 15:25 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 15:23 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 15:23 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:11 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/695585.shtml)
-- 2026-06-29 15:16 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/764284671350.shtml)
-- 2026-06-29 15:08 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/759672730.shtml)
-- 2026-06-29 15:11 - [我和我的家乡](http://www.blog.minike.top/Article/details/686644657762.shtml)
-- 2026-06-29 15:30 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/8178900.shtml)
-- 2026-06-29 15:13 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/430536.shtml)
-- 2026-06-29 15:27 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/9482971.shtml)
-- 2026-06-29 15:13 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/50740763515.shtml)
-- 2026-06-29 15:29 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/7453273.shtml)
-- 2026-06-29 15:12 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/593278934.shtml)
-- 2026-06-29 15:19 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.kurohicncr.top/Article/details/96807402.shtml)
-- 2026-06-29 15:32 - [苹果回应恋与深空低分](https://www.blog.minike.top/Article/details/87986344199.shtml)
-- 2026-06-29 15:08 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/130932831.shtml)
-- 2026-06-29 15:08 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/84543172719.shtml)
-- 2026-06-29 15:19 - [小娘惹](http://www.share.kurohicncr.top/Article/details/124175.shtml)
+- 2026-06-29 15:28 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/75527419131.shtml)
+- 2026-06-29 15:14 - [5万块的威力](https://www.share.minike.top/Article/details/4853583481.shtml)
+- 2026-06-29 15:30 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/0614081848.shtml)
+- 2026-06-29 15:18 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/11828513.shtml)
+- 2026-06-29 15:35 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/50024287.shtml)
+- 2026-06-29 15:40 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/60388.shtml)
+- 2026-06-29 15:23 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/6718591.shtml)
+- 2026-06-29 15:36 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/465823244753.shtml)
+- 2026-06-29 15:41 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/4954409789.shtml)
+- 2026-06-29 15:25 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/2489780.shtml)
+- 2026-06-29 15:37 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/345617109347.shtml)
+- 2026-06-29 15:29 - [这开放世界游戏，竟然允许玩家屠城？](http://www.blog.minike.top/Article/details/49818.shtml)
+- 2026-06-29 15:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/564503.shtml)
+- 2026-06-29 15:26 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/18228933.shtml)
+- 2026-06-29 15:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/33527.shtml)

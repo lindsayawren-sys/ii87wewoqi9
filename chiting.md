@@ -1,59 +1,57 @@
-# 美联储加息预期升温拖累黄金重回箱体下沿，等待方向选择
+# 全球航班“停飞危机”来了
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 国际黄金市场周二亚洲交易时段延续调整走势，现货黄金（XAU/USD）回落至4480美元附近。尽管中东地缘风险仍然处于高位，但黄金未能延续此前的强势表现，反而受到美元走强以及市场重新评估美联储政策路径的影响而出现回调。 近期黄金市场的核心矛盾正在发生变化。此前，中东地区局势升级曾推动大量避险资金流入黄金市场，使金价不断刷新历史高位。然而随着能源价格快速上涨，市
+中国新闻周刊记者：孟倩 发于2026总第1233期《中国新闻周刊》杂志 “头一遭碰到这种事，‘五一’从墨尔本回国的航班取消了，目前问题还没解决。”进入4月，大量旅客在社交媒体上集中反馈，提前数月预订的东南亚、大洋洲航线航班被系统性取消，且没有改签通道。 眼下全球航空业遭遇一场前所未有的运营挑战。目前，部分国内干线受影响较为严重，部分国际及区域航线的情况更为突出。多条热门航线提前
 
 ## 正文
 
-文章来源：汇通财经 国际黄金市场周二亚洲交易时段延续调整走势，现货黄金（XAU/USD）回落至4480美元附近。
+中国新闻周刊记者：孟倩 发于2026总第1233期《中国新闻周刊》杂志 “头一遭碰到这种事，‘五一’从墨尔本回国的航班取消了，目前问题还没解决。
 
-尽管中东地缘风险仍然处于高位，但黄金未能延续此前的强势表现，反而受到美元走强以及市场重新评估美联储政策路径的影响而出现回调。
+”进入4月，大量旅客在社交媒体上集中反馈，提前数月预订的东南亚、大洋洲航线航班被系统性取消，且没有改签通道。
 
-近期黄金市场的核心矛盾正在发生变化。
+眼下全球航空业遭遇一场前所未有的运营挑战。
 
-此前，中东地区局势升级曾推动大量避险资金流入黄金市场，使金价不断刷新历史高位。
+目前，部分国内干线受影响较为严重，部分国际及区域航线的情况更为突出。
 
-然而随着能源价格快速上涨，市场关注点逐渐从避险需求转向通胀风险，这使得黄金面临新的压力。
+多条热门航线提前取消了全部5月航班，部分航线5月计划取消率超过50%。
 
-最新消息显示，伊朗方面决定停止通过第三方与美国继续交换谈判信息，并计划采取更强硬措施回应持续存在的停火争议。
+旅客滞留、酒店预订作废、行程全盘打乱，成为“五一”假期前最为普遍的出行困境。
 
-与此同时，围绕霍尔木兹海峡的紧张局势再度升级，市场对于全球能源供应链安全的担忧明显增加。
+近几日，部分国内城市前往伦敦、马德里的航班也被网友曝光取消，停飞潮开始在部分欧洲航线出现。
 
-霍尔木兹海峡承担全球约20%的海运原油运输量以及大量液化天然气出口任务，其任何潜在中断都可能迅速推高国际能源价格。
+自2月28日美以对伊军事打击以来，中东三大枢纽——迪拜(DXB)、多哈(DOH)、阿布扎比(AUH)的中转连通度急剧下滑，全球“空中十字路口”几近关闭，多家航空公司原有航线需进行调整。
 
 ## 相关推荐
 
-- 2026-06-29 15:33 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 15:35 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 15:14 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 15:07 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-29 15:34 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 15:34 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
-- 2026-06-29 15:16 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-29 15:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 15:07 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-29 15:24 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-29 15:18 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 15:09 - [首尔商铺禁止洪明甫入内](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-29 15:21 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 15:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 15:18 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 15:35 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 15:31 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 15:34 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 15:37 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 15:36 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 15:14 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 15:27 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 15:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 15:31 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/731188839.shtml)
-- 2026-06-29 15:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/31041206291.shtml)
-- 2026-06-29 15:30 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/9434800.shtml)
-- 2026-06-29 15:26 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/157237474.shtml)
-- 2026-06-29 15:21 - [天道](https://www.share.kurohicncr.top/Article/details/40715.shtml)
-- 2026-06-29 15:27 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/2884978.shtml)
-- 2026-06-29 15:27 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/4907706.shtml)
-- 2026-06-29 15:31 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/99865.shtml)
-- 2026-06-29 15:34 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/7112887070.shtml)
-- 2026-06-29 15:10 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/66727443946.shtml)
-- 2026-06-29 15:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/9312766.shtml)
-- 2026-06-29 15:31 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/832754226.shtml)
-- 2026-06-29 15:08 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/1374332.shtml)
-- 2026-06-29 15:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/78434.shtml)
-- 2026-06-29 15:11 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/672930539.shtml)
+- 2026-06-29 15:40 - [南非老帅布罗斯的梦没能做完](http://www.blog.kurohicncr.top/Article/details/84657268350.shtml)
+- 2026-06-29 15:19 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/54440.shtml)
+- 2026-06-29 15:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/79198.shtml)
+- 2026-06-29 15:41 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/00615983775.shtml)
+- 2026-06-29 15:31 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.minike.top/Article/details/53931.shtml)
+- 2026-06-29 15:31 - [请回答王牌2019](http://www.blog.minike.top/Article/details/0640544.shtml)
+- 2026-06-29 15:39 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/493703505.shtml)
+- 2026-06-29 15:25 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/73435968960.shtml)
+- 2026-06-29 15:13 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/562939310710.shtml)
+- 2026-06-29 15:23 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/476518208.shtml)
+- 2026-06-29 15:23 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/3862283.shtml)
+- 2026-06-29 15:40 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/49889562.shtml)
+- 2026-06-29 15:20 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/5073741905.shtml)
+- 2026-06-29 15:35 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/01508829765.shtml)
+- 2026-06-29 15:29 - [众星恭喜吴建豪](https://www.blog.minike.top/Article/details/811413754477.shtml)

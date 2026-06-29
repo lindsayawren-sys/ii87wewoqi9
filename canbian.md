@@ -1,58 +1,57 @@
-# 二手平台买东西被坑？教你消费前先查一查
+# 今年超长期特别国债迎来发行，债券需求或进一步回暖
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-最近，闲鱼平台因为两件事接连登上热搜：一是AI擅自将用户手机内的文物照片识别为商品并自动上架售卖，引发隐私争议；二是有卖家反映平台在推送“无忧卖”服务时，全程只宣传提升曝光、助力成交，却未标注任何收费规则，直到交易完成后才发现被扣除了高额服务费。这些事件让不少习惯在二手平台淘货的消费者开始重新审视自己的交易安全。 二手交易平台确实给我们的生活带来了很多便利，闲置物品可以循环利用
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（4月17日）资金面延续平稳宽松，当日央行净投放1985亿元。本周一（4月20日）资金面维持宽松态势，主要资金价格变动不大，当日央行净投放为零。本周二资金面延续宽松，主要资金价格低位持稳，当日央行净投放40亿元。本周三资金面维持宽松态势，主要资金价格变动不大，当日央行净投放55亿元。本周四资金面维持宽松态势，主要资金价格低
 
 ## 正文
 
-最近，闲鱼平台因为两件事接连登上热搜：一是AI擅自将用户手机内的文物照片识别为商品并自动上架售卖，引发隐私争议；二是有卖家反映平台在推送“无忧卖”服务时，全程只宣传提升曝光、助力成交，却未标注任何收费规则，直到交易完成后才发现被扣除了高额服务费。
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（4月17日）资金面延续平稳宽松，当日央行净投放1985亿元。
 
-这些事件让不少习惯在二手平台淘货的消费者开始重新审视自己的交易安全。
+本周一（4月20日）资金面维持宽松态势，主要资金价格变动不大，当日央行净投放为零。
 
-二手交易平台确实给我们的生活带来了很多便利，闲置物品可以循环利用，买家也能以更低的价格买到需要的东西。
+本周二资金面延续宽松，主要资金价格低位持稳，当日央行净投放40亿元。
 
-但与此同时，虚假描述、隐瞒瑕疵、隐形收费、发货拖延等问题也屡见不鲜。
+本周三资金面维持宽松态势，主要资金价格变动不大，当日央行净投放55亿元。
 
-很多消费者在交易完成后才发现自己“踩了坑”，但此时维权成本高、周期长，往往只能自认倒霉。
+本周四资金面维持宽松态势，主要资金价格低位持稳，当日央行净投放为零。
 
-那么，有没有办法在交易之前就提前规避风险呢？
+本周四（4月23日）相较于上周五，DR001收平于1.22%，DR007收平于1.32%。
 
-答案是肯定的——学会使用“瞄一眼”类的消费决策工具，可以在下单前对目标商家或商品做一个基本的“背景调查”。
+海外方面，欧元区4月制造业PMI初值52.2，预期50.9，3月终值51.6；服务业PMI初值47.4，预期49.8，3月终值50.2；综合PMI初值48.6，预期50.1，3月终值50.7。
 
-以黑猫投诉 【下载黑猫投诉客户端】平台的“瞄一眼”功能为例（https：//tousu.sina.com.cn/），它基于海量真实投诉数据，帮助用户在消费前快速了解目标产品或服务的投诉情况。
+美国财政部长贝森特当地时间21日在社交媒体上发文称，美国海军将继续封锁伊朗港口，美财政部将继续对伊朗“极限施压”。
 
 ## 相关推荐
 
-- 2026-06-29 15:10 - [韩国国脚无缘上亿韩元奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-29 15:23 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-29 15:12 - [上班主打一个薪尽自然凉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 15:28 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-29 15:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 15:33 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 15:07 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 15:10 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-29 15:12 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 15:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 15:32 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 15:08 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 15:18 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 15:14 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 15:21 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 15:21 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 15:18 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 15:26 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-29 15:16 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 15:37 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 15:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 15:33 - [李小璐回应无戏可拍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
+- 2026-06-29 15:26 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:07 - [宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/874591645.shtml)
-- 2026-06-29 15:06 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/303682558.shtml)
-- 2026-06-29 15:15 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/55721564.shtml)
-- 2026-06-29 15:27 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/04275.shtml)
-- 2026-06-29 15:32 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/939212.shtml)
-- 2026-06-29 15:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/87236474511.shtml)
-- 2026-06-29 15:33 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.kurohicncr.top/Article/details/14431783274.shtml)
-- 2026-06-29 15:25 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/327585718591.shtml)
-- 2026-06-29 15:20 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/87406734538.shtml)
-- 2026-06-29 15:21 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/511290.shtml)
-- 2026-06-29 15:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/5689821.shtml)
-- 2026-06-29 15:30 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/161829253.shtml)
-- 2026-06-29 15:11 - [妹妹的正确用法！](http://www.blog.kurohicncr.top/Article/details/02459.shtml)
-- 2026-06-29 15:31 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/86834.shtml)
-- 2026-06-29 15:09 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/73222.shtml)
+- 2026-06-29 15:17 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/07210.shtml)
+- 2026-06-29 15:33 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/2070384185.shtml)
+- 2026-06-29 15:21 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/87870.shtml)
+- 2026-06-29 15:25 - [TI2026参赛战队出炉](http://www.blog.minike.top/Article/details/798841.shtml)
+- 2026-06-29 15:24 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/60248.shtml)
+- 2026-06-29 15:16 - [为何说今日日本似战前日本](https://www.blog.minike.top/Article/details/57777.shtml)
+- 2026-06-29 15:24 - [医院大厅放钢琴是形式主义吗](http://www.blog.kurohicncr.top/Article/details/41198.shtml)
+- 2026-06-29 15:17 - [于小华病逝 曾给小龙女和冯程程配音](http://www.share.kurohicncr.top/Article/details/9372757.shtml)
+- 2026-06-29 15:15 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/34391.shtml)
+- 2026-06-29 15:14 - [金刚川](http://www.blog.minike.top/Article/details/253300513.shtml)
+- 2026-06-29 15:25 - [央视曝光高价回收老物件骗局](http://www.blog.minike.top/Article/details/01845853.shtml)
+- 2026-06-29 15:17 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/6518703.shtml)
+- 2026-06-29 15:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/345386302.shtml)
+- 2026-06-29 15:12 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/43487406882.shtml)
+- 2026-06-29 15:20 - [哈兰德之歌火到国外](https://www.share.minike.top/Article/details/9178657490.shtml)

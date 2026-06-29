@@ -1,56 +1,57 @@
-# 情法相融护青苗 西安法院织密未成年人司法保护网
+# 红利低波ETF华泰柏瑞（512890）近60日吸金超18亿！基金经理：高股息资产成稀缺现金流工具
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网西安6月1日电 (记者 张一辰)“我们坚持寓教于审、情法相融，用有温度的司法为孩子们撑起一片安全蓝天。”六一国际儿童节来临之际，西安市中级人民法院(以下简称：西安中院)未成年人案件综合审判庭庭长郝卫接受中新网采访时如是说。未成年人是国家未来、民族希望，未成年人司法保护更是守护少年成长的最后一道法治防线。近年来，西安中院以温情司法与专业赋能为抓手，推动家庭、学校、社会、网络
+4月28日，市场早盘震荡调整，创业板指、深成指盘中跌超1%。在此背景下，红利低波ETF华泰柏瑞（512890）早盘微跌0.25%，报1.186元，换手率1.04%，成交额3.19亿元，居同类标的ETF首位。 资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐，近5个交易日资金净流入2亿元，近10个交易日资金净流出3.9亿元，近60个交易日资金净流入18.5亿元。截
 
 ## 正文
 
-中新网西安6月1日电 (记者 张一辰)“我们坚持寓教于审、情法相融，用有温度的司法为孩子们撑起一片安全蓝天。
+4月28日，市场早盘震荡调整，创业板指、深成指盘中跌超1%。
 
-”六一国际儿童节来临之际，西安市中级人民法院(以下简称：西安中院)未成年人案件综合审判庭庭长郝卫接受中新网采访时如是说。
+在此背景下，红利低波ETF华泰柏瑞（512890）早盘微跌0.25%，报1.186元，换手率1.04%，成交额3.19亿元，居同类标的ETF首位。
 
-未成年人是国家未来、民族希望，未成年人司法保护更是守护少年成长的最后一道法治防线。
+资金流向上，红利低波ETF华泰柏瑞（512890）长期受资金青睐，近5个交易日资金净流入2亿元，近10个交易日资金净流出3.9亿元，近60个交易日资金净流入18.5亿元。
 
-近年来，西安中院以温情司法与专业赋能为抓手，推动家庭、学校、社会、网络、政府、司法“六大保护”协同联动，构建起全链条、全方位、立体化的未成年人司法保护新格局。
+截止2026年4月27日，红利低波ETF华泰柏瑞（512890）流通规模306.26亿元。
 
-在案件审理环节，西安中院创新推出多项柔性司法举措。
+银河证券首席策略分析师杨超指出，国内经济基本盘修复、通胀回升趋势、流动性预期向好，共同支撑A股韧性。
 
-刑事审判推行圆桌审判、庭前社会调查、合适成年人到场、犯罪记录封存等制度，最大程度消解未成年被告人的法庭恐惧与对抗心理；涉少民事纠纷创新“五个一”温情司法服务，以柔性暖心方式化解抚养权、探望权纷争，避免未成年人遭遇二次伤害。
+短期看，4月底中央政治局会议即将召开，有望更多强调既定政策的落地见效与政策储备，多措并举提振内需。
 
-法院还升级改造心理咨询室，将心理疏导、危机干预贯穿庭前、庭中、判后全过程，尤其针对性侵受害未成年人严守隐私底线，全力抚平心理创伤。
+同时，4月下旬正值年报与一季报密集披露期，将成为验证盈利修复的关键窗口。
 
-郝卫表示，秉持未成年人司法“双向保护”原则，西安中院一方面对侵害未成年人犯罪坚持零容忍，依法从重处罚并适用从业禁止，为困境受害未成年人提供司法救助；另一方面对涉罪未成年人落实个性化帮教，通过法庭教育、家庭教育指导、判后回访帮教、犯罪记录封存等举措，助力罪错少年无痕回归社会。
+配置方面，杨超建议关注三个方向：一是科技创新、自主可控与产业景气的确定性趋势，重点关注具备业绩景气度支撑的核心环节；二是受益于PPI同比转正与价格中枢上移的资源板块；三是地缘冲突反复博弈中的能源及替代性需求主题、防御性板块。
 
 ## 相关推荐
 
-- 2026-06-29 15:20 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 15:18 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-29 15:30 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 15:25 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 15:34 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-29 15:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
-- 2026-06-29 15:33 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 15:11 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 15:26 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 15:20 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 15:19 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 15:36 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 15:16 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 15:13 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 15:17 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 15:19 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
+- 2026-06-29 15:22 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 15:15 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 15:35 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 15:20 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 15:30 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:13 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/86084100186.shtml)
-- 2026-06-29 15:22 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/421925.shtml)
-- 2026-06-29 15:32 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/244542046.shtml)
-- 2026-06-29 15:26 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/72330886306.shtml)
-- 2026-06-29 15:24 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/33377.shtml)
-- 2026-06-29 15:35 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/1807766.shtml)
-- 2026-06-29 15:18 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/5610251539.shtml)
-- 2026-06-29 15:15 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/98189.shtml)
-- 2026-06-29 15:17 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/2105861.shtml)
-- 2026-06-29 15:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/396260638.shtml)
-- 2026-06-29 15:30 - [评论员：日菲勾连各有盘算](http://www.blog.kurohicncr.top/Article/details/972630705308.shtml)
-- 2026-06-29 15:21 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/621662632.shtml)
-- 2026-06-29 15:23 - [沉睡花园](https://www.share.minike.top/Article/details/255223831108.shtml)
-- 2026-06-29 15:13 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/5285651.shtml)
-- 2026-06-29 15:16 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/906499237.shtml)
+- 2026-06-29 15:16 - [配音演员于小华病逝 享年78岁](http://www.share.kurohicncr.top/Article/details/685491.shtml)
+- 2026-06-29 15:28 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/762061842717.shtml)
+- 2026-06-29 15:23 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/71582.shtml)
+- 2026-06-29 15:30 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/50785704.shtml)
+- 2026-06-29 15:37 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/926203128173.shtml)
+- 2026-06-29 15:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/1701509.shtml)
+- 2026-06-29 15:13 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/6913311.shtml)
+- 2026-06-29 15:21 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/342947.shtml)
+- 2026-06-29 15:16 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/45499261.shtml)
+- 2026-06-29 15:39 - [20年前的周杰伦](https://www.blog.minike.top/Article/details/3464980.shtml)
+- 2026-06-29 15:29 - [欧盟为什么越来越倾向贸易保护](http://www.blog.minike.top/Article/details/51544455.shtml)
+- 2026-06-29 15:31 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/252611.shtml)
+- 2026-06-29 15:31 - [驻日美军航母沦为“毒窝”](https://www.share.minike.top/Article/details/327829579.shtml)
+- 2026-06-29 15:24 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/2941552460.shtml)
+- 2026-06-29 15:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/93628862132.shtml)

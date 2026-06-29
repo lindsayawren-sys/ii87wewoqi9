@@ -1,45 +1,58 @@
-# 阿迪达斯夹克可用于“在城里办事”？客服：相关商品页面已修改优化
+# 原油：WTI上涨 美伊和谈僵局导致霍尔木兹海峡仍几近封闭
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网6月1日电(记者 吴家驹)近日，多位网友反映，阿迪达斯的一款夹克外套，商品介绍中包含“在城里办事”，此事引起广泛争议。 6月1日，记者就此事以消费者身份咨询阿迪达斯某电商平台旗舰店客服，对方表示，相关商品页面已修改优化。
+油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。 WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收于每桶108美元附近。白宫新闻秘书卡罗琳·莱维特表示，特朗普召集国家安全团队讨论伊朗的提案，但未具体说明提案细节和美国的反应。 6月交割的WTI原油上涨2.1%，结算价报每桶96.37美元。 6月交割的布伦特原油上涨2
 
 ## 正文
 
-中新网6月1日电(记者 吴家驹)近日，多位网友反映，阿迪达斯的一款夹克外套，商品介绍中包含“在城里办事”，此事引起广泛争议。
+油价上涨，此前重启伊朗战争和谈的努力陷入僵局，霍尔木兹海峡通行仍几近停滞，扰乱全球市场的供应扰动持续。
 
-6月1日，记者就此事以消费者身份咨询阿迪达斯某电商平台旗舰店客服，对方表示，相关商品页面已修改优化。
+WTI原油期货上涨2.1%，收于每桶96美元上方，布伦特收于每桶108美元附近。
+
+白宫新闻秘书卡罗琳·莱维特表示，特朗普召集国家安全团队讨论伊朗的提案，但未具体说明提案细节和美国的反应。
+
+6月交割的WTI原油上涨2.1%，结算价报每桶96.37美元。
+
+6月交割的布伦特原油上涨2.8%，结算价报每桶108.23美元。
+
+周一的一系列新闻凸显出美伊谈判代表之间持续存在的理解分歧，强化了问题短期内无法解决的观点。
+
+特朗普周末取消了高级特使前往调解方巴基斯坦的行程，伊朗则表示，如果受到威胁就不会进行谈判。
+
+BOK Financial Securities交易业务高级副总裁Dennis Kissler表示，短期内达成和平协议的可能性仍然很小，因为美国仍然坚持要求伊朗放弃其核能力。
 
 ## 相关推荐
 
-- 2026-06-29 15:22 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 15:19 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 15:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-29 15:23 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
-- 2026-06-29 15:25 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 15:15 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-29 15:14 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 15:06 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 15:30 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-29 15:24 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 15:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 15:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 15:18 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 15:33 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 15:26 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 15:41 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 15:38 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
+- 2026-06-29 15:41 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
+- 2026-06-29 15:25 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 15:23 - [夏天被这些虫子咬了可能致命](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 15:40 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 15:32 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 15:22 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:28 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/52007719311.shtml)
-- 2026-06-29 15:30 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.minike.top/Article/details/1776541458.shtml)
-- 2026-06-29 15:22 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/75957458265.shtml)
-- 2026-06-29 15:22 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/28066284.shtml)
-- 2026-06-29 15:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/762420.shtml)
-- 2026-06-29 15:35 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/26220808.shtml)
-- 2026-06-29 15:34 - [流金岁月](http://www.share.minike.top/Article/details/577323993075.shtml)
-- 2026-06-29 15:09 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/112005829534.shtml)
-- 2026-06-29 15:21 - [极限挑战第一季](https://www.blog.minike.top/Article/details/65390477.shtml)
-- 2026-06-29 15:15 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/89027738904.shtml)
-- 2026-06-29 15:27 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/722901268667.shtml)
-- 2026-06-29 15:34 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/30546247161.shtml)
-- 2026-06-29 15:28 - [四川宜宾地震](https://www.share.minike.top/Article/details/9337926087.shtml)
-- 2026-06-29 15:16 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/686940882823.shtml)
-- 2026-06-29 15:10 - [请回答王牌2019](http://www.blog.minike.top/Article/details/421801.shtml)
+- 2026-06-29 15:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/631415.shtml)
+- 2026-06-29 15:24 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/8294169.shtml)
+- 2026-06-29 15:18 - [普京介绍前线战事](https://www.share.kurohicncr.top/Article/details/21096951.shtml)
+- 2026-06-29 15:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.kurohicncr.top/Article/details/556789763.shtml)
+- 2026-06-29 15:32 - [李小璐回应无戏可拍](https://www.share.minike.top/Article/details/08256.shtml)
+- 2026-06-29 15:24 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/854060.shtml)
+- 2026-06-29 15:36 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/398921.shtml)
+- 2026-06-29 15:27 - [我国文化产业营收规模突破20万亿元](https://www.share.kurohicncr.top/Article/details/17941698.shtml)
+- 2026-06-29 15:29 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/89646800.shtml)
+- 2026-06-29 15:37 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/503318038055.shtml)
+- 2026-06-29 15:41 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/427435944.shtml)
+- 2026-06-29 15:23 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/45824104447.shtml)
+- 2026-06-29 15:40 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/17345942867.shtml)
+- 2026-06-29 15:26 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/2621400.shtml)
+- 2026-06-29 15:24 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/139637930.shtml)

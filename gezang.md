@@ -1,60 +1,60 @@
-# 通用磨坊将出售中国大陆哈根达斯门店
+# 海南国际旅行卫生保健中心（海口海关口岸门诊部）临床及微生物实验室检测试剂采购项目比选公告
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-通用磨坊（General Mills）将出售其在中国大陆的哈根达斯（Häagen-Dazs）冰淇淋店。 该投资者群体包括Ningji，这是一家经营着数千家快餐式茶饮零售店的中国公司。这些投资者将获得通用磨坊的独家许可，可在中国使用哈根达斯品牌经营冰淇淋店和礼品业务。 通用磨坊表示，将继续在中国运营哈根达斯的零售和餐饮服务业务。 该拟议交易预计将于今年完成。财务条款未予披露。 通
+一、采购条件 海南国际旅行卫生保健中心(海口海关口岸门诊部)临床及微生物实验室检测试剂采购项目已获批准实施，项目业主为海南国际旅行卫生保健中心(海口海关口岸门诊部)，项目资金来自财政资金，项目出资比例为100%，采购人为海南国际旅行卫生保健中心(海口海关口岸门诊部)。项目已具备采购条件，现对该项目进行比选采购。 二、项目概况与采购范围 (一)项目名称：海南国际旅行卫生保健中心(
 
 ## 正文
 
-通用磨坊（General Mills）将出售其在中国大陆的哈根达斯（Häagen-Dazs）冰淇淋店。
+一、采购条件 海南国际旅行卫生保健中心(海口海关口岸门诊部)临床及微生物实验室检测试剂采购项目已获批准实施，项目业主为海南国际旅行卫生保健中心(海口海关口岸门诊部)，项目资金来自财政资金，项目出资比例为100%，采购人为海南国际旅行卫生保健中心(海口海关口岸门诊部)。
 
-该投资者群体包括Ningji，这是一家经营着数千家快餐式茶饮零售店的中国公司。
+项目已具备采购条件，现对该项目进行比选采购。
 
-这些投资者将获得通用磨坊的独家许可，可在中国使用哈根达斯品牌经营冰淇淋店和礼品业务。
+二、项目概况与采购范围 (一)项目名称：海南国际旅行卫生保健中心(海口海关口岸门诊部)临床及微生物实验室检测试剂采购项目。
 
-通用磨坊表示，将继续在中国运营哈根达斯的零售和餐饮服务业务。
+(二)项目概况：为满足海南国际旅行卫生保健中心(海口海关口岸门诊部)临床及微生物实验室检测需求，现对志贺氏菌生化鉴定盒、霍乱弧菌生化鉴定盒、沙门氏菌生化鉴定盒等所需试剂盒共51种进行采购。
 
-该拟议交易预计将于今年完成。
+(三)交货期：自合同签订之日起，根据采购人的书面需求计划分批次将指定品种和数量的货物送至采购人指定地点；采购人应于每季度首月第5个工作日前或提前不少于10个工作日书面通知供应商具体交付品种及数量，且有权根据实际检测需求单方书面通知调整交货批次、时间及数量，供应商应予以配合。
 
-财务条款未予披露。
+(四)质量要求：达到国家及相关行业标准，交付的试剂总有效期三个月以内的，验收合格后剩余的有效期限不少于总有效期限的1/3；总有效期在三个月以上的，验收合格后剩余的有效期限不少于总有效期限的1/2，需要2-8℃保存的试剂应由专业的冷链公司进行配送，并提供实时温度记录。
 
-通用磨坊表示，该交易符合其将产品组合专注于高增长机会的战略。
+(五)免费质保期：每批次货品自该批次货品经采购人验收合格之日起180天，或自该批次货品实际启用之日起90天(以较晚者为准)。
 
-责任编辑：王永生
+(六)详细服务地点：海南省海口市美兰区南贸大道6号A座；海南省三亚市吉阳区河东路475号。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-29 15:12 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 15:29 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 15:07 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-29 15:09 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 15:10 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 15:14 - [网友飞机上偶遇肖战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 15:34 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 15:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 15:15 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 15:34 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
-- 2026-06-29 15:30 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 15:18 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
-- 2026-06-29 15:26 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 15:24 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 15:21 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 15:41 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 15:33 - [苹果ultra2阔折叠已开模测试](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 15:14 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 15:23 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 15:37 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 15:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 15:27 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 15:30 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 15:40 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-29 15:20 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 15:35 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 15:32 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/97422.shtml)
-- 2026-06-29 15:18 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/4121138.shtml)
-- 2026-06-29 15:28 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/0027718720.shtml)
-- 2026-06-29 15:27 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.kurohicncr.top/Article/details/574742726.shtml)
-- 2026-06-29 15:32 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/01959.shtml)
-- 2026-06-29 15:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/246868.shtml)
-- 2026-06-29 15:32 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/797565163.shtml)
-- 2026-06-29 15:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/11336552645.shtml)
-- 2026-06-29 15:25 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/761919.shtml)
-- 2026-06-29 15:17 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/22963839.shtml)
-- 2026-06-29 15:33 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/372817498756.shtml)
-- 2026-06-29 15:20 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/256501712.shtml)
-- 2026-06-29 15:21 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/78810887204.shtml)
-- 2026-06-29 15:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/16310204202.shtml)
-- 2026-06-29 15:33 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/4739869773.shtml)
+- 2026-06-29 15:24 - [周深双眼皮贴又掉了](https://www.share.kurohicncr.top/Article/details/040921094703.shtml)
+- 2026-06-29 15:41 - [美人鱼](http://www.blog.minike.top/Article/details/313105566949.shtml)
+- 2026-06-29 15:23 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/326587936315.shtml)
+- 2026-06-29 15:17 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/602374933686.shtml)
+- 2026-06-29 15:41 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/09824.shtml)
+- 2026-06-29 15:28 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/4145208.shtml)
+- 2026-06-29 15:34 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/75177317.shtml)
+- 2026-06-29 15:25 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.kurohicncr.top/Article/details/277631.shtml)
+- 2026-06-29 15:27 - [戒掉咖啡后我的身体变化](http://www.share.minike.top/Article/details/29818549.shtml)
+- 2026-06-29 15:41 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/67500046.shtml)
+- 2026-06-29 15:22 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/3477229214.shtml)
+- 2026-06-29 15:20 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/3931724642.shtml)
+- 2026-06-29 15:18 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/559802010.shtml)
+- 2026-06-29 15:26 - [直击宜宾地震：监控剧烈摇晃](http://www.share.minike.top/Article/details/204620.shtml)
+- 2026-06-29 15:16 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/888149362.shtml)

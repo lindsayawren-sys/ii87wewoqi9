@@ -1,56 +1,60 @@
-# 股海导航_2026年6月2日_沪深股市公告与交易提示
+# 515投资者保护|国投瑞银基金理财笔记Vlog系列视频：每期至少包含10个精美场景 实现“知识可视化”
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 000736 *ST中地 000668 *ST荣控 002200 *ST交投 300175 ST朗源（维权） 【复牌】 300550 和仁科技 002848 高斯贝尔 603721 中广天择 【品大事】 鸿富瀚：控股子公司中标整机柜液冷部件—冷板产品 鸿富瀚（301086）6月1日
+新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。国投瑞银基金理财笔记Vlog系列视频参选“最佳投资者教育优秀创新案例”类别。>>活动详情 据悉，国投瑞银基金创新推出《理财笔记Vlog》。作为业内首批运用AI定制B-roll镜头的投教栏目，该项目以技术赋能内容，将专业财经知识转化为符合Z世代喜好的“动态化、场景化”短视频，探索投教传播新路径。 栏目文案源自“理
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-【停牌】 000736 *ST中地 000668 *ST荣控 002200 *ST交投 300175 ST朗源（维权） 【复牌】 300550 和仁科技 002848 高斯贝尔 603721 中广天择 【品大事】 鸿富瀚：控股子公司中标整机柜液冷部件—冷板产品 鸿富瀚（301086）6月1日公告，公司合并报表范围内控股子公司梅州市鸿富瀚科技有限公司（简称“梅州鸿富瀚”）于近日收到某客户相关项目的中标通知书，确认梅州鸿富瀚为该客户整机柜液冷部件—冷板产品的中标人，中标产品预计将于2026年6月至2027年1月按月度滚动下单的形式交付。
+国投瑞银基金理财笔记Vlog系列视频参选“最佳投资者教育优秀创新案例”类别。
 
-美迪凯：公司已成功切入三星的供应链体系 美迪凯近日接受机构调研时表示，公司通过收购海硕力光电技术（苏州）有限公司和INNOWAVE VIETNAM CO．，LTD两家公司100%股权，已成功切入三星的供应链体系。
+>>活动详情 据悉，国投瑞银基金创新推出《理财笔记Vlog》。
 
-目前手机摄像模组用软膜滤光片持续量产中，功率芯片的晶圆级封测业务也已进入产品验证。
+作为业内首批运用AI定制B-roll镜头的投教栏目，该项目以技术赋能内容，将专业财经知识转化为符合Z世代喜好的“动态化、场景化”短视频，探索投教传播新路径。
 
-深振业A：拟1.5亿元出售5项深圳地区自有物业 深振业A（000006）6月1日公告，为盘活存量资产，提高资产周转与资金使用效率，公司董事会同意采用公开挂牌方式在深圳联合产权交易所公开挂牌转让5项深圳地区自有物业，包括：宝丽大厦裙楼二层、宝丽大厦裙楼三层、星海名城三期幼儿园整栋、星海名城组团一商铺肉菜市场一层、星海名城组团一商铺肉菜市场二层。
+栏目文案源自“理财笔记”专栏，经润色后更口语化。
 
-本次拟出售物业挂牌底价总计1.5亿元。
+核心亮点在于利用AI根据文案生成水墨、动漫等多种风格的高质量辅助镜头，每期至少包含10个精美场景，实现“知识可视化”。
 
-两连板深南电A：公司不涉及算力业务 两连板深南电A（000037）6月1日发布股票交易异常波动公告，公司A股股票连续两个交易日日收盘价格涨幅偏离值累计达到20%以上。
+剪辑上采用快节奏、多特效及弹幕元素，兼顾专业性与趣味性。
 
-公司主营业务为电力生产销售及综合能源服务，不涉及算力业务。
+系列视频全网观看量突破300万，单期最高播放超60万，成功触达年轻群体。
 
 ## 相关推荐
 
-- 2026-06-29 15:23 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 15:31 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 15:22 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 15:21 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 15:20 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-29 15:19 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 15:07 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-29 15:19 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 15:32 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 15:34 - [苹果回应恋与深空低分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
+- 2026-06-29 15:28 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 15:21 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-29 15:12 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 15:40 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-29 15:26 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 15:41 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 15:28 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 15:17 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-29 15:12 - [世界杯十大帅哥必吃榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 15:15 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-29 15:23 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 15:41 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 15:20 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 15:20 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:21 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/712510534389.shtml)
-- 2026-06-29 15:35 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/863636123.shtml)
-- 2026-06-29 15:31 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/14622.shtml)
-- 2026-06-29 15:26 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/20981354.shtml)
-- 2026-06-29 15:32 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/636784580.shtml)
-- 2026-06-29 15:25 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/301776348.shtml)
-- 2026-06-29 15:20 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/797128253.shtml)
-- 2026-06-29 15:13 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.share.kurohicncr.top/Article/details/79396262388.shtml)
-- 2026-06-29 15:22 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/2661033281.shtml)
-- 2026-06-29 15:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/8248122.shtml)
-- 2026-06-29 15:09 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/08867.shtml)
-- 2026-06-29 15:16 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/65819.shtml)
-- 2026-06-29 15:06 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/65167343054.shtml)
-- 2026-06-29 15:18 - [一家三口吃溪石斑鱼中毒](https://www.share.minike.top/Article/details/002085562607.shtml)
-- 2026-06-29 15:34 - [森保一坚信日本能赢巴西](https://www.share.kurohicncr.top/Article/details/592238634419.shtml)
+- 2026-06-29 15:36 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/120969.shtml)
+- 2026-06-29 15:39 - [扬名立万](https://www.blog.minike.top/Article/details/998913810949.shtml)
+- 2026-06-29 15:14 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/79293167148.shtml)
+- 2026-06-29 15:22 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/7377538.shtml)
+- 2026-06-29 15:26 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/980505.shtml)
+- 2026-06-29 15:19 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/0450907.shtml)
+- 2026-06-29 15:15 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/253929.shtml)
+- 2026-06-29 15:19 - [金刚川](http://www.share.minike.top/Article/details/58681075.shtml)
+- 2026-06-29 15:14 - [王楚钦欢迎晚宴上打台球](http://www.share.kurohicncr.top/Article/details/9059231992.shtml)
+- 2026-06-29 15:18 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/44919807586.shtml)
+- 2026-06-29 15:12 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/881976573153.shtml)
+- 2026-06-29 15:37 - [papi酱在救赎窦文涛](https://www.blog.minike.top/Article/details/491192411049.shtml)
+- 2026-06-29 15:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/034752.shtml)
+- 2026-06-29 15:13 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/396597617704.shtml)
+- 2026-06-29 15:35 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/50744767.shtml)

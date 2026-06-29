@@ -1,59 +1,57 @@
-# 浙江创新三大智慧监管模式给“幽灵外卖”戴上紧箍咒
+# 上海银行党委书记、董事长顾建忠：未来五年公司将增加员工5000人至1.8万人，重点增加营销人员
 
-> 更新时间：2026-06-29 15:36:02 UTC+8
+> 更新时间：2026-06-29 15:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州6月1日电(奚金燕)6月1日，《网络餐饮服务经营者落实食品安全主体责任监督管理规定》正式施行，筑牢外卖安全防线。作为平台经济大省，2024年下半年开始，浙江以数字化改革为牵引，连出“三招”——从“证照核验比对”到“电子证照公示”，再到“互联网+明厨亮灶”，三项首创智慧监管举措环环相扣，让“看不见的外卖”变成“看得见的厨房”。 针对部分外卖商家证照造假、冒用证件等违规入
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委书记、董事长顾建忠透露，未来五年的规划中，上海银行决定增加人员，计划净增加约5000人，从大约1.3万人增加到1.8万人。他坦言：“为这件事，我也不瞒大家，我思考了三天，也很纠结。因为整个大趋势是人员在进行优化，AI在广泛应用。但我们反复权衡，认为我们的人数确实偏低了。” 他表示，员
 
 ## 正文
 
-中新网杭州6月1日电(奚金燕)6月1日，《网络餐饮服务经营者落实食品安全主体责任监督管理规定》正式施行，筑牢外卖安全防线。
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行党委书记、董事长顾建忠透露，未来五年的规划中，上海银行决定增加人员，计划净增加约5000人，从大约1.3万人增加到1.8万人。
 
-作为平台经济大省，2024年下半年开始，浙江以数字化改革为牵引，连出“三招”——从“证照核验比对”到“电子证照公示”，再到“互联网+明厨亮灶”，三项首创智慧监管举措环环相扣，让“看不见的外卖”变成“看得见的厨房”。
+他坦言：“为这件事，我也不瞒大家，我思考了三天，也很纠结。
 
-针对部分外卖商家证照造假、冒用证件等违规入驻外卖平台的问题，浙江与三大主流外卖平台建立证照核验比对机制，打通市场监管部门与外卖平台之间的数据壁垒，实现政企数据实时共享。
+因为整个大趋势是人员在进行优化，AI在广泛应用。
 
-与此同时，浙江打造“餐饮主体资质信息池”，并向外卖平台开放。
+但我们反复权衡，认为我们的人数确实偏低了。
 
-商家申请入驻时，平台通过数据接口比对校验商户证照资质信息。
+” 他表示，员工增加计划的大头（约70%）是营销人员。
 
-校验不成功的，平台会安排业务员核查证照是否完整、信息是否一致。
+在最后一公里的服务与营销中，人的作用是不可替代的，而且我们营销人员的占比也偏少。
 
-从6月1日起，三大主流外卖平台在浙江区域新入驻的商户，若主体资质校验不成功，将无法上线接单，从源头堵住了虚假、失效资质进入网络餐饮市场的漏洞。
+所以未来营销人员占比也会分散到50%以上，触达客户、服务客户的战斗力一定会提升。
 
-据统计，该机制上线以来，各平台累计拦截异常入驻申请3.6万家次。
+此外，他表示，对资源配置和绩效考核体系也做了改革，突出长期性，聚焦战略业务的培育，对早小硬、对小微金融、对科创金融，这一块要进行周期性考核，不能只看当下，也不能光看今年，可能要看3年、看5年。
 
 ## 相关推荐
 
-- 2026-06-29 15:15 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 15:08 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 15:17 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 15:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 15:12 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 15:32 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 15:14 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 15:07 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 15:21 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 15:17 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 15:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 15:35 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-29 15:15 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 15:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 15:29 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 15:24 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 15:17 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 15:28 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 15:16 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 15:24 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-29 15:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 15:40 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 15:33 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 15:38 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 15:14 - [众星恭喜吴建豪](https://www.share.minike.top/Article/details/618584755.shtml)
-- 2026-06-29 15:21 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/47390.shtml)
-- 2026-06-29 15:17 - [AG 宫斗](http://www.share.minike.top/Article/details/212115553654.shtml)
-- 2026-06-29 15:10 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/7514739.shtml)
-- 2026-06-29 15:30 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/539131765.shtml)
-- 2026-06-29 15:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/61010.shtml)
-- 2026-06-29 15:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.minike.top/Article/details/8520127.shtml)
-- 2026-06-29 15:19 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/9850179005.shtml)
-- 2026-06-29 15:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/0720327.shtml)
-- 2026-06-29 15:18 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/6234414.shtml)
-- 2026-06-29 15:18 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.kurohicncr.top/Article/details/5073211648.shtml)
-- 2026-06-29 15:27 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/63765.shtml)
-- 2026-06-29 15:18 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/105023.shtml)
-- 2026-06-29 15:24 - [世界杯上那些封神的门将](http://www.share.kurohicncr.top/Article/details/535157.shtml)
-- 2026-06-29 15:18 - [大六座SUV进入黄金时代](http://www.blog.kurohicncr.top/Article/details/474578.shtml)
+- 2026-06-29 15:13 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/2304613520.shtml)
+- 2026-06-29 15:26 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/3575101.shtml)
+- 2026-06-29 15:41 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/72133099652.shtml)
+- 2026-06-29 15:28 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/6300932.shtml)
+- 2026-06-29 15:23 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/435563.shtml)
+- 2026-06-29 15:12 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/222363.shtml)
+- 2026-06-29 15:36 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/6893203379.shtml)
+- 2026-06-29 15:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/644965428218.shtml)
+- 2026-06-29 15:13 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/724574.shtml)
+- 2026-06-29 15:27 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/433490710.shtml)
+- 2026-06-29 15:26 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/699058739.shtml)
+- 2026-06-29 15:20 - [世界杯欧美八大豪强悉数出线](http://www.blog.minike.top/Article/details/49548.shtml)
+- 2026-06-29 15:21 - [为何说今日日本似战前日本](http://www.share.kurohicncr.top/Article/details/667233095.shtml)
+- 2026-06-29 15:13 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/11653212.shtml)
+- 2026-06-29 15:17 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/0076234457.shtml)
