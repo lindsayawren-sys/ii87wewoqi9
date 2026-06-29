@@ -1,50 +1,54 @@
-# 市场监管总局：对明星带货虚假宣传依法追究责任
+# 广东1487名残疾人考生报名参加今年高考
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直
+中新网广州6月5日电 (记者 张璐)记者5日从广东省残疾人联合会(以下简称“广东省残联”)获悉，今年参加高考报名的广东考生中有1487名残疾人。 其中，在报名参加夏季高考的744名残疾人中，有71人申请夏季高考“合理便利”并通过审核。此举保障了残疾人平等参加高考的权益。 据悉，广东省教育考试院、广东省残联和广东省卫生健康委等相关单位的专业人员组成专家组，对提出考试“合理便利”申
 
 ## 正文
 
-发布时间：2026年04月29日 18:12 来源：中国新闻网 4月29日，记者在市场监管总局食品安全专题新闻发布会上获悉，市场监管总局近日正式印发《关于开展网络食品销售虚假宣传专项整治行动的通知》，从现在起在全国范围内开展为期半年的专项整治行动。
+中新网广州6月5日电 (记者 张璐)记者5日从广东省残疾人联合会(以下简称“广东省残联”)获悉，今年参加高考报名的广东考生中有1487名残疾人。
 
-市场监管总局食品安全总监孙会川表示，此次专项整治将彰显最严监管，坚决处罚到人：对违法行为负有直接责任的企业法定代表人、主要负责人、直接责任人，依法实施个人罚款和从业禁止；对明星带货、网络主播、运营团队等实施虚假宣传的，坚持一案多查，依法追究法律责任。
+其中，在报名参加夏季高考的744名残疾人中，有71人申请夏季高考“合理便利”并通过审核。
 
-责任编辑：【岳川】
+此举保障了残疾人平等参加高考的权益。
+
+据悉，广东省教育考试院、广东省残联和广东省卫生健康委等相关单位的专业人员组成专家组，对提出考试“合理便利”申请的考生相关材料和残疾情况进行核实评估，同意给予71名考生提供“合理便利”。
+
+获同意使用大字号试卷、使用盲文试卷和延长考试时间的考生，将被安排在单独考场考试，延长的考试时间统一安排在各科正常考试时间后顺延。
+
+同时，对于其他申请“合理便利”的残疾人考生，各市各考点在保证考试安全和考场秩序的前提下，视其残疾情况，给予携带光学放大镜、照明台灯、佩戴助听器、优先进入考点考场等相应“合理便利”。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-29 22:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 22:07 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 22:06 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 22:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-29 22:07 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 22:00 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 21:54 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-29 22:00 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 21:58 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
-- 2026-06-29 22:15 - [女生学医适合选什么专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 22:14 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 22:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 22:11 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 22:27 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 22:20 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 22:18 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 22:15 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-29 22:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 22:26 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 22:03 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 22:14 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 22:06 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 22:25 - [恋与深空制作组回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/184289.shtml)
-- 2026-06-29 22:12 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/65916276500.shtml)
-- 2026-06-29 21:56 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/913931106760.shtml)
-- 2026-06-29 22:01 - [谁在推动“成都造”影视持续出圈](https://www.share.minike.top/Article/details/3202642.shtml)
-- 2026-06-29 21:55 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/582291006492.shtml)
-- 2026-06-29 22:16 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/4643021.shtml)
-- 2026-06-29 21:56 - [央行首次3000亿元隔夜逆回购操作](http://www.share.minike.top/Article/details/852682784.shtml)
-- 2026-06-29 22:23 - [日本足球能掀翻巴西吗](https://www.blog.minike.top/Article/details/29928070589.shtml)
-- 2026-06-29 22:13 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/108891273438.shtml)
-- 2026-06-29 22:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/6955839191.shtml)
-- 2026-06-29 22:23 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/89935579.shtml)
-- 2026-06-29 22:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/890888103467.shtml)
-- 2026-06-29 22:12 - [扬名立万](https://www.share.minike.top/Article/details/67374.shtml)
-- 2026-06-29 22:17 - [美国一牛仔表演发生事故](http://www.share.kurohicncr.top/Article/details/2756068.shtml)
-- 2026-06-29 22:00 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/4339024.shtml)
+- 2026-06-29 22:27 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/360340510.shtml)
+- 2026-06-29 22:02 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/530733.shtml)
+- 2026-06-29 22:11 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/4391636047.shtml)
+- 2026-06-29 22:27 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/25327.shtml)
+- 2026-06-29 22:10 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/48662.shtml)
+- 2026-06-29 22:10 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/3389776177.shtml)
+- 2026-06-29 22:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/732215464744.shtml)
+- 2026-06-29 22:09 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/386648435512.shtml)
+- 2026-06-29 22:17 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/791966136819.shtml)
+- 2026-06-29 22:00 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/651449.shtml)
+- 2026-06-29 22:04 - [被中方管控的20家日本实体什么来头](http://www.share.minike.top/Article/details/4614619.shtml)
+- 2026-06-29 22:13 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/171826624037.shtml)
+- 2026-06-29 22:03 - [马光远谈马斯克最大的价值](http://www.blog.kurohicncr.top/Article/details/83759844.shtml)
+- 2026-06-29 22:00 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/2874213.shtml)
+- 2026-06-29 22:11 - [国际清算银行警告AI投资热潮](http://www.share.kurohicncr.top/Article/details/54537525.shtml)

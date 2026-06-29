@@ -1,61 +1,56 @@
-# 高盛：美元/日元若快速升至163-164 或加剧日本干预风险
+# 官方报告：2025年流域、气候等新类型案件不断涌现
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-专题：A股风格切换一触即发？5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
+中新社北京6月5日电 (记者 张素)6月5日是世界环境日。当日发布的《中国环境司法发展报告(2025年)》显示，2025年，传统环境资源案件审理成效显著，流域、气候等新类型案件不断涌现。 全国人大环境与资源保护委员会副主任委员吕忠梅在5日举行的新闻发布会上介绍上述报告。 据统计，全国法院去年依法审结环境资源一审案件22.9万件。吕忠梅说，环境民事案件数量上升，省域分布差异显著。
 
 ## 正文
 
-专题：A股风格切换一触即发？
+中新社北京6月5日电 (记者 张素)6月5日是世界环境日。
 
-5月机构紧盯三大景气主线 高盛表示，如果美元/日元迅速上涨至163-164水平，直接干预的可能性可能会增加。
+当日发布的《中国环境司法发展报告(2025年)》显示，2025年，传统环境资源案件审理成效显著，流域、气候等新类型案件不断涌现。
 
-策略师Karen Reichgott Fishman在报告中写道，如果日本国债波动性再次飙升，干预的可能性也会增加，1月份时就曾引发了汇率检查。
+全国人大环境与资源保护委员会副主任委员吕忠梅在5日举行的新闻发布会上介绍上述报告。
 
-不过，基本面“如今与2024年最后几轮干预之前，甚至与2026年1月的协调汇率检查之前都截然不同”。
+据统计，全国法院去年依法审结环境资源一审案件22.9万件。
 
-因此，尽管官员们的口头评论更加频繁，但立即开展行动的理由看起来“不那么令人信服”。
+吕忠梅说，环境民事案件数量上升，省域分布差异显著。
 
-在能源引发通胀冲击之际，预计日元将面临更大的贬值压力。
+噪声污染案件数量占比依旧稳居首位，水污染案件数量明显下降。
 
-这使得日元在战术层面上成为一种颇具吸引力的套利工具。
+吕忠梅还说，环境行政案件争议类型相对集中，呈现出二审率和再审率较高的特征。
 
-责任编辑：王永生
+环境刑事案件数量持续下降，罪名分布集中于非法占用农用地、非法采矿等土地矿产类犯罪。
 
 ## 相关推荐
 
-- 2026-06-29 22:11 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-29 22:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
-- 2026-06-29 22:04 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-29 22:10 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 22:14 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 21:56 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 22:21 - [金鹰奖第二阶段投票明日开启](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 22:14 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 22:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 22:06 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-29 22:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-29 22:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
-- 2026-06-29 22:11 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 22:04 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 22:13 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 22:27 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 22:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 22:16 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-29 22:24 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 22:08 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 22:17 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-29 22:11 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 22:29 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 22:26 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 22:24 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.share.minike.top/Article/details/6266489.shtml)
-- 2026-06-29 21:59 - [绘画区你赢了](https://www.share.minike.top/Article/details/7385635329.shtml)
-- 2026-06-29 22:19 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/216721.shtml)
-- 2026-06-29 21:58 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/111267.shtml)
-- 2026-06-29 22:11 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/16122444.shtml)
-- 2026-06-29 22:00 - [第二波数码涨价潮来袭](https://www.share.minike.top/Article/details/3279786.shtml)
-- 2026-06-29 22:16 - [俄军1周发射上千架无人机有何目的](https://www.share.minike.top/Article/details/28209412129.shtml)
-- 2026-06-29 22:00 - [日本队豪言击败巴西是自信还是傲慢](http://www.blog.minike.top/Article/details/3290020.shtml)
-- 2026-06-29 22:17 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/163210641364.shtml)
-- 2026-06-29 22:09 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/221059914299.shtml)
-- 2026-06-29 21:59 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/06384.shtml)
-- 2026-06-29 22:21 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/17741966289.shtml)
-- 2026-06-29 22:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/49847830.shtml)
-- 2026-06-29 22:16 - [日防卫省正考虑引进美企人工智能系统](https://www.blog.kurohicncr.top/Article/details/4267527.shtml)
-- 2026-06-29 22:04 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/03975374.shtml)
+- 2026-06-29 22:00 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/690918.shtml)
+- 2026-06-29 22:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/68657.shtml)
+- 2026-06-29 22:11 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/53037574513.shtml)
+- 2026-06-29 22:18 - [沉睡花园](http://www.share.minike.top/Article/details/38325763.shtml)
+- 2026-06-29 22:04 - [张元英是故意的还是不小心的](http://www.share.kurohicncr.top/Article/details/029856.shtml)
+- 2026-06-29 22:10 - [小龙女配音去世 李若彤发文悼念](http://www.share.kurohicncr.top/Article/details/358311654160.shtml)
+- 2026-06-29 22:29 - [穆祉丞东方风云榜红毯](http://www.share.minike.top/Article/details/77733994.shtml)
+- 2026-06-29 22:12 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/0728853822.shtml)
+- 2026-06-29 22:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/13545.shtml)
+- 2026-06-29 22:02 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/03661620.shtml)
+- 2026-06-29 22:23 - [周杰伦千禧年就有小卡了](https://www.blog.kurohicncr.top/Article/details/496922410.shtml)
+- 2026-06-29 22:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/775965455174.shtml)
+- 2026-06-29 22:10 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/0626663.shtml)
+- 2026-06-29 22:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/11444879.shtml)
+- 2026-06-29 22:07 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/0850223648.shtml)

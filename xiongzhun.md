@@ -1,57 +1,60 @@
-# 多国代表西安“取经” 共话智慧绿色城市发展
+# 端午将至 探访太原晋源非遗工坊：晋祠米粽守古法创新味
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网西安4月29日电 题：多国代表西安“取经” 共话智慧绿色城市发展 作者 杨英琦 张一辰 党田野 作为“2026世界市长对话·西安”活动的重要环节，“智联天下·聚力同行：智慧城市低碳绿色融合发展”情景式对话28日下午在西安举行。来自中国、阿曼、伊拉克、突尼斯等多国嘉宾齐聚一堂，共同探寻传统城市走向智慧未来的西安路径。 从交警指挥大厅里实时跳动的调度大屏、一路绿灯畅行的精准控
+中新网太原6月5日电 题：端午将至 探访太原晋源非遗工坊：晋祠米粽守古法创新味 作者 杨杰英 杨润德 王惠林 端午将至，粽叶飘香。6月5日，走进太原市晋源区王郭村的端午福粽非遗工坊，浓郁的粽叶清香混着糯米甜香扑面而来。负责人韩伟和工人们正忙着赶制订单，从粽叶处理、江米浸泡到手工包制、高温蒸煮、无菌封装，全套工序有序进行。 “三片粽叶，三颗枣，一根马莲拴得好。”一枚地道的晋祠米粽
 
 ## 正文
 
-中新网西安4月29日电 题：多国代表西安“取经” 共话智慧绿色城市发展 作者 杨英琦 张一辰 党田野 作为“2026世界市长对话·西安”活动的重要环节，“智联天下·聚力同行：智慧城市低碳绿色融合发展”情景式对话28日下午在西安举行。
+中新网太原6月5日电 题：端午将至 探访太原晋源非遗工坊：晋祠米粽守古法创新味 作者 杨杰英 杨润德 王惠林 端午将至，粽叶飘香。
 
-来自中国、阿曼、伊拉克、突尼斯等多国嘉宾齐聚一堂，共同探寻传统城市走向智慧未来的西安路径。
+6月5日，走进太原市晋源区王郭村的端午福粽非遗工坊，浓郁的粽叶清香混着糯米甜香扑面而来。
 
-从交警指挥大厅里实时跳动的调度大屏、一路绿灯畅行的精准控流，到市民服务热线那头“接诉即办”的快速响应、工单流转的闭环追踪，一系列实地参访，让各国嘉宾们真切触摸到了数字技术为西安城市治理注入的硬核动能。
+负责人韩伟和工人们正忙着赶制订单，从粽叶处理、江米浸泡到手工包制、高温蒸煮、无菌封装，全套工序有序进行。
 
-伊拉克苏莱曼尼亚省政府外办主任、苏莱曼尼亚省长特别代表戈兰·拉希德·穆罕默德表示，近年来当地机动车需求持续攀升，城市道路疏导与交通管理压力日益凸显。
+“三片粽叶，三颗枣，一根马莲拴得好。
 
-伴随城市规模快速扩张，治理难题愈发突出。
+”一枚地道的晋祠米粽，藏着代代相传的老手艺。
 
-他认为，西安在数字交通、智慧路网建设及跨部门协同治理方面的成熟经验，可为苏莱曼尼亚提升公共服务效能、完善城市精细化管理提供宝贵借鉴。
+工坊里的包粽师傅都是土生土长的晋祠人，自幼熟稔古法包粽技艺。
 
-据西安市副市长肖琦介绍，在城市治理层面，西安已逐步构建“一网统管”的闭环治理新范式。
+取三片修整洁净的粽叶错落叠合，手腕轻转弯折，拢出锥形粽筒；填入本地晋祠江米，嵌入三颗红枣，再覆米压实；随后弯折粽叶封口，用马莲草捆扎固定。
 
-从整合统筹全市相关部门的热线，到建立涵盖上千个承办单位的庞大网络，从政务服务的“一网通办”，到城市基础设施突发事件的实时预警响应，西安正在从数字底座到上层应用的逐步贯通中，进化为一座全面的“在线城市”。
+短短数十秒，一枚棱角分明、紧实饱满的三角粽便成型了。
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 22:14 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 21:56 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 22:22 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 22:18 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 22:12 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 22:16 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 22:22 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 22:03 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-29 22:07 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-29 22:20 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 22:25 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 22:24 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-29 22:00 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 22:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 22:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 22:16 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-29 22:03 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 22:18 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 22:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 22:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 22:06 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-29 22:02 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 22:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-29 22:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [上世纪90年代玩具成新宠](https://www.share.minike.top/Article/details/282798616.shtml)
-- 2026-06-29 22:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/66569.shtml)
-- 2026-06-29 22:23 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/72264411.shtml)
-- 2026-06-29 21:54 - [三大外卖平台承诺不开展分钟级竞速](http://www.share.minike.top/Article/details/603252653.shtml)
-- 2026-06-29 22:15 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/12424657115.shtml)
-- 2026-06-29 22:17 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/89726032051.shtml)
-- 2026-06-29 22:02 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/3710875594.shtml)
-- 2026-06-29 21:58 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/16006814716.shtml)
-- 2026-06-29 22:04 - [欧洲缘何成为变暖最快的大洲](http://www.blog.kurohicncr.top/Article/details/603584307.shtml)
-- 2026-06-29 22:07 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/257413242.shtml)
-- 2026-06-29 21:57 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/839933309124.shtml)
-- 2026-06-29 22:17 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/536680411154.shtml)
-- 2026-06-29 22:02 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/497890.shtml)
-- 2026-06-29 22:17 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/45649073.shtml)
-- 2026-06-29 21:54 - [巴黎区长紧急采购50台中国空调](http://www.blog.minike.top/Article/details/169014.shtml)
+- 2026-06-29 22:19 - [明星大侦探第一季](http://www.share.minike.top/Article/details/56407869689.shtml)
+- 2026-06-29 22:16 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/25651816.shtml)
+- 2026-06-29 22:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/65700715.shtml)
+- 2026-06-29 22:02 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/808142073.shtml)
+- 2026-06-29 22:15 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/4102433128.shtml)
+- 2026-06-29 22:19 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/893836038.shtml)
+- 2026-06-29 22:18 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/20069032368.shtml)
+- 2026-06-29 22:14 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/38791945328.shtml)
+- 2026-06-29 22:25 - [电动车主等红灯遭三轮车横杆砸头](http://www.blog.minike.top/Article/details/126420.shtml)
+- 2026-06-29 22:28 - [第一炉香](http://www.blog.minike.top/Article/details/891648193550.shtml)
+- 2026-06-29 22:29 - [店员光脚踩入盆中清洗土豆](https://www.share.minike.top/Article/details/2700843.shtml)
+- 2026-06-29 22:10 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/1467620538.shtml)
+- 2026-06-29 22:15 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/771528.shtml)
+- 2026-06-29 22:07 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/5542455006.shtml)
+- 2026-06-29 22:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/309818092755.shtml)

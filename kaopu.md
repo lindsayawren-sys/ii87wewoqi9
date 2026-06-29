@@ -1,56 +1,46 @@
-# 民企最低！滨江集团债券类融资成本击穿3%
+# 天原股份：公司第五代高压实磷酸铁锂正极材料目前在开展产线调试工作
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-4月28日，滨江集团（002244.SZ）成功发行2026年第一期短期融资券，规模6亿元人民币，利率2.07%，创下民营房企历史新低。据了解，此次短期融资券全场认购倍数4.13倍。各家银行金融市场部中标的金额为0，中标主体全为市场化金融机构。 这是滨江集团今年以来第二次债券发行，此前的3月份，滨江集团发行了6亿元2年期中期票据，利率2.75%。此次短期融资券2.07%的票息与央
+证券日报网讯 6月5日，天原股份在互动平台回答投资者提问时表示，公司第五代高压实磷酸铁锂正极材料目前在开展产线调试工作。（文章来源：证券日报）
 
 ## 正文
 
-4月28日，滨江集团（002244.SZ）成功发行2026年第一期短期融资券，规模6亿元人民币，利率2.07%，创下民营房企历史新低。
+证券日报网讯 6月5日，天原股份在互动平台回答投资者提问时表示，公司第五代高压实磷酸铁锂正极材料目前在开展产线调试工作。
 
-据了解，此次短期融资券全场认购倍数4.13倍。
-
-各家银行金融市场部中标的金额为0，中标主体全为市场化金融机构。
-
-这是滨江集团今年以来第二次债券发行，此前的3月份，滨江集团发行了6亿元2年期中期票据，利率2.75%。
-
-此次短期融资券2.07%的票息与央企头部房企融资成本水平相当，再次创下了民营房企债券类融资成本新低。
-
-据滨江集团2025年年报数据，公司全年综合融资成本降至3.0%，较2024年进一步下降0.4个百分点，年内发行的中期票据利率低至2.85%。
-
-这一融资成本几乎追平央企头部房企的融资成本。
-
-以华润置地（01109.HK）为例，该公司近年来的债券类融资成本持续降低。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 21:59 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
-- 2026-06-29 22:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 21:59 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 22:12 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 21:56 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 22:12 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 22:10 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 21:55 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 22:06 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 22:29 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 22:19 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 22:06 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 22:22 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-29 22:17 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-29 22:02 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 22:24 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 22:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 22:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-29 22:16 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 22:09 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:28 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/900822836587.shtml)
-- 2026-06-29 22:05 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/04491853930.shtml)
-- 2026-06-29 22:02 - [金鹰奖第二阶段投票明日开启](https://www.blog.minike.top/Article/details/89984.shtml)
-- 2026-06-29 22:01 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/276404632.shtml)
-- 2026-06-29 22:01 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/348245.shtml)
-- 2026-06-29 21:58 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/27256064.shtml)
-- 2026-06-29 22:22 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/104676546.shtml)
-- 2026-06-29 22:08 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/75189396641.shtml)
-- 2026-06-29 21:55 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/532783753345.shtml)
-- 2026-06-29 22:07 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/53393.shtml)
-- 2026-06-29 22:11 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/63238.shtml)
-- 2026-06-29 22:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/935044444.shtml)
-- 2026-06-29 22:18 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/36087.shtml)
-- 2026-06-29 22:09 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/84762.shtml)
-- 2026-06-29 21:54 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/752348110909.shtml)
+- 2026-06-29 22:06 - [穆祉丞躺TFING身上](https://www.share.kurohicncr.top/Article/details/490105886381.shtml)
+- 2026-06-29 22:22 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/29289591179.shtml)
+- 2026-06-29 22:13 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/2990694669.shtml)
+- 2026-06-29 22:22 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/97398355627.shtml)
+- 2026-06-29 22:14 - [巴西10号球衣是天才传承史](https://www.share.minike.top/Article/details/09342.shtml)
+- 2026-06-29 22:04 - [刘宇宁 好听](https://www.share.minike.top/Article/details/6188831.shtml)
+- 2026-06-29 22:24 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/52325.shtml)
+- 2026-06-29 22:17 - [店员光脚踩入盆中清洗土豆](http://www.blog.kurohicncr.top/Article/details/60458.shtml)
+- 2026-06-29 22:25 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/74715.shtml)
+- 2026-06-29 22:19 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/01106477.shtml)
+- 2026-06-29 22:10 - [李思潼：不会介意大家夸我运气好](http://www.share.minike.top/Article/details/161735485047.shtml)
+- 2026-06-29 22:02 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/0478943102.shtml)
+- 2026-06-29 22:17 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/415249885895.shtml)
+- 2026-06-29 22:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/969364331958.shtml)
+- 2026-06-29 22:18 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/772533743.shtml)

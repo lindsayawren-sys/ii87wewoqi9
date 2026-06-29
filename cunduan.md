@@ -1,59 +1,57 @@
-# 新浪财经李兀：防范“漂绿”须从披露规范、评价标准、强化监督三方面同时入手
+# 副总管基金一年亏超25%，申万菱信宣布增聘基金经理
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。 他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。 第一
+来源：国际金融报 昔日头部大厂百亿基金经理贾成东，入职申万菱信未满两年便不再独管产品，在管基金深度亏损、大幅跑输基准，其后续能否改善投资者收益体验备受关注。 近日，申万菱信基金发布公告称，申万菱信行业精选混合增聘基金经理龚霄，与原基金经理贾成东共同管理。自此贾成东不再单独执掌任何公募产品，目前仍担任公司副总经理。 上述公告引发市场热议，此番变更恰逢贾成东单独管理这只基金满一年。
 
 ## 正文
 
-专题：第五届气候投融国际研讨会 4月29-30日，“2026第五届气候投融资国际研讨会”在京举办，主题为“碳融新局·筑绿未来”。
+来源：国际金融报 昔日头部大厂百亿基金经理贾成东，入职申万菱信未满两年便不再独管产品，在管基金深度亏损、大幅跑输基准，其后续能否改善投资者收益体验备受关注。
 
-新浪财经总编辑李兀在演讲中谈到，“漂绿”现象不仅在中国，在国际上也是争议极大的话题，甚至导致部分“反可持续”或“反ESG”派别主张“把洗脚水都泼了，把孩子也泼出去”。
+近日，申万菱信基金发布公告称，申万菱信行业精选混合增聘基金经理龚霄，与原基金经理贾成东共同管理。
 
-他认为，要有效防范“漂绿”，须从披露规范、评价标准和强化监督三个方面同时入手。
+自此贾成东不再单独执掌任何公募产品，目前仍担任公司副总经理。
 
-第一，披露必须规范。
+上述公告引发市场热议，此番变更恰逢贾成东单独管理这只基金满一年。
 
-李兀表示，当前国际标准尚未统一，但有志之士正在持续推进，这是“重中之重”。
+2024年末他顶着“百亿基金经理”头衔、凭借亮眼历史业绩入职申万菱信基金，但任职期间基金表现疲软，截至公告发布，申万菱信行业精选混合亏损超25%，大幅跑输同期业绩基准。
 
-他借用热播剧《太平年》中的一句台词——“须去做，方知晓”提到，“可持续发展事业、高质量发展其实也是类似的，我们从业人员觉得它是一个美好的前景，各利益相关方都要为此不断努力，去提高披露的规范性。
+值得一提的是，申万菱信基金上月刚完成总经理变更，由深耕证券行业多年的邱春杨履新。
 
-” 第二，提升评价标准。
+新任总经理上任后便推进基金经理人事调整，此番操作背后暗藏何种考量？
 
-他认为，ESG评级体系中与气候相关的权重需要调整。
+副总不再单独管基金 申万菱信基金公告显示，申万菱信行业精选混合近日增聘基金经理龚霄，与原基金经理贾成东共同管理。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 22:14 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-29 22:13 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
-- 2026-06-29 21:56 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 22:01 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 22:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 22:08 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-29 22:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 22:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
-- 2026-06-29 22:14 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 22:10 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 22:13 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
-- 2026-06-29 21:56 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 22:15 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 22:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 22:04 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 22:15 - [爱奇艺抬高国剧新标尺](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 22:01 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 22:23 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-29 22:20 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edspl.md)
+- 2026-06-29 22:06 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 22:08 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 22:26 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 22:04 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/624485.shtml)
-- 2026-06-29 22:16 - [天道](http://www.blog.kurohicncr.top/Article/details/7608947.shtml)
-- 2026-06-29 22:10 - [《恋与深空》回应争议](https://www.blog.kurohicncr.top/Article/details/41713.shtml)
-- 2026-06-29 22:12 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/89237.shtml)
-- 2026-06-29 22:23 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/705712822.shtml)
-- 2026-06-29 22:07 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/81738286009.shtml)
-- 2026-06-29 21:56 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/97435.shtml)
-- 2026-06-29 22:24 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/00307.shtml)
-- 2026-06-29 22:21 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/74381528.shtml)
-- 2026-06-29 21:55 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/05532036.shtml)
-- 2026-06-29 22:20 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/61485600.shtml)
-- 2026-06-29 22:23 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/008042229.shtml)
-- 2026-06-29 22:23 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/7092580.shtml)
-- 2026-06-29 22:17 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/288410452.shtml)
-- 2026-06-29 22:07 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/040424.shtml)
+- 2026-06-29 22:26 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/686746277.shtml)
+- 2026-06-29 22:06 - [MG总经理直播被冲](http://www.blog.minike.top/Article/details/39468625.shtml)
+- 2026-06-29 22:13 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/18265039100.shtml)
+- 2026-06-29 22:20 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/84566738.shtml)
+- 2026-06-29 22:13 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/9789544.shtml)
+- 2026-06-29 22:14 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.kurohicncr.top/Article/details/291771.shtml)
+- 2026-06-29 22:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.minike.top/Article/details/793641155492.shtml)
+- 2026-06-29 22:22 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/83737432410.shtml)
+- 2026-06-29 22:28 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/4829788.shtml)
+- 2026-06-29 22:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/540783661.shtml)
+- 2026-06-29 22:17 - [穆祉丞东方风云榜红毯](http://www.share.kurohicncr.top/Article/details/3695076012.shtml)
+- 2026-06-29 22:29 - [英法德葡存在什么隐患](https://www.share.minike.top/Article/details/615817.shtml)
+- 2026-06-29 22:28 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/70138.shtml)
+- 2026-06-29 22:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/5263003861.shtml)
+- 2026-06-29 22:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/922541.shtml)

@@ -1,58 +1,48 @@
-# 甘肃礼县沃野新绘
+# 森松国际遭董事会主席松久晃基减持73.3万股 每股作价约10.66港元
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-凤何以成为中华民族文化标识？“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？伊朗战事已烧250亿美元？美国国会听证会大打“口水仗”电子烟携带不吸也违法！香港控烟新规生效人这一辈子，一定要去一趟东方！AI短剧疑融脸肖战王一博
+香港联交所最新资料显示，6月4日，董事会主席松久晃基减持森松国际（02155）73.3万股，每股作价10.6569港元，总金额约为781.15万港元。减持后最新持股数目约为7.65亿股，最新持股比例为60.14%。责任编辑：卢昱君
 
 ## 正文
 
-凤何以成为中华民族文化标识？
+香港联交所最新资料显示，6月4日，董事会主席松久晃基减持森松国际（02155）73.3万股，每股作价10.6569港元，总金额约为781.15万港元。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+减持后最新持股数目约为7.65亿股，最新持股比例为60.14%。
 
-伊朗战事已烧250亿美元？
-
-美国国会听证会大打“口水仗”电子烟携带不吸也违法！
-
-香港控烟新规生效人这一辈子，一定要去一趟东方！
-
-AI短剧疑融脸肖战王一博？
-
-律师分析如何认定AI角色构成肖像权侵权孙杨工作室：“妈妈致电节目组删除嘉宾言论”为恶意捏造“长期封锁”伊朗，美国的财政扛得住吗？
-
-不抄硅谷、不仿德国，中国金融支持创新如何走出“第三条路”？
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 22:22 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 21:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 22:08 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 22:14 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 22:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-29 22:22 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
-- 2026-06-29 22:04 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 22:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 22:23 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 22:23 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-29 22:01 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 22:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 22:10 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 22:12 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-29 22:13 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 22:23 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
+- 2026-06-29 22:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 22:13 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 22:09 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 22:15 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 22:08 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 22:23 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
+- 2026-06-29 22:27 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/52015266.shtml)
-- 2026-06-29 21:56 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/208631432.shtml)
-- 2026-06-29 22:06 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/36586273.shtml)
-- 2026-06-29 22:10 - [DRG官宣选手Akeman离队](https://www.blog.minike.top/Article/details/12568.shtml)
-- 2026-06-29 22:18 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/10030.shtml)
-- 2026-06-29 22:23 - [国常会听取人工智能发展情况汇报](http://www.share.minike.top/Article/details/15595.shtml)
-- 2026-06-29 21:59 - [一生一世](http://www.blog.kurohicncr.top/Article/details/115625426.shtml)
-- 2026-06-29 22:22 - [欧洲缘何成为变暖最快的大洲](https://www.blog.kurohicncr.top/Article/details/637947471.shtml)
-- 2026-06-29 22:16 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/64542971.shtml)
-- 2026-06-29 22:13 - [起风了](http://www.share.minike.top/Article/details/92284618.shtml)
-- 2026-06-29 22:06 - [急先锋](http://www.blog.kurohicncr.top/Article/details/794560363.shtml)
-- 2026-06-29 22:19 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/56585.shtml)
-- 2026-06-29 22:07 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/13721873.shtml)
-- 2026-06-29 22:19 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/31749357506.shtml)
-- 2026-06-29 21:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/036659.shtml)
+- 2026-06-29 22:19 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/555649904.shtml)
+- 2026-06-29 22:25 - [恋与深空需正视价值观偏差](http://www.blog.kurohicncr.top/Article/details/71426341.shtml)
+- 2026-06-29 22:07 - [欧洲缘何成为变暖最快的大洲](https://www.share.kurohicncr.top/Article/details/34771138508.shtml)
+- 2026-06-29 22:17 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/9325173906.shtml)
+- 2026-06-29 22:03 - [国际清算银行警告AI投资热潮](http://www.blog.kurohicncr.top/Article/details/349436110.shtml)
+- 2026-06-29 22:17 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/01150.shtml)
+- 2026-06-29 22:26 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/625936485537.shtml)
+- 2026-06-29 22:25 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/689384502.shtml)
+- 2026-06-29 22:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/93114.shtml)
+- 2026-06-29 22:10 - [明星大侦探第四季](http://www.share.minike.top/Article/details/60125899630.shtml)
+- 2026-06-29 22:20 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.minike.top/Article/details/732678.shtml)
+- 2026-06-29 22:27 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/2617080.shtml)
+- 2026-06-29 22:21 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/49196.shtml)
+- 2026-06-29 22:05 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/805514.shtml)
+- 2026-06-29 22:06 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/1628173.shtml)

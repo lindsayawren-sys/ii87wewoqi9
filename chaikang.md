@@ -1,59 +1,61 @@
-# 印度政府声称大选后不会上调燃油零售价
+# 去杠杆！保证金上调至120%，多家大行再次收紧个人贵金属延期合约风控
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-在中东冲突持续推高国际油价的背景下，印度国内一度出现“大选结束后政府将大幅上调油价”的恐慌性猜忌，甚至引发部分地区的民众抢购。对此，印度政府于周二正式辟谣，明确表示没有上调汽油和柴油零售价的提案。 石油和天然气部官员在新闻发布会上表示：“目前没有上调汽油和柴油价格的提案”，并敦促公众不要相信谣言，避免恐慌性购买。这是自中东危机爆发以来，印度政府为稳定民心做出的最直接表态。 巨大
+界面新闻记者 | 安震 随着近期黄金、白银价格波动加剧，近日，多家大行宣布将代理上海黄金交易所的个人贵金属延期合约保证金比例提高至120%。 6月4日晚间，农业银行发布通知，宣布自6月5日收盘清算时起，Au（T+D）、Ag（T+D）合约的保证金比例从100%调整为120%。 此前，工商银行和建设银行也发布公告，上调个人贵金属延期合约保证金比例。业内人士认为，保证金比例上调至12
 
 ## 正文
 
-在中东冲突持续推高国际油价的背景下，印度国内一度出现“大选结束后政府将大幅上调油价”的恐慌性猜忌，甚至引发部分地区的民众抢购。
+界面新闻记者 | 安震 随着近期黄金、白银价格波动加剧，近日，多家大行宣布将代理上海黄金交易所的个人贵金属延期合约保证金比例提高至120%。
 
-对此，印度政府于周二正式辟谣，明确表示没有上调汽油和柴油零售价的提案。
+6月4日晚间，农业银行发布通知，宣布自6月5日收盘清算时起，Au（T+D）、Ag（T+D）合约的保证金比例从100%调整为120%。
 
-石油和天然气部官员在新闻发布会上表示：“目前没有上调汽油和柴油价格的提案”，并敦促公众不要相信谣言，避免恐慌性购买。
+此前，工商银行和建设银行也发布公告，上调个人贵金属延期合约保证金比例。
 
-这是自中东危机爆发以来，印度政府为稳定民心做出的最直接表态。
+业内人士认为，保证金比例上调至120%后，个人贵金属交易需要超额保证金，防止黄金行情高波动情况下对银行和个人客户产生更大的风险。
 
-巨大的财政压力 此次官方辟谣正值国营炼油商承受巨额损失之际。
+杠杆作用不复存在 6月2日，工商银行和建设银行均发布公告，银行代理个人客户Au（T+D）、mAu（T+D）、Au（T+N1）、Au（T+N2）、Ag（T+D）等延期合约的标准交易保证金比例由100%调整为120%，强平保证金比例由80%调整为100%。
 
-由于政府在过去四年维持价格稳定，而近期国际油价因地缘冲突持续飙升，导致国有燃油零售商承受了约1600亿卢比的日亏损。
+工行在公告中明确，上述调整将对客户保证金账户资金充足率产生直接影响。
 
-尽管如此，政府仍选择“硬扛”成本，暂不向消费者转嫁压力。
+建议密切关注保证金账户余额变动情况，提前采取自行平仓等必要措施。
 
-恐慌性购买 由于担心油价上涨，印度南部如安得拉邦等地近日出现了恐慌性抢购，部分加油站被迫实施限额供应，甚至出现断油现象。
+如客户保证金账户资金不足，满足强行平仓条件，工行将适时执行强行平仓措施。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 22:21 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 22:19 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 22:10 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
-- 2026-06-29 21:54 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 22:09 - [山东发布山洪灾害气象预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 22:18 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 21:59 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 21:56 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 22:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 22:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 22:12 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-29 22:23 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 22:06 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 22:08 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
+- 2026-06-29 22:11 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 22:05 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 22:05 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 22:01 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 22:07 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 22:05 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 22:00 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 22:16 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 22:18 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
+- 2026-06-29 22:08 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 22:15 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-29 22:02 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
+- 2026-06-29 22:22 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/693111.shtml)
-- 2026-06-29 22:12 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/35848213508.shtml)
-- 2026-06-29 22:22 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/6128287.shtml)
-- 2026-06-29 22:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/13239627.shtml)
-- 2026-06-29 22:02 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/431651.shtml)
-- 2026-06-29 22:19 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/721382501.shtml)
-- 2026-06-29 21:57 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/870159.shtml)
-- 2026-06-29 21:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/499188642.shtml)
-- 2026-06-29 22:06 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/84990313.shtml)
-- 2026-06-29 21:57 - [127只股涨停 最大封单资金6.04亿元](http://www.share.minike.top/Article/details/68164.shtml)
-- 2026-06-29 22:04 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/474297499450.shtml)
-- 2026-06-29 22:02 - [中国再对日本出重拳](http://www.blog.kurohicncr.top/Article/details/1348840653.shtml)
-- 2026-06-29 22:08 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/47018.shtml)
-- 2026-06-29 21:55 - [你这一辈子有没有为进山姆拼过命？](https://www.share.minike.top/Article/details/7420989.shtml)
-- 2026-06-29 22:21 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/35027.shtml)
+- 2026-06-29 22:13 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/08885.shtml)
+- 2026-06-29 22:23 - [浙江进入梅雨最强“攻击时段”](https://www.share.kurohicncr.top/Article/details/8276927.shtml)
+- 2026-06-29 22:03 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/5123873.shtml)
+- 2026-06-29 22:02 - [金刚川](http://www.share.minike.top/Article/details/403647491878.shtml)
+- 2026-06-29 22:08 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/517864.shtml)
+- 2026-06-29 22:21 - [美人鱼](http://www.blog.minike.top/Article/details/17481.shtml)
+- 2026-06-29 22:12 - [爱奇艺抬高国剧新标尺](https://www.share.minike.top/Article/details/883961235605.shtml)
+- 2026-06-29 22:06 - [新官上任三把火](http://www.blog.minike.top/Article/details/52866.shtml)
+- 2026-06-29 22:08 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/59445885856.shtml)
+- 2026-06-29 22:16 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://www.share.minike.top/Article/details/6673302.shtml)
+- 2026-06-29 22:09 - [虞书欣和粉丝剧宣一个脑回路](https://www.share.kurohicncr.top/Article/details/922777877.shtml)
+- 2026-06-29 22:17 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/7669963.shtml)
+- 2026-06-29 22:07 - [曝iPhone涨价后不会再降](http://www.blog.minike.top/Article/details/41561406.shtml)
+- 2026-06-29 22:26 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/12742776.shtml)
+- 2026-06-29 22:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/0893325.shtml)

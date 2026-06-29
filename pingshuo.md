@@ -1,58 +1,57 @@
-# 强力球开出史无前例大奖：2张彩票同时中得1.43亿美元
+# 数字化服务让外籍人士在辽宁“不见外”
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-据底特律地方媒体报道，在周三晚的强力球开奖中，出现了史无前例的中奖盛况——两张彩票同时中得1.43亿美元头奖，另有91张彩票赢得至少100万美元的奖金。 本次开奖号码为3、19、35、51、67，强力球号码为15，倍数为2倍。头奖1.43亿美元由印第安纳州和堪萨斯州的两位幸运儿均分，每张中奖彩票的现金价值约为6520万美元。 更令人瞩目的是百万大奖的中奖规模。根据强力球官网公布
+发布时间：2026年06月06日 16:30 来源：中国新闻网 6月5日，由辽宁省人民政府外事办公室联合16家省(中)直单位共同举办的外籍人士便利化服务措施推介活动在沈阳成功举办。 近年来，作为改善和提升涉外营商环境的务实举措，辽宁聚焦外籍人士到辽宁旅游、消费、工作、生活中常遇到的问题，打造“国际辽”工程，不断改善外籍人士的便利化体验，让外籍人士在中国“不见外”。 据统计，20
 
 ## 正文
 
-据底特律地方媒体报道，在周三晚的强力球开奖中，出现了史无前例的中奖盛况——两张彩票同时中得1.43亿美元头奖，另有91张彩票赢得至少100万美元的奖金。
+发布时间：2026年06月06日 16:30 来源：中国新闻网 6月5日，由辽宁省人民政府外事办公室联合16家省(中)直单位共同举办的外籍人士便利化服务措施推介活动在沈阳成功举办。
 
-本次开奖号码为3、19、35、51、67，强力球号码为15，倍数为2倍。
+近年来，作为改善和提升涉外营商环境的务实举措，辽宁聚焦外籍人士到辽宁旅游、消费、工作、生活中常遇到的问题，打造“国际辽”工程，不断改善外籍人士的便利化体验，让外籍人士在中国“不见外”。
 
-头奖1.43亿美元由印第安纳州和堪萨斯州的两位幸运儿均分，每张中奖彩票的现金价值约为6520万美元。
+据统计，2025年，临时来辽宁外籍人员达53.1万人次，同比增长47%。
 
-更令人瞩目的是百万大奖的中奖规模。
+2026年，辽宁以数字化转型为驱动推出升级举措，现场发布数字版《外籍人士在辽服务指南》，各项服务举措分门别类、科学编排，用户浏览使用一目了然。
 
-根据强力球官网公布的数据，27张彩票通过匹配5个白球并购买强力球加倍选项，赢得了200万美元奖金；另有62张彩票匹配5个白球，赢得100万美元奖金。
+其中，政务服务二维码设置，让用户从政策查询顺利衔接线上服务办理。
 
-中奖者遍布全美20多个州，其中印第安纳州、新泽西州和路易斯安那州成为百万大奖的集中诞生地。
-
-此次开奖刷新了强力球单期产生百万富翁数量的纪录。
-
-目前头奖奖金已重置，下一期开奖定于5月2日周六进行，头奖预估为2000万美元。
+(李晛 王艺霖） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 22:02 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 22:02 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
-- 2026-06-29 22:17 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 22:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 22:09 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
-- 2026-06-29 22:03 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 22:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-29 22:13 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 22:15 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 21:59 - [林一听到陈星旭王玉雯谈恋爱的反应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 22:01 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-29 22:15 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
+- 2026-06-29 22:22 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 22:12 - [演员都来上音综的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 22:18 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 22:13 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 22:05 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 22:21 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 22:11 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-29 22:24 - [多人将马路护栏当球网打羽毛球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 22:25 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:29 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 22:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-29 22:14 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 22:19 - [白玉兰答谢宴合影](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 22:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:12 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/4147493169.shtml)
-- 2026-06-29 22:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/038385825770.shtml)
-- 2026-06-29 21:56 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/482335082193.shtml)
-- 2026-06-29 22:08 - [锐评白玉兰提名片段](http://www.blog.kurohicncr.top/Article/details/208849687803.shtml)
-- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/74971.shtml)
-- 2026-06-29 22:22 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/64353923647.shtml)
-- 2026-06-29 22:10 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/952371583990.shtml)
-- 2026-06-29 21:58 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.kurohicncr.top/Article/details/21602704.shtml)
-- 2026-06-29 22:00 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/66275.shtml)
-- 2026-06-29 21:59 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/78069.shtml)
-- 2026-06-29 21:54 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/684886719070.shtml)
-- 2026-06-29 22:18 - [央行首次3000亿元隔夜逆回购操作](http://www.share.kurohicncr.top/Article/details/032800829.shtml)
-- 2026-06-29 22:10 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/175379379.shtml)
-- 2026-06-29 22:18 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/09734851.shtml)
-- 2026-06-29 22:03 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/57356.shtml)
+- 2026-06-29 22:28 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/515010.shtml)
+- 2026-06-29 22:07 - [一见倾心](https://www.share.kurohicncr.top/Article/details/32697136.shtml)
+- 2026-06-29 22:23 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/633575306767.shtml)
+- 2026-06-29 22:24 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.minike.top/Article/details/162782808.shtml)
+- 2026-06-29 22:26 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/239201.shtml)
+- 2026-06-29 22:00 - [斛珠夫人](http://www.share.minike.top/Article/details/0751582975.shtml)
+- 2026-06-29 22:09 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/075977337.shtml)
+- 2026-06-29 22:28 - [中方绝不允许日菲侵害我海洋权益](https://www.share.kurohicncr.top/Article/details/65343780056.shtml)
+- 2026-06-29 22:17 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/400657233567.shtml)
+- 2026-06-29 22:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.minike.top/Article/details/2573423.shtml)
+- 2026-06-29 22:06 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/73645009.shtml)
+- 2026-06-29 22:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/55585.shtml)
+- 2026-06-29 22:25 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/28507388225.shtml)
+- 2026-06-29 22:28 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/29369.shtml)
+- 2026-06-29 22:06 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/284886.shtml)

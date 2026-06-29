@@ -1,59 +1,58 @@
-# 中国将对53个非洲建交国全面实施零关税，官方解读来了！
+# 齐扎拉一审被判无期徒刑 曾任西藏自治区政府主席等职
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-来源：政知见 中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措，4月29日，商务部世贸司负责人就该举措相关情况回答了记者提问。 一、具体内容和意义 2026年2月14日，习近平主席在致非洲联盟峰会贺电中宣布，中方将于2026年5月1日起对53个非洲建交国全面实施零关税举措，同时继续推动商签共同发展经济伙伴关系协定。目前，53个非洲建交国中，已有33国享受了中国以
+中新社北京6月5日电 (记者 张素)记者从中国最高人民法院获悉，6月5日，重庆市第一中级人民法院一审公开宣判十四届全国政协原常委、农业和农村委员会原副主任齐扎拉受贿一案。 法院对齐扎拉以受贿罪判处无期徒刑，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的齐扎拉犯罪所得财物及孳息依法上缴国库，不足部分继续追缴。 公开资料显示，齐扎拉，藏族，1958年8月出生，云南香格里拉人。
 
 ## 正文
 
-来源：政知见 中国将于2026年5月1日起对53个非洲建交国全面实施零关税举措，4月29日，商务部世贸司负责人就该举措相关情况回答了记者提问。
+中新社北京6月5日电 (记者 张素)记者从中国最高人民法院获悉，6月5日，重庆市第一中级人民法院一审公开宣判十四届全国政协原常委、农业和农村委员会原副主任齐扎拉受贿一案。
 
-一、具体内容和意义 2026年2月14日，习近平主席在致非洲联盟峰会贺电中宣布，中方将于2026年5月1日起对53个非洲建交国全面实施零关税举措，同时继续推动商签共同发展经济伙伴关系协定。
+法院对齐扎拉以受贿罪判处无期徒刑，剥夺政治权利终身，并处没收个人全部财产；对追缴在案的齐扎拉犯罪所得财物及孳息依法上缴国库，不足部分继续追缴。
 
-目前，53个非洲建交国中，已有33国享受了中国以特惠税率形式给予最不发达国家的零关税。
+公开资料显示，齐扎拉，藏族，1958年8月出生，云南香格里拉人。
 
-5月1日起实施的零关税，面向20个不属于最不发达国家的非洲建交国（包括阿尔及利亚、博茨瓦纳、佛得角、喀麦隆、刚果（布）、科特迪瓦、埃及、赤道几内亚、加蓬、加纳、肯尼亚、利比亚、毛里求斯、摩洛哥、纳米比亚、尼日利亚、塞舌尔、南非、突尼斯、津巴布韦），将以特惠税率形式实施，为期2年。
+2025年1月，官方通报其被查；7月，官方通报其被开除党籍和公职。
 
-具体内容已在财政部网站发布。
+他被指“搞‘形象工程’‘政绩工程’”“与商人老板沆瀣一气”等。
 
-至此，中国对所有非洲建交国均实现零关税落地实施。
+经审理查明，1999年至2025年，齐扎拉利用担任云南省迪庆州委常委、中甸县委书记，迪庆州委副书记、中甸县委书记，迪庆州委副书记、州长，迪庆州委书记，云南省委常委、迪庆州委书记，西藏自治区党委常委、拉萨市委书记，西藏自治区党委副书记、自治区政府主席，十三届全国人大民族委员会副主任委员，十四届全国政协常委、农业和农村委员会副主任等职务上的便利，以及职权、地位形成的便利条件，为有关单位和个人在房地产开发、工程承揽、行政审批、职务提拔等事项上提供帮助，非法收受上述单位和个人给予的财物共计折合人民币1.58亿余元。
 
-中国成为全球首个对所有非洲建交国和所有建交的最不发达国家实施单方面、全面零关税的主要经济体。
+法院认为，齐扎拉的行为构成受贿罪。
 
-这是中国坚定不移扩大高水平对外开放、积极扩大自主开放的重大举措；是落实中非合作论坛成果，筑牢新时代全天候中非命运共同体的创新举措，为全球发展中国家合作树立标杆。
+齐扎拉受贿数额特别巨大，并使国家和人民利益遭受特别重大损失，应依法惩处。
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 22:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-29 22:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
-- 2026-06-29 22:22 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 22:18 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-29 22:11 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 21:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 21:58 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 22:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 22:06 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
-- 2026-06-29 22:01 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
-- 2026-06-29 21:56 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
-- 2026-06-29 22:05 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 22:16 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 22:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 22:07 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 22:15 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 22:07 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 22:23 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 22:20 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-29 22:07 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 22:26 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-29 22:20 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 22:18 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 22:07 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [女心理师](http://www.share.minike.top/Article/details/351904.shtml)
-- 2026-06-29 22:15 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/866248.shtml)
-- 2026-06-29 22:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/44482010.shtml)
-- 2026-06-29 22:23 - [杨紫有3部作品入围金鹰奖](https://www.blog.minike.top/Article/details/076071921.shtml)
-- 2026-06-29 22:10 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.share.kurohicncr.top/Article/details/162269482646.shtml)
-- 2026-06-29 22:19 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/588425393.shtml)
-- 2026-06-29 21:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/2381300027.shtml)
-- 2026-06-29 22:12 - [天气热脾气都变差了](https://www.share.minike.top/Article/details/633376827.shtml)
-- 2026-06-29 22:23 - [斗破苍穹](https://www.blog.minike.top/Article/details/891528207.shtml)
-- 2026-06-29 22:21 - [法国部长说装空调没用](http://www.blog.kurohicncr.top/Article/details/41003925.shtml)
-- 2026-06-29 22:23 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/304647917891.shtml)
-- 2026-06-29 22:19 - [中方在台湾岛以东海域活动合理合法](http://www.blog.minike.top/Article/details/169857123171.shtml)
-- 2026-06-29 22:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/37033.shtml)
-- 2026-06-29 22:08 - [辽宁居民楼疑液化气闪爆致3死](https://www.share.minike.top/Article/details/130055300.shtml)
-- 2026-06-29 21:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/189937357.shtml)
+- 2026-06-29 22:15 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.minike.top/Article/details/98381220.shtml)
+- 2026-06-29 22:21 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/7152214.shtml)
+- 2026-06-29 22:06 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/89201659700.shtml)
+- 2026-06-29 22:25 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/38612964.shtml)
+- 2026-06-29 22:18 - [欧洲人买空调难点在哪](https://www.share.kurohicncr.top/Article/details/3348095115.shtml)
+- 2026-06-29 22:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/79711.shtml)
+- 2026-06-29 22:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/90825271776.shtml)
+- 2026-06-29 22:15 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/0024447835.shtml)
+- 2026-06-29 22:16 - [腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/4267098872.shtml)
+- 2026-06-29 22:24 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/05768542.shtml)
+- 2026-06-29 22:10 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/3292115.shtml)
+- 2026-06-29 22:11 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/982804878737.shtml)
+- 2026-06-29 22:20 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/60331.shtml)
+- 2026-06-29 22:22 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/034707.shtml)
+- 2026-06-29 22:29 - [请回答王牌2019](http://www.share.minike.top/Article/details/715887676805.shtml)

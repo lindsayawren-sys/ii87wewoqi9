@@ -1,61 +1,59 @@
-# 外交部：日本“新型军国主义”成势为患 已对世界和平稳定构成现实威胁
+# 高端访谈丨老挝国家主席通伦：中老铁路让老挝人民梦想成真
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-4月30日，外交部发言人林剑主持例行记者会。有记者问：据报道，日本已敲定修改自卫队官阶名称的方案，并计划于年内向国会提交相关修订草案。新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。发言人对此有何评论？ 林剑表示，如今日方要谋求恢复二战时军衔称谓，并且堂而皇之地以“荣誉感”为由，这是在制度与认知层面搞突破，也是在受害国人民的伤口上撒盐，我们不禁要问日方是否仍沉迷于
+老挝人民革命党中央总书记、国家主席通伦3日在杭州接受了总台《高端访谈》栏目专访，通伦高度评价中老铁路对老挝国家发展的贡献，他说中老铁路大大改善了老挝的面貌，让老挝人民梦想成真。 老挝人民革命党中央总书记 国家主席 通伦：我还记得2021年12月3日，习近平主席同我一起参加老中铁路通车仪式时的讲话，“从此山不再高、路不再长”，老中之间的漫漫长路变短，愿这条铁路成为“金路”“银路”
 
 ## 正文
 
-4月30日，外交部发言人林剑主持例行记者会。
+老挝人民革命党中央总书记、国家主席通伦3日在杭州接受了总台《高端访谈》栏目专访，通伦高度评价中老铁路对老挝国家发展的贡献，他说中老铁路大大改善了老挝的面貌，让老挝人民梦想成真。
 
-有记者问：据报道，日本已敲定修改自卫队官阶名称的方案，并计划于年内向国会提交相关修订草案。
+老挝人民革命党中央总书记 国家主席 通伦：我还记得2021年12月3日，习近平主席同我一起参加老中铁路通车仪式时的讲话，“从此山不再高、路不再长”，老中之间的漫漫长路变短，愿这条铁路成为“金路”“银路”，这在老挝已经成为现实。
 
-新的更名方案将恢复二战结束前日本军队的“大将”“大佐”等称谓。
+这条铁路全面改变了老挝的面貌，老挝没有海，但有了通向大海的铁路。
 
-发言人对此有何评论？
+老挝从未有过铁路，如今拥有了老中铁路，而且是一条相当高速的铁路。
 
-林剑表示，如今日方要谋求恢复二战时军衔称谓，并且堂而皇之地以“荣誉感”为由，这是在制度与认知层面搞突破，也是在受害国人民的伤口上撒盐，我们不禁要问日方是否仍沉迷于重温军国主义旧梦？
+这让老挝人民感到自豪，这让老挝人民梦想成真。
 
-所谓的“荣誉感”究竟又指的是什么？
+总台记者 邹韵：我记得上一次在采访您过后，我们还专门去中老铁路进行了拍摄和采访。
 
-日本“新型军国主义”成势为患，已对世界的和平稳定构成现实威胁，包括中国人民在内的国际社会正义力量都应当对此高度警惕，坚决维护二战胜利成果，绝不让历史悲剧再度上演。
+那个场景到现在都非常让我记忆犹新，很打动我。
 
-（总台央视记者 赵晶）责任编辑：刘万里 SF014
+老挝人民革命党中央总书记 国家主席 通伦：你去采访过，乘客们是什么感受，我也想听你说。
 
 ## 相关推荐
 
-- 2026-06-29 22:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 22:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 22:06 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 22:09 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-29 22:10 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 21:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 22:23 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-29 22:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 21:54 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-29 22:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 22:09 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
-- 2026-06-29 22:19 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 22:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 22:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 21:58 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 22:14 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 22:25 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 22:25 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 22:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 22:18 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orniq.md)
+- 2026-06-29 22:16 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 22:05 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 22:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 22:13 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 22:20 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
+- 2026-06-29 22:04 - [记者：预计热火将追求小哈达威和康利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 22:20 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 22:17 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:04 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/70673673041.shtml)
-- 2026-06-29 22:03 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/293268002.shtml)
-- 2026-06-29 22:09 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/81802096.shtml)
-- 2026-06-29 22:06 - [极限挑战第一季](https://www.blog.minike.top/Article/details/0065547.shtml)
-- 2026-06-29 22:11 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/00313997.shtml)
-- 2026-06-29 21:55 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/5765673151.shtml)
-- 2026-06-29 22:18 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/384892415142.shtml)
-- 2026-06-29 21:57 - [papi酱父亲再婚妻子仅比她大几岁](https://www.share.kurohicncr.top/Article/details/73759.shtml)
-- 2026-06-29 22:18 - [啊啊啊](https://www.blog.minike.top/Article/details/0691100.shtml)
-- 2026-06-29 22:08 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.kurohicncr.top/Article/details/56632322712.shtml)
-- 2026-06-29 22:03 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/09433.shtml)
-- 2026-06-29 22:19 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/7331898.shtml)
-- 2026-06-29 22:11 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/906293154.shtml)
-- 2026-06-29 22:20 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/15223.shtml)
-- 2026-06-29 22:08 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/574417200.shtml)
+- 2026-06-29 22:17 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/33805.shtml)
+- 2026-06-29 22:24 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/1216180.shtml)
+- 2026-06-29 22:06 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/4676904314.shtml)
+- 2026-06-29 22:07 - [曝娱乐圈大部分明星失业](https://www.blog.minike.top/Article/details/43294512191.shtml)
+- 2026-06-29 22:03 - [天道](https://www.share.minike.top/Article/details/3654904610.shtml)
+- 2026-06-29 22:06 - [法媒点赞分享中国小区降温方案](https://www.blog.kurohicncr.top/Article/details/63972428.shtml)
+- 2026-06-29 22:24 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/123561099030.shtml)
+- 2026-06-29 22:26 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/93585563342.shtml)
+- 2026-06-29 22:10 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/72543.shtml)
+- 2026-06-29 22:14 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/20051.shtml)
+- 2026-06-29 22:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/1598527.shtml)
+- 2026-06-29 22:05 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/18661770.shtml)
+- 2026-06-29 22:25 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/24046262408.shtml)
+- 2026-06-29 22:24 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/00368.shtml)
+- 2026-06-29 22:16 - [网约车出事故平台拒赔称只是中介](http://www.blog.minike.top/Article/details/68289024886.shtml)

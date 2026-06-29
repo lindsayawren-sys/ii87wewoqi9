@@ -1,60 +1,45 @@
-# 净利上涨132.82%，大金重工为何不同
+# 微视频｜中朝友谊 历久弥坚
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-（来源：财经思享汇）为何是大金重工能够分到欧洲风电“大蛋糕”，而不是其他几家？作者 | 夏万明编辑 | 管东生2025年，中国的绿电企业走出了两个截然不同的走势。其中大金重工（002487.SZ）一路生花，股价实现四倍涨幅，营业总收入61.74亿元，增长63.34%；归母净利润为11.03亿元，更是增长132.82%。相比之下，隆基绿能（601012.SH）、晶科能源（6882
+发布时间：2026年06月08日 09:00 来源：新华社 责任编辑：【杨彦宇】
 
 ## 正文
 
-（来源：财经思享汇）为何是大金重工能够分到欧洲风电“大蛋糕”，而不是其他几家？
-
-作者 | 夏万明编辑 | 管东生2025年，中国的绿电企业走出了两个截然不同的走势。
-
-其中大金重工（002487.SZ）一路生花，股价实现四倍涨幅，营业总收入61.74亿元，增长63.34%；归母净利润为11.03亿元，更是增长132.82%。
-
-相比之下，隆基绿能（601012.SH）、晶科能源（688223.SH）等龙头则相形见绌，业绩处于亏损状况，股价也跌宕起伏。
-
-这样的成绩在A股市场里虽不算顶尖，但在同行业却是独一份。
-
-大金重工做到了逆势增长，而天顺风能（002531.SZ）、泰胜风能（300129.SZ）和天能重工（300569.SZ）三家企业的业绩基本呈下降趋势，其中两家处于亏损状态。
-
-更重要的是，2026年一季度，大金重工仍然保持增长势头。
-
-营业总收入19.07亿元，同比增长67.17%；归母净利润4.35亿元，同比增长88.19%。
+发布时间：2026年06月08日 09:00 来源：新华社 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 22:13 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
-- 2026-06-29 22:14 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 22:00 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 22:23 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 22:13 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-29 22:16 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 22:21 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 21:57 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
-- 2026-06-29 22:01 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 22:20 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-29 22:17 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 22:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 22:04 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 22:26 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 22:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 22:13 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 22:09 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 22:28 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-29 22:24 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 22:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-29 22:16 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 22:06 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-29 22:21 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 22:28 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 22:30 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 22:11 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/460815.shtml)
-- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/841601.shtml)
-- 2026-06-29 22:16 - [店员光脚踩入盆中清洗土豆](https://www.blog.kurohicncr.top/Article/details/1262727.shtml)
-- 2026-06-29 21:54 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/9131022690.shtml)
-- 2026-06-29 22:01 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/124436175.shtml)
-- 2026-06-29 21:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/985969718646.shtml)
-- 2026-06-29 22:22 - [MG总经理直播被冲](http://www.share.kurohicncr.top/Article/details/2052201214.shtml)
-- 2026-06-29 22:17 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/056034.shtml)
-- 2026-06-29 22:16 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/11991730.shtml)
-- 2026-06-29 22:16 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/209020103616.shtml)
-- 2026-06-29 22:14 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/50956564.shtml)
-- 2026-06-29 22:18 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/3574293.shtml)
-- 2026-06-29 22:23 - [这辈子过得最痛苦的生日...](http://www.share.minike.top/Article/details/9392036.shtml)
-- 2026-06-29 22:14 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/7668255926.shtml)
-- 2026-06-29 22:11 - [巴西若输日本将创36年最差纪录](https://www.share.minike.top/Article/details/216337.shtml)
+- 2026-06-29 22:11 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/98550978246.shtml)
+- 2026-06-29 22:15 - [运20对中国空军的意义是什么](https://www.share.minike.top/Article/details/943747.shtml)
+- 2026-06-29 22:06 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/845323.shtml)
+- 2026-06-29 22:18 - [哈兰德吃饭被镜中自己吓到](https://www.share.minike.top/Article/details/029840.shtml)
+- 2026-06-29 22:26 - [回顾世界杯争议事件](http://www.share.minike.top/Article/details/74973872764.shtml)
+- 2026-06-29 22:10 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.minike.top/Article/details/06888467888.shtml)
+- 2026-06-29 22:15 - [月亮](http://www.blog.kurohicncr.top/Article/details/89713860169.shtml)
+- 2026-06-29 22:07 - [第二波数码涨价潮来袭](https://www.blog.minike.top/Article/details/57133.shtml)
+- 2026-06-29 22:03 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/59731349863.shtml)
+- 2026-06-29 22:08 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/813165557988.shtml)
+- 2026-06-29 22:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/7658040.shtml)
+- 2026-06-29 22:11 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/0203092.shtml)
+- 2026-06-29 22:13 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/78494023024.shtml)
+- 2026-06-29 22:03 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/1474193332.shtml)
+- 2026-06-29 22:12 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/302100920522.shtml)

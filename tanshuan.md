@@ -1,59 +1,59 @@
-# 热辣沸腾，不夜重庆
+# 原油：油价下跌 市场评估美伊和谈进展与需求减弱迹象
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-原标题：首席记者谈首季经济|热辣沸腾，不夜重庆 清风徐来，游轮缓缓驶过嘉陵江，层层涟漪揉碎灯火倒影；渔人湾码头高架桥下，野歌音乐会唱响“摇滚之夜”；龙门浩老街烟火气息浓郁、人声鼎沸；解放碑商圈熙熙攘攘、场面火爆…… 春夜温润，记者行走长江、嘉陵江边的重庆城区，探访大街小巷，感受山城的“热辣沸腾”。 “十五五”开局之年，这座西部都市倾力打造国际消费中心城市，持续培育“烟火气、巴渝
+原油价格下跌，交易员评估需求减弱迹象以及在重开霍尔木兹海峡方面鲜有进展的美伊和平谈判。 WTI下跌2.7%，收于每桶90美元上方；全球基准布伦特原油收于每桶93美元附近。 由于地缘政治不确定性抑制风险偏好，两大基准原油期货的未平仓合约数量呈下降趋势，从而放大了价格波动。 尽管伊朗支持的黎巴嫩真主党拒绝了美国斡旋的以黎停火协议，但美国总统唐纳德·特朗普表示与伊朗的谈判进展顺利。
 
 ## 正文
 
-原标题：首席记者谈首季经济|热辣沸腾，不夜重庆 清风徐来，游轮缓缓驶过嘉陵江，层层涟漪揉碎灯火倒影；渔人湾码头高架桥下，野歌音乐会唱响“摇滚之夜”；龙门浩老街烟火气息浓郁、人声鼎沸；解放碑商圈熙熙攘攘、场面火爆…… 春夜温润，记者行走长江、嘉陵江边的重庆城区，探访大街小巷，感受山城的“热辣沸腾”。
+原油价格下跌，交易员评估需求减弱迹象以及在重开霍尔木兹海峡方面鲜有进展的美伊和平谈判。
 
-“十五五”开局之年，这座西部都市倾力打造国际消费中心城市，持续培育“烟火气、巴渝味、国际范”的消费场景、消费业态、消费品牌，焕新出满满消费活力。
+WTI下跌2.7%，收于每桶90美元上方；全球基准布伦特原油收于每桶93美元附近。
 
-“江崖街洞天”烟火氤氲 夜幕轻笼，渝中区洪崖洞景区准时点亮，璀璨灯火里，摩肩接踵的游人在依山而建的吊脚楼群中穿行。
+由于地缘政治不确定性抑制风险偏好，两大基准原油期货的未平仓合约数量呈下降趋势，从而放大了价格波动。
 
-“11楼外是马路，1楼外也是马路。
+尽管伊朗支持的黎巴嫩真主党拒绝了美国斡旋的以黎停火协议，但美国总统唐纳德·特朗普表示与伊朗的谈判进展顺利。
 
-”在“城市阳台”饱览金色崖壁、如虹桥景后，河南游客刘娟在人潮中逐层而下，尝尝民俗美食街的酸辣粉、糍粑块，买几件百业工坊老街的文创产品，拍两套巴渝风情美妆照……一路游来，她直呼“魔幻山城”的神奇和惊艳。
+黎巴嫩总统约瑟夫·奥恩在接受CNN采访时表示，伊朗在与美国谈判中把黎巴嫩当作“谈判筹码”，这是不可接受的。
 
-轻轨穿楼、索道过江，城在山上、山在城中。
+交易员还在关注全球范围内需求遭到破坏的迹象，这源于价格上涨和库存下降。
 
-重庆，这座“城郭生成造化镌，如麻舟楫两崖边”的山水之城，也是网友心心念念的“8D”网红城市。
+多家主要能源预测机构已经预计，今年全球石油需求增速可能罕见下滑。
 
-化“风景”为“场景”，重庆“网红流量”日益变成“城市留量”。
+“全球需求破坏持续扩大，”BOK Financial Securities高级副总裁Dennis Kissler表示。
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
-- 2026-06-29 22:04 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 22:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 22:05 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-29 21:58 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 22:20 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 22:14 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 22:03 - [返利科技盘中上演“天地板”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 21:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 22:21 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 21:56 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 22:17 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-29 21:54 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-29 22:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 22:23 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 22:03 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 22:24 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 22:16 - [天气热脾气都变差了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 22:00 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 22:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 22:24 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 22:09 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 22:24 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-29 22:23 - [地震来临时铁路工作人员果断拦停列车](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 22:13 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 22:07 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/85361.shtml)
-- 2026-06-29 22:16 - [穆祉丞东方风云榜红毯](https://www.share.minike.top/Article/details/94690.shtml)
-- 2026-06-29 21:59 - [高考1357分的同学如何报志愿？](https://www.blog.minike.top/Article/details/90432663735.shtml)
-- 2026-06-29 22:00 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/476659512.shtml)
-- 2026-06-29 22:06 - [哈兰德玩游戏连女友都不让着](http://www.share.minike.top/Article/details/77728.shtml)
-- 2026-06-29 21:57 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/5571929625.shtml)
-- 2026-06-29 22:09 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/324581202939.shtml)
-- 2026-06-29 21:55 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/5909705225.shtml)
-- 2026-06-29 22:22 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/959077771340.shtml)
-- 2026-06-29 22:14 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/70754638258.shtml)
-- 2026-06-29 22:06 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/0988162805.shtml)
-- 2026-06-29 21:56 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/9681122901.shtml)
-- 2026-06-29 22:10 - [金鹰奖第二阶段投票明日开启](https://www.share.kurohicncr.top/Article/details/569259515644.shtml)
-- 2026-06-29 21:57 - [追觅称质量不行终身包修也没意义](http://www.share.kurohicncr.top/Article/details/926045656590.shtml)
-- 2026-06-29 22:01 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/113539530.shtml)
+- 2026-06-29 22:04 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/411113.shtml)
+- 2026-06-29 22:13 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/2656113.shtml)
+- 2026-06-29 22:28 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/439366895469.shtml)
+- 2026-06-29 22:19 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/61027687.shtml)
+- 2026-06-29 22:15 - [记者暗访养老机构消防安全](http://www.share.minike.top/Article/details/8433519449.shtml)
+- 2026-06-29 22:25 - [男子称在京东买到“同仁堂”假药](http://www.share.minike.top/Article/details/20846.shtml)
+- 2026-06-29 22:21 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/55722.shtml)
+- 2026-06-29 22:24 - [山东发布山洪灾害气象预警](https://www.blog.minike.top/Article/details/864910638.shtml)
+- 2026-06-29 22:24 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/75315.shtml)
+- 2026-06-29 22:25 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/488498986058.shtml)
+- 2026-06-29 22:10 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.minike.top/Article/details/29663577.shtml)
+- 2026-06-29 22:21 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/797857184645.shtml)
+- 2026-06-29 22:09 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/897214715690.shtml)
+- 2026-06-29 22:18 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/50272334817.shtml)
+- 2026-06-29 22:18 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/9695762070.shtml)

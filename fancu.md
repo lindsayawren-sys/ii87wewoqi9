@@ -1,58 +1,60 @@
-# 沪指重回4100点！红利低波ETF华泰柏瑞（512890）半日成交6.05亿领跑同类 机构：高股息逻辑仍成立
+# 浙江省档案馆将发布“浙江红色根脉档案珍品名单”
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-4月29日，三大指数低开高走，沪指重回4100点上方，创业板指涨超2%。在此带动下，红利低波ETF华泰柏瑞（512890）涨0.25%，报1.195元，换手率1.97%，半日成交额6.05亿元，居同类标的ETF首位。 最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨跌不一。包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民生银行
+中新网杭州6月7日电(林波)6月9日，以“档案与时代同行”为主题，以“守护红色记忆 赓续红色根脉”为主线的2026年国际档案日现场活动将在浙江省档案馆举行。届时，将发布浙江红色根脉档案珍品名单、浙江红色根脉档案珍品数字地图，为公众开启一扇以档为媒、触摸真实历史的窗口。浙江省各级综合档案馆馆藏丰富，既有反映政治、经济、文化、社会、生态文明等各领域发展历程的官方档案，也有展现地域民
 
 ## 正文
 
-4月29日，三大指数低开高走，沪指重回4100点上方，创业板指涨超2%。
+中新网杭州6月7日电(林波)6月9日，以“档案与时代同行”为主题，以“守护红色记忆 赓续红色根脉”为主线的2026年国际档案日现场活动将在浙江省档案馆举行。
 
-在此带动下，红利低波ETF华泰柏瑞（512890）涨0.25%，报1.195元，换手率1.97%，半日成交额6.05亿元，居同类标的ETF首位。
+届时，将发布浙江红色根脉档案珍品名单、浙江红色根脉档案珍品数字地图，为公众开启一扇以档为媒、触摸真实历史的窗口。
 
-最新定期报告显示，红利低波ETF华泰柏瑞（512890）十大重仓股今日涨跌不一。
+浙江省各级综合档案馆馆藏丰富，既有反映政治、经济、文化、社会、生态文明等各领域发展历程的官方档案，也有展现地域民间风土人情、民俗文化的特色档案，它们如同一座巨大的资源宝库等待着人们去挖掘、去利用。
 
-包括上海银行、南京银行、平安银行、沪农商行、华润江中、中国海油、中国石油、民生银行、陕鼓动力、成都银行，持仓占比如下。
+据了解，浙江省共有各级综合档案馆100家，从省档案馆到各市、县(市、区)档案馆，共同构建起一个庞大的“浙江记忆”档案资源体系。
 
-规模方面，截止4月28日，红利低波ETF华泰柏瑞（512890）最新份额为256.88亿份，最新规模为306.46亿元。
+2026年是中国共产党成立105周年，也是浙江高质量发展建设共同富裕示范区5周年。
 
-该基金今年以来份额增加12.77%，规模增加14.54%。
+在这些红色根脉档案珍品中，有《共产党宣言》首个中文全译本，它不仅是马克思主义经典著作首次以完整中文形式在中国传播的历史见证，更直接催生了中国第一批共产主义者的信仰确立，堪称“红色文献中的开山之作”；有沈雁冰关于中国共产党成立早期回忆录手稿《我走过的道路(1896—1926年)》，档案详细记载了20世纪20年代上海共产主义小组建立、早期革命活动以及新文化运动的全过程，真实记录了沈雁冰本人加入上海共产主义小组、为党内刊物《共产党》翻译马列理论、中共一大以后担任中共中央直属联络员工作等重要党史事件；还有中共浙江省第一次代表大会档案(1939年)，中共浙江省第一次代表大会是新民主主义革命时期浙江党组织召开的唯一一次全省党代表大会，这份档案全面反映了中共浙江省第一次代表大会的召开过程，完整记录了浙江省委领导机构选举、党的七大代表推选等关键信息。
 
-流动性方面，截止4月29日，红利低波ETF华泰柏瑞（512890）近20个交易日累计成交金额135.89亿元，日均成交金额6.79亿元。
+这些浙江红色根脉档案珍品原件见证了马克思主义在中国早期传播的星火初燃，见证了革命先驱们为理想奋斗的赤诚足迹，更见证了红色基因在之江大地的赓续传承。
 
-消息面上，回顾历史数据，A股市场历来有节前资金落袋为安的传统。
+据悉，活动期间，部分浙江红色根脉档案珍品原件将首次向公众集中展出。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 22:19 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-29 22:16 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 22:02 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 22:18 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 22:18 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 22:12 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 22:21 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 22:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 22:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 22:03 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 21:58 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-29 22:07 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 22:22 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 22:24 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 22:19 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 22:13 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 22:02 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 22:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 22:09 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 22:22 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 22:12 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 22:23 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 22:24 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 22:09 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
+- 2026-06-29 22:17 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/99214372603.shtml)
-- 2026-06-29 22:13 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/44942095.shtml)
-- 2026-06-29 22:03 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/0197739729.shtml)
-- 2026-06-29 22:15 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/04279659.shtml)
-- 2026-06-29 22:10 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/94740535.shtml)
-- 2026-06-29 21:55 - [曝iPhone涨价后不会再降](https://www.share.minike.top/Article/details/45552894554.shtml)
-- 2026-06-29 22:21 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/859000.shtml)
-- 2026-06-29 22:03 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/59634845.shtml)
-- 2026-06-29 22:00 - [东方风云榜](http://www.share.kurohicncr.top/Article/details/269235.shtml)
-- 2026-06-29 22:08 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/94331799570.shtml)
-- 2026-06-29 22:13 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/96538722.shtml)
-- 2026-06-29 22:07 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/54620.shtml)
-- 2026-06-29 21:55 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/57229827.shtml)
-- 2026-06-29 21:54 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/251511.shtml)
-- 2026-06-29 22:19 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/0839060499.shtml)
+- 2026-06-29 22:27 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/568647243087.shtml)
+- 2026-06-29 22:07 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/453614.shtml)
+- 2026-06-29 22:18 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/178214821341.shtml)
+- 2026-06-29 22:22 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/487720.shtml)
+- 2026-06-29 22:22 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/72947.shtml)
+- 2026-06-29 22:09 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/464842.shtml)
+- 2026-06-29 22:25 - [巴西10号球衣是天才传承史](https://www.blog.minike.top/Article/details/60201116.shtml)
+- 2026-06-29 22:19 - [谢霆锋王菲十指紧扣一起走](http://www.blog.minike.top/Article/details/254832.shtml)
+- 2026-06-29 22:29 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/88628.shtml)
+- 2026-06-29 22:12 - [女子发现孩子非现任亲生起诉前任](https://www.share.minike.top/Article/details/07039800891.shtml)
+- 2026-06-29 22:22 - [扬名立万](http://www.share.minike.top/Article/details/16578968156.shtml)
+- 2026-06-29 22:01 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/84916994458.shtml)
+- 2026-06-29 22:05 - [东方风云榜](https://www.share.minike.top/Article/details/7030520922.shtml)
+- 2026-06-29 22:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/7930065.shtml)
+- 2026-06-29 22:18 - [绿营污蔑大陆“海上袭扰”被批](https://www.blog.kurohicncr.top/Article/details/973646.shtml)

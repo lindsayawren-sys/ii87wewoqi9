@@ -1,58 +1,52 @@
-# 《先锋之城》出版：书写深圳45年城市建设奇迹
+# “香港电影展映·杭州站”正式启幕
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网广州4月30日电(记者 程景伟)《先锋之城：深圳经济特区四十五年城市建设实践》(简称《先锋之城》)一书近日在南方日报出版社出版。该书以严谨架构与温情叙事，完整呈现深圳从边陲小镇到全球标杆城市的先锋之路，为中国式现代化城市建设提供参考。 该书由广东省未来城市发展促进会、深圳市城市规划设计研究院、深圳市规划国土发展研究中心联合主编，跳出技术的视角，将专业叙述转化为更具温度的故
+发布时间：2026年06月07日 09:16 来源：中国新闻网 6月5日晚，“创想无限，光影不熄——2026香港电影展映·杭州站”启幕。展映精选10部近5年香港新作，于6月5日至14日集中上映，并通过映后交流联结两地观众。据悉，本次展映特意邀请杭州高校影视、新媒体等专业师生观赏，以光影为媒深化杭港文化交流。(孙琳茹) 责任编辑：【李季】
 
 ## 正文
 
-中新网广州4月30日电(记者 程景伟)《先锋之城：深圳经济特区四十五年城市建设实践》(简称《先锋之城》)一书近日在南方日报出版社出版。
+发布时间：2026年06月07日 09:16 来源：中国新闻网 6月5日晚，“创想无限，光影不熄——2026香港电影展映·杭州站”启幕。
 
-该书以严谨架构与温情叙事，完整呈现深圳从边陲小镇到全球标杆城市的先锋之路，为中国式现代化城市建设提供参考。
+展映精选10部近5年香港新作，于6月5日至14日集中上映，并通过映后交流联结两地观众。
 
-该书由广东省未来城市发展促进会、深圳市城市规划设计研究院、深圳市规划国土发展研究中心联合主编，跳出技术的视角，将专业叙述转化为更具温度的故事，将那些深藏于政策文件和规划图纸中的内容转化为鲜活生动的场景。
+据悉，本次展映特意邀请杭州高校影视、新媒体等专业师生观赏，以光影为媒深化杭港文化交流。
 
-全书以时间为经、空间为纬，共设五章，每章围绕一个历史阶段展开论述，层层递进、脉络清晰：第一章回望经济特区初创岁月，再现建设者在空白之上探索制度破冰、夯实城市根基的拓荒场景；第二章书写特区内外高速发展，记录工业化与城市化齐头并进的壮阔历程；第三章聚焦转型关键阶段，展现深圳在发展中调整，以城市更新、生态治理与公共服务建设实现提质升级；第四章立足先行示范区建设新时代，呈现深圳在粤港澳大湾区协同发展中，在空间治理、科技创新、宜居品质上的先行探索；第五章放眼未来，谋划城市核心功能提升与创新引领路径，为全国城市发展贡献思路。
-
-中国工程院院士孟建民评价，该书的价值不仅在于记录了深圳四十五年的发展进程，更在于总结提炼出其建设经验与发展路径。
-
-对其他城市而言，该书则提供了在土地紧缺约束和人口高度集聚条件下城市发展的有益参照。
-
-(完)
+(孙琳茹) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 22:17 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
-- 2026-06-29 22:02 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-29 21:56 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-29 22:19 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-29 22:14 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 22:18 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 22:19 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-29 22:14 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-29 22:03 - [第二波数码涨价潮来袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-29 21:57 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-29 22:18 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 21:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 22:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 22:13 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 22:29 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 22:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-29 22:25 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 22:08 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
+- 2026-06-29 22:07 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 22:24 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 22:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-29 22:22 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 22:05 - [肝不好身体这几处会“说话”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 22:21 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-29 22:14 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-29 22:25 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 22:07 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 22:28 - [MG总经理直播被冲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.minike.top/Article/details/60128120791.shtml)
-- 2026-06-29 22:12 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/934747536866.shtml)
-- 2026-06-29 22:09 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/9941986.shtml)
-- 2026-06-29 22:18 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/590200132.shtml)
-- 2026-06-29 22:21 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/887173.shtml)
-- 2026-06-29 22:10 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/26015.shtml)
-- 2026-06-29 22:11 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/7868806.shtml)
-- 2026-06-29 22:08 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/3368386.shtml)
-- 2026-06-29 22:21 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/34444588384.shtml)
-- 2026-06-29 22:05 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/8903967289.shtml)
-- 2026-06-29 21:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/160107167.shtml)
-- 2026-06-29 22:00 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/85748.shtml)
-- 2026-06-29 22:08 - [日本豪言冲击冠军是自信还是傲慢](http://www.blog.kurohicncr.top/Article/details/043164.shtml)
-- 2026-06-29 22:02 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/31377.shtml)
-- 2026-06-29 22:03 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/988634.shtml)
+- 2026-06-29 22:05 - [林一听到陈星旭王玉雯谈恋爱的反应](https://www.blog.kurohicncr.top/Article/details/66915606934.shtml)
+- 2026-06-29 22:24 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/38367.shtml)
+- 2026-06-29 22:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/44342555159.shtml)
+- 2026-06-29 22:00 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/6239266959.shtml)
+- 2026-06-29 22:28 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/01842153400.shtml)
+- 2026-06-29 22:08 - [俄罗斯为何考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/53360878.shtml)
+- 2026-06-29 22:23 - [五只军犬招募领养人](https://www.blog.minike.top/Article/details/3066912.shtml)
+- 2026-06-29 22:10 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/041114534.shtml)
+- 2026-06-29 22:03 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/5581509963.shtml)
+- 2026-06-29 22:27 - [乌是否掌握了扭转战局的钥匙](https://www.blog.kurohicncr.top/Article/details/95241.shtml)
+- 2026-06-29 22:29 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/0670808.shtml)
+- 2026-06-29 22:25 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/51847.shtml)
+- 2026-06-29 22:06 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/425802.shtml)
+- 2026-06-29 22:03 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/333965.shtml)
+- 2026-06-29 22:08 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/4854220.shtml)

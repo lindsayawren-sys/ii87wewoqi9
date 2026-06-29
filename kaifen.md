@@ -1,61 +1,56 @@
-# 学者专家福州共话“从可靠数据到可信AI”
+# “阿嬷热”席卷第五届“香港潮州节”
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网福州4月30日电 (彭莉芳)当算力基础设施厚积成势、大模型百模竞进，如何让AI风险可控、价值可信？对此，在30日于福州举行的第九届数字中国建设峰会“从可靠数据到可信AI”主题交流活动上，高校学者与产业专家从数据基建、政务应用、安全防护等维度，分享了自己的思考。 “数据智能本质是数据驱动的概率统计，不具备人类认知与推理能力。”北京大学教授梅宏指出，数据的数量与质量决定了模型
+中新社香港6月5日电 题：“阿嬷热”席卷第五届“香港潮州节” 作者 戴小橦 郑欣怡 电影《给阿嬷的情书》5日宣布将于6月18日起登陆香港院线，这一消息成为当天开幕的第五届“香港潮州节”上的热门话题。 出席活动开幕式的丽新集团主席、香港潮属社团总会监事会副主席林建岳向现场观众郑重推荐这部电影。他说，影片立足潮汕乡土人情，细腻刻画潮汕人淳朴善良、重义守诺的人文特质，凝练诠释潮州人精
 
 ## 正文
 
-中新网福州4月30日电 (彭莉芳)当算力基础设施厚积成势、大模型百模竞进，如何让AI风险可控、价值可信？
+中新社香港6月5日电 题：“阿嬷热”席卷第五届“香港潮州节” 作者 戴小橦 郑欣怡 电影《给阿嬷的情书》5日宣布将于6月18日起登陆香港院线，这一消息成为当天开幕的第五届“香港潮州节”上的热门话题。
 
-对此，在30日于福州举行的第九届数字中国建设峰会“从可靠数据到可信AI”主题交流活动上，高校学者与产业专家从数据基建、政务应用、安全防护等维度，分享了自己的思考。
+出席活动开幕式的丽新集团主席、香港潮属社团总会监事会副主席林建岳向现场观众郑重推荐这部电影。
 
-“数据智能本质是数据驱动的概率统计，不具备人类认知与推理能力。
+他说，影片立足潮汕乡土人情，细腻刻画潮汕人淳朴善良、重义守诺的人文特质，凝练诠释潮州人精神，是向香港社会传播潮汕文化的极佳文艺载体。
 
-”北京大学教授梅宏指出，数据的数量与质量决定了模型能力的上限，当前大语言模型发展面临训练语料枯竭、模型自噬紊乱等挑战，构建高质量数据集、完善数据基础设施，是实现可信AI的关键支撑。
+活动还特别邀请《给阿嬷的情书》演员助阵。
 
-北京交通大学教授张向宏表示，通过数据工厂实现高质量数据集的稳定供给，能让大模型与智能体真正落地行业、创造价值，推动数据要素与人工智能深度共振。
+在片中饰演“如姨”的李德如、饰演“狄功”的陈钦勤和饰演“淑柔大女儿”的赵童，分享拍摄幕后故事与潮汕民俗细节。
 
-政务大模型是人工智能赋能千行百业的重要应用领域，其普及应用正成为提升政府治理能力的创新路径。
+李德如和赵童现场唱起电影主题曲《月下煮茶》，让观众直观感受影片的亲情内核与乡土风情。
 
-清华大学教授、清华大学计算社会科学与国家治理实验室执行主任孟庆国指出，政务大模型的应用仍存在诸多潜在的风险，如语料数据层面的偏见与污染、模型生成层面的“幻觉”问题，及应用层面可能引发的政务服务偏差。
+陈钦勤在接受媒体采访时细数潮汕地区与香港的深厚渊源。
 
-孟庆国表示，需构建覆盖数据、模型、应用全链路的政务大模型内容安全治理体系，实现模型价值取向与政府服务价值观的“对齐”，发挥政务大模型提升政府治理效能、优化公共服务的作用。
+他表示，两地血脉相连、人文相通、习俗相近，极易产生文化共情。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 22:04 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 21:55 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 22:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 22:10 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 22:10 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 22:04 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-29 22:14 - [欧洲缘何成为变暖最快的大洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 22:16 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 21:56 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-29 22:03 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 22:20 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 21:56 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-29 21:54 - [杨紫有3部作品入围金鹰奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 22:05 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
+- 2026-06-29 22:14 - [回顾世界杯争议事件](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-29 22:06 - [中国妇女评网游娱乐化女性安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-29 22:29 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 22:09 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 22:28 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 22:16 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 22:21 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 22:20 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 22:20 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 22:10 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/17302752.shtml)
-- 2026-06-29 22:14 - [韩文体部宣布对韩足协开展审计](http://www.share.kurohicncr.top/Article/details/202384769497.shtml)
-- 2026-06-29 22:03 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/7503752.shtml)
-- 2026-06-29 22:07 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/04753.shtml)
-- 2026-06-29 21:58 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/36968886.shtml)
-- 2026-06-29 22:23 - [韩国800万亿韩元押注半导体](https://www.blog.minike.top/Article/details/5719492057.shtml)
-- 2026-06-29 22:22 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/309720.shtml)
-- 2026-06-29 22:23 - [月亮](https://www.share.kurohicncr.top/Article/details/990668502.shtml)
-- 2026-06-29 22:21 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/50705944.shtml)
-- 2026-06-29 22:11 - [中国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/537988.shtml)
-- 2026-06-29 21:58 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/97911733677.shtml)
-- 2026-06-29 22:09 - [五只军犬招募领养人](https://www.blog.kurohicncr.top/Article/details/027795155857.shtml)
-- 2026-06-29 22:20 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/5742382736.shtml)
-- 2026-06-29 22:11 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/7989749.shtml)
-- 2026-06-29 22:05 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/01699716724.shtml)
+- 2026-06-29 22:04 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/772802216790.shtml)
+- 2026-06-29 22:00 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/75193789628.shtml)
+- 2026-06-29 22:03 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/7866866334.shtml)
+- 2026-06-29 22:28 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/90023003224.shtml)
+- 2026-06-29 22:03 - [啊啊啊](https://www.blog.minike.top/Article/details/42833.shtml)
+- 2026-06-29 22:29 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/22621970.shtml)
+- 2026-06-29 22:23 - [浪姐成团夜爆笑吐槽](http://www.share.minike.top/Article/details/26959743109.shtml)
+- 2026-06-29 22:27 - [6.5万观众40分钟“丝滑”离场](https://www.blog.kurohicncr.top/Article/details/53333.shtml)
+- 2026-06-29 22:12 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/61365032104.shtml)
+- 2026-06-29 22:13 - [一生一世](https://www.share.minike.top/Article/details/5182552915.shtml)
+- 2026-06-29 22:25 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/76894.shtml)
+- 2026-06-29 22:24 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/6907535.shtml)
+- 2026-06-29 22:07 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/78054797754.shtml)
+- 2026-06-29 22:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/56383.shtml)
+- 2026-06-29 22:15 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/26209163401.shtml)

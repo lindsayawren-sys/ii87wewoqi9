@@ -1,61 +1,60 @@
-# 2025年中国数据生产总量达52.26ZB 同比增27.28%
+# 用化工废桶、拖鞋边角料做“回料” 总台曝光一次性牙刷制作乱象
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新社福州4月29日电 (记者 刘亮)中国官方29日公布的数据显示，2025年全国数据生产总量达52.26ZB(泽字节，1ZB相当于10亿TB)，比上年增长11.2ZB，同比增长27.28%，其中系统软件、人工智能产生的数据量达26.92ZB，首次超过传统占主体地位的物联感知数据量。第九届数字中国建设峰会29日在福州开幕。中国国家发改委党组成员、国家数据局局长刘烈宏在开幕式上披
+近日，《财经调查》栏目接到消费者和业内人士的举报，市场上有一些牙刷生产企业涉嫌违规使用各类废旧、回收塑料的原料制作一次性牙刷，并大量销售进市场。 《财经调查》曝光小作坊翻新牙刷 劣质“回收料”牙刷流入市场 在扬州市江都区的一处小型废品收购站，场内堆积着各种废旧塑料，有装化学制剂的白桶、家电上拆下来的旧面板、电风扇的盖子、破旧的轮滑鞋…… 给废品称重的工作人员告诉记者，这些回收塑
 
 ## 正文
 
-中新社福州4月29日电 (记者 刘亮)中国官方29日公布的数据显示，2025年全国数据生产总量达52.26ZB(泽字节，1ZB相当于10亿TB)，比上年增长11.2ZB，同比增长27.28%，其中系统软件、人工智能产生的数据量达26.92ZB，首次超过传统占主体地位的物联感知数据量。
+近日，《财经调查》栏目接到消费者和业内人士的举报，市场上有一些牙刷生产企业涉嫌违规使用各类废旧、回收塑料的原料制作一次性牙刷，并大量销售进市场。
 
-第九届数字中国建设峰会29日在福州开幕。
+《财经调查》曝光小作坊翻新牙刷 劣质“回收料”牙刷流入市场 在扬州市江都区的一处小型废品收购站，场内堆积着各种废旧塑料，有装化学制剂的白桶、家电上拆下来的旧面板、电风扇的盖子、破旧的轮滑鞋…… 给废品称重的工作人员告诉记者，这些回收塑料经过简单粉碎后，会流向各类塑料制品加工厂，其中相当一部分专门用来制作牙刷。
 
-中国国家发改委党组成员、国家数据局局长刘烈宏在开幕式上披露上述数据。
+按这位工作人员的说法，装过洗涤剂、尿素的化工废桶，沾染各类残留物质，全程不做清洗就送到外面直接粉碎加工。
 
-刘烈宏指出，当前人工智能正加速演进，呈现从大语言模型向多模态模型拓展，从基础模型向行业模型深化，从内容生成向智能体决策执行跃升，从数字智能向具身智能延伸等趋势，为数据生产带来结构性的变化。
+只要加入颜料染色，就能解决废旧塑料原料外观脏乱的问题。
 
-据介绍，2025年全国数据生产总量达到52.26ZB，其中系统软件、人工智能产生的数据量达26.92ZB，首次超过物联感知数据量。
+记者跟随一辆收废品的三轮车，来到另一处废品收购站，地上摆满了回收来的牙刷。
 
-他指出，数据赋能人工智能迈入了新阶段。
+只见一位工作人员坐在小板凳上用砍刀，把牙刷头一个个砍掉。
 
-数据不仅用于训练，更已成为驱动AI模型迭代与场景落地的关键要素，有力支撑了医疗、金融、制造、城市治理等领域的AI部署。
+留下的旧刷杆，他们会按照颜色分拣，随后送往加工厂打碎，再次制成新的牙刷柄。
 
-2025年中国用于人工智能训练和推理的数据总量为199.48EB(艾字节，1ZB相当于1024EB)，同比增长42.86%，其中推理数据量首次超过训练数据量，达到101.34EB。
+用拖鞋边角料做牙刷 小作坊现场触目惊心 在江都区一个民房的后院，记者看到院子里散落着各种已经加工好的一次性口罩，花花绿绿的包在塑料袋里都没有拆封。
 
 ## 相关推荐
 
-- 2026-06-29 22:03 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
-- 2026-06-29 22:14 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 22:04 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-29 22:18 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
-- 2026-06-29 22:12 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 22:16 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
-- 2026-06-29 22:12 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 21:57 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-29 22:15 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
-- 2026-06-29 22:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-29 22:19 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 22:13 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-29 22:22 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 22:14 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 22:11 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 22:24 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 22:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 22:08 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 22:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
+- 2026-06-29 22:25 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 22:24 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 22:01 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 22:12 - [谁在推动“成都造”影视持续出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 22:04 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 22:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 22:13 - [日本在最东端离岛部署导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-29 22:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 22:09 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 22:05 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [TOP Prada](http://www.blog.minike.top/Article/details/7650781268.shtml)
-- 2026-06-29 22:15 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/288714284.shtml)
-- 2026-06-29 22:08 - [杨紫有3部作品入围金鹰奖](https://www.blog.kurohicncr.top/Article/details/13292.shtml)
-- 2026-06-29 22:21 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/943205634433.shtml)
-- 2026-06-29 21:56 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/500650878.shtml)
-- 2026-06-29 21:56 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/18447832225.shtml)
-- 2026-06-29 21:56 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/14387163610.shtml)
-- 2026-06-29 22:18 - [温网](http://www.blog.kurohicncr.top/Article/details/52042.shtml)
-- 2026-06-29 22:00 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/929470357.shtml)
-- 2026-06-29 22:01 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/87317.shtml)
-- 2026-06-29 22:13 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/69647029414.shtml)
-- 2026-06-29 21:55 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/466767211.shtml)
-- 2026-06-29 22:04 - [白玉兰答谢宴合影](http://www.blog.minike.top/Article/details/3757406.shtml)
-- 2026-06-29 22:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/45192247.shtml)
-- 2026-06-29 21:58 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/26580372.shtml)
+- 2026-06-29 22:14 - [恋与深空将调整引狼入室文本](https://www.share.kurohicncr.top/Article/details/3323921.shtml)
+- 2026-06-29 22:10 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/7782131593.shtml)
+- 2026-06-29 22:21 - [福建仙游一峡谷发生意外5人身亡](http://www.blog.kurohicncr.top/Article/details/1200961765.shtml)
+- 2026-06-29 22:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/488385.shtml)
+- 2026-06-29 22:24 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/22187154.shtml)
+- 2026-06-29 22:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/2005956.shtml)
+- 2026-06-29 22:10 - [时光音乐会](http://www.share.minike.top/Article/details/93315.shtml)
+- 2026-06-29 22:08 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/266315.shtml)
+- 2026-06-29 22:09 - [AI接过张雪峰志愿填报衣钵](https://www.share.minike.top/Article/details/46354938.shtml)
+- 2026-06-29 22:15 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.kurohicncr.top/Article/details/03012774.shtml)
+- 2026-06-29 22:16 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/870432.shtml)
+- 2026-06-29 22:29 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/301445933812.shtml)
+- 2026-06-29 22:03 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/3643508691.shtml)
+- 2026-06-29 22:10 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/621184245628.shtml)
+- 2026-06-29 22:26 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/43880823040.shtml)

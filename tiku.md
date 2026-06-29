@@ -1,56 +1,57 @@
-# 阿联酋退出欧佩克并非史无前例，下一个会是谁？
+# 开智驾如同开盲盒？多起追尾事故暴露L2安全漏洞
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-核心要点 阿联酋意外宣布退出欧佩克，正冲击全球能源市场，暴露出这个强大石油卡特尔内部的裂痕；生产配额制度或引发其他成员国效仿退出。 做出该决定前数周，同为欧佩克成员国的伊朗多次向阿联酋发射导弹和无人机袭击，霍尔木兹海峡封锁又扰乱阿联酋石油出口，重创其经济支柱产业。 利普奥石油协会总裁安迪・利波通过邮件向美国消费者新闻与商业频道表示： “阿联酋退出，只是欧佩克成员国格局变动的又一
+普通消费者难以辨别产品优劣，仅凭车辆标注的L2级辅助驾驶配置，盲目在各类路况启用、甚至过度依赖该功能，如同开启一款性能未知的“智驾盲盒”。 近期，国内多起智能汽车辅助驾驶事故，持续暴露L2级智驾普及过程中的安全漏洞。 某品牌车型在高速开启L2辅助驾驶后，未能有效识别前方停驶的工程车辆，最终酿成追尾事故；另一款车型在阴雨天气下，系统未能识别路面静止障碍物，导致车辆径直撞上；还有车
 
 ## 正文
 
-核心要点 阿联酋意外宣布退出欧佩克，正冲击全球能源市场，暴露出这个强大石油卡特尔内部的裂痕；生产配额制度或引发其他成员国效仿退出。
+普通消费者难以辨别产品优劣，仅凭车辆标注的L2级辅助驾驶配置，盲目在各类路况启用、甚至过度依赖该功能，如同开启一款性能未知的“智驾盲盒”。
 
-做出该决定前数周，同为欧佩克成员国的伊朗多次向阿联酋发射导弹和无人机袭击，霍尔木兹海峡封锁又扰乱阿联酋石油出口，重创其经济支柱产业。
+近期，国内多起智能汽车辅助驾驶事故，持续暴露L2级智驾普及过程中的安全漏洞。
 
-利普奥石油协会总裁安迪・利波通过邮件向美国消费者新闻与商业频道表示： “阿联酋退出，只是欧佩克成员国格局变动的又一个篇章。
+某品牌车型在高速开启L2辅助驾驶后，未能有效识别前方停驶的工程车辆，最终酿成追尾事故；另一款车型在阴雨天气下，系统未能识别路面静止障碍物，导致车辆径直撞上；还有车型在开启智驾功能后失控变道，险些引发多车连环相撞。
 
-如果遵守配额的国家对那些肆意超产、无视配额的国家感到不满，后续或将出现更多退出潮，最终可能让欧佩克失去石油卡特尔的实际影响力。
+上述涉事车辆均搭载L2级辅助驾驶系统。
 
-” 过去多年，卡塔尔、厄瓜多尔、安哥拉等国都曾退出该组织，原因多为不满产量配额、或是国家发展战略重心转移。
+事故发生后，涉事车企以车辆用户手册约定为依据进行免责，事故最终定责大多指向车主，判定车主因未履行全程瞭望义务、未及时人工采取避让措施，承担事故主要责任。
 
-安哥拉 2024 年退出，卡塔尔 2019 年终止成员国身份。
+目前国内所有在售智能汽车，其智驾产品均归属L2级组合驾驶辅助范畴，并未达到自动驾驶级别，法规明确要求驾驶员全程掌控车辆、承担行车主体责任。
 
-长期以来，欧佩克一直面临各国执行配额参差不齐的问题，伊拉克、哈萨克斯坦等成员国历来常有突破产量上限、超额生产的情况。
+但行业长期存在显著的产品差距，不同车型的智驾成本、算法实力悬殊，智驾性能参差不齐。
 
-利波补充称：“阿联酋退出欧佩克，并非首例，也大概率不会是最后一例。
+普通消费者难以辨别产品优劣，仅凭车辆标注的L2级辅助驾驶配置，盲目在各类路况启用、甚至过度依赖该功能，如同开启一款性能未知的“智驾盲盒”，一旦遭遇系统识别失效场景，极易造成重大车损与人身伤害事故。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 22:07 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-29 22:01 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 22:15 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 22:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 22:20 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 22:02 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 22:11 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 22:21 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-29 22:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 22:17 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 22:13 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 22:21 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 22:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 22:01 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 22:06 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 22:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-29 22:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-29 22:28 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-29 22:21 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 22:06 - [美国一牛仔表演发生事故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/877552069072.shtml)
-- 2026-06-29 22:04 - [美人鱼](https://www.share.minike.top/Article/details/93947217132.shtml)
-- 2026-06-29 22:10 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/672139517.shtml)
-- 2026-06-29 21:55 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/39335224.shtml)
-- 2026-06-29 21:54 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/412122.shtml)
-- 2026-06-29 22:09 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/607657018.shtml)
-- 2026-06-29 22:09 - [曝腾讯与长鑫存储签200亿大单](http://www.blog.kurohicncr.top/Article/details/411142.shtml)
-- 2026-06-29 22:07 - [济南航空航天全面起势](http://www.share.kurohicncr.top/Article/details/6303108.shtml)
-- 2026-06-29 22:19 - [记者乘坐无人驾驶汽车去采访](https://www.share.kurohicncr.top/Article/details/19086849492.shtml)
-- 2026-06-29 22:21 - [起风了](http://www.share.kurohicncr.top/Article/details/214634849657.shtml)
-- 2026-06-29 22:04 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/724065.shtml)
-- 2026-06-29 22:23 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/02065231232.shtml)
-- 2026-06-29 22:21 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/34016012.shtml)
-- 2026-06-29 22:17 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/6615720895.shtml)
-- 2026-06-29 22:18 - [巴西队主帅称日本队是世界最佳之一](https://www.blog.kurohicncr.top/Article/details/31249846503.shtml)
+- 2026-06-29 22:24 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/59227998.shtml)
+- 2026-06-29 22:26 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.kurohicncr.top/Article/details/8934330.shtml)
+- 2026-06-29 22:14 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/974596.shtml)
+- 2026-06-29 22:06 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/504745329432.shtml)
+- 2026-06-29 22:27 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/92447923.shtml)
+- 2026-06-29 22:10 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/05724756.shtml)
+- 2026-06-29 22:21 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/14507401.shtml)
+- 2026-06-29 22:11 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/0335207.shtml)
+- 2026-06-29 22:02 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/5550367004.shtml)
+- 2026-06-29 22:21 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/10064562317.shtml)
+- 2026-06-29 22:24 - [仙游一峡谷5人身亡知情者发声](http://www.blog.minike.top/Article/details/1721916.shtml)
+- 2026-06-29 22:20 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/936937874404.shtml)
+- 2026-06-29 22:26 - [金刚川](http://www.share.minike.top/Article/details/3226832847.shtml)
+- 2026-06-29 22:01 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/351417923944.shtml)
+- 2026-06-29 22:07 - [回顾世界杯争议事件](https://www.blog.kurohicncr.top/Article/details/21104.shtml)

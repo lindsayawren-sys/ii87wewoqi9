@@ -1,54 +1,52 @@
-# “五一”假期大兴机场预计运送旅客超85万人次
+# 高考1天倒计时 全城细心护航北京高考
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月29日 20:59 来源：中国新闻网 交通运输部数据显示，2026年“五一”假期，全国预计将有15.2亿人次出行，创历史同期新高。4月29日，记者在大兴机场发现，不少民众选择错峰出行，提前开始享受假期。 记者从大兴机场了解到，“五一”期间，大兴机场预计执行航班5249架次，运送旅客85.76万人次。假期出行高峰预计出现在5月1日，运送旅客超18万人次。
+发布时间：2026年06月06日 21:23 来源：中国新闻网 2026年高考将于6月7日正式开始。又到一年高考季，全城暖心护航“如约上线”。考试前夕，中新社记者在北京多处实地探访发现，地铁、公交站贴起了高考加油标语，交警定岗值守、细心监管严控鸣笛，小区物业主动暂停装修服务降噪。整座城市大大小小暖心的细节，汇聚成了考生最踏实的考前保障。 (记者 谢龙飞 董语飞 范思忆 部分素材
 
 ## 正文
 
-发布时间：2026年04月29日 20:59 来源：中国新闻网 交通运输部数据显示，2026年“五一”假期，全国预计将有15.2亿人次出行，创历史同期新高。
+发布时间：2026年06月06日 21:23 来源：中国新闻网 2026年高考将于6月7日正式开始。
 
-4月29日，记者在大兴机场发现，不少民众选择错峰出行，提前开始享受假期。
+又到一年高考季，全城暖心护航“如约上线”。
 
-记者从大兴机场了解到，“五一”期间，大兴机场预计执行航班5249架次，运送旅客85.76万人次。
+考试前夕，中新社记者在北京多处实地探访发现，地铁、公交站贴起了高考加油标语，交警定岗值守、细心监管严控鸣笛，小区物业主动暂停装修服务降噪。
 
-假期出行高峰预计出现在5月1日，运送旅客超18万人次。
+整座城市大大小小暖心的细节，汇聚成了考生最踏实的考前保障。
 
-据介绍，假期期间，预计大兴机场与长三角、珠三角、成渝等城市群的传统热门航线将迎来客流高峰，前往三亚、贵阳、西安、哈尔滨等地客流也将有明显增长。
-
-(记者 刘超 北京报道) 责任编辑：【周驰】
+(记者 谢龙飞 董语飞 范思忆 部分素材来源 北京交警） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-29 22:04 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 21:54 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 22:05 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-29 21:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 21:55 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 22:23 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 21:57 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 22:12 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 22:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
-- 2026-06-29 22:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 22:17 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 22:21 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 22:04 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 22:06 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 22:12 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 22:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-29 22:29 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 22:15 - [温网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 22:01 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 22:23 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-29 22:01 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 22:19 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 22:27 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/530999.shtml)
-- 2026-06-29 22:02 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/9799785505.shtml)
-- 2026-06-29 22:04 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/345428186630.shtml)
-- 2026-06-29 22:18 - [网友晒14年前支教影像等来学生评论](http://www.blog.kurohicncr.top/Article/details/6871384.shtml)
-- 2026-06-29 22:00 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/35196880622.shtml)
-- 2026-06-29 22:01 - [网约车出事故平台拒赔称只是中介](https://www.share.kurohicncr.top/Article/details/85168795.shtml)
-- 2026-06-29 22:22 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/32336483.shtml)
-- 2026-06-29 22:12 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/0201940.shtml)
-- 2026-06-29 22:08 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/10677372553.shtml)
-- 2026-06-29 22:23 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/19794.shtml)
-- 2026-06-29 22:18 - [中国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/368883784015.shtml)
-- 2026-06-29 21:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/610606.shtml)
-- 2026-06-29 21:59 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/1010124.shtml)
-- 2026-06-29 21:54 - [女子发现孩子非现任亲生起诉前任](https://www.blog.kurohicncr.top/Article/details/231468057.shtml)
-- 2026-06-29 21:57 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/6853721614.shtml)
+- 2026-06-29 22:00 - [时光音乐会](http://www.share.minike.top/Article/details/436441840.shtml)
+- 2026-06-29 22:00 - [存储三巨头被告了](http://www.blog.kurohicncr.top/Article/details/2474728.shtml)
+- 2026-06-29 22:27 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/9648149254.shtml)
+- 2026-06-29 22:19 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/07504129.shtml)
+- 2026-06-29 22:10 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/167338.shtml)
+- 2026-06-29 22:01 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/543737.shtml)
+- 2026-06-29 22:08 - [炽夏](http://www.share.kurohicncr.top/Article/details/86671148158.shtml)
+- 2026-06-29 22:12 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/84368676.shtml)
+- 2026-06-29 22:03 - [济南航空航天全面起势](https://www.blog.minike.top/Article/details/58760411877.shtml)
+- 2026-06-29 22:14 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/767723.shtml)
+- 2026-06-29 22:14 - [葫芦岛居民楼闪爆事故致3死](http://www.share.minike.top/Article/details/16080436.shtml)
+- 2026-06-29 22:05 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/6842028.shtml)
+- 2026-06-29 22:09 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/845062.shtml)
+- 2026-06-29 22:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/724419363866.shtml)
+- 2026-06-29 22:28 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/78052283.shtml)

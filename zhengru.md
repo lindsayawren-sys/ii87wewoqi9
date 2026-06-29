@@ -1,58 +1,57 @@
-# 股海导航_2026年4月30日_沪深股市公告与交易提示
+# 我国服务贸易持续扩能提质
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！【停牌】 600421 *ST华嵘（维权） 603557 ST起步 603021 ST华鹏（维权） 002193 如意集团（维权） 603718 海利生物 688033 天宜新材（维权） 600107 ST尔雅（维权） 600491 龙元建设 601718 际华集团（维权） 600696 *
+央视网消息(新闻联播)：今年以来，我国服务贸易规模稳步增长，结构持续向优，服务贸易对外贸发展的支撑作用正在进一步增强。 最近一段时间，江苏苏州生物医药产业园内多家企业密集签下服务出口订单。这家创新药企业与国际制药企业达成合作，围绕12个研发项目签署全球授权协议，交易总额达105亿美元。今年前5个月，园区落地8项生物医药自主知识产权出海合作项目，累计交易总金额突破266亿美元，较
 
 ## 正文
 
-专题：交易提示 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+央视网消息(新闻联播)：今年以来，我国服务贸易规模稳步增长，结构持续向优，服务贸易对外贸发展的支撑作用正在进一步增强。
 
-【停牌】 600421 *ST华嵘（维权） 603557 ST起步 603021 ST华鹏（维权） 002193 如意集团（维权） 603718 海利生物 688033 天宜新材（维权） 600107 ST尔雅（维权） 600491 龙元建设 601718 际华集团（维权） 600696 *ST岩石 600965 福成股份 603189 网达软件（维权） 688066 航天宏图 600608 *ST沪科（维权） 600636 *ST国化（维权） 600187 国中水务 600599 *ST熊猫（维权） 603378 亚士创能 688022 瀚川智能（维权） 605081 *ST太和（维权） 600340 华夏幸福 600302 标准股份 600745 闻泰科技（维权） 002667 威领股份 300430 诚益通 300010 豆神教育（维权） 30
+最近一段时间，江苏苏州生物医药产业园内多家企业密集签下服务出口订单。
 
-公司股票自2026年4月30日起停牌，上海证券交易所将在停牌后5个交易日内发出拟终止上市的事先告知书。
+这家创新药企业与国际制药企业达成合作，围绕12个研发项目签署全球授权协议，交易总额达105亿美元。
 
-花王股份：拟变更证券简称为“顺景科技” 花王股份公告称，公司拟将证券简称由“花王股份”变更为“顺景科技”，证券代码“603007”保持不变。
+今年前5个月，园区落地8项生物医药自主知识产权出海合作项目，累计交易总金额突破266亿美元，较去年同比增长超5倍。
 
-此举旨在反映公司主营业务已转向新能源汽车关键零部件等智能制造业，该业务收入占2025年营收的73.70%。
+知识密集型服务正成为我国服务贸易增长的重要支撑。
 
-【观业绩】 工商银行：第一季度净利润869.41亿元同比增长3.31% 工商银行公告称，2026年第一季度实现营业收入2303.70亿元，同比增长8.27%；归属于母公司股东的净利润为869.41亿元，同比增长3.31%。
+商务部数据显示：今年前4个月，我国知识密集型服务进出口11041.8亿元，在服务进出口总额的比重中达到了44.4%；知识密集型服务出口增长更为明显，同比增长了11.7%。
 
-业绩变动主要系利息净收入增长7.49%，非利息收入增长10.45%所致。
-
-农业银行：第一季度净利润751.9亿元，同比增长4.5% 农业银行公告，第一季度净利润751.9亿元，同比增长4.5%。
+新兴服务贸易增势迅猛的同时，传统服务贸易也保持了较快增长，1—4月，旅行服务出口、运输服务进口增速分别达到30.4%和24.9%，传统服务贸易的基本盘持续巩固。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 22:18 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 22:22 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 22:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-29 22:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 22:11 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 22:13 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
-- 2026-06-29 22:07 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-29 22:20 - [《恋与深空》回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 21:56 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 22:11 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 22:11 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 22:10 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 22:05 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-29 22:04 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 22:00 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 22:11 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-29 22:06 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 22:12 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 22:23 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 22:10 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 22:15 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 22:05 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 22:17 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 22:01 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [杨紫有3部作品入围金鹰奖](http://www.share.minike.top/Article/details/140782503.shtml)
-- 2026-06-29 22:19 - [马光远谈马斯克最大的价值](https://www.blog.minike.top/Article/details/3302926.shtml)
-- 2026-06-29 22:11 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/228823.shtml)
-- 2026-06-29 22:14 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/34184.shtml)
-- 2026-06-29 22:08 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/9379013.shtml)
-- 2026-06-29 21:55 - [房价什么时候能涨](http://www.share.minike.top/Article/details/417879473202.shtml)
-- 2026-06-29 22:04 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/349452.shtml)
-- 2026-06-29 21:58 - [王楚钦开门红](https://www.blog.minike.top/Article/details/92353388.shtml)
-- 2026-06-29 21:56 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/06431232227.shtml)
-- 2026-06-29 22:20 - [浙江进入梅雨最强“攻击时段”](https://www.share.minike.top/Article/details/7232681.shtml)
-- 2026-06-29 22:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/6586571.shtml)
-- 2026-06-29 22:04 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/958582874397.shtml)
-- 2026-06-29 22:08 - [汪苏泷年度歌手](http://www.share.minike.top/Article/details/45477632384.shtml)
-- 2026-06-29 22:02 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/701759403.shtml)
-- 2026-06-29 22:04 - [爱很美味](http://www.share.minike.top/Article/details/475390739378.shtml)
+- 2026-06-29 22:14 - [世界杯高票价为何没劝退球迷](http://www.blog.kurohicncr.top/Article/details/5967693.shtml)
+- 2026-06-29 22:28 - [专家：43℃热浪撕开欧洲环保假象](https://www.blog.minike.top/Article/details/083033239.shtml)
+- 2026-06-29 22:16 - [委内瑞拉发生余震](http://www.blog.minike.top/Article/details/07980216651.shtml)
+- 2026-06-29 22:06 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/125807838596.shtml)
+- 2026-06-29 22:06 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/1342914164.shtml)
+- 2026-06-29 22:07 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/828456.shtml)
+- 2026-06-29 22:15 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/349999105.shtml)
+- 2026-06-29 22:21 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/5557776195.shtml)
+- 2026-06-29 22:06 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/740728.shtml)
+- 2026-06-29 22:07 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/2620318685.shtml)
+- 2026-06-29 22:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/6228317919.shtml)
+- 2026-06-29 22:00 - [我把队友的7连跪剪成了艺术](http://www.share.kurohicncr.top/Article/details/102639.shtml)
+- 2026-06-29 22:00 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/033628293913.shtml)
+- 2026-06-29 22:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/5164779386.shtml)
+- 2026-06-29 22:25 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/8321920954.shtml)

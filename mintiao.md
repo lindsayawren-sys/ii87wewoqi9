@@ -1,56 +1,56 @@
-# “香港金融之夜”活动在港举办
+# 高盛报告指出美股出现过热迹象 投机情绪仍低于历史极值
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。 香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，
+华尔街机构高盛集团日前发布最新策略报告指出，多项历史指标显示当前美国股市的乐观情绪已明显高于历史平均水平，市场出现一定程度的过热迹象，但整体投机狂热度仍低于2000年互联网泡沫和2021年的市场峰值。 高盛策略师本·斯奈德（Ben Snider）率领的团队在报告中对涵盖四大类别的九项核心市场指标进行了量化评估。结果显示，这批指标在2000年市场见顶时曾达到第100百分位，在20
 
 ## 正文
 
-中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。
+华尔街机构高盛集团日前发布最新策略报告指出，多项历史指标显示当前美国股市的乐观情绪已明显高于历史平均水平，市场出现一定程度的过热迹象，但整体投机狂热度仍低于2000年互联网泡沫和2021年的市场峰值。
 
-活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。
+高盛策略师本·斯奈德（Ben Snider）率领的团队在报告中对涵盖四大类别的九项核心市场指标进行了量化评估。
 
-香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，以香港所长服务国家所需，同时为自身开拓更广阔的发展空间。
+结果显示，这批指标在2000年市场见顶时曾达到第100百分位，在2021年市场高位时处于第95百分位，而目前则位于第86百分位。
 
-中央广播电视总台亚太总站站长曹毅致辞表示，在“十五五”开局之年的新起点，活动聚焦香港的金融创新与实践。
+报告认为，虽然投机性狂热本身并不能作为精准预测市场见顶时机的绝对指标，但从历史经验来看，它始终是高估值、高集中度牛市走向终结的重要特征之一。
 
-面向未来，希望共同探索香港发挥金融优势，在服务国家现代化建设中实现自身繁荣发展的新路径。
+报告强调，过去类似牛市结束时所伴随的诸多宏观信号，在当前市场环境中尚未完全显现，但较数月前已呈现明显的加速逼近态势。
 
-活动现场分享了“香港金融之夜典型案例”，聚焦全球资本的配置高地、智能时代创新的金融引擎、人民币国际化的战略枢纽三个方面，展现香港金融服务国家战略、融入新发展格局、打造全球金融枢纽的创新实践。
+这些潜在的风险信号主要包括经济增长不及预期、企业股票发行（IPO）规模异常庞大，以及美联储持续收紧货币政策等。
 
-活动现场，中央广播电视总台财经节目中心发布“央视财经粤港澳大湾区城市活力指数2026”。
+在谈及当前牛市与历史泡沫期的结构性差异时，高盛策略师分析指出，目前美股的市场广度（Breadth）并未重现互联网泡沫时期的极端狭窄特征。
 
-指数聚焦粤港澳世界级城市群，结合大湾区金融中心、科创高地、开放融合等特色，独家解析粤港澳大湾区各城市活力表现。
+尽管近期市场动量行情涨势极为迅猛，但本轮上涨主要由上市公司盈利预期的实际上调所驱动，这与以往纯粹的估值炒作存在本质不同。
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 22:23 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 22:23 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 22:00 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
-- 2026-06-29 22:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-29 22:14 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
-- 2026-06-29 22:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-29 22:09 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 22:17 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 22:06 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 22:00 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 22:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 22:20 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 22:23 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-29 22:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 22:18 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 22:27 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 22:11 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 22:08 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 22:17 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/65622871.shtml)
-- 2026-06-29 21:55 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/069361.shtml)
-- 2026-06-29 22:12 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/18362376365.shtml)
-- 2026-06-29 21:54 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/441875.shtml)
-- 2026-06-29 22:22 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.kurohicncr.top/Article/details/3825864106.shtml)
-- 2026-06-29 22:15 - [马光远谈马斯克最大的价值](http://www.blog.minike.top/Article/details/35244.shtml)
-- 2026-06-29 22:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/5960958035.shtml)
-- 2026-06-29 22:11 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.minike.top/Article/details/00741175.shtml)
-- 2026-06-29 22:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/55794657.shtml)
-- 2026-06-29 22:03 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/5081689.shtml)
-- 2026-06-29 22:21 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/94961099063.shtml)
-- 2026-06-29 22:08 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/255854542.shtml)
-- 2026-06-29 22:09 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/69099214.shtml)
-- 2026-06-29 22:18 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/1950051.shtml)
-- 2026-06-29 22:09 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.kurohicncr.top/Article/details/148747.shtml)
+- 2026-06-29 22:06 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.kurohicncr.top/Article/details/3049822363.shtml)
+- 2026-06-29 22:06 - [周杰伦千禧年就有小卡了](http://www.blog.minike.top/Article/details/19035262481.shtml)
+- 2026-06-29 22:20 - [如何看待乌空军3架米格-29被摧毁](https://www.share.minike.top/Article/details/924415753.shtml)
+- 2026-06-29 22:28 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/37392855287.shtml)
+- 2026-06-29 22:04 - [央行首次3000亿元隔夜逆回购操作](https://www.blog.minike.top/Article/details/470396038447.shtml)
+- 2026-06-29 22:06 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/209356.shtml)
+- 2026-06-29 22:06 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/104081370.shtml)
+- 2026-06-29 22:20 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/9880474303.shtml)
+- 2026-06-29 22:11 - [地震来临时铁路工作人员果断拦停列车](http://www.share.kurohicncr.top/Article/details/3438403129.shtml)
+- 2026-06-29 22:19 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.kurohicncr.top/Article/details/231811988.shtml)
+- 2026-06-29 22:05 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/857832120.shtml)
+- 2026-06-29 22:13 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/322386506554.shtml)
+- 2026-06-29 22:00 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/87467.shtml)
+- 2026-06-29 22:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/14816864.shtml)
+- 2026-06-29 22:13 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/52096069.shtml)

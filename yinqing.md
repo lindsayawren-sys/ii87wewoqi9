@@ -1,55 +1,59 @@
-# 美国财长贝森特：愿寻求对伊朗石油买家实施二级制裁
+# 谷歌与SpaceX达成重磅算力协议：每月支付9.2亿美元，租用11万颗英伟达GPU
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-美国财政部长斯科特·贝森特表示，美国愿对购买伊朗石油的买家寻求实施二级制裁。 贝森特还称，美国已从伊朗伊斯兰革命卫队（IRGC）领导层及其相关方手中查获接近5亿美元的加密货币资产。 他补充称，美国正在冻结伊朗伊斯兰革命卫队的银行账户。 贝森特表示，美国将继续施加这一经济压力，并维持对霍尔木兹海峡的封锁。责任编辑：李桐
+SpaceX和谷歌达成云服务协议。根据该协议，谷歌同意从2026年10月到2029年6月每月向SpaceX支付9.2亿美元。 根据周五提交的监管文件，谷歌将使用约11万个英伟达图形处理器，以及位于SpaceX数据中心内的中央处理器、内存和其他组件。该协议从今年10月持续到2029年6月，月费为9.2亿美元，相关算力在9月之前将逐步提升，费用会相应降低。 如果SpaceX未能在2
 
 ## 正文
 
-美国财政部长斯科特·贝森特表示，美国愿对购买伊朗石油的买家寻求实施二级制裁。
+SpaceX和谷歌达成云服务协议。
 
-贝森特还称，美国已从伊朗伊斯兰革命卫队（IRGC）领导层及其相关方手中查获接近5亿美元的加密货币资产。
+根据该协议，谷歌同意从2026年10月到2029年6月每月向SpaceX支付9.2亿美元。
 
-他补充称，美国正在冻结伊朗伊斯兰革命卫队的银行账户。
+根据周五提交的监管文件，谷歌将使用约11万个英伟达图形处理器，以及位于SpaceX数据中心内的中央处理器、内存和其他组件。
 
-贝森特表示，美国将继续施加这一经济压力，并维持对霍尔木兹海峡的封锁。
+该协议从今年10月持续到2029年6月，月费为9.2亿美元，相关算力在9月之前将逐步提升，费用会相应降低。
 
-责任编辑：李桐
+如果SpaceX未能在2026年9月30日前交付约定数量的GPU，在一个月宽限期之后，谷歌可以选择立即终止协议，或接受已交付的GPU数量，并相应按比例减少月费。
+
+在2026年12月31日之后，任一方均可提前90天通知终止协议。
+
+谷歌云发言人称，该交易旨在“确保我们拥有过渡算力，以满足客户对我们Agent平台Gemini Enterprise激增的需求，这一需求甚至超出我们的预期”。
+
+谷歌于去年10月推出了面向大型企业的Gemini Enterprise订阅服务。
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 21:58 - [王安宇聪明到导演组炸了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-29 21:57 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-29 22:07 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 22:10 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 22:09 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 22:17 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 22:00 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 22:18 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 22:20 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 22:10 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 22:21 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-29 22:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 22:07 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 22:07 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 22:12 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 22:29 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 22:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 22:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 22:22 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 22:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 22:14 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 22:04 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 22:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 22:13 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 22:22 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 22:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 22:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/583663364149.shtml)
-- 2026-06-29 22:18 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/59769939.shtml)
-- 2026-06-29 22:12 - [温网](https://www.share.minike.top/Article/details/91739875.shtml)
-- 2026-06-29 22:04 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/9794612321.shtml)
-- 2026-06-29 22:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/17462915014.shtml)
-- 2026-06-29 22:14 - [毒液2](http://www.share.minike.top/Article/details/5015605.shtml)
-- 2026-06-29 21:59 - [一生一世](http://www.blog.minike.top/Article/details/9351380.shtml)
-- 2026-06-29 22:21 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/4162393716.shtml)
-- 2026-06-29 21:57 - [返利科技盘中上演“天地板”](http://www.blog.kurohicncr.top/Article/details/2636469102.shtml)
-- 2026-06-29 22:15 - [电动车主等红灯遭三轮车上横杆砸头](http://www.blog.minike.top/Article/details/828092.shtml)
-- 2026-06-29 22:17 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/738357171238.shtml)
-- 2026-06-29 22:00 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/24369205632.shtml)
-- 2026-06-29 22:20 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/0352145.shtml)
-- 2026-06-29 22:23 - [卢卡申科发布解放军仪仗队视频](https://www.blog.kurohicncr.top/Article/details/38971.shtml)
-- 2026-06-29 22:16 - [欧洲高温会成下个印度吗](http://www.blog.kurohicncr.top/Article/details/40261.shtml)
+- 2026-06-29 22:05 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/276864279161.shtml)
+- 2026-06-29 22:29 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/956841.shtml)
+- 2026-06-29 22:00 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/73450.shtml)
+- 2026-06-29 22:29 - [斛珠夫人](https://www.share.minike.top/Article/details/8411469.shtml)
+- 2026-06-29 22:23 - [流金岁月](https://www.share.kurohicncr.top/Article/details/4938661.shtml)
+- 2026-06-29 22:27 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/567733415582.shtml)
+- 2026-06-29 22:10 - [五只军犬招募领养人](https://www.share.minike.top/Article/details/722236558266.shtml)
+- 2026-06-29 22:24 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/77641786.shtml)
+- 2026-06-29 22:07 - [一生一世](http://www.blog.minike.top/Article/details/61608927039.shtml)
+- 2026-06-29 22:05 - [毒液2](http://www.share.minike.top/Article/details/1544610.shtml)
+- 2026-06-29 22:21 - [起风了](http://www.share.kurohicncr.top/Article/details/2618782973.shtml)
+- 2026-06-29 22:28 - [扬名立万](https://www.blog.minike.top/Article/details/509837.shtml)
+- 2026-06-29 22:01 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/71082682.shtml)
+- 2026-06-29 22:00 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.blog.kurohicncr.top/Article/details/997379045951.shtml)
+- 2026-06-29 22:15 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/42545840367.shtml)

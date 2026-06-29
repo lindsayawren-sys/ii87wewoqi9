@@ -1,56 +1,61 @@
-# 达索系统CEO：深耕创新源泉中国 不融入将失竞争力
+# 加密货币交易所Bybit将开放SpaceX代币化IPO的参与渠道
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月30日电 (记者 尹倩芸)“我们之所以深耕中国，不仅是为了服务本土市场，更因为如今创新正源源不断地诞生自中国。”法国工业软件公司达索系统董事会主席兼CEO帕斯卡·达洛兹(Pascal Daloz)近日在北京接受中新社等媒体采访时说。他以新能源汽车产业为例指出，如果企业不能融入中国这一活跃的创新生态，长远来看将难以保持全球竞争力。 达洛兹透露，此次中国之行在三天内走
+加密货币交易所Bybit表示，将向散户投资者提供以发行价参与代币化首次公开募股（IPO）的机会，首期将推出SpaceX的代币化IPO。 具体详情如下： Bybit用户可通过代币化平台Payward的xStocks，认购公开交易股票的代币化份额。 针对SpaceX的发行，注册和认购将于2026年6月7日至6月11日进行，配额分配将于6月11日至6月12日最终确定。代币化股份预计将
 
 ## 正文
 
-中新社北京4月30日电 (记者 尹倩芸)“我们之所以深耕中国，不仅是为了服务本土市场，更因为如今创新正源源不断地诞生自中国。
+加密货币交易所Bybit表示，将向散户投资者提供以发行价参与代币化首次公开募股（IPO）的机会，首期将推出SpaceX的代币化IPO。
 
-”法国工业软件公司达索系统董事会主席兼CEO帕斯卡·达洛兹(Pascal Daloz)近日在北京接受中新社等媒体采访时说。
+具体详情如下： Bybit用户可通过代币化平台Payward的xStocks，认购公开交易股票的代币化份额。
 
-他以新能源汽车产业为例指出，如果企业不能融入中国这一活跃的创新生态，长远来看将难以保持全球竞争力。
+针对SpaceX的发行，注册和认购将于2026年6月7日至6月11日进行，配额分配将于6月11日至6月12日最终确定。
 
-达洛兹透露，此次中国之行在三天内走访了六座城市，拜访多家中国客户和合作伙伴。
+代币化股份预计将于6月12日起在Bybit的现货市场开始交易。
 
-在他看来，中国新一代企业家已“完全做好进军全球市场的准备”。
+用户将能够以IPO定价购买股份，从而规避二级市场的竞争，且无需开设或维护传统的证券账户。
 
-“几年前，当我拜访吉利、上汽这些大型企业时，他们的核心议题是如何在技术能力、最佳实践和组织架构上奋起直追。
+上周启动路演的SpaceX此次IPO已吸引约1500亿美元的投资者需求，约为其计划募集的750亿美元的两倍。
 
-时至今日，他们的核心议程已经不止于追赶，而是领航业界。
+加密货币交易所Kraken本月表示，已通过xStocks平台向110多个国家的客户开放了SpaceXIPO的申购渠道。
 
-”达洛兹认为，中国已孕育出一批真正准备好冲击未来格局的卓越企业。
+华尔街押注2026年可能成为美国IPO市场的突破之年，这得益于大量备受瞩目的私营公司储备以及对新股上市的积压需求。
 
 ## 相关推荐
 
-- 2026-06-29 21:59 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-29 22:02 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 22:10 - [韩国800万亿韩元押注半导体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
-- 2026-06-29 22:08 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 22:22 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 22:20 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 22:13 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 22:17 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
-- 2026-06-29 22:06 - [日本足球能掀翻巴西吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 22:10 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
+- 2026-06-29 22:23 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 22:22 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
+- 2026-06-29 22:04 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 22:28 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 22:21 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 22:13 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 22:26 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 22:05 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 22:08 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
+- 2026-06-29 22:01 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 22:22 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 22:16 - [被中方管控的20家日本实体什么来头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 22:25 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 22:14 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 22:10 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/1960971074.shtml)
-- 2026-06-29 21:54 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/02656364611.shtml)
-- 2026-06-29 22:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/06953.shtml)
-- 2026-06-29 22:12 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/467820910162.shtml)
-- 2026-06-29 22:04 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/454555929639.shtml)
-- 2026-06-29 21:57 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/5118871248.shtml)
-- 2026-06-29 22:19 - [巴黎区长紧急采购50台中国空调](https://www.blog.minike.top/Article/details/2630576343.shtml)
-- 2026-06-29 22:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.kurohicncr.top/Article/details/8503427570.shtml)
-- 2026-06-29 22:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.kurohicncr.top/Article/details/6595050.shtml)
-- 2026-06-29 21:58 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/584792868.shtml)
-- 2026-06-29 22:20 - [急先锋](http://www.share.minike.top/Article/details/77939957206.shtml)
-- 2026-06-29 22:12 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.minike.top/Article/details/759447309859.shtml)
-- 2026-06-29 22:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/19827711234.shtml)
-- 2026-06-29 21:54 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/6468999.shtml)
-- 2026-06-29 22:04 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/49551.shtml)
+- 2026-06-29 22:02 - [东方风云榜直播](http://www.blog.minike.top/Article/details/7516351208.shtml)
+- 2026-06-29 22:27 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/5695107.shtml)
+- 2026-06-29 22:22 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/27198269962.shtml)
+- 2026-06-29 22:25 - [美人鱼](https://www.blog.minike.top/Article/details/3021911377.shtml)
+- 2026-06-29 22:01 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/0204859.shtml)
+- 2026-06-29 22:04 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/6165638.shtml)
+- 2026-06-29 22:18 - [速度与激情9](http://www.blog.minike.top/Article/details/2283844487.shtml)
+- 2026-06-29 22:07 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/20784603.shtml)
+- 2026-06-29 22:24 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/88252480507.shtml)
+- 2026-06-29 22:01 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/03047150118.shtml)
+- 2026-06-29 22:11 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/463424104333.shtml)
+- 2026-06-29 22:19 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/26374.shtml)
+- 2026-06-29 22:09 - [恋与深空致歉](http://www.share.minike.top/Article/details/903550842.shtml)
+- 2026-06-29 22:30 - [货车司机恶意闯卡逃费被行拘](http://www.blog.minike.top/Article/details/18339.shtml)
+- 2026-06-29 22:08 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/14800.shtml)

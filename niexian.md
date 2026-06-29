@@ -1,60 +1,56 @@
-# 广东海警局开展“清港清湾”行动 维护休渔秩序
+# 制造业需求重回荣枯线，行业景气度分化加剧
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网广州4月29日电 (方伟彬 邓容烜 周培跃)广东海警局29日发布消息，该局统筹各级机构，以“清港清湾”“普法宣传”等活动一体推进联动执法，共同维护休渔秩序，守护海洋生态与渔业资源可持续发展。 据广东海警局介绍，5月1日12时，南海全面进入2026年伏季休渔期，新修订的《中华人民共和国渔业法》(下称新《渔业法》)同步施行。 在“清港清湾”方面，行动实现全域覆盖，通过立体管控
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（5月29日）银行间流动性边际收敛，主要资金价格略有上升，当日央行净回笼300亿元。本周一银行间流动性延续平稳宽松，主要资金价格略有下降，当日央行净回笼2470亿元。本周二银行间流动性延续平稳宽松，DR007价格略有下降，当日央行净回笼2488亿元。本周三银行间流动性延续平稳宽松，主要价格变化不大，当日央行净回笼1776亿
 
 ## 正文
 
-中新网广州4月29日电 (方伟彬 邓容烜 周培跃)广东海警局29日发布消息，该局统筹各级机构，以“清港清湾”“普法宣传”等活动一体推进联动执法，共同维护休渔秩序，守护海洋生态与渔业资源可持续发展。
+国开债ETF博时（159650）基金经理 吕瑞君 上周五（5月29日）银行间流动性边际收敛，主要资金价格略有上升，当日央行净回笼300亿元。
 
-据广东海警局介绍，5月1日12时，南海全面进入2026年伏季休渔期，新修订的《中华人民共和国渔业法》(下称新《渔业法》)同步施行。
+本周一银行间流动性延续平稳宽松，主要资金价格略有下降，当日央行净回笼2470亿元。
 
-在“清港清湾”方面，行动实现全域覆盖，通过立体管控筑牢防线。
+本周二银行间流动性延续平稳宽松，DR007价格略有下降，当日央行净回笼2488亿元。
 
-潮州、揭阳、惠州、东莞、江门、茂名、湛江等海警机构联合公安、农业农村、海洋综合执法及当地村镇等单位，构建“海上巡查+岸线管控+科技赋能”的立体防控网。
+本周三银行间流动性延续平稳宽松，主要价格变化不大，当日央行净回笼1776亿元。
 
-广东多地加密巡逻频次，采取错峰执法、突击检查、无人机巡查、码头排查与视频轮巡相结合的方式，对辖区渔港、码头、岙口进行拉网式清查。
+本周四银行间流动性延续平稳宽松，主要资金价格变化不大，当日央行净回笼1013亿元。
 
-海警执法员重点核对船舶证书、核查停泊状态、检查网具封存情况，严查“三无”船舶与禁用渔具，精准锁定高风险点位，依法查扣违规船舶，快查严处顶风作案行为，确保应休渔船“船靠港、人上岸、网入库”，以高压态势从源头消除非法捕捞隐患。
+本周四（6月4日）相较于上周五，DR001下行1bp收于1.32%，DR007下行3bp收于1.35%。
 
-在“普法宣传”方面，工作注重精准下沉，推动法治理念深入人心。
+海外方面，当地时间6月2日，欧洲议会国际贸易委员会投票通过欧美贸易协议。
 
-该局坚持普法与执法并行，汕头、汕尾、广州、深圳、中山、珠海、阳江海警局积极开展“送法上船头、送法进渔村”宣传活动。
+2025年7月，美国总统特朗普和欧盟委员会主席冯德莱恩在英国宣布美欧达成新贸易协议，但后来双方因美国索要丹麦自治领地格陵兰岛引发关系紧张，加之美国最高法院裁定美国政府大规模关税政策违法等原因，欧盟对协议的批准经历数月延迟。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
-- 2026-06-29 22:15 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 21:59 - [女生学医适合选什么专业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 22:16 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 22:07 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
-- 2026-06-29 21:57 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
-- 2026-06-29 21:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 21:55 - [东方风云榜直播](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 21:56 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
-- 2026-06-29 22:16 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 22:07 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 22:10 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 22:09 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 21:55 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 22:09 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
+- 2026-06-29 22:18 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 22:25 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 22:14 - [杨紫有3部作品入围金鹰奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 22:14 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 22:04 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 22:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 22:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 22:26 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-29 22:09 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/9925752.shtml)
-- 2026-06-29 22:12 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/426614685.shtml)
-- 2026-06-29 22:14 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/53157549105.shtml)
-- 2026-06-29 21:57 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/3328199.shtml)
-- 2026-06-29 22:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/159354488859.shtml)
-- 2026-06-29 21:55 - [周杰伦千禧年就有小卡了](http://www.share.kurohicncr.top/Article/details/588265767.shtml)
-- 2026-06-29 21:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/610198.shtml)
-- 2026-06-29 22:18 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/480554.shtml)
-- 2026-06-29 22:00 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/057602.shtml)
-- 2026-06-29 22:22 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/31407.shtml)
-- 2026-06-29 22:16 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/155853556.shtml)
-- 2026-06-29 22:20 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/02468147.shtml)
-- 2026-06-29 22:14 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/8408697697.shtml)
-- 2026-06-29 22:04 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/75254.shtml)
-- 2026-06-29 22:23 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/273559.shtml)
+- 2026-06-29 22:24 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/24867770.shtml)
+- 2026-06-29 22:09 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/094689854.shtml)
+- 2026-06-29 22:05 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/549808799.shtml)
+- 2026-06-29 22:16 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/233658.shtml)
+- 2026-06-29 22:17 - [我们的少年时代2](http://www.blog.minike.top/Article/details/64095.shtml)
+- 2026-06-29 22:21 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/867236.shtml)
+- 2026-06-29 22:03 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/2827087.shtml)
+- 2026-06-29 22:29 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/14679171104.shtml)
+- 2026-06-29 22:10 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/55501295400.shtml)
+- 2026-06-29 22:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/7270934879.shtml)
+- 2026-06-29 22:28 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/3985253.shtml)
+- 2026-06-29 22:25 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/39922290690.shtml)
+- 2026-06-29 22:18 - [战略导弹部队60年如何炼成大国长剑](https://www.share.minike.top/Article/details/411603.shtml)
+- 2026-06-29 22:00 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/340375221907.shtml)
+- 2026-06-29 22:02 - [电影《抓特务》总票房破亿](http://www.share.minike.top/Article/details/291734980116.shtml)

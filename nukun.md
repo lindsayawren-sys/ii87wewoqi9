@@ -1,61 +1,59 @@
-# 访杭州地铁突发渗漏工地：227名受影响居民得到快速安置
+# 活跃股揭秘：43只股周换手率超100%
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月29日电(记者 王逸飞)杭州市地铁集团29日发布情况通报称，28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。当天21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。 29日，中新网记者在事发现场了解到，目前相关抢修、监测工作正有序进行。昨夜至今天凌晨1时许，此次受影响的227名周边居民均已得到快
+沪指本周下跌1.00%，其中，43股成交活跃，周换手率超过100%。证券时报·数据宝统计显示，本周共有43只个股换手率超过100%；换手率在50%~100%的有282只；换手率在10%~50%的有2572只。分行业看，本周换手率100%以上个股中，电子行业个股最多，有11只个股上榜；机械设备、电力设备等紧随其后，分别有7只、6只个股上榜。龙辰科技是本周换手率最高的个股，一周换手
 
 ## 正文
 
-中新网杭州4月29日电(记者 王逸飞)杭州市地铁集团29日发布情况通报称，28日16时许，杭州地铁15号线华家池站工地在基坑开挖作业过程中，地下连续墙接缝处突发渗漏。
+沪指本周下跌1.00%，其中，43股成交活跃，周换手率超过100%。
 
-当天21时30分左右，基坑北侧小区部分房屋出现地砖隆起、地面沉降、墙面开裂等情况。
+证券时报·数据宝统计显示，本周共有43只个股换手率超过100%；换手率在50%~100%的有282只；换手率在10%~50%的有2572只。
 
-29日，中新网记者在事发现场了解到，目前相关抢修、监测工作正有序进行。
+分行业看，本周换手率100%以上个股中，电子行业个股最多，有11只个股上榜；机械设备、电力设备等紧随其后，分别有7只、6只个股上榜。
 
-昨夜至今天凌晨1时许，此次受影响的227名周边居民均已得到快速妥善安置。
+龙辰科技是本周换手率最高的个股，一周换手率为253.90%，一周股价上涨24.04%，该股本周因日换手率达20%、最近3个有成交的交易日以内收盘价涨跌幅偏离值累计达到+40%(-40%)等3次登陆龙虎榜，买卖居前营业部中，机构专用席位净卖出1823.74万元，营业部累计净买入4564.46万元。
 
-根据杭州市地铁集团通报，事发后，杭州市委、市政府高度重视，立即成立现场指挥部，组织应急、建设、公安、消防等部门和属地政府迅速开展工作，第一时间转移人员，调集专业力量进行基坑堵漏，开展地表沉降、周边房屋变形和振动等监测。
+资金流向上，该股本周主力资金净买入4564.46万元。
 
-29日10时左右，记者在工地现场看到，项目外围及受影响民居周边已根据安全需要设置警戒线，抢修人员、施工人员正在不同区域开展工作，相关大型设备也已进场作业，一些用于抢修的物料码放在道路一侧。
+其次是新天力，一周换手率为241.81%，一周股价下跌32.57%，该股本周因日换手率达20%、日涨跌幅达到20%等5次登陆龙虎榜，买卖居前营业部中，机构专用席位净卖出28.69万元，营业部累计净卖出2163.79万元。
 
-杭州地铁15号线华家池站位于杭州市上城区凯旋街道辖区。
+资金流向上，该股本周主力资金净卖出2163.79万元。
 
-对于受影响居民的情况，凯旋街道办事处主任许炯介绍：“昨天21时30分接到相关情况后，我们第一时间启动应急预案，快速向周边酒店转移安置人员。
+信音电子本周换手率211.67%，位居榜单第三，一周股价上涨13.23%，该股本周因日换手率达30%、日收盘价涨幅达15%等5次登陆龙虎榜，买卖居前营业部中，机构专用席位净卖出1.08亿元，营业部累计净卖出1898.96万元。
 
 ## 相关推荐
 
-- 2026-06-29 21:55 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 22:12 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 22:18 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 22:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 22:01 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-29 21:57 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 21:54 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
-- 2026-06-29 22:14 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-29 21:58 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-29 22:11 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
-- 2026-06-29 22:19 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 21:54 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 22:07 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 22:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-29 22:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 22:27 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 22:20 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-29 22:00 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 22:18 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 22:27 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 22:27 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 22:11 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 22:03 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-29 22:08 - [李思潼：不会介意大家夸我运气好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-29 22:29 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 22:16 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 22:16 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 22:13 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [千与千寻](https://www.blog.minike.top/Article/details/42951182.shtml)
-- 2026-06-29 21:55 - [韩国队输球后连呼吸都是错的吗](https://www.blog.minike.top/Article/details/60037101081.shtml)
-- 2026-06-29 21:59 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/01757.shtml)
-- 2026-06-29 22:05 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/021214.shtml)
-- 2026-06-29 22:02 - [福建海警位金门附近海域常态执法巡查](http://www.blog.kurohicncr.top/Article/details/981085301.shtml)
-- 2026-06-29 21:54 - [恋与深空7天掉粉超50万](http://www.share.kurohicncr.top/Article/details/33435.shtml)
-- 2026-06-29 22:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/40067278.shtml)
-- 2026-06-29 22:19 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/102397729.shtml)
-- 2026-06-29 22:18 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/00257889340.shtml)
-- 2026-06-29 22:06 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/554312744.shtml)
-- 2026-06-29 21:59 - [如何看待乌空军3架米格-29被摧毁](http://www.blog.kurohicncr.top/Article/details/20994.shtml)
-- 2026-06-29 21:55 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.minike.top/Article/details/411104.shtml)
-- 2026-06-29 22:21 - [多人将马路护栏当球网打羽毛球](http://www.blog.minike.top/Article/details/92273.shtml)
-- 2026-06-29 21:58 - [温网](https://www.blog.kurohicncr.top/Article/details/07753810.shtml)
-- 2026-06-29 22:06 - [韩国股市绑架日本？高盛警告](http://www.blog.kurohicncr.top/Article/details/1285036.shtml)
+- 2026-06-29 22:24 - [哈兰德吃饭被镜中自己吓到](http://www.share.minike.top/Article/details/112515750498.shtml)
+- 2026-06-29 22:21 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/79597872.shtml)
+- 2026-06-29 22:26 - [欧洲人买空调难点在哪](https://www.blog.minike.top/Article/details/316881.shtml)
+- 2026-06-29 22:18 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/677594034113.shtml)
+- 2026-06-29 22:07 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/45668538.shtml)
+- 2026-06-29 22:02 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.kurohicncr.top/Article/details/1300797.shtml)
+- 2026-06-29 22:29 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/594500.shtml)
+- 2026-06-29 22:04 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/65795023.shtml)
+- 2026-06-29 22:09 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/28928460631.shtml)
+- 2026-06-29 22:07 - [第一炉香](https://www.blog.minike.top/Article/details/30294164245.shtml)
+- 2026-06-29 22:28 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/55269.shtml)
+- 2026-06-29 22:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/09331476575.shtml)
+- 2026-06-29 22:13 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/964948.shtml)
+- 2026-06-29 22:23 - [斗破苍穹](http://www.share.minike.top/Article/details/50650592452.shtml)
+- 2026-06-29 22:00 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.minike.top/Article/details/65350287692.shtml)

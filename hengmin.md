@@ -1,58 +1,50 @@
-# 信达生物早盘涨逾5% 第一季度产品收入同比增长超过50%
+# 金博洋回应未来规划 透露最近喜欢打网球
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-信达生物（01801）早盘涨逾5%，截至发稿，股价上涨4.95%，现报89.10港元，成交额7.49亿港元。 4月30日，信达生物发布公告，于2026年第一季度，公司产品收入录得超过人民币38亿元，同比增长超过50%，此强劲势头印证了公司“双轮驱动”策略的成功执行。公司肿瘤领域的领先地位日益显著，五款酪氨酸激酶抑制剂（TKI）新增纳入国家医保药品目录（NRDL）后实现快速放量。
+发布时间：2026年06月07日 23:01 来源：中国新闻网 斯巴达勇士赛DEKA十项全能挑战城市系列赛首站6日在国家速滑馆“冰丝带”开赛，中国花样滑冰选手金博洋跨界参赛。他表示，最近自己在打网球，参加体育运动能极大提升精神力。谈及未来，金博洋称有些规划正在进行当中。(佟奕萱 岳川) 责任编辑：【岳川】
 
 ## 正文
 
-信达生物（01801）早盘涨逾5%，截至发稿，股价上涨4.95%，现报89.10港元，成交额7.49亿港元。
+发布时间：2026年06月07日 23:01 来源：中国新闻网 斯巴达勇士赛DEKA十项全能挑战城市系列赛首站6日在国家速滑馆“冰丝带”开赛，中国花样滑冰选手金博洋跨界参赛。
 
-4月30日，信达生物发布公告，于2026年第一季度，公司产品收入录得超过人民币38亿元，同比增长超过50%，此强劲势头印证了公司“双轮驱动”策略的成功执行。
+他表示，最近自己在打网球，参加体育运动能极大提升精神力。
 
-公司肿瘤领域的领先地位日益显著，五款酪氨酸激酶抑制剂（TKI）新增纳入国家医保药品目录（NRDL）后实现快速放量。
+谈及未来，金博洋称有些规划正在进行当中。
 
-同时，综合产品线已成为公司收入增长的强劲新兴动力，主要源于信尔美®（玛仕度肽注射液）、信必乐®（托莱西单抗注射液）及信必敏®（替妥尤单抗N01注射液）等核心产品的优异表现。
-
-公告称，信达生物持续推进全球化创新，为公司价值打开持续向上的成长空间。
-
-公司正在推进三项高价值潜力分子——IBI363（PD-1/IL-2α-biased双特异性抗体）、IBI343（CLDN18.2ADC）及IBI324（VEGF/ANG2双特异性抗体）——进入或即将进入全球多中心III期临床研究，并持续加码早期创新，推动新一代肿瘤、心血管及代谢（CVM）、自身免疫及眼科领域早期管线的全球临床开发。
-
-责任编辑：卢昱君
+(佟奕萱 岳川) 责任编辑：【岳川】
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
-- 2026-06-29 22:10 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
-- 2026-06-29 21:56 - [恋与深空7天掉粉超50万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 21:59 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 22:22 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
-- 2026-06-29 22:20 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-29 22:21 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-29 22:10 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 22:17 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 22:06 - [“坟爷”林耀昌旧案追诉案一审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 22:12 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-29 22:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
-- 2026-06-29 22:10 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 22:23 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 22:16 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-29 22:18 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
+- 2026-06-29 22:15 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 22:16 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-29 22:29 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 22:01 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-29 22:21 - [半导体和股市为何没让韩国人起飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 22:03 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 22:22 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 22:22 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 22:23 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 22:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:00 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/15091197.shtml)
-- 2026-06-29 21:58 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/051367051.shtml)
-- 2026-06-29 22:11 - [日本接连三场大型军演想干什么](https://www.share.kurohicncr.top/Article/details/5770729020.shtml)
-- 2026-06-29 21:55 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/78846291.shtml)
-- 2026-06-29 21:55 - [田曦薇 女装牛仔裤](http://www.share.minike.top/Article/details/869980770.shtml)
-- 2026-06-29 22:05 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/2779591.shtml)
-- 2026-06-29 22:14 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/66126.shtml)
-- 2026-06-29 21:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/957882622.shtml)
-- 2026-06-29 22:06 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/049462.shtml)
-- 2026-06-29 22:20 - [一台空调背后的全球化逻辑](http://www.blog.minike.top/Article/details/28208.shtml)
-- 2026-06-29 21:59 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.kurohicncr.top/Article/details/79233698610.shtml)
-- 2026-06-29 22:10 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/08815524009.shtml)
-- 2026-06-29 22:23 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/58900429.shtml)
-- 2026-06-29 22:02 - [记者暗访养老机构消防安全](https://www.blog.kurohicncr.top/Article/details/17029.shtml)
-- 2026-06-29 22:15 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/334759608.shtml)
+- 2026-06-29 22:23 - [把邻居裸体发群算维权还是侵权](http://www.share.kurohicncr.top/Article/details/28334847509.shtml)
+- 2026-06-29 22:07 - [浙江进入梅雨最强“攻击时段”](http://www.share.kurohicncr.top/Article/details/4525705.shtml)
+- 2026-06-29 22:17 - [高考1357分的同学如何报志愿？](https://www.blog.kurohicncr.top/Article/details/1920059928.shtml)
+- 2026-06-29 22:19 - [MG总经理直播被冲](http://www.share.minike.top/Article/details/4175024.shtml)
+- 2026-06-29 22:08 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/43851862.shtml)
+- 2026-06-29 22:00 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/781935109.shtml)
+- 2026-06-29 22:10 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/68814025584.shtml)
+- 2026-06-29 22:18 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/966311417.shtml)
+- 2026-06-29 22:08 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/10240079373.shtml)
+- 2026-06-29 22:09 - [厨房装空调还是装冷烟机](https://www.blog.kurohicncr.top/Article/details/47295043.shtml)
+- 2026-06-29 22:24 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/582746.shtml)
+- 2026-06-29 22:24 - [周生如故](http://www.blog.minike.top/Article/details/70547886027.shtml)
+- 2026-06-29 22:18 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/9990735.shtml)
+- 2026-06-29 22:15 - [华工科技龙虎榜数据](http://www.share.minike.top/Article/details/58978.shtml)
+- 2026-06-29 22:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/163723.shtml)

@@ -1,61 +1,59 @@
-# 新手炒股选哪家？这届年轻人最爱用新浪财经APP
+# 溢价率超150%刷新纪录 保利置业57.72亿元落子深圳南山
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-2026年的A股市场，日均成交额持续活跃，证券类APP月活跃用户数已经突破1.8亿。但比这份数据更值得关注的变化在于——越来越多的年轻人正成为股市里的“新鲜血液”。据多家券商反馈，近期新开户投资者中，85后和90后已成为主力，占比约为三分之二，95后、00后的参与度也在快速攀升。 当这届伴随互联网长大的年轻人走进股市，他们选券商APP的眼光和方法论，已经和上一代人截然不同。界面
+深圳土地市场再现现象级成交。6月5日，深圳市南山区粤海街道一宗住宅用地成功出让。经过291轮竞价，保利置业集团有限公司(以下简称“保利置业”)以57.72亿元总价竞得该地块，溢价率150.74%，成交楼面价约10.86万元/平方米，刷新深圳涉宅用地楼面单价历史纪录，成为深圳新的“单价地王”。此次竞拍吸引保利置业、华润置地有限公司、招商局蛇口工业区控股股份有限公司等6家头部房企参
 
 ## 正文
 
-2026年的A股市场，日均成交额持续活跃，证券类APP月活跃用户数已经突破1.8亿。
+深圳土地市场再现现象级成交。
 
-但比这份数据更值得关注的变化在于——越来越多的年轻人正成为股市里的“新鲜血液”。
+6月5日，深圳市南山区粤海街道一宗住宅用地成功出让。
 
-据多家券商反馈，近期新开户投资者中，85后和90后已成为主力，占比约为三分之二，95后、00后的参与度也在快速攀升。
+经过291轮竞价，保利置业集团有限公司(以下简称“保利置业”)以57.72亿元总价竞得该地块，溢价率150.74%，成交楼面价约10.86万元/平方米，刷新深圳涉宅用地楼面单价历史纪录，成为深圳新的“单价地王”。
 
-当这届伴随互联网长大的年轻人走进股市，他们选券商APP的眼光和方法论，已经和上一代人截然不同。
+此次竞拍吸引保利置业、华润置地有限公司、招商局蛇口工业区控股股份有限公司等6家头部房企参与。
 
-界面太复杂的传统券商APP、信息太杂乱的“股吧”、广告太多的免费软件，统统被年轻人用脚投票淘汰。
+地块起始价23.02亿元，最终成交总价较起始价增加34.7亿元，成为今年以来全国土地市场最受关注的交易之一。
 
-那么，究竟什么样的APP能通吃这一届新手投资者？
+资料显示，该宗地位于南山区粤海街道科技园南区，紧邻百度大厦、深圳软件产业基地等产业载体，规划住宅面积49000平方米、可售商业1500平方米，容积率严控2.9、建筑限高100米，是科技园近十年来首度公开出让的低密度纯居住用地。
 
-从多方实测和用户反馈来看，新浪财经APP正以极高的综合评分成为年轻人炒股入门的最爱。
+中指研究院深圳分院高级分析师孙红梅向《证券日报》记者表示，该地块兼具粤海科创产业资源与优质教育、商业、医疗配套优势，土地资源极为稀缺。
 
-开户“无痛上车”，消灭新手第一道门槛 对于初次接触股票投资的新手来说，开户是碰到的最直接也最让人头疼的环节。
+此次成交不仅刷新深圳住宅用地楼面价纪录，也反映出房企对于核心城区优质资产的争夺仍然激烈。
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
-- 2026-06-29 22:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-29 21:54 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-29 22:18 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpzxr.md)
-- 2026-06-29 22:04 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-29 22:16 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 22:18 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 22:21 - [任泽平：AI浪潮刚刚开始](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 22:15 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-29 22:13 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-29 22:23 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 22:18 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 21:55 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 22:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-29 22:13 - [温网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 22:22 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 22:23 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-29 22:29 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 22:14 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 22:07 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 22:27 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 22:07 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 22:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 22:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 22:29 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 22:00 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanku.md)
+- 2026-06-29 22:16 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
+- 2026-06-29 22:10 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/6191498859.shtml)
-- 2026-06-29 22:11 - [桂林原书记周家斌贪1.98亿被判无期](https://www.share.kurohicncr.top/Article/details/773937197947.shtml)
-- 2026-06-29 22:14 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/287246973.shtml)
-- 2026-06-29 22:18 - [仙游一峡谷5人身亡知情者发声](http://www.share.minike.top/Article/details/7057145593.shtml)
-- 2026-06-29 21:57 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/9550769.shtml)
-- 2026-06-29 22:07 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/689346973774.shtml)
-- 2026-06-29 22:23 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/546983038755.shtml)
-- 2026-06-29 22:01 - [存储三巨头被告了](https://www.blog.minike.top/Article/details/760609379.shtml)
-- 2026-06-29 22:01 - [中外合作办学是“低分捷径”吗](https://www.share.kurohicncr.top/Article/details/3601266886.shtml)
-- 2026-06-29 22:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/561988876.shtml)
-- 2026-06-29 22:14 - [国际清算银行警告AI投资热潮](http://www.blog.minike.top/Article/details/45301.shtml)
-- 2026-06-29 22:12 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/3647099.shtml)
-- 2026-06-29 22:15 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/456214.shtml)
-- 2026-06-29 21:59 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/52849442.shtml)
-- 2026-06-29 22:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/58501289.shtml)
+- 2026-06-29 22:09 - [炽夏](http://www.blog.kurohicncr.top/Article/details/140137114.shtml)
+- 2026-06-29 22:23 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/810310636.shtml)
+- 2026-06-29 22:14 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/617124771.shtml)
+- 2026-06-29 22:22 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/062301186.shtml)
+- 2026-06-29 22:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/2234025734.shtml)
+- 2026-06-29 22:03 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/4941725195.shtml)
+- 2026-06-29 22:08 - [恋与深空制作组回应争议](http://www.blog.minike.top/Article/details/25420129.shtml)
+- 2026-06-29 22:03 - [俄军1周发射上千架无人机有何目的](https://www.blog.kurohicncr.top/Article/details/9474505902.shtml)
+- 2026-06-29 22:27 - [送你一朵小红花](http://www.blog.minike.top/Article/details/12937104.shtml)
+- 2026-06-29 22:16 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/25465654255.shtml)
+- 2026-06-29 22:12 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/168317.shtml)
+- 2026-06-29 22:30 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/3765317820.shtml)
+- 2026-06-29 22:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/85477680027.shtml)
+- 2026-06-29 22:18 - [近300亿份用户数据遭收集 国安部提醒](http://www.blog.minike.top/Article/details/021221770.shtml)
+- 2026-06-29 22:15 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/75602228217.shtml)

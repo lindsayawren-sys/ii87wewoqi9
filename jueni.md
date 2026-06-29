@@ -1,58 +1,50 @@
-# 酒价内参4月30日价格发布：国窖1573与古20领跌 总价创6天来新低
+# 泡泡玛特MOLLY20周年特展北京站 将呈现MOLLY创作背后故事
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。整体价格在高位快速下探，市场运行呈放量加速调整态势。 今日白酒市场11大单品三涨六跌两平，输家占据明显上风。上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380
+发布时间：2026年06月06日 11:38 来源：中国新闻网 6月5日，泡泡玛特MOLLY20周年特展北京站在北京798艺术区举行媒体提前探访活动。展览将于6月6日开幕，首次全面呈现MOLLY的手稿、原画和创作背后的故事等资料。“MOLLY”是一个有着湖蓝色眼睛、嘟着嘴的小女孩，这一形象是由香港设计师王信明(Kenny Wong)在2006年创作，并于2016年授权泡泡玛特商
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月30日出现明显回调。
+发布时间：2026年06月06日 11:38 来源：中国新闻网 6月5日，泡泡玛特MOLLY20周年特展北京站在北京798艺术区举行媒体提前探访活动。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9949元，较昨日大幅下跌26元，创下6日以来最低。
+展览将于6月6日开幕，首次全面呈现MOLLY的手稿、原画和创作背后的故事等资料。
 
-整体价格在高位快速下探，市场运行呈放量加速调整态势。
+“MOLLY”是一个有着湖蓝色眼睛、嘟着嘴的小女孩，这一形象是由香港设计师王信明(Kenny Wong)在2006年创作，并于2016年授权泡泡玛特商业使用。
 
-今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
-
-上涨方面，青花汾20涨幅居前，上涨3元/瓶，结束四连阴重返380元关口上方；五粮液普五八代上涨2元/瓶；习酒君品小幅上涨1元/瓶。
-
-下跌方面，国窖1573与古井贡古20跌幅居前，均下跌8元/瓶，后者已连续两天大幅下挫，跌破550元关口；青花郎下跌7元/瓶，回落至700元下方；精品茅台下跌4元/瓶；飞天茅台下跌3元/瓶；水晶剑南春下跌2元/瓶，但近期其价格中枢一直呈上升势头。
-
-五粮液1618及洋河梦之蓝M6+的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+(易海菲 制作 侯诗蕊） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-29 22:16 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 22:02 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
-- 2026-06-29 22:10 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 22:11 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 22:04 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-29 22:03 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 22:03 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 22:20 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-29 22:17 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-29 22:10 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 22:12 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 22:02 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 22:00 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 22:10 - [近300亿份用户数据遭收集 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 22:06 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 22:19 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 22:24 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 22:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 22:05 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 22:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 22:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-29 22:16 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 22:09 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [被裁员后30岁儿子被抓去戒网瘾](https://www.blog.kurohicncr.top/Article/details/02607.shtml)
-- 2026-06-29 22:18 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.minike.top/Article/details/889764.shtml)
-- 2026-06-29 22:21 - [卢卡申科发布解放军仪仗队视频](http://www.share.kurohicncr.top/Article/details/005096617651.shtml)
-- 2026-06-29 21:57 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/083737373220.shtml)
-- 2026-06-29 22:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/48855938024.shtml)
-- 2026-06-29 22:05 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/93500966.shtml)
-- 2026-06-29 21:58 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/84437.shtml)
-- 2026-06-29 22:07 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/66458.shtml)
-- 2026-06-29 21:57 - [收受1.98亿余元 周家斌被判无期](https://www.share.kurohicncr.top/Article/details/54300914.shtml)
-- 2026-06-29 22:16 - [江语晨 好恨江语晨前夫](https://www.share.minike.top/Article/details/296094703617.shtml)
-- 2026-06-29 22:09 - [网友晒14年前支教影像等来学生评论](https://www.blog.minike.top/Article/details/294413.shtml)
-- 2026-06-29 22:19 - [网友晒14年前支教影像等来学生评论](https://www.blog.kurohicncr.top/Article/details/18942.shtml)
-- 2026-06-29 22:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/68876.shtml)
-- 2026-06-29 22:06 - [周生如故](https://www.share.minike.top/Article/details/2812517.shtml)
-- 2026-06-29 22:18 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/265766.shtml)
+- 2026-06-29 22:02 - [乌克兰发广告全球征兵](http://www.share.minike.top/Article/details/491421.shtml)
+- 2026-06-29 22:10 - [日本足球能掀翻巴西吗](http://www.share.minike.top/Article/details/71671749.shtml)
+- 2026-06-29 22:27 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/00642448.shtml)
+- 2026-06-29 22:08 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/73296.shtml)
+- 2026-06-29 22:06 - [曝腾讯与长鑫存储签200亿大单](http://www.share.kurohicncr.top/Article/details/299166270223.shtml)
+- 2026-06-29 22:22 - [急先锋](https://www.blog.kurohicncr.top/Article/details/051794289563.shtml)
+- 2026-06-29 22:13 - [片寄凉太胖了好多](https://www.blog.kurohicncr.top/Article/details/94240347.shtml)
+- 2026-06-29 22:00 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/82022659766.shtml)
+- 2026-06-29 22:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/513321.shtml)
+- 2026-06-29 22:23 - [月亮](https://www.share.minike.top/Article/details/74159.shtml)
+- 2026-06-29 22:29 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/076674294318.shtml)
+- 2026-06-29 22:15 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/04426427.shtml)
+- 2026-06-29 22:30 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/5236315141.shtml)
+- 2026-06-29 22:21 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/915094.shtml)
+- 2026-06-29 22:02 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/33555405130.shtml)

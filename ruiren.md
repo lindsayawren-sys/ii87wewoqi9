@@ -1,61 +1,57 @@
-# “下次不再见”！鲍威尔谢幕：一个“外行”掌舵美联储最动荡的八年
+# 习近平同老挝人民革命党中央总书记、国家主席通伦举行会谈
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-文章来源：华尔街见闻 任期将尽，鲍威尔留下一份功过交织的历史账单：他顶住特朗普史无前例的政治施压，守住美联储独立性；主导“软着陆”奇迹，任内月均失业率4.6%低于历任前辈；却也因误判通胀“暂时性”，酿成四十年最严峻的物价危机。八年横跨疫情、通胀与政治风暴，他用一句话为自己作注：“我有过遗憾，但并不多。” “I won‘t see you next time”任期将尽，鲍威尔时代
+中新社北京6月5日电 6月5日下午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈。 习近平再次祝贺通伦连任老挝人民革命党中央总书记和老挝国家主席，指出中方始终将老挝视作周边外交重要方向，坚定支持老挝走符合自身国情的社会主义道路，愿同老方弘扬传统友谊，深化互利合作，密切团结协作，推动中老关系实现新的跃升，携手打造新时
 
 ## 正文
 
-文章来源：华尔街见闻 任期将尽，鲍威尔留下一份功过交织的历史账单：他顶住特朗普史无前例的政治施压，守住美联储独立性；主导“软着陆”奇迹，任内月均失业率4.6%低于历任前辈；却也因误判通胀“暂时性”，酿成四十年最严峻的物价危机。
+中新社北京6月5日电 6月5日下午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的老挝人民革命党中央总书记、国家主席通伦举行会谈。
 
-八年横跨疫情、通胀与政治风暴，他用一句话为自己作注：“我有过遗憾，但并不多。
+习近平再次祝贺通伦连任老挝人民革命党中央总书记和老挝国家主席，指出中方始终将老挝视作周边外交重要方向，坚定支持老挝走符合自身国情的社会主义道路，愿同老方弘扬传统友谊，深化互利合作，密切团结协作，推动中老关系实现新的跃升，携手打造新时代全天候中老命运共同体。
 
-” “I won‘t see you next time”任期将尽，鲍威尔时代进入倒计时。
+习近平就推进中老关系和两国命运共同体建设不断向高标准、高质量、高水平迈进提出四点看法： 第一，要坚持社会主义方向。
 
-2026年4月29日，美联储例行新闻发布会的末尾，主席杰罗姆·鲍威尔走下讲台前，向在场记者说出了这句看似轻描淡写、实则意味深长的话——“非常感谢大家，下次不再见。
+双方要共同捍卫社会主义制度和共产党执政地位，保持密切战略沟通，执行好两党新的五年合作计划，深化治党治国经验交流。
 
-”随后，他离开讲台，走出会场，结束了自己作为美联储主席的最后一场新闻发布会。
+要以建立两国外交、国防、公安“3+3”战略对话机制为契机，深化执法安全合作，坚决打击跨境犯罪。
 
-2026年5月15日，鲍威尔的主席任期将正式画上句点。
+第二，要筑牢互利合作基石。
 
-这一天，他的继任者、特朗普提名的凯文·沃什预计将通过参议院银行委员会确认投票，接掌这一全球最具权势的货币政策职位。
+中方愿同老方加强战略对接，拓展合作增长点。
 
-八年，两届任期，横跨两任总统、一场百年一遇的全球大疫情、美国四十年来最严峻的通胀。
+要立足中老铁路黄金大通道优势，推进沿线开发和“一地两检”，推动中老经济走廊合作提质升级。
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 22:03 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 21:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 22:03 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 21:59 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 22:13 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-29 21:56 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 21:57 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 21:57 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-29 22:20 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 22:14 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-29 22:00 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 22:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
-- 2026-06-29 21:56 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 22:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
+- 2026-06-29 22:14 - [第二波数码涨价潮来袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 22:15 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-29 22:12 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
+- 2026-06-29 22:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 22:23 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-29 22:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 22:21 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 22:21 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-29 22:02 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 22:21 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 22:00 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:22 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/18827426992.shtml)
-- 2026-06-29 22:20 - [日防卫省正考虑引进美企人工智能系统](https://www.share.minike.top/Article/details/340703.shtml)
-- 2026-06-29 22:08 - [MG总经理直播被冲](https://www.blog.kurohicncr.top/Article/details/168594409815.shtml)
-- 2026-06-29 22:19 - [小勒布伦WTT美国大满贯开门红](https://www.blog.kurohicncr.top/Article/details/7874718.shtml)
-- 2026-06-29 21:58 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/17385284007.shtml)
-- 2026-06-29 22:10 - [恋与深空制作组回应争议](http://www.blog.kurohicncr.top/Article/details/615737230121.shtml)
-- 2026-06-29 21:58 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/781347184.shtml)
-- 2026-06-29 21:55 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/1424047842.shtml)
-- 2026-06-29 21:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/69304744.shtml)
-- 2026-06-29 22:06 - [房价什么时候能涨](http://www.share.minike.top/Article/details/012348224.shtml)
-- 2026-06-29 21:55 - [恋与深空道歉就够了吗](https://www.share.kurohicncr.top/Article/details/2548849203.shtml)
-- 2026-06-29 22:08 - [三大外卖平台承诺不开展分钟级竞速](https://www.blog.kurohicncr.top/Article/details/54369.shtml)
-- 2026-06-29 22:15 - [毒液2](http://www.blog.minike.top/Article/details/328191280.shtml)
-- 2026-06-29 22:06 - [宜宾地震造成15人受轻伤](http://www.blog.minike.top/Article/details/208430339938.shtml)
-- 2026-06-29 22:17 - [被裁员后30岁儿子被抓去戒网瘾](http://www.blog.kurohicncr.top/Article/details/362228683.shtml)
+- 2026-06-29 22:17 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/445629043615.shtml)
+- 2026-06-29 22:29 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/0018611.shtml)
+- 2026-06-29 22:12 - [世界杯](https://www.blog.kurohicncr.top/Article/details/743187013.shtml)
+- 2026-06-29 22:14 - [绘画区你赢了](http://www.share.minike.top/Article/details/28690.shtml)
+- 2026-06-29 22:29 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/05728192582.shtml)
+- 2026-06-29 22:01 - [小龙女配音去世 李若彤发文悼念](https://www.blog.minike.top/Article/details/2200389923.shtml)
+- 2026-06-29 22:02 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/8103770.shtml)
+- 2026-06-29 22:00 - [多人将马路护栏当球网打羽毛球](https://www.share.kurohicncr.top/Article/details/7037404234.shtml)
+- 2026-06-29 22:28 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/3649658.shtml)
+- 2026-06-29 22:16 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/79751796807.shtml)
+- 2026-06-29 22:13 - [美国一牛仔表演发生事故](http://www.blog.kurohicncr.top/Article/details/516660481289.shtml)
+- 2026-06-29 22:02 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/8278444711.shtml)
+- 2026-06-29 22:28 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/30817690.shtml)
+- 2026-06-29 22:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/8038732.shtml)
+- 2026-06-29 22:29 - [女子健身不当 居然“脑子漏水”了](http://www.share.kurohicncr.top/Article/details/82145.shtml)

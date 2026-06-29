@@ -1,61 +1,57 @@
-# 10天8板！002081再度爆发
+# 【欧洲专线】海上“超级车库”满载中国产新能源汽车驶向欧洲
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月30日，A股出现明显分化，沪指窄幅震荡整理，科创综指大幅拉升，再创新高；港股弱势下探，恒生指数盘中跌幅超1%。 具体来看，沪指盘中窄幅震荡上扬，科创综指大涨超3%，创历史新高。截至收盘，沪指涨0.11%报4112.16点，深证成指跌0.09%，创业板指跌0.27%，科创综指涨3.42%，沪深北三市合计成
+【欧洲专线】海上“超级车库”满载中国产新能源汽车驶向欧洲 中新社上海6月7日电 (谢梦圆 毕佳缘)名为格罗灯塔轮(“Glovis Lighthouse”)的“海上超级车库”7日正式投入欧洲航线运营，在上海港装载4000台中国产新能源汽车，开启交付后的首趟商业航程。该船将靠泊深圳小漠港，最终满载8000余台新能源汽车驶向欧洲。 5月28日，这艘滚装巨轮在上海外高桥造船码头被正式命
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+【欧洲专线】海上“超级车库”满载中国产新能源汽车驶向欧洲 中新社上海6月7日电 (谢梦圆 毕佳缘)名为格罗灯塔轮(“Glovis Lighthouse”)的“海上超级车库”7日正式投入欧洲航线运营，在上海港装载4000台中国产新能源汽车，开启交付后的首趟商业航程。
 
-4月30日，A股出现明显分化，沪指窄幅震荡整理，科创综指大幅拉升，再创新高；港股弱势下探，恒生指数盘中跌幅超1%。
+该船将靠泊深圳小漠港，最终满载8000余台新能源汽车驶向欧洲。
 
-具体来看，沪指盘中窄幅震荡上扬，科创综指大涨超3%，创历史新高。
+5月28日，这艘滚装巨轮在上海外高桥造船码头被正式命名，成为长江流域首艘万车级超大型汽车运输船。
 
-截至收盘，沪指涨0.11%报4112.16点，深证成指跌0.09%，创业板指跌0.27%，科创综指涨3.42%，沪深北三市合计成交约2.76万亿元，较此前一日增加约1500亿元。
+其最大载车量达10800车，总长230米、型宽40米，相当于16层楼高，设有14层车库甲板，其中5层为活动式甲板，可灵活装载各类新能源车及重型商用车辆，运力是常规滚装船的近两倍。
 
-A股市场近2900股飘红，半导体、芯片概念爆发，寒武纪涨20%创历史新高，股价逼近1700元/股，超越源杰科技，成为A股“新股王”；芯原股份、明微电子等均涨停，华虹公司、龙芯中科等走高；商业航天概念拉升，日联科技连续两日涨停，翱捷科技、西测测试、陕西华达等涨超10%，金螳螂（002081）午后封涨停，近10个交易日斩获8个涨停板；机器人概念活跃，创世纪、光莆股份、凌云光等涨停。
+在绿色动力方面，该船采用液化天然气(LNG)和燃油双燃料推进系统，搭载国产高性能永磁轴带发电系统，碳排放较传统燃油船降低超30%。
 
-值得注意的是，工业富联再度下挫，收盘跌超5%，全日成交186.3亿元，位居A股成交额第二。
+上海港作为全国最大的汽车出口口岸，已形成外高桥与上海临港“双码头联动”格局。
 
-此外，近一年大涨超10倍的长飞光纤盘中大幅跳水，收盘跌约4.5%。
+位于外高桥港区的海通国际汽车码头，是目前全国最大的单一整车滚装码头，开通了覆盖全球135个国家和地区的12条国际滚装航线，2025年出口汽车145.7万辆，每昼夜有近4000辆汽车从这里驶向全球。
 
-半导体板块强势 半导体板块盘中强势拉升，截至收盘，寒武纪20%涨停，报1699.96元/股，创历史新高，超越源杰科技，成为A股“新股王”；芯原股份、明微电子等均涨停，杰华特、芯源微等均创新高。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 22:11 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 21:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 22:15 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 22:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:20 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-29 21:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 22:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 22:03 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-29 22:16 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
-- 2026-06-29 22:07 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 22:13 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
-- 2026-06-29 22:16 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 22:12 - [乌是否掌握了扭转战局的钥匙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 22:03 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 22:02 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 22:00 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
+- 2026-06-29 22:16 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 22:13 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 22:29 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 22:12 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 22:05 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 22:05 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
+- 2026-06-29 22:19 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 22:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 22:19 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [小龙女配音去世 李若彤发文悼念](http://www.blog.kurohicncr.top/Article/details/8209400086.shtml)
-- 2026-06-29 22:11 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/369937962432.shtml)
-- 2026-06-29 22:18 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/6768871491.shtml)
-- 2026-06-29 22:12 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/603086952151.shtml)
-- 2026-06-29 22:05 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/833750988256.shtml)
-- 2026-06-29 22:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/64536968.shtml)
-- 2026-06-29 22:09 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/9555540339.shtml)
-- 2026-06-29 21:54 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/316145.shtml)
-- 2026-06-29 21:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/59747426309.shtml)
-- 2026-06-29 22:00 - [王安宇聪明到导演组炸了](https://www.blog.kurohicncr.top/Article/details/02273432578.shtml)
-- 2026-06-29 22:12 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/94993.shtml)
-- 2026-06-29 22:04 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/95953291.shtml)
-- 2026-06-29 22:19 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/593582612.shtml)
-- 2026-06-29 21:57 - [黄灿灿张慧雯落地签还没发的原因](http://www.share.kurohicncr.top/Article/details/3489521.shtml)
-- 2026-06-29 22:16 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/6235612268.shtml)
+- 2026-06-29 22:05 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/89603313.shtml)
+- 2026-06-29 22:13 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/442539.shtml)
+- 2026-06-29 22:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/422178733619.shtml)
+- 2026-06-29 22:24 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/7130768878.shtml)
+- 2026-06-29 22:20 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/493446.shtml)
+- 2026-06-29 22:28 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/2528547976.shtml)
+- 2026-06-29 22:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/375693978908.shtml)
+- 2026-06-29 22:14 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/659073464.shtml)
+- 2026-06-29 22:06 - [杨紫飞奔拥抱胡歌](http://www.blog.kurohicncr.top/Article/details/61417883082.shtml)
+- 2026-06-29 22:16 - [毒液2](http://www.share.kurohicncr.top/Article/details/579295.shtml)
+- 2026-06-29 22:21 - [汪苏泷年度歌手](https://www.share.kurohicncr.top/Article/details/912464.shtml)
+- 2026-06-29 22:03 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/8636492.shtml)
+- 2026-06-29 22:22 - [恋与深空7天掉粉超50万](http://www.share.minike.top/Article/details/469851516.shtml)
+- 2026-06-29 22:28 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/258878.shtml)
+- 2026-06-29 22:08 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/596085343609.shtml)

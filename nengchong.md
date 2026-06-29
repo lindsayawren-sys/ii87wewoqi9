@@ -1,60 +1,54 @@
-# 鲍威尔决定在卸任美联储主席后继续留任理事：无意干预沃什的领导工作
+# 洛阳钼业大宗交易成交1204.18万元
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-当地时间4月29日，美联储主席鲍威尔在议息会议后的新闻发布会上表示，他将在5月15日美联储主席任期到期后，继续留任美联储理事一职。 谈及留任理事，鲍威尔表示，“我担忧的是针对美联储的一系列法律攻击，这些行为威胁到我们不受政治因素干扰实施货币政策的能力。”他还表示，担心这类冲击正在损害美联储的公信力。 对于鲍威尔留任理事，美国总统特朗普在社交媒体上写道：“‘为时已晚’鲍威尔赖在美
+洛阳钼业6月5日大宗交易平台出现一笔成交，成交量66.20万股，成交金额1204.18万元，大宗交易成交价为18.19元。该笔交易的买方营业部为广发证券股份有限公司昆明广福路证券营业部，卖方营业部为中信证券股份有限公司总部(非营业场所)。进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1448.58万元。证券时报·数据宝统计显示，洛阳钼业今日收盘价为18.19元，
 
 ## 正文
 
-当地时间4月29日，美联储主席鲍威尔在议息会议后的新闻发布会上表示，他将在5月15日美联储主席任期到期后，继续留任美联储理事一职。
+洛阳钼业6月5日大宗交易平台出现一笔成交，成交量66.20万股，成交金额1204.18万元，大宗交易成交价为18.19元。
 
-谈及留任理事，鲍威尔表示，“我担忧的是针对美联储的一系列法律攻击，这些行为威胁到我们不受政治因素干扰实施货币政策的能力。
+该笔交易的买方营业部为广发证券股份有限公司昆明广福路证券营业部，卖方营业部为中信证券股份有限公司总部(非营业场所)。
 
-”他还表示，担心这类冲击正在损害美联储的公信力。
+进一步统计，近3个月内该股累计发生2笔大宗交易，合计成交金额为1448.58万元。
 
-对于鲍威尔留任理事，美国总统特朗普在社交媒体上写道：“‘为时已晚’鲍威尔赖在美联储不走，无非是因为他在别处根本找不到工作。
+证券时报·数据宝统计显示，洛阳钼业今日收盘价为18.19元，下跌2.93%，日换手率为1.26%，成交额为40.68亿元，全天主力资金净流出3.76亿元，近5日该股累计下跌1.73%，近5日资金合计净流出1.63亿元。
 
-” 据央视新闻4月24日报道，美国司法部撤销了一项针对美联储及其主席鲍威尔的刑事调查。
+两融数据显示，该股最新融资余额为44.27亿元，近5日增加3260.08万元，增幅为0.74%。
 
-此项调查的终结扫清了下任美联储主席人选沃什确认程序上的障碍。
+据天眼查APP显示，洛阳栾川钼业集团股份有限公司成立于1999年12月22日，注册资本427886.20352万人民币。
 
-鲍威尔表示，这场法律纷争让他别无选择，只能继续留任，直至相关威胁得到彻底、透明的解决。
-
-他表示，自己以理事身份留任期间会保持低调，无意干预沃什日后对委员会的领导工作。
+（数据宝）6月5日洛阳钼业大宗交易一览（文章来源：证券时报网）
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 22:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 22:22 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 22:09 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 22:00 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
-- 2026-06-29 22:24 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
-- 2026-06-29 22:15 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 22:06 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-29 22:00 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-29 22:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 22:06 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 22:20 - [TFing最具影响力音乐厂牌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-29 21:57 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 22:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 22:09 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 22:16 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 22:19 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 22:03 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 22:28 - [记者乘坐无人驾驶汽车去采访](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 22:17 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 22:04 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 22:09 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-29 22:11 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 22:15 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [佛得角队长门德斯被控强奸](http://www.blog.minike.top/Article/details/48918.shtml)
-- 2026-06-29 22:23 - [一人一句祝党生日快乐](https://www.share.kurohicncr.top/Article/details/79967.shtml)
-- 2026-06-29 22:08 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.share.minike.top/Article/details/78871520.shtml)
-- 2026-06-29 22:21 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/57170030.shtml)
-- 2026-06-29 22:03 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/25108181416.shtml)
-- 2026-06-29 22:04 - [中方绝不允许日菲侵害我海洋权益](http://www.blog.minike.top/Article/details/67424179.shtml)
-- 2026-06-29 22:18 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.kurohicncr.top/Article/details/4863986115.shtml)
-- 2026-06-29 22:12 - [曾沛慈和老公一起回台湾](http://www.share.minike.top/Article/details/40850202977.shtml)
-- 2026-06-29 21:58 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/4919556.shtml)
-- 2026-06-29 22:04 - [警方回应两名老人多次到洗车店泼粪](http://www.share.kurohicncr.top/Article/details/481727172.shtml)
-- 2026-06-29 22:22 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/83032.shtml)
-- 2026-06-29 22:10 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/9902901796.shtml)
-- 2026-06-29 22:07 - [王楚钦开门红](https://www.share.minike.top/Article/details/343675.shtml)
-- 2026-06-29 22:03 - [浪姐成团夜爆笑吐槽](https://www.blog.kurohicncr.top/Article/details/4125668769.shtml)
-- 2026-06-29 22:08 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/09019840501.shtml)
+- 2026-06-29 22:05 - [货车司机恶意闯卡逃费被行拘](https://www.blog.minike.top/Article/details/5507100.shtml)
+- 2026-06-29 22:29 - [起风了](https://www.blog.kurohicncr.top/Article/details/830837328755.shtml)
+- 2026-06-29 22:26 - [我们的少年时代2](https://www.blog.minike.top/Article/details/82004992.shtml)
+- 2026-06-29 22:08 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/9248575204.shtml)
+- 2026-06-29 22:14 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/16038420983.shtml)
+- 2026-06-29 22:03 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/7730880798.shtml)
+- 2026-06-29 22:24 - [东方风云榜直播](https://www.blog.kurohicncr.top/Article/details/57843.shtml)
+- 2026-06-29 22:15 - [扬名立万](https://www.share.minike.top/Article/details/901231531833.shtml)
+- 2026-06-29 22:27 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/82596.shtml)
+- 2026-06-29 22:06 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/005349136093.shtml)
+- 2026-06-29 22:03 - [如何看法国总统候选人称加强与华合作](https://www.blog.minike.top/Article/details/247001110979.shtml)
+- 2026-06-29 22:13 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/1241635.shtml)
+- 2026-06-29 22:25 - [毒液2](https://www.share.minike.top/Article/details/62341543678.shtml)
+- 2026-06-29 22:24 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/115520767.shtml)
+- 2026-06-29 22:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/511962831.shtml)

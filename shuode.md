@@ -1,60 +1,60 @@
-# 国家统计局发布2025年农民工监测调查报告
+# 通胀压力回升 欧洲央行或本周加息
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据国家统计局网站消息，4月30日，国家统计局发布2025年农民工监测调查报告。 一、农民工规模、分布及流向 (一)农民工总量略有增加 2025年全国农民工总量30115万人，比上年增加142万人，增长0.5%。其中，本地农民工12109万人，比上年增加7万人，增长0.1%；外出农民工18006万人，比上年增加135万人，增长0.8%。年末在城镇居住的进城农民
+中新网6月8日电 据法新社报道，随着美伊以战争引发的能源冲击推高通胀，欧洲央行或将在本周加息。 报道称，中东战争引发的能源冲击大幅推高全球能源成本，并进一步推升通胀。今年5月，欧元区通胀率升至3.2%，高于4月的3.0%。 分析人士预计，欧洲央行管理委员会将在周四会议上把关键存款利率上调25个基点，从2.00%升至2.25%。这或将是欧洲央行自2023年9月以来首次加息。 不过
 
 ## 正文
 
-中新网4月30日电 据国家统计局网站消息，4月30日，国家统计局发布2025年农民工监测调查报告。
+中新网6月8日电 据法新社报道，随着美伊以战争引发的能源冲击推高通胀，欧洲央行或将在本周加息。
 
-一、农民工规模、分布及流向 (一)农民工总量略有增加 2025年全国农民工总量30115万人，比上年增加142万人，增长0.5%。
+报道称，中东战争引发的能源冲击大幅推高全球能源成本，并进一步推升通胀。
 
-其中，本地农民工12109万人，比上年增加7万人，增长0.1%；外出农民工18006万人，比上年增加135万人，增长0.8%。
+今年5月，欧元区通胀率升至3.2%，高于4月的3.0%。
 
-年末在城镇居住的进城农民工13092万人。
+分析人士预计，欧洲央行管理委员会将在周四会议上把关键存款利率上调25个基点，从2.00%升至2.25%。
 
-在外出农民工中，跨省流动6765万人，比上年减少75万人，下降1.1%；省内流动11241万人，比上年增加210万人，增长1.9%。
+这或将是欧洲央行自2023年9月以来首次加息。
 
-跨省流动规模占外出农民工比重为37.6%，比上年下降0.7个百分点。
+不过，一些经济学家批评，此举可能进一步压缩本已疲弱的欧元区增长。
 
-分区域看，东部地区外出农民工中跨省流动占12.3%，中部地区占51.4%，西部地区占44.0%，东北地区占31.1%。
+欧盟上月已将2026年欧元区增长预期从1.2%下调至0.9%，5日公布的修正数据显示，欧元区经济第一季度收缩0.2%。
 
-(二)各区域农民工人数均有增加 从输出地看，东部地区农民工10563万人，比上年增加34万人，增长0.3%；中部地区10054万人，比上年增加42万人，增长0.4%；西部地区8460万人，比上年增加46万人，增长0.5%；东北地区1038万人，比上年增加20万人，增长2.0%。
+德国安联集团首席经济学家苏布兰表示，加息将是为了“提供安抚”，显示欧洲央行正在关注通胀上升。
 
 ## 相关推荐
 
-- 2026-06-29 21:56 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 22:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 21:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 22:01 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 22:06 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 22:04 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-29 21:59 - [委内瑞拉发生余震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 21:55 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 22:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 22:19 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 21:59 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 22:02 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-29 22:07 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
-- 2026-06-29 22:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-29 22:25 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-29 22:03 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 22:06 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 22:15 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 22:24 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-29 22:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 22:12 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-29 22:01 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 22:01 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 22:15 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 22:20 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 22:22 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 22:03 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 22:19 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/936479479.shtml)
-- 2026-06-29 22:02 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/00925471421.shtml)
-- 2026-06-29 22:10 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/2815419117.shtml)
-- 2026-06-29 21:55 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/97121193690.shtml)
-- 2026-06-29 22:19 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/7578952426.shtml)
-- 2026-06-29 21:57 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/759297.shtml)
-- 2026-06-29 22:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/6850064.shtml)
-- 2026-06-29 22:02 - [王楚钦开门红](http://www.share.kurohicncr.top/Article/details/3568037.shtml)
-- 2026-06-29 21:58 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/263218188.shtml)
-- 2026-06-29 22:08 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/80549154.shtml)
-- 2026-06-29 22:24 - [让AI做一个账号，它会做成什么样？](https://www.share.minike.top/Article/details/455651566.shtml)
-- 2026-06-29 22:06 - [世界杯](http://www.share.minike.top/Article/details/905911809843.shtml)
-- 2026-06-29 22:10 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/09194.shtml)
-- 2026-06-29 22:03 - [127只股涨停 最大封单资金6.04亿元](https://www.blog.kurohicncr.top/Article/details/933777422.shtml)
-- 2026-06-29 22:22 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/88966541.shtml)
+- 2026-06-29 22:07 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/44160112052.shtml)
+- 2026-06-29 22:25 - [这辈子过得最痛苦的生日...](http://www.share.kurohicncr.top/Article/details/355135511675.shtml)
+- 2026-06-29 22:13 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/176370565.shtml)
+- 2026-06-29 22:19 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/939191786.shtml)
+- 2026-06-29 22:14 - [流金岁月](http://www.share.kurohicncr.top/Article/details/385899.shtml)
+- 2026-06-29 22:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/86146582911.shtml)
+- 2026-06-29 22:16 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/395886052527.shtml)
+- 2026-06-29 22:24 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/164073857.shtml)
+- 2026-06-29 22:00 - [法国生态部长反对大规模安装空调](http://www.blog.kurohicncr.top/Article/details/129449185.shtml)
+- 2026-06-29 22:00 - [长沙菜农公交的人间烟火气](http://www.blog.kurohicncr.top/Article/details/8943123.shtml)
+- 2026-06-29 22:06 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/214382510947.shtml)
+- 2026-06-29 22:15 - [小孩曾卓君夺冠之路](http://www.blog.kurohicncr.top/Article/details/01002.shtml)
+- 2026-06-29 22:01 - [爱奇艺抬高国剧新标尺](https://www.share.kurohicncr.top/Article/details/1492914.shtml)
+- 2026-06-29 22:26 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/536207.shtml)
+- 2026-06-29 22:18 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/959276632.shtml)

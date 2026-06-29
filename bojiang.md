@@ -1,57 +1,56 @@
-# 西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲
+# 一架私人飞机在多米尼加坠毁爆炸 致两名美国公民遇难
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。 这家西班牙银行过半业务收入来自欧洲以外市场。其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧
+中新网6月8日电 综合外媒报道，当地时间6月7日，一架私人飞机在多米尼加拉罗马纳国际机场紧急降落时发生爆炸，机上两人遇难。 报道称，这架飞机原计划飞往美国得州奥斯汀。飞机在飞行途中出现严重机械故障后试图紧急降落，但在触地后爆炸起火，出现一团橙色火球。 事故发生后，紧急救援人员立即赶往现场，机场暂停运行。 消息称，这架飞机在美国注册，登记在一家公务航空公司名下。事发时机上共有两名
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。
+中新网6月8日电 综合外媒报道，当地时间6月7日，一架私人飞机在多米尼加拉罗马纳国际机场紧急降落时发生爆炸，机上两人遇难。
 
-这家西班牙银行过半业务收入来自欧洲以外市场。
+报道称，这架飞机原计划飞往美国得州奥斯汀。
 
-其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧元。
+飞机在飞行途中出现严重机械故障后试图紧急降落，但在触地后爆炸起火，出现一团橙色火球。
 
-一季度营业总收入同比增长 14%，至106.5 亿欧元，同样超出分析师 100.5 亿欧元的预期。
+事故发生后，紧急救援人员立即赶往现场，机场暂停运行。
 
-营收增长主要由两大板块拉动：净利息收入实现两位数增幅（贷款利息收入减去客户存款利息支出），同时资产管理、支付及保险业务带来的手续费及佣金净收入同步提升。
+消息称，这架飞机在美国注册，登记在一家公务航空公司名下。
 
-西班牙与墨西哥两大市场贡献该行约三分之二营收，BBVA 在两地的企业贷与个人消费贷规模均实现增长。
+事发时机上共有两名机组人员，分别为飞行员和副驾驶。
 
-此外，土耳其及南美分支机构业绩表现改善，企业与投行业务也保持持续扩张。
-
-运营成本同比攀升 14%，至40.5 亿欧元，部分源于西班牙本土自愿离职裁员计划。
+两名遇难者身份已确认为埃里克·哈维尔·迪亚戈和鲁迪·加扎尔，均为美国公民。
 
 ## 相关推荐
 
-- 2026-06-29 21:54 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 22:23 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 21:55 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 22:09 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 22:06 - [多人将马路护栏当球网打羽毛球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 22:08 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-29 22:10 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 22:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
-- 2026-06-29 21:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 21:54 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-29 22:21 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 22:24 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-29 22:03 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 22:07 - [东方风云榜直播](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 22:00 - [朱雀三号完成静态点火试验](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 22:09 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 22:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 22:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
+- 2026-06-29 22:14 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 22:04 - [世界杯高票价为何没劝退球迷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-29 22:12 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 22:19 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 22:11 - [海力士是全球AI行情的新亚盘风向标吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/69150.shtml)
-- 2026-06-29 22:19 - [请回答王牌2019](http://www.share.minike.top/Article/details/636066755.shtml)
-- 2026-06-29 22:20 - [田曦薇 女装牛仔裤](https://www.blog.minike.top/Article/details/16625.shtml)
-- 2026-06-29 22:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/804024.shtml)
-- 2026-06-29 22:09 - [谁在推动“成都造”影视持续出圈](https://www.blog.kurohicncr.top/Article/details/961249993514.shtml)
-- 2026-06-29 22:21 - [白玉兰答谢宴合影](http://www.share.minike.top/Article/details/7315470.shtml)
-- 2026-06-29 22:11 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/70927206381.shtml)
-- 2026-06-29 21:56 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/115616553.shtml)
-- 2026-06-29 22:08 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/9654378356.shtml)
-- 2026-06-29 22:18 - [一生一世](http://www.share.minike.top/Article/details/558990167214.shtml)
-- 2026-06-29 21:56 - [世界杯高票价为何没劝退球迷](https://www.share.kurohicncr.top/Article/details/1980357.shtml)
-- 2026-06-29 21:56 - [网友晒14年前支教影像等来学生评论](http://www.blog.minike.top/Article/details/73370923594.shtml)
-- 2026-06-29 22:14 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/98383.shtml)
-- 2026-06-29 22:10 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.share.minike.top/Article/details/1334930.shtml)
-- 2026-06-29 21:54 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/509894.shtml)
+- 2026-06-29 22:11 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/252774131819.shtml)
+- 2026-06-29 22:18 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/41594872.shtml)
+- 2026-06-29 22:04 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/8111593.shtml)
+- 2026-06-29 22:06 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.blog.minike.top/Article/details/569459881.shtml)
+- 2026-06-29 22:12 - [女子螺蛳粉摊吃出蛇](http://www.blog.kurohicncr.top/Article/details/45778165756.shtml)
+- 2026-06-29 22:16 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/13867.shtml)
+- 2026-06-29 22:20 - [美国一牛仔表演发生事故](http://www.share.minike.top/Article/details/450532233.shtml)
+- 2026-06-29 22:29 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/8360547.shtml)
+- 2026-06-29 22:26 - [DRG官宣选手Akeman离队](https://www.share.minike.top/Article/details/552709821589.shtml)
+- 2026-06-29 22:15 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.blog.minike.top/Article/details/3895170.shtml)
+- 2026-06-29 22:01 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/8538665.shtml)
+- 2026-06-29 22:29 - [流金岁月](http://www.share.minike.top/Article/details/04479524494.shtml)
+- 2026-06-29 22:03 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/9065657.shtml)
+- 2026-06-29 22:18 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/025777.shtml)
+- 2026-06-29 22:22 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.minike.top/Article/details/8015987.shtml)

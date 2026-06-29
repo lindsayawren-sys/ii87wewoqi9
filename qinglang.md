@@ -1,59 +1,56 @@
-# 花旗任命Karim Tannir为中东和非洲业务负责人
+# 中新人物｜曾沛慈：19年后，我勇敢面对内心的声音
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-花旗集团周三宣布，任命资深银行家Karim Tannir为其中东和非洲地区集群及银行业务负责人，以加强其国际业务版图。 Tannir将常驻迪拜，负责花旗在该地区59个市场的业务运营，涵盖客户战略制定、区域业务增长，以及监管机构和主要利益相关方的联络沟通。花旗国际业务主管Ernesto Torres Cantú表示：“随着跨境活动对客户而言愈发复杂和关键，我们国际业务实力的重要性
+中新网北京6月6日电(记者 任思雨)初见曾沛慈，很难不被她丰富的表情和肢体语言吸引。 聊起标志性的短发，她直言是因为头发又多又硬，一留长就显得很厚很重。说着说着，手绕到耳后，一口气在空中撩了七次“长发”，模仿广告女主角风吹起时长发飘飘的画面，“我也想当一个安静的美女，谁不想当一个安静的美女！”“这是我的烦恼，你们不懂！” 还有身高175公分的她，也没有那么喜欢上面的空气，她把右
 
 ## 正文
 
-花旗集团周三宣布，任命资深银行家Karim Tannir为其中东和非洲地区集群及银行业务负责人，以加强其国际业务版图。
+中新网北京6月6日电(记者 任思雨)初见曾沛慈，很难不被她丰富的表情和肢体语言吸引。
 
-Tannir将常驻迪拜，负责花旗在该地区59个市场的业务运营，涵盖客户战略制定、区域业务增长，以及监管机构和主要利益相关方的联络沟通。
+聊起标志性的短发，她直言是因为头发又多又硬，一留长就显得很厚很重。
 
-花旗国际业务主管Ernesto Torres Cantú表示：“随着跨境活动对客户而言愈发复杂和关键，我们国际业务实力的重要性比以往任何时候都更加突出。
+说着说着，手绕到耳后，一口气在空中撩了七次“长发”，模仿广告女主角风吹起时长发飘飘的画面，“我也想当一个安静的美女，谁不想当一个安静的美女！
 
-” Tannir拥有超过30年的区域从业经验，被公认为中东最具影响力的银行家之一。
+”“这是我的烦恼，你们不懂！
 
-他此前担任汇丰银行中东、北非和土耳其地区银行业务负责人，更早之前则在摩根大通任职超过25年，担任过EMEA地区副董事长等高级领导职务。
+” 还有身高175公分的她，也没有那么喜欢上面的空气，她把右手举在额头附近反复比划，又歪头望向天空，“我也是偶尔想要仰望。
 
-作为人事调整的一部分，原中东和非洲业务负责人Ebru Pakcan将出任国际及遗留业务首席运营官。
+” 今年夏天，这个大家口中的“台湾甜妹”，在全开麦、零修音的“浪姐”舞台，率先拿下了断层第一的热度值。
 
-此项任命将于今年8月正式生效。
+王濛在训练室里听她清唱，听着听着忍不住靠过去，舍不得接下一句歌词，“我就觉得太好听了，就想在那听。
 
-责任编辑：张俊 SF065
+” 一切换到舞台模式，曾沛慈像被按下另一个开关：气场全开，音准稳、情绪足，开口就是演唱会水准。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 22:12 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 22:18 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 22:05 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-29 22:16 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-29 22:18 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 22:23 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-29 22:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-29 22:01 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 22:07 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 22:14 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 22:01 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 22:19 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqrrk.md)
+- 2026-06-29 22:26 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 22:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 22:14 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 22:04 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
+- 2026-06-29 22:21 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 22:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-29 22:00 - [哈兰德玩游戏连女友都不让着](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 22:05 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 22:18 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 22:14 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/3905157617.shtml)
-- 2026-06-29 22:10 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/68207.shtml)
-- 2026-06-29 22:07 - [一汽大众黄金超混技术来袭](https://www.share.kurohicncr.top/Article/details/85764539967.shtml)
-- 2026-06-29 22:06 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/637283258721.shtml)
-- 2026-06-29 22:13 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/315191315329.shtml)
-- 2026-06-29 22:15 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/81109.shtml)
-- 2026-06-29 22:23 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/9765425.shtml)
-- 2026-06-29 22:09 - [《恋与深空》回应争议](http://www.share.minike.top/Article/details/313764.shtml)
-- 2026-06-29 22:11 - [扬名立万](https://www.share.kurohicncr.top/Article/details/6774354928.shtml)
-- 2026-06-29 22:05 - [锐评白玉兰提名片段](http://www.blog.minike.top/Article/details/81403682.shtml)
-- 2026-06-29 22:03 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/650042985.shtml)
-- 2026-06-29 22:09 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/0657602287.shtml)
-- 2026-06-29 21:57 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/51465.shtml)
-- 2026-06-29 22:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/2562442330.shtml)
-- 2026-06-29 22:17 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/4276324578.shtml)
+- 2026-06-29 22:13 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/68930701.shtml)
+- 2026-06-29 22:05 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/4953374.shtml)
+- 2026-06-29 22:16 - [沉睡花园](https://www.blog.minike.top/Article/details/1001782.shtml)
+- 2026-06-29 22:18 - [送你一朵小红花](http://www.share.minike.top/Article/details/957343742.shtml)
+- 2026-06-29 22:11 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/0057504.shtml)
+- 2026-06-29 22:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/71922112.shtml)
+- 2026-06-29 22:03 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/5894930.shtml)
+- 2026-06-29 22:25 - [乌是否掌握了扭转战局的钥匙](http://www.blog.minike.top/Article/details/318371634115.shtml)
+- 2026-06-29 22:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/567518432.shtml)
+- 2026-06-29 22:14 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/96340931.shtml)
+- 2026-06-29 22:02 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/8025420.shtml)
+- 2026-06-29 22:12 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/8008275561.shtml)
+- 2026-06-29 22:15 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/65809878894.shtml)
+- 2026-06-29 22:26 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/88941510324.shtml)
+- 2026-06-29 22:11 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/0806048.shtml)

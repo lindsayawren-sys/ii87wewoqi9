@@ -1,59 +1,59 @@
-# 多地“五一”机票价格大跳水
+# 短剧产业走向价值红利阶段
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-记者|高江虹 编辑|高梦阳 张伟贤 今年“五一”旅游市场行情变化出人意料。前几天网友们还在感慨机票暴涨、“五一”出游成本激增，但临近“五一”，机票酒店价格竟然哐哐往下掉。 21世纪经济报道记者从多个OTA搜索发现，多地“五一”机票价格跳水，5月2日、3日出发的机票价格降幅超过60%。比如北京飞丽江、南宁、海口，5月3日的价格只有350元、360元、320元，降幅都超过60%，尤
+近年来，短剧产业迎来爆发式增长，随着AI视频模型公司、内容平台、产业资本加速入局，AI短剧成为新的产业风口。中国网络视听协会数据显示，一季度全行业上线微短剧约12.8万部，其中AI微短剧约12.2万部，占比超过95%。市场竞争日趋激烈，推动短剧产业从“拼数量”向“拼质量”转变。在近日抖音集团短剧版权中心举办的首届短剧产业大会上，专家表示，短剧正持续向精品化、系列化迈进，是一条前
 
 ## 正文
 
-记者|高江虹 编辑|高梦阳 张伟贤 今年“五一”旅游市场行情变化出人意料。
+近年来，短剧产业迎来爆发式增长，随着AI视频模型公司、内容平台、产业资本加速入局，AI短剧成为新的产业风口。
 
-前几天网友们还在感慨机票暴涨、“五一”出游成本激增，但临近“五一”，机票酒店价格竟然哐哐往下掉。
+中国网络视听协会数据显示，一季度全行业上线微短剧约12.8万部，其中AI微短剧约12.2万部，占比超过95%。
 
-21世纪经济报道记者从多个OTA搜索发现，多地“五一”机票价格跳水，5月2日、3日出发的机票价格降幅超过60%。
+市场竞争日趋激烈，推动短剧产业从“拼数量”向“拼质量”转变。
 
-比如北京飞丽江、南宁、海口，5月3日的价格只有350元、360元、320元，降幅都超过60%，尤其是丽江，降幅达63%。
+在近日抖音集团短剧版权中心举办的首届短剧产业大会上，专家表示，短剧正持续向精品化、系列化迈进，是一条前景广阔的商业赛道。
 
-而丽江“五一”期间的酒店和民宿价格也并没有暴涨，大量民宿价格低于200元，甚至有客栈低至28元。
+中国电影评论学会常务副会长张卫介绍，不少平台对关照现实生活、追求积极社会效应的短剧作品进行专项扶持，资金向好剧本、好内容集中。
 
-昔日的热门旅游目的地，难道失宠了？
+同时，平台取消无差别保底、收紧审核、提高准入门槛，这些都在加速低质、劣俗的短剧退场。
 
-4月28日，根据交通运输部新闻发布会公布的信息，“五一”假期预计全社会跨区域人员流动量将创历史同期新高，达到15.2亿人次，日均3.04亿人次，同比增长4%。
+2025年2月，国家广播电视总局发布通知，要求落实微短剧“分类分层审核”制度。
 
-单日客流、车流将创历史同期新高。
+北京电影学院智能影像工程学院教授程樯认为，这标志着真人短剧告别了依靠低俗、擦边、贩卖焦虑来博眼球的草莽时代。
 
 ## 相关推荐
 
-- 2026-06-29 22:15 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
-- 2026-06-29 22:17 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-29 22:05 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 21:54 - [世界杯高票价为何没劝退球迷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 21:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 22:15 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 22:10 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 22:20 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 21:55 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
-- 2026-06-29 22:06 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 22:05 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-29 22:17 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
-- 2026-06-29 22:14 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 22:02 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-29 22:13 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 22:01 - [欧洲高温会成下个印度吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 22:13 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 22:14 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-29 22:11 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 22:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-29 22:12 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-29 22:22 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 22:13 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-29 22:12 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-29 22:12 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 22:02 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:16 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/236266897200.shtml)
-- 2026-06-29 22:11 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/29918971.shtml)
-- 2026-06-29 22:18 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/473849434436.shtml)
-- 2026-06-29 22:08 - [美股三大指数高开 西部数据涨超2%](https://www.share.kurohicncr.top/Article/details/763140486.shtml)
-- 2026-06-29 22:12 - [CORTIS登机迟到致航班延误](https://www.share.minike.top/Article/details/33130719233.shtml)
-- 2026-06-29 21:56 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/748059965616.shtml)
-- 2026-06-29 22:22 - [绘画区你赢了](https://www.blog.minike.top/Article/details/4540135963.shtml)
-- 2026-06-29 22:18 - [收受1.98亿余元 周家斌被判无期](https://www.blog.kurohicncr.top/Article/details/26167419.shtml)
-- 2026-06-29 22:01 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/8475525.shtml)
-- 2026-06-29 21:59 - [让AI做一个账号，它会做成什么样？](http://www.share.minike.top/Article/details/17731.shtml)
-- 2026-06-29 22:05 - [谁在推动“成都造”影视持续出圈](http://www.blog.minike.top/Article/details/5687054.shtml)
-- 2026-06-29 22:10 - [明星大侦探第一季](https://www.share.kurohicncr.top/Article/details/35627998670.shtml)
-- 2026-06-29 21:56 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/41986916.shtml)
-- 2026-06-29 22:18 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.minike.top/Article/details/44487054.shtml)
-- 2026-06-29 22:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/463526.shtml)
+- 2026-06-29 22:06 - [法媒点赞分享中国小区降温方案](http://www.blog.minike.top/Article/details/984662800388.shtml)
+- 2026-06-29 22:09 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/99621.shtml)
+- 2026-06-29 22:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](http://www.share.minike.top/Article/details/42855750383.shtml)
+- 2026-06-29 22:14 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/26805.shtml)
+- 2026-06-29 22:27 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/63603985.shtml)
+- 2026-06-29 22:03 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/92375968.shtml)
+- 2026-06-29 22:07 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/77500809522.shtml)
+- 2026-06-29 22:12 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.minike.top/Article/details/99154.shtml)
+- 2026-06-29 22:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/384486037.shtml)
+- 2026-06-29 22:26 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/556180.shtml)
+- 2026-06-29 22:12 - [赵丽颖风吹半夏含金量还在上升](http://www.share.kurohicncr.top/Article/details/48352.shtml)
+- 2026-06-29 22:07 - [半导体和股市为何没让韩国人起飞](https://www.share.minike.top/Article/details/670203.shtml)
+- 2026-06-29 22:06 - [恋与深空回应争议](http://www.share.minike.top/Article/details/84041.shtml)
+- 2026-06-29 22:27 - [天气热脾气都变差了](https://www.share.kurohicncr.top/Article/details/30563.shtml)
+- 2026-06-29 22:19 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/657863303.shtml)

@@ -1,60 +1,58 @@
-# 王小青接替王良，招商银行将迎新行长
+# ASML将结束六连涨，芯片板块集体回调拖累股价
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-第一财经4月30日了解到，招商银行（600036.SH）当天上午召开会议，宣布现任党委书记王良到龄退休，相关职务由王小青接任。 招商银行实行董事会领导下的行长负责制，该行章程明确规定，党委书记、行长由一人担任。因此，在走完公司内部相关流程以及获监管核准后，王小青将成为该行第五任行长。 公开信息显示，王小青出生于1971年，为复旦大学政治经济学博士，经济师，早年在银行基层起步，后
+阿斯麦股价周五尾盘下跌，有望结束连续六个交易日的上涨势头。该股目前跌幅约3.8%，报209.39美元，主要受整体芯片板块抛售及市场对宏观经济前景担忧的双重影响。 在此之前，阿斯麦表现出色，过去六个交易日累计上涨9.5%，年初至今涨幅已达约59%，远超标普500指数同期11%的涨幅。这一强劲表现主要得益于人工智能基础设施需求激增以及内存芯片短缺推动新厂投资的趋势。 然而，周五的市
 
 ## 正文
 
-第一财经4月30日了解到，招商银行（600036.SH）当天上午召开会议，宣布现任党委书记王良到龄退休，相关职务由王小青接任。
+阿斯麦股价周五尾盘下跌，有望结束连续六个交易日的上涨势头。
 
-招商银行实行董事会领导下的行长负责制，该行章程明确规定，党委书记、行长由一人担任。
+该股目前跌幅约3.8%，报209.39美元，主要受整体芯片板块抛售及市场对宏观经济前景担忧的双重影响。
 
-因此，在走完公司内部相关流程以及获监管核准后，王小青将成为该行第五任行长。
+在此之前，阿斯麦表现出色，过去六个交易日累计上涨9.5%，年初至今涨幅已达约59%，远超标普500指数同期11%的涨幅。
 
-公开信息显示，王小青出生于1971年，为复旦大学政治经济学博士，经济师，早年在银行基层起步，后来加入中国人保集团，工作经历横跨银行、保险、公募基金等多个不同领域。
+这一强劲表现主要得益于人工智能基础设施需求激增以及内存芯片短缺推动新厂投资的趋势。
 
-根据披露信息，2005年3月至2020年3月，王小青历任人保资管公司风险、组合管理部副总经理，以及组合管理部总经理、总裁助理、副总裁。
+然而，周五的市场环境发生逆转。
 
-从2020年3月开始，陆续担任招商基金总经理和董事长，2021年9月兼任招商信诺董事长，2021年10月任招商银行行长助理，2023年8月前后任招商银行副行长。
+美国劳工统计局公布的数据显示，5月非农就业新增17.2万人，远高于经济学家预期的8万人，失业率持平于4.3%。
 
-2025年8月调任招商局集团，任招商金控总经理。
+强劲的就业数据强化了市场对美联储加息的预期。
 
-卸任党委书记的王良，上任时正值招商银行多事之秋。
+据CME美联储观察工具显示，市场对年底前加息的概率已从48%大幅上升至超过60%。
 
 ## 相关推荐
 
-- 2026-06-29 22:10 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 22:21 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-29 21:57 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 21:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 22:00 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
-- 2026-06-29 21:59 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 22:17 - [小龙女配音去世 李若彤发文悼念](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 22:12 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 22:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 22:07 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 21:54 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 22:00 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-29 22:20 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-29 22:11 - [王楚钦开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 22:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 22:04 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 22:09 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
+- 2026-06-29 22:20 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 22:09 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 22:29 - [欧洲缘何成为变暖最快的大洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 22:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-29 22:20 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 22:20 - [运20对中国空军的意义是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 22:21 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 22:27 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-29 22:28 - [男子恶意曲解袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:10 - [世界杯疑现假球 FIFA被呼吁调查](https://www.share.minike.top/Article/details/431547173030.shtml)
-- 2026-06-29 22:22 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/34309.shtml)
-- 2026-06-29 22:05 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/4448789.shtml)
-- 2026-06-29 21:58 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/86113296.shtml)
-- 2026-06-29 22:04 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/947804524477.shtml)
-- 2026-06-29 22:20 - [日本在最东端离岛部署导弹发射装置](http://www.blog.kurohicncr.top/Article/details/810135332.shtml)
-- 2026-06-29 22:14 - [哈兰德吃饭被镜中自己吓到](https://www.blog.minike.top/Article/details/41872478346.shtml)
-- 2026-06-29 22:19 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/8288261.shtml)
-- 2026-06-29 22:23 - [运-20网宣片中的“小六”或是六代机](http://www.share.minike.top/Article/details/77653.shtml)
-- 2026-06-29 21:54 - [周生如故](https://www.blog.minike.top/Article/details/38997.shtml)
-- 2026-06-29 22:04 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/44740362.shtml)
-- 2026-06-29 22:13 - [这辈子过得最痛苦的生日...](https://www.blog.minike.top/Article/details/156903970.shtml)
-- 2026-06-29 22:22 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/370732770669.shtml)
-- 2026-06-29 22:12 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/546624278201.shtml)
-- 2026-06-29 21:56 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/993144.shtml)
+- 2026-06-29 22:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/7958742416.shtml)
+- 2026-06-29 22:25 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/023166182921.shtml)
+- 2026-06-29 22:13 - [6.5万观众40分钟“丝滑”离场](http://www.share.kurohicncr.top/Article/details/62223416886.shtml)
+- 2026-06-29 22:25 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/7427476.shtml)
+- 2026-06-29 22:25 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/464064350.shtml)
+- 2026-06-29 22:27 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/9017452292.shtml)
+- 2026-06-29 22:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/77448181346.shtml)
+- 2026-06-29 22:19 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/03437541231.shtml)
+- 2026-06-29 22:21 - [湖南姑娘被东北同事带偏口音](http://www.blog.minike.top/Article/details/509675479890.shtml)
+- 2026-06-29 22:02 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/56641442.shtml)
+- 2026-06-29 22:11 - [斛珠夫人](http://www.share.minike.top/Article/details/564747350.shtml)
+- 2026-06-29 22:28 - [齐思钧回复孙怡](http://www.blog.minike.top/Article/details/18677.shtml)
+- 2026-06-29 22:04 - [华工科技龙虎榜数据](http://www.blog.minike.top/Article/details/625756349.shtml)
+- 2026-06-29 22:02 - [日本豪言冲击冠军是自信还是傲慢](https://www.share.minike.top/Article/details/62844.shtml)
+- 2026-06-29 22:17 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/3657086090.shtml)

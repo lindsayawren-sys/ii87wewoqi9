@@ -1,58 +1,59 @@
-# 今年链博会美企参展规模将进一步扩大
+# 摩根士丹利：Unity AI与创作业务变现潜力巨大，中国市场势头强劲
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新社北京4月29日电 (记者 尹倩芸)中国贸促会新闻发言人王冠男29日在北京表示，今年链博会，美国企业参展规模将进一步扩大，特别是在人工智能、半导体、医疗科技、高端制造等中美双方均具优势的领域，两国企业将通过链博会平台深化合作、共谋发展。第四届中国国际供应链促进博览会(简称链博会)将于6月22日至26日在北京举办。 根据中国美国商会最新发布的《美国企业在中国》白皮书显示，20
+摩根士丹利近日举办了Unity Software首席财务官Jarrod Yahes与投资者的系列会议，并在会后发布报告，强调Unity在人工智能、创作业务变现以及中国市场增长等方面的积极进展。该行维持对Unity的超配评级和35美元的目标股价。 摩根士丹利分析师指出，投资者对Unity runtime数据的长期增长潜力信心增强。作为Unity的核心差异化优势，runtime数据
 
 ## 正文
 
-中新社北京4月29日电 (记者 尹倩芸)中国贸促会新闻发言人王冠男29日在北京表示，今年链博会，美国企业参展规模将进一步扩大，特别是在人工智能、半导体、医疗科技、高端制造等中美双方均具优势的领域，两国企业将通过链博会平台深化合作、共谋发展。
+摩根士丹利近日举办了Unity Software首席财务官Jarrod Yahes与投资者的系列会议，并在会后发布报告，强调Unity在人工智能、创作业务变现以及中国市场增长等方面的积极进展。
 
-第四届中国国际供应链促进博览会(简称链博会)将于6月22日至26日在北京举办。
+该行维持对Unity的超配评级和35美元的目标股价。
 
-根据中国美国商会最新发布的《美国企业在中国》白皮书显示，2025年多数受访企业财务表现向好，52%的受访企业预计实现盈利，较上年提升6个百分点，超过半数受访企业仍将中国列为全球前三大优先投资目的地，74%的企业认为本行业内外资企业享受同等或更优待遇。
+摩根士丹利分析师指出，投资者对Unity runtime数据的长期增长潜力信心增强。
 
-“中美两国工商界加强合作意愿浓厚，合作成效也十分明显。
+作为Unity的核心差异化优势，runtime数据在测试中展现出显著的增量效益，有望在未来多年推动公司实现超越市场平均水平的增长。
 
-”王冠男介绍，截至4月15日，中国贸促会已审批2026年各有关组展单位赴美举办或参加展览会项目138个，涉及新能源、汽配、自动化及机器人、家庭用品、服装面料等多个行业。
+广告业务方面，Unity正致力于缩小与领先同行的广告转化率差距。
 
-目前已实施项目65个，展出面积达2.46万平方米，1600多家中国企业参展。
+分析师认为，如果Unity能够在这一领域取得进展，其广告收入可能增长四到五倍。
 
-王冠男称，贸促会将按照两国元首重要共识，积极推动前期经贸磋商成果惠及两国工商企业。
+不过，这需要对现有广告模式进行重大且艰难的改进。
 
-包括持续办好中美企业合作对接项目(CMP)。
+创作业务板块表现稳健。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 21:57 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 22:10 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 22:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
-- 2026-06-29 22:06 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-29 22:13 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 21:55 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 22:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 22:01 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
-- 2026-06-29 21:57 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 22:01 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-29 22:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 22:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 22:09 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 22:28 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
+- 2026-06-29 22:25 - [穆祉丞东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 22:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 22:22 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 22:17 - [返利科技盘中上演“天地板”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 22:03 - [运-20网宣片中的“小六”或是六代机](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 22:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-29 22:08 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-29 22:03 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 22:21 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 22:16 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/461705173721.shtml)
-- 2026-06-29 22:05 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/778207469.shtml)
-- 2026-06-29 22:22 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/541714.shtml)
-- 2026-06-29 21:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/85962295.shtml)
-- 2026-06-29 22:19 - [扫黑风暴](http://www.blog.minike.top/Article/details/2274962459.shtml)
-- 2026-06-29 22:10 - [佛得角队长门德斯被控强奸](http://www.share.minike.top/Article/details/675723.shtml)
-- 2026-06-29 22:12 - [扫黑风暴](https://www.share.minike.top/Article/details/83013590.shtml)
-- 2026-06-29 22:15 - [天道](http://www.share.kurohicncr.top/Article/details/751372586346.shtml)
-- 2026-06-29 21:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/6327930025.shtml)
-- 2026-06-29 22:19 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/340958.shtml)
-- 2026-06-29 22:16 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/27325839.shtml)
-- 2026-06-29 22:23 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/44030.shtml)
-- 2026-06-29 22:20 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/861765636.shtml)
-- 2026-06-29 22:13 - [蔚来车主罚站](http://www.share.minike.top/Article/details/604765716.shtml)
-- 2026-06-29 22:17 - [MG总经理直播被冲](https://www.blog.minike.top/Article/details/9831742465.shtml)
+- 2026-06-29 22:28 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/30399876194.shtml)
+- 2026-06-29 22:24 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/434122296.shtml)
+- 2026-06-29 22:10 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/13784.shtml)
+- 2026-06-29 22:06 - [恋与深空制作组回应争议](https://www.blog.minike.top/Article/details/37659.shtml)
+- 2026-06-29 22:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/11648197383.shtml)
+- 2026-06-29 22:10 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/194856.shtml)
+- 2026-06-29 22:10 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/216255.shtml)
+- 2026-06-29 22:27 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/5394311067.shtml)
+- 2026-06-29 22:12 - [炽夏](https://www.blog.minike.top/Article/details/105916.shtml)
+- 2026-06-29 22:16 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/95448591.shtml)
+- 2026-06-29 22:07 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/757509360642.shtml)
+- 2026-06-29 22:09 - [近300亿份用户数据遭收集 国安部提醒](http://www.share.minike.top/Article/details/2995163028.shtml)
+- 2026-06-29 22:30 - [田曦薇 女装牛仔裤](http://www.blog.minike.top/Article/details/29009701.shtml)
+- 2026-06-29 22:24 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/7967699340.shtml)
+- 2026-06-29 22:24 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/19810359.shtml)

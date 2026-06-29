@@ -1,58 +1,54 @@
-# 中方代表：日本加速再军事化值得高度警惕
+# 受暴雨影响 重庆火车站停运列车26趟
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-29日，联合国安理会继续进行27日未完成的“海上领域水道安全与保护”公开辩论。日本代表在发言中炒作东海、南海问题，并就中国国防政策、台海局势等对中国进行指责。对此中国代表当场予以驳斥，并指出日本近期在军事安全领域的一系列危险动向，已经戳穿其所谓“和平国家”和“专守防卫”的自我标榜，值得高度警惕，敦促日本深刻反思侵略历史，切实取信于亚洲邻国和国际社会。中国常驻联合国代表团参赞滕飞
+中新网重庆6月7日电 (张旭 蒋远智)6月7日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，受暴雨天气影响，当日，重庆火车站共计停运列车26趟。 其中，重庆北站15趟、重庆西站6趟、重庆东站5趟，停运列车主要为重庆开往北京、上海松江、宁波、深圳、广州白云、哈尔滨、福州、惠州、秀山、达州等方向的车次。 为有效应对暴雨天气影响，重庆火车站已全面启动防汛安
 
 ## 正文
 
-29日，联合国安理会继续进行27日未完成的“海上领域水道安全与保护”公开辩论。
+中新网重庆6月7日电 (张旭 蒋远智)6月7日，中国铁路成都局集团有限公司重庆车站(以下简称“重庆火车站”)发布消息称，受暴雨天气影响，当日，重庆火车站共计停运列车26趟。
 
-日本代表在发言中炒作东海、南海问题，并就中国国防政策、台海局势等对中国进行指责。
+其中，重庆北站15趟、重庆西站6趟、重庆东站5趟，停运列车主要为重庆开往北京、上海松江、宁波、深圳、广州白云、哈尔滨、福州、惠州、秀山、达州等方向的车次。
 
-对此中国代表当场予以驳斥，并指出日本近期在军事安全领域的一系列危险动向，已经戳穿其所谓“和平国家”和“专守防卫”的自我标榜，值得高度警惕，敦促日本深刻反思侵略历史，切实取信于亚洲邻国和国际社会。
+为有效应对暴雨天气影响，重庆火车站已全面启动防汛安全应急保障工作机制，实时梳理列车运行变动信息，并通过站内公告屏、公示栏及时发布列车晚点、停运通知。
 
-中国常驻联合国代表团参赞滕飞在发言中指出，日本代表在发言中口口声声说要维护航行安全，强调海洋法律秩序的重要性。
+重庆北站、重庆西站、重庆东站等站点同步增设退票改签服务专窗，配备“票务引导专员”，协助旅客通过自助售票设备、12306客户端办理退票、改签等相关业务。
 
-然而，日本首相高市早苗近日公开声称，要以俄乌及中东局势为教训，推进应对新型作战方式，为长期战争做好准备，包括推进海上安保能力。
-
-近期，日本在军事安全领域的一系列危险动向，已经戳穿其所谓“和平国家”和“专守防卫”的自我标榜。
-
-中国常驻联合国代表团参赞 滕飞：日本加速再军事化是事实和现实，有实际的路线和行动。
-
-日本必须反思，是继续任由军国主义遗毒滋长蔓延，还是真诚反思侵略罪行，树立正确历史观，真正取信于亚洲邻国和国际社会。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 22:15 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 22:21 - [锐评白玉兰提名片段](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 22:19 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 21:55 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 21:57 - [委内瑞拉发生余震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 21:57 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 22:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-29 22:19 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 22:21 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-29 22:08 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 21:56 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-29 21:54 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 22:26 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 22:04 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 22:03 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 22:05 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 22:20 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 22:10 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
+- 2026-06-29 22:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 22:15 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-29 22:08 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 22:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
+- 2026-06-29 22:20 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 22:28 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 22:20 - [105岁女红军看到自己长征时的模样](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 22:17 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:58 - [爱很美味](https://www.blog.minike.top/Article/details/606522.shtml)
-- 2026-06-29 22:22 - [回顾世界杯争议事件](https://www.share.kurohicncr.top/Article/details/72536433.shtml)
-- 2026-06-29 22:16 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/595253253521.shtml)
-- 2026-06-29 21:57 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/7844213.shtml)
-- 2026-06-29 22:16 - [宜宾地震造成15人受轻伤](https://www.share.minike.top/Article/details/4486634.shtml)
-- 2026-06-29 22:16 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/461676625234.shtml)
-- 2026-06-29 21:58 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/234155.shtml)
-- 2026-06-29 22:13 - [海力士是全球AI行情的新亚盘风向标吗](https://www.share.minike.top/Article/details/01755391296.shtml)
-- 2026-06-29 22:22 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/81992.shtml)
-- 2026-06-29 22:22 - [让AI做一个账号，它会做成什么样？](https://www.share.kurohicncr.top/Article/details/22273661357.shtml)
-- 2026-06-29 22:21 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/65377.shtml)
-- 2026-06-29 22:17 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/22586.shtml)
-- 2026-06-29 22:19 - [地震来临时铁路工作人员果断拦停列车](https://www.share.kurohicncr.top/Article/details/784075520588.shtml)
-- 2026-06-29 21:57 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/075130.shtml)
-- 2026-06-29 22:09 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/1288797.shtml)
+- 2026-06-29 22:27 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/302470.shtml)
+- 2026-06-29 22:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/20507.shtml)
+- 2026-06-29 22:02 - [东方风云榜直播](https://www.share.minike.top/Article/details/343499853048.shtml)
+- 2026-06-29 22:11 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/3438904.shtml)
+- 2026-06-29 22:10 - [第一炉香](http://www.share.minike.top/Article/details/90299665102.shtml)
+- 2026-06-29 22:07 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/518922670.shtml)
+- 2026-06-29 22:09 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/3880030.shtml)
+- 2026-06-29 22:00 - [孙俪开QQ的蛮好生活](http://www.share.kurohicncr.top/Article/details/15158416484.shtml)
+- 2026-06-29 22:13 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/618032.shtml)
+- 2026-06-29 22:23 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/8684395922.shtml)
+- 2026-06-29 22:06 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/06877.shtml)
+- 2026-06-29 22:21 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/941296.shtml)
+- 2026-06-29 22:24 - [中国小将严子怡再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/7278061.shtml)
+- 2026-06-29 22:29 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/4817218998.shtml)
+- 2026-06-29 22:08 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/077271629.shtml)

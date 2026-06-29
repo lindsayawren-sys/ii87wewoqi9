@@ -1,59 +1,58 @@
-# 德国通胀涨幅低于预期 或许不足以推动欧洲央行本月加息
+# 逆市拉升！920510，30cm涨停
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-德国4月份通胀加速幅度低于预期，这支持了欧洲央行鉴于伊朗战争而推迟加息的理由。 消费者价格在4月份同比上涨2.9%，高于3月份2.8%的升幅，但低于彭博新闻社调查得到的3.1%的预估中值。稍早公布的地区数据显示，包价旅游价格下跌，抵消了燃料和取暖成本上升的影响。 这一结果与西班牙形成对比，后者通胀升幅意外加快至3.5%。法国和意大利的数据将于周四公布，届时还将公布由21个成员国
+【导读】鸡产业、具身智能板块逆市拉升，贵金属板块跌幅居前 中国基金报记者 李智 一起来看下最新的市场情况及资讯。 6月8日早盘，A股三大指数均大幅低开，随后指数震荡回升。截至发稿，沪指跌0.83%，深成指跌1.38%，创业板指跌1.64%，科创综指跌1.20%。 从板块来看，鸡产业、具身智能、石油化工等板块表现相对活跃；而贵金属、发电设备、半导体板块跌幅居前。 港股方面，恒生指
 
 ## 正文
 
-德国4月份通胀加速幅度低于预期，这支持了欧洲央行鉴于伊朗战争而推迟加息的理由。
+【导读】鸡产业、具身智能板块逆市拉升，贵金属板块跌幅居前 中国基金报记者 李智 一起来看下最新的市场情况及资讯。
 
-消费者价格在4月份同比上涨2.9%，高于3月份2.8%的升幅，但低于彭博新闻社调查得到的3.1%的预估中值。
+6月8日早盘，A股三大指数均大幅低开，随后指数震荡回升。
 
-稍早公布的地区数据显示，包价旅游价格下跌，抵消了燃料和取暖成本上升的影响。
+截至发稿，沪指跌0.83%，深成指跌1.38%，创业板指跌1.64%，科创综指跌1.20%。
 
-这一结果与西班牙形成对比，后者通胀升幅意外加快至3.5%。
+从板块来看，鸡产业、具身智能、石油化工等板块表现相对活跃；而贵金属、发电设备、半导体板块跌幅居前。
 
-法国和意大利的数据将于周四公布，届时还将公布由21个成员国组成的欧元区通胀数据，预计将显示通胀率为3%，为2023年以来最快。
+港股方面，恒生指数跌逾1%，恒生科技指数跌超2%。
 
-这份报告不太可能为本周在法兰克福开会的欧洲央行官员提供定论。
+百度集团跌超6%，舜宇光学科技、华虹宏力、商汤等跌幅居前。
 
-届时欧洲央行官员将探讨中东地区两个月的战争是否已对通胀造成足够冲击，从而需要作出货币政策回应。
+鸡产业概念股逆市活跃 养鸡概念股逆市活跃，湘佳股份涨停，晓鸣股份、益生股份、民和股份等跟涨。
 
-尽管从商业调查到价格预期调查等经济指标都在发出谨慎信号，但目前还没有足够确凿的理由促使欧洲央行将存款利率从当前2%的水平上调。
+消息面上，近期很多消费者反映，鸡蛋价格上涨明显。
 
 ## 相关推荐
 
-- 2026-06-29 22:06 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-29 22:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 22:04 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-29 21:56 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 22:11 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcoyo.md)
-- 2026-06-29 22:16 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-29 21:56 - [田曦薇 女装牛仔裤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 21:55 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 22:15 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 21:58 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 22:13 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-29 22:19 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 21:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
+- 2026-06-29 22:24 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 22:23 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 22:11 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 22:13 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 22:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 22:29 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 22:14 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-29 22:03 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-29 22:15 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 22:16 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 22:19 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 22:09 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/6602035.shtml)
-- 2026-06-29 21:58 - [法拉利车主已自行承担修理费近3万](http://www.blog.kurohicncr.top/Article/details/66624169.shtml)
-- 2026-06-29 22:05 - [不烧钱的低成本爱好](https://www.blog.kurohicncr.top/Article/details/429210.shtml)
-- 2026-06-29 22:08 - [多人将马路护栏当球网打羽毛球](http://www.share.kurohicncr.top/Article/details/1121564732.shtml)
-- 2026-06-29 22:09 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/655103.shtml)
-- 2026-06-29 22:08 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/8413344672.shtml)
-- 2026-06-29 22:13 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/02203851.shtml)
-- 2026-06-29 22:04 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/4803744893.shtml)
-- 2026-06-29 22:22 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/2977377813.shtml)
-- 2026-06-29 21:54 - [高质量发展看新疆](https://www.share.kurohicncr.top/Article/details/9576059001.shtml)
-- 2026-06-29 22:07 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/43327691052.shtml)
-- 2026-06-29 21:58 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/63322969.shtml)
-- 2026-06-29 22:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/90731219.shtml)
-- 2026-06-29 22:22 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.share.minike.top/Article/details/9810391.shtml)
-- 2026-06-29 22:06 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/009903.shtml)
+- 2026-06-29 22:20 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/50819.shtml)
+- 2026-06-29 22:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/31906.shtml)
+- 2026-06-29 22:23 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/04892142926.shtml)
+- 2026-06-29 22:05 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/13380.shtml)
+- 2026-06-29 22:10 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/199798348801.shtml)
+- 2026-06-29 22:06 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/89828491.shtml)
+- 2026-06-29 22:19 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/42121505.shtml)
+- 2026-06-29 22:25 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/535213.shtml)
+- 2026-06-29 22:13 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/69085265.shtml)
+- 2026-06-29 22:10 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/3556785444.shtml)
+- 2026-06-29 22:15 - [曝iPhone涨价后不会再降](http://www.share.kurohicncr.top/Article/details/22473171.shtml)
+- 2026-06-29 22:05 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/9699550146.shtml)
+- 2026-06-29 22:00 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/52131.shtml)
+- 2026-06-29 22:09 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/02371.shtml)
+- 2026-06-29 22:30 - [世界杯高票价为何没劝退球迷](https://www.blog.kurohicncr.top/Article/details/477496.shtml)

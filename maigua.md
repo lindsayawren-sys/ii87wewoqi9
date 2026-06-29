@@ -1,59 +1,52 @@
-# 川陕交界发现植物新物种 命名为“大巴山假糙苏”
+# 黑龙江：高考首日多地降雨 多方护航温暖考生
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-近日，记者从四川省林草局获悉，由多所单位组成的研究团队在四川、陕西等地发现了一种未知的唇形科假糙苏属植物，被命名为“大巴山假糙苏”，相关研究成果近日发表于知名植物分类学期刊上。 2024年，由中国科学院昆明植物研究所、重庆三峡医药高等专科学校等多家单位组成的研究团队，在四川省万源市、陕西省宁强县等地发现一种未知的唇形科假糙苏属(Paraphlomis)植物。 经过对该植物形态特
+发布时间：2026年06月07日 13:36 来源：中国新闻网 6月7日，高考大幕拉开，黑龙江气象数据显示，全省大部分地区有阵雨或雷阵雨，当地成为今年气温“凉爽”的考区之一。考场外，有湿透的蓝衬衣，沉甸甸的助威旗，还有手工向日葵、爱心送行车、志愿护考大棚，老师家长们的鼓舞陪伴，相关单位的温情护考。点点善意汇成暖流，在清凉雨幕中守护每一位追梦考生。 哈尔滨市第六中学教师闫新佳表示
 
 ## 正文
 
-近日，记者从四川省林草局获悉，由多所单位组成的研究团队在四川、陕西等地发现了一种未知的唇形科假糙苏属植物，被命名为“大巴山假糙苏”，相关研究成果近日发表于知名植物分类学期刊上。
+发布时间：2026年06月07日 13:36 来源：中国新闻网 6月7日，高考大幕拉开，黑龙江气象数据显示，全省大部分地区有阵雨或雷阵雨，当地成为今年气温“凉爽”的考区之一。
 
-2024年，由中国科学院昆明植物研究所、重庆三峡医药高等专科学校等多家单位组成的研究团队，在四川省万源市、陕西省宁强县等地发现一种未知的唇形科假糙苏属(Paraphlomis)植物。
+考场外，有湿透的蓝衬衣，沉甸甸的助威旗，还有手工向日葵、爱心送行车、志愿护考大棚，老师家长们的鼓舞陪伴，相关单位的温情护考。
 
-经过对该植物形态特征与分子证据的深入研究，研究团队确定其为新物种，并根据其产地信息将其命名为大巴山假糙苏(Paraphlomis dabashanensis)，其相关研究成果近日在知名植物分类学期刊《Taiwania》上发表。
+点点善意汇成暖流，在清凉雨幕中守护每一位追梦考生。
 
-大巴山假糙苏主要生于900—1600米的山地林下。
+哈尔滨市第六中学教师闫新佳表示，每年都会来考场，虽然今年受天气条件限制没有用到条幅，但仍然会坚持给学生们加油，相关部门提前到岗履职，全市各项护考工作部署到位，考场周边秩序井然。
 
-其主要鉴别特征为：茎四棱形，密被或疏被倒向糙伏毛； 叶片背面疏生腺点； 聚伞圆锥花序球形； 小苞片宿存且两面疏生糙伏毛； 花萼外面密被绒毛； 花冠黄色，花冠筒外表面密被短柔毛。
-
-研究团队成员、重庆三峡医药高等专科学校研究员易思荣介绍，大巴山假糙苏的发现，使我国假糙苏属植物增至52种，四川省该属植物增至5种。
-
-从产地信息分析，大巴山假糙苏为我国假糙苏植物的最北分布物种，这一发现不仅丰富了四川省的植物多样性，对开展区域植物适应机制研究具有重要的科学意义。
-
-(总台记者 张力)
+(制作 田德雨） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
-- 2026-06-29 22:16 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 22:03 - [一汽大众黄金超混技术来袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 22:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-29 22:22 - [王冰冰向全网安利哈兰德](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-29 21:57 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 22:03 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-29 22:07 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-29 22:17 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 22:14 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 22:04 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-29 22:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 22:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 22:28 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 22:05 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
+- 2026-06-29 22:08 - [店员光脚踩入盆中清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 22:14 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 22:06 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 22:16 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 22:22 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 22:28 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 22:00 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 22:08 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 22:29 - [6.5万观众40分钟“丝滑”离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 22:22 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/95702320926.shtml)
-- 2026-06-29 22:13 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/532365729.shtml)
-- 2026-06-29 21:58 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/128955750387.shtml)
-- 2026-06-29 22:16 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/97775149.shtml)
-- 2026-06-29 22:15 - [做完数学题 韩国队回家了](https://www.share.minike.top/Article/details/2888496605.shtml)
-- 2026-06-29 22:19 - [月亮](http://www.blog.kurohicncr.top/Article/details/741242179.shtml)
-- 2026-06-29 22:10 - [巴西队主帅称日本队是世界最佳之一](http://www.share.minike.top/Article/details/85837872700.shtml)
-- 2026-06-29 22:15 - [速度与激情9](http://www.blog.minike.top/Article/details/7696623.shtml)
-- 2026-06-29 22:11 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/49413.shtml)
-- 2026-06-29 22:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/535338272.shtml)
-- 2026-06-29 22:06 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/53518589665.shtml)
-- 2026-06-29 22:03 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/34678.shtml)
-- 2026-06-29 22:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/933072690.shtml)
-- 2026-06-29 21:57 - [世界杯高票价为何没劝退球迷](https://www.blog.minike.top/Article/details/0572341909.shtml)
-- 2026-06-29 22:19 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/58491.shtml)
+- 2026-06-29 22:02 - [如何看待乌空军3架米格-29被摧毁](http://www.share.minike.top/Article/details/892130562020.shtml)
+- 2026-06-29 22:13 - [周杰伦千禧年就有小卡了](https://www.share.minike.top/Article/details/53084.shtml)
+- 2026-06-29 22:03 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/1452296961.shtml)
+- 2026-06-29 22:26 - [请回答王牌2019](https://www.share.minike.top/Article/details/035128071831.shtml)
+- 2026-06-29 22:05 - [如何看法国总统候选人称加强与华合作](https://www.share.minike.top/Article/details/55328148.shtml)
+- 2026-06-29 22:29 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/5836594865.shtml)
+- 2026-06-29 22:00 - [莆田仙游一峡谷发生事故5人身亡](https://www.blog.kurohicncr.top/Article/details/77745752148.shtml)
+- 2026-06-29 22:26 - [白玉兰答谢宴合影](http://www.share.kurohicncr.top/Article/details/718277959703.shtml)
+- 2026-06-29 22:14 - [乌克兰发广告全球征兵](http://www.share.kurohicncr.top/Article/details/5567076.shtml)
+- 2026-06-29 22:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/40312094.shtml)
+- 2026-06-29 22:04 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/162518.shtml)
+- 2026-06-29 22:00 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/50967.shtml)
+- 2026-06-29 22:18 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/86307007.shtml)
+- 2026-06-29 22:13 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/11230645.shtml)
+- 2026-06-29 22:12 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/19435359.shtml)

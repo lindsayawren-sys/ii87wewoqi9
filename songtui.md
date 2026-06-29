@@ -1,58 +1,46 @@
-# 北京银行首席信息官明立松：投资科技就是投资未来
+# 视频|杨德龙：美日韩股市大跌导致A股科技股回调 本轮科技牛行情并未结束
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。首席信息官明立松表示，首先，北京银行始终以科技引领发展。面对复杂多变的经济环境和行业竞争压力，北京银行坚定不移地推动数字化转型。我们秉承长期主义理念，持续加大投入，因为我们相信，投资科技就是投资未来。过去几年，北京银行科技投入占营收的比例稳定在 4.5% 以上，科技投入增速达到 22.45%，
+责任编辑：石秀珍 SF183
 
 ## 正文
 
-4月29日金融一线消息，北京银行今日召开2025年年度暨2026年第一季度业绩说明会。
-
-首席信息官明立松表示，首先，北京银行始终以科技引领发展。
-
-面对复杂多变的经济环境和行业竞争压力，北京银行坚定不移地推动数字化转型。
-
-我们秉承长期主义理念，持续加大投入，因为我们相信，投资科技就是投资未来。
-
-过去几年，北京银行科技投入占营收的比例稳定在 4.5% 以上，科技投入增速达到 22.45%，该项指标在同业中保持较高水平。
-
-“资金投入并非短期行为，而是构建未来核心竞争力的坚实基础。
-
-”明立松强调。
-
-明立松还表示，我们坚持投资未来，以人工智能驱动创新发展。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [国际清算银行警告AI投资热潮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 22:18 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 22:21 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 21:55 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 22:09 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 22:14 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-29 22:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 22:02 - [律师解读滚石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 22:20 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 22:04 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
-- 2026-06-29 22:03 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-29 22:19 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 22:08 - [英法德葡存在什么隐患](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 22:11 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:13 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
+- 2026-06-29 22:00 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-29 22:14 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 22:19 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 22:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 22:19 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-29 22:23 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-29 22:07 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-29 22:05 - [哈兰德吃饭被镜中自己吓到](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 22:13 - [东方风云榜直播](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-29 22:15 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 22:19 - [李思潼：不会介意大家夸我运气好](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [袁咏仪张智霖儿子寸头近照](http://www.share.kurohicncr.top/Article/details/03867537.shtml)
-- 2026-06-29 22:20 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.share.kurohicncr.top/Article/details/86852999.shtml)
-- 2026-06-29 21:57 - [105岁女红军看到自己长征时的模样](https://www.blog.kurohicncr.top/Article/details/88516359953.shtml)
-- 2026-06-29 22:06 - [网友晒14年前支教影像等来学生评论](http://www.share.kurohicncr.top/Article/details/207421263852.shtml)
-- 2026-06-29 22:07 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/733400587.shtml)
-- 2026-06-29 21:57 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/91784639.shtml)
-- 2026-06-29 21:56 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/6426232.shtml)
-- 2026-06-29 22:01 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/457663582.shtml)
-- 2026-06-29 22:14 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/79739329.shtml)
-- 2026-06-29 21:59 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/21547196101.shtml)
-- 2026-06-29 22:06 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/008632.shtml)
-- 2026-06-29 22:15 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/28290644.shtml)
-- 2026-06-29 22:11 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/8762099823.shtml)
-- 2026-06-29 22:19 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/04393058471.shtml)
-- 2026-06-29 22:12 - [女子因家庭矛盾辱骂殴打3岁女儿获刑](http://www.share.kurohicncr.top/Article/details/047982192.shtml)
+- 2026-06-29 22:06 - [金鹰奖第二阶段投票明日开启](http://www.blog.kurohicncr.top/Article/details/503220420379.shtml)
+- 2026-06-29 22:01 - [肝不好身体这几处会“说话”](http://www.blog.minike.top/Article/details/831525053.shtml)
+- 2026-06-29 22:20 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/26483.shtml)
+- 2026-06-29 22:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/230011371152.shtml)
+- 2026-06-29 22:20 - [中方在台湾岛以东海域活动合理合法](https://www.blog.minike.top/Article/details/479834.shtml)
+- 2026-06-29 22:05 - [18岁高二体育生训练晕倒后离世](https://www.blog.kurohicncr.top/Article/details/474573057791.shtml)
+- 2026-06-29 22:23 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/7462823.shtml)
+- 2026-06-29 22:14 - [这辈子过得最痛苦的生日...](http://www.blog.kurohicncr.top/Article/details/20140218863.shtml)
+- 2026-06-29 22:24 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/34267006202.shtml)
+- 2026-06-29 22:08 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/403689.shtml)
+- 2026-06-29 22:24 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/893302426561.shtml)
+- 2026-06-29 22:01 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/585958281509.shtml)
+- 2026-06-29 22:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/741180272001.shtml)
+- 2026-06-29 22:15 - [女心理师](https://www.share.kurohicncr.top/Article/details/798918.shtml)
+- 2026-06-29 22:15 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/3576632.shtml)

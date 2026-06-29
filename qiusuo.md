@@ -1,56 +1,51 @@
-# 浙江专家成功实施肝移植术后双心室辅助术 患者恢复良好
+# 外交部：望欧方与中方相向而行推动经贸合作
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网杭州4月29日电(张煜欢)29日，国内首例肝移植术后双心室长期辅助(双人工心)手术患者在浙江大学医学院附属第一医院(下称浙大一院)接受复查，结果显示各项指标正常，康复情况良好。此次手术的成功，为更多终末期心衰患者带来了新生希望，也标志着浙江专家在多学科联合救治终末期心衰患者领域取得重大突破。 患者沈大爷(化名)今年61岁，有扩张型心肌病史多年。2016年，其心室射血分数E
+新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解
 
 ## 正文
 
-中新网杭州4月29日电(张煜欢)29日，国内首例肝移植术后双心室长期辅助(双人工心)手术患者在浙江大学医学院附属第一医院(下称浙大一院)接受复查，结果显示各项指标正常，康复情况良好。
+新华社北京6月8日电(记者马卓言、董雪)就欧盟日前推动相关国家减少所谓“对华依赖”，外交部发言人林剑8日在例行记者会上答问时表示，中方已多次阐明，中欧在产业链供应链上深度交融、相互依存，是经济全球化和市场作用的结果，符合双方企业的利益。
 
-此次手术的成功，为更多终末期心衰患者带来了新生希望，也标志着浙江专家在多学科联合救治终末期心衰患者领域取得重大突破。
+中欧经贸关系不是你输我赢的零和博弈，完全可以相互成就、互利共赢。
 
-患者沈大爷(化名)今年61岁，有扩张型心肌病史多年。
+中方对解决中欧经贸分歧的态度是开放积极的，希望欧方与中方相向而行，通过对话协商解决问题，推动中欧经贸合作更好地造福双方企业与民众。
 
-2016年，其心室射血分数EF值仅为36%，远低于正常成年人50%至70%的水平，被诊断为心功能不全并接受药物治疗。
-
-2022年，沈大爷在体检中查出肝癌，因肿瘤位置特殊，专家建议其进行肝移植。
-
-同年年底，通过国家卫健委COTRS系统分配，沈大爷在浙大一院成功接受肝移植手术，术后恢复良好，回归正常生活。
-
-然而今年2月初，沈大爷因突发晕厥被送医，后出现胸闷、气喘、头晕等症状，转入浙大一院急诊科。
-
-经该院心脏大血管外科医生紧急会诊，确诊其已发展为终末期心衰。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 21:58 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 22:06 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 22:22 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-29 22:20 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
-- 2026-06-29 22:18 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 22:13 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 22:22 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-29 22:13 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-29 21:55 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
-- 2026-06-29 22:02 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 22:22 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-29 22:13 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-29 22:09 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 22:02 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 22:19 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 22:00 - [一人一句祝党生日快乐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 22:16 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 22:21 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 22:03 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 22:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 22:09 - [王鸿薇要求删陆委会百余万特别费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-29 22:17 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 22:07 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/01543600621.shtml)
-- 2026-06-29 21:55 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/37698691.shtml)
-- 2026-06-29 22:19 - [高考结束，该不该外出打工体验？](https://www.blog.minike.top/Article/details/33017.shtml)
-- 2026-06-29 22:08 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/59778706092.shtml)
-- 2026-06-29 22:09 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/5544935364.shtml)
-- 2026-06-29 22:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/093745041.shtml)
-- 2026-06-29 22:01 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.blog.kurohicncr.top/Article/details/380598199.shtml)
-- 2026-06-29 22:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/8056753.shtml)
-- 2026-06-29 22:11 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.minike.top/Article/details/507940.shtml)
-- 2026-06-29 22:20 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.minike.top/Article/details/27395378038.shtml)
-- 2026-06-29 22:18 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/39315319.shtml)
-- 2026-06-29 22:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/4602227309.shtml)
-- 2026-06-29 21:56 - [巴西队主帅称日本队是世界最佳之一](http://www.share.kurohicncr.top/Article/details/66398.shtml)
-- 2026-06-29 22:12 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/2839180.shtml)
-- 2026-06-29 22:13 - [一生一世](http://www.share.kurohicncr.top/Article/details/939653.shtml)
+- 2026-06-29 22:18 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/22669.shtml)
+- 2026-06-29 22:22 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/2537998.shtml)
+- 2026-06-29 22:06 - [一台空调背后的全球化逻辑](https://www.share.kurohicncr.top/Article/details/4754522858.shtml)
+- 2026-06-29 22:21 - [女子健身不当 居然“脑子漏水”了](https://www.share.kurohicncr.top/Article/details/196865601.shtml)
+- 2026-06-29 22:10 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/50428716.shtml)
+- 2026-06-29 22:19 - [第二波数码涨价潮来袭](http://www.blog.kurohicncr.top/Article/details/9566729.shtml)
+- 2026-06-29 22:17 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/011192.shtml)
+- 2026-06-29 22:20 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/934288438983.shtml)
+- 2026-06-29 22:27 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/31202240.shtml)
+- 2026-06-29 22:11 - [卢卡申科发布解放军仪仗队视频](https://www.share.minike.top/Article/details/383208520.shtml)
+- 2026-06-29 22:12 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/265575494347.shtml)
+- 2026-06-29 22:28 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/28747.shtml)
+- 2026-06-29 22:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/50768.shtml)
+- 2026-06-29 22:25 - [习近平会见白俄罗斯总统卢卡申科](https://www.share.kurohicncr.top/Article/details/14336.shtml)
+- 2026-06-29 22:16 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/863774.shtml)

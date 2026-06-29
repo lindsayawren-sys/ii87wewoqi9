@@ -1,51 +1,58 @@
-# 5月7日2时起白云机场T1航站楼航司全部转至T3运营
+# 欧元跌至两个月低位，美国CPI与欧央行决议或定生死
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网广州4月30日电 (记者 郭军)据广州白云机场30日通报，为进一步优化枢纽资源配置，该场将于5月6日至7日启动T1航站楼11家国内航司整体转场至T3航站楼运营，包括：国航、深航、昆明航、山东航、西藏航、海航、首都航、天津航、西部航、乌鲁木齐航、祥鹏航。5月7日2时起上述航司所有进出港航班，全部调整至T3运行，5月6日夜间进港的停场过夜航班将在T3保障。 同时，T1航站楼配
+汇通财经APP讯——周一（6月8日），欧元兑美元低开创近两个月新低至1.1506之后震荡回升，一度收复跌幅，随后汇价在低位震荡运行，当前汇价运行于1.1525附近。受多重利空影响，此前一个交易日欧元兑美元跌幅超0.7%，录得近三个月最大单日跌幅。 德国联邦统计局周一公布的数据显示，德国4月工厂订单环比下降3.8%，不仅结束此前连续改善势头，同时远逊于市场预期的下降1.2%。 另
 
 ## 正文
 
-中新网广州4月30日电 (记者 郭军)据广州白云机场30日通报，为进一步优化枢纽资源配置，该场将于5月6日至7日启动T1航站楼11家国内航司整体转场至T3航站楼运营，包括：国航、深航、昆明航、山东航、西藏航、海航、首都航、天津航、西部航、乌鲁木齐航、祥鹏航。
+汇通财经APP讯——周一（6月8日），欧元兑美元低开创近两个月新低至1.1506之后震荡回升，一度收复跌幅，随后汇价在低位震荡运行，当前汇价运行于1.1525附近。
 
-5月7日2时起上述航司所有进出港航班，全部调整至T3运行，5月6日夜间进港的停场过夜航班将在T3保障。
+受多重利空影响，此前一个交易日欧元兑美元跌幅超0.7%，录得近三个月最大单日跌幅。
 
-同时，T1航站楼配套的P1、P2、P3、P4停车场将进行功能调整，暂停对旅客开放；地铁“机场南(T1航站楼)”和城际列车“白云机场南站(T1航站楼)”5月7日起将采取“载客不停站通过”措施；过渡期内(5月7日-14日)，白云机场将开通跨区取车接驳专线，全天24小时运营，T3专线发车间隔30分钟/班，T2专线按需发车，方便在T2、T3抵达的旅客乘车前往T1各停车场取车。
+德国联邦统计局周一公布的数据显示，德国4月工厂订单环比下降3.8%，不仅结束此前连续改善势头，同时远逊于市场预期的下降1.2%。
 
-(完)
+另一边，美国5月非农就业人数增加17.2万人，远超市场预期的8.5万人，同时前两个月数据合计上修9.3万人。
+
+失业率稳定在4.3%，持平于去年8月以来的最低水平，且远低于5.7%的长期平均值。
+
+年度工资增长率为3.4%，表明虽然劳动力市场带来的通胀压力有所缓解，但对工人的需求依然具有韧性。
+
+交易员目前已经完全定价美联储在年底前加息25个基点，这与几周前的预期形成显著转变。
+
+4月工厂订单意外大幅下滑 德国联邦统计局周一公布的最新数据显示，德国4月工厂订单环比下降3.8%，不仅终结了此前连续两个月改善的势头，同时远逊于市场预期的下降1.2%。
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 21:57 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 22:16 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
-- 2026-06-29 22:01 - [店员光脚踩入盆中清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 22:22 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-29 22:07 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
-- 2026-06-29 22:01 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
-- 2026-06-29 21:58 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 22:06 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-29 22:13 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-29 21:57 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 22:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 22:03 - [孙俪开QQ的蛮好生活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 22:17 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 22:29 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:13 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 22:14 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-29 22:02 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 22:23 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 22:17 - [被中方管控的20家日本实体什么来头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 22:27 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 22:25 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-29 22:00 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-29 22:10 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 22:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/34290325622.shtml)
-- 2026-06-29 22:10 - [穆祉丞躺TFING身上](http://www.blog.minike.top/Article/details/828520149608.shtml)
-- 2026-06-29 21:57 - [委内瑞拉发生余震](https://www.blog.minike.top/Article/details/42102519103.shtml)
-- 2026-06-29 22:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/31682.shtml)
-- 2026-06-29 21:59 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/671591611.shtml)
-- 2026-06-29 22:23 - [返利科技盘中上演“天地板”](https://www.blog.minike.top/Article/details/864243.shtml)
-- 2026-06-29 22:22 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.minike.top/Article/details/734562.shtml)
-- 2026-06-29 22:00 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/04840.shtml)
-- 2026-06-29 22:00 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/77718983236.shtml)
-- 2026-06-29 21:58 - [11岁小孩哥汽修工龄4年](http://www.share.kurohicncr.top/Article/details/144429795.shtml)
-- 2026-06-29 22:10 - [任泽平：AI浪潮刚刚开始](http://www.blog.kurohicncr.top/Article/details/52826.shtml)
-- 2026-06-29 22:22 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/4800071640.shtml)
-- 2026-06-29 22:22 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/8939167500.shtml)
-- 2026-06-29 21:55 - [致敬！中国首批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/194596209.shtml)
-- 2026-06-29 22:00 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/85210402176.shtml)
+- 2026-06-29 22:11 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/72087998.shtml)
+- 2026-06-29 22:28 - [记者乘坐无人驾驶汽车去采访](http://www.share.minike.top/Article/details/7667324.shtml)
+- 2026-06-29 22:12 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/5889161218.shtml)
+- 2026-06-29 22:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/25581521.shtml)
+- 2026-06-29 22:00 - [金牌调解](https://www.blog.minike.top/Article/details/206072139.shtml)
+- 2026-06-29 22:14 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.kurohicncr.top/Article/details/397636960907.shtml)
+- 2026-06-29 22:24 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/62986548575.shtml)
+- 2026-06-29 22:27 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/255168.shtml)
+- 2026-06-29 22:00 - [曝腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/80729145389.shtml)
+- 2026-06-29 22:22 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/11219997.shtml)
+- 2026-06-29 22:09 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/4077752649.shtml)
+- 2026-06-29 22:12 - [美人鱼](https://www.share.kurohicncr.top/Article/details/81761812871.shtml)
+- 2026-06-29 22:28 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/95526191325.shtml)
+- 2026-06-29 22:14 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/429787007740.shtml)
+- 2026-06-29 22:15 - [一生一世](https://www.blog.kurohicncr.top/Article/details/6603297621.shtml)

@@ -1,61 +1,55 @@
-# “两新”政策实施两年撬动投资超1.8万亿 以旧换新惠及4.8亿人次
+# 三星和SK海力士盘前交易下跌10%
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-国家发展改革委昨天表示：“两新”政策实施两年以来，有效拉动投资增长，激发了消费活力。 设备更新累计带动总投资超1.8万亿元 2024年和2025年，国家发展改革委会同有关部门安排超长期特别国债资金支持1.3万余个设备更新项目，累计带动总投资超1.8万亿元。在设备更新政策带动下，重点领域设备更新总量超4800万台(套)，推动有关行业智能化、数字化转型升级。 在改善民生福祉方面，两
+受加息预期升温影响，人工智能相关板块遭遇大举抛售，三星电子与SK海力士在Nextrade盘前交易中跌幅均超10%。三星电子最大跌幅达12%，SK海力士下跌10.5%。上周五，加息预期打压大型科技企业与芯片厂商，美国同类个股收盘大幅走低。英伟达首席执行官黄仁勋周末在韩国会见了SK海力士、NAVER、LG等本土企业高管，并称赞双方合作紧密。责任编辑：王永生
 
 ## 正文
 
-国家发展改革委昨天表示：“两新”政策实施两年以来，有效拉动投资增长，激发了消费活力。
+受加息预期升温影响，人工智能相关板块遭遇大举抛售，三星电子与SK海力士在Nextrade盘前交易中跌幅均超10%。
 
-设备更新累计带动总投资超1.8万亿元 2024年和2025年，国家发展改革委会同有关部门安排超长期特别国债资金支持1.3万余个设备更新项目，累计带动总投资超1.8万亿元。
+三星电子最大跌幅达12%，SK海力士下跌10.5%。
 
-在设备更新政策带动下，重点领域设备更新总量超4800万台(套)，推动有关行业智能化、数字化转型升级。
+上周五，加息预期打压大型科技企业与芯片厂商，美国同类个股收盘大幅走低。
 
-在改善民生福祉方面，两年来，全国报废更新老旧农机约220万台(套)，支持16.7万台住宅老旧电梯更新、90万辆老旧营运货车报废更新、12.7万台(套)新能源城市公交车及动力电池更新，推动消除群众生活和出行安全隐患。
+英伟达首席执行官黄仁勋周末在韩国会见了SK海力士、NAVER、LG等本土企业高管，并称赞双方合作紧密。
 
-消费品以旧换新惠及4.8亿人次 消费品以旧换新广受欢迎。
-
-2024年和2025年，国家发展改革委会同有关部门累计向地方直接安排4500亿元超长期特别国债资金，支持各地实施消费品以旧换新，两年共带动汽车、家电、数码等商品销售额超3.9万亿元，惠及4.8亿人次，有效地激发了消费活力。
-
-两年来，乘用车销量平均增速约4.6%；限额以上家电和影音器材零售额同比增速连续两年保持2位数增长，超六成消费者购买新能源汽车，1级能效家电销售额占比高达90%。
-
-资源循环利用水平持续提升 两年来，全国累计增设社区再生资源智能化回收设施超过2.9万个，供销合作系统新建和改造标准化规范化回收站点超4000个。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 22:13 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-29 22:15 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 21:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 22:01 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
-- 2026-06-29 22:23 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-29 22:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 22:06 - [炽夏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 22:16 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 22:03 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 22:05 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 22:21 - [法拉利车主已自行承担修理费近3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 22:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 22:00 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-29 22:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 22:14 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 22:02 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 22:10 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 22:15 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 22:08 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 22:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 22:20 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 22:06 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 22:24 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 22:24 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 22:12 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 22:06 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 22:17 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-29 22:09 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-29 22:20 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:56 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/373272286.shtml)
-- 2026-06-29 22:02 - [如何看法国总统候选人称加强与华合作](http://www.share.minike.top/Article/details/97095675.shtml)
-- 2026-06-29 22:04 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/118746434404.shtml)
-- 2026-06-29 22:10 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/2873033.shtml)
-- 2026-06-29 22:03 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/63012.shtml)
-- 2026-06-29 21:55 - [国际清算银行警告AI投资热潮](https://www.share.kurohicncr.top/Article/details/9616255118.shtml)
-- 2026-06-29 22:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/50459132812.shtml)
-- 2026-06-29 22:23 - [任泽平：AI浪潮刚刚开始](https://www.blog.kurohicncr.top/Article/details/233582532.shtml)
-- 2026-06-29 22:15 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/315958.shtml)
-- 2026-06-29 22:01 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/05029164183.shtml)
-- 2026-06-29 21:56 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/1078433555.shtml)
-- 2026-06-29 21:54 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/744458516619.shtml)
-- 2026-06-29 22:06 - [吴建豪和老婆差20岁](http://www.blog.minike.top/Article/details/365938505.shtml)
-- 2026-06-29 22:18 - [第二波数码涨价潮来袭](http://www.blog.minike.top/Article/details/358697.shtml)
-- 2026-06-29 22:02 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/609459.shtml)
+- 2026-06-29 22:28 - [爱奇艺抬高国剧新标尺](http://www.share.kurohicncr.top/Article/details/74825642828.shtml)
+- 2026-06-29 22:27 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/9368009805.shtml)
+- 2026-06-29 22:13 - [扫黑风暴](https://www.share.minike.top/Article/details/833422291863.shtml)
+- 2026-06-29 22:00 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/1541518.shtml)
+- 2026-06-29 22:06 - [爱奇艺抬高国剧新标尺](http://www.blog.minike.top/Article/details/771765.shtml)
+- 2026-06-29 22:11 - [穆祉丞东方风云榜红毯](https://www.blog.minike.top/Article/details/2906441.shtml)
+- 2026-06-29 22:19 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/23864.shtml)
+- 2026-06-29 22:20 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/4992753.shtml)
+- 2026-06-29 22:27 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/96137.shtml)
+- 2026-06-29 22:17 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/15985450.shtml)
+- 2026-06-29 22:02 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/3500284.shtml)
+- 2026-06-29 22:01 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/44568.shtml)
+- 2026-06-29 22:08 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/910904.shtml)
+- 2026-06-29 22:28 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/10343580674.shtml)
+- 2026-06-29 22:26 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/6744138886.shtml)

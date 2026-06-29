@@ -1,57 +1,57 @@
-# 香港“最严禁烟令”今起实施：持有电子烟等另类烟最高可判6个月监禁
+# 市长、副市长化身12345接线员
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 07:22 来源：中国新闻网 从4月30日起，香港将禁止任何人在公众场所持有另类吸烟产品，如电子烟、草本烟和加热烟。一旦被查获，最低罚款3000港元，最高可被罚款5万港元及监禁6个月。具体处罚有哪些细则？为什么要制定这样严苛的控烟规定？一条视频解答清楚。(记者 孙悦 温孟馨) 责任编辑：【黄钰涵】
+“您好，我是包头市长孟庆维……”坐在热线电话前，孟庆维一边接听市民打来的电话，一边摊开桌前的纸张，在纸张上记录下市民反映问题的要点。 “没想到，市长的声音那么亲切。”6月3日上午，包头市12345政务服务便民热线受理中心业务主管曹玮智谈及不久前的市长接线活动，依然感触颇深。 “放在桌前的水，只喝了几口，中途一直在不停地接电话，不知不觉一个半小时就过去了。”曹玮智说，问题没有谈完
 
 ## 正文
 
-发布时间：2026年04月30日 07:22 来源：中国新闻网 从4月30日起，香港将禁止任何人在公众场所持有另类吸烟产品，如电子烟、草本烟和加热烟。
+“您好，我是包头市长孟庆维……”坐在热线电话前，孟庆维一边接听市民打来的电话，一边摊开桌前的纸张，在纸张上记录下市民反映问题的要点。
 
-一旦被查获，最低罚款3000港元，最高可被罚款5万港元及监禁6个月。
+“没想到，市长的声音那么亲切。
 
-具体处罚有哪些细则？
+”6月3日上午，包头市12345政务服务便民热线受理中心业务主管曹玮智谈及不久前的市长接线活动，依然感触颇深。
 
-为什么要制定这样严苛的控烟规定？
+“放在桌前的水，只喝了几口，中途一直在不停地接电话，不知不觉一个半小时就过去了。
 
-一条视频解答清楚。
+”曹玮智说，问题没有谈完，市长决定再延时半小时。
 
-(记者 孙悦 温孟馨) 责任编辑：【黄钰涵】
+深耕热线服务工作多年、亲历无数次政务接诉场景的她坦言，此次市长零距离倾听民声、耐心回应诉求的履职画面，让一线热线工作人员深受触动。
+
+作为热线工作者，曹玮智与很多人一样，她很快就感受到了网民热烈的反响，“网友的回应很及时，点赞数不断攀升。
+
+” 包头12345政务服务便民热线前身是2000年开通的市长热线，历经20余年迭代升级，早已成为当地民意收集、诉求处置、政民沟通的核心平台。
 
 ## 相关推荐
 
-- 2026-06-29 22:08 - [如何看法国总统候选人称加强与华合作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-29 21:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 22:12 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
-- 2026-06-29 22:21 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 22:13 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 22:04 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 21:58 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-29 22:19 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 22:13 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 22:04 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-29 22:16 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
-- 2026-06-29 22:18 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 22:23 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-29 21:59 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 22:05 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-29 22:06 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 22:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 22:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 22:22 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 22:23 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 22:18 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 22:13 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-29 22:28 - [福建海警位金门附近海域常态执法巡查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 22:05 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
+- 2026-06-29 22:04 - [让AI做一个账号，它会做成什么样？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 22:18 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/2989817.shtml)
-- 2026-06-29 22:16 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/92029307.shtml)
-- 2026-06-29 22:21 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/8159750335.shtml)
-- 2026-06-29 22:09 - [千与千寻](http://www.share.kurohicncr.top/Article/details/646058936.shtml)
-- 2026-06-29 22:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/39617.shtml)
-- 2026-06-29 22:07 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/2361306.shtml)
-- 2026-06-29 22:23 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/6600603.shtml)
-- 2026-06-29 21:59 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/981426615475.shtml)
-- 2026-06-29 22:18 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/3251450018.shtml)
-- 2026-06-29 22:21 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/7626574089.shtml)
-- 2026-06-29 22:00 - [锐评T1零封KC](http://www.share.minike.top/Article/details/7313814992.shtml)
-- 2026-06-29 22:11 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/2783299.shtml)
-- 2026-06-29 22:19 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/96942214.shtml)
-- 2026-06-29 22:16 - [运-20网宣片中的“小六”或是六代机](http://www.blog.minike.top/Article/details/4522579082.shtml)
-- 2026-06-29 22:21 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/025110482.shtml)
+- 2026-06-29 22:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/127541754.shtml)
+- 2026-06-29 22:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/500199035410.shtml)
+- 2026-06-29 22:29 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/192938329334.shtml)
+- 2026-06-29 22:13 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/9693686.shtml)
+- 2026-06-29 22:06 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/1532974775.shtml)
+- 2026-06-29 22:04 - [长沙菜农公交的人间烟火气](http://www.share.kurohicncr.top/Article/details/02873575.shtml)
+- 2026-06-29 22:22 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/17300.shtml)
+- 2026-06-29 22:01 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/00731030028.shtml)
+- 2026-06-29 22:03 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/518042297.shtml)
+- 2026-06-29 22:19 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/34713.shtml)
+- 2026-06-29 22:04 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/83356.shtml)
+- 2026-06-29 22:23 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/2234139966.shtml)
+- 2026-06-29 22:14 - [俄罗斯为何考虑全面禁止柴油出口](http://www.share.kurohicncr.top/Article/details/723119936.shtml)
+- 2026-06-29 22:09 - [莆田仙游一峡谷发生事故5人身亡](http://www.blog.kurohicncr.top/Article/details/32575898.shtml)
+- 2026-06-29 22:27 - [卢卡申科发布解放军仪仗队视频](http://www.share.minike.top/Article/details/633366.shtml)

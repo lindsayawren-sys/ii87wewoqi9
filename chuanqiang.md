@@ -1,57 +1,59 @@
-# Kruk第一季度净利润增长4%，受益于成本控制和海外回收
+# 供应链巨头怡亚通紧急补发公告，此前发布与英特尔合作消息后股票涨停
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-波兰领先的债务管理公司Kruk周三公布，2026年第一季度净利润同比增长4%，达到2.623亿兹罗提，尽管同期收入有所下滑。 根据公司发布的财报，第一季度收入同比下降2.3%至7.834亿兹罗提。运营利润为3.845亿兹罗提，略低于去年同期的3.934亿兹罗提。然而，净利润的增长主要得益于运营成本的有效控制——不包括折旧和摊销的运营费用下降3%至3.799亿兹罗提，以及现金回收
+6月8日早间，供应链巨头怡亚通（002183.SZ）紧急补发一份《说明公告》，就6月4日怡亚通正式成为英特尔2026解决方案聚合商的消息发布补充说明并做出风险提示，称公司目前与英特尔没有业务合作，公司后续开展分销相关业务仍存在一定的不确定性。 公告称，公司本次获“英特尔2026官方解决方案聚合商”并非独家聚合商。公司业务涉及分销品类较多，预计上述事项占营业收入的影响较小，不会对
 
 ## 正文
 
-波兰领先的债务管理公司Kruk周三公布，2026年第一季度净利润同比增长4%，达到2.623亿兹罗提，尽管同期收入有所下滑。
+6月8日早间，供应链巨头怡亚通（002183.SZ）紧急补发一份《说明公告》，就6月4日怡亚通正式成为英特尔2026解决方案聚合商的消息发布补充说明并做出风险提示，称公司目前与英特尔没有业务合作，公司后续开展分销相关业务仍存在一定的不确定性。
 
-根据公司发布的财报，第一季度收入同比下降2.3%至7.834亿兹罗提。
+公告称，公司本次获“英特尔2026官方解决方案聚合商”并非独家聚合商。
 
-运营利润为3.845亿兹罗提，略低于去年同期的3.934亿兹罗提。
+公司业务涉及分销品类较多，预计上述事项占营业收入的影响较小，不会对公司经营业绩产生重大影响。
 
-然而，净利润的增长主要得益于运营成本的有效控制——不包括折旧和摊销的运营费用下降3%至3.799亿兹罗提，以及现金回收率的持续改善。
+根据公司此前披露的2025年年度报告，公司分销和营销业务收入为572.21亿元，同比减少125.6亿元，同比下滑17.74%，毛利率为4%。
 
-在业务扩张方面，Kruk在第一季度大幅增加了债务组合的投资力度，投资额达到5.13亿兹罗提，同比增长124%。
+此外，国际政治等因素可能影响合作的推进，如地缘政治冲突等可能导致合作暂停或终止。
 
-与此同时，从收购债务组合中获得的现金回收额增长5%至9.71亿兹罗提，其中超过一半来自波兰以外的海外市场。
+敬请广大投资者注意有关风险。
 
-Kruk首席执行官Piotr Krupa在声明中表示：“我们正专注于五个主要欧洲市场的增长，同时完成从较小市场的退出。
+此前，6月4日，怡亚通在其微信公众号发布了一篇《重磅|怡亚通正式成为英特尔2026解决方案聚合商》快讯，主要内容为公司获评“英特尔2026官方解决方案聚合商”，依托合作资质，公司分销英特尔芯片及英特尔体系下OEM、ODM定制成品。
 
-”公司继续在波兰、罗马尼亚、意大利和西班牙等核心市场开展业务。
+消息发布后，6月5日怡亚通股票强势涨停。
 
 ## 相关推荐
 
-- 2026-06-29 22:21 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 22:10 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-29 22:12 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 22:06 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
-- 2026-06-29 22:20 - [爱很美味](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 22:06 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 22:22 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 22:07 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 22:02 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 22:16 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 22:12 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 22:25 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 22:18 - [巴西10号球衣是天才传承史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
+- 2026-06-29 22:28 - [曝腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 22:26 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 22:14 - [上世纪90年代玩具成新宠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 22:13 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 22:05 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 22:18 - [温网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 22:01 - [五只军犬招募领养人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-29 22:27 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 22:03 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 22:16 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-29 22:28 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:02 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/49862814.shtml)
-- 2026-06-29 22:00 - [MG总经理直播被冲](https://www.share.minike.top/Article/details/52863.shtml)
-- 2026-06-29 22:00 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/464004078.shtml)
-- 2026-06-29 21:57 - [天道](http://www.blog.kurohicncr.top/Article/details/3881432.shtml)
-- 2026-06-29 22:19 - [极限挑战第一季](http://www.blog.minike.top/Article/details/6997257.shtml)
-- 2026-06-29 21:54 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/90095.shtml)
-- 2026-06-29 22:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.kurohicncr.top/Article/details/03379.shtml)
-- 2026-06-29 21:54 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/431780.shtml)
-- 2026-06-29 21:56 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/9893069956.shtml)
-- 2026-06-29 21:57 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/3912236574.shtml)
-- 2026-06-29 22:19 - [我和我的家乡](http://www.share.minike.top/Article/details/83687866304.shtml)
-- 2026-06-29 21:57 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/4590162938.shtml)
-- 2026-06-29 22:08 - [锐评白玉兰提名片段](https://www.blog.minike.top/Article/details/882999423.shtml)
-- 2026-06-29 22:00 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/644703466.shtml)
-- 2026-06-29 21:55 - [山东发布山洪灾害气象预警](https://www.share.kurohicncr.top/Article/details/70982142957.shtml)
+- 2026-06-29 22:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/47252.shtml)
+- 2026-06-29 22:04 - [杨德龙：创新药迎来新的发展机遇](https://www.blog.kurohicncr.top/Article/details/64243.shtml)
+- 2026-06-29 22:18 - [男子恶意曲解袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/6801757.shtml)
+- 2026-06-29 22:14 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/4915476242.shtml)
+- 2026-06-29 22:07 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/618320.shtml)
+- 2026-06-29 22:26 - [媒体：日本边磨刀边要货是做梦](https://www.blog.minike.top/Article/details/74448619257.shtml)
+- 2026-06-29 22:27 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/72219483938.shtml)
+- 2026-06-29 22:14 - [委内瑞拉发生余震](http://www.share.kurohicncr.top/Article/details/9169205670.shtml)
+- 2026-06-29 22:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/440736263509.shtml)
+- 2026-06-29 22:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/2757749.shtml)
+- 2026-06-29 22:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/75195673.shtml)
+- 2026-06-29 22:08 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/344903.shtml)
+- 2026-06-29 22:29 - [欧洲旅行 感觉自己是烤箱里的肉](https://www.share.kurohicncr.top/Article/details/7803777578.shtml)
+- 2026-06-29 22:19 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/621352.shtml)
+- 2026-06-29 22:08 - [蓝箭航天科创板IPO审核状态为已问询](https://www.blog.minike.top/Article/details/33237720.shtml)

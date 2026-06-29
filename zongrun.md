@@ -1,55 +1,58 @@
-# 中国首次发布丹麦等三国全球最低税规则国别实施指引
+# 美国银行：英伟达新一代芯片将推动潜在市场规模翻倍
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新社重庆4月29日电 (梁钦卿)中国国家税务总局29日在重庆举办《全球最低税规则国别实施指引》(下称“国别实施指引”)发布活动，首次对外发布丹麦、爱尔兰、阿联酋三国“国别实施指引”，“税路通”跨境税收知识产品体系实现再升级。据了解，“国别实施指引”立足“走出去”企业视角，从立法背景、立法概况、重要条款和征管要求等维度，对全球最低税税收制度规定进行系统归纳梳理，形成便于理解、便
+英伟达首席财务官科莱特·克雷斯在美国银行全球技术会议上的发言中指出，随着新一代芯片的推出，英伟达认为其可触达市场（addressable market，即潜在市场规模 ）有望翻倍。该行在克雷斯发表主题演讲后重申了对这家芯片制造商的“买入”评级及350美元的目标价，该目标价较周四收盘价有60%的上涨空间。 分析师维韦克·阿里亚在报告中写道，英伟达凭借其新创新获得的增长空间十分可观
 
 ## 正文
 
-中新社重庆4月29日电 (梁钦卿)中国国家税务总局29日在重庆举办《全球最低税规则国别实施指引》(下称“国别实施指引”)发布活动，首次对外发布丹麦、爱尔兰、阿联酋三国“国别实施指引”，“税路通”跨境税收知识产品体系实现再升级。
+英伟达首席财务官科莱特·克雷斯在美国银行全球技术会议上的发言中指出，随着新一代芯片的推出，英伟达认为其可触达市场（addressable market，即潜在市场规模 ）有望翻倍。
 
-据了解，“国别实施指引”立足“走出去”企业视角，从立法背景、立法概况、重要条款和征管要求等维度，对全球最低税税收制度规定进行系统归纳梳理，形成便于理解、便于应用的知识产品，帮助企业更准确理解规则要点、更稳妥做好合规管理。
+该行在克雷斯发表主题演讲后重申了对这家芯片制造商的“买入”评级及350美元的目标价，该目标价较周四收盘价有60%的上涨空间。
 
-同时，指引还提供立法文本的原文链接和经济合作与发展组织(OECD)已发布的文件链接，供企业参考学习。
+分析师维韦克·阿里亚在报告中写道，英伟达凭借其新创新获得的增长空间十分可观。
 
-“这是一套权威、系统、操作性强的本土化税务解决方案前瞻指引，为跨国企业全面评估投资环境、科学设计运营架构、系统筑牢合规防线提供了非常重要的参考依据，能够帮助我们深度掌握投资东道国的税务环境，让企业‘走出去’的步伐迈得更加稳健、更加自信。
+他援引英伟达的预测称，每一代新系统都能显著扩大公司的可触达市场：从当前Blackwell Ultra的每吉瓦约400亿美元，到Vera Rubin和Rubin Ultra的每吉瓦600至800亿美元，再到Feynman的每吉瓦约1000亿美元。
 
-”中国电力建设股份有限公司海外事业部财务总监王红霞表示。
+阿里亚指出，尽管具体数字可能存在差异，但英伟达每一代都在覆盖AI系统中更多的环节。
 
-“国别实施指引”的发布，是“税路通”跨境税收服务品牌深化“一国一策”精细化服务的举措，也是中国税务部门主动回应“走出去”企业涉税服务诉求，提升跨境税收服务针对性和有效性的实际行动。
+阿里亚还将英伟达称为“多元化之王”，这得益于其同时为超大规模企业以及日益增长的AI云、工业和企业公司提供服务的混合业务结构。
 
-(完)
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-29 22:02 - [绿营污蔑大陆“海上袭扰”被批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 21:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 21:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-29 22:19 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-29 22:13 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-29 22:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
-- 2026-06-29 22:19 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 22:15 - [如何看法国总统候选人称加强与华合作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 22:05 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 22:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 22:06 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 22:27 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-29 22:08 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 22:04 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 22:10 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 22:22 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 22:27 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-29 22:24 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-29 22:10 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-29 22:25 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 22:11 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 22:11 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-29 22:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-29 22:21 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/34078592679.shtml)
-- 2026-06-29 22:11 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/284214.shtml)
-- 2026-06-29 22:02 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/88534900.shtml)
-- 2026-06-29 22:07 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/19517950.shtml)
-- 2026-06-29 22:00 - [毒液2](http://www.share.kurohicncr.top/Article/details/827758585.shtml)
-- 2026-06-29 21:56 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/33171391.shtml)
-- 2026-06-29 22:09 - [日本在最东端离岛部署导弹发射装置](https://www.blog.minike.top/Article/details/78838841071.shtml)
-- 2026-06-29 21:57 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.minike.top/Article/details/87790.shtml)
-- 2026-06-29 22:18 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/806584042.shtml)
-- 2026-06-29 22:11 - [日本足球能掀翻巴西吗](https://www.share.minike.top/Article/details/17630830.shtml)
-- 2026-06-29 22:04 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/56871469313.shtml)
-- 2026-06-29 22:22 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/629463.shtml)
-- 2026-06-29 22:14 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/6507332.shtml)
-- 2026-06-29 22:17 - [宜宾地震已转移安置225人](https://www.blog.minike.top/Article/details/20240972107.shtml)
-- 2026-06-29 22:17 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/44475.shtml)
+- 2026-06-29 22:20 - [返利科技盘中上演“天地板”](https://www.share.kurohicncr.top/Article/details/3973747772.shtml)
+- 2026-06-29 22:07 - [记者暗访养老机构消防安全](http://www.share.kurohicncr.top/Article/details/8423037510.shtml)
+- 2026-06-29 22:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/749009758.shtml)
+- 2026-06-29 22:24 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/426036481564.shtml)
+- 2026-06-29 22:27 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/80349216.shtml)
+- 2026-06-29 22:00 - [孙俪开QQ的蛮好生活](https://www.blog.kurohicncr.top/Article/details/63772.shtml)
+- 2026-06-29 22:11 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/649183151.shtml)
+- 2026-06-29 22:03 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/935160853177.shtml)
+- 2026-06-29 22:21 - [腾讯与长鑫存储签200亿大单](https://www.blog.minike.top/Article/details/78499317.shtml)
+- 2026-06-29 22:28 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/561428179145.shtml)
+- 2026-06-29 22:25 - [爱很美味](http://www.share.kurohicncr.top/Article/details/0266256613.shtml)
+- 2026-06-29 22:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/77228283.shtml)
+- 2026-06-29 22:03 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/459451019.shtml)
+- 2026-06-29 22:28 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/974728818.shtml)
+- 2026-06-29 22:16 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/04825594.shtml)

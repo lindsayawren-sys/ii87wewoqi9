@@ -1,61 +1,58 @@
-# 主要经营指标“双U型曲线”趋势延续，南京银行：推进“好银行”建设
+# 中国在韩国“超车”日本
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 杨志锦 界面新闻编辑 | 王姝 4月29日，南京银行（601009.SH）召开2025年度暨2026年一季度业绩说明会，南京银行董事长谢宁等高管出席。 财报数据显示，截至一季度末南京银行资产总额达到32，068.85亿元，较年初增长6.12%。在2025年全年营业收入、归母净利润分别增长10.48%、8.08%的基础上，一季度增长势头进一步延续：当季实现营业收
+在汽车工业的版图上，韩国一直是个出了名“挑剔”的市场。本土的“现代-起亚”双雄，常年筑起铜墙铁壁；进口车阵营则被德、美、日系牢牢把持。 但一张最新成绩单，击穿了这套固有格局。 韩国进口汽车协会(KAIDA)近日披露的数据显示，2026年4月份在韩国新注册登记的进口车中，中国产汽车销量一举冲上第三位，史上首次赶超日本产汽车。 韩国消费者对中国车“翘首以盼” 韩国消费者曾经对中国产
 
 ## 正文
 
-界面新闻记者 | 杨志锦 界面新闻编辑 | 王姝 4月29日，南京银行（601009.SH）召开2025年度暨2026年一季度业绩说明会，南京银行董事长谢宁等高管出席。
+在汽车工业的版图上，韩国一直是个出了名“挑剔”的市场。
 
-财报数据显示，截至一季度末南京银行资产总额达到32，068.85亿元，较年初增长6.12%。
+本土的“现代-起亚”双雄，常年筑起铜墙铁壁；进口车阵营则被德、美、日系牢牢把持。
 
-在2025年全年营业收入、归母净利润分别增长10.48%、8.08%的基础上，一季度增长势头进一步延续：当季实现营业收入161.11亿元，同比增长13.54%；实现归属于上市公司股东的净利润66亿元，同比增长8.05%。
+但一张最新成绩单，击穿了这套固有格局。
 
-此次业绩会上，南京银行回应了发展战略、资产质量、金融市场业务等热点问题。
+韩国进口汽车协会(KAIDA)近日披露的数据显示，2026年4月份在韩国新注册登记的进口车中，中国产汽车销量一举冲上第三位，史上首次赶超日本产汽车。
 
-“好银行”应具备三个特点 “过去两年来，南京银行以年均15%左右的总资产增长赢得了10%以上的营收和8%以上的净利润增长。
+韩国消费者对中国车“翘首以盼” 韩国消费者曾经对中国产品有不小的偏见，认为“中国制造”是价格低廉但质量堪忧的代名词。
 
-”谢宁表示。
+但现在，市场认知已然逆转。
 
-谢宁认为，南京银行主要经营指标“双U型曲线”趋势进一步巩固拓展：一方面，营收和净利润的正U型曲线稳步向上，一季度同比分别增长13.54%和8.05%，增速较上年同期分别提升了7个和1个百分点； 与此同时，成本和不良率走出倒U型曲线。
+2025年6月，小鹏汽车完成韩国本土公司落地注册，落子韩国车市；近期，吉利旗下高端电动品牌极氪在首尔江南区开设展厅，正式启动韩国市场布局。
 
-一季度成本收入比同比下降2.9个百分点，一季度末不良贷款率为0.83%，资产质量保持优良水平。
+如今，越来越多的韩国车主把目光投向中国车，甚至在汽车论坛上，已有不少韩国消费者开始对极氪车翘首以盼。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 22:14 - [江语晨 好恨江语晨前夫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 21:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 22:20 - [105岁女红军看到自己长征时的模样](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rutgy.md)
-- 2026-06-29 22:06 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 21:58 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 21:55 - [运20对中国空军的意义是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 22:03 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 21:59 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 21:55 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 22:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-29 22:15 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 21:56 - [美以这对亲密盟友要掰了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-29 22:10 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-29 22:13 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
+- 2026-06-29 22:07 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 22:02 - [爱奇艺抬高国剧新标尺](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 22:22 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 22:12 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-29 22:28 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 22:00 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 22:28 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 22:23 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 22:01 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-29 22:14 - [中外合作办学是“低分捷径”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
+- 2026-06-29 22:28 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 22:13 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://www.share.kurohicncr.top/Article/details/43170032352.shtml)
-- 2026-06-29 22:19 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/98034742631.shtml)
-- 2026-06-29 21:56 - [运20对中国空军的意义是什么](https://www.blog.kurohicncr.top/Article/details/8053938.shtml)
-- 2026-06-29 21:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/836862.shtml)
-- 2026-06-29 22:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/42646240089.shtml)
-- 2026-06-29 22:06 - [店员光脚踩入盆中清洗土豆](http://www.share.minike.top/Article/details/043533475937.shtml)
-- 2026-06-29 22:22 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/726508308.shtml)
-- 2026-06-29 22:10 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/70970.shtml)
-- 2026-06-29 21:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/879760875.shtml)
-- 2026-06-29 22:00 - [恋与深空制作组回应争议](http://www.share.minike.top/Article/details/84822.shtml)
-- 2026-06-29 22:03 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/73333104.shtml)
-- 2026-06-29 21:56 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.blog.kurohicncr.top/Article/details/922560989394.shtml)
-- 2026-06-29 22:16 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/9457992367.shtml)
-- 2026-06-29 22:11 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.minike.top/Article/details/61139402960.shtml)
-- 2026-06-29 21:55 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/34807530.shtml)
+- 2026-06-29 22:23 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/143601816.shtml)
+- 2026-06-29 22:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/570376.shtml)
+- 2026-06-29 22:27 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/7016978955.shtml)
+- 2026-06-29 22:09 - [记者：预计热火将追求小哈达威和康利](http://www.share.minike.top/Article/details/89612.shtml)
+- 2026-06-29 22:07 - [周杰伦千禧年就有小卡了](https://www.blog.minike.top/Article/details/28807161.shtml)
+- 2026-06-29 22:14 - [警方回应两名老人多次到洗车店泼粪](http://www.blog.kurohicncr.top/Article/details/9215478.shtml)
+- 2026-06-29 22:27 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/59349.shtml)
+- 2026-06-29 22:22 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/139291119.shtml)
+- 2026-06-29 22:14 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/210707299276.shtml)
+- 2026-06-29 22:17 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/9583640.shtml)
+- 2026-06-29 22:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/40854220.shtml)
+- 2026-06-29 22:06 - [任泽平：AI浪潮刚刚开始](http://www.share.minike.top/Article/details/83125.shtml)
+- 2026-06-29 22:24 - [一见倾心](http://www.share.kurohicncr.top/Article/details/860338659650.shtml)
+- 2026-06-29 22:00 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/565210017821.shtml)
+- 2026-06-29 22:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.minike.top/Article/details/8992327.shtml)

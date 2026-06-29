@@ -1,54 +1,58 @@
-# 以军称哈马斯军事情报总部作战部门负责人身亡
+# 广西柳州市震后从容迎高考
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。 声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，
+中新网柳州6月7日电 (林馨)6月7日，2026年普通高等学校招生全国统一考试(下称“高考”)开考。广西柳州市2.5万多名考生奔赴考场，提笔逐梦。相关部门全力护航高考平稳有序进行。 5月18日以来，柳州市柳南区发生两次5.2级地震和一系列余震，如今该市已转入灾后防控和恢复重建阶段。 为保障学生顺利参加高考，柳州市考前对全市所有高考考点、校舍、设施设备开展全覆盖安全评估，确认各考
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网柳州6月7日电 (林馨)6月7日，2026年普通高等学校招生全国统一考试(下称“高考”)开考。
 
-新华社耶路撒冷4月29日电（记者王卓伦庞昕熠）以色列国防军与以色列国家安全总局（辛贝特）29日发表联合声明称，双方28日在加沙地带北部发动空袭，打死巴勒斯坦伊斯兰抵抗运动（哈马斯）军事情报总部作战部门负责人伊亚德·艾哈迈德·阿卜杜勒-拉赫曼·尚巴里。
+广西柳州市2.5万多名考生奔赴考场，提笔逐梦。
 
-声明称，尚巴里近年来负责汇总整个加沙地带的作战态势评估，是哈马斯军事情报体系中的关键人物。
+相关部门全力护航高考平稳有序进行。
 
-他长期参与收集以军部队情报，用于制定并实施针对以军的袭击计划，对在该地区行动的以军构成“直接威胁”。
+5月18日以来，柳州市柳南区发生两次5.2级地震和一系列余震，如今该市已转入灾后防控和恢复重建阶段。
 
-此外，他还参与策划了哈马斯在2023年10月7日对以色列发动的大规模袭击。
+为保障学生顺利参加高考，柳州市考前对全市所有高考考点、校舍、设施设备开展全覆盖安全评估，确认各考点建筑结构均安全达标，考试设施设备运行正常。
 
-声明称，以军南方司令部部队目前仍按相关协议部署在该地区，并将继续采取行动，以消除任何“即时威胁”。
+针对地震后部分考生出现的紧张情绪，安排心理教师和班主任对学生及时开展心理疏导，并组织考生开展防震避险知识教育和应急演练。
 
-（完）责任编辑：宋雅芳
+今年柳州市共设6个考区、23个考点、859个考场。
+
+高考首日，柳州市各职能部门齐心协力，联动开展“护航高考”专项行动。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 21:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 22:06 - [高考1357分的同学如何报志愿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-29 22:22 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 22:05 - [国常会听取人工智能发展情况汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-29 22:09 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 22:15 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-29 22:10 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-29 22:16 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 22:19 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-29 22:13 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 22:27 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 22:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 22:22 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 22:25 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 22:29 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 22:21 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 22:00 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 22:19 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 22:05 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 22:00 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 22:20 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/996020.shtml)
-- 2026-06-29 21:54 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/894270.shtml)
-- 2026-06-29 22:22 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/62339484.shtml)
-- 2026-06-29 22:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/22084007.shtml)
-- 2026-06-29 22:08 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/7933320324.shtml)
-- 2026-06-29 22:09 - [电影《抓特务》总票房破亿](https://www.blog.kurohicncr.top/Article/details/77670429723.shtml)
-- 2026-06-29 22:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/684052445.shtml)
-- 2026-06-29 22:07 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/720778.shtml)
-- 2026-06-29 22:19 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/39415337.shtml)
-- 2026-06-29 22:07 - [105岁女红军看到自己长征时的模样](https://www.blog.minike.top/Article/details/47998.shtml)
-- 2026-06-29 22:13 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/34190884689.shtml)
-- 2026-06-29 21:57 - [宜宾地震已转移安置225人](https://www.blog.kurohicncr.top/Article/details/03700927203.shtml)
-- 2026-06-29 22:22 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/486926622.shtml)
-- 2026-06-29 22:16 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/94160107698.shtml)
-- 2026-06-29 22:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/678061482.shtml)
+- 2026-06-29 22:03 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](http://www.share.kurohicncr.top/Article/details/2434206036.shtml)
+- 2026-06-29 22:22 - [斛珠夫人](http://www.blog.minike.top/Article/details/110600554.shtml)
+- 2026-06-29 22:09 - [85花告别古偶](http://www.blog.minike.top/Article/details/36436486064.shtml)
+- 2026-06-29 22:27 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/9535682.shtml)
+- 2026-06-29 22:24 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/326920456.shtml)
+- 2026-06-29 22:01 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/51934646.shtml)
+- 2026-06-29 22:29 - [专家：43℃热浪撕开欧洲环保假象](http://www.share.kurohicncr.top/Article/details/85832521.shtml)
+- 2026-06-29 22:22 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/28794.shtml)
+- 2026-06-29 22:09 - [青春环游记第三季](https://www.blog.minike.top/Article/details/98364151138.shtml)
+- 2026-06-29 22:01 - [恋与深空制作组回应争议](https://www.blog.kurohicncr.top/Article/details/18332335891.shtml)
+- 2026-06-29 22:01 - [王鸿薇要求删陆委会百余万特别费](https://www.share.kurohicncr.top/Article/details/61169.shtml)
+- 2026-06-29 22:10 - [回顾世界杯争议事件](http://www.blog.kurohicncr.top/Article/details/1615796.shtml)
+- 2026-06-29 22:22 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/069543027.shtml)
+- 2026-06-29 22:00 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/6371277400.shtml)
+- 2026-06-29 22:08 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/23533.shtml)

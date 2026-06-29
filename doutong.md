@@ -1,61 +1,58 @@
-# 比亚迪2026年一季报出炉：营收净利短期承压，逆势加码研发
+# 104场精彩比赛！一文详解美加墨世界杯分组、赛程、规则
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月28日，比亚迪股份有限公司（01211.HK / 002594.SZ）正式披露了第一季度财务报告。 报告期内，比亚迪实现营业收入1502.25亿元，较上年同期的1703.60亿元下降11.82%。收入端的收缩直接影响了盈利表现，一季度归属于上市公司股东的净利润为40.85亿元，较去年同期的91.55亿元
+2026年夏天，足球盛宴再度来袭！ 世界杯历史上首次扩军至48支球队 104场精彩对决！横跨39天！ 本文整合分组、赛程、赛制等核心信息 助你轻松解锁这场全球瞩目的体育盛会 赛事概况 2026美加墨世界杯将于北京时间2026年6月12日正式开赛，7月20日落幕，赛事历时39天，涵盖16座举办城市、16座顶级球场，参赛球队从32支扩军至48支，比赛场次从64场增至104场，创下世
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年夏天，足球盛宴再度来袭！
 
-4月28日，比亚迪股份有限公司（01211.HK / 002594.SZ）正式披露了第一季度财务报告。
+世界杯历史上首次扩军至48支球队 104场精彩对决！
 
-报告期内，比亚迪实现营业收入1502.25亿元，较上年同期的1703.60亿元下降11.82%。
+横跨39天！
 
-收入端的收缩直接影响了盈利表现，一季度归属于上市公司股东的净利润为40.85亿元，较去年同期的91.55亿元下滑55.38%；扣非净利润为41.48亿元，同比下降49.24%。
+本文整合分组、赛程、赛制等核心信息 助你轻松解锁这场全球瞩目的体育盛会 赛事概况 2026美加墨世界杯将于北京时间2026年6月12日正式开赛，7月20日落幕，赛事历时39天，涵盖16座举办城市、16座顶级球场，参赛球队从32支扩军至48支，比赛场次从64场增至104场，创下世界杯历史新纪录。
 
-为了抵御市场寒意，比亚迪在成本控制上做出了明显努力，当期营业成本为1219.74亿元，同比下降10.44%。
+值得中国球迷关注的是，约70%的比赛集中在北京时间上午6时至11时进行，无需熬夜就能沉浸式感受绿茵激情。
 
-期间费用也基本稳住了阵脚，销售与管理费用分别控制在58.27亿元和50.83亿元。
+具体分组： 12组48队，豪强云集+黑马可期 北京时间2026年4月1日，美加墨世界杯48支参赛球队全部确定，通过预选赛及附加赛决出的球队分为12个小组，每组4队，具体分组如下(按小组顺序排列)： A组：墨西哥(东道主)、南非、韩国、捷克 B组：加拿大(东道主)、波黑、卡塔尔、瑞士 C组：巴西、摩洛哥、海地、苏格兰 D组：美国(东道主)、巴拉圭、澳大利亚、土耳其 E组：德国、库拉索、科特迪瓦、厄瓜多尔 F组：荷兰、日本、瑞典、突尼斯 G组：比利时、埃及、伊朗、新西兰 H组：西班牙、佛得角、沙特阿拉伯、乌拉圭 I组：法国(上届世界杯亚军)、塞内加尔、伊拉克、挪威 J组：阿根廷(卫冕冠军)、阿尔及利亚、奥地利、约旦 K组：葡萄牙、民主刚果、乌兹别克斯坦、哥伦比亚 L组：英格兰、克罗地亚、加纳、巴拿马 赛制解析： 48队全新玩法，出线规则详解 本届世界杯因
 
-利润空间被大幅挤压，主要源于财务与投资端的双重波动。
+比赛规则遵循传统：胜一场得3分，平一场得1分，负一场得0分。
 
-受本期汇兑损失影响（上年同期为汇兑收益），财务费用从上年同期的净收益19.08亿元转为净支出20.99亿元，变动幅度超过200%。
+出线规则：每个小组的前2名直接晋级淘汰赛(共24队)，此外12个小组中成绩最好的8个小组第三名也将获得淘汰赛资格，合计32支球队进入淘汰赛阶段。
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 22:18 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-29 22:20 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 22:18 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 22:07 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 22:12 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 22:01 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 22:09 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
-- 2026-06-29 21:58 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 22:03 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 22:11 - [周杰伦千禧年就有小卡了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
-- 2026-06-29 22:22 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 21:54 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
-- 2026-06-29 21:59 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
-- 2026-06-29 21:57 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 22:23 - [恋与深空7天掉粉超50万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 22:18 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdngw.md)
+- 2026-06-29 22:22 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-29 22:01 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-29 22:24 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
+- 2026-06-29 22:15 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 22:15 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 22:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 22:30 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 22:28 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 22:15 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 22:23 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/96727.shtml)
-- 2026-06-29 22:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/34920.shtml)
-- 2026-06-29 22:23 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/764747.shtml)
-- 2026-06-29 22:18 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/532358.shtml)
-- 2026-06-29 22:11 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/64036766861.shtml)
-- 2026-06-29 21:56 - [世界杯](https://www.share.kurohicncr.top/Article/details/1615415914.shtml)
-- 2026-06-29 22:12 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/131734268.shtml)
-- 2026-06-29 22:20 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/63267599.shtml)
-- 2026-06-29 22:02 - [韩国的野心是想成“AI革命主导国”吗](https://www.blog.kurohicncr.top/Article/details/93000517677.shtml)
-- 2026-06-29 22:00 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/484063506032.shtml)
-- 2026-06-29 21:54 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/45680561.shtml)
-- 2026-06-29 22:13 - [恋与深空致歉](https://www.blog.kurohicncr.top/Article/details/96795002762.shtml)
-- 2026-06-29 22:15 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/67853950.shtml)
-- 2026-06-29 22:02 - [杨德龙：创新药迎来新的发展机遇](http://www.blog.minike.top/Article/details/991887.shtml)
-- 2026-06-29 21:56 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/63109922576.shtml)
+- 2026-06-29 22:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/522652.shtml)
+- 2026-06-29 22:28 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/506975483.shtml)
+- 2026-06-29 22:14 - [中国猪圈装空调让欧洲网友破防](http://www.blog.kurohicncr.top/Article/details/606134.shtml)
+- 2026-06-29 22:24 - [华工科技龙虎榜数据](https://www.blog.minike.top/Article/details/496944824335.shtml)
+- 2026-06-29 22:01 - [紫雅妈妈抱着女儿衣物崩溃](https://www.blog.kurohicncr.top/Article/details/028652159826.shtml)
+- 2026-06-29 22:05 - [送你一朵小红花](https://www.blog.minike.top/Article/details/77131.shtml)
+- 2026-06-29 22:08 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/3948610.shtml)
+- 2026-06-29 22:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/98057378.shtml)
+- 2026-06-29 22:28 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/207630784.shtml)
+- 2026-06-29 22:18 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/8974962143.shtml)
+- 2026-06-29 22:05 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/214997937.shtml)
+- 2026-06-29 22:01 - [穆祉丞东方风云榜红毯](http://www.blog.kurohicncr.top/Article/details/25459.shtml)
+- 2026-06-29 22:18 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/875276.shtml)
+- 2026-06-29 22:25 - [曾沛慈和老公一起回台湾](https://www.share.minike.top/Article/details/91133.shtml)
+- 2026-06-29 22:21 - [周生如故](https://www.blog.minike.top/Article/details/42351531484.shtml)

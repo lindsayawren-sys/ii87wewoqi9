@@ -1,59 +1,57 @@
-# 面向全省21地市 广东“AI赋能百会千企”地市行启动
+# 今年广东夏季高考考生78.22万人 预计6月25日公布成绩
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网东莞4月30日电 (记者 许青青)由广东省工商联主办的广东省“AI赋能百会千企”地市行首站4月28-29日在东莞正式启动。本次地市行活动将陆续走进全省21个地市，通过政策解读、场景共创、专家陪跑等形式，推动AI资源下沉、精准赋能企业，加快形成“AI+产业”深度融合格局，助力民营经济高质量发展。 据广东省工商联介绍，“AI赋能百会千企”地市行核心在“赋能”、关键在“落地”、
+中新网广州6月7日电 (记者 许青青)广东省2026年普通高考7日顺利开考。据广东省教育考试院党委委员、副院长高雷介绍，今年广东省夏季高考考生共78.22万人，预计6月25日左右公布高考成绩和招生录取分数线。 今年广东普通高考设考点608个、考场2.77万个，安排考务工作人员近10万人。 高考首日，广东各地多部门与社会力量通力协作，以细致入微的服务与严密有序的保障，为考生营造安
 
 ## 正文
 
-中新网东莞4月30日电 (记者 许青青)由广东省工商联主办的广东省“AI赋能百会千企”地市行首站4月28-29日在东莞正式启动。
+中新网广州6月7日电 (记者 许青青)广东省2026年普通高考7日顺利开考。
 
-本次地市行活动将陆续走进全省21个地市，通过政策解读、场景共创、专家陪跑等形式，推动AI资源下沉、精准赋能企业，加快形成“AI+产业”深度融合格局，助力民营经济高质量发展。
+据广东省教育考试院党委委员、副院长高雷介绍，今年广东省夏季高考考生共78.22万人，预计6月25日左右公布高考成绩和招生录取分数线。
 
-据广东省工商联介绍，“AI赋能百会千企”地市行核心在“赋能”、关键在“落地”、目标在“共赢”，通过地市行活动搭建“政产学研用金”协同创新平台，引导民营企业抢抓AI发展风口，将AI深度融入研发、生产、管理、营销全链条，变革生产模式、优化管理效能、提升核心竞争力，让广大民营企业特别是中小企业“懂AI、用得起、用得好”。
+今年广东普通高考设考点608个、考场2.77万个，安排考务工作人员近10万人。
 
-广东省人工智能与机器人产业联盟秘书长张崟在会上宣读地市行宣言时表示，联盟提供四大路径助力企业智能化转型，包括产业智脑提供产业链分析、认知培训改变一把手观念、AI产品工程师精准挖掘场景需求、智能对接促成技术解决方案匹配，最终通过投融资支持项目转化为泛化产品并孵化企业，助力传统企业转型升级，加速AI技术在实体经济中的应用与创新。
+高考首日，广东各地多部门与社会力量通力协作，以细致入微的服务与严密有序的保障，为考生营造安全、平稳、温馨的考试环境。
 
-他建议民营企业要把握AI与实体经济融合趋势，不必全面颠覆，可分步骤拥抱AI，从局部试验开始逐步推广至全工厂，聚焦数据积累、劳动力密集、重复率高易出错环节，实现企业AI转型。
+广州地铁在全市考点周边站点全面启用爱心助考驿站，免费提供全套考试文具、爱心雨伞、应急药箱。
 
-针对全省21地市的不同资源禀赋、不同发展水平的情况，他提出，一地一策的精准AI赋能策略，促进AI与传统产业的深度融合，如AI+文旅、AI+制造等，以实现区域经济的高质量发展。
+考生凭准考证可走绿色通道优先乘车，工作人员在出入口持伞接送、帮助考生通过积水路段。
 
-广东省工商联表示，希望民营企业勇当AI转型“主力军”，主动拥抱智能化转型；各级工商联和商协会当好AI赋能“勤务员”，精准对接资源、培育应用标杆；各方凝聚 AI发展“合力”，优化政策环境，共同打造全球人工智能产业合作首选地和示范区。
+在广州执信中学考点、湛江市第一中学考点，“211985”警号民警护考，与考生击掌送祝福，祝考生们旗开得胜，金榜题名！
 
-会上还发布了《中小制造企业人工智能转型指南》。
+在佛山市顺德区容山中学考点，老师们特意在考场外悬挂“高粽”，寓意“一举高中”；摆上甘蔗，象征“掂过碌蔗”“节节高升”；并贴好“鱼跃龙门”等祝福贴纸。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 21:54 - [浙江进入梅雨最强“攻击时段”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 22:22 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 21:54 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-29 21:56 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-29 22:05 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 22:23 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
-- 2026-06-29 22:23 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-29 21:54 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-29 21:59 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-29 22:10 - [齐思钧回复孙怡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 22:12 - [谁在推动“成都造”影视持续出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 22:13 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 22:29 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 22:06 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
+- 2026-06-29 22:09 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 22:27 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 22:09 - [被裁员后30岁儿子被抓去戒网瘾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 22:16 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 22:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 22:26 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-29 22:02 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-29 22:04 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 22:05 - [曝iPhone涨价后不会再降](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:18 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/2242274.shtml)
-- 2026-06-29 22:02 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/615065.shtml)
-- 2026-06-29 22:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/8640019.shtml)
-- 2026-06-29 22:23 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/5266963874.shtml)
-- 2026-06-29 22:03 - [爱很美味](https://www.blog.minike.top/Article/details/23442.shtml)
-- 2026-06-29 22:08 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/61441840461.shtml)
-- 2026-06-29 22:14 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/337967744663.shtml)
-- 2026-06-29 22:03 - [山东发布山洪灾害气象预警](http://www.blog.kurohicncr.top/Article/details/023772128.shtml)
-- 2026-06-29 21:55 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.kurohicncr.top/Article/details/5962086765.shtml)
-- 2026-06-29 22:06 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/4503079.shtml)
-- 2026-06-29 22:02 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/264012620823.shtml)
-- 2026-06-29 22:14 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/154056059.shtml)
-- 2026-06-29 22:19 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.minike.top/Article/details/61293015872.shtml)
-- 2026-06-29 22:19 - [律师解读滚石唱片要求万豪酒店道歉](http://www.blog.minike.top/Article/details/68406.shtml)
-- 2026-06-29 22:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/5224444536.shtml)
+- 2026-06-29 22:11 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/36966909436.shtml)
+- 2026-06-29 22:06 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/479971992054.shtml)
+- 2026-06-29 22:14 - [青春环游记第三季](https://www.blog.minike.top/Article/details/972687583417.shtml)
+- 2026-06-29 22:18 - [时光音乐会](http://www.blog.kurohicncr.top/Article/details/883377.shtml)
+- 2026-06-29 22:18 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/472334133207.shtml)
+- 2026-06-29 22:01 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/955877670703.shtml)
+- 2026-06-29 22:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/356234761.shtml)
+- 2026-06-29 22:21 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/370436039.shtml)
+- 2026-06-29 22:14 - [东方风云榜直播](http://www.blog.kurohicncr.top/Article/details/0218529060.shtml)
+- 2026-06-29 22:23 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/00365.shtml)
+- 2026-06-29 22:28 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/001792.shtml)
+- 2026-06-29 22:11 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/405170.shtml)
+- 2026-06-29 22:12 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.kurohicncr.top/Article/details/04445.shtml)
+- 2026-06-29 22:21 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/924918952.shtml)
+- 2026-06-29 22:05 - [如何看法国总统候选人称加强与华合作](http://www.blog.kurohicncr.top/Article/details/572608.shtml)

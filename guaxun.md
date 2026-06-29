@@ -1,57 +1,56 @@
-# 谷歌深陷内部反对声浪，仍向员工表态：为与五角大楼AI合作感到自豪
+# 买文创竟然如此“上头”，年轻人为何爱文创？
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-面对数百名员工反对其人工智能技术被用于机密军事行动的合作协议，谷歌向内部员工明确表态，为与美国军方合作感到自豪，并将持续推进相关合作。 Alphabet集团全球事务总裁肯特・沃克于周二在内部备忘录中写道：“自谷歌创立之初，我们便长期与各国国防部门开展合作，并引以为傲。我们始终认为，以审慎、负责任的方式助力国家安全建设至关重要。” 他补充称：“持续与各国政府开展协作，包括国家安全
+买文创竟然如此“上头” 文创“顶流”集合！从国家博物馆最新爆款闹蛾金钗冰箱贴，到南京红山森林动物园网红明星“肚肚”毛绒玩偶，从泡泡玛特LABUBU、奇梦岛WAKUKU等热销潮玩，到游戏《黑神话：悟空》官方衍生品……近日，首届中国新文创市集暨潮玩游园会在北京朝阳公园举办。因为汇集了全国各地万余种优质文创，这里不仅成为业内交流展示产业最新发展成果的舞台，更成为文创爱好者一站式买齐“
 
 ## 正文
 
-面对数百名员工反对其人工智能技术被用于机密军事行动的合作协议，谷歌向内部员工明确表态，为与美国军方合作感到自豪，并将持续推进相关合作。
+买文创竟然如此“上头” 文创“顶流”集合！
 
-Alphabet集团全球事务总裁肯特・沃克于周二在内部备忘录中写道：“自谷歌创立之初，我们便长期与各国国防部门开展合作，并引以为傲。
+从国家博物馆最新爆款闹蛾金钗冰箱贴，到南京红山森林动物园网红明星“肚肚”毛绒玩偶，从泡泡玛特LABUBU、奇梦岛WAKUKU等热销潮玩，到游戏《黑神话：悟空》官方衍生品……近日，首届中国新文创市集暨潮玩游园会在北京朝阳公园举办。
 
-我们始终认为，以审慎、负责任的方式助力国家安全建设至关重要。
+因为汇集了全国各地万余种优质文创，这里不仅成为业内交流展示产业最新发展成果的舞台，更成为文创爱好者一站式买齐“顶流”的乐园。
 
-” 他补充称：“持续与各国政府开展协作，包括国家安全领域的合作，能够让民主国家受益于合规可控的前沿技术。
+从眼花缭乱的各色产品，以及市民游客的热烈响应中不难看出，当前我国文化创意产业正快速发展。
 
-” 谷歌于周一与美国国防部正式签约，授权其AI技术应用于军方机密行动，该协议是一份现有价值2亿美元、为五角大楼提供AI工具合同的延期扩容版本。
+随着创意性、艺术性、文化性、趣味性等要素不断丰富和叠加，文创产品日益成为承载文化基因和满足消费者情绪价值的有效载体，已然是极具新时代特色的大众消费品。
 
-与此同时，AI企业Anthropic正与美国国防部陷入对峙僵局。
+年轻人为何爱文创上午9点多，位于新文创市集主会场的国家博物馆展区门口就排起长队，队列中所有人的目标一致：闹蛾金钗冰箱贴。
 
-这家人工智能初创公司首席执行官达里奥・阿莫迪明确表示，除非美国政府作出保证，禁止将其技术用于大规模国内监控与致命自主武器研发，否则将拒绝签署军方合作协议。
+不久前，国家博物馆“李静训和她的时代”展开展，同步推出以李静训为主题的一系列文创衍生品，其中最受欢迎的就是这款闹蛾金钗冰箱贴。
 
-美方则回应称，企业无权干涉国家政策，并已着手终止Anthropic所有政府合作订单。
+“它不仅是一款立体冰箱贴，还可以插在头上当首饰，上面的小蛾也能取下来当胸针。
 
 ## 相关推荐
 
-- 2026-06-29 21:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-29 22:00 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 22:03 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 22:06 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
-- 2026-06-29 22:07 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 22:02 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 21:56 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 22:24 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-29 22:14 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 21:54 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 21:57 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-29 22:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 22:26 - [MG总经理直播被冲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 22:13 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 22:09 - [金鹰奖第二阶段投票明日开启](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 22:04 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-29 22:16 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 22:13 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 22:14 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 22:02 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-29 22:09 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:19 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/093329.shtml)
-- 2026-06-29 21:56 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/136448386.shtml)
-- 2026-06-29 22:10 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/675520117252.shtml)
-- 2026-06-29 22:09 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/2453785340.shtml)
-- 2026-06-29 22:04 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/243494469030.shtml)
-- 2026-06-29 22:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/349409892.shtml)
-- 2026-06-29 21:54 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/76410319889.shtml)
-- 2026-06-29 22:08 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/32286850.shtml)
-- 2026-06-29 22:19 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/031392191106.shtml)
-- 2026-06-29 22:12 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/93416.shtml)
-- 2026-06-29 22:13 - [浪姐成团夜爆笑吐槽](http://www.blog.kurohicncr.top/Article/details/12854.shtml)
-- 2026-06-29 22:01 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/40765.shtml)
-- 2026-06-29 22:10 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/058788.shtml)
-- 2026-06-29 22:16 - [“坟爷”林耀昌旧案追诉案一审宣判](https://www.share.minike.top/Article/details/1041797.shtml)
-- 2026-06-29 22:18 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/17901477837.shtml)
+- 2026-06-29 22:22 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/183371714655.shtml)
+- 2026-06-29 22:06 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/6655789.shtml)
+- 2026-06-29 22:17 - [沙丘](https://www.share.minike.top/Article/details/26723.shtml)
+- 2026-06-29 22:06 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/343904355.shtml)
+- 2026-06-29 22:05 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/528028056819.shtml)
+- 2026-06-29 22:22 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/9007332.shtml)
+- 2026-06-29 22:07 - [国常会听取人工智能发展情况汇报](https://www.share.kurohicncr.top/Article/details/586939.shtml)
+- 2026-06-29 22:22 - [啊啊啊](https://www.share.minike.top/Article/details/388978.shtml)
+- 2026-06-29 22:20 - [MG总经理直播被冲](http://www.blog.kurohicncr.top/Article/details/96091073007.shtml)
+- 2026-06-29 22:13 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/5201242.shtml)
+- 2026-06-29 22:15 - [中国气象局启动气象灾害四级应急响应](https://www.blog.minike.top/Article/details/6477848.shtml)
+- 2026-06-29 22:05 - [这一刀 会很帅](https://www.blog.kurohicncr.top/Article/details/57122775.shtml)
+- 2026-06-29 22:19 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/47439391.shtml)
+- 2026-06-29 22:28 - [肝不好身体这几处会“说话”](http://www.share.kurohicncr.top/Article/details/992363061.shtml)
+- 2026-06-29 22:22 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/14440.shtml)

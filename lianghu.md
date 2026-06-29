@@ -1,57 +1,57 @@
-# 首批落地！195只基金公告调整业绩基准，权益、指数、FOF都来了
+# 广州新增脑机接口技术研究和临床转化平台
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 杜萌 韩理 在《公募高质量发展行动方案》即将落地一周年之际，4月30日，首批195只公募基金一起公告，将于今年6月1日调整业绩比较基准。 195只拟调整业绩比较基准的基金主要集中在头部公募公司和以主动权益为主的中型公募公司，包括易方达基金（21只）、华夏基金（21只）、富国基金（23只）、南方基金（25只）、招商基金（21只），还有大成基金（17只）、天弘基金
+中新网广州6月5日电 (记者 蔡敏婕)广州新增脑机接口技术研究和临床转化平台。广州市红十字会医院与中国科学院工业人工智能研究所共建的智能感知与脑交互实验室5日在广州揭牌，面向康复临床需求，聚焦脑机接口治疗睡眠障碍、认知障碍、运动障碍三大核心方向，推进沉浸式智能感知脑机接口装备研发与临床转化。近年来，随着神经信号处理、生物兼容材料、人工智能等技术接连取得突破，脑机接口走向临床应用
 
 ## 正文
 
-界面新闻记者 | 杜萌 韩理 在《公募高质量发展行动方案》即将落地一周年之际，4月30日，首批195只公募基金一起公告，将于今年6月1日调整业绩比较基准。
+中新网广州6月5日电 (记者 蔡敏婕)广州新增脑机接口技术研究和临床转化平台。
 
-195只拟调整业绩比较基准的基金主要集中在头部公募公司和以主动权益为主的中型公募公司，包括易方达基金（21只）、华夏基金（21只）、富国基金（23只）、南方基金（25只）、招商基金（21只），还有大成基金（17只）、天弘基金（16只）、华商基金（12只）、兴证全球基金（12只），海富通基金（12只）等。
+广州市红十字会医院与中国科学院工业人工智能研究所共建的智能感知与脑交互实验室5日在广州揭牌，面向康复临床需求，聚焦脑机接口治疗睡眠障碍、认知障碍、运动障碍三大核心方向，推进沉浸式智能感知脑机接口装备研发与临床转化。
 
-界面新闻记者查看195只基金名单后发现，此次拟调整业绩比较基准的产品类型多样，涵盖了主动权益基金、QDII基金、养老目标FOF、债券基金等多个基金产品类型。
+近年来，随着神经信号处理、生物兼容材料、人工智能等技术接连取得突破，脑机接口走向临床应用，给许多患者的治疗与康复带来新希望。
 
-多数产品规模偏小、市场知名度偏低，在业绩基准调整幅度上也较为有限。
+当前，脑机接口已成为中国未来产业重点布局赛道，多地已形成差异化、规模化发展格局，产业集群效应持续凸显。
 
-以较为知名的睿远成长价值为例，该基金的业绩比较基准只是进行了微调。
+京津冀地区发力医疗康复、工业、教育等多场景规模化落地；长三角地区依托上海产业集聚优势，打造脑机接口未来产业集聚区。
 
-原业绩比较基准为中证800指数收益率*60%+中证港股通综合指数收益率*20%+上证国债指数收益率*20%，调整后改为中证800指数收益率*55%+中证港股通综合指数（人民币）收益 率*35%+上证国债指数收益率 *5%+活期存款基准利率*5%。
+粤港澳大湾区内地城市前瞻布局类脑智能，加快脑科学和脑机接口等技术的突破和产业化。
 
-也有一些基金增加了新的指数作为业绩比较基准的主要权重。
+与此同时，湖北武汉依托高校与科研院所资源打造脑科学产业基地；四川明确脑机接口医疗服务项目及价格，为技术临床落地提供标准支撑。
 
-以睿远均衡价值三年持有为例，此前的业绩比较基准为沪深300指数收益率*60%+中证港股通综合指数收益率*20%+上证国债指数收益率*20%，调整后新增了中债-新综合财富（总值）指数，变为沪深300指数收益率*17%+中证港股通综合指数（人民币）收益率*15%+中债-新综合财富（总值）指数收益率*68%。
+广州市红十字会医院康复医学科副主任牟志伟表示，内地脑机接口技术已完成初步迭代，其中，侵入式脑机接口技术已实现突破性临床尝试，可通过植入式设备帮助瘫痪患者恢复行走能力，为现代医学难以攻克的运动功能障碍难题提供解决方案，但距离规模化临床应用仍有较长路径。
 
 ## 相关推荐
 
-- 2026-06-29 22:20 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 22:04 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-29 21:59 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 22:14 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
-- 2026-06-29 22:06 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-29 22:21 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 22:23 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-29 21:59 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 21:59 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-29 22:22 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 22:08 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 22:13 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 22:19 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 22:01 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 22:27 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 22:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 22:13 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 22:27 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
+- 2026-06-29 22:17 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 22:03 - [宜宾地震已转移安置225人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 22:05 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 22:17 - [佛得角队长门德斯被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:17 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/0927618.shtml)
-- 2026-06-29 22:21 - [记者：预计热火将追求小哈达威和康利](https://www.share.kurohicncr.top/Article/details/9049839338.shtml)
-- 2026-06-29 22:00 - [夫妻生活太无聊，所以我……](http://www.share.kurohicncr.top/Article/details/9267318.shtml)
-- 2026-06-29 21:56 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/837864721778.shtml)
-- 2026-06-29 21:57 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/5145615.shtml)
-- 2026-06-29 22:08 - [金鹰奖第二阶段投票明日开启](http://www.share.kurohicncr.top/Article/details/340693748.shtml)
-- 2026-06-29 21:58 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/7040244120.shtml)
-- 2026-06-29 22:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/838961612448.shtml)
-- 2026-06-29 21:56 - [一人一句祝党生日快乐](http://www.blog.kurohicncr.top/Article/details/218928266.shtml)
-- 2026-06-29 22:00 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/037686549.shtml)
-- 2026-06-29 22:14 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/065025576295.shtml)
-- 2026-06-29 22:11 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/90980469212.shtml)
-- 2026-06-29 22:04 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/2627731.shtml)
-- 2026-06-29 22:17 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/5144777608.shtml)
-- 2026-06-29 22:20 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/612679.shtml)
+- 2026-06-29 22:11 - [乌克兰发广告全球征兵](http://www.blog.kurohicncr.top/Article/details/683250138.shtml)
+- 2026-06-29 22:22 - [运20对中国空军的意义是什么](http://www.blog.minike.top/Article/details/0505675872.shtml)
+- 2026-06-29 22:10 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/693669039203.shtml)
+- 2026-06-29 22:01 - [山东发布山洪灾害气象预警](https://www.share.minike.top/Article/details/29567106859.shtml)
+- 2026-06-29 22:21 - [网友晒14年前支教影像等来学生评论](http://www.share.minike.top/Article/details/4536090.shtml)
+- 2026-06-29 22:19 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.kurohicncr.top/Article/details/894509.shtml)
+- 2026-06-29 22:19 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/326518.shtml)
+- 2026-06-29 22:01 - [月亮](https://www.blog.kurohicncr.top/Article/details/2121992.shtml)
+- 2026-06-29 22:25 - [流金岁月](http://www.blog.minike.top/Article/details/27892.shtml)
+- 2026-06-29 22:25 - [未来五年，教育强国这样建设](http://www.share.kurohicncr.top/Article/details/8321202057.shtml)
+- 2026-06-29 22:03 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/6250610519.shtml)
+- 2026-06-29 22:16 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.kurohicncr.top/Article/details/58953242.shtml)
+- 2026-06-29 22:22 - [田曦薇 女装牛仔裤](https://www.blog.kurohicncr.top/Article/details/152743053.shtml)
+- 2026-06-29 22:20 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/2675051.shtml)
+- 2026-06-29 22:29 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/168369842007.shtml)

@@ -1,61 +1,48 @@
-# “宁水贷”正式发布：用水权变“硬通货” 首批4家企业获授信5.5亿元
+# 英国首相斯塔默斥资5.33亿美元投资人工智能芯片 支持“主权计算”
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网银川4月30日电 (记者 于晶)4月30日，由宁夏回族自治区党委金融办、水利厅与农业银行宁夏分行联合推出的“宁水贷”特色金融产品正式发布。该产品突破传统抵押模式，将用水权价值、节水成效等纳入银行授信依据，实现“水权变信贷”。首批4家涉水企业累计获得专项授信5.5亿元。“宁水贷”是宁夏深化“四水四定”、推进用水权改革的重要突破。产品创新建立两种融资模式：“水权+信用”增信模
+英国首相基尔·斯塔默周一宣布了一项旨在发展自主计算能力的新战略，承诺投入约4亿英镑（5.33亿美元）用于采购专用人工智能芯片，并支持本土初创企业。 “我们将利用公共采购的力量来支持英国的创新精神，”斯塔默周一在伦敦科技周大会上的演讲中表示。责任编辑：刘明亮
 
 ## 正文
 
-中新网银川4月30日电 (记者 于晶)4月30日，由宁夏回族自治区党委金融办、水利厅与农业银行宁夏分行联合推出的“宁水贷”特色金融产品正式发布。
+英国首相基尔·斯塔默周一宣布了一项旨在发展自主计算能力的新战略，承诺投入约4亿英镑（5.33亿美元）用于采购专用人工智能芯片，并支持本土初创企业。
 
-该产品突破传统抵押模式，将用水权价值、节水成效等纳入银行授信依据，实现“水权变信贷”。
+“我们将利用公共采购的力量来支持英国的创新精神，”斯塔默周一在伦敦科技周大会上的演讲中表示。
 
-首批4家涉水企业累计获得专项授信5.5亿元。
-
-“宁水贷”是宁夏深化“四水四定”、推进用水权改革的重要突破。
-
-产品创新建立两种融资模式：“水权+信用”增信模式，以用水权评估价值为基数，叠加信用评价、节水成效等指标，优质主体融资额度最高可放大8倍，实现无抵押纯信用贷款；“用水权抵押+”组合担保模式，以用水权抵押为基础，可叠加其他担保方式，抵押率最高可达评估价值的75%，为信用一般企业提供多元融资渠道。
-
-产品还为涉水经营主体配套提供额度优先、期限灵活、利率优惠、担保多元、审批高效、成本压降的一揽子金融优惠政策。
-
-签约现场，国能宁夏鸳鸯湖第二发电有限公司、宁夏宁东水务有限公司、宁夏全等4家企业获首批授信。
-
-宁夏塞尚乳业有限公司相关负责人介绍，企业凭借30万立方米用水权和A级信用等级，通过“水权+信用”模式获得农行5000万元授信，全程无需固定资产抵押，“为企业长期投资吃下了‘定心丸’”。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 22:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-29 22:05 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
-- 2026-06-29 22:01 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 22:03 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
-- 2026-06-29 22:16 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 22:11 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
-- 2026-06-29 22:17 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 22:13 - [田曦薇 女装牛仔裤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-29 22:10 - [6.5万观众40分钟“丝滑”离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-29 21:54 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-29 22:20 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 22:15 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
-- 2026-06-29 21:58 - [不烧钱的低成本爱好](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 22:02 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
-- 2026-06-29 22:10 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
+- 2026-06-29 22:12 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 22:01 - [杨德龙：创新药迎来新的发展机遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-29 22:29 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 22:13 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 22:16 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 22:14 - [《恋与深空》回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 22:18 - [记者暗访养老机构消防安全](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-29 22:13 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 22:28 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 22:22 - [巴西队主帅称日本队是世界最佳之一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 22:04 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 22:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:09 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/647883.shtml)
-- 2026-06-29 22:11 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/643641575.shtml)
-- 2026-06-29 22:10 - [朱雀三号完成静态点火试验](http://www.share.minike.top/Article/details/7409964.shtml)
-- 2026-06-29 22:01 - [温网](http://www.blog.minike.top/Article/details/53053899.shtml)
-- 2026-06-29 22:19 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/262519.shtml)
-- 2026-06-29 22:10 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/344659790465.shtml)
-- 2026-06-29 22:00 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/76092987859.shtml)
-- 2026-06-29 22:18 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.minike.top/Article/details/96102259842.shtml)
-- 2026-06-29 22:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/04149.shtml)
-- 2026-06-29 22:00 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/20280566558.shtml)
-- 2026-06-29 22:04 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.minike.top/Article/details/999730.shtml)
-- 2026-06-29 21:56 - [存储三巨头被告了](http://www.blog.minike.top/Article/details/498303.shtml)
-- 2026-06-29 21:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/712561545.shtml)
-- 2026-06-29 22:12 - [记者：预计热火将追求小哈达威和康利](http://www.blog.kurohicncr.top/Article/details/5942522933.shtml)
-- 2026-06-29 22:03 - [律师解读滚石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/7858187618.shtml)
+- 2026-06-29 22:04 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/04699.shtml)
+- 2026-06-29 22:07 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/872179.shtml)
+- 2026-06-29 22:02 - [国常会听取人工智能发展情况汇报](https://www.blog.minike.top/Article/details/62773069638.shtml)
+- 2026-06-29 22:28 - [恋与深空致歉](http://www.blog.minike.top/Article/details/491632758.shtml)
+- 2026-06-29 22:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/948463810.shtml)
+- 2026-06-29 22:24 - [电动车主等红灯遭三轮车上横杆砸头](https://www.share.kurohicncr.top/Article/details/6726070.shtml)
+- 2026-06-29 22:26 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/8116643.shtml)
+- 2026-06-29 22:15 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/880021.shtml)
+- 2026-06-29 22:16 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/9530902.shtml)
+- 2026-06-29 22:22 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/33443.shtml)
+- 2026-06-29 22:21 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/7665104.shtml)
+- 2026-06-29 22:12 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/76347715725.shtml)
+- 2026-06-29 22:17 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/98684190.shtml)
+- 2026-06-29 22:13 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/611932081.shtml)
+- 2026-06-29 22:26 - [宜宾地震已转移安置225人](http://www.share.kurohicncr.top/Article/details/43362021.shtml)

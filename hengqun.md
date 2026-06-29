@@ -1,56 +1,61 @@
-# 康众医疗急转控股并购：高溢价、高负债、高对赌，标的连亏两年成色堪忧
+# 预测市场数据显示，美联储年内加息概率大幅飙升
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-近期，科创板上市公司康众医疗在短短两个月内，将对脉得智能科技（无锡）有限公司（以下简称“脉得智能”）的投资方案从“参股”升级为“控股”，引发市场广泛关注。 表面看，这是公司从财务投资转向战略控股、布局AI超声领域的积极信号。但细究交易结构、标的财务数据及收购方自身经营状况，多重风险已悄然浮出水面。 一、两个月“变脸”：从7000万参股到7.5亿控股，杠杆收购压力骤增 2026年
+在预测交易平台Kalshi上，美联储年内加息的概率上周从 25.3% 骤升至 52%。 此前美国劳工统计局周五发布就业数据，美国非农新增就业 17.2 万人，大幅超出道琼斯调查预期的 8 万人。受此影响，Kalshi 平台上美联储在 2027 年 7 月前加息的概率，一周内也从 54% 上行至 65%。 美联储加息，即美联储通过上调基准利率防范经济过热。受非农就业数据大幅超预期
 
 ## 正文
 
-近期，科创板上市公司康众医疗在短短两个月内，将对脉得智能科技（无锡）有限公司（以下简称“脉得智能”）的投资方案从“参股”升级为“控股”，引发市场广泛关注。
+在预测交易平台Kalshi上，美联储年内加息的概率上周从 25.3% 骤升至 52%。
 
-表面看，这是公司从财务投资转向战略控股、布局AI超声领域的积极信号。
+此前美国劳工统计局周五发布就业数据，美国非农新增就业 17.2 万人，大幅超出道琼斯调查预期的 8 万人。
 
-但细究交易结构、标的财务数据及收购方自身经营状况，多重风险已悄然浮出水面。
+受此影响，Kalshi 平台上美联储在 2027 年 7 月前加息的概率，一周内也从 54% 上行至 65%。
 
-一、两个月“变脸”：从7000万参股到7.5亿控股，杠杆收购压力骤增 2026年2月，康众医疗以7000万元增资参股脉得智能，对应估值约9.5亿元。
+美联储加息，即美联储通过上调基准利率防范经济过热。
 
-两个月后，公司宣布以7.5亿元整体估值收购控股权，投资额骤增。
+受非农就业数据大幅超预期、4 月核心通胀同比升至 3.3% 双重因素影响，经济学家普遍预判美联储加息渐行渐近。
 
-更为关键的是，本次交易约70%资金来自银行并购贷款，仅30%为自有资金。
+前美联储副主席罗杰・弗格森在电视节目中表示：“今年美联储大概率落地一次加息，此举具备充分依据，当前通胀具备较强粘性、回落困难。
 
-这意味着，康众医疗将承担大规模有息负债，每年新增财务费用将直接侵蚀利润。
+” 芝商所美联储利率观察工具数据显示，市场定价年内加息概率达到 50%。
 
-公司自身已在2025年陷入亏损，此举无疑加剧了财务脆弱性。
+但另有部分经济学家认为，美联储现阶段会按兵不动。
 
 ## 相关推荐
 
-- 2026-06-29 22:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-29 22:22 - [追觅称质量不行终身包修也没意义](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 22:14 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 22:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 22:15 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 22:19 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 22:22 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-29 22:09 - [孙俪开QQ的蛮好生活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 22:14 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
-- 2026-06-29 22:24 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 22:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-29 22:19 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 22:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-29 22:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 22:01 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 22:27 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-29 22:24 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 22:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 22:11 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-29 22:12 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-29 22:05 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
+- 2026-06-29 22:01 - [炽夏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 22:01 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 22:16 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 22:16 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:07 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/80538.shtml)
-- 2026-06-29 21:57 - [地震来临时铁路工作人员果断拦停列车](http://www.share.minike.top/Article/details/66334155912.shtml)
-- 2026-06-29 22:00 - [小龙女配音去世 李若彤发文悼念](https://www.share.minike.top/Article/details/18996649.shtml)
-- 2026-06-29 22:08 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/6025365.shtml)
-- 2026-06-29 22:14 - [多人将马路护栏当球网打羽毛球](https://www.blog.minike.top/Article/details/3313892.shtml)
-- 2026-06-29 21:55 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/1607258566.shtml)
-- 2026-06-29 22:16 - [东方风云榜](http://www.share.minike.top/Article/details/885835.shtml)
-- 2026-06-29 21:57 - [男子称在京东买到“同仁堂”假药](https://www.share.kurohicncr.top/Article/details/209343.shtml)
-- 2026-06-29 22:05 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/788080031609.shtml)
-- 2026-06-29 22:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/65560366.shtml)
-- 2026-06-29 22:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/05147.shtml)
-- 2026-06-29 22:01 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/5997398242.shtml)
-- 2026-06-29 21:56 - [海力士是全球AI行情的新亚盘风向标吗](https://www.blog.minike.top/Article/details/52723450.shtml)
-- 2026-06-29 22:07 - [世界杯疑现假球 FIFA被呼吁调查](http://www.share.kurohicncr.top/Article/details/98511237.shtml)
-- 2026-06-29 22:21 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/60937754.shtml)
+- 2026-06-29 22:25 - [扫黑风暴](https://www.share.minike.top/Article/details/733685963.shtml)
+- 2026-06-29 22:08 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/41053849.shtml)
+- 2026-06-29 22:02 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/18161136412.shtml)
+- 2026-06-29 22:07 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/722130.shtml)
+- 2026-06-29 22:21 - [请回答王牌2019](http://www.share.minike.top/Article/details/099628649.shtml)
+- 2026-06-29 22:24 - [明星大侦探第一季](http://www.share.minike.top/Article/details/11368521.shtml)
+- 2026-06-29 22:25 - [恋与深空致歉](http://www.share.minike.top/Article/details/78586372.shtml)
+- 2026-06-29 22:28 - [逃狱兄弟](https://www.blog.minike.top/Article/details/7767744454.shtml)
+- 2026-06-29 22:02 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/37477.shtml)
+- 2026-06-29 22:11 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](http://www.share.kurohicncr.top/Article/details/0758886624.shtml)
+- 2026-06-29 22:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/7825280.shtml)
+- 2026-06-29 22:20 - [上世纪90年代玩具成新宠](http://www.blog.kurohicncr.top/Article/details/520236275778.shtml)
+- 2026-06-29 22:15 - [天气热脾气都变差了](https://www.blog.kurohicncr.top/Article/details/933969779782.shtml)
+- 2026-06-29 22:20 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/556630983.shtml)
+- 2026-06-29 22:13 - [世界杯：巴西vs日本](http://www.blog.minike.top/Article/details/45929.shtml)

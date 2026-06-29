@@ -1,52 +1,58 @@
-# 中信银行：一季度实现归母净利润200.98亿元，同比增长3.02%
+# 我国已构建四级智能工厂体系 实现规模化建设智能工厂
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-4月29日金融一线消息，中信银行发布2026年一季度报告。数据显示，公司2026年一季度实现营业收入546.49亿元，同比增长5.23%；归母净利润200.98亿元，同比增长3.02%。截至报告期末，集团不良贷款余额687.45亿元，较上年末增加15.29亿元；不良贷款率1.15%，与上年末持平；拨备覆盖率202.45%，较上年末下降1.16个百分点；贷款拨备率2.32%，较上
+记者从工业和信息化部了解到，我国已构建四级智能工厂体系，实现规模化建设智能工厂，引导企业从数字化、网络化向智能化迈进。 目前，我国智能工厂体系分为基础级、先进级、卓越级、领航级四级。已经累计建成3.5万家基础级、8200余家先进级、500余家卓越级智能工厂，15家企业入选领航级智能工厂培育名单，探索工程机械共享制造、汽车岛式制造、家电敏捷定制等新模式新业态。智能工厂梯度培育行动
 
 ## 正文
 
-4月29日金融一线消息，中信银行发布2026年一季度报告。
+记者从工业和信息化部了解到，我国已构建四级智能工厂体系，实现规模化建设智能工厂，引导企业从数字化、网络化向智能化迈进。
 
-数据显示，公司2026年一季度实现营业收入546.49亿元，同比增长5.23%；归母净利润200.98亿元，同比增长3.02%。
+目前，我国智能工厂体系分为基础级、先进级、卓越级、领航级四级。
 
-截至报告期末，集团不良贷款余额687.45亿元，较上年末增加15.29亿元；不良贷款率1.15%，与上年末持平；拨备覆盖率202.45%，较上年末下降1.16个百分点；贷款拨备率2.32%，较上年末下降0.01个百分点。
+已经累计建成3.5万家基础级、8200余家先进级、500余家卓越级智能工厂，15家企业入选领航级智能工厂培育名单，探索工程机械共享制造、汽车岛式制造、家电敏捷定制等新模式新业态。
 
-责任编辑：王馨茹
+智能工厂梯度培育行动实施以来，带动产品不良率平均下降47%、产品研发周期平均缩短38%。
+
+工业和信息化部装备工业一司副司长 郝立顺：迭代完善智能工厂梯度培育体系，把人工智能技术应用水平纳入领航级、卓越级智能工厂评定标准并逐年提高门槛，打造比肩国际水平的智能制造标杆。
+
+据了解，工业和信息化部将聚焦轨道交通装备、高技术船舶、新能源汽车、航空航天、钢铁、石化等重点行业，支持建设一批领航工厂和超级场景。
+
+从“制”到“智” 智能工厂装备向智能体演进 今年《政府工作报告》明确提出要“拓展智能制造，新建设一批智能工厂和智慧供应链”。
+
+如今智能工厂正推动着新一代智能制造深化发展，制造装备正向智能体演进。
 
 ## 相关推荐
 
-- 2026-06-29 22:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
-- 2026-06-29 22:05 - [欧洲人买空调难点在哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 22:19 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 22:05 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 21:55 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 22:21 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 22:18 - [媒体：日本边磨刀边要货是做梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-29 22:10 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
-- 2026-06-29 22:06 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 22:05 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 22:20 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 22:06 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 21:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
-- 2026-06-29 21:58 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 22:23 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 22:16 - [让AI做一个账号，它会做成什么样？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 22:01 - [恋与深空致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-29 22:23 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 22:28 - [如何看待乌空军3架米格-29被摧毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 22:04 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 22:22 - [济南航空航天全面起势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 22:00 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 22:04 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-29 22:14 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 22:15 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
+- 2026-06-29 22:03 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:57 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/815434809082.shtml)
-- 2026-06-29 21:59 - [武汉西安站在了3小时临界线门槛上](http://www.blog.minike.top/Article/details/776287.shtml)
-- 2026-06-29 22:20 - [中方绝不允许日菲侵害我海洋权益](https://www.share.minike.top/Article/details/91475215117.shtml)
-- 2026-06-29 22:07 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/21117007389.shtml)
-- 2026-06-29 22:18 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/4341714.shtml)
-- 2026-06-29 22:06 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/300245305478.shtml)
-- 2026-06-29 22:08 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/5215555658.shtml)
-- 2026-06-29 22:06 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/910719.shtml)
-- 2026-06-29 22:15 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/87407.shtml)
-- 2026-06-29 22:21 - [世界杯](https://www.blog.kurohicncr.top/Article/details/1643347.shtml)
-- 2026-06-29 22:18 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/95866.shtml)
-- 2026-06-29 22:21 - [齐思钧回复孙怡](http://www.share.kurohicncr.top/Article/details/699624842.shtml)
-- 2026-06-29 22:06 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/78479.shtml)
-- 2026-06-29 21:55 - [网约车出事故平台拒赔称只是中介](https://www.blog.minike.top/Article/details/8765323688.shtml)
-- 2026-06-29 22:10 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/48968666663.shtml)
+- 2026-06-29 22:02 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/63544.shtml)
+- 2026-06-29 22:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/54298334.shtml)
+- 2026-06-29 22:21 - [华工科技龙虎榜数据](https://www.share.minike.top/Article/details/4000639827.shtml)
+- 2026-06-29 22:15 - [韩国800万亿韩元押注半导体](http://www.blog.kurohicncr.top/Article/details/4270606.shtml)
+- 2026-06-29 22:13 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/27115.shtml)
+- 2026-06-29 22:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/427483.shtml)
+- 2026-06-29 22:08 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/9982012.shtml)
+- 2026-06-29 22:06 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/717656.shtml)
+- 2026-06-29 22:29 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/967634889.shtml)
+- 2026-06-29 22:11 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/366688892.shtml)
+- 2026-06-29 22:28 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.minike.top/Article/details/11508.shtml)
+- 2026-06-29 22:17 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/31982.shtml)
+- 2026-06-29 22:19 - [记者：预计热火将追求小哈达威和康利](https://www.share.kurohicncr.top/Article/details/89563.shtml)
+- 2026-06-29 22:12 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.kurohicncr.top/Article/details/70871978176.shtml)
+- 2026-06-29 22:26 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/37833.shtml)

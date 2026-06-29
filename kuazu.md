@@ -1,58 +1,50 @@
-# 青海“河南蒙旗”：越野车巡游黄河沿岸 看江河源头“清”与“擎”
+# 国家发展改革委与老挝有关部门签署合作文件
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 11:23 来源：中国新闻网 4月28日至4月29日，清清黄河旅游带·青海省黄南藏族自治州河南蒙古族自治县黄河生态文旅启航暨黄河1号风景大道越野车全域巡游活动举办。 50辆越野车整齐列队，从县城向着宁木特黄河大峡谷疾驰而去。车窗外，蓝天白云相映，成群牛羊在草甸上悠然踱步；车队驶过村庄时，身着蒙古族服饰的民众手捧哈达在路边迎接。 作为青海省唯一的
+2026年6月5日，在中国和老挝两党两国最高领导人见证下，郑栅洁主任与老挝副总理、财政部部长兼老中合作委员会主席山迪帕·丰威汉签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国老中合作委员会关于推动绿色产业发展合作的谅解备忘录》。下一步，双方将加强节能降碳产业、环境保护产业、资源循环利用产业、能源绿色低碳转型、基础设施绿色升级、生态保护修复和利用、绿色服务等领域交流合
 
 ## 正文
 
-发布时间：2026年04月30日 11:23 来源：中国新闻网 4月28日至4月29日，清清黄河旅游带·青海省黄南藏族自治州河南蒙古族自治县黄河生态文旅启航暨黄河1号风景大道越野车全域巡游活动举办。
+2026年6月5日，在中国和老挝两党两国最高领导人见证下，郑栅洁主任与老挝副总理、财政部部长兼老中合作委员会主席山迪帕·丰威汉签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国老中合作委员会关于推动绿色产业发展合作的谅解备忘录》。
 
-50辆越野车整齐列队，从县城向着宁木特黄河大峡谷疾驰而去。
+下一步，双方将加强节能降碳产业、环境保护产业、资源循环利用产业、能源绿色低碳转型、基础设施绿色升级、生态保护修复和利用、绿色服务等领域交流合作。
 
-车窗外，蓝天白云相映，成群牛羊在草甸上悠然踱步；车队驶过村庄时，身着蒙古族服饰的民众手捧哈达在路边迎接。
+此外，郑栅洁主任与老挝工业与贸易部部长玛莱通·贡玛西签署《中华人民共和国国家发展和改革委员会与老挝人民民主共和国工业与贸易部关于开展矿产资源领域合作的谅解备忘录》。
 
-作为青海省唯一的蒙古族自治县，河南县坐落于九曲黄河第一湾，既是全国面积最大的有机畜牧业生产基地，也是全省生态保护状况最优的草原。
+下一步，双方将支持和鼓励双方企业按照“市场主导、商业运作、绿色发展”的原则开展矿产资源合作。
 
-本次活动瞄准这份独特的生态禀赋，核心目标是打造青海国际生态旅游目的地“东南门户”。
-
-活动期间发布两条生态旅游精品线路：骑行巡游线适合慢节奏游客，串联三江源·蒙古大营、亲王府、黄河大峡谷、仙女湖、吉岗山等景点，终点可在游牧星空露营基地静待银河日落；吉岗山徒步线适合户外爱好者，途经仙女洞、仙女湖湿地，最终返回游客中心。
-
-当城市喧嚣被草原清风稀释，当钢筋水泥被无垠绿意取代，这个位于青甘川三省交界的牧业小县，正以生态为本、文旅为媒，向全国游客递出一份真诚的邀请函。
-
-刘洋 马铭言 青海黄南报道 责任编辑：【刘湃】
+(国家发展改革委微信公众号)
 
 ## 相关推荐
 
-- 2026-06-29 22:18 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 22:10 - [东方风云榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 22:20 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 22:14 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 22:11 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 22:15 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
-- 2026-06-29 22:18 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 21:59 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-29 22:23 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 22:16 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 22:19 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-29 22:21 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-29 22:10 - [记者暗访养老机构消防安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 22:11 - [日本豪言冲击冠军是自信还是傲慢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 22:00 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 22:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 22:08 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 22:20 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdtlb.md)
+- 2026-06-29 22:16 - [日防卫省正考虑引进美企人工智能系统](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 22:01 - [专家：43℃热浪撕开欧洲环保假象](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 22:21 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 22:09 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:03 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/383870171.shtml)
-- 2026-06-29 22:21 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/91137.shtml)
-- 2026-06-29 22:09 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/830108899484.shtml)
-- 2026-06-29 22:09 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/25349.shtml)
-- 2026-06-29 22:16 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/05275660.shtml)
-- 2026-06-29 22:02 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/137126767786.shtml)
-- 2026-06-29 21:55 - [第一炉香](http://www.blog.minike.top/Article/details/04164251.shtml)
-- 2026-06-29 22:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/5945291237.shtml)
-- 2026-06-29 22:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.kurohicncr.top/Article/details/75084672.shtml)
-- 2026-06-29 22:16 - [齐思钧回复孙怡](http://www.share.minike.top/Article/details/41353023.shtml)
-- 2026-06-29 22:18 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/24375416.shtml)
-- 2026-06-29 22:19 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/58844173.shtml)
-- 2026-06-29 22:20 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.kurohicncr.top/Article/details/36351557608.shtml)
-- 2026-06-29 22:12 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/99640635.shtml)
-- 2026-06-29 22:04 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/32240359.shtml)
+- 2026-06-29 22:00 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/799957395883.shtml)
+- 2026-06-29 22:10 - [欧洲缘何成为变暖最快的大洲](https://www.share.minike.top/Article/details/39941952470.shtml)
+- 2026-06-29 22:08 - [地震来临时铁路工作人员果断拦停列车](http://www.blog.minike.top/Article/details/12552777292.shtml)
+- 2026-06-29 22:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/08935.shtml)
+- 2026-06-29 22:12 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/013094338134.shtml)
+- 2026-06-29 22:15 - [追觅称质量不行终身包修也没意义](https://www.share.kurohicncr.top/Article/details/82251085.shtml)
+- 2026-06-29 22:14 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/158593157.shtml)
+- 2026-06-29 22:07 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/952166374.shtml)
+- 2026-06-29 22:16 - [流金岁月](https://www.blog.minike.top/Article/details/6471854.shtml)
+- 2026-06-29 22:21 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/995225783.shtml)
+- 2026-06-29 22:18 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/463146.shtml)
+- 2026-06-29 22:16 - [记者：预计热火将追求小哈达威和康利](http://www.blog.minike.top/Article/details/06988.shtml)
+- 2026-06-29 22:08 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/28131.shtml)
+- 2026-06-29 22:15 - [广东水利防汛Ⅳ级应急响应结束](http://www.blog.minike.top/Article/details/2814951.shtml)
+- 2026-06-29 22:05 - [佛得角队长门德斯被控强奸](https://www.share.minike.top/Article/details/49951.shtml)

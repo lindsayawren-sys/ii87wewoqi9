@@ -1,61 +1,61 @@
-# 2025年公募基金上市公司治理参与报告出炉，部分议案被公募说“不”！保护中小股东成反对主因
+# 2025年下半年银行理财公司竞争力排名发布：兴银理财综合居首，国有、股份、城商行前三揭晓
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|任飞 每经编辑|叶峰 2025年，中国证券投资基金业协会发布《公开募集证券投资基金管理人参与上市公司治理管理规则》，要求公募基金管理人自2026年开始，于每年4月底前公示上一年度对外行使投票表决权情况。 披露的数据显示，有的公司全年都没有参与股东大会表决；大部分公司在参与表决时对相关决议投下赞成票，但也有部分公司表示反
+6月8日金融一线消息，近日，《北大金融评论》、北大汇丰金融研究院资管研究中心及北大汇丰智库联合发布2025年下半年北大汇丰·银行理财公司竞争力排名。本次排名调整展示口径：公布综合竞争力第一名，并分别列示国有大型商业银行理财公司（下称国有行理财公司）、股份制商业银行理财公司（下称股份行理财公司）、城市商业银行理财公司（下称城商行理财公司）前三，合计10家机构，清晰呈现不同类型理财
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 每经记者|任飞 每经编辑|叶峰 2025年，中国证券投资基金业协会发布《公开募集证券投资基金管理人参与上市公司治理管理规则》，要求公募基金管理人自2026年开始，于每年4月底前公示上一年度对外行使投票表决权情况。
+6月8日金融一线消息，近日，《北大金融评论》、北大汇丰金融研究院资管研究中心及北大汇丰智库联合发布2025年下半年北大汇丰·银行理财公司竞争力排名。
 
-披露的数据显示，有的公司全年都没有参与股东大会表决；大部分公司在参与表决时对相关决议投下赞成票，但也有部分公司表示反对，有的公募对参与上市公司股东大会的所有议案表决都投下了反对票。
+本次排名调整展示口径：公布综合竞争力第一名，并分别列示国有大型商业银行理财公司（下称国有行理财公司）、股份制商业银行理财公司（下称股份行理财公司）、城市商业银行理财公司（下称城商行理财公司）前三，合计10家机构，清晰呈现不同类型理财子的竞争力格局。
 
-在业内看来，公募机构作为A股重要机构股东，其全年上市公司股东权利行权、公司治理态度的全景成绩单，是观察机构价值观、选股偏好、风控底线、抱团行为的关键材料。
+在信息完备的参评机构中，兴银理财获综合排名第一；国有行理财公司前三为农银理财、交银理财、工银理财；股份行理财公司前三为招银理财、光大理财、平安理财；城商行理财公司前三为宁银理财、苏银理财、杭银理财。
 
-公募行权赞成居多，有的期内所有表决都反对 2025年，中国证券投资基金业协会发布《公开募集证券投资基金管理人参与上市公司治理管理规则》。
+市场概览 2025年下半年，中国银行理财市场在监管规范与客户需求的双重驱动下持续深化转型。
 
-其中要求，公募基金管理人自2026年开始，于每年4月底前公示上一年度对外行使投票表决权情况。
+据中国银行业理财登记托管中心发布的《中国银行业理财市场年度报告（2025年）》，截至2025年末，银行理财市场存续规模33.29万亿元。
 
-2026年4月30日，此前仍未披露的机构都集中发布了相关公告，重点针对基金公司以股东身份，即通过公募基金持股参与股东大会投票的信息披露。
+理财公司主导地位进一步强化，投资者数量稳步增长，个人投资者占比保持在98%以上。
 
-此前，协会文件中提到，基金管理人代表基金参与上市公司治理时，应当关注财务情况是否健康、上市公司及中小股东利益是否被侵害、信息披露是否及时完整和准确等。
+从经营业绩看，头部效应愈发显著。
 
-从基金公司披露的在2025年参加上市公司股东大会行使投票权情况来看，不同公司涉及的上市公司家数差异巨大，有的超过50家，有的全年没有参与。
+截至2025年末，共有5家银行理财公司规模突破2万亿元，分别为招银理财（2.64万亿元）、兴银理财（2.43万亿元）、信银理财（2.30万亿元）、农银理财（2.15万亿元）和工银理财（2.09万亿元）；共有6家银行理财公司净利润达到20亿元以上，分别为农银理财（37.54亿元）、招银理财（27.26亿元）、信银理财（26.64亿元）、兴银理财（25.86亿元）、中银理财（24.99亿元）、光大理财（23.36亿元）。
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [127只股涨停 最大封单资金6.04亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-29 22:08 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-29 22:03 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 22:11 - [天气热脾气都变差了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 21:55 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 21:59 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 22:23 - [温网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 22:09 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 22:09 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 22:09 - [福建海警位金门附近海域常态执法巡查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 22:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
-- 2026-06-29 21:55 - [格莱美唱作人锐评歌手第6期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 21:56 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 22:09 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-29 21:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 22:15 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 22:14 - [哈兰德吃饭被镜中自己吓到](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-29 22:03 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-29 22:25 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 22:00 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 22:16 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 22:18 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 22:04 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-29 22:20 - [世界杯疑现假球 FIFA被呼吁调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 22:25 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 22:26 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 22:10 - [运-20网宣片中的“小六”或是六代机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 22:19 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 22:22 - [俄罗斯为何考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 22:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/36445814.shtml)
-- 2026-06-29 21:54 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/119921.shtml)
-- 2026-06-29 22:11 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/09960876517.shtml)
-- 2026-06-29 22:17 - [货车司机恶意闯卡逃费被北京警方拘留](http://www.share.minike.top/Article/details/66884902.shtml)
-- 2026-06-29 21:54 - [6.5万观众40分钟“丝滑”离场](https://www.share.kurohicncr.top/Article/details/34383712.shtml)
-- 2026-06-29 22:22 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/26730.shtml)
-- 2026-06-29 22:00 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/8695624310.shtml)
-- 2026-06-29 22:08 - [因凡蒂诺小组赛期间乘私人飞机27次](https://www.share.minike.top/Article/details/782308880.shtml)
-- 2026-06-29 22:16 - [男子称在京东买到“同仁堂”假药](http://www.blog.kurohicncr.top/Article/details/4017471.shtml)
-- 2026-06-29 22:14 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/899739.shtml)
-- 2026-06-29 22:22 - [孙俪开QQ的蛮好生活](http://www.share.minike.top/Article/details/4505121.shtml)
-- 2026-06-29 22:10 - [温网](http://www.share.minike.top/Article/details/6599430844.shtml)
-- 2026-06-29 21:59 - [半导体和股市为何没让韩国人起飞](https://www.blog.minike.top/Article/details/263215.shtml)
-- 2026-06-29 22:16 - [任泽平：AI浪潮刚刚开始](http://www.blog.minike.top/Article/details/93443691.shtml)
-- 2026-06-29 22:16 - [6.5万观众40分钟“丝滑”离场](https://www.blog.minike.top/Article/details/202045.shtml)
+- 2026-06-29 22:28 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/1935441.shtml)
+- 2026-06-29 22:16 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/9924782759.shtml)
+- 2026-06-29 22:27 - [近300亿份用户数据遭收集 国安部提醒](https://www.blog.kurohicncr.top/Article/details/0695193.shtml)
+- 2026-06-29 22:05 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/779754501.shtml)
+- 2026-06-29 22:21 - [日本足球能掀翻巴西吗](http://www.share.kurohicncr.top/Article/details/244507.shtml)
+- 2026-06-29 22:23 - [韩国800万亿韩元押注半导体](https://www.blog.kurohicncr.top/Article/details/500255335569.shtml)
+- 2026-06-29 22:15 - [曝iPhone涨价后不会再降](https://www.blog.kurohicncr.top/Article/details/43948.shtml)
+- 2026-06-29 22:04 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/846605587.shtml)
+- 2026-06-29 22:21 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/9340956.shtml)
+- 2026-06-29 22:21 - [谁在推动“成都造”影视持续出圈](https://www.share.kurohicncr.top/Article/details/54714854.shtml)
+- 2026-06-29 22:06 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/79834.shtml)
+- 2026-06-29 22:16 - [记者乘坐无人驾驶汽车去采访](http://www.blog.minike.top/Article/details/81844.shtml)
+- 2026-06-29 22:08 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/7210726.shtml)
+- 2026-06-29 22:02 - [运20对中国空军的意义是什么](http://www.blog.kurohicncr.top/Article/details/339816.shtml)
+- 2026-06-29 22:29 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/26629607.shtml)

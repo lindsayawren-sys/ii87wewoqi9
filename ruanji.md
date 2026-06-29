@@ -1,57 +1,44 @@
-# “世界唐卡艺术之都”青海同仁开启全季旅游 “五一”文旅活动精彩纷呈
+# 印尼：棕榈油面临“油箱与餐桌”双重增长需求
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网西宁4月30日电 (祁绣娟)“诚挚邀请各位朋友，在‘五一’假期携亲伴友、畅游金色谷地，开启一段流连忘返的山水人文之旅。”4月29日，青海省黄南藏族自治州州委副书记、同仁市委书记何杰向国内外游客发出邀约。 当晚，“清清黄河”旅游带青海·黄南·同仁世界唐卡艺术之都、国家历史文化名城全季旅游启动仪式暨“漫游金色谷地·邂逅人文同仁”“五一”假期旅游系列活动，在同仁市隆务河畔启幕。
+发布时间：2026年06月06日 13:08 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网西宁4月30日电 (祁绣娟)“诚挚邀请各位朋友，在‘五一’假期携亲伴友、畅游金色谷地，开启一段流连忘返的山水人文之旅。
-
-”4月29日，青海省黄南藏族自治州州委副书记、同仁市委书记何杰向国内外游客发出邀约。
-
-当晚，“清清黄河”旅游带青海·黄南·同仁世界唐卡艺术之都、国家历史文化名城全季旅游启动仪式暨“漫游金色谷地·邂逅人文同仁”“五一”假期旅游系列活动，在同仁市隆务河畔启幕。
-
-同仁市地处青海省东南部隆务河畔，是青海省唯一的国家级历史文化名城，是热贡艺术的核心发祥地。
-
-活动同步启动四大主题特色文化活动，涵盖“水岸风情·匠造热贡”“华灯夜宴·醉美热贡”“趣游热贡·打卡同仁”“云栖德隆·行览夏琼”。
-
-近年来，同仁市依托隆务河优质水生态资源，打造了集生态休闲与非遗体验于一体的水岸盛会。
-
-民众和游客可登上夏琼山、走进德合隆，探秘郭么日古堡与保安都司衙门，穿行于雪山、草甸之间，沉浸式亲近自然，触摸历史文脉。
-
-“华灯夜宴·醉美热贡”活动期间，4月29日至5月5日每晚八点，《热贡印象》实景演出准时上演；5月2日至5日白天，民族歌舞、藏戏等本土文艺展演轮番登场，每晚的热贡文化特色激光秀，点亮隆务河畔的夜色。
+发布时间：2026年06月06日 13:08 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-29 22:04 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-29 22:23 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 21:54 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-29 22:02 - [高考1357分的同学如何报志愿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 22:04 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 22:20 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-29 22:16 - [央行首次3000亿元隔夜逆回购操作](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 22:02 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-29 22:11 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
-- 2026-06-29 22:21 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 22:04 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 22:17 - [山东发布山洪灾害气象预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-29 22:07 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 22:07 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 22:24 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 22:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 22:09 - [湖南姑娘被东北同事带偏口音](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-29 22:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 22:28 - [美以这对亲密盟友要掰了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-29 22:29 - [网约车出事故平台拒赔称只是中介](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 22:03 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 22:28 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 22:12 - [男子称在京东买到“同仁堂”假药](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/920876998726.shtml)
-- 2026-06-29 22:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/4762569615.shtml)
-- 2026-06-29 22:14 - [英法德葡存在什么隐患](http://www.share.minike.top/Article/details/560687079.shtml)
-- 2026-06-29 22:22 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/990210454.shtml)
-- 2026-06-29 22:13 - [美人鱼](http://www.share.minike.top/Article/details/2849674879.shtml)
-- 2026-06-29 22:16 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/22694303510.shtml)
-- 2026-06-29 22:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/098101377781.shtml)
-- 2026-06-29 22:06 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/963202112050.shtml)
-- 2026-06-29 22:07 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/67770.shtml)
-- 2026-06-29 22:06 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/854659886215.shtml)
-- 2026-06-29 22:12 - [极限挑战第一季](http://www.share.minike.top/Article/details/323199.shtml)
-- 2026-06-29 22:21 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/18099.shtml)
-- 2026-06-29 22:23 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/83646.shtml)
-- 2026-06-29 22:01 - [温网](http://www.blog.minike.top/Article/details/877597944.shtml)
-- 2026-06-29 21:59 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/9765527.shtml)
+- 2026-06-29 22:29 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/79337124.shtml)
+- 2026-06-29 22:21 - [勇敢的心第二部](https://www.share.minike.top/Article/details/49448307.shtml)
+- 2026-06-29 22:14 - [我和我的家乡](http://www.share.minike.top/Article/details/047473.shtml)
+- 2026-06-29 22:04 - [李思潼：不会介意大家夸我运气好](https://www.share.minike.top/Article/details/710275493171.shtml)
+- 2026-06-29 22:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/278642.shtml)
+- 2026-06-29 22:09 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/395823146.shtml)
+- 2026-06-29 22:10 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/26836722.shtml)
+- 2026-06-29 22:08 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/466947.shtml)
+- 2026-06-29 22:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/3479648.shtml)
+- 2026-06-29 22:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/4380929.shtml)
+- 2026-06-29 22:15 - [《贺子珍》](http://www.share.minike.top/Article/details/935495314.shtml)
+- 2026-06-29 22:21 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/40967128508.shtml)
+- 2026-06-29 22:17 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/94344594.shtml)
+- 2026-06-29 22:18 - [曼城官宣马雷斯卡出任主教练](https://www.blog.kurohicncr.top/Article/details/71704.shtml)
+- 2026-06-29 22:25 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/1009718645.shtml)

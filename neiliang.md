@@ -1,56 +1,49 @@
-# 中泰艺术家昆明唱响民歌大观 共同演绎“春风中泰美好”
+# 伊通社援引伊斯兰革命卫队称伊朗遭到以色列弹道导弹袭击
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网昆明4月30日电 (记者 韩帅南)在中泰建交51周年之际，第45期“民歌大观”——“春风中泰美好”中泰文化交流篇4月30日在中国新闻网海内外平台播出。中泰演员携手献上精彩表演，带领全球观众共赏中泰艺术瑰宝，共叙邻里深情。 中泰两国是好邻居、好亲戚、好朋友。正在建设中国面向南亚东南亚辐射中心的云南，是中国陆路距离泰国最近的省份，两地地缘相近、人缘相亲、商缘相通。近年来，滇泰
+据伊朗官方媒体伊斯兰共和国通讯社报道，伊朗伊斯兰革命卫队在一份声明中称，以色列于周一清晨使用空射弹道导弹，对伊朗境内多个目标发动了袭击。责任编辑：陈钰嘉
 
 ## 正文
 
-中新网昆明4月30日电 (记者 韩帅南)在中泰建交51周年之际，第45期“民歌大观”——“春风中泰美好”中泰文化交流篇4月30日在中国新闻网海内外平台播出。
+据伊朗官方媒体伊斯兰共和国通讯社报道，伊朗伊斯兰革命卫队在一份声明中称，以色列于周一清晨使用空射弹道导弹，对伊朗境内多个目标发动了袭击。
 
-中泰演员携手献上精彩表演，带领全球观众共赏中泰艺术瑰宝，共叙邻里深情。
-
-中泰两国是好邻居、好亲戚、好朋友。
-
-正在建设中国面向南亚东南亚辐射中心的云南，是中国陆路距离泰国最近的省份，两地地缘相近、人缘相亲、商缘相通。
-
-近年来，滇泰两地在旅游、教育、商贸等方面的合作日益密切。
-
-本期“民歌大观”中，泰国艺术瑰宝孔剧率先登场。
-
-舞台上，泰国舞者戴上假面、身着华服，身段典雅、气韵庄重，尽显泰国古典艺术之美。
-
-孔剧源自史诗《拉玛坚》，2018年被列入联合国人类非物质文化遗产代表作名录。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 22:09 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 22:10 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
-- 2026-06-29 22:21 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-29 22:22 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 22:02 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 22:10 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 22:09 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-29 21:57 - [穆祉丞东方风云榜红毯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 22:19 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 22:05 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
+- 2026-06-29 22:10 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-29 22:08 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 22:25 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 22:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 22:17 - [炽夏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 22:10 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 22:13 - [因凡蒂诺小组赛期间乘私人飞机27次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 22:10 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 22:04 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-29 22:25 - [一台空调背后的全球化逻辑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 22:15 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanghua.md)
+- 2026-06-29 22:12 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 22:16 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 22:01 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 22:15 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:13 - [速度与激情9](http://www.share.minike.top/Article/details/148711742294.shtml)
-- 2026-06-29 22:06 - [律师解读滚石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/93114.shtml)
-- 2026-06-29 22:16 - [日防卫省正考虑引进美企人工智能系统](http://www.blog.kurohicncr.top/Article/details/22798492.shtml)
-- 2026-06-29 22:19 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/4635771.shtml)
-- 2026-06-29 22:13 - [流金岁月](http://www.share.kurohicncr.top/Article/details/45171762911.shtml)
-- 2026-06-29 22:17 - [哈兰德吃饭被镜中自己吓到](http://www.blog.kurohicncr.top/Article/details/163513283.shtml)
-- 2026-06-29 22:18 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.minike.top/Article/details/85342871.shtml)
-- 2026-06-29 22:04 - [记者：预计热火将追求小哈达威和康利](http://www.share.kurohicncr.top/Article/details/8870654288.shtml)
-- 2026-06-29 22:12 - [浙江进入梅雨最强“攻击时段”](https://www.blog.minike.top/Article/details/969129.shtml)
-- 2026-06-29 21:57 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/20800849288.shtml)
-- 2026-06-29 22:14 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/2173216981.shtml)
-- 2026-06-29 22:08 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/712941382517.shtml)
-- 2026-06-29 22:13 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/59615.shtml)
-- 2026-06-29 22:01 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/3826976280.shtml)
-- 2026-06-29 22:11 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/50595189048.shtml)
+- 2026-06-29 22:13 - [国际清算银行警告AI投资热潮](https://www.blog.kurohicncr.top/Article/details/90315.shtml)
+- 2026-06-29 22:16 - [一台空调背后的全球化逻辑](https://www.blog.minike.top/Article/details/49379.shtml)
+- 2026-06-29 22:08 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/6018004.shtml)
+- 2026-06-29 22:13 - [演员都来上音综的原因](http://www.share.kurohicncr.top/Article/details/27465.shtml)
+- 2026-06-29 22:27 - [夫妻生活太无聊，所以我……](http://www.blog.kurohicncr.top/Article/details/8037198.shtml)
+- 2026-06-29 22:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/78851291139.shtml)
+- 2026-06-29 22:20 - [金刚川](https://www.blog.minike.top/Article/details/2526433.shtml)
+- 2026-06-29 22:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/691893432.shtml)
+- 2026-06-29 22:05 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/5876712.shtml)
+- 2026-06-29 22:22 - [记者乘坐无人驾驶汽车去采访](https://www.blog.minike.top/Article/details/90477886.shtml)
+- 2026-06-29 22:26 - [乔家的儿女](https://www.blog.minike.top/Article/details/8845868953.shtml)
+- 2026-06-29 22:15 - [华工科技龙虎榜数据](https://www.share.kurohicncr.top/Article/details/41586834.shtml)
+- 2026-06-29 22:10 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/73312124065.shtml)
+- 2026-06-29 22:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/80544074603.shtml)
+- 2026-06-29 22:29 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/124965.shtml)

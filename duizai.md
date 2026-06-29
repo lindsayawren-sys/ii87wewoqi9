@@ -1,56 +1,61 @@
-# 东京审判中国检察官向哲濬之子向隆万：历史不容忘却
+# 两岸青年学者：台海形势越复杂，越需通过交往增进理解
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。 当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。 向隆万回
+中新社杭州6月7日电 (记者 刘大炜)7日在杭州举行的第十二届两岸青年学者论坛上，多位青年学者表示，尽管复杂严峻的台海局势使青年交流面临更多压力，但也凸显青年交流的重要性。这种时刻，更加需要通过交往交流增进两岸民间，尤其是青年间的理解。中国社科院台湾研究所助理研究员姜静雅分析近期岛内多项民调中与青年相关的数据后表示，台湾青年不是所谓的“天然独”。当两岸信息壁垒逐渐打破、岛内现实
 
 ## 正文
 
-中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。
+中新社杭州6月7日电 (记者 刘大炜)7日在杭州举行的第十二届两岸青年学者论坛上，多位青年学者表示，尽管复杂严峻的台海局势使青年交流面临更多压力，但也凸显青年交流的重要性。
 
-”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。
+这种时刻，更加需要通过交往交流增进两岸民间，尤其是青年间的理解。
 
-当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。
+中国社科院台湾研究所助理研究员姜静雅分析近期岛内多项民调中与青年相关的数据后表示，台湾青年不是所谓的“天然独”。
 
-向隆万回忆说，那一天，向哲濬驳斥了一位辩护律师的观点。
+当两岸信息壁垒逐渐打破、岛内现实压力持续凸显、和平发展契合台湾青年切身需求时，台湾青年认同呈现出明显的理性化与务实化转向。
 
-对方声称，日中之间在1941年12月之前并不存在战争状态，因此起诉书中的相关指控不应成立。
+这为两岸关系和平发展释放出积极信号。
 
-向哲濬当场严正指出，从“九一八”事变开始，成千上万的中国民众已经因此丧生，这是全世界都知道的事实。
+台湾“中国文化大学”研究生黄郁涵认为，青年世代将决定未来两岸关系走向，因此如何建立理解、降低敌意与维持沟通，具有深远意义。
 
-“他在法庭上非常从容，但大义凛然。
+她表示，虽然两岸在政治制度存在差异，但青年之间在生活压力、社会发展需求上，仍具有高度共同性。
 
-”向隆万说，在他的成长记忆中，父亲是一位慈祥的老人，与邻里关系和睦。
+这些共同经验，或许正是未来重新建立理解的重要起点。
 
 ## 相关推荐
 
-- 2026-06-29 22:16 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-29 22:11 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 22:21 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-29 22:19 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 22:06 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
-- 2026-06-29 22:21 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 22:03 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-29 22:05 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
-- 2026-06-29 22:11 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 22:15 - [夫妻生活太无聊，所以我……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-29 22:29 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 22:06 - [华工科技龙虎榜数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 22:13 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 22:02 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-29 22:03 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 22:08 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 22:23 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
+- 2026-06-29 22:00 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-29 22:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 22:05 - [18岁高二体育生训练晕倒后离世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 22:09 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 22:14 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 22:26 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 22:09 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 22:25 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:05 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/33332476.shtml)
-- 2026-06-29 21:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/1307748.shtml)
-- 2026-06-29 22:12 - [运-20网宣片中的“小六”或是六代机](https://www.blog.kurohicncr.top/Article/details/212371652180.shtml)
-- 2026-06-29 21:56 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/8288875760.shtml)
-- 2026-06-29 22:06 - [房价什么时候能涨](https://www.share.minike.top/Article/details/937285.shtml)
-- 2026-06-29 21:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/22088.shtml)
-- 2026-06-29 22:01 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/918215.shtml)
-- 2026-06-29 22:17 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0366493.shtml)
-- 2026-06-29 22:20 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/15652195700.shtml)
-- 2026-06-29 22:12 - [日本队豪言击败巴西是自信还是傲慢](http://www.share.kurohicncr.top/Article/details/9048948.shtml)
-- 2026-06-29 22:20 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/6712644429.shtml)
-- 2026-06-29 22:05 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/6141245100.shtml)
-- 2026-06-29 22:02 - [运20对中国空军的意义是什么](http://www.share.kurohicncr.top/Article/details/33991050061.shtml)
-- 2026-06-29 22:12 - [电动车主等红灯遭三轮车上横杆砸头](https://www.blog.minike.top/Article/details/073986145.shtml)
-- 2026-06-29 22:16 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/1846141202.shtml)
+- 2026-06-29 22:10 - [厨房装空调还是装冷烟机](https://www.blog.minike.top/Article/details/8633108496.shtml)
+- 2026-06-29 22:29 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/8535046537.shtml)
+- 2026-06-29 22:03 - [18岁高二体育生训练晕倒后离世](http://www.blog.kurohicncr.top/Article/details/794663428.shtml)
+- 2026-06-29 22:01 - [美国一牛仔表演发生事故](https://www.blog.kurohicncr.top/Article/details/437653.shtml)
+- 2026-06-29 22:25 - [急先锋](https://www.blog.minike.top/Article/details/50468.shtml)
+- 2026-06-29 22:13 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/489665.shtml)
+- 2026-06-29 22:12 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/42181923229.shtml)
+- 2026-06-29 22:02 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/90852547.shtml)
+- 2026-06-29 22:07 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/84088570805.shtml)
+- 2026-06-29 22:03 - [中国农民给猪圈装空调 欧洲网友破防](http://www.share.minike.top/Article/details/11493209904.shtml)
+- 2026-06-29 22:12 - [85花告别古偶](http://www.blog.kurohicncr.top/Article/details/9507143.shtml)
+- 2026-06-29 22:03 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/536341149500.shtml)
+- 2026-06-29 22:01 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/23318591654.shtml)
+- 2026-06-29 22:13 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/8303290933.shtml)
+- 2026-06-29 22:02 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/422122042599.shtml)

@@ -1,57 +1,56 @@
-# 山东省知联会“山东知联讲堂”活动举办
+# “侨批留韵・光影传心”—青岛市举办侨界主题观影活动
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网济南4月29日电(王采怡)山东省党外知识分子联谊会(以下简称山东省知联会)29日在山东省社会主义学院举办2026年第一期“山东知联讲堂”活动。山东省政协副主席、山东省知联会会长刘均刚，山东省委统战部副部长、山东省社会主义学院党组书记、第一副院长孙传尚出席活动。山东省委统战部副部长、山东省知联会常务副会长孙中亮主持活动。 本次活动邀请无党派人士、山东省知联会常务理事、神思电
+6月5日，由青岛市侨办主办、崂山区侨办与崂山区侨联承办的“侨批留韵・光影传心”主题观影活动在崂山区举办。青岛市委统战部、崂山区委统战部有关领导参加，市、区两级侨务干部、侨界代表等120余人，集体观看侨批题材影片《给阿嬷的情书》，共同感受侨批背后的家国情怀。银幕诉乡愁：一封“给阿嬷的情书” 影片以入选《世界记忆名录》的侨批史料为创作蓝本，将老一辈华侨漂洋过海、艰辛打拼，却始终把对
 
 ## 正文
 
-中新网济南4月29日电(王采怡)山东省党外知识分子联谊会(以下简称山东省知联会)29日在山东省社会主义学院举办2026年第一期“山东知联讲堂”活动。
+6月5日，由青岛市侨办主办、崂山区侨办与崂山区侨联承办的“侨批留韵・光影传心”主题观影活动在崂山区举办。
 
-山东省政协副主席、山东省知联会会长刘均刚，山东省委统战部副部长、山东省社会主义学院党组书记、第一副院长孙传尚出席活动。
+青岛市委统战部、崂山区委统战部有关领导参加，市、区两级侨务干部、侨界代表等120余人，集体观看侨批题材影片《给阿嬷的情书》，共同感受侨批背后的家国情怀。
 
-山东省委统战部副部长、山东省知联会常务副会长孙中亮主持活动。
+银幕诉乡愁：一封“给阿嬷的情书” 影片以入选《世界记忆名录》的侨批史料为创作蓝本，将老一辈华侨漂洋过海、艰辛打拼，却始终把对家乡的牵挂写进一封封批信的真实故事搬上银幕。
 
-本次活动邀请无党派人士、山东省知联会常务理事、神思电子技术股份有限公司首席科学家闵万里，作题为《人工智能推动产业链价值重构与能级跃迁的实践探索》的辅导报告。
+随着镜头的流转，现场观众仿佛穿越时空，触摸到那些泛黄信纸上滚烫的思念，体会“江海万里，心中念你，便不觉得遥远”的质朴深情。
 
-闵万里作为产业AI的先行者，结合自身工作经历，系统阐释了人工智能从“技术变量”转化为“产业增量”的底层逻辑与行动路径，深刻剖析了当前数智化转型中“数据、算力、算法”三座孤岛的深层矛盾，详细讲述了AI重构生产关系、催生系统性变革的生动实践，并向与会者分享了以精准融合推动产业链能级跃迁的实践经验，以及基于行业经验开发专家智能体用于实战的案例等。
+观影忆初心：一句句心声，道出侨界真情 “电影里阿嬷守着信箱的样子，让我一下想起了自己的父辈。
 
-山东省社会主义学院部分领导班子成员，山东省知联会理事会、监事会成员，山东省第二十五期党外领导干部进修班暨第十一期党外中青年领导干部培训班和山东省无党派代表人士培训班全体学员等，共220余人参加活动。
+”一位归侨代表说，“我们要把这份重信守义、爱国爱乡的精神传下去，为青岛的发展尽一份力。
 
-山东省知联会“山东知联讲堂”活动，聚焦支持无党派人士、党外知识分子开展主题教育，以凝聚共识、展示风采、激发活力为宗旨，以无党派代表人士现身说法、互学互鉴为主要方式，引导广大无党派人士、党外知识分子发扬“自觉、自主、自为”精神，继承弘扬“与党同心、爱国为民、精诚合作、敬业奉献”的优良传统，为助推山东省经济社会高质量发展集聚智慧力量。
+”现场观影的一位海外侨界代表动情地说，“身为海外侨胞，最懂影片里山海隔不断的乡愁、岁月抹不去的情意，虽远离故土，但始终牵挂家国、眷恋乡情，守望相助的初心从未改变，文化传承的信念从未淡漠。
 
-(完)
+”侨务工作者分享了自己的感受：“影片就像在讲述我爷爷奶奶的故事，小时候听到的潮汕人民远赴南洋打拼的情景一下子生动立体起来。
 
 ## 相关推荐
 
-- 2026-06-29 22:05 - [网友晒14年前支教影像等来学生评论](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-29 21:54 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 22:10 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-29 22:17 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 22:21 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-29 21:55 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 22:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 22:07 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 22:00 - [男子称在京东买到“同仁堂”假药](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-29 22:00 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 22:13 - [日本足球能掀翻巴西吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 22:20 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-29 22:25 - [电动车主等红灯遭三轮车上横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 22:24 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 22:13 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-29 22:27 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 22:22 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 22:28 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 22:11 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-29 22:04 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-29 22:03 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:54 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/313471233847.shtml)
-- 2026-06-29 22:09 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/51374.shtml)
-- 2026-06-29 22:12 - [日本队豪言击败巴西是自信还是傲慢](https://www.share.minike.top/Article/details/42000788167.shtml)
-- 2026-06-29 22:23 - [孙俪开QQ的蛮好生活](https://www.blog.minike.top/Article/details/2145873.shtml)
-- 2026-06-29 22:05 - [日本在最东端离岛部署导弹发射装置](http://www.share.minike.top/Article/details/82577.shtml)
-- 2026-06-29 22:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/956735428.shtml)
-- 2026-06-29 22:16 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/468906501.shtml)
-- 2026-06-29 22:12 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/15875435.shtml)
-- 2026-06-29 22:22 - [高质量发展看新疆](http://www.blog.kurohicncr.top/Article/details/02566972290.shtml)
-- 2026-06-29 22:13 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/479196.shtml)
-- 2026-06-29 22:07 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/52231705.shtml)
-- 2026-06-29 22:18 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/141264.shtml)
-- 2026-06-29 22:02 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/11249566406.shtml)
-- 2026-06-29 21:59 - [东方风云榜](https://www.blog.kurohicncr.top/Article/details/0734655.shtml)
-- 2026-06-29 22:21 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/49151240.shtml)
+- 2026-06-29 22:21 - [中国农民给猪圈装空调 欧洲网友破防](http://www.blog.minike.top/Article/details/448728641101.shtml)
+- 2026-06-29 22:24 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/22828.shtml)
+- 2026-06-29 22:20 - [绿营污蔑大陆“海上袭扰”被批](http://www.blog.minike.top/Article/details/1695588724.shtml)
+- 2026-06-29 22:26 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/4596891.shtml)
+- 2026-06-29 22:20 - [存储三巨头被告了](https://www.share.kurohicncr.top/Article/details/7736201728.shtml)
+- 2026-06-29 22:15 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/7470696.shtml)
+- 2026-06-29 22:01 - [杨德龙：创新药迎来新的发展机遇](http://www.share.kurohicncr.top/Article/details/39161.shtml)
+- 2026-06-29 22:13 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/204824.shtml)
+- 2026-06-29 22:00 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/73642739567.shtml)
+- 2026-06-29 22:23 - [黄灿灿张慧雯落地签还没发的原因](https://www.blog.kurohicncr.top/Article/details/17818975.shtml)
+- 2026-06-29 22:25 - [湖南姑娘被东北同事带偏口音](https://www.share.kurohicncr.top/Article/details/644185325095.shtml)
+- 2026-06-29 22:08 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/51745804.shtml)
+- 2026-06-29 22:08 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/21023498.shtml)
+- 2026-06-29 22:23 - [小勒布伦WTT美国大满贯开门红](https://www.share.kurohicncr.top/Article/details/855495474.shtml)
+- 2026-06-29 22:15 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/23636396.shtml)

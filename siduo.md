@@ -1,56 +1,53 @@
-# 智谱盘中涨近5% 首次披露GLM-5超大规模Coding Agent推理工程实践
+# 韩国总统李在明提名前Naver首席执行官韩成淑出任总理
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-智谱（02513）盘中涨近5%，截至发稿，股价上涨4.35%，报852港元，成交额6.48亿港元。 4月30日，智谱公众号发文，首次系统披露GLM-5系列模型在超大规模Coding Agent调用场景下的底层推理技术突破。包括两个关键Bug的定位及修复、一项性能优化创新、以及一个意外的监控机制突破。针对Context Parallel策略中的KV Cache冗余存储问题，智谱设
+韩国总统李在明提名前Naver首席执行官韩成淑出任总理，这意味着一位深耕科技行业的女性管理者有望跻身国家最高领导层。 韩成淑曾是一名科技记者，随后在包括Naver在内的多家大型互联网公司担任高级职务。她目前担任中小风险企业部长。 如果获得国会批准，韩成淑将成为韩国首位拥有互联网行业背景的总理，也是韩国历史上第二位女性总理。 韩国总统府表示，韩成淑曾执掌大型科技企业，又有从政经历
 
 ## 正文
 
-智谱（02513）盘中涨近5%，截至发稿，股价上涨4.35%，报852港元，成交额6.48亿港元。
+韩国总统李在明提名前Naver首席执行官韩成淑出任总理，这意味着一位深耕科技行业的女性管理者有望跻身国家最高领导层。
 
-4月30日，智谱公众号发文，首次系统披露GLM-5系列模型在超大规模Coding Agent调用场景下的底层推理技术突破。
+韩成淑曾是一名科技记者，随后在包括Naver在内的多家大型互联网公司担任高级职务。
 
-包括两个关键Bug的定位及修复、一项性能优化创新、以及一个意外的监控机制突破。
+她目前担任中小风险企业部长。
 
-针对Context Parallel策略中的KV Cache冗余存储问题，智谱设计实现了KV Cache分层存储方案 LayerSplit，这一优化直接大幅提升智谱在Coding场景下的服务能力上限。
+如果获得国会批准，韩成淑将成为韩国首位拥有互联网行业背景的总理，也是韩国历史上第二位女性总理。
 
-此外，公司推理优化还在进一步加速，大幅提升单位算力token吞吐效率，降低推理成本。
+韩国总统府表示，韩成淑曾执掌大型科技企业，又有从政经历，因此非常适合负责推进以人工智能和数字创新为核心的国家转型。
 
-责任编辑：卢昱君
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-29 22:14 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 21:59 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-29 22:17 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-29 22:13 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 22:21 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-29 21:58 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
-- 2026-06-29 22:22 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 22:22 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 21:56 - [欧洲旅行 感觉自己是烤箱里的肉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-29 22:12 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 22:17 - [乌是否掌握了扭转战局的钥匙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-29 22:15 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-29 22:19 - [白玉兰答谢宴合影](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 22:19 - [曝iPhone涨价后不会再降](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 22:01 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 22:09 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 22:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 22:22 - [中国农民给猪圈装空调 欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
+- 2026-06-29 22:06 - [日本在最东端离岛部署导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 22:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 22:29 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 22:02 - [货车司机恶意闯卡逃费被北京警方拘留](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-29 22:25 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-29 22:21 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 22:14 - [吴建豪和老婆差20岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:08 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/01305680.shtml)
-- 2026-06-29 22:06 - [网友晒14年前支教影像等来学生评论](https://www.share.minike.top/Article/details/517979431296.shtml)
-- 2026-06-29 21:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/48835.shtml)
-- 2026-06-29 22:16 - [东方风云榜直播](https://www.share.kurohicncr.top/Article/details/894846385.shtml)
-- 2026-06-29 22:12 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/11659.shtml)
-- 2026-06-29 22:07 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/46851.shtml)
-- 2026-06-29 22:18 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/128765690645.shtml)
-- 2026-06-29 22:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/61088621.shtml)
-- 2026-06-29 22:16 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/36024540.shtml)
-- 2026-06-29 22:15 - [我和我的家乡](https://www.blog.minike.top/Article/details/061295670055.shtml)
-- 2026-06-29 21:56 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/95719417288.shtml)
-- 2026-06-29 22:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/37319.shtml)
-- 2026-06-29 22:19 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/37797979500.shtml)
-- 2026-06-29 22:00 - [日防卫省正考虑引进美企人工智能系统](http://www.share.kurohicncr.top/Article/details/94294754.shtml)
-- 2026-06-29 22:12 - [世界杯疑现假球 FIFA被呼吁调查](http://www.blog.kurohicncr.top/Article/details/36984951299.shtml)
+- 2026-06-29 22:28 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/56875950170.shtml)
+- 2026-06-29 22:17 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/5028285496.shtml)
+- 2026-06-29 22:02 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/088940264.shtml)
+- 2026-06-29 22:26 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/1749379785.shtml)
+- 2026-06-29 22:04 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/775730224.shtml)
+- 2026-06-29 22:12 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/35449514.shtml)
+- 2026-06-29 22:12 - [中国农民给猪圈装空调 欧洲网友破防](https://www.share.kurohicncr.top/Article/details/890174434.shtml)
+- 2026-06-29 22:18 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/932679831.shtml)
+- 2026-06-29 22:26 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/02890.shtml)
+- 2026-06-29 22:12 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/16667.shtml)
+- 2026-06-29 22:08 - [宜宾地震已转移安置225人](http://www.blog.minike.top/Article/details/3709626858.shtml)
+- 2026-06-29 22:04 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.minike.top/Article/details/17468.shtml)
+- 2026-06-29 22:05 - [绘画区你赢了](https://www.blog.minike.top/Article/details/013062416012.shtml)
+- 2026-06-29 22:24 - [上世纪90年代玩具成新宠](http://www.share.kurohicncr.top/Article/details/4686271253.shtml)
+- 2026-06-29 22:09 - [105岁女红军看到自己长征时的模样](http://www.share.minike.top/Article/details/05749.shtml)

@@ -1,52 +1,43 @@
-# 白宫国家经济委员会主任哈塞特：美联储或欧洲央行加息将是错误
+# 山东省供销合作社联合社党组书记张传忠接受审查调查
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-白宫国家经济委员会主任凯文·哈塞特表示，美国和欧洲的央行官员应暂缓因担心能源成本飙升可能引发通胀而收紧货币政策。 哈塞特周四接受电视采访时表示，“如果欧洲央行或美联储在能源价格暂时飙升的情况下加息，那将是一个政策失误。” 哈塞特说：“根据我对学术文献的解读，面对这样的石油冲击，不应该提高利率，特别是我们高度相信这只是暂时的扰动。期货市场也认同这一点。” 哈塞特还表示，他对美联储
+中新网6月8日电 据山东省纪委监委消息，山东省供销合作社联合社党组书记、理事会主任张传忠涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
 
 ## 正文
 
-白宫国家经济委员会主任凯文·哈塞特表示，美国和欧洲的央行官员应暂缓因担心能源成本飙升可能引发通胀而收紧货币政策。
-
-哈塞特周四接受电视采访时表示，“如果欧洲央行或美联储在能源价格暂时飙升的情况下加息，那将是一个政策失误。
-
-” 哈塞特说：“根据我对学术文献的解读，面对这样的石油冲击，不应该提高利率，特别是我们高度相信这只是暂时的扰动。
-
-期货市场也认同这一点。
-
-” 哈塞特还表示，他对美联储主席杰罗姆·鲍威尔周三宣布计划继续留在美联储理事会“感到失望”，“但我打算暂时不参与其中，我们再等几周时间，等到凯文·沃什的提名获得确认。
-
-”责任编辑：江学思
+中新网6月8日电 据山东省纪委监委消息，山东省供销合作社联合社党组书记、理事会主任张传忠涉嫌严重违纪违法，目前正接受山东省纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 22:02 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 22:16 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 22:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 22:02 - [广东水利防汛Ⅳ级应急响应结束](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 22:23 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
-- 2026-06-29 22:22 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 22:23 - [18岁高二体育生训练晕倒后离世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-29 21:55 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 22:09 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 22:06 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 22:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-29 22:07 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 22:15 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 22:07 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-29 22:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 22:01 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-29 22:23 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-29 22:23 - [肝不好身体这几处会“说话”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-29 22:09 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 22:26 - [国际清算银行警告AI投资热潮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 22:03 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:14 - [央行首次3000亿元隔夜逆回购操作](https://www.share.kurohicncr.top/Article/details/00354620.shtml)
-- 2026-06-29 22:00 - [小娘惹](http://www.share.kurohicncr.top/Article/details/631197366662.shtml)
-- 2026-06-29 22:21 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/98879419.shtml)
-- 2026-06-29 22:14 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/3806708.shtml)
-- 2026-06-29 22:01 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/78301822744.shtml)
-- 2026-06-29 22:18 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/405889316.shtml)
-- 2026-06-29 22:12 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/9919379163.shtml)
-- 2026-06-29 22:19 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/9985185571.shtml)
-- 2026-06-29 22:04 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/592032.shtml)
-- 2026-06-29 22:05 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/0288010.shtml)
-- 2026-06-29 22:21 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/797853852.shtml)
-- 2026-06-29 22:05 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/83990.shtml)
-- 2026-06-29 22:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.kurohicncr.top/Article/details/03519943.shtml)
-- 2026-06-29 22:02 - [巴西队主帅称日本队是世界最佳之一](http://www.blog.minike.top/Article/details/735004.shtml)
-- 2026-06-29 21:57 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.minike.top/Article/details/652713.shtml)
+- 2026-06-29 22:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/054772165130.shtml)
+- 2026-06-29 22:10 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/249060538983.shtml)
+- 2026-06-29 22:09 - [金牌调解](http://www.blog.kurohicncr.top/Article/details/829630.shtml)
+- 2026-06-29 22:24 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.minike.top/Article/details/138018949.shtml)
+- 2026-06-29 22:09 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/49777757.shtml)
+- 2026-06-29 22:14 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/312158.shtml)
+- 2026-06-29 22:29 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/2377559170.shtml)
+- 2026-06-29 22:11 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/99515361.shtml)
+- 2026-06-29 22:04 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/065761680433.shtml)
+- 2026-06-29 22:12 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/02709162549.shtml)
+- 2026-06-29 22:14 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/91209.shtml)
+- 2026-06-29 22:13 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/386900706.shtml)
+- 2026-06-29 22:12 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/276299484342.shtml)
+- 2026-06-29 22:13 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/94724.shtml)
+- 2026-06-29 22:24 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/68803249.shtml)

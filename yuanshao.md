@@ -1,50 +1,49 @@
-# 美国上周首次申领失业救济人数减少2.6万人至18.9万人，预估为21.2万人
+# 台湾媒体人：大陆发展太快 冀用镜头记录所见所闻
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-接受调查的42位经济学家的预测范围为20.5万人至22.8万人。 4周移动均值为20.75万人。 在截至4月18日当周，持续申领失业救济人数减少2.3万人至178.5万人。责任编辑：江学思
+发布时间：2026年06月07日 15:56 来源：中国新闻网 6月6日，2026清新福建行两岸媒体联合采风活动在福建平潭启动。采风活动为期6天，将赴平潭、三明、泉州、厦门4地共18个点位开展深度采访。参与走访的台湾自媒体人、导演薛颖穜表示，大陆发展速度飞快，这次走访福建，希望用镜头记录真实的所见所闻，分享当地蓬勃向上的发展活力。(彭莉芳 郑江洛 制作 王嘉怡） 责任编辑：【李
 
 ## 正文
 
-接受调查的42位经济学家的预测范围为20.5万人至22.8万人。
+发布时间：2026年06月07日 15:56 来源：中国新闻网 6月6日，2026清新福建行两岸媒体联合采风活动在福建平潭启动。
 
-4周移动均值为20.75万人。
+采风活动为期6天，将赴平潭、三明、泉州、厦门4地共18个点位开展深度采访。
 
-在截至4月18日当周，持续申领失业救济人数减少2.3万人至178.5万人。
+参与走访的台湾自媒体人、导演薛颖穜表示，大陆发展速度飞快，这次走访福建，希望用镜头记录真实的所见所闻，分享当地蓬勃向上的发展活力。
 
-责任编辑：江学思
+(彭莉芳 郑江洛 制作 王嘉怡） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-29 21:54 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 21:58 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 22:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
-- 2026-06-29 22:07 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-29 22:18 - [FIFA被呼吁调查阿尔及利亚奥地利比赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
-- 2026-06-29 22:00 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 22:06 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 22:15 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-29 22:08 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 22:11 - [巴黎区长紧急采购50台中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 22:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-29 22:06 - [恋与深空致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 22:13 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-29 22:01 - [韩国队回国欢迎仪式取消](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 22:29 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 22:21 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-29 22:29 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 22:28 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 22:22 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 22:28 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 22:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-29 22:22 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 22:11 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/147767367355.shtml)
-- 2026-06-29 22:09 - [汪苏泷年度歌手](http://www.share.kurohicncr.top/Article/details/24014602031.shtml)
-- 2026-06-29 22:10 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/41885.shtml)
-- 2026-06-29 22:03 - [做完数学题 韩国队回家了](http://www.blog.minike.top/Article/details/8047052094.shtml)
-- 2026-06-29 22:06 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/964364415.shtml)
-- 2026-06-29 21:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/739185.shtml)
-- 2026-06-29 22:18 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.minike.top/Article/details/222124611.shtml)
-- 2026-06-29 22:12 - [董卿母亲癌症去世](https://www.blog.minike.top/Article/details/668896461.shtml)
-- 2026-06-29 22:23 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/8696491972.shtml)
-- 2026-06-29 22:02 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/8087687.shtml)
-- 2026-06-29 22:05 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/724344.shtml)
-- 2026-06-29 21:58 - [福建海警位金门附近海域常态执法巡查](https://www.share.kurohicncr.top/Article/details/9967737760.shtml)
-- 2026-06-29 22:14 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/1517211.shtml)
-- 2026-06-29 22:14 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/133895.shtml)
-- 2026-06-29 22:08 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/42957632296.shtml)
+- 2026-06-29 22:17 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/651280.shtml)
+- 2026-06-29 22:18 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/372179677.shtml)
+- 2026-06-29 22:06 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.minike.top/Article/details/977058299.shtml)
+- 2026-06-29 22:26 - [日本在最东端离岛部署导弹发射装置](https://www.share.minike.top/Article/details/576268272.shtml)
+- 2026-06-29 22:01 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/9501011.shtml)
+- 2026-06-29 22:04 - [男子恶意曲解袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/03513.shtml)
+- 2026-06-29 22:25 - [桂林原书记周家斌贪1.98亿被判无期](https://www.blog.minike.top/Article/details/900444699996.shtml)
+- 2026-06-29 22:26 - [哈兰德玩游戏连女友都不让着](http://www.blog.minike.top/Article/details/283777.shtml)
+- 2026-06-29 22:08 - [沉睡花园](http://www.blog.minike.top/Article/details/936354675.shtml)
+- 2026-06-29 22:00 - [蜘蛛侠:平行宇宙](http://www.blog.minike.top/Article/details/55618009.shtml)
+- 2026-06-29 22:29 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/6667092247.shtml)
+- 2026-06-29 22:18 - [乌克兰发广告全球征兵](http://www.blog.minike.top/Article/details/195686.shtml)
+- 2026-06-29 22:26 - [巴西10号球衣是天才传承史](http://www.blog.kurohicncr.top/Article/details/709321093887.shtml)
+- 2026-06-29 22:20 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/0547163.shtml)
+- 2026-06-29 22:23 - [TOP Prada](https://www.share.kurohicncr.top/Article/details/717723921.shtml)

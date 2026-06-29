@@ -1,60 +1,56 @@
-# 4月中国制造业采购经理指数为50.3% 制造业景气水平总体稳定
+# 埃斯顿午前涨超13% 工业机器人出货量稳居中国市场第一
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中新网4月30日电 据国家统计局网站消息，国家统计局30号发布2026年4月中国采购经理指数运行情况。 一、中国制造业采购经理指数运行情况 4月份，制造业采购经理指数(PMI)为50.3%，比上月下降0.1个百分点，制造业景气水平总体稳定。 从企业规模看，大型企业PMI为50.2%，比上月下降1.4个百分点，仍高于临界点；中、小型企业PMI分别为50.5%和50.1%，比上月上
+埃斯顿（02715）午前涨超13%，截至发稿，股价上涨13.22%，现报20.56港元，成交额4.05亿港元。 6月5日晚，埃斯顿披露投资者关系活动记录表披露，公司海外业务主要布局欧洲、美洲及东南亚三大区域，其中欧洲作为公司近年来重点开拓的市场，已在欧洲多个国家设立分子公司并组建本地化管理团队。目前，公司已成功进入多个大型客户的供应商品牌名录，其中包括头部汽车零部件厂商、一般工
 
 ## 正文
 
-中新网4月30日电 据国家统计局网站消息，国家统计局30号发布2026年4月中国采购经理指数运行情况。
+埃斯顿（02715）午前涨超13%，截至发稿，股价上涨13.22%，现报20.56港元，成交额4.05亿港元。
 
-一、中国制造业采购经理指数运行情况 4月份，制造业采购经理指数(PMI)为50.3%，比上月下降0.1个百分点，制造业景气水平总体稳定。
+6月5日晚，埃斯顿披露投资者关系活动记录表披露，公司海外业务主要布局欧洲、美洲及东南亚三大区域，其中欧洲作为公司近年来重点开拓的市场，已在欧洲多个国家设立分子公司并组建本地化管理团队。
 
-从企业规模看，大型企业PMI为50.2%，比上月下降1.4个百分点，仍高于临界点；中、小型企业PMI分别为50.5%和50.1%，比上月上升1.5个和0.8个百分点，均高于临界点。
+目前，公司已成功进入多个大型客户的供应商品牌名录，其中包括头部汽车零部件厂商、一般工业头部厂商。
 
-从分类指数看，构成制造业PMI的5个分类指数中，生产指数和新订单指数均高于临界点，原材料库存指数、从业人员指数和供应商配送时间指数均低于临界点。
+此外，根据MIR睿工业数据，2026年第一季度公司工业机器人市占率同比进一步提升，位居中国机器人市场出货量第一。
 
-生产指数为51.5%，比上月上升0.1个百分点，表明制造业生产活动有所加快。
+群益证券（香港）近期研报指出，公司正处于行业景气修复与平台能力升级的共振阶段一方面，国内工业机器人产量延续高增，公司出货量稳居中国市场第一，盈利拐点逐步显现；另一方面，公司通过港股上市、AI赋能产品、并购等措施来夯实竞争力，经营质量有望稳步提升。
 
-新订单指数为50.6%，比上月下降1.0个百分点，仍高于临界点，表明制造业市场需求保持扩张。
+看好公司发展前景。
 
-原材料库存指数为49.3%，比上月上升1.6个百分点，表明制造业主要原材料库存量降幅明显收窄。
-
-从业人员指数为48.8%，比上月上升0.2个百分点，表明制造业企业用工景气水平回升。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 22:23 - [黄灿灿张慧雯落地签还没发的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-29 22:01 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
-- 2026-06-29 22:10 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 21:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 22:06 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 22:15 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
-- 2026-06-29 22:04 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 22:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 22:09 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 22:17 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 22:15 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 22:18 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 22:02 - [欧洲高温会成下个印度吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
-- 2026-06-29 21:58 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/trefu.md)
+- 2026-06-29 22:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-29 22:29 - [美国一牛仔表演发生事故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 22:17 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 22:27 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 22:00 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 22:02 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 22:08 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
+- 2026-06-29 22:13 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 22:02 - [媒体：“虹吸执法”权力寻租该翻篇了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 22:14 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 22:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 22:21 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/272273021.shtml)
-- 2026-06-29 22:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/64489358.shtml)
-- 2026-06-29 21:59 - [中外合作办学是“低分捷径”吗](http://www.share.kurohicncr.top/Article/details/527294625909.shtml)
-- 2026-06-29 22:22 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/07868056.shtml)
-- 2026-06-29 22:22 - [存储三巨头被告了](https://www.blog.kurohicncr.top/Article/details/72802.shtml)
-- 2026-06-29 21:57 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/76338.shtml)
-- 2026-06-29 22:17 - [把邻居裸体发群算维权还是侵权](https://www.blog.minike.top/Article/details/035013650.shtml)
-- 2026-06-29 22:20 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/063620.shtml)
-- 2026-06-29 22:12 - [上世纪90年代玩具成新宠](https://www.share.kurohicncr.top/Article/details/40892202.shtml)
-- 2026-06-29 22:21 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/58752744263.shtml)
-- 2026-06-29 22:02 - [王楚钦开门红](https://www.share.minike.top/Article/details/66434515503.shtml)
-- 2026-06-29 21:54 - [王鸿薇要求删陆委会百余万特别费](http://www.blog.minike.top/Article/details/724143.shtml)
-- 2026-06-29 22:17 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/566680858.shtml)
-- 2026-06-29 22:09 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/677060628.shtml)
-- 2026-06-29 22:23 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/24410238488.shtml)
+- 2026-06-29 22:27 - [货车司机恶意闯卡逃费被北京警方拘留](https://www.blog.minike.top/Article/details/63683.shtml)
+- 2026-06-29 22:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/04978190.shtml)
+- 2026-06-29 22:03 - [多人将马路护栏当球网打羽毛球](https://www.blog.kurohicncr.top/Article/details/668685.shtml)
+- 2026-06-29 22:06 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/452321819391.shtml)
+- 2026-06-29 22:22 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/53509969.shtml)
+- 2026-06-29 22:24 - [月亮](http://www.blog.kurohicncr.top/Article/details/283805305.shtml)
+- 2026-06-29 22:12 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/186983659.shtml)
+- 2026-06-29 22:04 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.blog.kurohicncr.top/Article/details/4385923.shtml)
+- 2026-06-29 22:03 - [85花告别古偶](https://www.share.minike.top/Article/details/49806625310.shtml)
+- 2026-06-29 22:20 - [谢霆锋王菲十指紧扣一起走](https://www.blog.kurohicncr.top/Article/details/80684.shtml)
+- 2026-06-29 22:20 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/56304.shtml)
+- 2026-06-29 22:29 - [扬名立万](http://www.share.minike.top/Article/details/6210101879.shtml)
+- 2026-06-29 22:06 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/6357709964.shtml)
+- 2026-06-29 22:23 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/848898.shtml)
+- 2026-06-29 22:00 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/29885.shtml)

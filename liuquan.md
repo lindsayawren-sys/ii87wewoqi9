@@ -1,57 +1,61 @@
-# 中国代表团：日本拥核对核不扩散体系构成严重挑战
+# 韩元大幅贬值，韩国监管部门敦促银行加强管控
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-中国代表团29日在《不扩散核武器条约》第十一次审议大会的二次答辩发言中指出，高市早苗政府上台以来，日本拥核问题已经是现实而非潜在威胁，对二战后国际秩序及核不扩散体系构成严重挑战。 中国代表团说，日本是国际公认的核门槛国家，是《不扩散核武器条约》成员国中唯一掌握后处理技术、有能力提取武器级钚、拥有可运行后处理设施的无核武器国家。国际社会必须高度警惕以下消极动向。一是日本首相官邸官
+受中东局势持续紧张、市场押注美联储年内或将加息影响，韩元汇率跌至2009年以来最低水平。韩国监管部门随即敦促各家银行加大力度，打击其口中扰乱市场的投机行为。 韩国金融监督院于周一紧急召开会议，参会人员包括韩国央行官员，以及国民银行、新韩银行、韩亚银行、友利银行等韩国主流本土银行高管。 韩国金融监督院发布声明称，韩国央行与金融监督院将开展专项检查，一旦查实违规行为，将依法采取严厉
 
 ## 正文
 
-中国代表团29日在《不扩散核武器条约》第十一次审议大会的二次答辩发言中指出，高市早苗政府上台以来，日本拥核问题已经是现实而非潜在威胁，对二战后国际秩序及核不扩散体系构成严重挑战。
+受中东局势持续紧张、市场押注美联储年内或将加息影响，韩元汇率跌至2009年以来最低水平。
 
-中国代表团说，日本是国际公认的核门槛国家，是《不扩散核武器条约》成员国中唯一掌握后处理技术、有能力提取武器级钚、拥有可运行后处理设施的无核武器国家。
+韩国监管部门随即敦促各家银行加大力度，打击其口中扰乱市场的投机行为。
 
-国际社会必须高度警惕以下消极动向。
+韩国金融监督院于周一紧急召开会议，参会人员包括韩国央行官员，以及国民银行、新韩银行、韩亚银行、友利银行等韩国主流本土银行高管。
 
-一是日本首相官邸官员扬言“日本应该拥有核武器”，右翼势力谋求修改“无核三原则”，不断试探国际社会反应，为政策转向做准备。
+韩国金融监督院发布声明称，韩国央行与金融监督院将开展专项检查，一旦查实违规行为，将依法采取严厉管控措施。
 
-二是日本长期囤积大量远超民用需求的钚材料，在国内外管理的分离钚总量约44.4吨。
+监管部门同时警告，严禁机构借韩元贬值之机进行套利操作。
 
-日本具备研发核武器技术能力，可在短期内实现核突破。
+金融监督院表示，与会各方探讨了密切监测境外无本金交割远期外汇交易对韩国境内外汇市场影响的必要性，并要求参会银行全力配合相关监管工作。
 
-三是日本在核不扩散问题上立场自相矛盾。
+汇丰银行、渣打银行的韩国分行也出席了本次会议。
 
-日本一边在国际上长期以“核爆受害者”自居，以无核世界支持者迷惑世人，一边不断强化盟友“延伸威慑”合作，急切渴望复制“核共享”安排、将盟国核武器引入日本。
+在出台上述稳汇率举措的数小时前，韩国监管部门已再度发声，针对无本金交割远期外汇产品领域的投机行为发出警告。
 
 ## 相关推荐
 
-- 2026-06-29 22:19 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 22:17 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 21:56 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 22:23 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 22:11 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 22:16 - [记者：预计热火将追求小哈达威和康利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-29 22:05 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 22:11 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
-- 2026-06-29 22:06 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 22:21 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 22:00 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 22:02 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 22:07 - [蓝箭航天科创板IPO审核状态为已问询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 22:25 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 22:20 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 22:08 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
+- 2026-06-29 22:16 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 22:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 22:24 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-29 22:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 22:28 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 22:11 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 22:09 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-29 22:27 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
+- 2026-06-29 22:11 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 22:23 - [网友晒14年前支教影像等来学生评论](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 21:59 - [福建海警位金门附近海域常态执法巡查](https://www.blog.minike.top/Article/details/146535578.shtml)
-- 2026-06-29 22:06 - [巴西队主帅称日本队是世界最佳之一](https://www.share.kurohicncr.top/Article/details/393549461.shtml)
-- 2026-06-29 22:05 - [范志毅看好日本队淘汰巴西](https://www.share.minike.top/Article/details/7156436993.shtml)
-- 2026-06-29 22:04 - [浙江进入梅雨最强“攻击时段”](http://www.share.minike.top/Article/details/640873.shtml)
-- 2026-06-29 22:15 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.kurohicncr.top/Article/details/02234033210.shtml)
-- 2026-06-29 21:57 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/32369.shtml)
-- 2026-06-29 22:17 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/2721489932.shtml)
-- 2026-06-29 22:20 - [时光音乐会](http://www.blog.minike.top/Article/details/851575524.shtml)
-- 2026-06-29 22:14 - [起风了](http://www.share.kurohicncr.top/Article/details/397612.shtml)
-- 2026-06-29 22:10 - [高考1357分的同学如何报志愿？](http://www.blog.minike.top/Article/details/41174706885.shtml)
-- 2026-06-29 22:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/3881124921.shtml)
-- 2026-06-29 22:01 - [欧洲旅行 感觉自己是烤箱里的肉](http://www.share.minike.top/Article/details/628582.shtml)
-- 2026-06-29 22:13 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/2546318.shtml)
-- 2026-06-29 22:19 - [起风了](http://www.share.kurohicncr.top/Article/details/5726479.shtml)
-- 2026-06-29 22:10 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/07736.shtml)
+- 2026-06-29 22:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/957907.shtml)
+- 2026-06-29 22:05 - [俄军1周发射上千架无人机有何目的](http://www.blog.kurohicncr.top/Article/details/7297726.shtml)
+- 2026-06-29 22:19 - [记者暗访养老机构消防安全](http://www.blog.kurohicncr.top/Article/details/69224850.shtml)
+- 2026-06-29 22:08 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/0183356.shtml)
+- 2026-06-29 22:03 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.share.kurohicncr.top/Article/details/4121608.shtml)
+- 2026-06-29 22:03 - [一台空调背后的全球化逻辑](http://www.share.kurohicncr.top/Article/details/0866248227.shtml)
+- 2026-06-29 22:07 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/90087219456.shtml)
+- 2026-06-29 22:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/5498519.shtml)
+- 2026-06-29 22:13 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/99056617.shtml)
+- 2026-06-29 22:03 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/8017594.shtml)
+- 2026-06-29 22:07 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/80421969.shtml)
+- 2026-06-29 22:02 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/57683248.shtml)
+- 2026-06-29 22:18 - [福建海警位金门附近海域常态执法巡查](https://www.blog.kurohicncr.top/Article/details/071080733292.shtml)
+- 2026-06-29 22:02 - [6.5万观众40分钟“丝滑”离场](http://www.blog.minike.top/Article/details/923445360.shtml)
+- 2026-06-29 22:01 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/9658774422.shtml)

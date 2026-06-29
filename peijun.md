@@ -1,55 +1,55 @@
-# 我国将多举措推进服务业扩能提质
+# 学习·知行丨人不负青山，青山定不负人
 
-> 更新时间：2026-06-29 22:24:03 UTC+8
+> 更新时间：2026-06-29 22:30:02 UTC+8
 
 ## 摘要
 
-央视网消息(新闻联播)：国务院新闻办公室4月28日举行国务院政策例行吹风会，国家发展改革委、商务部、文化和旅游部、市场监管总局、工业和信息化部有关负责人介绍《关于推进服务业扩能提质的意见》相关情况。 据介绍，《关于推进服务业扩能提质的意见》近日印发，提出到2030年服务业总规模迈上100万亿元台阶，这意味着在“十五五”期间有20万亿元的增长空间。在定性目标方面，《意见》提出，要
+视频：学习·知行丨人不负青山，青山定不负人来源：人民网-中国共产党新闻网 “人不负青山，青山定不负人。”大江南北的山水草木，见证了习近平总书记心系中华民族永续发展的深厚情怀。在习近平生态文明思想指引下，我国绿色低碳发展迈出坚实步伐，生态环境质量明显改善，锦绣大地铺展出一幅人与自然和谐共生的美丽画卷。 6月5日是世界环境日，让我们一起走进美丽中国，领略生态文明建设的多彩画卷。 文
 
 ## 正文
 
-央视网消息(新闻联播)：国务院新闻办公室4月28日举行国务院政策例行吹风会，国家发展改革委、商务部、文化和旅游部、市场监管总局、工业和信息化部有关负责人介绍《关于推进服务业扩能提质的意见》相关情况。
+视频：学习·知行丨人不负青山，青山定不负人来源：人民网-中国共产党新闻网 “人不负青山，青山定不负人。
 
-据介绍，《关于推进服务业扩能提质的意见》近日印发，提出到2030年服务业总规模迈上100万亿元台阶，这意味着在“十五五”期间有20万亿元的增长空间。
+”大江南北的山水草木，见证了习近平总书记心系中华民族永续发展的深厚情怀。
 
-在定性目标方面，《意见》提出，要基本形成质量更高、结构更优、品质更佳、活力更足的发展格局，培育更多“中国服务”品牌。
+在习近平生态文明思想指引下，我国绿色低碳发展迈出坚实步伐，生态环境质量明显改善，锦绣大地铺展出一幅人与自然和谐共生的美丽画卷。
 
-《意见》部署了服务业扩能提质的“十个重点领域”。
+6月5日是世界环境日，让我们一起走进美丽中国，领略生态文明建设的多彩画卷。
 
-在生产性服务业方面，将围绕科技服务、现代物流、软件和信息服务、供应链金融、节能环保服务、商务服务6个重点领域17个关键环节，促进研发设计专业化高端化、生产环节价值提升和市场价值实现。
-
-通过强大的生产性服务业，为制造业竞争力提升提供有效的支撑。
-
-在生活性服务业方面，将围绕居民服务、养老托育、健康服务、文旅体服务4个重点领域9个细分行业，对于文旅体等升级类服务，扩大有效供给；对个性化的服务，进一步做细做精，不断满足人民群众对美好生活的需要。
+文案、制作：涂诗轩、彭晓玲 采访支持：罗娜、孔文进 部分素材来源：人民日报、央视新闻等
 
 ## 相关推荐
 
-- 2026-06-29 22:22 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 21:55 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-29 22:02 - [王安宇聪明到导演组炸了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 22:15 - [朱雀三号完成静态点火试验](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
-- 2026-06-29 22:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-29 22:15 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 22:00 - [巴西10号球衣是天才传承史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-29 22:09 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 21:59 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 22:12 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 22:23 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 22:25 - [虞书欣和粉丝剧宣一个脑回路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzcnv.md)
+- 2026-06-29 22:03 - [日本队豪言击败巴西是自信还是傲慢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-29 22:01 - [中方绝不允许日菲侵害我海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 22:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 22:26 - [三大外卖平台承诺不开展分钟级竞速](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
+- 2026-06-29 22:11 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 22:17 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-29 22:24 - [五只军犬招募领养人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 22:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-29 22:19 - [厨房装空调还是装冷烟机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 22:05 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-29 22:00 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 22:10 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
+- 2026-06-29 22:15 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 22:21 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 22:11 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/69125797584.shtml)
-- 2026-06-29 21:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/8473175.shtml)
-- 2026-06-29 21:54 - [一切民族英雄都是中华民族的脊梁](https://www.blog.kurohicncr.top/Article/details/99532234795.shtml)
-- 2026-06-29 22:15 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/3018603.shtml)
-- 2026-06-29 21:55 - [大爷趁我不注意，丢下五块钱就赶紧转身离开，结果.......](http://www.share.kurohicncr.top/Article/details/8884845489.shtml)
-- 2026-06-29 22:14 - [法拉利车主已自行承担修理费近3万](https://www.share.kurohicncr.top/Article/details/03103.shtml)
-- 2026-06-29 21:58 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/230092.shtml)
-- 2026-06-29 22:23 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/48774965729.shtml)
-- 2026-06-29 21:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/04490530084.shtml)
-- 2026-06-29 22:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/63568753623.shtml)
-- 2026-06-29 22:21 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/552808290842.shtml)
-- 2026-06-29 22:17 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/106237233203.shtml)
-- 2026-06-29 22:15 - [马来西亚同意延长马航370残骸搜寻](http://www.blog.kurohicncr.top/Article/details/1027724.shtml)
-- 2026-06-29 22:19 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/30003493888.shtml)
-- 2026-06-29 22:23 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/9602727104.shtml)
+- 2026-06-29 22:21 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/10284.shtml)
+- 2026-06-29 22:00 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/148150815.shtml)
+- 2026-06-29 22:23 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/947742.shtml)
+- 2026-06-29 22:03 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/817558.shtml)
+- 2026-06-29 22:02 - [𝗩𝟴 'singasong' Official MV](https://www.share.minike.top/Article/details/362653.shtml)
+- 2026-06-29 22:28 - [佛得角队长门德斯被控强奸](http://www.share.kurohicncr.top/Article/details/10129.shtml)
+- 2026-06-29 22:22 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/58307035.shtml)
+- 2026-06-29 22:25 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/876902.shtml)
+- 2026-06-29 22:14 - [上世纪90年代玩具成新宠](http://www.blog.minike.top/Article/details/785254.shtml)
+- 2026-06-29 22:22 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/502157.shtml)
+- 2026-06-29 22:29 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/63352.shtml)
+- 2026-06-29 22:09 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/72260747.shtml)
+- 2026-06-29 22:24 - [林一听到陈星旭王玉雯谈恋爱的反应](http://www.blog.minike.top/Article/details/1253840948.shtml)
+- 2026-06-29 22:21 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/0913733.shtml)
+- 2026-06-29 22:04 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/10946217.shtml)
