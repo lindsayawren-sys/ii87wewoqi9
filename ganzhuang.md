@@ -1,56 +1,56 @@
-# 福建“十五五”聚焦数智赋能 打造“四区一标杆”
+# 白宫与更严格的 AI 监管措施保持距离
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中新网福州5月8日电 (叶秋云)推动人工智能和实体经济深度融合，不断壮大数智领域新质生产力，力争数字经济核心产业增加值年均增长8%以上…… 8日，“开局起步‘十五五’——奋勇争先、再上台阶，奋力开创中国式现代化福建实践新局面”专场新闻发布会在福州举行。新闻发布会上，中共福建省委副书记、省人民政府省长赵龙介绍《福建省国民经济和社会发展第十五个五年(2026—2030年)规划纲要》
+据报道，白宫高级官员正试图安抚科技行业的担忧 —— 政府可能会要求科技公司在向公众发布先进人工智能模型前，先提交给联邦政府审查。 白宫一位顶级经济顾问周三公开证实，政府正在讨论此类审查，并将其比作美国食品药品监督管理局（FDA）对处方药长达数年的测试。而就在此言发表一天后，唐纳德・特朗普总统的助手们却释放出不同信号：此事暂缓。一位白宫高级官员表示：“仅有少数一两人极力主张由政府
 
 ## 正文
 
-中新网福州5月8日电 (叶秋云)推动人工智能和实体经济深度融合，不断壮大数智领域新质生产力，力争数字经济核心产业增加值年均增长8%以上…… 8日，“开局起步‘十五五’——奋勇争先、再上台阶，奋力开创中国式现代化福建实践新局面”专场新闻发布会在福州举行。
+据报道，白宫高级官员正试图安抚科技行业的担忧 —— 政府可能会要求科技公司在向公众发布先进人工智能模型前，先提交给联邦政府审查。
 
-新闻发布会上，中共福建省委副书记、省人民政府省长赵龙介绍《福建省国民经济和社会发展第十五个五年(2026—2030年)规划纲要》(以下简称《纲要》)有关情况时披露上述数据。
+白宫一位顶级经济顾问周三公开证实，政府正在讨论此类审查，并将其比作美国食品药品监督管理局（FDA）对处方药长达数年的测试。
 
-赵龙指出，在这一轮数智化变革浪潮中，谁觉悟得早、下手得快，谁就能抢占先机、赢得主动，在区域竞争中形成新优势。
+而就在此言发表一天后，唐纳德・特朗普总统的助手们却释放出不同信号：此事暂缓。
 
-《纲要》专设篇章，共六章内容，全面部署推进数智赋能千行百业。
+一位白宫高级官员表示：“仅有少数一两人极力主张由政府出台监管规则，但这类人在整体中属于少数派。
 
-总的目标可以用“四区一标杆”来概括，“四区”即打造数据要素市场化配置改革先行区、实体经济和数字经济深度融合示范区、数字政府改革建设引领区、数智化发展环境样板区；“一标杆”是打造新时代数字中国建设标杆。
+” 与其他受访人士一样，该官员因涉及敏感政策讨论获准匿名发言。
 
-而围绕数智赋能核心任务，福建将聚焦三大重点领域精准发力，推动数智技术与经济社会发展深度融合。
+在官方表态前后矛盾之际，科技行业人士正焦急等待一份行政令出台，该政令将明确本届政府计划如何防范高性能新型人工智能模型遭滥用，进而发起网络攻击、甚至研发生物武器。
 
-一是赋能产业发展。
-
-推动人工智能和实体经济深度融合，一方面抓智能产业化，实施人工智能企业梯次培育计划，加快数智技术创新，发展智能经济新形态，计划用五年时间，培育出1500多家人工智能企业，打造出50个行业垂直模型和300个典型应用场景；另一方面抓产业智能化，就是要坚定不移推动传统产业“智改数转”。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:58 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:48 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:54 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:15 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:50 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:09 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 13:16 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:54 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 13:10 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 13:17 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 12:55 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 12:58 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 13:14 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-29 13:11 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 13:11 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-29 13:17 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 12:50 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-29 13:15 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 13:01 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
+- 2026-06-29 13:17 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 12:54 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.share.minike.top/Article/details/17960828665.shtml)
-- 2026-06-29 13:14 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.share.minike.top/Article/details/040804.shtml)
-- 2026-06-29 12:50 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.share.minike.top/Article/details/922830.shtml)
-- 2026-06-29 13:16 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.blog.kurohicncr.top/Article/details/117478712.shtml)
-- 2026-06-29 13:05 - [坚持有腐必反、有贪必肃](http://www.blog.minike.top/Article/details/699870183.shtml)
-- 2026-06-29 12:58 - [信利国际于5月8日耗资103万港元回购100万股](http://www.share.kurohicncr.top/Article/details/623655229.shtml)
-- 2026-06-29 13:10 - [中欧班列开行突破13万列](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/33779090271.shtml)
-- 2026-06-29 13:16 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.minike.top/Article/details/908472659605.shtml)
-- 2026-06-29 13:10 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.blog.kurohicncr.top/Article/details/150026.shtml)
-- 2026-06-29 12:48 - [个人办事，不只“能办”还要“好办、易办”](http://www.share.kurohicncr.top/Article/details/51266424270.shtml)
-- 2026-06-29 13:08 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.share.minike.top/Article/details/3489853.shtml)
-- 2026-06-29 13:09 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.share.kurohicncr.top/Article/details/3425084.shtml)
+- 2026-06-29 13:13 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/188128586.shtml)
+- 2026-06-29 13:19 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/576514645.shtml)
+- 2026-06-29 12:56 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/4497886665.shtml)
+- 2026-06-29 12:59 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/75038748599.shtml)
+- 2026-06-29 13:06 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/197016179.shtml)
+- 2026-06-29 12:58 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/539480797.shtml)
+- 2026-06-29 13:04 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/4591599.shtml)
+- 2026-06-29 13:15 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/58298667733.shtml)
+- 2026-06-29 12:55 - [105年初心滚烫](https://www.share.minike.top/Article/details/649312894.shtml)
+- 2026-06-29 12:58 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.minike.top/Article/details/03093251695.shtml)
+- 2026-06-29 12:50 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/60014.shtml)
+- 2026-06-29 12:55 - [宜宾地震后顾客折返用餐0人逃单](http://www.share.minike.top/Article/details/999241.shtml)
+- 2026-06-29 12:50 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/325572336.shtml)
+- 2026-06-29 13:07 - [中国避暑神器在欧洲卖爆了](http://www.share.kurohicncr.top/Article/details/0782092.shtml)
+- 2026-06-29 13:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/04423662308.shtml)

@@ -1,47 +1,57 @@
-# 圣马丁国际：合共6690万股未获认购供股股份已成功配售
+# 美国弗吉尼亚州最高法院否决该州重划选区方案
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-圣马丁国际（00482）发布公告，于2026年5月4日（星期一）下午四时正（即配售代理配售未获认购供股股份的最后时限），合共6690万股未获认购供股股份（占供股项下提呈发售供股股份总数约54.37%）已按每股股份0.75港元的价格（相等于认购价）成功配售予配售事项项下的4名承配人。责任编辑：卢昱君
+中新社华盛顿5月8日电(记者 沙晗汀)美国弗吉尼亚州最高法院当地时间8日裁定，此前弗吉尼亚州公投通过的重新划分选区方案无效。 在当天的裁决中，弗吉尼亚州最高法院的7名法官以4比3的结果裁定重新划分选区方案违法。 法官凯尔希(Arthur Kelsey)在多数派意见书中说，重划选区方案在程序上违宪，“该违规行为无可挽回地破坏了公投的公正性，因此无效”。 4月21日，弗吉尼亚州全民
 
 ## 正文
 
-圣马丁国际（00482）发布公告，于2026年5月4日（星期一）下午四时正（即配售代理配售未获认购供股股份的最后时限），合共6690万股未获认购供股股份（占供股项下提呈发售供股股份总数约54.37%）已按每股股份0.75港元的价格（相等于认购价）成功配售予配售事项项下的4名承配人。
+中新社华盛顿5月8日电(记者 沙晗汀)美国弗吉尼亚州最高法院当地时间8日裁定，此前弗吉尼亚州公投通过的重新划分选区方案无效。
 
-责任编辑：卢昱君
+在当天的裁决中，弗吉尼亚州最高法院的7名法官以4比3的结果裁定重新划分选区方案违法。
+
+法官凯尔希(Arthur Kelsey)在多数派意见书中说，重划选区方案在程序上违宪，“该违规行为无可挽回地破坏了公投的公正性，因此无效”。
+
+4月21日，弗吉尼亚州全民公投以51.5%的赞成票通过了重新划分选区方案。
+
+据美媒报道，弗吉尼亚州最高法院当天裁决结果对民主党人是“重创”。
+
+根据新方案，民主党人有望在今年中期选举中新增4个联邦众议院席位。
+
+目前，弗吉尼亚州有11个联邦众议院席位，民主党人占据6席、共和党人5席。
+
+弗吉尼亚州众议院议长、民主党人斯科特(Don Scott)当天表示，民主党人尊重最高法院的裁决结果，但该结果意味着推翻选民意愿，对此表示“遗憾”。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:10 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 13:17 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 13:14 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:57 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:50 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:06 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:00 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:09 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:48 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:50 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 13:10 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 13:05 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 13:01 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-29 12:50 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 12:52 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 13:15 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-29 13:09 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 13:01 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 12:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:14 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 12:51 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 13:01 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 13:13 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.share.kurohicncr.top/Article/details/174944226.shtml)
-- 2026-06-29 12:54 - [重庆最大液化天然气单一燃料江海直达散货船首航](http://www.share.minike.top/Article/details/2081700.shtml)
-- 2026-06-29 12:48 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.kurohicncr.top/Article/details/433421414.shtml)
-- 2026-06-29 13:06 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.blog.minike.top/Article/details/98018959125.shtml)
-- 2026-06-29 13:13 - [高开低走，油脂后市何去何从？](http://www.share.minike.top/Article/details/117089.shtml)
-- 2026-06-29 13:02 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](http://www.share.kurohicncr.top/Article/details/82993407249.shtml)
-- 2026-06-29 13:00 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.share.minike.top/Article/details/19908727643.shtml)
-- 2026-06-29 13:14 - [享界S9零重力座椅事件，给车企和用户都提了个醒](http://www.blog.kurohicncr.top/Article/details/73005406408.shtml)
-- 2026-06-29 13:17 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](http://www.share.minike.top/Article/details/2834252946.shtml)
-- 2026-06-29 13:13 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.blog.minike.top/Article/details/86342934137.shtml)
-- 2026-06-29 13:15 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.blog.kurohicncr.top/Article/details/117208780209.shtml)
-- 2026-06-29 13:00 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.share.kurohicncr.top/Article/details/103247665.shtml)
+- 2026-06-29 12:57 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/4865251113.shtml)
+- 2026-06-29 13:00 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/1208243343.shtml)
+- 2026-06-29 12:58 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://www.blog.kurohicncr.top/Article/details/2536245.shtml)
+- 2026-06-29 12:52 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/470516223.shtml)
+- 2026-06-29 13:15 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/309818086.shtml)
+- 2026-06-29 13:07 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/83872774.shtml)
+- 2026-06-29 13:05 - [实习期把公司领导开除了](https://www.blog.minike.top/Article/details/080591173569.shtml)
+- 2026-06-29 12:54 - [林昀儒止步美国大满贯首轮](http://www.share.minike.top/Article/details/004164.shtml)
+- 2026-06-29 12:57 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/91608.shtml)
+- 2026-06-29 12:51 - [豆包收费了，你还会用吗？](http://www.share.kurohicncr.top/Article/details/68247258.shtml)
+- 2026-06-29 12:55 - [世界杯欧美八大豪强悉数出线](http://www.share.kurohicncr.top/Article/details/2505275.shtml)
+- 2026-06-29 12:54 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.kurohicncr.top/Article/details/8844998.shtml)
+- 2026-06-29 13:05 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/53503.shtml)
+- 2026-06-29 12:50 - [女心理师](https://www.share.minike.top/Article/details/102491.shtml)
+- 2026-06-29 13:15 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.kurohicncr.top/Article/details/50893583.shtml)

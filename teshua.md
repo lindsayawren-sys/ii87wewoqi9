@@ -1,45 +1,59 @@
-# 伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件
+# 多个“小而美”项目在尼泊尔落地 中尼民生合作绘就幸福画卷
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-新华社德黑兰5月9日电(记者陈霄 沙达提)伊朗新闻电视台9日报道，伊朗外交部长阿拉格齐表示，停止侵略、放弃“过分且无理”的要求，是推进外交进程的必要条件。
+在尼泊尔努瓦科特县金塘村，梯田茶园绿意盎然，清新茶香萦绕山间。在村中的一座现代化茶叶产业帮扶车间里，村民们送来的鲜叶经过揉捻、发酵、干燥等工序，转化为滋味醇厚的高山茶。“多亏了‘活力乡村’项目，茶叶种植和加工让我们的年收入明显提高，为全村进一步发展打下了基础。”金塘村有机茶生产合作社负责人萨尔曼·塔芒喜笑颜开。近年来，中国驻尼泊尔大使馆积极发挥中国南亚国家减贫与发展合作中心的平
 
 ## 正文
 
-新华社德黑兰5月9日电(记者陈霄 沙达提)伊朗新闻电视台9日报道，伊朗外交部长阿拉格齐表示，停止侵略、放弃“过分且无理”的要求，是推进外交进程的必要条件。
+在尼泊尔努瓦科特县金塘村，梯田茶园绿意盎然，清新茶香萦绕山间。
+
+在村中的一座现代化茶叶产业帮扶车间里，村民们送来的鲜叶经过揉捻、发酵、干燥等工序，转化为滋味醇厚的高山茶。
+
+“多亏了‘活力乡村’项目，茶叶种植和加工让我们的年收入明显提高，为全村进一步发展打下了基础。
+
+”金塘村有机茶生产合作社负责人萨尔曼·塔芒喜笑颜开。
+
+近年来，中国驻尼泊尔大使馆积极发挥中国南亚国家减贫与发展合作中心的平台作用，聚焦尼泊尔民众最迫切需求，推动“活力乡村”“闪亮未来”“甘露计划”等多个“小而美”民生项目落地尼泊尔，聚焦农业生产、学校教育、饮水安全等领域，多维度助力当地民生改善。
+
+项目坚持本地化参与和能力建设并重，让中尼友谊在基层扎根生长。
+
+“活力乡村”激活山村茶香 努瓦科特地形崎岖、山峦耸立，被称作“九山之城”。
+
+自上世纪70年代起，金塘村村民便开始尝试种植茶树。
 
 ## 相关推荐
 
-- 2026-06-29 13:09 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:10 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 13:02 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:58 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:14 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:59 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:12 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 13:14 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:56 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:16 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:12 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:16 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 13:17 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 13:03 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 13:17 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 12:54 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 13:03 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 12:57 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 12:50 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 12:57 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 13:09 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 13:16 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 13:02 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:05 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
+- 2026-06-29 12:53 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-29 13:12 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.blog.minike.top/Article/details/211517711154.shtml)
-- 2026-06-29 12:53 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](http://www.share.kurohicncr.top/Article/details/568990650760.shtml)
-- 2026-06-29 12:59 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](http://www.blog.minike.top/Article/details/038027508.shtml)
-- 2026-06-29 13:15 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](http://www.blog.minike.top/Article/details/65897.shtml)
-- 2026-06-29 13:06 - [“情书”里的爆款创作密码](http://www.share.kurohicncr.top/Article/details/89713236822.shtml)
-- 2026-06-29 12:56 - [下周A股还能涨吗？这两件事，请股民重点关注](http://www.share.minike.top/Article/details/023583736.shtml)
-- 2026-06-29 13:07 - [金风科技截至4月末累计回购1万股H股](http://www.share.minike.top/Article/details/3615494.shtml)
-- 2026-06-29 12:48 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.share.minike.top/Article/details/476451381843.shtml)
-- 2026-06-29 12:53 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](http://www.share.kurohicncr.top/Article/details/14364292.shtml)
-- 2026-06-29 13:03 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.blog.kurohicncr.top/Article/details/2752001.shtml)
-- 2026-06-29 12:55 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.blog.minike.top/Article/details/783414974.shtml)
-- 2026-06-29 13:14 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.kurohicncr.top/Article/details/184172.shtml)
-- 2026-06-29 13:16 - [福建省“环戴云山”OPC联盟在德化成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](http://www.blog.kurohicncr.top/Article/details/41059332140.shtml)
-- 2026-06-29 13:09 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.blog.kurohicncr.top/Article/details/2527611686.shtml)
+- 2026-06-29 13:09 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/3134183528.shtml)
+- 2026-06-29 13:19 - [一见倾心](http://www.share.minike.top/Article/details/16686.shtml)
+- 2026-06-29 13:05 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/92005.shtml)
+- 2026-06-29 13:01 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/84252917.shtml)
+- 2026-06-29 12:50 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/62019213086.shtml)
+- 2026-06-29 13:06 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/54817914.shtml)
+- 2026-06-29 12:53 - [女心理师](https://www.blog.minike.top/Article/details/746546923.shtml)
+- 2026-06-29 12:54 - [游戏数据被用于军事目的 国安部提醒](https://www.share.kurohicncr.top/Article/details/853102231.shtml)
+- 2026-06-29 12:59 - [宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/10235096.shtml)
+- 2026-06-29 12:53 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/46002495335.shtml)
+- 2026-06-29 13:07 - [腾讯回应做独立支付APP](http://www.share.minike.top/Article/details/34595610.shtml)
+- 2026-06-29 13:17 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/67424.shtml)
+- 2026-06-29 13:04 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/41543080.shtml)
+- 2026-06-29 13:00 - [宜宾地震后顾客折返用餐0人逃单](https://www.share.minike.top/Article/details/31932860.shtml)
+- 2026-06-29 12:57 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/4810760.shtml)

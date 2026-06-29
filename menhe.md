@@ -1,60 +1,54 @@
-# 当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！
+# 央行就《城市商业银行银行汇票业务依托大额支付系统处理办法（征求意见稿）》等4件规范性文件公开征求意见
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-中国空间站在太空中的每一个动作、每一丝变化都离不开万千航天飞控人的专注守护。北京航天飞行控制中心的科技工作者姜萍工作在守护“太空家园”安全的防线上。今天的《天宫故事》一起来了解她和同事们的平凡与伟大。 视频：天宫故事来源：央视新闻客户端 北京航天飞行控制中心 姜萍：我是来自北京航天飞行控制中心的一名科技工作者，我叫姜萍。 中国空间站作为国家太空实验室，三年来最值得骄傲的成就绝非
+5月9日金融一线消息，央行今日发布通知称，为加强金融法治建设，完善中央银行法律法规体系，中国人民银行组织修订《城市商业银行银行汇票业务依托大额支付系统处理办法》（银办发〔2004〕206号印发）等4件规范性文件，形成征求意见稿。现向社会公开征求意见。 其中，《城市商业银行银行汇票业务依托大额支付系统处理办法（征求意见稿）》起草说明指出，本次修订内容主要包括：银行汇票业务专用章由
 
 ## 正文
 
-中国空间站在太空中的每一个动作、每一丝变化都离不开万千航天飞控人的专注守护。
+5月9日金融一线消息，央行今日发布通知称，为加强金融法治建设，完善中央银行法律法规体系，中国人民银行组织修订《城市商业银行银行汇票业务依托大额支付系统处理办法》（银办发〔2004〕206号印发）等4件规范性文件，形成征求意见稿。
 
-北京航天飞行控制中心的科技工作者姜萍工作在守护“太空家园”安全的防线上。
+现向社会公开征求意见。
 
-今天的《天宫故事》一起来了解她和同事们的平凡与伟大。
+其中，《城市商业银行银行汇票业务依托大额支付系统处理办法（征求意见稿）》起草说明指出，本次修订内容主要包括：银行汇票业务专用章由核准改为备案管理；删除已不再使用的密押系统、机具、手工编押等内容；补充完善汇票信息审核、查询查复等内容；删除大额支付系统推广相关要求；修改城银清算公司名称等表述；删除对成员机构收取违约金等内容，改由城银清算公司以自身业务规则明确。
 
-视频：天宫故事来源：央视新闻客户端 北京航天飞行控制中心 姜萍：我是来自北京航天飞行控制中心的一名科技工作者，我叫姜萍。
+《银联卡跨行业务资金清算通过大额支付系统处理办法（征求意见稿）》起草说明指出，本次修订内容主要包括：银行卡资金跨行清算已由中国银联总公司统一办理，删除中国银联分公司开立账户以及办理资金清分、轧差和清算等相关内容；根据中国银联业务范围拓展的实际情况，修改相关释义等表述；根据新增国库经收等特殊业务情况，完善清算时间等要求；删除大额支付系统推广相关要求。
 
-中国空间站作为国家太空实验室，三年来最值得骄傲的成就绝非单一的技术突破，而是其作为一个高效、稳定的国家级太空科研平台所展现出的系统性能力和产出效率。
+《支付管理信息系统管理办法（征求意见稿）》起草说明指出，本次修订内容主要包括：银行汇票业务专用章由核准改为备案管理；删除已不再使用的密押系统、机具、手工编押等内容；补充完善汇票信息审核、查询查复等内容；删除大额支付系统推广相关要求；修改城银清算公司名称等表述；删除对成员机构收取违约金等内容，改由城银清算公司以自身业务规则明确。
 
-这标志着中国载人航天工程正式从“集中力量办大事”的建造阶段迈入了“常态化产出高质量成果”的应用与发展。
+《境内外币支付系统业务处理规定（征求意见稿）》起草说明指出，本次修订内容主要包括：境内外币支付系统已新增即时转账功能，用于办理券款对付、轧差净额和外币资金拆借等业务，增加相关内容；删除已不适用的报文编号，更新报文名称；根据人民银行分行名称变更、清算中心职责承接等实际情况，修改相关名称以及职责分工、业务流程等内容。
 
-这份系统性成就的核心是一份沉甸甸的“科学成绩单”。
-
-截至目前，空间站已在轨实施了200余项科学与应用项目，涌现出一批具有国际影响力的国际和国内首次。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 12:54 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:11 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 13:01 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 13:11 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 13:11 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:58 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:54 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:11 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 13:05 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:59 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:48 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 13:10 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:10 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:52 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:01 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-29 13:13 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 12:59 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-29 13:06 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 13:06 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 12:59 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 12:52 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 12:52 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-29 12:57 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 13:06 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [下周A股还能涨吗？这两件事，请股民重点关注](http://www.blog.minike.top/Article/details/03943542343.shtml)
-- 2026-06-29 13:10 - [金风科技截至4月末累计回购1万股H股](http://www.blog.minike.top/Article/details/130505836.shtml)
-- 2026-06-29 13:01 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.share.kurohicncr.top/Article/details/670265.shtml)
-- 2026-06-29 12:57 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.share.minike.top/Article/details/9205553.shtml)
-- 2026-06-29 12:57 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.share.minike.top/Article/details/2586204192.shtml)
-- 2026-06-29 13:06 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.minike.top/Article/details/909837548108.shtml)
-- 2026-06-29 13:03 - [福建省“环戴云山”OPC联盟在德化成立](http://www.blog.kurohicncr.top/Article/details/2057723.shtml)
-- 2026-06-29 13:13 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](http://www.share.kurohicncr.top/Article/details/44045313417.shtml)
-- 2026-06-29 12:49 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.share.kurohicncr.top/Article/details/22634.shtml)
-- 2026-06-29 13:14 - [《主角》从文坛到荧屏：一曲秦腔半生沉浮](http://www.share.minike.top/Article/details/142326922366.shtml)
-- 2026-06-29 13:00 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.blog.minike.top/Article/details/1611303428.shtml)
-- 2026-06-29 12:51 - [中远海发于5月8日斥资408.85万元回购150万股A股](http://www.blog.minike.top/Article/details/08404.shtml)
-- 2026-06-29 13:16 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [赖清德跪拜日本人被批“无耻无骨无格”](http://www.share.minike.top/Article/details/6103143.shtml)
+- 2026-06-29 12:59 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/5265366.shtml)
+- 2026-06-29 13:09 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/1449591.shtml)
+- 2026-06-29 13:12 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/32819187.shtml)
+- 2026-06-29 13:15 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/33962455664.shtml)
+- 2026-06-29 13:15 - [送你一朵小红花](http://www.share.minike.top/Article/details/07400.shtml)
+- 2026-06-29 13:16 - [105年初心滚烫](https://www.share.minike.top/Article/details/86573.shtml)
+- 2026-06-29 12:50 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.share.minike.top/Article/details/2562696468.shtml)
+- 2026-06-29 13:11 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/918028643.shtml)
+- 2026-06-29 12:53 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/7098664172.shtml)
+- 2026-06-29 12:58 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/500462947.shtml)
+- 2026-06-29 13:10 - [乌拉圭出局之路](http://www.share.kurohicncr.top/Article/details/287396131344.shtml)
+- 2026-06-29 13:02 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/7938079278.shtml)
+- 2026-06-29 13:03 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/604588095209.shtml)
+- 2026-06-29 12:50 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.kurohicncr.top/Article/details/37537069.shtml)
+- 2026-06-29 12:53 - [虞书欣灿如繁星明天定档](https://www.share.kurohicncr.top/Article/details/72023.shtml)

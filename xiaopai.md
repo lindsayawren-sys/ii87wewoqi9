@@ -1,46 +1,61 @@
-# 塔吉克斯坦总统拉赫蒙将对华进行国事访问
+# 横琴口岸“联合一站式”车道智能通关正式启动
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-外交部发言人宣布： 应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。
+7日，横琴口岸“联合一站式”车道智能通关正式启动。符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。 据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。完成备案流程后，驾驶者抵达口岸无需再出示实体证件。经测算，这种“
 
 ## 正文
 
-外交部发言人宣布： 应国家主席习近平邀请，塔吉克斯坦总统埃莫马利·拉赫蒙将于5月11日至14日对中国进行国事访问。
+7日，横琴口岸“联合一站式”车道智能通关正式启动。
+
+符合资格的驾驶者在车道上的“人员信息采集一体机”前短暂停驻，系统通过指纹与面相双重生物特征识别，粤澳两地边检查验便可“瞬间比对”“一次放行”。
+
+据介绍，此次推行的智能通关适用于已完成跨境驾驶员备案并同时符合相关条件的澳门居民、香港永久性居民、内地居民及台湾地区居民。
+
+完成备案流程后，驾驶者抵达口岸无需再出示实体证件。
+
+经测算，这种“智能通关”模式可让单车查验效率提高约10%。
+
+自去年11月起，横琴口岸旅检通道率先应用“智能通关”，经过为期6个月的运行，系统性能稳定可靠、通关操作便捷高效，累计已有超过28万符合资格人员登记，逾460万人次“刷脸”通关，约占整体合作查验自助通道通关人数的35%。
+
+时隔半年，这项便民红利顺利延伸至“联合一站式”车道。
+
+记者：宋晨、郭雨祺、王浩明报道员：梁建华 来源：新华社
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 13:07 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 13:00 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:07 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:13 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 13:12 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:56 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:05 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 13:17 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 13:13 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:48 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:56 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:57 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:16 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 13:04 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 12:52 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 13:13 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 12:49 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-29 13:05 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 13:16 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
+- 2026-06-29 13:16 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-29 13:19 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 13:15 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 13:08 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-29 12:55 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-29 12:58 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-29 12:55 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 12:53 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
+- 2026-06-29 13:18 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:08 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.blog.minike.top/Article/details/53931387.shtml)
-- 2026-06-29 13:05 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.share.kurohicncr.top/Article/details/875998158103.shtml)
-- 2026-06-29 12:52 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.share.minike.top/Article/details/109134.shtml)
-- 2026-06-29 13:00 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.share.minike.top/Article/details/183216211636.shtml)
-- 2026-06-29 13:11 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.blog.kurohicncr.top/Article/details/175512600509.shtml)
-- 2026-06-29 13:01 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.share.minike.top/Article/details/981934385.shtml)
-- 2026-06-29 13:01 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.minike.top/Article/details/050231933.shtml)
-- 2026-06-29 12:56 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](http://www.share.minike.top/Article/details/85716.shtml)
-- 2026-06-29 13:04 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.share.kurohicncr.top/Article/details/914524652620.shtml)
-- 2026-06-29 13:18 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.kurohicncr.top/Article/details/56617422719.shtml)
-- 2026-06-29 12:54 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.blog.kurohicncr.top/Article/details/0996826.shtml)
-- 2026-06-29 12:56 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.blog.kurohicncr.top/Article/details/456629179.shtml)
-- 2026-06-29 12:48 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:15 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/1505315342.shtml)
+- 2026-06-29 12:56 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/03474580.shtml)
+- 2026-06-29 12:55 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/1446404570.shtml)
+- 2026-06-29 13:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/817084125413.shtml)
+- 2026-06-29 13:12 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/46503648.shtml)
+- 2026-06-29 13:11 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/1869739.shtml)
+- 2026-06-29 12:56 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/686488340.shtml)
+- 2026-06-29 13:06 - [美加墨世界杯首支16强诞生](https://www.share.kurohicncr.top/Article/details/05826.shtml)
+- 2026-06-29 13:15 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/21744824.shtml)
+- 2026-06-29 13:19 - [F1奥地利大奖赛正赛集锦](http://www.blog.kurohicncr.top/Article/details/197764414695.shtml)
+- 2026-06-29 13:10 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/5360697.shtml)
+- 2026-06-29 13:04 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/056887655.shtml)
+- 2026-06-29 13:05 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/65255110.shtml)
+- 2026-06-29 13:07 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/512172241563.shtml)
+- 2026-06-29 12:53 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/239911231274.shtml)

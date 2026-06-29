@@ -1,60 +1,56 @@
-# 为取出1400元，印度男子“挖出姐姐遗骸扛到银行”
+# 工商银行全新推出“工盈研选”品牌 博时多只优质产品入选
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-来源：中国新闻周刊 当地时间5月6日，在挖出亡姐遗骸十天后，杰图·蒙达在他所在的迪亚纳利村接受了“净化”仪式。根据当地部落传统，掘墓被视为亵渎神灵的行为。此前，部落成员开会决定举行这种仪式，要求杰图接受净化。他们警告说，如果不服从，他可能会被驱逐出部落。 十天前，在印度奥里萨邦乡村公路上，52岁的杰图·蒙达扛着布袋走了4公里。进入奥里萨乡村银行马利波西支行后，他在柜台前打开袋子
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。 “工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。首期推出“安盈”“智盈”两个产品系列，精准
 
 ## 正文
 
-来源：中国新闻周刊 当地时间5月6日，在挖出亡姐遗骸十天后，杰图·蒙达在他所在的迪亚纳利村接受了“净化”仪式。
+近日，工商银行全新推出“工盈研选”基金销售服务品牌，以客户盈利为导向，依托专业投研能力构建金字塔型公募基金优选产品体系，同步推出全周期投资陪伴服务，打造集产品精选、风险管控、客户服务于一体的基金销售服务新模式。
 
-根据当地部落传统，掘墓被视为亵渎神灵的行为。
+“工盈研选”从客户能理解、基层易营销的角度，定制“收益、回撤”等量化标准，提出权益仓位建议，与合作机构共同建设维护系列产品池。
 
-此前，部落成员开会决定举行这种仪式，要求杰图接受净化。
+首期推出“安盈”“智盈”两个产品系列，精准匹配不同客户投资需求。
 
-他们警告说，如果不服从，他可能会被驱逐出部落。
+其中“安盈”系列聚焦固收、固收+产品，通过严控回撤风险，力争助力客户资产稳健增长。
 
-十天前，在印度奥里萨邦乡村公路上，52岁的杰图·蒙达扛着布袋走了4公里。
+智盈系列则精选权益指数及指数增强产品，力争为追求收益弹性的客户提供进攻性工具。
 
-进入奥里萨乡村银行马利波西支行后，他在柜台前打开袋子，里面放的并非现金，而是他已故姐姐的遗骸。
+经过层层精选，博时基金旗下博时恒泰债券基金成功入选“安盈”系列，博时恒生高股息ETF联接基金、博时恒生科技ETF联接基金双双入选“智盈”系列。
 
-“证明姐姐已经死了” 杰图·蒙达和姐姐卡尔拉·蒙达都生活在印度奥里萨邦肯杜贾县的乡村。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒泰债券基金A类、C类收益率分别为6.09%、5.72%，同期业绩比较基准收益率为0.95%。
 
-今年1月26日，56岁的卡尔拉因病去世。
+基金2026年一季报显示，过去一年（2025/4/1-2026/3/31），博时恒生高股息ETF联接A类、C类收益率均为23.14%，同期业绩比较基准收益率为20.00%。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 13:06 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:51 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 13:03 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:54 - [第48届东盟峰会在菲律宾举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:54 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 13:04 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 13:14 - [普京谈与泽连斯基会面：不主动 不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:51 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 13:14 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:55 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:48 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:56 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:59 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:57 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 12:53 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 12:50 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 12:51 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 12:53 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
+- 2026-06-29 13:19 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-29 13:00 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 13:07 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 12:54 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 12:54 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.share.kurohicncr.top/Article/details/615200.shtml)
-- 2026-06-29 13:14 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](http://www.share.kurohicncr.top/Article/details/6913336.shtml)
-- 2026-06-29 13:08 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.blog.minike.top/Article/details/712010571999.shtml)
-- 2026-06-29 13:06 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.blog.kurohicncr.top/Article/details/70573666.shtml)
-- 2026-06-29 12:50 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.blog.minike.top/Article/details/437581150.shtml)
-- 2026-06-29 12:55 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.blog.minike.top/Article/details/3341948.shtml)
-- 2026-06-29 13:01 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](http://www.share.minike.top/Article/details/603035799348.shtml)
-- 2026-06-29 12:57 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](http://www.share.kurohicncr.top/Article/details/72180.shtml)
-- 2026-06-29 13:15 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](http://www.blog.kurohicncr.top/Article/details/215847148239.shtml)
-- 2026-06-29 13:09 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](http://www.blog.kurohicncr.top/Article/details/13060.shtml)
-- 2026-06-29 12:50 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [强军思想育新人丨“翀”上云霄](http://www.share.kurohicncr.top/Article/details/907161832.shtml)
-- 2026-06-29 12:59 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.minike.top/Article/details/889423.shtml)
-- 2026-06-29 12:59 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/1610407860.shtml)
+- 2026-06-29 13:03 - [四川宜宾地震已致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/362893731444.shtml)
+- 2026-06-29 13:13 - [向佑说向佐是一生依靠](https://www.share.minike.top/Article/details/3160858.shtml)
+- 2026-06-29 13:00 - [我和我的家乡](https://www.blog.minike.top/Article/details/3274765553.shtml)
+- 2026-06-29 13:15 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/8275443470.shtml)
+- 2026-06-29 12:50 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/028884.shtml)
+- 2026-06-29 13:04 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/2801307192.shtml)
+- 2026-06-29 13:07 - [法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/60974235669.shtml)
+- 2026-06-29 13:05 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/287384360.shtml)
+- 2026-06-29 12:56 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/3067496099.shtml)
+- 2026-06-29 12:50 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/07737.shtml)
+- 2026-06-29 12:59 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.minike.top/Article/details/28001018.shtml)
+- 2026-06-29 13:15 - [马斯克也站到了光里](http://www.share.kurohicncr.top/Article/details/402055851.shtml)
+- 2026-06-29 13:14 - [虞书欣灿如繁星明天定档](http://www.share.minike.top/Article/details/716903910.shtml)
+- 2026-06-29 13:05 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/9819948001.shtml)

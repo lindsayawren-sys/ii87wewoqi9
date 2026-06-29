@@ -1,60 +1,60 @@
-# 书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花
+# 免疫药物开发商Odyssey扩大IPO规模成功定价
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-新华社莫斯科/呼和浩特5月9日电 题：书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花 新华社记者刘恺 于嘉 王作葵 笔尖轻落宣纸，墨香漫溢教室；跨境研学热络，交流逐步深入……近年来，中俄毗邻地区的跨境研学、留学生培养和校际合作等蓬勃开展，双方书写着以教育为桥、以文化为媒的友好篇章。 课堂墨香里的青春相遇4月下旬，位于内蒙古自治区的满洲里俄语职业学院，20岁的俄罗斯留学生
+免疫学药物开发商Odyssey Therapeutics宣布，其首次公开募股已扩大规模并成功定价，发行价位于此前上调后的区间高端。该股预计将于周五在纳斯达克全球精选市场挂牌交易，股票代码为ODTX。 IPO定价详情 Odyssey以每股22美元的价格发行1，250万股，募集资金2.75亿美元，高于此前计划发行1，000万股、定价区间20至22美元的计划。承销商获得30天超额配售
 
 ## 正文
 
-新华社莫斯科/呼和浩特5月9日电 题：书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花 新华社记者刘恺 于嘉 王作葵 笔尖轻落宣纸，墨香漫溢教室；跨境研学热络，交流逐步深入……近年来，中俄毗邻地区的跨境研学、留学生培养和校际合作等蓬勃开展，双方书写着以教育为桥、以文化为媒的友好篇章。
+免疫学药物开发商Odyssey Therapeutics宣布，其首次公开募股已扩大规模并成功定价，发行价位于此前上调后的区间高端。
 
-课堂墨香里的青春相遇4月下旬，位于内蒙古自治区的满洲里俄语职业学院，20岁的俄罗斯留学生娜斯佳在书法教室凝神运笔，专注地书写“福”字。
+该股预计将于周五在纳斯达克全球精选市场挂牌交易，股票代码为ODTX。
 
-她是俄罗斯贝加尔国立大学赤塔学院法律专业学生，作为交换生来中国学习，能说一口流利的中国话。
+IPO定价详情 Odyssey以每股22美元的价格发行1，250万股，募集资金2.75亿美元，高于此前计划发行1，000万股、定价区间20至22美元的计划。
 
-“中国文化很有魅力，我将来想从事俄中经贸交流工作。
+承销商获得30天超额配售权，可额外购买约187.5万股。
 
-”娜斯佳说，她13岁第一次来中国，从小学六年级开始学中文，爱吃牛肉面和担担面。
+公司现有股东TPG也参与了此次发行。
 
-在内蒙古留学期间，她游览了呼伦贝尔市部分地区，近期还计划前往呼和浩特旅游。
+以发行价计算，Odyssey fully diluted估值约为18亿美元。
 
-来自俄罗斯伊尔库茨克的19岁姑娘阿廖娜，即将完成在满洲里俄语职业学院的中文学习，并已获得在南京财经大学经济学专业攻读学士学位的机会。
+资金用途 公司计划将IPO募集资金用于推进其口服小分子免疫学药物管线的临床开发，包括主打药物ODT-101治疗特应性皮炎的II期临床试验。
 
-“在中国学习、生活很有意思，我喜欢火锅、饺子，更着迷中文和中华文化。
+此外，资金还将用于扩展其专有的药物发现平台。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 13:02 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 13:13 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:17 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:53 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:08 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:01 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 13:17 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:52 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:54 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:54 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 13:06 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 13:03 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:58 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:58 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-29 13:04 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 13:08 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:06 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 13:16 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 12:51 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
+- 2026-06-29 13:16 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 13:12 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 13:08 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-29 13:04 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
+- 2026-06-29 12:59 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
+- 2026-06-29 12:57 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 13:17 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 12:54 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.blog.minike.top/Article/details/8508988670.shtml)
-- 2026-06-29 12:48 - [培育消费新场景新业态 激发消费新动能](http://www.share.minike.top/Article/details/869805092670.shtml)
-- 2026-06-29 12:49 - [文莱王储比拉将访华](http://www.share.minike.top/Article/details/0165969127.shtml)
-- 2026-06-29 12:56 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.blog.kurohicncr.top/Article/details/81127306078.shtml)
-- 2026-06-29 13:01 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](http://www.blog.minike.top/Article/details/566953901.shtml)
-- 2026-06-29 13:13 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](http://www.share.kurohicncr.top/Article/details/675216951.shtml)
-- 2026-06-29 13:02 - [“情书”里的爆款创作密码](http://www.share.kurohicncr.top/Article/details/2485340072.shtml)
-- 2026-06-29 13:02 - [下周A股还能涨吗？这两件事，请股民重点关注](http://www.share.minike.top/Article/details/8268394.shtml)
-- 2026-06-29 13:12 - [金风科技截至4月末累计回购1万股H股](http://www.share.kurohicncr.top/Article/details/0139688.shtml)
-- 2026-06-29 13:03 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.share.kurohicncr.top/Article/details/42294290134.shtml)
-- 2026-06-29 13:02 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](http://www.blog.kurohicncr.top/Article/details/04157092834.shtml)
-- 2026-06-29 13:06 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.blog.kurohicncr.top/Article/details/89134.shtml)
-- 2026-06-29 13:09 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.share.kurohicncr.top/Article/details/54388713.shtml)
-- 2026-06-29 13:17 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.minike.top/Article/details/26723002001.shtml)
+- 2026-06-29 13:18 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/4529549.shtml)
+- 2026-06-29 13:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/9471440067.shtml)
+- 2026-06-29 13:02 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/26405643.shtml)
+- 2026-06-29 13:18 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/32069399.shtml)
+- 2026-06-29 12:50 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/3953580.shtml)
+- 2026-06-29 12:51 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/4351668.shtml)
+- 2026-06-29 12:57 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/657042984724.shtml)
+- 2026-06-29 12:53 - [47岁吴建豪再婚](http://www.blog.minike.top/Article/details/69080921015.shtml)
+- 2026-06-29 12:58 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/92267083637.shtml)
+- 2026-06-29 13:17 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/4919613920.shtml)
+- 2026-06-29 13:13 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/565015.shtml)
+- 2026-06-29 13:19 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/1632798889.shtml)
+- 2026-06-29 13:04 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/770760.shtml)
+- 2026-06-29 12:54 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/663438179.shtml)
+- 2026-06-29 13:18 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/47268.shtml)

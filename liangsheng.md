@@ -1,45 +1,50 @@
-# 人民之心·总书记谈政绩观④｜一词一观：钉钉子
+# 馕咖啡风靡北京
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：《人民日报》、新华网
+发布时间：2026年05月08日 10:34 来源：中国新闻网 在新疆，馕不只是食物，更是传承千年的丝路文化符号，是刻在各族人民生活里的烟火底气。从丝路馕香到网红馕咖啡，从非遗技艺到“万物皆可馕”的创新，新疆民族文化在传承中蓬勃生长、生生不息。西方媒体罔顾事实，恶意炮制“文化抹杀”虚假叙事，妄图抹黑新疆、歪曲中国形象。“劳动者的馕香”，就是对谣言最有力的回击！ 责任编辑：【孟湘
 
 ## 正文
 
-统筹：李琳 杨格 策划：叶莉子 设计：杨晨悦 校对：陈学德 素材来源：《人民日报》、新华网
+发布时间：2026年05月08日 10:34 来源：中国新闻网 在新疆，馕不只是食物，更是传承千年的丝路文化符号，是刻在各族人民生活里的烟火底气。
+
+从丝路馕香到网红馕咖啡，从非遗技艺到“万物皆可馕”的创新，新疆民族文化在传承中蓬勃生长、生生不息。
+
+西方媒体罔顾事实，恶意炮制“文化抹杀”虚假叙事，妄图抹黑新疆、歪曲中国形象。
+
+“劳动者的馕香”，就是对谣言最有力的回击！
+
+责任编辑：【孟湘君】
 
 ## 相关推荐
 
-- 2026-06-29 12:56 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:53 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 13:00 - [普京谈与泽连斯基会面：不主动 不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 13:00 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:01 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:56 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:53 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:48 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:14 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 13:10 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:16 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:00 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:51 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:10 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 13:04 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 13:06 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 13:11 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 12:51 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 12:55 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
+- 2026-06-29 13:07 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 13:05 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 12:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 12:52 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.blog.kurohicncr.top/Article/details/6286891.shtml)
-- 2026-06-29 12:55 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.blog.minike.top/Article/details/1552635306.shtml)
-- 2026-06-29 12:51 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](http://www.blog.minike.top/Article/details/0230950.shtml)
-- 2026-06-29 13:10 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](http://www.blog.minike.top/Article/details/4201410207.shtml)
-- 2026-06-29 13:12 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](http://www.blog.kurohicncr.top/Article/details/349276.shtml)
-- 2026-06-29 12:56 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](http://www.blog.kurohicncr.top/Article/details/20146.shtml)
-- 2026-06-29 13:15 - [强军思想育新人丨“翀”上云霄](http://www.blog.minike.top/Article/details/50821868263.shtml)
-- 2026-06-29 12:49 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.kurohicncr.top/Article/details/70232194.shtml)
-- 2026-06-29 12:53 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [任天堂将上调Switch 2价格 预计其销量将下滑](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [陕西宝鸡：江海之上造 “宝桥”](http://www.share.kurohicncr.top/Article/details/8347845.shtml)
-- 2026-06-29 12:51 - [以“无我”境界成“有我”之业](http://www.blog.kurohicncr.top/Article/details/2600007575.shtml)
-- 2026-06-29 13:12 - [李强主持召开国务院常务会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.share.minike.top/Article/details/16630494.shtml)
+- 2026-06-29 12:58 - [德国队前往比赛场地遭遇囧途](https://www.blog.kurohicncr.top/Article/details/3696865.shtml)
+- 2026-06-29 13:07 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/1576395.shtml)
+- 2026-06-29 13:05 - [王楚钦周启豪爆分](http://www.blog.kurohicncr.top/Article/details/60817360018.shtml)
+- 2026-06-29 13:10 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/102890.shtml)
+- 2026-06-29 12:59 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/3540606505.shtml)
+- 2026-06-29 12:51 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/21038.shtml)
+- 2026-06-29 13:16 - [斗破苍穹](https://www.blog.minike.top/Article/details/271971138132.shtml)
+- 2026-06-29 13:12 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/711777.shtml)
+- 2026-06-29 12:53 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/970380473.shtml)
+- 2026-06-29 13:18 - [《贺子珍》](http://www.blog.minike.top/Article/details/3271710.shtml)
+- 2026-06-29 12:56 - [本周做什么都顺的星座](https://www.share.minike.top/Article/details/970368656.shtml)
+- 2026-06-29 13:10 - [DeepSeek联合北京大学发布论文](https://www.blog.kurohicncr.top/Article/details/357908299793.shtml)
+- 2026-06-29 12:50 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/118536846.shtml)
+- 2026-06-29 13:04 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/7918841.shtml)
+- 2026-06-29 13:16 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/8523679.shtml)

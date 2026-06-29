@@ -1,59 +1,57 @@
-# 对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性
+# 劳拉·费尔南德斯宣誓就任哥斯达黎加总统
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：护航新征程丨金融新启航 在人口结构加速迈入深度老龄化阶段的背景下，养老问题正从长期预期转化为现实压力。随着长寿风险、失能风险与财富保值需求不断叠加，单一依赖储蓄的养老准备方式已难以支撑个体跨越数十年的养老周期，如何构建并完善多层次、可持续的养老金融体系，成为一个日益迫切的现实议题。 新浪财经推出《金融新启航丨护航新征程》专
+中新社北京5月9日电 圣何塞消息：当地时间5月8日，哥斯达黎加当选总统劳拉·费尔南德斯( Laura Fernandez)在该国首都圣何塞国家体育场宣誓就职，开始为期4年的任期。 综合路透社、法国新闻24台等媒体消息，费尔南德斯成为哥斯达黎加第50任国家元首，同时也是该国历史上第二位女性总统。 费尔南德斯在哥斯达黎加立法大会主席雅拉·希门内斯(Yara Jiménez)带领下完
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 专题：护航新征程丨金融新启航 在人口结构加速迈入深度老龄化阶段的背景下，养老问题正从长期预期转化为现实压力。
+中新社北京5月9日电 圣何塞消息：当地时间5月8日，哥斯达黎加当选总统劳拉·费尔南德斯( Laura Fernandez)在该国首都圣何塞国家体育场宣誓就职，开始为期4年的任期。
 
-随着长寿风险、失能风险与财富保值需求不断叠加，单一依赖储蓄的养老准备方式已难以支撑个体跨越数十年的养老周期，如何构建并完善多层次、可持续的养老金融体系，成为一个日益迫切的现实议题。
+综合路透社、法国新闻24台等媒体消息，费尔南德斯成为哥斯达黎加第50任国家元首，同时也是该国历史上第二位女性总统。
 
-新浪财经推出《金融新启航丨护航新征程》专题系列，邀请金融业界专家和学者，探讨金融如何更有效回应老龄社会的多元需求。
+费尔南德斯在哥斯达黎加立法大会主席雅拉·希门内斯(Yara Jiménez)带领下完成宣誓。
 
-本期对话中国社会科学院保险与经济发展研究中心副主任王向楠。
+两位副总统弗朗西斯科·甘博亚(Francisco Gamboa)和道格拉斯·索托·坎波斯(Douglas Soto Campos)亦于同日宣誓就职。
 
-他指出，养老保险体系是一种制度化的风险分担机制，可以更系统地应对长寿、通胀等不确定性。
+费尔南德斯在就职演讲中表示，将打击毒品贩运和有组织犯罪，改善社会治安，推进公共基础设施建设，并通过改革解决腐败和行政效率低下等问题。
 
-随着第一支柱替代率下降、第二支柱覆盖有限，居民养老储备正越来越依赖第三支柱的补充。
+“哥斯达黎加不能容忍犯罪渗透到我们的机构之中，这种耻辱是无法容忍的。
 
-不过，第三支柱的发展仍有不少掣肘。
+我们不能看着毒贩在我们的体制中找到漏洞，”费尔南德斯强调，“我们需要的改革是深刻的，我们将无所畏惧地推进改革。
 
-产品端接下来可以从哪些方面破局？
+”西班牙国王以及洪都拉斯、巴拿马、多米尼加、智利和以色列等国总统出席就职仪式。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:52 - [工信部启动人工智能科技伦理审查与服务先导计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 13:11 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 13:11 - [财税专家：教育培训等行业应全额一次性申报纳税](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 13:10 - [《智能体规范应用与创新发展实施意见》答记者问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:02 - [高盛：美图公司维持“买入”评级 目标价14.30港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:11 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 13:10 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:58 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 13:12 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 13:02 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 13:16 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:13 - [加州新计划：新生儿家庭将获数百片免费尿布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:05 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 13:18 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 13:10 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 12:50 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-29 13:10 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 12:58 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 13:14 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-29 12:50 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 12:57 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 13:14 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 13:10 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](http://www.share.kurohicncr.top/Article/details/76079632908.shtml)
-- 2026-06-29 13:09 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](http://www.blog.kurohicncr.top/Article/details/342154776.shtml)
-- 2026-06-29 13:16 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](http://www.share.kurohicncr.top/Article/details/8500187753.shtml)
-- 2026-06-29 12:52 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](http://www.blog.minike.top/Article/details/06247822666.shtml)
-- 2026-06-29 12:58 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](http://www.blog.minike.top/Article/details/9748522420.shtml)
-- 2026-06-29 13:06 - [汉坦病毒如何让Moderna重成“必持”股票](http://www.blog.kurohicncr.top/Article/details/802976545.shtml)
-- 2026-06-29 13:18 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](http://www.share.kurohicncr.top/Article/details/902777268139.shtml)
-- 2026-06-29 13:01 - [英伟达重金押注光连接，AI的下一战场或在光纤](http://www.blog.minike.top/Article/details/431308776629.shtml)
-- 2026-06-29 12:59 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](http://www.share.minike.top/Article/details/34719339829.shtml)
-- 2026-06-29 13:13 - [习言道｜父母是孩子的第一任老师](http://www.share.minike.top/Article/details/86425.shtml)
-- 2026-06-29 13:15 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.blog.kurohicncr.top/Article/details/7274815.shtml)
-- 2026-06-29 13:09 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](http://www.share.kurohicncr.top/Article/details/40403.shtml)
-- 2026-06-29 12:53 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.blog.kurohicncr.top/Article/details/16347263.shtml)
-- 2026-06-29 13:09 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.share.minike.top/Article/details/72571487391.shtml)
+- 2026-06-29 12:59 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/8854786.shtml)
+- 2026-06-29 12:54 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/84540.shtml)
+- 2026-06-29 12:55 - [海军舰艇编队将赴香港](http://www.blog.minike.top/Article/details/9420858746.shtml)
+- 2026-06-29 13:16 - [市民骑哈啰单车79分钟被收费30元](http://www.share.kurohicncr.top/Article/details/73296297.shtml)
+- 2026-06-29 13:05 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/100391609343.shtml)
+- 2026-06-29 13:10 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/045162252133.shtml)
+- 2026-06-29 12:51 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.minike.top/Article/details/411148.shtml)
+- 2026-06-29 12:56 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/73134554.shtml)
+- 2026-06-29 13:12 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/618469094447.shtml)
+- 2026-06-29 13:17 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/61843698.shtml)
+- 2026-06-29 12:56 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/7786491934.shtml)
+- 2026-06-29 12:53 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/94104683.shtml)
+- 2026-06-29 13:00 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.kurohicncr.top/Article/details/6316097.shtml)
+- 2026-06-29 13:12 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/3917351571.shtml)
+- 2026-06-29 12:54 - [法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/52221.shtml)

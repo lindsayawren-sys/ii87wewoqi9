@@ -1,61 +1,50 @@
-# 丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%
+# 杭州西子湖畔“平安市集”吸引民众 寓教于乐话安全
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-日本丰田汽车周五公布第四季度营业利润下滑 49%，低于分析师预期，美国关税对盈利造成压力。 以下是丰田业绩与 LSEG 预估中值的对比： 营收：12.6万亿日元，与预期持平 营业利润：5694亿日元，低于预期的8132.8亿日元 这家全球销量最大的汽车制造商在截至 3 月的第四财季营收同比增长 1.89%，符合预期。 这一业绩标志着丰田营业利润连续第四年同比下降，继此前下滑2%
+发布时间：2026年05月08日 23:05 来源：中国新闻网 5月8日，浙江杭州西湖风景名胜区“平安市集”热闹开市。反诈投壶、执法盲盒、假币辨别等互动摊位人气爆棚，公安、消防、市场监管等多部门协同联动，将国家安全、禁毒禁赌、消防安全等知识融入沉浸式体验。(钱晨菲 叶冠琦 制作 王佳琪) 责任编辑：【付子豪】
 
 ## 正文
 
-日本丰田汽车周五公布第四季度营业利润下滑 49%，低于分析师预期，美国关税对盈利造成压力。
+发布时间：2026年05月08日 23:05 来源：中国新闻网 5月8日，浙江杭州西湖风景名胜区“平安市集”热闹开市。
 
-以下是丰田业绩与 LSEG 预估中值的对比： 营收：12.6万亿日元，与预期持平 营业利润：5694亿日元，低于预期的8132.8亿日元 这家全球销量最大的汽车制造商在截至 3 月的第四财季营收同比增长 1.89%，符合预期。
+反诈投壶、执法盲盒、假币辨别等互动摊位人气爆棚，公安、消防、市场监管等多部门协同联动，将国家安全、禁毒禁赌、消防安全等知识融入沉浸式体验。
 
-这一业绩标志着丰田营业利润连续第四年同比下降，继此前下滑2%之后，美国关税带来的持续压力进一步显现。
-
-归属于公司的净利润从去年同期的6646亿日元增至8172亿日元。
-
-该汽车制造商在第四财季的合并汽车销量从去年同期的236万辆降至229万辆。
-
-丰田将截至2027年3月的财年营业利润预期下调逾20%至3万亿日元，同时将销售收入预期上调0.6%。
-
-“由于人力资源投资、面向未来的投资增加，以及美国关税的影响，我们最近看到盈亏平衡点大幅上升，”该公司在周五的财报声明中表示。
-
-丰田补充称，已开始采取措施，通过“改革固定成本、实现成本改善，并在所有地区、集团和内部公司启动销售举措”来增加收益。
+(钱晨菲 叶冠琦 制作 王佳琪) 责任编辑：【付子豪】
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:52 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:59 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 13:06 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 13:09 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:53 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:54 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:58 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:48 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 13:12 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:56 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:50 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 13:00 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:02 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 13:04 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 13:11 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 13:07 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 12:59 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 13:02 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 13:12 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 12:59 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-29 13:11 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 13:10 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 12:59 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-29 13:10 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
+- 2026-06-29 13:05 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 12:59 - [这位猫咪，请你自重！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 12:51 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [培育消费新场景新业态 激发消费新动能](http://www.share.kurohicncr.top/Article/details/063043185850.shtml)
-- 2026-06-29 12:52 - [文莱王储比拉将访华](http://www.share.kurohicncr.top/Article/details/896912637175.shtml)
-- 2026-06-29 12:56 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.blog.minike.top/Article/details/0551653876.shtml)
-- 2026-06-29 13:01 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](http://www.blog.kurohicncr.top/Article/details/876910805901.shtml)
-- 2026-06-29 13:02 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [“情书”里的爆款创作密码](http://www.share.minike.top/Article/details/468118970080.shtml)
-- 2026-06-29 12:59 - [下周A股还能涨吗？这两件事，请股民重点关注](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [金风科技截至4月末累计回购1万股H股](http://www.blog.kurohicncr.top/Article/details/168187237299.shtml)
-- 2026-06-29 12:56 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.blog.minike.top/Article/details/4116522.shtml)
-- 2026-06-29 13:06 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](http://www.blog.kurohicncr.top/Article/details/32858738.shtml)
-- 2026-06-29 13:07 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.share.kurohicncr.top/Article/details/4396677.shtml)
-- 2026-06-29 13:01 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.blog.kurohicncr.top/Article/details/6288848.shtml)
-- 2026-06-29 12:58 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.minike.top/Article/details/4429599942.shtml)
-- 2026-06-29 13:05 - [福建省“环戴云山”OPC联盟在德化成立](http://www.blog.kurohicncr.top/Article/details/8914279.shtml)
+- 2026-06-29 12:51 - [本周做什么都顺的星座](https://www.blog.kurohicncr.top/Article/details/45857.shtml)
+- 2026-06-29 13:16 - [千与千寻](https://www.share.kurohicncr.top/Article/details/07111625145.shtml)
+- 2026-06-29 13:10 - [105年初心滚烫](https://www.blog.minike.top/Article/details/8356828819.shtml)
+- 2026-06-29 13:16 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/80807474.shtml)
+- 2026-06-29 13:15 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/206059.shtml)
+- 2026-06-29 13:00 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/0845655862.shtml)
+- 2026-06-29 12:59 - [多只A股发布股价异动公告](https://www.share.kurohicncr.top/Article/details/125178646985.shtml)
+- 2026-06-29 13:14 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.kurohicncr.top/Article/details/78654.shtml)
+- 2026-06-29 12:56 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/180488.shtml)
+- 2026-06-29 12:50 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/86698802065.shtml)
+- 2026-06-29 13:14 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/958278601878.shtml)
+- 2026-06-29 12:53 - [普京称俄处于命运攸关之际](https://www.blog.minike.top/Article/details/897992.shtml)
+- 2026-06-29 13:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/170903286.shtml)
+- 2026-06-29 13:09 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/89613.shtml)
+- 2026-06-29 12:55 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/1151819.shtml)

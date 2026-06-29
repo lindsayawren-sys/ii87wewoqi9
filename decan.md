@@ -1,57 +1,61 @@
-# 通胀侵蚀消费支出 英国到店客流下滑
+# 【每周经济观察】“两新”成绩单里的民生温度
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-复活节时间节点轻微扭曲数据；即便合并两个月数据来看，人流量同比仍下滑 3.9% 英国知名行业机构数据显示，受顽固高通胀抑制消费支出影响，英国 4 月零售到店人流量出现两位数同比大跌。 英国零售协会报告显示，4 月英国零售门店到访人次同比下滑 10.7%，创五年多来最差表现。 分地区来看，威尔士和北爱尔兰人流量跌幅最大，同比分别下降 13.8%、14.3%。 城市主干道商铺到访量
+国家发展改革委近日发布一份名为《“两新”政策实施两周年成效显著》的报告，用一系列扎实数据，勾勒出大规模设备更新和消费品以旧换新政策对生产生活带来的改变，传递出政策设计背后的民生温度。 “两新”政策实施两年多来，其意义已远超单纯的“扩消费、促投资”，它更像一个从供需两端协同发力的系统工程，在促进经济稳增长的同时，持续提升亿万民众的幸福感、获得感。 这份民生温度体现在对消费扩容提质
 
 ## 正文
 
-复活节时间节点轻微扭曲数据；即便合并两个月数据来看，人流量同比仍下滑 3.9% 英国知名行业机构数据显示，受顽固高通胀抑制消费支出影响，英国 4 月零售到店人流量出现两位数同比大跌。
+国家发展改革委近日发布一份名为《“两新”政策实施两周年成效显著》的报告，用一系列扎实数据，勾勒出大规模设备更新和消费品以旧换新政策对生产生活带来的改变，传递出政策设计背后的民生温度。
 
-英国零售协会报告显示，4 月英国零售门店到访人次同比下滑 10.7%，创五年多来最差表现。
+“两新”政策实施两年多来，其意义已远超单纯的“扩消费、促投资”，它更像一个从供需两端协同发力的系统工程，在促进经济稳增长的同时，持续提升亿万民众的幸福感、获得感。
 
-分地区来看，威尔士和北爱尔兰人流量跌幅最大，同比分别下降 13.8%、14.3%。
+这份民生温度体现在对消费扩容提质的直接回应上。
 
-城市主干道商铺到访量同比下滑 9.2%，购物中心人流量下滑 10.1%。
+“两新”政策通过4500亿元超长期特别国债资金安排，撬动了超3.9万亿元的汽车、家电、数码产品销售额，直接惠及4.8亿人次。
 
-受复活节假期时间错位影响，数据存在轻微偏差：今年节前购物高峰计入 3 月，而去年则集中在 4 月。
+沉甸甸的数字背后，是亿万家庭以更低的成本实现了更多的消费迭代。
 
-但该机构表示，即便将 3 月、4 月两个月数据合并统计，人流量仍同比减少 3.9%。
+值得一提的是，政策没有停留在简单的“汰旧”上，而是敏锐地捕捉并顺应了民众对绿色、智能、高品质生活的向往，将补贴精准导向技术更先进、能效更优的产品，使得消费升级与绿色转型同步发生。
 
-英国零售协会首席执行官海伦・迪金森表示：“中东持续冲突令消费者信心跌至新低，民众主动减少到店购物频次。
+对“换优”“换绿”的市场引导，既满足了当下改善生活的需求，也为节能减排目标夯实了基础。
 
-” 零售科技与数据分析公司森萨玛蒂克零售顾问安迪・桑普特称，在生活成本持续承压背景下，消费者变得更加精打细算，出门逛街次数明显减少。
+有数据显示，超过60%的消费者在换车时选择了新能源汽车，一级能效家电的销售额占比高达90%。
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:06 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:53 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 13:07 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:00 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:58 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:50 - [坚持有腐必反、有贪必肃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:52 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:57 - [中欧班列开行突破13万列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:57 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:52 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:51 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 12:52 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 12:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-29 13:08 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
+- 2026-06-29 13:04 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 13:13 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:11 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 13:02 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 12:50 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 13:05 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 13:06 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
+- 2026-06-29 12:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 13:14 - [韩媒称韩国队遭中国网民嘲讽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-29 12:57 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
+- 2026-06-29 13:17 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [人工智能科技伦理审查与服务先导计划启动](http://www.blog.kurohicncr.top/Article/details/426720.shtml)
-- 2026-06-29 12:59 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.share.kurohicncr.top/Article/details/0024961334.shtml)
-- 2026-06-29 13:07 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.share.minike.top/Article/details/5830043119.shtml)
-- 2026-06-29 12:50 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.share.minike.top/Article/details/24891.shtml)
-- 2026-06-29 13:08 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.blog.kurohicncr.top/Article/details/9121671146.shtml)
-- 2026-06-29 13:07 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.share.kurohicncr.top/Article/details/790047.shtml)
-- 2026-06-29 12:53 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](http://www.blog.kurohicncr.top/Article/details/83805016.shtml)
-- 2026-06-29 13:07 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.kurohicncr.top/Article/details/374099116181.shtml)
-- 2026-06-29 12:58 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.blog.kurohicncr.top/Article/details/67676286763.shtml)
-- 2026-06-29 13:06 - [永升服务于5月8日斥资41.04万港元回购20万股](http://www.share.minike.top/Article/details/21520.shtml)
-- 2026-06-29 12:52 - [祁连山 “生命方舟” 累计救助收容259只野生动物](http://www.share.minike.top/Article/details/0518471052.shtml)
-- 2026-06-29 13:16 - [早盘：标普500指数和纳斯达克综合再创历史新高](http://www.share.minike.top/Article/details/945532.shtml)
-- 2026-06-29 13:06 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/8373870.shtml)
+- 2026-06-29 13:09 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/39083741215.shtml)
+- 2026-06-29 12:58 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/408460191200.shtml)
+- 2026-06-29 13:00 - [薛之谦演唱会](https://www.share.minike.top/Article/details/464576.shtml)
+- 2026-06-29 12:53 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/0995686564.shtml)
+- 2026-06-29 12:52 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/69681588.shtml)
+- 2026-06-29 12:50 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/8054386.shtml)
+- 2026-06-29 13:15 - [欧洲超1300例超额死亡与高温有关](https://www.share.kurohicncr.top/Article/details/65180575.shtml)
+- 2026-06-29 13:07 - [宜宾地震致13人受轻微伤](https://www.share.kurohicncr.top/Article/details/087612.shtml)
+- 2026-06-29 12:57 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/391306976027.shtml)
+- 2026-06-29 12:53 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/913798393159.shtml)
+- 2026-06-29 13:10 - [中国代表在联合国点名日本所犯罪行](http://www.blog.minike.top/Article/details/63467481.shtml)
+- 2026-06-29 12:54 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/48091.shtml)
+- 2026-06-29 12:50 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/188555.shtml)
+- 2026-06-29 12:57 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/262511042155.shtml)

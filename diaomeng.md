@@ -1,59 +1,57 @@
-# 肯尼亚首批享受“零关税”出口中国货物抵达大连港
+# 八闽大地，台青向下扎根向上生长
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中新网大连5月9日电 (记者 杨毅)9日，随着装载13个40尺集装箱船缓缓靠泊大连港，来自肯尼亚的320吨牛油果毛油顺利抵达大连，这是中国自2026年5月1日起对非洲建交国全面实施单方面零关税政策后，肯尼亚输华的首批享受该政策的农产品，货值达1700万元。 今年3月，“首批对中国零关税货物发车仪式”在肯尼亚内罗毕举行，此次抵达大连港的货物，正是当日发出的首单货物。 辽宁晟麦实业
+“五一”假期，记者在采访中，处处可见一群群忙碌的青春身影：他们从海峡对岸跨海而来，有的穿梭在城市街巷间，一遍遍打磨创业项目；有的扎根在乡野阡陌里，执笔美丽乡村；有的驻足在直播间里，投身新兴产业……随着《中共中央 国务院关于支持福建探索海峡两岸融合发展新路 建设两岸融合发展示范区的意见》的不断落实落细，台青来闽发展的制度愈加完善、政策愈加务实、平台愈加专业，在闽台青正成为两岸融合
 
 ## 正文
 
-中新网大连5月9日电 (记者 杨毅)9日，随着装载13个40尺集装箱船缓缓靠泊大连港，来自肯尼亚的320吨牛油果毛油顺利抵达大连，这是中国自2026年5月1日起对非洲建交国全面实施单方面零关税政策后，肯尼亚输华的首批享受该政策的农产品，货值达1700万元。
+“五一”假期，记者在采访中，处处可见一群群忙碌的青春身影：他们从海峡对岸跨海而来，有的穿梭在城市街巷间，一遍遍打磨创业项目；有的扎根在乡野阡陌里，执笔美丽乡村；有的驻足在直播间里，投身新兴产业……随着《中共中央 国务院关于支持福建探索海峡两岸融合发展新路 建设两岸融合发展示范区的意见》的不断落实落细，台青来闽发展的制度愈加完善、政策愈加务实、平台愈加专业，在闽台青正成为两岸融合发展的实践者与推动者。
 
-今年3月，“首批对中国零关税货物发车仪式”在肯尼亚内罗毕举行，此次抵达大连港的货物，正是当日发出的首单货物。
+以赛促创 明晰发展赛道 今年的“五一”假期，“95后”台青邱诗舒与先生吴圣辉忙着筹备台湾桃园新门店的开业事宜，再过不久他们就要实现“两岸理想家”的梦想，将福州的定制化家居事业拓展到台湾岛内。
 
-辽宁晟麦实业股份有限公司董事长屈铭说，按2026年计划，该公司在肯尼亚的加工工厂将向中国出口2000吨肯尼亚牛油果油，货值约1000万美元。
+邱诗舒是一名“台二代”，因父亲常年在福州经商，自幼便与福州结缘，对这座城市充满感情。
 
-零关税政策预计为该企业直接减免关税成本1400万元人民币，使肯尼亚牛油果油相较墨西哥、法国、西班牙等传统供应国的同类产品拥有约20%的成本优势。
+土生土长的福州青年吴圣辉，大学期间曾赴台湾清华大学交换求学，对台湾的风土人情心生亲近。
 
-据统计，今年1-3月，辽宁与非洲国家贸易进出口108.8亿元，同比增长81.5%。
+相似的两岸情缘、相通的情感共鸣，让二人相识相知，走到一起。
 
-“我们将以零关税举措落地实施为契机，指导企业准确适用原产货物判定标准和海关便利措施等，依托大数据跟踪开展关区享惠分析，支持更多企业依托该举措降低成本、打通市场、链接产能。
+2021年，他们选择定居福州，并肩开启家居设计的创业之路。
 
-”大连海关关税处副处长刘伟说。
+起初，主修设计专业的吴圣辉负责主业，而毕业于新闻专业的邱诗舒则负责品牌推广。
 
-(完)
+慢慢地，他们找到了事业的发展方向，2024年在福州注册成立了“大有可为”家居公司，旨在为两岸同胞打造一个个“理想之家”。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [恒润股份（603985）、双良节能（600481）投资者索赔均再提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:57 - [冰雪为媒携手四十载 中加双城合作续新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:52 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:03 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:15 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:09 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:54 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:58 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 13:13 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:55 - [华尔街新型NACHO 交易押注石油冲击将长期持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 13:07 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:14 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:56 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-29 12:52 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 13:15 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-29 12:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 13:04 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 12:56 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 13:09 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 13:14 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 12:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 12:59 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 13:15 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](http://www.blog.kurohicncr.top/Article/details/5213669798.shtml)
-- 2026-06-29 13:14 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](http://www.share.kurohicncr.top/Article/details/711170.shtml)
-- 2026-06-29 13:17 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](http://www.share.kurohicncr.top/Article/details/20588.shtml)
-- 2026-06-29 12:55 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.blog.kurohicncr.top/Article/details/752516997.shtml)
-- 2026-06-29 13:14 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.share.kurohicncr.top/Article/details/54541732004.shtml)
-- 2026-06-29 12:59 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:13 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.share.kurohicncr.top/Article/details/1494360551.shtml)
-- 2026-06-29 12:57 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.share.minike.top/Article/details/690852748938.shtml)
-- 2026-06-29 13:02 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.share.minike.top/Article/details/437381499.shtml)
-- 2026-06-29 12:49 - [预防心梗，这些不良习惯需警惕](http://www.share.kurohicncr.top/Article/details/04600228186.shtml)
-- 2026-06-29 13:05 - [青藏高原生物种质资源库构建全球高寒种质保护网](http://www.blog.kurohicncr.top/Article/details/582340132473.shtml)
-- 2026-06-29 12:55 - [四部门发文促进人工智能与能源双向赋能](http://www.blog.kurohicncr.top/Article/details/117633.shtml)
-- 2026-06-29 13:16 - [妈妈，我想对你说](http://www.blog.minike.top/Article/details/15224795.shtml)
-- 2026-06-29 12:55 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.share.minike.top/Article/details/8155375147.shtml)
-- 2026-06-29 13:02 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.blog.kurohicncr.top/Article/details/4837340.shtml)
+- 2026-06-29 13:14 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.minike.top/Article/details/26491.shtml)
+- 2026-06-29 12:58 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/359986296155.shtml)
+- 2026-06-29 13:08 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/96010423.shtml)
+- 2026-06-29 13:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/42637366.shtml)
+- 2026-06-29 13:10 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/746303708.shtml)
+- 2026-06-29 13:17 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/5757544491.shtml)
+- 2026-06-29 12:53 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/307895127846.shtml)
+- 2026-06-29 13:02 - [沙丘](http://www.share.kurohicncr.top/Article/details/00681892.shtml)
+- 2026-06-29 13:04 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/5500843.shtml)
+- 2026-06-29 12:55 - [北极荒岛生存挑战](https://www.share.kurohicncr.top/Article/details/419362793.shtml)
+- 2026-06-29 13:05 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/42709667.shtml)
+- 2026-06-29 12:58 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/28105.shtml)
+- 2026-06-29 13:02 - [世界杯打成了欧洲杯和美洲杯](http://www.share.minike.top/Article/details/0270214078.shtml)
+- 2026-06-29 13:03 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.minike.top/Article/details/13766043783.shtml)
+- 2026-06-29 13:05 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/497424905.shtml)

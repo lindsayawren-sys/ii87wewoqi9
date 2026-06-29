@@ -1,57 +1,58 @@
-# AI数字人“邓丽君”在河南郑州“登台”表演
+# 4月SLG预估流水TOP20：海外老大哥遇冷，世纪华通四线攀升
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？它们又是如何做到的？友情提醒！最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！美科技巨头集体投身AI军备竞赛海底电缆成
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：游戏日报 4月份的SLG市场，海外TOP1遭遇变故，国内卷成一团麻！ 根据关注覆盖的国内超过100款、海外近300款SLG产品以及点点数据的预估，游戏日报统计了2026年4月国内和海外市场SLG预估流水TOP20产品。海外（iOS+Google Play）和国内（iOS端）TOP20产品预估流水总计6
 
 ## 正文
 
-今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？
+来源：游戏日报 4月份的SLG市场，海外TOP1遭遇变故，国内卷成一团麻！
 
-它们又是如何做到的？
+根据关注覆盖的国内超过100款、海外近300款SLG产品以及点点数据的预估，游戏日报统计了2026年4月国内和海外市场SLG预估流水TOP20产品。
 
-友情提醒！
+海外（iOS+Google Play）和国内（iOS端）TOP20产品预估流水总计63.38亿元。
 
-最近真的不要穿这种颜色的衣服出门卖家因恶意退货多“拉黑”整个街道 律师：商家不能歧视性拒售人这一辈子，一定要去一趟万里茶道第一关！
+先看看海外市场iOS+Google Play预估流水TOP20榜单。
 
-美科技巨头集体投身AI军备竞赛海底电缆成美以伊博弈关键变量全国已有13个省份全省实施中小学春秋假夹娃娃成瘾？
+海外SLG市场上让业内和玩家热议最多的当属《Last War》，4月份中旬开始《Last War》在美国、日本等主要市场的iOS免费榜出现断崖式下滑。
 
-香港拟修订《赌博条例》！
+同时iOS畅销榜也出现异常波动，美国市场近一年来首次掉出畅销榜TOP10，日本地区更是一度跌到畅销榜第20名。
 
-美国博主带老外组团“朝圣”中国电车，在车展集体破防：凭什么？
+《Last War》美国市场4月iOS免费榜趋势 《Last War》美国市场最近一年iOS畅销榜趋势 有不少玩家向我们反映，《Last War》还下架了部分礼包并调整了礼包价格，不少业内人士也在讨论《Last War》暂停了投放。
 
 ## 相关推荐
 
-- 2026-06-29 13:11 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:11 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:12 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 12:56 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:59 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:12 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 13:13 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:57 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:54 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:54 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:12 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 13:19 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 12:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 13:02 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-29 12:56 - [三轮车被自家狗“推”进池塘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 12:59 - [房屋抵押权与租赁权如何协调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 13:16 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
+- 2026-06-29 13:15 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 12:59 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-29 12:52 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-29 13:07 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:14 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 12:51 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:05 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.blog.minike.top/Article/details/87056565322.shtml)
-- 2026-06-29 13:10 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.blog.kurohicncr.top/Article/details/879016179178.shtml)
-- 2026-06-29 13:06 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.minike.top/Article/details/2345464.shtml)
-- 2026-06-29 13:13 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](http://www.blog.kurohicncr.top/Article/details/0051694.shtml)
-- 2026-06-29 13:10 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.share.kurohicncr.top/Article/details/322095115506.shtml)
-- 2026-06-29 12:58 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.share.minike.top/Article/details/4162216.shtml)
-- 2026-06-29 12:54 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.minike.top/Article/details/10279.shtml)
-- 2026-06-29 13:07 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.minike.top/Article/details/41081689662.shtml)
-- 2026-06-29 13:10 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [高开低走，油脂后市何去何从？](http://www.blog.minike.top/Article/details/30447042.shtml)
-- 2026-06-29 12:58 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:13 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/49316039.shtml)
+- 2026-06-29 13:11 - [世界杯打成了欧洲杯和美洲杯](http://www.share.kurohicncr.top/Article/details/767652469402.shtml)
+- 2026-06-29 13:05 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/65936893168.shtml)
+- 2026-06-29 12:52 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/22998.shtml)
+- 2026-06-29 13:14 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/241193835985.shtml)
+- 2026-06-29 12:55 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/507123.shtml)
+- 2026-06-29 12:53 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/48833938887.shtml)
+- 2026-06-29 12:57 - [世界杯用球成部分门将噩梦](http://www.share.minike.top/Article/details/637852178.shtml)
+- 2026-06-29 13:01 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/91248274.shtml)
+- 2026-06-29 13:19 - [BW2026游览指南](https://www.share.minike.top/Article/details/47605.shtml)
+- 2026-06-29 13:15 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/155668.shtml)
+- 2026-06-29 12:53 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/33076542.shtml)
+- 2026-06-29 13:05 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/749186333.shtml)
+- 2026-06-29 13:00 - [詹俊预测德国大胜巴拉圭](https://www.blog.kurohicncr.top/Article/details/59467114.shtml)
+- 2026-06-29 12:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/793582689.shtml)

@@ -1,58 +1,56 @@
-# 10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧
+# 人民论坛网评 | “八纵八横”，带你提囊归乡和奔赴山海
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。 南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20
+每逢假日，归乡与远行是神州大地不变的底色。步履匆匆的行人、穿梭往来的列车，承载着万千家庭的期盼，勾勒出流动中国真切的模样。2026年“五一”假期，全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。飞驰列车穿梭城乡，载着提囊归乡的游子、奔赴山海的旅人，盛满团圆期盼与山海向往，绘就流动中国暖意融融的生动图景。人享其行、物畅其流。这1.17亿人次的假日奔赴，正是“十五五”开局之年
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+每逢假日，归乡与远行是神州大地不变的底色。
 
-来源：南方财经 记者 翁榕涛 广州报道 随着去年以来A股市场交投火热，证券行业整体迎来业绩修复周期，广东作为国内资本市场的核心腹地，辖内16家持牌证券公司的经营表现备受市场关注。
+步履匆匆的行人、穿梭往来的列车，承载着万千家庭的期盼，勾勒出流动中国真切的模样。
 
-南方财经全媒体记者梳理Wind数据及上市公司公告发现，2025年广东16家券商合计实现营业收入2070.54亿元，同比增长近20%，合计实现净利润845.25亿元，同比增长超39%，行业整体盈利水平显著回升。
+2026年“五一”假期，全国铁路累计发送旅客1.17亿人次，运输安全平稳有序。
 
-若以中国证券业协会提供的数据计算，广东16家券商虽然数量仅占全行业的10%左右，但累计营收占整个证券行业总营收的38.26%，净利润占全行业比重为38.51%，是国内当之无愧的“资本高地”。
+飞驰列车穿梭城乡，载着提囊归乡的游子、奔赴山海的旅人，盛满团圆期盼与山海向往，绘就流动中国暖意融融的生动图景。
 
-不过，亮眼数据背后是行业内愈发显著的业绩分化：头部券商凭借规模优势与多元业务布局持续巩固龙头地位，中小券商则呈现出盈亏两极分化的格局，部分机构净利润增速超100%，也有机构净利润同比下滑近九成。
+人享其行、物畅其流。
 
-与此同时，以AI战略为核心的数字化转型、财富管理升级、深耕特色赛道，正成为广东券商战略布局的核心方向，行业竞争格局正在迎来新一轮重塑。
+这1.17亿人次的假日奔赴，正是“十五五”开局之年，交通服务民生、温暖民心的生动实践，既是铁路事业稳步前行的丰硕成果，也为长远发展留下更多思考。
 
-业绩分化加剧 自营业务成关键变量 随着2026年4月底A股上市公司一季报披露收官，广东已披露一季报的6家券商，交出了“温差”显著的业绩答卷，也折射出行业马太效应持续强化的发展现状。
+庞大客流平稳有序流转，映照出我国铁路综合运输体系日趋成熟完善。
 
-从两家头部券商表现来看，营收与净利润均实现两位数以上的稳健高增。
+“八纵八横”高速铁路网四通八达，不断缩短地域时空距离。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:53 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:01 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:51 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 13:14 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:48 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 13:10 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 13:04 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:49 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:58 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 13:06 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 13:05 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:09 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-29 13:04 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 12:51 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 13:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-29 13:18 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 13:06 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 12:55 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 13:06 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 13:18 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.share.kurohicncr.top/Article/details/38799166677.shtml)
-- 2026-06-29 13:16 - [高开低走，油脂后市何去何从？](http://www.share.minike.top/Article/details/22033076.shtml)
-- 2026-06-29 13:15 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.blog.minike.top/Article/details/27867.shtml)
-- 2026-06-29 12:57 - [享界S9零重力座椅事件，给车企和用户都提了个醒](http://www.blog.minike.top/Article/details/840548488837.shtml)
-- 2026-06-29 13:01 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](http://www.share.minike.top/Article/details/10989734.shtml)
-- 2026-06-29 13:15 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.share.kurohicncr.top/Article/details/1840126017.shtml)
-- 2026-06-29 13:17 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.blog.minike.top/Article/details/825825.shtml)
-- 2026-06-29 12:58 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.blog.minike.top/Article/details/00715.shtml)
-- 2026-06-29 13:17 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.blog.minike.top/Article/details/54589536.shtml)
-- 2026-06-29 13:09 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.blog.minike.top/Article/details/84957024244.shtml)
-- 2026-06-29 12:48 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.share.minike.top/Article/details/72635730053.shtml)
-- 2026-06-29 12:54 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.kurohicncr.top/Article/details/36556232137.shtml)
+- 2026-06-29 12:51 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/306029646.shtml)
+- 2026-06-29 12:55 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/56239703.shtml)
+- 2026-06-29 13:17 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/70723791910.shtml)
+- 2026-06-29 13:06 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.kurohicncr.top/Article/details/9116307.shtml)
+- 2026-06-29 13:06 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.kurohicncr.top/Article/details/18201012.shtml)
+- 2026-06-29 13:05 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/99849.shtml)
+- 2026-06-29 13:06 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/94968.shtml)
+- 2026-06-29 12:51 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/1675501231.shtml)
+- 2026-06-29 12:56 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/7462834.shtml)
+- 2026-06-29 13:18 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.share.minike.top/Article/details/3346402557.shtml)
+- 2026-06-29 13:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.share.minike.top/Article/details/674509212.shtml)
+- 2026-06-29 12:59 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/97845.shtml)
+- 2026-06-29 13:04 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/3506629667.shtml)
+- 2026-06-29 13:18 - [11岁小孩哥汽修工龄4年](http://www.blog.minike.top/Article/details/17088166367.shtml)
+- 2026-06-29 12:58 - [乌拉圭出局之路](https://www.share.minike.top/Article/details/3763502143.shtml)

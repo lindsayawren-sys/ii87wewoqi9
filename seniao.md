@@ -1,57 +1,61 @@
-# 新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？
+# 电子病历龙头嘉和美康艰难防守？疑遭价格与成本双重冲击 毛利率断崖式下滑
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-美国劳工统计局于当地时间周五公布的数据显示，4月非农就业人口新增11.5万人，远高于此前道琼斯调查预期的5.5万人。3月非农就业人数由原先17.8万人上修至18.5万人。 作为本周最受关注的美国经济指标之一，4月非农数据超预期，同时也强化了美联储短期内维持利率不变的市场预期。不少分析师认为，美联储短期政策重心将继续锚定通胀，油价高企持续时间越长，打压消费者信心和支出的风险就越大
+出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：嘉和美康正遭遇转型阵痛，一方面，政策红利退潮，电子病历基础建设市场饱和，公司需求萎缩；另一方面，成本端因项目定制化增加、周期延长而失控，与收入严重不匹配。在收入端与成本端同时遭受冲击背景下，公司似乎也在承受行业内卷压力。公司毛利率从50%骤降至16%。值得注意的是，尽管公司仍居电子病历市场份额第一，但份额已从18%缩水至1
 
 ## 正文
 
-美国劳工统计局于当地时间周五公布的数据显示，4月非农就业人口新增11.5万人，远高于此前道琼斯调查预期的5.5万人。
+出品：新浪财经上市公司研究院 文/夏虫工作室 核心观点：嘉和美康正遭遇转型阵痛，一方面，政策红利退潮，电子病历基础建设市场饱和，公司需求萎缩；另一方面，成本端因项目定制化增加、周期延长而失控，与收入严重不匹配。
 
-3月非农就业人数由原先17.8万人上修至18.5万人。
+在收入端与成本端同时遭受冲击背景下，公司似乎也在承受行业内卷压力。
 
-作为本周最受关注的美国经济指标之一，4月非农数据超预期，同时也强化了美联储短期内维持利率不变的市场预期。
+公司毛利率从50%骤降至16%。
 
-不少分析师认为，美联储短期政策重心将继续锚定通胀，油价高企持续时间越长，打压消费者信心和支出的风险就越大，长期高位的负面影响会逐步累积。
+值得注意的是，尽管公司仍居电子病历市场份额第一，但份额已从18%缩水至15%，营收连续大幅下滑，公司龙头地位或岌岌可危。
 
-劳动力市场维持韧性 数据显示，细分行业就业延续近期格局：医疗健康行业新增3.7万个岗位领跑，反映人口老龄化趋势，运输仓储业新增3万人，零售业新增2.2万人，社会救助行业新增1.7万人。
+作为电子病历龙头嘉和美康2025年持续亏损。
 
-信息服务业减少1.3万个岗位，这已是长期下行趋势，自2022年11月以来该行业累计流失34.2万个岗位，降幅达11%，恰与人工智能普及进程同步。
+2025年年报显示，嘉和美康全年营业收入为4.04亿元，同比下降31.73%；归母净利润为-2.5亿元，同比增长2.2%；扣非归母净利润为-2.58亿元，同比增长1.43%。
 
-联邦政府再裁员9000人，自2024年10月峰值以来累计减少34.8万人，降幅11.5%。
+遭遇转型阵痛？
 
-不过，另一项关键指标平均时薪低于预期，4月环比上涨0.2%，同比增长3.6%，低于市场预期的环比0.3%、同比3.8%的增速，缓解了薪资通胀的担忧。
+营收持续缩水 嘉和美康为医疗机构提供信息化建设解决方案，通过提供以自研为主的软件及相关技术服务、少量外购软硬件及集成服务获取收入并实现盈利。
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:03 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 13:01 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:02 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:06 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:16 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 13:16 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 13:13 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:04 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 13:17 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 13:12 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:05 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 13:13 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 13:09 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 12:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 13:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 13:06 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 12:59 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 12:55 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 13:06 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 13:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 13:00 - [毕业寄几百斤快递回家女生发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 12:59 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 13:07 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 13:18 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
+- 2026-06-29 13:01 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.blog.minike.top/Article/details/74895.shtml)
-- 2026-06-29 13:00 - [*ST天喻领正式被罚，已有案件递交立案](http://www.share.minike.top/Article/details/456370.shtml)
-- 2026-06-29 13:04 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.share.minike.top/Article/details/90753.shtml)
-- 2026-06-29 13:00 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.share.minike.top/Article/details/331514.shtml)
-- 2026-06-29 12:54 - [培育消费新场景新业态 激发消费新动能](http://www.blog.kurohicncr.top/Article/details/018073476.shtml)
-- 2026-06-29 13:05 - [文莱王储比拉将访华](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.share.minike.top/Article/details/5870240.shtml)
-- 2026-06-29 12:49 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](http://www.share.kurohicncr.top/Article/details/455117865059.shtml)
-- 2026-06-29 13:06 - [“情书”里的爆款创作密码](http://www.blog.minike.top/Article/details/68532.shtml)
-- 2026-06-29 13:16 - [下周A股还能涨吗？这两件事，请股民重点关注](http://www.blog.kurohicncr.top/Article/details/48600665.shtml)
+- 2026-06-29 12:50 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/161592.shtml)
+- 2026-06-29 13:16 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/214720358120.shtml)
+- 2026-06-29 13:07 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/764017568470.shtml)
+- 2026-06-29 12:57 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/55695554081.shtml)
+- 2026-06-29 13:02 - [刘宇宁现偶我就不要了](http://www.share.minike.top/Article/details/24889234.shtml)
+- 2026-06-29 12:54 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.kurohicncr.top/Article/details/51206.shtml)
+- 2026-06-29 12:56 - [为什么欧洲人不装空调](http://www.share.minike.top/Article/details/899368122714.shtml)
+- 2026-06-29 13:06 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/04793210397.shtml)
+- 2026-06-29 13:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/6995516117.shtml)
+- 2026-06-29 13:09 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/2714034.shtml)
+- 2026-06-29 12:53 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/3974964098.shtml)
+- 2026-06-29 13:15 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.minike.top/Article/details/388335.shtml)
+- 2026-06-29 13:02 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/38573.shtml)
+- 2026-06-29 12:55 - [加拿大92分钟绝杀南非](http://www.blog.kurohicncr.top/Article/details/19530.shtml)
+- 2026-06-29 13:12 - [韩媒破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/65030166379.shtml)

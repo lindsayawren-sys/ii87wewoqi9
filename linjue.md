@@ -1,58 +1,58 @@
-# AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务
+# 任天堂下调Switch 2销量及净利润预期
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-完全恢复仍需数小时 核心要点 全球头部云服务商亚马逊云服务（AWS）自周四起出现运行故障，波及 Coinbase、FanDuel 等平台的交易业务。 AWS 在美东时间周五上午 9：51 发布最新通报称：预计整体完全恢复仍需数小时。 本次宕机源于 AWS 美国东部一区（US-East-1）弗吉尼亚北部数据中心的设备过热问题，故障集中在该区域内单个可用区。 AWS 在通报中表示：
+专题：聚焦美股2026年第一季度财报 这家日本企业正努力在电子游戏之外实现收入来源多元化 内容概要 任天堂预计本财年净利润下滑 27% 至 3100 亿日元，营收同比下降 11%。 在刚交出亮眼全年业绩后，任天堂预计新财年经营表现走弱，Switch 2 销量及净利润均将下滑。 截至 3 月的过去 12 个月，这家日本游戏厂商净利润同比大增 52%，达4240.6 亿日元（约合
 
 ## 正文
 
-完全恢复仍需数小时 核心要点 全球头部云服务商亚马逊云服务（AWS）自周四起出现运行故障，波及 Coinbase、FanDuel 等平台的交易业务。
+专题：聚焦美股2026年第一季度财报 这家日本企业正努力在电子游戏之外实现收入来源多元化 内容概要 任天堂预计本财年净利润下滑 27% 至 3100 亿日元，营收同比下降 11%。
 
-AWS 在美东时间周五上午 9：51 发布最新通报称：预计整体完全恢复仍需数小时。
+在刚交出亮眼全年业绩后，任天堂预计新财年经营表现走弱，Switch 2 销量及净利润均将下滑。
 
-本次宕机源于 AWS 美国东部一区（US-East-1）弗吉尼亚北部数据中心的设备过热问题，故障集中在该区域内单个可用区。
+截至 3 月的过去 12 个月，这家日本游戏厂商净利润同比大增 52%，达4240.6 亿日元（约合 27 亿美元），高于数据机构 Visible Alpha 分析师预期的 4186 亿日元；全年营收近乎翻倍，至2.313 万亿日元。
 
-AWS 在通报中表示：“目前正紧急扩容上线额外冷却系统，待制冷能力到位后，将逐步恢复故障可用区内剩余受影响硬件。
+从 4 月开启的本财年，任天堂预计： 营收下滑 11%，至2.050 万亿日元； 净利润下滑 27%，至3100 亿日元。
 
-” AWS 同时着手修复受影响的 EC2 云服务器实例（提供虚拟服务器算力资源）。
+公司周五公布，预计本财年Switch 2 主机销量 1650 万台，低于上一财年的 1990 万台； 新机游戏软件销量预计达 6000 万份，高于上年的 4870 万份。
 
-AWS 健康状态仪表盘于美东时间周四晚 8：25 首次公告，称正在 “调查云服务器实例异常故障”。
+任天堂于去年 6 月正式发售 Switch 2，初衷是接续初代机型的辉煌 —— 初代销量曾受益于疫情带动的游戏热潮而大爆。
 
-此后 AWS 未再发布额外评论。
+这款主机美国零售价约 450 美元，配备更大、触控更灵敏的屏幕，图形性能也得到升级。
 
-平台受影响情况 美东时间周四晚 9 点，体育博彩应用 FanDuel 在社交平台 X 发文称，团队已注意到平台出现技术故障，用户无法正常登录使用，正在紧急排查。
+总部位于京都的任天堂，一直致力于摆脱单一游戏业务、拓展多元收入。
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 13:13 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:16 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 13:07 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 13:02 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:03 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 13:01 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:08 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:11 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:07 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:55 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:01 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 13:18 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 13:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 13:06 - [刘宇宁现偶我就不要了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 13:15 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 12:56 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 13:01 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 12:58 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-29 13:01 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 13:12 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-29 13:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 12:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [妈妈，我想对你说](http://www.blog.minike.top/Article/details/022308115281.shtml)
-- 2026-06-29 13:02 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.blog.minike.top/Article/details/817974741.shtml)
-- 2026-06-29 12:52 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.share.minike.top/Article/details/5567875.shtml)
-- 2026-06-29 13:06 - [AI时代，全球教育正面临三层重塑](http://www.blog.minike.top/Article/details/14299.shtml)
-- 2026-06-29 13:15 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.share.minike.top/Article/details/09738133.shtml)
-- 2026-06-29 12:50 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.share.minike.top/Article/details/7331002062.shtml)
-- 2026-06-29 13:08 - [北京曲剧《雷雨》观摩研讨会在京举办](http://www.share.minike.top/Article/details/81233134031.shtml)
-- 2026-06-29 12:50 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.blog.kurohicncr.top/Article/details/23877712092.shtml)
-- 2026-06-29 12:52 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.share.minike.top/Article/details/2964950610.shtml)
+- 2026-06-29 13:17 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/7219074143.shtml)
+- 2026-06-29 13:08 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/86725918736.shtml)
+- 2026-06-29 12:52 - [《贺子珍》](http://www.share.minike.top/Article/details/667975581596.shtml)
+- 2026-06-29 12:59 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/49084.shtml)
+- 2026-06-29 13:08 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/19064352.shtml)
+- 2026-06-29 13:13 - [金牌调解](https://www.share.minike.top/Article/details/3640339346.shtml)
+- 2026-06-29 13:13 - [ENC瓦中国香港负印度数据图](http://www.blog.kurohicncr.top/Article/details/49823.shtml)
+- 2026-06-29 13:08 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/7158251191.shtml)
+- 2026-06-29 12:57 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.share.minike.top/Article/details/003335.shtml)
+- 2026-06-29 12:56 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/5828613.shtml)
+- 2026-06-29 13:03 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/991856319.shtml)
+- 2026-06-29 13:09 - [韩国媒体破防：被中国球迷当笑柄](http://www.share.kurohicncr.top/Article/details/9373493.shtml)
+- 2026-06-29 12:53 - [俄称继续推进 乌称打击俄军设施](http://www.blog.minike.top/Article/details/94418699.shtml)
+- 2026-06-29 13:03 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/606209588726.shtml)
+- 2026-06-29 12:54 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/09627688837.shtml)

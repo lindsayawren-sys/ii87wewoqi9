@@ -1,56 +1,57 @@
-# 东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”
+# 港媒：美加墨世界杯转播权香港落地
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”一图读懂丨个税汇算这些“坑”别踩边充电边玩手机竟被电击？这些习惯赶紧改→既要照护也需处置“身后事” 无子女老人暮年谁“兜底”考古学家白云翔去世 毕生矢志探古求原排队3小时打卡1分钟！现在的旅行，只是为了发朋友圈？中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒大模型收费，先过“值不值”这一关今年开分最高的国
+中新网5月8日电(吴家驹)距离2026年美加墨世界杯开幕仅剩不到40天。 据香港大公文汇网报道，近日，FIFA官网显示，中国香港地区已获得2026年世界杯转播权。据悉，香港电讯盈科公司旗下Now TV与免费电视台Viu TV获得美加墨世界独家转播权。Now TV将通过收费平台全程直播104场比赛，Viu TV将会免费播出揭幕战、决赛等精选场次。据悉，电讯盈科买下世界杯转播权花费
 
 ## 正文
 
-戴上300公里的“月季花环”！
+中新网5月8日电(吴家驹)距离2026年美加墨世界杯开幕仅剩不到40天。
 
-5月的北京，每条路都开成了“花路”一图读懂丨个税汇算这些“坑”别踩边充电边玩手机竟被电击？
+据香港大公文汇网报道，近日，FIFA官网显示，中国香港地区已获得2026年世界杯转播权。
 
-这些习惯赶紧改→既要照护也需处置“身后事” 无子女老人暮年谁“兜底”考古学家白云翔去世 毕生矢志探古求原排队3小时打卡1分钟！
+据悉，香港电讯盈科公司旗下Now TV与免费电视台Viu TV获得美加墨世界独家转播权。
 
-现在的旅行，只是为了发朋友圈？
+Now TV将通过收费平台全程直播104场比赛，Viu TV将会免费播出揭幕战、决赛等精选场次。
 
-中新网评：享界S9零重力座椅事件，给车企和用户都提了个醒大模型收费，先过“值不值”这一关今年开分最高的国产电影，每一件道具都是华侨的情书一年填上百张表？
+据悉，电讯盈科买下世界杯转播权花费约2500万美元(约1.7亿元人民币)。
 
-部分科研人员仍困在表格里“反向接话”视频爆火：让家庭教育走出“别人家孩子”的攀比阴影为何树之间也会遵守“社交距离”？
-
-它们又是如何做到的？
-
-友情提醒！
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:04 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 13:08 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:54 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:07 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:54 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 13:05 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:17 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:02 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:02 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:19 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-29 13:17 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-29 12:55 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 13:16 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 13:07 - [韩红携4000万物资抵呼和浩特](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 13:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-29 12:57 - [美加墨世界杯首支16强诞生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-29 13:15 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
+- 2026-06-29 13:10 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
+- 2026-06-29 13:12 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 12:56 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 13:04 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 13:00 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 13:15 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 13:07 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:08 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.kurohicncr.top/Article/details/287216527.shtml)
-- 2026-06-29 13:11 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:16 - [重庆最大液化天然气单一燃料江海直达散货船首航](http://www.blog.kurohicncr.top/Article/details/354027995469.shtml)
-- 2026-06-29 12:59 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.share.minike.top/Article/details/89242027.shtml)
-- 2026-06-29 13:04 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.minike.top/Article/details/1784714.shtml)
-- 2026-06-29 13:13 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.blog.kurohicncr.top/Article/details/399593060435.shtml)
-- 2026-06-29 12:49 - [高开低走，油脂后市何去何从？](http://www.share.kurohicncr.top/Article/details/31926894.shtml)
-- 2026-06-29 12:48 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](http://www.blog.kurohicncr.top/Article/details/4505842.shtml)
-- 2026-06-29 12:48 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](http://www.share.kurohicncr.top/Article/details/210145.shtml)
-- 2026-06-29 12:49 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.blog.kurohicncr.top/Article/details/0766056.shtml)
-- 2026-06-29 13:09 - [人工智能科技伦理审查与服务先导计划启动](http://www.blog.kurohicncr.top/Article/details/759498906.shtml)
-- 2026-06-29 12:53 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.share.minike.top/Article/details/6565871.shtml)
+- 2026-06-29 12:52 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/304433510755.shtml)
+- 2026-06-29 13:06 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/54579664.shtml)
+- 2026-06-29 13:04 - [急先锋](https://www.blog.minike.top/Article/details/10564050995.shtml)
+- 2026-06-29 12:50 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/9696890.shtml)
+- 2026-06-29 12:56 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/272957.shtml)
+- 2026-06-29 12:54 - [吴建豪老婆](https://www.share.minike.top/Article/details/001163915.shtml)
+- 2026-06-29 12:50 - [法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/12013113277.shtml)
+- 2026-06-29 13:15 - [千与千寻](http://www.share.kurohicncr.top/Article/details/74132120.shtml)
+- 2026-06-29 12:55 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/8970453.shtml)
+- 2026-06-29 13:08 - [当我回母校教书](https://www.blog.minike.top/Article/details/169408343736.shtml)
+- 2026-06-29 12:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/41318274.shtml)
+- 2026-06-29 13:06 - [恋与深空需直面玩家6大疑问](http://www.blog.kurohicncr.top/Article/details/4285406434.shtml)
+- 2026-06-29 12:51 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/45559373925.shtml)
+- 2026-06-29 13:01 - [网约车司机转账15000元后被乘客拉黑](https://www.share.minike.top/Article/details/299776462268.shtml)
+- 2026-06-29 13:07 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/93660435729.shtml)

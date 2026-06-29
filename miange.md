@@ -1,56 +1,61 @@
-# 25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局
+# 熄了老烟囱 “热”了长江畔
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-来源：财通社 5月8日，据消息人士向《科创板日报》透露，国产大模型公司阶跃星辰即将完成近25亿美元融资，并已拆除红筹架构。 该媒体报道称，在阶跃星辰的最新融资中，产业链资本集中入场，包括华勤、龙旗、豪威、中兴等，覆盖从整机制造到上游核心器件多个环节。 随着AI能力加速向手机、汽车、PC等硬件迁移，大模型厂商与硬件产业链之间的绑定也越来越紧密。 对于产业链资本而言，这笔投资押注的
+“沉睡”十余年的重庆发电厂旧址改名“重庆艺术公园”，变身融合博物馆、商业空间于一体的长江畔文化新地标。 沿四川美术学院黄桷坪校区外被颜料浸染的涂鸦艺术街向南而行，朝着长江方向漫步，直到在街角拐过一道弯，视野豁然开朗。远处，两根标志性的烟囱巍然耸立，直指云端。 继续前行数百米，一方石刻映入眼帘，上面镌刻六个大字——重庆艺术公园。人们漫步于此，不经意间总会谈起这里正在发生的“蜕变”
 
 ## 正文
 
-来源：财通社 5月8日，据消息人士向《科创板日报》透露，国产大模型公司阶跃星辰即将完成近25亿美元融资，并已拆除红筹架构。
+“沉睡”十余年的重庆发电厂旧址改名“重庆艺术公园”，变身融合博物馆、商业空间于一体的长江畔文化新地标。
 
-该媒体报道称，在阶跃星辰的最新融资中，产业链资本集中入场，包括华勤、龙旗、豪威、中兴等，覆盖从整机制造到上游核心器件多个环节。
+沿四川美术学院黄桷坪校区外被颜料浸染的涂鸦艺术街向南而行，朝着长江方向漫步，直到在街角拐过一道弯，视野豁然开朗。
 
-随着AI能力加速向手机、汽车、PC等硬件迁移，大模型厂商与硬件产业链之间的绑定也越来越紧密。
+远处，两根标志性的烟囱巍然耸立，直指云端。
 
-对于产业链资本而言，这笔投资押注的不只是一个模型公司，更是下一代智能终端入口。
+继续前行数百米，一方石刻映入眼帘，上面镌刻六个大字——重庆艺术公园。
 
-公开信息显示，阶跃星辰已于4月初完成股改，企业类型由有限责任公司变更为股份有限公司。
+人们漫步于此，不经意间总会谈起这里正在发生的“蜕变”。
 
-知情人士称，阶跃星辰目前已完成红筹架构拆除工作。
+这里是新中国成立后西南地区首座自动化火力发电厂——重庆发电厂旧址，也是重庆目前保存最完好的工业遗产建筑群之一。
 
-而股改与拆除红筹架构，当下被视为国内企业推进赴港IPO的重要前置动作。
+处于三峡库区的重庆，是我国工业重镇。
 
-与此同时，被称为“港版淡马锡”的香港投资管理有限公司（简称“港投公司”）也已出现在公司股东名单中。
+过去，沿江布局的工业企业在促进当地经济发展同时，也给长江生态环境带来持续的承载压力。
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:55 - [普京谈与泽连斯基会面：不主动 不拒绝](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:48 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:12 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:50 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:07 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:13 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:57 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:48 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:11 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:56 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 12:55 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 13:04 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 13:14 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 12:52 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 13:12 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 13:14 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 12:55 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 13:07 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 13:00 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqagb.md)
+- 2026-06-29 12:58 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-29 13:19 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 13:09 - [斛珠夫人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:07 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 13:09 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.share.kurohicncr.top/Article/details/0695605.shtml)
-- 2026-06-29 12:53 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](http://www.share.minike.top/Article/details/3604833311.shtml)
-- 2026-06-29 13:08 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](http://www.blog.minike.top/Article/details/027701444.shtml)
-- 2026-06-29 13:15 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](http://www.share.minike.top/Article/details/426156982.shtml)
-- 2026-06-29 13:05 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](http://www.blog.kurohicncr.top/Article/details/805547.shtml)
-- 2026-06-29 12:59 - [强军思想育新人丨“翀”上云霄](http://www.share.minike.top/Article/details/829342.shtml)
-- 2026-06-29 12:52 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.share.minike.top/Article/details/5571191.shtml)
-- 2026-06-29 13:01 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](http://www.share.kurohicncr.top/Article/details/732895885687.shtml)
-- 2026-06-29 13:14 - [任天堂将上调Switch 2价格 预计其销量将下滑](http://www.share.minike.top/Article/details/445661157.shtml)
-- 2026-06-29 13:13 - [陕西宝鸡：江海之上造 “宝桥”](http://www.blog.minike.top/Article/details/13414642.shtml)
-- 2026-06-29 12:57 - [以“无我”境界成“有我”之业](http://www.blog.minike.top/Article/details/34291403334.shtml)
-- 2026-06-29 13:11 - [李强主持召开国务院常务会议](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.blog.kurohicncr.top/Article/details/311892097.shtml)
-- 2026-06-29 13:14 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.share.kurohicncr.top/Article/details/25079.shtml)
+- 2026-06-29 13:10 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/4275248.shtml)
+- 2026-06-29 12:51 - [宜宾地震致13人受轻微伤](http://www.blog.minike.top/Article/details/159097248759.shtml)
+- 2026-06-29 12:57 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/356894449240.shtml)
+- 2026-06-29 12:54 - [普京称俄处于命运攸关之际](http://www.share.minike.top/Article/details/034163980026.shtml)
+- 2026-06-29 13:03 - [伊朗球员致歉](https://www.share.kurohicncr.top/Article/details/478294133361.shtml)
+- 2026-06-29 12:54 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/32278.shtml)
+- 2026-06-29 12:58 - [TOP 无畏契约](https://www.share.minike.top/Article/details/000709146064.shtml)
+- 2026-06-29 13:14 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/3319568797.shtml)
+- 2026-06-29 13:05 - [加拿大92分钟绝杀南非](https://www.blog.minike.top/Article/details/33651867206.shtml)
+- 2026-06-29 12:54 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/288804657783.shtml)
+- 2026-06-29 13:01 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/624513764.shtml)
+- 2026-06-29 12:56 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/3085786391.shtml)
+- 2026-06-29 12:56 - [房屋抵押权与租赁权如何协调](http://www.blog.kurohicncr.top/Article/details/401772123169.shtml)
+- 2026-06-29 13:01 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/58845137382.shtml)
+- 2026-06-29 13:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/59447476559.shtml)

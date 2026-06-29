@@ -1,56 +1,58 @@
-# 515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践
+# 泰官员：严厉打击各类违法犯罪行为维护旅游形象
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。东方红养老投教驿站参选“最佳投资者教育优秀创新案例”类别。>>活动详情 据悉，2025年4月23日至25日，在中国证券投资基金业协会的指导下，东方红资产管理以“春江花悦”为主题打造了沉浸式养老投教驿站。该项目既是对养老投教活动的创新响应，更是一次以花
+中新社曼谷5月8日电 (记者 李映民)泰国内政部常务秘书阿西特·桑潘拉特8日称，近期国内外游客在泰国各府的违法犯罪行为对泰国旅游形象造成了负面影响，并引起了许多地区居民的不安。 阿西特·桑潘拉特表示，总理阿努廷对此极为关切，并已指示包括行政、安全和旅游部门在内的相关机构，加强对企业经营者和游客的宣传教育。他还命令各府行政机关和警察部队以及相关机构严格执法并落实预防措施。任何违法
 
 ## 正文
 
-专题：515投资者保护！
+中新社曼谷5月8日电 (记者 李映民)泰国内政部常务秘书阿西特·桑潘拉特8日称，近期国内外游客在泰国各府的违法犯罪行为对泰国旅游形象造成了负面影响，并引起了许多地区居民的不安。
 
-新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
+阿西特·桑潘拉特表示，总理阿努廷对此极为关切，并已指示包括行政、安全和旅游部门在内的相关机构，加强对企业经营者和游客的宣传教育。
 
-东方红养老投教驿站参选“最佳投资者教育优秀创新案例”类别。
+他还命令各府行政机关和警察部队以及相关机构严格执法并落实预防措施。
 
->>活动详情 据悉，2025年4月23日至25日，在中国证券投资基金业协会的指导下，东方红资产管理以“春江花悦”为主题打造了沉浸式养老投教驿站。
+任何违法行为都必须受到坚决惩处，绝不姑息。
 
-该项目既是对养老投教活动的创新响应，更是一次以花卉艺术为聚点，将投资哲学融入进生活场景的浪漫实践，旨在以大众喜闻乐见的生活化场景为载体，将抽象的养老投资理念转化为可感知、可互动、可共鸣的体验。
+据他介绍，近日素叻他尼府政府部门对长期居住在帕岸岛、苏梅岛和涛岛的外国公民采取行动，这些人利用旅游签证从事非法职业，并有其他违法行为。
 
-东方红养老投教驿站打破传统投教的空间想象，将滨江公共空间转化为全开放、可交互的沉浸式场景。
+当地政府与安全机构、移民警察和府就业办公室合作，正在查处这些外国人以代理人身份开展的商业活动。
 
-市民在漫步、赏花、拍照的过程中，就能接触到养老投资知识。
+在普吉岛，行政机关和执法部门联合企业经营者，通过宣传提高游客的法律意识。
 
-活动将花卉艺术与养老投资理念深度结合，以“韧性生长”与“坚定价值”为精神内核设计花语投教金句，例如“不要拔掉鲜花浇灌杂草”“做一棵长期主义的木棉”等。
+执法部门严格执法，对违法外国游客予以最严厉的处罚。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:50 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:58 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:57 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:16 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 12:55 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:04 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:11 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:53 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:15 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:09 - [曝太阳黄蜂完成阵容互换+签位置换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-29 13:04 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-29 13:15 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-29 13:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 12:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 13:07 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 13:19 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-29 13:10 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 13:19 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 13:10 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 12:54 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 13:14 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.share.minike.top/Article/details/41784092300.shtml)
-- 2026-06-29 13:03 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.blog.minike.top/Article/details/82342427652.shtml)
-- 2026-06-29 12:57 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.share.kurohicncr.top/Article/details/007652930.shtml)
-- 2026-06-29 12:56 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.kurohicncr.top/Article/details/23792.shtml)
-- 2026-06-29 13:08 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.blog.minike.top/Article/details/056110024.shtml)
-- 2026-06-29 13:11 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.blog.kurohicncr.top/Article/details/743270.shtml)
-- 2026-06-29 13:09 - [第48届东盟峰会在菲律宾举行](http://www.blog.minike.top/Article/details/1343571.shtml)
-- 2026-06-29 13:09 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.blog.kurohicncr.top/Article/details/4548956.shtml)
-- 2026-06-29 13:12 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.blog.kurohicncr.top/Article/details/614435.shtml)
-- 2026-06-29 12:57 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.share.minike.top/Article/details/1174905092.shtml)
-- 2026-06-29 13:01 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.share.minike.top/Article/details/675318895985.shtml)
-- 2026-06-29 12:53 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:16 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/12691837957.shtml)
+- 2026-06-29 13:09 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/64753756683.shtml)
+- 2026-06-29 13:10 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/19438.shtml)
+- 2026-06-29 13:18 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/740032948488.shtml)
+- 2026-06-29 13:14 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/857443603072.shtml)
+- 2026-06-29 13:13 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/546445402.shtml)
+- 2026-06-29 12:54 - [岭南电影为何迎来“南方热”](http://www.blog.kurohicncr.top/Article/details/7322034983.shtml)
+- 2026-06-29 13:15 - [复盘葡萄牙逼平哥伦比亚](https://www.share.kurohicncr.top/Article/details/71604.shtml)
+- 2026-06-29 13:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/561047.shtml)
+- 2026-06-29 13:05 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/482410898857.shtml)
+- 2026-06-29 12:56 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/409360.shtml)
+- 2026-06-29 12:52 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/565275.shtml)
+- 2026-06-29 12:59 - [埃博拉为何再次袭击非洲](http://www.blog.kurohicncr.top/Article/details/827864315934.shtml)
+- 2026-06-29 13:13 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/5430585.shtml)
+- 2026-06-29 12:57 - [韩国记者：解码“合肥模式”](http://www.blog.kurohicncr.top/Article/details/210165007938.shtml)

@@ -1,52 +1,50 @@
-# 高盛：美图公司维持“买入”评级 目标价14.30港元
+# 消费类网联摄像头网络安全标识实施规则公开征求意见
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-高盛发布研报称，美图公司（01357）公布影像与设计产品收入，同比升34%至8.52亿元人民币。首季生产力工具收入同比增长45%，休闲工具收入同比增长36%。该行认为，付费订户数量的增长是关键驱动因素。截至2026年3月底，付费订户总数达1，790万户，去年同期为1，690万户。该行指，美图受惠于AI功能提升及AI代理的整合，对付费用户数量及每用户平均收入的增长均持正面看法；
+新华社北京5月8日电 国家互联网信息办公室8日就消费类网联摄像头网络安全标识实施规则(征求意见稿)公开征求意见。意见反馈截止时间为2026年5月23日。 征求意见稿明确，消费类网联摄像头是指消费者个人或组织购买、使用，为个人或组织提供音视频信息采集和处理服务、具有互联网联网功能的独立摄像头。 征求意见稿提出，消费类网联摄像头的网络安全标识对应的网络安全能力由低到高依次为基础级、
 
 ## 正文
 
-高盛发布研报称，美图公司（01357）公布影像与设计产品收入，同比升34%至8.52亿元人民币。
+新华社北京5月8日电 国家互联网信息办公室8日就消费类网联摄像头网络安全标识实施规则(征求意见稿)公开征求意见。
 
-首季生产力工具收入同比增长45%，休闲工具收入同比增长36%。
+意见反馈截止时间为2026年5月23日。
 
-该行认为，付费订户数量的增长是关键驱动因素。
+征求意见稿明确，消费类网联摄像头是指消费者个人或组织购买、使用，为个人或组织提供音视频信息采集和处理服务、具有互联网联网功能的独立摄像头。
 
-截至2026年3月底，付费订户总数达1，790万户，去年同期为1，690万户。
+征求意见稿提出，消费类网联摄像头的网络安全标识对应的网络安全能力由低到高依次为基础级、增强级、领先级三个级别，相应的标识等级分别用一星、二星、三星表示。
 
-该行指，美图受惠于AI功能提升及AI代理的整合，对付费用户数量及每用户平均收入的增长均持正面看法； 维持对公司“买入”评级； 目标价维持14.3港元。
-
-责任编辑：卢昱君
+消费类网联摄像头的网络安全能力应依据《网络安全标识 消费类网联摄像头安全要求》进行检测，确定物理与硬件安全、系统与软件安全、网络与通信安全、数据与个人信息安全、安全保障等单项网络安全能力等级。
 
 ## 相关推荐
 
-- 2026-06-29 13:00 - [加州新计划：新生儿家庭将获数百片免费尿布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:48 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 13:10 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:59 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 13:17 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 13:16 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:55 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:00 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:53 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:57 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:59 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-29 12:59 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 13:06 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 13:02 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
+- 2026-06-29 13:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 12:53 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 13:04 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 13:00 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
+- 2026-06-29 13:19 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-29 13:14 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.blog.kurohicncr.top/Article/details/06718316270.shtml)
-- 2026-06-29 13:01 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.minike.top/Article/details/7069493065.shtml)
-- 2026-06-29 13:07 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.blog.minike.top/Article/details/3399504.shtml)
-- 2026-06-29 12:59 - [Stifel在近期抛售后上调Shake Shack评级](http://www.blog.minike.top/Article/details/70426894.shtml)
-- 2026-06-29 12:49 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.share.kurohicncr.top/Article/details/54414144684.shtml)
-- 2026-06-29 12:58 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.blog.kurohicncr.top/Article/details/6996034023.shtml)
-- 2026-06-29 12:53 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.share.minike.top/Article/details/70521334226.shtml)
-- 2026-06-29 13:12 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.blog.minike.top/Article/details/048716261440.shtml)
-- 2026-06-29 13:14 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](http://www.share.minike.top/Article/details/4117665934.shtml)
-- 2026-06-29 13:14 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.blog.minike.top/Article/details/40936415926.shtml)
-- 2026-06-29 12:58 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.share.minike.top/Article/details/248239437.shtml)
-- 2026-06-29 12:58 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](http://www.share.minike.top/Article/details/77960673.shtml)
-- 2026-06-29 13:04 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.blog.minike.top/Article/details/76192.shtml)
-- 2026-06-29 13:16 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.blog.kurohicncr.top/Article/details/36755535.shtml)
+- 2026-06-29 12:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/081594112234.shtml)
+- 2026-06-29 12:56 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/92213140578.shtml)
+- 2026-06-29 13:08 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.minike.top/Article/details/06004244539.shtml)
+- 2026-06-29 12:56 - [外网预言中国举办世界杯时间](http://www.share.minike.top/Article/details/30957.shtml)
+- 2026-06-29 12:54 - [韩国极端网友对主教练发出死亡威胁](http://www.share.kurohicncr.top/Article/details/251716441916.shtml)
+- 2026-06-29 12:57 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/409611816.shtml)
+- 2026-06-29 13:00 - [为什么6月以来北方频繁降雨](http://www.blog.kurohicncr.top/Article/details/53010.shtml)
+- 2026-06-29 13:00 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/38329.shtml)
+- 2026-06-29 12:58 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.minike.top/Article/details/216993425979.shtml)
+- 2026-06-29 13:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/5569180151.shtml)
+- 2026-06-29 13:14 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.kurohicncr.top/Article/details/91504.shtml)
+- 2026-06-29 13:14 - [腾讯回应做独立支付APP](https://www.blog.minike.top/Article/details/621491000.shtml)
+- 2026-06-29 13:10 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.minike.top/Article/details/39886347.shtml)
+- 2026-06-29 12:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/162297.shtml)
+- 2026-06-29 12:52 - [曝太阳黄蜂完成阵容互换+签位置换](http://www.blog.minike.top/Article/details/8354749.shtml)

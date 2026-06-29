@@ -1,59 +1,58 @@
-# 盘前：纳指期货涨0.6% 市场等待月度就业报告
+# 午盘：美股继续上扬 纳指上涨350点
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-周五科技股上涨带动美国股指期货走高，投资者正在等待月度就业报告。油价震荡，与此同时，特朗普政府推动与伊朗达成和平协议。 标普500指数和纳斯达克100指数有望测试新高，相关期货分别上涨0.5%和0.6%。在其他地区股市承压之际，美股表现突出；中东冲突有可能破坏确保战争永久结束的努力。 欧洲和亚洲股市基准指数下跌。欧洲股市走低。泛欧STOXX 600指数下跌0.9%，法兰克福和巴
+北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。标普500指数和纳斯达克综合再创历史新高。美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。 道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33
 
 ## 正文
 
-周五科技股上涨带动美国股指期货走高，投资者正在等待月度就业报告。
+北京时间5月9日凌晨，美股周五午盘继续上扬，纳指上涨350点。
 
-油价震荡，与此同时，特朗普政府推动与伊朗达成和平协议。
+标普500指数和纳斯达克综合再创历史新高。
 
-标普500指数和纳斯达克100指数有望测试新高，相关期货分别上涨0.5%和0.6%。
+美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。
 
-在其他地区股市承压之际，美股表现突出；中东冲突有可能破坏确保战争永久结束的努力。
+美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
 
-欧洲和亚洲股市基准指数下跌。
+道指涨62.39点，涨幅为0.13%，报49659.36点；纳指涨346.89点，涨幅为1.34%，报26153.08点；标普500指数涨57.33点，涨幅为0.78%，报7394.44点。
 
-欧洲股市走低。
+标普500指数和纳斯达克综合指数周五双双反弹，并再创历史新高。
 
-泛欧STOXX 600指数下跌0.9%，法兰克福和巴黎主要股指跌幅也大致相当。
+美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，高于道琼斯调查经济学家预期的5.5万。
 
-稍早，亚洲股市从纪录高位小幅回落。
+美国失业率持稳于4.3%，符合预期。
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:16 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 13:14 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:10 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:03 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 13:09 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:14 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:04 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:04 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:17 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:53 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:11 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:56 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:54 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-29 13:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 13:12 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 12:55 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-29 13:07 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 12:55 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 13:07 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
+- 2026-06-29 12:51 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 12:54 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-29 12:56 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
+- 2026-06-29 13:05 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
+- 2026-06-29 13:15 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](http://www.blog.kurohicncr.top/Article/details/47179.shtml)
-- 2026-06-29 13:13 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](http://www.share.minike.top/Article/details/1865126737.shtml)
-- 2026-06-29 13:09 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](http://www.share.minike.top/Article/details/043753977.shtml)
-- 2026-06-29 13:02 - [加州新计划：新生儿家庭将获数百片免费尿布](http://www.blog.kurohicncr.top/Article/details/344094920.shtml)
-- 2026-06-29 13:04 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](http://www.share.minike.top/Article/details/89308261.shtml)
-- 2026-06-29 13:09 - [2026世界杯美加墨三国将分别举办开幕式](http://www.blog.minike.top/Article/details/4997019563.shtml)
-- 2026-06-29 13:09 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.minike.top/Article/details/0284464744.shtml)
-- 2026-06-29 13:11 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.share.kurohicncr.top/Article/details/46221.shtml)
-- 2026-06-29 13:04 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.share.kurohicncr.top/Article/details/5521100.shtml)
-- 2026-06-29 13:04 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.blog.kurohicncr.top/Article/details/93750568.shtml)
-- 2026-06-29 13:17 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.share.kurohicncr.top/Article/details/27989850.shtml)
-- 2026-06-29 13:12 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.blog.kurohicncr.top/Article/details/733143326708.shtml)
+- 2026-06-29 13:00 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/83901041.shtml)
+- 2026-06-29 12:52 - [送你一朵小红花](http://www.blog.minike.top/Article/details/274187769343.shtml)
+- 2026-06-29 12:53 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/4688612.shtml)
+- 2026-06-29 13:10 - [金刚川](https://www.blog.kurohicncr.top/Article/details/716171.shtml)
+- 2026-06-29 13:07 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/390636072.shtml)
+- 2026-06-29 13:19 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/90161181.shtml)
+- 2026-06-29 13:09 - [毕业寄几百斤快递回家女生发声](https://www.share.kurohicncr.top/Article/details/28162743894.shtml)
+- 2026-06-29 13:11 - [为什么欧洲人不装空调](https://www.share.kurohicncr.top/Article/details/7314161914.shtml)
+- 2026-06-29 13:17 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/906047160.shtml)
+- 2026-06-29 13:13 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/24706375296.shtml)
+- 2026-06-29 13:13 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/1176099599.shtml)
+- 2026-06-29 13:11 - [金刚川](http://www.blog.minike.top/Article/details/278491.shtml)
+- 2026-06-29 12:59 - [委内瑞拉地震死亡人数升至1450人](https://www.share.minike.top/Article/details/362765135173.shtml)
+- 2026-06-29 13:14 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/661957.shtml)
+- 2026-06-29 13:09 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/4632591260.shtml)

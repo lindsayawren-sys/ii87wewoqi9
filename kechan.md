@@ -1,58 +1,58 @@
-# 重庆枢纽港产业园（江津片区）两周年：开放能级跃升
+# 600架波音订单正在路上？
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-中新网重庆5月9日电 (张旭)5月9日，重庆枢纽港产业园(江津片区)两周年建设成果发布会在当地举行。重庆市江津区有关负责人表示，启动建设两年来，园区实现从“交通节点”到“产业高地”再到“开放前沿”的跃升。 “过去江海联运，我们的铝型材要先沿长江运到沿海港口，再装船出口，光国内转运就要一周。现在通过铁海联运，3天就能对接国际航线，物流综合成本下降30%。”江津某铝加工企业物流负责
+来源：民航观察 据民航观察观察，《南华早报》记者弗兰克陈发文称，特朗普再次访华将为波音带来新订单，中国潜在采购规模或达500架波音737 MAX窄体客机，外加约100架宽体机，机型以787梦想客机为主，或包含部分777X机型。按目录标价计算，交易总额或将突破500亿美元；实际成交会有大幅折扣，真实采购金额将明显低于标价。 这与此前彭博社的报道一致：中国将购买600架波音飞机 据
 
 ## 正文
 
-中新网重庆5月9日电 (张旭)5月9日，重庆枢纽港产业园(江津片区)两周年建设成果发布会在当地举行。
+来源：民航观察 据民航观察观察，《南华早报》记者弗兰克陈发文称，特朗普再次访华将为波音带来新订单，中国潜在采购规模或达500架波音737 MAX窄体客机，外加约100架宽体机，机型以787梦想客机为主，或包含部分777X机型。
 
-重庆市江津区有关负责人表示，启动建设两年来，园区实现从“交通节点”到“产业高地”再到“开放前沿”的跃升。
+按目录标价计算，交易总额或将突破500亿美元；实际成交会有大幅折扣，真实采购金额将明显低于标价。
 
-“过去江海联运，我们的铝型材要先沿长江运到沿海港口，再装船出口，光国内转运就要一周。
+这与此前彭博社的报道一致：中国将购买600架波音飞机 据称，这将是中国自2017年以来首次大规模采购波音客机。
 
-现在通过铁海联运，3天就能对接国际航线，物流综合成本下降30%。
+当年特朗普首次访华，双方敲定价值370亿美元、采购300架飞机的重磅协议。
 
-”江津某铝加工企业物流负责人说，西部陆海新通道江津班列助其实现了降本增效。
+但此后随着贸易摩擦升级、关税战打响、监管审批受阻，该订单大量交付延期，部分订单直接取消。
 
-这种降本增效，源于重庆枢纽港产业园(江津片区)不断提速完善“水公铁”多式联运集疏运体系。
+业内分析人士认为，若本次再度签约，协议条款会更灵活，政治博弈色彩也会淡化。
 
-据介绍，重庆枢纽港产业园(江津片区)已基本形成“四向”通道网络——向东，依托长江黄金水道，无缝衔接航运班轮；向西，凭靠中欧班列，辐射共建“一带一路”国家；向北，通过渝满俄班列抵达俄罗斯及周边国家；向南，借助西部陆海新通道，覆盖东南亚。
+一位不愿具名的北京航空业分析师表示：“这一次，双方达成合作的意愿都更强。
 
-摩托车、汽车、农机……两年来，重庆枢纽港产业园(江津片区)在见证各类硬核产品出海的同时，也逐渐形成相应产业的集聚。
+中国航司需要更新老旧机队；波音急需新订单稳住生产线、提振资本市场信心；而特朗普也需要借访华拿出实实在在的经贸成果。
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 13:01 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:57 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:58 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:54 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:12 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:12 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 13:01 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:10 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:08 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:50 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 13:02 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:51 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 13:07 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
+- 2026-06-29 13:15 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:50 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 13:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:00 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 13:11 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
+- 2026-06-29 13:15 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 13:06 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-29 12:53 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 12:54 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-29 13:15 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.blog.minike.top/Article/details/527819703437.shtml)
-- 2026-06-29 13:12 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.blog.minike.top/Article/details/4589998919.shtml)
-- 2026-06-29 12:58 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.blog.kurohicncr.top/Article/details/45309.shtml)
-- 2026-06-29 12:48 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.share.kurohicncr.top/Article/details/1338682.shtml)
-- 2026-06-29 12:56 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.blog.kurohicncr.top/Article/details/97353943117.shtml)
-- 2026-06-29 13:15 - [面向全球征集 空天信息领域十大前沿问题正式发布](http://www.blog.kurohicncr.top/Article/details/89736.shtml)
-- 2026-06-29 12:53 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.share.minike.top/Article/details/05268.shtml)
-- 2026-06-29 12:48 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](http://www.blog.minike.top/Article/details/50873931.shtml)
-- 2026-06-29 12:57 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.kurohicncr.top/Article/details/15155773.shtml)
-- 2026-06-29 13:02 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](http://www.blog.kurohicncr.top/Article/details/63925.shtml)
-- 2026-06-29 13:10 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](http://www.share.kurohicncr.top/Article/details/3191985223.shtml)
-- 2026-06-29 13:06 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/82694.shtml)
+- 2026-06-29 12:49 - [请回答王牌2019](https://www.blog.minike.top/Article/details/77881392.shtml)
+- 2026-06-29 12:58 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/2665427241.shtml)
+- 2026-06-29 12:55 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.share.minike.top/Article/details/83156.shtml)
+- 2026-06-29 13:01 - [我们注定是一撮县城葱姜蒜](https://www.blog.minike.top/Article/details/472486388.shtml)
+- 2026-06-29 13:03 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/386123521.shtml)
+- 2026-06-29 12:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/5637435035.shtml)
+- 2026-06-29 13:01 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/1157658997.shtml)
+- 2026-06-29 13:15 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/6613316.shtml)
+- 2026-06-29 13:14 - [T1对战KC](http://www.blog.kurohicncr.top/Article/details/29955385218.shtml)
+- 2026-06-29 13:14 - [逃狱兄弟](http://www.blog.minike.top/Article/details/52216723944.shtml)
+- 2026-06-29 13:05 - [虞书欣灿如繁星明天定档](http://www.blog.minike.top/Article/details/868884864.shtml)
+- 2026-06-29 12:50 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/521974673370.shtml)
+- 2026-06-29 13:04 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/3204949.shtml)
+- 2026-06-29 13:19 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/97958594.shtml)

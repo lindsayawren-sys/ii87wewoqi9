@@ -1,56 +1,61 @@
-# 四川探路跨境电商 巴蜀生活美学走向海外
+# 欧盟警告航空公司：因油价上涨取消航班必须赔偿乘客
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中新社成都5月8日电 (单鹏)正在成都举行的第五届西部跨境电商博览会上，四川南充六合集团展位前，几款丝巾与丝绸面料错落摆放，销售经理姜腾与渠道商一边看样品一边热烈交流。 本次展会吸引了300余家源头工厂、10余家国际头部平台以及40余家生态服务企业参加。跨境电商赋能传统川货出海，成为本次博览会的一大特色。宜宾、泸州的白酒醇香萦绕，自贡彩灯精巧夺目，竹制品、川茶等地域产品尽显巴蜀
+欧盟交通运输专员阿波斯托洛斯·齐齐科斯塔斯（Apostolos Tzitzikostas）近日向航空公司发出明确警告：因燃油价格上涨而取消航班，必须对乘客进行赔偿。 由于中东冲突推高航空燃油价格，此前已有数家航空公司在过去两周内削减了5月航班计划中的200万个座位。 齐齐科斯塔斯在一次采访中指出，燃油价格上涨属于“航空业的正常经营成本”，不构成可以免除赔偿责任的“特殊情况”。他
 
 ## 正文
 
-中新社成都5月8日电 (单鹏)正在成都举行的第五届西部跨境电商博览会上，四川南充六合集团展位前，几款丝巾与丝绸面料错落摆放，销售经理姜腾与渠道商一边看样品一边热烈交流。
+欧盟交通运输专员阿波斯托洛斯·齐齐科斯塔斯（Apostolos Tzitzikostas）近日向航空公司发出明确警告：因燃油价格上涨而取消航班，必须对乘客进行赔偿。
 
-本次展会吸引了300余家源头工厂、10余家国际头部平台以及40余家生态服务企业参加。
+由于中东冲突推高航空燃油价格，此前已有数家航空公司在过去两周内削减了5月航班计划中的200万个座位。
 
-跨境电商赋能传统川货出海，成为本次博览会的一大特色。
+齐齐科斯塔斯在一次采访中指出，燃油价格上涨属于“航空业的正常经营成本”，不构成可以免除赔偿责任的“特殊情况”。
 
-宜宾、泸州的白酒醇香萦绕，自贡彩灯精巧夺目，竹制品、川茶等地域产品尽显巴蜀生活美学底蕴，当地传统生活方式正在获得日益广阔的出海空间。
+他强调，如果航空公司取消那些“财务上不再划算”的航班，就必须依法对旅客进行补偿。
 
-南充丝绸织造历史悠久，自古便是四川极具代表性的生活方式符号。
+尽管国际能源署和欧盟能源专员对欧洲航空燃油供应发出警告，称库存仅够维持六周，但齐齐科斯塔斯表示，欧洲“能够长期维持航空燃油供应”。
 
-南充六合集团的前身可追溯至1912年由实业家盛克勤创办的六合丝厂。
+他还呼吁各方避免使用制造恐慌的言辞，称“旅游季即将到来，我们需要谨慎用语”。
 
-姜腾表示，企业去年生产的丝巾赴瑞士展示，大受海外消费者欢迎；此次博览会上，他们首次尝试与跨境电商企业对接，希望将东方丝绸工艺推向更广阔的海外市场。
+与此同时，欧盟委员会将于本周发布新的指导方针，重申现有规则而非作出新让步。
 
-眉山泡菜是巴蜀饮食文化走向国际市场的重要代表。
+文件草案明确指出：“管理高燃油成本风险是航空公司业务的正常组成部分。
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 13:09 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:04 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:12 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:55 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:53 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 13:16 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 13:05 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:14 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:57 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:50 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 13:08 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
+- 2026-06-29 12:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 13:15 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 13:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-29 13:03 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-29 13:13 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 12:55 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:56 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 13:14 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-29 13:18 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
+- 2026-06-29 13:18 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 13:07 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 12:51 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 12:51 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.blog.kurohicncr.top/Article/details/6652514.shtml)
-- 2026-06-29 13:09 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.share.minike.top/Article/details/5254483.shtml)
-- 2026-06-29 13:04 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.share.minike.top/Article/details/414190220034.shtml)
-- 2026-06-29 13:00 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.share.kurohicncr.top/Article/details/390030.shtml)
-- 2026-06-29 13:06 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.blog.kurohicncr.top/Article/details/818789122.shtml)
-- 2026-06-29 12:48 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.blog.minike.top/Article/details/1563330488.shtml)
-- 2026-06-29 13:16 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.share.kurohicncr.top/Article/details/88453.shtml)
-- 2026-06-29 13:06 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.kurohicncr.top/Article/details/363922462.shtml)
-- 2026-06-29 13:06 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](http://www.blog.kurohicncr.top/Article/details/4053241.shtml)
-- 2026-06-29 13:17 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.share.kurohicncr.top/Article/details/62535490.shtml)
-- 2026-06-29 12:48 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.share.kurohicncr.top/Article/details/37399.shtml)
-- 2026-06-29 13:10 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.blog.minike.top/Article/details/82205994.shtml)
-- 2026-06-29 13:03 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.kurohicncr.top/Article/details/63210773.shtml)
-- 2026-06-29 12:53 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.blog.kurohicncr.top/Article/details/84917370.shtml)
+- 2026-06-29 13:16 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/21058.shtml)
+- 2026-06-29 13:14 - [韩媒称韩国队遭中国网民嘲讽](https://www.share.kurohicncr.top/Article/details/32219687.shtml)
+- 2026-06-29 12:56 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.blog.kurohicncr.top/Article/details/185334.shtml)
+- 2026-06-29 13:07 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/46517841.shtml)
+- 2026-06-29 13:04 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/19139.shtml)
+- 2026-06-29 13:15 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/373005453.shtml)
+- 2026-06-29 13:14 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/031815501.shtml)
+- 2026-06-29 13:07 - [时光音乐会](https://www.share.minike.top/Article/details/935036.shtml)
+- 2026-06-29 13:18 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/03681868401.shtml)
+- 2026-06-29 13:18 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/1194437.shtml)
+- 2026-06-29 12:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/311162386.shtml)
+- 2026-06-29 13:08 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/75127.shtml)
+- 2026-06-29 13:00 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/131752561.shtml)
+- 2026-06-29 13:08 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/058527929.shtml)
+- 2026-06-29 12:56 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/78629.shtml)

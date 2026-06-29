@@ -1,50 +1,58 @@
-# 海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元
+# 515投资者保护|鹏华国民教育高质量投教课程：8位基本面投资专家组成讲师团队 精心设计了八大核心专题
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-香港联交所最新资料显示，5月8日，执行董事朱义文增持海吉亚医疗（06078）51.9万股，每股作价11.89港元，总金额约为617.09万港元。增持后最新持股数目约为2.87亿股，最新持股比例为46.41%。责任编辑：卢昱君
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。鹏华国民教育高质量投教课程参选“最佳投资者教育优秀创新案例奖”类别。>>活动详情 据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于
 
 ## 正文
 
-香港联交所最新资料显示，5月8日，执行董事朱义文增持海吉亚医疗（06078）51.9万股，每股作价11.89港元，总金额约为617.09万港元。
+专题：515投资者保护！
 
-增持后最新持股数目约为2.87亿股，最新持股比例为46.41%。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-责任编辑：卢昱君
+鹏华国民教育高质量投教课程参选“最佳投资者教育优秀创新案例奖”类别。
+
+>>活动详情 据悉，鹏华基金积极响应监管层“推动投资者教育纳入国民教育体系向更宽领域、更深层次延伸”号召，践行中国证券投资基金业协会发起的“一司一省一高校”投资者教育工作，一直致力于为广大高校学子搭建触达行业前沿理论与实务的学习交流平台，在课程打造方面结合高校需求，以“成体系，有深度”为原则，精准施教，于2025年秋季携手上海证券报、上海财经大学成功举办第五期《基金实战专题》国民教育高质量投教课程，为来自近10所高校的100余位硕士研究生带来了一场体系完备、内容精深的金融实务课。
+
+该课程延续“成体系、有深度”的核心原则，特邀鹏华基金8位基本面投资专家组成讲师团队，围绕“创新科技、创新消费、创新国粹”三大主题，精心设计了八大核心专题。
+
+讲师们凭借扎实的理论功底与丰富的实战经验，将前沿投资理论与市场实践深度融合，助力学子构建从认知到实战的完整知识框架。
+
+课程内容紧密契合国家产业发展趋势，覆盖科技、消费、医药、半导体、化工、AI等重点领域，课程层层递进、脉络清晰，赢得学子广泛好评。
+
+第五期课程在传承既往高品质的基础上，进一步优化内容呈现方式，通过专业课件、案例拆解与互动答疑等多种形式，将复杂金融知识转化为生动易懂的教学内容，有效提升了学习体验。
 
 ## 相关推荐
 
-- 2026-06-29 13:12 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:12 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:55 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 13:10 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:06 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 13:03 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 13:09 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:00 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:51 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 13:08 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:57 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:57 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 13:15 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:08 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:10 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 13:05 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 13:16 - [埃博拉为何再次袭击非洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbav.md)
+- 2026-06-29 13:18 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
+- 2026-06-29 12:50 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:04 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 13:10 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
+- 2026-06-29 13:15 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 13:19 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-29 13:02 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-29 13:02 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
+- 2026-06-29 13:18 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [重庆最大液化天然气单一燃料江海直达散货船首航](http://www.blog.kurohicncr.top/Article/details/67639.shtml)
-- 2026-06-29 12:56 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.kurohicncr.top/Article/details/47376051128.shtml)
-- 2026-06-29 13:11 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.kurohicncr.top/Article/details/448737469.shtml)
-- 2026-06-29 13:00 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.share.minike.top/Article/details/61233246.shtml)
-- 2026-06-29 12:48 - [高开低走，油脂后市何去何从？](http://www.share.kurohicncr.top/Article/details/169741.shtml)
-- 2026-06-29 13:11 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](http://www.share.minike.top/Article/details/56145.shtml)
-- 2026-06-29 13:06 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [享界S9零重力座椅事件，给车企和用户都提了个醒](http://www.blog.minike.top/Article/details/60999482937.shtml)
-- 2026-06-29 12:49 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](http://www.share.minike.top/Article/details/522601190585.shtml)
-- 2026-06-29 13:07 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.blog.kurohicncr.top/Article/details/1773601.shtml)
-- 2026-06-29 12:51 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.share.kurohicncr.top/Article/details/007403558.shtml)
+- 2026-06-29 13:19 - [第一炉香](https://www.share.kurohicncr.top/Article/details/37781926204.shtml)
+- 2026-06-29 12:51 - [欧洲极端高温东扩](https://www.blog.kurohicncr.top/Article/details/95841746912.shtml)
+- 2026-06-29 13:07 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/977217504591.shtml)
+- 2026-06-29 12:57 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/76995141.shtml)
+- 2026-06-29 12:52 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/2530270.shtml)
+- 2026-06-29 13:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/87261124.shtml)
+- 2026-06-29 12:50 - [欧洲人买空调难点在哪](http://www.blog.minike.top/Article/details/567880.shtml)
+- 2026-06-29 12:57 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/5757806.shtml)
+- 2026-06-29 13:11 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.share.kurohicncr.top/Article/details/7267047226.shtml)
+- 2026-06-29 13:18 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/1443100.shtml)
+- 2026-06-29 13:11 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/313318990091.shtml)
+- 2026-06-29 12:52 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/15237.shtml)
+- 2026-06-29 13:14 - [游戏数据竟被用于军事目的](https://www.share.kurohicncr.top/Article/details/529402003853.shtml)
+- 2026-06-29 13:15 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/7833552.shtml)
+- 2026-06-29 12:56 - [天津打雷](https://www.blog.kurohicncr.top/Article/details/147795053727.shtml)

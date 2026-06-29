@@ -1,56 +1,59 @@
-# 人工智能科技伦理审查与服务先导计划启动
+# 一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-人工智能科技伦理审查与服务先导计划启动 《人民日报》（2026年05月10日 第 02 版） 据新华社北京5月9日电 （记者周圆）工业和信息化部日前印发通知，正式启动人工智能科技伦理审查与服务先导计划，将依托国家人工智能产业创新应用先导区所在省份，率先探索人工智能科技伦理审查与服务的落地路径。 当前，算法歧视、情感依赖等科技伦理风险日益凸显，亟须建立人工智能科技伦理审查与服务机
+文 | 《硅谷观察》郑峻 新CEO上任先挥刀裁员，第一刀却砍向了昔日下金蛋的“老母鸡”——漫威。 其实，漫威的衰落不是一夜之间发生的。 最典型的就是盲目增产，杀鸡取卵。漫威曾一年推出四部院线电影加四部流媒体剧集，平均每隔几周就有新内容上线。这是一场灾难性的决策。剧集与电影之间相互缠绕的剧情要求观众强制完成所谓的作业，否则就会在下一部院线电影中迷失，这种强制性的观看负担直接导致了
 
 ## 正文
 
-人工智能科技伦理审查与服务先导计划启动 《人民日报》（2026年05月10日 第 02 版） 据新华社北京5月9日电 （记者周圆）工业和信息化部日前印发通知，正式启动人工智能科技伦理审查与服务先导计划，将依托国家人工智能产业创新应用先导区所在省份，率先探索人工智能科技伦理审查与服务的落地路径。
+文 | 《硅谷观察》郑峻 新CEO上任先挥刀裁员，第一刀却砍向了昔日下金蛋的“老母鸡”——漫威。
 
-当前，算法歧视、情感依赖等科技伦理风险日益凸显，亟须建立人工智能科技伦理审查与服务机制。
+其实，漫威的衰落不是一夜之间发生的。
 
-此前，工业和信息化部等10部门联合印发《人工智能科技伦理审查与服务办法（试行）》，先导计划旨在推动办法在部分城市率先落地。
+最典型的就是盲目增产，杀鸡取卵。
 
-重点任务方面，通知提出将细化省级人工智能科技伦理审查制度规范，指导建设人工智能科技伦理委员会，探索建设人工智能科技伦理审查与服务中心，开展人工智能科技伦理审查实践，将审查实践经验转化为技术标准，健全审查情况通报机制等。
+漫威曾一年推出四部院线电影加四部流媒体剧集，平均每隔几周就有新内容上线。
 
-通知明确，将设立全国人工智能科技伦理风险监测服务网络，编制相关培训教材，常态化开设“伦理课堂”，开展伦理风险监测预警，为先导计划城市提供智力支撑服务。
+这是一场灾难性的决策。
 
-责任编辑：石秀珍 SF183
+剧集与电影之间相互缠绕的剧情要求观众强制完成所谓的作业，否则就会在下一部院线电影中迷失，这种强制性的观看负担直接导致了大批普通观众的流失。
+
+当然，这只是多重危机中的一环。
+
+在短短几年时间，漫威影业是怎么从迪士尼的明星摇钱树变成现在最令人失望的部门？
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 13:12 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:58 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:49 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:50 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:53 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 13:05 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 13:16 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:05 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 13:09 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:58 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:13 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 13:16 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 13:14 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:04 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 12:50 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-29 13:04 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 12:57 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 12:55 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 13:10 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 12:55 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-29 13:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 13:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
+- 2026-06-29 13:07 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 12:53 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-29 13:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
+- 2026-06-29 13:08 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:13 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.share.minike.top/Article/details/115928458.shtml)
-- 2026-06-29 13:03 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.blog.minike.top/Article/details/92169.shtml)
-- 2026-06-29 13:14 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.minike.top/Article/details/0226478.shtml)
-- 2026-06-29 13:07 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.blog.minike.top/Article/details/7077732995.shtml)
-- 2026-06-29 13:10 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.share.minike.top/Article/details/16181549990.shtml)
-- 2026-06-29 12:55 - [第48届东盟峰会在菲律宾举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.blog.minike.top/Article/details/403064318.shtml)
-- 2026-06-29 12:49 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.share.kurohicncr.top/Article/details/7590925596.shtml)
-- 2026-06-29 13:17 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.share.minike.top/Article/details/136853.shtml)
-- 2026-06-29 13:14 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.share.minike.top/Article/details/54624.shtml)
-- 2026-06-29 13:09 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.share.minike.top/Article/details/4712186.shtml)
-- 2026-06-29 13:16 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.blog.kurohicncr.top/Article/details/629303118961.shtml)
-- 2026-06-29 13:08 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:19 - [男子撸铁后擦汗 脸部感染“脚气”](http://www.blog.minike.top/Article/details/3551693696.shtml)
+- 2026-06-29 13:08 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/67881.shtml)
+- 2026-06-29 12:52 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/976254.shtml)
+- 2026-06-29 12:53 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/712542270.shtml)
+- 2026-06-29 13:14 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/1939728504.shtml)
+- 2026-06-29 13:07 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/99556.shtml)
+- 2026-06-29 12:57 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/8671091.shtml)
+- 2026-06-29 13:16 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/168292.shtml)
+- 2026-06-29 13:13 - [医护人员观影《四渡》传承长征精神](http://www.share.minike.top/Article/details/289299.shtml)
+- 2026-06-29 13:02 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/9775680928.shtml)
+- 2026-06-29 12:52 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/59862310.shtml)
+- 2026-06-29 13:14 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/518894007080.shtml)
+- 2026-06-29 12:59 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/8205745247.shtml)
+- 2026-06-29 13:12 - [6月我国降水为何偏多](http://www.blog.minike.top/Article/details/46053509.shtml)
+- 2026-06-29 12:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/3306524847.shtml)

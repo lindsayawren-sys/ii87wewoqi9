@@ -1,50 +1,57 @@
-# 专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”
+# 8.6万亿企业贷款背后，银行对公业务正在彻底变天
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 14:21 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习，5月4日，美日菲演练两栖“夺岛”，5月6日，日本在演习中发射了88式岸基反舰导弹，引发外界对日本军事动向关注。日本为何要深度参与此次军演？相关专家对此进行了解读。(记者 卢晓娜 刘世炯） 责任编辑：【罗攀】
+来源：贸易金融 4月中下旬，央行一季度金融统计及贷款投向数据发布，银行业对公业务的竞争轮廓愈发清晰。数据显示，2026年一季度金融机构人民币贷款增加8.53万亿元；分部门看，住户贷款增加2967亿元，企事业单位贷款增加8.60万亿元，其中短期贷款增加4.13万亿元，中长期贷款增加5.42万亿元，票据融资减少0.95万亿元。由于非银行业金融机构贷款减少3680亿元，分部门数据与总
 
 ## 正文
 
-发布时间：2026年05月08日 14:21 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习，5月4日，美日菲演练两栖“夺岛”，5月6日，日本在演习中发射了88式岸基反舰导弹，引发外界对日本军事动向关注。
+来源：贸易金融 4月中下旬，央行一季度金融统计及贷款投向数据发布，银行业对公业务的竞争轮廓愈发清晰。
 
-日本为何要深度参与此次军演？
+数据显示，2026年一季度金融机构人民币贷款增加8.53万亿元；分部门看，住户贷款增加2967亿元，企事业单位贷款增加8.60万亿元，其中短期贷款增加4.13万亿元，中长期贷款增加5.42万亿元，票据融资减少0.95万亿元。
 
-相关专家对此进行了解读。
+由于非银行业金融机构贷款减少3680亿元，分部门数据与总量之间存在抵消关系，更准确的表述是：企业端构成新增信贷的主要支撑，而非“全部新增贷款来自企业”。
 
-(记者 卢晓娜 刘世炯） 责任编辑：【罗攀】
+这构成了2026年银行业对公竞争升温的现实基础。
+
+但企业贷款高增，并不意味着银行重回轻松扩表周期。
+
+对企业而言，融资成本低位运行有助于降低财务负担；对银行而言，贷款定价承压、净息差低位运行，意味着规模扩张未必同步转化为利润增长。
+
+对公业务不是旧周期回归，而是低利率环境下的存量重构。
+
+企业贷款挑大梁，对公竞争进入存量化阶段 从贷款投向看，企业部门仍是银行稳住资产扩张的重要抓手。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:11 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:51 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 13:13 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 13:01 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:48 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:59 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:08 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:12 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:00 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 13:10 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:48 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:54 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
+- 2026-06-29 12:54 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
+- 2026-06-29 13:08 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 13:07 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
+- 2026-06-29 13:07 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 13:07 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-29 13:15 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 13:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-29 13:14 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](http://www.blog.kurohicncr.top/Article/details/94504859.shtml)
-- 2026-06-29 12:58 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.share.minike.top/Article/details/42575985.shtml)
-- 2026-06-29 13:05 - [AI时代，全球教育正面临三层重塑](http://www.share.kurohicncr.top/Article/details/428234784.shtml)
-- 2026-06-29 13:07 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.blog.minike.top/Article/details/639903.shtml)
-- 2026-06-29 13:00 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [北京曲剧《雷雨》观摩研讨会在京举办](http://www.blog.kurohicncr.top/Article/details/12696514847.shtml)
-- 2026-06-29 13:08 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.blog.minike.top/Article/details/196473180.shtml)
-- 2026-06-29 13:03 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.share.minike.top/Article/details/0687387.shtml)
-- 2026-06-29 13:07 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [坚持有腐必反、有贪必肃](http://www.blog.kurohicncr.top/Article/details/338098104529.shtml)
-- 2026-06-29 13:10 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [中欧班列开行突破13万列](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [A股再现国资“A吃A”！](http://www.blog.minike.top/Article/details/703310.shtml)
-- 2026-06-29 12:56 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.share.minike.top/Article/details/216992.shtml)
+- 2026-06-29 12:58 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/8702089136.shtml)
+- 2026-06-29 13:08 - [曝太阳黄蜂完成阵容互换+签位置换](https://www.share.minike.top/Article/details/185213811.shtml)
+- 2026-06-29 12:53 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/845003220.shtml)
+- 2026-06-29 13:18 - [向佑说向佐是一生依靠](http://www.blog.minike.top/Article/details/398225.shtml)
+- 2026-06-29 12:55 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/49052.shtml)
+- 2026-06-29 13:13 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/682239944032.shtml)
+- 2026-06-29 12:58 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/5566619.shtml)
+- 2026-06-29 12:57 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/659115.shtml)
+- 2026-06-29 12:59 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/436420.shtml)
+- 2026-06-29 13:10 - [我用3千多根木棍做了张分压点阵床](https://www.share.minike.top/Article/details/213437188446.shtml)
+- 2026-06-29 13:07 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/803800501.shtml)
+- 2026-06-29 12:54 - [F1奥地利大奖赛正赛集锦](http://www.blog.minike.top/Article/details/67451561060.shtml)
+- 2026-06-29 13:16 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/248942.shtml)
+- 2026-06-29 12:58 - [成都至北京将新增动卧](http://www.blog.minike.top/Article/details/486053.shtml)
+- 2026-06-29 13:09 - [流金岁月](https://www.share.minike.top/Article/details/276833.shtml)

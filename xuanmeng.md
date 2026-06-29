@@ -1,61 +1,60 @@
-# CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”
+# 中国算力平台算力超市中小企业专区上线 提供普惠算力服务
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-文/中新社 雨滴 “你们报道的是假新闻(You are fake news)。” 2017年1月，刚刚当选美国总统的特朗普当场拒绝CNN(美国有线电视新闻网)记者提问。这一幕后来成为特朗普时代最经典的政治画面之一。 此后数年，特朗普几乎把CNN当成自己的“头号媒体敌人”。他反复批评CNN“制造谎言”“操纵舆论”，甚至经常直接用“Fake News CNN(假新闻CNN)”来称呼
+中国算力平台算力超市中小企业专区上线 提供普惠算力服务 《人民日报》（2026年05月10日 第 02 版） 本报石家庄5月9日电 （记者邵玉姿）中国算力平台算力超市·中小企业专区9日上线，推行按“卡时”、“核时”及词元计费等多元化付费模式，支持中小企业通过跨区域、跨周期调度实现算力资源灵活取用。 专区围绕算力供需对接、行业场景赋能、政策补贴落地3个方向构建功能板块，为中小企业
 
 ## 正文
 
-文/中新社 雨滴 “你们报道的是假新闻(You are fake news)。
+中国算力平台算力超市中小企业专区上线 提供普惠算力服务 《人民日报》（2026年05月10日 第 02 版） 本报石家庄5月9日电 （记者邵玉姿）中国算力平台算力超市·中小企业专区9日上线，推行按“卡时”、“核时”及词元计费等多元化付费模式，支持中小企业通过跨区域、跨周期调度实现算力资源灵活取用。
 
-” 2017年1月，刚刚当选美国总统的特朗普当场拒绝CNN(美国有线电视新闻网)记者提问。
+专区围绕算力供需对接、行业场景赋能、政策补贴落地3个方向构建功能板块，为中小企业提供普惠算力服务。
 
-这一幕后来成为特朗普时代最经典的政治画面之一。
+其中，供需匹配板块，专区汇聚多元算力资源、先进模型能力与专业服务力量，通过“模创空间”“算力底座”等路径，实现算力资源一站式采购、模型开箱即用、训推环境快速部署。
 
-此后数年，特朗普几乎把CNN当成自己的“头号媒体敌人”。
+同时，专区建立大中小企业“1+N”结对帮扶机制，推动大型企业将闲置算力与专业技术经验精准赋能中小企业，形成以大带小、协同发展的良性生态。
 
-他反复批评CNN“制造谎言”“操纵舆论”，甚至经常直接用“Fake News CNN(假新闻CNN)”来称呼这家电视台。
+当日，2026普惠算力赋能中小企业发展大会在河北雄安新区举办。
 
-▲美国有线电视新闻网(CNN)创办人泰德·特纳(Ted Turner)。
+本次大会以“算力惠企 智启中小”为主题，由中国通信标准化协会主办、中国信息通信研究院承办。
 
-图源：CNN 但当地时间5月6日，在CNN创始人泰德·特纳去世后，特朗普却专门发文悼念这位媒体大亨。
+来自产业链上下游的企业代表围绕高性能存储、存算协同、算网融合、大模型算力等前沿议题展开交流，探索普惠算力赋能中小企业发展的创新路径与实践方案。
 
-特朗普称特纳是“广播行业最伟大的人之一”，同时又含沙射影：“新东家接手后毁了CNN……特纳倍受打击。
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:00 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:10 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:54 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 13:09 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:05 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:55 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:54 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:57 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:52 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:52 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 13:11 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:48 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:02 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 13:10 - [习言道｜父母是孩子的第一任老师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 13:18 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 13:01 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 13:18 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 13:13 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 13:14 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 12:56 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 12:59 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
+- 2026-06-29 12:50 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 12:52 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 12:51 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 13:09 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
+- 2026-06-29 13:07 - [男子撸铁后擦汗 脸部感染“脚气”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 13:13 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 13:16 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [任天堂将上调Switch 2价格 预计其销量将下滑](http://www.blog.kurohicncr.top/Article/details/470299881.shtml)
-- 2026-06-29 13:07 - [陕西宝鸡：江海之上造 “宝桥”](http://www.blog.kurohicncr.top/Article/details/374298545848.shtml)
-- 2026-06-29 12:50 - [以“无我”境界成“有我”之业](http://www.share.kurohicncr.top/Article/details/97636.shtml)
-- 2026-06-29 13:08 - [李强主持召开国务院常务会议](http://www.share.kurohicncr.top/Article/details/9760167780.shtml)
-- 2026-06-29 12:50 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.blog.kurohicncr.top/Article/details/445316.shtml)
-- 2026-06-29 12:53 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.blog.minike.top/Article/details/967967593934.shtml)
-- 2026-06-29 13:07 - [*ST天喻领正式被罚，已有案件递交立案](http://www.blog.minike.top/Article/details/3790320482.shtml)
-- 2026-06-29 13:13 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](http://www.blog.kurohicncr.top/Article/details/282015.shtml)
-- 2026-06-29 13:18 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.share.minike.top/Article/details/4542508432.shtml)
-- 2026-06-29 13:09 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](http://www.blog.kurohicncr.top/Article/details/476395295.shtml)
-- 2026-06-29 13:14 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.blog.minike.top/Article/details/30882591882.shtml)
-- 2026-06-29 13:08 - [培育消费新场景新业态 激发消费新动能](http://www.blog.minike.top/Article/details/36567162.shtml)
-- 2026-06-29 12:54 - [文莱王储比拉将访华](http://www.blog.kurohicncr.top/Article/details/045416.shtml)
-- 2026-06-29 12:52 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.share.minike.top/Article/details/163986791.shtml)
-- 2026-06-29 12:57 - [资金流向生变？一季度全球ETF规模狂飙，美国却逆势缩水超6500亿美元](http://www.share.minike.top/Article/details/216617114500.shtml)
+- 2026-06-29 13:09 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/001463175719.shtml)
+- 2026-06-29 13:11 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/68593193.shtml)
+- 2026-06-29 13:10 - [各路“神仙”扎堆洛阳乘地铁](http://www.share.minike.top/Article/details/769512.shtml)
+- 2026-06-29 13:00 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.kurohicncr.top/Article/details/365658343.shtml)
+- 2026-06-29 12:53 - [双高胎](http://www.share.minike.top/Article/details/25189.shtml)
+- 2026-06-29 12:51 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/23738.shtml)
+- 2026-06-29 13:14 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/567535939045.shtml)
+- 2026-06-29 13:10 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/28485774879.shtml)
+- 2026-06-29 13:16 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/06856135536.shtml)
+- 2026-06-29 13:08 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/0303438.shtml)
+- 2026-06-29 12:53 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.kurohicncr.top/Article/details/749888321.shtml)
+- 2026-06-29 13:10 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/54855969942.shtml)
+- 2026-06-29 12:58 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/59210.shtml)
+- 2026-06-29 13:07 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/6614571.shtml)
+- 2026-06-29 13:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/44273.shtml)

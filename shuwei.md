@@ -1,61 +1,60 @@
-# 财税专家：教育培训等行业应全额一次性申报纳税
+# 尼泊尔今春发放珠峰攀登许可破纪录
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 (记者 赵建华)近日，贵州、山东、重庆、宁夏、安徽五地税务部门集中曝光5起教育培训行业涉税违法案件，涉案企业通过不按规定申报、隐匿收入、私户收款等方式偷逃税款。教育培训、物业服务、美容美发、健身康养等行业普遍采用先收款再分期、分次提供服务的模式开展经营，这类预收款应该如何缴税？西南政法大学税务硕士教育中心副主任廖明月表示，按照今年起实施的《中华人民共和国增
+中新社加德满都5月9日电 (记者 崔楠)据尼泊尔旅游部门最新数据，截至5月8日，该国今春已发放492张珠峰攀登许可证，突破历史纪录。 此前，尼泊尔春季珠峰攀登许可发放最高纪录为2023年的478张。尼泊尔媒体援引旅游部门数据称，2024年和2025年春季，该国分别发放422张、468张珠峰攀登许可证。 今春获发许可的中国登山者目前已超过100人，人数居各国登山者之首。 本季是尼
 
 ## 正文
 
-中新网北京5月9日电 (记者 赵建华)近日，贵州、山东、重庆、宁夏、安徽五地税务部门集中曝光5起教育培训行业涉税违法案件，涉案企业通过不按规定申报、隐匿收入、私户收款等方式偷逃税款。
+中新社加德满都5月9日电 (记者 崔楠)据尼泊尔旅游部门最新数据，截至5月8日，该国今春已发放492张珠峰攀登许可证，突破历史纪录。
 
-教育培训、物业服务、美容美发、健身康养等行业普遍采用先收款再分期、分次提供服务的模式开展经营，这类预收款应该如何缴税？
+此前，尼泊尔春季珠峰攀登许可发放最高纪录为2023年的478张。
 
-西南政法大学税务硕士教育中心副主任廖明月表示，按照今年起实施的《中华人民共和国增值税法》及其实施条例相关规定，应全额一次性申报纳税。
+尼泊尔媒体援引旅游部门数据称，2024年和2025年春季，该国分别发放422张、468张珠峰攀登许可证。
 
-“2026年起，随着增值税法实施，预付式消费市场将得到有效规范。
+今春获发许可的中国登山者目前已超过100人，人数居各国登山者之首。
 
-”廖明月介绍，增值税法第二十八条规定，发生应税交易，纳税义务发生时间为收讫销售款项或者取得销售款项索取凭据的当日；先开具发票的，为开具发票的当日。
+本季是尼泊尔上调珠峰攀登许可费后的首个春季登山季。
 
-财政部、国家税务总局又制发配套制度《关于增值税进项税额抵扣等有关事项的公告》，进一步细化明确，自2026年1月1日起，纳税人销售服务，先收取价款再分期或者分次提供服务的，以首次提供服务的实际开始当日和合同约定的当日，按照孰先原则确定纳税义务发生时间，纳税人应当就收到的全部价款申报缴纳增值税。
+自2025年9月1日起，经南坡攀登珠峰的外国登山者春季许可费由1.1万美元上调至1.5万美元；尼泊尔籍登山者春季许可费由7.5万尼泊尔卢比(约合500美元)升至15万尼泊尔卢比(约合990美元)。
 
-“增值税法及相关配套公告界定了先收取款项再分期分次提供服务的纳税义务时间，以及应当全额确认销售额，这相当于对企业资金流进行了更有效监管，防范偷税漏税风险。
+尽管许可费上涨，本季珠峰攀登热度不减，且不降反增。
 
-”廖明月表示，同时新规定还让企业税务合规有章可循、有据可依，将有效稳定企业政策预期，引导企业主动合规，能在一定程度上遏制企业“卷款跑路”的行为，还能间接保障消费者权益，进一步规范相关行业秩序。
+截至5月8日，尼泊尔政府珠峰攀登许可收入已近720万美元。
 
 ## 相关推荐
 
-- 2026-06-29 12:52 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 13:12 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:09 - [加州新计划：新生儿家庭将获数百片免费尿布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:56 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:49 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 13:05 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:17 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:00 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:03 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:56 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 13:00 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 13:15 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:53 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:11 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:58 - [第48届东盟峰会在菲律宾举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:55 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 12:57 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 13:06 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
+- 2026-06-29 13:15 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-29 12:52 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 13:18 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 13:14 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 12:50 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 12:54 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 13:02 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-29 13:05 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 13:09 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 13:05 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [习言道｜父母是孩子的第一任老师](http://www.blog.kurohicncr.top/Article/details/2482326217.shtml)
-- 2026-06-29 12:54 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.share.minike.top/Article/details/746860379.shtml)
-- 2026-06-29 12:50 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](http://www.blog.kurohicncr.top/Article/details/356224183.shtml)
-- 2026-06-29 13:11 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.share.minike.top/Article/details/656855977182.shtml)
-- 2026-06-29 13:03 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.share.kurohicncr.top/Article/details/13976.shtml)
-- 2026-06-29 13:00 - [Stifel在近期抛售后上调Shake Shack评级](http://www.share.kurohicncr.top/Article/details/4215193507.shtml)
-- 2026-06-29 13:15 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.blog.minike.top/Article/details/90689.shtml)
-- 2026-06-29 12:59 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.blog.minike.top/Article/details/03394310.shtml)
-- 2026-06-29 13:08 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.blog.kurohicncr.top/Article/details/216696.shtml)
-- 2026-06-29 13:01 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.blog.minike.top/Article/details/898155177502.shtml)
-- 2026-06-29 13:16 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](http://www.blog.kurohicncr.top/Article/details/1043137.shtml)
-- 2026-06-29 13:07 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.blog.kurohicncr.top/Article/details/515192.shtml)
-- 2026-06-29 13:00 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.share.minike.top/Article/details/039757840606.shtml)
-- 2026-06-29 13:05 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/8302079891.shtml)
+- 2026-06-29 13:13 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/262695285.shtml)
+- 2026-06-29 12:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/297722788233.shtml)
+- 2026-06-29 13:02 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/056228080727.shtml)
+- 2026-06-29 12:54 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/433881307546.shtml)
+- 2026-06-29 12:54 - [委内瑞拉地震已致1450死3150伤](http://www.blog.minike.top/Article/details/962034.shtml)
+- 2026-06-29 12:58 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/669760.shtml)
+- 2026-06-29 13:10 - [美的空调 卡bug](https://www.share.minike.top/Article/details/345573.shtml)
+- 2026-06-29 13:18 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/564765218821.shtml)
+- 2026-06-29 13:14 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/481722123601.shtml)
+- 2026-06-29 12:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/4897607371.shtml)
+- 2026-06-29 13:12 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/55043340845.shtml)
+- 2026-06-29 13:16 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/7026454622.shtml)
+- 2026-06-29 12:50 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/000968.shtml)
+- 2026-06-29 13:01 - [李连杰回应网传不管前妻俩女儿](http://www.share.kurohicncr.top/Article/details/9320211.shtml)

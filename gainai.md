@@ -1,56 +1,60 @@
-# 需求支撑蛋价持续走高，5月下半月需警惕风险
+# 非农之夜！黄金多头热情能持续多久？
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-卓创资讯鸡蛋市场分析师王金玉 【导语】受需求端支撑，4月份鸡蛋价格重心上移，环比涨幅16.19%。5月份需求或先增加后减少，需求端将主导蛋价走势，预计5月份鸡蛋价格或先涨后降，下半月需警惕蛋价回落风险。 需求支撑，4月鸡蛋价格重心上移 4月份主产区鸡蛋月均价3.66元/斤，环比涨幅16.19%，同比涨幅11.59%，鸡蛋价格重心上移。需求增加是支撑鸡蛋价格持续走高的核心因素。存
+撰文：嘉盛集团资深分析师Jerry Chen 美国和伊朗周四再次交火，令停火以及正在磋商中的和平协议蒙上阴影，不过特朗普表示停火依然有效。考虑到伊朗外长本周以及特朗普下周的访华行程，双方仍有较大可能于近期签署“停战谅解备忘录”，为未来的对话铺平道路。 国际油价周四小幅下跌，但周五早盘回升，布伦特原油重回100美元上方。数据显示美国原油库存上周减少231万桶，降幅低于预期。临时的
 
 ## 正文
 
-卓创资讯鸡蛋市场分析师王金玉 【导语】受需求端支撑，4月份鸡蛋价格重心上移，环比涨幅16.19%。
+撰文：嘉盛集团资深分析师Jerry Chen 美国和伊朗周四再次交火，令停火以及正在磋商中的和平协议蒙上阴影，不过特朗普表示停火依然有效。
 
-5月份需求或先增加后减少，需求端将主导蛋价走势，预计5月份鸡蛋价格或先涨后降，下半月需警惕蛋价回落风险。
+考虑到伊朗外长本周以及特朗普下周的访华行程，双方仍有较大可能于近期签署“停战谅解备忘录”，为未来的对话铺平道路。
 
-需求支撑，4月鸡蛋价格重心上移 4月份主产区鸡蛋月均价3.66元/斤，环比涨幅16.19%，同比涨幅11.59%，鸡蛋价格重心上移。
+国际油价周四小幅下跌，但周五早盘回升，布伦特原油重回100美元上方。
 
-需求增加是支撑鸡蛋价格持续走高的核心因素。
+数据显示美国原油库存上周减少231万桶，降幅低于预期。
 
-存栏微降、鸡蛋供应减少也助力了鸡蛋价格的上涨。
+临时的停火无法缓解全球原油供应风险，导致开战以来库存的回落趋势非常明显，这限制了油价的回调空间。
 
-需求增加，主导蛋价上涨。
+美伊局势的不确定性帮助美元指数隔夜反弹，黄金则小幅回落至4685美元附近。
 
-4月份受清明节、农历三月三及五一节前备货等因素影响，下游市场鸡蛋需求量增加，贸易商采购积极性提升。
+欧美股市隔夜普遍收低，科技股暂时停下了上涨的步伐，但美国稳健的经济基本面以及强劲的财报暗示逢低买入依然适用。
 
-据卓创资讯监测数据显示，4月主销区代表市场鸡蛋日均总销量992.58吨，环比增幅1.38%。
+美/日周四反弹至156.92。
 
 ## 相关推荐
 
-- 2026-06-29 13:00 - [朝“问”健康：父母健康 孩子就不会得“地贫”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:11 - [恒润股份（603985）、双良节能（600481）投资者索赔均再提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 13:00 - [冰雪为媒携手四十载 中加双城合作续新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:53 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 13:03 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:01 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:06 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:10 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:15 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:53 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 13:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 13:05 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-29 12:54 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsknm.md)
+- 2026-06-29 13:05 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 13:05 - [吴建豪老婆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 12:57 - [林诗栋晋级WTT美国大满贯男单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-29 13:03 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 13:09 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 13:05 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 13:13 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 13:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 13:06 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 13:12 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
+- 2026-06-29 13:00 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [“AI+影视”找准发展平衡点](http://www.blog.kurohicncr.top/Article/details/962819.shtml)
-- 2026-06-29 13:03 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](http://www.blog.minike.top/Article/details/3554793.shtml)
-- 2026-06-29 12:58 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](http://www.share.minike.top/Article/details/604117.shtml)
-- 2026-06-29 13:13 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](http://www.share.minike.top/Article/details/31918295.shtml)
-- 2026-06-29 13:10 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.share.minike.top/Article/details/0545431.shtml)
-- 2026-06-29 13:13 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.blog.minike.top/Article/details/509744.shtml)
-- 2026-06-29 13:15 - [2026湖南车展：大型新能源SUV为何受热捧](http://www.blog.kurohicncr.top/Article/details/12376458.shtml)
-- 2026-06-29 12:52 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.blog.minike.top/Article/details/645994227657.shtml)
-- 2026-06-29 13:09 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.kurohicncr.top/Article/details/5953121060.shtml)
-- 2026-06-29 13:10 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.blog.minike.top/Article/details/799091.shtml)
-- 2026-06-29 13:14 - [预防心梗，这些不良习惯需警惕](http://www.share.minike.top/Article/details/404749733.shtml)
-- 2026-06-29 13:06 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [妈妈，我想对你说](http://www.share.minike.top/Article/details/3524624871.shtml)
-- 2026-06-29 12:56 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.share.kurohicncr.top/Article/details/2902313.shtml)
+- 2026-06-29 13:17 - [加拿大92分钟绝杀](https://www.share.minike.top/Article/details/91022397.shtml)
+- 2026-06-29 12:49 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/1677744.shtml)
+- 2026-06-29 13:07 - [扬名立万](https://www.blog.minike.top/Article/details/5359007.shtml)
+- 2026-06-29 13:12 - [欧洲热死人不是开玩笑](http://www.blog.minike.top/Article/details/8981861969.shtml)
+- 2026-06-29 12:53 - [千与千寻](https://www.blog.minike.top/Article/details/686328.shtml)
+- 2026-06-29 12:56 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/55491678526.shtml)
+- 2026-06-29 13:00 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/597936761.shtml)
+- 2026-06-29 13:07 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/01569340.shtml)
+- 2026-06-29 13:06 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/307186083117.shtml)
+- 2026-06-29 12:53 - [中方将20家日本实体列入关注名单](http://www.share.minike.top/Article/details/532531495.shtml)
+- 2026-06-29 13:06 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/813698767.shtml)
+- 2026-06-29 13:01 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/5315910.shtml)
+- 2026-06-29 13:17 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/94910955169.shtml)
+- 2026-06-29 13:10 - [以前不让妆女二可以艳压女主](http://www.share.minike.top/Article/details/67931180506.shtml)
+- 2026-06-29 12:59 - [俄政府批准巩固俄语地位行动计划](http://www.blog.kurohicncr.top/Article/details/5814368.shtml)

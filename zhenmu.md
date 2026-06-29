@@ -1,59 +1,58 @@
-# 个人办事，不只“能办”还要“好办、易办”
+# 马伯庸携新作走进雄安 与读者共探秦末历史
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？各地又有哪些
+中新网雄安5月9日电 (谌诗雨 韩冰)5月9日，作家马伯庸《秦二世必须死》新书分享暨读者见面会在雄安图书馆举办。现场，马伯庸与雄安新区读者近距离交流，分享创作心路，解读秦末历史变局，为读者带来一场兼具文学深度与阅读趣味的文化活动。 马伯庸代表作有《长安的荔枝》《长安十二时辰》等，其作品以独特的历史视角、扎实的叙事功底深受读者喜爱。马伯庸表示，本次推出的《秦二世必须死》是其近年创
 
 ## 正文
 
-各地优化政务服务，推动新一批便民服务事项落地 个人办事，不只“能办”还要“好办、易办”(高效办成一件事) 编者按：今年1月，国务院办公厅印发《“高效办成一件事”2026年度第一批重点事项清单》，内容涵盖就业、置业、养老等群众关切的民生领域，推动政务服务从“能办”向“好办、易办”转变。
+中新网雄安5月9日电 (谌诗雨 韩冰)5月9日，作家马伯庸《秦二世必须死》新书分享暨读者见面会在雄安图书馆举办。
 
-又一份清单，又一批便民服务事项，此次“高效办成一件事”改革给群众生活带来哪些新变化？
+现场，马伯庸与雄安新区读者近距离交流，分享创作心路，解读秦末历史变局，为读者带来一场兼具文学深度与阅读趣味的文化活动。
 
-各地又有哪些改革机制、创新举措？
+马伯庸代表作有《长安的荔枝》《长安十二时辰》等，其作品以独特的历史视角、扎实的叙事功底深受读者喜爱。
 
-近期，本报记者探访内蒙古、山东、云南等地，看各地如何优化政务服务，推动落实“高效办成一件事”，不断增强群众获得感、幸福感。
+马伯庸表示，本次推出的《秦二世必须死》是其近年创作的长篇新作。
 
-老龄补贴申领—— 一张表单，实现一次申请、一网通办 “您好，请问老龄补贴申领在哪办理？
+在分享中，马伯庸谈及创作初衷，称荆轲刺秦题材已被多次演绎，因此另辟蹊径聚焦秦二世执政时期。
 
-”内蒙古自治区乌海市海勃湾区政务服务中心办事大厅内，61岁的居民刘桂兰向办事大厅工作人员询问。
+秦二世在位仅三年，却处于中国历史发展的关键转折节点，新作跳出传统刺杀叙事，以时代变局、人心变迁为核心，挖掘历史背后的人性逻辑，提升故事深度与张力。
 
-“阿姨，咱们现在直接在手机上就能办。
+互动环节，马伯庸现场真诚作答、妙语连珠。
 
-”办事大厅负责人李倩向刘桂兰耐心解释，并帮助她在手机上搜索“海区e家”微信小程序，找到“补贴申请”板块里的“老龄补贴”，再指导她输入姓名、身份证号和住址进行登录。
+谈及创作如何避免同质化，他表示，创作要立足自身经历，以独特视角切入，《长安的荔枝》便是以普通人视角拆解项目执行的生动实践，引发大众共鸣。
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:52 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 13:02 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:56 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:50 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:56 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:48 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:48 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 13:06 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:50 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:58 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:51 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 13:03 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:58 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-29 13:11 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:52 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 13:18 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 13:04 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 13:01 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 13:16 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 13:04 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-29 13:02 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 12:51 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-29 13:01 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 12:59 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.share.kurohicncr.top/Article/details/71092.shtml)
-- 2026-06-29 13:07 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.kurohicncr.top/Article/details/421376177899.shtml)
-- 2026-06-29 12:58 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.blog.minike.top/Article/details/85227493184.shtml)
-- 2026-06-29 12:49 - [光大证券，离头部券商越来越远](http://www.share.kurohicncr.top/Article/details/76810649324.shtml)
-- 2026-06-29 12:49 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.kurohicncr.top/Article/details/9023231570.shtml)
-- 2026-06-29 13:13 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.blog.kurohicncr.top/Article/details/6273698.shtml)
-- 2026-06-29 13:03 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.share.minike.top/Article/details/24642891.shtml)
-- 2026-06-29 13:13 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.blog.minike.top/Article/details/919292592.shtml)
-- 2026-06-29 12:52 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](http://www.blog.kurohicncr.top/Article/details/928153026.shtml)
-- 2026-06-29 13:12 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.share.minike.top/Article/details/186942.shtml)
-- 2026-06-29 13:14 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.blog.kurohicncr.top/Article/details/406019071819.shtml)
-- 2026-06-29 13:00 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.share.minike.top/Article/details/099417.shtml)
-- 2026-06-29 13:13 - [《智能体规范应用与创新发展实施意见》答记者问](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [高盛：美图公司维持“买入”评级 目标价14.30港元](http://www.share.kurohicncr.top/Article/details/2249800.shtml)
+- 2026-06-29 12:59 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/904767203.shtml)
+- 2026-06-29 12:53 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/700366893611.shtml)
+- 2026-06-29 13:06 - [宜宾5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/84970499864.shtml)
+- 2026-06-29 13:04 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/892913.shtml)
+- 2026-06-29 13:12 - [多只A股发布股价异动公告](http://www.blog.minike.top/Article/details/90426078.shtml)
+- 2026-06-29 13:10 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/0999198059.shtml)
+- 2026-06-29 12:54 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/15367941912.shtml)
+- 2026-06-29 13:12 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/89944.shtml)
+- 2026-06-29 13:07 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/807528618.shtml)
+- 2026-06-29 12:56 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/25929.shtml)
+- 2026-06-29 12:52 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/52186.shtml)
+- 2026-06-29 13:04 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/404180097883.shtml)
+- 2026-06-29 13:03 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/354027.shtml)
+- 2026-06-29 13:06 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.share.minike.top/Article/details/485771.shtml)
+- 2026-06-29 12:55 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/18729711.shtml)

@@ -1,60 +1,61 @@
-# 以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演
+# 元道通信财务造假强制退市，律师提示索赔刻不容缓
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中新网重庆5月10日电 (钟旖 陈佳欣)9日晚，国内首部长江题材大型幻境杂技剧《长江》在重庆国际马戏城进行常态化驻演。 作为重庆杂技艺术团历经两年打磨推出的全新剧目，《长江》以20世纪90年代至今的长江流域生态蝶变为叙事底色，聚焦江畔百姓守护一江碧水的动人故事，以全新艺术意象奏响长江经济带绿色发展的时代强音。 全剧突破传统杂技边界，创新性融合杂技、舞蹈、魔术等艺术形态，以极限技
+5月8日，证监会对元道通信（维权）下达了《行政处罚事先告知书》。因涉嫌系统性财务造假及欺诈发行，被中国证监会处以2.3884亿元的巨额罚款。 这家主营通信维护的企业，被证监会查明在2019年至2022年期间持续虚增收入。这意味着，在其2022年上市之前，财报就已经存在问题。 调查显示，公司在2019-2022年连续4年造假。由于触及了重大违法强制退市情形，深交所已正式启动对元道
 
 ## 正文
 
-中新网重庆5月10日电 (钟旖 陈佳欣)9日晚，国内首部长江题材大型幻境杂技剧《长江》在重庆国际马戏城进行常态化驻演。
+5月8日，证监会对元道通信（维权）下达了《行政处罚事先告知书》。
 
-作为重庆杂技艺术团历经两年打磨推出的全新剧目，《长江》以20世纪90年代至今的长江流域生态蝶变为叙事底色，聚焦江畔百姓守护一江碧水的动人故事，以全新艺术意象奏响长江经济带绿色发展的时代强音。
+因涉嫌系统性财务造假及欺诈发行，被中国证监会处以2.3884亿元的巨额罚款。
 
-全剧突破传统杂技边界，创新性融合杂技、舞蹈、魔术等艺术形态，以极限技艺搭配现代科技的创新叙事，为观众带来视觉盛宴。
+这家主营通信维护的企业，被证监会查明在2019年至2022年期间持续虚增收入。
 
-在舞美设计上，剧目极具创新，不仅展现重庆山水地貌特色，还精准还原吊脚楼等标志性场景。
+这意味着，在其2022年上市之前，财报就已经存在问题。
 
-值得一提的是，白鹤梁的水下石碑也被“复刻”呈现于舞台之上。
+调查显示，公司在2019-2022年连续4年造假。
 
-重庆杂技艺术团有关负责人介绍，剧目借助先进投影设备，搭配特效镜片的矩阵反光效果，打造“全景式”幻境空间，让传统美学搭载现代科技，共同演绎长江文明。
+由于触及了重大违法强制退市情形，深交所已正式启动对元道通信的强制退市程序。
 
-技术革新方面，2024年在央视春晚中惊艳亮相的《跃龙门》在剧中完成难度升级，20多位“空中飞人”联袂演绎连续空翻两周等动作，展现高超技艺；摘得中国杂技最高奖“金菊奖”金奖的节目《天女散花》，也升级为在5米高空演绎。
+上海沪紫律师事务所刘鹏律师表示即便退市，投资者索赔事宜不受影响。
 
-该负责人表示，《长江》不仅是重庆文化品牌的创新表达，更是向世界展现长江风华、讲好中国故事的艺术桥梁。
+目前符合于2022年7月8号-2025年7月11日（含当日）期间买入，并在2025年7月12日之后卖出或仍持有而亏损的即可登记维权。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 13:04 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:58 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:11 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:59 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 13:15 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:11 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 13:12 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:04 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:49 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 13:08 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 13:04 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:54 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:16 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 13:02 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 12:52 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-29 12:54 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 12:58 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 13:15 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-29 12:50 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 12:53 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-29 13:08 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 12:56 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-29 13:07 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 13:11 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 12:57 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-29 13:06 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 13:15 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 13:09 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.kurohicncr.top/Article/details/88881075.shtml)
-- 2026-06-29 13:05 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.minike.top/Article/details/81209235.shtml)
-- 2026-06-29 13:17 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.blog.kurohicncr.top/Article/details/74040263.shtml)
-- 2026-06-29 13:00 - [高开低走，油脂后市何去何从？](http://www.blog.kurohicncr.top/Article/details/48283.shtml)
-- 2026-06-29 12:57 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](http://www.blog.kurohicncr.top/Article/details/12561.shtml)
-- 2026-06-29 13:12 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.blog.minike.top/Article/details/9441656.shtml)
-- 2026-06-29 13:08 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](http://www.blog.minike.top/Article/details/252017.shtml)
-- 2026-06-29 12:55 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.blog.minike.top/Article/details/5521866713.shtml)
-- 2026-06-29 13:13 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.blog.minike.top/Article/details/524810.shtml)
-- 2026-06-29 13:17 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.blog.kurohicncr.top/Article/details/72646.shtml)
-- 2026-06-29 13:07 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.blog.kurohicncr.top/Article/details/5727979.shtml)
-- 2026-06-29 13:04 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.share.kurohicncr.top/Article/details/73519789.shtml)
-- 2026-06-29 12:55 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.share.kurohicncr.top/Article/details/56083684394.shtml)
+- 2026-06-29 13:15 - [林诗栋晋级WTT美国大满贯男单32强](https://www.share.kurohicncr.top/Article/details/8333642052.shtml)
+- 2026-06-29 13:16 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/56099667.shtml)
+- 2026-06-29 13:13 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/46076884401.shtml)
+- 2026-06-29 12:55 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/1231674.shtml)
+- 2026-06-29 13:08 - [伊朗队员在酒店看球从狂喜到绝望](http://www.share.kurohicncr.top/Article/details/9697169740.shtml)
+- 2026-06-29 12:55 - [农业谣言岂能如此“变态”](https://www.share.minike.top/Article/details/09894194208.shtml)
+- 2026-06-29 12:50 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.kurohicncr.top/Article/details/00705.shtml)
+- 2026-06-29 13:00 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/95177.shtml)
+- 2026-06-29 12:54 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/789073.shtml)
+- 2026-06-29 13:18 - [扫黑风暴](https://www.blog.minike.top/Article/details/036379.shtml)
+- 2026-06-29 12:54 - [中国战机大片上新](http://www.blog.minike.top/Article/details/44560647967.shtml)
+- 2026-06-29 13:16 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.share.kurohicncr.top/Article/details/759081.shtml)
+- 2026-06-29 13:08 - [毕业寄几百斤快递回家女生发声](https://www.share.minike.top/Article/details/390309.shtml)
+- 2026-06-29 12:57 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.minike.top/Article/details/597074483.shtml)
+- 2026-06-29 13:00 - [当我回母校教书](http://www.share.kurohicncr.top/Article/details/8468566.shtml)

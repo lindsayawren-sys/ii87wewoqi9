@@ -1,58 +1,61 @@
-# 国际观察：中国新能源汽车拓展东南亚绿色经济版图
+# A股再现国资“A吃A”！
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-从曼谷公路上激增的比亚迪、名爵、长城等中国汽车品牌，到印尼工厂轰鸣的动力电池产线，再到马来西亚、菲律宾快速下沉的销售网络，中国新能源汽车依托产品、技术、产能、生态四位一体的整体优势，助力东南亚汽车产业变革，不仅深度融入东南亚区域经济产业链、供应链体系，更拓展了东南亚绿色经济版图。作为东南亚传统汽车制造中心，泰国是中国新能源车企出海的首选目的地之一。泰国投资促进委员会秘书长纳立说
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！烟台市国资委拟整合旗下上市公司股权，A股市场或将再添一例“A吃A”案例。 5月8日晚，冰轮环境（000811）公告称，公司拟以协议转让方式，收购烟台国丰投资控股集团有限公司（简称“国丰集团”）持有的烟台铭祥控股有限公司（简称“铭祥控股”）30%的股权，烟台合弘投资股份有限公司（简称“烟台合弘”）持有的铭祥控
 
 ## 正文
 
-从曼谷公路上激增的比亚迪、名爵、长城等中国汽车品牌，到印尼工厂轰鸣的动力电池产线，再到马来西亚、菲律宾快速下沉的销售网络，中国新能源汽车依托产品、技术、产能、生态四位一体的整体优势，助力东南亚汽车产业变革，不仅深度融入东南亚区域经济产业链、供应链体系，更拓展了东南亚绿色经济版图。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-作为东南亚传统汽车制造中心，泰国是中国新能源车企出海的首选目的地之一。
+烟台市国资委拟整合旗下上市公司股权，A股市场或将再添一例“A吃A”案例。
 
-泰国投资促进委员会秘书长纳立说：“泰国是中国车企布局东南亚的最佳枢纽，我们提供5G网络、物流、供应链与法律等全方位的支持。
+5月8日晚，冰轮环境（000811）公告称，公司拟以协议转让方式，收购烟台国丰投资控股集团有限公司（简称“国丰集团”）持有的烟台铭祥控股有限公司（简称“铭祥控股”）30%的股权，烟台合弘投资股份有限公司（简称“烟台合弘”）持有的铭祥控股15%的股权。
 
-” 2025年，泰国电动车销量突破12万辆，同比增长80%，其中中国品牌以超八成份额保持领先。
+值得关注的是，铭祥控股为密封科技（301020）控股股东，持有其47.93%的股权。
 
-据泰国工业联合会数据，今年1月，中国品牌纯电车在泰销量超过3万辆，同比增长354%。
+交易完成后，冰轮环境能够取得铭祥控股的控制权，进而能够间接控制密封科技。
 
-当月，中国品牌在泰国的合计市场份额达到47.34%，首次超越了日系品牌。
+公司公告 密封科技同日晚间亦发布控股股东股权结构拟发生变动的提示性公告。
 
-在第四十七届曼谷国际车展，泰国总理阿努廷参观完中国车企展区后表示，中国品牌在技术与价格方面具有强大竞争力，有力带动泰国汽车产业高质量发展。
+公告显示，公司收到控股股东铭祥控股发来的通知，铭祥控股的股东国丰集团、烟台合弘拟以协议转让方式，分别将其持有铭祥控股30%、15%的股权转让至冰轮环境。
 
-《曼谷邮报》报道指出，中国电动车将泰国从日系组装基地重塑为东南亚电动车制造中心。
+转让完成后，铭祥控股股权结构将变动为冰轮环境持股45%、烟台合弘持股33%、国丰集团持股22%。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [北京科博会展示低空经济新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 13:06 - [我国百余家单位将共建“太空云”生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:54 - [朝“问”健康：父母健康 孩子就不会得“地贫”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:02 - [恒润股份（603985）、双良节能（600481）投资者索赔均再提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:52 - [冰雪为媒携手四十载 中加双城合作续新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:59 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 13:11 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:03 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:49 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:48 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 13:11 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:51 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:51 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 13:13 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 12:50 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-29 13:04 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-29 13:07 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:15 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 13:01 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-29 13:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 13:19 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-29 13:17 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 13:11 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 13:07 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 12:56 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-29 13:07 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 13:00 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:56 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](http://www.blog.kurohicncr.top/Article/details/4329954674.shtml)
-- 2026-06-29 13:13 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](http://www.share.minike.top/Article/details/0078702.shtml)
-- 2026-06-29 13:06 - [“AI+影视”找准发展平衡点](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](http://www.share.minike.top/Article/details/234233564011.shtml)
-- 2026-06-29 13:05 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:11 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.share.kurohicncr.top/Article/details/974501088.shtml)
-- 2026-06-29 13:01 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.blog.kurohicncr.top/Article/details/87348268.shtml)
-- 2026-06-29 13:17 - [2026湖南车展：大型新能源SUV为何受热捧](http://www.blog.minike.top/Article/details/24065818.shtml)
-- 2026-06-29 13:09 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.share.kurohicncr.top/Article/details/38975.shtml)
-- 2026-06-29 12:49 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.minike.top/Article/details/7422292801.shtml)
-- 2026-06-29 12:58 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [预防心梗，这些不良习惯需警惕](http://www.share.kurohicncr.top/Article/details/510106083.shtml)
-- 2026-06-29 13:14 - [青藏高原生物种质资源库构建全球高寒种质保护网](http://www.blog.kurohicncr.top/Article/details/263324132.shtml)
-- 2026-06-29 12:58 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [李在明称韩国足协任命了无能之人](https://www.blog.minike.top/Article/details/860395019.shtml)
+- 2026-06-29 13:08 - [沉睡花园](https://www.share.minike.top/Article/details/5954735824.shtml)
+- 2026-06-29 12:50 - [医药股集体爆发](https://www.share.minike.top/Article/details/4810204.shtml)
+- 2026-06-29 12:52 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/801780.shtml)
+- 2026-06-29 13:02 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/20600.shtml)
+- 2026-06-29 13:09 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/767803869869.shtml)
+- 2026-06-29 12:55 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/1872736117.shtml)
+- 2026-06-29 12:52 - [以前不让妆女二可以艳压女主](https://www.blog.kurohicncr.top/Article/details/47201670.shtml)
+- 2026-06-29 12:59 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.minike.top/Article/details/2355907.shtml)
+- 2026-06-29 13:10 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/2859034.shtml)
+- 2026-06-29 13:07 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/629333.shtml)
+- 2026-06-29 13:17 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/972707411549.shtml)
+- 2026-06-29 12:54 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/4827222.shtml)
+- 2026-06-29 13:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/10399893845.shtml)
+- 2026-06-29 13:01 - [普京称俄处于命运攸关之际](https://www.blog.kurohicncr.top/Article/details/977527.shtml)

@@ -1,50 +1,58 @@
-# 海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定
+# 外交部驳“中国冲击2.0”：中国发展靠的是创新驱动的真本事
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，中国人民银行海南省分行行政处罚决定信息公示表显示，海南天新文化科技有限公司因违反人民币图样使用管理规定，受到警告，没收违法所得22000元，并被罚款110000元。 序号 当事人名称（姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚 决定日期 公示期限（自公示之日起计算） 备注 1 海南天新文化科技有限
+中新网北京5月8日电 (记者 黄钰钦 张素 曾玥)中国外交部发言人林剑8日主持例行记者会。 有记者提问：我们注意到，近期一些西方媒体和智库炒作“中国冲击2.0”，称中国在新能源、人工智能等高技术领域快速发展，并依赖国外市场吸收过剩产能，挤占发达国家市场份额，对全球经济造成比传统制造业时代“更严重的冲击”。同时也有外媒评论称，有关论调忽视中国工业生态体系正在发生的真实创新，中国出
 
 ## 正文
 
-5月9日金融一线消息，中国人民银行海南省分行行政处罚决定信息公示表显示，海南天新文化科技有限公司因违反人民币图样使用管理规定，受到警告，没收违法所得22000元，并被罚款110000元。
+中新网北京5月8日电 (记者 黄钰钦 张素 曾玥)中国外交部发言人林剑8日主持例行记者会。
 
-序号 当事人名称（姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚 决定日期 公示期限（自公示之日起计算） 备注 1 海南天新文化科技有限公司 琼银罚决字〔2026〕6号 违反人民币图样使用管理规定。
+有记者提问：我们注意到，近期一些西方媒体和智库炒作“中国冲击2.0”，称中国在新能源、人工智能等高技术领域快速发展，并依赖国外市场吸收过剩产能，挤占发达国家市场份额，对全球经济造成比传统制造业时代“更严重的冲击”。
 
-警告，没收违法所得22000元，并处罚款110000元。
+同时也有外媒评论称，有关论调忽视中国工业生态体系正在发生的真实创新，中国出口恰恰是全球经济在动荡前行中所需的助推力，比以往更加不可或缺。
 
-中国人民银行海南省分行 2026年 5月6日 3年 责任编辑：曹睿潼
+发言人对此有何评论？
+
+林剑：从“世界工厂”到“世界市场”和“创新高地”，中国发展靠的是创新驱动的真本事，给世界带来的是实实在在的合作机遇与空间。
+
+以传统“老三样”为代表的中国优质产品，稳定了全球产供链，降低了各国消费者生活成本，缓解了世界通胀压力。
+
+以“新三样”为代表的中国绿色产能，弥补了全球绿色发展的供需缺口，促进了世界能源转型和低碳发展。
+
+以“新新三样”为代表的中国高科技产品，打破了高端技术的壁垒与垄断，让更多国家民众用得上、用得起新兴技术。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 13:07 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:57 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:49 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:06 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:52 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:57 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:02 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:54 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:15 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:49 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:58 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:04 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 13:11 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-29 13:12 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 12:55 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:49 - [韩红携4000万物资抵呼和浩特](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 13:15 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 13:16 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 13:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 13:10 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-29 12:54 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-29 12:58 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 12:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.blog.minike.top/Article/details/973758.shtml)
-- 2026-06-29 13:00 - [光大证券，离头部券商越来越远](http://www.share.minike.top/Article/details/9398828218.shtml)
-- 2026-06-29 13:02 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.minike.top/Article/details/35228.shtml)
-- 2026-06-29 12:54 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.share.kurohicncr.top/Article/details/32344.shtml)
-- 2026-06-29 13:10 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.share.minike.top/Article/details/66509.shtml)
-- 2026-06-29 13:13 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.minike.top/Article/details/36755542023.shtml)
-- 2026-06-29 13:18 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](http://www.blog.minike.top/Article/details/44877562436.shtml)
-- 2026-06-29 13:15 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.blog.kurohicncr.top/Article/details/45105229981.shtml)
-- 2026-06-29 12:51 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.share.kurohicncr.top/Article/details/4246954.shtml)
-- 2026-06-29 13:17 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.blog.kurohicncr.top/Article/details/37021375250.shtml)
-- 2026-06-29 13:02 - [《智能体规范应用与创新发展实施意见》答记者问](http://www.share.kurohicncr.top/Article/details/061793631284.shtml)
-- 2026-06-29 12:48 - [高盛：美图公司维持“买入”评级 目标价14.30港元](http://www.blog.kurohicncr.top/Article/details/3910202.shtml)
-- 2026-06-29 12:57 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.share.minike.top/Article/details/2479251.shtml)
+- 2026-06-29 13:12 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/2453994811.shtml)
+- 2026-06-29 12:52 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/945067734.shtml)
+- 2026-06-29 13:05 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.kurohicncr.top/Article/details/9640577.shtml)
+- 2026-06-29 13:03 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/9763492.shtml)
+- 2026-06-29 12:58 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/413214440.shtml)
+- 2026-06-29 13:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/75539841912.shtml)
+- 2026-06-29 13:12 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/22588548.shtml)
+- 2026-06-29 13:19 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/29406130048.shtml)
+- 2026-06-29 13:00 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/53825158532.shtml)
+- 2026-06-29 13:01 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/5449502.shtml)
+- 2026-06-29 12:52 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/293871.shtml)
+- 2026-06-29 13:02 - [扫黑风暴](http://www.share.minike.top/Article/details/6597599.shtml)
+- 2026-06-29 13:15 - [一生一世](http://www.blog.minike.top/Article/details/352953.shtml)
+- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/7129856.shtml)
+- 2026-06-29 12:52 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/0913873510.shtml)

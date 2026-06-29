@@ -1,57 +1,56 @@
-# 坚持有腐必反、有贪必肃
+# DeepSeek拟融资500亿！SpaceX冲刺上市
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-军事审判机关对魏凤和案件、李尚福案件进行了依法审理，作出一审判决，充分体现了党中央全面从严治党、全面从严治军的坚定决心，表明了党中央、中央军委坚定不移惩治腐败的决心意志，对于震慑腐败分子、提振军心士气，对于捍卫人民军队政治本色、保持人民军队纯洁光荣，具有重要意义。军队是拿枪杆子的，军中绝不能有对党怀有二心之人，绝不能有腐败分子藏身之地。魏凤和、李尚福身为党和军队高级领导干部，信
+21世纪经济报道新质生产力研究院 综合报道 早上好，新的一天又开始了。在过去的24小时内，科技行业发生了哪些有意思的事情？来跟21tech一起看看吧。 【巨头风向标】 梁文锋出资200亿！DeepSeek首轮创纪录融资500亿 据报道，DeepSeek拟募资最高500亿元，如果最终落地，这将成为中国人工智能公司有史以来最大的一轮融资。梁文锋个人出资最高达200亿元人民币，占本轮
 
 ## 正文
 
-军事审判机关对魏凤和案件、李尚福案件进行了依法审理，作出一审判决，充分体现了党中央全面从严治党、全面从严治军的坚定决心，表明了党中央、中央军委坚定不移惩治腐败的决心意志，对于震慑腐败分子、提振军心士气，对于捍卫人民军队政治本色、保持人民军队纯洁光荣，具有重要意义。
+21世纪经济报道新质生产力研究院 综合报道 早上好，新的一天又开始了。
 
-军队是拿枪杆子的，军中绝不能有对党怀有二心之人，绝不能有腐败分子藏身之地。
+在过去的24小时内，科技行业发生了哪些有意思的事情？
 
-魏凤和、李尚福身为党和军队高级领导干部，信仰坍塌、忠诚失节，背弃初心使命、丧失党性原则，其行为辜负党中央、中央军委信任重托，严重污染部队政治生态，给党的事业、国防和军队建设，以及高级领导干部形象造成极大损害，性质极其严重，影响极为恶劣，危害特别巨大。
+来跟21tech一起看看吧。
 
-他们受到法律制裁，完全是作茧自缚、咎由自取、自作自受。
+【巨头风向标】 梁文锋出资200亿！
 
-党有党规，国有国法。
+DeepSeek首轮创纪录融资500亿 据报道，DeepSeek拟募资最高500亿元，如果最终落地，这将成为中国人工智能公司有史以来最大的一轮融资。
 
-对党员干部而言，遵守党的纪律是本分，遵守国家法律是义务。
+梁文锋个人出资最高达200亿元人民币，占本轮计划融资总额的40%。
 
-任何党的组织和个人都没有超越党纪国法的特权，都必须维护党纪国法权威，都必须在党纪国法范围内活动，都必须依照党纪国法行使权力、履行职责。
+SpaceX冲刺上市，资本开支飙升数百亿美元 随着埃隆・马斯克执掌的太空探索技术公司筹备大规模首次公开募股，其资本开支规模正以数十亿美元的幅度持续攀升。
 
-“法不阿贵，绳不挠曲。
+据得州当地政府一份项目公告，SpaceX计划与特斯拉联合打造的太拉晶圆芯片产业园，预估资本投入至少需要550亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 12:54 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:52 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:16 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 13:13 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 13:06 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:59 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:52 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 13:16 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:50 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 13:09 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:01 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 13:16 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 12:57 - [虞书欣灿如繁星明天定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 13:03 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:12 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-29 13:06 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-29 12:51 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 13:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-29 12:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 12:59 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 13:00 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.minike.top/Article/details/84639046886.shtml)
-- 2026-06-29 13:05 - [离岸人民币汇率升破6.8，创三年多新高](http://www.blog.kurohicncr.top/Article/details/906459.shtml)
-- 2026-06-29 13:02 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](http://www.share.kurohicncr.top/Article/details/13807915160.shtml)
-- 2026-06-29 12:51 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.blog.minike.top/Article/details/09562892.shtml)
-- 2026-06-29 13:00 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](http://www.blog.kurohicncr.top/Article/details/92361576607.shtml)
-- 2026-06-29 13:09 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.minike.top/Article/details/01541606027.shtml)
-- 2026-06-29 12:48 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [光大证券，离头部券商越来越远](http://www.share.minike.top/Article/details/9224571.shtml)
-- 2026-06-29 12:48 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.blog.kurohicncr.top/Article/details/53200367.shtml)
-- 2026-06-29 12:52 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.blog.kurohicncr.top/Article/details/690749.shtml)
-- 2026-06-29 13:01 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.blog.minike.top/Article/details/695548.shtml)
-- 2026-06-29 13:05 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.share.minike.top/Article/details/060875.shtml)
-- 2026-06-29 13:12 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.minike.top/Article/details/795416.shtml)
+- 2026-06-29 13:10 - [白鹿呵呵挽手比心](http://www.blog.minike.top/Article/details/512353.shtml)
+- 2026-06-29 12:51 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/049391713490.shtml)
+- 2026-06-29 12:59 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/7934093372.shtml)
+- 2026-06-29 12:54 - [沙丘](http://www.blog.minike.top/Article/details/842732378.shtml)
+- 2026-06-29 12:55 - [网友偶遇胡军和李乃文](http://www.share.kurohicncr.top/Article/details/8808172.shtml)
+- 2026-06-29 13:15 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/411150.shtml)
+- 2026-06-29 13:04 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/18080.shtml)
+- 2026-06-29 13:10 - [杨紫《生命树》播放量破百亿](http://www.blog.minike.top/Article/details/65271015.shtml)
+- 2026-06-29 12:55 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/31928.shtml)
+- 2026-06-29 13:09 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/842468261.shtml)
+- 2026-06-29 13:06 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/4480383000.shtml)
+- 2026-06-29 13:01 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/7285836281.shtml)
+- 2026-06-29 13:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/142978.shtml)
+- 2026-06-29 13:17 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/52494087.shtml)
+- 2026-06-29 13:11 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/288539.shtml)

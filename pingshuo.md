@@ -1,57 +1,61 @@
-# 重庆已为49个国家的585名技能人才提供权威认证服务
+# 中国4月原油进口量降至三年低位，大豆进口量同比大涨近40%，铝出口量创17个月高位
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中新网重庆5月8日电 (记者 钟旖)2026年职业能力建设工作座谈会8日在重庆召开。记者从会上获悉，重庆市已为49个国家的585名技能人才提供权威认证服务。 据介绍，近年来，重庆市人力社保局聚焦标准共建、人才共育、认证互通，全面呈现技能国际化发展成效。 2026年1月，顺应“技能出海”所需，重庆市国际技能交流中心正式成立，承接政府主导的“国际技能交流服务”具体职能。立足职能优势
+来源：华尔街见闻 受霍尔木兹海峡货运近乎中断影响，中国4月原油进口量同比下降约20%至3847万吨；天然气进口量同比降约13%；成品油出口量跌约38%至近十年最低。与此形成对比，大豆进口量同比大涨近40%至848万吨，受美国及巴西季节性供应双重提振。 霍尔木兹海峡货运近乎中断，中国4月原油和天然气进口双双大幅下滑。美国大豆和巴西的季节性供应，4月大豆进口大幅上涨。铝等部分金属进
 
 ## 正文
 
-中新网重庆5月8日电 (记者 钟旖)2026年职业能力建设工作座谈会8日在重庆召开。
+来源：华尔街见闻 受霍尔木兹海峡货运近乎中断影响，中国4月原油进口量同比下降约20%至3847万吨；天然气进口量同比降约13%；成品油出口量跌约38%至近十年最低。
 
-记者从会上获悉，重庆市已为49个国家的585名技能人才提供权威认证服务。
+与此形成对比，大豆进口量同比大涨近40%至848万吨，受美国及巴西季节性供应双重提振。
 
-据介绍，近年来，重庆市人力社保局聚焦标准共建、人才共育、认证互通，全面呈现技能国际化发展成效。
+霍尔木兹海峡货运近乎中断，中国4月原油和天然气进口双双大幅下滑。
 
-2026年1月，顺应“技能出海”所需，重庆市国际技能交流中心正式成立，承接政府主导的“国际技能交流服务”具体职能。
+美国大豆和巴西的季节性供应，4月大豆进口大幅上涨。
 
-立足职能优势，以技能为桥、以标准为媒、以合作为翼，该中心在全国布局27家国际技能认证服务站，并与德国、泰国、老挝等多方建立稳定合作，发起国际技能合作友好城市倡议，持续扩大技能“朋友圈”。
+铝等部分金属进口亦逆势走强。
 
-此外，重庆还构建起“语言+技能”特色培训体系，储备225名国际专家、108门精品课程，开展8期师资培训，培养国际师资206名。
+5月9日，海关总署公布的数据显示，4月原油进口量同比下降约20%至3847万吨，为2022年7月以来最低水平；天然气进口量同比下降约13%至842万吨。
 
-一批批青年技能人才通过国际认证提升竞争力，在跨境岗位上发光发热，用过硬技术展现中国青年风采。
+霍尔木兹海峡货运近乎中断，是此轮能源进口骤降的直接导火索，冲击由上游原油供应延伸至下游炼化产品出口——4月成品油出口量同比暴跌约38%至312万吨，为近十年最低。
 
-要想推动国际技能合作，先要让“评价标准”实现跨国对接。
+与能源进口的全面萎缩形成对比，4月大豆进口量同比大涨近40%至848万吨，美国货物与巴西季节性供应共同提振了这一数字。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [四川野生大熊猫情侣在竹林中谈恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:02 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 13:11 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:54 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 13:03 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:52 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 13:02 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:16 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 13:12 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:55 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 13:07 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-29 12:50 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-29 13:06 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 13:13 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
+- 2026-06-29 12:55 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 12:52 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-29 13:10 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
+- 2026-06-29 12:57 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 13:10 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 12:58 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 12:54 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-29 13:16 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 13:17 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-29 13:18 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 13:13 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.blog.kurohicncr.top/Article/details/10381363.shtml)
-- 2026-06-29 13:05 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.blog.minike.top/Article/details/0295025.shtml)
-- 2026-06-29 13:12 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](http://www.blog.minike.top/Article/details/4402237739.shtml)
-- 2026-06-29 12:57 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.share.kurohicncr.top/Article/details/311018.shtml)
-- 2026-06-29 13:12 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.share.minike.top/Article/details/51138006223.shtml)
-- 2026-06-29 12:53 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.share.minike.top/Article/details/5510260.shtml)
-- 2026-06-29 13:04 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.blog.minike.top/Article/details/91663334891.shtml)
-- 2026-06-29 13:01 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.share.minike.top/Article/details/72663.shtml)
-- 2026-06-29 12:55 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.kurohicncr.top/Article/details/341078201.shtml)
-- 2026-06-29 13:08 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.share.kurohicncr.top/Article/details/5979172.shtml)
+- 2026-06-29 13:07 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.minike.top/Article/details/17225572045.shtml)
+- 2026-06-29 13:17 - [papi酱回应毕业4年零收入](http://www.blog.kurohicncr.top/Article/details/25304312.shtml)
+- 2026-06-29 13:12 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/959733054988.shtml)
+- 2026-06-29 13:12 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/136750863.shtml)
+- 2026-06-29 13:08 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/03495835068.shtml)
+- 2026-06-29 12:50 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/4181366891.shtml)
+- 2026-06-29 13:12 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.minike.top/Article/details/6015258519.shtml)
+- 2026-06-29 12:52 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/088928919.shtml)
+- 2026-06-29 13:15 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/2593622862.shtml)
+- 2026-06-29 13:09 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/2662919767.shtml)
+- 2026-06-29 12:55 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/702302349585.shtml)
+- 2026-06-29 13:12 - [105年初心滚烫](http://www.blog.kurohicncr.top/Article/details/453539525.shtml)
+- 2026-06-29 13:01 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/564639.shtml)
+- 2026-06-29 12:59 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/5369322621.shtml)
+- 2026-06-29 13:17 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/65374.shtml)

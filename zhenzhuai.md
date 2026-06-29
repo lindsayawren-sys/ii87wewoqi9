@@ -1,61 +1,52 @@
-# 投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰
+# 江苏太仓农村商业银行被罚164.83万元：违反金融统计相关规定等
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-近期市场担忧能量饮料市场的增长势头可能因消费者疲劳和竞争加剧而放缓，但Monster Beverage和Celsius Holdings本周公布的强劲财报为这一板块注入了信心。 Monster：国际业务成亮点 Monster Beverage一季度财报显示，营收同比增长8%至19.5亿美元，超出分析师预期的18.9亿美元。调整后每股收益为0.65美元，同样高于预期的0.60美元
+5月9日金融一线消息，中国人民银行苏州市分行行政处罚决定信息公示表显示，江苏太仓农村商业银行股份有限公司存在以下违法行为类型，受到警告，并被罚款164.83万元。 违反金融统计相关规定； 违反账户管理规定； 违反特约商户管理规定； 违反网络安全管理规定； 违反数据安全管理规定； 违反反假货币业务管理规定； 违反人民币流通管理规定； 占压财政存款或资金； 违反信用信息采集、提供、
 
 ## 正文
 
-近期市场担忧能量饮料市场的增长势头可能因消费者疲劳和竞争加剧而放缓，但Monster Beverage和Celsius Holdings本周公布的强劲财报为这一板块注入了信心。
+5月9日金融一线消息，中国人民银行苏州市分行行政处罚决定信息公示表显示，江苏太仓农村商业银行股份有限公司存在以下违法行为类型，受到警告，并被罚款164.83万元。
 
-Monster：国际业务成亮点 Monster Beverage一季度财报显示，营收同比增长8%至19.5亿美元，超出分析师预期的18.9亿美元。
+违反金融统计相关规定； 违反账户管理规定； 违反特约商户管理规定； 违反网络安全管理规定； 违反数据安全管理规定； 违反反假货币业务管理规定； 违反人民币流通管理规定； 占压财政存款或资金； 违反信用信息采集、提供、查询及相关管理规定； 未按照规定开展客户尽职调查。
 
-调整后每股收益为0.65美元，同样高于预期的0.60美元。
+秦某（时任太仓农村商业银行股份有限公司科技信息部）对违反网络安全管理规定负有责任，被罚款1.5万元；黄某燕（时任太仓农村商业银行股份有限公司运营管理部）对未按照规定开展客户尽职调查负有责任，被罚款2.4万元。
 
-北美市场营收增长5%，而国际市场增长达15%。
+序号 当事人名称 （姓名、职务） 行政处罚 决定书文号 违法行为类型 行政处罚内容 作出行政处罚 决定机关名称 作出行政处罚 决定日期 公示期限（自公示起计算 备注 1 江苏太仓农村商业银行股份有限公司 苏人银罚决字〔2026〕2号 警告， 罚款164.83万元 中国人民银行 苏州市分行 2026年4月27日 五年 2 秦某（时任太仓农村商业银行股份有限公司科技信息部） 苏人银罚决字〔2026〕3号 对江苏太仓农村商业银行股份有限公司以下违法行为负有责任： 违反网络安全管理规定。
 
-公司表示，欧洲和亚洲市场份额持续提升。
+罚款1.5万元 中国人民银行 苏州市分行 2026年4月27日 五年 3 黄某燕（时任太仓农村商业银行股份有限公司运营管理部） 苏人银罚决字〔2026〕4号 对江苏太仓农村商业银行股份有限公司以下违法行为负有责任： 未按照规定开展客户尽职调查。
 
-管理层在电话会议上指出，尽管提价约3%至5%，但销量未受明显影响。
-
-Celsius：增速回暖 Celsius一季度营收为3.85亿美元，同比增长12%，高于市场预期的3.65亿美元。
-
-调整后每股收益为0.22美元，超出预期的0.18美元。
+罚款2.4万元 中国人民银行 苏州市分行 2026年4月27日 五年 责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:05 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 13:09 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:16 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 13:01 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:59 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:16 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:14 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:54 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 13:13 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:59 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:11 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 13:00 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:03 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:11 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:59 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 13:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:18 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 13:17 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 13:05 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:01 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 13:14 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 13:07 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 13:01 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-29 13:07 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.share.minike.top/Article/details/34875082.shtml)
-- 2026-06-29 13:08 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](http://www.share.kurohicncr.top/Article/details/02394148105.shtml)
-- 2026-06-29 13:01 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](http://www.blog.kurohicncr.top/Article/details/34727892152.shtml)
-- 2026-06-29 13:10 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](http://www.blog.minike.top/Article/details/48128.shtml)
-- 2026-06-29 13:06 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](http://www.blog.minike.top/Article/details/79044.shtml)
-- 2026-06-29 13:13 - [加州新计划：新生儿家庭将获数百片免费尿布](http://www.blog.minike.top/Article/details/0411228836.shtml)
-- 2026-06-29 12:59 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](http://www.share.kurohicncr.top/Article/details/9370092042.shtml)
-- 2026-06-29 12:56 - [2026世界杯美加墨三国将分别举办开幕式](http://www.blog.kurohicncr.top/Article/details/853298536783.shtml)
-- 2026-06-29 13:04 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.kurohicncr.top/Article/details/64121.shtml)
-- 2026-06-29 13:10 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.blog.minike.top/Article/details/00061.shtml)
-- 2026-06-29 12:49 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.share.kurohicncr.top/Article/details/16927925570.shtml)
-- 2026-06-29 12:54 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](http://www.share.minike.top/Article/details/93043.shtml)
-- 2026-06-29 12:55 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.share.minike.top/Article/details/04616744.shtml)
-- 2026-06-29 13:06 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.blog.kurohicncr.top/Article/details/8999490163.shtml)
+- 2026-06-29 13:12 - [A股](http://www.share.minike.top/Article/details/402515828543.shtml)
+- 2026-06-29 13:01 - [美伊同意停止互袭](https://www.blog.kurohicncr.top/Article/details/3753305928.shtml)
+- 2026-06-29 13:12 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/11072684241.shtml)
+- 2026-06-29 13:01 - [一生一世](http://www.blog.minike.top/Article/details/853978.shtml)
+- 2026-06-29 12:53 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/4598971817.shtml)
+- 2026-06-29 13:18 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/2192415.shtml)
+- 2026-06-29 13:13 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/91764779.shtml)
+- 2026-06-29 12:55 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/43455.shtml)
+- 2026-06-29 13:11 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/943352890631.shtml)
+- 2026-06-29 13:13 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/500037.shtml)
+- 2026-06-29 13:14 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/42101061.shtml)
+- 2026-06-29 12:51 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/1534917.shtml)
+- 2026-06-29 13:11 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/002271641725.shtml)
+- 2026-06-29 13:12 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/43644466087.shtml)
+- 2026-06-29 12:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/33648356.shtml)

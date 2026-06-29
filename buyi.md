@@ -1,61 +1,47 @@
-# 一季度险资“扫货”超40亿股 落到了哪些股票“头上”？
+# 伊朗正制定霍尔木兹海峡相关法律草案
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-险资连续第五个季度加仓！一季度，即便资本市场震荡，险资仍积极加仓。 Wind数据显示，截至2026年一季度末，险资共重仓了641只股票，合计持仓约1059.54亿股，环比去年四季度末加仓42.41亿股。 其中，银行股持续受险资“青睐”，中国银行、工商银行、兴业银行等在一季度均被险资增持超上亿股，大秦铁路、美的集团等个股也被险资增持。 贝壳财经记者注意到，从重仓股数据来看，这已经
+中新网5月9日电 据伊朗塔斯尼姆通讯社8日报道，伊朗正在制定霍尔木兹海峡相关法律草案。 据报道，伊朗议会国家安全委员会主席表示，议会已和外交部、港口与海事组织等相关机构就草案内容召开了多次会议。待议会复会后，草案将立即提交审议。
 
 ## 正文
 
-险资连续第五个季度加仓！
+中新网5月9日电 据伊朗塔斯尼姆通讯社8日报道，伊朗正在制定霍尔木兹海峡相关法律草案。
 
-一季度，即便资本市场震荡，险资仍积极加仓。
+据报道，伊朗议会国家安全委员会主席表示，议会已和外交部、港口与海事组织等相关机构就草案内容召开了多次会议。
 
-Wind数据显示，截至2026年一季度末，险资共重仓了641只股票，合计持仓约1059.54亿股，环比去年四季度末加仓42.41亿股。
-
-其中，银行股持续受险资“青睐”，中国银行、工商银行、兴业银行等在一季度均被险资增持超上亿股，大秦铁路、美的集团等个股也被险资增持。
-
-贝壳财经记者注意到，从重仓股数据来看，这已经是自2025年1季度以来，险资连续第五个季度加仓。
-
-在长端利率不断走低之下，加仓高股息股票以提升险资整体投资组合的收益率，以促进前端分红险等浮动收益型产品的销售，成为保险公司的共同选择。
-
-一季度险资加仓超40亿股 高股息银行股成绝对主力 一季度，上证指数、深证成指、创业板指分别跌1.94%、0.35%和0.57%，但险资仍逆势布局。
-
-截至今年一季度末，险资合计持有约1059.54亿股上市公司股票，环比去年四季度末加仓42.41亿股。
+待议会复会后，草案将立即提交审议。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 13:06 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 13:08 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:04 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:05 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:59 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:06 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 13:12 - [华尔街新型NACHO 交易押注石油冲击将长期持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 13:08 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 13:03 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:54 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 13:12 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:58 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 13:12 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:55 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 13:04 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 12:51 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
+- 2026-06-29 13:08 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
+- 2026-06-29 12:58 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:15 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 12:57 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:03 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 13:02 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 12:52 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 12:56 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 12:56 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:58 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](http://www.blog.kurohicncr.top/Article/details/18103938512.shtml)
-- 2026-06-29 12:52 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.blog.minike.top/Article/details/774415.shtml)
-- 2026-06-29 13:11 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.share.kurohicncr.top/Article/details/16019992138.shtml)
-- 2026-06-29 13:12 - [2026湖南车展：大型新能源SUV为何受热捧](http://www.share.minike.top/Article/details/693254736553.shtml)
-- 2026-06-29 12:52 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.blog.kurohicncr.top/Article/details/535626379.shtml)
-- 2026-06-29 13:04 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.minike.top/Article/details/00343298915.shtml)
-- 2026-06-29 12:53 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [预防心梗，这些不良习惯需警惕](http://www.blog.kurohicncr.top/Article/details/3801785.shtml)
-- 2026-06-29 13:12 - [青藏高原生物种质资源库构建全球高寒种质保护网](http://www.share.minike.top/Article/details/873415.shtml)
-- 2026-06-29 13:02 - [四部门发文促进人工智能与能源双向赋能](http://www.blog.minike.top/Article/details/4619013.shtml)
-- 2026-06-29 13:12 - [妈妈，我想对你说](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.blog.minike.top/Article/details/72675270572.shtml)
-- 2026-06-29 12:49 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.share.minike.top/Article/details/63282062.shtml)
-- 2026-06-29 13:12 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [网友偶遇胡军和李乃文](http://www.blog.minike.top/Article/details/306520.shtml)
+- 2026-06-29 13:14 - [女心理师](http://www.share.kurohicncr.top/Article/details/82763802951.shtml)
+- 2026-06-29 13:19 - [乌拉圭出局之路](http://www.share.kurohicncr.top/Article/details/76172.shtml)
+- 2026-06-29 12:55 - [委内瑞拉地震死亡人数升至1450人](http://www.share.minike.top/Article/details/67975.shtml)
+- 2026-06-29 13:14 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/414887502947.shtml)
+- 2026-06-29 12:52 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/836689584165.shtml)
+- 2026-06-29 12:54 - [爱情有烟火你是知道我爱看什么的](https://www.share.minike.top/Article/details/265781694.shtml)
+- 2026-06-29 12:59 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/2797076.shtml)
+- 2026-06-29 13:00 - [王楚钦周启豪爆分](http://www.share.kurohicncr.top/Article/details/2446009165.shtml)
+- 2026-06-29 12:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/2188768.shtml)
+- 2026-06-29 12:57 - [加拿大92分钟绝杀南非](http://www.share.minike.top/Article/details/0149496446.shtml)
+- 2026-06-29 12:53 - [女心理师](http://www.share.kurohicncr.top/Article/details/64191.shtml)
+- 2026-06-29 12:55 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/7688239871.shtml)
+- 2026-06-29 13:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/07694.shtml)
+- 2026-06-29 13:08 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/979407516283.shtml)

@@ -1,50 +1,58 @@
-# 日韩股市低开 韩国股市下跌1.8%
+# 瑞银：亚洲经济有望保持韧性
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-日经225指数上午开盘报62654.01点，跌幅0.29%。韩国综合股价指数（KOSPI）开盘报7353.94点，下跌1.8%。责任编辑：王永生
+中新社上海5月8日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)8日发表机构观点称，亚洲经济有望保持韧性。 据CIO分析，2025年4月美国宣布对全球贸易伙伴加征“对等关税”，尽管当时该政策对亚洲地区影响巨大，但亚洲市场仍迅速恢复，并在随后几个季度中表现出色。亚洲股市指数(日本除外)今年年初至今上涨了18%，同期标普500指数涨幅为7%。 战争导致霍尔木兹海峡受阻，给一
 
 ## 正文
 
-日经225指数上午开盘报62654.01点，跌幅0.29%。
+中新社上海5月8日电 (记者 姜煜)瑞银财富管理投资总监办公室(CIO)8日发表机构观点称，亚洲经济有望保持韧性。
 
-韩国综合股价指数（KOSPI）开盘报7353.94点，下跌1.8%。
+据CIO分析，2025年4月美国宣布对全球贸易伙伴加征“对等关税”，尽管当时该政策对亚洲地区影响巨大，但亚洲市场仍迅速恢复，并在随后几个季度中表现出色。
 
-责任编辑：王永生
+亚洲股市指数(日本除外)今年年初至今上涨了18%，同期标普500指数涨幅为7%。
+
+战争导致霍尔木兹海峡受阻，给一些严重依赖能源进口的经济体带来压力，然而，亚洲应对外部危机的关键支撑因素仍在。
+
+与过往危机时相比，亚洲的能源现况及供应链已有所不同，战略储油、替代能源兴起和财政措施为短期影响提供了缓冲。
+
+与此同时，人工智能热潮等结构性力量依然是亚洲地区强大的增长引擎，而宏观经济条件也相对稳健。
+
+“中国、韩国、新加坡、马来西亚等国的能源储备相对较高，可以有效缓冲地缘政治的影响。
+
+我们认为，只要不出现能源供应长时间严重中断的情况，亚洲经济的韧性有望保持。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [一季度险资“扫货”超40亿股 落到了哪些股票“头上”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 13:11 - [中国银行董事长葛海蛟出席2026中韩工商领导人经济会议系列活动并在上海开展工作调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:59 - [北京科博会展示低空经济新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:53 - [我国百余家单位将共建“太空云”生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:53 - [朝“问”健康：父母健康 孩子就不会得“地贫”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 13:03 - [恒润股份（603985）、双良节能（600481）投资者索赔均再提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:17 - [冰雪为媒携手四十载 中加双城合作续新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 13:00 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:16 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 13:03 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 13:10 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:05 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:09 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 13:14 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 13:13 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 13:01 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 13:17 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 13:15 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 13:02 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-29 13:00 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 13:15 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 13:08 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:09 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-29 13:01 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 12:52 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 12:58 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [AI数字人“邓丽君”在河南郑州“登台”表演](http://www.share.kurohicncr.top/Article/details/79580.shtml)
-- 2026-06-29 12:55 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](http://www.share.minike.top/Article/details/794721.shtml)
-- 2026-06-29 13:04 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](http://www.share.kurohicncr.top/Article/details/856097506.shtml)
-- 2026-06-29 13:00 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](http://www.share.minike.top/Article/details/46483.shtml)
-- 2026-06-29 12:57 - [“AI+影视”找准发展平衡点](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](http://www.blog.kurohicncr.top/Article/details/878159187.shtml)
-- 2026-06-29 12:49 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](http://www.share.minike.top/Article/details/25182337.shtml)
-- 2026-06-29 13:17 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](http://www.blog.kurohicncr.top/Article/details/12316.shtml)
-- 2026-06-29 13:18 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.blog.kurohicncr.top/Article/details/9727164.shtml)
-- 2026-06-29 12:54 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.share.minike.top/Article/details/68434.shtml)
-- 2026-06-29 12:48 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.blog.minike.top/Article/details/76941915490.shtml)
-- 2026-06-29 13:07 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.minike.top/Article/details/3723543785.shtml)
-- 2026-06-29 12:58 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.share.kurohicncr.top/Article/details/83049866259.shtml)
-- 2026-06-29 13:09 - [预防心梗，这些不良习惯需警惕](http://www.blog.minike.top/Article/details/777696181657.shtml)
+- 2026-06-29 13:18 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.minike.top/Article/details/072840644.shtml)
+- 2026-06-29 13:15 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/8021994729.shtml)
+- 2026-06-29 13:09 - [赵今麦客串电影版开端](https://www.share.kurohicncr.top/Article/details/974127950.shtml)
+- 2026-06-29 12:59 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/42756683.shtml)
+- 2026-06-29 12:54 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/1787048.shtml)
+- 2026-06-29 13:06 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/04200.shtml)
+- 2026-06-29 12:54 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/075613.shtml)
+- 2026-06-29 13:06 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/761319850211.shtml)
+- 2026-06-29 12:59 - [【独家】牧神记 第89集 明心](http://www.share.minike.top/Article/details/9799663.shtml)
+- 2026-06-29 13:01 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/174386265.shtml)
+- 2026-06-29 13:10 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/664128.shtml)
+- 2026-06-29 13:01 - [向佑说向佐是一生依靠](http://www.share.kurohicncr.top/Article/details/7842990728.shtml)
+- 2026-06-29 13:07 - [加拿大92分钟绝杀](http://www.share.minike.top/Article/details/04129711.shtml)
+- 2026-06-29 13:09 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/9901524.shtml)
+- 2026-06-29 12:59 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/4940165992.shtml)

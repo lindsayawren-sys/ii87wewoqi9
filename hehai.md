@@ -1,58 +1,59 @@
-# 日经指数下跌0.8% 受科技股和金融股拖累
+# 巴西亚马孙森林砍伐率下降，但厄尔尼诺威胁复苏进程
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-在基准指数飙升至创纪录高位的一天后，在伊朗冲突存在不确定性的情况下，日本股市走低。日经指数下跌0.8%，至62330.70点。科技股和金融股领跌。软银集团下跌4.8%，大和证券下跌3.6%。在美国和伊朗于波斯湾交火后，投资者正密切关注中东局势的发展。日本企业盈利也备受关注。责任编辑：王永生
+巴西空间研究所发布的数据显示，在截至今年3月的过去12个月里，巴西亚马孙雨林的森林砍伐面积较上年同期下降约28%，创下2019年以来的最低水平。这是巴西卢拉政府上任后持续推进环保政策的积极成果。 数据亮点 报告指出，过去一年累计森林砍伐面积为4，约4000平方公里，相当于美国罗德岛州的三倍多。单看今年3月，砍伐警报较去年同期下降了近35%。保护区和非原住民领地的非法采伐活动显著
 
 ## 正文
 
-在基准指数飙升至创纪录高位的一天后，在伊朗冲突存在不确定性的情况下，日本股市走低。
+巴西空间研究所发布的数据显示，在截至今年3月的过去12个月里，巴西亚马孙雨林的森林砍伐面积较上年同期下降约28%，创下2019年以来的最低水平。
 
-日经指数下跌0.8%，至62330.70点。
+这是巴西卢拉政府上任后持续推进环保政策的积极成果。
 
-科技股和金融股领跌。
+数据亮点 报告指出，过去一年累计森林砍伐面积为4，约4000平方公里，相当于美国罗德岛州的三倍多。
 
-软银集团下跌4.8%，大和证券下跌3.6%。
+单看今年3月，砍伐警报较去年同期下降了近35%。
 
-在美国和伊朗于波斯湾交火后，投资者正密切关注中东局势的发展。
+保护区和非原住民领地的非法采伐活动显著减少，显示政府执法力度的加强取得了成效。
 
-日本企业盈利也备受关注。
+环境部长表示，这是“向2030年零非法砍伐目标迈出的坚实一步”。
 
-责任编辑：王永生
+厄尔尼诺威胁 然而，气候因素可能为这一势头带来变数。
+
+气象学家警告，2026年厄尔尼诺现象可能在年底前形成，这将导致亚马孙东部和南部地区降雨量低于历史平均水平，旱季延长。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:59 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:51 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 13:16 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:57 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:17 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:04 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:52 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:54 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:56 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:15 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 13:17 - [坚持有腐必反、有贪必肃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 13:16 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 13:16 - [中欧班列开行突破13万列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 13:12 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:01 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 13:19 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 12:51 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 13:15 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 13:18 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 13:15 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-29 13:09 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 13:19 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 13:05 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 12:53 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-29 13:18 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 13:17 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](http://www.share.kurohicncr.top/Article/details/558530871341.shtml)
-- 2026-06-29 13:03 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.share.kurohicncr.top/Article/details/3823714.shtml)
-- 2026-06-29 13:06 - [享界S9零重力座椅事件，给车企和用户都提了个醒](http://www.blog.minike.top/Article/details/74444688.shtml)
-- 2026-06-29 12:56 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.share.kurohicncr.top/Article/details/39335618.shtml)
-- 2026-06-29 13:06 - [人工智能科技伦理审查与服务先导计划启动](http://www.blog.minike.top/Article/details/426875.shtml)
-- 2026-06-29 13:15 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:15 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.share.minike.top/Article/details/970758687979.shtml)
-- 2026-06-29 13:01 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.blog.minike.top/Article/details/65658936.shtml)
-- 2026-06-29 12:49 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.blog.minike.top/Article/details/1143221.shtml)
-- 2026-06-29 13:04 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.blog.minike.top/Article/details/916860928020.shtml)
-- 2026-06-29 12:50 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](http://www.share.kurohicncr.top/Article/details/99050550027.shtml)
-- 2026-06-29 13:10 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.minike.top/Article/details/042832.shtml)
-- 2026-06-29 12:57 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:18 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/57204.shtml)
+- 2026-06-29 13:10 - [宜宾地震后顾客折返用餐0人逃单](http://www.share.minike.top/Article/details/19093730787.shtml)
+- 2026-06-29 13:13 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/39137867.shtml)
+- 2026-06-29 13:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.kurohicncr.top/Article/details/4288809.shtml)
+- 2026-06-29 12:52 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/40863838.shtml)
+- 2026-06-29 13:16 - [多只A股发布股价异动公告](http://www.share.minike.top/Article/details/51030.shtml)
+- 2026-06-29 13:01 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/048218322964.shtml)
+- 2026-06-29 13:02 - [刘宇宁现偶我就不要了](https://www.share.minike.top/Article/details/846590599894.shtml)
+- 2026-06-29 13:19 - [去美国加油？部分加拿大球迷陷入纠结](https://www.blog.minike.top/Article/details/8200515.shtml)
+- 2026-06-29 13:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/984896.shtml)
+- 2026-06-29 13:17 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/853432.shtml)
+- 2026-06-29 13:01 - [陈靖可虞书欣领衔主演](https://www.share.minike.top/Article/details/883550.shtml)
+- 2026-06-29 13:06 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/739774.shtml)
+- 2026-06-29 13:11 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/03742504.shtml)
+- 2026-06-29 12:52 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/961547.shtml)

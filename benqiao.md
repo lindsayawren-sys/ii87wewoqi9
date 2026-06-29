@@ -1,60 +1,58 @@
-# 特斯拉与亚马逊有望领涨工业板块
+# 普京谈与泽连斯基会面：不主动，不拒绝
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-当投资者想到特斯拉和亚马逊时，通常会联想到电动汽车和电商，但这两家公司的另一共同点常被忽视——它们都是工业综合集团。随着制造业回暖和资本支出周期加速，特斯拉和亚马逊的工业业务有望领涨工业板块。 特斯拉：不止是汽车 特斯拉的工业属性常常被其汽车业务所掩盖。公司位于德克萨斯州和德国的超级工厂每年生产数百万个4680电池单元、数千台Optimus机器人和数十套Megapack储能系统
+俄罗斯总统普京9日对媒体表示，他既不会主动提出、也不会拒绝与乌克兰总统泽连斯基会面。 普京表示，他不仅愿意在俄首都莫斯科，也愿意在第三国与泽连斯基会面，但他同时强调，会面只可能在双方准备签署协议的阶段实现。 普京还表示，美国真诚地寻求解决乌克兰问题的办法，“但这主要还是俄罗斯和乌克兰之间的问题”。 普京召开记者会 谈及这四个主要议题 俄罗斯总统普京当地时间5月9日晚召开记者会，
 
 ## 正文
 
-当投资者想到特斯拉和亚马逊时，通常会联想到电动汽车和电商，但这两家公司的另一共同点常被忽视——它们都是工业综合集团。
+俄罗斯总统普京9日对媒体表示，他既不会主动提出、也不会拒绝与乌克兰总统泽连斯基会面。
 
-随着制造业回暖和资本支出周期加速，特斯拉和亚马逊的工业业务有望领涨工业板块。
+普京表示，他不仅愿意在俄首都莫斯科，也愿意在第三国与泽连斯基会面，但他同时强调，会面只可能在双方准备签署协议的阶段实现。
 
-特斯拉：不止是汽车 特斯拉的工业属性常常被其汽车业务所掩盖。
+普京还表示，美国真诚地寻求解决乌克兰问题的办法，“但这主要还是俄罗斯和乌克兰之间的问题”。
 
-公司位于德克萨斯州和德国的超级工厂每年生产数百万个4680电池单元、数千台Optimus机器人和数十套Megapack储能系统。
+普京召开记者会 谈及这四个主要议题 俄罗斯总统普京当地时间5月9日晚召开记者会，回答相关提问。
 
-特斯拉的能源存储业务一季度营收同比增长80%，毛利率超过20%，高于汽车业务的15%，市场似乎尚未充分定价储能业务的长期潜力。
+普京表示，此次红场阅兵未展示军事装备，并不完全是出于安全原因，而是因为军人应集中精力彻底击溃敌人。
 
-亚马逊：物流机器的价值 亚马逊的物流网络本身就是一台巨大的工业机器。
+他强调，这些决定早在乌方发出威胁之前就已作出。
 
-公司运营着超过200个分拣中心和150架货运飞机。
+普京：俄方尚未收到乌方任何换俘提议 普京表示，在美国总统特朗普提出相关倡议之前，俄罗斯方面就已经向乌克兰提出了交换500名在押人员的提议，但是乌方几经拖延，俄方至今未收到乌方关于交换在押人员的提议。
 
-亚马逊的履约费用2025年占总营收的约16%，随着机器人技术的应用，管理层预计到2028年可将这一比例降至13%。
+普京提到，斯洛伐克总理菲佐转达了乌克兰总统泽连斯基希望会晤的口信。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [冰雪为媒携手四十载 中加双城合作续新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 13:14 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:57 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 13:00 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:59 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 13:10 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:05 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:17 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:52 - [华尔街新型NACHO 交易押注石油冲击将长期持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 13:15 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:51 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:11 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:51 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 13:14 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 13:02 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-29 13:09 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 13:02 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 13:08 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 13:14 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 12:59 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 12:52 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
+- 2026-06-29 13:18 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
+- 2026-06-29 13:06 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-29 13:19 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 13:03 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 13:13 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](http://www.share.minike.top/Article/details/699896812685.shtml)
-- 2026-06-29 13:17 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.blog.minike.top/Article/details/18442853474.shtml)
-- 2026-06-29 13:04 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.share.kurohicncr.top/Article/details/438176.shtml)
-- 2026-06-29 12:56 - [2026湖南车展：大型新能源SUV为何受热捧](http://www.share.kurohicncr.top/Article/details/71990995068.shtml)
-- 2026-06-29 12:51 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.blog.kurohicncr.top/Article/details/4550977.shtml)
-- 2026-06-29 13:05 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:16 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.share.minike.top/Article/details/53926231249.shtml)
-- 2026-06-29 12:53 - [预防心梗，这些不良习惯需警惕](http://www.blog.minike.top/Article/details/2237945277.shtml)
-- 2026-06-29 13:17 - [青藏高原生物种质资源库构建全球高寒种质保护网](http://www.share.kurohicncr.top/Article/details/806410768764.shtml)
-- 2026-06-29 12:53 - [四部门发文促进人工智能与能源双向赋能](http://www.blog.minike.top/Article/details/70892.shtml)
-- 2026-06-29 12:50 - [妈妈，我想对你说](http://www.blog.kurohicncr.top/Article/details/8390985.shtml)
-- 2026-06-29 12:56 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.blog.kurohicncr.top/Article/details/89271275.shtml)
-- 2026-06-29 13:09 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.blog.kurohicncr.top/Article/details/9301962739.shtml)
+- 2026-06-29 12:59 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/16270893125.shtml)
+- 2026-06-29 12:57 - [速度与激情9](http://www.blog.minike.top/Article/details/66721.shtml)
+- 2026-06-29 13:13 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/923781980.shtml)
+- 2026-06-29 13:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/640671711580.shtml)
+- 2026-06-29 13:00 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/7340060.shtml)
+- 2026-06-29 13:18 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/765450.shtml)
+- 2026-06-29 12:49 - [法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/6738822737.shtml)
+- 2026-06-29 13:08 - [天津打雷](https://www.blog.kurohicncr.top/Article/details/354388785912.shtml)
+- 2026-06-29 13:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/93233689017.shtml)
+- 2026-06-29 12:59 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/98970212.shtml)
+- 2026-06-29 13:14 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/65983785552.shtml)
+- 2026-06-29 13:05 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/85502.shtml)
+- 2026-06-29 13:02 - [杨紫《生命树》播放量破百亿](http://www.blog.kurohicncr.top/Article/details/01540848605.shtml)
+- 2026-06-29 12:50 - [这一刀 会很帅](http://www.blog.kurohicncr.top/Article/details/675185307008.shtml)
+- 2026-06-29 12:54 - [为什么欧洲人不装空调](https://www.blog.kurohicncr.top/Article/details/108544.shtml)

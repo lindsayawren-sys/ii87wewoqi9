@@ -1,48 +1,56 @@
-# 信利国际于5月8日耗资103万港元回购100万股
+# 特朗普威胁上调对欧关税致欧洲主要股全线收跌
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-信利国际（00732）公布，2026年5月8日耗资103万港元回购100万股股份。责任编辑：卢昱君
+受美国总统特朗普威胁加税影响，欧洲主要证券交易所周五全线走低。泛欧斯托克600指数当日收跌近0.8%，绝大多数板块收红，伦敦、巴黎、法兰克福及米兰等主要区域市场均录得跌幅。 跨大西洋贸易紧张局势重回市场焦点。特朗普周四晚间通过社交媒体表示，欧盟未能履行去年7月达成的贸易协议。他指出，美方此前已将拟征关税由30%降至15%，并一直“耐心等待”欧盟将对美商品关税降至零。特朗普强调，
 
 ## 正文
 
-信利国际（00732）公布，2026年5月8日耗资103万港元回购100万股股份。
+受美国总统特朗普威胁加税影响，欧洲主要证券交易所周五全线走低。
 
-责任编辑：卢昱君
+泛欧斯托克600指数当日收跌近0.8%，绝大多数板块收红，伦敦、巴黎、法兰克福及米兰等主要区域市场均录得跌幅。
+
+跨大西洋贸易紧张局势重回市场焦点。
+
+特朗普周四晚间通过社交媒体表示，欧盟未能履行去年7月达成的贸易协议。
+
+他指出，美方此前已将拟征关税由30%降至15%，并一直“耐心等待”欧盟将对美商品关税降至零。
+
+特朗普强调，在与欧盟委员会主席冯德莱恩通话时已明确期限：若欧盟在2026年7月4日（美国建国250周年）前未兑现承诺，美方将立即大幅提高关税。
+
+针对美方威胁，欧盟方面反应强烈。
+
+布鲁塞尔立法机构已紧急暂停对相关贸易协定的投票，多位官员指责美方此举制造了“纯粹的关税混乱”。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:56 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:15 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:49 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:52 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:53 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:08 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:57 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:07 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:59 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:01 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:55 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 13:15 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:48 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:02 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-29 13:04 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 13:13 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 12:53 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 13:17 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 13:04 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:57 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 13:14 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 12:52 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-29 12:58 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](http://www.blog.minike.top/Article/details/527611844.shtml)
-- 2026-06-29 13:04 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.share.minike.top/Article/details/78391255646.shtml)
-- 2026-06-29 13:16 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.share.kurohicncr.top/Article/details/34179605.shtml)
-- 2026-06-29 12:49 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](http://www.share.kurohicncr.top/Article/details/63077.shtml)
-- 2026-06-29 12:50 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.blog.minike.top/Article/details/5923082719.shtml)
-- 2026-06-29 13:10 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.blog.kurohicncr.top/Article/details/16018719.shtml)
-- 2026-06-29 12:55 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.blog.kurohicncr.top/Article/details/013952850.shtml)
-- 2026-06-29 13:14 - [光大证券，离头部券商越来越远](http://www.blog.kurohicncr.top/Article/details/43459651.shtml)
-- 2026-06-29 13:05 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.blog.kurohicncr.top/Article/details/733446046.shtml)
-- 2026-06-29 12:52 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.share.minike.top/Article/details/887792.shtml)
-- 2026-06-29 13:07 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.blog.minike.top/Article/details/1817218002.shtml)
-- 2026-06-29 13:07 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.blog.minike.top/Article/details/2215757.shtml)
-- 2026-06-29 12:56 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.minike.top/Article/details/17955.shtml)
-- 2026-06-29 13:17 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](http://www.blog.kurohicncr.top/Article/details/2663201.shtml)
+- 2026-06-29 13:08 - [时光音乐会](http://www.blog.minike.top/Article/details/72101698.shtml)
+- 2026-06-29 12:57 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/8289423.shtml)
+- 2026-06-29 12:50 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/79395058.shtml)
+- 2026-06-29 12:55 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/691877327285.shtml)
+- 2026-06-29 13:03 - [三轮车被自家狗“推”进池塘](http://www.blog.minike.top/Article/details/63339441.shtml)
+- 2026-06-29 12:52 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/1875750070.shtml)
+- 2026-06-29 13:03 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/65644655959.shtml)
+- 2026-06-29 13:10 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/14764323728.shtml)
+- 2026-06-29 13:19 - [这位天才台湾人第一次来大陆，开智了](https://www.share.kurohicncr.top/Article/details/39915447762.shtml)
+- 2026-06-29 12:54 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/44982221142.shtml)
+- 2026-06-29 13:14 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/475180631.shtml)
+- 2026-06-29 12:50 - [刘宇宁现偶我就不要了](http://www.blog.minike.top/Article/details/79938682833.shtml)
+- 2026-06-29 13:15 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/714515297.shtml)
+- 2026-06-29 13:14 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/0398945111.shtml)
+- 2026-06-29 12:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/938504784.shtml)

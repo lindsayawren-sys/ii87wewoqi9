@@ -1,49 +1,56 @@
-# 四部门发文促进人工智能与能源双向赋能
+# 从A股“一撤一否”到港股IPO：科拓股份核心数据披露现低级失误？
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-新华社北京5月8日电(记者王悦阳)记者5月8日从国家能源局获悉，国家能源局会同国家发展改革委、工业和信息化部、国家数据局近日印发的《关于促进人工智能与能源双向赋能的行动方案》提出，力争到2030年，人工智能算力设施的清洁能源供给保障能力和能源领域人工智能应用水平大幅提升，构建人工智能与能源双向赋能、深度融合的发展新格局。 行动方案以能源支撑人工智能发展、人工智能赋能能源转型为主
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 一次主动撤回、一次被否，中国第二大智慧停车运营商在经历A股IPO挫败后，转战港交所。 5月5日，厦门科拓通讯技术股份有限公司（下称“科拓股份”）招股书在港交所更新披露，从A股深交所创业板到港交所，科拓股份的I
 
 ## 正文
 
-新华社北京5月8日电(记者王悦阳)记者5月8日从国家能源局获悉，国家能源局会同国家发展改革委、工业和信息化部、国家数据局近日印发的《关于促进人工智能与能源双向赋能的行动方案》提出，力争到2030年，人工智能算力设施的清洁能源供给保障能力和能源领域人工智能应用水平大幅提升，构建人工智能与能源双向赋能、深度融合的发展新格局。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-行动方案以能源支撑人工智能发展、人工智能赋能能源转型为主线，聚焦保障算力设施安全可靠的能源供给、推动算力设施绿色低碳转型、促进算力电力高效经济协同、开放能源领域人工智能高价值应用场景、挖掘能源领域数据价值、强化能源领域人工智能模型创新等方面部署29项重点任务，着力促进能源、算力、场景、数据、模型等人工智能发展各要素高效协同。
+来源：尺度商业 文 | 张佳儒 编辑 | 刘振涛 一次主动撤回、一次被否，中国第二大智慧停车运营商在经历A股IPO挫败后，转战港交所。
+
+5月5日，厦门科拓通讯技术股份有限公司（下称“科拓股份”）招股书在港交所更新披露，从A股深交所创业板到港交所，科拓股份的IPO之路已历时9年。
+
+闯关港股，科拓股份的业绩规模相较A股时期有所增长，但其披露的财务数据却略显蹊跷：2023年至2025年，公司营收分别为7.38亿元、8.00亿元、8.31亿元，纯利分别为8700万元、8670万元、9370万元及6100万元。
+
+不难看出，科拓股份三年对应三个营收数据，却列出四个纯利数据，逻辑不符。
+
+不仅如此，招股书还显示，2023年至2025年，科拓股份分别为17596个、22497个、26616个及30644个停车场提供服务。
+
+同样地，三个完整财年却对应四个运营数据，时间口径混乱。
+
+这究竟是排版失误，还是另有原因？
 
 ## 相关推荐
 
-- 2026-06-29 13:09 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:58 - [AI时代，全球教育正面临三层重塑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:15 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:16 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 13:13 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 13:06 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:59 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:00 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 13:02 - [坚持有腐必反、有贪必肃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:51 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:59 - [中欧班列开行突破13万列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:09 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:16 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:48 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:13 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:09 - [天津打雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 13:13 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 13:14 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
+- 2026-06-29 13:14 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 13:12 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-29 13:14 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 13:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 13:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 13:09 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 12:55 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [湖北武汉：初夏时节 花田花海美不胜收](http://www.share.kurohicncr.top/Article/details/1524513.shtml)
-- 2026-06-29 12:56 - [人工智能科技伦理审查与服务先导计划启动](http://www.blog.minike.top/Article/details/215023667.shtml)
-- 2026-06-29 12:59 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](http://www.share.kurohicncr.top/Article/details/23683688965.shtml)
-- 2026-06-29 12:48 - [A股1300亿算力巨头协创数据，净利润猛增343%](http://www.share.minike.top/Article/details/9732306072.shtml)
-- 2026-06-29 13:02 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](http://www.share.minike.top/Article/details/22550001.shtml)
-- 2026-06-29 12:51 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](http://www.share.kurohicncr.top/Article/details/03147691374.shtml)
-- 2026-06-29 13:15 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.blog.minike.top/Article/details/89501652.shtml)
-- 2026-06-29 13:15 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](http://www.share.minike.top/Article/details/7122785.shtml)
-- 2026-06-29 13:00 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.minike.top/Article/details/7263890689.shtml)
-- 2026-06-29 12:48 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](http://www.share.minike.top/Article/details/00613030.shtml)
-- 2026-06-29 13:03 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.share.minike.top/Article/details/9666405094.shtml)
-- 2026-06-29 13:05 - [永升服务于5月8日斥资41.04万港元回购20万股](http://www.share.minike.top/Article/details/41856.shtml)
-- 2026-06-29 13:06 - [祁连山 “生命方舟” 累计救助收容259只野生动物](http://www.share.minike.top/Article/details/400495806.shtml)
-- 2026-06-29 13:11 - [早盘：标普500指数和纳斯达克综合再创历史新高](http://www.blog.kurohicncr.top/Article/details/4612319369.shtml)
+- 2026-06-29 13:17 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/84445218.shtml)
+- 2026-06-29 13:00 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/66101403.shtml)
+- 2026-06-29 13:09 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/10765800392.shtml)
+- 2026-06-29 13:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/7182442.shtml)
+- 2026-06-29 12:55 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.minike.top/Article/details/04872672032.shtml)
+- 2026-06-29 13:06 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/35800.shtml)
+- 2026-06-29 13:06 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/377306990.shtml)
+- 2026-06-29 13:10 - [韩国记者：解码“合肥模式”](https://www.blog.minike.top/Article/details/29571.shtml)
+- 2026-06-29 12:55 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/07147921.shtml)
+- 2026-06-29 13:07 - [大罗力挺内马尔](https://www.share.kurohicncr.top/Article/details/5982108.shtml)
+- 2026-06-29 12:56 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/6379039.shtml)
+- 2026-06-29 13:17 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/438518637.shtml)
+- 2026-06-29 13:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/88551.shtml)
+- 2026-06-29 13:14 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/382613249.shtml)
+- 2026-06-29 12:51 - [灿如繁星定档](https://www.share.kurohicncr.top/Article/details/5206947.shtml)

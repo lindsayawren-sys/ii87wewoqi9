@@ -1,59 +1,60 @@
-# 康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品
+# 世卫组织：“洪迪厄斯”号邮轮疫情病毒种类为安第斯病毒
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-近日，康乐卫士连发多份公告，向市场释放了一个明确信号：这家曾经的“北交所疫苗第一股”，已经走到了生死边缘。 业绩巨亏、资不抵债、退市风险警示、劳动仲裁、债务逾期……一系列负面信息密集爆发，揭示了康乐卫士深陷经营危机的现实。而这不仅是企业个体的失败，也标志着国产HPV疫苗赛道在狂热扩张后，迎来了首个“爆雷”样本。 一、财务全面崩塌：现金只剩252万，已资不抵债 康乐卫士的财务数据
+中新社北京5月8日电 日内瓦消息：当地时间5月7日，世界卫生组织就近期“洪迪厄斯”号邮轮暴发汉坦病毒疫情等相关情况举行新闻发布会。 世卫组织方面证实，截至目前，已经收到8例病例报告，其中5例确诊为汉坦病毒感染，3例为疑似病例。目前，已有3人因感染该病毒死亡。 世卫组织总干事谭德塞表示，本轮疫情涉及的汉坦病毒种类为安第斯病毒，是目前已知唯一能够在人与人之间有限传播的汉坦病毒种类。
 
 ## 正文
 
-近日，康乐卫士连发多份公告，向市场释放了一个明确信号：这家曾经的“北交所疫苗第一股”，已经走到了生死边缘。
+中新社北京5月8日电 日内瓦消息：当地时间5月7日，世界卫生组织就近期“洪迪厄斯”号邮轮暴发汉坦病毒疫情等相关情况举行新闻发布会。
 
-业绩巨亏、资不抵债、退市风险警示、劳动仲裁、债务逾期……一系列负面信息密集爆发，揭示了康乐卫士深陷经营危机的现实。
+世卫组织方面证实，截至目前，已经收到8例病例报告，其中5例确诊为汉坦病毒感染，3例为疑似病例。
 
-而这不仅是企业个体的失败，也标志着国产HPV疫苗赛道在狂热扩张后，迎来了首个“爆雷”样本。
+目前，已有3人因感染该病毒死亡。
 
-一、财务全面崩塌：现金只剩252万，已资不抵债 康乐卫士的财务数据触目惊心。
+世卫组织总干事谭德塞表示，本轮疫情涉及的汉坦病毒种类为安第斯病毒，是目前已知唯一能够在人与人之间有限传播的汉坦病毒种类。
 
-2025年，公司亏损5.79亿元，净资产已转为负值，达-2660万元；到2026年一季度末，净资产进一步恶化至-7243万元。
+其传播途径与密切且长时间接触有关，疫情引发更广泛公共卫生风险依然较低。
 
-北京证券交易所因此对公司实施退市风险警示。
+他指出，考虑到病毒的潜伏期最长可达六周，“未来可能会报告更多病例”。
 
-更令人担忧的是，公司账面货币资金截至2026年一季度末仅剩252万元。
+谭德塞说，世卫组织正与多个国家密切协调，其首要任务是确保受影响的患者得到治疗，确保船上其他乘客的安全和尊严得到保障，并防止病毒进一步传播。
 
-对于一个仍在推进多项临床试验、尚无商业化产品造血的企业而言，这几乎等于“断粮”。
+谭德塞还透露，5月2日接到相关情况通报以来，世卫组织已采取多项行动。
 
 ## 相关推荐
 
-- 2026-06-29 13:06 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 13:08 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:58 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 13:12 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:04 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:57 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 13:06 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:55 - [唱响中国之声：中央音乐学院合唱团在俄演出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:16 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:10 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:14 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:00 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:14 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 13:02 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 13:11 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-29 12:58 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 13:05 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 13:19 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 13:13 - [埃博拉为何再次袭击非洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 12:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 13:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 13:12 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 13:01 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 13:00 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 13:06 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 12:49 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](http://www.blog.kurohicncr.top/Article/details/620233160781.shtml)
-- 2026-06-29 13:03 - [2026世界杯美加墨三国将分别举办开幕式](http://www.share.minike.top/Article/details/095596053.shtml)
-- 2026-06-29 13:06 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.blog.minike.top/Article/details/1096349.shtml)
-- 2026-06-29 12:52 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.blog.kurohicncr.top/Article/details/4311549.shtml)
-- 2026-06-29 13:10 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.blog.kurohicncr.top/Article/details/892609483992.shtml)
-- 2026-06-29 13:06 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.share.kurohicncr.top/Article/details/072659.shtml)
-- 2026-06-29 12:52 - [新疆加快打造全国优质农牧产品重要供给基地](http://www.share.minike.top/Article/details/02371526660.shtml)
-- 2026-06-29 12:59 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.kurohicncr.top/Article/details/595639791.shtml)
-- 2026-06-29 13:07 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.blog.minike.top/Article/details/363070510.shtml)
-- 2026-06-29 13:16 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [第48届东盟峰会在菲律宾举行](http://www.share.minike.top/Article/details/16750403086.shtml)
-- 2026-06-29 13:13 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.share.minike.top/Article/details/79522282.shtml)
-- 2026-06-29 13:14 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.share.kurohicncr.top/Article/details/78712717.shtml)
+- 2026-06-29 12:53 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/725234613.shtml)
+- 2026-06-29 13:03 - [一生一世](http://www.share.kurohicncr.top/Article/details/7401826.shtml)
+- 2026-06-29 12:57 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.minike.top/Article/details/2665340.shtml)
+- 2026-06-29 13:03 - [A股限售股解禁一览](https://www.share.kurohicncr.top/Article/details/458900222117.shtml)
+- 2026-06-29 13:05 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/97356025.shtml)
+- 2026-06-29 12:49 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.blog.kurohicncr.top/Article/details/873965755048.shtml)
+- 2026-06-29 13:08 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/1358779.shtml)
+- 2026-06-29 13:12 - [失明的我带老妈去了趟“火星”](http://www.blog.minike.top/Article/details/30150853158.shtml)
+- 2026-06-29 13:09 - [直击宜宾地震：监控剧烈摇晃](https://www.share.kurohicncr.top/Article/details/65039.shtml)
+- 2026-06-29 13:04 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/471122101.shtml)
+- 2026-06-29 13:10 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/90915.shtml)
+- 2026-06-29 13:12 - [美加墨世界杯首支16强诞生](https://www.share.kurohicncr.top/Article/details/70288681.shtml)
+- 2026-06-29 12:57 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/898010399.shtml)
+- 2026-06-29 13:00 - [速度与激情9](http://www.blog.minike.top/Article/details/43704562.shtml)
+- 2026-06-29 13:09 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/72057472299.shtml)

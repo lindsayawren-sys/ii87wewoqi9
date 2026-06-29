@@ -1,56 +1,56 @@
-# 东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列
+# 重庆重点从三方面发力 推进财政金融协同
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-中新网济南5月10日电 (李欣 王采怡 谢婷婷)《文史哲》杂志与《中华读书报》5月9日在山东大学联合发布2025年度“中国人文学术十大热点”。 这是第十一次进行“中国人文学术十大热点”评选，评选旨在及时总结人文学术领域的新现象、新进展、新趋势，推动人文学术研究的繁荣与进步，提升公众对人文学术的认知度和关注度。 2025年度“中国人文学术十大热点”为： 一，多点发力、全面推进、协
+中新网重庆5月9日电 (张旭)5月9日，重庆市财政局副局长何小军在重庆市政府新闻办举行的新闻发布会上介绍，重庆重点从三个方面发力，推进财政金融协同。 今年1月，国务院常务会议召开，部署实施财政金融协同促内需一揽子政策，为中小微企业和广大消费者送来了“及时雨”。 何小军说，近年来，重庆通过对各领域的贴息、担保、风险补偿、基金引导等政策进行整合优化，形成了47项举措的“政策包”，已
 
 ## 正文
 
-中新网济南5月10日电 (李欣 王采怡 谢婷婷)《文史哲》杂志与《中华读书报》5月9日在山东大学联合发布2025年度“中国人文学术十大热点”。
+中新网重庆5月9日电 (张旭)5月9日，重庆市财政局副局长何小军在重庆市政府新闻办举行的新闻发布会上介绍，重庆重点从三个方面发力，推进财政金融协同。
 
-这是第十一次进行“中国人文学术十大热点”评选，评选旨在及时总结人文学术领域的新现象、新进展、新趋势，推动人文学术研究的繁荣与进步，提升公众对人文学术的认知度和关注度。
+今年1月，国务院常务会议召开，部署实施财政金融协同促内需一揽子政策，为中小微企业和广大消费者送来了“及时雨”。
 
-2025年度“中国人文学术十大热点”为： 一，多点发力、全面推进、协同突破，中国自主知识体系构建向纵深发展。
+何小军说，近年来，重庆通过对各领域的贴息、担保、风险补偿、基金引导等政策进行整合优化，形成了47项举措的“政策包”，已实现财政政策对“股、贷、债、保、担”等多元化金融工具的全方位支持。
 
-以2016年“五·一七”讲话为关键节点，十年来，“加快构建中国哲学社会科学自主知识体系”这一被上升到国家战略的时代命题，得到了人文社科界的热烈响应。
+何小军说，重庆重点从三个方面，加力实施财政金融协同促内需一揽子政策。
 
-阐释和探索各学科自主知识体系实现路径的主题研究指数级上涨，呈现出多点发力、全面推进、协同突破的强劲态势。
+在部门协同方面，重庆市财政局会同相关部门及时制定了《财政金融协同促内需一揽子政策实施方案》，明确责任分工、操作流程和具体举措，做到有章可循。
 
-二，学界共同纪念抗战胜利80周年，东方主战场历史叙事得到彰显。
+在审批时限上，大幅精简环节，推进多部门“并联并审”，将民间投资专项担保计划审批时限压缩至4个工作日以内。
 
-2025年是中国人民抗日战争暨世界反法西斯战争胜利80周年。
+在兑现便捷上，推进个人消费贷款贴息“免申即享”，将设备更新贷款贴息的“事后结算”改为“预拨+结算”，大幅提升政策的兑现效率。
 
-坚持正确抗战史观、二战史观，将中国人民抗日战争置于世界反法西斯战争的整体框架下进行系统性研究，扭转中国抗战贡献在国际主流叙事中被忽视甚至被否认的状况，成为学界的自觉追求。
+在支持力度方面，首先，在前端“增供给”，重庆市政府加大投入，对市级政府性融资担保机构注入资本金，同时将部分地方银行一并纳入一揽子政策经办机构范围，从源头上撬动了更多金融供给。
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 13:02 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:11 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:57 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 13:15 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:49 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:56 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:56 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:11 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 13:16 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:18 - [三轮车被自家狗“推”进池塘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 12:54 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 12:58 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 13:14 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-29 13:16 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 13:15 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 12:55 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 13:14 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 12:54 - [刘宇宁现偶我就不要了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:11 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.share.minike.top/Article/details/12783017522.shtml)
-- 2026-06-29 13:00 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.blog.kurohicncr.top/Article/details/14463280.shtml)
-- 2026-06-29 13:12 - [Stifel在近期抛售后上调Shake Shack评级](http://www.blog.kurohicncr.top/Article/details/665070866.shtml)
-- 2026-06-29 13:06 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.blog.minike.top/Article/details/135708919831.shtml)
-- 2026-06-29 13:10 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.blog.minike.top/Article/details/28780214836.shtml)
-- 2026-06-29 13:00 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.blog.minike.top/Article/details/203135089119.shtml)
-- 2026-06-29 13:15 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.blog.minike.top/Article/details/734156357.shtml)
-- 2026-06-29 13:05 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.share.minike.top/Article/details/87317477.shtml)
-- 2026-06-29 12:50 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.share.kurohicncr.top/Article/details/107588795839.shtml)
-- 2026-06-29 12:49 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](http://www.share.minike.top/Article/details/9309823.shtml)
-- 2026-06-29 13:08 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.blog.kurohicncr.top/Article/details/650555180295.shtml)
-- 2026-06-29 13:05 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](http://www.blog.kurohicncr.top/Article/details/65529955256.shtml)
-- 2026-06-29 12:53 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](http://www.blog.kurohicncr.top/Article/details/886969550476.shtml)
+- 2026-06-29 13:08 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/33036356.shtml)
+- 2026-06-29 13:12 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/69006824711.shtml)
+- 2026-06-29 13:17 - [广州某高校辟谣禁止小米汽车入校](http://www.blog.minike.top/Article/details/96478551089.shtml)
+- 2026-06-29 12:58 - [大范围炎热天气将至](https://www.blog.minike.top/Article/details/44048786.shtml)
+- 2026-06-29 13:18 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/63120.shtml)
+- 2026-06-29 12:55 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/3698889980.shtml)
+- 2026-06-29 13:00 - [韩国队启程回国众将回避镜头](http://www.blog.kurohicncr.top/Article/details/039724.shtml)
+- 2026-06-29 12:58 - [叶一茜森碟一起回北京了](https://www.blog.minike.top/Article/details/8379548.shtml)
+- 2026-06-29 13:04 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/7502344501.shtml)
+- 2026-06-29 13:04 - [毕业寄几百斤快递回家女生发声](https://www.blog.minike.top/Article/details/97386.shtml)
+- 2026-06-29 13:01 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/027687.shtml)
+- 2026-06-29 13:07 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/03240365.shtml)
+- 2026-06-29 12:58 - [医护人员观影《四渡》传承长征精神](https://www.blog.minike.top/Article/details/520611.shtml)
+- 2026-06-29 13:06 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/791839.shtml)
+- 2026-06-29 13:09 - [欧洲极端高温东扩](https://www.share.minike.top/Article/details/73805.shtml)

@@ -1,44 +1,44 @@
-# 大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画
+# 训修实业将于6月8日派发末期股息每股0.027港元
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 10:10 来源：中国新闻网 5月8日，黑龙江省饶河县，北大荒集团红卫农场正值水稻耕种时节，水田在夕阳余晖的映衬下，色彩艳丽，优美如画。(作者：王德斌） 责任编辑：【魏聪聪】
+训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月09日 10:10 来源：中国新闻网 5月8日，黑龙江省饶河县，北大荒集团红卫农场正值水稻耕种时节，水田在夕阳余晖的映衬下，色彩艳丽，优美如画。
+训修实业（01962）发布公告，该公司将于2026年6月8日派发截至2025年12月31日止年度末期股息每股0.027港元。
 
-(作者：王德斌） 责任编辑：【魏聪聪】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:49 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 13:01 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:52 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 13:03 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:53 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:05 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:10 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:54 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:57 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:55 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:53 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
+- 2026-06-29 13:09 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 13:16 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
+- 2026-06-29 13:04 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-29 13:13 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 12:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 13:12 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
+- 2026-06-29 13:15 - [我们注定是一撮县城葱姜蒜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-29 13:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 13:15 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:58 - [四部门发文促进人工智能与能源双向赋能](http://www.blog.kurohicncr.top/Article/details/313038.shtml)
-- 2026-06-29 13:17 - [妈妈，我想对你说](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.blog.minike.top/Article/details/7639170.shtml)
-- 2026-06-29 13:00 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.blog.minike.top/Article/details/450655169.shtml)
-- 2026-06-29 13:03 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.blog.minike.top/Article/details/2832106438.shtml)
-- 2026-06-29 13:10 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.blog.kurohicncr.top/Article/details/087112.shtml)
-- 2026-06-29 13:04 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.blog.kurohicncr.top/Article/details/294762524.shtml)
-- 2026-06-29 12:54 - [AI时代，全球教育正面临三层重塑](http://www.blog.minike.top/Article/details/05404.shtml)
-- 2026-06-29 13:04 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.blog.minike.top/Article/details/416455.shtml)
-- 2026-06-29 13:06 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.share.minike.top/Article/details/3338543.shtml)
-- 2026-06-29 13:00 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.blog.kurohicncr.top/Article/details/434170.shtml)
-- 2026-06-29 12:51 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/9229576.shtml)
+- 2026-06-29 12:56 - [张一山回应与杨紫友情](https://www.share.kurohicncr.top/Article/details/184429.shtml)
+- 2026-06-29 12:52 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/0300238.shtml)
+- 2026-06-29 13:13 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/188631.shtml)
+- 2026-06-29 13:10 - [游戏数据竟被用于军事目的](http://www.share.minike.top/Article/details/79250.shtml)
+- 2026-06-29 13:01 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/61137.shtml)
+- 2026-06-29 13:01 - [女心理师](https://www.share.minike.top/Article/details/886541.shtml)
+- 2026-06-29 13:18 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/301501647.shtml)
+- 2026-06-29 13:04 - [腾讯回应做独立支付APP](http://www.blog.kurohicncr.top/Article/details/07204333.shtml)
+- 2026-06-29 12:56 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/201790459195.shtml)
+- 2026-06-29 13:00 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/53340610151.shtml)
+- 2026-06-29 13:07 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/975310399.shtml)
+- 2026-06-29 13:16 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/088128640234.shtml)
+- 2026-06-29 12:55 - [这位猫咪，请你自重！](http://www.blog.minike.top/Article/details/32603403538.shtml)
+- 2026-06-29 12:51 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/36021.shtml)

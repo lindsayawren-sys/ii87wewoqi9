@@ -1,53 +1,51 @@
-# 台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”
+# 过去24小时没有大型商船通过霍尔木兹海峡
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 16:25 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习。日本为何要深度参与此次军演？台湾军事评论员吕礼诗表示，日本所谓的武器出口，其实我们可以看到第一个(买方)就在于菲律宾，他们将菲律宾以往买不到的武器统统输出给菲律宾，或者是他们除役(退役)的潜舰提供给菲律宾，然后在南海创造中
+总台记者8日获悉，船舶追踪数据显示，截至当地时间8日上午，没有大型船只在过去24小时内通过霍尔木兹海峡。据悉，这已是自7日以来连续第二天没有大型商船通过该海峡。(总台记者 吴爱民 李健南)
 
 ## 正文
 
-发布时间：2026年05月08日 16:25 来源：中国新闻网 近期，美日菲等国在菲律宾及南海周边投入1.7万兵力，举行史上最大规模的“肩并肩”联合军事演习。
+总台记者8日获悉，船舶追踪数据显示，截至当地时间8日上午，没有大型船只在过去24小时内通过霍尔木兹海峡。
 
-日本为何要深度参与此次军演？
+据悉，这已是自7日以来连续第二天没有大型商船通过该海峡。
 
-台湾军事评论员吕礼诗表示，日本所谓的武器出口，其实我们可以看到第一个(买方)就在于菲律宾，他们将菲律宾以往买不到的武器统统输出给菲律宾，或者是他们除役(退役)的潜舰提供给菲律宾，然后在南海创造中国的另外一个敌人，也就是日本想要透过这些军工出口赚得更多的外汇。
-
-(记者 卢晓娜 刘世炯 制作 王嘉怡） 责任编辑：【罗攀】
+(总台记者 吴爱民 李健南)
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 13:04 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:55 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 13:10 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:48 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:57 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 13:10 - [塔吉克斯坦总统拉赫蒙将对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:15 - [四川野生大熊猫情侣在竹林中谈恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:59 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 13:17 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:54 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:54 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 13:04 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:48 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:17 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:51 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:58 - [网友偶遇胡军和李乃文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-29 12:55 - [5万块的威力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:12 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-29 13:08 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 12:51 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:11 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 12:54 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-29 13:10 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 13:00 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 13:00 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
+- 2026-06-29 12:55 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 13:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 12:56 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:10 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.kurohicncr.top/Article/details/36991940.shtml)
-- 2026-06-29 12:51 - [坚持有腐必反、有贪必肃](http://www.share.kurohicncr.top/Article/details/56433000072.shtml)
-- 2026-06-29 12:54 - [信利国际于5月8日耗资103万港元回购100万股](http://www.blog.minike.top/Article/details/399918205.shtml)
-- 2026-06-29 13:08 - [中欧班列开行突破13万列](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/061433.shtml)
-- 2026-06-29 12:49 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.kurohicncr.top/Article/details/291261118106.shtml)
-- 2026-06-29 13:01 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.blog.minike.top/Article/details/6854740.shtml)
-- 2026-06-29 13:15 - [个人办事，不只“能办”还要“好办、易办”](http://www.blog.kurohicncr.top/Article/details/220662776822.shtml)
-- 2026-06-29 12:59 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.blog.minike.top/Article/details/382777613802.shtml)
-- 2026-06-29 12:51 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](http://www.share.minike.top/Article/details/8476596.shtml)
-- 2026-06-29 13:00 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](http://www.share.minike.top/Article/details/577196653882.shtml)
-- 2026-06-29 12:58 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.blog.minike.top/Article/details/02268326.shtml)
-- 2026-06-29 13:12 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.blog.minike.top/Article/details/81539654.shtml)
-- 2026-06-29 13:03 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](http://www.blog.kurohicncr.top/Article/details/15092.shtml)
+- 2026-06-29 13:11 - [2025年人口增长10强城市出炉](https://www.blog.kurohicncr.top/Article/details/27113557469.shtml)
+- 2026-06-29 13:06 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/19829772625.shtml)
+- 2026-06-29 12:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/0762510.shtml)
+- 2026-06-29 13:12 - [宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/2251153841.shtml)
+- 2026-06-29 13:06 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/43560.shtml)
+- 2026-06-29 12:53 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.kurohicncr.top/Article/details/938130160575.shtml)
+- 2026-06-29 12:55 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/41369031.shtml)
+- 2026-06-29 12:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/20849866.shtml)
+- 2026-06-29 13:03 - [双高胎](http://www.blog.minike.top/Article/details/142647.shtml)
+- 2026-06-29 13:13 - [恋与深空女玩家不该被冒犯](https://www.share.kurohicncr.top/Article/details/0043255.shtml)
+- 2026-06-29 12:55 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/37461.shtml)
+- 2026-06-29 13:03 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.minike.top/Article/details/1158308903.shtml)
+- 2026-06-29 13:06 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/67478.shtml)
+- 2026-06-29 13:12 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](http://www.blog.kurohicncr.top/Article/details/2822291.shtml)
+- 2026-06-29 12:57 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/586257404.shtml)

@@ -1,59 +1,57 @@
-# 北京面向高校应届毕业生配租3500套房源 最低月租每平米16元
+# 存储芯片股持续飙升：美光与闪迪的上涨动力何在
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 20:55 来源：中国新闻网 毕业季临近，北京为新毕业大学生送上了一份“安居礼包”，将3500套房源专项配租给高校应届毕业生，最低月租每平米16元。 本次专项配租房源来自北京保障房中心持有运营的43个公租房项目和7个保租房项目，覆盖全市12个行政区。房源主要分布在高校集中区域、产业园区及地铁沿线，方便通勤出行。 租金方面，专项配租推出定制化减免
+存储芯片制造商的股价周五继续走高，美光科技上涨约4%，闪迪上涨约5%。自4月底以来，这两只股票的累计涨幅均已超过25%，成为费城半导体指数中表現最亮眼的成分股。 供需失衡驱动价格上涨 本轮上涨的核心动力是存储芯片价格的持续攀升。自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片的现货价格已分别上涨约25%和18%。导致供应紧张的原因包括：韩国厂商占全球存储芯片供应量的60%以
 
 ## 正文
 
-发布时间：2026年05月08日 20:55 来源：中国新闻网 毕业季临近，北京为新毕业大学生送上了一份“安居礼包”，将3500套房源专项配租给高校应届毕业生，最低月租每平米16元。
+存储芯片制造商的股价周五继续走高，美光科技上涨约4%，闪迪上涨约5%。
 
-本次专项配租房源来自北京保障房中心持有运营的43个公租房项目和7个保租房项目，覆盖全市12个行政区。
+自4月底以来，这两只股票的累计涨幅均已超过25%，成为费城半导体指数中表現最亮眼的成分股。
 
-房源主要分布在高校集中区域、产业园区及地铁沿线，方便通勤出行。
+供需失衡驱动价格上涨 本轮上涨的核心动力是存储芯片价格的持续攀升。
 
-租金方面，专项配租推出定制化减免政策。
+自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片的现货价格已分别上涨约25%和18%。
 
-公租房租金单价为每建筑平方米每月16元至72元，保租房租金单价为每建筑平方米每月37.5元至72元。
+导致供应紧张的原因包括：韩国厂商占全球存储芯片供应量的60%以上，中东冲突导致的海运受阻和保险成本上升已影响出货；AI服务器对高带宽内存的需求正在消耗大量产能，挤压了传统PC和智能手机的内存供应；主要厂商在过去两年中削减了资本支出，导致当前产能无法快速响应需求增长。
 
-公租房每个合同租赁期为2年，每个租赁期首月减免1个月租金；保租房租赁期内每满4个月减免1个月租金，累计不超过6年。
+美光的双引擎 美光同时受益于DRAM和NAND价格上涨，以及其在HBM市场的领先地位。
 
-北京保障房中心表示，下一步将分阶段、分批次有序推进配租工作，持续扩大青年人才保障覆盖面，助力更多青年人才在北京“安居乐业”。
+美光的HBM3E产品已被英伟达和AMD采用。
 
-记者 刘超 贾楠 北京报道 责任编辑：【卢岩】
+分析师预计，HBM相关营收将从2025年的约20亿美元增长至2026年的约50亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 13:13 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 13:16 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:56 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:03 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:56 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:54 - [加州新计划：新生儿家庭将获数百片免费尿布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:07 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 13:09 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 13:13 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:05 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:53 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:57 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 13:03 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 13:01 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 13:09 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 13:08 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:58 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-29 13:15 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
+- 2026-06-29 12:52 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 13:12 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
+- 2026-06-29 13:06 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-29 12:56 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:11 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](http://www.blog.kurohicncr.top/Article/details/15232221857.shtml)
-- 2026-06-29 13:15 - [英伟达重金押注光连接，AI的下一战场或在光纤](http://www.share.minike.top/Article/details/97347226646.shtml)
-- 2026-06-29 12:49 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](http://www.share.kurohicncr.top/Article/details/03078053788.shtml)
-- 2026-06-29 13:06 - [习言道｜父母是孩子的第一任老师](http://www.blog.kurohicncr.top/Article/details/149079167010.shtml)
-- 2026-06-29 12:49 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.blog.kurohicncr.top/Article/details/877150.shtml)
-- 2026-06-29 13:00 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.blog.kurohicncr.top/Article/details/7791835.shtml)
-- 2026-06-29 12:49 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.share.kurohicncr.top/Article/details/0067395.shtml)
-- 2026-06-29 13:12 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.share.minike.top/Article/details/696164089822.shtml)
-- 2026-06-29 13:08 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.share.kurohicncr.top/Article/details/6440244.shtml)
-- 2026-06-29 13:02 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:11 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.share.minike.top/Article/details/065578045.shtml)
+- 2026-06-29 13:01 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/8629751727.shtml)
+- 2026-06-29 13:05 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.kurohicncr.top/Article/details/5662290.shtml)
+- 2026-06-29 13:15 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/351377809070.shtml)
+- 2026-06-29 13:16 - [哈基米歌王争霸赛](https://www.blog.kurohicncr.top/Article/details/938337945473.shtml)
+- 2026-06-29 12:57 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/93075473489.shtml)
+- 2026-06-29 12:51 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/12369458.shtml)
+- 2026-06-29 13:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/036339.shtml)
+- 2026-06-29 13:12 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/95424779.shtml)
+- 2026-06-29 13:10 - [男子撸铁后擦汗 脸部感染“脚气”](https://www.share.minike.top/Article/details/74916.shtml)
+- 2026-06-29 13:03 - [加拿大92分钟绝杀](http://www.share.minike.top/Article/details/570085.shtml)
+- 2026-06-29 13:13 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/453495604.shtml)
+- 2026-06-29 12:55 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/77461353015.shtml)
+- 2026-06-29 13:05 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/123411771.shtml)
+- 2026-06-29 13:06 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/9054687792.shtml)
+- 2026-06-29 13:00 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/852894.shtml)

@@ -1,60 +1,59 @@
-# 北京曲剧《雷雨》观摩研讨会在京举办
+# 中方向巴基斯坦交付潜艇 国防部: 正常的装备合作
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 (记者 高凯)由中国文艺评论家协会、中国文联文艺评论中心主办，北京市曲剧团承办的北京曲剧《雷雨》观摩研讨会日前在京举办。 据悉，北京曲剧《雷雨》系2025年度国家艺术基金资助项目，2026年1月在京首演，并于5月1日至3日在北京天桥艺术中心再度上演，以京腔京韵重构曹禺经典悲剧，引发广泛关注与好评。 研讨会上，包括中国戏剧家协会分党组副书记、秘书长傅亦轩，中
+中新社北京5月9日电 (记者 李纯)中国国防部新闻发言人蒋斌9日就近期涉军问题发布消息。他谈及中方为巴基斯坦建造的潜艇首艇交付时表示，这是中巴之间正常的装备合作。 据报道，中方为巴基斯坦建造的“麒麟”级常规动力潜艇首艇在三亚交付，巴基斯坦总统、海军参谋长等军政高层出席交付仪式。 蒋斌答问时表示，这是中巴之间正常的装备合作，也是中巴全天候战略合作伙伴关系的生动体现。近年来，在两国
 
 ## 正文
 
-中新网北京5月9日电 (记者 高凯)由中国文艺评论家协会、中国文联文艺评论中心主办，北京市曲剧团承办的北京曲剧《雷雨》观摩研讨会日前在京举办。
+中新社北京5月9日电 (记者 李纯)中国国防部新闻发言人蒋斌9日就近期涉军问题发布消息。
 
-据悉，北京曲剧《雷雨》系2025年度国家艺术基金资助项目，2026年1月在京首演，并于5月1日至3日在北京天桥艺术中心再度上演，以京腔京韵重构曹禺经典悲剧，引发广泛关注与好评。
+他谈及中方为巴基斯坦建造的潜艇首艇交付时表示，这是中巴之间正常的装备合作。
 
-研讨会上，包括中国戏剧家协会分党组副书记、秘书长傅亦轩，中国评协第一、二届副主席、中国文化国际传播研究院执行院长向云驹，中国评协理事、中央音乐学院教授黄宗权，中国评协会员、北京大学艺术学院教授顾春芳，中国评协会员、中央戏剧学院戏剧文学系主任麻文琦等在内的专家学者立足专业视角，围绕剧目创作、思想内涵、艺术表达、剧种发展等方面深入评议。
+据报道，中方为巴基斯坦建造的“麒麟”级常规动力潜艇首艇在三亚交付，巴基斯坦总统、海军参谋长等军政高层出席交付仪式。
 
-与会专家充分肯定该剧已然具备成为精品的扎实基础，同时分析该剧仍有进一步打磨提升、臻于至善的空间，并提出中肯意见，为主创团队后续打磨精进提供重要参考。
+蒋斌答问时表示，这是中巴之间正常的装备合作，也是中巴全天候战略合作伙伴关系的生动体现。
 
-中国文艺评论家协会副主席兼秘书长、中国文联文艺评论中心主任徐粤春当日指出，随着《戏剧振兴三年行动计划》全面实施，中国戏剧事业迎来了振兴发展的黄金机遇期，对戏剧创作与评论工作提出新的更高要求。
+近年来，在两国领导人战略引领下，两国关系不断迈上新高度、取得新成果。
 
-北京曲剧《雷雨》的创作实践，是经典文本与地方剧种的一场双向奔赴，也是传承根基与创新表达的一次有益尝试，为新时代戏剧创作积累了宝贵经验。
+两军多年来肝胆相照、守望相助，在战略沟通、联演联训、人员培训、装备技术等领域合作成果丰硕，为维护两国安全与地区和平稳定发挥了重要作用。
 
-北京曲剧《雷雨》以独特的舞台语汇，实现了经典的审美再造与精神赓续，面对经典改编的现实困境，给出了一份有分量、有新意、有深度的回应。
+蒋斌表示，下步，中巴两军将持续巩固战略互信，深化各领域务实合作，为构建更加紧密的中巴命运共同体、促进世界和平与发展贡献力量。
 
-一是开掘人性深度，回归诗学本真。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:50 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:55 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:52 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:17 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 13:17 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 13:17 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:10 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 13:16 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:54 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 13:01 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:51 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:02 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:59 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:54 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 13:13 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 12:51 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 13:07 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 13:19 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 13:08 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 13:12 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-29 13:04 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 13:09 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-29 13:16 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 13:19 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-29 13:11 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 13:01 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.blog.kurohicncr.top/Article/details/6350074858.shtml)
-- 2026-06-29 12:52 - [永升服务于5月8日斥资41.04万港元回购20万股](http://www.share.minike.top/Article/details/712260.shtml)
-- 2026-06-29 12:56 - [祁连山 “生命方舟” 累计救助收容259只野生动物](http://www.blog.minike.top/Article/details/39570840.shtml)
-- 2026-06-29 12:54 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.minike.top/Article/details/56077400.shtml)
-- 2026-06-29 12:54 - [离岸人民币汇率升破6.8，创三年多新高](http://www.blog.minike.top/Article/details/68213.shtml)
-- 2026-06-29 12:57 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.share.minike.top/Article/details/378451901.shtml)
-- 2026-06-29 12:56 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.blog.minike.top/Article/details/2440964.shtml)
-- 2026-06-29 12:54 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.blog.kurohicncr.top/Article/details/1907003.shtml)
-- 2026-06-29 13:12 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.kurohicncr.top/Article/details/543632.shtml)
-- 2026-06-29 13:03 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.share.minike.top/Article/details/461446332.shtml)
-- 2026-06-29 12:51 - [光大证券，离头部券商越来越远](http://www.share.minike.top/Article/details/065438.shtml)
-- 2026-06-29 12:50 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.kurohicncr.top/Article/details/812012206807.shtml)
+- 2026-06-29 13:01 - [恋与深空需直面玩家6大疑问](https://www.blog.kurohicncr.top/Article/details/492350.shtml)
+- 2026-06-29 13:03 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/100337.shtml)
+- 2026-06-29 13:15 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/038963159604.shtml)
+- 2026-06-29 12:52 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/51545888819.shtml)
+- 2026-06-29 12:58 - [刘宇宁现偶我就不要了](https://www.share.minike.top/Article/details/5206659.shtml)
+- 2026-06-29 13:00 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/10413.shtml)
+- 2026-06-29 13:08 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/6258256677.shtml)
+- 2026-06-29 13:11 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/158149314.shtml)
+- 2026-06-29 13:04 - [A股](https://www.share.minike.top/Article/details/5755148.shtml)
+- 2026-06-29 13:04 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/731430.shtml)
+- 2026-06-29 12:55 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/8369650014.shtml)
+- 2026-06-29 12:59 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/3966834186.shtml)
+- 2026-06-29 12:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/72728.shtml)
+- 2026-06-29 13:00 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.share.kurohicncr.top/Article/details/4075408.shtml)
+- 2026-06-29 13:03 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/2234995723.shtml)

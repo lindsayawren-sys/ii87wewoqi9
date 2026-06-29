@@ -1,59 +1,57 @@
-# 普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈
+# 商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-俄罗斯总统普京当地时间5月9日晚召开记者会，回答相关提问。 普京表示，此次红场阅兵未展示军事装备，并不完全是出于安全原因，而是因为军人应集中精力彻底击溃敌人。他强调，这些决定早在乌方发出威胁之前就已作出。 普京：俄方尚未收到乌方任何换俘提议 普京表示，在美国总统特朗普提出相关倡议之前，俄罗斯方面就已经向乌克兰提出了交换500名在押人员的提议，但是乌方几经拖延，俄方至今未收到乌方
+商务部服贸司负责人介绍2026年一季度服务贸易发展情况 2026年一季度，我国服务进出口总额18229亿元（人民币，下同），同比增长2.3%。其中，出口7045.2亿元，增长11.2%；进口11183.8亿元，下降2.6%。服务贸易逆差4138.6亿元，比上年同期缩小1001.5亿元。主要呈现以下特点： 知识密集型服务出口保持较快增长。一季度，知识密集型服务进出口7937.1亿
 
 ## 正文
 
-俄罗斯总统普京当地时间5月9日晚召开记者会，回答相关提问。
+商务部服贸司负责人介绍2026年一季度服务贸易发展情况 2026年一季度，我国服务进出口总额18229亿元（人民币，下同），同比增长2.3%。
 
-普京表示，此次红场阅兵未展示军事装备，并不完全是出于安全原因，而是因为军人应集中精力彻底击溃敌人。
+其中，出口7045.2亿元，增长11.2%；进口11183.8亿元，下降2.6%。
 
-他强调，这些决定早在乌方发出威胁之前就已作出。
+服务贸易逆差4138.6亿元，比上年同期缩小1001.5亿元。
 
-普京：俄方尚未收到乌方任何换俘提议 普京表示，在美国总统特朗普提出相关倡议之前，俄罗斯方面就已经向乌克兰提出了交换500名在押人员的提议，但是乌方几经拖延，俄方至今未收到乌方关于交换在押人员的提议。
+主要呈现以下特点： 知识密集型服务出口保持较快增长。
 
-普京提到，斯洛伐克总理菲佐转达了乌克兰总统泽连斯基希望会晤的口信。
+一季度，知识密集型服务进出口7937.1亿元，增长1.6%，占总体服务进出口的比重为43.5%。
 
-普京称，俄方不反对会晤，如果有意愿可以来莫斯科，俄方也不反对在第三国会谈，会谈应该是为了最终签订协议。
+知识密集型服务出口3842.6亿元，增长6.1%，其中，个人文化和娱乐服务、金融服务增长最快，增速分别为25.6%和16.1%；知识密集型服务进口4094.5亿元，下降2.3%。
 
-普京表示，美国确实希望推动冲突得到解决，但首先这仍然是俄罗斯和乌克兰之间的事情。
+旅行服务出口和运输服务进口快速增长。
 
-普京：希望美伊冲突能够尽快平息 就美伊冲突，普京表示，俄罗斯与伊朗和美国都在保持沟通，希望这场冲突能够尽快平息。
+一季度，旅行服务出口1053.5亿元，增长32.3%，位居服务出口各领域增速首位；运输服务进口2302.1亿元，增长22.8%，在服务进口规模前五大领域中增速最快。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 13:10 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:48 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:04 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:56 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:51 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:09 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 13:17 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:50 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:53 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 13:00 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:50 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:52 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:58 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 13:02 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:17 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:07 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 13:09 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-29 12:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 12:56 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 13:00 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 13:16 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 12:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 13:13 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.blog.kurohicncr.top/Article/details/86080.shtml)
-- 2026-06-29 13:16 - [AI时代，全球教育正面临三层重塑](http://www.blog.minike.top/Article/details/6272842232.shtml)
-- 2026-06-29 13:17 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.share.minike.top/Article/details/349434200502.shtml)
-- 2026-06-29 13:11 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.share.minike.top/Article/details/1034071301.shtml)
-- 2026-06-29 13:12 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.share.minike.top/Article/details/390061.shtml)
-- 2026-06-29 12:52 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.blog.minike.top/Article/details/73025249.shtml)
-- 2026-06-29 12:55 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.minike.top/Article/details/4772958586.shtml)
-- 2026-06-29 13:03 - [坚持有腐必反、有贪必肃](http://www.share.kurohicncr.top/Article/details/65503896.shtml)
-- 2026-06-29 12:56 - [信利国际于5月8日耗资103万港元回购100万股](http://www.blog.kurohicncr.top/Article/details/30896166874.shtml)
-- 2026-06-29 12:49 - [中欧班列开行突破13万列](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [A股再现国资“A吃A”！](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.kurohicncr.top/Article/details/532817732.shtml)
-- 2026-06-29 13:16 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.blog.kurohicncr.top/Article/details/2939619303.shtml)
-- 2026-06-29 12:52 - [个人办事，不只“能办”还要“好办、易办”](http://www.share.minike.top/Article/details/612449513524.shtml)
+- 2026-06-29 13:19 - [乌拉圭出局之路](http://www.blog.minike.top/Article/details/272581.shtml)
+- 2026-06-29 12:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/1448734462.shtml)
+- 2026-06-29 12:55 - [韩红携4000万物资抵呼和浩特](http://www.share.minike.top/Article/details/81993.shtml)
+- 2026-06-29 13:17 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/43544.shtml)
+- 2026-06-29 13:08 - [房屋抵押权与租赁权如何协调](https://www.share.minike.top/Article/details/957711.shtml)
+- 2026-06-29 13:04 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/285600904.shtml)
+- 2026-06-29 12:58 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/0827973.shtml)
+- 2026-06-29 13:13 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/3631656458.shtml)
+- 2026-06-29 13:08 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/9769815283.shtml)
+- 2026-06-29 13:12 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/844424983953.shtml)
+- 2026-06-29 13:14 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/847476.shtml)
+- 2026-06-29 12:58 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.share.minike.top/Article/details/544362.shtml)
+- 2026-06-29 13:15 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/11034107.shtml)
+- 2026-06-29 13:10 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/3732114960.shtml)
+- 2026-06-29 13:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/6326437394.shtml)

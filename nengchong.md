@@ -1,60 +1,60 @@
-# 推广普及国家通用语言文字是统一多民族国家建设的题中之义
+# 欺诈发行！两A股公司锁定退市
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-新时代，依法推广普及国家通用语言文字是促进各民族人心归聚、精神相依的必要条件，有助于铸牢中华民族共同体意识，推进中华民族共同体建设，为推动民族复兴伟业注入持久动力。 通用语言文字承载着国家整合与民族建构等多重功能，是推进统一多民族国家建设的重要内容。马克思指出，“语言本身是一定共同体的产物，同样从另一方面说，语言本身就是这个共同体的存在，而且是它的不言而喻的存在”。语同音则心相
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：资本秘闻 证监会严肃查处ST清越（维权）（688496）、元道通信（维权）（301139）财务造假案件。 5月8日晚间，证监会官网显示，近日，证监会对ST清越财务造假案件作出行政处罚事先告知。经查，ST清越2021年、2022年和2023年半年报虚增利
 
 ## 正文
 
-新时代，依法推广普及国家通用语言文字是促进各民族人心归聚、精神相依的必要条件，有助于铸牢中华民族共同体意识，推进中华民族共同体建设，为推动民族复兴伟业注入持久动力。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-通用语言文字承载着国家整合与民族建构等多重功能，是推进统一多民族国家建设的重要内容。
+来源：资本秘闻 证监会严肃查处ST清越（维权）（688496）、元道通信（维权）（301139）财务造假案件。
 
-马克思指出，“语言本身是一定共同体的产物，同样从另一方面说，语言本身就是这个共同体的存在，而且是它的不言而喻的存在”。
+5月8日晚间，证监会官网显示，近日，证监会对ST清越财务造假案件作出行政处罚事先告知。
 
-语同音则心相通，心相通则情相融，在统一多民族国家内坚定不移推广普及国家通用语言文字，有利于打破语言隔阂、凝聚民族情感、塑造政治认同。
+经查，ST清越2021年、2022年和2023年半年报虚增利润，涉嫌欺诈发行、定期报告信息披露违法违规等。
 
-历史上，大一统朝代的通用语言文字政策促进了中国统一多民族国家的形成和发展。
+证监会拟对上市公司罚款17288万元，对4名责任人员合计罚款3300万元并采取4-8年证券市场禁入措施。
 
-新时代，依法推广普及国家通用语言文字是促进各民族人心归聚、精神相依的必要条件，有助于铸牢中华民族共同体意识，推进中华民族共同体建设，为推动民族复兴伟业注入持久动力。
+公司涉嫌触及重大违法强制退市情形，上交所将依法启动退市程序。
 
-一、推广普及国家通用语言文字是世界多民族国家的通行做法 当前，全球约有200多个国家和地区，存在着2500多个民族和7000多种语言。
+证监会已冻结ST清越募集资金相关账户，目前正在对中介机构执业情况开展调查。
 
-推广普及通用语言文字是增强共同体凝聚力的重要资源，是多民族国家建设的基础性工程。
+对于可能涉及的犯罪线索，证监会将坚持应移尽移工作原则，严格按照《刑法》《最高人民检察院 公安部关于公安机关管辖的刑事案件立案追诉标准的规定（二）》的规定移送公安机关。
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:58 - [坚持有腐必反、有贪必肃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:04 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 13:03 - [中欧班列开行突破13万列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 13:10 - [A股再现国资“A吃A”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 13:01 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:49 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:57 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 13:09 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 13:07 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:52 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:59 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:59 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:17 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:59 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 13:08 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
+- 2026-06-29 12:57 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 12:49 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 12:55 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 13:01 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 13:08 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-29 13:08 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:57 - [欧洲热死人不是开玩笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 12:56 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-29 13:04 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-29 13:07 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 13:10 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 13:10 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:03 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](http://www.share.minike.top/Article/details/5953334166.shtml)
-- 2026-06-29 13:09 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](http://www.blog.minike.top/Article/details/4980710643.shtml)
-- 2026-06-29 13:12 - [【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力](http://www.share.kurohicncr.top/Article/details/337399586268.shtml)
-- 2026-06-29 13:14 - [重庆枢纽港产业园（江津片区）两周年：开放能级跃升](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [唱响中国之声：中央音乐学院合唱团在俄演出](http://www.blog.minike.top/Article/details/7107992.shtml)
-- 2026-06-29 12:54 - [永升服务于5月8日斥资41.04万港元回购20万股](http://www.blog.kurohicncr.top/Article/details/536532652.shtml)
-- 2026-06-29 12:57 - [祁连山 “生命方舟” 累计救助收容259只野生动物](http://www.blog.minike.top/Article/details/1857280.shtml)
-- 2026-06-29 13:13 - [早盘：标普500指数和纳斯达克综合再创历史新高](http://www.blog.kurohicncr.top/Article/details/7187700.shtml)
-- 2026-06-29 13:17 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](http://www.blog.minike.top/Article/details/02013008420.shtml)
-- 2026-06-29 13:14 - [离岸人民币汇率升破6.8，创三年多新高](http://www.blog.kurohicncr.top/Article/details/376537.shtml)
-- 2026-06-29 13:08 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.share.minike.top/Article/details/2447522382.shtml)
-- 2026-06-29 13:08 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.blog.kurohicncr.top/Article/details/950977115508.shtml)
-- 2026-06-29 13:10 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:15 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.share.kurohicncr.top/Article/details/981066.shtml)
+- 2026-06-29 13:11 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/9981899092.shtml)
+- 2026-06-29 13:13 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/4103562317.shtml)
+- 2026-06-29 13:11 - [佛得角到底在哪个“角”](http://www.blog.kurohicncr.top/Article/details/009157922962.shtml)
+- 2026-06-29 12:56 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/27578.shtml)
+- 2026-06-29 13:10 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/03944123082.shtml)
+- 2026-06-29 12:50 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/99341.shtml)
+- 2026-06-29 13:16 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/990155.shtml)
+- 2026-06-29 13:17 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/51483.shtml)
+- 2026-06-29 13:09 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/13984632.shtml)
+- 2026-06-29 12:50 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/488224662238.shtml)
+- 2026-06-29 12:51 - [本周做什么都顺的星座](https://www.blog.kurohicncr.top/Article/details/02640.shtml)
+- 2026-06-29 13:08 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/6900121138.shtml)
+- 2026-06-29 13:02 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/5043715.shtml)
+- 2026-06-29 12:55 - [T1 vs KC MSI](http://www.blog.minike.top/Article/details/4789561.shtml)
+- 2026-06-29 13:16 - [欧洲人买空调难点在哪](https://www.share.minike.top/Article/details/524533.shtml)

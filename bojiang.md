@@ -1,52 +1,58 @@
-# 以军对黎巴嫩南部9个村庄发布撤离警告
+# 一季报证伪“模型吞噬”，美图本周涨超25%
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-当地时间9日，以色列国防军向黎巴嫩南部9个村庄发布撤离警告，称将对黎巴嫩真主党目标实施空袭。 以军阿拉伯语发言人阿维凯·阿德拉伊表示，鉴于黎巴嫩真主党“违反停火协议”，以军“不得不采取强力行动”，并称以方“无意伤害平民”。 当日，以色列国防军还表示，过去一天，以军对黎南部超过85个黎真主党目标发动打击，并袭击了位于贝卡谷地的一处地下武器设施，该设施被指用于黎真主党的武器生产。(
+5月8日下午消息，近日，美图公布2026年第一季度业务数据。数据公布后，美图股价今日一度涨超15%，最高报5.48港元，成交额超10亿。近5个交易日内，美图股价涨超25%。 公告显示，截至2026年3月，美图公司付费订阅用户数同比增长30.2%至超1790万，影像与设计产品收入8.52亿元，同比增长34.3%。此外，美图首次披露，截至2026年3月，其AI生产力应用 ARR 约
 
 ## 正文
 
-当地时间9日，以色列国防军向黎巴嫩南部9个村庄发布撤离警告，称将对黎巴嫩真主党目标实施空袭。
+5月8日下午消息，近日，美图公布2026年第一季度业务数据。
 
-以军阿拉伯语发言人阿维凯·阿德拉伊表示，鉴于黎巴嫩真主党“违反停火协议”，以军“不得不采取强力行动”，并称以方“无意伤害平民”。
+数据公布后，美图股价今日一度涨超15%，最高报5.48港元，成交额超10亿。
 
-当日，以色列国防军还表示，过去一天，以军对黎南部超过85个黎真主党目标发动打击，并袭击了位于贝卡谷地的一处地下武器设施，该设施被指用于黎真主党的武器生产。
+近5个交易日内，美图股价涨超25%。
 
-(总台记者 朱云翔)
+公告显示，截至2026年3月，美图公司付费订阅用户数同比增长30.2%至超1790万，影像与设计产品收入8.52亿元，同比增长34.3%。
+
+此外，美图首次披露，截至2026年3月，其AI生产力应用 ARR 约为5.8亿元，同比增长56.2%。
+
+影像与设计产品的AI算力点消耗金额较2025年12月增长59%，开拍、RoboNeo均增长超300%。
+
+知名投资机构a16z最新观点认为，AI市场并没有收敛到每个赛道只剩一个模型产品，AI应用的护城河在于成熟的工作流编排、垂直行业积累和数据闭环。
+
+责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:15 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:01 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:07 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:56 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:49 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 13:09 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:05 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:15 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:11 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:53 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:56 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:49 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 13:06 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-29 13:02 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:08 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 12:50 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
+- 2026-06-29 13:16 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-29 12:51 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 12:52 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-29 13:04 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 12:52 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 13:16 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-29 13:16 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 12:52 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:06 - [妈妈，我想对你说](http://www.blog.kurohicncr.top/Article/details/494531693.shtml)
-- 2026-06-29 13:06 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.share.minike.top/Article/details/6953883170.shtml)
-- 2026-06-29 13:00 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.share.minike.top/Article/details/75367.shtml)
-- 2026-06-29 13:14 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.share.minike.top/Article/details/505374418.shtml)
-- 2026-06-29 13:07 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.share.minike.top/Article/details/5388395.shtml)
-- 2026-06-29 12:59 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.blog.minike.top/Article/details/77326256943.shtml)
-- 2026-06-29 12:56 - [AI时代，全球教育正面临三层重塑](http://www.blog.kurohicncr.top/Article/details/606980704608.shtml)
-- 2026-06-29 12:55 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.blog.minike.top/Article/details/94797640358.shtml)
-- 2026-06-29 12:49 - [北京曲剧《雷雨》观摩研讨会在京举办](http://www.share.minike.top/Article/details/2210402.shtml)
-- 2026-06-29 13:01 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.share.minike.top/Article/details/588609124.shtml)
-- 2026-06-29 13:04 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.blog.minike.top/Article/details/03341.shtml)
-- 2026-06-29 12:51 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.share.kurohicncr.top/Article/details/776483.shtml)
-- 2026-06-29 13:09 - [坚持有腐必反、有贪必肃](http://www.blog.kurohicncr.top/Article/details/996576146.shtml)
+- 2026-06-29 12:53 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/85039878578.shtml)
+- 2026-06-29 13:10 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/1474585.shtml)
+- 2026-06-29 13:19 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/26649.shtml)
+- 2026-06-29 13:04 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/667944793.shtml)
+- 2026-06-29 12:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/631095.shtml)
+- 2026-06-29 12:56 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/24838711227.shtml)
+- 2026-06-29 13:17 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/2579925394.shtml)
+- 2026-06-29 13:03 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/602804854227.shtml)
+- 2026-06-29 13:02 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/0524446584.shtml)
+- 2026-06-29 13:18 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/30166.shtml)
+- 2026-06-29 13:14 - [第一炉香](https://www.share.kurohicncr.top/Article/details/65904821617.shtml)
+- 2026-06-29 12:53 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/9111258467.shtml)
+- 2026-06-29 13:19 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/500596786.shtml)
+- 2026-06-29 13:12 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/5904107.shtml)
+- 2026-06-29 13:01 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/02317551.shtml)

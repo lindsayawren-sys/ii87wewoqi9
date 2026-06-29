@@ -1,50 +1,56 @@
-# 成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成
+# 歼-35“0001编号”战机亮相 这架特殊的“隐身战鹰”瞄准国际市场
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 19:49 来源：中国新闻网 5月9日，四川成都成华区一处公厕外，藏着一个由清洁工王定平打造的小花园。几年来，他收集路边丢弃和居民弃养的盆栽，细心浇水、修剪后，整齐摆放在公厕周边，让普通角落焕发生机。起初王定平自己购买了两盆花，后来邻居们也会将养不活但未完全枯萎的花草送来，他都悉心照料使其存活。如今这片小花园长势喜人，成为周边一处治愈人心的小景
+近日，在电视节目中，一架机头印着“AVIC”标识、编号为“0001”的歼-35隐身战斗机从机库滑出，在屏幕上惊艳亮相，给军迷们留下了巨大遐想空间。 这并非一次普通的装备展示，机身没有空军的“八一”军徽，涂装也与军方列装版本有所不同，而航空工业的英文缩写“AVIC”非常醒目。这一细节迅速引爆国内外舆论场：歼-35A的“外贸版”是否已经正式出炉？这架编号特殊的隐身战鹰又将如何影响全
 
 ## 正文
 
-发布时间：2026年05月09日 19:49 来源：中国新闻网 5月9日，四川成都成华区一处公厕外，藏着一个由清洁工王定平打造的小花园。
+近日，在电视节目中，一架机头印着“AVIC”标识、编号为“0001”的歼-35隐身战斗机从机库滑出，在屏幕上惊艳亮相，给军迷们留下了巨大遐想空间。
 
-几年来，他收集路边丢弃和居民弃养的盆栽，细心浇水、修剪后，整齐摆放在公厕周边，让普通角落焕发生机。
+这并非一次普通的装备展示，机身没有空军的“八一”军徽，涂装也与军方列装版本有所不同，而航空工业的英文缩写“AVIC”非常醒目。
 
-起初王定平自己购买了两盆花，后来邻居们也会将养不活但未完全枯萎的花草送来，他都悉心照料使其存活。
+这一细节迅速引爆国内外舆论场：歼-35A的“外贸版”是否已经正式出炉？
 
-如今这片小花园长势喜人，成为周边一处治愈人心的小景致。
+这架编号特殊的隐身战鹰又将如何影响全球空战力量格局？
 
-(制作 陈选斌） 责任编辑：【卢岩】
+军事评论员傅前哨表示，这架特殊的歼-35跟过去的歼-35A或者歼-35有一定的区别。
+
+这架飞机的前起落架支柱比较细，并且是单轮的，应该是空军版本的歼-35A的改进型，而不是海军的舰载版。
+
+另外，它的涂装跟目前空军、海军的涂装都不太一样。
+
+飞机的涂装比较简单，从上到下都是浅灰色，显然还没有按照用户的要求喷漆。
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:14 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 13:09 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:17 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:51 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:02 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:54 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 13:00 - [强军思想育新人丨“翀”上云霄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 13:08 - [固生堂于5月8日斥资158.17万港元回购5.43万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:59 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 12:52 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 12:56 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 13:16 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-29 13:02 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 13:13 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 12:52 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 13:13 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 12:56 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
+- 2026-06-29 13:09 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 13:02 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.blog.minike.top/Article/details/65700.shtml)
-- 2026-06-29 13:11 - [中远海发于5月8日斥资408.85万元回购150万股A股](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](http://www.blog.kurohicncr.top/Article/details/68170.shtml)
-- 2026-06-29 12:54 - [赖清德跪拜日本人被批“无耻无骨无格”](http://www.blog.minike.top/Article/details/65397.shtml)
-- 2026-06-29 13:12 - [华尔街收低，芯片股回吐涨幅](http://www.share.kurohicncr.top/Article/details/368064515878.shtml)
-- 2026-06-29 13:04 - [江西省人大常委会委员喻晓社接受审查调查](http://www.share.kurohicncr.top/Article/details/5020304606.shtml)
-- 2026-06-29 12:49 - [外交部：希望欧方全面客观积极看待中欧经贸关系](http://www.blog.minike.top/Article/details/640506023080.shtml)
-- 2026-06-29 13:09 - [台立法机构通过蓝白版“防务特别条例草案”](http://www.share.kurohicncr.top/Article/details/0585437.shtml)
-- 2026-06-29 12:52 - [美国非农数据公布前市场情绪趋于谨慎，黄金维持小幅震荡](http://www.blog.minike.top/Article/details/67747067.shtml)
-- 2026-06-29 13:04 - [市场监管总局完成企业变更登记等五项“一件事”政务服务改革](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [光大期货：5月8日矿钢煤焦日报](http://www.share.minike.top/Article/details/73855703.shtml)
-- 2026-06-29 12:48 - [育龄女性当心：体重失控“偷走”生育力](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [A股沪指翻红，超3700只个股上涨](http://www.blog.kurohicncr.top/Article/details/54525.shtml)
-- 2026-06-29 13:14 - [西宁冷凉蔬菜、西宁草莓品牌正式发布](http://www.blog.minike.top/Article/details/214368567.shtml)
-- 2026-06-29 12:55 - [绿色智能消费、县域游、赛事游……从“五一”假期消费看中国经济向新向优](http://www.share.minike.top/Article/details/926011.shtml)
+- 2026-06-29 13:01 - [哈兰德这该死的胜负欲](http://www.blog.minike.top/Article/details/45451435.shtml)
+- 2026-06-29 13:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/35361523374.shtml)
+- 2026-06-29 12:58 - [F1奥地利正赛战报](http://www.share.kurohicncr.top/Article/details/0816356.shtml)
+- 2026-06-29 13:18 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](http://www.share.kurohicncr.top/Article/details/21324553248.shtml)
+- 2026-06-29 12:55 - [赵今麦客串电影版开端](http://www.blog.minike.top/Article/details/3689578507.shtml)
+- 2026-06-29 13:04 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/408152492.shtml)
+- 2026-06-29 13:13 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/10068495.shtml)
+- 2026-06-29 13:05 - [陈露发声引舆论反转](https://www.blog.kurohicncr.top/Article/details/7080477681.shtml)
+- 2026-06-29 13:01 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/391422530.shtml)
+- 2026-06-29 12:54 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/8327489.shtml)
+- 2026-06-29 13:15 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/489790787404.shtml)
+- 2026-06-29 12:52 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/600383835.shtml)
+- 2026-06-29 12:52 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/46425.shtml)
+- 2026-06-29 12:59 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.share.kurohicncr.top/Article/details/7142990259.shtml)
+- 2026-06-29 13:10 - [金刚川](https://www.blog.minike.top/Article/details/841464282081.shtml)

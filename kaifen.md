@@ -1,47 +1,59 @@
-# 两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种
+# 拖欠稿费超一年惹怒媒体后，东风猛士开始打款了
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 20:02 来源：中国新闻网 两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种 希望借妈祖文化促进两岸交流 责任编辑：【翟璐】
+新浪科技讯 5月9日下午消息，东风猛士及其代理公司迪思拖欠媒体稿费一事有了新进展。今日，有媒体人晒出截图显示，目前东风猛士和迪思已开始准备向部分拖欠稿费的媒体人打款。称为加强合规管理，会通过云账户平台进行支付，部分媒体人已被要求提供云账户信息。 此前，车圈朵教主Dora等多位车圈媒体人发布信息称，去年东风猛士M817的上市发布会群近日被解散，原因是群内多位媒体讨要车马费。“才发
 
 ## 正文
 
-发布时间：2026年05月09日 20:02 来源：中国新闻网 两岸一家亲！
+新浪科技讯 5月9日下午消息，东风猛士及其代理公司迪思拖欠媒体稿费一事有了新进展。
 
-台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种 希望借妈祖文化促进两岸交流 责任编辑：【翟璐】
+今日，有媒体人晒出截图显示，目前东风猛士和迪思已开始准备向部分拖欠稿费的媒体人打款。
+
+称为加强合规管理，会通过云账户平台进行支付，部分媒体人已被要求提供云账户信息。
+
+此前，车圈朵教主Dora等多位车圈媒体人发布信息称，去年东风猛士M817的上市发布会群近日被解散，原因是群内多位媒体讨要车马费。
+
+“才发现猛士去年所有的车马费稿费，分文未付，如今猛士品牌也没人出面来管这烂摊子，代理公司迪思更是用官方话术一拖再拖。
+
+” 资料显示，猛士M817是东风汽车旗下的一款硬派新能源SUV，于2025年7月预售、8月正式上市，官方指导价为31.99-34.99万元。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 13:01 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:55 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:08 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:16 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:03 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:15 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:12 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:04 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:56 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:02 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:00 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 13:16 - [通胀侵蚀消费支出 英国到店客流下滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:13 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
+- 2026-06-29 12:50 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 13:06 - [马杜罗社交媒体账号再发文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-29 13:11 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 13:00 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 12:53 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 12:53 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 13:13 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 13:02 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-29 13:07 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 13:14 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:56 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 13:02 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 12:57 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
+- 2026-06-29 13:07 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.share.kurohicncr.top/Article/details/187921998718.shtml)
-- 2026-06-29 13:00 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.share.kurohicncr.top/Article/details/219280101.shtml)
-- 2026-06-29 13:11 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.share.kurohicncr.top/Article/details/44810081.shtml)
-- 2026-06-29 12:53 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.blog.kurohicncr.top/Article/details/029648539730.shtml)
-- 2026-06-29 12:54 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.kurohicncr.top/Article/details/029407.shtml)
-- 2026-06-29 12:49 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](http://www.share.minike.top/Article/details/86338.shtml)
-- 2026-06-29 13:00 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](http://www.blog.minike.top/Article/details/0249346340.shtml)
-- 2026-06-29 12:48 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.share.kurohicncr.top/Article/details/50001.shtml)
-- 2026-06-29 13:15 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.blog.kurohicncr.top/Article/details/6445616.shtml)
-- 2026-06-29 12:48 - [重庆最大液化天然气单一燃料江海直达散货船首航](http://www.blog.kurohicncr.top/Article/details/833041537.shtml)
-- 2026-06-29 12:55 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.share.minike.top/Article/details/54489156.shtml)
-- 2026-06-29 12:57 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](http://www.share.minike.top/Article/details/707969128.shtml)
-- 2026-06-29 13:16 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](http://www.share.kurohicncr.top/Article/details/400733187055.shtml)
-- 2026-06-29 12:57 - [高开低走，油脂后市何去何从？](http://www.share.minike.top/Article/details/15475785284.shtml)
-- 2026-06-29 12:53 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/3939889602.shtml)
+- 2026-06-29 13:01 - [欧洲热死人不是开玩笑](https://www.share.kurohicncr.top/Article/details/02175.shtml)
+- 2026-06-29 12:51 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/8486956.shtml)
+- 2026-06-29 13:11 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/0660803959.shtml)
+- 2026-06-29 13:02 - [巴黎两家殡仪馆爆满](http://www.blog.kurohicncr.top/Article/details/78931323.shtml)
+- 2026-06-29 12:56 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/432782.shtml)
+- 2026-06-29 13:15 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/61624144.shtml)
+- 2026-06-29 13:15 - [三轮车被自家狗“推”进池塘](https://www.blog.kurohicncr.top/Article/details/20057083912.shtml)
+- 2026-06-29 12:56 - [普京：俄罗斯面临命运攸关时刻](https://www.share.minike.top/Article/details/063007.shtml)
+- 2026-06-29 13:16 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/40219.shtml)
+- 2026-06-29 13:14 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/67810848008.shtml)
+- 2026-06-29 13:13 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.kurohicncr.top/Article/details/07168193815.shtml)
+- 2026-06-29 12:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/11804.shtml)
+- 2026-06-29 13:03 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/2979231011.shtml)
+- 2026-06-29 13:05 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/678003.shtml)

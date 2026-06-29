@@ -1,51 +1,58 @@
-# 普京谈与泽连斯基会面：不主动 不拒绝
+# 机场口岸客流攀升！APEC中国年，深圳准备好了
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日对媒体表示，他既不会主动提出、也不会拒绝与乌克兰总统泽连斯基会面。 普京表示，他不仅愿意在俄首都莫斯科，也愿意在第三国与泽连斯基会面，但他同时强调，会面只可能在双方准备签署协议的阶段实现。 普京还表示，美国真诚地寻求解决乌克兰问题的办法，“但这主要还是俄罗斯和乌克兰之间的问题”。
+今年是APEC中国年，作为东道主城市，广东深圳全市氛围持续升温。越来越多的APEC经济体客商来到深圳，感受中国经济发展。目前，经深圳机场口岸APEC经济体客商出入境流量稳步攀升。 5月8日中午，一架国际航班顺利抵达深圳宝安国际机场。墨西哥旅客塞萨尔·米努蒂手持护照和APEC商务旅行卡，通过专用通道入境，全程快捷顺畅。 墨西哥旅客 塞萨尔·米努蒂：我相信今年在深圳举办的APEC会
 
 ## 正文
 
-新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日对媒体表示，他既不会主动提出、也不会拒绝与乌克兰总统泽连斯基会面。
+今年是APEC中国年，作为东道主城市，广东深圳全市氛围持续升温。
 
-普京表示，他不仅愿意在俄首都莫斯科，也愿意在第三国与泽连斯基会面，但他同时强调，会面只可能在双方准备签署协议的阶段实现。
+越来越多的APEC经济体客商来到深圳，感受中国经济发展。
 
-普京还表示，美国真诚地寻求解决乌克兰问题的办法，“但这主要还是俄罗斯和乌克兰之间的问题”。
+目前，经深圳机场口岸APEC经济体客商出入境流量稳步攀升。
+
+5月8日中午，一架国际航班顺利抵达深圳宝安国际机场。
+
+墨西哥旅客塞萨尔·米努蒂手持护照和APEC商务旅行卡，通过专用通道入境，全程快捷顺畅。
+
+墨西哥旅客 塞萨尔·米努蒂：我相信今年在深圳举办的APEC会议会更加精彩，创造出更多互利共赢合作新机遇。
+
+目前，我国已对APEC成员经济体中的12个国家实施免签政策，深圳机场与APEC成员经济体中的15个国家和地区开通了直航客运航线。
+
+随着APEC中国年系列活动不断开展，越来越多来自APEC成员经济体的外国人到访深圳。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:50 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:06 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 13:10 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 13:16 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:58 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:59 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 13:13 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:17 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 13:11 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 13:16 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 13:07 - [汉坦病毒如何让Moderna重成“必持”股票](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:48 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 13:10 - [英伟达重金押注光连接，AI的下一战场或在光纤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:59 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:12 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-29 13:05 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-29 13:11 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 13:02 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsaub.md)
+- 2026-06-29 12:53 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 12:52 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 13:03 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 13:11 - [去美国加油？部分加拿大球迷陷入纠结](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 13:07 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
+- 2026-06-29 12:54 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 12:58 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 13:01 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](http://www.share.kurohicncr.top/Article/details/6380466.shtml)
-- 2026-06-29 13:04 - [任天堂将上调Switch 2价格 预计其销量将下滑](http://www.share.minike.top/Article/details/73617652408.shtml)
-- 2026-06-29 13:07 - [陕西宝鸡：江海之上造 “宝桥”](http://www.blog.kurohicncr.top/Article/details/952434.shtml)
-- 2026-06-29 12:52 - [以“无我”境界成“有我”之业](http://www.blog.kurohicncr.top/Article/details/794887956758.shtml)
-- 2026-06-29 13:16 - [李强主持召开国务院常务会议](http://www.blog.kurohicncr.top/Article/details/417881885.shtml)
-- 2026-06-29 13:06 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.blog.minike.top/Article/details/9501680657.shtml)
-- 2026-06-29 13:05 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.share.kurohicncr.top/Article/details/809221566878.shtml)
-- 2026-06-29 13:16 - [*ST天喻领正式被罚，已有案件递交立案](http://www.share.kurohicncr.top/Article/details/95213021.shtml)
-- 2026-06-29 13:15 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.minike.top/Article/details/042261131.shtml)
-- 2026-06-29 12:58 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](http://www.share.minike.top/Article/details/863083748.shtml)
-- 2026-06-29 12:52 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.blog.minike.top/Article/details/636267647764.shtml)
-- 2026-06-29 12:50 - [培育消费新场景新业态 激发消费新动能](http://www.blog.kurohicncr.top/Article/details/026256.shtml)
-- 2026-06-29 12:59 - [文莱王储比拉将访华](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [Insight续押日元还会再跌 干预只能短暂止血](http://www.share.minike.top/Article/details/2191890.shtml)
+- 2026-06-29 12:52 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/269099922494.shtml)
+- 2026-06-29 12:50 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/841843276.shtml)
+- 2026-06-29 13:03 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/06507.shtml)
+- 2026-06-29 13:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/05078456.shtml)
+- 2026-06-29 13:06 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/48446676126.shtml)
+- 2026-06-29 13:04 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.kurohicncr.top/Article/details/531896779870.shtml)
+- 2026-06-29 13:16 - [志愿选择倒计时！浙大学生送祝福](https://www.blog.kurohicncr.top/Article/details/06348209.shtml)
+- 2026-06-29 13:01 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/17434005249.shtml)
+- 2026-06-29 13:17 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/44153793461.shtml)
+- 2026-06-29 12:50 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/65405524038.shtml)
+- 2026-06-29 13:03 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/388621599.shtml)
+- 2026-06-29 12:59 - [沙特足协主席发布声明主动请辞](http://www.share.minike.top/Article/details/66478112.shtml)
+- 2026-06-29 13:11 - [速度与激情9](http://www.blog.minike.top/Article/details/24338260341.shtml)
+- 2026-06-29 13:05 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/63845223.shtml)
+- 2026-06-29 12:57 - [曝太阳黄蜂完成阵容互换+签位置换](http://www.blog.kurohicncr.top/Article/details/573905383.shtml)

@@ -1,59 +1,57 @@
-# 全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定
+# 2026年医保目录及商保创新药目录调整公开征求意见
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-当前A股最耀眼的板块就是“光”，光模块、光纤、光器件、光芯片等概念股均是“热门行业里的热门股”，机构对通信板块的配置比例也高达13.1%，资金抱团现象明显。 对于普通投资者来说，要不要站在“光”里？取决于三件事，一是公司和产业是否看得明白，二是估值是否算得明白，三是是否真正忠于自己。 “抱”与“不抱”并非投资的核心。如果看不清楚，算不明白，仅仅是被市场乐观情绪裹挟，那抱团逐“光
+新华社北京5月9日电(记者彭韵佳)国家医保局9日发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件，并向社会公开征求意见。 与去年相比，2026年目录调整工作方案对目录外药品申报条件增加3条，包括“纳入2025年商业健康保险创新药品目录的药品”等，并允许已在商保创新药目录内的药品因新增适应症进行申报。国家医保局有关负责
 
 ## 正文
 
-当前A股最耀眼的板块就是“光”，光模块、光纤、光器件、光芯片等概念股均是“热门行业里的热门股”，机构对通信板块的配置比例也高达13.1%，资金抱团现象明显。
+新华社北京5月9日电(记者彭韵佳)国家医保局9日发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件，并向社会公开征求意见。
 
-对于普通投资者来说，要不要站在“光”里？
+与去年相比，2026年目录调整工作方案对目录外药品申报条件增加3条，包括“纳入2025年商业健康保险创新药品目录的药品”等，并允许已在商保创新药目录内的药品因新增适应症进行申报。
 
-取决于三件事，一是公司和产业是否看得明白，二是估值是否算得明白，三是是否真正忠于自己。
+国家医保局有关负责人表示，调整后既适当拓宽了目录外药品的申报范围，也体现了医保药品目录与商保创新药目录的衔接，稳定企业参与申报商保创新药目录的积极性。
 
-“抱”与“不抱”并非投资的核心。
+在调出医保目录方面，将说明书中禁忌、不良反应、注意事项为尚不明确且未在规定时间内完善的中成药作为重点考虑调出的品种。
 
-如果看不清楚，算不明白，仅仅是被市场乐观情绪裹挟，那抱团逐“光”意味着巨大的风险；如果看得清楚，算得明白，忠于自己的原则，那么他人的“抱”与“不抱”都不重要，虽千万人吾往矣。
+根据工作方案，今年的工作程序仍分为准备、申报、评审、谈判、公布结果5个阶段。
 
-能否看得清楚 巴菲特十年前以350亿美元投资苹果公司，今天总价值已经升至1850亿美元，这无疑是世界上最成功的投资案例之一。
+工作方案预计会在5月底正式发布，11月底前发布新版医保药品目录和商保创新药目录。
 
-看得清楚，是巴菲特投资苹果公司的前提。
-
-在2017年的时候，巴菲特曾在公开场合提到苹果，也是他第一次阐述对于苹果的看法：“苹果公司更像一家消费品公司，而不是科技企业。
+据悉，商保创新药品目录调整同步开展，主要纳入超出“保基本”定位、暂时无法纳入基本目录，但创新程度高、临床价值大、患者获益显著且适保性强的创新药，推荐商业健康保险、医疗互助等多层次医疗保障体系参考使用。
 
 ## 相关推荐
 
-- 2026-06-29 13:12 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:56 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 13:07 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 13:04 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:13 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:02 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 13:11 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:09 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:05 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:01 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:11 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:53 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:17 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:06 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
+- 2026-06-29 13:11 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-29 13:15 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
+- 2026-06-29 13:10 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:52 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 13:09 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 13:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 13:18 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:13 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 12:54 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 12:51 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 12:55 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-29 12:51 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:56 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.blog.kurohicncr.top/Article/details/033235.shtml)
-- 2026-06-29 13:12 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](http://www.share.kurohicncr.top/Article/details/977260809.shtml)
-- 2026-06-29 13:01 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.blog.minike.top/Article/details/473685781.shtml)
-- 2026-06-29 13:09 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.kurohicncr.top/Article/details/96285435818.shtml)
-- 2026-06-29 12:51 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [光大证券，离头部券商越来越远](http://www.share.kurohicncr.top/Article/details/4366364925.shtml)
-- 2026-06-29 12:58 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.share.minike.top/Article/details/4992917.shtml)
-- 2026-06-29 12:51 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.blog.kurohicncr.top/Article/details/03171680571.shtml)
-- 2026-06-29 12:52 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.kurohicncr.top/Article/details/57772773.shtml)
-- 2026-06-29 12:51 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](http://www.blog.kurohicncr.top/Article/details/08404516.shtml)
-- 2026-06-29 13:05 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.blog.minike.top/Article/details/080508.shtml)
-- 2026-06-29 13:10 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.share.kurohicncr.top/Article/details/290189240889.shtml)
-- 2026-06-29 12:56 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.share.minike.top/Article/details/6729683.shtml)
+- 2026-06-29 12:53 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/2041579.shtml)
+- 2026-06-29 13:07 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/178552406.shtml)
+- 2026-06-29 12:55 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/5297978694.shtml)
+- 2026-06-29 13:19 - [两个教官【皮影人行动4.0】](https://www.blog.kurohicncr.top/Article/details/480846242.shtml)
+- 2026-06-29 13:01 - [功率半导体缺货涨价](http://www.blog.kurohicncr.top/Article/details/555454.shtml)
+- 2026-06-29 13:14 - [2025年人口增长10强城市出炉](https://www.share.kurohicncr.top/Article/details/91332.shtml)
+- 2026-06-29 13:15 - [事关个税 明日截止请抓紧办理](http://www.share.minike.top/Article/details/6330246.shtml)
+- 2026-06-29 12:52 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/4512817153.shtml)
+- 2026-06-29 13:06 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/3709958233.shtml)
+- 2026-06-29 12:58 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/590845603777.shtml)
+- 2026-06-29 12:58 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.share.minike.top/Article/details/47906190.shtml)
+- 2026-06-29 13:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/6745444.shtml)
+- 2026-06-29 13:19 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/924519443.shtml)
+- 2026-06-29 13:06 - [我们注定是一撮县城葱姜蒜](http://www.blog.kurohicncr.top/Article/details/266136774127.shtml)
+- 2026-06-29 12:56 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/2999023.shtml)

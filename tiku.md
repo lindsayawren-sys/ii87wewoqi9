@@ -1,51 +1,61 @@
-# 精神病医院炒股成为上市公司前十大股东？江西一医院最新回应
+# CoreWeave四季度增收不增利，疲软业绩指引致股价下挫
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月8日，针对“医院新晋升为某上市公司前十大股东”一事，江西上饶广丰区十五岭山精神病医院有限公司发布情况说明。 5月8日，网传我院“新晋升为某上市公司前十大股东”，现将相关情况说明如下：我院是一所二级精神病专科医院，为营利性民营医院，我院按照《中华人民共和国公司法》《中华人民共和国证券法》等相关规定，正常参
+CoreWeave（股票代码：CRWV）在公布了喜忧参半的第四季度财报后，其股价出现下跌。令人失望的业绩指引是导致股价下挫的主要原因。该季度营收达到20.8亿美元，超出预期的19.7亿美元，同比增长112%。 然而，公司调整后营业利润为2100万美元，低于华尔街预期的2400万美元，亦远低于去年同期的1.63亿美元。 第一季度，折旧与利息费用合计占CoreWeave总营收的81
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+CoreWeave（股票代码：CRWV）在公布了喜忧参半的第四季度财报后，其股价出现下跌。
 
-5月8日，针对“医院新晋升为某上市公司前十大股东”一事，江西上饶广丰区十五岭山精神病医院有限公司发布情况说明。
+令人失望的业绩指引是导致股价下挫的主要原因。
 
-5月8日，网传我院“新晋升为某上市公司前十大股东”，现将相关情况说明如下：我院是一所二级精神病专科医院，为营利性民营医院，我院按照《中华人民共和国公司法》《中华人民共和国证券法》等相关规定，正常参与资本市场行为。
+该季度营收达到20.8亿美元，超出预期的19.7亿美元，同比增长112%。
 
-感谢媒体朋友监督，也恳请广大网友不信谣、不传谣！
+然而，公司调整后营业利润为2100万美元，低于华尔街预期的2400万美元，亦远低于去年同期的1.63亿美元。
 
-责任编辑：凌辰
+第一季度，折旧与利息费用合计占CoreWeave总营收的81%，较第四季度的77%有所上升。
+
+财报发布之初，公司股价出现波动。
+
+随后，CoreWeave在财报电话会议上发布了低于预期的业绩指引，预计第二季度营收将在24.5亿至26亿美元之间，调整后营业利润在3000万至9000万美元之间，导致股价大幅下挫。
+
+在周五的盘前交易中，该公司股价下跌6.4%。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 13:04 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:13 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:04 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:02 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 13:05 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 13:17 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 13:06 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:16 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:12 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:03 - [高开低走，油脂后市何去何从？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 13:07 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 12:56 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-29 13:14 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 13:12 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 12:53 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-29 13:09 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
+- 2026-06-29 13:07 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 12:56 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 13:10 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-29 13:19 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 13:03 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:58 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 13:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 13:04 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gpbst.md)
+- 2026-06-29 13:04 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.kurohicncr.top/Article/details/996715.shtml)
-- 2026-06-29 12:50 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.share.minike.top/Article/details/727343.shtml)
-- 2026-06-29 13:15 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.share.minike.top/Article/details/1308567.shtml)
-- 2026-06-29 12:56 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.share.minike.top/Article/details/3281144.shtml)
-- 2026-06-29 13:07 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.blog.minike.top/Article/details/807650932825.shtml)
-- 2026-06-29 12:49 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.blog.minike.top/Article/details/3189446061.shtml)
-- 2026-06-29 12:52 - [财税专家：教育培训等行业应全额一次性申报纳税](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:13 - [《智能体规范应用与创新发展实施意见》答记者问](http://www.share.kurohicncr.top/Article/details/51556.shtml)
-- 2026-06-29 13:06 - [高盛：美图公司维持“买入”评级 目标价14.30港元](http://www.blog.minike.top/Article/details/8327016.shtml)
-- 2026-06-29 13:13 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](http://www.share.kurohicncr.top/Article/details/1614595.shtml)
-- 2026-06-29 12:51 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](http://www.share.kurohicncr.top/Article/details/604535.shtml)
-- 2026-06-29 12:53 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/85406927309.shtml)
+- 2026-06-29 13:09 - [黄金大跌带崩“黄金爱马仕”老铺黄金](https://www.share.minike.top/Article/details/48326.shtml)
+- 2026-06-29 13:11 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/267843469139.shtml)
+- 2026-06-29 13:16 - [欧洲多国激辩“装不装空调”](https://www.blog.kurohicncr.top/Article/details/57373516099.shtml)
+- 2026-06-29 13:18 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/766919675731.shtml)
+- 2026-06-29 13:02 - [大范围炎热天气将至](http://www.share.kurohicncr.top/Article/details/4335066965.shtml)
+- 2026-06-29 13:11 - [农业谣言岂能如此“变态”](http://www.blog.minike.top/Article/details/165714624.shtml)
+- 2026-06-29 12:50 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/693985.shtml)
+- 2026-06-29 13:16 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/19930008.shtml)
+- 2026-06-29 12:54 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/234753352.shtml)
+- 2026-06-29 12:54 - [下飞机后，我做了个很蠢的决定......](https://www.blog.kurohicncr.top/Article/details/46174.shtml)
+- 2026-06-29 13:10 - [如果你一直单身，你准备怎么养老？](https://www.blog.kurohicncr.top/Article/details/50225264619.shtml)
+- 2026-06-29 13:00 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.kurohicncr.top/Article/details/738067.shtml)
+- 2026-06-29 12:58 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/0201876.shtml)
+- 2026-06-29 12:51 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/640393985.shtml)

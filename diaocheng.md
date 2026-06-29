@@ -1,59 +1,59 @@
-# 纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”
+# 英国债券“义勇军”围击国债 斯塔默首相遭遇选举惨败
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-纽约房地产大亨、Related Companies创始人斯蒂芬·罗斯周四将纽约州民主党众议员泽兰·马姆达尼倡导的“向富人征税”口号比作“令人作呕的种族辱骂”，引发激烈争论。 罗斯在接受采访时表示，此类言论创造了一种不受欢迎的环境。他指出，纽约对财富的“敌视态度”正迫使企业及其领导人加倍押注阳光地带。罗斯的公司已将其总部从纽约迁至佛罗里达州西棕榈滩。“言论会产生后果，”罗斯说，“
+核心要点 地方议会选举初步结果周五出炉，英国执政党工党遭遇惨重失利，外界开始质疑斯塔默的首相职位能否保住。 近几周，债券市场义勇军（债券投资者）一直密切关注其政治命运，选举结果料将进一步加剧外界对工党党内可能罢免首相的猜测。 计票结果显示，工党数百名市议员落选，多个地方议会领导权易主。 此次选举结果不会改变威斯敏斯特议会席位及执政格局，但反映出选民对斯塔默领导能力的不满情绪正在
 
 ## 正文
 
-纽约房地产大亨、Related Companies创始人斯蒂芬·罗斯周四将纽约州民主党众议员泽兰·马姆达尼倡导的“向富人征税”口号比作“令人作呕的种族辱骂”，引发激烈争论。
+核心要点 地方议会选举初步结果周五出炉，英国执政党工党遭遇惨重失利，外界开始质疑斯塔默的首相职位能否保住。
 
-罗斯在接受采访时表示，此类言论创造了一种不受欢迎的环境。
+近几周，债券市场义勇军（债券投资者）一直密切关注其政治命运，选举结果料将进一步加剧外界对工党党内可能罢免首相的猜测。
 
-他指出，纽约对财富的“敌视态度”正迫使企业及其领导人加倍押注阳光地带。
+计票结果显示，工党数百名市议员落选，多个地方议会领导权易主。
 
-罗斯的公司已将其总部从纽约迁至佛罗里达州西棕榈滩。
+此次选举结果不会改变威斯敏斯特议会席位及执政格局，但反映出选民对斯塔默领导能力的不满情绪正在升温。
 
-“言论会产生后果，”罗斯说，“当你说‘向富人征税’和指责时，会产生令人不寒而栗的效果。
+市场普遍预计，执政党工党及主要反对党保守党均将遭遇重挫，右翼的英国改革党和左翼绿党或将大幅斩获席位。
 
-” 马姆达尼是一名民主社会主义者，在2025年纽约市市长竞选中以微弱劣势落败。
+据报道，工党后座议员（无内阁公职的议员）计划将选举失利归咎于斯塔默，并要求其辞职。
 
-他一直在推动对纽约市价值500万美元及以上的第二套住房征收新附加税，以及提高高收入者的所得税税率。
+斯塔默与财政大臣蕾切尔・里夫斯本就面临党内对财政政策的不满；而福利改革争议、以及任命彼得・曼德尔森担任美国大使一事，进一步撕裂党内关系（曼德尔森与已故性犯罪者爱泼斯坦存在关联）。
 
-他在社交媒体上回击罗斯称：“如果你拥有近40亿美元的财富，你会没事的。
+卫生大臣韦斯・斯蒂廷、前副首相安吉拉・雷纳、大曼彻斯特市长安迪・伯纳姆被视作接替斯塔默的热门人选。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 13:14 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 13:10 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:02 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 13:16 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:08 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 13:14 - [新疆加快打造全国优质农牧产品重要供给基地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:53 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 13:10 - [黄金周线有望录得上涨，或将突破箱体压力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:51 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:58 - [第48届东盟峰会在菲律宾举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:05 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:58 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 12:54 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 13:08 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 13:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 13:09 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 12:51 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 13:09 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 13:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 13:10 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-29 13:12 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-29 12:55 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-29 13:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 13:11 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 13:01 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.blog.kurohicncr.top/Article/details/98781472769.shtml)
-- 2026-06-29 13:12 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.blog.minike.top/Article/details/73415.shtml)
-- 2026-06-29 13:11 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.share.kurohicncr.top/Article/details/702492.shtml)
-- 2026-06-29 12:49 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.share.minike.top/Article/details/7185309531.shtml)
-- 2026-06-29 12:55 - [德银高管：美伊停战情境下 油价或下探每桶85美元](http://www.blog.kurohicncr.top/Article/details/655003778.shtml)
-- 2026-06-29 12:52 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](http://www.share.kurohicncr.top/Article/details/121596.shtml)
-- 2026-06-29 12:55 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](http://www.share.kurohicncr.top/Article/details/1425061945.shtml)
-- 2026-06-29 13:10 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](http://www.blog.minike.top/Article/details/367752.shtml)
-- 2026-06-29 12:57 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](http://www.blog.kurohicncr.top/Article/details/92096388010.shtml)
-- 2026-06-29 12:48 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](http://www.share.minike.top/Article/details/63229474.shtml)
-- 2026-06-29 13:11 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](http://www.blog.minike.top/Article/details/43398844110.shtml)
+- 2026-06-29 13:02 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.minike.top/Article/details/10627.shtml)
+- 2026-06-29 12:54 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/60367687133.shtml)
+- 2026-06-29 13:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/40626.shtml)
+- 2026-06-29 12:53 - [记者暗访贵州和云南多个养老机构](http://www.blog.minike.top/Article/details/5695183.shtml)
+- 2026-06-29 12:53 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/98352404876.shtml)
+- 2026-06-29 12:58 - [美人鱼](http://www.blog.minike.top/Article/details/792902031764.shtml)
+- 2026-06-29 13:01 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/91724.shtml)
+- 2026-06-29 13:07 - [退休化学教授帮医药研发人员制毒](http://www.share.kurohicncr.top/Article/details/3586504559.shtml)
+- 2026-06-29 13:02 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/08709.shtml)
+- 2026-06-29 12:57 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/78035338505.shtml)
+- 2026-06-29 13:12 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/171472227905.shtml)
+- 2026-06-29 13:02 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/7221358591.shtml)
+- 2026-06-29 13:14 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/72590217705.shtml)
+- 2026-06-29 12:56 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.blog.kurohicncr.top/Article/details/750951096124.shtml)
+- 2026-06-29 13:10 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/44744541697.shtml)

@@ -1,61 +1,60 @@
-# 恒润股份（603985）、双良节能（600481）投资者索赔均再提交法院立案
+# 德国商业银行高管表态：在意大利裕信银行收购博弈中捍卫股东权益
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月29日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。 许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资
+专题：聚焦美股2026年第一季度财报 核心要点 德国商业银行表示，对于意大利裕信银行试图增持股份、谋求取得这家德国同业控股权的举动，该行仍愿意与其展开磋商。 但该行首席执行官贝蒂娜・奥洛普称，收购方必须给出合理收购溢价，匹配本行具备发展前景的商业模式价值。 这家德国银行于周五公布一季度营业利润达 13.6 亿欧元。 德国商业银行首席执行官贝蒂娜・奥洛普周五表示，在与意大利裕信银
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：聚焦美股2026年第一季度财报 核心要点 德国商业银行表示，对于意大利裕信银行试图增持股份、谋求取得这家德国同业控股权的举动，该行仍愿意与其展开磋商。
 
-2026年4月29日，上海久诚律师事务所股票索赔律师许峰代理的恒润股份（维权）（603985）股票被操纵引发的投资者索赔案再向南京市中级人民法院提交一次立案。
+但该行首席执行官贝蒂娜・奥洛普称，收购方必须给出合理收购溢价，匹配本行具备发展前景的商业模式价值。
 
-许峰律师代理的恒润股份操纵市场民事索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+这家德国银行于周五公布一季度营业利润达 13.6 亿欧元。
 
-（许峰律师专栏） 2024年12月6日，证监会对江阴市恒润重工股份有限公司第二大股东、法定代表人、董事长承立新等作出行政处罚。
+德国商业银行首席执行官贝蒂娜・奥洛普周五表示，在与意大利裕信银行持续的收购争夺战中，该行将全力维护股东利益。
 
-许峰律师认为，在2023年7月10日到12月27日期间交易恒润股份股票而受损的投资者，目前还可发起索赔，最终索赔条件法院依法认定。
+奥洛普做客美国消费者新闻与商业频道《欧洲财经早间秀》节目时称，德国商业银行并不拒绝与裕信银行继续谈判，但她强调，这家总部位于米兰的银行在新一轮洽谈中，必须认可德商银行稳健且具备成长性的独立经营战略优势。
 
-许峰律师此前已代理匹凸匹投资者索赔鲜言操纵民事赔偿案、已代理文峰股份投资者索赔徐翔、文峰股份等操纵民事赔偿获得过胜诉判决。
+德国商业银行一季度财报显示，当期营业利润达 13.6 亿欧元（折合 16 亿美元）；同时设定目标：到 2030 年有形股本净回报率达到 21%，预计 2026 年净利息收入约 86 亿欧元。
 
-（恒润股份维权入口） 除了恒润股份操纵索赔案再次提交法院立案，2026年5月8日，许峰律师代理的双良节能（维权）（600481）投资者索赔案也再提交南京市中级人民法院立案，此前已提交过立案，目前正在等待法院的下一步安排，律师团队同步也还在继续接受其他投资者的索赔委托。
+为达成业绩目标，该行还计划裁员约 3000 人。
 
-2026年4月3日晚，双良节能公告公司及双良集团于2026年3月22日收到证监会江苏监管局下发的《行政处罚决定书》，经查明，双良节能涉嫌存在以下违法事实： 2026年2月12日13时02分，“双良集团”微信公众号发布题为《双良节能再获海外订单，助力商业航天太空探索》的文章；13时25分，“双良节能”微信公众号发布相同标题及内容的文章。
+早盘交易时段，德国商业银行股价下跌 2.6%，裕信银行股价下跌 1.9%。
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:15 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:03 - [华尔街新型NACHO 交易押注石油冲击将长期持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:58 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:48 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:51 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 13:11 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:48 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:59 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:16 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 13:00 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:52 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:54 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 13:14 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:54 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 13:19 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-29 13:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-29 12:51 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-29 12:59 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 13:16 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 13:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 13:18 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 13:09 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 12:53 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 13:04 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 13:19 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 12:55 - [特斯拉FSD全面转向订阅制，国内港澳台地区买断版 6 月 30 日后下架，两种模式长期成本差距有多大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 12:54 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 13:16 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.minike.top/Article/details/287311947107.shtml)
-- 2026-06-29 13:09 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.blog.kurohicncr.top/Article/details/9686099.shtml)
-- 2026-06-29 13:08 - [预防心梗，这些不良习惯需警惕](http://www.share.kurohicncr.top/Article/details/112849641902.shtml)
-- 2026-06-29 13:02 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [妈妈，我想对你说](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.blog.minike.top/Article/details/0724534488.shtml)
-- 2026-06-29 13:03 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.share.minike.top/Article/details/13154863255.shtml)
-- 2026-06-29 13:08 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.share.minike.top/Article/details/893707737.shtml)
-- 2026-06-29 13:06 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.blog.minike.top/Article/details/7259940860.shtml)
-- 2026-06-29 13:13 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](http://www.share.kurohicncr.top/Article/details/4601504218.shtml)
-- 2026-06-29 13:08 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.share.kurohicncr.top/Article/details/2438663197.shtml)
-- 2026-06-29 13:03 - [AI时代，全球教育正面临三层重塑](http://www.blog.minike.top/Article/details/46202.shtml)
-- 2026-06-29 13:10 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.share.minike.top/Article/details/88028066.shtml)
-- 2026-06-29 12:57 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.share.kurohicncr.top/Article/details/32505275254.shtml)
+- 2026-06-29 12:59 - [初心如磐 红色足迹](http://www.blog.minike.top/Article/details/49602.shtml)
+- 2026-06-29 12:52 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/6973499.shtml)
+- 2026-06-29 13:06 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/26891.shtml)
+- 2026-06-29 12:52 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.minike.top/Article/details/676807428.shtml)
+- 2026-06-29 12:55 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/75874480.shtml)
+- 2026-06-29 12:53 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/735370.shtml)
+- 2026-06-29 12:50 - [行程万里不忘初心](https://www.blog.kurohicncr.top/Article/details/254026250.shtml)
+- 2026-06-29 13:10 - [韩国队启程回国众将回避镜头](http://www.share.minike.top/Article/details/361588060.shtml)
+- 2026-06-29 12:54 - [埃博拉为何再次袭击非洲](https://www.share.minike.top/Article/details/754589.shtml)
+- 2026-06-29 13:12 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/22166.shtml)
+- 2026-06-29 12:52 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/9065265.shtml)
+- 2026-06-29 13:03 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/029561740.shtml)
+- 2026-06-29 12:59 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.minike.top/Article/details/4115715.shtml)
+- 2026-06-29 12:58 - [女心理师](http://www.share.minike.top/Article/details/072836078243.shtml)
+- 2026-06-29 12:53 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/64116171820.shtml)

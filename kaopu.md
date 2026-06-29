@@ -1,54 +1,61 @@
-# 第48届东盟峰会在菲律宾举行
+# 优品引流次品赚差价 业内人士揭秘电商“AB货”套路
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-新华社马尼拉5月8日电(记者赵晨捷 郭依格)第48届东盟峰会8日在菲律宾宿务省举行，会议聚焦能源安全、粮食安全、世界各地东盟民众的安全、经济合作等议题。 东盟轮值主席国菲律宾总统马科斯称，中东局势日益动荡冲击了东盟国家，民众的生活方式、生计和生命受到威胁，此次峰会在一个充满挑战的时刻举行。 峰会期间，与会东盟国家领导人围绕海事合作、灾害应对、支持东帝汶全面融入东盟等议题进行了磋
+同一款商品、同一个链接、寄到一线城市的是热门款、正品货，而县城乡镇收到的却是滞销版、伪劣品……这不是什么恶搞段子，而是不少消费者的真实网购遭遇。这种商家针对同一售价、同一链接的商品，混发质量、做工或材质存在明显差异的版本做法，也被称为“AB货”现象。其中，“A货”为优质正品，“B货”则是成本低、质量有瑕疵的商品，甚至是残次品或滞销品。一些商家为何会如此肆无忌惮？这样的做法是否违
 
 ## 正文
 
-新华社马尼拉5月8日电(记者赵晨捷 郭依格)第48届东盟峰会8日在菲律宾宿务省举行，会议聚焦能源安全、粮食安全、世界各地东盟民众的安全、经济合作等议题。
+同一款商品、同一个链接、寄到一线城市的是热门款、正品货，而县城乡镇收到的却是滞销版、伪劣品……这不是什么恶搞段子，而是不少消费者的真实网购遭遇。
 
-东盟轮值主席国菲律宾总统马科斯称，中东局势日益动荡冲击了东盟国家，民众的生活方式、生计和生命受到威胁，此次峰会在一个充满挑战的时刻举行。
+这种商家针对同一售价、同一链接的商品，混发质量、做工或材质存在明显差异的版本做法，也被称为“AB货”现象。
 
-峰会期间，与会东盟国家领导人围绕海事合作、灾害应对、支持东帝汶全面融入东盟等议题进行了磋商，并通过了相关文件。
+其中，“A货”为优质正品，“B货”则是成本低、质量有瑕疵的商品，甚至是残次品或滞销品。
 
-东盟峰会一般每年召开两次，上半年和下半年各一次。
+一些商家为何会如此肆无忌惮？
 
-东盟成立于1967年，现成员国包括印度尼西亚、泰国、新加坡、菲律宾、文莱、马来西亚、越南、老挝、柬埔寨、缅甸和东帝汶11国。
+这样的做法是否违法？
 
-在2025年10月举办的第47届东盟峰会上，东帝汶正式成为东盟成员国。
+记者在社交平台检索发现，不少消费者发帖反映遇到过商家发“AB货”的情况。
+
+在电商平台上，同一链接、同一个用户下单，仅仅因为收货地址不同，商家发出的货品质量截然不同。
+
+一位消费者展示，在同一网店下了两单凤梨，发往北京城区的果实成熟饱满，而寄往河北农村的却青黑干瘪。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 13:11 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 12:59 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:05 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:05 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 13:09 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:58 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:50 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 13:12 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:53 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 13:07 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 13:02 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 13:16 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 12:56 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 13:13 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 13:09 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
+- 2026-06-29 12:58 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 13:10 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-29 13:03 - [马杜罗社交媒体账号再发文](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 13:06 - [大罗力挺内马尔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 13:00 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cangua.md)
+- 2026-06-29 12:57 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-29 12:53 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
+- 2026-06-29 13:08 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 13:14 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 13:13 - [复盘葡萄牙逼平哥伦比亚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-29 13:19 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [普京发表阅兵演讲：俄正基于实战经验研制现代化武器](http://www.blog.minike.top/Article/details/97884.shtml)
-- 2026-06-29 13:06 - [强军思想育新人丨“翀”上云霄](http://www.blog.kurohicncr.top/Article/details/86498.shtml)
-- 2026-06-29 13:05 - [固生堂于5月8日斥资158.17万港元回购5.43万股](http://www.blog.kurohicncr.top/Article/details/64364.shtml)
-- 2026-06-29 13:14 - [全线上涨，近8万人爆仓！美国炼油厂，突发爆炸！](http://www.share.kurohicncr.top/Article/details/91354018058.shtml)
-- 2026-06-29 13:10 - [任天堂将上调Switch 2价格 预计其销量将下滑](http://www.blog.kurohicncr.top/Article/details/246274614706.shtml)
-- 2026-06-29 13:11 - [陕西宝鸡：江海之上造 “宝桥”](http://www.blog.kurohicncr.top/Article/details/368166.shtml)
-- 2026-06-29 13:17 - [以“无我”境界成“有我”之业](http://www.blog.kurohicncr.top/Article/details/87064173.shtml)
-- 2026-06-29 13:16 - [李强主持召开国务院常务会议](http://www.share.minike.top/Article/details/422407071.shtml)
-- 2026-06-29 13:16 - [探访全球首座储能电池"灯塔工厂" 揭秘一颗电芯的诞生](http://www.share.kurohicncr.top/Article/details/964517225.shtml)
-- 2026-06-29 12:58 - [35家保险资管2025年业绩透视：华安资产、合众资产、华夏久盈等8家营收、净利“双降”](http://www.share.minike.top/Article/details/278689592151.shtml)
-- 2026-06-29 13:05 - [*ST天喻领正式被罚，已有案件递交立案](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [长三角初夏“热情”高涨 多地最高温冲刺35℃](http://www.blog.minike.top/Article/details/507930968.shtml)
-- 2026-06-29 13:05 - [1亿现金失踪，股权全部被冻结，涉诉16亿：ST喜临门的雷，比想象更严重](http://www.blog.minike.top/Article/details/237244944.shtml)
-- 2026-06-29 12:51 - [一季度广州海关关区出口锂电池52.2亿元 同比增长超2倍](http://www.blog.minike.top/Article/details/08899260798.shtml)
-- 2026-06-29 13:07 - [CoreWeave二季度营收指引不及预期，周五盘前下跌6.5%](http://www.blog.kurohicncr.top/Article/details/545193637.shtml)
+- 2026-06-29 12:59 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/619064014.shtml)
+- 2026-06-29 13:16 - [普京称俄处于命运攸关之际](http://www.blog.kurohicncr.top/Article/details/9103457.shtml)
+- 2026-06-29 12:50 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/614259890.shtml)
+- 2026-06-29 13:00 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/147368.shtml)
+- 2026-06-29 13:13 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/559919334.shtml)
+- 2026-06-29 13:01 - [女生雨天开车发现雨刮条被掰走](https://www.share.kurohicncr.top/Article/details/5249427362.shtml)
+- 2026-06-29 12:54 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/74564163065.shtml)
+- 2026-06-29 13:03 - [第一炉香](http://www.share.minike.top/Article/details/96823.shtml)
+- 2026-06-29 13:10 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/43072.shtml)
+- 2026-06-29 13:04 - [谢霆锋演唱会变大型呲水现场](https://www.blog.minike.top/Article/details/043887.shtml)
+- 2026-06-29 13:19 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/053996161175.shtml)
+- 2026-06-29 13:16 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/225981261002.shtml)
+- 2026-06-29 12:51 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/606673280.shtml)
+- 2026-06-29 13:02 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/08301.shtml)
+- 2026-06-29 12:53 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/316577282693.shtml)

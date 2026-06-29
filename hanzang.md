@@ -1,58 +1,60 @@
-# 汉坦病毒如何让Moderna重成“必持”股票
+# 国泰基金：投资运作违规被罚 多只产品大幅跑输基准仍高收费
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-随着邮轮疫情的发酵和全球对该病毒的关注升温，此前在投资者视野中逐渐黯淡的Moderna正重新成为市场关注的焦点。公共卫生事件的发酵叠加公司技术平台的新叙事，正在改写这家生物科技公司的投资逻辑。 疫情催化疫苗需求 自“宏迪乌斯号”邮轮爆发疫情以来，全球确诊及疑似病例持续增加。尽管世界卫生组织目前评估全球公共健康风险仍为“低”，但韩国、美国和欧洲部分国家已启动病毒监测预案。传染病的
+来源：面包财经 编者按：公募基金行业在监管“长牙带刺”、推动高质量发展的大背景下，进入了强监管、严问责的时期。去年至今，共有超过25家公募基金管理人被监管部门处罚。 面包财经基于信披数据，分批透视主要基金公司相关事宜。本篇案例为国泰基金。 据近期公告披露，2025年5月，国泰基金因投资运作违规被中国证监会上海监管局采取责令改正的行政监管措施。 除自身合规管理存在漏洞外，国泰基金
 
 ## 正文
 
-随着邮轮疫情的发酵和全球对该病毒的关注升温，此前在投资者视野中逐渐黯淡的Moderna正重新成为市场关注的焦点。
+来源：面包财经 编者按：公募基金行业在监管“长牙带刺”、推动高质量发展的大背景下，进入了强监管、严问责的时期。
 
-公共卫生事件的发酵叠加公司技术平台的新叙事，正在改写这家生物科技公司的投资逻辑。
+去年至今，共有超过25家公募基金管理人被监管部门处罚。
 
-疫情催化疫苗需求 自“宏迪乌斯号”邮轮爆发疫情以来，全球确诊及疑似病例持续增加。
+面包财经基于信披数据，分批透视主要基金公司相关事宜。
 
-尽管世界卫生组织目前评估全球公共健康风险仍为“低”，但韩国、美国和欧洲部分国家已启动病毒监测预案。
+本篇案例为国泰基金。
 
-传染病的传播再次引发市场对大流行病防范疫苗储备的关注，而mRNA技术在快速响应新型病毒方面的优势再次凸显。
+据近期公告披露，2025年5月，国泰基金因投资运作违规被中国证监会上海监管局采取责令改正的行政监管措施。
 
-Moderna的汉坦病毒候选疫苗 Moderna是目前唯一拥有进入临床阶段的mRNA汉坦病毒疫苗的大型生物科技公司。
+除自身合规管理存在漏洞外，国泰基金旗下部分产品同时暴露出业绩低迷等问题。
 
-该公司与韩国大学合作研发的候选疫苗已完成多项临床前研究，若获得紧急使用授权或纳入政府战略储备，可能为公司带来数十亿美元的收入机会。
+根据《基金管理公司绩效考核管理指引》中关于薪酬与业绩挂钩的硬性规定，国泰价值领航A等产品已触发降薪红线。
 
-虽然该疫苗距离上市仍有数年之遥，且目前因资金问题搁置，但新一轮疫情的扩散可能促使监管机构加快审批或拨款进程。
+同时，这些产品仍收取1.2%的管理费率。
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:01 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:55 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:56 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:57 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 13:12 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:49 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 13:16 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:17 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:51 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:48 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:02 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-29 12:58 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 13:12 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 12:55 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 13:18 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 13:06 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 13:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 13:13 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 13:00 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 12:51 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 12:58 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 13:09 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 13:04 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 13:19 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [“情书”里的爆款创作密码](http://www.share.kurohicncr.top/Article/details/87267165066.shtml)
-- 2026-06-29 13:09 - [下周A股还能涨吗？这两件事，请股民重点关注](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [金风科技截至4月末累计回购1万股H股](http://www.blog.kurohicncr.top/Article/details/8092739.shtml)
-- 2026-06-29 13:05 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.blog.kurohicncr.top/Article/details/80210585141.shtml)
-- 2026-06-29 12:56 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](http://www.blog.minike.top/Article/details/332282918137.shtml)
-- 2026-06-29 13:06 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.share.kurohicncr.top/Article/details/73557838831.shtml)
-- 2026-06-29 12:51 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.blog.kurohicncr.top/Article/details/5448734.shtml)
-- 2026-06-29 12:54 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.kurohicncr.top/Article/details/67622238773.shtml)
-- 2026-06-29 13:01 - [福建省“环戴云山”OPC联盟在德化成立](http://www.blog.kurohicncr.top/Article/details/347896.shtml)
-- 2026-06-29 12:56 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](http://www.share.kurohicncr.top/Article/details/483394362.shtml)
-- 2026-06-29 13:10 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.share.minike.top/Article/details/046242699.shtml)
-- 2026-06-29 12:59 - [《主角》从文坛到荧屏：一曲秦腔半生沉浮](http://www.blog.kurohicncr.top/Article/details/12597.shtml)
-- 2026-06-29 12:50 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.blog.minike.top/Article/details/94050.shtml)
-- 2026-06-29 13:13 - [中远海发于5月8日斥资408.85万元回购150万股A股](http://www.blog.kurohicncr.top/Article/details/80903520.shtml)
-- 2026-06-29 13:11 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](http://www.blog.kurohicncr.top/Article/details/93238804.shtml)
+- 2026-06-29 13:13 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/60227975079.shtml)
+- 2026-06-29 13:11 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/881153.shtml)
+- 2026-06-29 13:02 - [一生一世](http://www.blog.kurohicncr.top/Article/details/7654587.shtml)
+- 2026-06-29 13:01 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/27063254930.shtml)
+- 2026-06-29 13:13 - [美人鱼](http://www.share.kurohicncr.top/Article/details/824258887.shtml)
+- 2026-06-29 12:55 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/6417362.shtml)
+- 2026-06-29 12:52 - [青春环游记第三季](http://www.blog.minike.top/Article/details/155741.shtml)
+- 2026-06-29 12:50 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/8968639109.shtml)
+- 2026-06-29 13:08 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/0519400112.shtml)
+- 2026-06-29 13:17 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/22353438735.shtml)
+- 2026-06-29 13:16 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/15602119.shtml)
+- 2026-06-29 13:03 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/813428477.shtml)
+- 2026-06-29 12:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/466207492089.shtml)
+- 2026-06-29 12:51 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/123109842.shtml)
+- 2026-06-29 13:02 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/40141840988.shtml)

@@ -1,57 +1,60 @@
-# “我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正
+# 合合信息梁子攸：可信金融智能体——以多模态文档解析与商业大数据构筑专业壁垒
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。#OPPO 文案价值观#也登上了微博热搜。 据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。”文案本意是为表达“是温柔妈妈，也是
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。合合信息智能解决方案事业部解决方案专家梁子攸出席并以《可信金融智能体：以多模态文档解析与商业大数据构筑专业壁垒》为题发表演讲。 以下为演讲实录： 梁子攸：尊敬的各位领导、各位来宾，大家下午好，我是来自合合信息智能解决方案事业部解决方案的梁子攸，今天下午听到了很多专家和行业
 
 ## 正文
 
-新浪科技讯 5月8日下午消息，母亲节临近，OPPO官微今日发布一则母亲节文案，不过配图中的“我妈有两个老公”的措辞引发争议，被网友质疑价值观不正。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-#OPPO 文案价值观#也登上了微博热搜。
+合合信息智能解决方案事业部解决方案专家梁子攸出席并以《可信金融智能体：以多模态文档解析与商业大数据构筑专业壁垒》为题发表演讲。
 
-据悉，在OPPO文案的配图中，有一张追星的图片，配文是“我妈有两个‘老公’，一个是我爸，另一个一年见两回。
+以下为演讲实录： 梁子攸：尊敬的各位领导、各位来宾，大家下午好，我是来自合合信息智能解决方案事业部解决方案的梁子攸，今天下午听到了很多专家和行业老师做的分享，我今天分享的主题是《可信金融智能体：以多模态文档解析与商业大数据构筑专业壁垒》。
 
-跟我爸约会基本不打扮，见另一个，她恨不得穿婚纱。
+作为一家科技公司，刚才大家都已经提到了AI的进展越来越快，技术发展越来越快，到底会对我们的行业产生什么样的影响？
 
-”文案本意是为表达“是温柔妈妈，也是追星女孩”的主题，但相关措辞引发网友吐槽，认为容易引发歧义，涉嫌违背公序良俗。
+刚才各位专家都已经总结了很多，我不做过多的赘述。
 
-引发争议后，目前该文案对外已不可见。
+我换一个视角，作为一家科技公司，对金融行业提供了大量的支撑和相关能力的落地，我们到底是怎么看待AI和行业现在的关系？
 
-今日下午，OPPO官微再次发布了一则新的母亲节文案，但在网友们的吐槽声中，该文案开启了评论精选。
+我们总结了三个点： 一是从工具走向业务，我相信大家对我们有了解，应该知道合合信息原来是做OCR起家的，有很多客户一开始就买我们的识别能力，我们在系统建设和信息化、数字化转型之中的其中一个基础能力，其实在这个过程中，我们就发现了，在这个业务流中，购买我们的OCR能力的客户，到底要识别之后去做什么？
 
-针对此事，截至发稿前，OPPO官方暂无回应。
+看的核心内容到底和你的业务是怎么样的挂钩？
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 13:12 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:09 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:57 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:56 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:03 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:09 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 12:52 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:15 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:53 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:57 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:07 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
+- 2026-06-29 13:18 - [张一山说杨紫早该拿奖了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 13:04 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 13:01 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 13:03 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 12:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 13:00 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-29 13:01 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-29 13:00 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 13:17 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 13:06 - [农业谣言岂能如此“变态”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 12:55 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
+- 2026-06-29 13:16 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 13:00 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.blog.minike.top/Article/details/22747.shtml)
-- 2026-06-29 13:17 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.blog.minike.top/Article/details/46370.shtml)
-- 2026-06-29 12:51 - [光大证券，离头部券商越来越远](http://www.blog.minike.top/Article/details/8061413711.shtml)
-- 2026-06-29 12:57 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.kurohicncr.top/Article/details/793898988152.shtml)
-- 2026-06-29 13:05 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.blog.minike.top/Article/details/914074429.shtml)
-- 2026-06-29 13:06 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.share.minike.top/Article/details/099502381.shtml)
-- 2026-06-29 12:51 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.kurohicncr.top/Article/details/63822898.shtml)
-- 2026-06-29 13:13 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [工信部启动人工智能科技伦理审查与服务先导计划](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.blog.minike.top/Article/details/3374759221.shtml)
-- 2026-06-29 13:09 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.blog.kurohicncr.top/Article/details/79405238224.shtml)
-- 2026-06-29 13:11 - [《智能体规范应用与创新发展实施意见》答记者问](http://www.share.minike.top/Article/details/337118798313.shtml)
+- 2026-06-29 12:58 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/430849.shtml)
+- 2026-06-29 13:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/05822.shtml)
+- 2026-06-29 13:13 - [世界杯打成了欧洲杯和美洲杯](http://www.blog.kurohicncr.top/Article/details/23981.shtml)
+- 2026-06-29 13:11 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/0627351.shtml)
+- 2026-06-29 12:55 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/631857719265.shtml)
+- 2026-06-29 12:50 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/63659.shtml)
+- 2026-06-29 12:58 - [如果你一直单身，你准备怎么养老？](https://www.blog.minike.top/Article/details/430612259.shtml)
+- 2026-06-29 13:19 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/067874084.shtml)
+- 2026-06-29 13:04 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/2030964887.shtml)
+- 2026-06-29 13:00 - [大罗力挺内马尔](http://www.blog.minike.top/Article/details/07009792755.shtml)
+- 2026-06-29 12:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/3150958989.shtml)
+- 2026-06-29 13:13 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/05021.shtml)
+- 2026-06-29 13:10 - [广州某高校辟谣禁止小米汽车入校](https://www.share.minike.top/Article/details/8005858942.shtml)
+- 2026-06-29 13:07 - [小娘惹](http://www.share.minike.top/Article/details/050162407.shtml)
+- 2026-06-29 13:05 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/74219552.shtml)

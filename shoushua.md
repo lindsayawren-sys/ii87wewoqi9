@@ -1,60 +1,61 @@
-# 白俄罗斯纪念苏联伟大卫国战争胜利81周年
+# 美国称打击两艘试图突破封锁的伊朗油轮
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-新华社明斯克5月9日电(记者陈汀)白俄罗斯各地9日举办献花、展览等活动，纪念苏联伟大卫国战争胜利81周年。 在首都明斯克的胜利广场，白俄罗斯社会各界代表数千人向胜利纪念碑和长明火献花，表达对二战先烈的敬意和缅怀。明斯克郊外的光荣岗举办二战时期的老物件展，带领观众回溯历史。莫吉廖夫市举办中学生“胜利华尔兹舞会”，用青春舞步缅怀先烈、庆祝胜利。戈梅利市在列宁广场举办阅兵式，纪念为白
+美国军方表示，周五在阿曼湾打击了两艘悬挂伊朗国旗的空载油轮，阻止了这两艘船只违反美国海军封锁进入伊朗港口。 美国中央司令部在一份声明中称，一架美国战斗机“向两艘油轮的烟囱发射精确制导弹药，使其失去动力”。声明中附带了两次打击的解密视频。 此次袭击是本周一系列军事行动中的最新一起，进一步破坏了美国与伊朗之间本就脆弱的停火协议，尽管特朗普总统坚称临时休战仍然有效。 美伊周四已在霍尔
 
 ## 正文
 
-新华社明斯克5月9日电(记者陈汀)白俄罗斯各地9日举办献花、展览等活动，纪念苏联伟大卫国战争胜利81周年。
+美国军方表示，周五在阿曼湾打击了两艘悬挂伊朗国旗的空载油轮，阻止了这两艘船只违反美国海军封锁进入伊朗港口。
 
-在首都明斯克的胜利广场，白俄罗斯社会各界代表数千人向胜利纪念碑和长明火献花，表达对二战先烈的敬意和缅怀。
+美国中央司令部在一份声明中称，一架美国战斗机“向两艘油轮的烟囱发射精确制导弹药，使其失去动力”。
 
-明斯克郊外的光荣岗举办二战时期的老物件展，带领观众回溯历史。
+声明中附带了两次打击的解密视频。
 
-莫吉廖夫市举办中学生“胜利华尔兹舞会”，用青春舞步缅怀先烈、庆祝胜利。
+此次袭击是本周一系列军事行动中的最新一起，进一步破坏了美国与伊朗之间本就脆弱的停火协议，尽管特朗普总统坚称临时休战仍然有效。
 
-戈梅利市在列宁广场举办阅兵式，纪念为白俄罗斯独立和自由牺牲的英烈。
+美伊周四已在霍尔木兹海峡相互开火，但双方均称对方先开火。
 
-据白俄罗斯总统网站消息，白俄罗斯总统卢卡申科当天在胜利日贺词中表示，对于每个白俄罗斯人来说，1945年5月9日永远是神圣的日子，它纪念着先辈的伟大壮举。
+特朗普对ABC新闻表示，那些打击“只是一次小警告”。
 
-白俄罗斯越来越认识到其有责任维护全球脆弱和平，避免悲剧再次发生。
+他随后在Truth Social上重申，如果伊朗不同意达成核协议，将面临进一步打击。
 
-他呼吁所有国家进行对话而非冲突，致力于发展而非破坏，为了后代的幸福未来保护伟大胜利遗产。
+自2月28日战争爆发以来，这条通常承载全球20%石油贸易的海峡已成为关键的军事和经济战场。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:52 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 13:03 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 13:13 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 13:16 - [社评：中国的“Country Walk”何以吸引西方年轻人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:00 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:50 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 13:12 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:48 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 13:13 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:06 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 12:50 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:56 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 13:18 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 13:10 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 12:56 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 13:03 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 12:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
+- 2026-06-29 12:55 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 13:08 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 13:17 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-29 12:57 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 12:57 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 13:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 12:51 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-29 13:05 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-29 13:03 - [委内瑞拉强震致中国公民8遇难1失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 13:08 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 13:11 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [一双跑鞋炒至5000美元，12000件夹克27分钟抢空：阿迪达斯股东大会传递了什么？](http://www.share.kurohicncr.top/Article/details/4690142.shtml)
-- 2026-06-29 12:49 - [酒价内参5月8日价格发布：五粮液1618上涨2元/瓶](http://www.blog.kurohicncr.top/Article/details/44405106.shtml)
-- 2026-06-29 13:17 - [“情书”里的爆款创作密码](http://www.share.minike.top/Article/details/90648830.shtml)
-- 2026-06-29 13:08 - [下周A股还能涨吗？这两件事，请股民重点关注](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [金风科技截至4月末累计回购1万股H股](http://www.blog.kurohicncr.top/Article/details/70331.shtml)
-- 2026-06-29 12:57 - [今年开分最高的国产电影，每一件道具都是华侨的情书](http://www.share.kurohicncr.top/Article/details/354896245.shtml)
-- 2026-06-29 12:54 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](http://www.share.kurohicncr.top/Article/details/396421041.shtml)
-- 2026-06-29 13:07 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.share.minike.top/Article/details/73451808322.shtml)
-- 2026-06-29 13:08 - [泰柬领导人在菲律宾讨论两国边境局势](http://www.blog.kurohicncr.top/Article/details/0606874.shtml)
-- 2026-06-29 13:17 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:16 - [福建省“环戴云山”OPC联盟在德化成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:11 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](http://www.blog.minike.top/Article/details/35820.shtml)
-- 2026-06-29 13:11 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.blog.minike.top/Article/details/518354627968.shtml)
-- 2026-06-29 13:03 - [《主角》从文坛到荧屏：一曲秦腔半生沉浮](http://www.blog.minike.top/Article/details/1050663047.shtml)
-- 2026-06-29 13:09 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/16724815.shtml)
+- 2026-06-29 13:01 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/739366019450.shtml)
+- 2026-06-29 12:59 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/61809583757.shtml)
+- 2026-06-29 12:57 - [T1对战KC](https://www.share.kurohicncr.top/Article/details/5509519.shtml)
+- 2026-06-29 13:02 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/65517931.shtml)
+- 2026-06-29 13:16 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/41284964841.shtml)
+- 2026-06-29 13:19 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/48311125.shtml)
+- 2026-06-29 12:52 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.minike.top/Article/details/2614966385.shtml)
+- 2026-06-29 13:10 - [三星与SK集团或将投资2000万亿韩元](http://www.share.minike.top/Article/details/783141301702.shtml)
+- 2026-06-29 13:09 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/08136.shtml)
+- 2026-06-29 13:01 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.kurohicncr.top/Article/details/7006005.shtml)
+- 2026-06-29 12:57 - [天津打雷](http://www.blog.minike.top/Article/details/876723204967.shtml)
+- 2026-06-29 13:14 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/88074.shtml)
+- 2026-06-29 12:54 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/688810.shtml)
+- 2026-06-29 13:17 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/6306487.shtml)

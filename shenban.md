@@ -1,60 +1,55 @@
-# 日本法律界人士：日政府修改和平宪法将加剧东亚紧张局势
+# 亿都国际控股午后涨超12% 香港宽频推出AI+国产算力平台
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-针对日本政府持续扩大防卫预算、推进安保政策调整以及鼓吹修改和平宪法、强化军备扩张等动向，日本法律界人士表示，日本政府的相关政策将加剧东亚地区紧张局势，并破坏亚洲国家对日本的信任。 日本律师 杉浦瞳：随着(日本)防卫费增加，其他领域(的预算)就会被迫压缩，比如福利、教育或者地方的灾后重建等等。更大的问题在于，加强军备究竟会对周边国家造成怎样的影响？(日本政府)把大量资金投入军备，
+亿都国际控股（00259）午后一度涨近17%，截至发稿，股价上涨12.36%，现报3.91港元，成交额1143.70万港元。 香港宽频宣布推出“Al+国产算力平台”，并与亿都国际旗下算丰信息及天仪智科签署协议，于数码港数据中心布局国产算力基建。 据悉，香港宽频将投入1亿元，用于整合本地网络基础设施及算力资源，以回应企业对智能算力的持续增长需求。平台将引进沐曦及壁仞科技的算力资源
 
 ## 正文
 
-针对日本政府持续扩大防卫预算、推进安保政策调整以及鼓吹修改和平宪法、强化军备扩张等动向，日本法律界人士表示，日本政府的相关政策将加剧东亚地区紧张局势，并破坏亚洲国家对日本的信任。
+亿都国际控股（00259）午后一度涨近17%，截至发稿，股价上涨12.36%，现报3.91港元，成交额1143.70万港元。
 
-日本律师 杉浦瞳：随着(日本)防卫费增加，其他领域(的预算)就会被迫压缩，比如福利、教育或者地方的灾后重建等等。
+香港宽频宣布推出“Al+国产算力平台”，并与亿都国际旗下算丰信息及天仪智科签署协议，于数码港数据中心布局国产算力基建。
 
-更大的问题在于，加强军备究竟会对周边国家造成怎样的影响？
+据悉，香港宽频将投入1亿元，用于整合本地网络基础设施及算力资源，以回应企业对智能算力的持续增长需求。
 
-(日本政府)把大量资金投入军备，只会让周边国家感到危险。
+平台将引进沐曦及壁仞科技的算力资源。
 
-再加上日本本来就是曾经发动过战争的国家，这样做会破坏亚洲国家对日本的信任。
+集团总裁及营运总裁叶成辉表示，观察到目前大环境的Token使用量都有上升趋势，未来绝对有可能增加投资。
 
-所以对于(日本政府)扩大防卫费这件事，我是强烈反对的。
-
-杉浦瞳认为，日本应坚持和平宪法，不应依赖强化军备来寻求安全感。
-
-日本律师 杉浦瞳：在东亚地区，很大程度上正是因为日本拥有宪法第九条，是一个“不发动战争的国家”，日本才能够获得信任。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:56 - [特斯拉与亚马逊有望领涨工业板块](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:48 - [一季度险资“扫货”超40亿股 落到了哪些股票“头上”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:52 - [中国银行董事长葛海蛟出席2026中韩工商领导人经济会议系列活动并在上海开展工作调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:03 - [北京科博会展示低空经济新成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 13:04 - [我国百余家单位将共建“太空云”生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:58 - [朝“问”健康：父母健康 孩子就不会得“地贫”吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 13:10 - [恒润股份（603985）、双良节能（600481）投资者索赔均再提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 13:03 - [冰雪为媒携手四十载 中加双城合作续新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:56 - [OpenAI的安全与治理受到严格审视](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:13 - [AWS数据中心突发宕机 冲击FanDuel、Coinbase交易业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:50 - [大美边疆看我家丨黑龙江饶河：夕阳西下 水田如画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 13:07 - [以军对黎巴嫩南部9个村庄发布撤离警告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:55 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:13 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:07 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 13:15 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 13:17 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
+- 2026-06-29 12:51 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 12:55 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 12:51 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-29 12:51 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
+- 2026-06-29 12:52 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 13:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 12:52 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-29 13:01 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 12:56 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 12:57 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](http://www.blog.minike.top/Article/details/801276.shtml)
-- 2026-06-29 12:58 - [AI数字人“邓丽君”在河南郑州“登台”表演](http://www.blog.minike.top/Article/details/402978743.shtml)
-- 2026-06-29 13:17 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](http://www.blog.minike.top/Article/details/8984745.shtml)
-- 2026-06-29 13:14 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [“AI+影视”找准发展平衡点](http://www.blog.minike.top/Article/details/916944683845.shtml)
-- 2026-06-29 13:01 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](http://www.share.minike.top/Article/details/77588257.shtml)
-- 2026-06-29 12:57 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](http://www.blog.kurohicncr.top/Article/details/89979683299.shtml)
-- 2026-06-29 12:54 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](http://www.blog.kurohicncr.top/Article/details/76034967.shtml)
-- 2026-06-29 12:51 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](http://www.blog.kurohicncr.top/Article/details/06835642517.shtml)
-- 2026-06-29 12:59 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](http://www.share.kurohicncr.top/Article/details/92980216.shtml)
-- 2026-06-29 13:15 - [2026湖南车展：大型新能源SUV为何受热捧](http://www.share.minike.top/Article/details/50132347261.shtml)
-- 2026-06-29 13:14 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.blog.kurohicncr.top/Article/details/7194595333.shtml)
-- 2026-06-29 13:15 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.kurohicncr.top/Article/details/4361300846.shtml)
-- 2026-06-29 13:09 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.share.minike.top/Article/details/10202891123.shtml)
+- 2026-06-29 13:13 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/204459.shtml)
+- 2026-06-29 12:59 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/752087.shtml)
+- 2026-06-29 13:02 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/6807218265.shtml)
+- 2026-06-29 13:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/013451782419.shtml)
+- 2026-06-29 12:53 - [岭南电影为何迎来“南方热”](http://www.blog.kurohicncr.top/Article/details/2198778.shtml)
+- 2026-06-29 13:04 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/7152789.shtml)
+- 2026-06-29 13:00 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/4104729806.shtml)
+- 2026-06-29 12:58 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/0669599.shtml)
+- 2026-06-29 13:05 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/848601481471.shtml)
+- 2026-06-29 13:04 - [韩国政府将对世界杯出局追责](https://www.share.kurohicncr.top/Article/details/46099.shtml)
+- 2026-06-29 13:01 - [千与千寻](https://www.share.minike.top/Article/details/10341537.shtml)
+- 2026-06-29 12:54 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/60824.shtml)
+- 2026-06-29 13:02 - [利率一再降 “存款搬家”搬去哪](https://www.blog.kurohicncr.top/Article/details/248576.shtml)
+- 2026-06-29 13:16 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/73109530.shtml)
+- 2026-06-29 12:52 - [退休化学教授帮医药研发人员制毒](https://www.share.kurohicncr.top/Article/details/469955901620.shtml)

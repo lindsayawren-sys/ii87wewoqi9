@@ -1,61 +1,61 @@
-# A股再现国资“A吃A”！
+# 纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！烟台市国资委拟整合旗下上市公司股权，A股市场或将再添一例“A吃A”案例。 5月8日晚，冰轮环境（000811）公告称，公司拟以协议转让方式，收购烟台国丰投资控股集团有限公司（简称“国丰集团”）持有的烟台铭祥控股有限公司（简称“铭祥控股”）30%的股权，烟台合弘投资股份有限公司（简称“烟台合弘”）持有的铭祥控
+纽约房地产大亨、Related Companies创始人斯蒂芬·罗斯周四将纽约州民主党众议员泽兰·马姆达尼倡导的“向富人征税”口号比作“令人作呕的种族辱骂”，引发激烈争论。 罗斯在接受采访时表示，此类言论创造了一种不受欢迎的环境。他指出，纽约对财富的“敌视态度”正迫使企业及其领导人加倍押注阳光地带。罗斯的公司已将其总部从纽约迁至佛罗里达州西棕榈滩。“言论会产生后果，”罗斯说，“
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+纽约房地产大亨、Related Companies创始人斯蒂芬·罗斯周四将纽约州民主党众议员泽兰·马姆达尼倡导的“向富人征税”口号比作“令人作呕的种族辱骂”，引发激烈争论。
 
-烟台市国资委拟整合旗下上市公司股权，A股市场或将再添一例“A吃A”案例。
+罗斯在接受采访时表示，此类言论创造了一种不受欢迎的环境。
 
-5月8日晚，冰轮环境（000811）公告称，公司拟以协议转让方式，收购烟台国丰投资控股集团有限公司（简称“国丰集团”）持有的烟台铭祥控股有限公司（简称“铭祥控股”）30%的股权，烟台合弘投资股份有限公司（简称“烟台合弘”）持有的铭祥控股15%的股权。
+他指出，纽约对财富的“敌视态度”正迫使企业及其领导人加倍押注阳光地带。
 
-值得关注的是，铭祥控股为密封科技（301020）控股股东，持有其47.93%的股权。
+罗斯的公司已将其总部从纽约迁至佛罗里达州西棕榈滩。
 
-交易完成后，冰轮环境能够取得铭祥控股的控制权，进而能够间接控制密封科技。
+“言论会产生后果，”罗斯说，“当你说‘向富人征税’和指责时，会产生令人不寒而栗的效果。
 
-公司公告 密封科技同日晚间亦发布控股股东股权结构拟发生变动的提示性公告。
+” 马姆达尼是一名民主社会主义者，在2025年纽约市市长竞选中以微弱劣势落败。
 
-公告显示，公司收到控股股东铭祥控股发来的通知，铭祥控股的股东国丰集团、烟台合弘拟以协议转让方式，分别将其持有铭祥控股30%、15%的股权转让至冰轮环境。
+他一直在推动对纽约市价值500万美元及以上的第二套住房征收新附加税，以及提高高收入者的所得税税率。
 
-转让完成后，铭祥控股股权结构将变动为冰轮环境持股45%、烟台合弘持股33%、国丰集团持股22%。
+他在社交媒体上回击罗斯称：“如果你拥有近40亿美元的财富，你会没事的。
 
 ## 相关推荐
 
-- 2026-06-29 13:13 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:50 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:09 - [三部门联合印发《智能体规范应用与创新发展实施意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 13:14 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:52 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:07 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:55 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 13:15 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 13:15 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:51 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:08 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 13:17 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:10 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:05 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 13:17 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:02 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-29 13:02 - [6月29日凌晨四川宜宾发生 5.5 级地震，这次地震情况如何？原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 12:55 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-29 13:14 - [加拿大92分钟绝杀南非](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 13:16 - [俄政府批准巩固俄语地位行动计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:14 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 13:09 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 12:56 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 12:52 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-29 12:49 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 13:09 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 13:15 - [欧洲人买空调难点在哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 13:13 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-29 13:11 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
+- 2026-06-29 12:50 - [宜宾地震后顾客折返用餐0人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:55 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](http://www.share.minike.top/Article/details/2268324254.shtml)
-- 2026-06-29 13:08 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](http://www.share.kurohicncr.top/Article/details/888158486.shtml)
-- 2026-06-29 13:05 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](http://www.blog.minike.top/Article/details/491664.shtml)
-- 2026-06-29 12:50 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](http://www.share.kurohicncr.top/Article/details/225700402.shtml)
-- 2026-06-29 12:57 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](http://www.share.minike.top/Article/details/70856961182.shtml)
-- 2026-06-29 12:52 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](http://www.share.kurohicncr.top/Article/details/037548.shtml)
-- 2026-06-29 13:07 - [光大证券，离头部券商越来越远](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.blog.minike.top/Article/details/71265028399.shtml)
-- 2026-06-29 12:52 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.share.minike.top/Article/details/37173.shtml)
-- 2026-06-29 13:04 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.blog.kurohicncr.top/Article/details/71412.shtml)
-- 2026-06-29 13:16 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](http://www.blog.kurohicncr.top/Article/details/91131094.shtml)
-- 2026-06-29 12:57 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.minike.top/Article/details/145551967.shtml)
-- 2026-06-29 13:17 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](http://www.blog.minike.top/Article/details/0149951441.shtml)
-- 2026-06-29 13:01 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.share.minike.top/Article/details/91954709.shtml)
-- 2026-06-29 12:58 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.share.minike.top/Article/details/031568249774.shtml)
+- 2026-06-29 13:13 - [久坐小心“死臀综合征”](https://www.share.kurohicncr.top/Article/details/438248.shtml)
+- 2026-06-29 13:03 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/6893542920.shtml)
+- 2026-06-29 13:18 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/72603646.shtml)
+- 2026-06-29 12:56 - [中国小将严子怡再现一投夺冠](https://www.share.minike.top/Article/details/4755589.shtml)
+- 2026-06-29 13:01 - [法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/2957613.shtml)
+- 2026-06-29 13:09 - [《贺子珍》](http://www.blog.minike.top/Article/details/786460772.shtml)
+- 2026-06-29 12:53 - [F1奥地利大奖赛正赛集锦](https://www.share.minike.top/Article/details/31239110.shtml)
+- 2026-06-29 13:17 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/0963264977.shtml)
+- 2026-06-29 13:19 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/241625.shtml)
+- 2026-06-29 13:10 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/84348088169.shtml)
+- 2026-06-29 13:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/96237932559.shtml)
+- 2026-06-29 13:05 - [啊啊啊](https://www.share.minike.top/Article/details/35858000.shtml)
+- 2026-06-29 13:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/37053545570.shtml)
+- 2026-06-29 12:53 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/49851184.shtml)
+- 2026-06-29 13:05 - [复盘葡萄牙逼平哥伦比亚](http://www.share.minike.top/Article/details/55922.shtml)

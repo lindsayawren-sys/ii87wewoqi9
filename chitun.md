@@ -1,56 +1,61 @@
-# 从乳业到稀土 内蒙古以产业计量嵌入全国产业升级
+# 非洲超万户家庭用电来自河南“济源造”
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中新网呼和浩特5月8日电 题：从乳业到稀土 内蒙古以产业计量嵌入全国产业升级 中新网记者 刘文华 “产业计量不是‘选择题’，而是现代化产业体系建设的‘必答题’。”5月7日，内蒙古自治区市场监管局副局长官君山在呼和浩特表示。 当天，2026年内蒙古自治区产业计量测试中心现场经验交流会在呼和浩特召开。乳制品、稀土、马铃薯、煤炭等领域的产业计量测试中心依次介绍建设情况；筹备中的玉米产
+中新网郑州5月9日电 (记者 阚力)郑州海关9日消息，经郑州海关所属济源海关检验合格，济源万洋锂电科技有限公司生产的637件家用储能锂电池已顺利启运发往尼日利亚，这批“济源造”锂电池将于半个月后在拉各斯上市销售。据郑州海关统计，自2025年实现首次出口以来，“济源造”锂电池已累计出口3347件，货值达1933.9万元，其中非洲市场占比超70%，产品覆盖尼日利亚、肯尼亚、加纳等多
 
 ## 正文
 
-中新网呼和浩特5月8日电 题：从乳业到稀土 内蒙古以产业计量嵌入全国产业升级 中新网记者 刘文华 “产业计量不是‘选择题’，而是现代化产业体系建设的‘必答题’。
+中新网郑州5月9日电 (记者 阚力)郑州海关9日消息，经郑州海关所属济源海关检验合格，济源万洋锂电科技有限公司生产的637件家用储能锂电池已顺利启运发往尼日利亚，这批“济源造”锂电池将于半个月后在拉各斯上市销售。
 
-”5月7日，内蒙古自治区市场监管局副局长官君山在呼和浩特表示。
+据郑州海关统计，自2025年实现首次出口以来，“济源造”锂电池已累计出口3347件，货值达1933.9万元，其中非洲市场占比超70%，产品覆盖尼日利亚、肯尼亚、加纳等多个国家，已为当地超万户家庭送去清洁稳定的电力。
 
-当天，2026年内蒙古自治区产业计量测试中心现场经验交流会在呼和浩特召开。
+济源万洋锂电科技有限公司销售部经理胡红霞表示，该企业研发出一款为非洲国家量身定做的小型家用储能锂电池，该型产品同时兼容市电与太阳能板双充电模式，既能满足日常照明、手机充电等基础需求，也可稳定支撑电风扇等小型家电运转，使用寿命长达5年以上。
 
-乳制品、稀土、马铃薯、煤炭等领域的产业计量测试中心依次介绍建设情况；筹备中的玉米产业计量测试中心也通报了筹建进展。
+济源海关方面称，锂电池属于Ⅱ类危险货物，出口流程环节多、合规管控标准严。
 
-计量是实现单位统一、保证量值准确可靠的活动。
+针对企业对国际危险货物运输规则不熟悉、包装设计不达标等难点，济源海关多次开展上门辅导，指导企业优化包装设计、规范张贴标签、申报产品信息等，协助企业高效办理出境危险货物包装使用鉴定证书，从源头化解出口合规风险。
 
-国家市场监管总局2020年发布的指导意见提出，在节能环保、新一代信息技术、生物医药、高端装备制造、新能源、新材料等战略性新兴产业重点领域，优先建设国家产业计量测试中心。
+同时，针对锂电产品出口开通专属“绿色通道”，优化检验监管流程，压缩通关时长。
 
-国家乳制品产业计量测试中心是内蒙古首个国家级产业计量测试中心，由内蒙古计量测试研究院联合伊利集团于2021年10月获批筹建，2025年9月通过现场评审验收。
+济源海关副关长张兴志表示，济源海关将聚焦‘新三样’产品出口需求，持续优化锂电池检验监管模式，提升通关便利化水平。
 
-该中心梳理出乳业产业参数838个，绘制量值溯源体系图776幅，建成12个相关计量实验室。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:51 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:12 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:52 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:03 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:54 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:11 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:57 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 12:48 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 13:03 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 13:07 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-29 13:12 - [农业谣言岂能如此“变态”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
+- 2026-06-29 13:14 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 12:55 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:58 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:09 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-29 13:18 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
+- 2026-06-29 12:57 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 12:50 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-29 13:09 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:53 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
+- 2026-06-29 13:09 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 13:16 - [陈露发声引舆论反转](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 12:56 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 12:57 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [AI时代，全球教育正面临三层重塑](http://www.share.minike.top/Article/details/77032923065.shtml)
-- 2026-06-29 12:59 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.blog.kurohicncr.top/Article/details/5776376129.shtml)
-- 2026-06-29 12:56 - [北京曲剧《雷雨》观摩研讨会在京举办](http://www.blog.kurohicncr.top/Article/details/49116790.shtml)
-- 2026-06-29 12:56 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.share.minike.top/Article/details/5159965684.shtml)
-- 2026-06-29 13:05 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](http://www.blog.minike.top/Article/details/28423126379.shtml)
-- 2026-06-29 12:49 - [坚持有腐必反、有贪必肃](http://www.share.kurohicncr.top/Article/details/49111898951.shtml)
-- 2026-06-29 13:03 - [信利国际于5月8日耗资103万港元回购100万股](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [中欧班列开行突破13万列](http://www.blog.minike.top/Article/details/02065669530.shtml)
-- 2026-06-29 12:50 - [A股再现国资“A吃A”！](http://www.share.kurohicncr.top/Article/details/125086539.shtml)
-- 2026-06-29 13:04 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.blog.minike.top/Article/details/0162104200.shtml)
-- 2026-06-29 12:58 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.share.minike.top/Article/details/198312113329.shtml)
-- 2026-06-29 13:13 - [个人办事，不只“能办”还要“好办、易办”](http://www.share.kurohicncr.top/Article/details/92491202183.shtml)
-- 2026-06-29 12:53 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.share.minike.top/Article/details/75789211133.shtml)
+- 2026-06-29 12:59 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/771735014079.shtml)
+- 2026-06-29 12:59 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/982988791.shtml)
+- 2026-06-29 13:07 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/40952468257.shtml)
+- 2026-06-29 12:51 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/71395.shtml)
+- 2026-06-29 13:00 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/706459.shtml)
+- 2026-06-29 13:11 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/682464914.shtml)
+- 2026-06-29 13:19 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/13408651.shtml)
+- 2026-06-29 13:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/6061963.shtml)
+- 2026-06-29 13:14 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/4124747191.shtml)
+- 2026-06-29 13:00 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/625044069823.shtml)
+- 2026-06-29 13:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/5618028440.shtml)
+- 2026-06-29 13:00 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/6223910978.shtml)
+- 2026-06-29 12:59 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/073948.shtml)
+- 2026-06-29 12:50 - [欧洲人买空调难点在哪](http://www.share.kurohicncr.top/Article/details/09747.shtml)
+- 2026-06-29 13:15 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/122796196191.shtml)

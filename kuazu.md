@@ -1,56 +1,52 @@
-# 美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进
+# 复星医药：盐酸文拉法辛缓释片获批上市
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-美国劳工统计局周五公布的数据显示，4月份联邦政府就业人数减少9000人，这是继3月份减少3000人之后的进一步收缩。这一裁员趋势与特朗普政府通过“政府效率部”推动的联邦 workforce 精简计划直接相关。 裁员背景 自今年1月特朗普正式启动第二任期以来，由马斯克和拉马斯瓦米共同领导的“政府效率部”已推动多项行政命令，要求各联邦机构实施“ attrition-based re
+复星医药（02196）公布，近日，公司控股子公司复星医药（徐州）有限公司就盐酸文拉法辛缓释片的药品注册申请获国家药品监督管理局批准，本次获批适应症为用于治疗抑郁症（包括伴有焦虑的抑郁症）及广泛性焦虑障碍。 据悉，该药品为集团自主研发的化学药品。截至 2026 年 4 月，集团现阶段针对该药品的累计研发投入约为人民币 768 万元（未经审计）。 该药品本次获批上市，将进一步丰富集
 
 ## 正文
 
-美国劳工统计局周五公布的数据显示，4月份联邦政府就业人数减少9000人，这是继3月份减少3000人之后的进一步收缩。
+复星医药（02196）公布，近日，公司控股子公司复星医药（徐州）有限公司就盐酸文拉法辛缓释片的药品注册申请获国家药品监督管理局批准，本次获批适应症为用于治疗抑郁症（包括伴有焦虑的抑郁症）及广泛性焦虑障碍。
 
-这一裁员趋势与特朗普政府通过“政府效率部”推动的联邦 workforce 精简计划直接相关。
+据悉，该药品为集团自主研发的化学药品。
 
-裁员背景 自今年1月特朗普正式启动第二任期以来，由马斯克和拉马斯瓦米共同领导的“政府效率部”已推动多项行政命令，要求各联邦机构实施“ attrition-based reductions”和“自愿离职激励计划”。
+截至 2026 年 4 月，集团现阶段针对该药品的累计研发投入约为人民币 768 万元（未经审计）。
 
-4月份的裁员涉及多个部门，包括内政部、教育部和住房与城市发展部，其中部分员工接受了一次性买断方案主动离职，另有一部分岗位因招聘冻结而自然减员。
+该药品本次获批上市，将进一步丰富集团相关产品剂型。
 
-与此同时，美国人事管理办公室曾于今年2月向全体联邦雇员发送邮件，要求他们在“ deferred resignation program”中做出选择，该计划在上个月结束。
-
-与私营部门就业对比 值得注意的是，4月份整体非农就业新增11.5万个岗位，远超经济学家预期。
-
-这意味着联邦政府的裁员被私营部门和服务业的强劲招聘所抵消。
-
-休闲酒店业、医疗保健和建筑行业是就业增长的主要驱动力。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [外商来华参展 盛赞中国是非常强大的国家：“我们很放心！”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:58 - [海南首个飞灰资源化利用项目投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 13:13 - [李成钢：积极推动APEC贸易部长会议围绕两方面议题达成共识](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 13:01 - [被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:52 - [大美边疆看我家丨黑龙江牡丹江：熔岩台地杏花如雪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:56 - [重庆已为49个国家的585名技能人才提供权威认证服务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 13:10 - [红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 13:11 - [Forward Air预计60-90天内出售非核心资产，客户过渡将于2027年初启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 13:09 - [特种车辆制造商Oshkosh宣派每股0.57美元季度股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:52 - [万份收益不足3毛，天弘余额宝连续6天“七日年化收益率”低于1％](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:06 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 13:08 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:50 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 13:10 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:11 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 12:51 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-29 13:09 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:07 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-29 12:59 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
+- 2026-06-29 12:53 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 13:15 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 13:03 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.share.minike.top/Article/details/246726905.shtml)
-- 2026-06-29 13:03 - [俄罗斯“帕拉达”号学员舰抵达大连开展联谊交流活动](http://www.blog.kurohicncr.top/Article/details/210647577.shtml)
-- 2026-06-29 13:08 - [北京曲剧《雷雨》观摩研讨会在京举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:08 - [2026年炒期货APP测评！行情、资讯、交易全方位比拼，专业投资者都在用](http://www.blog.minike.top/Article/details/97700642.shtml)
-- 2026-06-29 12:56 - [鄱阳湖畔“水上春播”忙 一塘晨光育良苗](http://www.share.kurohicncr.top/Article/details/5282074.shtml)
-- 2026-06-29 12:49 - [一年多部烂片，视觉团队被连锅端！ 漫威为何成了迪士尼的“弃子”？ | 硅谷观察](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [坚持有腐必反、有贪必肃](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [信利国际于5月8日耗资103万港元回购100万股](http://www.blog.kurohicncr.top/Article/details/907871620.shtml)
-- 2026-06-29 12:58 - [中欧班列开行突破13万列](http://www.share.minike.top/Article/details/901452.shtml)
-- 2026-06-29 13:03 - [A股再现国资“A吃A”！](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.kurohicncr.top/Article/details/9973466426.shtml)
-- 2026-06-29 12:52 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](http://www.share.kurohicncr.top/Article/details/2695902.shtml)
-- 2026-06-29 13:02 - [个人办事，不只“能办”还要“好办、易办”](http://www.blog.kurohicncr.top/Article/details/6983707506.shtml)
-- 2026-06-29 13:07 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.blog.kurohicncr.top/Article/details/596592310.shtml)
-- 2026-06-29 12:54 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/36085277269.shtml)
+- 2026-06-29 12:53 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/986173369342.shtml)
+- 2026-06-29 12:56 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/0912115.shtml)
+- 2026-06-29 12:51 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/86679757012.shtml)
+- 2026-06-29 12:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/7258769.shtml)
+- 2026-06-29 13:06 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.kurohicncr.top/Article/details/06089480393.shtml)
+- 2026-06-29 13:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/869548746859.shtml)
+- 2026-06-29 12:58 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.minike.top/Article/details/956677513140.shtml)
+- 2026-06-29 12:55 - [詹姆斯下赛季会在哪里](http://www.blog.minike.top/Article/details/9606879.shtml)
+- 2026-06-29 13:07 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/83506822949.shtml)
+- 2026-06-29 12:53 - [德国队前往比赛场地遭遇囧途](http://www.blog.kurohicncr.top/Article/details/2869050.shtml)
+- 2026-06-29 13:01 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.blog.kurohicncr.top/Article/details/4511559.shtml)
+- 2026-06-29 12:51 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/37048476091.shtml)
+- 2026-06-29 13:15 - [白玉兰最佳女主角提名片段](https://www.share.kurohicncr.top/Article/details/1313082619.shtml)
+- 2026-06-29 12:59 - [林昀儒止步美国大满贯首轮](https://www.blog.minike.top/Article/details/7808543.shtml)

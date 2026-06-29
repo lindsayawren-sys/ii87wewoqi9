@@ -1,59 +1,57 @@
-# 风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局
+# 驻巴布亚新几内亚使馆提醒中国公民和机构切勿参与黄金走私违法活动
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 风范股份（601700.SH）正在以近乎“打骨折”的方式出清光伏资产晶樱光电——曾经9.6亿元买入、如今1.788亿元挂牌甩卖。 5月6日晚间，公司公告称，拟在江苏省产权交易所公开挂牌转让苏州晶樱光电科技有限公司60%股权，挂牌底价为1.788亿元。 对比来看，2023年6月，风范股份曾斥资9.6亿元完成对晶樱光电60%股权的现金收购。短短两年后，这笔
+中新网5月8日电 据中国驻巴布亚新几内亚大使馆微信公众号消息，2026年4月27日，巴布亚新几内亚国家机场公司安保人员在莫尔斯比港国际机场查获20根不同规格、价值数百万基那的走私金条。日前，亦有涉嫌走私黄金人员被宣判。根据巴新有关部门和当地媒体公布，2025年12月以来，巴新执法部门查获6起以上通过机场走私黄金案件。 黄金出口须事先申报并取得许可证。走私黄金将面临法律的严厉制裁
 
 ## 正文
 
-文|新浪财经上海站 十里 风范股份（601700.SH）正在以近乎“打骨折”的方式出清光伏资产晶樱光电——曾经9.6亿元买入、如今1.788亿元挂牌甩卖。
+中新网5月8日电 据中国驻巴布亚新几内亚大使馆微信公众号消息，2026年4月27日，巴布亚新几内亚国家机场公司安保人员在莫尔斯比港国际机场查获20根不同规格、价值数百万基那的走私金条。
 
-5月6日晚间，公司公告称，拟在江苏省产权交易所公开挂牌转让苏州晶樱光电科技有限公司60%股权，挂牌底价为1.788亿元。
+日前，亦有涉嫌走私黄金人员被宣判。
 
-对比来看，2023年6月，风范股份曾斥资9.6亿元完成对晶樱光电60%股权的现金收购。
+根据巴新有关部门和当地媒体公布，2025年12月以来，巴新执法部门查获6起以上通过机场走私黄金案件。
 
-短短两年后，这笔曾被寄予“第二增长曲线”期待的交易，估值已缩水超八成。
+黄金出口须事先申报并取得许可证。
 
-彼时正值光伏行业高景气阶段。
+走私黄金将面临法律的严厉制裁，包括高额罚款与长期监禁等。
 
-硅料、硅片、电池片价格维持高位，大量跨界资本涌入新能源产业链。
+中国驻巴布亚新几内亚大使馆郑重提醒，在巴新的中国公民和机构务必遵守当地法律法规，切勿参与黄金走私违法活动，避免违法行为给自身带来安全风险。
 
-风范股份也在当时宣布切入光伏领域，公司称，此举有助于拓宽市场范围、优化业务布局，并因此形成约3.7亿元商誉。
+如遇紧急情况第一时间报警并与中国驻巴新大使馆联系寻求协助。
 
-但从业务底色来看，风范股份原本是一家典型的传统制造企业，主营电力铁塔及钢结构业务，于2011年登陆上交所主板。
+联系方式： 1、巴新紧急求助电话：警察：112 消防：110 急救：111 2、外交部全球领事保护与服务应急热线电话： +86-10-12308 +86-10-65612308 3、驻巴新使馆领事保护与协助电话：+675-73616048
 
 ## 相关推荐
 
-- 2026-06-29 12:56 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:13 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 13:17 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 13:00 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:56 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:05 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 13:10 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:54 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 13:06 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 13:02 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:53 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:12 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:59 - [高开低走，油脂后市何去何从？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 13:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 13:15 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 13:08 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 13:18 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-29 13:10 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
+- 2026-06-29 13:05 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
+- 2026-06-29 12:53 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 13:18 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-29 13:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:57 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 13:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:08 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [光大证券，离头部券商越来越远](http://www.share.minike.top/Article/details/6309020.shtml)
-- 2026-06-29 13:17 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.share.minike.top/Article/details/2949711793.shtml)
-- 2026-06-29 12:59 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:16 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.share.kurohicncr.top/Article/details/025337300100.shtml)
-- 2026-06-29 13:14 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.share.minike.top/Article/details/972371792168.shtml)
-- 2026-06-29 13:02 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](http://www.share.kurohicncr.top/Article/details/692220.shtml)
-- 2026-06-29 12:48 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.blog.minike.top/Article/details/173915899.shtml)
-- 2026-06-29 12:54 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.share.kurohicncr.top/Article/details/399735.shtml)
-- 2026-06-29 13:05 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.blog.minike.top/Article/details/04280764378.shtml)
-- 2026-06-29 13:03 - [《智能体规范应用与创新发展实施意见》答记者问](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [高盛：美图公司维持“买入”评级 目标价14.30港元](http://www.share.minike.top/Article/details/11428040848.shtml)
-- 2026-06-29 12:53 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.blog.kurohicncr.top/Article/details/916116037449.shtml)
-- 2026-06-29 13:01 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/8199242.shtml)
+- 2026-06-29 12:51 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/598051029.shtml)
+- 2026-06-29 13:13 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/554791715826.shtml)
+- 2026-06-29 13:18 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.minike.top/Article/details/601237887.shtml)
+- 2026-06-29 13:13 - [医药股集体爆发](http://www.blog.kurohicncr.top/Article/details/385197783990.shtml)
+- 2026-06-29 13:09 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/5810130.shtml)
+- 2026-06-29 12:51 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/520060.shtml)
+- 2026-06-29 12:51 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.minike.top/Article/details/01997383413.shtml)
+- 2026-06-29 13:03 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/612952.shtml)
+- 2026-06-29 13:10 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/805136345301.shtml)
+- 2026-06-29 12:51 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/32651.shtml)
+- 2026-06-29 12:56 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/76308.shtml)
+- 2026-06-29 12:52 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/68081889943.shtml)
+- 2026-06-29 13:11 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/08500952451.shtml)
+- 2026-06-29 13:09 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/69780808.shtml)

@@ -1,59 +1,60 @@
-# 祁连山 “生命方舟” 累计救助收容259只野生动物
+# Seeking Alpha外资房地产股量化排名：一只赢家，五只落后
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-《目瑙纵歌》3爆火，这位80后北京音乐人有更大的计划香港何时能加入RCEP？还想用“双标定价”收割中国市场？国际足联该看看这些前车之鉴今年首轮高温过程来袭，之后要一直热下去了吗？一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？为
+根据Seeking Alpha的量化评分系统，在美股市场交易的六只代表性外国房地产股票中，仅有一只获得了“买入”评级，其余五只均处于“持有”或“卖出”区间。 排名方法论 Seeking Alpha量化评分从估值、增长、盈利能力、每股收益修正和市场动量五个维度对股票进行评级，综合得分对应量化评级（强买入、买入、持有、卖出、强卖出）。 唯一赢家：CBRE Group CBRE Gr
 
 ## 正文
 
-《目瑙纵歌》3爆火，这位80后北京音乐人有更大的计划香港何时能加入RCEP？
+根据Seeking Alpha的量化评分系统，在美股市场交易的六只代表性外国房地产股票中，仅有一只获得了“买入”评级，其余五只均处于“持有”或“卖出”区间。
 
-还想用“双标定价”收割中国市场？
+排名方法论 Seeking Alpha量化评分从估值、增长、盈利能力、每股收益修正和市场动量五个维度对股票进行评级，综合得分对应量化评级（强买入、买入、持有、卖出、强卖出）。
 
-国际足联该看看这些前车之鉴今年首轮高温过程来袭，之后要一直热下去了吗？
+唯一赢家：CBRE Group CBRE Group是唯一获得“买入”评级的个股。
 
-一纸侨批寄深情 《给阿嬷的情书》出圈带来何种启示？
+公司总部位于美国（非外国），但业务遍布全球100多个国家。
 
-一文速览俄罗斯胜利日红场阅兵：五大看点，一个变化美国黄牛半夜笑醒？
+量化评级：买入。
 
-有世界杯决赛三层门票标价1150万美元网购常规扣款变“贷款” 支付捆绑乱象如何整治？
+该股在盈利能力和市场动量维度得分较高。
 
-为啥越来越多的人开始追求“活人感”？
+受益于全球商业地产交易活动回暖，公司一季度营收同比增长12%，超过市场预期。
 
-为什么有些人更容易上当？
+五只落后股 第一名落后股：Cushman & Wakefield，总部位于美国，商业地产服务商。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 13:07 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:49 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:48 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:02 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:14 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 13:01 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 13:09 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 13:10 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:54 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 13:02 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:12 - [工信部启动人工智能科技伦理审查与服务先导计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 12:49 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 13:05 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 13:09 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 13:06 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-29 13:17 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-29 13:01 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 13:14 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 13:18 - [伊朗球员致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 13:16 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:16 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:51 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 13:06 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 12:56 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-29 13:13 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 12:57 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:56 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.share.minike.top/Article/details/55397545.shtml)
-- 2026-06-29 12:52 - [面向全球征集 空天信息领域十大前沿问题正式发布](http://www.share.kurohicncr.top/Article/details/776216085.shtml)
-- 2026-06-29 12:51 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.share.minike.top/Article/details/3933726904.shtml)
-- 2026-06-29 13:02 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](http://www.blog.minike.top/Article/details/861626.shtml)
-- 2026-06-29 13:03 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.share.minike.top/Article/details/755993804.shtml)
-- 2026-06-29 12:58 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](http://www.share.kurohicncr.top/Article/details/9110645.shtml)
-- 2026-06-29 13:13 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](http://www.share.kurohicncr.top/Article/details/356530.shtml)
-- 2026-06-29 12:52 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.kurohicncr.top/Article/details/445960.shtml)
-- 2026-06-29 12:58 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](http://www.share.minike.top/Article/details/548712.shtml)
-- 2026-06-29 12:59 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](http://www.share.minike.top/Article/details/22795.shtml)
-- 2026-06-29 12:48 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](http://www.share.kurohicncr.top/Article/details/6609078175.shtml)
-- 2026-06-29 13:11 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](http://www.blog.minike.top/Article/details/5846052636.shtml)
+- 2026-06-29 12:54 - [行程万里不忘初心](http://www.blog.minike.top/Article/details/46160.shtml)
+- 2026-06-29 12:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/7222096418.shtml)
+- 2026-06-29 12:52 - [恋与深空女玩家不该被冒犯](http://www.blog.minike.top/Article/details/768937.shtml)
+- 2026-06-29 13:12 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/716691960131.shtml)
+- 2026-06-29 13:02 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/64228733.shtml)
+- 2026-06-29 13:19 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/45646524816.shtml)
+- 2026-06-29 13:10 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/9067328.shtml)
+- 2026-06-29 12:59 - [日本和澳大利亚能代表亚洲足球走多远](https://www.share.kurohicncr.top/Article/details/623616151.shtml)
+- 2026-06-29 13:12 - [王楚钦首轮赢下国乒德比](https://www.share.kurohicncr.top/Article/details/064026827.shtml)
+- 2026-06-29 13:03 - [BW2026游览指南](http://www.share.minike.top/Article/details/885764.shtml)
+- 2026-06-29 12:51 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/207057.shtml)
+- 2026-06-29 13:10 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/6692213.shtml)
+- 2026-06-29 13:18 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/1476404.shtml)
+- 2026-06-29 13:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/721113.shtml)
+- 2026-06-29 12:55 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/49796916.shtml)

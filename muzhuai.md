@@ -1,55 +1,60 @@
-# 翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕
+# 舱外航天服、太空跑台都安排上！“太空快递”即将发货
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。 翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。 此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力
+今天早上，在文昌航天发射场，天舟十号货运飞船和长征七号遥十一运载火箭组合体开始进行垂直转运。目前现场具体情况怎样？一起来关注！ 天舟十号任务正式进入发射准备阶段 总台央视记者 王晓丹：今天的垂直转运工作从早上8点正式开始，搭载着天舟十号货运飞船的长征七号遥十一运载火箭，在活动发射平台的托举下，驶出了总装测试厂房，沿着专用的无缝钢轨，向着火箭发射塔架的方向，平稳运行了半个小时，预
 
 ## 正文
 
-发布时间：2026年05月08日 19:19 来源：中国新闻网 5月8日清晨，翡翠千里眼、顺风耳雕像捐赠揭幕仪式在福建莆田湄洲妈祖祖庙举行。
+今天早上，在文昌航天发射场，天舟十号货运飞船和长征七号遥十一运载火箭组合体开始进行垂直转运。
 
-翡翠千里眼、顺风耳雕像，长48公分、宽32公分、高108公分，每尊重量166千克。
+目前现场具体情况怎样？
 
-该组雕像将与此前安座于弘仁普济天妃宫的翡翠妈祖像、翡翠侍女像配套安座。
+一起来关注！
 
-此次翡翠千里眼、顺风耳雕像由湄洲妈祖祖庙荣誉董事长赵柳成向湄洲妈祖祖庙捐赠，以此助力妈祖文化的传承与传播。
+天舟十号任务正式进入发射准备阶段 总台央视记者 王晓丹：今天的垂直转运工作从早上8点正式开始，搭载着天舟十号货运飞船的长征七号遥十一运载火箭，在活动发射平台的托举下，驶出了总装测试厂房，沿着专用的无缝钢轨，向着火箭发射塔架的方向，平稳运行了半个小时，预计整个转运过程用时将在两个半小时到三个小时之间。
 
-(记者 吴晟炜 视频来源 湄洲妈祖祖庙） 责任编辑：【卢岩】
+垂直转运标志着飞船和火箭前期在技术区的总装和测试工作已经全部完成，正式进入到火箭发射的准备阶段。
+
+将上行新款舱外服 太空跑台 6套试验载荷天舟十号货运飞船正包裹在火箭顶端的整流罩里面，计划将要上行近6.3吨重的补给物资，主要是用于保障神舟二十三号和神舟二十四号两批航天员乘组在轨正常工作、生活所必备的物品。
+
+包括航天员系统、空间站系统、货运飞船系统以及空间应用系统，共计220多件货物，另外还有700公斤的推进剂。
+
+其中，特别值得关注的是，这次将在上次天舟九号已经上行了2套全新的舱外航天服的基础上，再上行第3套同款的航天服，也就意味着，空间站上的航天服将全面完成更新换代。
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 13:13 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:48 - [高开低走，油脂后市何去何从？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:05 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 12:54 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 13:08 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 13:06 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:52 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 13:14 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 13:14 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:13 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:53 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:57 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:52 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 13:16 - [北京部分地铁线将试点“携自行车上地铁”，单次30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:52 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 13:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 13:08 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-29 12:59 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 13:05 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 13:17 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 12:57 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-29 13:17 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 13:18 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 13:07 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:55 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 13:09 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 13:02 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 13:01 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:51 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.blog.minike.top/Article/details/260414766559.shtml)
-- 2026-06-29 12:53 - [《智能体规范应用与创新发展实施意见》答记者问](http://www.blog.kurohicncr.top/Article/details/45113.shtml)
-- 2026-06-29 12:49 - [高盛：美图公司维持“买入”评级 目标价14.30港元](http://www.blog.minike.top/Article/details/96592368821.shtml)
-- 2026-06-29 13:08 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.share.kurohicncr.top/Article/details/448034.shtml)
-- 2026-06-29 13:06 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:10 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](http://www.blog.kurohicncr.top/Article/details/520861.shtml)
-- 2026-06-29 13:14 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](http://www.blog.kurohicncr.top/Article/details/44482.shtml)
-- 2026-06-29 12:53 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](http://www.blog.kurohicncr.top/Article/details/781140959.shtml)
-- 2026-06-29 13:11 - [加州新计划：新生儿家庭将获数百片免费尿布](http://www.share.minike.top/Article/details/52370903970.shtml)
-- 2026-06-29 12:51 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](http://www.blog.kurohicncr.top/Article/details/208414536.shtml)
-- 2026-06-29 12:53 - [2026世界杯美加墨三国将分别举办开幕式](http://www.share.kurohicncr.top/Article/details/959394012056.shtml)
-- 2026-06-29 13:06 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.kurohicncr.top/Article/details/247752486224.shtml)
-- 2026-06-29 12:52 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.blog.kurohicncr.top/Article/details/04741488.shtml)
+- 2026-06-29 13:12 - [沙特足协主席发布声明主动请辞](http://www.share.kurohicncr.top/Article/details/360134797952.shtml)
+- 2026-06-29 12:50 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/04923119351.shtml)
+- 2026-06-29 12:54 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/753116.shtml)
+- 2026-06-29 12:58 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/2218688297.shtml)
+- 2026-06-29 13:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/7585211.shtml)
+- 2026-06-29 12:50 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/218013047.shtml)
+- 2026-06-29 13:17 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/9685221221.shtml)
+- 2026-06-29 13:02 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/3240404036.shtml)
+- 2026-06-29 13:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/6323005338.shtml)
+- 2026-06-29 12:57 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/77273497052.shtml)
+- 2026-06-29 12:58 - [市民骑哈啰单车79分钟付30元](http://www.blog.minike.top/Article/details/061731377420.shtml)
+- 2026-06-29 12:51 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/130395257.shtml)
+- 2026-06-29 13:00 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/0932553788.shtml)
+- 2026-06-29 12:59 - [沙丘](https://www.share.minike.top/Article/details/187687.shtml)
+- 2026-06-29 13:15 - [白宇摘下白玉兰送给杨幂](https://www.blog.minike.top/Article/details/07158231.shtml)

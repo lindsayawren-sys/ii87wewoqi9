@@ -1,47 +1,59 @@
-# 浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款
+# 西安银行茹华：数字人民币创新实践与展望
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，上海浦东发展银行股份有限公司晋中分行因违规发放贷款用途不真实的流动资金贷款，被罚款20万元。郭宗锋（时任上海浦东发展银行股份有限公司晋中定阳路支行行长）对于上述违法违规行为负有责任，被给予警告。 责任编辑：曹睿潼
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。西安银行科技部副总经理茹华出席并演讲。 以下为演讲实录： 茹华：各位领导、来宾大家好，我给大家汇报的是关于数字人民币创新实践与展望。 西安银行作为陕西省的法人银行，在省市政府以及当地人民银行支持下，我们在2021年的5月作为全国首批的试点银行以同业模式接入了数字人民币的体
 
 ## 正文
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，上海浦东发展银行股份有限公司晋中分行因违规发放贷款用途不真实的流动资金贷款，被罚款20万元。
+专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日在北京举行。
 
-郭宗锋（时任上海浦东发展银行股份有限公司晋中定阳路支行行长）对于上述违法违规行为负有责任，被给予警告。
+西安银行科技部副总经理茹华出席并演讲。
 
-责任编辑：曹睿潼
+以下为演讲实录： 茹华：各位领导、来宾大家好，我给大家汇报的是关于数字人民币创新实践与展望。
+
+西安银行作为陕西省的法人银行，在省市政府以及当地人民银行支持下，我们在2021年的5月作为全国首批的试点银行以同业模式接入了数字人民币的体系，先后与工商银行、农业银行、中国银行、建设银行、交通银行以及兴业银行实现直连模式，并且通过城银清算接入间连模式。
+
+数字人民币的业务架构分了四层，最上面一层是场景层，包括数字人民币的政务、便民、旅游、商圈等等这些。
+
+在底下是服务渠道层，包括柜面、手机银行、网银、西银在线、西银惠付、开放平台等业务渠道，在这些渠道下面进行支撑的是应用服务层，是数字人民币账务处理、支付、钱包管理以及查询等服务能力，最下面是对接的各运营机构。
+
+在五年多的业务推广过程中，我们也形成了一些我们自己的优势： 一是功能相对比较完备，我行提供了个人钱包和对公钱包，我们也开发了相关场景下的数字人民币收缴的业务以及企业薪资的代发等场景。
+
+二是兼容优势。
 
 ## 相关推荐
 
-- 2026-06-29 13:10 - [永升服务于5月8日斥资41.04万港元回购20万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 13:09 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:12 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 13:07 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 13:11 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:08 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:01 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 13:14 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 13:12 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 13:06 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:54 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:58 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
+- 2026-06-29 12:58 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 13:02 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 12:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-29 12:55 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 13:19 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-29 13:14 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 13:19 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 13:05 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-29 13:05 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-29 13:06 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
+- 2026-06-29 13:07 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 12:59 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [纸质阅读少了，进馆人多了 受访大学生对高校图书馆有新期待](http://www.share.minike.top/Article/details/90330.shtml)
-- 2026-06-29 12:52 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.share.kurohicncr.top/Article/details/80301296172.shtml)
-- 2026-06-29 12:54 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.blog.minike.top/Article/details/841532.shtml)
-- 2026-06-29 12:51 - [第48届东盟峰会在菲律宾举行](http://www.share.minike.top/Article/details/446292921972.shtml)
-- 2026-06-29 13:16 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.blog.kurohicncr.top/Article/details/33066233072.shtml)
-- 2026-06-29 12:49 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.blog.minike.top/Article/details/27344973173.shtml)
-- 2026-06-29 12:50 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.blog.minike.top/Article/details/571681585437.shtml)
-- 2026-06-29 13:17 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.blog.minike.top/Article/details/0278542.shtml)
-- 2026-06-29 12:50 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.blog.kurohicncr.top/Article/details/986277575458.shtml)
-- 2026-06-29 13:00 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.blog.minike.top/Article/details/1892914104.shtml)
-- 2026-06-29 13:06 - [面向全球征集 空天信息领域十大前沿问题正式发布](http://www.share.kurohicncr.top/Article/details/13379619.shtml)
-- 2026-06-29 12:48 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.blog.minike.top/Article/details/00947069.shtml)
-- 2026-06-29 13:02 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](http://www.blog.kurohicncr.top/Article/details/482906837809.shtml)
-- 2026-06-29 13:09 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.share.minike.top/Article/details/52271.shtml)
-- 2026-06-29 13:09 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/80623.shtml)
+- 2026-06-29 13:12 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/50602723379.shtml)
+- 2026-06-29 13:06 - [流金岁月](https://www.blog.minike.top/Article/details/079323327496.shtml)
+- 2026-06-29 13:17 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.kurohicncr.top/Article/details/4388498622.shtml)
+- 2026-06-29 13:08 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/954737512528.shtml)
+- 2026-06-29 13:10 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/743121321.shtml)
+- 2026-06-29 13:17 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/112432.shtml)
+- 2026-06-29 12:56 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/4427696.shtml)
+- 2026-06-29 12:54 - [韩国记者：解码“合肥模式”](https://www.share.kurohicncr.top/Article/details/91363.shtml)
+- 2026-06-29 12:56 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/142164.shtml)
+- 2026-06-29 13:15 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/2108701651.shtml)
+- 2026-06-29 13:10 - [水利部部署南方地区暴雨洪水防御工作](http://www.blog.minike.top/Article/details/75452536242.shtml)
+- 2026-06-29 13:14 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.blog.minike.top/Article/details/97500274310.shtml)
+- 2026-06-29 13:10 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/1230980517.shtml)
+- 2026-06-29 13:12 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/9587914186.shtml)

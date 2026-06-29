@@ -1,58 +1,51 @@
-# 被拖欠片酬，演员喊话要求《平乐赋》下架，爱奇艺回应
+# 激光除草机亮相北京科博会 百公里7升油杂草瞬间变“青烟”
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-新浪科技讯 5月8日下午消息，近日，演员李欣泽、杜雨宸在社交平台发文称，网剧《平乐赋》并未获得其本人授权，恳请爱奇艺收到律师函后立即停止上线，防止损失扩大。 律师函内容指出，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司（以下简称“首润公司”）原因致使该剧停拍至今。且至该函出具之日，首润公司仍未向李欣泽与杜雨宸支付演出服务费达
+发布时间：2026年05月08日 08:17 来源：中国新闻网 第二十八届北京科博会将于5月8日至10日在国家会议中心举办，本届科博会主题是“科技引领 创享未来”，展览总面积约5万平方米，共设置信息科技、智能制造、医药健康、绿色双碳、数字经济和区域创新等6个专题展区，国内外参展企业和机构800余家。 5月7日，中新社记者提前探馆科博会展厅。在展厅内，一款可以使用激光除草的智能除
 
 ## 正文
 
-新浪科技讯 5月8日下午消息，近日，演员李欣泽、杜雨宸在社交平台发文称，网剧《平乐赋》并未获得其本人授权，恳请爱奇艺收到律师函后立即停止上线，防止损失扩大。
+发布时间：2026年05月08日 08:17 来源：中国新闻网 第二十八届北京科博会将于5月8日至10日在国家会议中心举办，本届科博会主题是“科技引领 创享未来”，展览总面积约5万平方米，共设置信息科技、智能制造、医药健康、绿色双碳、数字经济和区域创新等6个专题展区，国内外参展企业和机构800余家。
 
-律师函内容指出，网剧《平乐赋》于2024年5月15日正式开机拍摄，拍摄进程近半时，因制片方北京首润影视传媒有限公司（以下简称“首润公司”）原因致使该剧停拍至今。
+5月7日，中新社记者提前探馆科博会展厅。
 
-且至该函出具之日，首润公司仍未向李欣泽与杜雨宸支付演出服务费达90%。
+在展厅内，一款可以使用激光除草的智能除草车亮相展台。
 
-律师函内容还提到，《平乐赋》侵犯了两位演员的肖像权、姓名权和表演者权等。
+据介绍，该款除草车作业时，可以精确到农作物周围1厘米范围，使用激光除草时，百公里消耗7升油即可让杂草瞬间变“青烟”。
 
-爱奇艺若在明知首润公司与委托人之间存在合同纠纷和该剧未完成的情况下仍上架该剧，将与首润公司构成共同侵权。
-
-” 其后，爱奇艺网络剧官方微博发布声明回应，“《平乐赋》是爱奇艺拥有完整合法版权的分账剧集，权属证据链条清晰完备，剧集已按规定完成广电备案审核，平台上线播出全程合法合规。
-
-” 爱奇艺方面称，此次纠纷，属片方与演员之间的履约争议。
-
-“我们在接到反馈之后，第一时间联系了相关方了解并核实情况，对演员们的情绪和诉求非常理解。
+(记者 谢龙飞 卢晓娜) 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [四川探路跨境电商 巴蜀生活美学走向海外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:51 - [塔吉克斯坦总统拉赫蒙将对华进行国事访问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:53 - [四川野生大熊猫情侣在竹林中谈恋爱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 13:12 - [两岸一家亲！台湾嘉宾受邀为妈祖祝寿：两岸都是中国人 同文同种](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:01 - [AI数字人“邓丽君”在河南郑州“登台”表演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:17 - [英国首相斯塔默遭遇地方选举惨败，仍计划留任](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 13:10 - [太原二十九中职工自曝“吃空饷”调查结果公布：校方存在管理失责 多人受处分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:49 - [2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 13:02 - [“AI+影视”找准发展平衡点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 12:54 - [邦达亚洲:市场避险情绪重燃 美元指数小幅收涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:13 - [东西问｜戴上300公里的“月季花环”！5月的北京，每条路都开成了“花路”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:10 - [圣马丁国际：合共6690万股未获认购供股股份已成功配售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:52 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 13:16 - [詹姆斯下赛季会在哪里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-29 12:52 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
+- 2026-06-29 13:00 - [这位猫咪，请你自重！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 13:00 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 12:59 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 13:04 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 12:49 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
+- 2026-06-29 12:59 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:11 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 13:04 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [全民追“光”！热门股抱团飙涨 是否入局？读懂这三点再决定](http://www.share.minike.top/Article/details/330163646464.shtml)
-- 2026-06-29 12:54 - [“我妈有两个老公”？OPPO官微母亲节文案翻车，被质疑价值观不正](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:11 - [个人办事，不只“能办”还要“好办、易办”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:11 - [海南天新文化科技有限公司被罚11万元：违反人民币图样使用管理规定](http://www.blog.minike.top/Article/details/299000.shtml)
-- 2026-06-29 12:57 - [风范股份豪赌光伏失利：9.6亿元收购晶樱光电，如今“打骨折”1.788亿元挂牌出清 | 长三角资本局](http://www.share.minike.top/Article/details/718673107.shtml)
-- 2026-06-29 13:10 - [【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实](http://www.share.kurohicncr.top/Article/details/56904.shtml)
-- 2026-06-29 12:53 - [精神病医院炒股成为上市公司前十大股东？江西一医院最新回应](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [骑手接单松绑、平台流量纠偏 算法治理风暴来袭：多平台自查自纠，63项优化改进措施落地](http://www.share.kurohicncr.top/Article/details/620655879.shtml)
-- 2026-06-29 13:02 - [三部门联合印发《智能体规范应用与创新发展实施意见》](http://www.blog.minike.top/Article/details/639623317518.shtml)
-- 2026-06-29 12:52 - [证监会重拳出击！两家A股公司恐将强制退市，涉嫌欺诈发行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [300488，强势20%涨停！近20股涨逾10%，人形机器人，全线爆发！](http://www.share.minike.top/Article/details/551435.shtml)
-- 2026-06-29 13:17 - [开盘|国内期货主力合约涨跌不一，沪银涨超2%](http://www.blog.minike.top/Article/details/169335053883.shtml)
-- 2026-06-29 13:03 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.share.minike.top/Article/details/58417394563.shtml)
-- 2026-06-29 13:04 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.blog.minike.top/Article/details/283753313115.shtml)
-- 2026-06-29 12:48 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.blog.kurohicncr.top/Article/details/149516785635.shtml)
+- 2026-06-29 12:51 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/815490007.shtml)
+- 2026-06-29 13:11 - [内马尔能上场15分钟](http://www.share.minike.top/Article/details/110874937.shtml)
+- 2026-06-29 12:54 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/539049729403.shtml)
+- 2026-06-29 13:11 - [吴建豪老婆](https://www.blog.minike.top/Article/details/2186511.shtml)
+- 2026-06-29 13:17 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/84117.shtml)
+- 2026-06-29 13:01 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/436359424272.shtml)
+- 2026-06-29 13:00 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/9332362.shtml)
+- 2026-06-29 12:53 - [啊啊啊](http://www.blog.minike.top/Article/details/58837985.shtml)
+- 2026-06-29 13:03 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/0006492079.shtml)
+- 2026-06-29 13:15 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.minike.top/Article/details/0348891727.shtml)
+- 2026-06-29 12:50 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/9225614.shtml)
+- 2026-06-29 12:53 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/57942333456.shtml)
+- 2026-06-29 13:16 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/380596697679.shtml)
+- 2026-06-29 13:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/72054454317.shtml)
+- 2026-06-29 13:01 - [东部机场集团新增釜山航线](https://www.blog.kurohicncr.top/Article/details/347582498616.shtml)

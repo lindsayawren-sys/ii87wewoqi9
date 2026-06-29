@@ -1,58 +1,56 @@
-# 早盘：标普500指数和纳斯达克综合再创历史新高
+# 招商银行“换帅”！业绩连续3年原地踏步，零售业务面临多重挑战
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-北京时间5月8日晚，美股周五早盘继续上扬，标普500指数和纳斯达克综合再创历史新高。美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。 道指涨64.21点，涨幅为0.13%，报49661.18点；纳指涨312.10点，涨幅为1.21%，报26118.29点；标普500指数涨50.24点，涨幅为0.68%
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：每财网 2025年招商银行实现业绩“微增”，传统优势的零售业务经营压力增大。 文/每日财报 楚风 “零售之王”招商银行宣布换帅。近日，招商银行披露公告称，公司原执行董事、行长王良因年龄原因卸任，不再转任其他职位。王良辞任后，公司董事会聘任王小青为新行长。 王良的任期始于招商银行的震荡期，而王小青的任职
 
 ## 正文
 
-北京时间5月8日晚，美股周五早盘继续上扬，标普500指数和纳斯达克综合再创历史新高。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美国4月非农就业数据好于预期，同时交易员正关注美伊关系的最新进展。
+来源：每财网 2025年招商银行实现业绩“微增”，传统优势的零售业务经营压力增大。
 
-美伊在霍尔木兹海峡交火后，美国总统特朗普称停火协议仍然有效。
+文/每日财报 楚风 “零售之王”招商银行宣布换帅。
 
-道指涨64.21点，涨幅为0.13%，报49661.18点；纳指涨312.10点，涨幅为1.21%，报26118.29点；标普500指数涨50.24点，涨幅为0.68%，报7387.35点。
+近日，招商银行披露公告称，公司原执行董事、行长王良因年龄原因卸任，不再转任其他职位。
 
-标普500指数和纳斯达克综合指数周五双双反弹，并再创历史新高。
+王良辞任后，公司董事会聘任王小青为新行长。
 
-美国劳工统计局周五公布的数据显示，4月非农就业人数增加11.5万，高于道琼斯调查经济学家预期的5.5万。
+王良的任期始于招商银行的震荡期，而王小青的任职也始于公司经营面临挑战。
 
-美国失业率持稳于4.3%，符合预期。
+据招商银行披露2025年财报，公司业绩仅实现微增长，营收更是连续3年“原地踏步”。
 
-市场继续关注美伊局势的最新发展。
+相比同规模的银行，其业绩仍然较大提升空间。
 
 ## 相关推荐
 
-- 2026-06-29 13:07 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:53 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 13:12 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:02 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:14 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:59 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 12:50 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:57 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 13:06 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 13:03 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 12:55 - [工信部启动人工智能科技伦理审查与服务先导计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:04 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:14 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:15 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 13:14 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 13:01 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
+- 2026-06-29 13:08 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 12:52 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 13:11 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 13:16 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-29 12:50 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-29 13:05 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.share.minike.top/Article/details/82593243148.shtml)
-- 2026-06-29 12:57 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:13 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.blog.minike.top/Article/details/47214401.shtml)
-- 2026-06-29 12:54 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](http://www.blog.minike.top/Article/details/0182944.shtml)
-- 2026-06-29 13:08 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.share.minike.top/Article/details/332678956.shtml)
-- 2026-06-29 12:55 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](http://www.share.kurohicncr.top/Article/details/98612656660.shtml)
-- 2026-06-29 12:55 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](http://www.share.kurohicncr.top/Article/details/7728614580.shtml)
-- 2026-06-29 12:58 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.share.minike.top/Article/details/828232800971.shtml)
-- 2026-06-29 13:05 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](http://www.blog.kurohicncr.top/Article/details/5765193948.shtml)
-- 2026-06-29 12:58 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](http://www.share.kurohicncr.top/Article/details/167734500.shtml)
-- 2026-06-29 12:49 - [APEC贸易部长会议将启 推动两个议题 释放三个信号](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件](http://www.share.kurohicncr.top/Article/details/865929.shtml)
-- 2026-06-29 12:56 - [4月份中国物流业景气指数49.7% 新订单指数连续回升](http://www.share.minike.top/Article/details/5923837068.shtml)
-- 2026-06-29 12:55 - [白俄罗斯纪念苏联伟大卫国战争胜利81周年](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:09 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](http://www.share.kurohicncr.top/Article/details/3939574.shtml)
+- 2026-06-29 13:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/2138100.shtml)
+- 2026-06-29 13:17 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/3008747553.shtml)
+- 2026-06-29 13:07 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/971059064252.shtml)
+- 2026-06-29 12:50 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.minike.top/Article/details/4251081.shtml)
+- 2026-06-29 12:56 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.share.kurohicncr.top/Article/details/2565334.shtml)
+- 2026-06-29 13:06 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/4508833.shtml)
+- 2026-06-29 13:03 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/093111136.shtml)
+- 2026-06-29 13:01 - [永远保持对人民的赤子之心](https://www.blog.minike.top/Article/details/2079808.shtml)
+- 2026-06-29 13:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/580961899.shtml)
+- 2026-06-29 12:50 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/769325412740.shtml)
+- 2026-06-29 13:19 - [天道](http://www.share.kurohicncr.top/Article/details/738446947172.shtml)
+- 2026-06-29 13:08 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/778812.shtml)
+- 2026-06-29 13:16 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/43431.shtml)
+- 2026-06-29 12:55 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/46483637751.shtml)
+- 2026-06-29 13:14 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/7634841.shtml)

@@ -1,54 +1,58 @@
-# 习言道｜父母是孩子的第一任老师
+# 外交部：中美双方就特朗普总统访华事保持着沟通
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月10日 07:30 来源：中国新闻网 “只要你把工作做好了，就是对爸爸妈妈最大的孝心。”母亲的言传身教让习近平受用一生。多年来，习近平总书记谨记母亲的教诲，夙夜在公、勤勉工作。一起重温总书记和母亲的暖心瞬间。 责任编辑：【任帅】
+【环球时报-环球网报道 记者 索炎琦】外交部发言人林剑主持5月8日例行记者会。会上有外媒记者提问称：美国总统特朗普日前表示，中美元首会谈会按计划举行。中方预计将在何时正式发布相关消息？此外，中方对本次元首会谈有何期待？双方会重点讨论哪些议题？ 林剑对此表示，中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。责任编辑：刘万里 SF014
 
 ## 正文
 
-发布时间：2026年05月10日 07:30 来源：中国新闻网 “只要你把工作做好了，就是对爸爸妈妈最大的孝心。
+【环球时报-环球网报道 记者 索炎琦】外交部发言人林剑主持5月8日例行记者会。
 
-”母亲的言传身教让习近平受用一生。
+会上有外媒记者提问称：美国总统特朗普日前表示，中美元首会谈会按计划举行。
 
-多年来，习近平总书记谨记母亲的教诲，夙夜在公、勤勉工作。
+中方预计将在何时正式发布相关消息？
 
-一起重温总书记和母亲的暖心瞬间。
+此外，中方对本次元首会谈有何期待？
 
-责任编辑：【任帅】
+双方会重点讨论哪些议题？
+
+林剑对此表示，中美双方就特朗普总统访华事保持着沟通，我目前没有可以进一步提供的信息。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 13:07 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:04 - [10万立方米超大型乙烷运输船从江苏出江试航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:16 - [德银高管：美伊停战情境下 油价或下探每桶85美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 13:01 - [北京科博会机器人扎堆 外国采购商：中国制造业确实领先](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:57 - [黑龙江高校“上新”77个本科专业 “低空＋”与“AI＋”成最热赛道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:08 - [王凤英获165万股股票！打工长城30年，不及小鹏2个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:11 - [泡泡玛特盘中涨超7% 段永平日前发文称要继续加仓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:49 - [广东东莞“子母库”蝶变：一泓碧水绘文化传承新卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:59 - [石油高管：受伊朗战争影响，全球能源体系将发生重大变革](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:48 - [天舟十号即将发射！商业航天逆市冲高，华宝基金通用航空ETF（159231）大涨2%冲击5连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:49 - [一季度黄金市场“消费冷、投资热”：首饰销量同比降37%，金条金币增46%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 13:12 - [美重启对伊制裁8周年 压力和战争影响伊朗经济民生](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 13:17 - [特朗普称俄罗斯和乌克兰将在5月9日至11日期间停火三天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 13:03 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 13:00 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-29 12:51 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 13:10 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-29 12:52 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-29 12:51 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
+- 2026-06-29 13:07 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 13:16 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-29 13:04 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-29 12:58 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 13:02 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 13:10 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-29 13:06 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 13:10 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:58 - [海内外妈祖敬仰者赴福建湄洲妈祖祖庙春祭妈祖 台胞坦言一定要来](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [市场监管总局：4792.24万户经营主体获信用修复](http://www.blog.kurohicncr.top/Article/details/193000714.shtml)
-- 2026-06-29 13:07 - [泰柬领导人在菲律宾讨论两国边境局势](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [中国国防部：“航母五件套”是人民海军加速转型建设重要成果](http://www.blog.minike.top/Article/details/248407946749.shtml)
-- 2026-06-29 13:06 - [福建省“环戴云山”OPC联盟在德化成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [香港漫游记：冠冕与胸针的自如切换 来看看维多利亚时期珠宝设计的智慧](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [白帆竞展吴淞口 上海宝山邮轮港打造水上运动高地](http://www.blog.minike.top/Article/details/88202.shtml)
-- 2026-06-29 13:06 - [《主角》从文坛到荧屏：一曲秦腔半生沉浮](http://www.blog.kurohicncr.top/Article/details/625507.shtml)
-- 2026-06-29 12:53 - [天津皇会踩街巡游 两岸信众共迎妈祖诞辰](http://www.share.kurohicncr.top/Article/details/965581392.shtml)
-- 2026-06-29 13:07 - [中远海发于5月8日斥资408.85万元回购150万股A股](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态](http://www.blog.minike.top/Article/details/04880.shtml)
-- 2026-06-29 13:10 - [赖清德跪拜日本人被批“无耻无骨无格”](http://www.share.kurohicncr.top/Article/details/45300557.shtml)
-- 2026-06-29 13:12 - [华尔街收低，芯片股回吐涨幅](http://www.blog.kurohicncr.top/Article/details/935389810.shtml)
-- 2026-06-29 12:50 - [江西省人大常委会委员喻晓社接受审查调查](http://www.blog.kurohicncr.top/Article/details/11162.shtml)
-- 2026-06-29 13:11 - [外交部：希望欧方全面客观积极看待中欧经贸关系](http://www.blog.minike.top/Article/details/308141708886.shtml)
+- 2026-06-29 13:04 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/480990338488.shtml)
+- 2026-06-29 12:54 - [埃博拉为何再次袭击非洲](http://www.blog.kurohicncr.top/Article/details/5677549395.shtml)
+- 2026-06-29 13:12 - [日本主帅：对战胜巴西很有信心](https://www.share.kurohicncr.top/Article/details/372150.shtml)
+- 2026-06-29 12:58 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/4314928.shtml)
+- 2026-06-29 13:03 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/212698735584.shtml)
+- 2026-06-29 13:05 - [比亚迪为什么卖得越多市值越低](https://www.share.minike.top/Article/details/20852.shtml)
+- 2026-06-29 12:53 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/60424581153.shtml)
+- 2026-06-29 12:54 - [房屋抵押权与租赁权如何协调](https://www.share.kurohicncr.top/Article/details/724008819764.shtml)
+- 2026-06-29 13:15 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/0940581950.shtml)
+- 2026-06-29 12:54 - [陈露发声引舆论反转](http://www.blog.minike.top/Article/details/88598.shtml)
+- 2026-06-29 13:10 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/55792.shtml)
+- 2026-06-29 13:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/2102668.shtml)
+- 2026-06-29 12:51 - [虞书欣灿如繁星明天定档](https://www.share.minike.top/Article/details/060242391.shtml)
+- 2026-06-29 13:11 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.minike.top/Article/details/94991.shtml)
+- 2026-06-29 13:14 - [法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/223821419.shtml)

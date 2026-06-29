@@ -1,61 +1,61 @@
-# 科技创新，年轻一代实干争先（总书记的关切·落地的回响）
+# 世界斯诺克巡回赛年终奖项 赵心童、吴宜泽双双获奖
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-“要把培养国家战略人才力量的政策重心放在青年科技人才上，给予青年人才更多的信任、更好的帮助、更有力的支持，支持青年人才挑大梁、当主角。” ——2021年9月27日，习近平总书记在中央人才工作会议上强调 5月的上海，暖风轻拂，梧桐缀绿。在黄浦江西岸约6万平方米的“模速空间”里，创意与灵感持续碰撞，一个属于人工智能的未来正在悄然生长。 “人工智能是年轻的事业，也是年轻人的事业。我们
+5月8日，世界斯诺克巡回赛(WST)发布25/26赛季年终奖项： WST年度最佳球员：赵心童 球迷票选最佳球员：吴宜泽 媒体评选最佳球员：赵心童年度最佳表现奖：罗尼·奥沙利文 年度最佳新人奖：米哈乌·苏巴尔奇克 年度神奇时刻：杰克·利索夫斯基北爱尔兰公开赛决赛9-8绝杀贾德·特鲁姆普 年度突破选手奖：常冰玉 名人堂入选：赵心童、马克·艾伦 赵心童获评WST年度最佳球员，他199
 
 ## 正文
 
-“要把培养国家战略人才力量的政策重心放在青年科技人才上，给予青年人才更多的信任、更好的帮助、更有力的支持，支持青年人才挑大梁、当主角。
+5月8日，世界斯诺克巡回赛(WST)发布25/26赛季年终奖项： WST年度最佳球员：赵心童 球迷票选最佳球员：吴宜泽 媒体评选最佳球员：赵心童年度最佳表现奖：罗尼·奥沙利文 年度最佳新人奖：米哈乌·苏巴尔奇克 年度神奇时刻：杰克·利索夫斯基北爱尔兰公开赛决赛9-8绝杀贾德·特鲁姆普 年度突破选手奖：常冰玉 名人堂入选：赵心童、马克·艾伦 赵心童获评WST年度最佳球员，他1997年出生于广东深圳，8岁开始接触斯诺克运动。
 
-” ——2021年9月27日，习近平总书记在中央人才工作会议上强调 5月的上海，暖风轻拂，梧桐缀绿。
+他2016年进入职业赛场，2021年获得英锦赛冠军，成为首位在斯诺克三大赛中夺冠的90后球员，2025年夺得世锦赛冠军，成为亚洲首位斯诺克世锦赛冠军。
 
-在黄浦江西岸约6万平方米的“模速空间”里，创意与灵感持续碰撞，一个属于人工智能的未来正在悄然生长。
+2026年4月，赵心童夺得2026斯诺克巡回锦标赛冠军，成为历史上首位单赛季包揽球员系列赛三座冠军的选手。
 
-“人工智能是年轻的事业，也是年轻人的事业。
+刚刚在2026世界斯诺克锦标赛夺得冠军的吴宜泽，斩获球迷票选最佳球员。
 
-我们正在全面推进强国建设、民族复兴伟业，正是年轻一代展示才华、大显身手的好时候。
+他2003年出生于甘肃省兰州市，7岁与台球结缘，2018年获IBSF世界青年斯诺克锦标赛U21冠军，2021年转为职业球员。
 
-实现中华民族的伟大梦想，寄希望于年轻人。
+2025年夺得国际锦标赛冠军。
 
-”2025年4月，习近平总书记来到上海“模速空间”大模型创新生态社区，同现场青年创新人才亲切交流。
+日前，他在2026世锦赛决赛中战胜肖恩·墨菲，成为史上首位“00后”世锦赛冠军，世界排名升至第4位，是继赵心童之后第2位世锦赛冠军中国选手。
 
-今年4月30日，习近平总书记在加强基础研究座谈会上强调：“源源不断培养基础研究后备力量”“坚持任务牵引、以老带新，大力扶持青年人才”。
+此外，年度突破选手奖花落中国选手常冰玉。
 
 ## 相关推荐
 
-- 2026-06-29 12:54 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:53 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 13:07 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:06 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:53 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:11 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 13:03 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 13:16 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:52 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 13:04 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 12:52 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 13:03 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 13:08 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:10 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 13:16 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:53 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 12:52 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-29 13:14 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 12:51 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 12:54 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 13:10 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
+- 2026-06-29 13:12 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:05 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 13:00 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 13:03 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 13:15 - [世界杯用球成部分门将噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 13:19 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:12 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 13:03 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 12:50 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:11 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.share.kurohicncr.top/Article/details/8185080.shtml)
-- 2026-06-29 13:01 - [第48届东盟峰会在菲律宾举行](http://www.blog.minike.top/Article/details/2637488.shtml)
-- 2026-06-29 12:50 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.share.kurohicncr.top/Article/details/42570564819.shtml)
-- 2026-06-29 13:15 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](http://www.blog.kurohicncr.top/Article/details/707052617.shtml)
-- 2026-06-29 13:16 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.share.minike.top/Article/details/01609.shtml)
-- 2026-06-29 12:53 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:13 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.share.kurohicncr.top/Article/details/955397342800.shtml)
-- 2026-06-29 12:58 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [面向全球征集 空天信息领域十大前沿问题正式发布](http://www.blog.kurohicncr.top/Article/details/9135287.shtml)
-- 2026-06-29 13:17 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.share.minike.top/Article/details/74383.shtml)
-- 2026-06-29 12:51 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](http://www.blog.minike.top/Article/details/443059342.shtml)
-- 2026-06-29 13:10 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.blog.minike.top/Article/details/267436365.shtml)
-- 2026-06-29 13:00 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](http://www.blog.kurohicncr.top/Article/details/46684.shtml)
-- 2026-06-29 12:52 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](http://www.blog.kurohicncr.top/Article/details/839786487.shtml)
-- 2026-06-29 13:10 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](http://www.blog.minike.top/Article/details/7018266.shtml)
+- 2026-06-29 13:02 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/91658.shtml)
+- 2026-06-29 12:53 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.kurohicncr.top/Article/details/9309350.shtml)
+- 2026-06-29 13:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/92134.shtml)
+- 2026-06-29 13:11 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/53812008267.shtml)
+- 2026-06-29 13:06 - [青春环游记第三季](http://www.blog.minike.top/Article/details/98205605.shtml)
+- 2026-06-29 12:55 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/45140.shtml)
+- 2026-06-29 13:05 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/623170.shtml)
+- 2026-06-29 12:57 - [利率一再降 “存款搬家”搬去哪](http://www.blog.minike.top/Article/details/81160867.shtml)
+- 2026-06-29 13:10 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.minike.top/Article/details/29720143800.shtml)
+- 2026-06-29 13:01 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.kurohicncr.top/Article/details/24163546198.shtml)
+- 2026-06-29 13:18 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/22766936631.shtml)
+- 2026-06-29 12:49 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/21170786512.shtml)
+- 2026-06-29 13:08 - [恋与深空女玩家不该被冒犯](https://www.blog.minike.top/Article/details/4221972865.shtml)
+- 2026-06-29 13:10 - [功率半导体缺货涨价](http://www.share.minike.top/Article/details/915018701.shtml)
+- 2026-06-29 13:04 - [韩国队启程回国众将回避镜头](http://www.blog.kurohicncr.top/Article/details/94876140463.shtml)

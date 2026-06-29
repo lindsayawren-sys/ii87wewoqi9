@@ -1,60 +1,61 @@
-# 2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！
+# 乌总统下令避免袭击俄红场阅兵 美总统称支持大幅延长俄乌停火时限
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：野马财经 作者 | 姚悦 编辑丨于婞 算力转型能否如期推进？ “你要培养对事情悬而未决的耐受力”——这句某短视频平台著名鸡汤，不知道对于古鳌科技（维权）（300551.SZ）的新实控人徐迎辉是否奏效。 就在古鳌科技公告前老板陈崇军一审被判操纵证券市场罪
+中新社北京5月9日电 综合消息：据乌克兰国家通讯社报道，乌总统泽连斯基已下令，避免袭击俄罗斯莫斯科红场9日举行的阅兵活动。美国总统特朗普8日傍晚就“俄乌停火能否继续延长”表示，支持大幅延长停火时限。乌总统网站8日夜间公布泽连斯基签署的总统令。该总统令称，考虑到多方要求，出于8日与美方会谈时阐明的人道主义宗旨，乌方决定，5月9日俄首都莫斯科红场举行阅兵期间，将红场所在区域排除在乌
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社北京5月9日电 综合消息：据乌克兰国家通讯社报道，乌总统泽连斯基已下令，避免袭击俄罗斯莫斯科红场9日举行的阅兵活动。
 
-来源：野马财经 作者 | 姚悦 编辑丨于婞 算力转型能否如期推进？
+美国总统特朗普8日傍晚就“俄乌停火能否继续延长”表示，支持大幅延长停火时限。
 
-“你要培养对事情悬而未决的耐受力”——这句某短视频平台著名鸡汤，不知道对于古鳌科技（维权）（300551.SZ）的新实控人徐迎辉是否奏效。
+乌总统网站8日夜间公布泽连斯基签署的总统令。
 
-就在古鳌科技公告前老板陈崇军一审被判操纵证券市场罪的前3天，公司就宣布这位“80后算力新贵”“闪电”入主古鳌科技，并紧接着宣布定增不超过4.32亿元。
+该总统令称，考虑到多方要求，出于8日与美方会谈时阐明的人道主义宗旨，乌方决定，5月9日俄首都莫斯科红场举行阅兵期间，将红场所在区域排除在乌方攻击目标之外。
 
-但仅4个月后，陈崇军埋下的“旧雷”突然爆了：由当年古鳌科技收购东高（广东）科技发展有限公司（简称：东高科技）案引爆了一场“双向诉讼战”——古鳌科技先起诉东高科技原股东东方高圣科技有限公司（简称：东方高圣）、上海睦誉企业管理中心（简称：上海睦誉）要求支付业绩补偿款6140.93万元，而对方反手告古鳌科技当初收购就违规，并索赔2.8亿元。
+该文件中标注了莫斯科红场的详细地理坐标。
 
-新智派新质生产力会客厅联合创始发起人袁帅表示，一旦东高科技原股东方胜诉，古鳌科技前期发起的业绩补偿诉讼有可能失去法律基础。
+特朗普8日傍晚在白宫表示，对于俄乌同意实施停火，“所有人都感到满意”。
 
-而对徐迎辉来说，2.8亿元诉讼悬而未决，或许比一次性判赔还要难受——不仅拖累公司融资与转型节奏，更可能让其错失算力产业的黄金窗口期。
+他支持接下来“大幅延长停火时限”，愿意派美方谈判代表前往莫斯科，协助解决乌克兰冲突。
 
-截至5月8日收盘，古鳌科技报14.89元/股，上涨1.15%，总市值51亿元。
+当天早些时候，特朗普在社交媒体发文称，在他提议下，俄乌将在9日至11日停火3天，在此期间相互交换1000名战俘。
 
 ## 相关推荐
 
-- 2026-06-29 12:53 - [祁连山 “生命方舟” 累计救助收容259只野生动物](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:57 - [早盘：标普500指数和纳斯达克综合再创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 13:17 - [RBC Capital上调标普500年终目标至7900点，看好后市上涨空间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 13:13 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 13:10 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 13:10 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:49 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 13:02 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 13:08 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 13:06 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:08 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 13:06 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:00 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:50 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:11 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 13:19 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 13:01 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 12:53 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 12:58 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 13:13 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
+- 2026-06-29 12:52 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-29 13:19 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
+- 2026-06-29 13:00 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 13:10 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
+- 2026-06-29 12:56 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 13:04 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 12:54 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 12:52 - [法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 13:19 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:56 - [黄金周线有望录得上涨，或将突破箱体压力？](http://www.share.minike.top/Article/details/94207259.shtml)
-- 2026-06-29 13:05 - [保利置业集团前4个月实现合同销售金额约154亿元 同比减少13.97%](http://www.blog.minike.top/Article/details/43332.shtml)
-- 2026-06-29 13:00 - [第48届东盟峰会在菲律宾举行](http://www.share.minike.top/Article/details/796776848.shtml)
-- 2026-06-29 12:53 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.share.kurohicncr.top/Article/details/85661136881.shtml)
-- 2026-06-29 13:10 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.blog.minike.top/Article/details/142469901.shtml)
-- 2026-06-29 12:56 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.blog.kurohicncr.top/Article/details/478986113.shtml)
-- 2026-06-29 13:12 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.blog.kurohicncr.top/Article/details/54905058999.shtml)
-- 2026-06-29 13:12 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.blog.kurohicncr.top/Article/details/7519184.shtml)
-- 2026-06-29 12:57 - [面向全球征集 空天信息领域十大前沿问题正式发布](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](http://www.share.kurohicncr.top/Article/details/3099480.shtml)
-- 2026-06-29 12:49 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:12 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.blog.kurohicncr.top/Article/details/85397997849.shtml)
-- 2026-06-29 13:14 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:16 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [加拿大92分钟绝杀](http://www.share.kurohicncr.top/Article/details/06637306220.shtml)
+- 2026-06-29 12:53 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/09290937311.shtml)
+- 2026-06-29 13:07 - [初心如磐 红色足迹](http://www.blog.minike.top/Article/details/998960434.shtml)
+- 2026-06-29 13:11 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/916966.shtml)
+- 2026-06-29 12:52 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/6295035.shtml)
+- 2026-06-29 13:16 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/151402563160.shtml)
+- 2026-06-29 12:51 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/577577878.shtml)
+- 2026-06-29 12:59 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/648377.shtml)
+- 2026-06-29 12:52 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/181515648105.shtml)
+- 2026-06-29 13:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/26478249.shtml)
+- 2026-06-29 13:01 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/60735.shtml)
+- 2026-06-29 13:09 - [时光音乐会](http://www.blog.minike.top/Article/details/873543017065.shtml)
+- 2026-06-29 13:00 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/65664174.shtml)
+- 2026-06-29 13:08 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/468279.shtml)
+- 2026-06-29 13:14 - [法拉利被多名孩童当滑梯玩耍](http://www.share.minike.top/Article/details/656496.shtml)

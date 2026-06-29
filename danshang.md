@@ -1,61 +1,59 @@
-# 【树立和践行正确政绩观】办好为民实事 推动学习教育走深走实
+# 上海将承办2028年奥运会资格系列赛
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-央视网消息（新闻联播）：当前，树立和践行正确政绩观学习教育正在深入扎实开展。四川省宜宾市、福建省厦门市深学细悟、真抓实干，切实把学习教育成果转化为指导实践、为民造福的实际行动和成效。 四川宜宾建立专题研讨深学、青年党员研学、市县专班督学等机制，推动学习教育融入日常、抓在经常。学习教育开展以来，宜宾选派2100多名干部走进社区、乡村，收集整理群众意见。 围绕居民反映的部分老旧小区
+中新网上海5月8日电 (记者 缪璐)国际奥委会7日宣布，中国上海、日本东京、加拿大蒙特利尔、美国奥兰多将分别承办一站2028年洛杉矶奥运会资格系列赛，举办时间为2028年5月至6月。这是继2024年巴黎奥运会资格系列赛后，该项赛事再次落户上海。其中，资格系列赛将于2028年5月4日至7日在东京举行第一站；2028年5月11日至14日登陆上海；2028年6月1日至4日前往蒙特利尔
 
 ## 正文
 
-央视网消息（新闻联播）：当前，树立和践行正确政绩观学习教育正在深入扎实开展。
+中新网上海5月8日电 (记者 缪璐)国际奥委会7日宣布，中国上海、日本东京、加拿大蒙特利尔、美国奥兰多将分别承办一站2028年洛杉矶奥运会资格系列赛，举办时间为2028年5月至6月。
 
-四川省宜宾市、福建省厦门市深学细悟、真抓实干，切实把学习教育成果转化为指导实践、为民造福的实际行动和成效。
+这是继2024年巴黎奥运会资格系列赛后，该项赛事再次落户上海。
 
-四川宜宾建立专题研讨深学、青年党员研学、市县专班督学等机制，推动学习教育融入日常、抓在经常。
+其中，资格系列赛将于2028年5月4日至7日在东京举行第一站；2028年5月11日至14日登陆上海；2028年6月1日至4日前往蒙特利尔；2028年6月8日至11日在奥兰多收官。
 
-学习教育开展以来，宜宾选派2100多名干部走进社区、乡村，收集整理群众意见。
+每站赛事的具体项目设置还待确认，目前计划设项包括三人篮球、沙滩排球、自由式小轮车、攀岩、腰旗橄榄球和滑板。
 
-围绕居民反映的部分老旧小区无业主委员会、无物业服务、无人防物防等问题，宜宾将全市存在问题的400多个小区划分为4类，制定45项重点攻坚任务清单，分批推动改造提升。
+其中，自由式小轮车、攀岩和滑板是2024年首届奥运会资格系列赛项目，三人篮球、沙滩排球和腰旗橄榄球则是新加入的项目。
 
-目前，宜宾全市县处级以上领导班子针对“部分干部存在主动破局意愿薄弱”等情况，建立学习教育查摆问题清单162个，查摆问题4300余条。
+为在奥运会举办的十几天之外持续保持奥林匹克运动的热度，并吸引更多青年人的关注，国际奥委会在巴黎奥运周期创办了奥运会资格系列赛。
 
-福建厦门一体推进学查改。
+创立这一赛事，也是奥林匹克运动改革路线图《奥林匹克2020+5议程》中的一项重要举措。
 
-学习教育开展以来，厦门以民生需求为工作落脚点，组织党员干部深入社区一线走访调研，倾听群众诉求。
+国际奥委会主席柯丝蒂·考文垂说：“本届资格系列赛是通往洛杉矶奥运会道路上一项激动人心的全球赛事。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:00 - [第四届西藏自治区数字教育发展大会在拉萨举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:02 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 13:13 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:55 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 13:06 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:08 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 12:55 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 13:14 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:16 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:11 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 13:13 - [高开低走，油脂后市何去何从？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 13:09 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 13:09 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:13 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:57 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 12:50 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 13:13 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 13:10 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 12:53 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-29 13:09 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-29 12:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 13:07 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 12:50 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
+- 2026-06-29 12:53 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-29 13:17 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-29 13:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
+- 2026-06-29 12:59 - [白鹿呵呵挽手比心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [光大证券，离头部券商越来越远](http://www.share.kurohicncr.top/Article/details/371517.shtml)
-- 2026-06-29 13:13 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](http://www.blog.minike.top/Article/details/432670423600.shtml)
-- 2026-06-29 13:15 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](http://www.share.minike.top/Article/details/7146842211.shtml)
-- 2026-06-29 12:51 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](http://www.blog.minike.top/Article/details/79077.shtml)
-- 2026-06-29 12:57 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](http://www.blog.kurohicncr.top/Article/details/54191812466.shtml)
-- 2026-06-29 13:14 - [对话：数智共生 金融致远——科技赋能下的金融变革与未来生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:07 - [工信部启动人工智能科技伦理审查与服务先导计划](http://www.share.minike.top/Article/details/20761872460.shtml)
-- 2026-06-29 12:53 - [荣尊国际控股获单一最大股东折让约48%提全购要约 5月8日复牌](http://www.share.kurohicncr.top/Article/details/2396418.shtml)
-- 2026-06-29 13:15 - [财税专家：教育培训等行业应全额一次性申报纳税](http://www.blog.minike.top/Article/details/4996151.shtml)
-- 2026-06-29 13:09 - [《智能体规范应用与创新发展实施意见》答记者问](http://www.blog.kurohicncr.top/Article/details/9682247.shtml)
-- 2026-06-29 12:59 - [高盛：美图公司维持“买入”评级 目标价14.30港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:17 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.blog.minike.top/Article/details/118644249.shtml)
-- 2026-06-29 13:01 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](http://www.blog.minike.top/Article/details/821465.shtml)
-- 2026-06-29 13:17 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](http://www.blog.kurohicncr.top/Article/details/3917484387.shtml)
+- 2026-06-29 12:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/9310130637.shtml)
+- 2026-06-29 12:57 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/6044102127.shtml)
+- 2026-06-29 13:10 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/708328859.shtml)
+- 2026-06-29 12:55 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.minike.top/Article/details/831323397744.shtml)
+- 2026-06-29 13:18 - [詹姆斯下赛季会在哪里](http://www.share.minike.top/Article/details/96063.shtml)
+- 2026-06-29 13:03 - [男子持刀胁迫技师脱衣事发后翻窗坠亡](https://www.blog.kurohicncr.top/Article/details/16534560.shtml)
+- 2026-06-29 13:10 - [去美国加油？部分加拿大球迷陷入纠结](http://www.blog.kurohicncr.top/Article/details/62908597.shtml)
+- 2026-06-29 13:17 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/37560.shtml)
+- 2026-06-29 12:59 - [千与千寻](https://www.share.kurohicncr.top/Article/details/8367345869.shtml)
+- 2026-06-29 13:09 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/0356726.shtml)
+- 2026-06-29 13:11 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.blog.minike.top/Article/details/886028852.shtml)
+- 2026-06-29 13:06 - [吴昕要助理买的药6年前已停产](https://www.blog.minike.top/Article/details/6620339923.shtml)
+- 2026-06-29 13:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/876096.shtml)
+- 2026-06-29 12:51 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/462843449564.shtml)
+- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.kurohicncr.top/Article/details/3484338.shtml)

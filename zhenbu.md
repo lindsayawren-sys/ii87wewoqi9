@@ -1,56 +1,57 @@
-# 英国首相斯塔默遭遇地方选举惨败，仍计划留任
+# 4月银行业监管罚没1.58亿元、环比增长16%，浙江罚单数量及罚没金额领跑
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-英国首相斯塔默于周六重申，尽管执政党工党遭遇数十年来最惨重的地方选举失利之一，他仍将继续留任。 斯塔默在接受英国广播公司采访时表示：“我不会一走了之，让国家陷入混乱。我认为当下正确的做法是重整旗鼓，为国家指明前行方向。” 主张反移民政策的英国改革党在英格兰地方议会席位中大举斩获，主要蚕食了工党的席位；主张威尔士独立的威尔士党拿下威尔士议会最多席位，终结了工党在威尔士数十年的执政
+来源：消费日报财经 进入二季度，金融监管部门对银行业的合规整顿力度继续加码。 据企业预警通最新发布的报告显示，今年4月，中国人民银行、国家金融监督管理总局、国家外汇管理局及其派出机构共对银行机构及从业人员开出罚单388张，罚没金额合计约1.58亿元，涉及受罚银行124家。 尽管罚单数量环比微降0.26%，但罚没金额环比增长16.18%，其中百万元以上大额罚单数量达47张，较上月
 
 ## 正文
 
-英国首相斯塔默于周六重申，尽管执政党工党遭遇数十年来最惨重的地方选举失利之一，他仍将继续留任。
+来源：消费日报财经 进入二季度，金融监管部门对银行业的合规整顿力度继续加码。
 
-斯塔默在接受英国广播公司采访时表示：“我不会一走了之，让国家陷入混乱。
+据企业预警通最新发布的报告显示，今年4月，中国人民银行、国家金融监督管理总局、国家外汇管理局及其派出机构共对银行机构及从业人员开出罚单388张，罚没金额合计约1.58亿元，涉及受罚银行124家。
 
-我认为当下正确的做法是重整旗鼓，为国家指明前行方向。
+尽管罚单数量环比微降0.26%，但罚没金额环比增长16.18%，其中百万元以上大额罚单数量达47张，较上月增加18张，增幅超过60%。
 
-” 主张反移民政策的英国改革党在英格兰地方议会席位中大举斩获，主要蚕食了工党的席位；主张威尔士独立的威尔士党拿下威尔士议会最多席位，终结了工党在威尔士数十年的执政地位。
+此外，个人罚单达214张，占罚单总量的55%以上，金融机构合规责任正从机构层面向管理层乃至一线人员深度穿透。
 
-苏格兰民族党则成为苏格兰地方议会第一大党。
+浙江罚单数量及罚没金额领跑 从被罚银行类型来看，4月份呈现“农商行罚单最多、国有银行罚金最重”并存的格局。
 
-近年来英国经济增长停滞、民众生活水平止步不前，经济改革进展迟缓也让民众对工党的不满情绪日渐高涨。
+农商行以99张罚单占总量的25.52%，居所有类型银行之首，且罚单数量较上月继续增加；股份制银行和国有银行分别被开出86张和79张罚单，紧随其后。
 
-周六，工党内部要求斯塔默辞职下台的呼声愈发高涨。
+罚没金额方面，国有银行合计被罚没约3479.39万元，占当月总额的22.07%，位列各类型银行首位。
 
-前内阁大臣凯瑟琳·韦斯特在社交平台上发文称：“不止我一人，众多工党成员都希望他辞去党首一职。
+农商行与股份制银行罚没金额亦达3000万元以上，分别约3428.32万元、3259.34万元，排在第二、第三位。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [海吉亚医疗获执行董事朱义文增持51.9万股 每股作价11.89港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 13:08 - [以杂技绘长江 重庆大型幻境杂技剧《长江》开启常态化驻演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:54 - [2026湖南车展：大型新能源SUV为何受热捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:58 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:52 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:58 - [日经指数下跌0.8% 受科技股和金融股拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 13:10 - [预防心梗，这些不良习惯需警惕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:51 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 12:55 - [四部门发文促进人工智能与能源双向赋能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:05 - [妈妈，我想对你说](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 13:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 13:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 13:04 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-29 13:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-29 13:17 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
+- 2026-06-29 13:02 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 13:07 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 12:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
+- 2026-06-29 12:56 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 13:05 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 13:14 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [创投月报 | 高瓴创投：联手熙诚金睿设立新基金 三周内两轮加码地瓜机器人](http://www.blog.minike.top/Article/details/130887225.shtml)
-- 2026-06-29 13:01 - [第四届西藏自治区数字教育发展大会在拉萨举办](http://www.share.minike.top/Article/details/652203860.shtml)
-- 2026-06-29 12:53 - [翡翠千里眼、顺风耳雕像在福建湄洲妈祖祖庙揭幕](http://www.share.minike.top/Article/details/047050740.shtml)
-- 2026-06-29 12:48 - [浙江创新“以外调外”调解涉外纠纷——“国际老娘舅”，巧妙解难题](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [中创新航盘中涨超4% 一季度归母净利润同比增长62.1%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [投资者担忧能量饮料“疲劳”，Monster与Celsius财报带来安慰](http://www.blog.minike.top/Article/details/420768.shtml)
-- 2026-06-29 13:09 - [盘前：纳指期货涨0.6% 市场等待月度就业报告](http://www.share.kurohicncr.top/Article/details/5970399.shtml)
-- 2026-06-29 13:09 - [重庆最大液化天然气单一燃料江海直达散货船首航](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [走，到林区一线去！东林“支林计划”近五百学子以青春守绿水青山](http://www.blog.minike.top/Article/details/26085451589.shtml)
-- 2026-06-29 13:14 - [欧洲机构警告：2027年可能会成为有记录以来最热一年](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [花旗：农夫山泉目标价升至59.20港元 给予“买入”评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [高开低走，油脂后市何去何从？](http://www.share.minike.top/Article/details/27673.shtml)
-- 2026-06-29 13:03 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](http://www.share.minike.top/Article/details/5293094.shtml)
-- 2026-06-29 13:09 - [享界S9零重力座椅事件，给车企和用户都提了个醒](http://www.share.minike.top/Article/details/820866.shtml)
+- 2026-06-29 13:11 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/56527882.shtml)
+- 2026-06-29 12:53 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/1792850322.shtml)
+- 2026-06-29 13:08 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/98877582.shtml)
+- 2026-06-29 13:10 - [韩媒称韩国队遭中国网民嘲讽](https://www.share.minike.top/Article/details/4377272943.shtml)
+- 2026-06-29 12:50 - [5万块的威力](https://www.blog.minike.top/Article/details/12437.shtml)
+- 2026-06-29 13:14 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/4837293.shtml)
+- 2026-06-29 13:05 - [伊朗与黎巴嫩商定设立冲突管控工作组](https://www.blog.kurohicncr.top/Article/details/6357587.shtml)
+- 2026-06-29 13:18 - [世界杯看台惊现一群“哈兰德”](https://www.share.kurohicncr.top/Article/details/9721533688.shtml)
+- 2026-06-29 13:14 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/558580961.shtml)
+- 2026-06-29 13:19 - [如何看待《恋与深空》玩家以退游删号等方式回应制作组？是此前积累的问题集中爆发了吗？](https://www.blog.kurohicncr.top/Article/details/2286432.shtml)
+- 2026-06-29 12:58 - [国乒全主力参加美国大满贯](https://www.share.minike.top/Article/details/1634699591.shtml)
+- 2026-06-29 12:58 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/762629843357.shtml)
+- 2026-06-29 13:17 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/5638904121.shtml)
+- 2026-06-29 13:10 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/70685352628.shtml)
+- 2026-06-29 13:10 - [记者率先试乘西十高铁](http://www.blog.kurohicncr.top/Article/details/07625293509.shtml)

@@ -1,46 +1,61 @@
-# 朝“问”健康：父母健康 孩子就不会得“地贫”吗？
+# 从乳业到稀土 内蒙古以产业计量嵌入全国产业升级
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月08日 13:57 来源：央视新闻 责任编辑：【韦俊龙】
+中新网呼和浩特5月8日电 题：从乳业到稀土 内蒙古以产业计量嵌入全国产业升级 中新网记者 刘文华 “产业计量不是‘选择题’，而是现代化产业体系建设的‘必答题’。”5月7日，内蒙古自治区市场监管局副局长官君山在呼和浩特表示。 当天，2026年内蒙古自治区产业计量测试中心现场经验交流会在呼和浩特召开。乳制品、稀土、马铃薯、煤炭等领域的产业计量测试中心依次介绍建设情况；筹备中的玉米产
 
 ## 正文
 
-发布时间：2026年05月08日 13:57 来源：央视新闻 责任编辑：【韦俊龙】
+中新网呼和浩特5月8日电 题：从乳业到稀土 内蒙古以产业计量嵌入全国产业升级 中新网记者 刘文华 “产业计量不是‘选择题’，而是现代化产业体系建设的‘必答题’。
+
+”5月7日，内蒙古自治区市场监管局副局长官君山在呼和浩特表示。
+
+当天，2026年内蒙古自治区产业计量测试中心现场经验交流会在呼和浩特召开。
+
+乳制品、稀土、马铃薯、煤炭等领域的产业计量测试中心依次介绍建设情况；筹备中的玉米产业计量测试中心也通报了筹建进展。
+
+计量是实现单位统一、保证量值准确可靠的活动。
+
+国家市场监管总局2020年发布的指导意见提出，在节能环保、新一代信息技术、生物医药、高端装备制造、新能源、新材料等战略性新兴产业重点领域，优先建设国家产业计量测试中心。
+
+国家乳制品产业计量测试中心是内蒙古首个国家级产业计量测试中心，由内蒙古计量测试研究院联合伊利集团于2021年10月获批筹建，2025年9月通过现场评审验收。
+
+该中心梳理出乳业产业参数838个，绘制量值溯源体系图776幅，建成12个相关计量实验室。
 
 ## 相关推荐
 
-- 2026-06-29 13:13 - [nLIGHT一季度业绩超预期，国防需求强劲推动股价大涨22%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:52 - [中方：希欧方全面、客观、积极看待中欧经贸关系，停止损人不利己的做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 13:10 - [保诚于5月7日斥资298.87万英镑回购25.26万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 13:14 - [华尔街新型NACHO 交易押注石油冲击将长期持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 13:02 - [专家解读：日本想借“肩并肩”联合军演兴起什么“风浪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 13:10 - [普京：收到泽连斯基希望会晤的口信 不反对在第三国会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:05 - [从乳业到稀土 内蒙古以产业计量嵌入全国产业升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:03 - [美国联邦政府4月再减9000个岗位，特朗普政府裁员计划持续推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 13:12 - [福建“十五五”聚焦数智赋能 打造“四区一标杆”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:56 - [欧阳光：四川银行中小银行IT体系企业级重构建设实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:55 - [直击徐州非法排污事件现场：清淤仍在继续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 13:09 - [（乡村行·看振兴）山西忻州荒坡上的“酸枣经”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:00 - [台评论员：日本对菲武器出口 为在南海“创造中国的另一个敌人”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:15 - [五粮液（000858）投资者索赔案已提交法院立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:57 - [杨紫《生命树》播放量破百亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
+- 2026-06-29 13:04 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-29 13:11 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 12:57 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 13:00 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 13:06 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 13:00 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-29 12:54 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 12:57 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 13:05 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 13:13 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:16 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 12:59 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
+- 2026-06-29 13:16 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 13:13 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [10%机构撬动行业近四成营收净利，广东16家券商马太效应加剧](http://www.blog.kurohicncr.top/Article/details/938017.shtml)
-- 2026-06-29 13:05 - [2026年一季度我国黄金产量81.065吨，同比下降7.08%](http://www.blog.minike.top/Article/details/13834.shtml)
-- 2026-06-29 12:48 - [日经指数下跌0.8% 受科技股和金融股拖累](http://www.blog.kurohicncr.top/Article/details/82772.shtml)
-- 2026-06-29 13:10 - [预防心梗，这些不良习惯需警惕](http://www.blog.minike.top/Article/details/3809377700.shtml)
-- 2026-06-29 13:05 - [青藏高原生物种质资源库构建全球高寒种质保护网](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [四部门发文促进人工智能与能源双向赋能](http://www.share.kurohicncr.top/Article/details/8136263.shtml)
-- 2026-06-29 13:01 - [妈妈，我想对你说](http://www.blog.minike.top/Article/details/39528.shtml)
-- 2026-06-29 12:52 - [通胀侵蚀消费支出 英国到店客流下滑](http://www.share.kurohicncr.top/Article/details/34858051266.shtml)
-- 2026-06-29 13:03 - [工商银行晋中分行被罚30万元：违规发放个人经营性贷款](http://www.blog.minike.top/Article/details/268822369.shtml)
-- 2026-06-29 13:07 - [博时市场点评5月8日：沪指收盘微跌，创业板跌0.96%](http://www.blog.kurohicncr.top/Article/details/612155020.shtml)
-- 2026-06-29 13:15 - [川渝六地联合推出八项便民利企措施 实现跨区域年报无差别](http://www.blog.kurohicncr.top/Article/details/919899.shtml)
-- 2026-06-29 13:00 - [美伊交火！过去24小时没有大型商船通过霍尔木兹海峡！黄金、原油集体上涨](http://www.blog.kurohicncr.top/Article/details/0838942764.shtml)
-- 2026-06-29 13:17 - [推广普及国家通用语言文字是统一多民族国家建设的题中之义](http://www.share.minike.top/Article/details/816381453860.shtml)
-- 2026-06-29 13:02 - [AI时代，全球教育正面临三层重塑](http://www.share.minike.top/Article/details/7810297.shtml)
-- 2026-06-29 12:58 - [“初心共染：宿利群、林春岩艺术文献展”在京启幕](http://www.share.minike.top/Article/details/97526960.shtml)
+- 2026-06-29 13:05 - [农发行总行专家委员会委员杜晓力被查](http://www.share.kurohicncr.top/Article/details/98814025764.shtml)
+- 2026-06-29 12:51 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/036839.shtml)
+- 2026-06-29 12:58 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/265346939.shtml)
+- 2026-06-29 13:14 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/7453148380.shtml)
+- 2026-06-29 13:18 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/40038.shtml)
+- 2026-06-29 13:05 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/612261.shtml)
+- 2026-06-29 13:13 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/75850744985.shtml)
+- 2026-06-29 12:59 - [以前不让妆女二可以艳压女主](http://www.share.kurohicncr.top/Article/details/056775187392.shtml)
+- 2026-06-29 12:53 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/6721301071.shtml)
+- 2026-06-29 13:07 - [智界V9成为高端圈层共同选择](http://www.share.kurohicncr.top/Article/details/5200803.shtml)
+- 2026-06-29 12:53 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/83135508298.shtml)
+- 2026-06-29 13:05 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/347938720.shtml)
+- 2026-06-29 13:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/717950736913.shtml)
+- 2026-06-29 12:58 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/9004303160.shtml)
+- 2026-06-29 13:11 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/786277294.shtml)

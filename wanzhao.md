@@ -1,52 +1,58 @@
-# 西班牙政府称接收涉疫邮轮工作“一切准备就绪”
+# 美伊双方在霍尔木兹海峡交火 均指责对方发起攻击
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-当地时间5月9日晚间，西班牙卫生大臣莫妮卡·加西亚、内政大臣马拉斯卡和世界卫生组织总干事谭德塞等多方共同在西班牙特内里费岛出席了新闻发布会。 加西亚在发布会上表示，西班牙接收涉及汉坦病毒疫情邮轮的工作“一切准备就绪”，此次撤离行动涉及23个国家，西班牙正在与国际卫生机构协调，以确保行动在最高保障下进行。 根据邮轮运营方的声明，该邮轮预计将在加那利群岛当地时间10日5时30分抵达
+美伊双方在霍尔木兹海峡交火，均指责对方率先发起攻击。 美国中央司令部发表声明称，周四晚间三艘美国海军驱逐舰行经霍尔木兹海峡时，美军拦截了伊朗无端发起的袭击，并实施自卫反击。 中央司令部表示，美军舰艇向阿曼湾航行途中，伊朗军方发射多枚导弹、出动无人机及小型快艇，美方无一装备与设施遭袭受损。 声明称，美国中央司令部拦截并摧毁了来袭威胁，同时打击了曾袭击美军的伊朗军事设施，目标包括：
 
 ## 正文
 
-当地时间5月9日晚间，西班牙卫生大臣莫妮卡·加西亚、内政大臣马拉斯卡和世界卫生组织总干事谭德塞等多方共同在西班牙特内里费岛出席了新闻发布会。
+美伊双方在霍尔木兹海峡交火，均指责对方率先发起攻击。
 
-加西亚在发布会上表示，西班牙接收涉及汉坦病毒疫情邮轮的工作“一切准备就绪”，此次撤离行动涉及23个国家，西班牙正在与国际卫生机构协调，以确保行动在最高保障下进行。
+美国中央司令部发表声明称，周四晚间三艘美国海军驱逐舰行经霍尔木兹海峡时，美军拦截了伊朗无端发起的袭击，并实施自卫反击。
 
-根据邮轮运营方的声明，该邮轮预计将在加那利群岛当地时间10日5时30分抵达特内里费岛的格拉纳迪拉港，乘客将于早上8时左右开始下船。
+中央司令部表示，美军舰艇向阿曼湾航行途中，伊朗军方发射多枚导弹、出动无人机及小型快艇，美方无一装备与设施遭袭受损。
 
-相关阅读当地时间6日，西班牙内政大臣马拉斯卡确认，西班牙将接收“洪迪厄斯”号邮轮。
+声明称，美国中央司令部拦截并摧毁了来袭威胁，同时打击了曾袭击美军的伊朗军事设施，目标包括：导弹及无人机发射阵地、指挥控制中心、情报监视侦察枢纽。
 
-马拉斯卡在发布会上表示，是世界卫生组织要求该邮轮停靠在该国的加那利自治区。
+美方表示：中央司令部无意局势升级，但始终保持战备状态，随时保护美军人员与资产安全。
 
-(总台记者 杨帆)
+早前伊朗方面指责美方袭击海峡及周边多个目标，破坏两国本就脆弱的停火协议。
+
+霍尔木兹海峡是当前冲突中的核心战略咽喉要道。
+
+一名伊朗军方官方发言人向国家媒体表示：侵略、恐怖主义、强盗行径的美军违反停火协议，袭击了一艘从伊朗沿海水域驶向海峡的伊朗油轮。
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [高盛：美图公司维持“买入”评级 目标价14.30港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:53 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:55 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:49 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:17 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:52 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 13:03 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 13:17 - [加州新计划：新生儿家庭将获数百片免费尿布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:55 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 12:51 - [2026世界杯美加墨三国将分别举办开幕式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-29 13:11 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 13:15 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-29 12:51 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-29 13:14 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 12:52 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-29 13:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 13:01 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-29 12:54 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 13:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:07 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 13:19 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:07 - [驻印尼使馆发布通过“中国领事”APP办理“在境外居住人员领取养老金资格审核”须知](http://www.share.minike.top/Article/details/47244548607.shtml)
-- 2026-06-29 12:57 - [汉坦病毒如何让Moderna重成“必持”股票](http://www.blog.minike.top/Article/details/814392766350.shtml)
-- 2026-06-29 13:04 - [当“T”字构型闪耀苍穹 中国人有了自己的“太空家园”！](http://www.share.kurohicncr.top/Article/details/204658854813.shtml)
-- 2026-06-29 13:12 - [英伟达重金押注光连接，AI的下一战场或在光纤](http://www.blog.kurohicncr.top/Article/details/4834542006.shtml)
-- 2026-06-29 13:05 - [A股，又一指标创近11年新高！沪指接近4200点，资金开始紧张了？](http://www.blog.kurohicncr.top/Article/details/920298.shtml)
-- 2026-06-29 13:08 - [习言道｜父母是孩子的第一任老师](http://www.blog.kurohicncr.top/Article/details/3188290541.shtml)
-- 2026-06-29 13:04 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.blog.kurohicncr.top/Article/details/984002.shtml)
-- 2026-06-29 13:08 - [宁夏固原市“乡村振兴杯”村BA收官 体育活力点亮乡村生活](http://www.share.minike.top/Article/details/02462.shtml)
-- 2026-06-29 13:10 - [美国债市：非农就业数据以及油价持稳推动国债小幅上涨](http://www.blog.minike.top/Article/details/487776.shtml)
-- 2026-06-29 12:48 - [宁夏：算力底座筑牢智慧康养根基 AI管家温情守护“夕阳红”](http://www.share.minike.top/Article/details/9151435.shtml)
-- 2026-06-29 12:49 - [社评：中国的“Country Walk”何以吸引西方年轻人](http://www.share.kurohicncr.top/Article/details/41226.shtml)
-- 2026-06-29 13:06 - [Stifel在近期抛售后上调Shake Shack评级](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [002428，十倍股，磷化铟概念龙头爆发（附名单）](http://www.blog.minike.top/Article/details/39276.shtml)
-- 2026-06-29 13:10 - [成都一公厕外藏“秘密小花园” 清洁工用废弃盆栽打造而成](http://www.blog.minike.top/Article/details/660326.shtml)
-- 2026-06-29 13:12 - [10万立方米超大型乙烷运输船从江苏出江试航](http://www.blog.minike.top/Article/details/68792010.shtml)
+- 2026-06-29 12:51 - [韩媒称韩国队遭中国网民嘲讽](http://www.share.minike.top/Article/details/4497266573.shtml)
+- 2026-06-29 13:09 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/051342.shtml)
+- 2026-06-29 13:03 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/0479927.shtml)
+- 2026-06-29 12:57 - [巴黎两家殡仪馆爆满](https://www.blog.kurohicncr.top/Article/details/971632876.shtml)
+- 2026-06-29 13:04 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/722362742085.shtml)
+- 2026-06-29 12:58 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/8868799.shtml)
+- 2026-06-29 13:15 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/999638.shtml)
+- 2026-06-29 13:01 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/62500460.shtml)
+- 2026-06-29 13:09 - [双高胎](https://www.share.kurohicncr.top/Article/details/416789757.shtml)
+- 2026-06-29 12:58 - [向佑说向佐是一生依靠](https://www.share.minike.top/Article/details/03597267367.shtml)
+- 2026-06-29 12:50 - [一见倾心](https://www.share.kurohicncr.top/Article/details/502743.shtml)
+- 2026-06-29 12:53 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/0865336.shtml)
+- 2026-06-29 13:01 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/76703584844.shtml)
+- 2026-06-29 13:05 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/52866326.shtml)
+- 2026-06-29 12:52 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/38459.shtml)

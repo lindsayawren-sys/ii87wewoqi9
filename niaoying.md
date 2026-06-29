@@ -1,60 +1,47 @@
-# 【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力
+# 伊朗外长：停止侵略、放弃无理要求是推进外交进程必要条件
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:53 UTC+8
 
 ## 摘要
 
-视频：【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力来源：央视网 央视网消息(新闻联播)：习近平总书记强调，种源安全关系到国家安全，必须下决心把我国种业搞上去，实现种业科技自立自强、种源自主可控。 “十五五”开局之年，我国深入实施种业振兴行动，稳步提升种源安全保障水平，为农业现代化提供有力支撑。 眼下，长江中下游小麦正在灌浆，正值赤霉病高发期。今年，高效抗赤霉病小麦
+据伊朗方面9日消息，伊朗外交部长阿拉格齐表示，停止侵略、放弃“过分且无理”的要求，是推进外交进程的必要条件。 责任编辑：李桐
 
 ## 正文
 
-视频：【新思想引领新征程】加快推进种业振兴 提升种源安全保障能力来源：央视网 央视网消息(新闻联播)：习近平总书记强调，种源安全关系到国家安全，必须下决心把我国种业搞上去，实现种业科技自立自强、种源自主可控。
+据伊朗方面9日消息，伊朗外交部长阿拉格齐表示，停止侵略、放弃“过分且无理”的要求，是推进外交进程的必要条件。
 
-“十五五”开局之年，我国深入实施种业振兴行动，稳步提升种源安全保障水平，为农业现代化提供有力支撑。
-
-眼下，长江中下游小麦正在灌浆，正值赤霉病高发期。
-
-今年，高效抗赤霉病小麦新品种“扬麦53”首次大面积推广应用，既能少打药，又能多增产。
-
-今年全国两会上，习近平总书记在参加江苏代表团审议时，向育种人员详细了解小麦新品种“扬麦53”的情况，并殷殷嘱托：种业是最重要的，搞农业要把种业搞上去。
-
-从小麦、水稻、玉米等粮食作物到水果、蔬菜、水产品等重要农产品，习近平总书记高度重视种业振兴。
-
-2021年，习近平总书记从国家安全的战略高度，部署实施种业振兴行动。
-
-他强调，必须把民族种业搞上去，把种源安全提升到关系国家安全的战略高度，集中力量破难题、补短板、强优势、控风险，实现种业科技自立自强、种源自主可控。
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [离岸人民币汇率升破6.8，创三年多新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:12 - [不止是一幅画！黄胄笔下的库尔班，藏着最朴素的家国与感恩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:49 - [蔡志忠发起“文博共同体”倡议 呼吁共建联结世界的桥梁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:55 - [大美边疆看我家丨内蒙古锡林浩特：白琵鹭蹁跹 绘就生态画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:09 - [丹麦首相组阁失败，国王授权中右翼政党领袖牵头组建新政府](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 13:01 - [网传四川宜宾人员关联境外邮轮疫情 官方通报：无时空交集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:57 - [鼎和财险：郑添因工作变动辞任董事长 总经理刘东代为履行董事长职责](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 13:02 - [对话中国社科院保险与经济发展研究中心王向楠：以制度化风险分担应对养老不确定性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 13:16 - [光大证券，离头部券商越来越远](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:04 - [收评|国内期货主力合约跌多涨少 多晶硅等跌超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:53 - [中国太保副总裁俞斌：从“+AI”走向“AI+”，保险业竞争正从工具升级转向经营重构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:49 - [经纬度：全面跑赢全国，长三角经济“开门红”的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:58 - [西班牙政府称接收涉疫邮轮工作“一切准备就绪”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:13 - [北京面向高校应届毕业生配租3500套房源 最低月租每平米16元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 13:16 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-29 13:03 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 13:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 13:06 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 13:19 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-29 13:06 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 13:18 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 13:05 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 13:18 - [高考志愿今起开始填报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 12:54 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 12:59 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
+- 2026-06-29 12:58 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 13:15 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [创投月报 | 4月基金业协会注销近180家机构 AI赛道融资额“四连跳”破300亿大关](http://www.share.kurohicncr.top/Article/details/277680640216.shtml)
-- 2026-06-29 12:57 - [515投资者保护|“长情相伴 共赴财富远方”国泰基金投资者教育工作实践:构建多元化、场景化、常态化投教生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [普京谈与泽连斯基会面：不主动 不拒绝](http://www.share.minike.top/Article/details/25650.shtml)
-- 2026-06-29 13:13 - [CNN创始人去世，曾骂该台“假新闻”的特朗普罕见悼念：赞其“行业最伟大”，却补刀“新东家毁了CNN”](http://www.blog.minike.top/Article/details/61423.shtml)
-- 2026-06-29 12:55 - [商务部：一季度我国服务进出口总额18229亿元 同比增长2.3%](http://www.blog.minike.top/Article/details/25165929689.shtml)
-- 2026-06-29 13:15 - [员工免费充电福利全面取消，比亚迪成本压力与战略需求下的新权衡？](http://www.share.kurohicncr.top/Article/details/8360006.shtml)
-- 2026-06-29 13:17 - [面向全球征集 空天信息领域十大前沿问题正式发布](http://www.blog.minike.top/Article/details/414283375.shtml)
-- 2026-06-29 12:55 - [新增11.5万！美国4月非农超预期，美联储今年降息要泡汤了？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [高盛：超配中国，A股优于H股，将沪深300目标位上调至5300点](http://www.share.kurohicncr.top/Article/details/394785016.shtml)
-- 2026-06-29 12:54 - [北京市大兴区政府原党组成员、副区长吴浩接受审查调查](http://www.blog.minike.top/Article/details/791579538.shtml)
-- 2026-06-29 13:05 - [xAI上周裁员约10人 近期离职人员包括Mistral AI创始成员](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [山河凝秀色 青绿满高原——西藏统筹推进山水林田湖草沙一体化保护和修复](http://www.blog.minike.top/Article/details/14651.shtml)
-- 2026-06-29 13:01 - [像素绽放蒲世林：重塑表达，完善企业AI基础设施的标准件](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [书香连两国 青春筑友谊——中俄毗邻地区教育合作多点开花](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:14 - [丰田第四季度利润大幅不及预期，美国关税导致营业利润暴跌49%](http://www.blog.minike.top/Article/details/618584006526.shtml)
+- 2026-06-29 12:53 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/565718387.shtml)
+- 2026-06-29 13:07 - [乌拉圭出局之路](https://www.share.minike.top/Article/details/63355.shtml)
+- 2026-06-29 12:56 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/73322.shtml)
+- 2026-06-29 13:17 - [杨紫 你幸福的话我会比你先流泪](https://www.share.minike.top/Article/details/48380949611.shtml)
+- 2026-06-29 13:02 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/6692110061.shtml)
+- 2026-06-29 13:03 - [美人鱼](http://www.blog.minike.top/Article/details/886552237482.shtml)
+- 2026-06-29 13:02 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/43746129.shtml)
+- 2026-06-29 13:03 - [韩媒称韩国队遭中国网民嘲讽](http://www.blog.kurohicncr.top/Article/details/27690.shtml)
+- 2026-06-29 12:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/7201378.shtml)
+- 2026-06-29 13:04 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/3421445.shtml)
+- 2026-06-29 13:11 - [薛之谦演唱会](http://www.share.minike.top/Article/details/854316139.shtml)
+- 2026-06-29 13:13 - [撒旦的腋窝是什么比喻](http://www.share.kurohicncr.top/Article/details/0979306.shtml)
+- 2026-06-29 12:53 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/818042162773.shtml)
+- 2026-06-29 12:55 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/009740998.shtml)
+- 2026-06-29 13:06 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/02981822919.shtml)

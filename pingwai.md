@@ -1,50 +1,61 @@
-# 中创新航盘中涨超4% 一季度归母净利润同比增长62.1%
+# 第3个全国学生心理健康宣传教育月主题推进活动在天津举行
 
-> 更新时间：2026-06-29 13:18:05 UTC+8
+> 更新时间：2026-06-29 13:19:52 UTC+8
 
 ## 摘要
 
-中创新航（03931）盘中涨超4%，截至发稿，股价微涨0.69%，现报34.84港元，成交额3014.32万港元。 近日，中创新航发布公告，2026年第一季度，营业总收入118.04亿元，同比增长71.2%；归属于母公司所有者的净利润3.73亿元，同比增长62.1%。 中金指出，中创新航出海加速推进，动力电池方面，公司持续突破现代、丰田等客户，订单伴随新车型量产、预计26-27
+中新网天津5月9日电 (记者 周亚强)第3个全国学生心理健康宣传教育月主题推进暨全国学生心理健康教育交流活动，9日在天津师范大学举行。教育部门负责人、专家学者及一线骨干教师等千余人齐聚一堂，共议“培育学生积极心理品质，全面推进健康学校建设”。 开幕式上，江苏、湖南、重庆、云南、天津、广州六地教育部门分别分享学生心理健康教育与健康学校建设典型经验，为全国提供可复制、可推广的实践范
 
 ## 正文
 
-中创新航（03931）盘中涨超4%，截至发稿，股价微涨0.69%，现报34.84港元，成交额3014.32万港元。
+中新网天津5月9日电 (记者 周亚强)第3个全国学生心理健康宣传教育月主题推进暨全国学生心理健康教育交流活动，9日在天津师范大学举行。
 
-近日，中创新航发布公告，2026年第一季度，营业总收入118.04亿元，同比增长71.2%；归属于母公司所有者的净利润3.73亿元，同比增长62.1%。
+教育部门负责人、专家学者及一线骨干教师等千余人齐聚一堂，共议“培育学生积极心理品质，全面推进健康学校建设”。
 
-中金指出，中创新航出海加速推进，动力电池方面，公司持续突破现代、丰田等客户，订单伴随新车型量产、预计26-27年逐步释放；储能电池方面，公司25年在东欧、北欧、东亚，陆续突破储能订单，预计26年直接出口有望实现0-1突破；海外客户较好的影响有望带动公司盈利结构持续改善。
+开幕式上，江苏、湖南、重庆、云南、天津、广州六地教育部门分别分享学生心理健康教育与健康学校建设典型经验，为全国提供可复制、可推广的实践范例。
 
-责任编辑：卢昱君
+活动中，5位专家围绕“十五五”规划、健康促进策略、五育融合、校家社协同及国际趋势与本土实践等议题进行深度解读，为心理健康教育高质量发展提供科学指引。
+
+教育部体育卫生与艺术教育司负责人指出，学生心理健康是健康学校建设的核心内容与基础支撑，各地要将“健康第一”理念转化为育人共识，把心理健康教育贯穿学校教育教学、管理服务全过程。
+
+会议要求，宣传教育月期间，初中及以上学校至少开展1次趣味性和参与性强的宣教活动，并创新运用心理情景剧展演、科普讲座、组织观看心理健康题材电影等形式；推进校家协同，面向家长开展心理健康知识宣讲，提升家长心理素养。
+
+同时，会议要求各地优化校园心理环境，对心理健康教师、班主任等开展专题培训，规范心理辅导与干预流程，健全与医疗卫生机构的协作机制，并宣传推广典型经验，发挥示范引领作用，推动提升工作质效。
+
+据悉，天津市依托高校心理学科优势打造科研与实践高地，已构建起天津特色、区域引领、全国示范的心育工作格局，将坚持把心育作为健康学校建设的核心，深化五育融合，强化师资培训，健全监测预警干预链条。
 
 ## 相关推荐
 
-- 2026-06-29 13:08 - [高开低走，油脂后市何去何从？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:50 - [康乐卫士濒临崩盘：资金耗尽、研发受阻，HPV疫苗赛道泡沫破裂后的第一个牺牲品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:48 - [同心守护一江碧水——民革中央长江生态环境保护民主监督工作综述](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:54 - [享界S9零重力座椅事件，给车企和用户都提了个醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:51 - [515投资者保护|东方红养老投教驿站：以花卉艺术为聚点 将投资哲学融入进生活场景的浪漫实践](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:52 - [湖北武汉：初夏时节 花田花海美不胜收](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:49 - [人工智能科技伦理审查与服务先导计划启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 13:16 - [2110万元！“钟薛高”名下508件无形资产被拍卖，溢价超900%成交](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 13:14 - [A股1300亿算力巨头协创数据，净利润猛增343%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 13:06 - [浦发银行晋中分行被罚20万元：违规发放贷款用途不真实的流动资金贷款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:55 - [2.8亿“天价”索赔！古鳌科技新老板“刚进家”，旧账“就敲门” ！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:10 - [科技创新，年轻一代实干争先（总书记的关切·落地的回响）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 13:04 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
+- 2026-06-29 12:50 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 13:10 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
+- 2026-06-29 12:55 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 13:16 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 12:52 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 12:52 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqbja.md)
+- 2026-06-29 13:00 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
+- 2026-06-29 12:59 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 13:08 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-29 12:58 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 13:11 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 12:56 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-29 13:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 12:58 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:09 - [高盛：美图公司维持“买入”评级 目标价14.30港元](http://www.share.kurohicncr.top/Article/details/73343633383.shtml)
-- 2026-06-29 13:07 - [东西问丨2025年度“中国人文学术十大热点”发布 青海尕日塘秦刻石等在列](http://www.share.minike.top/Article/details/6924527.shtml)
-- 2026-06-29 12:49 - [纽约房地产大亨反对“向富人征税”口号，称其类似“令人作呕的种族辱骂”](http://www.blog.kurohicncr.top/Article/details/1421445560.shtml)
-- 2026-06-29 13:04 - [惠而浦的股息削减是一个警示：如何判断你的股息是否安全](http://www.blog.minike.top/Article/details/1532817.shtml)
-- 2026-06-29 12:53 - [在华庆祝“欧洲日” 欧盟强调持续对话与合作](http://www.blog.kurohicncr.top/Article/details/1490046.shtml)
-- 2026-06-29 12:50 - [工商银行全新推出“工盈研选”品牌 博时多只优质产品入选](http://www.blog.kurohicncr.top/Article/details/4791596921.shtml)
-- 2026-06-29 13:16 - [第十二届“大使杯”中文朗诵比赛在日本东京举行](http://www.blog.kurohicncr.top/Article/details/327905824070.shtml)
-- 2026-06-29 13:12 - [加州新计划：新生儿家庭将获数百片免费尿布](http://www.blog.kurohicncr.top/Article/details/9072193.shtml)
-- 2026-06-29 12:59 - [为取出1400元，印度男子“挖出姐姐遗骸扛到银行”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [2026世界杯美加墨三国将分别举办开幕式](http://www.blog.kurohicncr.top/Article/details/543353506.shtml)
-- 2026-06-29 13:11 - [吉林首个省级专业游泳训练基地启用 省游泳队正式建队](http://www.share.minike.top/Article/details/69341468565.shtml)
-- 2026-06-29 12:54 - [5月9日隔夜要闻：纳指与标普指数再创新高 油价小涨 金价走高 伦铜创10月初来最大单周涨幅](http://www.blog.minike.top/Article/details/3705175141.shtml)
-- 2026-06-29 12:58 - [一线调研丨如何从“一时火”走向“一直火” 这座小城交出答卷](http://www.share.minike.top/Article/details/781105756.shtml)
-- 2026-06-29 12:50 - [人民之心·总书记谈政绩观④｜一词一观：钉钉子](http://www.blog.minike.top/Article/details/68401724.shtml)
-- 2026-06-29 13:17 - [25亿美元融资将落地！阶跃星辰拆红筹冲港股，华勤、中兴等产业链资本扎堆入局](http://www.blog.kurohicncr.top/Article/details/22140849.shtml)
+- 2026-06-29 12:58 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/45079648.shtml)
+- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/60821112.shtml)
+- 2026-06-29 13:08 - [斛珠夫人](https://www.blog.minike.top/Article/details/05872454230.shtml)
+- 2026-06-29 13:08 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/920257.shtml)
+- 2026-06-29 12:50 - [绘画区你赢了](https://www.blog.minike.top/Article/details/444878764.shtml)
+- 2026-06-29 13:01 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/2648670118.shtml)
+- 2026-06-29 12:54 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/4043012.shtml)
+- 2026-06-29 12:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.minike.top/Article/details/63926307708.shtml)
+- 2026-06-29 13:15 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/667587.shtml)
+- 2026-06-29 13:13 - [极限挑战第一季](http://www.blog.minike.top/Article/details/092861.shtml)
+- 2026-06-29 13:14 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/31186.shtml)
+- 2026-06-29 12:58 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/812396006.shtml)
+- 2026-06-29 12:55 - [AG 钟意](http://www.blog.minike.top/Article/details/29108828.shtml)
+- 2026-06-29 12:54 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/0866947919.shtml)
+- 2026-06-29 13:15 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/778765.shtml)
