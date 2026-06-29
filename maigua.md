@@ -1,54 +1,58 @@
-# 中方：敦促美方立即停止对古巴的封锁和胁迫施压
+# 午盘：美股转涨 标普指数上涨0.6%
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。 有记者提问：据报道，18日，古巴国家主席迪亚斯—卡内尔在社交媒体发帖称，古巴面临来自美国这一超级大国的军事侵略威胁，而威胁本身已构成国际犯罪，若落实将引发流血冲突并破坏地区和平。古巴对包括美国在内的任何国家均无侵略意图，但遭受着美方多维侵略，拥有绝对合法的自卫权。同日，美国财政部将古巴情报局9
+北京时间4月10日凌晨，美股周四午盘转涨。尽管美国WTI原油价格回升至每桶100美元上方，但交易员们仍乐观地认为中东冲突将找到解决方案，霍尔木兹海峡将重新开放。 道指涨275.88点，涨幅为0.58%，报48185.80点；纳指涨181.27点，涨幅为0.80%，报22816.27点；标普500指数涨42.51点，涨幅为0.63%，报6825.32点。 周四原油价格再次上涨。西
 
 ## 正文
 
-中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。
+北京时间4月10日凌晨，美股周四午盘转涨。
 
-有记者提问：据报道，18日，古巴国家主席迪亚斯—卡内尔在社交媒体发帖称，古巴面临来自美国这一超级大国的军事侵略威胁，而威胁本身已构成国际犯罪，若落实将引发流血冲突并破坏地区和平。
+尽管美国WTI原油价格回升至每桶100美元上方，但交易员们仍乐观地认为中东冲突将找到解决方案，霍尔木兹海峡将重新开放。
 
-古巴对包括美国在内的任何国家均无侵略意图，但遭受着美方多维侵略，拥有绝对合法的自卫权。
+道指涨275.88点，涨幅为0.58%，报48185.80点；纳指涨181.27点，涨幅为0.80%，报22816.27点；标普500指数涨42.51点，涨幅为0.63%，报6825.32点。
 
-同日，美国财政部将古巴情报局9名个人列入新一轮制裁名单。
+周四原油价格再次上涨。
 
-中方对此有何评论？
+西德克萨斯中质原油期货最新上涨5%，至每桶99美元上方，此前曾一度突破每桶101美元。
 
-郭嘉昆：中方一贯反对没有国际法依据的非法单边制裁，坚定支持古巴维护国家主权和安全，敦促美方立即停止对古巴的封锁和任何形式的胁迫施压，停止侵犯古巴人民的生存权、发展权。
+国际基准布伦特原油期货上涨2%，至每桶97美元上方。
 
-(完)
+此轮上涨之前，美国三大主要股指周三均上涨超过2%，其中道琼斯指数创下自2025年4月——当时特朗普软化了对部分最初高额关税的立场——以来的最佳单日表现。
+
+周二晚，特朗普同意暂停对伊朗的攻击。
 
 ## 相关推荐
 
-- 2026-06-30 07:03 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-30 07:07 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsdnl.md)
-- 2026-06-30 07:14 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 07:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 06:54 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 07:21 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 07:22 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 07:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 07:15 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-30 07:20 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 07:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 07:19 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 07:11 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/axfhf.md)
+- 2026-06-30 07:26 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 07:29 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 07:27 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 07:02 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-30 07:17 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 07:24 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 07:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 07:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 07:19 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:00 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/822029797.shtml)
-- 2026-06-30 07:16 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/993211.shtml)
-- 2026-06-30 07:10 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/756673297406.shtml)
-- 2026-06-30 07:04 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/48974570.shtml)
-- 2026-06-30 07:12 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/84079520.shtml)
-- 2026-06-30 07:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/6021673879.shtml)
-- 2026-06-30 07:17 - [女心理师](https://www.share.kurohicncr.top/Article/details/87647174876.shtml)
-- 2026-06-30 07:01 - [绘画区你赢了](https://www.share.minike.top/Article/details/44630.shtml)
-- 2026-06-30 06:58 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/97332545.shtml)
-- 2026-06-30 06:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/3212809218.shtml)
-- 2026-06-30 07:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/21944914292.shtml)
-- 2026-06-30 07:03 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/7198371829.shtml)
-- 2026-06-30 07:19 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/783249744.shtml)
-- 2026-06-30 07:10 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/5896863900.shtml)
-- 2026-06-30 07:11 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/998090636068.shtml)
+- 2026-06-30 07:21 - [蔚来车主罚站](http://www.blog.minike.top/Article/details/2565927.shtml)
+- 2026-06-30 07:28 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/13611.shtml)
+- 2026-06-30 07:14 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/1506811.shtml)
+- 2026-06-30 07:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/93002246.shtml)
+- 2026-06-30 07:03 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/579042351222.shtml)
+- 2026-06-30 07:21 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/63127.shtml)
+- 2026-06-30 07:09 - [超神人辉夜姬 第二集](http://www.share.kurohicncr.top/Article/details/76398.shtml)
+- 2026-06-30 07:03 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/86190.shtml)
+- 2026-06-30 07:04 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/211432941.shtml)
+- 2026-06-30 07:22 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/4234342.shtml)
+- 2026-06-30 07:09 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/89387.shtml)
+- 2026-06-30 07:27 - [一见倾心](http://www.share.minike.top/Article/details/505903712862.shtml)
+- 2026-06-30 07:02 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/7799330966.shtml)
+- 2026-06-30 07:17 - [网友分享整套中医手术刀](http://www.share.kurohicncr.top/Article/details/41268.shtml)
+- 2026-06-30 07:20 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/89403473343.shtml)

@@ -1,61 +1,51 @@
-# 凌晨，全线下跌！美联储，突传重磅！
+# 日经指数或因对美伊谈判的希望而上涨
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-超级风暴突袭美股科技股。 昨夜今晨，受美债收益率飙升影响，美股科技股持续遭遇抛售，纳指盘中一度跌近1.5%，多只大型科技股重挫。美股盘中，美国30年期国债收益率一度升至5.194%，续创2007年以来最高水平。美债30年期收益率上一次达到这一水平还是在2007年全球金融危机爆发前夕。 受此影响，市场对美联储加息预期持续升温，芝商所的“美联储观察”工具显示，目前市场认为美联储20
+随着市场对美国和伊朗通过谈判解决冲突的希望持续，日本股市可能会上涨。新加坡交易所的日经指数期货上涨0.6%，报56，570点。投资者正在关注中东的任何事态发展及其对能源价格的影响。周四，日经指数下跌0.7%，至55，895.32点。责任编辑：王永生
 
 ## 正文
 
-超级风暴突袭美股科技股。
+随着市场对美国和伊朗通过谈判解决冲突的希望持续，日本股市可能会上涨。
 
-昨夜今晨，受美债收益率飙升影响，美股科技股持续遭遇抛售，纳指盘中一度跌近1.5%，多只大型科技股重挫。
+新加坡交易所的日经指数期货上涨0.6%，报56，570点。
 
-美股盘中，美国30年期国债收益率一度升至5.194%，续创2007年以来最高水平。
+投资者正在关注中东的任何事态发展及其对能源价格的影响。
 
-美债30年期收益率上一次达到这一水平还是在2007年全球金融危机爆发前夕。
+周四，日经指数下跌0.7%，至55，895.32点。
 
-受此影响，市场对美联储加息预期持续升温，芝商所的“美联储观察”工具显示，目前市场认为美联储2026年年内加息的概率已接近60%。
-
-中东局势方面，据央视新闻报道，美国总统特朗普当地时间5月19日表示，美方可能不得不对伊朗“再予以一击”，目前尚不确定。
-
-美国副总统万斯表示，美国与伊朗之间的直接谈判已在建立沟通渠道和推动外交进程方面取得“很大进展”，但他拒绝透露当前幕后磋商的具体内容。
-
-美债风暴来袭 美东时间5月19日，美股三大指数集体走低，其中标普500指数、纳指连跌三个交易日，截至收盘，道指跌0.65%，标普500指数跌0.67%，纳指跌0.84%。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:11 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 06:54 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 06:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 07:15 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 06:59 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 06:57 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 07:01 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 07:22 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
-- 2026-06-30 07:12 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 07:16 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
-- 2026-06-30 07:06 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 07:18 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
-- 2026-06-30 07:09 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 07:18 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
-- 2026-06-30 07:09 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 07:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 07:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 07:26 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:19 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 07:27 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 07:01 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-30 07:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 07:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 07:14 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 07:28 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 07:18 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/012935027.shtml)
-- 2026-06-30 07:14 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/26704.shtml)
-- 2026-06-30 06:56 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/3577846264.shtml)
-- 2026-06-30 07:05 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/4141477477.shtml)
-- 2026-06-30 07:02 - [斛珠夫人](https://www.blog.minike.top/Article/details/65854098761.shtml)
-- 2026-06-30 07:12 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/1152112.shtml)
-- 2026-06-30 07:16 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/5168903.shtml)
-- 2026-06-30 07:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/646858658.shtml)
-- 2026-06-30 07:05 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/267875516219.shtml)
-- 2026-06-30 07:21 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/32703.shtml)
-- 2026-06-30 07:15 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/6613481.shtml)
-- 2026-06-30 06:57 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/2733274.shtml)
-- 2026-06-30 07:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/53594064308.shtml)
-- 2026-06-30 07:05 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/543244.shtml)
-- 2026-06-30 07:07 - [安切洛蒂 换人](https://www.blog.minike.top/Article/details/106473.shtml)
+- 2026-06-30 07:00 - [如何评价《龙之家族》第三季第二集？](http://www.share.kurohicncr.top/Article/details/0101460530.shtml)
+- 2026-06-30 07:09 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/87327999.shtml)
+- 2026-06-30 07:12 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/1269070.shtml)
+- 2026-06-30 07:10 - [四川宜宾地震为何震感明显](https://www.share.minike.top/Article/details/29200704.shtml)
+- 2026-06-30 07:10 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/99662.shtml)
+- 2026-06-30 07:15 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/990146.shtml)
+- 2026-06-30 07:09 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/58078.shtml)
+- 2026-06-30 07:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/14439606.shtml)
+- 2026-06-30 07:01 - [送你一朵小红花](https://www.blog.minike.top/Article/details/654144348.shtml)
+- 2026-06-30 07:08 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/7071596823.shtml)
+- 2026-06-30 07:26 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/601838092259.shtml)
+- 2026-06-30 07:16 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/4602541.shtml)
+- 2026-06-30 07:11 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/30247827.shtml)
+- 2026-06-30 07:20 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/860451.shtml)
+- 2026-06-30 07:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/977820373542.shtml)

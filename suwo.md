@@ -1,57 +1,53 @@
-# 湖南严打新型非法金融活动 聘任百余名公益宣传大使
+# 特朗普称伊朗在允许石油通过霍尔木兹海峡一事上表现糟糕
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网长沙5月20日电 (记者 唐小晴)校园贷、套路贷、电信网络诈骗、假借“养老金融”“高息投资”名义非法吸存……各类套路翻新的非法金融活动，既严重侵害民众利益、扰乱金融秩序，更威胁社会稳定，对其开展系统性防范与打击刻不容缓。湖南创新宣传思路，以短视频征集大赛为载体，联动社会各界构建全民防范非法金融活动格局。 5月19日，第六届“守护钱袋子 护好幸福家”防范非法金融活动短视频征
+美国总统特朗普在Truth Social上发帖称，“伊朗在允许石油通过霍尔木兹海峡方面做得非常糟糕，有些人甚至会说很不光彩。” 特朗普：“这不是我们之间的协议。” 注：特朗普看好达成协议 但就霍尔木兹海峡过路费施压伊朗。责任编辑：陈钰嘉
 
 ## 正文
 
-中新网长沙5月20日电 (记者 唐小晴)校园贷、套路贷、电信网络诈骗、假借“养老金融”“高息投资”名义非法吸存……各类套路翻新的非法金融活动，既严重侵害民众利益、扰乱金融秩序，更威胁社会稳定，对其开展系统性防范与打击刻不容缓。
+美国总统特朗普在Truth Social上发帖称，“伊朗在允许石油通过霍尔木兹海峡方面做得非常糟糕，有些人甚至会说很不光彩。
 
-湖南创新宣传思路，以短视频征集大赛为载体，联动社会各界构建全民防范非法金融活动格局。
+” 特朗普：“这不是我们之间的协议。
 
-5月19日，第六届“守护钱袋子 护好幸福家”防范非法金融活动短视频征集大赛(湖南赛区)颁奖典礼暨2026网络主播防范非法金融活动公益宣传大使聘任仪式在长沙举行。
+” 注：特朗普看好达成协议 但就霍尔木兹海峡过路费施压伊朗。
 
-记者从现场获悉，此次活动覆盖湖南14个市州，吸引政府部门、金融机构、高校及网络达人广泛参与，形成“政府主导、部门协同、媒体联动、全民参与”的宣传合力，累计征集短视频作品900余部，以通俗易懂的形式揭露新型非法金融骗局套路。
-
-活动现场，130余名来自湖南省市县新媒体协会、金融机构、高校等各界代表获聘“湖南省防范非法金融活动网络公益宣传大使”。
-
-湖南省委金融办副主任彭小玲表示，互联网时代下，非法金融活动隐蔽性、迷惑性、传播力显著增强，不法分子常披着“区块链”“AI交易”“高科技”外衣混淆视听、欺骗民众，既扰乱金融秩序、侵蚀市场根基，更直接威胁群众“钱袋子”安全。
-
-“需持续创新宣传方式，让‘高息诱惑是陷阱、理性投资是正道’的理念深入人心、家喻户晓。
-
-” 当日同步举办的防范非法金融活动宣传专题培训上，金融、法律、警务系统专家围绕高新技术投资领域非法金融陷阱识别、防范非法金融活动宣传短视频策划等主题开展分享，为新聘任的公益宣传大使充电赋能，助力提升防范非法金融活动宣传的专业性与实效性。
+责任编辑：陈钰嘉
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-30 07:04 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
-- 2026-06-30 07:17 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtcrv.md)
-- 2026-06-30 06:54 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 07:17 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 07:08 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 06:54 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 07:21 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
-- 2026-06-30 07:11 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 07:09 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 07:23 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 07:03 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 07:29 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 07:03 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-30 07:23 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 07:25 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 07:22 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 07:22 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-30 07:07 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-30 07:01 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 07:14 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 07:19 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 07:15 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
+- 2026-06-30 07:16 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 07:24 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 07:18 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/647627631539.shtml)
-- 2026-06-30 07:04 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/2284395.shtml)
-- 2026-06-30 06:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/3776671360.shtml)
-- 2026-06-30 06:54 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/04012572177.shtml)
-- 2026-06-30 07:05 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/1493350.shtml)
-- 2026-06-30 07:22 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/887097026.shtml)
-- 2026-06-30 06:58 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/442060865772.shtml)
-- 2026-06-30 07:20 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/37609769.shtml)
-- 2026-06-30 07:08 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/0201697930.shtml)
-- 2026-06-30 07:13 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.kurohicncr.top/Article/details/823749.shtml)
-- 2026-06-30 07:04 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/1734602067.shtml)
-- 2026-06-30 07:20 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/778543733.shtml)
-- 2026-06-30 07:13 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/698424123791.shtml)
-- 2026-06-30 07:07 - [三星投资计划](http://www.share.minike.top/Article/details/423233.shtml)
-- 2026-06-30 07:10 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/464091821.shtml)
+- 2026-06-30 07:20 - [85花告别古偶](https://www.share.minike.top/Article/details/337518189.shtml)
+- 2026-06-30 07:11 - [极限挑战第一季](http://www.share.minike.top/Article/details/330687709.shtml)
+- 2026-06-30 07:14 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/85696496.shtml)
+- 2026-06-30 07:06 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/893320317.shtml)
+- 2026-06-30 07:02 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/180440659271.shtml)
+- 2026-06-30 07:19 - [房价什么时候能涨](http://www.blog.kurohicncr.top/Article/details/42183.shtml)
+- 2026-06-30 07:18 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/363578.shtml)
+- 2026-06-30 07:26 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/8058508.shtml)
+- 2026-06-30 07:13 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/17125.shtml)
+- 2026-06-30 07:05 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.kurohicncr.top/Article/details/8429612.shtml)
+- 2026-06-30 07:19 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/048963594316.shtml)
+- 2026-06-30 07:20 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/91945770.shtml)
+- 2026-06-30 07:21 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/398765.shtml)
+- 2026-06-30 07:22 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/04251488406.shtml)
+- 2026-06-30 07:01 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/2222658441.shtml)

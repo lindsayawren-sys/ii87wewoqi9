@@ -1,52 +1,59 @@
-# 中国－中亚公安内务部长会晤机制第二次会议举行 王小洪出席并作主旨发言
+# 美国油价反弹至每桶100美元上方，伊朗仍控制霍尔木兹海峡通行权
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-新华社阿斯塔纳5月19日电(记者张继业)5月18日，中国-中亚公安内务部长会晤机制第二次会议在哈萨克斯坦阿斯塔纳举行，国务委员、公安部部长王小洪出席并作主旨发言。 王小洪表示，中国-中亚公安内务部长会晤机制首次会议成功举办以来，各方在机制框架下加强战略对话，推动务实合作，取得丰硕成果，为维护地区安全稳定注入新动力。中方愿同各方在习近平主席与中亚五国元首战略指引下，积极践行全球安
+周四油价上涨，此前伊朗指责美国违反了两周停火协议的部分内容。 伊朗议会议长穆罕默德·巴吉尔·卡利巴夫表示，伊朗10点停火提议中的三项内容已被违反，包括以色列持续对黎巴嫩发动袭击。 油价周四上涨，原因是市场意识到，尽管与美国达成了为期两周的停火协议，伊朗仍在控制霍尔木兹海峡的通行权。 截至美国东部时间上午9：51，美国西德克萨斯中质原油5月期货合约上涨逾6%，至每桶100.27美
 
 ## 正文
 
-新华社阿斯塔纳5月19日电(记者张继业)5月18日，中国-中亚公安内务部长会晤机制第二次会议在哈萨克斯坦阿斯塔纳举行，国务委员、公安部部长王小洪出席并作主旨发言。
+周四油价上涨，此前伊朗指责美国违反了两周停火协议的部分内容。
 
-王小洪表示，中国-中亚公安内务部长会晤机制首次会议成功举办以来，各方在机制框架下加强战略对话，推动务实合作，取得丰硕成果，为维护地区安全稳定注入新动力。
+伊朗议会议长穆罕默德·巴吉尔·卡利巴夫表示，伊朗10点停火提议中的三项内容已被违反，包括以色列持续对黎巴嫩发动袭击。
 
-中方愿同各方在习近平主席与中亚五国元首战略指引下，积极践行全球安全倡议、全球治理倡议，大力弘扬“中国-中亚精神”，持续健全中国-中亚公安内务部长会晤机制，持续深化反恐、打击电诈等跨国犯罪、高质量共建“一带一路”安保和移民管理等领域务实合作，推动地区执法安全合作高质量发展，更好助力中国-中亚命运共同体建设。
+油价周四上涨，原因是市场意识到，尽管与美国达成了为期两周的停火协议，伊朗仍在控制霍尔木兹海峡的通行权。
 
-会议签署纪要，召开部长联合新闻发布会通报会议成果。
+截至美国东部时间上午9：51，美国西德克萨斯中质原油5月期货合约上涨逾6%，至每桶100.27美元。
 
-会前，哈萨克斯坦总统托卡耶夫集体会见各国代表团团长。
+国际基准布伦特原油6月期货合约上涨近4%，至每桶98.26美元。
 
-在哈期间，王小洪还分别会见了哈萨克斯坦内务部部长和国家安全委员会主席，与塔吉克斯坦、土库曼斯坦、乌兹别克斯坦内务部部长会见交流。
+此次上涨发生在美国原油价格创下自2020年以来最大单日跌幅的一天之后。
+
+阿布扎比国家石油公司首席执行官周四表示，尽管达成了停火协议，但由于伊朗限制通行，霍尔木兹海峡尚未对船舶交通开放。
+
+苏丹·艾哈迈德·阿尔·贾比尔在社交媒体发帖中表示，德黑兰已明确表示，船只必须获得伊朗的许可才能通过该海峡。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 07:23 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 07:04 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 06:57 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 07:16 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 06:59 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-30 07:11 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
-- 2026-06-30 07:22 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 07:16 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 07:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
+- 2026-06-30 07:01 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-30 07:24 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 07:00 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-30 07:17 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 07:16 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 07:10 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 07:08 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 07:20 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-30 07:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
+- 2026-06-30 07:27 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-30 07:09 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 07:27 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 07:26 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/64526191471.shtml)
-- 2026-06-30 06:56 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/538536641.shtml)
-- 2026-06-30 07:19 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/153993418303.shtml)
-- 2026-06-30 06:56 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/396814.shtml)
-- 2026-06-30 06:55 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/7143719.shtml)
-- 2026-06-30 07:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/18179463889.shtml)
-- 2026-06-30 07:23 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.kurohicncr.top/Article/details/574913800.shtml)
-- 2026-06-30 06:57 - [三星投资计划](https://www.share.minike.top/Article/details/1387407289.shtml)
-- 2026-06-30 07:18 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/679690044.shtml)
-- 2026-06-30 07:23 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/61217.shtml)
-- 2026-06-30 07:16 - [内马尔替补](http://www.blog.minike.top/Article/details/047882487.shtml)
-- 2026-06-30 07:20 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/6556499267.shtml)
-- 2026-06-30 07:10 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/7902155.shtml)
-- 2026-06-30 07:22 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.minike.top/Article/details/08663447.shtml)
-- 2026-06-30 07:15 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/140145.shtml)
+- 2026-06-30 07:17 - [天道](http://www.share.minike.top/Article/details/445635718339.shtml)
+- 2026-06-30 07:16 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.kurohicncr.top/Article/details/7499859312.shtml)
+- 2026-06-30 07:17 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/848035911.shtml)
+- 2026-06-30 07:28 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/1284581.shtml)
+- 2026-06-30 07:27 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/35098735952.shtml)
+- 2026-06-30 07:24 - [张帅时隔四年再取温网正赛胜利](https://www.blog.kurohicncr.top/Article/details/9263473.shtml)
+- 2026-06-30 07:25 - [请回答王牌2019](https://www.blog.minike.top/Article/details/124768.shtml)
+- 2026-06-30 07:15 - [第一炉香](http://www.blog.minike.top/Article/details/76568.shtml)
+- 2026-06-30 07:19 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/467057.shtml)
+- 2026-06-30 07:18 - [日本淘汰](http://www.share.kurohicncr.top/Article/details/20735.shtml)
+- 2026-06-30 07:09 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/923894814835.shtml)
+- 2026-06-30 07:19 - [未来的飞机可能会用电吗？](https://www.share.minike.top/Article/details/442337495797.shtml)
+- 2026-06-30 07:26 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/1240409727.shtml)
+- 2026-06-30 07:17 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/91365087327.shtml)
+- 2026-06-30 07:17 - [巴西2比1日本](http://www.share.minike.top/Article/details/0649858092.shtml)

@@ -1,60 +1,53 @@
-# 保险巨头们互相“买股”，竞争对手成自家股东
+# 从攀枝花到巴黎：傈僳族传统服饰“潮”向国际新传承
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新经纬5月20日电 (李自曼)据港交所披露易数据，近日，中国平安保险(集团)股份有限公司(下称中国平安)及其子公司再度增持中国人寿H股。截至5月14日，中国平安对中国人寿H股持股比例由13.81%上升至14.03%。另据中国平安2026年第一季度报告，中国人寿已于2026年一季度跻身中国平安前十大流通股东，持股1.38%。两家保险巨头的双向持股格局已成形。中新经纬梳理发现，2
+发布时间：2026年04月11日 17:51 来源：中国新闻网 傈僳族被称为“追赶太阳的民族”。在四川省攀枝花市盐边县，一批傈僳族世代栖居，孕育出傈僳族传统服饰等璀璨非遗。 在傈僳族姑娘谷艳现代化运营思维和本土化民族特色融合的思路下，2025年，傈僳族传统服饰走出大山，先后登上中国国际时装周、中法时装周的舞台。如今，谷艳正联合全国傈僳族研究会，以“人工智能+”为基础，研发傈僳族
 
 ## 正文
 
-中新经纬5月20日电 (李自曼)据港交所披露易数据，近日，中国平安保险(集团)股份有限公司(下称中国平安)及其子公司再度增持中国人寿H股。
+发布时间：2026年04月11日 17:51 来源：中国新闻网 傈僳族被称为“追赶太阳的民族”。
 
-截至5月14日，中国平安对中国人寿H股持股比例由13.81%上升至14.03%。
+在四川省攀枝花市盐边县，一批傈僳族世代栖居，孕育出傈僳族传统服饰等璀璨非遗。
 
-另据中国平安2026年第一季度报告，中国人寿已于2026年一季度跻身中国平安前十大流通股东，持股1.38%。
+在傈僳族姑娘谷艳现代化运营思维和本土化民族特色融合的思路下，2025年，傈僳族传统服饰走出大山，先后登上中国国际时装周、中法时装周的舞台。
 
-两家保险巨头的双向持股格局已成形。
+如今，谷艳正联合全国傈僳族研究会，以“人工智能+”为基础，研发傈僳族服饰谱系系统，将传统技艺在传承保护中焕发生机。
 
-中新经纬梳理发现，2025年以来，险企互持升温，这背后究竟是什么原因？
-
-竞争对手变股东“升温” 港交所披露易显示，2025年8月，平安人寿接连触发两次举牌——先以每股均价32.07港元增持中国太保H股174万股，持股比例达5.04%，随后买入中国人寿950万股H股，同样触及举牌线。
-
-这是时隔六年再现险企举牌险企。
-
-据中国人保2025年年度报告，截至2025年末，新华保险旗下两只资金账户(新华人寿保险股份有限公司－传统－普通保险产品－018L－CT001沪、新华人寿保险股份有限公司－分红－个人分红－018L－FH002沪)分别持有中国人保8220.1万股、7660.9万股，持股比例分别为0.19%、0.17%，分列第五、第六大股东。
+(杨予頔) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 06:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 07:15 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 07:19 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
-- 2026-06-30 07:16 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:08 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 07:04 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
-- 2026-06-30 06:55 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 07:22 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-30 07:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-30 06:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 06:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 07:20 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-30 07:18 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 07:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
+- 2026-06-30 07:06 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 07:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 07:03 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 07:03 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 07:12 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 07:26 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-30 07:01 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-30 07:14 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
+- 2026-06-30 07:15 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 07:24 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 07:19 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 07:18 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/2514846078.shtml)
-- 2026-06-30 06:56 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/857476011.shtml)
-- 2026-06-30 07:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/7106649154.shtml)
-- 2026-06-30 07:15 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/255586023.shtml)
-- 2026-06-30 07:14 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/78591.shtml)
-- 2026-06-30 07:08 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/3142712911.shtml)
-- 2026-06-30 06:55 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/423374666289.shtml)
-- 2026-06-30 06:55 - [点菜也要教吗](https://www.share.minike.top/Article/details/81580512251.shtml)
-- 2026-06-30 07:21 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/923368980.shtml)
-- 2026-06-30 07:12 - [一见倾心](http://www.share.minike.top/Article/details/293787090614.shtml)
-- 2026-06-30 06:57 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/26015974.shtml)
-- 2026-06-30 07:22 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/628548.shtml)
-- 2026-06-30 06:58 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/3226451305.shtml)
-- 2026-06-30 07:10 - [中国新一轮出口管制直指日本命脉](http://www.share.kurohicncr.top/Article/details/074676718828.shtml)
-- 2026-06-30 06:57 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/8298888.shtml)
+- 2026-06-30 07:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/04060305753.shtml)
+- 2026-06-30 07:10 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/6683887.shtml)
+- 2026-06-30 07:18 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/4232710440.shtml)
+- 2026-06-30 07:26 - [点球大战](http://www.share.minike.top/Article/details/52020.shtml)
+- 2026-06-30 07:24 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/516011530834.shtml)
+- 2026-06-30 07:00 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/452653.shtml)
+- 2026-06-30 07:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/3666508541.shtml)
+- 2026-06-30 07:11 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/6014356433.shtml)
+- 2026-06-30 07:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/51482579.shtml)
+- 2026-06-30 07:24 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/06903366.shtml)
+- 2026-06-30 07:09 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/39242362759.shtml)
+- 2026-06-30 07:03 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/2444667350.shtml)
+- 2026-06-30 07:28 - [巴西绝杀](http://www.blog.minike.top/Article/details/143825994.shtml)
+- 2026-06-30 07:01 - [范志毅看好日本队淘汰巴西](https://www.share.kurohicncr.top/Article/details/574648350431.shtml)
+- 2026-06-30 07:19 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/5758266217.shtml)

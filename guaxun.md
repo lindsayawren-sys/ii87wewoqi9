@@ -1,56 +1,56 @@
-# 新华社评论员：以相向而行的行动落实好重要共识
+# 4个算力项目落子广州 总投资达48.39亿元
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-原标题：新华社评论员：以相向而行的行动落实好重要共识——二论把握中美关系新定位 新华社北京5月18日电 题：以相向而行的行动落实好重要共识——二论把握中美关系新定位 新华社评论员 “双方要落实好我们达成的重要共识，珍惜当前来之不易的良好势头，把准方向、排除干扰，推动两国关系稳定发展。”习近平主席同美国总统特朗普会晤期间，着眼“中美建设性战略稳定关系”新定位，为两国关系发展指明方
+中新网广州4月9日电 (张璐 孙旭东)据广州黄埔官方9日消息，近日，在广州市算力新基建开工暨算力供需会上，4个算力项目(简称“项目”)集体开工。项目全部落子广州开发区、黄埔区，总投资达48.39亿元，建成后将新增智算规模超4万P，标志着广州实现单体“万卡万P”智算中心建设零的突破。 据介绍，中国移动粤港澳(广州)数据中心是广州首个单体“万P”级新型智算中心，采用前沿技术，将为6
 
 ## 正文
 
-原标题：新华社评论员：以相向而行的行动落实好重要共识——二论把握中美关系新定位 新华社北京5月18日电 题：以相向而行的行动落实好重要共识——二论把握中美关系新定位 新华社评论员 “双方要落实好我们达成的重要共识，珍惜当前来之不易的良好势头，把准方向、排除干扰，推动两国关系稳定发展。
+中新网广州4月9日电 (张璐 孙旭东)据广州黄埔官方9日消息，近日，在广州市算力新基建开工暨算力供需会上，4个算力项目(简称“项目”)集体开工。
 
-”习近平主席同美国总统特朗普会晤期间，着眼“中美建设性战略稳定关系”新定位，为两国关系发展指明方向。
+项目全部落子广州开发区、黄埔区，总投资达48.39亿元，建成后将新增智算规模超4万P，标志着广州实现单体“万卡万P”智算中心建设零的突破。
 
-站在新的历史起点上，本着相互尊重、和平共处、合作共赢原则，加强交流合作，妥善管控分歧，切实守住底线，中方愿同美方一道共同落实好元首会晤达成的重要共识，共同走出一条新时代大国正确相处之道。
+据介绍，中国移动粤港澳(广州)数据中心是广州首个单体“万P”级新型智算中心，采用前沿技术，将为6G研发等未来产业提供核心支撑；中国联通知识城机房数据中心将重点保障自动驾驶等时延敏感类应用场景；云下科技汇云数据中心采用华为910B芯片，重点服务具身智能等战略性新兴产业客户；而连云大数据中心二期100%采用绿电。
 
-习近平主席深刻指出，纵观中美关系发展历程，能不能做到相互尊重、和平共处、合作共赢是双边关系能否稳定发展的关键所在。
+当前，广州开发区、黄埔区正加速打造全国智能计算高地和人工智能核心技术策源地。
 
-相互尊重、和平共处、合作共赢，既是对中美关系半个多世纪经验教训的总结，也是对大国交往规律的把握，应当成为中美双方的共同遵循和努力方向。
+据悉，广州开发区、黄埔区印发“支持人工智能产业高质量发展若干政策措施”，发放“算力券”“模型券”“场景券”“数据券”；加快推进“黄埔1号”智算集群建设；成立智算产业生态联盟，汇聚一批智算生态企业。
 
-相互尊重是前提，两国社会制度和政治体制不同，只有尊重和认可差异，两国交往才可持续；和平共处是底线，像中美这样的两个大国，发生冲突对抗后果不堪设想；合作共赢是目标，中美携起手来，可以为两国、为世界做很多大事、好事。
+接下来，广州开发区、黄埔区将持续推进“黄埔1号”智算集群、算力调度平台等重大项目建设，大力推进传统基础设施数字化改造，围绕中新广州知识城、广州科学城、广州海丝城、广州国际生物岛战略平台，布局“三城一岛”智算集群；支持“湾区智城”算力资源池与调度平台建设，打造一批典型案例；推进完善智算资源统筹建设模式，促进算力基础设施的快速建设和发展，打造“智算”招商新名片。
 
-此次中美元首会晤，相互尊重、珍视和平、探讨合作，是贯穿始终的基调。
-
-秉持相互尊重的态度，守住和平共处的底线，争取合作共赢的前景，符合两国人民的利益，也符合国际社会的期待，有利于推动中美关系行稳致远。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 07:02 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 06:54 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 07:04 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 07:21 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 07:11 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 07:23 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-30 06:59 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
-- 2026-06-30 06:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 07:18 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
+- 2026-06-30 07:20 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 07:08 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-30 07:21 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 07:18 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 07:14 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 07:11 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 07:22 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
+- 2026-06-30 07:25 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 07:02 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 07:03 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 07:01 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 07:04 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.kurohicncr.top/Article/details/813586728869.shtml)
-- 2026-06-30 07:10 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/679698012.shtml)
-- 2026-06-30 07:14 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/3111745.shtml)
-- 2026-06-30 07:16 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/05241325985.shtml)
-- 2026-06-30 07:13 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/580088421.shtml)
-- 2026-06-30 07:06 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/40962834656.shtml)
-- 2026-06-30 07:11 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/75865682130.shtml)
-- 2026-06-30 07:11 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/784517714626.shtml)
-- 2026-06-30 07:07 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/82639521.shtml)
-- 2026-06-30 07:06 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/965130051.shtml)
-- 2026-06-30 06:54 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/3178121792.shtml)
-- 2026-06-30 07:19 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/7500579122.shtml)
-- 2026-06-30 07:20 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.kurohicncr.top/Article/details/752637162.shtml)
-- 2026-06-30 07:05 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/79481678.shtml)
-- 2026-06-30 07:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/08513034869.shtml)
+- 2026-06-30 07:26 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/407969.shtml)
+- 2026-06-30 07:27 - [德国巴拉圭加时](https://www.blog.kurohicncr.top/Article/details/83124277.shtml)
+- 2026-06-30 07:28 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/32875047.shtml)
+- 2026-06-30 07:29 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/8574055881.shtml)
+- 2026-06-30 07:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.kurohicncr.top/Article/details/632938286.shtml)
+- 2026-06-30 07:14 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/540153086.shtml)
+- 2026-06-30 07:23 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/6711214332.shtml)
+- 2026-06-30 07:29 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/4735861598.shtml)
+- 2026-06-30 07:03 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/13670.shtml)
+- 2026-06-30 07:23 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/96040844945.shtml)
+- 2026-06-30 07:00 - [周生如故](https://www.blog.kurohicncr.top/Article/details/697675882373.shtml)
+- 2026-06-30 07:20 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/305143782039.shtml)
+- 2026-06-30 07:28 - [未来五年，教育强国这样建设](https://www.blog.kurohicncr.top/Article/details/33436758.shtml)
+- 2026-06-30 07:28 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/13545.shtml)
+- 2026-06-30 07:19 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/19730623043.shtml)

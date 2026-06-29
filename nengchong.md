@@ -1,58 +1,61 @@
-# YieldMax Magnificent 7基金宣布每周派息0.1525美元
+# 金管局公布 汇丰及碇点金融科技为首批稳定币牌照发行人
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-YieldMax Magnificent 7期权收益ETF基金于5月19日宣布，将向股东派发每股0.1525美元的每周股息。该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。 聚焦科技七巨头 YMAG是一只主动管理的基金中的基金，主要投资于七只YieldMax期权收益ETF，分别对应“科技七巨头”标的：苹果、亚马逊、谷歌、Meta、微软、英伟达和特斯拉。该基金
+香港金融管理局（金管局）4月10日，向碇点金融科技有限公司（渣打银行、电讯盈科、animoca合资公司）及香港上海滙丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。牌照于今日生效。 金融管理专员根据《稳定币条例》发放首批稳定币牌照，根据持牌人的业务计划，发行人拟于未来数月内开展业务。 金管局总裁余伟文表示：“批出稳定币发行人牌照是香港数字资产发展的重要里程碑。监管制度提
 
 ## 正文
 
-YieldMax Magnificent 7期权收益ETF基金于5月19日宣布，将向股东派发每股0.1525美元的每周股息。
+香港金融管理局（金管局）4月10日，向碇点金融科技有限公司（渣打银行、电讯盈科、animoca合资公司）及香港上海滙丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。
 
-该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。
+牌照于今日生效。
 
-聚焦科技七巨头 YMAG是一只主动管理的基金中的基金，主要投资于七只YieldMax期权收益ETF，分别对应“科技七巨头”标的：苹果、亚马逊、谷歌、Meta、微软、英伟达和特斯拉。
+金融管理专员根据《稳定币条例》发放首批稳定币牌照，根据持牌人的业务计划，发行人拟于未来数月内开展业务。
 
-该基金通过在各底层ETF中构建合成备兑看涨期权策略，旨在为投资者提供当期收入，同时间接参与七巨头股价走势，但上行空间有限。
+金管局总裁余伟文表示：“批出稳定币发行人牌照是香港数字资产发展的重要里程碑。
 
-高派息率吸引收入型投资者 此次每周派息0.1525美元，年化派息率约为46%至51%。
+监管制度提供一个有序的营运环境，让稳定币发行人在应用创新科技的同时，妥善保障用户权益和管控相关风险，使香港稳定币生态圈健康、负责任和可持续地发展。
 
-这一高派息水平得益于基金通过卖出看涨期权获取权利金收入的策略，使其能在市场波动期间持续产生收益。
+我期待发行人按计划开展业务，在管控好风险的同时，积极开拓发展空间，推广合规稳定币的应用，解决金融和经济活动中的痛点，为市民和企业创造价值，推动香港数字资产的健康发展。
 
-截至5月8日，YMAG资产规模约为3.159亿美元，收盘价为13.09美元。
+” 同时，金管局提醒，公众人士应对任何声称与持牌人或其发行的稳定币有关的欺诈活动或骗局保持警觉。
 
-该基金自2024年1月成立以来，市场价格累计回报约19.1%。
+如有疑问，公众人士应查阅金管局的纪录册以核实持牌人的身分，或联络持牌人作进一步查询。
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
-- 2026-06-30 07:20 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
-- 2026-06-30 07:09 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 07:19 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 07:17 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 06:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
-- 2026-06-30 07:15 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 06:54 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 07:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 07:10 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
-- 2026-06-30 06:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 07:17 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-30 07:12 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:04 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-30 07:10 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 07:09 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 07:03 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 07:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-30 07:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 07:01 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 07:02 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
+- 2026-06-30 07:14 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 07:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-30 07:19 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
+- 2026-06-30 07:19 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 07:26 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 07:16 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/29197949.shtml)
-- 2026-06-30 07:07 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/00930112.shtml)
-- 2026-06-30 07:23 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/779889.shtml)
-- 2026-06-30 07:08 - [人类...完蛋了...](https://www.share.minike.top/Article/details/41749990.shtml)
-- 2026-06-30 07:11 - [流金岁月](https://www.share.kurohicncr.top/Article/details/41712184.shtml)
-- 2026-06-30 07:09 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/89000255.shtml)
-- 2026-06-30 07:15 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/25419268606.shtml)
-- 2026-06-30 07:05 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/28825.shtml)
-- 2026-06-30 06:59 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.minike.top/Article/details/2339932716.shtml)
-- 2026-06-30 07:15 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/82928459901.shtml)
-- 2026-06-30 07:05 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/927537399.shtml)
-- 2026-06-30 07:18 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/7515657569.shtml)
-- 2026-06-30 07:11 - [沙丘](http://www.share.kurohicncr.top/Article/details/63409371.shtml)
-- 2026-06-30 07:15 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/4721803911.shtml)
-- 2026-06-30 07:09 - [湖北云南这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/475461.shtml)
+- 2026-06-30 07:03 - [毒液2](https://www.share.minike.top/Article/details/740786.shtml)
+- 2026-06-30 07:22 - [任素汐舞台上唱《王招君》](http://www.blog.kurohicncr.top/Article/details/99788.shtml)
+- 2026-06-30 07:05 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/263588281759.shtml)
+- 2026-06-30 07:13 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/644959694288.shtml)
+- 2026-06-30 07:04 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/84434.shtml)
+- 2026-06-30 07:22 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/57146223.shtml)
+- 2026-06-30 07:28 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/8569566.shtml)
+- 2026-06-30 07:20 - [送你一朵小红花](http://www.blog.minike.top/Article/details/47774466.shtml)
+- 2026-06-30 07:11 - [电影《后室》讲了一个什么故事？](http://www.blog.kurohicncr.top/Article/details/3067798411.shtml)
+- 2026-06-30 07:21 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/46981400.shtml)
+- 2026-06-30 07:01 - [千香](http://www.blog.kurohicncr.top/Article/details/3419944.shtml)
+- 2026-06-30 07:16 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/335304466.shtml)
+- 2026-06-30 07:08 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/6102035.shtml)
+- 2026-06-30 07:02 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/94867.shtml)
+- 2026-06-30 07:08 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/8144420.shtml)

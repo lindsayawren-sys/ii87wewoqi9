@@ -1,43 +1,54 @@
-# 学习新语｜确保中俄关系继续沿着正确轨道不断发展
+# 越共中央总书记、国家主席苏林将访华 中方介绍此访期待
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 14:12 来源：新华社 责任编辑：【杨彦宇】
+中新社北京4月9日电 (记者 李京泽)应中共中央总书记、国家主席习近平邀请，越共中央总书记、国家主席苏林将于4月14日至17日对中国进行国事访问。中国外交部发言人毛宁9日在例行记者会上介绍中方对此访的期待。 毛宁表示，习近平总书记、国家主席将同苏林总书记、国家主席会谈，李强总理、赵乐际委员长、王沪宁政协主席将分别同他会见。 毛宁称，2025年4月，习近平总书记、国家主席对越南成
 
 ## 正文
 
-发布时间：2026年05月19日 14:12 来源：新华社 责任编辑：【杨彦宇】
+中新社北京4月9日电 (记者 李京泽)应中共中央总书记、国家主席习近平邀请，越共中央总书记、国家主席苏林将于4月14日至17日对中国进行国事访问。
+
+中国外交部发言人毛宁9日在例行记者会上介绍中方对此访的期待。
+
+毛宁表示，习近平总书记、国家主席将同苏林总书记、国家主席会谈，李强总理、赵乐际委员长、王沪宁政协主席将分别同他会见。
+
+毛宁称，2025年4月，习近平总书记、国家主席对越南成功进行国事访问，推动具有战略意义的中越命运共同体建设进入新的发展阶段。
+
+苏林总书记近日当选越南国家主席后将中国作为出访的首个国家，充分体现对发展中越两党两国关系的高度重视。
+
+毛宁指出，中方期待通过此访，赓续两国传统友好，持续深化中越全面战略合作伙伴关系，推动构建更高水平具有战略意义的中越命运共同体，共同促进世界社会主义事业发展，共同维护地区和世界和平、稳定、繁荣。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 07:10 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 06:58 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 07:20 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-30 07:23 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
-- 2026-06-30 07:19 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 07:09 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-30 07:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 07:08 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-30 07:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-30 07:09 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 07:05 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 07:13 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-30 07:18 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 07:27 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 07:12 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 07:26 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 07:23 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-30 07:21 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 07:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 07:10 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/03876618.shtml)
-- 2026-06-30 07:02 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/7406630696.shtml)
-- 2026-06-30 06:58 - [天道](https://www.share.minike.top/Article/details/28654788.shtml)
-- 2026-06-30 07:00 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/0994734.shtml)
-- 2026-06-30 07:09 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/96100615995.shtml)
-- 2026-06-30 06:57 - [未来的飞机可能会用电吗？](https://www.blog.kurohicncr.top/Article/details/227672637.shtml)
-- 2026-06-30 07:02 - [王健林甩卖超80座万达广场](https://www.share.minike.top/Article/details/7808566.shtml)
-- 2026-06-30 07:01 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/208285.shtml)
-- 2026-06-30 07:07 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/53878807805.shtml)
-- 2026-06-30 06:55 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/085473450370.shtml)
-- 2026-06-30 07:13 - [好像看到了人类带孩子崩溃的样子](https://www.share.minike.top/Article/details/22568.shtml)
-- 2026-06-30 07:06 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/21281.shtml)
-- 2026-06-30 07:09 - [天道](http://www.share.kurohicncr.top/Article/details/21708115884.shtml)
-- 2026-06-30 07:04 - [巴西2比1日本](https://www.share.minike.top/Article/details/420543974454.shtml)
-- 2026-06-30 07:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/32670583.shtml)
+- 2026-06-30 07:26 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/410592457.shtml)
+- 2026-06-30 07:20 - [房价什么时候能涨](http://www.share.minike.top/Article/details/727879.shtml)
+- 2026-06-30 07:03 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/752693.shtml)
+- 2026-06-30 07:13 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/1796820867.shtml)
+- 2026-06-30 07:10 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/87966727476.shtml)
+- 2026-06-30 07:07 - [董卿父亲报纸上发文悼念亡妻](https://www.blog.minike.top/Article/details/2079362.shtml)
+- 2026-06-30 07:26 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/486579295.shtml)
+- 2026-06-30 07:28 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/4600129.shtml)
+- 2026-06-30 07:23 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/221438100.shtml)
+- 2026-06-30 07:03 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/8187245311.shtml)
+- 2026-06-30 07:06 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/904577814355.shtml)
+- 2026-06-30 07:27 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/265293.shtml)
+- 2026-06-30 07:22 - [卡塞米罗头球破门](http://www.blog.minike.top/Article/details/90297.shtml)
+- 2026-06-30 07:11 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/0135516.shtml)
+- 2026-06-30 07:02 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/786006.shtml)

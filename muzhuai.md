@@ -1,60 +1,45 @@
-# 谷歌与黑石集团据悉将组建AI云合资公司
+# 沪指缩量调整收跌0.72%，CPO概念逆市走强｜华宝基金3A日报（2026.4.9）
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-专题：获利盘回吐压力显现 中期上行趋势不改 据知情人士透露，Alphabet旗下的谷歌和黑石集团计划利用谷歌的专用芯片，打造一家人工智能云公司，与CoreWeave等公司展开竞争。 消息人士称，谷歌和黑石计划成立一家尚未命名的合资公司，黑石集团将向其注资50亿美元，并拥有控股权。该交易预计将于当地时间周一晚些时候宣布。 此次合作是谷歌迄今为止规模最大的一次尝试，旨在向外部出售并
+责任编辑：杨红卜
 
 ## 正文
 
-专题：获利盘回吐压力显现 中期上行趋势不改 据知情人士透露，Alphabet旗下的谷歌和黑石集团计划利用谷歌的专用芯片，打造一家人工智能云公司，与CoreWeave等公司展开竞争。
-
-消息人士称，谷歌和黑石计划成立一家尚未命名的合资公司，黑石集团将向其注资50亿美元，并拥有控股权。
-
-该交易预计将于当地时间周一晚些时候宣布。
-
-此次合作是谷歌迄今为止规模最大的一次尝试，旨在向外部出售并实现芯片商业化，这将加剧谷歌与人工智能计算市场领导者英伟达之间的竞争。
-
-据知情人士透露，这家新公司计划在2027年实现500兆瓦的发电容量上线——这大致相当于美国一个中等规模城市所需的电力——并随着时间的推移大幅提高发电容量。
-
-该合资企业组建之际，训练和运行高级人工智能模型所需的计算能力需求达到前所未有的水平。
-
-目前，大多数大型人工智能公司至少部分依赖于CoreWeave的计算基础设施，而CoreWeave使用的是英伟达的芯片。
-
-为了应对巨大的需求，一批规模较小的所谓“新云”公司也应运而生。
+责任编辑：杨红卜
 
 ## 相关推荐
 
-- 2026-06-30 07:09 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-30 07:06 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-30 07:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 07:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-30 06:54 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 07:18 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 07:15 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-30 07:07 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 07:19 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 07:15 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-30 06:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 07:14 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 07:01 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
-- 2026-06-30 07:00 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 07:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 07:11 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-30 07:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 07:00 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
+- 2026-06-30 07:20 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 07:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 07:28 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 07:07 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 07:02 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 07:14 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmnsq.md)
+- 2026-06-30 07:12 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 07:17 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 07:24 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/290187957.shtml)
-- 2026-06-30 06:55 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/03968.shtml)
-- 2026-06-30 07:05 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/83431310.shtml)
-- 2026-06-30 07:19 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/0555387.shtml)
-- 2026-06-30 06:58 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/924204331363.shtml)
-- 2026-06-30 07:04 - [我觉得你是在无中生友](http://www.share.minike.top/Article/details/46510.shtml)
-- 2026-06-30 07:12 - [第一炉香](https://www.blog.minike.top/Article/details/596704126.shtml)
-- 2026-06-30 07:01 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/37686824.shtml)
-- 2026-06-30 07:01 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/736648516220.shtml)
-- 2026-06-30 07:18 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/98388766328.shtml)
-- 2026-06-30 06:54 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/3306747.shtml)
-- 2026-06-30 07:16 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/122310608063.shtml)
-- 2026-06-30 07:21 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/253171.shtml)
-- 2026-06-30 06:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/875971.shtml)
-- 2026-06-30 07:05 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/48690556989.shtml)
+- 2026-06-30 07:29 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/260062211067.shtml)
+- 2026-06-30 07:15 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/735195.shtml)
+- 2026-06-30 07:08 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/45505.shtml)
+- 2026-06-30 07:24 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/896141051925.shtml)
+- 2026-06-30 07:01 - [送你一朵小红花](https://www.blog.minike.top/Article/details/73412506763.shtml)
+- 2026-06-30 07:16 - [森保一致歉：世界第一目标没能实现](http://www.blog.minike.top/Article/details/632230.shtml)
+- 2026-06-30 07:29 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/2886072.shtml)
+- 2026-06-30 07:27 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/06895842461.shtml)
+- 2026-06-30 07:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/0170175.shtml)
+- 2026-06-30 07:04 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/22453058027.shtml)
+- 2026-06-30 07:05 - [德国巴拉圭 折磨](http://www.blog.kurohicncr.top/Article/details/354331.shtml)
+- 2026-06-30 07:10 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/50786.shtml)
+- 2026-06-30 07:14 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/88749030.shtml)
+- 2026-06-30 07:20 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/288170488737.shtml)
+- 2026-06-30 07:18 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/2131175773.shtml)

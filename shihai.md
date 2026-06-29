@@ -1,61 +1,60 @@
-# 刚果（金）埃博拉疫情扩散 疑似死亡病例达118例
+# 美国第一夫人猛烈抨击关于她与爱泼斯坦的指控
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 据刚果(金)媒体报道，该国东部伊图里省暴发的新一轮埃博拉疫情仍在扩散。刚果(金)新闻和媒体部长兼政府发言人穆亚亚当地时间18日表示，目前已报告疑似死亡病例118例。 穆亚亚表示，这一数据来自刚卫生部。15日伊图里省疑似死亡病例为80例，三天内增加近40例；与15日相比，新增两个受影响的卫生区，疫情迅速蔓延。据英国广播公司报道，另有超过390例疑似病例。
+美国第一夫人梅拉尼娅·特朗普周四猛烈抨击了一系列她所称的关于她与臭名昭著的性犯罪者杰弗里·爱泼斯坦的虚假指控。 梅拉尼娅·特朗普在白宫对记者发表声明称：“我不是爱泼斯坦的受害者。爱泼斯坦并没有把唐纳德·特朗普介绍给我。”她在声明结束后没有接受提问。 “我从未知晓爱泼斯坦对其受害者的虐待行为，”她在谈到这位已故的、曾是特朗普总统朋友的性犯罪者时说。“我从未以任何身份参与其中。我不
 
 ## 正文
 
-中新社北京5月19日电 据刚果(金)媒体报道，该国东部伊图里省暴发的新一轮埃博拉疫情仍在扩散。
+美国第一夫人梅拉尼娅·特朗普周四猛烈抨击了一系列她所称的关于她与臭名昭著的性犯罪者杰弗里·爱泼斯坦的虚假指控。
 
-刚果(金)新闻和媒体部长兼政府发言人穆亚亚当地时间18日表示，目前已报告疑似死亡病例118例。
+梅拉尼娅·特朗普在白宫对记者发表声明称：“我不是爱泼斯坦的受害者。
 
-穆亚亚表示，这一数据来自刚卫生部。
+爱泼斯坦并没有把唐纳德·特朗普介绍给我。
 
-15日伊图里省疑似死亡病例为80例，三天内增加近40例；与15日相比，新增两个受影响的卫生区，疫情迅速蔓延。
+”她在声明结束后没有接受提问。
 
-据英国广播公司报道，另有超过390例疑似病例。
+“我从未知晓爱泼斯坦对其受害者的虐待行为，”她在谈到这位已故的、曾是特朗普总统朋友的性犯罪者时说。
 
-此外，乌干达于15日和16日报告了2例实验室确诊病例，其中1人已经死亡，均为从刚果(金)返回人员。
+“我从未以任何身份参与其中。
 
-世界卫生组织已于17日宣布，刚果(金)和乌干达出现的埃博拉疫情已构成“国际关注的突发公共卫生事件”，可能对周边国家带来传播风险。
+我不是参与者。
 
-此次疫情由本迪布焦型埃博拉病毒引发，是埃博拉病毒中不常见的一种，容易通过血液和其他体液，以及受污染的表面传播。
+” 梅拉尼娅·特朗普说：“将我与被世人唾弃的杰弗里·爱泼斯坦联系起来的谎言今天必须结束。
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 06:59 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-30 06:58 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-30 07:14 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-30 06:54 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 07:13 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 07:08 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 06:54 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
-- 2026-06-30 07:03 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 06:55 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
-- 2026-06-30 06:54 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-30 07:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 06:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 07:04 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 07:22 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 07:23 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 07:00 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 07:29 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 07:11 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 07:23 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
+- 2026-06-30 07:00 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
+- 2026-06-30 07:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
+- 2026-06-30 07:03 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 07:19 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-30 07:18 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 07:14 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 07:12 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 07:22 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 07:11 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/623341924.shtml)
-- 2026-06-30 07:14 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/19016.shtml)
-- 2026-06-30 07:20 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/51876.shtml)
-- 2026-06-30 07:17 - [极限挑战第一季](http://www.share.minike.top/Article/details/175889.shtml)
-- 2026-06-30 07:23 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/22785.shtml)
-- 2026-06-30 07:16 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/6279587481.shtml)
-- 2026-06-30 07:08 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/09681.shtml)
-- 2026-06-30 07:22 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/3239291.shtml)
-- 2026-06-30 07:01 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.minike.top/Article/details/52443591401.shtml)
-- 2026-06-30 07:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/69442.shtml)
-- 2026-06-30 07:00 - [天道](https://www.share.minike.top/Article/details/41613959109.shtml)
-- 2026-06-30 07:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/3086198319.shtml)
-- 2026-06-30 06:58 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/5442959830.shtml)
-- 2026-06-30 07:07 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/44169129636.shtml)
-- 2026-06-30 07:19 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/43953308151.shtml)
+- 2026-06-30 07:12 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/038758400803.shtml)
+- 2026-06-30 07:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/30203.shtml)
+- 2026-06-30 07:26 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/82954.shtml)
+- 2026-06-30 07:09 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/169832.shtml)
+- 2026-06-30 07:20 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.minike.top/Article/details/5516838.shtml)
+- 2026-06-30 07:07 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/167590533370.shtml)
+- 2026-06-30 07:03 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/43003364389.shtml)
+- 2026-06-30 07:03 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/217601064595.shtml)
+- 2026-06-30 07:01 - [人类...完蛋了...](https://www.share.minike.top/Article/details/47631456.shtml)
+- 2026-06-30 07:17 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/35752.shtml)
+- 2026-06-30 07:11 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/8183004.shtml)
+- 2026-06-30 07:12 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/68275497.shtml)
+- 2026-06-30 07:00 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/6173831.shtml)
+- 2026-06-30 07:27 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/352775.shtml)
+- 2026-06-30 07:18 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/54690.shtml)

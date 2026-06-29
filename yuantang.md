@@ -1,49 +1,49 @@
-# 香洲海关2026—2028年物业管理服务项目中标公告
+# 北京市自然昆虫博物馆上万昆虫标本吸引市民
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-一、项目编号：26CDA39D01196(招标文件编号：26CDA39D01196) 二、项目名称：香洲海关2026—2028年物业管理服务项目 三、中标(成交)信息 供应商名称：珠海市金湾保安服务有限公司 供应商地址：珠海市金湾区红旗镇珠海大道6366号6#厂房3楼357室 中标(成交)金额：195.0000000(万元) 四、主要标的信息 五、评审专家(单一来源采购人员)名
+发布时间：2026年04月10日 20:50 来源：中国新闻网 4月10日，市民在北京市自然昆虫博物馆标本展示区参观。北京市自然昆虫博物馆于4月9日正式面向公众开放，建筑面积约4000平方米，是北京南中轴地区落成的首家博物馆，馆内展出上万种昆虫标本、上百只活体昆虫和爬行动物。馆内既有支撑自然科普传播的基础展陈内容，为公众普及昆虫学知识、传播自然生态理念，也打造了视觉识别度高的蝴
 
 ## 正文
 
-一、项目编号：26CDA39D01196(招标文件编号：26CDA39D01196) 二、项目名称：香洲海关2026—2028年物业管理服务项目 三、中标(成交)信息 供应商名称：珠海市金湾保安服务有限公司 供应商地址：珠海市金湾区红旗镇珠海大道6366号6#厂房3楼357室 中标(成交)金额：195.0000000(万元) 四、主要标的信息 五、评审专家(单一来源采购人员)名单： 周兴华、钟达夫、康赫男、钟少华、吕辉明(采购人代表) 六、代理服务收费标准及金额： 本项目代理费收费标准：按招标文件执行。
+发布时间：2026年04月10日 20:50 来源：中国新闻网 4月10日，市民在北京市自然昆虫博物馆标本展示区参观。
 
-本项目代理费总金额：2.260000 万元(人民币) 七、公告期限 自本公告发布之日起1个工作日。
+北京市自然昆虫博物馆于4月9日正式面向公众开放，建筑面积约4000平方米，是北京南中轴地区落成的首家博物馆，馆内展出上万种昆虫标本、上百只活体昆虫和爬行动物。
 
-八、其它补充事宜 1、评审情况 2、推荐以下单位为中标候选人： 九、凡对本次公告内容提出询问，请按以下方式联系。
+馆内既有支撑自然科普传播的基础展陈内容，为公众普及昆虫学知识、传播自然生态理念，也打造了视觉识别度高的蝴蝶墙、古董珠宝尾厅等特色展区。
 
-1.采购人信息 名 称：拱北海关后勤管理中心 地址：珠海市拱北侨光路5号拱北海关后勤管理中心政府采购工作办公室 联系方式：陈先生，谢小姐、0756-8164360,8162467 2.采购代理机构信息 名 称：深圳国际招标咨询有限公司 地 址：珠海市香洲区兴国街4号中立信大厦902 联系方式：陈翠萍 何新坚0760-88385502、18923332559 3.项目联系方式 项目联系人：陈翠萍 何新坚 电 话：0760-88385502、18923332559 拱北海关后勤管理中心 深圳国际招标咨询有限公司 2026年5月19日
+(易海菲 制作 王佳琪） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 07:14 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 06:56 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 07:16 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
-- 2026-06-30 07:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 07:19 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 07:00 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 07:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 07:14 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
-- 2026-06-30 07:20 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 07:07 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 07:28 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
+- 2026-06-30 07:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 07:15 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 07:27 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-30 07:05 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-30 07:09 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-30 07:27 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
+- 2026-06-30 07:19 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 07:13 - [三星投资计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
+- 2026-06-30 07:03 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 07:02 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [亚洲球队全部告别世界杯](https://www.blog.kurohicncr.top/Article/details/72812.shtml)
-- 2026-06-30 07:05 - [《共患难》](https://www.blog.kurohicncr.top/Article/details/1060508.shtml)
-- 2026-06-30 06:58 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/808495.shtml)
-- 2026-06-30 07:00 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/131357226749.shtml)
-- 2026-06-30 07:00 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/190681815.shtml)
-- 2026-06-30 07:17 - [我和我的家乡](http://www.share.minike.top/Article/details/955767.shtml)
-- 2026-06-30 07:17 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/8470120.shtml)
-- 2026-06-30 07:09 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/532611.shtml)
-- 2026-06-30 07:02 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/42750711.shtml)
-- 2026-06-30 07:04 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/835414203.shtml)
-- 2026-06-30 07:23 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/167955309623.shtml)
-- 2026-06-30 07:10 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/542290175.shtml)
-- 2026-06-30 07:08 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/259620.shtml)
-- 2026-06-30 07:22 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/307087913.shtml)
-- 2026-06-30 07:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/22141902.shtml)
+- 2026-06-30 07:16 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/006348087.shtml)
+- 2026-06-30 07:25 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.kurohicncr.top/Article/details/61700009106.shtml)
+- 2026-06-30 07:26 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/8562440.shtml)
+- 2026-06-30 07:02 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/500237204.shtml)
+- 2026-06-30 07:08 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/828644052.shtml)
+- 2026-06-30 07:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/799417.shtml)
+- 2026-06-30 07:24 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/9904964742.shtml)
+- 2026-06-30 07:17 - [起风了](http://www.share.minike.top/Article/details/273682592962.shtml)
+- 2026-06-30 07:28 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/5599282.shtml)
+- 2026-06-30 07:29 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/370532980623.shtml)
+- 2026-06-30 07:08 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/03136470996.shtml)
+- 2026-06-30 07:27 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/4346410.shtml)
+- 2026-06-30 07:02 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/83913.shtml)
+- 2026-06-30 07:10 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/81485125.shtml)
+- 2026-06-30 07:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/460447333.shtml)

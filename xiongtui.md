@@ -1,56 +1,59 @@
-# 2026清华五道口全球金融论坛在成都开幕 共话全球金融治理变革
+# 首批！汇丰银行和碇点金融科技获香港稳定币发行人牌照
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 记者 张晓晖 2026年5月18日，以“变局下的全球金融治理：新挑战、新机遇、新发展”为主题的清华五道口全球金融论坛在四川成都隆重开幕。 本次论坛由清华大学主办，清华大学五道口金融学院承办，汇聚百余位海内外央行领袖、政要、顶尖学者与行业精英，围绕国际货币体系、AI与数据金融、绿色金融、西部金融中心建设等重大议题
+首批香港稳定币牌照正式公布。 4月10日，香港金管局宣布，金融管理专员根据《稳定币条例》向碇点金融科技有限公司及香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。牌照于今日生效。 根据持牌人的业务计划，待相关准备工作完成后，他们拟于未来数月内开展业务。 两家获牌机构中，碇点金融科技有限公司是由渣打银行（香港）、香港电讯和安拟集团合组的合资企业。 金管局总裁余伟文
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 记者 张晓晖 2026年5月18日，以“变局下的全球金融治理：新挑战、新机遇、新发展”为主题的清华五道口全球金融论坛在四川成都隆重开幕。
+首批香港稳定币牌照正式公布。
 
-本次论坛由清华大学主办，清华大学五道口金融学院承办，汇聚百余位海内外央行领袖、政要、顶尖学者与行业精英，围绕国际货币体系、AI与数据金融、绿色金融、西部金融中心建设等重大议题展开深度研讨。
+4月10日，香港金管局宣布，金融管理专员根据《稳定币条例》向碇点金融科技有限公司及香港上海汇丰银行有限公司授予稳定币发行人牌照，以在香港发行稳定币。
 
-开幕式于上午九点正式开始。
+牌照于今日生效。
 
-第十二届全国政协副主席、中国人民银行原行长周小川出席开幕式。
+根据持牌人的业务计划，待相关准备工作完成后，他们拟于未来数月内开展业务。
 
-清华大学党委副书记过勇，清华大学五道口金融学院院长焦捷，浦发银行行长谢伟分别发表讲话。
+两家获牌机构中，碇点金融科技有限公司是由渣打银行（香港）、香港电讯和安拟集团合组的合资企业。
 
-清华大学五道口金融学院副院长张晓燕担任开幕式主持人。
+金管局总裁余伟文表示：“批出稳定币发行人牌照是香港数字资产发展的重要里程碑。
 
-过勇在开幕致辞中表示，当前世界变局加速演进，深化全球金融对话合作、凝聚发展共识，是破解全球金融发展难题、激活行业新动能的关键。
+监管制度提供一个有序的营运环境，让稳定币发行人在应用创新科技的同时，妥善保障用户权益和管控相关风险，使香港稳定币生态圈健康、负责任和可持续地发展。
 
-过勇指出，面对复杂的国际环境，中国经济稳中向好、长期向好的基本面不变，始终以自身发展的确定性对冲全球的不确定性。
+我期待发行人按计划开展业务，在管控好风险的同时，积极开拓发展空间，推广合规稳定币的应用，解决金融和经济活动中的痛点，为市民和企业创造价值，推动香港数字资产的健康发展。
 
 ## 相关推荐
 
-- 2026-06-30 07:14 - [《共患难》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heoen.md)
-- 2026-06-30 06:55 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 06:58 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 07:01 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 07:18 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-30 07:17 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 07:09 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
-- 2026-06-30 07:07 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 07:11 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
-- 2026-06-30 07:06 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 07:08 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 07:01 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 07:16 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 07:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 07:29 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 07:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 07:03 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
+- 2026-06-30 07:01 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 07:26 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 07:04 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 07:08 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 07:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 07:19 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/1022270551.shtml)
-- 2026-06-30 07:21 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/47586706128.shtml)
-- 2026-06-30 07:15 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/85457303.shtml)
-- 2026-06-30 07:20 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/195659.shtml)
-- 2026-06-30 06:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/5653422383.shtml)
-- 2026-06-30 07:02 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/45715732.shtml)
-- 2026-06-30 07:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/8069203466.shtml)
-- 2026-06-30 07:06 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/24697103404.shtml)
-- 2026-06-30 07:07 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/95939090814.shtml)
-- 2026-06-30 06:55 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/380406277712.shtml)
-- 2026-06-30 07:19 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/471649.shtml)
-- 2026-06-30 07:20 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/9899004.shtml)
-- 2026-06-30 07:15 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/90297217.shtml)
-- 2026-06-30 07:14 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/838954313.shtml)
-- 2026-06-30 06:59 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/997302.shtml)
+- 2026-06-30 07:11 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/58624.shtml)
+- 2026-06-30 07:14 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/0962321415.shtml)
+- 2026-06-30 07:20 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/5418499.shtml)
+- 2026-06-30 07:14 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/015783169743.shtml)
+- 2026-06-30 07:26 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/526335628.shtml)
+- 2026-06-30 07:21 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/516416701.shtml)
+- 2026-06-30 07:05 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/118092.shtml)
+- 2026-06-30 07:01 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/713022.shtml)
+- 2026-06-30 07:21 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/65513.shtml)
+- 2026-06-30 07:24 - [世界杯](https://www.blog.kurohicncr.top/Article/details/18752440962.shtml)
+- 2026-06-30 07:16 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/2395387095.shtml)
+- 2026-06-30 07:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/573666167285.shtml)
+- 2026-06-30 07:04 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/47843040.shtml)
+- 2026-06-30 07:15 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/9779733172.shtml)
+- 2026-06-30 07:09 - [花少8要去世界杯举办国](http://www.share.minike.top/Article/details/34739.shtml)

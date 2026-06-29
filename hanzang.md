@@ -1,52 +1,61 @@
-# 首程控股旗下基金持续加码投资加速进化 深化具身智能产业布局
+# 美籍华人艺术家刘墉在中国国家博物馆举办作品展
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-首程控股（00697）发布公告，近日，本集团所属首程资本旗下公司（本公司的全资附属公司） 所管理的基金投资北京加速进化科技有限公司（加速进化）。本次投资是继2025年7月和12月两轮投资后的持续加码，将进一步促进被投企业加快全球交付网络建设、深化具身模型算法开发和推动机器人产品持续迭代升级。 加速进化是一家专注于人形机器人研发与生态建设的科技公司，始终坚持简单、可靠、实用的产品
+中新社北京4月10日电 (记者 应妮)“岁月如诗入画梦——刘墉艺术作品展”10日在中国国家博物馆开幕，展出美籍华人艺术家刘墉不同时期创作的绘画作品89件(组)，涵盖山水、花鸟、风俗等多元题材，全面呈现其艺术创作的演变轨迹与风格特质。 刘墉1949年出生于台北市，上世纪七十年代末定居美国纽约，兼具艺术家、作家等多重身份。他早年钻研中华传统绘画，练就了扎实的传统艺术功底，之后汲取西
 
 ## 正文
 
-首程控股（00697）发布公告，近日，本集团所属首程资本旗下公司（本公司的全资附属公司） 所管理的基金投资北京加速进化科技有限公司（加速进化）。
+中新社北京4月10日电 (记者 应妮)“岁月如诗入画梦——刘墉艺术作品展”10日在中国国家博物馆开幕，展出美籍华人艺术家刘墉不同时期创作的绘画作品89件(组)，涵盖山水、花鸟、风俗等多元题材，全面呈现其艺术创作的演变轨迹与风格特质。
 
-本次投资是继2025年7月和12月两轮投资后的持续加码，将进一步促进被投企业加快全球交付网络建设、深化具身模型算法开发和推动机器人产品持续迭代升级。
+刘墉1949年出生于台北市，上世纪七十年代末定居美国纽约，兼具艺术家、作家等多重身份。
 
-加速进化是一家专注于人形机器人研发与生态建设的科技公司，始终坚持简单、可靠、实用的产品理念，依托“本体+系统+开发者工具”的差异化产品战略，构建软硬体一体化的人形机器人开发平台。
+他早年钻研中华传统绘画，练就了扎实的传统艺术功底，之后汲取西方绘画的造型逻辑与创作理念，贯通中西方艺术气韵，形成了别具一格的美学风格。
 
-此次投资将为加速进化在全球交付体系建设、商业场景拓展和产品迭代升级等方面提供更大动能，加速机器人技术的产业化与商业化进程，引领具身智能时代的生产力变革。
+展览覆盖了刘墉16岁至76岁间创作的作品，包括山水、现代水墨、花鸟、写生等多种题材，时间跨度大、题材全面，其中很多作品此前从未发表或展出过。
 
-本集团未来将坚定不移地持续加大在机器人产业的投资布局，持续深化与行业头部企业的战略合作，通过资本赋能与产业协同，推动机器人技术在多维场景中的规模化落地与生态渗透，引领机器人产业实现规模化与商业化突破，为构建具身智能时代的全新产业格局注入强劲动能。
+该展首次完整勾勒其近十年的探索轨迹，“我想做回顾展的最大好处，就是感觉自己又活了一次，看完之后再做检讨。
 
-责任编辑：卢昱君
+” 据了解，刘墉2025年向中国国家博物馆无偿捐赠其收藏的国画作品《云山松瀑图》《绝壑风生图》，以及他自己采用喷染褶皱皴擦法创作的作品《晨曦》《水月》《书卷》《江山》。
+
+此次展览也现场展出了这四幅充满探索张力与现代气息的大尺幅作品。
+
+作为该展策展人，中国国家博物馆副研究馆员黄小娇表示，刘墉的作品兼具东方笔墨意蕴与西方造型张力，不仅是个人艺术探索的结晶，更是海外华人艺术家赓续中华文脉、融汇多元艺术理念的生动注脚。
 
 ## 相关推荐
 
-- 2026-06-30 07:06 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 06:56 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 07:18 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
-- 2026-06-30 07:15 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 07:12 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 06:57 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 07:20 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 07:22 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 07:17 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 06:57 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 07:08 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
+- 2026-06-30 07:11 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 07:26 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 07:09 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 07:05 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-30 07:02 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-30 07:03 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 07:17 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 07:12 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-30 07:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 07:16 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 07:21 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 07:10 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 07:17 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 07:25 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/7516778673.shtml)
-- 2026-06-30 07:22 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/520495315.shtml)
-- 2026-06-30 07:07 - [《共患难》](http://www.blog.minike.top/Article/details/08553.shtml)
-- 2026-06-30 07:14 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/01993906.shtml)
-- 2026-06-30 07:23 - [杨紫获白玉兰视后为何争议难平](https://www.share.kurohicncr.top/Article/details/06987.shtml)
-- 2026-06-30 06:59 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/6724518512.shtml)
-- 2026-06-30 06:59 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/1366266186.shtml)
-- 2026-06-30 07:02 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.blog.minike.top/Article/details/73616.shtml)
-- 2026-06-30 07:04 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.kurohicncr.top/Article/details/81594506556.shtml)
-- 2026-06-30 06:57 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/3344466220.shtml)
-- 2026-06-30 07:13 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/446666463701.shtml)
-- 2026-06-30 07:12 - [起风了](https://www.share.minike.top/Article/details/619540112877.shtml)
-- 2026-06-30 06:55 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/525683.shtml)
-- 2026-06-30 06:59 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/473925414469.shtml)
-- 2026-06-30 07:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/65196872.shtml)
+- 2026-06-30 07:09 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/031087.shtml)
+- 2026-06-30 07:15 - [武磊：日本队有能力跟任何强队抗衡](http://www.share.minike.top/Article/details/270706788.shtml)
+- 2026-06-30 07:15 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/1405747.shtml)
+- 2026-06-30 07:01 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/389097.shtml)
+- 2026-06-30 07:04 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/1431879296.shtml)
+- 2026-06-30 07:20 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/008683112618.shtml)
+- 2026-06-30 07:06 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/403370742251.shtml)
+- 2026-06-30 07:11 - [南北多地暴雨和强对流天气持续](http://www.blog.minike.top/Article/details/6797828.shtml)
+- 2026-06-30 07:18 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/52756080753.shtml)
+- 2026-06-30 07:09 - [巴西在进攻三区完成210脚传球](https://www.blog.minike.top/Article/details/54451527.shtml)
+- 2026-06-30 07:12 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/731373.shtml)
+- 2026-06-30 07:01 - [扫黑风暴](https://www.blog.minike.top/Article/details/34360426.shtml)
+- 2026-06-30 07:24 - [流金岁月](https://www.blog.minike.top/Article/details/75563694106.shtml)
+- 2026-06-30 07:23 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.kurohicncr.top/Article/details/50613747306.shtml)
+- 2026-06-30 07:01 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/22652480.shtml)

@@ -1,59 +1,60 @@
-# 中信建投期货：5月19日能化早报
+# 受伊朗冲突导致能源价格飙升影响，美国3月消费者价格上涨3.3%
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-PX： 供需面供需双减。亚洲行业负荷环比增加1.8pct至64.5%，仍处五年低位。中国PX行业负荷环比减少1.4pct至77.8%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。需求端，PTA较多的检修量将对PX需求产生阶段性压制。PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。伊朗已通过巴基斯坦将包含14 点
+专题：因油价上涨 美国3月CPI同比增3.3% 美国劳工统计局周五公布的数据显示，受伊朗战争引发能源成本飙升、美联储进一步远离通胀目标影响，3 月份消费者价格大幅上涨。不过，核心通胀相对温和。 经季节性因素调整后，消费者价格指数（CPI）环比上涨 0.9%，同比涨幅达到 3.3%，主要受能源成本飙升 10.9% 推动。两项数据均符合道琼斯市场一致预期。同比涨幅为 2024 年
 
 ## 正文
 
-PX： 供需面供需双减。
+专题：因油价上涨 美国3月CPI同比增3.3% 美国劳工统计局周五公布的数据显示，受伊朗战争引发能源成本飙升、美联储进一步远离通胀目标影响，3 月份消费者价格大幅上涨。
 
-亚洲行业负荷环比增加1.8pct至64.5%，仍处五年低位。
+不过，核心通胀相对温和。
 
-中国PX行业负荷环比减少1.4pct至77.8%，因原料问题导致的 PX 装置计划外变动有限，装置负荷仍处于历年同期高位，5月供应端收缩风险将明显上升。
+经季节性因素调整后，消费者价格指数（CPI）环比上涨 0.9%，同比涨幅达到 3.3%，主要受能源成本飙升 10.9% 推动。
 
-需求端，PTA较多的检修量将对PX需求产生阶段性压制。
+两项数据均符合道琼斯市场一致预期。
 
-PX基本面在产业链中相对偏强，去库格局将至少延续至二季度。
+同比涨幅为 2024 年 4 月以来最高，较 2 月份的 2.4% 明显上升。
 
-伊朗已通过巴基斯坦将包含14 点的最新谈判文本转交美方，核心内容为“结束战争”相关议题，美国总统特朗普称将推迟对伊朗发动军事打击，但不考虑作出任何让步。
+不过，剔除食品和能源的核心价格涨幅要低得多 —— 环比仅上涨 0.2%，同比上涨 2.6%，均低于预期 0.1 个百分点，表明核心通胀得到更好控制。
 
-布伦特原油价格回吐日内涨幅，最终收于109美元/桶附近。
+甚至出现了部分通缩迹象，医疗服务、个人护理以及二手车和卡车价格环比均出现下降。
 
-尽管美伊双方谈判反复，但整体来看，局势出现边际缓和迹象。
+劳工统计局表示，伊朗冲突是本月通胀数据的主要影响因素，其中汽油价格暴涨 21.2%，贡献了整体 CPI 涨幅的近四分之三。
 
 ## 相关推荐
 
-- 2026-06-30 07:06 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-30 07:23 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-30 06:56 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 07:02 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 07:05 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-30 07:17 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 06:54 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qeuvm.md)
-- 2026-06-30 07:18 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 07:01 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
-- 2026-06-30 07:02 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 06:56 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-30 07:02 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-30 07:01 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 07:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 07:29 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
+- 2026-06-30 07:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-30 07:09 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
+- 2026-06-30 07:04 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
+- 2026-06-30 07:26 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-30 07:26 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 07:05 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 07:05 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 07:13 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 07:16 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-30 07:03 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 07:17 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-30 07:27 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:16 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/571187789825.shtml)
-- 2026-06-30 07:03 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/93714265.shtml)
-- 2026-06-30 07:10 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/97219897561.shtml)
-- 2026-06-30 06:59 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/59356505719.shtml)
-- 2026-06-30 07:08 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/3279825235.shtml)
-- 2026-06-30 07:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/402697495496.shtml)
-- 2026-06-30 07:06 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/0813274.shtml)
-- 2026-06-30 07:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/817877036789.shtml)
-- 2026-06-30 07:16 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/0834870.shtml)
-- 2026-06-30 07:06 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/29167698611.shtml)
-- 2026-06-30 06:54 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/8999134330.shtml)
-- 2026-06-30 07:14 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/469474556948.shtml)
-- 2026-06-30 07:13 - [刘宇宁高情商化解谁站C位](http://www.blog.minike.top/Article/details/80028502.shtml)
-- 2026-06-30 06:59 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/98320376925.shtml)
-- 2026-06-30 07:04 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/58529313.shtml)
+- 2026-06-30 07:28 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/512992155681.shtml)
+- 2026-06-30 07:05 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/5800399.shtml)
+- 2026-06-30 07:08 - [房价什么时候能涨](http://www.share.kurohicncr.top/Article/details/337619911138.shtml)
+- 2026-06-30 07:06 - [王欣瑜晋级温网女单次轮](https://www.blog.minike.top/Article/details/55771370715.shtml)
+- 2026-06-30 07:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/062727.shtml)
+- 2026-06-30 07:28 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.share.minike.top/Article/details/09807.shtml)
+- 2026-06-30 07:22 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/717599365.shtml)
+- 2026-06-30 07:14 - [武磊：日本队有能力跟任何强队抗衡](https://www.blog.kurohicncr.top/Article/details/38694271022.shtml)
+- 2026-06-30 07:07 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/35516624.shtml)
+- 2026-06-30 07:17 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/18765433640.shtml)
+- 2026-06-30 07:19 - [日本淘汰](https://www.share.minike.top/Article/details/1363752.shtml)
+- 2026-06-30 07:17 - [87克大金链到老庙黄金维修少了11克](http://www.share.kurohicncr.top/Article/details/769630.shtml)
+- 2026-06-30 07:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/75886.shtml)
+- 2026-06-30 07:02 - [人类...完蛋了...](http://www.share.minike.top/Article/details/60150.shtml)
+- 2026-06-30 07:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/857598370.shtml)

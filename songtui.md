@@ -1,56 +1,52 @@
-# 华安基金：通信电子高景气，创业板50指数上周涨3.92%
+# 伊朗称美国同意在黎巴嫩停火
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。建议关注融资活跃和
+专题：美伊谈判最新进展 当地时间11日，总台记者从伊朗方面获悉，美国同意解冻伊朗资产，并同意在黎巴嫩停火。 美国方面尚未发布相关消息。 当天早前，美国白宫官员否认美国已同意解冻伊朗被冻结资产的消息。（总台记者 李健南 江浩宇） 责任编辑：赵思远
 
 ## 正文
 
-行情回顾及主要观点： 上周A股市场整体呈现分化趋势，主要指数表现不一：沪深300跌0.25%，中证500跌1.82%，中证1000跌0.67%，创业板50涨3.92%，科创50涨3.40%。
+专题：美伊谈判最新进展 当地时间11日，总台记者从伊朗方面获悉，美国同意解冻伊朗资产，并同意在黎巴嫩停火。
 
-交易面，A股市场日均成交额提升至3.3万亿左右，市场投资热情高涨。
+美国方面尚未发布相关消息。
 
-市场热点聚焦商业航天、光纤、液冷服务器、玻璃基板、储能、算力租赁、CPO、先进封装等，科技和制造领域活跃。
+当天早前，美国白宫官员否认美国已同意解冻伊朗被冻结资产的消息。
 
-建议关注融资活跃和政策支持的成长板块，如人工智能和先进制造，大盘成长风格突出的创业板50指数值得重点关注。
-
-创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
-
-权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
-
-图：创业板50指数四大赛道 创业板50指数：追“光”识“新”更掘“金”。
-
-横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
+（总台记者 李健南 江浩宇） 责任编辑：赵思远
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 07:14 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 06:56 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 07:23 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 07:16 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
-- 2026-06-30 07:10 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
-- 2026-06-30 07:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 07:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 07:07 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 07:08 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 07:22 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 07:07 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 07:10 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 07:15 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 07:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 07:26 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 07:06 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 07:24 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 07:25 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 07:25 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 07:28 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 07:20 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hivqz.md)
+- 2026-06-30 07:06 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
+- 2026-06-30 07:20 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.kurohicncr.top/Article/details/728407.shtml)
-- 2026-06-30 07:05 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/38018.shtml)
-- 2026-06-30 07:02 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/79732167082.shtml)
-- 2026-06-30 07:18 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/536432.shtml)
-- 2026-06-30 07:01 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/9706802.shtml)
-- 2026-06-30 07:00 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/0501289.shtml)
-- 2026-06-30 07:16 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/199063322.shtml)
-- 2026-06-30 07:04 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/61001570893.shtml)
-- 2026-06-30 07:00 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/240875244030.shtml)
-- 2026-06-30 07:07 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/6288669912.shtml)
-- 2026-06-30 07:13 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/02357807706.shtml)
-- 2026-06-30 07:20 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/130524.shtml)
-- 2026-06-30 07:23 - [巴西2比1日本](https://www.share.minike.top/Article/details/60370127385.shtml)
-- 2026-06-30 07:04 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/3755337106.shtml)
-- 2026-06-30 07:10 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/191353.shtml)
+- 2026-06-30 07:15 - [85花告别古偶](https://www.share.minike.top/Article/details/575575962.shtml)
+- 2026-06-30 07:17 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/095808.shtml)
+- 2026-06-30 07:27 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/70112.shtml)
+- 2026-06-30 07:04 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/9927838.shtml)
+- 2026-06-30 07:27 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/51772273179.shtml)
+- 2026-06-30 07:25 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/33865489330.shtml)
+- 2026-06-30 07:25 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/459576095915.shtml)
+- 2026-06-30 07:25 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/6227721843.shtml)
+- 2026-06-30 07:05 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/255586890.shtml)
+- 2026-06-30 07:05 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/66626193874.shtml)
+- 2026-06-30 07:23 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/5956159230.shtml)
+- 2026-06-30 07:28 - [曝多支争冠球队有意塞克斯顿](https://www.blog.kurohicncr.top/Article/details/573326195474.shtml)
+- 2026-06-30 07:21 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/00762.shtml)
+- 2026-06-30 07:15 - [《共患难》](http://www.share.minike.top/Article/details/48532491.shtml)
+- 2026-06-30 07:21 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/110756.shtml)

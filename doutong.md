@@ -1,54 +1,59 @@
-# 优衣库时隔五年重开因疫情关闭的首尔旗舰店
+# 礼来新药上市挑战诺和诺德，竞争进一步加剧
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-日本休闲服装品牌优衣库周二表示，位于韩国首尔市中心明洞的旗舰店将于本周重新开业。此前，该店因新冠疫情关闭了约五年。 这家位于购物旅游区的三层楼、面积达3250平方米的门店将于周五开业，届时将成为优衣库在韩国最大的门店，并囊括该品牌的所有产品系列。 优衣库还表示，为庆祝门店重新开业，部分热门商品将进行折扣促销，持续至下周一。责任编辑：于健 SF069
+礼来在全美药房推出其新型减肥药，竞争进一步加剧。 礼来表示，其新获批的减肥药Foundayo将于周四起在美国零售药房销售，这为礼来股价提供了新的催化剂，使其在肥胖治疗领域进一步深入布局。 截至发稿时，礼来股价持平。 这款每日服用一次的治疗药物orforglipron本月早些时候获得了美国食品药品监督管理局的批准，用于治疗患有肥胖或超重并伴有体重相关健康问题的成年人。在获批后不久
 
 ## 正文
 
-日本休闲服装品牌优衣库周二表示，位于韩国首尔市中心明洞的旗舰店将于本周重新开业。
+礼来在全美药房推出其新型减肥药，竞争进一步加剧。
 
-此前，该店因新冠疫情关闭了约五年。
+礼来表示，其新获批的减肥药Foundayo将于周四起在美国零售药房销售，这为礼来股价提供了新的催化剂，使其在肥胖治疗领域进一步深入布局。
 
-这家位于购物旅游区的三层楼、面积达3250平方米的门店将于周五开业，届时将成为优衣库在韩国最大的门店，并囊括该品牌的所有产品系列。
+截至发稿时，礼来股价持平。
 
-优衣库还表示，为庆祝门店重新开业，部分热门商品将进行折扣促销，持续至下周一。
+这款每日服用一次的治疗药物orforglipron本月早些时候获得了美国食品药品监督管理局的批准，用于治疗患有肥胖或超重并伴有体重相关健康问题的成年人。
 
-责任编辑：于健 SF069
+在获批后不久，该药物即通过LillyDirect开始接受处方，为礼来股价增添了额外的分销渠道。
+
+礼来现在面临诺和诺德的竞争，后者今年早些时候以一款与之竞争的Wegovy口服药进入市场。
+
+新药的上市可能有助于礼来扩大可及性并建立增长势头，不过投资者可能会关注药房和患者采用该药物的速度，礼来股价仍处于聚光灯下。
+
+礼来股价还受益于该公司在FDA批准后通过LillyDirect接受处方的举措。
 
 ## 相关推荐
 
-- 2026-06-30 07:24 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-30 07:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
-- 2026-06-30 07:00 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
-- 2026-06-30 07:06 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 07:16 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 07:11 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 07:00 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
-- 2026-06-30 07:00 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 07:15 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 07:10 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 07:21 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-30 07:09 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 07:15 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-30 07:16 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-30 07:21 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
+- 2026-06-30 07:11 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 07:27 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 07:04 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 07:13 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 07:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 07:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 07:02 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-30 07:03 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 07:19 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-30 07:23 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-30 07:27 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 07:03 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/403044197546.shtml)
-- 2026-06-30 07:14 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/8506232576.shtml)
-- 2026-06-30 07:15 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/3785914.shtml)
-- 2026-06-30 07:19 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/3943248.shtml)
-- 2026-06-30 07:20 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/3368421.shtml)
-- 2026-06-30 07:12 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/3090394.shtml)
-- 2026-06-30 06:54 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/515319839430.shtml)
-- 2026-06-30 06:57 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/660257340.shtml)
-- 2026-06-30 07:19 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/04374115.shtml)
-- 2026-06-30 07:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/0343386829.shtml)
-- 2026-06-30 07:16 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/03756543484.shtml)
-- 2026-06-30 06:59 - [董卿父亲报纸上发文悼念亡妻](http://www.share.minike.top/Article/details/963515171.shtml)
-- 2026-06-30 07:13 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/5377517240.shtml)
-- 2026-06-30 07:17 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/461699776994.shtml)
-- 2026-06-30 06:56 - [毒液2](http://www.blog.kurohicncr.top/Article/details/54653.shtml)
+- 2026-06-30 07:02 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/7648211.shtml)
+- 2026-06-30 07:17 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/935460794.shtml)
+- 2026-06-30 07:30 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.kurohicncr.top/Article/details/2696811126.shtml)
+- 2026-06-30 07:13 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.minike.top/Article/details/95812.shtml)
+- 2026-06-30 07:05 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/65458.shtml)
+- 2026-06-30 07:02 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/44710.shtml)
+- 2026-06-30 07:28 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/425938071.shtml)
+- 2026-06-30 07:07 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/420639113.shtml)
+- 2026-06-30 07:00 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/608608825.shtml)
+- 2026-06-30 07:22 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/264977747.shtml)
+- 2026-06-30 07:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/392373.shtml)
+- 2026-06-30 07:17 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/21838979155.shtml)
+- 2026-06-30 07:05 - [巴西在进攻三区完成210脚传球](http://www.blog.minike.top/Article/details/34919409.shtml)
+- 2026-06-30 07:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/2185401.shtml)
+- 2026-06-30 07:01 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/62748.shtml)

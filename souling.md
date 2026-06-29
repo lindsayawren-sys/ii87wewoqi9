@@ -1,56 +1,59 @@
-# 青海举办铸牢中华民族共同体意识专题研讨班
+# 老挝泼水节亮相南宁 深化友谊共促合作
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网西宁5月19日电 (祁绣娟)5月18日，为期五天的第5期铸牢中华民族共同体意识专题研讨班在青海省委党校开班。 此次培训班旨在提高参训学员对于青海省情的把握能力和依法处理民族事务的能力，为全面推动青海民族团结进步事业高质量发展储备一批骨干力量、拓宽干部思维视野。 青海省委常委、统战部部长班果出席开班式并作辅导讲话时表示，青海正处于全面完成创建全国民族团结进步示范省战略目标，
+【东盟专线】老挝泼水节亮相南宁 深化友谊共促合作 中新社南宁4月11日电 (陈秋霞)2026老挝新年泼水节活动11日在广西南宁举行，数百名在桂老挝留学生和各界人士，载歌载舞、泼水嬉戏，共迎佛历新年。 宋干节也称“泼水节”，是老挝、泰国等东南亚国家的传统节日。本次活动由老挝驻南宁总领事馆主办，东盟国家驻南宁总领事馆官员、广西相关部门及各界友好人士受邀参与。现场举行拴线祝福、浴佛等
 
 ## 正文
 
-中新网西宁5月19日电 (祁绣娟)5月18日，为期五天的第5期铸牢中华民族共同体意识专题研讨班在青海省委党校开班。
+【东盟专线】老挝泼水节亮相南宁 深化友谊共促合作 中新社南宁4月11日电 (陈秋霞)2026老挝新年泼水节活动11日在广西南宁举行，数百名在桂老挝留学生和各界人士，载歌载舞、泼水嬉戏，共迎佛历新年。
 
-此次培训班旨在提高参训学员对于青海省情的把握能力和依法处理民族事务的能力，为全面推动青海民族团结进步事业高质量发展储备一批骨干力量、拓宽干部思维视野。
+宋干节也称“泼水节”，是老挝、泰国等东南亚国家的传统节日。
 
-青海省委常委、统战部部长班果出席开班式并作辅导讲话时表示，青海正处于全面完成创建全国民族团结进步示范省战略目标，着力向高标准建设铸牢中华民族共同体意识示范省跃升的新的起点，准确把握铸牢中华民族共同体意识的基本原则与科学方法，深刻理解其核心要义、实践要求与内在规律，对于推动新时代民族工作高质量发展，具有重要的实践指导意义。
+本次活动由老挝驻南宁总领事馆主办，东盟国家驻南宁总领事馆官员、广西相关部门及各界友好人士受邀参与。
 
-班果要求，全省各地区、各部门要围绕铸牢中华民族共同体意识示范省建设体制机制、构筑中华民族共有精神家园、促进各民族交往交流交融、促进各民族实现共同富裕、推进民族事务治理体系和治理能力现代化等重点工作，坚持把铸牢中华民族共同体意识主线要求、民族团结进步促进法贯彻实施、树立和践行正确政绩观贯穿今后工作始终。
+现场举行拴线祝福、浴佛等老挝传统仪式，众人一同品尝老挝美食，观赏老挝芦笙演奏等文艺表演，共跳南旺舞。
 
-据介绍，铸牢中华民族共同体意识专题研讨班自实施创建全国民族团结进步示范省战略以来已连续举办了5期，5年来共培训各地区、各部门领导干部270余人次。
+广西民族大学老挝籍留学生张雪灵演唱中国歌曲《甜蜜蜜》，她表示老挝泼水节是家人团聚的节日，希望借此把快乐和友好传递给中国朋友。
 
-此次研讨班由青海省委组织部、青海省委统战部联合举办。
+“我从小喜欢做菜，能和大家分享老挝美食很开心。
 
-青海省委铸牢中华民族共同体意识暨省民族团结进步事业工作领导小组各成员单位有关负责人、各市州委统战部部长、民宗委主任共54人参加。
+”广西民族大学老挝籍留学生叶初现场制作木瓜沙拉，清香扑鼻，吸引众人品尝。
 
-(完)
+南宁师范大学老挝籍留学生张林金为宾客佩戴自制的花环。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 07:20 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 07:03 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
-- 2026-06-30 07:13 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 06:57 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 07:12 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 07:21 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-30 07:16 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 07:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 07:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 07:02 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 07:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-30 07:06 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 07:11 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
+- 2026-06-30 07:27 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 07:00 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 07:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-30 07:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 07:19 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 07:21 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-30 07:21 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 07:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 07:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/2963810.shtml)
-- 2026-06-30 07:18 - [本科毕业生为何涌入专科学校](https://www.blog.kurohicncr.top/Article/details/91673536633.shtml)
-- 2026-06-30 07:05 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/073498.shtml)
-- 2026-06-30 07:21 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/22468.shtml)
-- 2026-06-30 07:22 - [扬名立万](https://www.blog.minike.top/Article/details/078305.shtml)
-- 2026-06-30 07:20 - [恋与深空 日服](http://www.share.minike.top/Article/details/89336988373.shtml)
-- 2026-06-30 07:00 - [任素汐舞台上唱《王招君》](https://www.blog.kurohicncr.top/Article/details/2805450994.shtml)
-- 2026-06-30 07:15 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/605610993447.shtml)
-- 2026-06-30 07:09 - [千香](https://www.share.minike.top/Article/details/18129.shtml)
-- 2026-06-30 06:57 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/556596594532.shtml)
-- 2026-06-30 07:09 - [千与千寻](https://www.share.kurohicncr.top/Article/details/8605624224.shtml)
-- 2026-06-30 06:55 - [张凌赫 客串](https://www.blog.minike.top/Article/details/941181278.shtml)
-- 2026-06-30 07:22 - [日本反击率先破门](https://www.blog.minike.top/Article/details/75416161.shtml)
-- 2026-06-30 07:22 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/05335423.shtml)
-- 2026-06-30 07:21 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/530115614351.shtml)
+- 2026-06-30 07:01 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/939475.shtml)
+- 2026-06-30 07:21 - [德国巴拉圭加时](http://www.share.minike.top/Article/details/43942755875.shtml)
+- 2026-06-30 07:22 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/33961.shtml)
+- 2026-06-30 07:16 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/08806.shtml)
+- 2026-06-30 07:22 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/66450047.shtml)
+- 2026-06-30 07:11 - [7月1日起 一批新规即将落地](http://www.blog.minike.top/Article/details/538579409730.shtml)
+- 2026-06-30 07:09 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/28366778.shtml)
+- 2026-06-30 07:11 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/5852835424.shtml)
+- 2026-06-30 07:08 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/9543061361.shtml)
+- 2026-06-30 07:07 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/743937.shtml)
+- 2026-06-30 07:27 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/882099033491.shtml)
+- 2026-06-30 07:02 - [点球大战](https://www.share.kurohicncr.top/Article/details/306393195.shtml)
+- 2026-06-30 07:13 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/15359.shtml)
+- 2026-06-30 07:26 - [王健林甩卖超80座万达广场](http://www.share.minike.top/Article/details/69674058.shtml)
+- 2026-06-30 07:17 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/93086637816.shtml)

@@ -1,56 +1,59 @@
-# 可灵AI携中美韩三国导演亮相戛纳，打造AI影视工业化全球范式
+# “双碳”背景下，浙江何以交出公共机构绿色转型答卷？
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-5月18日，在第79届戛纳国际电影节上，可灵AI举办主题论坛《从创意构想到影视工业级落地：可灵AI赋能电影创作流程》。来自中、美、韩三国导演，围绕AI技术在真实影视工作流中的应用，聚焦制作流程升级、创作挑战、商业交付与行业应用前景，分享了从好莱坞工业级剧集到纯AI院线电影和AI动画电影，可灵AI进入全球影视工业制作的三条路径。 成本、周期、规模：数据先说话 乔恩·欧文(Jon
+中新网温州4月9日电(鲍梦妮)4月9日，浙江“双碳”引领公共机构全面绿色转型发展工作部署会在温州举行。会上，浙江省机关事务管理局相关负责人亮出该省“十四五”时期公共机构节能降碳答卷：2025年，浙江全省公共机构人均综合能耗量、单位建筑面积能耗量、人均用水量与2020年相比分别下降7.63%、6.68%、29.49%，降幅均大于全国平均水平。 绿色是高质量发展的底色。“十五五”规
 
 ## 正文
 
-5月18日，在第79届戛纳国际电影节上，可灵AI举办主题论坛《从创意构想到影视工业级落地：可灵AI赋能电影创作流程》。
+中新网温州4月9日电(鲍梦妮)4月9日，浙江“双碳”引领公共机构全面绿色转型发展工作部署会在温州举行。
 
-来自中、美、韩三国导演，围绕AI技术在真实影视工作流中的应用，聚焦制作流程升级、创作挑战、商业交付与行业应用前景，分享了从好莱坞工业级剧集到纯AI院线电影和AI动画电影，可灵AI进入全球影视工业制作的三条路径。
+会上，浙江省机关事务管理局相关负责人亮出该省“十四五”时期公共机构节能降碳答卷：2025年，浙江全省公共机构人均综合能耗量、单位建筑面积能耗量、人均用水量与2020年相比分别下降7.63%、6.68%、29.49%，降幅均大于全国平均水平。
 
-成本、周期、规模：数据先说话 乔恩·欧文(Jon Erwin)执导的剧集《大卫王朝》(House of David)第一季观看人数超过5000万，登上亚马逊Prime多国榜首，其成本仅为传统制片厂报价的三分之一，同时，创造了约600个就业岗位。
+绿色是高质量发展的底色。
 
-他的新剧、由奥斯卡影帝本·金斯利领衔的《摩西》(The Old Stories: Moses)同样也使用了可灵AI制作：一月份有创意，二月份写完剧本，三月份开机，第一集已于论坛前一天在美国上线。
+“十五五”规划将绿色低碳发展升华为贯穿经济社会发展各领域、各环节的核心发展理念。
 
-“正常情况下，从创意到签约这一阶段就需要三年”，他表示。
+而公共机构在经济社会绿色发展中发挥着示范表率作用，节能前景广阔。
 
-韩国导演梁益準(Eekjun)正在制作院线科幻长片《RAPHAEL》(拉斐尔)，若按传统方式拍摄，至少需要150至300名工作人员，预算可能高达200万美元。
+据悉，浙江多地已先行探索公共机构的绿色节能运转模式。
 
-而这个项目团队只有7人，大部分预算花在了可灵AI等工具上。
+以温州为例，该市率先在市行政中心落地能源托管模式，精准破解用能管理中单位分散、技术薄弱等痛点，预计合同期内节约电费约360万元，减少碳排放3000吨。
 
-中国动画导演李炜的《疍家风云》将AI与传统动画流程结合，制作时间相比传统流程缩短约三分之一。
+温州市机关事务管理局党组书记、局长周建清介绍，目前该市纳入能源托管的公共机构300余家，累计托管项目金额8.3亿元，托管期内可节约财政资金约5000万元。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 06:59 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 06:59 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 07:14 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-30 07:10 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 07:22 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-30 07:05 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 07:05 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 07:22 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
-- 2026-06-30 07:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 07:21 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 07:22 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
+- 2026-06-30 07:05 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-30 07:17 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-30 07:24 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
+- 2026-06-30 07:20 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 07:05 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 07:28 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 07:20 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-30 07:15 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 07:19 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 07:15 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-30 07:23 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/796756047.shtml)
-- 2026-06-30 07:18 - [急先锋](https://www.blog.kurohicncr.top/Article/details/08128438.shtml)
-- 2026-06-30 07:14 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.minike.top/Article/details/572268184.shtml)
-- 2026-06-30 06:59 - [主人解开狗绳2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/33980976.shtml)
-- 2026-06-30 06:58 - [庆祝中国共产党成立105周年大会将举行](http://www.share.minike.top/Article/details/8040686.shtml)
-- 2026-06-30 07:19 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/074099132.shtml)
-- 2026-06-30 06:57 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/346587890.shtml)
-- 2026-06-30 07:16 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/212236813972.shtml)
-- 2026-06-30 07:06 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.kurohicncr.top/Article/details/4896512803.shtml)
-- 2026-06-30 07:08 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/954011662423.shtml)
-- 2026-06-30 06:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/968091.shtml)
-- 2026-06-30 07:13 - [青春环游记第三季](http://www.share.minike.top/Article/details/1410622.shtml)
-- 2026-06-30 06:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/4735895.shtml)
-- 2026-06-30 07:13 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.minike.top/Article/details/277037815853.shtml)
-- 2026-06-30 07:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/66560211088.shtml)
+- 2026-06-30 07:08 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/22537440.shtml)
+- 2026-06-30 07:18 - [一生一世](https://www.share.minike.top/Article/details/376674294450.shtml)
+- 2026-06-30 07:27 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/448504.shtml)
+- 2026-06-30 07:13 - [DeepSeek V4正式版要来了](https://www.share.minike.top/Article/details/65864701.shtml)
+- 2026-06-30 07:04 - [巴西扳平比分](http://www.blog.minike.top/Article/details/715434050610.shtml)
+- 2026-06-30 07:02 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/90907.shtml)
+- 2026-06-30 07:26 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/024024048464.shtml)
+- 2026-06-30 07:19 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/459164.shtml)
+- 2026-06-30 07:11 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/19984.shtml)
+- 2026-06-30 07:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/09740.shtml)
+- 2026-06-30 07:27 - [扬名立万](http://www.blog.minike.top/Article/details/116096069.shtml)
+- 2026-06-30 07:17 - [全球芯片巨头史诗级扩产](https://www.share.minike.top/Article/details/4778516091.shtml)
+- 2026-06-30 07:11 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/2807689625.shtml)
+- 2026-06-30 07:03 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/01527.shtml)
+- 2026-06-30 07:20 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/79590217639.shtml)

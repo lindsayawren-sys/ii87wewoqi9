@@ -1,59 +1,57 @@
-# 珍珠潜水信贷公司宣布股息下调逾40%，三年连降折射投资压力
+# 金科地产财务负责人何鸽平已离职
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-珍珠潜水信贷公司近日宣布，将其月度普通股股息大幅削减40.9%，从此前的每股0.22美元下调至每股0.13美元。新的股息标准将从2026年6月起正式执行，具体派息日程为：6月30日支付，6月16日登记在册的股东可获派息。同时，公司还宣布了7月和8月同样为每股0.13美元的股息安排。值得注意的是，这已经是该公司连续第三年下调股息，表明此次调整并非短期财务决策，而是对公司结构性盈利
+4月10日，澎湃新闻记者独家获悉，*ST金科（000656.SZ，金科地产股份有限公司）的财务负责人何鸽平已离职。 资料显示，何鸽平现年58岁，出生于1968年6月，加拿大籍，法学学士及工商管理硕士。1996年至2004年，任加拿大北方电讯网络公司高级财务经理；2004年至2005年，任雅虎中国财务总监；2006年至2010年，任施耐德电气财务总监；2010年至2013年，任豪
 
 ## 正文
 
-珍珠潜水信贷公司近日宣布，将其月度普通股股息大幅削减40.9%，从此前的每股0.22美元下调至每股0.13美元。
+4月10日，澎湃新闻记者独家获悉，*ST金科（000656.SZ，金科地产股份有限公司）的财务负责人何鸽平已离职。
 
-新的股息标准将从2026年6月起正式执行，具体派息日程为：6月30日支付，6月16日登记在册的股东可获派息。
+资料显示，何鸽平现年58岁，出生于1968年6月，加拿大籍，法学学士及工商管理硕士。
 
-同时，公司还宣布了7月和8月同样为每股0.13美元的股息安排。
+1996年至2004年，任加拿大北方电讯网络公司高级财务经理；2004年至2005年，任雅虎中国财务总监；2006年至2010年，任施耐德电气财务总监；2010年至2013年，任豪洛捷全球财务副总裁/大中华区首席财务官；2013年至2025年，任波士顿电池全球财务高级副总裁。
 
-值得注意的是，这已经是该公司连续第三年下调股息，表明此次调整并非短期财务决策，而是对公司结构性盈利压力的回应。
+2025年10月起任公司财务负责人。
 
-股息的下降主要源于其投资组合的持续承压及净资产价值的大幅缩水。
+金科地产集团股份有限公司1998年成立、2011年A股上市，为大型民营上市房企，旗下有1032家关联公司；全资子公司重庆金科控制370家项目公司，是核心资产载体。
 
-公司财报显示，截至2026年3月31日，其每股净资产价值已从2025年底的14.42美元下跌至10.48美元，季度净亏损达到2250万美元。
+2022年，金科股份遭遇重大流动性危机，旗下约3.25亿美元境外债券未能按期完成兑付，此次违约事件成为导火索，直接引发金科系企业整体债务风险集中爆发，最终导致约1470亿元的债务违约，企业经营陷入严峻困境。
 
-作为一家主要投资于抵押贷款义务股权及劣后级债务的封闭式管理投资公司，其资产端的收益率正面临利差收窄和底层贷款违约风险增加的双重挤压。
+为化解债务风险、保障相关方合法权益，2024年4月22日，重庆破产法庭依法分别裁定受理金科股份、重庆金科的破产重整申请。
 
-公司首席执行官Indranil Basu在财报中坦诚，这一决定旨在使股息与近期的净投资收入展望保持一致，并保存资本用于稳定和增长长期资产净值。
+针对企业实际经营与债务情况，法院创新性采取两公司协同重整、协调审理的模式，统筹推进各项重整工作，核心聚焦“保交楼、稳民生”关键目标。
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 07:21 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 07:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-30 07:06 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
-- 2026-06-30 07:06 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 07:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 07:11 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
-- 2026-06-30 07:10 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 07:06 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 07:03 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 06:56 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 07:03 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
-- 2026-06-30 07:04 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 07:25 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 07:22 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 07:01 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 07:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-30 07:09 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 07:24 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 07:14 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 07:23 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 07:20 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
+- 2026-06-30 07:27 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
+- 2026-06-30 07:28 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:55 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/59429.shtml)
-- 2026-06-30 06:58 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/855562608927.shtml)
-- 2026-06-30 07:18 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/237198603195.shtml)
-- 2026-06-30 07:03 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/7819340.shtml)
-- 2026-06-30 07:12 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/916005.shtml)
-- 2026-06-30 07:06 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/2096934598.shtml)
-- 2026-06-30 07:16 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/529745209.shtml)
-- 2026-06-30 07:12 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/75807883260.shtml)
-- 2026-06-30 07:16 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/149334499487.shtml)
-- 2026-06-30 07:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/81511.shtml)
-- 2026-06-30 07:01 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/293056777775.shtml)
-- 2026-06-30 06:55 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/2780847.shtml)
-- 2026-06-30 07:09 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/297128923.shtml)
-- 2026-06-30 07:04 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/603026869.shtml)
-- 2026-06-30 07:16 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/158913.shtml)
+- 2026-06-30 07:26 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/340054.shtml)
+- 2026-06-30 07:21 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/189428.shtml)
+- 2026-06-30 07:29 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/79820892159.shtml)
+- 2026-06-30 07:20 - [巴西2比1日本](https://www.share.minike.top/Article/details/5900462424.shtml)
+- 2026-06-30 07:12 - [袁咏仪张智霖儿子寸头近照](https://www.blog.kurohicncr.top/Article/details/10615.shtml)
+- 2026-06-30 07:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.minike.top/Article/details/10889173027.shtml)
+- 2026-06-30 07:29 - [恋与深空道歉声明](https://www.share.minike.top/Article/details/15675.shtml)
+- 2026-06-30 07:26 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/944439866837.shtml)
+- 2026-06-30 07:23 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/389689.shtml)
+- 2026-06-30 07:18 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/15950410267.shtml)
+- 2026-06-30 07:16 - [内马尔中场休息积极鼓励队友](http://www.share.kurohicncr.top/Article/details/17345679.shtml)
+- 2026-06-30 07:05 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/30626.shtml)
+- 2026-06-30 07:07 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/976079.shtml)
+- 2026-06-30 07:20 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/022225134.shtml)
+- 2026-06-30 07:12 - [时光音乐会](http://www.share.minike.top/Article/details/811211929703.shtml)

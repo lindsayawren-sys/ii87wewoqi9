@@ -1,57 +1,58 @@
-# 东西问·知味东方｜普京的“六褶包”：一场中俄文化的指尖对话
+# 天津企业外汇套保率一季度达25.3% 汇率避险能力显著提升
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新社天津5月19日电 题：普京的“六褶包”：一场中俄文化的指尖对话 中新社记者 杨子炀 王君妍 一个标准的狗不理包子，要有18到22个褶。不过，有个特别的包子，只有6个褶，却引得众多游客驻足围观——因为这个包子，是由俄罗斯总统普京亲手包制的。 应中国国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问。这是普京总统第25次访华。2018年6月8日，中俄友
+中新网天津4月9日电 (记者 周亚强)记者9日从国家外汇管理局天津市分局获悉，截至2026年一季度末，天津市企业外汇套保率达25.3%，较2025年末提升12个百分点，企业汇率风险管理水平显著提升。 据介绍，今年以来，外汇局天津市分局持续优化汇率风险管理服务，通过银政企三方协同发力，推动汇率避险工作取得积极成效。该局组建汇率避险工作专班，建立专项推动、半月监测、监督考核和宣传引
 
 ## 正文
 
-中新社天津5月19日电 题：普京的“六褶包”：一场中俄文化的指尖对话 中新社记者 杨子炀 王君妍 一个标准的狗不理包子，要有18到22个褶。
+中新网天津4月9日电 (记者 周亚强)记者9日从国家外汇管理局天津市分局获悉，截至2026年一季度末，天津市企业外汇套保率达25.3%，较2025年末提升12个百分点，企业汇率风险管理水平显著提升。
 
-不过，有个特别的包子，只有6个褶，却引得众多游客驻足围观——因为这个包子，是由俄罗斯总统普京亲手包制的。
+据介绍，今年以来，外汇局天津市分局持续优化汇率风险管理服务，通过银政企三方协同发力，推动汇率避险工作取得积极成效。
 
-应中国国家主席习近平邀请，俄罗斯总统普京将于5月19日至20日对中国进行国事访问。
+该局组建汇率避险工作专班，建立专项推动、半月监测、监督考核和宣传引导机制，并联动外汇局滨海新区分局针对滨海新区央国企集中特点一体推进落实。
 
-这是普京总统第25次访华。
+在强化银行服务方面，外汇局天津市分局实施差异化管理，累计开展现场及电话督导40余家次，发放工作提示函16件，组织国有大行专题动员并发布2026年度企业汇率风险管理“三张清单”，引导银行精准对接、做实“一企一策”。
 
-2018年6月8日，中俄友好交流活动在天津举行，两国领导人共同出席。
+具体业务层面，该局结合企业收汇时点，指导银行机构为两家电子行业企业办理多笔不同期限远期结汇业务，累计金额5.18亿美元。
 
-在天津迎宾馆，普京兴致盎然地捏出了个“不标准”的“六褶包”，成了中俄饮食文化交流的见证。
+同时，紧抓中印尼双边交易本币结算框架机遇，指导银行机构落地全国首笔全额交割的印尼卢比汇率避险业务，金额达2959亿印尼卢比(约合1758.74万美元)，助力出口印尼企业直接以人民币与印尼卢比报价锁定汇率成本，规避双重汇率波动风险。
 
-这个包子被狗不理集团用3D打印复刻，永久珍藏保存。
+在政策协同上，外汇局天津市分局加强与行业监管、国资等部门沟通，推动某大型金融租赁公司获批基础类衍生品资质；与天津市国资委建立信息共享机制并联合召开大型国企汇率风险管理宣讲会，覆盖44家市属国企。
 
-当俄罗斯“硬汉”的指尖，第一次触碰中国的“水馅半发面”，那一刻发生了什么？
+此外，线上常态发布政策解读，线下指导银行开展宣导活动2000余家次。
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 07:20 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 07:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 07:14 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 07:03 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 07:06 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 07:18 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
-- 2026-06-30 06:59 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-30 07:16 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-30 07:07 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-30 07:08 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 07:21 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 07:23 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 07:14 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 07:16 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 07:28 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 07:10 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 07:25 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 07:06 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 07:16 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 07:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 07:16 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 07:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:59 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/70856.shtml)
-- 2026-06-30 07:23 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/600590703.shtml)
-- 2026-06-30 07:11 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/833956.shtml)
-- 2026-06-30 07:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.kurohicncr.top/Article/details/428497084369.shtml)
-- 2026-06-30 06:55 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/2466543.shtml)
-- 2026-06-30 07:00 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/31598.shtml)
-- 2026-06-30 07:22 - [金刚川](http://www.blog.kurohicncr.top/Article/details/340350868369.shtml)
-- 2026-06-30 06:54 - [周生如故](https://www.share.minike.top/Article/details/296608765.shtml)
-- 2026-06-30 07:14 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/032760.shtml)
-- 2026-06-30 07:01 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/690329921.shtml)
-- 2026-06-30 07:08 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/0355508.shtml)
-- 2026-06-30 07:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/5259833.shtml)
-- 2026-06-30 06:54 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/442467640650.shtml)
-- 2026-06-30 06:56 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/983294801.shtml)
-- 2026-06-30 07:02 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/909626208.shtml)
+- 2026-06-30 07:13 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/89424.shtml)
+- 2026-06-30 07:19 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/186051.shtml)
+- 2026-06-30 07:16 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.minike.top/Article/details/673218457997.shtml)
+- 2026-06-30 07:23 - [一见倾心](https://www.blog.minike.top/Article/details/4577533343.shtml)
+- 2026-06-30 07:14 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/6176875.shtml)
+- 2026-06-30 07:17 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/46859025.shtml)
+- 2026-06-30 07:29 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/14803648539.shtml)
+- 2026-06-30 07:05 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/79223338.shtml)
+- 2026-06-30 07:26 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/745538.shtml)
+- 2026-06-30 07:13 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/018104502741.shtml)
+- 2026-06-30 07:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/5688306932.shtml)
+- 2026-06-30 07:13 - [韩国球迷凌晨4点接机怒骂主教练](http://www.share.kurohicncr.top/Article/details/57750532.shtml)
+- 2026-06-30 07:15 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/422077.shtml)
+- 2026-06-30 07:11 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/1691506.shtml)
+- 2026-06-30 07:21 - [刘宇宁胸肌腹肌全给看了](https://www.share.kurohicncr.top/Article/details/6908247.shtml)

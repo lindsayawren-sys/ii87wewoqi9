@@ -1,56 +1,59 @@
-# 报告称2026年中国研学旅游市场处于较高景气区间
+# 知名投资者公开唱空 Palantir连续第二日大跌
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 (记者 刘文文)今年5月19日是第16个“中国旅游日”。中国旅行社协会联合多所院校当天发布的《2026年中国研学旅游市场景气调查报告》显示，2026年中国研学旅游市场整体处于较高景气区间。 根据测算，2026年研学市场整体景气指数为126.9，受访单位对2026年研学市场走势总体保持积极判断，行业信心明显高于景气临界线。 上述报告显示，2026年研学旅游
+Palantir股价周四下跌7.3%，为连续第二个交易日大幅下跌，此前知名投资者迈克尔·伯里在X平台上发帖，对该公司在企业人工智能竞争中的定位提出了质疑。 伯里在帖子中称“Anthropic正在吃掉Palantir的午餐”，并补充说，这家竞争对手之所以能取得进展，是因为它为企业提供了“更简单、更便宜、更直观的解决方案”，而Palantir仍更依赖政府项目，他将其描述为“低利润且
 
 ## 正文
 
-中新社北京5月19日电 (记者 刘文文)今年5月19日是第16个“中国旅游日”。
+Palantir股价周四下跌7.3%，为连续第二个交易日大幅下跌，此前知名投资者迈克尔·伯里在X平台上发帖，对该公司在企业人工智能竞争中的定位提出了质疑。
 
-中国旅行社协会联合多所院校当天发布的《2026年中国研学旅游市场景气调查报告》显示，2026年中国研学旅游市场整体处于较高景气区间。
+伯里在帖子中称“Anthropic正在吃掉Palantir的午餐”，并补充说，这家竞争对手之所以能取得进展，是因为它为企业提供了“更简单、更便宜、更直观的解决方案”，而Palantir仍更依赖政府项目，他将其描述为“低利润且规模小”。
 
-根据测算，2026年研学市场整体景气指数为126.9，受访单位对2026年研学市场走势总体保持积极判断，行业信心明显高于景气临界线。
+伯里还指出Anthropic的快速扩张，称该公司在数月内将年化经常性收入从90亿美元增至300亿美元，而Palantir达到类似水平则花了更长的时间。
 
-上述报告显示，2026年研学旅游市场呈现明显的地区分化特征。
+这一批评引发了更广泛的讨论。
 
-一方面，东部沿海地区及一线、新一线城市周边市场，市场活跃度相对领先；另一方面，中西部地区、东北地区及部分资源型目的地，依托自然生态、红色文化、历史文化等特色资源，在主题化、目的地型研学产品方面具备较强开发潜力。
+一方面，Palantir的增长态势难以反驳，一系列强劲的季度报告强化了市场对其人工智能驱动平台需求依然 robust 的看法。
 
-报告指出，2026年研学旅游细分市场呈现明显的结构性特征，中小学生校内研学仍然是行业基本盘，但增长弹性相对有限。
+这种稳定性帮助该股在过去几年中成为市场表现最突出的股票之一，带来了很少有其他股票能匹敌的超额回报。
 
-从研学需求市场活跃程度看，亲子家庭、银发、幼儿启蒙等非传统研学客群表现更为突出，亲子化、低龄化、全年龄化产品将成为重要增量方向。
+从这个角度看，即使该股已从去年11月的高点回落约28%，过去三年的涨幅仍高达1，670%。
 
-报告认为，入境研学是2026年研学旅游市场值得关注的增量方向。
+这就引出了许多投资者有疑问的问题：其过高的估值。
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 07:18 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-30 06:57 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 07:10 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 07:14 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 07:24 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 07:21 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 07:13 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-30 07:03 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
-- 2026-06-30 06:58 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 07:13 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-30 07:18 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 07:12 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 07:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
+- 2026-06-30 07:25 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 07:09 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 07:12 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 07:28 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 07:11 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 07:12 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 07:20 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 07:18 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 07:11 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [德国巴拉圭 折磨](https://www.share.minike.top/Article/details/20002937615.shtml)
-- 2026-06-30 07:02 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/1794893392.shtml)
-- 2026-06-30 07:06 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/07047164.shtml)
-- 2026-06-30 07:15 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/36086559.shtml)
-- 2026-06-30 07:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/6461127.shtml)
-- 2026-06-30 07:06 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/108051369418.shtml)
-- 2026-06-30 07:02 - [网瘾賊大的阿嬷](http://www.blog.kurohicncr.top/Article/details/546201246.shtml)
-- 2026-06-30 07:10 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/509217458.shtml)
-- 2026-06-30 07:00 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/449419719.shtml)
-- 2026-06-30 07:12 - [我们的少年时代2](http://www.share.minike.top/Article/details/32123668.shtml)
-- 2026-06-30 06:54 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/755384566.shtml)
-- 2026-06-30 07:21 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/980658.shtml)
-- 2026-06-30 07:11 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/7269887.shtml)
-- 2026-06-30 07:14 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/571303962937.shtml)
-- 2026-06-30 06:55 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.kurohicncr.top/Article/details/1838675.shtml)
+- 2026-06-30 07:05 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/5335219662.shtml)
+- 2026-06-30 07:05 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/32531.shtml)
+- 2026-06-30 07:06 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/629044840311.shtml)
+- 2026-06-30 07:06 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/96494838582.shtml)
+- 2026-06-30 07:18 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/2011279463.shtml)
+- 2026-06-30 07:24 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/81306.shtml)
+- 2026-06-30 07:17 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/63411916143.shtml)
+- 2026-06-30 07:01 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/39891.shtml)
+- 2026-06-30 07:08 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/625132441.shtml)
+- 2026-06-30 07:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/89493695.shtml)
+- 2026-06-30 07:20 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/440305307.shtml)
+- 2026-06-30 07:10 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/72494537.shtml)
+- 2026-06-30 07:00 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/50545989726.shtml)
+- 2026-06-30 07:24 - [日本半场1比0领先巴西](https://www.share.kurohicncr.top/Article/details/1226473.shtml)
+- 2026-06-30 07:15 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/56174171966.shtml)

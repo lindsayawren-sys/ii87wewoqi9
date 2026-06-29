@@ -1,51 +1,56 @@
-# 日本国债收益率再度上涨 反映债券市场进一步走弱
+# 台青在大陆“跨界”中寻合作机遇
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-10年期和30年期日本国债收益率延续升势，反映在全球债市大跌导致一些收益率升至历史高位后，债券市场进一步走弱。 10年期收益率和30年期收益率分别上涨5.5个基点，至2.795%和4.155%。责任编辑：何云
+中新社贵阳4月10日电 (记者 周燕玲)“这次考察结束后，我准备在贵阳多留一天，去打卡藏在街头巷尾的咖啡店。”在浙江嘉兴经营复合式咖啡馆的台湾青年邱弘宇10日接受中新社采访时说，贵阳的咖啡文化很有辨识度。连日来，邱弘宇与20多位台企代表到访贵州，参观贵阳的咖啡工厂和精酿酒厂，考察铜仁江口的抹茶工厂，了解抹茶制作工艺。 邱弘宇此行关注到铜仁抹茶等优质原料，计划与咖啡、烘焙结合，开
 
 ## 正文
 
-10年期和30年期日本国债收益率延续升势，反映在全球债市大跌导致一些收益率升至历史高位后，债券市场进一步走弱。
+中新社贵阳4月10日电 (记者 周燕玲)“这次考察结束后，我准备在贵阳多留一天，去打卡藏在街头巷尾的咖啡店。
 
-10年期收益率和30年期收益率分别上涨5.5个基点，至2.795%和4.155%。
+”在浙江嘉兴经营复合式咖啡馆的台湾青年邱弘宇10日接受中新社采访时说，贵阳的咖啡文化很有辨识度。
 
-责任编辑：何云
+连日来，邱弘宇与20多位台企代表到访贵州，参观贵阳的咖啡工厂和精酿酒厂，考察铜仁江口的抹茶工厂，了解抹茶制作工艺。
+
+邱弘宇此行关注到铜仁抹茶等优质原料，计划与咖啡、烘焙结合，开发新品、拓展供应链合作。
+
+邱弘宇的父母在大陆创业多年，如今在嘉兴开设传统烘焙工厂。
+
+邱弘宇十多年前从台湾来大陆发展，并提出往咖啡业态转型。
+
+“面包与咖啡天然适配，咖啡馆有格调，溢价空间也更高。
+
+”邱弘宇说，第一家烘焙店如今已变成300平方米的复合式咖啡馆，以精品咖啡加烘焙产品为主，兼售咖啡豆和文创产品。
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
-- 2026-06-30 07:22 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 07:17 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 07:17 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 07:01 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 07:18 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-30 07:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 07:09 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
-- 2026-06-30 07:10 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 07:12 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-30 07:04 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 06:55 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
-- 2026-06-30 07:16 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 07:07 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 07:02 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 07:06 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 07:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-30 07:12 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 07:09 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 07:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 07:01 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 07:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 07:30 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 07:03 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 07:11 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:10 - [速度与激情9](https://www.blog.minike.top/Article/details/76132051.shtml)
-- 2026-06-30 07:00 - [我们的少年时代2](https://www.share.minike.top/Article/details/103509.shtml)
-- 2026-06-30 06:54 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/862968.shtml)
-- 2026-06-30 06:55 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/459568.shtml)
-- 2026-06-30 07:07 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/693494.shtml)
-- 2026-06-30 07:05 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/71954.shtml)
-- 2026-06-30 07:01 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/10424468390.shtml)
-- 2026-06-30 07:09 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/49439870222.shtml)
-- 2026-06-30 06:57 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/523926643.shtml)
-- 2026-06-30 06:56 - [安切洛蒂 换人](https://www.share.kurohicncr.top/Article/details/171192320.shtml)
-- 2026-06-30 06:58 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/2686183.shtml)
-- 2026-06-30 07:04 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/1773125563.shtml)
-- 2026-06-30 06:59 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/91809893058.shtml)
-- 2026-06-30 07:12 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/0303056146.shtml)
-- 2026-06-30 07:21 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.minike.top/Article/details/41056.shtml)
+- 2026-06-30 07:26 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/339872.shtml)
+- 2026-06-30 07:24 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/570977814.shtml)
+- 2026-06-30 07:06 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/06504645157.shtml)
+- 2026-06-30 07:12 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/00724.shtml)
+- 2026-06-30 07:16 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/318303.shtml)
+- 2026-06-30 07:17 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/6733114.shtml)
+- 2026-06-30 07:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/13943298631.shtml)
+- 2026-06-30 07:20 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/012725597.shtml)
+- 2026-06-30 07:18 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/409754276533.shtml)
+- 2026-06-30 07:18 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/027834772.shtml)
+- 2026-06-30 07:00 - [孙兴慜道歉](http://www.blog.minike.top/Article/details/741405353.shtml)
+- 2026-06-30 07:11 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/4720749.shtml)
+- 2026-06-30 07:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/21557942210.shtml)
+- 2026-06-30 07:22 - [金牌调解](https://www.blog.minike.top/Article/details/14161532.shtml)
+- 2026-06-30 07:21 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/4056051.shtml)

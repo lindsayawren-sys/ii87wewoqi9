@@ -1,61 +1,59 @@
-# 黑龙江民革省委助力牡丹江市东安区经济发展座谈会召开
+# 三年累亏超30亿，清陶能源冲击固态电池港股第一股
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-民革省委助力牡丹江市东安区经济发展座谈会召开 5月19日，在第十届中俄博览会暨第三十五届哈洽会举办之际，民革省委召开助力牡丹江市东安区经济发展座谈会。会议旨在搭建对接平台，组织民革党员企业家进一步深入了解东安区发展优势与合作机遇，共同探索助力地方经济高质量发展的契合点与路径。民革省委秘书长张福良主持会议并作总结讲话。 牡丹江市东安区政府副区长赵捃凯、民革省委宣传联络部部长左洪佳
+界面新闻实习记者 | 彭天美 又一固态电池企业向资本市场发起冲击。 4月8日，清陶（昆山）能源发展集团股份有限公司（下称清陶能源）正式向港交所递交招股书，联席保荐人为国泰君安、中金公司和招商证券，拟冲刺固态电池港股第一股。 这是一家从诞生之日起就备受瞩目的企业。2016年，清华大学材料学院两位博士冯玉川、李峥，将导师南策文院士团队的固态电解质研究成果推向产业化，注册清陶能源。目
 
 ## 正文
 
-民革省委助力牡丹江市东安区经济发展座谈会召开 5月19日，在第十届中俄博览会暨第三十五届哈洽会举办之际，民革省委召开助力牡丹江市东安区经济发展座谈会。
+界面新闻实习记者 | 彭天美 又一固态电池企业向资本市场发起冲击。
 
-会议旨在搭建对接平台，组织民革党员企业家进一步深入了解东安区发展优势与合作机遇，共同探索助力地方经济高质量发展的契合点与路径。
+4月8日，清陶（昆山）能源发展集团股份有限公司（下称清陶能源）正式向港交所递交招股书，联席保荐人为国泰君安、中金公司和招商证券，拟冲刺固态电池港股第一股。
 
-民革省委秘书长张福良主持会议并作总结讲话。
+这是一家从诞生之日起就备受瞩目的企业。
 
-牡丹江市东安区政府副区长赵捃凯、民革省委宣传联络部部长左洪佳、省商务厅区域合作发展处二级调研员乔直、东安区商务局局长夏晖及7位民革党员企业家代表参加座谈。
+2016年，清华大学材料学院两位博士冯玉川、李峥，将导师南策文院士团队的固态电解质研究成果推向产业化，注册清陶能源。
 
-会议组织观看了牡丹江市东安区宣传推介视频，直观展示了东安区的区位优势、产业基础、发展规划与营商环境。
+目前，冯玉川等四位创始人作为一致行动人合计持股37%，为控股股东。
 
-随后，赵捃凯详细介绍了东安区经济社会发展情况、重点产业方向及招商引资政策，并诚邀各位企业家到东安区投资兴业、共谋发展。
+官网资料显示，清陶能源已率先实现了固态电池的产业化，建有固态动力锂电池规模化量产线，现已申请国家专利1800多项，其中发明专利超800项，获得授权的有1000多项。
 
-哈尔滨市锦秀实业集团董事会主席朱海蓉、京东集团政企业务黑龙江省区负责人高延博 、哈尔滨合智创达科技发展有限公司总经理韩凯、黑龙江省乐磁集团董事长贾仰龙、黑河市品俄经贸有限公司总经理王彦彬、黑龙江华信军融科技有限公司总经理石亚夫依次介绍了企业发展情况、业务布局及投资方向，并围绕产业合作、项目落地、政策配套等内容与东安区参会领导展开深入互动交流，初步达成多项合作意向。
+相较于传统的液态锂电池，固态电池放弃了易燃易爆的液态电解质，采用固态电解质材料，有望在能量密度、安全和寿命等方面取得显著进步，被视为锂电池终极技术。
 
-张福良秘书长作会议总结讲话。
+2020年8月，清陶能源完成E++轮融资，2021年完成F++轮融资，投资方主要包括上汽集团、北汽产投、广汽资本、中银投、峰瑞资本等。
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 07:04 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 06:55 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 06:58 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
-- 2026-06-30 07:13 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 06:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-30 06:54 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 07:05 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 07:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-30 07:17 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-30 06:55 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 07:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-30 07:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
-- 2026-06-30 07:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 06:57 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-30 07:02 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 07:01 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-30 07:01 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 07:25 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 07:17 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-30 07:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 07:02 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 07:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 07:13 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 07:16 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 07:17 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 07:26 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 07:15 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/94156880.shtml)
-- 2026-06-30 07:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/88711027066.shtml)
-- 2026-06-30 07:14 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/20081770356.shtml)
-- 2026-06-30 07:13 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/1536269396.shtml)
-- 2026-06-30 07:11 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/3919415349.shtml)
-- 2026-06-30 07:00 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/509553.shtml)
-- 2026-06-30 07:12 - [日本领先巴西](http://www.share.minike.top/Article/details/3753994.shtml)
-- 2026-06-30 07:12 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/6679378.shtml)
-- 2026-06-30 06:57 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/158229512808.shtml)
-- 2026-06-30 07:17 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/917586379.shtml)
-- 2026-06-30 07:06 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/4752566850.shtml)
-- 2026-06-30 07:21 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/116187613669.shtml)
-- 2026-06-30 07:12 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/38097565067.shtml)
-- 2026-06-30 06:59 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/408274557.shtml)
-- 2026-06-30 07:18 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/11585845096.shtml)
+- 2026-06-30 07:23 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/02219426357.shtml)
+- 2026-06-30 07:02 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/9198921464.shtml)
+- 2026-06-30 07:01 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/657058.shtml)
+- 2026-06-30 07:06 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/172088598.shtml)
+- 2026-06-30 07:24 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/757939512269.shtml)
+- 2026-06-30 07:22 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/87708359976.shtml)
+- 2026-06-30 07:09 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/7425372584.shtml)
+- 2026-06-30 07:09 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/436421551823.shtml)
+- 2026-06-30 07:13 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/1001355516.shtml)
+- 2026-06-30 07:07 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/3698531399.shtml)
+- 2026-06-30 07:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/6624984.shtml)
+- 2026-06-30 07:26 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/239933075774.shtml)
+- 2026-06-30 07:27 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/93227.shtml)
+- 2026-06-30 07:25 - [《男人至死是傻得儿》](https://www.blog.minike.top/Article/details/4943769.shtml)
+- 2026-06-30 07:12 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/545730134.shtml)

@@ -1,60 +1,58 @@
-# 信贷强劲增长16%，以色列FIBI银行一季度净利润4.8亿新谢克尔
+# 京剧马派经典剧目《火牛阵》在福州上演
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-以色列第一大国际银行公布2026年第一季度财报。报告显示，尽管面临宏观经济逆风，该行在贷款增长与资产扩张方面表现强劲。 一、核心财务数据：净利润同比有所下滑 财报显示，该行第一季度净利润为4.8亿新谢克尔，低于去年同期的5.3亿新谢克尔。每股收益为4.78新谢克尔。 尽管利润同比下滑，但剔除超额资本及特别税款后，年化净资产收益率仍保持在16.7%的较高水平。 二、业务增长：信贷
+中新网福州4月11日电 (沙沁湉)京剧马派经典剧目《火牛阵》10日晚在福州凤凰剧院上演。这出由京剧大师马连良先生早年创作的代表性剧目，在著名京剧表演艺术家朱强的倾囊传授下，由福建京剧院青年演员张萌领衔主演，赢得满堂喝彩。 《火牛阵》讲述了战国时期乐毅伐齐、田单以火牛阵大破燕军、收复七十余城的故事。 据福建京剧院相关负责人介绍，该剧由马连良先生在传统剧目《黄金台》基础上增益首尾创
 
 ## 正文
 
-以色列第一大国际银行公布2026年第一季度财报。
+中新网福州4月11日电 (沙沁湉)京剧马派经典剧目《火牛阵》10日晚在福州凤凰剧院上演。
 
-报告显示，尽管面临宏观经济逆风，该行在贷款增长与资产扩张方面表现强劲。
+这出由京剧大师马连良先生早年创作的代表性剧目，在著名京剧表演艺术家朱强的倾囊传授下，由福建京剧院青年演员张萌领衔主演，赢得满堂喝彩。
 
-一、核心财务数据：净利润同比有所下滑 财报显示，该行第一季度净利润为4.8亿新谢克尔，低于去年同期的5.3亿新谢克尔。
+《火牛阵》讲述了战国时期乐毅伐齐、田单以火牛阵大破燕军、收复七十余城的故事。
 
-每股收益为4.78新谢克尔。
+据福建京剧院相关负责人介绍，该剧由马连良先生在传统剧目《黄金台》基础上增益首尾创作而成，唱做并重，是京剧马派艺术早期的重要代表作。
 
-尽管利润同比下滑，但剔除超额资本及特别税款后，年化净资产收益率仍保持在16.7%的较高水平。
+此次演出中，张萌的唱腔既富有音韵之美，又饱含人物情感，将田单忧国忧民、忍辱负重的复杂心境层层递进地展现出来，展现出扎实的功底与日渐成熟的艺术风范。
 
-二、业务增长：信贷与资产规模双双攀升 核心业务指标表现亮眼：对公信贷总额达1550亿新谢克尔，同比增长16.0%；总客户资产组合达到1.17万亿新谢克尔，同比增长25.1%；托管及资产管理规模增长体现了客户粘性的增强。
+2023年，张萌正式拜入京剧马派表演艺术家朱强门下，近年来朱强先后为他指导了《赵氏孤儿》《红鬃烈马》及新编现代京剧《林祥谦》等剧目。
 
-非利息收入方面，手续费及佣金收入增长9.2%至4.64亿新谢克尔，成为抵御宏观波动的缓冲垫。
+2025年，朱强将自己近年整理复排的《火牛阵》倾囊相授。
 
-三、资产质量与股东回报：保持稳健 尽管贷款规模快速扩张，该行不良贷款率降至0.42%，显示出强大的风控能力；一季度未计提任何信贷损失，资产质量稳健。
+今年4月，朱强专程来到福州。
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 07:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 07:13 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 06:55 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 07:20 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 07:17 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 07:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-30 07:00 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 07:03 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 07:15 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 06:56 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 07:02 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 06:59 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 07:08 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 07:17 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
+- 2026-06-30 07:28 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 07:22 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 07:22 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 07:19 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 07:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 07:05 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 07:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 07:09 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 07:21 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 07:19 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-30 07:03 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:57 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/104428482.shtml)
-- 2026-06-30 06:57 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/87586.shtml)
-- 2026-06-30 07:11 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/4308444.shtml)
-- 2026-06-30 06:55 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/47127797.shtml)
-- 2026-06-30 07:22 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/623168403.shtml)
-- 2026-06-30 06:56 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/1282004250.shtml)
-- 2026-06-30 07:07 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/875351972.shtml)
-- 2026-06-30 07:14 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/114708.shtml)
-- 2026-06-30 07:18 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/493758.shtml)
-- 2026-06-30 07:12 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/099858.shtml)
-- 2026-06-30 07:19 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/922571605782.shtml)
-- 2026-06-30 06:59 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/998707582606.shtml)
-- 2026-06-30 07:21 - [金刚川](http://www.blog.minike.top/Article/details/0741387.shtml)
-- 2026-06-30 07:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/52349271.shtml)
-- 2026-06-30 07:01 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/23359.shtml)
+- 2026-06-30 07:11 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/88688.shtml)
+- 2026-06-30 07:18 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.minike.top/Article/details/6199072.shtml)
+- 2026-06-30 07:00 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/228603447.shtml)
+- 2026-06-30 07:13 - [日本拟明年正式启动海底稀土开发计划](https://www.share.minike.top/Article/details/9447678087.shtml)
+- 2026-06-30 07:14 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/451170.shtml)
+- 2026-06-30 07:22 - [高中五人学习小组全员超650分](https://www.blog.kurohicncr.top/Article/details/208778280860.shtml)
+- 2026-06-30 07:07 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/210533234.shtml)
+- 2026-06-30 07:11 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/0463950.shtml)
+- 2026-06-30 07:13 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/92803481.shtml)
+- 2026-06-30 07:20 - [法国生态部长反对大规模安装空调](http://www.blog.minike.top/Article/details/438410351.shtml)
+- 2026-06-30 07:08 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/08454.shtml)
+- 2026-06-30 07:20 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/5278000.shtml)
+- 2026-06-30 07:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/250588075129.shtml)
+- 2026-06-30 07:24 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/4111403650.shtml)
+- 2026-06-30 07:20 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/815659057586.shtml)

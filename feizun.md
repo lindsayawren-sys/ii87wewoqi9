@@ -1,46 +1,58 @@
-# 大美边疆看我家丨云南丽江：俯瞰雪山与古城同框的绝美画卷
+# 1-3月全国期货市场累计成交额同比增长58.43%
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 16:19 来源：中国新闻网 近日，云南丽江，晨曦穿过云贵高原的薄雾，丽江古城与玉龙雪山相互映衬，形成一幅绝美的画卷。万古楼的飞檐翘角间，玉龙雪山洁白巍峨，万年冰川与青瓦白墙隔空相望，古老与现代交相辉映，尽显这座城市的包容、澄澈的底色。(作者：赵凤铭） 责任编辑：【魏聪聪】
+中新网4月10日电 据中国期货业协会网站消息，中国期货业协会最新统计资料表明，以单边计算，3月全国期货交易市场成交量为1,185,894,741手，成交额为1,008,526.98亿元，同比分别增长61.48%和63.74%。1-3月全国期货市场累计成交量为2,601,287,743手，累计成交额为2,567,052.04亿元，同比分别增长40.64%和58.43%。上海期货交
 
 ## 正文
 
-发布时间：2026年05月19日 16:19 来源：中国新闻网 近日，云南丽江，晨曦穿过云贵高原的薄雾，丽江古城与玉龙雪山相互映衬，形成一幅绝美的画卷。
+中新网4月10日电 据中国期货业协会网站消息，中国期货业协会最新统计资料表明，以单边计算，3月全国期货交易市场成交量为1,185,894,741手，成交额为1,008,526.98亿元，同比分别增长61.48%和63.74%。
 
-万古楼的飞檐翘角间，玉龙雪山洁白巍峨，万年冰川与青瓦白墙隔空相望，古老与现代交相辉映，尽显这座城市的包容、澄澈的底色。
+1-3月全国期货市场累计成交量为2,601,287,743手，累计成交额为2,567,052.04亿元，同比分别增长40.64%和58.43%。
 
-(作者：赵凤铭） 责任编辑：【魏聪聪】
+上海期货交易所3月成交量为283,423,333手，成交额为380,216.52亿元，分别占全国市场的23.9%和37.7%，同比分别增长46.66%和96.26%。
+
+3月末上海期货交易所持仓总量为10,151,036手，较上月末下降7.36%。
+
+1-3月上海期货交易所累计成交量为743,946,326手，累计成交额为1,155,272.31亿元，同比分别增长50.75%和139.67%，分别占全国市场的28.6%和45%。
+
+上海国际能源交易中心3月成交量为21,760,052手，成交额为57,626.80亿元，分别占全国市场的1.83%和5.71%，同比分别增长44.92%和107.41%。
+
+3月末上海国际能源交易中心持仓总量为454,136手，较上月下降10.42%。
+
+1-3月上海国际能源交易中心累计成交量为42,597,421手，累计成交额为92,754.44亿元，同比分别增长9.18%和20.48%，分别占全国市场的1.64%和3.61%。
 
 ## 相关推荐
 
-- 2026-06-30 07:22 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 07:18 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 06:56 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
-- 2026-06-30 07:13 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 06:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 07:23 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-30 06:58 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-30 07:04 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
-- 2026-06-30 07:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 06:56 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 07:14 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 07:16 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 07:09 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-30 07:11 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-30 07:26 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 07:03 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-30 07:15 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
+- 2026-06-30 07:21 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-30 07:23 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 07:17 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 07:19 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-30 07:26 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/516304019.shtml)
-- 2026-06-30 07:19 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/65802928188.shtml)
-- 2026-06-30 07:03 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/270404172.shtml)
-- 2026-06-30 07:08 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/899452082.shtml)
-- 2026-06-30 07:05 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/7534493109.shtml)
-- 2026-06-30 06:59 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/7420202415.shtml)
-- 2026-06-30 07:20 - [千与千寻](https://www.share.minike.top/Article/details/50543537.shtml)
-- 2026-06-30 07:12 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.minike.top/Article/details/289747361.shtml)
-- 2026-06-30 07:15 - [日本世界杯淘汰赛历史0胜](http://www.share.minike.top/Article/details/54475.shtml)
-- 2026-06-30 06:56 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.minike.top/Article/details/83757321.shtml)
-- 2026-06-30 07:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/04876.shtml)
-- 2026-06-30 07:16 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/49008407919.shtml)
-- 2026-06-30 07:08 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/716503.shtml)
-- 2026-06-30 07:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/31277519082.shtml)
-- 2026-06-30 07:22 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/3728105722.shtml)
+- 2026-06-30 07:22 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/184564635.shtml)
+- 2026-06-30 07:27 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/929883.shtml)
+- 2026-06-30 07:13 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/6080424444.shtml)
+- 2026-06-30 07:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/752063780.shtml)
+- 2026-06-30 07:01 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/016756136603.shtml)
+- 2026-06-30 07:26 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/222898.shtml)
+- 2026-06-30 07:00 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/5723879997.shtml)
+- 2026-06-30 07:03 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/98827449.shtml)
+- 2026-06-30 07:26 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/30355781847.shtml)
+- 2026-06-30 07:16 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/65062.shtml)
+- 2026-06-30 07:04 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/9658262630.shtml)
+- 2026-06-30 07:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/9213393690.shtml)
+- 2026-06-30 07:23 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/813033804645.shtml)
+- 2026-06-30 07:05 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/11951360.shtml)
+- 2026-06-30 07:17 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/271143149.shtml)

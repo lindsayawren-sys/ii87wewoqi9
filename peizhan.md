@@ -1,60 +1,59 @@
-# 三个关键词绘出长三角一体化民生新画卷
+# 岚图汽车卢放：上市后我每天都会看股价，会思考是不是哪做的不好
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-长三角一体化发展，不仅是国家战略蓝图上的宏大叙事，更关乎长三角人的烟火日常，而最动人的笔触，落在“民生”二字上。是跨域出行如“串门”的便捷、是家门口就有好医生的暖心、是“进一扇门、办四地事”的从容……从“硬联通”到“软衔接”，在这片35.8万平方公里的土地上，多少曾经隔省相望的“盆景”，已悄然成为触手可及的“风景”。“拉近”长三角：跨省出行无缝抵达 从浙江嘉善的西塘镇到上海虹桥
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与新浪科技等媒体对话。 对于“岚图汽车上市后股价持续走低”，卢放表示，这可能跟大盘往下走有一定关系，但是在走了一小段时间后，我们就稳住了，现在又一直在往上走，“有文章讲岚图汽车是4月港交所涨幅最高的，我认为背后是大家对于我们经营业绩的认可。”
 
 ## 正文
 
-长三角一体化发展，不仅是国家战略蓝图上的宏大叙事，更关乎长三角人的烟火日常，而最动人的笔触，落在“民生”二字上。
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日中午消息，在智能电动汽车发展高层论坛（2026）期间，岚图汽车董事长卢放与新浪科技等媒体对话。
 
-是跨域出行如“串门”的便捷、是家门口就有好医生的暖心、是“进一扇门、办四地事”的从容……从“硬联通”到“软衔接”，在这片35.8万平方公里的土地上，多少曾经隔省相望的“盆景”，已悄然成为触手可及的“风景”。
+对于“岚图汽车上市后股价持续走低”，卢放表示，这可能跟大盘往下走有一定关系，但是在走了一小段时间后，我们就稳住了，现在又一直在往上走，“有文章讲岚图汽车是4月港交所涨幅最高的，我认为背后是大家对于我们经营业绩的认可。
 
-“拉近”长三角：跨省出行无缝抵达 从浙江嘉善的西塘镇到上海虹桥，直线距离不过七八十公里。
+” 他表示：“坦率讲我不太会炒股票，所以之前我不太关心股价。
 
-但如果不是开车，这段路程就变得曲折起来——先坐公交到嘉善南站，再换乘高铁到上海虹桥，出站后还得通过地铁才能抵达目的地。
+但是现在（上市后），我关心我们的市值，每天也要看一看股票价格的变化。
 
-一趟下来，乘客需辗转三种交通工具，换乘两次以上，耗时两个多小时。
+通过价格变化，我也在思考是不是哪做的不好，所以会造成（这样的）波动。
 
-而这正是许多跨省通勤族的日常。
+” “我在内部强调，无论如何还是要把对股价的关心转移到对销量和利润的提升上来。
 
-这样的窘境即将被一条铁路彻底打破。
+我觉得这可能是所有的投资人更为关心的问题。
 
-前不久，长三角首条跨两省一市的快速通勤铁路——沪苏嘉城际铁路正式进入跨省域主体施工阶段，预计两年后实现通车。
+另外要回归到自身的经营结构上来，股价那是别人看我的，但是销量和利润是通过自身的努力，我们能够去实现的。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 07:18 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 07:00 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
-- 2026-06-30 07:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 06:58 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 07:02 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 07:07 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
-- 2026-06-30 06:55 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 06:57 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 07:19 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 07:18 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 07:19 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-30 07:16 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
-- 2026-06-30 07:15 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 07:04 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-30 07:22 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 07:16 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 07:09 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
+- 2026-06-30 07:21 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 07:24 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 07:19 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 07:25 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 07:17 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 07:25 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 07:23 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 07:23 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 07:03 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/0775285019.shtml)
-- 2026-06-30 06:57 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/9726906301.shtml)
-- 2026-06-30 07:00 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/658844171904.shtml)
-- 2026-06-30 07:01 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/778562.shtml)
-- 2026-06-30 07:01 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/733546.shtml)
-- 2026-06-30 07:02 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/150150.shtml)
-- 2026-06-30 07:13 - [世界杯](https://www.share.minike.top/Article/details/6304178566.shtml)
-- 2026-06-30 07:02 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/83531264628.shtml)
-- 2026-06-30 07:15 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.minike.top/Article/details/23147812269.shtml)
-- 2026-06-30 07:04 - [“草莓月亮”浪漫现身](https://www.blog.minike.top/Article/details/846891323.shtml)
-- 2026-06-30 07:19 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/230693132127.shtml)
-- 2026-06-30 07:05 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/075862.shtml)
-- 2026-06-30 07:18 - [请回答王牌2019](http://www.blog.minike.top/Article/details/294281507.shtml)
-- 2026-06-30 06:58 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/4019307.shtml)
-- 2026-06-30 07:20 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/4351538694.shtml)
+- 2026-06-30 07:26 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/20820557073.shtml)
+- 2026-06-30 07:02 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/07866470.shtml)
+- 2026-06-30 07:27 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/5876749322.shtml)
+- 2026-06-30 07:07 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/729049624502.shtml)
+- 2026-06-30 07:04 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/867230352594.shtml)
+- 2026-06-30 07:11 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/494583756.shtml)
+- 2026-06-30 07:01 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.kurohicncr.top/Article/details/17296409.shtml)
+- 2026-06-30 07:04 - [院士：太空轨道必须抢](https://www.share.minike.top/Article/details/3249449.shtml)
+- 2026-06-30 07:22 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/44182104006.shtml)
+- 2026-06-30 07:06 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/49587620417.shtml)
+- 2026-06-30 07:05 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/714438776125.shtml)
+- 2026-06-30 07:24 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/91023073855.shtml)
+- 2026-06-30 07:01 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/42459044840.shtml)
+- 2026-06-30 07:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/79111637.shtml)
+- 2026-06-30 07:28 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/217266890548.shtml)

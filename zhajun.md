@@ -1,49 +1,61 @@
-# 给阿嬷的情书总制片人感谢各方支持
+# 极氪9X验证成功！陈清泉：中国混动技术契合用户与国家战略
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 近期，电影《给阿嬷的情书》口碑爆棚，成为2026年现象级黑马。2026年中国网络文明大会网络文明国际交流互鉴分论坛上，《给阿嬷的情书》总制片人罗展宏现场分享了影片创作的故事，并感谢各方，希望大家继续支持影片。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。 谈及中国混动技术的现状与未来，中国工程院院士、香港理工大学杰出讲座教授、香港大学荣誉教授陈清泉表示，当前主流有三大路线：HEV、PHEV、REEV。这三者的核心矛盾在于，始终未能在纯电体验全
 
 ## 正文
 
-中新网5月19日电 近期，电影《给阿嬷的情书》口碑爆棚，成为2026年现象级黑马。
+专题：智能电动汽车发展高层论坛（2026） 4月11日-12日，智能电动汽车发展高层论坛（2026）在北京国家会议中心二期召开，主题为“推进新能源汽车智能化、绿色化、融合化、国际化发展”。
 
-2026年中国网络文明大会网络文明国际交流互鉴分论坛上，《给阿嬷的情书》总制片人罗展宏现场分享了影片创作的故事，并感谢各方，希望大家继续支持影片。
+谈及中国混动技术的现状与未来，中国工程院院士、香港理工大学杰出讲座教授、香港大学荣誉教授陈清泉表示，当前主流有三大路线：HEV、PHEV、REEV。
+
+这三者的核心矛盾在于，始终未能在纯电体验全场景效率与补能便利性之间实现完美的平衡。
+
+“我期待能有一种全新的技术方案，能够完全解决这些用户的痛点。
+
+”他指出，这种混动技术方案的核心特征应该是“三高、三低、一智能”： 一是高纯电续航。
+
+实际纯电续航要大于200km，满足城市通勤每周一次充电。
+
+二是高效率发动机及高功率发电机。
+
+混动专用发动机最高热效率要大于45%，P1电机发电功率也要大于100kW，破解全场景能效痛点。
 
 ## 相关推荐
 
-- 2026-06-30 07:02 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 07:05 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 07:21 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-30 07:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-30 07:23 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 06:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
-- 2026-06-30 07:06 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 06:59 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 07:21 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-30 07:17 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-30 07:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 07:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 07:20 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 07:12 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-30 07:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 07:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-30 07:00 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
+- 2026-06-30 07:22 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-30 07:08 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 07:19 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-30 07:25 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 07:22 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-30 07:16 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 07:24 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 07:21 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 07:28 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 07:21 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
+- 2026-06-30 07:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 07:17 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 07:12 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/6608027611.shtml)
-- 2026-06-30 07:09 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/97838.shtml)
-- 2026-06-30 07:04 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/62670176.shtml)
-- 2026-06-30 07:19 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/766662.shtml)
-- 2026-06-30 07:19 - [刘宇宁是去进货了吗](http://www.share.minike.top/Article/details/01150473935.shtml)
-- 2026-06-30 07:18 - [起风了](https://www.blog.kurohicncr.top/Article/details/73064.shtml)
-- 2026-06-30 06:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/66719757427.shtml)
-- 2026-06-30 07:23 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/80424562386.shtml)
-- 2026-06-30 07:00 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/55468073236.shtml)
-- 2026-06-30 07:04 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/22752.shtml)
-- 2026-06-30 07:01 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/183392475.shtml)
-- 2026-06-30 07:14 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/08155.shtml)
-- 2026-06-30 07:21 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/21308.shtml)
-- 2026-06-30 07:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/3544439883.shtml)
-- 2026-06-30 06:57 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/9491270.shtml)
+- 2026-06-30 07:17 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/785858787.shtml)
+- 2026-06-30 07:21 - [第一炉香](http://www.share.minike.top/Article/details/2347190355.shtml)
+- 2026-06-30 07:01 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/923945029467.shtml)
+- 2026-06-30 07:14 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/36630580.shtml)
+- 2026-06-30 07:11 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/84254582470.shtml)
+- 2026-06-30 07:02 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/67061575107.shtml)
+- 2026-06-30 07:26 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/90412007834.shtml)
+- 2026-06-30 07:12 - [科技牛市下的最大考验是什么](https://www.blog.minike.top/Article/details/011412320983.shtml)
+- 2026-06-30 07:16 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/9058233.shtml)
+- 2026-06-30 07:23 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/230851992571.shtml)
+- 2026-06-30 07:21 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/459376.shtml)
+- 2026-06-30 07:25 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/65239408.shtml)
+- 2026-06-30 07:22 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/6434883.shtml)
+- 2026-06-30 07:14 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/34434.shtml)
+- 2026-06-30 07:02 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/759362.shtml)

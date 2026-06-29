@@ -1,56 +1,61 @@
-# 男子发现千问App可生成淫秽小说
+# 操盘必读：影响股市利好或利空消息_2026年4月10日_财经新闻
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-在千问AI软件输入相关词汇，居然能够生成不堪入目的淫秽小说，这让河北沧州的许先生感到匪夷所思，难道千问App对色情内容不设防，甚至可以予求予取？ 许先生向千问运营方反馈数月，千问客服表示，他们已做了修复和迭代，但有些词汇概率出现，具有不可预测性，不算漏洞。男子意外发现千问AI软件可生成黄色小说 今年40岁的许先生是一名大车司机，平时跑车之余，对AI软件颇感兴趣，“我以前用得比较
+专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 影响股市利好与利空消息 宏观新闻 1、外交部发言人毛宁昨日主持例行记者会。记者提问称，美国总统特朗普表示，任何向伊朗提供军事武器的国家，其向美国出售的“任何及所有商品”将被“立即征收50%关税”，并称该措施“立即生效”“不设任何排除或豁免”。毛宁表示，中方的立场非常明确，关税战没有赢家。 2、商务部4月9日举行例行新闻发布会
 
 ## 正文
 
-在千问AI软件输入相关词汇，居然能够生成不堪入目的淫秽小说，这让河北沧州的许先生感到匪夷所思，难道千问App对色情内容不设防，甚至可以予求予取？
+专题：科技成长主线贯穿二季度 震荡上行中布局细分龙头 影响股市利好与利空消息 宏观新闻 1、外交部发言人毛宁昨日主持例行记者会。
 
-许先生向千问运营方反馈数月，千问客服表示，他们已做了修复和迭代，但有些词汇概率出现，具有不可预测性，不算漏洞。
+记者提问称，美国总统特朗普表示，任何向伊朗提供军事武器的国家，其向美国出售的“任何及所有商品”将被“立即征收50%关税”，并称该措施“立即生效”“不设任何排除或豁免”。
 
-男子意外发现千问AI软件可生成黄色小说 今年40岁的许先生是一名大车司机，平时跑车之余，对AI软件颇感兴趣，“我以前用得比较多的就是千问。
+毛宁表示，中方的立场非常明确，关税战没有赢家。
 
-” 日前，许先生向华商报大风新闻记者介绍，事情发生在2026年1月5日，当时快过年了，许先生听朋友给他介绍了牌九的玩法，很感兴趣，为了进一步掌握规则，就到千问软件上去问询。
+2、商务部4月9日举行例行新闻发布会。
 
-“我发了朋友转给我的一张玩牌九的网络图片，让千问告诉我具体玩法，但它却似乎不认识。
+有记者问，有报道称，美国贸易代表格里尔表示将与北京方面展开工作层对话，是否会对继续延迟稀土出口管制有任何讨论和计划？
 
-”许先生说，千问软件每次给他反馈的内容都是麻将的玩法，起初，许先生耐心纠正了千问的认识错误，千问也多次表达了歉意，但当许先生再次输入那张图片询问，千问的回复却又回到了原点，依然表示图中呈现的是麻将，并对麻将的规则进行一番详尽讲解，如此往复十余次后，许先生开始失去耐心，输入了骂千问的脏话。
+发言人何亚东回应表示，根据中美吉隆坡经贸磋商共识，中方2025年10月9日公布的相关出口管制等措施，暂停实施至2026年11月10日。
 
-“没想到脏话输入后没有被千问过滤，这引起了我的好奇。
+中美双方将通过经贸磋商机制就各自关切持续保持沟通。
 
-”许先生说，他开始逐渐输入一些大尺度词汇，千问始终没有进行劝诫和阻拦，最终，在许先生输入一些露骨话题和指令后，千问先是就两性问题给出科普性描述，之后随着进一步输入，开始生成各种不堪的淫秽小说情节，而且会用不同版本的表述方式呈现。
+3、有消息人士称，伊朗方面已告知谈判斡旋方巴基斯坦，在黎巴嫩实现停火之前，伊方代表团不会参加与美国的和谈。
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 07:11 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 06:58 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 07:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 07:03 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 07:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 07:06 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 07:20 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
-- 2026-06-30 07:03 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 07:03 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 07:27 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
+- 2026-06-30 07:07 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-30 07:00 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 07:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-30 07:27 - [全球芯片巨头史诗级扩产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 07:23 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 07:21 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 07:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 07:04 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-30 07:03 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 07:21 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 07:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 07:07 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 07:18 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 07:02 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.minike.top/Article/details/068811547.shtml)
-- 2026-06-30 07:20 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/2934045.shtml)
-- 2026-06-30 07:12 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/120805989824.shtml)
-- 2026-06-30 06:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.minike.top/Article/details/119160174.shtml)
-- 2026-06-30 06:58 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/4987297.shtml)
-- 2026-06-30 06:58 - [美人鱼](https://www.share.kurohicncr.top/Article/details/670763.shtml)
-- 2026-06-30 07:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/042094274283.shtml)
-- 2026-06-30 06:56 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/02425075.shtml)
-- 2026-06-30 07:00 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/43553925629.shtml)
-- 2026-06-30 07:08 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/05464.shtml)
-- 2026-06-30 07:16 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/34363895160.shtml)
-- 2026-06-30 06:58 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/623883300651.shtml)
-- 2026-06-30 07:22 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/46529.shtml)
-- 2026-06-30 06:59 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/3403892.shtml)
-- 2026-06-30 06:57 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/726045415766.shtml)
+- 2026-06-30 07:29 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/264673.shtml)
+- 2026-06-30 07:26 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/706246651579.shtml)
+- 2026-06-30 07:01 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/609973.shtml)
+- 2026-06-30 07:14 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/58913863.shtml)
+- 2026-06-30 07:02 - [巴西绝杀日本](http://www.share.minike.top/Article/details/686289.shtml)
+- 2026-06-30 07:01 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/143641.shtml)
+- 2026-06-30 07:10 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/1278834420.shtml)
+- 2026-06-30 07:11 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/1042521732.shtml)
+- 2026-06-30 07:12 - [浪姐成团夜爆笑吐槽](https://www.share.kurohicncr.top/Article/details/0858589.shtml)
+- 2026-06-30 07:19 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/65281.shtml)
+- 2026-06-30 07:05 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/06501344152.shtml)
+- 2026-06-30 07:24 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/188692006700.shtml)
+- 2026-06-30 07:18 - [拆解FIFA和世界杯的暗面](http://www.share.minike.top/Article/details/8771360.shtml)
+- 2026-06-30 07:17 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/85265.shtml)
+- 2026-06-30 07:27 - [金刚川](http://www.blog.kurohicncr.top/Article/details/09812284.shtml)

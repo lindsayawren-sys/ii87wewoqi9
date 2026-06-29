@@ -1,45 +1,56 @@
-# 2026年电影票房超146亿元
+# 广东计划5年内为200万名女职工提供“两癌”免费筛查服务
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 09:30 来源：央视新闻 责任编辑：【王祎】
+中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。 据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。 在婚育
 
 ## 正文
 
-发布时间：2026年05月20日 09:30 来源：央视新闻 责任编辑：【王祎】
+中新网广州4月10日电 (记者 张璐)广东省总工会第八届女职工委员会9日正式发布未来五年工作蓝图。
+
+据悉，广东工会将积极参与女职工权益相关法律法规的修订，持续推动《广东省实施〈女职工劳动保护特别规定〉办法》等地方性法规的落地见效与评估监督。
+
+针对新就业形态女性劳动者、女农民工等群体，加强专项集体合同签订与履约监督，推广应用“一函两书”制度，探索参与女职工权益保障公益诉讼。
+
+在婚育支持方面，广东工会积极打造“会聚良缘”婚恋服务品牌，建设全省职工线上交友平台“粤会吧”；示范性开展青年职工集体婚礼活动，构建全省工会线上线下联动的婚恋服务体系，提高工会婚恋服务质效。
+
+在生育保障方面，广东工会计划五年内新建省级“工会爱心妈妈小屋”350家，为200万名包括困难企业女职工、新就业形态女性劳动者和女农民工在内的女职工提供免费“两癌”筛查，推动200万名女职工参保安康互助保障。
+
+在托育服务方面，广东工会探索多种方式推动用人单位开展福利性托育服务，规范发展工会爱心托管班，推动5年内建设工会爱心托管班1万个，省级工会爱心托管班300个。
+
+同时，加强女职工心理健康服务与家庭友好型工作场所建设。
+
+未来五年，广东工会计划建设女职工创新工作室1000个，其中省级工作室150个，并搭建创新成果展示平台，推动群众性创新活动。
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 06:58 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 06:55 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-30 07:07 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 07:12 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
-- 2026-06-30 07:23 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
-- 2026-06-30 07:23 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 07:01 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-30 07:00 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 07:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 06:59 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 06:58 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 07:04 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-30 07:07 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 07:12 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-30 07:15 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-30 07:23 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-30 07:19 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-30 07:04 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 07:04 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-30 07:21 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/loufan.md)
+- 2026-06-30 07:17 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 07:21 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/467037119042.shtml)
-- 2026-06-30 07:16 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/3119728593.shtml)
-- 2026-06-30 07:02 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/9691439884.shtml)
-- 2026-06-30 07:04 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/65443.shtml)
-- 2026-06-30 07:13 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/6683625842.shtml)
-- 2026-06-30 07:16 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/886620665690.shtml)
-- 2026-06-30 07:06 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/7760835.shtml)
-- 2026-06-30 07:07 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/7062138237.shtml)
-- 2026-06-30 07:22 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/594842575113.shtml)
-- 2026-06-30 07:11 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/626421445.shtml)
-- 2026-06-30 07:02 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/773264.shtml)
-- 2026-06-30 07:06 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/85476261009.shtml)
-- 2026-06-30 07:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/4553751672.shtml)
-- 2026-06-30 07:21 - [恋与深空 巧合](http://www.blog.minike.top/Article/details/05100782615.shtml)
-- 2026-06-30 07:01 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/793668.shtml)
+- 2026-06-30 07:20 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/608667.shtml)
+- 2026-06-30 07:02 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/409204.shtml)
+- 2026-06-30 07:06 - [小勒布伦WTT美国大满贯开门红](https://www.blog.minike.top/Article/details/776026200.shtml)
+- 2026-06-30 07:02 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/06029.shtml)
+- 2026-06-30 07:15 - [日本反击率先破门](http://www.blog.minike.top/Article/details/688525006.shtml)
+- 2026-06-30 07:20 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/884330720.shtml)
+- 2026-06-30 07:11 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/8560870.shtml)
+- 2026-06-30 07:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/098189191.shtml)
+- 2026-06-30 07:18 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/626647.shtml)
+- 2026-06-30 07:22 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/8859520.shtml)
+- 2026-06-30 07:21 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/12693152839.shtml)
+- 2026-06-30 07:11 - [中国对日本再出重拳](https://www.share.minike.top/Article/details/419177083181.shtml)
+- 2026-06-30 07:19 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/78928.shtml)
+- 2026-06-30 07:23 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/01178543741.shtml)
+- 2026-06-30 07:25 - [大学生遇地震裹被子从5楼冲下](http://www.share.minike.top/Article/details/555457.shtml)

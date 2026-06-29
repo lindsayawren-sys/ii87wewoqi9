@@ -1,56 +1,56 @@
-# 北京天坛的奠基土来自山西后土祠？探访9位皇帝24次亲临的“中华祖祠”
+# 一起并购造假案给市场各方的警示
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 16:16 来源：中国新闻网 近日，山西运城，记者探访位于万荣县的“北京天坛之源”后土祠。后土祠是中国最古老的祭祀后土的祠庙，有“中华祖祠”“海内祠庙之冠”之美誉。自轩辕黄帝在这里“扫地为坛祭后土”至宋真宗皇帝，先后有9位皇帝24次在这里祭祀。汉武帝更是6次到此，并写下千古名篇《秋风辞》。直到明代，皇家祭祀后土的仪式从万荣移往北京。1996年，
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！■ 吴晓璐 近日，江苏某上市公司发布公告称，公司收到江苏省高级人民法院的二审判决，因在2017年并购重组中，公司披露的《重组报告书（草案）》《重组报告书》存在虚假记载，法院判决公司赔偿两名机构投资者损失以及一审、二审案件受理费合计4838.45万元。 此案再
 
 ## 正文
 
-发布时间：2026年05月19日 16:16 来源：中国新闻网 近日，山西运城，记者探访位于万荣县的“北京天坛之源”后土祠。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-后土祠是中国最古老的祭祀后土的祠庙，有“中华祖祠”“海内祠庙之冠”之美誉。
+■ 吴晓璐 近日，江苏某上市公司发布公告称，公司收到江苏省高级人民法院的二审判决，因在2017年并购重组中，公司披露的《重组报告书（草案）》《重组报告书》存在虚假记载，法院判决公司赔偿两名机构投资者损失以及一审、二审案件受理费合计4838.45万元。
 
-自轩辕黄帝在这里“扫地为坛祭后土”至宋真宗皇帝，先后有9位皇帝24次在这里祭祀。
+此案再次给市场各方敲响警钟。
 
-汉武帝更是6次到此，并写下千古名篇《秋风辞》。
+在并购重组中，上市公司是信息披露的第一责任人，需要确保信息披露真实、准确、完整，不能以“被欺诈”为由完全豁免自身的核查义务。
 
-直到明代，皇家祭祀后土的仪式从万荣移往北京。
+同时，随着资本市场立体化追责体系不断完善，上市公司、并购交易对手方、中介机构等市场各方参与者，均需严守责任底线，明晰角色边界。
 
-1996年，后土祠被列为全国重点文物保护单位。
+首先，对于上市公司而言，“被欺诈”不是免责牌。
 
-高32.6米的秋风楼，也因藏有《秋风辞》碑刻而名扬天下。
+在2021年证监会对前述公司下发行政处罚决定时，该公司曾申辩其主观上不存在过错，且法院一审刑事判决书认定交易对手方构成合同诈骗罪，公司不具备短期内识别、发现财务造假行为的能力等。
 
-(王惠琳 高雨晴） 责任编辑：【罗攀】
+证监会认为，该公司作为上市公司，面对如此重大的交易，应当对影响交易标的评估价格的经营业绩、财务情况等进行重点核查。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 06:57 - [欧洲空调安装费用为何如此高昂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-30 07:14 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 07:08 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 07:01 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 07:06 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 07:11 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 07:07 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 07:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 07:02 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 07:04 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 07:16 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 07:08 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:26 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-30 07:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 07:27 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
+- 2026-06-30 07:24 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 07:20 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-30 07:14 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 07:05 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/95104.shtml)
-- 2026-06-30 07:06 - [日本五次世界杯淘汰赛全败](http://www.blog.kurohicncr.top/Article/details/87700147.shtml)
-- 2026-06-30 06:55 - [内马尔替补](http://www.share.minike.top/Article/details/47997.shtml)
-- 2026-06-30 06:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/155314061575.shtml)
-- 2026-06-30 07:18 - [天道](http://www.share.minike.top/Article/details/445089.shtml)
-- 2026-06-30 07:01 - [森保一致歉：世界第一目标没能实现](http://www.share.minike.top/Article/details/108462792767.shtml)
-- 2026-06-30 07:04 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.kurohicncr.top/Article/details/732988190.shtml)
-- 2026-06-30 07:12 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/16607.shtml)
-- 2026-06-30 07:04 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/66557.shtml)
-- 2026-06-30 07:05 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/93048.shtml)
-- 2026-06-30 06:58 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/5691843529.shtml)
-- 2026-06-30 07:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/818106419625.shtml)
-- 2026-06-30 07:11 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/7183098.shtml)
-- 2026-06-30 07:10 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/4569850.shtml)
-- 2026-06-30 07:06 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/89562.shtml)
+- 2026-06-30 07:05 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/039678.shtml)
+- 2026-06-30 07:04 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/1645120.shtml)
+- 2026-06-30 07:05 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](http://www.share.minike.top/Article/details/79606671261.shtml)
+- 2026-06-30 07:21 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.blog.kurohicncr.top/Article/details/4646356871.shtml)
+- 2026-06-30 07:26 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/15578126208.shtml)
+- 2026-06-30 07:12 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.kurohicncr.top/Article/details/54719108.shtml)
+- 2026-06-30 07:12 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/489617117683.shtml)
+- 2026-06-30 07:29 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/75697789233.shtml)
+- 2026-06-30 07:01 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/657587529.shtml)
+- 2026-06-30 07:03 - [斗破苍穹](https://www.blog.minike.top/Article/details/133364.shtml)
+- 2026-06-30 07:02 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/4440321157.shtml)
+- 2026-06-30 07:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/1354550.shtml)
+- 2026-06-30 07:21 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/088146988862.shtml)
+- 2026-06-30 07:05 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/08313.shtml)
+- 2026-06-30 07:03 - [张碧晨一开口梦回逐玉](http://www.share.kurohicncr.top/Article/details/14733651.shtml)

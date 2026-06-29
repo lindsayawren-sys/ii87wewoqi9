@@ -1,58 +1,52 @@
-# 国家金融监督管理总局发布《关于做好2026年小微企业金融服务工作的通知》
+# 外国小姐姐寻北京的“春”：在朝阳梦回千年
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-为深入贯彻落实中央经济工作会议和全国金融系统工作会议精神，引导金融机构加力支持小微和民营企业经营发展，提升金融服务质量，金融监管总局近日印发了《关于做好2026年小微企业金融服务工作的通知》（以下简称《通知》）。 《通知》指出，2026年要坚持稳中求进工作总基调和“两个毫不动摇”，深刻把握金融工作的政治性和人民性，树立和践行正确政绩观，充分发挥支持小微企业融资协调工作机制作用，
+发布时间：2026年04月09日 18:43 来源：中国新闻网 2026北京朝阳花园节暨醒春启航，此刻正酣！北小河6000株樱花开放、海棠花溪美出圈，摇橹船、花神巡游、水岸市集……N多玩法嗨不停！想知道北京的春天能有多甜？泰国小姐姐爱玲沉浸式打卡花园节，从樱花水道的落樱缤纷，到水岸市集的烟火气逛吃，一站式解锁朝阳春日的颜值与趣味，沉浸式感受北京这座花园城市的东方浪漫！(董语飞
 
 ## 正文
 
-为深入贯彻落实中央经济工作会议和全国金融系统工作会议精神，引导金融机构加力支持小微和民营企业经营发展，提升金融服务质量，金融监管总局近日印发了《关于做好2026年小微企业金融服务工作的通知》（以下简称《通知》）。
+发布时间：2026年04月09日 18:43 来源：中国新闻网 2026北京朝阳花园节暨醒春启航，此刻正酣！
 
-《通知》指出，2026年要坚持稳中求进工作总基调和“两个毫不动摇”，深刻把握金融工作的政治性和人民性，树立和践行正确政绩观，充分发挥支持小微企业融资协调工作机制作用，推动小微企业金融服务“稳投放、优结构、提质量、可持续”，提升民营企业金融服务水平，助力经济持续稳中向好，激发高质量发展的动力活力。
+北小河6000株樱花开放、海棠花溪美出圈，摇橹船、花神巡游、水岸市集……N多玩法嗨不停！
 
-稳投放，即推动银行业金融机构提供与经济发展相适应，与小微企业、民营企业需求相匹配的信贷供给，实现贷款质的有效提升和量的合理增长。
+想知道北京的春天能有多甜？
 
-优结构，即做好首贷、信用贷、中长期贷款支持，增加小微企业法人贷款投放，重点支持科技、消费、外贸等领域。
+泰国小姐姐爱玲沉浸式打卡花园节，从樱花水道的落樱缤纷，到水岸市集的烟火气逛吃，一站式解锁朝阳春日的颜值与趣味，沉浸式感受北京这座花园城市的东方浪漫！
 
-提质量，即指导银行加强风险监测，提升信贷资产质量。
-
-可持续，即引导银行业金融机构错位发展、有序竞争，促进业务可持续发展。
-
-《通知》进一步明确深化支持小微企业融资协调工作机制要求，指导各级派出机构完善常态化线上对接渠道，因地制宜组织线下集中走访，推动完善“联合会诊”机制。
-
-引导金融机构主动融入各地工作机制，聚焦重点领域，加大精准走访对接力度。
+(董语飞 刘超 林倬安 徐文琦 北京报道) 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-30 06:54 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 07:04 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 07:18 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 07:06 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 07:11 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 07:20 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-30 07:05 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 07:21 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-30 07:15 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 06:54 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 07:19 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 07:23 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 07:17 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 07:15 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 07:12 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
+- 2026-06-30 07:14 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-30 07:23 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 07:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 07:17 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-30 07:21 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 07:06 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 07:13 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 07:29 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/8493067.shtml)
-- 2026-06-30 07:03 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/9766313762.shtml)
-- 2026-06-30 07:00 - [徐亮怒斥世界杯踢假球](https://www.share.kurohicncr.top/Article/details/643310518632.shtml)
-- 2026-06-30 07:14 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/7639664.shtml)
-- 2026-06-30 07:01 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/70524880.shtml)
-- 2026-06-30 07:12 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/678250465439.shtml)
-- 2026-06-30 07:13 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/810534535.shtml)
-- 2026-06-30 06:59 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/651506423.shtml)
-- 2026-06-30 07:17 - [王菲谢霆锋十指紧扣好甜](https://www.share.minike.top/Article/details/778871371441.shtml)
-- 2026-06-30 07:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/94500273.shtml)
-- 2026-06-30 07:06 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/24903.shtml)
-- 2026-06-30 07:02 - [巴西2比1日本](https://www.share.minike.top/Article/details/7667491.shtml)
-- 2026-06-30 07:22 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/244729129.shtml)
-- 2026-06-30 07:23 - [苗族银饰](http://www.share.minike.top/Article/details/307444812320.shtml)
-- 2026-06-30 07:01 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/1685541651.shtml)
+- 2026-06-30 07:20 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/523011147.shtml)
+- 2026-06-30 07:28 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/75127114.shtml)
+- 2026-06-30 07:06 - [我们的少年时代2](https://www.blog.kurohicncr.top/Article/details/163304433310.shtml)
+- 2026-06-30 07:26 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/126831.shtml)
+- 2026-06-30 07:09 - [《共患难》](https://www.share.kurohicncr.top/Article/details/3037905.shtml)
+- 2026-06-30 07:25 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/04975265169.shtml)
+- 2026-06-30 07:21 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/6317929.shtml)
+- 2026-06-30 07:21 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/0168634.shtml)
+- 2026-06-30 07:05 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/675703222.shtml)
+- 2026-06-30 07:08 - [德国巴拉圭进入点球大战](http://www.share.minike.top/Article/details/35555946844.shtml)
+- 2026-06-30 07:26 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/7272490.shtml)
+- 2026-06-30 07:10 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/4878081.shtml)
+- 2026-06-30 07:03 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/73487749030.shtml)
+- 2026-06-30 07:01 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/450209.shtml)
+- 2026-06-30 07:08 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/10769718.shtml)

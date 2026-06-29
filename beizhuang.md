@@ -1,57 +1,57 @@
-# 广西柳州市柳南区再次发生5.2级地震
+# 000586：公司没有算力数据中心相关业务！地缘冲突扰动供应链，铝价持续飙升
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新社柳州5月19日电 (林馨)18日，广西柳州市柳南区在同一天内先后发生两次5.2级地震。目前，第二次5.2级地震的灾害情况正在进一步了解中。 据广西地震台网正式测定，北京时间2026年5月18日21时44分，柳州市柳南区(北纬24.37度，东经109.26度)再次发生5.2级地震，震源深度8千米。震中位于柳南区太阳村镇，距离柳南城区约13公里，距柳州市城区约16公里。 正在
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！申万铝指数再度大涨。 5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。 公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。其中：电力光缆是应用于电力市场的配套光缆；塑
 
 ## 正文
 
-中新社柳州5月19日电 (林馨)18日，广西柳州市柳南区在同一天内先后发生两次5.2级地震。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-目前，第二次5.2级地震的灾害情况正在进一步了解中。
+申万铝指数再度大涨。
 
-据广西地震台网正式测定，北京时间2026年5月18日21时44分，柳州市柳南区(北纬24.37度，东经109.26度)再次发生5.2级地震，震源深度8千米。
+5连板牛股盘后发布公告 今日（4月9日）盘后，5连板牛股汇源通信（000586）发布股票交易异常波动公告。
 
-震中位于柳南区太阳村镇，距离柳南城区约13公里，距柳州市城区约16公里。
+公告显示，公司主营电力光缆、电力系统在线监测装置、塑料光纤等，没有石英光纤预制棒及石英光纤制造产能，电力光缆生产所需石英光纤均需外购。
 
-正在柳南区太阳村镇上等村采访的中新社记者亲历了地震，采访期间不得不跑出房间避险。
+其中：电力光缆是应用于电力市场的配套光缆；塑料光纤系列主要用于装饰照明、工业控制、电力设备、消费电子等领域，而与塑料光纤通信配套用的工控光器件产品（速度在100兆以内）主要用于自动化生产线的传感器单元、高压变频器的控制信号传输等方面（非应用数据中心及AI算力等所需高速光模块）。
 
-就在当天凌晨0时21分，同一区域(北纬24.38度，东经109.26度)已发生过一次5.2级地震，震源深度同样为8千米。
+公司注意到，近期市场对光纤产品供需结构改善及算力数据中心相关光纤光缆、光模块产品关注度较高。
 
-当晚，柳州市抗震救灾指挥部曾举行新闻发布会通报，经反复核实，当日凌晨地震已无失联人员。
+公司目前不存在前述领域业务、在手订单及技术储备。
 
-再次发生5.2级地震后，经电话了解，柳州市柳南区太阳村镇、流山镇、潭西街道、洛满镇和柳北区白露街道、胜利街道震感强烈，柳南区洛河村有1栋房屋倒塌，凤山村有滚石落下；柳北区有房屋墙体开裂。
+2025年，公司预计实现归母净利润为亏损300万元至150万元，同比减亏67.89%至83.94%。
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 07:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-30 06:59 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 07:02 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 06:59 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-30 07:15 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 07:18 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 07:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 07:16 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 07:14 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 07:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 07:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 07:26 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-30 07:09 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 07:23 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 07:06 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 07:17 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-30 07:25 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
+- 2026-06-30 07:04 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 07:03 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 07:23 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-30 07:02 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:07 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/59219863642.shtml)
-- 2026-06-30 07:14 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/599410014.shtml)
-- 2026-06-30 06:55 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/029567837346.shtml)
-- 2026-06-30 06:56 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/77252494127.shtml)
-- 2026-06-30 07:13 - [巴西绝杀](http://www.share.minike.top/Article/details/587059.shtml)
-- 2026-06-30 06:54 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/8602523.shtml)
-- 2026-06-30 07:23 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/4291518.shtml)
-- 2026-06-30 06:55 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/50284.shtml)
-- 2026-06-30 07:05 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/43661318316.shtml)
-- 2026-06-30 06:54 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/7473265405.shtml)
-- 2026-06-30 07:14 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/02930071.shtml)
-- 2026-06-30 06:54 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/556760977157.shtml)
-- 2026-06-30 07:15 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/1393307.shtml)
-- 2026-06-30 07:06 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/116982500.shtml)
-- 2026-06-30 07:11 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/84903.shtml)
+- 2026-06-30 07:29 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/08004.shtml)
+- 2026-06-30 07:14 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/9313449008.shtml)
+- 2026-06-30 07:26 - [时光音乐会](https://www.blog.minike.top/Article/details/823761242111.shtml)
+- 2026-06-30 07:27 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/700424525.shtml)
+- 2026-06-30 07:04 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/479288837.shtml)
+- 2026-06-30 07:07 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/29847.shtml)
+- 2026-06-30 07:28 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/257570.shtml)
+- 2026-06-30 07:29 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/31354.shtml)
+- 2026-06-30 07:20 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/284601380926.shtml)
+- 2026-06-30 07:01 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/4833267.shtml)
+- 2026-06-30 07:03 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/605289567321.shtml)
+- 2026-06-30 07:24 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/38176530540.shtml)
+- 2026-06-30 07:00 - [明星大侦探第一季](http://www.share.minike.top/Article/details/218896753.shtml)
+- 2026-06-30 07:26 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/955832682769.shtml)
+- 2026-06-30 07:06 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/42459.shtml)

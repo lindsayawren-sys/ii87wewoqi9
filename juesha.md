@@ -1,58 +1,48 @@
-# 索尼上调PlayStation Plus订阅价格，新用户月费涨至10.99美元
+# OpenAI收购内幕科技脱口秀
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-索尼互动娱乐周二宣布，受持续市场环境影响，将于5月20日起在部分地区上调PlayStation Plus订阅服务价格，主要针对入门级Essential档位的新用户。 新价格明日起生效 根据官方公告，调整后一个月期订阅价格由9.99美元涨至10.99美元，涨幅约10%；三个月期由24.99美元涨至27.99美元，涨幅约12%。欧元区和英镑区同步上调：月费分别涨至9.99欧元和7.
+微软（MSFT）的合作伙伴OpenAI收购了TBPN，旨在帮助在硅谷受众中塑造AI叙事，承诺保持编辑独立性，同时将该平台整合到其传播战略中。责任编辑：张俊 SF065
 
 ## 正文
 
-索尼互动娱乐周二宣布，受持续市场环境影响，将于5月20日起在部分地区上调PlayStation Plus订阅服务价格，主要针对入门级Essential档位的新用户。
+微软（MSFT）的合作伙伴OpenAI收购了TBPN，旨在帮助在硅谷受众中塑造AI叙事，承诺保持编辑独立性，同时将该平台整合到其传播战略中。
 
-新价格明日起生效 根据官方公告，调整后一个月期订阅价格由9.99美元涨至10.99美元，涨幅约10%；三个月期由24.99美元涨至27.99美元，涨幅约12%。
-
-欧元区和英镑区同步上调：月费分别涨至9.99欧元和7.99英镑，季费涨至27.99欧元和21.99英镑。
-
-索尼表示，现有订阅用户只要保持连续续订且不更换服务等级，将继续按原价格计费。
-
-若订阅中断后重新开通或变更服务方案，则适用新价格。
-
-土耳其和印度地区的现有用户也将受到影响。
-
-市场背景与时点考量 此次涨价紧随今年3月PS5主机的价格上调，索尼将原因归咎于持续变化的市场状况。
-
-分析指出，全球AI热潮推高存储芯片需求，导致内存和固态硬盘成本上升，给整个游戏行业带来压力。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 07:23 - [巴西在进攻三区完成210脚传球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 07:12 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 06:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-30 07:11 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 07:08 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
-- 2026-06-30 06:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-30 07:20 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 07:14 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-30 06:55 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 07:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 07:21 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-30 07:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 07:19 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-30 07:26 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-30 07:05 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 07:00 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 07:13 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 07:13 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 07:01 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 07:21 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 07:25 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 07:27 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 07:19 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 07:01 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-30 07:15 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 07:16 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [中国新一轮出口管制直指日本命脉](https://www.share.kurohicncr.top/Article/details/634773244.shtml)
-- 2026-06-30 07:02 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/80870007746.shtml)
-- 2026-06-30 07:11 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/585496.shtml)
-- 2026-06-30 07:11 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/099811.shtml)
-- 2026-06-30 07:00 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/05120085204.shtml)
-- 2026-06-30 07:22 - [青春环游记第三季](http://www.blog.minike.top/Article/details/8900113832.shtml)
-- 2026-06-30 07:06 - [警犬“多多”助民警寻回失联老人](http://www.share.minike.top/Article/details/730357.shtml)
-- 2026-06-30 06:59 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/62640849.shtml)
-- 2026-06-30 07:22 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/93277.shtml)
-- 2026-06-30 06:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/11789.shtml)
-- 2026-06-30 07:01 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/964588681911.shtml)
-- 2026-06-30 07:16 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/91450605.shtml)
-- 2026-06-30 07:21 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/2868865.shtml)
-- 2026-06-30 07:21 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/688572775.shtml)
-- 2026-06-30 07:22 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/07987142.shtml)
+- 2026-06-30 07:05 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/34992732141.shtml)
+- 2026-06-30 07:03 - [明星大侦探第四季](https://www.share.minike.top/Article/details/4635076452.shtml)
+- 2026-06-30 07:01 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/987566101899.shtml)
+- 2026-06-30 07:02 - [王楚钦谈表演球](http://www.share.minike.top/Article/details/09288668.shtml)
+- 2026-06-30 07:07 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/560175.shtml)
+- 2026-06-30 07:09 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/780340201484.shtml)
+- 2026-06-30 07:11 - [如何评价杨紫白玉兰获奖](http://www.blog.kurohicncr.top/Article/details/989774138510.shtml)
+- 2026-06-30 07:17 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/29941306699.shtml)
+- 2026-06-30 07:08 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/499606.shtml)
+- 2026-06-30 07:04 - [巴西半场0比1日本](https://www.share.minike.top/Article/details/2787508.shtml)
+- 2026-06-30 07:29 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/161153672906.shtml)
+- 2026-06-30 07:06 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/2055887.shtml)
+- 2026-06-30 07:04 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/806144503.shtml)
+- 2026-06-30 07:01 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/83781.shtml)
+- 2026-06-30 07:09 - [三星投资计划](https://www.blog.minike.top/Article/details/70656.shtml)

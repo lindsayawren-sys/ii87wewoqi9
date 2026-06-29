@@ -1,57 +1,60 @@
-# 泰国内阁决定取消60天免签政策
+# 嘉兴海宁：新的社会阶层人士聚力东西部协作 同心帮扶共绘黑水“新图景”
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新社曼谷5月19日电 (记者 李映民)据泰国媒体19日报道，泰国旅游与体育部部长素拉沙·攀差伦沃拉恭当天透露，泰国内阁会议已作出决议，取消针对90多个国家实施的“60天免签”政策，同时废止此前对部分享有多次签证待遇国家的相关措施。根据内阁决议，泰国将恢复采用原有的签证标准与规定。接下来，相关部门将依据决议内容执行落实。 此外，新的签证审核标准还需由签证审查委员会进一步研究制定
+近年来，海宁市委统战部紧扣“同心共富”主线，团结引领全市广大新的社会阶层人士以“社会公益暖民心、产业帮扶强根基、文化互融聚情谊”为路径，持续深化与四川黑水县的跨区域结对帮扶，实现海宁与黑水在东西部协作、共同富裕路上的“双向奔赴”。从“单点帮扶”到“全域覆盖” 织密民生保障网 “我要好好学习，将来去海宁看看！”在黑水县芦花镇二古鲁村，7岁的泽郎卓玛接过海宁市新联会送来的书包和助学
 
 ## 正文
 
-中新社曼谷5月19日电 (记者 李映民)据泰国媒体19日报道，泰国旅游与体育部部长素拉沙·攀差伦沃拉恭当天透露，泰国内阁会议已作出决议，取消针对90多个国家实施的“60天免签”政策，同时废止此前对部分享有多次签证待遇国家的相关措施。
+近年来，海宁市委统战部紧扣“同心共富”主线，团结引领全市广大新的社会阶层人士以“社会公益暖民心、产业帮扶强根基、文化互融聚情谊”为路径，持续深化与四川黑水县的跨区域结对帮扶，实现海宁与黑水在东西部协作、共同富裕路上的“双向奔赴”。
 
-根据内阁决议，泰国将恢复采用原有的签证标准与规定。
+从“单点帮扶”到“全域覆盖” 织密民生保障网 “我要好好学习，将来去海宁看看！
 
-接下来，相关部门将依据决议内容执行落实。
+”在黑水县芦花镇二古鲁村，7岁的泽郎卓玛接过海宁市新联会送来的书包和助学金。
 
-此外，新的签证审核标准还需由签证审查委员会进一步研究制定，之后将提交政府审议。
+海宁爱心人士的资助，让这个品学兼优却家境困难的孩子坚定了求学信念。
 
-对于新的签证政策，签证政策委员会将对各国逐一评估，综合考虑国家安全、经济发展等多方面因素，判断各国适用的签证类型。
+这一幕，正是海宁市新的社会阶层人士以公益为纽带，架起“山海连心桥”的温暖写照。
 
-据悉，所有被取消“60天免签”待遇的国家，将回归原有签证制度。
+自2020年起，在海宁市委统战部的牵线搭桥下，海宁市新联会联合爱心联盟等社会组织，共同发起“海宁·黑水红军后代成长关爱”项目。
 
-此前，泰国副总理兼外交部长西哈萨曾公开解释政策调整初衷。
+通过前期精准摸排，项目为18户家庭的25名红军后代建立帮扶档案，提供从小学到大学的全程助学金支持，累计投入帮扶资金近10万元。
 
-他表示，泰国现有签证体系品类完善，原有的60天旅游免签停留时限偏长，易出现入境人员目的不实、违规滞留等问题，滋生跨国犯罪等安全隐患，因此官方计划缩短免签停留时长、收紧入境监管规范。
+在各方努力下，已有4名黑水红军后代来到浙江接受教育。
 
 ## 相关推荐
 
-- 2026-06-30 07:06 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-30 07:13 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-30 07:20 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-30 06:57 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 06:58 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 06:54 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-30 07:04 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
-- 2026-06-30 06:58 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-30 06:56 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-30 07:22 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 07:09 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 07:29 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnivt.md)
+- 2026-06-30 07:26 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 07:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-30 07:08 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 07:02 - [恋与深空制作组回应近期争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 07:08 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 07:06 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
+- 2026-06-30 07:10 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
+- 2026-06-30 07:12 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-30 07:20 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 07:26 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 07:24 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 07:05 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:28 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [足球小将的剧本成真了](https://www.share.kurohicncr.top/Article/details/33056797.shtml)
-- 2026-06-30 07:08 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/198814.shtml)
-- 2026-06-30 07:05 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/9427517.shtml)
-- 2026-06-30 07:04 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/897490.shtml)
-- 2026-06-30 07:17 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/589834.shtml)
-- 2026-06-30 06:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/29974.shtml)
-- 2026-06-30 07:09 - [苗族银饰](http://www.blog.minike.top/Article/details/5134239441.shtml)
-- 2026-06-30 07:23 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/8688197.shtml)
-- 2026-06-30 06:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/246787926495.shtml)
-- 2026-06-30 07:10 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/1831373.shtml)
-- 2026-06-30 07:05 - [85花告别古偶](https://www.share.minike.top/Article/details/9968524.shtml)
-- 2026-06-30 07:23 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/9655269.shtml)
-- 2026-06-30 06:56 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/899025534471.shtml)
-- 2026-06-30 07:03 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/50477.shtml)
-- 2026-06-30 07:20 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/599922836.shtml)
+- 2026-06-30 07:12 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/140147.shtml)
+- 2026-06-30 07:17 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/715929119344.shtml)
+- 2026-06-30 07:13 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/426180735.shtml)
+- 2026-06-30 07:16 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/8287862915.shtml)
+- 2026-06-30 07:26 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/78753228243.shtml)
+- 2026-06-30 07:07 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/85885.shtml)
+- 2026-06-30 07:07 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/739661812.shtml)
+- 2026-06-30 07:03 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/28721915349.shtml)
+- 2026-06-30 07:06 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/174273015.shtml)
+- 2026-06-30 07:28 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/001685.shtml)
+- 2026-06-30 07:11 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/836545920133.shtml)
+- 2026-06-30 07:19 - [日本16强魔咒](http://www.share.minike.top/Article/details/2529939722.shtml)
+- 2026-06-30 07:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/758488607.shtml)
+- 2026-06-30 07:26 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/20506747123.shtml)
+- 2026-06-30 07:03 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/3021305420.shtml)

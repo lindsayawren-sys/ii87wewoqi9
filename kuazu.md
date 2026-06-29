@@ -1,56 +1,57 @@
-# 40.98万元起，标配第二代刀片电池及闪充技术，腾势N9闪充版上市
+# 美国军方获准在美墨边境使用反无人机激光系统
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-5月18日，科技驾控旗舰SUV——腾势N9闪充版上市，推出闪充尊荣型、闪充尊越型、闪充旗舰型三款车型，官方指导价40.98万元—46.98万元。华语乐坛巨星王力宏，成为腾势汽车第50万辆车主，也是腾势N9闪充版首位车主。新车全系标配第二代刀片电池及闪充技术、易三方、云辇-A闭式双腔空悬、天神之眼5.0辅助驾驶系统、全新一代AI智能座舱等科技豪华配置，并带来五大旗舰升级。腾势N9
+4月10日，美国联邦航空管理局与五角大楼宣布，根据双方达成的协议，美国军方可在南部美墨边境地区使用一套高能激光反无人机系统。 据介绍，美国联邦航空管理局已在新墨西哥州对五角大楼与美国国土安全部所使用的这套激光系统开展测试，并确认相关安全管控措施已落实到位，不会对民航客机造成风险。 今年2月25日，美军曾使用该激光系统误击一架政府无人机，致使联邦航空管理局扩大了得克萨斯州汉考克堡
 
 ## 正文
 
-5月18日，科技驾控旗舰SUV——腾势N9闪充版上市，推出闪充尊荣型、闪充尊越型、闪充旗舰型三款车型，官方指导价40.98万元—46.98万元。
+4月10日，美国联邦航空管理局与五角大楼宣布，根据双方达成的协议，美国军方可在南部美墨边境地区使用一套高能激光反无人机系统。
 
-华语乐坛巨星王力宏，成为腾势汽车第50万辆车主，也是腾势N9闪充版首位车主。
+据介绍，美国联邦航空管理局已在新墨西哥州对五角大楼与美国国土安全部所使用的这套激光系统开展测试，并确认相关安全管控措施已落实到位，不会对民航客机造成风险。
 
-新车全系标配第二代刀片电池及闪充技术、易三方、云辇-A闭式双腔空悬、天神之眼5.0辅助驾驶系统、全新一代AI智能座舱等科技豪华配置，并带来五大旗舰升级。
+今年2月25日，美军曾使用该激光系统误击一架政府无人机，致使联邦航空管理局扩大了得克萨斯州汉考克堡周边的禁飞区域。
 
-腾势N9闪充版，以科技旗舰，纵享从容，加速新能源全球化布局。
+该事件曾引发美国国内对这套激光系统的严重担忧。
 
-即日下订腾势N9闪充版，可享至高价值11万元限时购车权益！
+4月10日晚间，美国联邦航空管理局向飞行员发布通知，提醒其在美墨边境五海里范围内飞行时，需开启广播式自动相关监视系统，以发送飞机位置信息，避免受到美国反无人机系统的打击。
 
-包含至高7万元选装权益、至高贴息约2万元金融方案、至高2万元置换补贴、1年免费闪充权益等，诚意满满！
+五角大楼称，美墨边境每月发生超1000起无人机入侵事件。
 
-发布会上，王力宏分享了自己关于音乐的初心与坚守，盛赞腾势汽车的原创设计和创新技术。
+据美国多家媒体上月报道，华盛顿特区麦克奈尔堡军事基地上空曾出现无人机踪迹，美国国务卿鲁比奥与国防部长赫格塞思均居住于此。
 
-他还表示，祝愿今天在场的每一位朋友，都能守住心中的热爱，在人生的道路上，奔赴“最好的地方”。
+但目前暂无迹象表明五角大楼计划在该基地部署这套反无人机激光系统。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-30 07:01 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 07:16 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 06:58 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 06:59 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-30 06:56 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 07:14 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
-- 2026-06-30 07:09 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 06:57 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
-- 2026-06-30 06:57 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 07:22 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-30 07:03 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
+- 2026-06-30 07:14 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tunli.md)
+- 2026-06-30 07:01 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
+- 2026-06-30 07:06 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 07:15 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
+- 2026-06-30 07:16 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 07:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 07:25 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 07:25 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:12 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/70710.shtml)
-- 2026-06-30 07:13 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/405879291.shtml)
-- 2026-06-30 07:09 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/75780.shtml)
-- 2026-06-30 07:22 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/0650031.shtml)
-- 2026-06-30 07:14 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/39358434.shtml)
-- 2026-06-30 07:23 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/0881328158.shtml)
-- 2026-06-30 07:00 - [韩国球迷凌晨4点接机怒骂主教练](http://www.blog.kurohicncr.top/Article/details/89872.shtml)
-- 2026-06-30 07:04 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/6622400.shtml)
-- 2026-06-30 07:03 - [张碧晨一开口梦回逐玉](https://www.blog.minike.top/Article/details/38405889.shtml)
-- 2026-06-30 07:14 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/31563.shtml)
-- 2026-06-30 06:55 - [世界杯连开三场决战](https://www.blog.kurohicncr.top/Article/details/323061.shtml)
-- 2026-06-30 07:03 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/13723.shtml)
-- 2026-06-30 07:18 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/561360.shtml)
-- 2026-06-30 07:15 - [巴拉圭进球](https://www.share.kurohicncr.top/Article/details/3030333.shtml)
-- 2026-06-30 07:06 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/4265309723.shtml)
+- 2026-06-30 07:13 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/83556582517.shtml)
+- 2026-06-30 07:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/77865368.shtml)
+- 2026-06-30 07:22 - [速度与激情9](https://www.share.minike.top/Article/details/839729024289.shtml)
+- 2026-06-30 07:28 - [全球最火存储ETF纳入兆易创新](https://www.blog.kurohicncr.top/Article/details/27834.shtml)
+- 2026-06-30 07:18 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/4458781940.shtml)
+- 2026-06-30 07:07 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/388864.shtml)
+- 2026-06-30 07:25 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/23470311071.shtml)
+- 2026-06-30 07:17 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/20968.shtml)
+- 2026-06-30 07:27 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/83940.shtml)
+- 2026-06-30 07:07 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/778382719.shtml)
+- 2026-06-30 07:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/03963.shtml)
+- 2026-06-30 07:09 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/430764007880.shtml)
+- 2026-06-30 07:03 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/941320079583.shtml)
+- 2026-06-30 07:01 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/968594432.shtml)
+- 2026-06-30 07:12 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/410207.shtml)

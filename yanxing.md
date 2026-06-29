@@ -1,59 +1,61 @@
-# 格罗方德携手Playground Global，深化AI数据与物理AI早期布局
+# 中国农业银行将在4月11日-12日实施生产系统维护
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-深化深科技创投布局 半导体制造商格罗方德近日宣布，将通过旗下GF Accelerate计划，以有限合伙人身份投资Playground Global的第四期基金。此项投资标志着格罗方德进一步深化与早期深科技初创企业的合作，旨在支持AI数据中心和新兴“物理AI”技术领域的下一波创新。格罗方德首席执行官Tim Breen表示，此举反映了公司将长期资本与技术及制造专业能力相结合的战略定
+2026年4月9日，中国农业银行发布公告称，为了提供更便捷、高效的服务，中国农业银行拟于近期实施生产系统维护，预计影响情况如下：一、4月11日23:00至23:15、4月12日0:15至0:30，中国农业银行商业汇票、网捷贷、助业快e贷、场景贷、房抵e贷、惠农e贷、微捷贷、纳税e贷、抵押e贷、质押e贷、农银智融等线上贷款业务将出现2次暂停服务现象,每次影响时长10分钟以内。二、
 
 ## 正文
 
-深化深科技创投布局 半导体制造商格罗方德近日宣布，将通过旗下GF Accelerate计划，以有限合伙人身份投资Playground Global的第四期基金。
+2026年4月9日，中国农业银行发布公告称，为了提供更便捷、高效的服务，中国农业银行拟于近期实施生产系统维护，预计影响情况如下：一、4月11日23:00至23:15、4月12日0:15至0:30，中国农业银行商业汇票、网捷贷、助业快e贷、场景贷、房抵e贷、惠农e贷、微捷贷、纳税e贷、抵押e贷、质押e贷、农银智融等线上贷款业务将出现2次暂停服务现象,每次影响时长10分钟以内。
 
-此项投资标志着格罗方德进一步深化与早期深科技初创企业的合作，旨在支持AI数据中心和新兴“物理AI”技术领域的下一波创新。
+二、4月11日23:00至23:10，4月12日 0:10至0:20，中国农业银行微银行信用卡微信服务模块所有交易（含信用卡微信小程序、信用卡微信公众号和信用卡分期、信用卡申办、信用卡激活、etc钱包服务等）；微银行金融服务中心模块所有交易，包括与微银行关联的交易（含业务大厅、账户明细查询、在线开卡、掌银分享链接回调掌银、借记卡信用卡动账通知、掌银微信登录、掌银安全中心绑定功能、总分行授权获取信息、总分行部分营销活动）将出现2次暂停服务现象，每次影响时长10分钟以内；4月11日23:00至4月12日0:20，微银行消息触达服务中心模块所有交易（借记卡动账微信通知）将出现延迟现象。
 
-格罗方德首席执行官Tim Breen表示，此举反映了公司将长期资本与技术及制造专业能力相结合的战略定位。
+三、4月11日23:00至4月12日0:20，中国农业银行个人掌银小豆数展示、礼券数展示、小豆过期数展示、抽奖、体验赢好礼、我的礼券、热门活动、省钱月卡、星级专区、预约抽奖、小豆乐园答题抽奖、客带客裂变营销、对公营销、语音助手活动列表查询、立即减活动、AUM积分活动、资产提升活动、支付后直接派奖活动、交易后直接派奖活动、营销隔离链路、智能助手内活动推送、权益总数查询、权益兑换、权益派发、公域引流、普惠贷款利率优惠券、个贷利率优惠券、农户利率优惠券、小豆乐园的余额查询、过期数查询、小豆明细查询、过期明细查询、扣豆与冲正服务、小豆积分商城小豆余额查询与扣豆服务等渠道营销服务，企业掌银、企业网银的企业红包、移动营销PAD的掌银个人活动列表查询、客户经理抢、发权益等业务将暂停服务。
 
-聚焦AI与算力前沿领域 Playground Global是一家专注于早期阶段的风险投资机构，主要投资计算、自动化、能源及生命科学等板块的前沿技术企业。
+四、4月11日23:00至4月12日6:00，中国农业银行收费平台收费明细查询、收费试算交易将出现2次暂停服务现象，每次影响时长约2分钟。
 
-Playground Global普通合伙人Pat Gelsinger指出，深科技领域需要坚定的信念、深厚的专业知识和长期资本的支撑，而格罗方德所具备的制造业领导力正是推动先进技术从原型走向量产的关键。
+五、4月12日1:00至1:20、2:30至2:50，中国农业银行网络商户所有交易（含支付、退款和查询等）以及第三方支付机构网关支付将出现2次暂停服务现象，每次影响时长20分钟以内。
 
-此次合作重点关注的领域包括支撑云端AI计算的“AI数据基础设施”，以及能够与现实世界交互的“物理AI”系统。
+六、4月12日2:00至6:00，中国农业银行ATM存取款、掌银注册、弱客户升级、掌银账户详情、实时牌价查询等功能将出现4次暂停服务现象，每次影响时长5分钟以内。
 
-扩展生态系统合作版图 此次投资是格罗方德近期一系列生态系统合作举措的延续。
+七、4月12日2:25至3:10，中国农业银行对公代收付交易将出现2次暂停服务现象，每次影响时长约1分钟。
 
-此前，格罗方德已先后与Silicon Catalyst、Socratic Partners及Cloudberry展开合作，这些举措均属于GF Accelerate计划的组成部分。
+届时银企智联、二代支付、超级网银、快捷支付、商e付等渠道交易将受影响。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-30 07:00 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 07:07 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 06:56 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 06:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 07:00 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 07:01 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 07:21 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 07:08 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 06:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-30 07:19 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 07:23 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/souzhui.md)
-- 2026-06-30 06:55 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-30 07:19 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 07:25 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 07:13 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 07:14 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 07:15 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 07:29 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 07:20 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-30 07:01 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 07:17 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-30 07:12 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-30 07:02 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 07:00 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 07:27 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-30 07:28 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 07:21 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:16 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/1238311434.shtml)
-- 2026-06-30 07:12 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/87888159674.shtml)
-- 2026-06-30 07:05 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/735828356072.shtml)
-- 2026-06-30 07:04 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/524297.shtml)
-- 2026-06-30 07:18 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/029975230.shtml)
-- 2026-06-30 07:00 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/707519983.shtml)
-- 2026-06-30 07:15 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/58154161.shtml)
-- 2026-06-30 07:13 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/562487485124.shtml)
-- 2026-06-30 07:00 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/651688.shtml)
-- 2026-06-30 06:55 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/496434589.shtml)
-- 2026-06-30 07:08 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/798277.shtml)
-- 2026-06-30 07:03 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/523882636483.shtml)
-- 2026-06-30 06:59 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/2561931456.shtml)
-- 2026-06-30 07:08 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/0120324.shtml)
-- 2026-06-30 07:19 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/1742206378.shtml)
+- 2026-06-30 07:13 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/2126579292.shtml)
+- 2026-06-30 07:07 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/9889034.shtml)
+- 2026-06-30 07:27 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/846299067.shtml)
+- 2026-06-30 07:23 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/2940594726.shtml)
+- 2026-06-30 07:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/525599562.shtml)
+- 2026-06-30 07:17 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/19979.shtml)
+- 2026-06-30 07:28 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.minike.top/Article/details/2563853148.shtml)
+- 2026-06-30 07:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/75490480.shtml)
+- 2026-06-30 07:16 - [哈弗茨头球破门](http://www.blog.minike.top/Article/details/29268936695.shtml)
+- 2026-06-30 07:05 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/900017507.shtml)
+- 2026-06-30 07:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/600181.shtml)
+- 2026-06-30 07:12 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/828137534.shtml)
+- 2026-06-30 07:21 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.minike.top/Article/details/6777414228.shtml)
+- 2026-06-30 07:29 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/06346354.shtml)
+- 2026-06-30 07:03 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/29495282.shtml)

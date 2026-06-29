@@ -1,46 +1,56 @@
-# 前4个月国民经济保持稳中有进发展态势
+# 亚马逊芯片业务年化营收突破200亿美元 强劲的AI需求推动巨额资本支出投资
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 09:09 来源：央视综合 责任编辑：【王祎】
+亚马逊正全力投入自研芯片，首席执行官安迪·贾西表示，该业务年化营收已超过200亿美元，并且仍在快速增长。 在最新的致股东信中，贾西明确表示，公司计划在2026年投入的2000亿美元资本支出并非赌博。他指出，强劲的客户需求和已有的承诺，尤其是在AWS内部，产能一经建成便被迅速抢购一空。AWS的年化营收已达到1420亿美元，增长率为24%，但这仍不足以满足需求，贾西表示需求仍然受到
 
 ## 正文
 
-发布时间：2026年05月19日 09:09 来源：央视综合 责任编辑：【王祎】
+亚马逊正全力投入自研芯片，首席执行官安迪·贾西表示，该业务年化营收已超过200亿美元，并且仍在快速增长。
+
+在最新的致股东信中，贾西明确表示，公司计划在2026年投入的2000亿美元资本支出并非赌博。
+
+他指出，强劲的客户需求和已有的承诺，尤其是在AWS内部，产能一经建成便被迅速抢购一空。
+
+AWS的年化营收已达到1420亿美元，增长率为24%，但这仍不足以满足需求，贾西表示需求仍然受到限制。
+
+这个故事的一个重要部分是亚马逊的定制芯片，包括Graviton、Trainium和Nitro。
+
+仅AI相关收入目前已超过150亿美元，贾西暗示，如果对外销售，芯片业务可能看起来更像是一个500亿美元的业务。
+
+目前，大部分芯片用于AWS内部，但需求显然存在。
+
+较新的Trainium芯片已获得强劲的 uptake，具有更好的性价比，且大部分产能已被预定。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-30 07:02 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 07:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 07:23 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 06:57 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-30 07:19 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 06:56 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 07:02 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 07:04 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 07:00 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 07:16 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
-- 2026-06-30 07:08 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 07:13 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
-- 2026-06-30 07:19 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 07:23 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-30 07:23 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 07:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 07:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 07:01 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
+- 2026-06-30 07:00 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
+- 2026-06-30 07:08 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 07:22 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:23 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 07:06 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/334107650.shtml)
-- 2026-06-30 07:04 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/854342981.shtml)
-- 2026-06-30 07:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/24550264.shtml)
-- 2026-06-30 07:15 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/687355117.shtml)
-- 2026-06-30 07:17 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/1579328110.shtml)
-- 2026-06-30 06:57 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/56022.shtml)
-- 2026-06-30 07:14 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/472418.shtml)
-- 2026-06-30 07:16 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/23354644819.shtml)
-- 2026-06-30 07:21 - [杨紫获白玉兰视后争议不止](http://www.share.kurohicncr.top/Article/details/078070.shtml)
-- 2026-06-30 07:18 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/61987014012.shtml)
-- 2026-06-30 06:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/83745.shtml)
-- 2026-06-30 07:13 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/15595.shtml)
-- 2026-06-30 06:55 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/405188949.shtml)
-- 2026-06-30 07:05 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/581835871.shtml)
-- 2026-06-30 07:23 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/21536768587.shtml)
+- 2026-06-30 07:01 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/83672431.shtml)
+- 2026-06-30 07:26 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/6692149930.shtml)
+- 2026-06-30 07:15 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/221148740.shtml)
+- 2026-06-30 07:23 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/076959944061.shtml)
+- 2026-06-30 07:05 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/950294903254.shtml)
+- 2026-06-30 07:20 - [武磊：日本队有能力跟任何强队抗衡](https://www.share.kurohicncr.top/Article/details/024382.shtml)
+- 2026-06-30 07:19 - [逃狱兄弟](https://www.blog.minike.top/Article/details/20886020878.shtml)
+- 2026-06-30 07:28 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/970532354752.shtml)
+- 2026-06-30 07:02 - [美媒：美军第五舰队司令部已无法使用](https://www.share.minike.top/Article/details/7104820910.shtml)
+- 2026-06-30 07:28 - [勇敢的心第二部](http://www.share.minike.top/Article/details/72816887.shtml)
+- 2026-06-30 07:26 - [任素汐舞台上唱《王招君》](http://www.blog.minike.top/Article/details/071347469638.shtml)
+- 2026-06-30 07:04 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/084106.shtml)
+- 2026-06-30 07:19 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/2813234.shtml)
+- 2026-06-30 07:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/3013055.shtml)
+- 2026-06-30 07:14 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/36083970556.shtml)

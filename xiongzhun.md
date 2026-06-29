@@ -1,55 +1,60 @@
-# 贝森特敦促七国集团协助美国打击伊朗资金渠道
+# 中国飞鹤业绩双降净利润几近腰斩 婴配奶粉销售额下降17%、其他乳制品毛利率仅1%“赔钱赚吆喝”？
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。 贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。 2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经上市公司研究院 作者：cici “更适合中国宝宝体质”的飞鹤，正在经历上市以来最严峻的考验。3月26日，中国飞鹤交出了一份营收、归母净利润双跌的成绩单。报告期内，公司共实现营收181.13亿元，同比下滑12.7%；归母净利润为19.39亿元，同比下降45.68%。公司称营收下滑主要是由于行业竞
 
 ## 正文
 
-核心要点 美国财政部长斯科特・贝森特于周二在七国集团会议上呼吁各国领导人协同美国，斩断支撑伊朗相关恐怖活动的资金链条，合力打击相关势力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-贝森特在巴黎举办的 “杜绝恐怖融资” 会议上发表讲话，出台一套全新准则，推动实施强硬且精准定向的制裁措施。
+出品：新浪财经上市公司研究院 作者：cici “更适合中国宝宝体质”的飞鹤，正在经历上市以来最严峻的考验。
 
-2026 年 5 月 18 日，美国财政部长斯科特・贝森特抵达巴黎，出席七国集团财长与央行行长会议，为同年 6 月在埃维昂举行的七国集团国家元首及政府首脑峰会做筹备。
+3月26日，中国飞鹤交出了一份营收、归母净利润双跌的成绩单。
 
-贝森特表示：“美国正全力打击敌对势力用于实施恐怖活动的金融网络，我方相信各位出席此次会议，意味着愿意全力与美国并肩行动。
+报告期内，公司共实现营收181.13亿元，同比下滑12.7%；归母净利润为19.39亿元，同比下降45.68%。
 
-” 他提出具体行动要求：“这就需要欧洲盟友与美国统一行动，针对伊朗采取一系列举措，认定其资金融通相关人员、清查空壳公司与掩护企业、关停相关银行分支机构、瓦解其代理势力。
+公司称营收下滑主要是由于行业竞争加剧，婴幼儿配方奶粉产品销售收入减少。
 
-” “简言之，倘若各国同样对伊朗破坏地区稳定的行径、企图挟持全球经济的恐怖分子、危害社会的贩毒集团以及威胁平民生命安全的各类行为感到愤慨，那么当下正是携手美国采取强力行动的最佳时机。
+换句话说，这份不算理想的成绩单背后的根本原因，或是由于公司过度依赖婴配粉，而婴幼儿配方奶粉产品销售承压，且公司业务多元化也未见显著效果。
 
-”责任编辑：郭明煜
+分业务来看，公司经营最危险的信号来自核心业务。
+
+作为飞鹤支柱的婴幼儿配方奶粉产品，2025年实现收益158.68亿元，同比大幅下滑16.8%。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
-- 2026-06-30 06:58 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 07:04 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 07:13 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 07:21 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 07:20 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 07:18 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
-- 2026-06-30 07:12 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 07:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
-- 2026-06-30 06:55 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 07:15 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 07:15 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
+- 2026-06-30 07:09 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-30 07:13 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 07:17 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 07:21 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-30 07:29 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 07:11 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 07:07 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 07:11 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 07:07 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 07:01 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 07:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 07:17 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 07:25 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/334027610267.shtml)
-- 2026-06-30 07:22 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/32628145553.shtml)
-- 2026-06-30 07:01 - [安切洛蒂 换人](http://www.blog.minike.top/Article/details/5226665.shtml)
-- 2026-06-30 07:21 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/347303.shtml)
-- 2026-06-30 07:22 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/7956641.shtml)
-- 2026-06-30 07:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/1355276706.shtml)
-- 2026-06-30 07:09 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/7743302000.shtml)
-- 2026-06-30 07:17 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/96356590.shtml)
-- 2026-06-30 07:14 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/009334.shtml)
-- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/912548.shtml)
-- 2026-06-30 06:54 - [起风了](https://www.share.minike.top/Article/details/5364305.shtml)
-- 2026-06-30 06:58 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/9926103.shtml)
-- 2026-06-30 07:10 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/108635.shtml)
-- 2026-06-30 07:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/2133537964.shtml)
-- 2026-06-30 07:01 - [世界杯](http://www.share.minike.top/Article/details/8902227196.shtml)
+- 2026-06-30 07:08 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/921428.shtml)
+- 2026-06-30 07:06 - [周冬雨多次说演不了话剧文城](https://www.share.kurohicncr.top/Article/details/27184.shtml)
+- 2026-06-30 07:28 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/307321713733.shtml)
+- 2026-06-30 07:10 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/83559659983.shtml)
+- 2026-06-30 07:03 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/92158991.shtml)
+- 2026-06-30 07:29 - [一见倾心](http://www.share.kurohicncr.top/Article/details/576138.shtml)
+- 2026-06-30 07:28 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/909111769.shtml)
+- 2026-06-30 07:25 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/23369808646.shtml)
+- 2026-06-30 07:01 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/5062541.shtml)
+- 2026-06-30 07:29 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/58350834.shtml)
+- 2026-06-30 07:26 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/704154887143.shtml)
+- 2026-06-30 07:28 - [金刚川](https://www.share.minike.top/Article/details/058553.shtml)
+- 2026-06-30 07:07 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/517586729.shtml)
+- 2026-06-30 07:10 - [日本反击率先破门](http://www.share.minike.top/Article/details/838287181186.shtml)
+- 2026-06-30 07:21 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/6450780632.shtml)

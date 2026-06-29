@@ -1,51 +1,57 @@
-# 驭势科技：香港公开发售获6777.29倍认购 全球发售净筹约7.954亿港元
+# 五部门联合公布《人工智能拟人化互动服务管理暂行办法》
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-驭势科技（01511）公布配发结果，公司全球发售1446.12万股股份，香港公开发售占20%，国际发售占80%。每股发售价60.3港元，全球发售净筹约7.954亿港元。每手50股，预期H股将于2026年5月20日（星期三）上午9时正（香港时间）开始在联交所买卖。 其中，香港公开发售获6777.29倍认购，国际发售获5.66倍认购。责任编辑：卢昱君
+中新网4月10日电 据“网信中国”微信公众号消息，4月10日，国家网信办、国家发展改革委、工业和信息化部、公安部、市场监管总局联合公布《人工智能拟人化互动服务管理暂行办法》(以下简称《办法》)，自2026年7月15日起施行。国家网信办有关负责人表示，《办法》旨在促进人工智能拟人化互动服务(以下简称拟人化互动服务)健康发展和规范应用，维护国家安全和社会公共利益，保护公民、法人和其
 
 ## 正文
 
-驭势科技（01511）公布配发结果，公司全球发售1446.12万股股份，香港公开发售占20%，国际发售占80%。
+中新网4月10日电 据“网信中国”微信公众号消息，4月10日，国家网信办、国家发展改革委、工业和信息化部、公安部、市场监管总局联合公布《人工智能拟人化互动服务管理暂行办法》(以下简称《办法》)，自2026年7月15日起施行。
 
-每股发售价60.3港元，全球发售净筹约7.954亿港元。
+国家网信办有关负责人表示，《办法》旨在促进人工智能拟人化互动服务(以下简称拟人化互动服务)健康发展和规范应用，维护国家安全和社会公共利益，保护公民、法人和其他组织的合法权益。
 
-每手50股，预期H股将于2026年5月20日（星期三）上午9时正（香港时间）开始在联交所买卖。
+近年来，拟人化互动服务快速发展，在文化传播、适幼照护、适老陪伴等领域的创新应用不断涌现。
 
-其中，香港公开发售获6777.29倍认购，国际发售获5.66倍认购。
+与此同时，危害未成年人身心健康、影响网络信息安全、威胁公民生命健康以及加剧伦理偏差等问题日益显现。
 
-责任编辑：卢昱君
+出台《办法》，既是促进拟人化互动服务健康发展的重要要求，也是防范有关安全风险的现实需要。
+
+《办法》践行以人为本、智能向善的理念，明确国家坚持发展和安全并重、促进创新和依法治理相结合的原则，鼓励拟人化互动服务创新发展，对拟人化互动服务实行包容审慎和分类分级监管；提出拟人化互动服务促进措施，明确支持技术研发创新，鼓励有序拓展文化传播、适老陪伴等相关领域应用；规定提供拟人化互动服务的基本要求，明确不得从事生成危害国家安全、荣誉和利益，煽动颠覆国家政权、推翻社会主义制度等内容的活动，规定拟人化互动服务提供者的安全管理义务；完善网络用户权益保护制度，规定拟人化互动服务提供者的未成年人、老年人权益保护和个人信息保护等义务。
+
+此外，《办法》还规定了安全评估、算法备案、指导推动人工智能沙箱安全服务平台建设等制度。
+
+国家网信办有关负责人表示，拟人化互动服务的发展与治理需要政府、企业、社会、网民等多方参与，共同维护良好网络生态，促进人工智能向上向善。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 07:15 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 07:06 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 06:56 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
-- 2026-06-30 07:15 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-30 07:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 07:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvfck.md)
-- 2026-06-30 07:20 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 07:16 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-30 07:07 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 06:59 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 07:11 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-30 07:06 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 07:14 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
+- 2026-06-30 07:27 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 07:01 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 07:17 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 07:25 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 07:11 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
+- 2026-06-30 07:16 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-30 07:18 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 07:14 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:12 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/357130.shtml)
-- 2026-06-30 07:21 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/155199728.shtml)
-- 2026-06-30 06:59 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/5450340000.shtml)
-- 2026-06-30 07:14 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/046501533951.shtml)
-- 2026-06-30 07:11 - [王源近几年没有路演了](https://www.share.kurohicncr.top/Article/details/37121.shtml)
-- 2026-06-30 07:03 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/438666.shtml)
-- 2026-06-30 07:01 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/402056908.shtml)
-- 2026-06-30 07:21 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/70695490.shtml)
-- 2026-06-30 07:09 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/5425395.shtml)
-- 2026-06-30 07:04 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/4636877.shtml)
-- 2026-06-30 07:18 - [田中碧失误](http://www.share.minike.top/Article/details/41071993.shtml)
-- 2026-06-30 07:21 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/009050024109.shtml)
-- 2026-06-30 07:01 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/56472.shtml)
-- 2026-06-30 07:12 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/226484714437.shtml)
-- 2026-06-30 07:13 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/339851.shtml)
+- 2026-06-30 07:14 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/885612.shtml)
+- 2026-06-30 07:25 - [全球芯片巨头史诗级扩产](https://www.share.kurohicncr.top/Article/details/976076692965.shtml)
+- 2026-06-30 07:19 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/75607.shtml)
+- 2026-06-30 07:10 - [请回答王牌2019](https://www.share.minike.top/Article/details/8135443729.shtml)
+- 2026-06-30 07:25 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/539364539.shtml)
+- 2026-06-30 07:26 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/3487587121.shtml)
+- 2026-06-30 07:07 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/229936970.shtml)
+- 2026-06-30 07:18 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/57021.shtml)
+- 2026-06-30 07:20 - [蔚来车主罚站](https://www.share.minike.top/Article/details/12437141.shtml)
+- 2026-06-30 07:15 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/510262960860.shtml)
+- 2026-06-30 07:26 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/80972996863.shtml)
+- 2026-06-30 07:15 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/330874.shtml)
+- 2026-06-30 07:27 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/1553254.shtml)
+- 2026-06-30 07:00 - [索马里女大使：想和中国一起搞事业](https://www.share.kurohicncr.top/Article/details/53065.shtml)
+- 2026-06-30 07:08 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/92031028606.shtml)

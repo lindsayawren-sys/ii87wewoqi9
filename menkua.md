@@ -1,59 +1,61 @@
-# 人到中年，做好定期的“深度排查”能有效防癌！
+# 3月中国电商物流指数全面回升
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-人到中年就该开始做这件事了，能有效防癌！ 提到癌症，很多人首先想到的是疼痛、便血、消瘦等明显不适。但事实上，不少癌症在早期并没有典型症状，或者症状并不特异，容易被误认为是“小毛病”。也正因为如此，规范筛查的意义就在于：在症状还不明显时，尽早发现异常、尽早评估和干预。 接下来，让我们一起走近——当癌症“加密”，看早筛技术如何破解！ 一、肺癌：高风险人群应重视低剂量螺旋CT 高危人
+中新社北京4月9日电 中国物流与采购联合会9日发布数据显示，3月，中国电商物流指数为110.3点，环比回升1.3点。 分项指数中，总业务量指数、农村业务量指数、物流时效指数、履约率指数、满意率指数和库存周转率指数有所回升，人员指数和实载率指数与上月持平，成本指数继续回落。 电商物流总业务量指数明显回升。3月，电商物流总业务量指数为128.8点，比上月回升4.3点。同期，供给端多
 
 ## 正文
 
-人到中年就该开始做这件事了，能有效防癌！
+中新社北京4月9日电 中国物流与采购联合会9日发布数据显示，3月，中国电商物流指数为110.3点，环比回升1.3点。
 
-提到癌症，很多人首先想到的是疼痛、便血、消瘦等明显不适。
+分项指数中，总业务量指数、农村业务量指数、物流时效指数、履约率指数、满意率指数和库存周转率指数有所回升，人员指数和实载率指数与上月持平，成本指数继续回落。
 
-但事实上，不少癌症在早期并没有典型症状，或者症状并不特异，容易被误认为是“小毛病”。
+电商物流总业务量指数明显回升。
 
-也正因为如此，规范筛查的意义就在于：在症状还不明显时，尽早发现异常、尽早评估和干预。
+3月，电商物流总业务量指数为128.8点，比上月回升4.3点。
 
-接下来，让我们一起走近——当癌症“加密”，看早筛技术如何破解！
+同期，供给端多项指数环比回升或持平。
 
-一、肺癌：高风险人群应重视低剂量螺旋CT 高危人群：年龄超过50岁，且符合以下任意一项者： 1.吸烟包年数超过20包年，包括曾经吸烟超过20包年，但戒烟不足15年。
+春节过后，企业陆续恢复正常运营，从业人员陆续返岗，企业供给能力明显恢复，并快速切换至常态化运营，分拣、运输、投递全链条高效运转。
 
-注：吸烟包年数=每天吸烟的包数(每包20支)×吸烟年数。
+物流时效指数回升0.4点，履约率指数回升0.4点，库存周转率指数回升0.1点，满意率指数回升0.5点。
 
-2.与吸烟人群共同生活或同室工作超过20年。
+人员指数和实载率指数与上月持平。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 07:20 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 07:16 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 07:03 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 07:11 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
-- 2026-06-30 07:22 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 07:12 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 07:03 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 07:17 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-30 07:12 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 07:01 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
-- 2026-06-30 07:07 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
-- 2026-06-30 07:09 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
+- 2026-06-30 07:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 07:29 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 07:19 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 07:29 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 07:10 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 07:29 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:11 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 07:04 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 07:23 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 07:13 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-30 07:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 07:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 07:13 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-30 07:27 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-30 07:08 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/217497.shtml)
-- 2026-06-30 07:15 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/57242.shtml)
-- 2026-06-30 06:57 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/784747308.shtml)
-- 2026-06-30 07:12 - [巴西若输日本将创36年最差纪录](http://www.share.kurohicncr.top/Article/details/8838231546.shtml)
-- 2026-06-30 07:03 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/835406.shtml)
-- 2026-06-30 06:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/322597.shtml)
-- 2026-06-30 07:23 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/8548037593.shtml)
-- 2026-06-30 07:19 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/107732016.shtml)
-- 2026-06-30 07:03 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/79272572.shtml)
-- 2026-06-30 06:57 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/326258048313.shtml)
-- 2026-06-30 06:58 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/0864605.shtml)
-- 2026-06-30 07:03 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/12127315.shtml)
-- 2026-06-30 07:04 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/5703272.shtml)
-- 2026-06-30 07:02 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/07725543.shtml)
-- 2026-06-30 07:04 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/9135462.shtml)
+- 2026-06-30 07:07 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/2606846725.shtml)
+- 2026-06-30 07:26 - [《共患难》](http://www.share.minike.top/Article/details/51645503.shtml)
+- 2026-06-30 07:20 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/2249093.shtml)
+- 2026-06-30 07:05 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.kurohicncr.top/Article/details/4960623.shtml)
+- 2026-06-30 07:06 - [问心2神一集鬼三集](https://www.share.kurohicncr.top/Article/details/8343739.shtml)
+- 2026-06-30 07:17 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/239699354.shtml)
+- 2026-06-30 07:02 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/58643.shtml)
+- 2026-06-30 07:15 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/97712.shtml)
+- 2026-06-30 07:12 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/44401.shtml)
+- 2026-06-30 07:04 - [斗破苍穹](https://www.share.minike.top/Article/details/971478.shtml)
+- 2026-06-30 07:21 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/78426765.shtml)
+- 2026-06-30 07:21 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/71334.shtml)
+- 2026-06-30 07:19 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/99112144.shtml)
+- 2026-06-30 07:14 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/5691386176.shtml)
+- 2026-06-30 07:26 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/773611374.shtml)

@@ -1,47 +1,61 @@
-# 营区门口突发交通事故 武警官兵迅速救援
+# 证监会：推出更多创业板相关ETF和期权 适时推出创业板股指期货
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 14:05 来源：中国新闻网 5月19日晚23时10分，武警广西总队梧州支队营区门前突发交通事故，一名群众受伤倒地。正在执勤的武警官兵发现险情后快速反应、果断处置，迅速开展现场警戒、伤员救护等工作，为伤者赢得宝贵救治时间。(作者：朱辉煌 江怀鹏 曹雨凡 姚天宝） 责任编辑：【魏聪聪】
+中国证监会新闻发言人就《关于深化创业板改革 更好服务新质生产力发展的意见》答记者问。问：这次在进一步深化投资端改革方面有哪些政策举措，主要考虑是什么？ 答：加快推进投资端改革，是健全投资和融资相协调的资本市场功能、支持服务实体经济的重要一环。这次改革主要推出了以下举措。一是优化交易制度。引入做市商制度，促进创业板参与主体和交易策略多元化，减少价格波动，增强市场韧性。将协议大宗交
 
 ## 正文
 
-发布时间：2026年05月20日 14:05 来源：中国新闻网 5月19日晚23时10分，武警广西总队梧州支队营区门前突发交通事故，一名群众受伤倒地。
+中国证监会新闻发言人就《关于深化创业板改革 更好服务新质生产力发展的意见》答记者问。
 
-正在执勤的武警官兵发现险情后快速反应、果断处置，迅速开展现场警戒、伤员救护等工作，为伤者赢得宝贵救治时间。
+问：这次在进一步深化投资端改革方面有哪些政策举措，主要考虑是什么？
 
-(作者：朱辉煌 江怀鹏 曹雨凡 姚天宝） 责任编辑：【魏聪聪】
+答：加快推进投资端改革，是健全投资和融资相协调的资本市场功能、支持服务实体经济的重要一环。
+
+这次改革主要推出了以下举措。
+
+一是优化交易制度。
+
+引入做市商制度，促进创业板参与主体和交易策略多元化，减少价格波动，增强市场韧性。
+
+将协议大宗交易调整为实时成交确认，提高投资者证券和资金使用效率，增强成交确定性和中长期资金参与意愿。
+
+引入创业板相关ETF盘后固定价格交易机制，更好满足投资者多元化的交易需求，有利于降低大额交易对二级市场的冲击。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 07:06 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 07:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 07:00 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-30 07:08 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 07:02 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 07:05 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-30 07:19 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-30 06:57 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-30 06:55 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 07:01 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 07:25 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-30 07:16 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-30 07:05 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
+- 2026-06-30 07:18 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 07:24 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-30 07:04 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssmws.md)
+- 2026-06-30 07:22 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 07:14 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 07:29 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 07:17 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 07:13 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 07:14 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-30 07:07 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 07:24 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
+- 2026-06-30 07:01 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:20 - [急先锋](https://www.blog.minike.top/Article/details/52141.shtml)
-- 2026-06-30 07:12 - [金牌调解](https://www.blog.minike.top/Article/details/0410312378.shtml)
-- 2026-06-30 07:21 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/972664596.shtml)
-- 2026-06-30 07:15 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/2830370952.shtml)
-- 2026-06-30 07:05 - [巴西vs日本](https://www.blog.kurohicncr.top/Article/details/049176.shtml)
-- 2026-06-30 07:23 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/093312786.shtml)
-- 2026-06-30 07:10 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/7485873.shtml)
-- 2026-06-30 07:16 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/270554957839.shtml)
-- 2026-06-30 07:15 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/406768.shtml)
-- 2026-06-30 07:05 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/42210468.shtml)
-- 2026-06-30 06:57 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/41196428433.shtml)
-- 2026-06-30 06:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/9623120.shtml)
-- 2026-06-30 07:10 - [格力遥控器里有黄金](http://www.blog.minike.top/Article/details/871112809.shtml)
-- 2026-06-30 07:06 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/1372783.shtml)
-- 2026-06-30 07:16 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.share.kurohicncr.top/Article/details/51386.shtml)
+- 2026-06-30 07:18 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/2134223.shtml)
+- 2026-06-30 07:24 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/8063168.shtml)
+- 2026-06-30 07:20 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/9144977.shtml)
+- 2026-06-30 07:14 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/373053.shtml)
+- 2026-06-30 07:25 - [解锁一下新吃法 这顿真给我吃美了](http://www.share.minike.top/Article/details/347758404694.shtml)
+- 2026-06-30 07:22 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/585127.shtml)
+- 2026-06-30 07:12 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/56752203822.shtml)
+- 2026-06-30 07:01 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/96031.shtml)
+- 2026-06-30 07:08 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/86788086499.shtml)
+- 2026-06-30 07:25 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/1602148.shtml)
+- 2026-06-30 07:03 - [田中碧失误](https://www.blog.kurohicncr.top/Article/details/76678.shtml)
+- 2026-06-30 07:28 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/062807.shtml)
+- 2026-06-30 07:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.kurohicncr.top/Article/details/55315.shtml)
+- 2026-06-30 07:18 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/41146309.shtml)
+- 2026-06-30 07:10 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/195930129.shtml)

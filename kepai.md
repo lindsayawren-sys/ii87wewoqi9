@@ -1,58 +1,61 @@
-# 今年“龙舟水”总雨量将偏多 广东多举措防御
+# “90后”清华博士以百余件艺术作品对话千年云冈石窟
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网广州5月19日电 (记者 王坚)据广东省应急管理厅19日消息，当前广东即将进入“龙舟水”阶段，预测今年“龙舟水”总雨量略多于历史同期，降水集中期内易发生局地性暴雨洪涝灾害。 广东省应急管理厅介绍，据气象部门预报，未来3天全省降雨频繁。其中，5月19日，韶关、清远、珠三角大部和粤西市县有中到大雨局部暴雨或大暴雨；20日，韶关、清远、河源、珠三角大部和粤西市县有大雨局部暴雨或
+中新网大同4月11日电 (胡健 马静波 李常慧)云冈研究院主办的“新眺——忻省江作品展”日前在山西大同云冈美术馆对公众开放，展览以绘画与陶瓷为核心媒介，展出青年艺术家忻省江近年创作的100余件组作品。 忻省江1997年生于山西大同，先后在清华大学美术学院绘画系获得学士、硕士学位，目前为该院陶瓷艺术设计系博士研究生。 本次展览作品涵盖纸本水墨与陶瓷器皿两大类别。忻省江将笔墨线条的
 
 ## 正文
 
-中新网广州5月19日电 (记者 王坚)据广东省应急管理厅19日消息，当前广东即将进入“龙舟水”阶段，预测今年“龙舟水”总雨量略多于历史同期，降水集中期内易发生局地性暴雨洪涝灾害。
+中新网大同4月11日电 (胡健 马静波 李常慧)云冈研究院主办的“新眺——忻省江作品展”日前在山西大同云冈美术馆对公众开放，展览以绘画与陶瓷为核心媒介，展出青年艺术家忻省江近年创作的100余件组作品。
 
-广东省应急管理厅介绍，据气象部门预报，未来3天全省降雨频繁。
+忻省江1997年生于山西大同，先后在清华大学美术学院绘画系获得学士、硕士学位，目前为该院陶瓷艺术设计系博士研究生。
 
-其中，5月19日，韶关、清远、珠三角大部和粤西市县有中到大雨局部暴雨或大暴雨；20日，韶关、清远、河源、珠三角大部和粤西市县有大雨局部暴雨或大暴雨；21日，全省大部有中雷阵雨局部大雨或暴雨。
+本次展览作品涵盖纸本水墨与陶瓷器皿两大类别。
 
-部分市县有8级左右的雷雨大风等强对流天气。
+忻省江将笔墨线条的灵动与陶瓷器形的空间感相融合，在泥土塑形与窑变工艺中探索东方笔墨精神与当代艺术语言的结合。
 
-广东省防汛防旱防风总指挥部办公室18日印发通知，部署各地各有关部门认真贯彻落实广东省委、省政府工作部署，扎实做好近期强降雨及“龙舟水”防御工作，全力保障人民群众生命财产安全。
+代表作《烈烈云冈》以磅礴构图和苍劲笔墨勾勒出云冈石窟的雄浑气象；陶瓷作品《“塔林”钵》《“北方的风”大罐》《海内云冈·镇》等在经典器形基础上进行艺术化演绎，融合民间质朴审美与文人雅致格调。
 
-该通知要求，要全面拧紧压实防汛责任链条，树牢底线思维、极限思维，坚决克服麻痹大意和侥幸松懈心理，将防御责任细化到监测预警、巡查排险、转移安置、抢险救援的全链条。
+忻省江在展览前言中表示：“云冈石窟是我在纸上画画时钟意的主题，因是家乡的古迹，当我屡以同乡的眼光看望它时，观光意义的千佛、大佛隐到后面，长河上飘荡着的是边境地缘性的紧张、迁都、严冬、大佛眼下的炊烟与烽烟……我想表达的是更具历史意义的云冈。
 
-要持续强化监测预报预警和快速响应，严格落实直达基层责任人的临灾预警“叫应”和反馈工作机制，特别加强夜间防范提醒，发布暴雨红色预警的镇街必须按照本县应急响应的标准落实防御措施。
+”他以“时光容器”的心境体悟云冈，将石窟背后的历史沧桑与地缘文化融入创作。
 
-同时，要从严从细抓好重点领域安全防范，严防山洪和地质灾害，加强江河洪水防御，科学调度运用水利工程，强化内涝处置，紧盯山洪沟口、狭窄行洪沟道、蓄滞洪区、涉水路段、漫水桥梁、下沉桥隧、软基路段、边坡填方路堤等重点部位和学校、养老院、医院、民宿、在建工地等特殊场所或人员密集场所，针对山区公交车、校车、农村客运等重点车辆，落实安全管控措施。
+本次展览学术主持、清华大学美术学院教授白明评价道，忻省江的作品以流畅精致的线条和独具巧思的空间设计，为传统艺术注入了鲜活的当代气息，实现了经典文化美学的当代转译。
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 06:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 07:09 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
-- 2026-06-30 07:02 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 06:58 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 07:05 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 07:00 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 06:58 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
-- 2026-06-30 07:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-30 07:18 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-30 06:58 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
-- 2026-06-30 07:18 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 07:25 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 07:18 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 07:16 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 07:12 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-30 07:10 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-30 07:26 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 07:02 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
+- 2026-06-30 07:10 - [点球大战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 07:00 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 07:19 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-30 07:10 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 07:16 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsxaw.md)
+- 2026-06-30 07:17 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 07:25 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
+- 2026-06-30 07:20 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:10 - [上市央企地产商 两年换了三任董事长](https://www.blog.minike.top/Article/details/442633264238.shtml)
-- 2026-06-30 06:58 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/519889769.shtml)
-- 2026-06-30 07:17 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/5977762.shtml)
-- 2026-06-30 07:14 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/821204100.shtml)
-- 2026-06-30 07:22 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/8529044282.shtml)
-- 2026-06-30 06:58 - [明星大侦探第一季](https://www.share.minike.top/Article/details/055540392078.shtml)
-- 2026-06-30 07:06 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/70904685348.shtml)
-- 2026-06-30 07:21 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/32059568629.shtml)
-- 2026-06-30 07:21 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/26366.shtml)
-- 2026-06-30 07:02 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/99241.shtml)
-- 2026-06-30 06:58 - [沉睡花园](http://www.blog.minike.top/Article/details/7382578.shtml)
-- 2026-06-30 07:10 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/616804.shtml)
-- 2026-06-30 06:57 - [南北多地暴雨和强对流天气持续](https://www.share.kurohicncr.top/Article/details/95988855.shtml)
-- 2026-06-30 07:14 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/596164046274.shtml)
-- 2026-06-30 07:14 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.kurohicncr.top/Article/details/07959.shtml)
+- 2026-06-30 07:04 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/0209883.shtml)
+- 2026-06-30 07:06 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/426820419503.shtml)
+- 2026-06-30 07:08 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/0370797445.shtml)
+- 2026-06-30 07:13 - [千香](https://www.blog.kurohicncr.top/Article/details/213491538.shtml)
+- 2026-06-30 07:12 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/2284388.shtml)
+- 2026-06-30 07:15 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/510985246234.shtml)
+- 2026-06-30 07:13 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/55172722.shtml)
+- 2026-06-30 07:20 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/652065721.shtml)
+- 2026-06-30 07:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/04924470997.shtml)
+- 2026-06-30 07:16 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/60529.shtml)
+- 2026-06-30 07:24 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/4577633.shtml)
+- 2026-06-30 07:08 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/1039505.shtml)
+- 2026-06-30 07:14 - [点菜也要教吗](https://www.share.minike.top/Article/details/9305216908.shtml)
+- 2026-06-30 07:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/967002.shtml)
+- 2026-06-30 07:10 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/71777799.shtml)

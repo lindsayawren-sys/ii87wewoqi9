@@ -1,47 +1,60 @@
-# 中俄元首签署两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明
+# 沪果协作十五年：从物质帮扶升华为情感共生的系统性工程
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-新华社快讯：中俄元首签署两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明 新华社快讯：中俄元首签署两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明。
+中新网上海4月10日电 (记者 陈静)“帮扶理念深刻转变、帮扶路径系统升级、协作机制持续深化，已走过十五个年头的沪果协作，从最初的‘起步摸索’到如今的‘系统深化’，已经发生了根本性变化。”在果洛挂职的上海援青干部徐晓峰10日在此间接受记者采访时表示，最大的升级在于“对口支援”已超越单纯的物质帮扶，升华为理念交融、情感共生的系统性工程。 果洛藏族自治州隶属于青海省，简称“果洛州”
 
 ## 正文
 
-新华社快讯：中俄元首签署两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明 新华社快讯：中俄元首签署两国关于进一步加强全面战略协作、深化睦邻友好合作的联合声明。
+中新网上海4月10日电 (记者 陈静)“帮扶理念深刻转变、帮扶路径系统升级、协作机制持续深化，已走过十五个年头的沪果协作，从最初的‘起步摸索’到如今的‘系统深化’，已经发生了根本性变化。
+
+”在果洛挂职的上海援青干部徐晓峰10日在此间接受记者采访时表示，最大的升级在于“对口支援”已超越单纯的物质帮扶，升华为理念交融、情感共生的系统性工程。
+
+果洛藏族自治州隶属于青海省，简称“果洛州”，位于青海省东南部，地处青藏高原腹地、黄河源头。
+
+据悉，十五年来，上海累计在果洛州实施援建项目1097个，投入资金达37.38亿元，其中超80%用于教育、医疗、住房等民生领域。
+
+“对果洛州的帮扶早期聚焦‘补短板、保基本’，建学校、盖医院，解决最紧迫的民生困难。
+
+现在，沪果协作重心已从‘输血’向‘造血’深度跃迁，更注重增强果洛州发展的内生动力。
+
+”身为上海市援青干部联络组产业招商组组长的徐晓峰指出。
+
+刚刚参加了2026国际乡村发展创新博览会(下称：2026乡村振兴展)的徐晓峰介绍，果洛州的牦牛、藏羊、藏雪茶、冬虫夏草等特色产品亮相2026乡村振兴展，受到不少关注，生态有机、品质优良、种类丰富的展品吸引不少参观者驻足。
 
 ## 相关推荐
 
-- 2026-06-30 07:20 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 06:54 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 06:56 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 06:57 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 07:23 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 07:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-30 07:14 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 07:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 07:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-30 07:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 07:00 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-30 07:18 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
-- 2026-06-30 07:21 - [感动全网的699分女生想报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-30 07:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 07:19 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:10 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owivv.md)
+- 2026-06-30 07:11 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 07:26 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 07:08 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 07:09 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-30 07:27 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 07:01 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
+- 2026-06-30 07:11 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 07:28 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 07:07 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-30 07:06 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-30 07:04 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 07:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
+- 2026-06-30 07:02 - [如何改变自己太负责任的性格?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/56500.shtml)
-- 2026-06-30 07:12 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/60817294753.shtml)
-- 2026-06-30 06:55 - [急先锋](http://www.share.minike.top/Article/details/3450390.shtml)
-- 2026-06-30 07:09 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/62625.shtml)
-- 2026-06-30 06:54 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/0635214.shtml)
-- 2026-06-30 07:05 - [刘念回应](http://www.share.minike.top/Article/details/4667284.shtml)
-- 2026-06-30 07:03 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/616420242.shtml)
-- 2026-06-30 06:56 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/65408787824.shtml)
-- 2026-06-30 07:16 - [审核了不止十年的低创鬼畜](https://www.share.kurohicncr.top/Article/details/269220.shtml)
-- 2026-06-30 07:05 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/051599789.shtml)
-- 2026-06-30 07:22 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/1719625877.shtml)
-- 2026-06-30 07:24 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/474010.shtml)
-- 2026-06-30 07:19 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/84025.shtml)
-- 2026-06-30 07:21 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/872915288.shtml)
-- 2026-06-30 07:16 - [卡塞米罗头球破门](https://www.blog.kurohicncr.top/Article/details/292908.shtml)
+- 2026-06-30 07:13 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/588553.shtml)
+- 2026-06-30 07:08 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/0556994.shtml)
+- 2026-06-30 07:09 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/22639.shtml)
+- 2026-06-30 07:08 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/1898998.shtml)
+- 2026-06-30 07:07 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/962895286265.shtml)
+- 2026-06-30 07:14 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/68997.shtml)
+- 2026-06-30 07:05 - [田中碧失误](http://www.share.minike.top/Article/details/40706417.shtml)
+- 2026-06-30 07:17 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/40012371.shtml)
+- 2026-06-30 07:07 - [谢依霖说杨幂是聚会第一把张罗手](https://www.blog.kurohicncr.top/Article/details/9939470127.shtml)
+- 2026-06-30 07:16 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/038515287.shtml)
+- 2026-06-30 07:18 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/582917.shtml)
+- 2026-06-30 07:14 - [刘宇宁高情商化解谁站C位](http://www.blog.kurohicncr.top/Article/details/93838724.shtml)
+- 2026-06-30 07:23 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/764165753850.shtml)
+- 2026-06-30 07:12 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/5183786.shtml)
+- 2026-06-30 07:15 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/726419.shtml)

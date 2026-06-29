@@ -1,58 +1,55 @@
-# 破壁垒、畅循环，让统一大市场活力奔涌
+# 国家移民管理局：一季度台胞入境大陆人次同比上升27.6%
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-好评中国·“经”彩开局｜破壁垒、畅循环，让统一大市场活力奔涌 市场监管总局近日正式印发专项行动方案，自今年5月至12月，在全系统组织开展破除妨碍统一市场和公平竞争卡点堵点专项行动，以更大力度和更实举措规范竞争秩序，力争到2026年底，废止、整合一批地方标准，基本消除地方标准造成的潜在市场分割和地方保护。 高质量发展是全面建设社会主义现代化国家的首要任务。高质量发展的一个核心特征
+发布时间：2026年04月10日 13:54 来源：中国新闻网 4月10日，国家移民管理局召开发布会，国家移民管理局综合司副司长、新闻发言人吕宁介绍，一季度，台胞办证人次同比上升11.8%，台胞入境大陆人次同比上升27.6%。同时，免收台湾“首来族”办理台胞证证件费和扩大可签发一次有效台胞证口岸范围两项新政取得明显效果，台湾“首来族”办证人次环比上升4.5%，台胞在口岸办理一次
 
 ## 正文
 
-好评中国·“经”彩开局｜破壁垒、畅循环，让统一大市场活力奔涌 市场监管总局近日正式印发专项行动方案，自今年5月至12月，在全系统组织开展破除妨碍统一市场和公平竞争卡点堵点专项行动，以更大力度和更实举措规范竞争秩序，力争到2026年底，废止、整合一批地方标准，基本消除地方标准造成的潜在市场分割和地方保护。
+发布时间：2026年04月10日 13:54 来源：中国新闻网 4月10日，国家移民管理局召开发布会，国家移民管理局综合司副司长、新闻发言人吕宁介绍，一季度，台胞办证人次同比上升11.8%，台胞入境大陆人次同比上升27.6%。
 
-高质量发展是全面建设社会主义现代化国家的首要任务。
+同时，免收台湾“首来族”办理台胞证证件费和扩大可签发一次有效台胞证口岸范围两项新政取得明显效果，台湾“首来族”办证人次环比上升4.5%，台胞在口岸办理一次有效台胞证人次环比上升24.7%。
 
-高质量发展的一个核心特征就是资源的高效配置。
+一季度，大陆居民办理赴台签注人次环比上升8.2%，其中办理探亲签注的人次占比达21.8%，环比上升24.2%。
 
-在割裂的市场中，劳动力、资本、技术、数据等生产要素难以向效率更高的地区和行业顺畅流动。
+同期，大陆居民赴台人次环比上升10.7%。
 
-比如，一个地方为了保护本地落后企业，设置隐性壁垒不让外地优质产品进入，结果就是本地消费者花更高的价格买更低质量的产品，本地资源被低效企业占用，而外地高效企业无法顺利扩大市场。
+吕宁表示，下一步，中国出入境管理局将持续出台更多便利两岸人员往来的服务举措，在推进两岸融合发展方面持续发力，积极促进两岸交流合作，服务两岸同胞双向奔赴。
 
-这样的“内耗”和低水平重复建设，显然是经济高质量发展的绊脚石。
-
-大国经济的优势就是内部可循环，超大规模市场是我国经济发展的内在动力、韧性和潜力所在。
-
-规模越大的市场，越需要规范统一。
+(记者 刘世炯） 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 07:23 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
-- 2026-06-30 07:14 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-30 07:05 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 07:11 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
-- 2026-06-30 07:13 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 07:18 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 07:13 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 07:10 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 07:20 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 07:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
-- 2026-06-30 07:09 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 07:24 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-30 07:05 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-30 07:27 - [韩国球迷凌晨4点接机怒骂主教练](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
+- 2026-06-30 07:27 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-30 07:11 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 07:04 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-30 07:25 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-30 07:25 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-30 07:20 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 07:22 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 07:24 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-30 07:08 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-30 07:27 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/908062534004.shtml)
-- 2026-06-30 07:10 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/177916393.shtml)
-- 2026-06-30 07:12 - [杨紫获白玉兰视后争议不止](http://www.blog.kurohicncr.top/Article/details/553622460381.shtml)
-- 2026-06-30 07:19 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/41388.shtml)
-- 2026-06-30 07:18 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/8990748621.shtml)
-- 2026-06-30 06:59 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/418001067.shtml)
-- 2026-06-30 07:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/99835077.shtml)
-- 2026-06-30 06:54 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/095108496754.shtml)
-- 2026-06-30 07:02 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/6149923.shtml)
-- 2026-06-30 07:16 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/20969835468.shtml)
-- 2026-06-30 07:00 - [媒体评泰山建135公里刀片刺绳隔离网](https://www.share.kurohicncr.top/Article/details/1610469.shtml)
-- 2026-06-30 07:02 - [曝灰熊将莫兰特交易至开拓者](http://www.blog.minike.top/Article/details/62331104.shtml)
-- 2026-06-30 07:10 - [请回答王牌2019](http://www.share.minike.top/Article/details/375449450045.shtml)
-- 2026-06-30 07:15 - [毒液2](http://www.blog.kurohicncr.top/Article/details/241308.shtml)
-- 2026-06-30 07:23 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/948740688.shtml)
+- 2026-06-30 07:11 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/0007448.shtml)
+- 2026-06-30 07:14 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/38433.shtml)
+- 2026-06-30 07:23 - [好像看到了人类带孩子崩溃的样子](https://www.share.kurohicncr.top/Article/details/3147124281.shtml)
+- 2026-06-30 07:24 - [送你一朵小红花](http://www.share.minike.top/Article/details/994450307003.shtml)
+- 2026-06-30 07:18 - [点球大战](https://www.blog.kurohicncr.top/Article/details/90370763.shtml)
+- 2026-06-30 07:11 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/3631914690.shtml)
+- 2026-06-30 07:01 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/95656214070.shtml)
+- 2026-06-30 07:04 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/600904.shtml)
+- 2026-06-30 07:27 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/0478823836.shtml)
+- 2026-06-30 07:14 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/712794632748.shtml)
+- 2026-06-30 07:12 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/6373250.shtml)
+- 2026-06-30 07:19 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/19666.shtml)
+- 2026-06-30 07:26 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/22648728.shtml)
+- 2026-06-30 07:04 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/150634289854.shtml)
+- 2026-06-30 07:16 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/8363027.shtml)

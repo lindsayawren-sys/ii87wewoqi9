@@ -1,58 +1,56 @@
-# 特朗普施政满意度降至35%，共和党人支持率下滑
+# 跟“潮汐”抢时间 浙江舟山提升效率释放港口产能
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-路透/益普索最新民调显示，美国总统特朗普的支持率已跌至逼近重返白宫以来的最低点，主要受共和党人支持率下滑影响。 这项为期四天的民调于周一结束，结果显示35%的美国民众认可特朗普的工作表现，较本月稍早的路透/益普索民调下降1个百分点，仅略高于上月创下的34%的任内最低点。特朗普2025年1月开始本届任期时，支持率为47%。 今年2月特朗普与以色列联手对伊朗发动攻袭以来，美国民众深
+中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。 10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。 “大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠
 
 ## 正文
 
-路透/益普索最新民调显示，美国总统特朗普的支持率已跌至逼近重返白宫以来的最低点，主要受共和党人支持率下滑影响。
+中新网舟山4月11日电 (刘子琳 骆泽明)“我们是在跟‘潮汐’抢时间。
 
-这项为期四天的民调于周一结束，结果显示35%的美国民众认可特朗普的工作表现，较本月稍早的路透/益普索民调下降1个百分点，仅略高于上月创下的34%的任内最低点。
+”11日，在浙江舟山鼠浪湖码头，舟山出入境边防检查站执勤二队副队长张培说。
 
-特朗普2025年1月开始本届任期时，支持率为47%。
+10日晚，随着潮水上涨，一艘货轮缓缓靠近码头，靠泊作业后，舟山边检站执勤民警随即登船进行检查。
 
-今年2月特朗普与以色列联手对伊朗发动攻袭以来，美国民众深受汽油价格飙升之苦，特朗普的民意支持率因此遭受重创。
+“大型船舶受潮汐影响明显，往往需要在夜间高水位时段靠泊。
 
-共和党党党内的不满情绪正在蔓延，21%的共和党人表示现在不认可特朗普的表现，而他在2025年1月刚上任时这一比例仅为5%。
+”张培说，为此，执勤点前移至码头一线，实行7×24小时驻点保障，实现“潮来即靠、靠即检查”。
 
-民调显示，约79%的共和党人认为特朗普表现良好，低于本月早些时候的82%以及刚上任的91%。
+今年以来，已保障73批次夜间潮水高峰勤务，确保船舶到港即可投入作业。
 
-共和党人对特朗普处理美国民众生活成本问题的方式尤为不满。
+为了助力这个40万吨级的大码头释放“硬核”产能，边检机关围绕通关效率持续优化流程。
 
-仅有47%的共和党人对特朗普在生活成本问题上的表现表示认可，而46%的人认为他表现不佳。
+“我们通过数字化手段让通关‘跑’起来，这不仅节省时间，也提升了泊位周转效率。
 
 ## 相关推荐
 
-- 2026-06-30 07:15 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-30 07:23 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 07:01 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 07:13 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-30 07:08 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 07:16 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 07:17 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 07:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-30 07:23 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 07:13 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 07:18 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-30 07:10 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 07:01 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 07:22 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-30 07:22 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 07:04 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
+- 2026-06-30 07:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 07:12 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 07:23 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 07:24 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-30 07:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 07:13 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:13 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/96284362.shtml)
-- 2026-06-30 07:16 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/69193298188.shtml)
-- 2026-06-30 06:58 - [起风了](https://www.share.minike.top/Article/details/6841888989.shtml)
-- 2026-06-30 07:07 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/17804.shtml)
-- 2026-06-30 07:10 - [速度与激情9](https://www.share.minike.top/Article/details/92802368.shtml)
-- 2026-06-30 06:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/614955569739.shtml)
-- 2026-06-30 07:01 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/64553.shtml)
-- 2026-06-30 07:09 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/98964056.shtml)
-- 2026-06-30 07:09 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/053707421.shtml)
-- 2026-06-30 07:00 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/63464758.shtml)
-- 2026-06-30 07:22 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/028859.shtml)
-- 2026-06-30 07:07 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/74657.shtml)
-- 2026-06-30 06:54 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/17281830.shtml)
-- 2026-06-30 07:11 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/48779.shtml)
-- 2026-06-30 07:18 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/94142393.shtml)
+- 2026-06-30 07:14 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.kurohicncr.top/Article/details/35953594.shtml)
+- 2026-06-30 07:29 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/9504768.shtml)
+- 2026-06-30 07:19 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/7860313.shtml)
+- 2026-06-30 07:02 - [酒店推行“24小时退房”引热议](http://www.blog.kurohicncr.top/Article/details/0769185542.shtml)
+- 2026-06-30 07:00 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/895063668558.shtml)
+- 2026-06-30 07:18 - [美媒：美军第五舰队司令部已无法使用](http://www.share.minike.top/Article/details/976087.shtml)
+- 2026-06-30 07:14 - [日本进球](https://www.blog.minike.top/Article/details/056199.shtml)
+- 2026-06-30 07:06 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/34806.shtml)
+- 2026-06-30 07:17 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/04425113610.shtml)
+- 2026-06-30 07:00 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/362033747341.shtml)
+- 2026-06-30 07:08 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/93853073214.shtml)
+- 2026-06-30 07:17 - [千万不要随便扣肚脐](http://www.share.minike.top/Article/details/37948551.shtml)
+- 2026-06-30 07:03 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/352797.shtml)
+- 2026-06-30 07:10 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/63495602.shtml)
+- 2026-06-30 07:12 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/57029.shtml)

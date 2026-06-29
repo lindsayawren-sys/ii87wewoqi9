@@ -1,59 +1,56 @@
-# 东盟国家官员：中国—东盟商贸资讯平台发挥积极作用
+# （经济观察）打造“智能经济新形态” 中国物流驶入智慧“快车道”
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务
+中新社北京4月10日电 (记者 刘文文)在宁波舟山港梅山港区，一辆无人集卡载着集装箱平稳前行。它的“视觉”来自车身四周的激光雷达、摄像头及北斗定位，“大脑”则是隐藏在云端的智能调度系统。驶近桥吊，集卡分毫不差停入装卸位，吊具锁头精准扣合锁孔。这种场景，正在中国越来越多的物流节点上演。 今年政府工作报告提出“打造智能经济新形态”“促进新一代智能终端和智能体加快推广”。在物流这一传
 
 ## 正文
 
-中新社南宁5月19日电 (阚枫 陈秋霞)中国—东盟商贸资讯平台座谈会18日在广西南宁举行。
+中新社北京4月10日电 (记者 刘文文)在宁波舟山港梅山港区，一辆无人集卡载着集装箱平稳前行。
 
-座谈会上，东盟国家驻南宁总领事馆官员就促进各自国家同中国经贸合作和人文交流，加强东盟国家同中国贸易畅通和民心相通分享了看法。
+它的“视觉”来自车身四周的激光雷达、摄像头及北斗定位，“大脑”则是隐藏在云端的智能调度系统。
 
-中国—东盟商贸资讯平台是中国新闻网围绕中国—东盟经贸合作打造的一站式商贸资讯服务平台，重点面向东盟商贸部门、行业协会、华侨华人、跨境企业等群体，提供一站式商贸信息服务。
+驶近桥吊，集卡分毫不差停入装卸位，吊具锁头精准扣合锁孔。
 
-平台网页、客户端于2026年1月起陆续上线试运行，已成为广受欢迎的中国—东盟经贸合作信息窗口。
+这种场景，正在中国越来越多的物流节点上演。
 
-柬埔寨驻南宁总领事馆总领事唐肃安表示，当前背景下，信息共享变得至关重要。
+今年政府工作报告提出“打造智能经济新形态”“促进新一代智能终端和智能体加快推广”。
 
-柬中合作成果丰硕，从企业角度来看，信息服务方面的沟通与合作十分重要，中国—东盟商贸资讯平台在推动商贸合作、助力企业转型方面发挥了积极作用。
+在物流这一传统行业，一场由人工智能驱动的系统性重构，正在悄然发生。
 
-柬中合作源于传统友谊，面向未来，愿持续拓展合作领域，赋能产业升级，实现互利共赢。
+2025年全国公路货运量达432.9亿吨，占货运总量逾七成。
 
-缅甸驻南宁总领事馆总领事凯素林认为，在中国—东盟自贸区3.0版升级议定书签署的大背景下，充分发挥中国—东盟商贸资讯平台价值尤为重要。
+在干线运输领域，数字货运正凭借算法优势，重新“编织”高效的公路运输网络。
 
 ## 相关推荐
 
-- 2026-06-30 07:17 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
-- 2026-06-30 07:11 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 07:11 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
-- 2026-06-30 06:59 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
-- 2026-06-30 07:02 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 07:00 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-30 07:04 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-30 07:12 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 07:02 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 07:23 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 07:09 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-30 07:22 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 07:15 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-30 07:11 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 07:06 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 07:22 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 07:03 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-30 07:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 07:04 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-30 07:17 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
+- 2026-06-30 07:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 07:28 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 07:13 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:07 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/222554.shtml)
-- 2026-06-30 07:12 - [沙丘](https://www.blog.minike.top/Article/details/27044.shtml)
-- 2026-06-30 07:12 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/866160048990.shtml)
-- 2026-06-30 06:54 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/86231833222.shtml)
-- 2026-06-30 07:21 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/153676112606.shtml)
-- 2026-06-30 07:14 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/122762393.shtml)
-- 2026-06-30 06:57 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/229700.shtml)
-- 2026-06-30 07:07 - [索马里女大使：想和中国一起搞事业](http://www.share.minike.top/Article/details/86677992670.shtml)
-- 2026-06-30 07:18 - [蔚来回应高压水枪洗车掉漆](https://www.share.kurohicncr.top/Article/details/203217013.shtml)
-- 2026-06-30 07:10 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/25576875.shtml)
-- 2026-06-30 07:12 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/656733311.shtml)
-- 2026-06-30 07:16 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.minike.top/Article/details/330560.shtml)
-- 2026-06-30 07:03 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/3532330539.shtml)
-- 2026-06-30 07:17 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/85586.shtml)
-- 2026-06-30 07:00 - [斗破苍穹](http://www.share.minike.top/Article/details/7699934611.shtml)
+- 2026-06-30 07:10 - [董卿父亲在报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/910087.shtml)
+- 2026-06-30 07:23 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/911268.shtml)
+- 2026-06-30 07:16 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/089132599.shtml)
+- 2026-06-30 07:19 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/190947383743.shtml)
+- 2026-06-30 07:04 - [日本硬刚巴西谁能赢](https://www.share.kurohicncr.top/Article/details/398870.shtml)
+- 2026-06-30 07:10 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/914420321034.shtml)
+- 2026-06-30 07:04 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.minike.top/Article/details/0724772.shtml)
+- 2026-06-30 07:04 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/562008733568.shtml)
+- 2026-06-30 07:06 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/37574145.shtml)
+- 2026-06-30 07:00 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/1548310.shtml)
+- 2026-06-30 07:13 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/7746122724.shtml)
+- 2026-06-30 07:01 - [武磊：日本队有能力跟任何强队抗衡](http://www.blog.minike.top/Article/details/30770.shtml)
+- 2026-06-30 07:19 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/4539543695.shtml)
+- 2026-06-30 07:28 - [明星大侦探第一季](https://www.share.minike.top/Article/details/75509341.shtml)
+- 2026-06-30 07:01 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/0061217044.shtml)

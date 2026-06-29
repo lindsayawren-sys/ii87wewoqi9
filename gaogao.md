@@ -1,61 +1,58 @@
-# Helsing与OHB成立合资公司 联合研发天基战术侦察系统
+# 2026年度微视听文艺盛典在福建漳州举行
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-人工智能防务企业Helsing与德国航天企业OHB公司5月19日宣布正式成立合资企业，将共同研发天基战术监视、侦察与目标定位系统。此举标志着欧洲正加速整合区域防务资源，实质性推进轨道空间军事能力建设。 据介绍，两家企业将共同主导一个扩编后的多国军工企业联盟。伴随OHB公司的加入，该联盟目前汇聚了Helsing、OHB、挪威康斯伯格防务与航空航天公司（Kongsberg）以及德国
+中新网漳州4月11日电 (记者 张金川)4月11日，2026年度微视听文艺盛典暨中国视协网络视听艺术创作委员会(龙文)创作活动在福建省漳州市举行。来自全国微视听领域的领导、专家、创作者及行业精英齐聚一堂，搭建起交流展示、合作共赢的平台，助力漳州、龙文微视听产业高质量发展，为全省文旅经济发展大会预热添彩。 中国电视艺术家协会名誉主席、中国视协网络视听艺术创作委员会名誉会长、中央电
 
 ## 正文
 
-人工智能防务企业Helsing与德国航天企业OHB公司5月19日宣布正式成立合资企业，将共同研发天基战术监视、侦察与目标定位系统。
+中新网漳州4月11日电 (记者 张金川)4月11日，2026年度微视听文艺盛典暨中国视协网络视听艺术创作委员会(龙文)创作活动在福建省漳州市举行。
 
-此举标志着欧洲正加速整合区域防务资源，实质性推进轨道空间军事能力建设。
+来自全国微视听领域的领导、专家、创作者及行业精英齐聚一堂，搭建起交流展示、合作共赢的平台，助力漳州、龙文微视听产业高质量发展，为全省文旅经济发展大会预热添彩。
 
-据介绍，两家企业将共同主导一个扩编后的多国军工企业联盟。
+中国电视艺术家协会名誉主席、中国视协网络视听艺术创作委员会名誉会长、中央电视台原台长赵化勇，中国电视艺术家协会党组成员、副秘书长董涛，漳州市政协主席刘革生，福建省广播电视局副局长陈炎铭，省文联副主席曾章团，漳州市委常委、宣传部部长余向红，市政协副主席曹阳，龙文区委书记林晓强、区长洪维椿等参加。
 
-伴随OHB公司的加入，该联盟目前汇聚了Helsing、OHB、挪威康斯伯格防务与航空航天公司（Kongsberg）以及德国亨索尔特公司（Hensoldt）。
+董涛在致辞中表示，当前新大众文艺蓬勃兴起，微视听艺术是新时代文艺百花园不可或缺的重要力量。
 
-该联盟当前的核心任务是联合研发名为“KIRK”的天基作战系统。
+他希望以此次活动为契机，搭建创作交流平台，推动优质创作资源与地方文化资源深度融合，助推电视和网络视听事业繁荣发展，为建成文化强国作出新的更大贡献。
 
-该系统旨在将传统卫星侦察与人工智能驱动的目标定位技术深度融合，为军事行动提供近乎实时的数据支持，进而大幅缩短从目标探测到实施打击的反应周期。
+“人间烟火是最大的流量，真善美永远是最有力的表达。
 
-在项目的具体研发分工上，各参与方将依托自身专长开展协同运作。
+”林晓强表示，期待微视听产业能如小草般不惧风雨、向阳而生、为民发声，让每一个普通人都能被看见、被听见、被发现，让网络文艺更有温度、更接地气。
 
-Helsing将主力承担人工智能技术的研发，涵盖多传感器数据融合与自动化目标识别；OHB将全面统筹端到端空间系统的开发与运营。
+“给龙文一个机会，还大家一片精彩！
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 07:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-30 07:16 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 06:58 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 07:16 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-30 07:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 07:01 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 07:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
-- 2026-06-30 06:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-30 06:59 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-30 07:05 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 07:20 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 07:12 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-30 06:58 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 07:17 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 07:00 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 07:15 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 07:21 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
+- 2026-06-30 07:02 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 07:12 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 07:00 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 07:21 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
+- 2026-06-30 07:13 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 07:09 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:22 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-30 07:09 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 07:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:10 - [85花告别古偶](https://www.blog.minike.top/Article/details/948725.shtml)
-- 2026-06-30 07:10 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/779389352713.shtml)
-- 2026-06-30 07:11 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/047705997.shtml)
-- 2026-06-30 07:10 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/135395016027.shtml)
-- 2026-06-30 07:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/0752966696.shtml)
-- 2026-06-30 06:58 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/94876.shtml)
-- 2026-06-30 07:22 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/11104524.shtml)
-- 2026-06-30 06:56 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/40690617541.shtml)
-- 2026-06-30 07:09 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/20366.shtml)
-- 2026-06-30 07:03 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/08865.shtml)
-- 2026-06-30 07:05 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/0409418799.shtml)
-- 2026-06-30 06:56 - [美股](https://www.share.kurohicncr.top/Article/details/6042930474.shtml)
-- 2026-06-30 07:16 - [千香](http://www.blog.kurohicncr.top/Article/details/06897.shtml)
-- 2026-06-30 07:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/88138043576.shtml)
-- 2026-06-30 07:15 - [谢依霖说杨幂是聚会第一把张罗手](http://www.blog.kurohicncr.top/Article/details/376533296.shtml)
+- 2026-06-30 07:01 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/164468.shtml)
+- 2026-06-30 07:03 - [多人在马路中间打羽毛球 交警回应](https://www.share.minike.top/Article/details/087600533280.shtml)
+- 2026-06-30 07:00 - [啊啊啊](https://www.blog.minike.top/Article/details/503835969822.shtml)
+- 2026-06-30 07:03 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/4605253.shtml)
+- 2026-06-30 07:08 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/219336830406.shtml)
+- 2026-06-30 07:26 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/806282.shtml)
+- 2026-06-30 07:18 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.blog.minike.top/Article/details/41883678001.shtml)
+- 2026-06-30 07:15 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/792940.shtml)
+- 2026-06-30 07:04 - [杨紫获白玉兰视后为何争议难平](http://www.blog.minike.top/Article/details/72655720.shtml)
+- 2026-06-30 07:24 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/4599500.shtml)
+- 2026-06-30 07:26 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/95704640.shtml)
+- 2026-06-30 07:17 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/309118933018.shtml)
+- 2026-06-30 07:00 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/62904.shtml)
+- 2026-06-30 07:16 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/94210281.shtml)
+- 2026-06-30 07:28 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/25908478.shtml)

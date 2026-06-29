@@ -1,58 +1,60 @@
-# 哔哩哔哩-W早盘涨逾3% 今日将发布第一季度业绩
+# 郑丽文一行参访国家大剧院 院长王宁：国家大剧院始终推进两岸文化交流
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。 哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。报告指，哔哩哔哩广告收入应持续强劲增长，
+发布时间：2026年04月11日 16:56 来源：中国新闻网 中国国民党主席郑丽文一行4月10日参访位于北京人民大会堂西侧的国家大剧院，在其中发现了两岸文艺交流的许多闪耀时刻和熟悉的艺术家。 展览《永不落幕的舞台》记录了国家大剧院建院以来的演出历史、剧目制作、艺术交流与普及教育成果，展品包含经典剧目服饰、道具、舞台模型、手稿设计等实物。郑丽文在众多艺术家的剧照、签名中，发现了
 
 ## 正文
 
-哔哩哔哩-W （09626）早盘涨超3%，截至发稿，股价上涨2.78%，现报154.80港元，成交额2.97亿港元。
+发布时间：2026年04月11日 16:56 来源：中国新闻网 中国国民党主席郑丽文一行4月10日参访位于北京人民大会堂西侧的国家大剧院，在其中发现了两岸文艺交流的许多闪耀时刻和熟悉的艺术家。
 
-哔哩哔哩今日将发布截至2026年3月31日止第一季度业绩。
+展览《永不落幕的舞台》记录了国家大剧院建院以来的演出历史、剧目制作、艺术交流与普及教育成果，展品包含经典剧目服饰、道具、舞台模型、手稿设计等实物。
 
-里昂此前研报指出，哔哩哔哩2026年第一季预计将维持稳健的收入增长，盈利能力进一步改善。
+郑丽文在众多艺术家的剧照、签名中，发现了熟悉的台湾艺术家和剧目：台湾表演工作坊的话剧《暗恋桃花源》、台湾梅派名家魏海敏主演的《金锁记》、知名歌手罗大佑等。
 
-该行预计总收入同比增长7%至75亿元人民币，经调整净利润5.43亿元人民币。
+江苏大剧院原创民族舞剧《红楼梦》曾于2025年6月赴台北演出。
 
-报告指，哔哩哔哩广告收入应持续强劲增长，主要受游戏广告需求稳健以及AI应用推广增加所带动。
+郑丽文看到墙上的剧照，立刻认出来，说：“这出剧在台北演出过，我去看了！
 
-同时认为，哔哩哔哩凭借年轻用户群体，是捕捉AI广告的重要平台之一。
+” “国家大剧院始终致力于搭建两岸文化交流桥梁。
 
-花旗也看好公司强劲的广告增长势头将推动未来利润增长。
+”王宁受访时介绍，2018年以来，大剧院累计接待台湾参观、观演团组15批次910人次；吸引了许多台湾艺术家和艺术团体前来演出，魏海敏、罗大佑，演员金士杰，以及艺术团体云门舞集、优人神鼓等多次登上大剧院舞台，奉献精彩演出。
 
-预期哔哩哔哩今年第一季收入将同比增长7%至75亿元人民币，非公认会计准则经营利润为5.53亿元人民币，均大致符合市场预期。
+(记者 路梅 刘子衿 制作 王雪尔) 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 07:03 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 06:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
-- 2026-06-30 07:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-30 06:54 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 06:56 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-30 07:12 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 07:04 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 06:58 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 06:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 07:22 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-30 07:11 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 07:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 07:15 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-30 07:08 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 07:16 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-30 07:28 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 07:09 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 07:14 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-30 07:22 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 07:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 07:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 07:14 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 07:08 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 07:22 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-30 07:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 07:12 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/762439.shtml)
-- 2026-06-30 07:20 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/60450.shtml)
-- 2026-06-30 07:08 - [三星投资计划](https://www.share.kurohicncr.top/Article/details/414828.shtml)
-- 2026-06-30 07:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/066336559762.shtml)
-- 2026-06-30 07:11 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/99452148.shtml)
-- 2026-06-30 06:58 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/880555790918.shtml)
-- 2026-06-30 07:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/5435463.shtml)
-- 2026-06-30 07:15 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/2909005768.shtml)
-- 2026-06-30 07:20 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/8857421431.shtml)
-- 2026-06-30 07:13 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/1501633440.shtml)
-- 2026-06-30 07:05 - [森保一致歉：世界第一目标没能实现](http://www.share.kurohicncr.top/Article/details/365737256621.shtml)
-- 2026-06-30 07:01 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/91709868079.shtml)
-- 2026-06-30 06:54 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/020769751.shtml)
-- 2026-06-30 07:20 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/16463279251.shtml)
-- 2026-06-30 07:11 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/712482598508.shtml)
+- 2026-06-30 07:16 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/63994905.shtml)
+- 2026-06-30 07:09 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/59651028229.shtml)
+- 2026-06-30 07:01 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/474052.shtml)
+- 2026-06-30 07:26 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/14155281487.shtml)
+- 2026-06-30 07:13 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/87101257781.shtml)
+- 2026-06-30 07:26 - [国务院：鼓励行业龙头企业举办职校](https://www.blog.kurohicncr.top/Article/details/800065961715.shtml)
+- 2026-06-30 07:03 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/49054028.shtml)
+- 2026-06-30 07:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/79096938274.shtml)
+- 2026-06-30 07:01 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/547058810191.shtml)
+- 2026-06-30 07:03 - [起风了](https://www.share.minike.top/Article/details/19022513729.shtml)
+- 2026-06-30 07:17 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/71273.shtml)
+- 2026-06-30 07:25 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/26035951.shtml)
+- 2026-06-30 07:03 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/9323082.shtml)
+- 2026-06-30 07:14 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/138011.shtml)
+- 2026-06-30 07:28 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/10774975.shtml)

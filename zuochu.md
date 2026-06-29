@@ -1,57 +1,60 @@
-# 陈果：卖铲人也可以伤人最深--从JDSU看1999华尔街“要站在光里”启示录
+# 熊猫金控（600599）被预处罚，股民索赔可期
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！这轮美股AI牛的光通信明星股LITE（Lumentum Holdings），正是当年那只让华尔街爱恨交织的JDSU（JDS Uniphase）的转世真身。2015年，老JDSU宣布一分为二，其最核心的光通信零部件业务独立分拆上市，代码正式变更为LITE。 时光倒流回互联网牛巅峰时刻，当年的JDSU是华尔街成
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，熊猫金控股份有限公司（简称：熊猫金控、*ST熊猫（维权），代码：600599）发布《关于收到中国证监会湖南监管局行政处罚事先告知书的公告》。 经查明，熊猫金控涉嫌违法的事实如下：2023年4月4日，*ST熊猫披露了《关于逐步缩减小贷业务规模并加强小贷业务风险控制的公告》，称全资子公司广州市熊猫互联网小额贷款有
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月9日，熊猫金控股份有限公司（简称：熊猫金控、*ST熊猫（维权），代码：600599）发布《关于收到中国证监会湖南监管局行政处罚事先告知书的公告》。
 
-这轮美股AI牛的光通信明星股LITE（Lumentum Holdings），正是当年那只让华尔街爱恨交织的JDSU（JDS Uniphase）的转世真身。
+经查明，熊猫金控涉嫌违法的事实如下：2023年4月4日，*ST熊猫披露了《关于逐步缩减小贷业务规模并加强小贷业务风险控制的公告》，称全资子公司广州市熊猫互联网小额贷款有限公司（以下简称广州小贷）和西藏熊猫小额贷款有限公司（以下简称西藏小贷）拟分别与昆朋资产管理股份有限公司（以下简称昆朋资产）签署《债权转让合同》，将广州小贷和西藏小贷的债权本金余额及交易基准日后相关权益分别以198，075，000 元、215，840，000元的价格转让给昆朋资产。
 
-2015年，老JDSU宣布一分为二，其最核心的光通信零部件业务独立分拆上市，代码正式变更为LITE。
+上述交易金额占*ST熊猫最近一期经审计净资产的 58.97%。
 
-时光倒流回互联网牛巅峰时刻，当年的JDSU是华尔街成长股机构爱得最深、抱团最紧的“超级核心票”。
+经查，*ST熊猫与昆朋资产的债权转让为虚假交易，*ST熊猫为债权转让提供资金，后续通过资金拆借掩盖虚假交易，上述债权由国峻实业控股有限公司代持。
 
-在1999年到2000年初的狂欢中DSU在光通信产业链中处于最顶端“卖铲人”位置。
+中国证监会湖南监管局认为，*ST熊猫的上述行为涉嫌违反《中华人民共和国证券法》（以下简称《证券法》）第七十八条第二款的规定，构成《证券法》第一百九十七条第二款所述违法行为。
 
-它生产的光纤激光器、光调制器和密集波分复用（DWDM）核心芯片，是思科、朗讯、北电这些硬件巨头制造通信设备时，绝对不可替代的底层零部件。
+中国证监会湖南监管局拟决定：对熊猫金控及其相关责任人员责令改正，给予警告，并各处以罚款。
 
-由于其技术壁垒极高，在当时被华尔街视为整个互联网基建中不可卡脖子的咽喉”。
+之前，2025年4月28日，熊猫金控发布《2024年度业绩预告更正公告》。
 
-光芒四射：业绩高速增长驱动股价上涨 今天的投资人对JDSU这名字已经比较陌生，但其在美股历史上有着光芒四射的阶段： 股价与预期：JDSU的季度营收从1998年底的几千万美元，一路飙升到1999年底的单季超3亿美元，同比增速高达200%以上。
+更正公告显示，2025年1月23日，ST熊猫于发布《2024年度业绩预盈公告》，前次业绩预告情况如下：1、经公司财务部门初步测算，预计2024年度实现归属于上市公司股东的净利润为3，000万元至4，500万元，与上年同期相比，将实现盈利。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 07:10 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 07:17 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-30 06:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 07:04 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 07:21 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-30 07:16 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 06:58 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-30 07:15 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 07:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-30 07:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-30 07:18 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgain.md)
+- 2026-06-30 07:17 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 07:18 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-30 07:04 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 07:16 - [覃予萱晋级WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 07:08 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-30 07:01 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-30 07:12 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 07:21 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-30 07:25 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 07:23 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 07:16 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-30 07:23 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 07:06 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.minike.top/Article/details/56153.shtml)
-- 2026-06-30 07:18 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/45496617661.shtml)
-- 2026-06-30 06:55 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/314083651993.shtml)
-- 2026-06-30 07:16 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/54471684492.shtml)
-- 2026-06-30 07:19 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/7404626814.shtml)
-- 2026-06-30 06:59 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/556000.shtml)
-- 2026-06-30 07:13 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/630636.shtml)
-- 2026-06-30 07:18 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/98968722391.shtml)
-- 2026-06-30 07:06 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/29858.shtml)
-- 2026-06-30 06:57 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/544874422155.shtml)
-- 2026-06-30 07:04 - [千香](https://www.share.kurohicncr.top/Article/details/69116692517.shtml)
-- 2026-06-30 07:00 - [曝多支争冠球队有意塞克斯顿](http://www.blog.minike.top/Article/details/831287593624.shtml)
-- 2026-06-30 07:04 - [内马尔替补](http://www.share.minike.top/Article/details/5830246.shtml)
-- 2026-06-30 07:10 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/5564210398.shtml)
-- 2026-06-30 07:11 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/40128827594.shtml)
+- 2026-06-30 07:27 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/204444704.shtml)
+- 2026-06-30 07:09 - [恋与深空制作组回应近期争议](http://www.blog.kurohicncr.top/Article/details/05501852695.shtml)
+- 2026-06-30 07:24 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/8285499596.shtml)
+- 2026-06-30 07:06 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/910012694586.shtml)
+- 2026-06-30 07:14 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/516568.shtml)
+- 2026-06-30 07:28 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/32982.shtml)
+- 2026-06-30 07:28 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/3115263986.shtml)
+- 2026-06-30 07:15 - [沉睡花园](https://www.blog.minike.top/Article/details/0429854.shtml)
+- 2026-06-30 07:19 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/435167528.shtml)
+- 2026-06-30 07:11 - [F1奥地利站赛后复盘](http://www.blog.kurohicncr.top/Article/details/384775695086.shtml)
+- 2026-06-30 07:29 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/445967.shtml)
+- 2026-06-30 07:25 - [媒体评泰山建135公里刀片刺绳隔离网](http://www.blog.kurohicncr.top/Article/details/659732.shtml)
+- 2026-06-30 07:29 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/392586753.shtml)
+- 2026-06-30 07:17 - [沪指深V回升站稳4000点](http://www.share.minike.top/Article/details/1579581384.shtml)
+- 2026-06-30 07:20 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/92490251.shtml)

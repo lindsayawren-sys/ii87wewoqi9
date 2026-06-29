@@ -1,57 +1,59 @@
-# 长江沿岸精品文物相聚武汉 开展跨时空“对话”
+# 顺丰硬核链通“江门制造”向新向远
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网武汉5月19日电 (记者 梁婷)“夏商的江南——辉煌的早期青铜文明”19日在湖北考古博物馆展出，来自长江沿岸青海、四川、湖南、湖北、江西、安徽、浙江、上海等地文博单位馆藏的80件/套文物精品，展开跨越千年“对话”，再现中华文明“多元一体”起源。 2024年12月，73家长江流域各省(区、市)文物考古单位、国家考古遗址公园、科研机构与高校等携手成立“长江考古联盟”，聚力深化
+为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。会
 
 ## 正文
 
-中新网武汉5月19日电 (记者 梁婷)“夏商的江南——辉煌的早期青铜文明”19日在湖北考古博物馆展出，来自长江沿岸青海、四川、湖南、湖北、江西、安徽、浙江、上海等地文博单位馆藏的80件/套文物精品，展开跨越千年“对话”，再现中华文明“多元一体”起源。
+为助力江门市制造业与服务业高质量协同发展，搭建政企联动、产业融合、资源共享的高效对接合作平台，4月8日，江门市制造业与服务业协同发展推进会在江门顺利举行。
 
-2024年12月，73家长江流域各省(区、市)文物考古单位、国家考古遗址公园、科研机构与高校等携手成立“长江考古联盟”，聚力深化长江文明溯源研究，加强流域考古联动协作。
+本次活动由江门市发展和改革局、江门市工业和信息化局、江门市投资促进局联合主办，顺丰速运有限公司承办，江门市邮政管理局、广东省现代物流研究院提供支持。
 
-此次展览为“加强长江文明溯源研究和传播展示”系列展览，将持续至8月31日。
+市政府领导、各相关单位负责人及企业代表出席会议，共商产业发展、共推合作落地。
 
-展览串联长江沿线文化瑰宝，从长江上游的四川三星堆遗址，到长江中游的宁乡炭河里遗址，再到长江下游上海的马桥文化。
+会上，江门市政府副秘书长汪世雷指出，本次推进会是江门市推动制造业与服务业深度融合、加快建设万亿工业强市的重要举措。
 
-展出文物各具特色，如三星堆遗址青铜神树和鸟形金箔片，再现古蜀王权瑰丽传奇；炭河里遗址出土青铜器，反映南方方国实力与信仰。
+当前江门正全力构建“13158”新型工业体系，打造珠江西岸先进制造产业集群和综合物流枢纽城市，亟需现代化、数智化、一体化的供应链体系提供有力支撑。
 
-湖北省文物考古研究院院长方勤介绍，此次展出的跪坐人像，是三星堆发掘最新成果，出土于8号祭祀坑。
+希望以此次活动为契机，持续深化政企协作、企业联动，推动物流、制造、商贸、跨境电商等产业高效协同，为江门产业转型升级、扩大对外开放、实现高质量发展注入强劲动能。
 
-8号祭祀坑还出土了玉戈，器型特征与中原商代墓葬及湖北盘龙城遗址、江西新干大洋洲商代墓葬出土玉戈相近，印证长江流域与黄河流域的文明互动。
+顺丰速运粤西区总经理王宁表示，顺丰长期深耕粤港澳大湾区，高度重视江门产业布局与发展机遇，将充分发挥全球综合物流、数智化供应链、全场景行业解决方案、全球化跨境服务四大核心优势，全面对接江门制造业升级、现代服务业融合、企业跨境出海等核心需求，以全链条、一体化、高安全的供应链服务，为江门打造万亿工业强市、建设综合物流枢纽贡献力量。
 
-湖北省文物局副局长朱祥德表示，长江流域与黄河流域同为中国“百万年的人类史、一万年的文化史、五千多年的文明史”的诞生地；长江文明是中华文明的重要组成部分，更是解码“何以中国”的关键密钥。
+现场，顺丰围绕整体供应链能力、高科技、工业设备、跨境出海等作主题分享，展示多领域定制化服务及全球化物贸一体化实力。
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
-- 2026-06-30 07:03 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-30 07:11 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 06:58 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
-- 2026-06-30 07:21 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 07:15 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-30 07:20 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 07:07 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 07:19 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
-- 2026-06-30 07:05 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 07:19 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 07:17 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
+- 2026-06-30 07:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-30 07:07 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 07:07 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 07:22 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 07:03 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-30 07:00 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 07:10 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 07:21 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 07:23 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 07:06 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
+- 2026-06-30 07:09 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 07:20 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.kurohicncr.top/Article/details/851100781054.shtml)
-- 2026-06-30 07:20 - [巴西2比1日本](http://www.share.minike.top/Article/details/83926810345.shtml)
-- 2026-06-30 06:54 - [感动全网的699分女生想报考清华](http://www.share.kurohicncr.top/Article/details/6643248.shtml)
-- 2026-06-30 07:11 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/72164968186.shtml)
-- 2026-06-30 06:56 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/0599899378.shtml)
-- 2026-06-30 07:11 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/93761935.shtml)
-- 2026-06-30 06:56 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/7829392.shtml)
-- 2026-06-30 07:04 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/832317414974.shtml)
-- 2026-06-30 07:12 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/35504130869.shtml)
-- 2026-06-30 07:14 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/150343.shtml)
-- 2026-06-30 06:54 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/82608.shtml)
-- 2026-06-30 07:18 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/8419346819.shtml)
-- 2026-06-30 07:11 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/699984237669.shtml)
-- 2026-06-30 06:57 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/81905838861.shtml)
-- 2026-06-30 07:12 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/410075993848.shtml)
+- 2026-06-30 07:02 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/471656251597.shtml)
+- 2026-06-30 07:22 - [中国对日本再出重拳](https://www.blog.kurohicncr.top/Article/details/834522.shtml)
+- 2026-06-30 07:18 - [日本领先巴西](http://www.share.minike.top/Article/details/137827948.shtml)
+- 2026-06-30 07:09 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/895667283851.shtml)
+- 2026-06-30 07:18 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/9224738.shtml)
+- 2026-06-30 07:06 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/96047658915.shtml)
+- 2026-06-30 07:02 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/805843664086.shtml)
+- 2026-06-30 07:16 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/32653871.shtml)
+- 2026-06-30 07:24 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/7858613688.shtml)
+- 2026-06-30 07:13 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/802291.shtml)
+- 2026-06-30 07:17 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/9053473870.shtml)
+- 2026-06-30 07:17 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.kurohicncr.top/Article/details/9716971.shtml)
+- 2026-06-30 07:10 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/347842468346.shtml)
+- 2026-06-30 07:02 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/363502300.shtml)
+- 2026-06-30 07:13 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/884576.shtml)

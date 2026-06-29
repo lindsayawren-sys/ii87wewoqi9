@@ -1,57 +1,55 @@
-# 国台办：欢迎台湾演艺人员来大陆举办演唱会
+# 教育部：防范利用人工智能伪造诈骗、学术造假、应试内卷等问题
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网5月20日电 5月20日，国台办举行例行新闻发布会。有记者问：周杰伦等台湾歌手今年在大陆多地举办演唱会，吸引大量歌迷跨城前往，面对随之而来的住宿、餐饮及旅游等消费需求，各地文旅部门纷纷出招，既为演艺活动护航，也顺势宣传当地文旅，实现双向奔赴。请问对此有何评论？国台办发言人朱凤莲表示，今年以来，大陆演出市场持续爆发式增长，台湾演艺人员在大陆多座城市纷纷举办个人演唱会，吸引两
+发布时间：2026年04月10日 16:07 来源：中国新闻网 4月10日，教育部举行新闻发布会介绍《“人工智能+教育”行动计划》有关情况。教育部科学技术与信息化司司长周大旺在会上表示，优化“人工智能+教育”的发展生态，以“软环境”建设营造良好的条件。坚持向改革要动力、向创新要活力，推动体制机制全要素创新。在安全保障方面，持续开展人工智能社会实验，规范智能产品进校园管理，有效防
 
 ## 正文
 
-中新网5月20日电 5月20日，国台办举行例行新闻发布会。
+发布时间：2026年04月10日 16:07 来源：中国新闻网 4月10日，教育部举行新闻发布会介绍《“人工智能+教育”行动计划》有关情况。
 
-有记者问：周杰伦等台湾歌手今年在大陆多地举办演唱会，吸引大量歌迷跨城前往，面对随之而来的住宿、餐饮及旅游等消费需求，各地文旅部门纷纷出招，既为演艺活动护航，也顺势宣传当地文旅，实现双向奔赴。
+教育部科学技术与信息化司司长周大旺在会上表示，优化“人工智能+教育”的发展生态，以“软环境”建设营造良好的条件。
 
-请问对此有何评论？
+坚持向改革要动力、向创新要活力，推动体制机制全要素创新。
 
-国台办发言人朱凤莲表示，今年以来，大陆演出市场持续爆发式增长，台湾演艺人员在大陆多座城市纷纷举办个人演唱会，吸引两岸歌迷跨城观演。
+在安全保障方面，持续开展人工智能社会实验，规范智能产品进校园管理，有效防范伪造诈骗、学术造假、应试内卷、泄露隐私等问题，牢牢守住安全的底线。
 
-各地积极施策，优化交通疏导、规范市场价格、强化文旅服务保障，同时顺势推出文旅主题线路、发放消费劵、宣传城市文旅资源，实现了演艺活动安全有序举办与地方文旅引流增收互利双赢。
-
-两岸同根同源，文脉相同，流行音乐是两岸民间交流最具亲和力、最接地气的载体之一。
-
-我们一贯支持两岸文化、演艺、旅游等领域交流合作，乐见更多有温度、有人气的两岸文化交流活动，带动人流、消费流、文化流双向流动。
-
-我们欢迎台湾演艺人员来大陆举办演唱会或参加各类文化演出活动，也欢迎岛内歌迷朋友用好越来越便利的台胞入出境政策，来大陆各地观看各类文化演出活动，体验精彩文旅生活。
+(董语飞） 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-30 07:13 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 07:12 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 07:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 06:59 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-30 07:06 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-30 07:05 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 07:14 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 07:17 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
-- 2026-06-30 07:05 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
-- 2026-06-30 07:01 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 07:12 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 07:04 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-30 07:17 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 07:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 07:17 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 07:29 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
+- 2026-06-30 07:25 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 07:00 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-30 07:06 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-30 07:20 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-30 07:28 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-30 07:12 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 07:17 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 07:21 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 07:25 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 07:16 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.kurohicncr.top/Article/details/373061055500.shtml)
-- 2026-06-30 06:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/509337740349.shtml)
-- 2026-06-30 07:18 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/91505561071.shtml)
-- 2026-06-30 07:05 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/7349840.shtml)
-- 2026-06-30 07:21 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/66956.shtml)
-- 2026-06-30 07:04 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.kurohicncr.top/Article/details/166859654675.shtml)
-- 2026-06-30 07:00 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/566901.shtml)
-- 2026-06-30 07:14 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/82657775.shtml)
-- 2026-06-30 07:08 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/06872924.shtml)
-- 2026-06-30 07:18 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/407797073705.shtml)
-- 2026-06-30 07:03 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/62171.shtml)
-- 2026-06-30 07:10 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/5949954002.shtml)
-- 2026-06-30 06:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/105265.shtml)
-- 2026-06-30 07:20 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/5314287079.shtml)
-- 2026-06-30 07:00 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/60543891.shtml)
+- 2026-06-30 07:19 - [女心理师](https://www.share.minike.top/Article/details/44162.shtml)
+- 2026-06-30 07:09 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/1543306556.shtml)
+- 2026-06-30 07:28 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/789528.shtml)
+- 2026-06-30 07:17 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/21909.shtml)
+- 2026-06-30 07:10 - [哈弗茨头球破门](http://www.share.minike.top/Article/details/539129801675.shtml)
+- 2026-06-30 07:04 - [点菜也要教吗](http://www.share.minike.top/Article/details/345698023432.shtml)
+- 2026-06-30 07:06 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/158332615048.shtml)
+- 2026-06-30 07:10 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/94716.shtml)
+- 2026-06-30 07:20 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/54051166941.shtml)
+- 2026-06-30 07:02 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/390158.shtml)
+- 2026-06-30 07:13 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/0130981856.shtml)
+- 2026-06-30 07:03 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/22625484.shtml)
+- 2026-06-30 07:19 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/268189960311.shtml)
+- 2026-06-30 07:28 - [范志毅看好日本队淘汰巴西](http://www.blog.minike.top/Article/details/02072266566.shtml)
+- 2026-06-30 07:04 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/067101807958.shtml)

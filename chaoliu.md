@@ -1,60 +1,57 @@
-# 不是“拉肚子”那么简单：专家解读炎症性肠病防治
+# 中美“乒乓外交”亲历者北京故地同台挥拍
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。近年来，炎症性肠病(IBD)在国内发病率持续攀升。近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。其中，克罗恩病对青少年影
+中新社北京4月10日电 (曾玥 国璇 周昕)1971年4月，一场意义非凡的中美乒乓球友谊赛在北京首都体育馆上演。55年后，四位中美“乒乓外交”亲历者重返故地，在55年前的球台前挥拍过招、握手拥抱。 4月10日，中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式在首都体育馆举行。会上设有一个特殊环节：随着大屏幕上老照片一一闪回，四位亲历中美“乒乓外交”的运动员依
 
 ## 正文
 
-中新网沈阳5月19日电 (王涵 禹瑞斋)5月19日是“世界炎症性肠病日”。
+中新社北京4月10日电 (曾玥 国璇 周昕)1971年4月，一场意义非凡的中美乒乓球友谊赛在北京首都体育馆上演。
 
-近年来，炎症性肠病(IBD)在国内发病率持续攀升。
+55年后，四位中美“乒乓外交”亲历者重返故地，在55年前的球台前挥拍过招、握手拥抱。
 
-近日，中国医科大学附属盛京医院第一消化内科主任田丰接受采访，就IBD的认知与防治进行专业解读，呼吁公众打破“拉肚子”的认知误区，做到早诊早治。
+4月10日，中美“乒乓外交”55周年纪念大会暨中美青少年体育交流系列活动启动仪式在首都体育馆举行。
 
-田丰表示，IBD不是普通的肠胃炎，而是包括溃疡性结肠炎和克罗恩病在内的严重肠道毁损性疾病。
+会上设有一个特殊环节：随着大屏幕上老照片一一闪回，四位亲历中美“乒乓外交”的运动员依次登台讲述往事。
 
-其中，克罗恩病对青少年影响尤甚，患者常面临着腹痛、腹泻、消瘦、贫血，严重的营养不良等困境，对工作和生活造成极大困扰。
+故事从一辆大巴车开始。
 
-针对IBD发病率攀升的原因，田丰指出，这与国人生活方式变迁密切相关。
+1971年世乒赛期间，美国乒乓球运动员格伦·科恩误上了中国队大巴车，中国运动员庄则栋上前主动搭话并赠送礼物，翌日科恩回赠礼物，这一友好互动成为一段佳话。
 
-油炸等过加工食品的普及，都与发病率呈正相关。
+中国运动员梁戈亮是这辆大巴车上的一员。
 
-此外，现代人生活“过度洁净”使儿童肠道免疫系统在发育过程中缺乏必要的病原微生物和寄生虫的刺激从而导致发育异常，是IBD的发生率明显升高的重要原因。
+他回忆说，科恩下车后主动向他发出切磋邀请，两人一起练习了十几分钟，非常尽兴。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 07:23 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 07:19 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 07:16 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 06:57 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 07:05 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
-- 2026-06-30 07:09 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-30 07:00 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-30 07:06 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 07:22 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-30 07:20 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-30 07:04 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 07:02 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 07:10 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 07:07 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 07:27 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 07:06 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-30 07:14 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 07:02 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-30 07:09 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 07:10 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 07:27 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 07:01 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-30 07:20 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-30 07:13 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/0519828884.shtml)
-- 2026-06-30 06:55 - [陈睿《让好内容发生》](http://www.share.kurohicncr.top/Article/details/549694.shtml)
-- 2026-06-30 07:09 - [恋与深空 巧合](http://www.share.minike.top/Article/details/67933.shtml)
-- 2026-06-30 07:04 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/809821062.shtml)
-- 2026-06-30 07:19 - [巴拉圭先进球了](http://www.blog.kurohicncr.top/Article/details/1388327.shtml)
-- 2026-06-30 06:54 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/649113514.shtml)
-- 2026-06-30 06:54 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/9132767098.shtml)
-- 2026-06-30 07:00 - [起风了](https://www.blog.minike.top/Article/details/406438289997.shtml)
-- 2026-06-30 07:16 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/21711.shtml)
-- 2026-06-30 07:11 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/13815564.shtml)
-- 2026-06-30 07:21 - [女心理师](http://www.share.kurohicncr.top/Article/details/115292.shtml)
-- 2026-06-30 07:10 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/760855751358.shtml)
-- 2026-06-30 07:03 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/3462207579.shtml)
-- 2026-06-30 07:03 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/55898.shtml)
-- 2026-06-30 06:58 - [急先锋](http://www.blog.kurohicncr.top/Article/details/01680.shtml)
+- 2026-06-30 07:27 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/0257529.shtml)
+- 2026-06-30 07:00 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/8507664.shtml)
+- 2026-06-30 07:03 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/84562355.shtml)
+- 2026-06-30 07:12 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/8514668963.shtml)
+- 2026-06-30 07:24 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.share.minike.top/Article/details/76244243047.shtml)
+- 2026-06-30 07:12 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.blog.minike.top/Article/details/3461336251.shtml)
+- 2026-06-30 07:13 - [流金岁月](http://www.blog.minike.top/Article/details/932037932.shtml)
+- 2026-06-30 07:10 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/77513.shtml)
+- 2026-06-30 07:22 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/839826.shtml)
+- 2026-06-30 07:04 - [又一美国科技巨头转向中国大模型](http://www.blog.minike.top/Article/details/08923462.shtml)
+- 2026-06-30 07:29 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/35732.shtml)
+- 2026-06-30 07:16 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/56673984279.shtml)
+- 2026-06-30 07:20 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/98119.shtml)
+- 2026-06-30 07:01 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/493598060822.shtml)
+- 2026-06-30 07:20 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/8439929901.shtml)

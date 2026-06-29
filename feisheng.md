@@ -1,57 +1,49 @@
-# 学者：赖清德改口称“没有台独”，纯属自欺欺人
+# 民生银行获批收购宁晋民生村镇银行并设立分支机构
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电(燕新台)在美国总统特朗普发出明确针对“台独”的警告后，赖清德于一天内“先硬后软”：他先再度鼓吹所谓“两岸互不隶属”，试图重新定义“台独”，被认为是在“暗怼特朗普”；随后其又在社交媒体发长文，改口称“没有‘台独’问题”。有大陆学者向中新网“燕新台”工作室表示，赖清德前后不一的两番言论，既不敢公开得罪特朗普，又想维护其“台独工作者”的脸面，所以才为其“台独”路线
+4月9日金融一线消息，邢台金融监管分局发布《关于中国民生银行股份有限公司收购宁晋民生村镇银行股份有限公司设立分支机构的批复》，同意该行收购宁晋民生村镇银行股份有限公司并设立中国民生银行股份有限公司宁晋支行，承接宁晋民生村镇银行股份有限公司清产核资后的资产、负债、业务和员工。 责任编辑：曹睿潼
 
 ## 正文
 
-中新网5月19日电(燕新台)在美国总统特朗普发出明确针对“台独”的警告后，赖清德于一天内“先硬后软”：他先再度鼓吹所谓“两岸互不隶属”，试图重新定义“台独”，被认为是在“暗怼特朗普”；随后其又在社交媒体发长文，改口称“没有‘台独’问题”。
+4月9日金融一线消息，邢台金融监管分局发布《关于中国民生银行股份有限公司收购宁晋民生村镇银行股份有限公司设立分支机构的批复》，同意该行收购宁晋民生村镇银行股份有限公司并设立中国民生银行股份有限公司宁晋支行，承接宁晋民生村镇银行股份有限公司清产核资后的资产、负债、业务和员工。
 
-有大陆学者向中新网“燕新台”工作室表示，赖清德前后不一的两番言论，既不敢公开得罪特朗普，又想维护其“台独工作者”的脸面，所以才为其“台独”路线进行狡辩，然而这种做法，根本无法自圆其说，纯属自欺欺人。
-
-赖清德两番言论也引起岛内舆论批评。
-
-中国国民党表示，赖清德若不想成为“麻烦制造者”，就不要再“硬拗”了，请回到“九二共识”、反对“台独”的立场上。
-
-台湾民众党认为，赖清德当局执政无能，持续操作意识形态、大玩文字游戏。
-
-中国国民党前主席洪秀柱19日在社交媒体发文称，赖清德意在重新包装“台独”，其言论是赤裸裸的“新两国论”。
-
-“一位‘台独工作者’，竟然说没有‘台独’问题？
-
-”台北市长蒋万安18日表示，赖清德早上还在解释什么是“台独”，晚上突然改口说没有“台独”问题，果然如大家所说，民进党的“台独”就像月亮，初一、十五不一样。
+责任编辑：曹睿潼
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-30 06:58 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 07:15 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
-- 2026-06-30 07:16 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 07:14 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-30 07:17 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 07:12 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 06:55 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-30 07:14 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 06:56 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 07:07 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 07:02 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-30 07:22 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
+- 2026-06-30 07:15 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 07:26 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-30 07:16 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-30 07:00 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 07:13 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 07:14 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
+- 2026-06-30 07:19 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
+- 2026-06-30 07:26 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:07 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 07:20 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-30 07:14 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 07:02 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-30 07:11 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:17 - [曝灰熊将莫兰特交易至开拓者](http://www.share.kurohicncr.top/Article/details/8731364.shtml)
-- 2026-06-30 06:58 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/698561241194.shtml)
-- 2026-06-30 07:15 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/7963830.shtml)
-- 2026-06-30 07:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/009719255596.shtml)
-- 2026-06-30 07:19 - [日本淘汰](https://www.blog.minike.top/Article/details/75546861636.shtml)
-- 2026-06-30 07:19 - [董卿母亲癌症去世](https://www.share.minike.top/Article/details/71461.shtml)
-- 2026-06-30 06:58 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/11288.shtml)
-- 2026-06-30 07:13 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/186281357.shtml)
-- 2026-06-30 07:03 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.share.minike.top/Article/details/628975437.shtml)
-- 2026-06-30 06:56 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/89314932.shtml)
-- 2026-06-30 07:09 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/299404089.shtml)
-- 2026-06-30 07:19 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/4818767312.shtml)
-- 2026-06-30 07:11 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/91386896288.shtml)
-- 2026-06-30 07:15 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/424849604408.shtml)
-- 2026-06-30 07:22 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/44788178798.shtml)
+- 2026-06-30 07:19 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/792470163.shtml)
+- 2026-06-30 07:26 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/877205869415.shtml)
+- 2026-06-30 07:26 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.minike.top/Article/details/087396035732.shtml)
+- 2026-06-30 07:27 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/1784113.shtml)
+- 2026-06-30 07:29 - [巴西2-1绝杀日本](https://www.blog.minike.top/Article/details/03034577554.shtml)
+- 2026-06-30 07:08 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/179867715871.shtml)
+- 2026-06-30 07:14 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/028974.shtml)
+- 2026-06-30 07:00 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/1927536875.shtml)
+- 2026-06-30 07:22 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/109650.shtml)
+- 2026-06-30 07:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/86394296961.shtml)
+- 2026-06-30 07:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/06328348002.shtml)
+- 2026-06-30 07:04 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/5892300235.shtml)
+- 2026-06-30 07:16 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/7073272373.shtml)
+- 2026-06-30 07:02 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/783762.shtml)
+- 2026-06-30 07:22 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/179003.shtml)

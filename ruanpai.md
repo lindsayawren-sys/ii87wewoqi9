@@ -1,60 +1,61 @@
-# 5月20日热门中概股涨跌不一 奇景光电涨6.57%，禾赛科技跌9.02%
+# 王毅同朝鲜外相崔善姬举行会谈
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-5月20日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收跌0.01%。 上涨个股（按市值从高到低）： 阿里巴巴涨1.79%、拼多多涨2.50%、网易涨0.77%、联电涨2.69%、京东涨2.47%、中华电信涨3.40%、贝壳涨5.17%、腾讯音乐涨0.88%、华住酒店集团涨1.01%、哔哩哔哩涨1.88%、慧荣科技涨5.49%、唯品会涨1.26%、小马智行涨1.09%、奇
+中新社平壤4月9日电 当地时间4月9日，中共中央政治局委员、外交部长王毅在平壤锦绣山迎宾馆同朝鲜外相崔善姬举行会谈。 王毅表示，去年9月初，习近平总书记同金正恩总书记在北京举行历史性会晤，就双边关系全局性、战略性、方向性问题达成重要共识，为中朝关系下步发展作出重要战略指引，推动两国关系进入新阶段，开启两国友好交往新篇章，具有重要深远意义。两党两国最高领导人的战略引领，是中朝关系
 
 ## 正文
 
-5月20日热门中概股涨跌不一，纳斯达克中国金龙指数（HXC）收跌0.01%。
+中新社平壤4月9日电 当地时间4月9日，中共中央政治局委员、外交部长王毅在平壤锦绣山迎宾馆同朝鲜外相崔善姬举行会谈。
 
-上涨个股（按市值从高到低）： 阿里巴巴涨1.79%、拼多多涨2.50%、网易涨0.77%、联电涨2.69%、京东涨2.47%、中华电信涨3.40%、贝壳涨5.17%、腾讯音乐涨0.88%、华住酒店集团涨1.01%、哔哩哔哩涨1.88%、慧荣科技涨5.49%、唯品会涨1.26%、小马智行涨1.09%、奇景光电涨6.57%。
+王毅表示，去年9月初，习近平总书记同金正恩总书记在北京举行历史性会晤，就双边关系全局性、战略性、方向性问题达成重要共识，为中朝关系下步发展作出重要战略指引，推动两国关系进入新阶段，开启两国友好交往新篇章，具有重要深远意义。
 
-下跌个股（按市值从高到低）：台积电跌0.84%、日月光半导体跌2.46%、百度跌0.02%、携程跌0.75%、富途控股跌5.47%、理想汽车跌3.06%、蔚来跌2.30%、小鹏汽车跌0.80%、中国新城农村跌0.13%、满帮跌1.69%、万国数据跌3.14%、新东方跌1.14%、BOSS直聘跌0.35%、WSP控股跌1.13%、亚朵集团跌1.49%、金山云跌1.88%、名创优品跌0.88%、微牛跌0.85%、禾赛科技跌9.02%、世纪互联跌4.09%、欢聚跌0.58%。
+两党两国最高领导人的战略引领，是中朝关系发展的最大政治优势和最坚强保障。
 
-美股周二收跌，标普500指数连续第三个交易日下滑。
+中方愿同朝方一道，以两党两国最高领导人重要共识为根本遵循，加强战略沟通，密切交往合作，持续巩固中朝关系向好发展势头，为两国人民创造更多福祉，共同促进地区和平与发展。
 
-市场关注美国国债收益率攀升及石油市场。
+王毅说，过去一年中朝交往亮点纷呈，有力彰显了中朝鲜血凝成的传统友谊永不褪色、牢不可破。
 
-交易员目前预计美联储在2026年底前加息的概率已超过80%。
+今年是《中朝友好合作互助条约》签订65周年。
 
-道指跌322.24点，跌幅为0.65%，报49363.88点；纳指跌220.02点，跌幅为0.84%，报25870.71点；标普500指数跌49.39点，跌幅为0.67%，报7353.66点。
+65年来，无论国际和地区形势如何变化，中朝作为好邻居、好朋友、好同志，始终相互信赖、相互支持，为维护地区及世界和平稳定、促进各自发展作出不懈努力。
 
-领涨中概股列表： 领跌中概股列表： （截图来自新浪财经APP 行情-美股-中概股热门板块）下载新浪财经APP责任编辑：张俊 SF065
+中方愿同朝方共同办好条约签订65周年纪念活动，加强高层交往，密切各层级各领域对话与务实合作，深化人文交流，促进民心相通，助力各自经济和社会发展。
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-30 07:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 07:13 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 07:12 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
-- 2026-06-30 07:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-30 07:13 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 07:07 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
-- 2026-06-30 07:01 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-30 07:13 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 07:12 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 07:22 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 07:18 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 07:21 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-30 07:20 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 07:09 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 07:21 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 07:29 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 07:18 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-30 07:26 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 07:29 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 07:00 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 07:11 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 07:04 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 07:04 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 07:16 - [日本五次世界杯淘汰赛全败](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-30 07:11 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 07:27 - [媒体评泰山建135公里刀片刺绳隔离网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-30 07:28 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 07:14 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:15 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/810593305.shtml)
-- 2026-06-30 07:18 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/418626771000.shtml)
-- 2026-06-30 07:14 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/9052599999.shtml)
-- 2026-06-30 07:17 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/041673144930.shtml)
-- 2026-06-30 07:19 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/846649.shtml)
-- 2026-06-30 07:07 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/173546055.shtml)
-- 2026-06-30 07:21 - [为什么会有「念旧」的心理？](http://www.blog.kurohicncr.top/Article/details/27679.shtml)
-- 2026-06-30 07:22 - [失明的我带老妈去了趟“火星”](https://www.blog.kurohicncr.top/Article/details/722404.shtml)
-- 2026-06-30 07:14 - [女子遭家暴逃跑致丈夫身亡二审细节](https://www.share.minike.top/Article/details/2971668.shtml)
-- 2026-06-30 07:08 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/67564704.shtml)
-- 2026-06-30 07:14 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/93722304.shtml)
-- 2026-06-30 07:09 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/2426405505.shtml)
-- 2026-06-30 06:58 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.blog.kurohicncr.top/Article/details/618984597.shtml)
-- 2026-06-30 06:56 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/79695.shtml)
-- 2026-06-30 07:06 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/02712.shtml)
+- 2026-06-30 07:14 - [感动全网的699分女生想报考清华](http://www.blog.kurohicncr.top/Article/details/49731.shtml)
+- 2026-06-30 07:17 - [日本五次世界杯淘汰赛全败](https://www.share.minike.top/Article/details/50151893.shtml)
+- 2026-06-30 07:00 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/02157142.shtml)
+- 2026-06-30 07:00 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/90134.shtml)
+- 2026-06-30 07:09 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/673983.shtml)
+- 2026-06-30 07:22 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/81429.shtml)
+- 2026-06-30 07:09 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/035190066.shtml)
+- 2026-06-30 07:21 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/5227923.shtml)
+- 2026-06-30 07:07 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/9084331441.shtml)
+- 2026-06-30 07:04 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/12834.shtml)
+- 2026-06-30 07:07 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/54614422.shtml)
+- 2026-06-30 07:26 - [我们的少年时代2](https://www.blog.minike.top/Article/details/775863.shtml)
+- 2026-06-30 07:10 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/2511553.shtml)
+- 2026-06-30 07:00 - [恋与深空 日服](http://www.share.minike.top/Article/details/902730596.shtml)
+- 2026-06-30 07:23 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/3200320.shtml)

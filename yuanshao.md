@@ -1,60 +1,51 @@
-# 博腾股份海外扩产遇黑天鹅：4.3亿索赔压顶，合规性瑕疵暴露多重风险
+# 加大对新型隐性腐败惩治力度 两高发布最新司法解释
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、海外基地“合规性瑕疵”引爆合作危机，诺华单方面解约 博腾股份的全球化战略正遭遇严重打击。近日，公司公告称，其位于斯洛文尼亚的CDMO基地项目突发重大变故，合作方诺华单方面提出解约，并保留约5470万欧元（约合人民币4.3亿元）的服务费及损失赔偿金索赔权。 此次冲突的核心，源于B30生产车间前期报批手续存在合规性问题。正是这一
+最高人民法院、最高人民检察院4月10日联合发布《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》，自2026年5月1日起施行。 新的司法解释进一步明确单位受贿罪、单位行贿罪等定罪量刑标准，完善斡旋受贿、介绍贿赂、挪用公款等认定规则，健全特定财物真伪鉴定和价格认定规则，细化预期收益型受贿数额认定规则，依法加大对新型隐性腐败的惩治力度。 此外，司法解释明确非国家工作人员受贿罪
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 一、海外基地“合规性瑕疵”引爆合作危机，诺华单方面解约 博腾股份的全球化战略正遭遇严重打击。
+最高人民法院、最高人民检察院4月10日联合发布《关于办理贪污贿赂刑事案件适用法律若干问题的解释(二)》，自2026年5月1日起施行。
 
-近日，公司公告称，其位于斯洛文尼亚的CDMO基地项目突发重大变故，合作方诺华单方面提出解约，并保留约5470万欧元（约合人民币4.3亿元）的服务费及损失赔偿金索赔权。
+新的司法解释进一步明确单位受贿罪、单位行贿罪等定罪量刑标准，完善斡旋受贿、介绍贿赂、挪用公款等认定规则，健全特定财物真伪鉴定和价格认定规则，细化预期收益型受贿数额认定规则，依法加大对新型隐性腐败的惩治力度。
 
-此次冲突的核心，源于B30生产车间前期报批手续存在合规性问题。
+此外，司法解释明确非国家工作人员受贿罪、对非国家工作人员行贿罪、职务侵占罪、挪用资金罪定罪量刑标准分别参照受贿罪、行贿罪(单位行贿罪)、贪污罪、挪用公款罪定罪量刑标准执行，落实对不同所有制企业依法平等保护。
 
-正是这一合规性瑕疵引发的连锁反应，导致双方矛盾激化。
-
-尽管公司已与诺华沟通，但目前仍存在重大争议和分歧，最终诺华选择终止合作，并要求PSI在90天内搬离园区、交还场地。
-
-值得关注的是，博腾股份此前从未在公告中披露与诺华存在任何矛盾，也未明确说明该合规问题暴露的具体时间与细节。
-
-这种信息披露的“滞后”与“模糊”，本身就可能引发投资者对公司治理透明度的质疑。
-
-二、潜在损失超4亿元，资产减值与合同履约风险叠加 此次事件对博腾股份的财务冲击不容小觑。
+记者：冯家顺 海报制作：冯家顺 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 06:58 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 07:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 07:05 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 07:17 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-30 07:23 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 06:59 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-30 07:17 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 07:19 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-30 07:11 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-30 07:00 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-30 07:02 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-30 06:57 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 07:00 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 07:03 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 07:16 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 07:27 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
+- 2026-06-30 07:28 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
+- 2026-06-30 07:05 - [森保一致歉：世界第一目标没能实现](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 07:10 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 07:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-30 07:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 07:04 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 07:12 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 07:10 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 07:16 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/66301.shtml)
-- 2026-06-30 07:16 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/7984785.shtml)
-- 2026-06-30 07:11 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/57176.shtml)
-- 2026-06-30 07:02 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/928602170341.shtml)
-- 2026-06-30 06:55 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/2790996.shtml)
-- 2026-06-30 07:18 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/818869.shtml)
-- 2026-06-30 07:14 - [关晓彤一路小跑迎接爸爸探班](https://www.share.kurohicncr.top/Article/details/94959363.shtml)
-- 2026-06-30 07:06 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.minike.top/Article/details/046214914319.shtml)
-- 2026-06-30 07:10 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/27876.shtml)
-- 2026-06-30 07:06 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/70062061.shtml)
-- 2026-06-30 06:57 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/39428383.shtml)
-- 2026-06-30 07:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/36509742024.shtml)
-- 2026-06-30 06:59 - [孙兴慜道歉](http://www.share.minike.top/Article/details/512897411.shtml)
-- 2026-06-30 07:10 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/26809995.shtml)
-- 2026-06-30 07:19 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/9631118894.shtml)
+- 2026-06-30 07:12 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/6007850.shtml)
+- 2026-06-30 07:06 - [天道](https://www.share.minike.top/Article/details/35771.shtml)
+- 2026-06-30 07:00 - [锐评T1零封KC](https://www.share.minike.top/Article/details/1557219958.shtml)
+- 2026-06-30 07:28 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/56076892318.shtml)
+- 2026-06-30 07:27 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/6352024032.shtml)
+- 2026-06-30 07:03 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/0796945.shtml)
+- 2026-06-30 07:03 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/54260122872.shtml)
+- 2026-06-30 07:13 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.minike.top/Article/details/350578561481.shtml)
+- 2026-06-30 07:10 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/61430.shtml)
+- 2026-06-30 07:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/69893689.shtml)
+- 2026-06-30 07:27 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/72187.shtml)
+- 2026-06-30 07:16 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/824338.shtml)
+- 2026-06-30 07:03 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/56543.shtml)
+- 2026-06-30 07:13 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/803718037.shtml)
+- 2026-06-30 07:21 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/023100.shtml)

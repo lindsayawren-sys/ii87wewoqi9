@@ -1,55 +1,61 @@
-# 中国两部门紧急预拨1.2亿元支持南方5省份抢险救灾
+# 滴滴自动驾驶张博：聚焦安全和体验，推动自动驾驶全球化落地
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 (记者 陈溯 郭超凯)记者19日从中国应急管理部获悉，财政部、应急管理部紧急预拨1.2亿元(人民币，下同)中央自然灾害救灾资金，支持南方5个省份做好地震、洪涝及地质灾害应急抢险救灾工作。近日，广西柳州先后发生两次5.2级地震，造成人员伤亡和房屋倒损。湖北、湖南、广西、重庆、贵州等地遭遇今年首轮持续性强降雨过程，引发洪涝、地质灾害。 19日，财政部、应急管
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，滴滴自动驾驶公司CEO张博出席2026智能电动汽车发展高层论坛，新一代Robotaxi车型同步亮相。张博在演讲中表示，安全与体验是自动驾驶行稳致远的根基，滴滴自动驾驶坚持负责任的科技创新，将基于在AI核心技术、硬件、出行场景三大领域的积累，持续加大投入，不断优化产品和服务。 去年四季度，滴滴自动驾驶在广
 
 ## 正文
 
-中新社北京5月19日电 (记者 陈溯 郭超凯)记者19日从中国应急管理部获悉，财政部、应急管理部紧急预拨1.2亿元(人民币，下同)中央自然灾害救灾资金，支持南方5个省份做好地震、洪涝及地质灾害应急抢险救灾工作。
+专题：智能电动汽车发展高层论坛（2026） 新浪科技讯 4月11日下午消息，滴滴自动驾驶公司CEO张博出席2026智能电动汽车发展高层论坛，新一代Robotaxi车型同步亮相。
 
-近日，广西柳州先后发生两次5.2级地震，造成人员伤亡和房屋倒损。
+张博在演讲中表示，安全与体验是自动驾驶行稳致远的根基，滴滴自动驾驶坚持负责任的科技创新，将基于在AI核心技术、硬件、出行场景三大领域的积累，持续加大投入，不断优化产品和服务。
 
-湖北、湖南、广西、重庆、贵州等地遭遇今年首轮持续性强降雨过程，引发洪涝、地质灾害。
+去年四季度，滴滴自动驾驶在广州、北京部分示范应用区域开启全天候、全无人载客测试。
 
-19日，财政部、应急管理部紧急预拨1.2亿元中央自然灾害救灾资金，支持湖北、湖南、广西、重庆、贵州5省(区、市)开展灾害应急抢险救援和受灾民众救助工作，统筹做好搜救转移安置受灾人员、排危除险等应急处置、开展次生灾害隐患排查和应急整治、倒损民房修复等。
+据张博介绍，与广汽埃安合作的新一代Robotaxi车型已于今年1月正式交付并开启道路测试。
 
-(完)
+新车型严格按车规级标准完成了冬测、夏测、综合耐久、腐蚀老化、高低温环境模拟等一系列极端工况试验，在L4软硬件技术及智能座舱体验上实现全新升级。
+
+在张博看来，混合出行网络是自动驾驶冷启动的最佳路径。
+
+面向Robotaxi全球化发展，滴滴自动驾驶将依托L4全栈自研能力和滴滴多年海外服务经验，携手行业合作伙伴，推动中国自动驾驶成果全球落地。
+
+责任编辑：郝欣煜
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 07:14 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 06:54 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 07:05 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 07:10 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 07:05 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 07:17 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-30 07:09 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 07:15 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 07:17 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-30 07:08 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-30 07:21 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-30 06:54 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 07:13 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-30 07:23 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 07:08 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-30 07:28 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 07:06 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-30 07:26 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 07:24 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 07:01 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
+- 2026-06-30 07:16 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-30 07:06 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 07:14 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 07:17 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
+- 2026-06-30 07:19 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-30 07:06 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-30 07:22 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 07:06 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 07:02 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/233934685449.shtml)
-- 2026-06-30 06:59 - [德国巴拉圭加时](http://www.blog.kurohicncr.top/Article/details/7598755.shtml)
-- 2026-06-30 07:00 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/58921121.shtml)
-- 2026-06-30 07:20 - [我想说 其实你很好！](http://www.share.minike.top/Article/details/790098115.shtml)
-- 2026-06-30 07:22 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/0846428.shtml)
-- 2026-06-30 07:21 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/2165197095.shtml)
-- 2026-06-30 07:14 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/8238118.shtml)
-- 2026-06-30 06:54 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/96536.shtml)
-- 2026-06-30 07:01 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/40940.shtml)
-- 2026-06-30 07:23 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/36415079443.shtml)
-- 2026-06-30 07:21 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/412647612.shtml)
-- 2026-06-30 06:54 - [千香](https://www.share.minike.top/Article/details/306212092.shtml)
-- 2026-06-30 06:55 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/133240179.shtml)
-- 2026-06-30 06:55 - [刘宇宁是去进货了吗](https://www.share.minike.top/Article/details/938357832.shtml)
-- 2026-06-30 06:55 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/50232784.shtml)
+- 2026-06-30 07:28 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/39911804023.shtml)
+- 2026-06-30 07:12 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/830215299.shtml)
+- 2026-06-30 07:07 - [流金岁月](http://www.share.kurohicncr.top/Article/details/7456572.shtml)
+- 2026-06-30 07:12 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/46131622.shtml)
+- 2026-06-30 07:08 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/2136265819.shtml)
+- 2026-06-30 07:15 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/85962326080.shtml)
+- 2026-06-30 07:09 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/51511771901.shtml)
+- 2026-06-30 07:09 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.minike.top/Article/details/95123142594.shtml)
+- 2026-06-30 07:28 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/9448738.shtml)
+- 2026-06-30 07:23 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/5394681348.shtml)
+- 2026-06-30 07:16 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/926732836.shtml)
+- 2026-06-30 07:19 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/45110283967.shtml)
+- 2026-06-30 07:07 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/55772213036.shtml)
+- 2026-06-30 07:05 - [巴拉圭进球](http://www.blog.minike.top/Article/details/77726.shtml)
+- 2026-06-30 07:27 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/28329.shtml)

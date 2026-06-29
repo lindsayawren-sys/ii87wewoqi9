@@ -1,56 +1,59 @@
-# 美国联合航空预计夏季出行旅客数量将有所增长
+# 重磅！证监会最新发布！创业板新规，提出八大改革举措
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-饱受通胀压力困扰的消费者并未放弃夏日度假计划。 联合航空于周二表示，预计今年夏季旅客出行人次将达5300万，较去年增加约300万人次。 该公司补充称，那些能体验毕生难忘特色活动的旅游目的地，出行需求尤为旺盛，比如欧洲日全食观赏地、国际足球赛事举办地以及各大全球巡回演唱会举办城市。 联合航空透露，受8月12日日全食带动，前往马德里、巴塞罗那等地的机票预订量涨幅超50%。 公司还指
+专题：证监会发布！深化创业板改革总体方案出炉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月10日，经国务院同意，证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》），这是进一步提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能的重要举措，标志着新一轮全面深化资本市场改革向纵深推进。 具体来看，《
 
 ## 正文
 
-饱受通胀压力困扰的消费者并未放弃夏日度假计划。
+专题：证监会发布！
 
-联合航空于周二表示，预计今年夏季旅客出行人次将达5300万，较去年增加约300万人次。
+深化创业板改革总体方案出炉 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该公司补充称，那些能体验毕生难忘特色活动的旅游目的地，出行需求尤为旺盛，比如欧洲日全食观赏地、国际足球赛事举办地以及各大全球巡回演唱会举办城市。
+4月10日，经国务院同意，证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》），这是进一步提高资本市场制度包容性、适应性，健全投资和融资相协调的资本市场功能的重要举措，标志着新一轮全面深化资本市场改革向纵深推进。
 
-联合航空透露，受8月12日日全食带动，前往马德里、巴塞罗那等地的机票预订量涨幅超50%。
+具体来看，《创业板意见》深入贯彻党中央、国务院决策部署，牢牢把握防风险、强监管、促高质量发展的工作主线，围绕持续深化资本市场投融资改革，优化创业板全链条创新和监管制度体系，进一步提高制度包容性、适应性，提出了八大针对性的改革举措。
 
-公司还指出，2026年国际足联世界杯北美赛事承办城市的整体机票预订量涨幅接近20%。
+一是突出板块功能定位，更好服务实体经济高质量发展。
 
-责任编辑：何云
+进一步发挥创业板主要服务成长型创新创业企业的特色和优势，加力支持新产业、新业态、新技术企业发展和传统产业转型升级。
+
+积极支持优质未盈利创新企业和新型消费、现代服务业等领域优质创新企业发行上市。
+
+二是优化发行上市标准，提高包容性和吸引力。
 
 ## 相关推荐
 
-- 2026-06-30 07:16 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 07:15 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-30 07:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 07:09 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 07:06 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 07:06 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/htbfb.md)
-- 2026-06-30 07:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 07:08 - [巴拉圭进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-30 06:59 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-30 07:20 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 07:11 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 07:01 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 07:11 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 07:21 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-30 07:15 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-30 07:11 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 07:09 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 07:02 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 07:04 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 07:26 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 07:09 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 07:29 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-30 07:26 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
+- 2026-06-30 07:27 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 07:05 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
+- 2026-06-30 07:15 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 07:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [这几秒成世界杯最值钱广告位](https://www.share.kurohicncr.top/Article/details/6877151.shtml)
-- 2026-06-30 07:14 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/566929.shtml)
-- 2026-06-30 07:06 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/11609164.shtml)
-- 2026-06-30 07:11 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/27619843.shtml)
-- 2026-06-30 07:09 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/68057816583.shtml)
-- 2026-06-30 07:14 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/87966.shtml)
-- 2026-06-30 07:11 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/470320.shtml)
-- 2026-06-30 06:54 - [女子清吧被陌生人投放伟哥](http://www.blog.kurohicncr.top/Article/details/238089258661.shtml)
-- 2026-06-30 07:18 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/678316.shtml)
-- 2026-06-30 06:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.kurohicncr.top/Article/details/218149.shtml)
-- 2026-06-30 07:16 - [千香](http://www.blog.minike.top/Article/details/350164.shtml)
-- 2026-06-30 07:07 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/754606044.shtml)
-- 2026-06-30 06:59 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/43305212177.shtml)
-- 2026-06-30 07:21 - [巴拉圭先进球了](http://www.share.kurohicncr.top/Article/details/2010284.shtml)
-- 2026-06-30 07:03 - [恋与深空 日服](https://www.share.kurohicncr.top/Article/details/14277.shtml)
+- 2026-06-30 07:19 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/69375445596.shtml)
+- 2026-06-30 07:25 - [《男人至死是傻得儿》](http://www.blog.minike.top/Article/details/80987752723.shtml)
+- 2026-06-30 07:05 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/87862.shtml)
+- 2026-06-30 07:09 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/279133934054.shtml)
+- 2026-06-30 07:12 - [起风了](http://www.blog.minike.top/Article/details/21451458.shtml)
+- 2026-06-30 07:20 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/308155.shtml)
+- 2026-06-30 07:16 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/193439536.shtml)
+- 2026-06-30 07:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.kurohicncr.top/Article/details/318846682.shtml)
+- 2026-06-30 07:13 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/7851710.shtml)
+- 2026-06-30 07:10 - [刘必安等16人非法集资案二审宣判](http://www.blog.minike.top/Article/details/360036655.shtml)
+- 2026-06-30 07:24 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/0680766997.shtml)
+- 2026-06-30 07:08 - [千香](https://www.share.minike.top/Article/details/432056533.shtml)
+- 2026-06-30 07:19 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/329521.shtml)
+- 2026-06-30 07:11 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/17700974490.shtml)
+- 2026-06-30 07:17 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/68699.shtml)

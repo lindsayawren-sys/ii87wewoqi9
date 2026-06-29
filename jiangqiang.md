@@ -1,53 +1,60 @@
-# Washington Examiner：特朗普表示将让沃什按自己的意愿决定利率
+# 特朗普谈美伊谈判：不在乎是否达成协议
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-美国总统特朗普接受Washington Examiner采访时表示，他会让凯文·沃什决定利率。 文章称，特朗普周二上午接受了其采访。 “我会让他按自己的意愿行事，”特朗普对其称。责任编辑：丁文武
+中新网4月12日电 据美国有线电视新闻网(CNN)报道，当地时间11日，美国总统特朗普在白宫接受记者采访时称，美国与伊朗在巴基斯坦首都伊斯兰堡的谈判，无论是否达成协议，对于他而言“没什么区别”。 据报道，特朗普表示，美伊正在进行“非常深入的谈判”。特朗普声称并不在意谈判结果如何，理由是“无论发生什么，我们都是赢家”。 特朗普声称，“我们已经彻底击败了那个国家，所以接下来就看看会
 
 ## 正文
 
-美国总统特朗普接受Washington Examiner采访时表示，他会让凯文·沃什决定利率。
+中新网4月12日电 据美国有线电视新闻网(CNN)报道，当地时间11日，美国总统特朗普在白宫接受记者采访时称，美国与伊朗在巴基斯坦首都伊斯兰堡的谈判，无论是否达成协议，对于他而言“没什么区别”。
 
-文章称，特朗普周二上午接受了其采访。
+据报道，特朗普表示，美伊正在进行“非常深入的谈判”。
 
-“我会让他按自己的意愿行事，”特朗普对其称。
+特朗普声称并不在意谈判结果如何，理由是“无论发生什么，我们都是赢家”。
 
-责任编辑：丁文武
+特朗普声称，“我们已经彻底击败了那个国家，所以接下来就看看会发生什么吧。
+
+也许他们会达成协议，也许他们不会，这都无所谓。
+
+从美国的角度来看，我们是赢家。
+
+” 另据卡塔尔半岛电视台援引伊朗媒体报道，伊朗与美国的谈判延长一天，12日将继续。
+
+报道称，霍尔木兹海峡仍是讨论中的重大争议点，但目前关于讨论内容的细节尚未公布。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 07:23 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
-- 2026-06-30 07:17 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 07:15 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-30 07:11 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 07:01 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 07:11 - [我觉得你是在无中生友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 07:18 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 07:19 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 07:04 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 06:59 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
-- 2026-06-30 07:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 07:06 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
-- 2026-06-30 07:19 - [武磊：日本队有能力跟任何强队抗衡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-30 07:01 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 07:24 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-30 07:17 - [F1奥地利站赛后复盘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangwai.md)
+- 2026-06-30 07:25 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 07:12 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 07:12 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 07:03 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-30 07:00 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 07:24 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 07:26 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 07:22 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-30 07:17 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 07:11 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
+- 2026-06-30 07:11 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 07:29 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [德国巴拉圭加时](https://www.share.minike.top/Article/details/658119.shtml)
-- 2026-06-30 07:11 - [爱很美味](http://www.blog.minike.top/Article/details/58071.shtml)
-- 2026-06-30 07:11 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/64687778256.shtml)
-- 2026-06-30 07:16 - [毒液2](http://www.share.kurohicncr.top/Article/details/493308367.shtml)
-- 2026-06-30 07:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/77280.shtml)
-- 2026-06-30 06:55 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/162771.shtml)
-- 2026-06-30 07:09 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/7825484.shtml)
-- 2026-06-30 07:02 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/79071415547.shtml)
-- 2026-06-30 07:08 - [免费试吃发差评被店家挂店门避雷](http://www.blog.minike.top/Article/details/87234.shtml)
-- 2026-06-30 06:55 - [恋与深空道歉声明](http://www.blog.kurohicncr.top/Article/details/69833180181.shtml)
-- 2026-06-30 06:54 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/53135118.shtml)
-- 2026-06-30 06:54 - [德国巴拉圭加时](https://www.share.kurohicncr.top/Article/details/20257.shtml)
-- 2026-06-30 07:23 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/03411931.shtml)
-- 2026-06-30 07:10 - [女子用家人生日买彩票中1032万](http://www.blog.kurohicncr.top/Article/details/8781919.shtml)
-- 2026-06-30 07:07 - [恋与深空 巧合](http://www.share.minike.top/Article/details/319635960.shtml)
+- 2026-06-30 07:26 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/48256198074.shtml)
+- 2026-06-30 07:06 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/73572321851.shtml)
+- 2026-06-30 07:24 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/474505.shtml)
+- 2026-06-30 07:24 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/858591369882.shtml)
+- 2026-06-30 07:28 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/854531.shtml)
+- 2026-06-30 07:01 - [日本16强魔咒](http://www.share.kurohicncr.top/Article/details/204401146322.shtml)
+- 2026-06-30 07:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/090274.shtml)
+- 2026-06-30 07:17 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/72876.shtml)
+- 2026-06-30 07:11 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/594531019812.shtml)
+- 2026-06-30 07:23 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/424533640.shtml)
+- 2026-06-30 07:16 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/6741120415.shtml)
+- 2026-06-30 07:18 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/026501574660.shtml)
+- 2026-06-30 07:02 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/470854181.shtml)
+- 2026-06-30 07:15 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/294573.shtml)
+- 2026-06-30 07:05 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/39978.shtml)

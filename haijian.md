@@ -1,61 +1,56 @@
-# 日经225指数连跌5日收于近三周低点 受AI类股遭抛售拖累 软银集团跌6%
+# 相约三亚亚沙会：4680名“小鹿鹿”整装出征迎盛会
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-周三日本股市日经指数收于近三周低点，软银集团领跌，因投资者对近期推动市场上涨的AI相关股票进行获利了结。 日经指数下跌1.23%，收于59804.41点，创下5月1日以来的最低收盘水平。该指数连续第五个交易日收跌。东证股价指数下跌1.53%，收于3791.65点。 IwaiCosmo Securities首席策略师Kazuaki Shimada表示，市场参与者抛售了本月早些时候
+中新网三亚4月9日电 (张月和)第六届亚洲沙滩运动会(简称“三亚亚沙会”)志愿者出征仪式9日在三亚举行。4680名赛会志愿者“小鹿鹿”整装集结、庄严出征，以昂扬姿态迎接即将到来的三亚亚沙会。 三亚亚沙会将于4月22日至30日举行。赛会志愿者上岗时间一般为赛前七天至赛后三天，主要在开闭幕式、运动员驻地、媒体中心、竞赛场馆、机场、动车站、接待酒店及综合运行中心等地，提供交通引导、观
 
 ## 正文
 
-周三日本股市日经指数收于近三周低点，软银集团领跌，因投资者对近期推动市场上涨的AI相关股票进行获利了结。
+中新网三亚4月9日电 (张月和)第六届亚洲沙滩运动会(简称“三亚亚沙会”)志愿者出征仪式9日在三亚举行。
 
-日经指数下跌1.23%，收于59804.41点，创下5月1日以来的最低收盘水平。
+4680名赛会志愿者“小鹿鹿”整装集结、庄严出征，以昂扬姿态迎接即将到来的三亚亚沙会。
 
-该指数连续第五个交易日收跌。
+三亚亚沙会将于4月22日至30日举行。
 
-东证股价指数下跌1.53%，收于3791.65点。
+赛会志愿者上岗时间一般为赛前七天至赛后三天，主要在开闭幕式、运动员驻地、媒体中心、竞赛场馆、机场、动车站、接待酒店及综合运行中心等地，提供交通引导、观众服务、竞赛组织支持、竞赛场馆运行支持、新闻媒体运行支持、综合资讯服务、后勤保障运行支持及其他辅助性志愿服务。
 
-IwaiCosmo Securities首席策略师Kazuaki Shimada表示，市场参与者抛售了本月早些时候推动日经指数创下历史新高的个股。
+“能够成为‘小鹿鹿’中的一员，服务海南自贸港封关后的首个国际大型赛事，既是荣誉，更是责任。
 
-“但这恰恰是对日经指数过度依赖少数个股的合理调整。
+”三亚亚沙会英语志愿者、海南热带海洋学院大二学生梁子涵说，从培训演练到岗位备战，从语言沟通到应急处置，每一位志愿者都全力以赴，只为以最好状态迎接八方来客。
 
-” 日经指数5月14日曾创下63799.32点的历史新高。
+“我们不仅是赛事的服务者，更是自贸港的青春代言人，我们将以微笑为语言，以服务为纽带，让世界看到自贸港的开放与热情。
 
-在跌幅最大的个股中，科技投资巨头软银集团周三挫跌6%，芯片制造设备制造商东京电子（东京威力科创）下跌2.25%。
+” 三亚亚沙会人力资源和志愿服务指挥中心指挥长，三亚市委常委、组织部部长邢清江表示，志愿者是体育精神的践行者、传播者、守护者，更是中国形象与海南风采的直接体现。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-30 07:01 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
-- 2026-06-30 07:13 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 06:54 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 07:20 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-30 07:12 - [巴拉圭进球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 06:59 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 07:24 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 07:01 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-30 07:11 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 06:56 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
-- 2026-06-30 06:58 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
-- 2026-06-30 07:03 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-30 07:01 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-30 07:09 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-30 07:03 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 07:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 07:05 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 07:08 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 07:13 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-30 07:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 07:19 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 07:29 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 07:26 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 07:01 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:14 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.minike.top/Article/details/6458657.shtml)
-- 2026-06-30 07:10 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/4712827.shtml)
-- 2026-06-30 07:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/704204.shtml)
-- 2026-06-30 06:59 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/63754539.shtml)
-- 2026-06-30 06:57 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/6123595420.shtml)
-- 2026-06-30 07:18 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/51335.shtml)
-- 2026-06-30 06:54 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](http://www.share.minike.top/Article/details/27038448666.shtml)
-- 2026-06-30 07:08 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/19871368937.shtml)
-- 2026-06-30 06:57 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/804557077203.shtml)
-- 2026-06-30 07:18 - [日本接连三场大型军演想干什么](http://www.blog.minike.top/Article/details/26739904729.shtml)
-- 2026-06-30 07:12 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/4892347889.shtml)
-- 2026-06-30 07:20 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/044360437499.shtml)
-- 2026-06-30 07:06 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/4591742877.shtml)
-- 2026-06-30 07:20 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/343672444.shtml)
-- 2026-06-30 07:09 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/120414.shtml)
+- 2026-06-30 07:13 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/7145464779.shtml)
+- 2026-06-30 07:01 - [极限挑战第一季](https://www.blog.minike.top/Article/details/3613926109.shtml)
+- 2026-06-30 07:10 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/102368895.shtml)
+- 2026-06-30 07:20 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/295715055874.shtml)
+- 2026-06-30 07:21 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/373980.shtml)
+- 2026-06-30 07:22 - [蔚来车主罚站](https://www.blog.minike.top/Article/details/933239731.shtml)
+- 2026-06-30 07:23 - [网瘾賊大的阿嬷](http://www.share.minike.top/Article/details/5071505.shtml)
+- 2026-06-30 07:13 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/113628238714.shtml)
+- 2026-06-30 07:15 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/18667097203.shtml)
+- 2026-06-30 07:02 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/85341574861.shtml)
+- 2026-06-30 07:17 - [全球芯片巨头史诗级扩产](https://www.blog.kurohicncr.top/Article/details/8815058771.shtml)
+- 2026-06-30 07:08 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/68838213.shtml)
+- 2026-06-30 07:03 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/72190.shtml)
+- 2026-06-30 07:10 - [国内最大沙漠发洪水意味着什么](http://www.blog.kurohicncr.top/Article/details/96756174.shtml)
+- 2026-06-30 07:18 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.share.minike.top/Article/details/2455481.shtml)

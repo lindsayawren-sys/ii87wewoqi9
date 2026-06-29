@@ -1,56 +1,49 @@
-# “云端”颁证、户外登记 北京婚姻服务场景焕新
+# 连连数字于4月9日耗资约58.41万港元回购9.6万股
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网北京5月20日电(记者 徐婧)“颁证活动让两个人的喜事变成了大家的喜事，在这么多人的见证下，我们对未来充满了希望。”20日，在位于北京丽泽商务区的天空之镜观景平台，新人张女士和刘先生说。 当天是婚姻登记高峰日，北京市丰台区民政局联合丽泽金融商务区管委会，在丽泽天空之镜观景平台举办专属颁证活动，为新人送上新婚祝福。 “云端+花艺”带来独特体验 本次活动创新打造“云端+花艺”
+连连数字（02598）公布，2026年4月9日耗资约58.41万港元回购9.6万股股份。责任编辑：卢昱君
 
 ## 正文
 
-中新网北京5月20日电(记者 徐婧)“颁证活动让两个人的喜事变成了大家的喜事，在这么多人的见证下，我们对未来充满了希望。
+连连数字（02598）公布，2026年4月9日耗资约58.41万港元回购9.6万股股份。
 
-”20日，在位于北京丽泽商务区的天空之镜观景平台，新人张女士和刘先生说。
-
-当天是婚姻登记高峰日，北京市丰台区民政局联合丽泽金融商务区管委会，在丽泽天空之镜观景平台举办专属颁证活动，为新人送上新婚祝福。
-
-“云端+花艺”带来独特体验 本次活动创新打造“云端+花艺”婚姻服务，打破传统室内领证场景的局限，将城市高空景致、花卉美学与婚姻颁证服务深度融合，为新人打造沉浸式颁证体验。
-
-活动落地丽泽天空之镜观景平台，依托得天独厚的高空视野，以蓝天白云、城市天际线为天然背景，搭配精致花艺布景，让颁证现场温馨雅致。
-
-场地内设置3米巨型戒指艺术装置，实景与镜面倒影交织形成无限符号，寓意爱情长久圆满。
-
-颁证仪式严格规范流程，深入推进婚俗改革，大力倡导简约适度、文明健康的婚俗新风，持续厚植文明婚俗理念。
-
-活动安排专业颁证员主持，有序引导新人完成入场礼成、庄严宣誓、集体诵读婚姻誓词等环节，帮助新人深刻感悟婚姻的神圣使命与家庭责任，自觉树立积极向上的婚姻观、家庭观，强化对婚姻的敬畏之心与相守初心。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-30 06:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
-- 2026-06-30 07:03 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 07:06 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 07:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 06:56 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 06:56 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-30 07:02 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-30 07:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 07:00 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-30 07:18 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
+- 2026-06-30 07:13 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-30 07:07 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 07:26 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 07:20 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 07:13 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 07:10 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
+- 2026-06-30 07:20 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 07:11 - [德约科维奇向温网对手放狠话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 07:10 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-30 07:11 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 07:09 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 07:14 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
+- 2026-06-30 07:10 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-30 07:21 - [曝灰熊将莫兰特交易至开拓者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/799252006.shtml)
-- 2026-06-30 07:13 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/9674406.shtml)
-- 2026-06-30 07:11 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.minike.top/Article/details/126942.shtml)
-- 2026-06-30 07:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/20648027.shtml)
-- 2026-06-30 07:05 - [陈睿《让好内容发生》](http://www.blog.minike.top/Article/details/4638791.shtml)
-- 2026-06-30 07:00 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/86147.shtml)
-- 2026-06-30 07:19 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/9902450.shtml)
-- 2026-06-30 06:57 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/72827.shtml)
-- 2026-06-30 07:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/52213672.shtml)
-- 2026-06-30 07:16 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/539929430.shtml)
-- 2026-06-30 07:17 - [2026MSI应援曲《如果季中成回忆》](http://www.blog.minike.top/Article/details/944974469.shtml)
-- 2026-06-30 07:01 - [张帅时隔四年晋级温网第二轮](http://www.blog.kurohicncr.top/Article/details/0733212.shtml)
-- 2026-06-30 06:54 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/651235529.shtml)
-- 2026-06-30 07:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/8674213218.shtml)
-- 2026-06-30 07:17 - [恋与深空 巧合](http://www.share.minike.top/Article/details/379679229174.shtml)
+- 2026-06-30 07:19 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/15994.shtml)
+- 2026-06-30 07:09 - [索马里女大使：想和中国一起搞事业](http://www.blog.kurohicncr.top/Article/details/1614819934.shtml)
+- 2026-06-30 07:27 - [明星大侦探第四季](http://www.share.minike.top/Article/details/11540.shtml)
+- 2026-06-30 07:01 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/289465989081.shtml)
+- 2026-06-30 07:19 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/951580306.shtml)
+- 2026-06-30 07:26 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/598569130.shtml)
+- 2026-06-30 07:17 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/30746374096.shtml)
+- 2026-06-30 07:26 - [董卿父亲报纸上发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/32146458.shtml)
+- 2026-06-30 07:08 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/328010023164.shtml)
+- 2026-06-30 07:23 - [日本世界杯淘汰赛历史0胜](http://www.share.kurohicncr.top/Article/details/16712.shtml)
+- 2026-06-30 07:21 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/014543.shtml)
+- 2026-06-30 07:18 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/6134505.shtml)
+- 2026-06-30 07:02 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/92994679.shtml)
+- 2026-06-30 07:23 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/256436181.shtml)
+- 2026-06-30 07:24 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/174389.shtml)

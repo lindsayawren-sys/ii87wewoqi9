@@ -1,57 +1,58 @@
-# 喝水越多越“排毒”？短时间过量饮水或引发低钠血症
+# 创业板指创2021年以来新高！创业板50ETF华安（159949）涨近3%成交超11亿领跑同类 科技板块再迎催化
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 国家卫生健康委19日举行新闻发布会，介绍时令节气与健康(立夏、小满)有关情况。对于夏季应该如何健康饮水和科学补水的问题，中国疾病预防控制中心研究员张岚表示，科学饮水重在适量、适时和卫生。首先，“每天喝4升水能排毒”“喝千滚水致癌”，以及“隔夜水不能喝”这些说法，目前均缺乏充分的科学依据。人体主要依靠肝脏、肾脏等器官完成代谢和排泄功能，并非喝水越多越“排毒”。
+4月10日，创业板指盘中大涨超3%突破前期高点，创2021年12月以来新高。在此背景下，创业板50ETF华安（159949）早盘涨2.86%，报1.617元，换手率5.29%，成交额11.25亿元，居同类标的ETF首位。 消息面上，教育部等五部门印发《“人工智能+教育”行动计划》，其中提到，加快普及中小学生的人工智能教育。持续完善《中小学人工智能通识教育指南》，开齐开足开好人工
 
 ## 正文
 
-中新网5月19日电 国家卫生健康委19日举行新闻发布会，介绍时令节气与健康(立夏、小满)有关情况。
+4月10日，创业板指盘中大涨超3%突破前期高点，创2021年12月以来新高。
 
-对于夏季应该如何健康饮水和科学补水的问题，中国疾病预防控制中心研究员张岚表示，科学饮水重在适量、适时和卫生。
+在此背景下，创业板50ETF华安（159949）早盘涨2.86%，报1.617元，换手率5.29%，成交额11.25亿元，居同类标的ETF首位。
 
-首先，“每天喝4升水能排毒”“喝千滚水致癌”，以及“隔夜水不能喝”这些说法，目前均缺乏充分的科学依据。
+消息面上，教育部等五部门印发《“人工智能+教育”行动计划》，其中提到，加快普及中小学生的人工智能教育。
 
-人体主要依靠肝脏、肾脏等器官完成代谢和排泄功能，并非喝水越多越“排毒”。
+持续完善《中小学人工智能通识教育指南》，开齐开足开好人工智能相关课程。
 
-相反，短时间内过量饮水反而会导致电解质紊乱，严重时甚至会引发低钠血症。
+推动人工智能教育全面纳入地方课程体系，指导各地研制人工智能课程指南，明确各学段课程目标、内容与课时要求。
 
-生活中正常反复烧开的饮用水，可能会影响到水的口感，也会造成能源的浪费。
+鼓励开展人工智能跨学科教学，推动人工智能教育融入课后服务、研学实践等环节。
 
-因此我们建议是现烧现喝，既安全又节约。
+另外，据国际能源研究机构Benchmark Mineral Intelligence预测，2026年新增装机有望突破450GWh，推动全球累计储能装机容量超过1.14TWh，行业正式迈入TWh时代。
 
-隔夜水能不能喝的关键，不在于是否隔了一夜，而在于保存的条件和放置的时间。
+中信证券研报指出，当前A股估值处于历史低位，沪深300市盈率仅11.8倍，叠加政策宽松与流动性优化，市场具备持续上行动能。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 06:55 - [巴西绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-30 07:19 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 07:09 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 07:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
-- 2026-06-30 06:59 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 07:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
-- 2026-06-30 07:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 07:01 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 07:08 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 07:04 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 07:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-30 07:01 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-30 07:12 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 07:20 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 07:18 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-30 07:19 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 07:11 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
+- 2026-06-30 07:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 07:04 - [森保一 保守](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 07:02 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 07:09 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 07:25 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:22 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/85696195.shtml)
-- 2026-06-30 07:12 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/851242.shtml)
-- 2026-06-30 07:21 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/15265.shtml)
-- 2026-06-30 07:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/396998.shtml)
-- 2026-06-30 07:11 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/219149990883.shtml)
-- 2026-06-30 07:23 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/470180760056.shtml)
-- 2026-06-30 07:21 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.kurohicncr.top/Article/details/45526.shtml)
-- 2026-06-30 07:17 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/5089215.shtml)
-- 2026-06-30 07:20 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/329371911.shtml)
-- 2026-06-30 06:55 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/2997785.shtml)
-- 2026-06-30 07:19 - [日本淘汰](http://www.share.minike.top/Article/details/2968204.shtml)
-- 2026-06-30 07:05 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/87120636355.shtml)
-- 2026-06-30 06:56 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/943500.shtml)
-- 2026-06-30 07:17 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/250096.shtml)
-- 2026-06-30 07:02 - [巴拉圭进球](http://www.share.minike.top/Article/details/707782.shtml)
+- 2026-06-30 07:17 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/5434257608.shtml)
+- 2026-06-30 07:16 - [扬名立万](http://www.share.minike.top/Article/details/620598902.shtml)
+- 2026-06-30 07:00 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/325405191.shtml)
+- 2026-06-30 07:17 - [扬名立万](http://www.blog.minike.top/Article/details/23560824761.shtml)
+- 2026-06-30 07:04 - [周生如故](https://www.share.kurohicncr.top/Article/details/88826.shtml)
+- 2026-06-30 07:17 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/82692828869.shtml)
+- 2026-06-30 07:29 - [我们的少年时代2](http://www.share.minike.top/Article/details/204779.shtml)
+- 2026-06-30 07:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/47573.shtml)
+- 2026-06-30 07:06 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/15397.shtml)
+- 2026-06-30 07:06 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/2292370419.shtml)
+- 2026-06-30 07:16 - [王菲谢霆锋十指紧扣好甜](http://www.blog.kurohicncr.top/Article/details/91045285686.shtml)
+- 2026-06-30 07:02 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/05270188.shtml)
+- 2026-06-30 07:27 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/1271180.shtml)
+- 2026-06-30 07:09 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/0578808.shtml)
+- 2026-06-30 07:06 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/053165.shtml)

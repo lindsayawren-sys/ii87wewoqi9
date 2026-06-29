@@ -1,51 +1,61 @@
-# 印尼总统证实将成立国营企业统筹核心资源出口销售
+# 海南“镇”能量：一个地瓜，创意出圈
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-印尼总统普拉博沃・苏比安托于周三在国会表示，印尼将组建一家国营企业，统一负责棕榈油、煤炭、铁合金等自然资源的出口销售业务。总统称，该政策旨在增加政府财政收入、强化监管力度、整治低价报关逃税乱象，若相关问题得到妥善解决，预计可挽回1500 亿美元经济损失。责任编辑：王永生
+中新网海南澄迈4月11日电 题：海南“镇”能量：一个地瓜，创意出圈 作者 陈英清 李宇凡 在海南省澄迈县桥头镇，圆润饱满的桥头地瓜已从昔日不起眼的土特产，发展成年产值数亿元的网红农产品，为乡村振兴注入“镇”能量。 一个地瓜，种成“网红” 澄迈是海南富硒土壤分布集中、面积较大的市县之一。得天独厚的自然条件，孕育出粉糯香甜、口感细腻的桥头地瓜。 澄迈桥头地瓜产销协会名誉会长王文克说
 
 ## 正文
 
-印尼总统普拉博沃・苏比安托于周三在国会表示，印尼将组建一家国营企业，统一负责棕榈油、煤炭、铁合金等自然资源的出口销售业务。
+中新网海南澄迈4月11日电 题：海南“镇”能量：一个地瓜，创意出圈 作者 陈英清 李宇凡 在海南省澄迈县桥头镇，圆润饱满的桥头地瓜已从昔日不起眼的土特产，发展成年产值数亿元的网红农产品，为乡村振兴注入“镇”能量。
 
-总统称，该政策旨在增加政府财政收入、强化监管力度、整治低价报关逃税乱象，若相关问题得到妥善解决，预计可挽回1500 亿美元经济损失。
+一个地瓜，种成“网红” 澄迈是海南富硒土壤分布集中、面积较大的市县之一。
 
-责任编辑：王永生
+得天独厚的自然条件，孕育出粉糯香甜、口感细腻的桥头地瓜。
+
+澄迈桥头地瓜产销协会名誉会长王文克说，桥头镇气候具有“两高一低”的特点，高温时节栽种地瓜苗，长势旺盛；低温阶段利于地瓜生长膨大和养分积累；采收期再度迎来高温，利于地瓜减少水分、提升口感。
+
+同时，桥头镇的富硒沙质土壤透气性好，桥头地瓜的硒含量更是普通地瓜的十余倍。
+
+除自然因素外，良种、良田、良法也是保障桥头地瓜品质的关键。
+
+澄迈县政府此前联合中国热带农业科学院、海南大学等科研单位成立澄迈桥头地瓜研究所。
+
+研究团队从全球各地引进各类优质地瓜品种，成功选育出适宜本地种植的优良品种。
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 07:20 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 06:58 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 07:22 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
-- 2026-06-30 07:10 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 06:55 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-30 07:18 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
-- 2026-06-30 07:11 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 06:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 07:12 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 07:12 - [巴西在进攻三区完成210脚传球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 07:15 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-30 07:14 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 06:58 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-30 07:19 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 07:19 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-30 07:23 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-30 07:12 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
+- 2026-06-30 07:04 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 07:27 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 07:07 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
+- 2026-06-30 07:13 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 07:29 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 07:24 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 07:13 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-30 07:18 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-30 07:19 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 07:13 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 07:25 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 07:11 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/736251512.shtml)
-- 2026-06-30 06:57 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/426030712530.shtml)
-- 2026-06-30 07:17 - [世界杯“美洲德比”7月1日开打](http://www.blog.kurohicncr.top/Article/details/773388.shtml)
-- 2026-06-30 06:58 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/622183.shtml)
-- 2026-06-30 07:12 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/92085614168.shtml)
-- 2026-06-30 07:11 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/152691513840.shtml)
-- 2026-06-30 07:00 - [点菜也要教吗](http://www.blog.minike.top/Article/details/9899978.shtml)
-- 2026-06-30 07:02 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/675099845966.shtml)
-- 2026-06-30 07:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/8551691193.shtml)
-- 2026-06-30 07:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/450676263.shtml)
-- 2026-06-30 07:09 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/95243.shtml)
-- 2026-06-30 07:08 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/42815868671.shtml)
-- 2026-06-30 07:16 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/5757334.shtml)
-- 2026-06-30 07:21 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.kurohicncr.top/Article/details/941069.shtml)
-- 2026-06-30 06:58 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/83708.shtml)
+- 2026-06-30 07:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/0848598.shtml)
+- 2026-06-30 07:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/68743.shtml)
+- 2026-06-30 07:21 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/75571.shtml)
+- 2026-06-30 07:10 - [有酒店推行24小时退房制](https://www.share.minike.top/Article/details/019070281.shtml)
+- 2026-06-30 07:06 - [时光音乐会](https://www.share.minike.top/Article/details/892121.shtml)
+- 2026-06-30 07:00 - [日本16强魔咒](https://www.blog.minike.top/Article/details/079323.shtml)
+- 2026-06-30 07:26 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/0582762.shtml)
+- 2026-06-30 07:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/61386589.shtml)
+- 2026-06-30 07:28 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/517381.shtml)
+- 2026-06-30 07:24 - [中国网友锐评韩国队外网爆火](https://www.share.kurohicncr.top/Article/details/95703611251.shtml)
+- 2026-06-30 07:02 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/055790226.shtml)
+- 2026-06-30 07:27 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/86721428.shtml)
+- 2026-06-30 07:09 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/3143321.shtml)
+- 2026-06-30 07:10 - [巴西vs日本首发名单](https://www.blog.minike.top/Article/details/929186576.shtml)
+- 2026-06-30 07:10 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/29386058.shtml)

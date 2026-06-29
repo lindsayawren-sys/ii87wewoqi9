@@ -1,57 +1,57 @@
-# 清华大学魏晨阳：养老金融产品设计要稳健，消费者不能仅关注短期收益丨对话五道口
+# 巴基斯坦称美伊谈判安保已到位 伊朗最高领袖提三点主张
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，2026清华五道口全球金融论坛在成都召开期间，清华大学五道口金融学院中国保险与养老金融研究中心主任、金融MBA教育中心主任魏晨阳接受红星资本局专访，就个人养老金、养老金融、养老保险等问题进行回应。 谈个人养老金缴存冷： 机构要有更多产品 红星资本局：如何看待个人养老金“开户热、缴存冷”
+中新社北京4月10日电 综合消息：据外媒10日消息，巴基斯坦表示，美伊谈判安保工作已全部安排到位。伊朗最高领袖穆杰塔巴·哈梅内伊9日发表书面讲话，提出三点主张。美国总统特朗普称，以色列同意缩减在黎巴嫩的军事行动。据外媒10日消息，巴基斯坦内政部长纳克维就即将举行的美伊谈判表示，安保工作已全部安排到位，将确保会谈安全、顺利进行。 伊朗副外长哈提卜扎德9日表示，伊朗代表团将前往伊斯
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 红星资本局5月19日消息，2026清华五道口全球金融论坛在成都召开期间，清华大学五道口金融学院中国保险与养老金融研究中心主任、金融MBA教育中心主任魏晨阳接受红星资本局专访，就个人养老金、养老金融、养老保险等问题进行回应。
+中新社北京4月10日电 综合消息：据外媒10日消息，巴基斯坦表示，美伊谈判安保工作已全部安排到位。
 
-谈个人养老金缴存冷： 机构要有更多产品 红星资本局：如何看待个人养老金“开户热、缴存冷”的现状？
+伊朗最高领袖穆杰塔巴·哈梅内伊9日发表书面讲话，提出三点主张。
 
-目前制约缴存的因素有哪些？
+美国总统特朗普称，以色列同意缩减在黎巴嫩的军事行动。
 
-魏晨阳：个人养老金从几年前开始试点，最早先解决的是制度覆盖，让开户的数量能够先多起来，接着需要在服务效果上去覆盖。
+据外媒10日消息，巴基斯坦内政部长纳克维就即将举行的美伊谈判表示，安保工作已全部安排到位，将确保会谈安全、顺利进行。
 
-现在是开户很多，放进去的钱比较少，放进去的钱配置也比较简单，总体上达到预期，但是缴存转化不足。
+伊朗副外长哈提卜扎德9日表示，伊朗代表团将前往伊斯兰堡参加和平谈判。
 
-从需求侧来看，个人需要建立个人养老金长周期配置的观念，学会在当前消费与未来养老用钱方面进行平衡，不能用短期理财的一些标准去要求养老金账户的表现。
+他强调，任何地区和平方案都必须涵盖黎巴嫩问题。
 
-从供给侧方面，机构需要有更多的产品，以及满足不同年龄段消费者期限产品的选择，此外，还需要提供更多比较透明、容易理解的风险收益解释。
+伊朗最高领袖穆杰塔巴9日晚就前任最高领袖阿里·哈梅内伊殉难40天和当前战事等议题发表书面讲话。
 
-总体上需要让消费者看得懂、选得准、拿得住。
+穆杰塔巴在讲话中悼念阿里·哈梅内伊，回顾近期局势发展，宣布伊朗民族取得“决定性胜利”，强调人民参与的重要性，并向邻国喊话，呼吁他们正确理解当前形势。
 
 ## 相关推荐
 
-- 2026-06-30 07:18 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-30 06:54 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 06:56 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 07:19 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 07:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 07:19 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 07:06 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 07:00 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 07:01 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
-- 2026-06-30 06:54 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
-- 2026-06-30 07:10 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 07:06 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eepda.md)
+- 2026-06-30 07:14 - [森保一 保守](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 07:07 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-30 07:19 - [日本五次世界杯淘汰赛全败](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 07:06 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
+- 2026-06-30 07:25 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-30 07:25 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 07:08 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 07:14 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-30 07:28 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-30 07:05 - [森保一致歉：世界第一目标没能实现](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:21 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/5407442897.shtml)
-- 2026-06-30 07:14 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/532102052338.shtml)
-- 2026-06-30 06:59 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/758348303.shtml)
-- 2026-06-30 07:07 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/39381.shtml)
-- 2026-06-30 07:15 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/1728251.shtml)
-- 2026-06-30 07:04 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/8161466042.shtml)
-- 2026-06-30 07:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/287547215175.shtml)
-- 2026-06-30 07:21 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/2242527793.shtml)
-- 2026-06-30 07:12 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/587197209.shtml)
-- 2026-06-30 07:07 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/528572648.shtml)
-- 2026-06-30 07:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/02337954.shtml)
-- 2026-06-30 07:05 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/847117.shtml)
-- 2026-06-30 07:11 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/9707386.shtml)
-- 2026-06-30 07:10 - [森保一致歉：世界第一目标没能实现](https://www.blog.minike.top/Article/details/27881014.shtml)
-- 2026-06-30 07:05 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/922900457.shtml)
+- 2026-06-30 07:10 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/5060646.shtml)
+- 2026-06-30 07:19 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/048712605515.shtml)
+- 2026-06-30 07:11 - [巴西2比1日本](http://www.share.minike.top/Article/details/2093990.shtml)
+- 2026-06-30 07:23 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/68232.shtml)
+- 2026-06-30 07:29 - [恋与深空 日服](http://www.blog.kurohicncr.top/Article/details/004777934501.shtml)
+- 2026-06-30 07:17 - [上市央企地产商 两年换了三任董事长](http://www.share.kurohicncr.top/Article/details/93265486.shtml)
+- 2026-06-30 07:18 - [日本五次世界杯淘汰赛全败](https://www.blog.kurohicncr.top/Article/details/48573434520.shtml)
+- 2026-06-30 07:27 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.minike.top/Article/details/381405250.shtml)
+- 2026-06-30 07:11 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/3196167.shtml)
+- 2026-06-30 07:29 - [孙兴慜道歉](http://www.share.minike.top/Article/details/972970021.shtml)
+- 2026-06-30 07:13 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/639968.shtml)
+- 2026-06-30 07:13 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/18478.shtml)
+- 2026-06-30 07:15 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/46910.shtml)
+- 2026-06-30 07:18 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/98964391374.shtml)
+- 2026-06-30 07:01 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/891024359.shtml)

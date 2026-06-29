@@ -1,56 +1,48 @@
-# 金石控股集团附属拟出资1000万元参与投资合伙企业
+# 北京杨柳絮满天飞
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-金石控股集团（01943）发布公告，于2026年5月16日，本公司的附属公司深圳恒宸宇（作为有限合伙人）与广东芯动能源（作为普通合伙人及执行事务合伙人）、北京国交英华（作为普通合伙人）、北京兆瑄电力（作为有限合伙人）及北京国交中兴（作为有限合伙人）订立合伙协议，以共同投资合伙企业（广州芯动长擎投资合伙企业（有限合伙）），合伙期限为十年。据此，深圳恒宸宇同意作为有限合伙人参与投资
+发布时间：2026年04月10日 15:34 来源：中国新闻网 4月10日，北京杨柳絮满天飞，市民纷纷采取防护措施，中新网走访多家药店和外卖平台，了解到药店和医疗器械店的口罩、护目镜等销量较大。有外卖小哥受柳絮困扰，选择戴口罩度过春敏期。据估计，北京飞絮期将持续约50天，建议大家做好防护。 责任编辑：【张楠】
 
 ## 正文
 
-金石控股集团（01943）发布公告，于2026年5月16日，本公司的附属公司深圳恒宸宇（作为有限合伙人）与广东芯动能源（作为普通合伙人及执行事务合伙人）、北京国交英华（作为普通合伙人）、北京兆瑄电力（作为有限合伙人）及北京国交中兴（作为有限合伙人）订立合伙协议，以共同投资合伙企业（广州芯动长擎投资合伙企业（有限合伙）），合伙期限为十年。
+发布时间：2026年04月10日 15:34 来源：中国新闻网 4月10日，北京杨柳絮满天飞，市民纷纷采取防护措施，中新网走访多家药店和外卖平台，了解到药店和医疗器械店的口罩、护目镜等销量较大。
 
-据此，深圳恒宸宇同意作为有限合伙人参与投资合伙企业，认缴出资人民币1000万元。
+有外卖小哥受柳絮困扰，选择戴口罩度过春敏期。
 
-合伙企业增资后的认缴出资总额为人民币3560万元，深圳恒宸宇将占合伙企业认缴出资总额的28.09%。
+据估计，北京飞絮期将持续约50天，建议大家做好防护。
 
-合伙企业的主要投资目的为全体合伙人认可的新能源的投资，以及合伙企业有盈余条件下的其他全体合伙人认可的新能源业务，使合伙企业取得最佳经济效益。
-
-本集团一直积极寻找具有潜力的投资机会，以拓宽本集团的收入来源并提升股东价值。
-
-合伙企业重点投资于新能源领域相关业务。
-
-董事会认为，新型储能及新能源行业受国家政策大力支持，具有广阔的市场前景和增长潜力。
-
-透过参与投资合伙企业，本集团可借助普通合伙人及其他合伙人在相关领域的专业知识及资源，以较低风险涉足新能源产业，符合本集团的长期发展战略。
+责任编辑：【张楠】
 
 ## 相关推荐
 
-- 2026-06-30 07:21 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-30 07:12 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-30 07:17 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 07:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 07:06 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 07:19 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 07:14 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 07:10 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 07:12 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 07:20 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 07:28 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-30 07:09 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 07:22 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-30 07:04 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 07:09 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 07:28 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 07:25 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-30 07:16 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 07:00 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
+- 2026-06-30 07:13 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:18 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/312079.shtml)
-- 2026-06-30 06:59 - [内马尔替补](http://www.blog.minike.top/Article/details/723520.shtml)
-- 2026-06-30 06:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/762947874.shtml)
-- 2026-06-30 07:02 - [哈弗茨头球破门](http://www.blog.kurohicncr.top/Article/details/5309726437.shtml)
-- 2026-06-30 07:16 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/58185.shtml)
-- 2026-06-30 06:55 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/335176.shtml)
-- 2026-06-30 07:17 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/878233480990.shtml)
-- 2026-06-30 07:15 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/056853395195.shtml)
-- 2026-06-30 07:20 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/33554592251.shtml)
-- 2026-06-30 07:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/79309.shtml)
-- 2026-06-30 06:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/6365461.shtml)
-- 2026-06-30 07:21 - [问心2神一集鬼三集](http://www.blog.kurohicncr.top/Article/details/8098659423.shtml)
-- 2026-06-30 07:00 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/898759764400.shtml)
-- 2026-06-30 07:20 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/349561891.shtml)
-- 2026-06-30 07:12 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/01881.shtml)
+- 2026-06-30 07:11 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/83101129382.shtml)
+- 2026-06-30 07:12 - [巴西队与日本队将展开正面对决](http://www.share.minike.top/Article/details/858117789457.shtml)
+- 2026-06-30 07:10 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/09672.shtml)
+- 2026-06-30 07:08 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/54720.shtml)
+- 2026-06-30 07:27 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/31843906492.shtml)
+- 2026-06-30 07:23 - [哈弗茨头球破门](https://www.share.kurohicncr.top/Article/details/620025.shtml)
+- 2026-06-30 07:10 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/2422532119.shtml)
+- 2026-06-30 07:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/02697538701.shtml)
+- 2026-06-30 07:12 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/54987521663.shtml)
+- 2026-06-30 07:04 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/0711342.shtml)
+- 2026-06-30 07:13 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/150348464116.shtml)
+- 2026-06-30 07:14 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/87244837.shtml)
+- 2026-06-30 07:20 - [人类...完蛋了...](https://www.share.minike.top/Article/details/24460789093.shtml)
+- 2026-06-30 07:19 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/119815272885.shtml)
+- 2026-06-30 07:00 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/89688673.shtml)

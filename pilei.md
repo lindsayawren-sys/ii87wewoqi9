@@ -1,43 +1,59 @@
-# 国家防灾减灾救灾委员会启动国家四级救灾应急响应 指导贵州做好洪涝地质灾害救助工作
+# 美国参议院金融委员会推迟了美联储提名人选的听证会
 
-> 更新时间：2026-06-30 07:24:02 UTC+8
+> 更新时间：2026-06-30 07:30:02 UTC+8
 
 ## 摘要
 
-5月19日，国家防灾减灾救灾委员会针对贵州省近期严重洪涝和地质灾害，启动国家四级救灾应急响应，派出工作组赴灾区实地查看灾情，指导和协助地方做好受灾群众基本生活保障等灾害救助工作。
+据Punchbowl News周四援引两名知情人士的消息报道，美国参议院金融委员会已不再计划于下周为美国总统特朗普提名的美联储主席人选沃什 （Kevin Warsh）召开确认听证会。截至周四晚间，该委员会尚未确定或公布听证日期，而根据其规定，听证会需提前五天通知。听证会几乎仅在周二至周四举行，因此4月21日很可能是沃什提名听证会的最早可能日期。这一延迟缩短了在现任美联储主席鲍威
 
 ## 正文
 
-5月19日，国家防灾减灾救灾委员会针对贵州省近期严重洪涝和地质灾害，启动国家四级救灾应急响应，派出工作组赴灾区实地查看灾情，指导和协助地方做好受灾群众基本生活保障等灾害救助工作。
+据Punchbowl News周四援引两名知情人士的消息报道，美国参议院金融委员会已不再计划于下周为美国总统特朗普提名的美联储主席人选沃什 （Kevin Warsh）召开确认听证会。
+
+截至周四晚间，该委员会尚未确定或公布听证日期，而根据其规定，听证会需提前五天通知。
+
+听证会几乎仅在周二至周四举行，因此4月21日很可能是沃什提名听证会的最早可能日期。
+
+这一延迟缩短了在现任美联储主席鲍威尔任期于5月15日结束前，完成参议院全面确认的时间窗口。
+
+鲍威尔曾表示，若届时沃什尚未获得确认，他将继续担任“临时”主席。
+
+该委员会尚未立即回应置评请求。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 07:08 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 07:15 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
-- 2026-06-30 07:13 - [天道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 07:23 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
-- 2026-06-30 07:02 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 07:09 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 07:17 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
-- 2026-06-30 06:59 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 07:11 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 07:11 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 07:14 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-30 07:04 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 07:05 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-30 07:20 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 07:29 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-30 07:19 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 07:20 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 07:01 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-30 07:16 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 07:24 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-30 07:23 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 07:01 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 07:12 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-30 07:07 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 07:00 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/098772917.shtml)
-- 2026-06-30 07:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/65177972.shtml)
-- 2026-06-30 07:17 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.kurohicncr.top/Article/details/94300254859.shtml)
-- 2026-06-30 07:06 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/27161.shtml)
-- 2026-06-30 06:55 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/3827725.shtml)
-- 2026-06-30 07:23 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/591327505.shtml)
-- 2026-06-30 07:12 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/9865798431.shtml)
-- 2026-06-30 06:58 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/971641991519.shtml)
-- 2026-06-30 07:06 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/860479.shtml)
-- 2026-06-30 06:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/1757640834.shtml)
-- 2026-06-30 06:59 - [天道](http://www.blog.kurohicncr.top/Article/details/16889.shtml)
-- 2026-06-30 07:15 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/713446.shtml)
-- 2026-06-30 06:56 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/882103.shtml)
-- 2026-06-30 07:00 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/729050090214.shtml)
-- 2026-06-30 07:13 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/890179.shtml)
+- 2026-06-30 07:18 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/556159.shtml)
+- 2026-06-30 07:27 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/9010420319.shtml)
+- 2026-06-30 07:29 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.minike.top/Article/details/04415.shtml)
+- 2026-06-30 07:11 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/97753665.shtml)
+- 2026-06-30 07:13 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/265272.shtml)
+- 2026-06-30 07:26 - [本届世界杯已有5名球员被控强奸](http://www.share.minike.top/Article/details/17851476.shtml)
+- 2026-06-30 07:04 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/5404501.shtml)
+- 2026-06-30 07:25 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/57084.shtml)
+- 2026-06-30 07:16 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/573393.shtml)
+- 2026-06-30 07:22 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/735297754.shtml)
+- 2026-06-30 07:24 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.blog.minike.top/Article/details/1158838501.shtml)
+- 2026-06-30 07:18 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.kurohicncr.top/Article/details/862394993982.shtml)
+- 2026-06-30 07:29 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/838557281613.shtml)
+- 2026-06-30 07:06 - [巴西绝杀日本](https://www.share.minike.top/Article/details/399193365798.shtml)
+- 2026-06-30 07:16 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/322738.shtml)
