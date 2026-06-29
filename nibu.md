@@ -1,50 +1,57 @@
-# 母亲节将至，艺术家黄河畔共话“母亲河”
+# 全国夏播进入高峰 科技赋能提质增效
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 13:01 来源：中国新闻网 近日，河南郑州。母亲节将至，多位文化艺术界人士来到黄河岸边，结合各自领域经历，讲述自己心中的黄河故事，表达对母亲河的情感认同。(记者 范晓恒) 责任编辑：【张燕玲】
+原标题：【在希望的田野上】全国夏播进入高峰 科技赋能提质增效 央视网消息(新闻联播)：农业农村部最新农情调度显示，目前全国夏播粮食进度过七成。得益于新技术和新装备的使用，今年粮食主产区的夏播品质和效率大幅提升。 夏播粮食面积占全年粮食面积的四分之一，目前中稻播栽、玉米播种已接近尾声。 黄淮海地区是我国最大的夏玉米主产区。在山东邹平的连片高标准农田里，旋耕机、整地机、播种机“接力
 
 ## 正文
 
-发布时间：2026年05月09日 13:01 来源：中国新闻网 近日，河南郑州。
+原标题：【在希望的田野上】全国夏播进入高峰 科技赋能提质增效 央视网消息(新闻联播)：农业农村部最新农情调度显示，目前全国夏播粮食进度过七成。
 
-母亲节将至，多位文化艺术界人士来到黄河岸边，结合各自领域经历，讲述自己心中的黄河故事，表达对母亲河的情感认同。
+得益于新技术和新装备的使用，今年粮食主产区的夏播品质和效率大幅提升。
 
-(记者 范晓恒) 责任编辑：【张燕玲】
+夏播粮食面积占全年粮食面积的四分之一，目前中稻播栽、玉米播种已接近尾声。
+
+黄淮海地区是我国最大的夏玉米主产区。
+
+在山东邹平的连片高标准农田里，旋耕机、整地机、播种机“接力奔跑”。
+
+今年夏播期间，新技术、新装备成为提质增效的突出亮点。
+
+眼下，河南夏季大宗作物集中播种基本结束。
+
+河南大力推广花生起垄种植、秋作物水肥一体化等新技术，应用面积超700万亩。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
-- 2026-06-30 01:35 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 01:35 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 01:52 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 01:27 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
-- 2026-06-30 01:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 01:25 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 01:49 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 01:37 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 01:43 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 01:49 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 01:52 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 01:24 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-30 01:26 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-30 01:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-30 01:57 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 01:55 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 01:33 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 01:30 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 01:47 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 01:43 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-30 01:55 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 01:49 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 01:33 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-30 01:32 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:30 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.minike.top/Article/details/55216.shtml)
-- 2026-06-30 01:51 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/6174962.shtml)
-- 2026-06-30 01:25 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/68678673.shtml)
-- 2026-06-30 01:48 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/38716399.shtml)
-- 2026-06-30 01:28 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/325722.shtml)
-- 2026-06-30 01:29 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/95270618236.shtml)
-- 2026-06-30 01:30 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/5877608214.shtml)
-- 2026-06-30 01:36 - [AI接过张雪峰志愿填报衣钵](https://www.share.kurohicncr.top/Article/details/6201915.shtml)
-- 2026-06-30 01:40 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/591669.shtml)
-- 2026-06-30 01:38 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/508665.shtml)
-- 2026-06-30 01:45 - [数据前瞻巴西VS日本](https://www.blog.kurohicncr.top/Article/details/7907980.shtml)
-- 2026-06-30 01:46 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/3556388491.shtml)
-- 2026-06-30 01:34 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/379340073.shtml)
-- 2026-06-30 01:32 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/2715908.shtml)
-- 2026-06-30 01:52 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/6373937622.shtml)
+- 2026-06-30 01:54 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/395840423743.shtml)
+- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/341761713647.shtml)
+- 2026-06-30 01:41 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/99853368080.shtml)
+- 2026-06-30 01:47 - [女心理师](https://www.share.minike.top/Article/details/014323179020.shtml)
+- 2026-06-30 01:46 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/919904730.shtml)
+- 2026-06-30 01:49 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/13103599917.shtml)
+- 2026-06-30 01:39 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/55331.shtml)
+- 2026-06-30 01:58 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/86923.shtml)
+- 2026-06-30 01:37 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/6582630204.shtml)
+- 2026-06-30 01:53 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/45039.shtml)
+- 2026-06-30 01:55 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/606322289.shtml)
+- 2026-06-30 01:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/356036346.shtml)
+- 2026-06-30 01:53 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/273590774222.shtml)
+- 2026-06-30 01:55 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/7357443707.shtml)
+- 2026-06-30 01:55 - [𝗩𝟴 'singasong' Official MV](https://www.blog.kurohicncr.top/Article/details/989385.shtml)

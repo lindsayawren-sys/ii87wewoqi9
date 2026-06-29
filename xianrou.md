@@ -1,59 +1,57 @@
-# 云创数据（835305）被预处罚，股民索赔可期
+# 何以中国·行走陵水：俄罗斯游客为何钟情来此泡温泉？
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2025年4月30日，南京云创大数据科技股份有限公司（简称：云创资源，代码：835305）发布《关于公司收到中国证券监督管理委员会江苏监管局行政处罚事先告知书的公告》。 经中国证监会江苏证监局查明，当事人涉嫌存在以下违法事实： 一、云创数据2020年至202
+中新网海南陵水6月22日电 题：何以中国·行走陵水：俄罗斯游客为何钟情来此泡温泉？ 作者 张月和 “在热带园林中泡温泉感觉非常美妙。”俄罗斯游客德米特里来到海南陵水希尔顿逸林温泉酒店，尝试了酒店所有主题的温泉泡池，“这里的生态环境非常好，我一定会再来体验”。 位于海南岛东南端的陵水黎族自治县，以滨海旅游闻名遐迩。这里的温泉体验也尤具特色，有两种选择，一是免费的原生态野趣，另一是
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网海南陵水6月22日电 题：何以中国·行走陵水：俄罗斯游客为何钟情来此泡温泉？
 
-2025年4月30日，南京云创大数据科技股份有限公司（简称：云创资源，代码：835305）发布《关于公司收到中国证券监督管理委员会江苏监管局行政处罚事先告知书的公告》。
+作者 张月和 “在热带园林中泡温泉感觉非常美妙。
 
-经中国证监会江苏证监局查明，当事人涉嫌存在以下违法事实： 一、云创数据2020年至2023年年度报告、2024年半年度报告涉嫌存在虚假记载（一）2020年至2024年6月，公司在相关业务未实际执行或无商业实质的情况下确认收入，虚增收入和利润。
+”俄罗斯游客德米特里来到海南陵水希尔顿逸林温泉酒店，尝试了酒店所有主题的温泉泡池，“这里的生态环境非常好，我一定会再来体验”。
 
-（二）2022年，公司通过虚假处置在建工程的方式虚减利润。
+位于海南岛东南端的陵水黎族自治县，以滨海旅游闻名遐迩。
 
-二、云创数据公开发行文件涉嫌编造重大虚假内容。
+这里的温泉体验也尤具特色，有两种选择，一是免费的原生态野趣，另一是奢华度假酒店的精致享受。
 
-故中国证监会江苏证监局拟决定：对云创数据及相关责任人员责令改正，给予警告，并各处以罚款。
+陵水高峰温泉度假区是海南温泉文化重要发源地之一，有大小泉眼10余处，常年涌出超80℃的泉水，富含硫、钠、锌、硫化钠等元素，具有一定的保健功能。
 
-此外，拟对部分责任人员给予证券市场禁入措施。
+陵水希尔顿逸林温泉酒店就坐落于此，成为注重高端度假体验的游客的选择。
 
-之前，2025年4月28日，云创资源发布《关于公司收到中国证券监督管理委员会立案告知书的公告》。
+这家酒店以高峰温泉为水源，打造户外独立温泉泡池，提供天然硅酸矿泉温泉浴，而深受俄罗斯游客青睐。
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
-- 2026-06-30 01:33 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 01:32 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 01:35 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 01:33 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
-- 2026-06-30 01:33 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 01:48 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
-- 2026-06-30 01:44 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 01:44 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
-- 2026-06-30 01:40 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-30 01:29 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 01:38 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-30 01:49 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 01:42 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 01:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 01:31 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-30 01:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 01:31 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
+- 2026-06-30 01:47 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-30 01:40 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 01:30 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 01:54 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 01:38 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 01:38 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/22156293.shtml)
-- 2026-06-30 01:26 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/6768233234.shtml)
-- 2026-06-30 01:51 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/48223256413.shtml)
-- 2026-06-30 01:29 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/521096.shtml)
-- 2026-06-30 01:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.kurohicncr.top/Article/details/434491630383.shtml)
-- 2026-06-30 01:41 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/8675503424.shtml)
-- 2026-06-30 01:40 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/7891238676.shtml)
-- 2026-06-30 01:44 - [庆祝中国共产党成立105周年音乐会](https://www.blog.kurohicncr.top/Article/details/702929.shtml)
-- 2026-06-30 01:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.minike.top/Article/details/7411235673.shtml)
-- 2026-06-30 01:38 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/22875864.shtml)
-- 2026-06-30 01:42 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/51972063297.shtml)
-- 2026-06-30 01:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/513517.shtml)
-- 2026-06-30 01:26 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.kurohicncr.top/Article/details/668469700117.shtml)
-- 2026-06-30 01:35 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/8345827089.shtml)
-- 2026-06-30 01:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/5363753522.shtml)
+- 2026-06-30 01:36 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/378159790320.shtml)
+- 2026-06-30 01:32 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.kurohicncr.top/Article/details/179293600455.shtml)
+- 2026-06-30 01:38 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/47154.shtml)
+- 2026-06-30 01:33 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/9996438.shtml)
+- 2026-06-30 01:32 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/396447.shtml)
+- 2026-06-30 01:38 - [王欣瑜：今年经历了一些起伏](http://www.share.kurohicncr.top/Article/details/0093127042.shtml)
+- 2026-06-30 01:45 - [这几秒成世界杯最值钱广告位](http://www.blog.kurohicncr.top/Article/details/66783995824.shtml)
+- 2026-06-30 01:56 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.minike.top/Article/details/30877538550.shtml)
+- 2026-06-30 01:56 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/8527766358.shtml)
+- 2026-06-30 01:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/70289413.shtml)
+- 2026-06-30 01:55 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/069628856646.shtml)
+- 2026-06-30 01:56 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/0656116134.shtml)
+- 2026-06-30 01:39 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/15346001.shtml)
+- 2026-06-30 01:56 - [流金岁月](https://www.share.minike.top/Article/details/710884.shtml)
+- 2026-06-30 01:38 - [荷兰vs摩洛哥前瞻](https://www.blog.kurohicncr.top/Article/details/15891.shtml)

@@ -1,59 +1,58 @@
-# 红杉、谷歌、英伟达联手押注 李飞飞站台的AI游戏平台Astrocade获5600万美元融资 8个月用户破2000万
+# SpaceX连跌三天后，“木头姐”狂买逾3200万美元
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-2026年5月6日，Astrocade正式对外披露了一笔引人注目的A轮和B轮合并融资——总计5600万美元（约4亿元人民币）。融资结构安排极为清晰：由红杉资本领投B轮，而A轮则由总部位于新加坡的Sea Limited控股实体Sea Capital领投。B轮领投方红杉资本主要押注平台规模化潜力，A轮领投方Sea Capital则将东南亚“以游戏作为娱乐基础设施”的运营经验带入董事
+马斯克旗下SpaceX股价周一暴跌逾16%，收于154.60美元，跌破上市首日收盘价，市值三天累计蒸发逾6000亿美元。 最新总市值约2.03万亿美元。 凯茜·伍德的Ark投资管理公司周一通过多只ETF大量买入SpaceX股票，包括ARK创新ETF （ARKK）、ARK 自动化技术与机器人ETF （ARKQ）、ARK下一代互联网ETF （ARKW） 和 ARK太空与国防创新ET
 
 ## 正文
 
-2026年5月6日，Astrocade正式对外披露了一笔引人注目的A轮和B轮合并融资——总计5600万美元（约4亿元人民币）。
+马斯克旗下SpaceX股价周一暴跌逾16%，收于154.60美元，跌破上市首日收盘价，市值三天累计蒸发逾6000亿美元。
 
-融资结构安排极为清晰：由红杉资本领投B轮，而A轮则由总部位于新加坡的Sea Limited控股实体Sea Capital领投。
+最新总市值约2.03万亿美元。
 
-B轮领投方红杉资本主要押注平台规模化潜力，A轮领投方Sea Capital则将东南亚“以游戏作为娱乐基础设施”的运营经验带入董事会。
+凯茜·伍德的Ark投资管理公司周一通过多只ETF大量买入SpaceX股票，包括ARK创新ETF （ARKK）、ARK 自动化技术与机器人ETF （ARKQ）、ARK下一代互联网ETF （ARKW） 和 ARK太空与国防创新ETF （ARKX）。
 
-A轮B轮合并披露，“用一轮的钱告诉市场价值已经翻了不止一轮” 值得注意的是，博满资本投资报告以2025年行业风口期的参考基准判断，此规模单轮融资已属顶配。
+此次买入总数达210121股，按收盘价计算价值约3250万美元。
 
-但Astrocade选择将A、B两轮融资合并披露，意味着A轮和B轮之间的估值差距已被投资方以合并口径默许，团队“用一轮融资公告，让市场同步知道A轮到B轮的进步，不用分两次传播”的意图十分明显。
+自上市首日股价飙升以来，SpaceX的股价一直呈下跌趋势。
 
-据公开信息，Astrocade此前于2024年6月完成1200万美元种子轮融资，投资方包括AME Cloud Ventures和英伟达旗下的NVIDIA Ventures，早期便已进入顶级资本火力范围内。
+尽管如此，这家由埃隆·马斯克领导的公司仍然是全球市值第七高的公司。
 
-Astrocade的团队结构，在AI游戏赛道的创业公司中形成了十分特别的布局。
+鉴于Ark对SpaceX的长期发展潜力持续保持信心，当前的市场环境为其提供了战略性买入机会。
 
-公司的核心创始人包括CEO Amir Sadeghian和CTO Ali Sadeghian两兄弟。
+伍德最近表示，ARK的初步研究表明，轨道数据中心可以将SpaceX的收入潜力提高到目前预测的10到20倍，使该业务成为潜在的变革性增长驱动力。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
-- 2026-06-30 01:41 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 01:38 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-30 01:35 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 01:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 01:26 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 01:49 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
-- 2026-06-30 01:24 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 01:30 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
-- 2026-06-30 01:49 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 01:51 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-30 01:37 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 01:47 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 01:30 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 01:33 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-30 01:45 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-30 01:57 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
+- 2026-06-30 01:51 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-30 01:52 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-30 01:53 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 01:33 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-30 01:55 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-30 01:33 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 01:47 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 01:36 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/346453538522.shtml)
-- 2026-06-30 01:43 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/57452281607.shtml)
-- 2026-06-30 01:27 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/63992138091.shtml)
-- 2026-06-30 01:49 - [我和我的家乡](https://www.blog.minike.top/Article/details/8749856972.shtml)
-- 2026-06-30 01:51 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/4154736883.shtml)
-- 2026-06-30 01:48 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/3303738.shtml)
-- 2026-06-30 01:40 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/0565545800.shtml)
-- 2026-06-30 01:33 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/75258289.shtml)
-- 2026-06-30 01:51 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/890528758461.shtml)
-- 2026-06-30 01:45 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/89679523420.shtml)
-- 2026-06-30 01:28 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/8390766121.shtml)
-- 2026-06-30 01:24 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/72030975.shtml)
-- 2026-06-30 01:43 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/32908.shtml)
-- 2026-06-30 01:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/602880036.shtml)
-- 2026-06-30 01:37 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/726133.shtml)
+- 2026-06-30 01:51 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/975683341.shtml)
+- 2026-06-30 01:45 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/522443301484.shtml)
+- 2026-06-30 01:31 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/34848488879.shtml)
+- 2026-06-30 01:34 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/46885667.shtml)
+- 2026-06-30 01:51 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/738832.shtml)
+- 2026-06-30 01:50 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/05662768404.shtml)
+- 2026-06-30 01:31 - [片寄凉太胖了好多](https://www.blog.minike.top/Article/details/16257892.shtml)
+- 2026-06-30 01:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/8043646803.shtml)
+- 2026-06-30 01:38 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/10008457893.shtml)
+- 2026-06-30 01:42 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/8617877638.shtml)
+- 2026-06-30 01:49 - [第一炉香](https://www.share.minike.top/Article/details/95299.shtml)
+- 2026-06-30 01:47 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/15024572.shtml)
+- 2026-06-30 01:51 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/643298.shtml)
+- 2026-06-30 01:55 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/4151691887.shtml)
+- 2026-06-30 01:57 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/05118.shtml)

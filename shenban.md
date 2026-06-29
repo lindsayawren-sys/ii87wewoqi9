@@ -1,48 +1,60 @@
-# 菲律宾众议院通过副总统莎拉弹劾案
+# 探访吉林舒兰原生野山参展馆：“参王”串起千年参脉
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网5月11日电 据法新社报道，菲律宾众议院11日通过对副总统莎拉·杜特尔特的弹劾案，该案后续将递交参议院审理。报道指出，这令莎拉·杜特尔特参加2028年菲律宾总统选举的计划蒙上阴影。 据此前报道，莎拉·杜特尔特是菲律宾前总统杜特尔特的女儿，杜特尔特目前被关押在海牙。独立民意调查显示，莎拉·杜特尔特是2028年菲律宾总统选举的有力竞争者。
+中新网吉林6月23日电 题：探访吉林舒兰原生野山参展馆：“参王”串起千年参脉 中新网记者 苍雁 石洪宇 仲夏时节，吉林省舒兰市上营镇群山环抱间，一座原生野山参展馆持续迎来中外游客。场馆采用赣派庭院融合东北民居设计，建筑与四周苍翠山林浑然相融。 走进展馆，“镇馆之宝”——一株千年野山参静静陈列于中央展柜，根须舒展、体态灵动。这株“参王”曾亮相长春国际医药健康产业博览会，吸引海内外
 
 ## 正文
 
-中新网5月11日电 据法新社报道，菲律宾众议院11日通过对副总统莎拉·杜特尔特的弹劾案，该案后续将递交参议院审理。
+中新网吉林6月23日电 题：探访吉林舒兰原生野山参展馆：“参王”串起千年参脉 中新网记者 苍雁 石洪宇 仲夏时节，吉林省舒兰市上营镇群山环抱间，一座原生野山参展馆持续迎来中外游客。
 
-报道指出，这令莎拉·杜特尔特参加2028年菲律宾总统选举的计划蒙上阴影。
+场馆采用赣派庭院融合东北民居设计，建筑与四周苍翠山林浑然相融。
 
-据此前报道，莎拉·杜特尔特是菲律宾前总统杜特尔特的女儿，杜特尔特目前被关押在海牙。
+走进展馆，“镇馆之宝”——一株千年野山参静静陈列于中央展柜，根须舒展、体态灵动。
 
-独立民意调查显示，莎拉·杜特尔特是2028年菲律宾总统选举的有力竞争者。
+这株“参王”曾亮相长春国际医药健康产业博览会，吸引海内外客商关注。
+
+以这株镇馆“参王”为线索，整座展馆完整铺展绵延千年的人参文脉。
+
+漫步展厅，一条清晰的时间轴徐徐铺展，完整呈现人参文化脉络：从神农传说、清代贡山疆域图，到传统放山工具、现代精深加工工艺。
+
+这座藏于群山之间的特色文博场馆，完整还原舒兰野山参的“前世今生”。
+
+展馆不仅系统梳理舒兰人参千年历史脉络，更清晰标注出舒兰在吉林人参产业版图中的独特区位优势。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 01:53 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
-- 2026-06-30 01:52 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-30 01:36 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 01:45 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 01:32 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 01:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 01:45 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
-- 2026-06-30 01:41 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 01:35 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dakhr.md)
+- 2026-06-30 01:56 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 01:47 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 01:51 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-30 01:43 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-30 01:42 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 01:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 01:43 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
+- 2026-06-30 01:30 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
+- 2026-06-30 01:47 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-30 01:55 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 01:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 01:53 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 01:37 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-30 01:44 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/2568239103.shtml)
-- 2026-06-30 01:40 - [美人鱼](http://www.blog.minike.top/Article/details/353428056.shtml)
-- 2026-06-30 01:43 - [港股科技股强势反弹](http://www.share.minike.top/Article/details/785763583648.shtml)
-- 2026-06-30 01:33 - [汪苏泷年度歌手](http://www.blog.kurohicncr.top/Article/details/0490335.shtml)
-- 2026-06-30 01:36 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/3213318226.shtml)
-- 2026-06-30 01:39 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/98859724.shtml)
-- 2026-06-30 01:49 - [演员都来上音综的原因](https://www.blog.kurohicncr.top/Article/details/52944404142.shtml)
-- 2026-06-30 01:44 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/0806685.shtml)
-- 2026-06-30 01:42 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/5371849298.shtml)
-- 2026-06-30 01:37 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/77553321.shtml)
-- 2026-06-30 01:25 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/642068872192.shtml)
-- 2026-06-30 01:30 - [沙丘](https://www.share.minike.top/Article/details/977136400229.shtml)
-- 2026-06-30 01:31 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/63798614.shtml)
-- 2026-06-30 01:29 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/06311.shtml)
-- 2026-06-30 01:38 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.kurohicncr.top/Article/details/60505995217.shtml)
+- 2026-06-30 01:33 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/0998452661.shtml)
+- 2026-06-30 01:58 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/1995537.shtml)
+- 2026-06-30 01:40 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/284808514025.shtml)
+- 2026-06-30 01:33 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/43343850.shtml)
+- 2026-06-30 01:31 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.minike.top/Article/details/05634.shtml)
+- 2026-06-30 01:41 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/1368228824.shtml)
+- 2026-06-30 01:45 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/656074385225.shtml)
+- 2026-06-30 01:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/1934316339.shtml)
+- 2026-06-30 01:48 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/8159975.shtml)
+- 2026-06-30 01:54 - [沉睡花园](http://www.blog.minike.top/Article/details/80465852.shtml)
+- 2026-06-30 01:56 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/187187076.shtml)
+- 2026-06-30 01:53 - [博世们还在犹豫 美的们已经卖断货](https://www.share.minike.top/Article/details/980891584598.shtml)
+- 2026-06-30 01:50 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/61786932142.shtml)
+- 2026-06-30 01:53 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/4841482830.shtml)
+- 2026-06-30 01:59 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/771552287369.shtml)

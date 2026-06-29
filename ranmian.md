@@ -1,59 +1,58 @@
-# 捷克央行发布最新经济预测，称将视能源价格走势灵活调整货币政策
+# 申万期货：油价超跌了吗
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-捷克国家银行（CNB）当地时间11日在与分析师举行的会议上发布最新经济预测报告，提出基于能源价格波动的多种政策预案。捷克央行官员强调，尽管中东冲突导致国际油价走高并带来通胀风险，但央行目前仍处于“舒适区间”，暂无急于收紧货币政策的压力。 捷克央行上周四投票决定维持基准利率在3.50%不变。尽管其基准预测显示本季度市场利率或有约50个基点的上行空间，但决策层在此次会议上重申了审慎
+来源：宏观与商品 摘要 当前市场形成一致预期：海峡通航恢复后，OPEC增产叠加伊朗制裁解除带来增量供应，足以对冲库存回补与下游需求复苏，油价将持续走弱。但从航道地缘风险、下游价差结构、全球库存缺口、中长期供需重构四大维度拆解后，本文认为当前市场过度定价和平预期，原油不存在持续性超跌基础，短期行情存在反复，依托冲突前500元/桶的价格逢低做多具备安全边际。 风险提示：1、地缘政治
 
 ## 正文
 
-捷克国家银行（CNB）当地时间11日在与分析师举行的会议上发布最新经济预测报告，提出基于能源价格波动的多种政策预案。
+来源：宏观与商品 摘要 当前市场形成一致预期：海峡通航恢复后，OPEC增产叠加伊朗制裁解除带来增量供应，足以对冲库存回补与下游需求复苏，油价将持续走弱。
 
-捷克央行官员强调，尽管中东冲突导致国际油价走高并带来通胀风险，但央行目前仍处于“舒适区间”，暂无急于收紧货币政策的压力。
+但从航道地缘风险、下游价差结构、全球库存缺口、中长期供需重构四大维度拆解后，本文认为当前市场过度定价和平预期，原油不存在持续性超跌基础，短期行情存在反复，依托冲突前500元/桶的价格逢低做多具备安全边际。
 
-捷克央行上周四投票决定维持基准利率在3.50%不变。
+风险提示：1、地缘政治变化；2、市场有效需求不足；3、相关政策落地力度不及预期。
 
-尽管其基准预测显示本季度市场利率或有约50个基点的上行空间，但决策层在此次会议上重申了审慎观望的立场。
+近期布伦特原油自118美元/桶高点快速回落至76美元附近，国内SC原油跌幅更大，从848元/桶回落至500元/桶，基本回落至战前水平。
 
-捷克央行副行长埃娃·扎姆拉齐洛娃在会上指出，与2022年乌克兰危机爆发后的能源价格冲击相比，捷克当前的货币政策环境更为稳健。
+那么油价是否超跌了呢，市场是否存在过度反应？
 
-她表示，捷克通胀率已连续两年多接近2%的政策目标，且实际利率维持在正值区间。
+这个问题其实可以拆解成4个小问题。
 
-扎姆拉齐洛娃强调，央行已做好充分准备，将根据实际需要随时做出政策反应，但目前“不急于加息”。
+一、海峡是否已经解封，后续有没有再次封锁的可能 霍尔木兹海峡承担全球27%海运原油、20%液化天然气运输，冲突前日均原油外运量2000万桶，是全球能源核心命脉。
 
-针对中东地缘政治局势及关键航道安全对全球能源市场的潜在威胁，捷克央行在此次预测中构建了不同的替代情境：若能源价格受冲突影响持续攀升，央行或将不得不转入加息路径；若价格回落，市场利率则存在小幅下调的可能。
+本轮美伊以冲突爆发三个月以来，海峡实际通航船舶从日均100艘骤降至不足20艘，单日原油外运量最低跌至300万桶，直接推动布伦特从70美元冲高至118美元高位。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 01:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 01:35 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 01:48 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 01:36 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
-- 2026-06-30 01:35 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 01:34 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-30 01:27 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 01:32 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 01:31 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
-- 2026-06-30 01:26 - [曼城官宣马雷斯卡出任主教练](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 01:25 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 01:48 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 01:46 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:31 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-30 01:37 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 01:40 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 01:48 - [当语文老师求助数学老师...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-30 01:57 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 01:48 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-30 01:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yougai.md)
+- 2026-06-30 01:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 01:58 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-30 01:48 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 01:32 - [格莱美唱作人锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/15496105600.shtml)
-- 2026-06-30 01:49 - [扬名立万](https://www.share.minike.top/Article/details/71531687941.shtml)
-- 2026-06-30 01:28 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/872276.shtml)
-- 2026-06-30 01:37 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/7526667333.shtml)
-- 2026-06-30 01:25 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/630820660.shtml)
-- 2026-06-30 01:25 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/11730.shtml)
-- 2026-06-30 01:28 - [日本反击率先破门](http://www.share.minike.top/Article/details/100640.shtml)
-- 2026-06-30 01:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/7823398095.shtml)
-- 2026-06-30 01:38 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/02293.shtml)
-- 2026-06-30 01:53 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/6680323.shtml)
-- 2026-06-30 01:53 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/5980295895.shtml)
-- 2026-06-30 01:28 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/970057.shtml)
-- 2026-06-30 01:47 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/6824131.shtml)
-- 2026-06-30 01:52 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/60534557400.shtml)
-- 2026-06-30 01:38 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/5730864.shtml)
+- 2026-06-30 01:52 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/08282904.shtml)
+- 2026-06-30 01:59 - [UP主复刻百万英镑牛排套餐](http://www.blog.kurohicncr.top/Article/details/72009823755.shtml)
+- 2026-06-30 01:57 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/202460205137.shtml)
+- 2026-06-30 01:54 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/934585.shtml)
+- 2026-06-30 01:56 - [问心2金世佳追妻火葬场](http://www.blog.minike.top/Article/details/5770524.shtml)
+- 2026-06-30 01:36 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/1408495.shtml)
+- 2026-06-30 01:53 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.kurohicncr.top/Article/details/918625.shtml)
+- 2026-06-30 01:42 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/76264.shtml)
+- 2026-06-30 01:48 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/66544482.shtml)
+- 2026-06-30 01:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/0242044.shtml)
+- 2026-06-30 01:47 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/570383.shtml)
+- 2026-06-30 01:31 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/85105.shtml)
+- 2026-06-30 01:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/742169928.shtml)
+- 2026-06-30 01:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/54912408.shtml)
+- 2026-06-30 01:58 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/78454110.shtml)

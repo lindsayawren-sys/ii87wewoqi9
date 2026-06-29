@@ -1,60 +1,53 @@
-# 13年后再看话剧《青蛇》 国话“00后”演员挑大梁
+# “中国枸杞之乡”启动枸杞全年全域推介活动
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 (记者 应妮)由中国国家话剧院出品、演出的话剧《青蛇》8日在京举行新闻发布会。该剧由“00后”演员组成全新阵容并融入先进数字技术，将于6月3日在成都开启全国首演。 话剧《青蛇》首演于2013年，由导演田沁鑫根据香港作家李碧华同名作品改编，以传统民间故事为基础，融合东方美学与戏剧表达，袁泉、秦海璐、辛柏青、董畅等实力派演员倾情献演。该剧自首演以来持续受到观众
+中新网宁夏中宁6月21日电 (杨迪 孔婷婷 李晓歌)宁夏枸杞、中宁枸杞推介启动仪式21日在宁夏中卫市中宁县举行，“中国枸杞之乡”同步启动2026枸杞全年全域推介行动，创新推出消费促进模式，拓展海内外市场渠道。 中宁县枸杞产业稳步发展，全产业链综合产值突破130亿元，“中宁枸杞”区域公用品牌价值突破206亿元，跻身中国地理标志区域品牌价值榜前十。 中宁枸杞将于2026年下半年走进
 
 ## 正文
 
-中新网北京5月9日电 (记者 应妮)由中国国家话剧院出品、演出的话剧《青蛇》8日在京举行新闻发布会。
+中新网宁夏中宁6月21日电 (杨迪 孔婷婷 李晓歌)宁夏枸杞、中宁枸杞推介启动仪式21日在宁夏中卫市中宁县举行，“中国枸杞之乡”同步启动2026枸杞全年全域推介行动，创新推出消费促进模式，拓展海内外市场渠道。
 
-该剧由“00后”演员组成全新阵容并融入先进数字技术，将于6月3日在成都开启全国首演。
+中宁县枸杞产业稳步发展，全产业链综合产值突破130亿元，“中宁枸杞”区域公用品牌价值突破206亿元，跻身中国地理标志区域品牌价值榜前十。
 
-话剧《青蛇》首演于2013年，由导演田沁鑫根据香港作家李碧华同名作品改编，以传统民间故事为基础，融合东方美学与戏剧表达，袁泉、秦海璐、辛柏青、董畅等实力派演员倾情献演。
+中宁枸杞将于2026年下半年走进广东广州、江苏南京、安徽亳州等地，覆盖中药材集散、大众消费等赛道，展出干果、原浆、康养衍生品等120余种产品，并通过短视频科普、达人探店、平台优惠券等方式打通线上消费渠道。
 
-该剧自首演以来持续受到观众热切关注。
+中宁县还将同步打造“枸杞+文旅+康养”融合推介模式，开放枸杞庄园采摘、农耕研学线路，以文旅体验带动产品销售。
 
-中国国家话剧院院长田沁鑫表示，此次重排强调“全新”而非复刻，希望通过青年演员和新的舞台技术，探索经典作品的当代表达。
+活动现场还联合“宁夏枸杞”“中宁枸杞”商标授权企业代表，同步发布《全国枸杞产业联盟建设倡议书》，呼吁各产区统一行业标准、共享溯源大数据，组建全国枸杞产业联盟，组团开拓高端商超、医药连锁、新零售及跨境海外市场，提升行业市场占有率与国际话语权。
 
-国话也将加大对青年戏剧工作者的培养力度，努力为他们提供更多展示才华的舞台和机会。
-
-发布会上，在原版《青蛇》中饰演白蛇的袁泉表示，创作过程一定是非常艰辛的，或许会有自我怀疑和困惑，但这是必经之路；当跟着导演的思路慢慢摸索，你会发现自己在角色中生长起来，这个过程非常珍贵。
-
-辛柏青不仅是原版中法海的饰演者，此次还担任重排版的表演指导，他表示，青年演员在理解力和表现力方面展现出较强潜力，并对这一版《青蛇》充满信心。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-30 01:26 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 01:41 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 01:43 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
-- 2026-06-30 01:33 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 01:32 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 01:35 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-30 01:26 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 01:47 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gimww.md)
-- 2026-06-30 01:43 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 01:52 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-30 01:49 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-30 01:36 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 01:24 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 01:37 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 01:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
+- 2026-06-30 01:47 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 01:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 01:47 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-30 01:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-30 01:44 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
+- 2026-06-30 01:35 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 01:45 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-30 01:47 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 01:41 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.minike.top/Article/details/05442238.shtml)
-- 2026-06-30 01:34 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/117740269370.shtml)
-- 2026-06-30 01:39 - [女心理师](https://www.blog.kurohicncr.top/Article/details/37179.shtml)
-- 2026-06-30 01:35 - [老人喝隔夜排骨汤喝进医院](https://www.share.kurohicncr.top/Article/details/063710970.shtml)
-- 2026-06-30 01:29 - [急先锋](https://www.blog.kurohicncr.top/Article/details/96253.shtml)
-- 2026-06-30 01:39 - [腾讯与长鑫存储签200亿大单](https://www.share.minike.top/Article/details/86852565.shtml)
-- 2026-06-30 01:27 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/77657486430.shtml)
-- 2026-06-30 01:46 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/5577714.shtml)
-- 2026-06-30 01:53 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/79072915.shtml)
-- 2026-06-30 01:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/31938820.shtml)
-- 2026-06-30 01:39 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/17780045.shtml)
-- 2026-06-30 01:32 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.kurohicncr.top/Article/details/73827115.shtml)
-- 2026-06-30 01:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/24020.shtml)
-- 2026-06-30 01:41 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/42050236.shtml)
-- 2026-06-30 01:49 - [DRG官宣选手Akeman离队](https://www.share.kurohicncr.top/Article/details/973724.shtml)
+- 2026-06-30 01:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/75180.shtml)
+- 2026-06-30 01:30 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/675128504.shtml)
+- 2026-06-30 01:34 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/4568083621.shtml)
+- 2026-06-30 01:42 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/136376064.shtml)
+- 2026-06-30 01:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/12345485359.shtml)
+- 2026-06-30 01:45 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/036654581269.shtml)
+- 2026-06-30 01:58 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/29205.shtml)
+- 2026-06-30 01:42 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/973284619.shtml)
+- 2026-06-30 01:37 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/65813.shtml)
+- 2026-06-30 01:50 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/124540194958.shtml)
+- 2026-06-30 01:41 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/71245220607.shtml)
+- 2026-06-30 01:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/20883055637.shtml)
+- 2026-06-30 01:40 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/8159023060.shtml)
+- 2026-06-30 01:54 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/996248.shtml)
+- 2026-06-30 01:43 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/926903626.shtml)

@@ -1,52 +1,61 @@
-# 景顺长城全球芯片LOF（501225）发停牌公告：因大幅溢价！5月11日自13:00至15:00收市停牌
+# 中国北疆内蒙古出招应对蒿草花粉过敏
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-5月11日，景顺长城基金管旗下全球芯片LOF（501225）市场交易价格明显高于基金份额净值，出现较大幅度溢价。2026年5月11日中午收盘，基金二级市场的最新成交价为4.287元，截至2026年5月7日，该基金基金份额净值为2.9178元。 特此郑重提醒广大投资者，应密切关注二级市场交易价格溢价风险，审慎做出投资决策，如盲目投资，后续可能遭受重大损失。为保护投资者利益，全球芯
+中新网呼和浩特6月22日电 题：中国北疆内蒙古出招应对蒿草花粉过敏 中新网记者 李爱平 每年7月至9月，内蒙古自治区民众蒿草花粉过敏症高发，中新网记者走访呼和浩特、包头、鄂尔多斯3地发现，各地正在出招应对蒿草花粉过敏。 在内蒙古首府呼和浩特市，自今年3月起，当地对全市蒿草分布进行排查，确定26处重点区域，4月底完成首轮清理，涉及致敏蒿草绿地323公顷。针对蒿草易复生特性，当地对
 
 ## 正文
 
-5月11日，景顺长城基金管旗下全球芯片LOF（501225）市场交易价格明显高于基金份额净值，出现较大幅度溢价。
+中新网呼和浩特6月22日电 题：中国北疆内蒙古出招应对蒿草花粉过敏 中新网记者 李爱平 每年7月至9月，内蒙古自治区民众蒿草花粉过敏症高发，中新网记者走访呼和浩特、包头、鄂尔多斯3地发现，各地正在出招应对蒿草花粉过敏。
 
-2026年5月11日中午收盘，基金二级市场的最新成交价为4.287元，截至2026年5月7日，该基金基金份额净值为2.9178元。
+在内蒙古首府呼和浩特市，自今年3月起，当地对全市蒿草分布进行排查，确定26处重点区域，4月底完成首轮清理，涉及致敏蒿草绿地323公顷。
 
-特此郑重提醒广大投资者，应密切关注二级市场交易价格溢价风险，审慎做出投资决策，如盲目投资，后续可能遭受重大损失。
+针对蒿草易复生特性，当地对三环路、巴彦路沿线16万平方米地块翻土处理，清运杂草杂物150余车，通过断根和晾晒减少再生。
 
-为保护投资者利益，全球芯片LOF（501225）将于2026年5月11日下午开市起停牌至当日收市，停牌期间本基金赎回业务照常办理。
+“蒿草是内蒙古主要致敏源，花粉症高发季期间，极易引发大范围过敏性鼻炎、哮喘等疾病，波及民众众多，不仅严重影响民众出行、学习与生活，还大幅增加医疗资源消耗，成为突出的季节性公共卫生难题。
 
-资风险，由投资者自行负责。
+”内蒙古自治区人民医院呼吸与危重症医学科主任医师刘慧招说。
 
-责任编辑：石秀珍 SF183
+距呼和浩特约170公里的包头市也开始蒿草治理，近期该市在主城区启动集中清理行动，组织工作人员、环卫人员和志愿者参与，覆盖绿化带、居民区、城中村、河湖滩涂及闲置地块，实行随清随运避免花粉二次飘散。
+
+据介绍，包头市已按区域划分责任，今年7月中旬前完成重点区域清除，8月至9月花粉高峰期持续巡查补充清理。
+
+与包头相邻的鄂尔多斯市，近九成过敏性鼻炎病例与蒿草花粉相关。
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 01:46 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 01:34 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
-- 2026-06-30 01:27 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-30 01:45 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-30 01:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 01:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 01:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 01:40 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 01:49 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 01:50 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 01:57 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 01:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 01:44 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-30 01:37 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 01:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 01:42 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 01:32 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-30 01:37 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
+- 2026-06-30 01:34 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-30 01:42 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-30 01:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 01:32 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 01:56 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 01:41 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/70731.shtml)
-- 2026-06-30 01:48 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/11641207872.shtml)
-- 2026-06-30 01:53 - [天道](https://www.blog.minike.top/Article/details/17716.shtml)
-- 2026-06-30 01:39 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/4467898.shtml)
-- 2026-06-30 01:50 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/2806993.shtml)
-- 2026-06-30 01:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/941177136508.shtml)
-- 2026-06-30 01:51 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/956593332.shtml)
-- 2026-06-30 01:45 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/778960.shtml)
-- 2026-06-30 01:44 - [赵丽颖风吹半夏含金量还在上升](http://www.blog.minike.top/Article/details/88811.shtml)
-- 2026-06-30 01:42 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/032127.shtml)
-- 2026-06-30 01:27 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/915417.shtml)
-- 2026-06-30 01:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/43690921277.shtml)
-- 2026-06-30 01:37 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/57870902.shtml)
-- 2026-06-30 01:35 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/75796623.shtml)
-- 2026-06-30 01:31 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/895764.shtml)
+- 2026-06-30 01:33 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/573786079.shtml)
+- 2026-06-30 01:46 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.minike.top/Article/details/50579055.shtml)
+- 2026-06-30 01:57 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/33412806158.shtml)
+- 2026-06-30 01:43 - [急先锋](https://www.share.minike.top/Article/details/544813.shtml)
+- 2026-06-30 01:40 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/2765416.shtml)
+- 2026-06-30 01:46 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/61787222883.shtml)
+- 2026-06-30 01:55 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/6321051.shtml)
+- 2026-06-30 01:45 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/246838.shtml)
+- 2026-06-30 01:34 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.minike.top/Article/details/64534037.shtml)
+- 2026-06-30 01:48 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/18144.shtml)
+- 2026-06-30 01:39 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/357866.shtml)
+- 2026-06-30 01:50 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/22797.shtml)
+- 2026-06-30 01:45 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/4428357023.shtml)
+- 2026-06-30 01:48 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/0787531589.shtml)
+- 2026-06-30 01:34 - [当语文老师求助数学老师...](http://www.blog.minike.top/Article/details/875093355399.shtml)

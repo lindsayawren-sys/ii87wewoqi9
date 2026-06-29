@@ -1,46 +1,50 @@
-# 北京科博会上花钱买不来的“首台套” 有的成果从“0”到“1”花了30年
+# 长三角铁路端午假期发送旅客逾1690万人次
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 22:32 来源：中国新闻网 5月8日至10日，第二十八届北京科博会开幕，现场多款“首台套”科技产品引发关注。全球最高最大巨型超高仿真人形机器人、突破“卡脖子”技术的靶材、2万次运动误差不超过0.2毫秒的灵巧手……这些技术创新背后有哪些故事，走进科博会现场一探究竟。(记者 卢晓娜 谢龙飞 马倩倩(实习生)北京报道) 责任编辑：【付子豪】
+中新社上海6月23日电 (谢梦圆)记者23日从中国铁路上海局集团有限公司获悉，为期五天的端午假期运输于6月22日落幕，长三角铁路共发送旅客逾1690万人次，日均超338万人次，较去年同期多逾75万人次，增幅超4%，跨区域人员流动量更为频密。其中，端午节(6月19日)当天发送旅客403.1万人次，创历年端午假期运输单日旅客发送量新高。 今年端午假期运输略晚于去年，恰逢全国高考结束
 
 ## 正文
 
-发布时间：2026年05月09日 22:32 来源：中国新闻网 5月8日至10日，第二十八届北京科博会开幕，现场多款“首台套”科技产品引发关注。
+中新社上海6月23日电 (谢梦圆)记者23日从中国铁路上海局集团有限公司获悉，为期五天的端午假期运输于6月22日落幕，长三角铁路共发送旅客逾1690万人次，日均超338万人次，较去年同期多逾75万人次，增幅超4%，跨区域人员流动量更为频密。
 
-全球最高最大巨型超高仿真人形机器人、突破“卡脖子”技术的靶材、2万次运动误差不超过0.2毫秒的灵巧手……这些技术创新背后有哪些故事，走进科博会现场一探究竟。
+其中，端午节(6月19日)当天发送旅客403.1万人次，创历年端午假期运输单日旅客发送量新高。
 
-(记者 卢晓娜 谢龙飞 马倩倩(实习生)北京报道) 责任编辑：【付子豪】
+今年端午假期运输略晚于去年，恰逢全国高考结束，学生客流出行大幅增加，客流成分变化明显，假期运输形成持续高峰。
+
+假期运输五天，长三角多地前往北京、广州、福州、厦门、青岛、长沙等直通方向客流火爆；长三角管内往来上海、南京、杭州、合肥、苏州、无锡、扬州、黄山、盐城、芜湖、安庆、连云港等地客流增幅明显。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
-- 2026-06-30 01:47 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
-- 2026-06-30 01:53 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-30 01:24 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 01:45 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 01:43 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
-- 2026-06-30 01:53 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 01:34 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 01:30 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-30 01:27 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
+- 2026-06-30 01:49 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
+- 2026-06-30 01:33 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-30 01:57 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 01:39 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:58 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 01:47 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 01:55 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 01:46 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 01:56 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 01:34 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/972874814.shtml)
-- 2026-06-30 01:42 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/6714770028.shtml)
-- 2026-06-30 01:30 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/144104231606.shtml)
-- 2026-06-30 01:41 - [医药暴涨5.91%背后](https://www.blog.minike.top/Article/details/19886053.shtml)
-- 2026-06-30 01:46 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/644284231760.shtml)
-- 2026-06-30 01:53 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/948244163103.shtml)
-- 2026-06-30 01:39 - [中国代表在联合国点名日本所犯罪行](https://www.blog.kurohicncr.top/Article/details/267813.shtml)
-- 2026-06-30 01:52 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/861820.shtml)
-- 2026-06-30 01:46 - [一见倾心](https://www.share.minike.top/Article/details/60496.shtml)
-- 2026-06-30 01:28 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/98693.shtml)
-- 2026-06-30 01:36 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/98765812985.shtml)
-- 2026-06-30 01:47 - [媒体：日本边磨刀边要货是做梦](http://www.blog.kurohicncr.top/Article/details/267131194.shtml)
-- 2026-06-30 01:46 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/72813459158.shtml)
-- 2026-06-30 01:39 - [李在明向韩国两大财阀90度鞠躬](https://www.blog.kurohicncr.top/Article/details/64322959.shtml)
-- 2026-06-30 01:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/39137.shtml)
+- 2026-06-30 01:43 - [俄军1周发射上千架无人机有何目的](http://www.share.minike.top/Article/details/377868944.shtml)
+- 2026-06-30 01:58 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/65385013.shtml)
+- 2026-06-30 01:42 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/28767714.shtml)
+- 2026-06-30 01:40 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.kurohicncr.top/Article/details/38987509.shtml)
+- 2026-06-30 01:34 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/247650626237.shtml)
+- 2026-06-30 01:47 - [Prada在内娱首度签下偶像团体](https://www.blog.kurohicncr.top/Article/details/9613109.shtml)
+- 2026-06-30 01:34 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/1583352309.shtml)
+- 2026-06-30 01:32 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/271319770786.shtml)
+- 2026-06-30 01:44 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/4109269630.shtml)
+- 2026-06-30 01:38 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/52797785111.shtml)
+- 2026-06-30 01:56 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/115452425467.shtml)
+- 2026-06-30 01:59 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/33029.shtml)
+- 2026-06-30 01:59 - [本届世界杯已有5名球员被控强奸](http://www.blog.minike.top/Article/details/63232144117.shtml)
+- 2026-06-30 01:39 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/43844.shtml)
+- 2026-06-30 01:40 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/9836874360.shtml)

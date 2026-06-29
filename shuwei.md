@@ -1,58 +1,58 @@
-# 一周展望：聚焦中美！地缘局势迎来转折点？
+# 博时基金市场异动陪伴6月23日：沪深三大指数下跌，深证成指、创业板指均跌超3%
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-撰文：嘉盛集团资深分析师Jerry Chen 中东和平曙光和强劲科技股财报推动全球主要股市上周继续冲高，能源价格则震荡下行，贵金属显著反弹。这样的走势本周能否延续？ 本周特朗普访华、美伊脆弱的停火现状、中美CPI、科技股财报等可能带来众多变数。 特朗普访华前美伊继续拉锯 特朗普拒绝了伊朗对和谈提议的回应，称“完全无法接受”，这令和平协议的希望暂时落空。 据伊朗官媒报道，伊朗的主
+♨博时基金市场异动陪伴 🔆市场表现： 6月23日，沪深三大指数下跌，深证成指、创业板指均跌超3%。 👉解析： ‼今日A股三大指数全线调整，创业板指跌超3.8%领跌，主要受海外科技股情绪传导与内部资金行为共振影响。 隔夜美股纳指跌1.32%，科技巨头集体大幅回调，直接触发因素包括SpaceX超200亿美元债券发行打破市场对其现金充沛的预期，以及谷歌核心AI人才持续流失引发市场对其
 
 ## 正文
 
-撰文：嘉盛集团资深分析师Jerry Chen 中东和平曙光和强劲科技股财报推动全球主要股市上周继续冲高，能源价格则震荡下行，贵金属显著反弹。
+♨博时基金市场异动陪伴 🔆市场表现： 6月23日，沪深三大指数下跌，深证成指、创业板指均跌超3%。
 
-这样的走势本周能否延续？
+👉解析： ‼今日A股三大指数全线调整，创业板指跌超3.8%领跌，主要受海外科技股情绪传导与内部资金行为共振影响。
 
-本周特朗普访华、美伊脆弱的停火现状、中美CPI、科技股财报等可能带来众多变数。
+隔夜美股纳指跌1.32%，科技巨头集体大幅回调，直接触发因素包括SpaceX超200亿美元债券发行打破市场对其现金充沛的预期，以及谷歌核心AI人才持续流失引发市场对其AI竞争力的担忧等。
 
-特朗普访华前美伊继续拉锯 特朗普拒绝了伊朗对和谈提议的回应，称“完全无法接受”，这令和平协议的希望暂时落空。
+更深层原因在于，美联储6月议息会议声明删除“宽松倾向”表述，点阵图显示通胀预测全面上修，市场对年内加息预期仍有抬升。
 
-据伊朗官媒报道，伊朗的主张包括战争赔偿、霍尔木兹海峡主权、取消对伊朗的制裁和石油销售禁令、并呼吁美国结束海峡封锁。
+在此背景下，前期累积较大涨幅的A股科技板块面临情绪与估值的双重压力，资金获利了结意愿增强。
 
-全盘接受这些对特朗普来说无异于承认战败，因此双方的拉锯仍将持续。
+‼海外科技股回调是对AI行情过热的一次自然估值消化，AI产业长期趋势尚未逆转。
 
-国际原油价格周一高开3%。
+从产业逻辑看，当前AI基础设施建设仍处于扩张阶段，算力需求持续高景气，龙头企业的资本开支计划并未出现明显收缩，产业链订单可见度依然较高。
 
-除此之外，华尔街日报报道称伊朗提议将部分高浓缩铀稀释，并将剩余部分转移至第三国。
+但前期市场对AI板块的定价更多反映了乐观预期，对利率高位运行下的估值约束、部分企业盈利兑现节奏等风险定价不足。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
-- 2026-06-30 01:27 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-30 01:45 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-30 01:44 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 01:27 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 01:34 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-30 01:50 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 01:39 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-30 01:35 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-30 01:50 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 01:42 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/baihao.md)
-- 2026-06-30 01:26 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
+- 2026-06-30 01:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 01:33 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-30 01:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 01:35 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 01:40 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-30 01:38 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-30 01:58 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 01:53 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 01:36 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-30 01:52 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
+- 2026-06-30 01:55 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 01:41 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/307970771.shtml)
-- 2026-06-30 01:30 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/21030490.shtml)
-- 2026-06-30 01:35 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/09963523.shtml)
-- 2026-06-30 01:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/52987486198.shtml)
-- 2026-06-30 01:36 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/6940151.shtml)
-- 2026-06-30 01:31 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/93152356477.shtml)
-- 2026-06-30 01:27 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/535414.shtml)
-- 2026-06-30 01:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/939690531.shtml)
-- 2026-06-30 01:49 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/9269233062.shtml)
-- 2026-06-30 01:32 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/08115.shtml)
-- 2026-06-30 01:42 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.blog.kurohicncr.top/Article/details/0363894.shtml)
-- 2026-06-30 01:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/3273037126.shtml)
-- 2026-06-30 01:29 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/35081224675.shtml)
-- 2026-06-30 01:37 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/233620282.shtml)
-- 2026-06-30 01:36 - [第一炉香](http://www.share.kurohicncr.top/Article/details/734762009.shtml)
+- 2026-06-30 01:57 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/404240266.shtml)
+- 2026-06-30 01:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/82517814.shtml)
+- 2026-06-30 01:32 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/26145.shtml)
+- 2026-06-30 01:44 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/3222781.shtml)
+- 2026-06-30 01:31 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/4199913.shtml)
+- 2026-06-30 01:47 - [美人鱼](https://www.blog.kurohicncr.top/Article/details/78606.shtml)
+- 2026-06-30 01:53 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/0125634.shtml)
+- 2026-06-30 01:42 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/444354.shtml)
+- 2026-06-30 01:33 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/43354.shtml)
+- 2026-06-30 01:59 - [网友分享整套中医手术刀](https://www.blog.kurohicncr.top/Article/details/163210205569.shtml)
+- 2026-06-30 01:38 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/140386628006.shtml)
+- 2026-06-30 01:36 - [世界杯](http://www.blog.kurohicncr.top/Article/details/51013833011.shtml)
+- 2026-06-30 01:43 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/6832122255.shtml)
+- 2026-06-30 01:41 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/3751526.shtml)
+- 2026-06-30 01:48 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/777888075533.shtml)

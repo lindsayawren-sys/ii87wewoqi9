@@ -1,57 +1,47 @@
-# 中国空天领域百余家单位联合倡议 共建千星规模“太空云”生态
+# 广东阳江：男童观潮遇险 群众合力救援
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月9日电 (记者 孙自法)中国空天领域产学研界逾百家单位5月9日联合发布《共建“太空云”生态倡议书》，呼吁全国携手共建千星规模“太空云”生态，合力打造世界领先的天基信息服务系统，大幅提升天基资源智能化、体系化综合应用效能。 第二届空天信息技术大会当天在浙江桐乡开幕，中国科学院空天信息创新研究院(空天院)联合科研院所、航天企业、高校等百余家单位，在开幕式上共同发布了《
+发布时间：2026年06月23日 09:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网北京5月9日电 (记者 孙自法)中国空天领域产学研界逾百家单位5月9日联合发布《共建“太空云”生态倡议书》，呼吁全国携手共建千星规模“太空云”生态，合力打造世界领先的天基信息服务系统，大幅提升天基资源智能化、体系化综合应用效能。
-
-第二届空天信息技术大会当天在浙江桐乡开幕，中国科学院空天信息创新研究院(空天院)联合科研院所、航天企业、高校等百余家单位，在开幕式上共同发布了《共建“太空云”生态倡议书》。
-
-“太空云”建设是系统性长期性开放性工程 倡议书核心内容包括四个方面：一是凝聚行业共识，共铸天基信息系统网云化发展理念。
-
-依托太空高速通信网络和“太空云”平台，有机整合各类太空资源，构建在轨一体化智能服务体系。
-
-二是共建标准规范，联合制定统一的星间互联、载荷接口、数据产品、算力服务、系统安全等标准体系，构建开放、可扩展的“太空云”服务平台，打造开放兼容的“太空云”技术底座。
-
-三是促进互联互通，鼓励卫星运营单位将卫星接入“太空云”，探索“即连即用，按需服务”的“太空云”运营模式，形成“共建、共享、共赢”的良好生态格局。
-
-四是深化示范应用，聚焦重点行业和新兴产业，推动“太空云”生态建设成果快速落地，为国民经济高质量发展提供硬核支撑。
-
-倡议书指出，当前中国高分辨率遥感卫星技术水平和在轨数量均达到国际领先，高通量通信卫星建设步入高速发展阶段，已成为支撑国家战略、服务行业发展的重要科技力量。
+发布时间：2026年06月23日 09:22 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
-- 2026-06-30 01:31 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 01:42 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 01:30 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 01:34 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 01:37 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 01:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 01:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 01:36 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 01:33 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 01:44 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 01:32 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 01:36 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-30 01:39 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 01:40 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 01:31 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 01:38 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 01:55 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 01:47 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-30 01:37 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 01:35 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-30 01:48 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 01:36 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-30 01:44 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-30 01:46 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 01:35 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.minike.top/Article/details/424611668.shtml)
-- 2026-06-30 01:26 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/27469130851.shtml)
-- 2026-06-30 01:39 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/8210906837.shtml)
-- 2026-06-30 01:42 - [刘宇宁 好听](https://www.share.kurohicncr.top/Article/details/1023212.shtml)
-- 2026-06-30 01:46 - [日本进球](http://www.blog.minike.top/Article/details/258868699913.shtml)
-- 2026-06-30 01:25 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/5515880.shtml)
-- 2026-06-30 01:28 - [足球“出口导向”造就佛得角奇迹](https://www.blog.minike.top/Article/details/203527.shtml)
-- 2026-06-30 01:27 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/0749363.shtml)
-- 2026-06-30 01:53 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/043983.shtml)
-- 2026-06-30 01:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/5607143.shtml)
-- 2026-06-30 01:50 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/54721.shtml)
-- 2026-06-30 01:43 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/7985453.shtml)
-- 2026-06-30 01:34 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/6344516.shtml)
-- 2026-06-30 01:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/503662598.shtml)
-- 2026-06-30 01:45 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/65318484600.shtml)
+- 2026-06-30 01:56 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/508539.shtml)
+- 2026-06-30 01:46 - [一生一世](http://www.blog.minike.top/Article/details/7815847322.shtml)
+- 2026-06-30 01:59 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.minike.top/Article/details/483099.shtml)
+- 2026-06-30 01:52 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/946645315.shtml)
+- 2026-06-30 01:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/23299.shtml)
+- 2026-06-30 01:39 - [穆祉丞躺TFING身上](https://www.share.minike.top/Article/details/2100547870.shtml)
+- 2026-06-30 01:53 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/714239.shtml)
+- 2026-06-30 01:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/938668871140.shtml)
+- 2026-06-30 01:44 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/688444421428.shtml)
+- 2026-06-30 01:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.kurohicncr.top/Article/details/7238507.shtml)
+- 2026-06-30 01:43 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.kurohicncr.top/Article/details/4687030.shtml)
+- 2026-06-30 01:55 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/5892298.shtml)
+- 2026-06-30 01:44 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/2034380.shtml)
+- 2026-06-30 01:52 - [世界杯](http://www.blog.kurohicncr.top/Article/details/0804207362.shtml)
+- 2026-06-30 02:00 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/915127735524.shtml)

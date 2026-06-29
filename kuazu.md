@@ -1,61 +1,60 @@
-# 全部惊艳！北京绿化带把我当场震撼！
+# 中企商标在境外被抢注 商标法修订草案二审稿加强对企业相关权益保护
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-北京环路上的月季开了。 “光谱”“御用马车”“安吉拉”……城市环路被繁花缀满，宛如流光溢彩的“月季花环”，成为这座全球月季栽植面积最大、应用最广首都城市独有的浪漫。 本土自育月季“超长待机”半年 “粉色这些是‘约定’，花瓣能形成大面积色块，且花期长、抗病好。”连日来，不少网友在社交平台上分享环路上“随手拍”的月季大片。 国贸桥区、四惠桥、五棵松桥……这些地标现在成了“月季打卡地
+中新网北京6月23日电 (记者 谢雁冰 曾玥)商标法修订草案23日提请十四届全国人大常委会二次审议。近来，中国一些企业的商标在境外被抢注，损害企业合法权益，对企业“出海”造成不利影响，修订草案二审稿加强对企业相关权益的保护。修订草案增加规定：在境外商标注册审查审理或者处理商标案件过程中，需要证明商标在中国境内为相关公众所熟知的，应当事人请求，国务院商标管理部门可以依照本法第六十
 
 ## 正文
 
-北京环路上的月季开了。
+中新网北京6月23日电 (记者 谢雁冰 曾玥)商标法修订草案23日提请十四届全国人大常委会二次审议。
 
-“光谱”“御用马车”“安吉拉”……城市环路被繁花缀满，宛如流光溢彩的“月季花环”，成为这座全球月季栽植面积最大、应用最广首都城市独有的浪漫。
+近来，中国一些企业的商标在境外被抢注，损害企业合法权益，对企业“出海”造成不利影响，修订草案二审稿加强对企业相关权益的保护。
 
-本土自育月季“超长待机”半年 “粉色这些是‘约定’，花瓣能形成大面积色块，且花期长、抗病好。
+修订草案增加规定：在境外商标注册审查审理或者处理商标案件过程中，需要证明商标在中国境内为相关公众所熟知的，应当事人请求，国务院商标管理部门可以依照本法第六十三条的规定对商标驰名情况作出确认。
 
-”连日来，不少网友在社交平台上分享环路上“随手拍”的月季大片。
+当前，以误导公众的方式使用注册商标案件时有发生，扰乱商标管理秩序，损害消费者合法权益，修订草案加大打击力度。
 
-国贸桥区、四惠桥、五棵松桥……这些地标现在成了“月季打卡地”，让一道道彩色风景线从北京的环路蔓延至互联网。
+修订草案将以误导公众的方式使用注册商标的法律责任修改为“由负责商标执法的部门责令限期改正，违法经营额五万元以上的，可以处违法经营额五倍以下的罚款；没有违法经营额或者违法经营额不足五万元的，可以处二十五万元以下的罚款。
 
-在国贸桥区，粉色暴击来自北京自育的“约定”月季。
+逾期不改正的，由国务院商标管理部门撤销其注册商标”。
 
-北京市朝阳区花园城市建设中心工程建设部部长李建航介绍，“约定”是北京本土自育的丰花月季，具有花期长、抗寒抗病性强、耐粗放管理等优点，能从5月上旬持续开花至11月中旬，非常适合北京的气候条件和城市道路环境。
+此外，修订草案增加规定对于“以误导公众的方式使用注册商标”的违法行为，任何单位或者个人有权向负责商标执法的部门投诉、举报。
 
-“‘五一’假期前就在雍和宫大街发现了月季花，上班路过时能闻到淡淡的香气，心情都变好了。
+修订草案还明确对“不符合商标注册条件准予商标注册，造成不良影响”的公职人员，依法给予处分。
 
 ## 相关推荐
 
-- 2026-06-30 01:38 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 01:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-30 01:44 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-30 01:33 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-30 01:25 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-30 01:28 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-30 01:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 01:45 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 01:42 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-30 01:33 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 01:38 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 01:32 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 01:25 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-30 01:35 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 01:31 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-30 01:39 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 01:48 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 01:55 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-30 01:34 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-30 01:44 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 01:41 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 01:58 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-30 01:43 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 01:30 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 01:41 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 01:55 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 01:53 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kfgkf.md)
+- 2026-06-30 01:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-30 01:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/9638760.shtml)
-- 2026-06-30 01:52 - [第一炉香](https://www.share.kurohicncr.top/Article/details/759315.shtml)
-- 2026-06-30 01:35 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/662921.shtml)
-- 2026-06-30 01:30 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/2632469819.shtml)
-- 2026-06-30 01:42 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/90255326701.shtml)
-- 2026-06-30 01:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/169053542117.shtml)
-- 2026-06-30 01:33 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.kurohicncr.top/Article/details/4705823.shtml)
-- 2026-06-30 01:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/552073488850.shtml)
-- 2026-06-30 01:36 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/469696.shtml)
-- 2026-06-30 01:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/16009.shtml)
-- 2026-06-30 01:46 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/8296762454.shtml)
-- 2026-06-30 01:50 - [格莱美唱作人锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/89599710.shtml)
-- 2026-06-30 01:53 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/250835074587.shtml)
-- 2026-06-30 01:50 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/287540189.shtml)
-- 2026-06-30 01:35 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/46945603969.shtml)
+- 2026-06-30 01:45 - [本西奇成本届温网女单首位晋级球员](https://www.share.kurohicncr.top/Article/details/265818.shtml)
+- 2026-06-30 01:37 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/2703254905.shtml)
+- 2026-06-30 01:54 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/18521.shtml)
+- 2026-06-30 01:51 - [格莱美唱作人锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/6814322825.shtml)
+- 2026-06-30 01:30 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/254341105634.shtml)
+- 2026-06-30 01:30 - [巴西队与日本队将展开正面对决](https://www.share.kurohicncr.top/Article/details/887414928432.shtml)
+- 2026-06-30 01:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/827036.shtml)
+- 2026-06-30 02:00 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/48205.shtml)
+- 2026-06-30 01:38 - [本届世界杯已有5名球员被控强奸](http://www.share.kurohicncr.top/Article/details/0203203.shtml)
+- 2026-06-30 01:45 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/4383965029.shtml)
+- 2026-06-30 01:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/63332641.shtml)
+- 2026-06-30 01:35 - [一直以为方便面汤是要倒掉的](http://www.share.minike.top/Article/details/300807919262.shtml)
+- 2026-06-30 01:57 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/198233700.shtml)
+- 2026-06-30 01:52 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/163514905.shtml)
+- 2026-06-30 01:59 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/66906040237.shtml)

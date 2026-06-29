@@ -1,59 +1,43 @@
-# 普京：伊朗战事让俄罗斯“处境复杂”
+# 英媒报道称：逾400艘船在霍尔木兹海峡等待谈判结果
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日在一场记者会上表示，由于俄罗斯与伊朗和海湾阿拉伯国家都保持着良好关系，伊朗战事让俄罗斯“处境复杂”。 普京说，如果局势升级，“所有人都会受到损害”，解决当前冲突的协议应该符合地区各国利益。 美国和以色列2月28日对伊朗发起大规模军事行动，伊朗对以色列以及美国在中东地区的军事基地等目标发起导弹和无人机打击，海湾国家受到波及。 普
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-新华社莫斯科5月9日电(记者黄河)俄罗斯总统普京9日在一场记者会上表示，由于俄罗斯与伊朗和海湾阿拉伯国家都保持着良好关系，伊朗战事让俄罗斯“处境复杂”。
-
-普京说，如果局势升级，“所有人都会受到损害”，解决当前冲突的协议应该符合地区各国利益。
-
-美国和以色列2月28日对伊朗发起大规模军事行动，伊朗对以色列以及美国在中东地区的军事基地等目标发起导弹和无人机打击，海湾国家受到波及。
-
-普京还说，俄方清楚伊朗没有发展核武器的计划，国际原子能机构从未表示有证据表明伊朗正在研发核武器。
-
-另外，俄方有关接收伊朗浓缩铀的提议并非是为“攫取政治资本”，而是希望尽己所能为缓和局势作贡献。
-
-据美国媒体3月13日报道，普京曾在与美国总统特朗普通话时，提议将伊朗浓缩铀转移到俄罗斯，以利于尽快结束战事，但特朗普予以拒绝。
-
-俄总统新闻秘书佩斯科夫4月15日接受印度媒体采访时表示，普京准备重新考虑将伊朗浓缩铀运往俄罗斯的提议。
+发布时间：2026年06月23日 10:59 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-30 01:39 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 01:40 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 01:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-30 01:28 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-30 01:25 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 01:48 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 01:33 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
-- 2026-06-30 01:45 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 01:29 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 01:29 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 01:24 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 01:48 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 01:50 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 01:36 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 01:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 01:49 - [DRG官宣选手Akeman离队](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 01:56 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 01:43 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:57 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-30 01:41 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-30 01:49 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhke.md)
+- 2026-06-30 01:56 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-30 01:56 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 01:40 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
+- 2026-06-30 01:58 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/398110.shtml)
-- 2026-06-30 01:31 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/94483178777.shtml)
-- 2026-06-30 01:48 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/4059583.shtml)
-- 2026-06-30 01:50 - [中国18岁小将再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/26657364.shtml)
-- 2026-06-30 01:46 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/515279547.shtml)
-- 2026-06-30 01:35 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/7849197263.shtml)
-- 2026-06-30 01:37 - [腾讯与长鑫存储签200亿大单](https://www.share.kurohicncr.top/Article/details/311401870068.shtml)
-- 2026-06-30 01:33 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/6457475298.shtml)
-- 2026-06-30 01:44 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/7510389611.shtml)
-- 2026-06-30 01:24 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/172152391.shtml)
-- 2026-06-30 01:53 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/93921.shtml)
-- 2026-06-30 01:53 - [爱直接对嘴喝饮料的人天塌了](http://www.share.kurohicncr.top/Article/details/0543389.shtml)
-- 2026-06-30 01:47 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/617082.shtml)
-- 2026-06-30 01:33 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/6907456773.shtml)
-- 2026-06-30 01:28 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/0396328.shtml)
+- 2026-06-30 01:36 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/382524175.shtml)
+- 2026-06-30 01:50 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/95294244407.shtml)
+- 2026-06-30 01:55 - [檀健次王楚然吻戏看热了](http://www.blog.kurohicncr.top/Article/details/04622404684.shtml)
+- 2026-06-30 01:44 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/02522.shtml)
+- 2026-06-30 01:55 - [小勒布伦WTT美国大满贯开门红](https://www.share.minike.top/Article/details/11535.shtml)
+- 2026-06-30 01:33 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/16701011.shtml)
+- 2026-06-30 01:50 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/23835496952.shtml)
+- 2026-06-30 01:50 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/5007826485.shtml)
+- 2026-06-30 01:51 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/314372451.shtml)
+- 2026-06-30 01:30 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/589498.shtml)
+- 2026-06-30 01:32 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/73975983.shtml)
+- 2026-06-30 01:36 - [一见倾心](http://www.blog.minike.top/Article/details/89603.shtml)
+- 2026-06-30 01:55 - [电影后室值得看吗](https://www.share.minike.top/Article/details/5220087.shtml)
+- 2026-06-30 01:41 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/8772642164.shtml)
+- 2026-06-30 01:56 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/9980542.shtml)

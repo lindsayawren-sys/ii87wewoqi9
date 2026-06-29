@@ -1,60 +1,58 @@
-# 国务院常务会议解读丨国务院常务会议部署全国综合交通运输体系建设工作
+# 货拉拉被约谈，同城货运变天了？
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-新华社北京5月9日电(记者叶昊鸣)5月9日召开的国务院常务会议，听取全国综合交通运输体系建设情况汇报，并作出一系列重要部署。 综合交通运输体系是整合铁路、公路、水路、民航、邮政等多方式协同发展的系统，2019年印发的《交通强国建设纲要》将其提升至国家战略层面，明确到2035年基本形成现代化综合交通体系。 “十四五”时期，我国综合立体交通网主骨架建成率突破90%，港口集装箱吞吐量
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：投资者网-思维财经 【IPO观察 】速览新股招股书、拆解融资故事，关注监管动态，用大白话帮你划重点。 ‘合规重于规模。’ 近日，市场监管总局公开约谈货拉拉，依据《反垄断法》要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改。监管要求货拉拉将平台抽成比例从现行约1
 
 ## 正文
 
-新华社北京5月9日电(记者叶昊鸣)5月9日召开的国务院常务会议，听取全国综合交通运输体系建设情况汇报，并作出一系列重要部署。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-综合交通运输体系是整合铁路、公路、水路、民航、邮政等多方式协同发展的系统，2019年印发的《交通强国建设纲要》将其提升至国家战略层面，明确到2035年基本形成现代化综合交通体系。
+来源：投资者网-思维财经 【IPO观察 】速览新股招股书、拆解融资故事，关注监管动态，用大白话帮你划重点。
 
-“十四五”时期，我国综合立体交通网主骨架建成率突破90%，港口集装箱吞吐量约占全球的三分之一，C919国产大飞机安全载客突破400万人次，自动化码头规模数量和技术水平领跑全球……我国综合交通运输体系建设取得突破性进展，交通强国建设迈出坚实步伐。
+‘合规重于规模。
 
-要统筹推进交通基础设施建设，着眼完善综合立体交通网络，坚持一体布局、系统集成，切实用好存量资源、做优增量供给；要提升管理服务水平，围绕人享其行、物畅其流，营造更加便捷的出行环境，促进货运降本提质增效……会议作出一系列部署举措，助力加快建设交通强国这一发展目标。
+’ 近日，市场监管总局公开约谈货拉拉，依据《反垄断法》要求其停止利用算法不合理压低货运价格、利用平台规则实施强制独家车贴等行为，全面开展自查整改。
 
-“会议的一系列部署锚定‘十五五’时期我国综合交通运输发展阶段性目标，构建与现代化产业体系、新型城镇化格局相适配的安全、便捷、高效、绿色、经济的现代化综合交通运输体系。
+监管要求货拉拉将平台抽成比例从现行约11%下调至约9%区间，向受不合理规则影响的司机返还资金总额达1.2亿元，涉及订单追溯期最长可达三年。
 
-持续优化出行服务供给、降低社会物流成本，着力增强人民群众出行的获得感、幸福感、安全感，为构建新发展格局、推动高质量发展、增进民生福祉提供坚实支撑。
+对于多次冲击港交所上市未果的货拉拉而言，这不仅是一次监管的敲打，更是对其商业模式的一次深度拷问。
 
-”国家高端智库可持续交通创新中心研究员郭名说。
+01 狂奔的货拉拉，与港交所门前的徘徊 回顾货拉拉的发展历程，是一部典型的互联网平台“烧钱换规模”的扩张史。
 
-进一步完善现代化综合交通运输体系，培育交通领域新质生产力。
+自2013年成立以来，货拉拉凭借O2O模式切入同城货运，在红杉、高瓴等一线机构的资本催化下，迅速跑马圈地。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 01:33 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
-- 2026-06-30 01:37 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 01:24 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 01:52 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 01:44 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 01:53 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-30 01:42 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 01:36 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
-- 2026-06-30 01:50 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
-- 2026-06-30 01:25 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 01:34 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
-- 2026-06-30 01:39 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 01:40 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 01:53 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
+- 2026-06-30 01:32 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 01:49 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
+- 2026-06-30 01:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 01:46 - [货车司机恶意闯卡逃费被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 01:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 01:51 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-30 01:45 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-30 01:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-30 01:35 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-30 01:34 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 01:39 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [同样是装空调差别怎么能这么大](https://www.share.minike.top/Article/details/2258773.shtml)
-- 2026-06-30 01:31 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/4425034.shtml)
-- 2026-06-30 01:32 - [刘念回应](https://www.blog.minike.top/Article/details/556129.shtml)
-- 2026-06-30 01:38 - [张元英是故意的还是不小心的](http://www.blog.minike.top/Article/details/04057268306.shtml)
-- 2026-06-30 01:46 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/33855.shtml)
-- 2026-06-30 01:49 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/021350432475.shtml)
-- 2026-06-30 01:44 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/676668830600.shtml)
-- 2026-06-30 01:29 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/3143244513.shtml)
-- 2026-06-30 01:40 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/854792.shtml)
-- 2026-06-30 01:33 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/914396252.shtml)
-- 2026-06-30 01:51 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/477671166.shtml)
-- 2026-06-30 01:25 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/38549133893.shtml)
-- 2026-06-30 01:40 - [电影后室值得看吗](https://www.share.minike.top/Article/details/3371917072.shtml)
-- 2026-06-30 01:27 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/281483676156.shtml)
-- 2026-06-30 01:51 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/79498570.shtml)
+- 2026-06-30 01:37 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/8330519671.shtml)
+- 2026-06-30 01:56 - [葫芦岛居民楼闪爆事故致3死](https://www.share.kurohicncr.top/Article/details/831424436.shtml)
+- 2026-06-30 01:37 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/913453817.shtml)
+- 2026-06-30 01:32 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/105491850.shtml)
+- 2026-06-30 01:47 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/02294243869.shtml)
+- 2026-06-30 01:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/967323.shtml)
+- 2026-06-30 01:52 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/9318282501.shtml)
+- 2026-06-30 01:46 - [巴西vs日本首发名单](http://www.share.minike.top/Article/details/486035625067.shtml)
+- 2026-06-30 01:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/59038.shtml)
+- 2026-06-30 01:48 - [小勒布伦WTT美国大满贯开门红](http://www.share.minike.top/Article/details/692709250029.shtml)
+- 2026-06-30 01:48 - [花少8要去世界杯举办国](http://www.share.kurohicncr.top/Article/details/76242172941.shtml)
+- 2026-06-30 01:34 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/31095551.shtml)
+- 2026-06-30 01:51 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/2106313602.shtml)
+- 2026-06-30 01:39 - [中国小将严子怡再现一投夺冠](https://www.blog.minike.top/Article/details/6116152.shtml)
+- 2026-06-30 01:40 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/9424477740.shtml)

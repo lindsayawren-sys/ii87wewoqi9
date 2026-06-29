@@ -1,59 +1,56 @@
-# 宜通世纪（300310）已被555名投资者索赔4045万，索赔还在时效内
+# 平陆运河航线船员签注工作启动
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-上海久诚律师事务所股票索赔律师许峰提示，宜通世纪（维权）（300310）虚假陈述投资者索赔案目前还在诉讼时效内，投资者还可依法发起索赔。（许峰律师专栏） 宜通世纪2025年年报披露显示，截至2025年12月31日，公司收到广东省广州市中级人民法院送达的《民事起诉书》等有关材料，涉及555名投资者以证券虚假陈述责任纠纷为由对公司提起民事诉讼，诉请金额合计人民币40，451，709
+中新网南宁6月23日电(黄艳梅 莫卫华 郑清欣)6月22日，经交通运输部海事局授权，广西海事局公告新增“平陆运河航线”签注，并在广西交通职业技术学院同步启动师资培训与宣贯活动，标志着服务运河通航的船员资质保障工作开始实施。 根据公告，“平陆运河航线”具体覆盖范围为：由南宁横州市西津库区平塘江口经钦州灵山县陆屋镇、钦江干流、茅尾海至钦州港。平陆运河全长约134.2公里，沿线设有三
 
 ## 正文
 
-上海久诚律师事务所股票索赔律师许峰提示，宜通世纪（维权）（300310）虚假陈述投资者索赔案目前还在诉讼时效内，投资者还可依法发起索赔。
+中新网南宁6月23日电(黄艳梅 莫卫华 郑清欣)6月22日，经交通运输部海事局授权，广西海事局公告新增“平陆运河航线”签注，并在广西交通职业技术学院同步启动师资培训与宣贯活动，标志着服务运河通航的船员资质保障工作开始实施。
 
-（许峰律师专栏） 宜通世纪2025年年报披露显示，截至2025年12月31日，公司收到广东省广州市中级人民法院送达的《民事起诉书》等有关材料，涉及555名投资者以证券虚假陈述责任纠纷为由对公司提起民事诉讼，诉请金额合计人民币40，451，709.49元。
+根据公告，“平陆运河航线”具体覆盖范围为：由南宁横州市西津库区平塘江口经钦州灵山县陆屋镇、钦江干流、茅尾海至钦州港。
 
-181名投资者案件已结案，涉及金额11，165，069.98元；16名投资者案件已撤诉；109名投资者案件已一审判决，涉及金额2，755，595.30元，目前均在二审程序中；其它诉讼尚未开庭审理，其对公司本期利润或期后利润的影响存在不确定性，后续最终影响将以法院作出的判决裁定情况而定。
+平陆运河全长约134.2公里，沿线设有三座5000吨级船闸，涵盖连续弯道、狭窄航道、桥区水域及河海交汇区等复杂场景，通航风险较高。
 
-许峰律师代理的宜通世纪投资者索赔案已向法院提交立案。
+根据《中华人民共和国船员条例》，船员适任证书必须注明航区或航线，不得超范围任职。
 
-需要提示的是，此前许峰律师代理的部分宜通世纪投资者索赔案已调解获赔到位，目前还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+此前珠江水系航线名录未包含平陆运河，此次增设后，未取得平陆运河航线签注的船舶驾驶人员，不得在运河内航行。
 
-该案前期已有投资者胜诉判决，建议投资者关注索赔事项。
+目前，平陆运河航线签注的培训教材和考试题库已建成，系统调试完毕。
 
-（宜通世纪维权入口） 2023年6月21日，宜通世纪公告收到证监会《行政处罚决定书》，经查明，宜通世纪违法主要事实如下： 2016年10月，宜通世纪启动重大资产重组，以发行2，178.99万股及支付现金44，000万元的方式向深圳市倍泰健康测量分析技术有限公司（以下简称倍泰健康）原实际控制人方炎林等16名交易对手方收购倍泰健康100%的股份，交易总对价为10亿元。
+6月22日起，海事部门将同步开放船员考试与签注申请。
 
-收购完成后，倍泰健康成为宜通世纪的全资子公司，纳入宜通世纪合并会计报表编制范围。
+平陆运河自2022年8月开工建设，计划于今年9月正式通航。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 01:43 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
-- 2026-06-30 01:35 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 01:48 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 01:43 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
-- 2026-06-30 01:33 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 01:38 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-30 01:35 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 01:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 01:37 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 01:31 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
-- 2026-06-30 01:38 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ftmbu.md)
-- 2026-06-30 01:24 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 01:54 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 01:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 01:57 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyvlb.md)
+- 2026-06-30 01:39 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-30 01:46 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/krgvl.md)
+- 2026-06-30 01:59 - [警方回应两名老人多次到洗车店泼粪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 01:39 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 01:33 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-30 01:40 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-30 01:32 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:49 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/37078214.shtml)
-- 2026-06-30 01:44 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/0303975402.shtml)
-- 2026-06-30 01:49 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/7083303.shtml)
-- 2026-06-30 01:43 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/98098296707.shtml)
-- 2026-06-30 01:32 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/58360334472.shtml)
-- 2026-06-30 01:25 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/205102242376.shtml)
-- 2026-06-30 01:29 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/558734042.shtml)
-- 2026-06-30 01:30 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/08473759347.shtml)
-- 2026-06-30 01:39 - [张碧晨最佳女歌手](https://www.blog.minike.top/Article/details/932253891.shtml)
-- 2026-06-30 01:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/1715722346.shtml)
-- 2026-06-30 01:32 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/8238528957.shtml)
-- 2026-06-30 01:40 - [斗破苍穹](http://www.share.minike.top/Article/details/36325185511.shtml)
-- 2026-06-30 01:25 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/739487.shtml)
-- 2026-06-30 01:46 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/909822477.shtml)
-- 2026-06-30 01:41 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/248370271481.shtml)
+- 2026-06-30 01:48 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/59431687.shtml)
+- 2026-06-30 01:55 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/67342640638.shtml)
+- 2026-06-30 01:33 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/75181024791.shtml)
+- 2026-06-30 01:59 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/77738.shtml)
+- 2026-06-30 01:56 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/980779808383.shtml)
+- 2026-06-30 01:57 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/887256373992.shtml)
+- 2026-06-30 01:53 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/303848.shtml)
+- 2026-06-30 01:36 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/847022.shtml)
+- 2026-06-30 01:33 - [五哈和他们的朋友](https://www.blog.minike.top/Article/details/81933.shtml)
+- 2026-06-30 01:56 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/955904.shtml)
+- 2026-06-30 01:58 - [演员都来上音综的原因](http://www.share.minike.top/Article/details/24989220.shtml)
+- 2026-06-30 01:49 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/11780.shtml)
+- 2026-06-30 01:42 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/13853241880.shtml)
+- 2026-06-30 01:50 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/251684873759.shtml)
+- 2026-06-30 01:48 - [日本16强魔咒](https://www.share.minike.top/Article/details/90419357728.shtml)

@@ -1,58 +1,50 @@
-# ZFX山海证券:油价宽幅震荡多空博弈
+# 端午节期间666.7万人次出入境
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-5月11日，国际原油市场近期经历了今年以来波动最为剧烈的一周。六月WTI原油期货在每桶107.46美元与88.66美元之间剧烈摆动，最终企稳于约97美元水平，布伦特原油亦同步收负，周线累计跌幅约7%。ZFX山海证券表示，市场对美伊谈判与中东冲突的反复信号难以充分定价，导致价格在地缘紧张与外交缓和之间快速切换。该机构分析称，短期市场进入多空博弈极度激烈的阶段，前期累积的地缘溢价被
+中新网6月22日电 据国家移民管理局微信公众号22日消息，今年端午节假期全国边检机关共计保障666.7万人次中外人员出入境，日均222.2万人次，较去年端午节同期增长12.9%；单日出入境通关最高峰出现在6月20日，达230.8万人次。其中，内地居民出入境292.1万人次，较去年同期增长5.5%；港澳台居民出入境296.9万人次，较去年同期增长18.4%；外国人入出境77.7万
 
 ## 正文
 
-5月11日，国际原油市场近期经历了今年以来波动最为剧烈的一周。
+中新网6月22日电 据国家移民管理局微信公众号22日消息，今年端午节假期全国边检机关共计保障666.7万人次中外人员出入境，日均222.2万人次，较去年端午节同期增长12.9%；单日出入境通关最高峰出现在6月20日，达230.8万人次。
 
-六月WTI原油期货在每桶107.46美元与88.66美元之间剧烈摆动，最终企稳于约97美元水平，布伦特原油亦同步收负，周线累计跌幅约7%。
+其中，内地居民出入境292.1万人次，较去年同期增长5.5%；港澳台居民出入境296.9万人次，较去年同期增长18.4%；外国人入出境77.7万人次，较去年同期增长23.3%；入境外国人中，适用免签政策入境26.6万人次，较去年同期增长15.2%。
 
-ZFX山海证券表示，市场对美伊谈判与中东冲突的反复信号难以充分定价，导致价格在地缘紧张与外交缓和之间快速切换。
+共计查验出入境交通运输工具30.5万架(艘、列、辆)次，较去年同期增长16%。
 
-该机构分析称，短期市场进入多空博弈极度激烈的阶段，前期累积的地缘溢价被快速释放又部分回补。
+按照国家移民管理局统一部署，全国边检机关加强出入境流量监测，及时发布本口岸客流高峰预警提示，为广大群众出行提供参考；科学组织勤务，开足查验通道，加强现场引导，全力保障中外旅客快速通关；密切协作配合，强化应急处置，稳妥做好高峰期客流疏导和交通配套综合保障。
 
-从基本面看，霍尔木兹海峡的供应阻断风险并未完全消除，全球约20%的海运原油经此通过。
-
-ZFX山海证券认为，全球库存仍处偏紧状态，出口需求维持高位，意味着市场对供应冲击的敏感度仍然较高。
-
-该机构判断，OPEC+产油国后续产量决策、美国页岩油产量弹性、战略石油储备释放节奏，以及主要消费国的需求走势，将共同决定油价的中期方向，多家投行陆续修正年内油价预测以适应高波动格局。
-
-市场层面，原油价格的剧烈震荡已开始影响下游传导节奏，部分炼厂利润空间被压缩，通胀路径的不确定性进一步抬升。
+端午节期间，全国口岸出入境安全高效、平稳有序。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
-- 2026-06-30 01:47 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 01:53 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnism.md)
-- 2026-06-30 01:28 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 01:38 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-30 01:49 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
-- 2026-06-30 01:47 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
-- 2026-06-30 01:28 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
-- 2026-06-30 01:48 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 01:49 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 01:42 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 01:47 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 01:32 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-30 01:49 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:36 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
+- 2026-06-30 01:55 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 01:37 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 01:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-30 01:40 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-30 01:55 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
+- 2026-06-30 01:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 01:46 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/2998410.shtml)
-- 2026-06-30 01:43 - [第一炉香](https://www.blog.minike.top/Article/details/665749948.shtml)
-- 2026-06-30 01:50 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/79646.shtml)
-- 2026-06-30 01:48 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.kurohicncr.top/Article/details/271173916304.shtml)
-- 2026-06-30 01:36 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/944484692.shtml)
-- 2026-06-30 01:43 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/05825002081.shtml)
-- 2026-06-30 01:48 - [沉睡花园](http://www.blog.minike.top/Article/details/925315891323.shtml)
-- 2026-06-30 01:25 - [一见倾心](https://www.share.minike.top/Article/details/92030.shtml)
-- 2026-06-30 01:25 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/41508.shtml)
-- 2026-06-30 01:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/9702702.shtml)
-- 2026-06-30 01:28 - [小娘惹](https://www.share.kurohicncr.top/Article/details/2076268.shtml)
-- 2026-06-30 01:37 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/204598.shtml)
-- 2026-06-30 01:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/979229882.shtml)
-- 2026-06-30 01:41 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/6016802.shtml)
-- 2026-06-30 01:40 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/47623656.shtml)
+- 2026-06-30 01:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/3881061.shtml)
+- 2026-06-30 01:58 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/136377.shtml)
+- 2026-06-30 01:55 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/62043136005.shtml)
+- 2026-06-30 01:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.kurohicncr.top/Article/details/81945039401.shtml)
+- 2026-06-30 01:47 - [曝娱乐圈大部分明星失业](https://www.blog.kurohicncr.top/Article/details/45230421.shtml)
+- 2026-06-30 01:51 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/91191437757.shtml)
+- 2026-06-30 01:37 - [王菲谢霆锋十指紧扣好甜](https://www.blog.minike.top/Article/details/93700.shtml)
+- 2026-06-30 01:55 - [牺牲民警倒下前还在保护群众](https://www.blog.minike.top/Article/details/7478878.shtml)
+- 2026-06-30 01:54 - [本届世界杯已有5名球员被控强奸](https://www.share.minike.top/Article/details/094464.shtml)
+- 2026-06-30 01:32 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/28357853735.shtml)
+- 2026-06-30 01:47 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/5420434243.shtml)
+- 2026-06-30 01:41 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/428218847127.shtml)
+- 2026-06-30 01:44 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/4449286.shtml)
+- 2026-06-30 01:50 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/08948.shtml)
+- 2026-06-30 01:33 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/10792843584.shtml)

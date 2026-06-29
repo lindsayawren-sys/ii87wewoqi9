@@ -1,56 +1,59 @@
-# 合规漏洞百出 乐刷支付八项违法被罚没近844万元！涉违反清算管理规定等
+# 皮革商跨界“追光”！真牛气还是吹牛皮？
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！5月9日，中国人民银行深圳市分行行政处罚决定信息公示表显示，乐刷支付科技有限公司被罚没843.95万元。 行政处罚决定书显示，乐刷支付存在以下违法行为： 1．未按照规定根据经营规模和洗钱风险状况配备相应人员； 2．未按照规定开展客户尽职调查； 3．未按照规定对洗钱高风险情形采取相应洗钱风险管理措施； 4．未
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！去年跨界热点，股价连拉两个涨停，兴业科技似乎尝到了“以小博大”的甜头，最近公司又以5500万元拟并购当下炙手可热的磷化铟衬底业务，股价果然大涨。这两起跨界，有两个共同点，都是小成本投入，股价却立竿见影，“市值管理”手段堪称高超。“美中不足”的是，公司股价均提
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-5月9日，中国人民银行深圳市分行行政处罚决定信息公示表显示，乐刷支付科技有限公司被罚没843.95万元。
+去年跨界热点，股价连拉两个涨停，兴业科技似乎尝到了“以小博大”的甜头，最近公司又以5500万元拟并购当下炙手可热的磷化铟衬底业务，股价果然大涨。
 
-行政处罚决定书显示，乐刷支付存在以下违法行为： 1．未按照规定根据经营规模和洗钱风险状况配备相应人员； 2．未按照规定开展客户尽职调查； 3．未按照规定对洗钱高风险情形采取相应洗钱风险管理措施； 4．未按照规定报告可疑交易； 5．为身份不明的客户提供服务、与其进行交易； 6．未按照规定制定、完善交易监测标准； 7．违反商户管理规定； 8．违反清算管理规定。
+这两起跨界，有两个共同点，都是小成本投入，股价却立竿见影，“市值管理”手段堪称高超。
 
-中国人民银行深圳市分行对乐刷支付处以警告、通报批评，罚没合计843.95万元的行政处罚。
+“美中不足”的是，公司股价均提前异动。
 
-同时，时任职于乐刷支付科技有限公司孙某，对乐刷支付“未按照规定根据经营规模和洗钱风险状况配备相应人员”的违法行为负有责任，被罚款5.5万元。
+6月21日晚，兴业科技发布自愿性信息披露公告称，公司拟以5500万元现金，收购青岛立昂晶电半导体科技有限公司（简称“青岛立昂”）磷化铟衬底及半导体电子材料业务，跨界布局光通信、光模块领域。
 
-资料显示，乐刷支付科技有限公司成立于2013年，成立之初即获腾讯等知名机构投资，于2014年取得由中国人民银行颁发的《支付业务许可证》，可在全国范围内开展银行卡收单、移动电话支付业务，并于2019年7月成功续牌。
+此前一天，公司股价已率先涨停。
 
-乐刷支付以移动支付业务为基础和核心入口，致力于为各行业商户提供支付平台、商户运营SaaS服务、数据营销、金融科技及人工智能等多层次的智慧服务产品，目前业务遍布全国，合作商户涵盖餐饮、零售、文娱、美容、家装、物流、医疗等多个业，已逐步成为金融科技领域的领先企业。
+就在公司斩获“两连板”后，公司昨晚在股价异动公告提示称，本次拟收购磷化铟业务存在客户认证周期长、准入门槛高的行业特点，预计该业务2026年已实现及将实现收入合计占公司2025年收入比例极小，目前预计该事项对公司当期营业收入和净利润影响极小。
 
-据不完全统计，2025年，乐刷支付3次共被罚没938.68万元。
+不过，6月23日，兴业科技再次“一字”涨停，收获三连板。
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-30 01:43 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
-- 2026-06-30 01:44 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-30 01:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 01:50 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 01:42 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 01:33 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
-- 2026-06-30 01:28 - [花6万多相亲对象竟是50元请来的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 01:37 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-30 01:24 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 01:56 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 01:50 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 01:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 01:34 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-30 01:45 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 01:56 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
+- 2026-06-30 01:30 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 01:48 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 01:38 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 01:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 01:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 01:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 01:40 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/922561985792.shtml)
-- 2026-06-30 01:25 - [女子清吧被陌生人投放伟哥](https://www.blog.minike.top/Article/details/5477797.shtml)
-- 2026-06-30 01:51 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/70373108.shtml)
-- 2026-06-30 01:31 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/442084031326.shtml)
-- 2026-06-30 01:44 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/409145646.shtml)
-- 2026-06-30 01:40 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/392711118.shtml)
-- 2026-06-30 01:39 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/88198.shtml)
-- 2026-06-30 01:48 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/30038737.shtml)
-- 2026-06-30 01:25 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/437211957698.shtml)
-- 2026-06-30 01:46 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/161533681567.shtml)
-- 2026-06-30 01:47 - [追觅称质量不行终身包修也没意义](http://www.share.minike.top/Article/details/863879914390.shtml)
-- 2026-06-30 01:39 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/377214425.shtml)
-- 2026-06-30 01:49 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/9177677007.shtml)
-- 2026-06-30 01:42 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/086020359.shtml)
-- 2026-06-30 01:27 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/5685836356.shtml)
+- 2026-06-30 01:55 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.minike.top/Article/details/21508.shtml)
+- 2026-06-30 01:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/85178195.shtml)
+- 2026-06-30 01:46 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/6817884829.shtml)
+- 2026-06-30 01:54 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/7357783161.shtml)
+- 2026-06-30 01:32 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/342840851.shtml)
+- 2026-06-30 01:58 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5384990.shtml)
+- 2026-06-30 01:47 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/857339722.shtml)
+- 2026-06-30 01:41 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/38137831.shtml)
+- 2026-06-30 01:34 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/0176821726.shtml)
+- 2026-06-30 01:32 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/1988537.shtml)
+- 2026-06-30 01:35 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/590506712.shtml)
+- 2026-06-30 01:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/7904494092.shtml)
+- 2026-06-30 01:51 - [“十五五”优质本科扩容](https://www.share.kurohicncr.top/Article/details/238376.shtml)
+- 2026-06-30 01:40 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/72661.shtml)
+- 2026-06-30 01:39 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/30790561.shtml)

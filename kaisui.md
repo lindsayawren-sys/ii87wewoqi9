@@ -1,51 +1,58 @@
-# 百年人寿晋中中心支公司被罚18万元：编制、提供虚假的报告报表文件资料
+# 人工智能初创公司Reflection与SpaceX签署计算能力合作协议
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，百年人寿保险股份有限公司晋中中心支公司因编制、提供虚假的报告报表文件资料，被罚款18万元。丁飞（时任百年人寿保险股份有限公司晋中中心支公司银保渠道负责人）对此负有责任，受到警告并被罚款3万元。 责任编辑：曹睿潼
+Reflection AI周一表示，该公司已与SpaceX签署了一项协议，该协议将使这家初创公司能够使用由埃隆·马斯克领导的公司旗下Colossus 2数据中心的额外计算能力。 根据协议，这家开源人工智能初创公司将立即获得英伟达GB300芯片的使用权——该芯片用于训练和运行高级模型——并已同意从2026年7月1日起至2029年期间，每月向SpaceX支付1.5亿美元。 具体细节
 
 ## 正文
 
-5月9日金融一线消息，国家金融监督管理总局晋中监管分局行政处罚信息公开表显示，百年人寿保险股份有限公司晋中中心支公司因编制、提供虚假的报告报表文件资料，被罚款18万元。
+Reflection AI周一表示，该公司已与SpaceX签署了一项协议，该协议将使这家初创公司能够使用由埃隆·马斯克领导的公司旗下Colossus 2数据中心的额外计算能力。
 
-丁飞（时任百年人寿保险股份有限公司晋中中心支公司银保渠道负责人）对此负有责任，受到警告并被罚款3万元。
+根据协议，这家开源人工智能初创公司将立即获得英伟达GB300芯片的使用权——该芯片用于训练和运行高级模型——并已同意从2026年7月1日起至2029年期间，每月向SpaceX支付1.5亿美元。
 
-责任编辑：曹睿潼
+具体细节如下： 如果协议执行至期满，总付款金额将达到约63亿美元； 双方均可在前三个月后，提前90天通知对方终止合同。
+
+这家由英伟达支持的初创公司称：“更强的计算能力为我们开拓开放式模型的边界提供了更多空间”，但未透露更多细节。
+
+与Reflection的协议是SpaceX近期一系列商业胜利的又一例证，该公司此前还与科技巨头谷歌以及Anthropic达成了协议。
+
+本月早些时候，SpaceX表示，从今年10月至2029年6月，谷歌将每月向这家“火箭到AI”集团支付9.2亿美元；在此之前，运力将在9月期间逐步提升，并以较低费用收取。
+
+SpaceX股价在午后交易中下跌约10.6%。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 01:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pixpe.md)
-- 2026-06-30 01:26 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
-- 2026-06-30 01:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 01:34 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 01:32 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 01:40 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
-- 2026-06-30 01:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 01:28 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-30 01:47 - [法拉利车主已自行承担修理费近3万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-30 01:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
-- 2026-06-30 01:53 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-30 01:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
-- 2026-06-30 01:46 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 01:48 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
-- 2026-06-30 01:52 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 01:57 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 01:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 01:44 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 01:37 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-30 01:47 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 01:35 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-30 01:38 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 01:58 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
+- 2026-06-30 01:58 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 01:31 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
+- 2026-06-30 01:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-30 01:47 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/724205050090.shtml)
-- 2026-06-30 01:27 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/27187878.shtml)
-- 2026-06-30 01:36 - [千与千寻](https://www.share.kurohicncr.top/Article/details/5954633.shtml)
-- 2026-06-30 01:30 - [曼城官宣马雷斯卡出任主教练](https://www.blog.minike.top/Article/details/58620.shtml)
-- 2026-06-30 01:44 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/858437.shtml)
-- 2026-06-30 01:49 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/54155.shtml)
-- 2026-06-30 01:28 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/9900337719.shtml)
-- 2026-06-30 01:51 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/45154.shtml)
-- 2026-06-30 01:40 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/34636.shtml)
-- 2026-06-30 01:52 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/634550078353.shtml)
-- 2026-06-30 01:40 - [这种关系可能正在悄悄“催老”你](https://www.share.kurohicncr.top/Article/details/7102974.shtml)
-- 2026-06-30 01:37 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/106297.shtml)
-- 2026-06-30 01:27 - [问心2神一集鬼三集](http://www.share.minike.top/Article/details/61101738.shtml)
-- 2026-06-30 01:34 - [85花告别古偶](http://www.share.minike.top/Article/details/4871305.shtml)
-- 2026-06-30 01:50 - [TFing最具影响力音乐厂牌](http://www.blog.minike.top/Article/details/5289975.shtml)
+- 2026-06-30 01:43 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/226478.shtml)
+- 2026-06-30 01:49 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/217620006.shtml)
+- 2026-06-30 01:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/821453.shtml)
+- 2026-06-30 01:43 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/851850796.shtml)
+- 2026-06-30 01:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/8819892.shtml)
+- 2026-06-30 01:54 - [高考填志愿父亲和女儿产生分歧](http://www.share.minike.top/Article/details/734804613022.shtml)
+- 2026-06-30 01:33 - [模仿老妈打牌赢了和输了的区别！](http://www.share.kurohicncr.top/Article/details/29802.shtml)
+- 2026-06-30 01:47 - [恋与深空回应争议](https://www.share.minike.top/Article/details/111877022.shtml)
+- 2026-06-30 01:35 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/210498241773.shtml)
+- 2026-06-30 01:35 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/98690253.shtml)
+- 2026-06-30 01:38 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/04653.shtml)
+- 2026-06-30 01:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/42152.shtml)
+- 2026-06-30 01:57 - [国务院：鼓励行业龙头企业举办职校](http://www.share.kurohicncr.top/Article/details/82408892425.shtml)
+- 2026-06-30 01:58 - [急先锋](http://www.blog.minike.top/Article/details/62022405.shtml)
+- 2026-06-30 01:42 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/5007407761.shtml)

@@ -1,57 +1,53 @@
-# 奢侈品板块依旧脆弱
+# 台湾大学教授苑举正：大足石刻是伦理的极致表现
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-贝伦贝格银行分析师表示，奢侈品行业基本面疲软态势未有改观。 分析师在研报中写道：“即便剔除海湾地区冲突带来的影响，一季度核心数据的疲弱表现，也令人质疑奢侈品行业是否还能维持增长赛道属性。” 分析师称，各大企业管理层急于强调中东冲突造成的冲击，这也给了市场借口，下调行业 2026 年市场一致营收增长预期。 贝伦贝格银行补充表示：“然而即便剔除中东因素，我们认为行业内生营收走势仍将
+发布时间：2026年06月23日 14:41 来源：中国新闻网 6月23日，来自海峡两岸的专家学者、媒体记者参访世界文化遗产大足石刻。 台湾资深媒体人、台湾大学哲学系教授苑举正此前参观大足石刻后表示，大足石刻呈现出“慈、善、孝、义、廉”五个字的精华，是一个伦理的极致表现。 世界文化遗产“大足石刻”是集儒、释、道三教造像于一体的大型石窟造像群，是中国晚期石窟艺术的代表，始建于初唐
 
 ## 正文
 
-贝伦贝格银行分析师表示，奢侈品行业基本面疲软态势未有改观。
+发布时间：2026年06月23日 14:41 来源：中国新闻网 6月23日，来自海峡两岸的专家学者、媒体记者参访世界文化遗产大足石刻。
 
-分析师在研报中写道：“即便剔除海湾地区冲突带来的影响，一季度核心数据的疲弱表现，也令人质疑奢侈品行业是否还能维持增长赛道属性。
+台湾资深媒体人、台湾大学哲学系教授苑举正此前参观大足石刻后表示，大足石刻呈现出“慈、善、孝、义、廉”五个字的精华，是一个伦理的极致表现。
 
-” 分析师称，各大企业管理层急于强调中东冲突造成的冲击，这也给了市场借口，下调行业 2026 年市场一致营收增长预期。
+世界文化遗产“大足石刻”是集儒、释、道三教造像于一体的大型石窟造像群，是中国晚期石窟艺术的代表，始建于初唐，至两宋达到鼎盛，‌ 5万余尊石窟造像代表了公元9世纪至13世纪世界石窟艺术的最高水平，被誉为“世界石窟艺术史上最后的丰碑”。
 
-贝伦贝格银行补充表示：“然而即便剔除中东因素，我们认为行业内生营收走势仍将持续不及预期。
+大足石刻具有鲜明的民族化、世俗化、生活化等诸多特色。
 
-” 该行指出，所谓轻奢意向消费群体的表现，仍是行业疲软的核心诱因。
-
-布鲁奈罗・库奇内利与爱马仕仍是贝伦贝格银行的首选推荐标的，维持买入评级。
-
-责任编辑：江学思
+(记者 肖江川） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 01:45 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 01:32 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 01:49 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 01:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 01:48 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 01:37 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 01:47 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
-- 2026-06-30 01:35 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 01:33 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 01:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 01:45 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-30 01:52 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-30 01:49 - [杨紫被质疑未使用原名](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 01:58 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 01:42 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 01:39 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-30 01:43 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 01:58 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 01:42 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-30 01:53 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
+- 2026-06-30 01:35 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 01:36 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 01:31 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-30 01:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
+- 2026-06-30 01:51 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/44475.shtml)
-- 2026-06-30 01:39 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/3966167623.shtml)
-- 2026-06-30 01:30 - [有哪些值得一提的生活窍门？](https://www.share.kurohicncr.top/Article/details/0543948291.shtml)
-- 2026-06-30 01:42 - [老人卖菜获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/5939630671.shtml)
-- 2026-06-30 01:49 - [恋与深空回应争议](http://www.share.minike.top/Article/details/3010912965.shtml)
-- 2026-06-30 01:39 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/02758.shtml)
-- 2026-06-30 01:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.kurohicncr.top/Article/details/277430943.shtml)
-- 2026-06-30 01:50 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/32373.shtml)
-- 2026-06-30 01:38 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/607473.shtml)
-- 2026-06-30 01:28 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/55228497.shtml)
-- 2026-06-30 01:27 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/549034617831.shtml)
-- 2026-06-30 01:49 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/24572.shtml)
-- 2026-06-30 01:34 - [范志毅看好日本队淘汰巴西](https://www.blog.kurohicncr.top/Article/details/603278668.shtml)
-- 2026-06-30 01:26 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/50309800071.shtml)
-- 2026-06-30 01:29 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.minike.top/Article/details/76753166.shtml)
+- 2026-06-30 01:41 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/1756178396.shtml)
+- 2026-06-30 01:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/9702908.shtml)
+- 2026-06-30 01:31 - [韩文体部宣布对韩足协开展审计](http://www.blog.kurohicncr.top/Article/details/7007680.shtml)
+- 2026-06-30 01:37 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/3809136446.shtml)
+- 2026-06-30 01:57 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.minike.top/Article/details/41374498521.shtml)
+- 2026-06-30 01:36 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/214461686.shtml)
+- 2026-06-30 01:41 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/95244320391.shtml)
+- 2026-06-30 01:34 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/993643.shtml)
+- 2026-06-30 02:00 - [俄军1周发射上千架无人机有何目的](https://www.share.kurohicncr.top/Article/details/48008.shtml)
+- 2026-06-30 01:59 - [深扒韩国队淘汰背后原因](https://www.blog.minike.top/Article/details/75615778.shtml)
+- 2026-06-30 01:53 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/370983499.shtml)
+- 2026-06-30 01:53 - [锐评T1零封KC](http://www.share.minike.top/Article/details/1562078.shtml)
+- 2026-06-30 01:34 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/62054703.shtml)
+- 2026-06-30 01:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/970186.shtml)
+- 2026-06-30 01:37 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/516788.shtml)

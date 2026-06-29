@@ -1,58 +1,56 @@
-# 湘鄂赣“茶人”湖北羊楼洞“斗茶”续写百年茶缘
+# 建滔、智谱携手冲高18%！规模最大港股通信息技术ETF华宝（159131）涨超3%，盘中价格创上市新高！
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 18:40 来源：中国新闻网 5月10日，首届湘鄂赣斗茶大会在湖北省赤壁市羊楼洞古镇举行。来自江西上饶、宜春、九江，湖南株洲、岳阳、常德，湖北咸宁、恩施、宜昌、黄冈等三省10个市州的茶界代表、涉茶企业负责人及行业同仁齐聚一堂，集中展示各地名优茶品，共话茶产业发展未来。斗茶大会结束后，与会嘉宾还齐聚羊楼洞古街，共同品尝长桌茶宴。 湘鄂赣毗邻地区自
+今日（6月22日）早盘，港股硬科技强势领涨，智谱、建滔集团携手涨逾18%，中芯国际涨超3%。同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高3.09%，盘中价格刷新上市以来高点，实时成交额1.9亿元。 银河证券认为，中期维度下，AI算力产业链、半导体、互联网平台仍是港股最具稀缺性和成长性的方向，建议关注半导体设备/材料、AI平台应用与软件等盈利确
 
 ## 正文
 
-发布时间：2026年05月11日 18:40 来源：中国新闻网 5月10日，首届湘鄂赣斗茶大会在湖北省赤壁市羊楼洞古镇举行。
+今日（6月22日）早盘，港股硬科技强势领涨，智谱、建滔集团携手涨逾18%，中芯国际涨超3%。
 
-来自江西上饶、宜春、九江，湖南株洲、岳阳、常德，湖北咸宁、恩施、宜昌、黄冈等三省10个市州的茶界代表、涉茶企业负责人及行业同仁齐聚一堂，集中展示各地名优茶品，共话茶产业发展未来。
+同类规模最大、流动性最强*的港股通信息技术ETF华宝（159131）场内价格冲高3.09%，盘中价格刷新上市以来高点，实时成交额1.9亿元。
 
-斗茶大会结束后，与会嘉宾还齐聚羊楼洞古街，共同品尝长桌茶宴。
+银河证券认为，中期维度下，AI算力产业链、半导体、互联网平台仍是港股最具稀缺性和成长性的方向，建议关注半导体设备/材料、AI平台应用与软件等盈利确定性强的细分领域。
 
-湘鄂赣毗邻地区自古便是中国茶产业核心产区之一，茶脉绵长、底蕴深厚。
+从近六月表现来看，聚焦港股硬科技的港股通信息技术ETF华宝（159131）标的指数——中证港股通信息技术综合指数累计涨幅超30%，跑赢同期恒生科技45%，跑赢港股通科技41%，跑赢港股通互联网超58%，锐度和弹性显著领先。
 
-赤壁青砖茶醇厚绵长、宁红茶隽永回甘、庐山云雾茶清雅鲜爽、君山银针灵秀甘醇，共同书写了万里茶道的百年商贸传奇。
+统计区间：2025.11.17-2026.6.17。
 
-三省地缘相近、人缘相亲、茶缘相通，具备深厚的茶产业合作基础与广阔的协同发展前景。
+港股通信息C指数2021-2025年年度历史收益分别为：-9.54%、-34.47%、-0.25%、21.58%、39.30%。
 
-(胡传林 制作 董晓斌 视频来源：赤壁市融媒体中心) 责任编辑：【刘湃】
+指数过往业绩不预示未来表现。
+
+港股稀缺“纯血”硬科技！
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 01:38 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 01:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 01:50 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khilk.md)
-- 2026-06-30 01:47 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 01:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 01:28 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-30 01:29 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-30 01:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 01:25 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
-- 2026-06-30 01:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 01:28 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 01:29 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 01:34 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 01:40 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 01:34 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 01:30 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
+- 2026-06-30 01:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
+- 2026-06-30 01:44 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-30 01:47 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
+- 2026-06-30 01:43 - [马光远谈马斯克最大的价值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 01:39 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
+- 2026-06-30 01:39 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
+- 2026-06-30 01:33 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:37 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/54091802948.shtml)
-- 2026-06-30 01:25 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/247668.shtml)
-- 2026-06-30 01:27 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/8860818205.shtml)
-- 2026-06-30 01:34 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/749861.shtml)
-- 2026-06-30 01:32 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/02017.shtml)
-- 2026-06-30 01:38 - [法国生态部长反对大规模安装空调](https://www.share.kurohicncr.top/Article/details/618630.shtml)
-- 2026-06-30 01:41 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/24532.shtml)
-- 2026-06-30 01:41 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.kurohicncr.top/Article/details/290689289.shtml)
-- 2026-06-30 01:36 - [有什么好的高中网课推荐吗？](https://www.blog.kurohicncr.top/Article/details/961996.shtml)
-- 2026-06-30 01:24 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/4015573558.shtml)
-- 2026-06-30 01:41 - [月亮](https://www.blog.minike.top/Article/details/86919.shtml)
-- 2026-06-30 01:29 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/98078573.shtml)
-- 2026-06-30 01:38 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.share.kurohicncr.top/Article/details/3380632.shtml)
-- 2026-06-30 01:43 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/3347569.shtml)
-- 2026-06-30 01:38 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/50610254213.shtml)
+- 2026-06-30 01:31 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/76169140387.shtml)
+- 2026-06-30 01:57 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/94655674878.shtml)
+- 2026-06-30 01:51 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/233335.shtml)
+- 2026-06-30 01:56 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/1889223704.shtml)
+- 2026-06-30 01:32 - [流金岁月](http://www.blog.minike.top/Article/details/987298.shtml)
+- 2026-06-30 01:32 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.kurohicncr.top/Article/details/7832487348.shtml)
+- 2026-06-30 01:32 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/29638.shtml)
+- 2026-06-30 01:59 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/32206.shtml)
+- 2026-06-30 01:51 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/112531423.shtml)
+- 2026-06-30 01:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/38593732.shtml)
+- 2026-06-30 01:58 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/1999782892.shtml)
+- 2026-06-30 01:52 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/9605409099.shtml)
+- 2026-06-30 01:57 - [这一刀 会很帅](https://www.share.minike.top/Article/details/809352.shtml)
+- 2026-06-30 01:36 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/09604.shtml)
+- 2026-06-30 01:32 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/81144854.shtml)

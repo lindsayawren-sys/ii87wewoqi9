@@ -1,58 +1,55 @@
-# 美联储降息预期降温，美元却因风险情绪转弱而承压，日本干预难阻日元颓势
+# 日经指数或上涨，受对美伊谈判重燃希望提振
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——美元指数周五下跌0.43%至97.86，逼近2月27日以来的最低点，并连续第二周录得周线跌幅。尽管美伊双方在霍尔木兹海峡附近再度交火，阿联酋也遭到袭击，但投资者对美国总统特朗普所称“停火仍然有效”的表态持谨慎乐观态度，预期中东冲突有望迅速结束。 分析师指出，美国正试图避免局势升级，这一信号让市场风险偏好回暖。摩根士丹利策略师明确看空美元，认为风险偏好回升和风
+在对美伊和平谈判重燃希望之际，日本股市可能上涨。新加坡交易所的日经指数期货上涨0.2%，报73060点。一些科技股可能会受到隔夜纳斯达克指数下跌的拖累。在美国为伊朗以美元出售石油扫清障碍后，投资者正关注和平谈判的任何进展。日经指数周一上涨1.5%，达到创纪录的72353.96点。责任编辑：王永生
 
 ## 正文
 
-汇通财经APP讯——美元指数周五下跌0.43%至97.86，逼近2月27日以来的最低点，并连续第二周录得周线跌幅。
+在对美伊和平谈判重燃希望之际，日本股市可能上涨。
 
-尽管美伊双方在霍尔木兹海峡附近再度交火，阿联酋也遭到袭击，但投资者对美国总统特朗普所称“停火仍然有效”的表态持谨慎乐观态度，预期中东冲突有望迅速结束。
+新加坡交易所的日经指数期货上涨0.2%，报73060点。
 
-分析师指出，美国正试图避免局势升级，这一信号让市场风险偏好回暖。
+一些科技股可能会受到隔夜纳斯达克指数下跌的拖累。
 
-摩根士丹利策略师明确看空美元，认为风险偏好回升和风险溢价增加将在未来数月将美元指数推低至95。
+在美国为伊朗以美元出售石油扫清障碍后，投资者正关注和平谈判的任何进展。
 
-与此同时，欧元兑美元上涨0.5%至1.17808美元，反映出资金从避险资产流向高收益货币的趋势。
+日经指数周一上涨1.5%，达到创纪录的72353.96点。
 
-值得注意的是，此前伊朗封锁霍尔木兹海峡曾导致油价飙升，投资者蜂拥买入美元避险，但随着停火希望增强，这一逻辑正在逆转。
-
-美国就业市场韧性 美国劳工部数据显示，4月非农就业岗位增加11.5万个，远高于市场预期的6.2万，且3月数据上修至18.5万。
-
-失业率维持在4.3%不变，劳动力市场展现出意外韧性。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 01:25 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 01:28 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 01:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-30 01:25 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 01:34 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 01:45 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
-- 2026-06-30 01:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 01:45 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 01:48 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-30 01:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
-- 2026-06-30 01:39 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 01:41 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-30 01:46 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/topzm.md)
+- 2026-06-30 01:57 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 01:34 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 01:33 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-30 01:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 01:38 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
+- 2026-06-30 01:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-30 01:53 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 01:35 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
+- 2026-06-30 01:57 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-30 01:44 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-30 01:55 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [第一炉香](http://www.blog.minike.top/Article/details/5455590.shtml)
-- 2026-06-30 01:28 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.kurohicncr.top/Article/details/1525390703.shtml)
-- 2026-06-30 01:46 - [把邻居裸体发群算维权还是侵权](http://www.blog.kurohicncr.top/Article/details/778950595.shtml)
-- 2026-06-30 01:36 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/145044091.shtml)
-- 2026-06-30 01:35 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/56063.shtml)
-- 2026-06-30 01:50 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/541777.shtml)
-- 2026-06-30 01:38 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/09734386.shtml)
-- 2026-06-30 01:46 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/562929.shtml)
-- 2026-06-30 01:25 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/70305052.shtml)
-- 2026-06-30 01:40 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/101935.shtml)
-- 2026-06-30 01:25 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/339298284.shtml)
-- 2026-06-30 01:30 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/0337502.shtml)
-- 2026-06-30 01:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/456429469.shtml)
-- 2026-06-30 01:52 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/52062788.shtml)
-- 2026-06-30 01:37 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/12526.shtml)
+- 2026-06-30 01:47 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/07968122.shtml)
+- 2026-06-30 01:37 - [格莱美唱作人锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/62030626043.shtml)
+- 2026-06-30 01:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/69478513128.shtml)
+- 2026-06-30 01:44 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/8554541077.shtml)
+- 2026-06-30 01:33 - [警方回应两名老人多次到洗车店泼粪](https://www.blog.kurohicncr.top/Article/details/897436130292.shtml)
+- 2026-06-30 01:38 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8547091538.shtml)
+- 2026-06-30 01:38 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.minike.top/Article/details/03281.shtml)
+- 2026-06-30 01:34 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/583640089.shtml)
+- 2026-06-30 01:56 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.kurohicncr.top/Article/details/9560143.shtml)
+- 2026-06-30 01:39 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/547836541947.shtml)
+- 2026-06-30 01:56 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/7523846.shtml)
+- 2026-06-30 01:43 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/66471.shtml)
+- 2026-06-30 01:59 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/1532624.shtml)
+- 2026-06-30 01:34 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/56858934.shtml)
+- 2026-06-30 01:32 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.minike.top/Article/details/776575.shtml)

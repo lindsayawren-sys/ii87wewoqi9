@@ -1,59 +1,56 @@
-# 涨势越走越极端 散户扎堆芯片股“过热行情”
+# 新华时评｜以更有力有效之举打击电诈“翻新”
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-散户投资者在4月芯片股创纪录上涨行情中基本缺席，如今却在市场担忧该板块涨势可能减弱之际开始涌入。 根据摩根大通的持仓数据，上周个人投资者对科技股的买入力度升至一年来最高水平，其中受益于人工智能发展的存储芯片公司最受青睐。硬件公司也录得有记录以来第二大资金流入。 尽管没有什么因素明确阻止该板块继续上涨，但费城半导体指数在过去六周已大涨60%，几乎所有估值指标都显得偏高。对于那些直
+新华社北京6月22日电题：以更有力有效之举打击电诈“翻新” 新华社记者刘硕、李明辉 诱导下载陌生App打卡，使受害者逐步“入局”最终上当转账；打着“专业荐股”等旗号，哄骗股民掉入“暴富”陷阱；使用小众通联软件对被害人进行深度洗脑……公安部近期通报显示，电信网络诈骗犯罪手段持续翻新，迷惑性不断增强。面对新形势新变化，需以更有力有效之举筑牢防线，守好百姓“钱袋子”。 这两年来电信诈
 
 ## 正文
 
-散户投资者在4月芯片股创纪录上涨行情中基本缺席，如今却在市场担忧该板块涨势可能减弱之际开始涌入。
+新华社北京6月22日电题：以更有力有效之举打击电诈“翻新” 新华社记者刘硕、李明辉 诱导下载陌生App打卡，使受害者逐步“入局”最终上当转账；打着“专业荐股”等旗号，哄骗股民掉入“暴富”陷阱；使用小众通联软件对被害人进行深度洗脑……公安部近期通报显示，电信网络诈骗犯罪手段持续翻新，迷惑性不断增强。
 
-根据摩根大通的持仓数据，上周个人投资者对科技股的买入力度升至一年来最高水平，其中受益于人工智能发展的存储芯片公司最受青睐。
+面对新形势新变化，需以更有力有效之举筑牢防线，守好百姓“钱袋子”。
 
-硬件公司也录得有记录以来第二大资金流入。
+这两年来电信诈骗打击治理成果显著，但电诈犯罪案件仍然多发高发，诈骗手段不断迭代升级，伪装形式愈发隐蔽。
 
-尽管没有什么因素明确阻止该板块继续上涨，但费城半导体指数在过去六周已大涨60%，几乎所有估值指标都显得偏高。
+犯罪分子从以往主要通过电话、短信方式，转为现在更多通过网络聊天、短视频直播、电商购物、平台生活服务、网络游戏等寻找作案目标。
 
-对于那些直到5月才入场的散户而言，这意味着一旦市场动能突然转变，可能面临亏损风险。
+未成年人及学生群体已成电诈重点侵害对象。
 
-Roundhill Financial Inc．首席执行官Dave Mazza表示，“本轮财报季验证了AI基础设施投资逻辑，半导体和存储芯片公司表现强劲。
+有力有效遏制电诈，必须保持高压严打态势不放松。
 
-展望未来，市场越来越呈现出‘完美定价’状态。
+相关部门提升识别精准度、打击成功率和防骗有效性，把反诈防火墙砌在高危领域中，让更多好用、实用、易用的防骗工具走进老百姓的日常生活。
 
-”他补充称，“散户重新入场本身并非看空信号，但会给这波已上涨很久、且开始呈现抛物线走势的行情再添一把火。
+构筑更坚实的反诈防线，重点要抓好薄弱环节。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-30 01:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 01:27 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 01:43 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 01:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 01:49 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-30 01:27 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 01:45 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 01:41 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 01:45 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 01:25 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 01:24 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 01:47 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 01:44 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 01:58 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 01:47 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 01:46 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
+- 2026-06-30 01:36 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 01:37 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 01:32 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
+- 2026-06-30 01:36 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 01:31 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 01:44 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.minike.top/Article/details/2049744773.shtml)
-- 2026-06-30 01:40 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/198084518.shtml)
-- 2026-06-30 01:26 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/423094700944.shtml)
-- 2026-06-30 01:36 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/7551043.shtml)
-- 2026-06-30 01:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/29912.shtml)
-- 2026-06-30 01:52 - [Prada在内娱首度签下偶像团体](http://www.blog.minike.top/Article/details/1028531066.shtml)
-- 2026-06-30 01:51 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/596248028.shtml)
-- 2026-06-30 01:32 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/3634055.shtml)
-- 2026-06-30 01:46 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/173814.shtml)
-- 2026-06-30 01:46 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/579206195203.shtml)
-- 2026-06-30 01:51 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/8673834.shtml)
-- 2026-06-30 01:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/2634019.shtml)
-- 2026-06-30 01:24 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/286644239275.shtml)
-- 2026-06-30 01:50 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/308243.shtml)
-- 2026-06-30 01:24 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/74648227532.shtml)
+- 2026-06-30 01:54 - [同样是装空调差别怎么能这么大](http://www.blog.kurohicncr.top/Article/details/57327.shtml)
+- 2026-06-30 01:56 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/978310.shtml)
+- 2026-06-30 01:30 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/3718718.shtml)
+- 2026-06-30 01:32 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/687756135688.shtml)
+- 2026-06-30 01:44 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/04660128594.shtml)
+- 2026-06-30 01:52 - [网警提醒警惕高考查分陷阱](http://www.share.minike.top/Article/details/42868.shtml)
+- 2026-06-30 01:33 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/961672603082.shtml)
+- 2026-06-30 01:37 - [国常会听取人工智能发展情况汇报](http://www.share.kurohicncr.top/Article/details/38560492244.shtml)
+- 2026-06-30 01:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/18839203.shtml)
+- 2026-06-30 01:34 - [速度与激情9](https://www.share.minike.top/Article/details/06597765.shtml)
+- 2026-06-30 01:33 - [浪姐成团夜爆笑吐槽](https://www.blog.minike.top/Article/details/452975092791.shtml)
+- 2026-06-30 01:55 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/634333.shtml)
+- 2026-06-30 01:51 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.kurohicncr.top/Article/details/5981936.shtml)
+- 2026-06-30 01:44 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/45796190417.shtml)
+- 2026-06-30 01:53 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/6835341029.shtml)

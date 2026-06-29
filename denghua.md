@@ -1,57 +1,52 @@
-# 安徽眼镜大佬陶悦群创立的欧普康视，5年缩水250亿
+# 建设银行：完成发行300亿元无固定期限资本债券
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-记者丨韩璐 编辑丨鄢子为 眼镜大佬陶悦群，要带老队伍打一场硬仗。 5月6日，他创立的欧普康视，完成董事会换届选举。作为实控人，陶悦群继续当选董事长兼总经理，其余6名副总经理照旧。 和上一届任期相比，七人面对的行业环境截然不同。 因竞争加剧，增长乏力，1~3月，该企业营收和净利润双双下滑。 “OK镜业务，的确处在瓶颈期。”《21CBR》记者以投资人身份致电欧普康视，相关负责人坦言
+6月22日金融一线消息，建设银行发布公告，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年无固定期限资本债券（第一期）（债券通），并于2026年6月18日完成发行。本期债券发行规模为人民币300亿元，前5年票面利率为1.92%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。本期债券募集的资金将依据适用法律和监管部门的批准
 
 ## 正文
 
-记者丨韩璐 编辑丨鄢子为 眼镜大佬陶悦群，要带老队伍打一场硬仗。
+6月22日金融一线消息，建设银行发布公告，经相关监管机构批准，该行近日在全国银行间债券市场发行了中国建设银行股份有限公司2026年无固定期限资本债券（第一期）（债券通），并于2026年6月18日完成发行。
 
-5月6日，他创立的欧普康视，完成董事会换届选举。
+本期债券发行规模为人民币300亿元，前5年票面利率为1.92%，每5年调整一次，在第5年及之后的每个付息日附发行人有条件赎回权。
 
-作为实控人，陶悦群继续当选董事长兼总经理，其余6名副总经理照旧。
+本期债券募集的资金将依据适用法律和监管部门的批准，补充该行的其他一级资本。
 
-和上一届任期相比，七人面对的行业环境截然不同。
-
-因竞争加剧，增长乏力，1~3月，该企业营收和净利润双双下滑。
-
-“OK镜业务，的确处在瓶颈期。
-
-”《21CBR》记者以投资人身份致电欧普康视，相关负责人坦言。
-
-“老产品OK镜降价，我们推出新品以抵消冲击。
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 01:34 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 01:35 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-30 01:52 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 01:45 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-30 01:52 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
-- 2026-06-30 01:25 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-30 01:44 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-30 01:44 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-30 01:30 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 01:32 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 01:55 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-30 01:53 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 01:47 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 01:44 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 01:51 - [国务院：稳步推进研究生考试招生改革](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
+- 2026-06-30 01:34 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
+- 2026-06-30 01:34 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 01:34 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
+- 2026-06-30 01:45 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
+- 2026-06-30 01:44 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-30 01:37 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 01:46 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-30 01:32 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-30 01:36 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:54 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/733179760.shtml)
-- 2026-06-30 01:31 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/61144786.shtml)
-- 2026-06-30 01:24 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/157470860683.shtml)
-- 2026-06-30 01:28 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/70635364.shtml)
-- 2026-06-30 01:41 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/431334813172.shtml)
-- 2026-06-30 01:45 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/854895288.shtml)
-- 2026-06-30 01:26 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/81587882378.shtml)
-- 2026-06-30 01:51 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/88220433296.shtml)
-- 2026-06-30 01:44 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/42178047.shtml)
-- 2026-06-30 01:43 - [马光远谈马斯克最大的价值](https://www.blog.kurohicncr.top/Article/details/500003.shtml)
-- 2026-06-30 01:45 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/067833231.shtml)
-- 2026-06-30 01:44 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/49141.shtml)
-- 2026-06-30 01:38 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/09818.shtml)
-- 2026-06-30 01:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/176661513.shtml)
-- 2026-06-30 01:36 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/780943.shtml)
+- 2026-06-30 01:43 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/710608688620.shtml)
+- 2026-06-30 01:54 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/656147902.shtml)
+- 2026-06-30 01:37 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/75825820.shtml)
+- 2026-06-30 01:33 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/648463427.shtml)
+- 2026-06-30 01:46 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/859005881077.shtml)
+- 2026-06-30 01:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/436128781.shtml)
+- 2026-06-30 01:56 - [欧洲人高温天为啥用不了空调](https://www.blog.minike.top/Article/details/761133756.shtml)
+- 2026-06-30 01:46 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/8772593053.shtml)
+- 2026-06-30 01:56 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/825756057.shtml)
+- 2026-06-30 01:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/2030964647.shtml)
+- 2026-06-30 01:44 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/8434528961.shtml)
+- 2026-06-30 01:38 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/45469.shtml)
+- 2026-06-30 01:56 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/598764.shtml)
+- 2026-06-30 01:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/6307579.shtml)
+- 2026-06-30 01:47 - [桂林原书记周家斌贪1.98亿被判无期](http://www.share.kurohicncr.top/Article/details/4542523.shtml)

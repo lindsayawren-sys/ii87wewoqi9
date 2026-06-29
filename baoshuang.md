@@ -1,61 +1,56 @@
-# 榴莲+酒导致呼吸衰竭 切记这些食物别跟酒一起食用
+# 易捷航空董事会拒绝卡斯尔莱克63亿美元收购要约
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-近日福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。随后出现呼吸困难、意识模糊等严重症状。榴莲配酒为何会诱发危险？吃完榴莲后多久可以饮酒？还有哪些食物不能和酒一起食用？看看医生怎么说。医务人员指出，榴莲搭配酒精的危害机制与头孢类药物类似，相关研究提示可能引发类似“双硫仑样反应”的毒性作用。“双硫仑样反应”又称戒酒硫样反应，是指服用特定药物前后接触酒精，导致体内乙醛
+根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。 易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支
 
 ## 正文
 
-近日福建一位女子聚餐时，先吃了两大块榴莲，又喝了约200毫升白酒。
+根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。
 
-随后出现呼吸困难、意识模糊等严重症状。
+易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。
 
-榴莲配酒为何会诱发危险？
+受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支持其将易捷航空私有化的收购计划。
 
-吃完榴莲后多久可以饮酒？
+按照收购方案，接受要约的易捷航空股东每股可获得 625 便士现金。
 
-还有哪些食物不能和酒一起食用？
+相较于该机构首次披露拟发起收购前、公司 5 月 28 日 394.20 便士的收盘价，本次要约溢价约 59%。
 
-看看医生怎么说。
+卡斯尔莱克要求易捷航空股东在本周五监管申报截止日期前考量该收购方案，届时收购方需正式对外公布明确的收购意向。
 
-医务人员指出，榴莲搭配酒精的危害机制与头孢类药物类似，相关研究提示可能引发类似“双硫仑样反应”的毒性作用。
+过去一个月内，该机构已先后两次提出收购报价：每股 560 便士、每股 600 便士的要约分别在本周二、上周六遭到拒绝，最新一轮收购要约于上周日被易捷航空董事会否决。
 
-“双硫仑样反应”又称戒酒硫样反应，是指服用特定药物前后接触酒精，导致体内乙醛代谢受阻，蓄积中毒而引发的一系列临床综合征。
+易捷航空表示，董事会全体一致否决本次最新要约，理由是该报价仍严重低估了公司自身业务价值与未来发展前景，并建议股东现阶段不要接受本次收购邀约。
 
 ## 相关推荐
 
-- 2026-06-30 01:37 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 01:29 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 01:38 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 01:36 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-30 01:34 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-30 01:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pnxaz.md)
-- 2026-06-30 01:39 - [点菜也要教吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 01:39 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 01:32 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 01:30 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 01:25 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 01:41 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 01:34 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-30 01:29 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
-- 2026-06-30 01:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 01:46 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 01:43 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 01:48 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 01:35 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-30 01:34 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-30 01:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 01:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-30 01:42 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-30 01:38 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 01:37 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:45 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/933133286.shtml)
-- 2026-06-30 01:47 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/148334.shtml)
-- 2026-06-30 01:51 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/54126686669.shtml)
-- 2026-06-30 01:43 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/1570789.shtml)
-- 2026-06-30 01:26 - [恋与深空致歉](http://www.share.minike.top/Article/details/054401.shtml)
-- 2026-06-30 01:31 - [德约科维奇向温网对手放狠话](http://www.share.kurohicncr.top/Article/details/713150198.shtml)
-- 2026-06-30 01:33 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/3603416.shtml)
-- 2026-06-30 01:36 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/6477119129.shtml)
-- 2026-06-30 01:41 - [欧洲人高温天为啥用不了空调](https://www.share.kurohicncr.top/Article/details/022774702434.shtml)
-- 2026-06-30 01:24 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/6603044304.shtml)
-- 2026-06-30 01:25 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/54280819.shtml)
-- 2026-06-30 01:25 - [怕iPhone涨价的用户已紧急换新](http://www.share.minike.top/Article/details/07576.shtml)
-- 2026-06-30 01:46 - [月亮](http://www.share.kurohicncr.top/Article/details/437537469.shtml)
-- 2026-06-30 01:37 - [长沙菜农公交的人间烟火气](http://www.share.minike.top/Article/details/684146.shtml)
-- 2026-06-30 01:25 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/88753.shtml)
+- 2026-06-30 01:50 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/660325022.shtml)
+- 2026-06-30 01:53 - [曼城官宣马雷斯卡出任主教练](http://www.share.kurohicncr.top/Article/details/6216212.shtml)
+- 2026-06-30 01:44 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/016188919.shtml)
+- 2026-06-30 01:43 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/6503013.shtml)
+- 2026-06-30 01:55 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/5745046.shtml)
+- 2026-06-30 01:33 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.minike.top/Article/details/515893069.shtml)
+- 2026-06-30 01:41 - [起风了](https://www.share.kurohicncr.top/Article/details/485895130250.shtml)
+- 2026-06-30 01:50 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/387109678.shtml)
+- 2026-06-30 01:32 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/309645.shtml)
+- 2026-06-30 01:31 - [高中五人学习小组全员超650分](https://www.share.kurohicncr.top/Article/details/509496060568.shtml)
+- 2026-06-30 01:31 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/6666387.shtml)
+- 2026-06-30 01:33 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/99910782930.shtml)
+- 2026-06-30 01:48 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/31947.shtml)
+- 2026-06-30 01:50 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/0165041.shtml)
+- 2026-06-30 01:31 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/74445.shtml)

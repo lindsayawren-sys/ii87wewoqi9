@@ -1,56 +1,49 @@
-# 【讲习所·领航“十五五”】开局之年，习近平引领中国向科技强国奋进
+# 【小新的vlog】侏罗纪秘境“邂逅”董永七仙女？带你游华中文旅新地标
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-今年是中国实施“十五五”规划开局之年。从主持中共高层集体学习时指示要“加大重点领域关键核心技术攻关力度”，亲赴北京信创园考察时强调“建设社会主义现代化强国，关键在科技自立自强”，再到中国两会“下团组”时明确要求“要一体推进教育科技人才发展”，在上海出席加强基础研究座谈会时强调“提升我国原始创新能力”。这场关于科技创新的深层变革正在中共中央总书记、国家主席习近平的引领下加速、加力
+发布时间：2026年06月21日 13:47 来源：中国新闻网 作为“中华孝文化名城”，孝感新近落成一处华中文旅新地标，园区巧妙融合史前侏罗纪奇幻场景与董永七仙女本土孝爱传说，两种截然不同的体验在此相遇，带来别样游览感受。小新带你解锁这份双倍快乐！ 邹浩 卢琪湖北孝感报道 责任编辑：【李季】
 
 ## 正文
 
-今年是中国实施“十五五”规划开局之年。
+发布时间：2026年06月21日 13:47 来源：中国新闻网 作为“中华孝文化名城”，孝感新近落成一处华中文旅新地标，园区巧妙融合史前侏罗纪奇幻场景与董永七仙女本土孝爱传说，两种截然不同的体验在此相遇，带来别样游览感受。
 
-从主持中共高层集体学习时指示要“加大重点领域关键核心技术攻关力度”，亲赴北京信创园考察时强调“建设社会主义现代化强国，关键在科技自立自强”，再到中国两会“下团组”时明确要求“要一体推进教育科技人才发展”，在上海出席加强基础研究座谈会时强调“提升我国原始创新能力”。
+小新带你解锁这份双倍快乐！
 
-这场关于科技创新的深层变革正在中共中央总书记、国家主席习近平的引领下加速、加力。
-
-“以更大力度更实举措加强基础研究” 4月30日，习近平在上海出席加强基础研究座谈会并发表重要讲话。
-
-他强调，基础研究是整个科学体系的源头，是所有技术问题的总机关。
-
-要以更大力度、更实举措加强基础研究，提升我国原始创新能力，进一步打牢科技强国建设根基。
-
-目前，中国基础研究已持续取得长足进步。
-
-2025年，中国基础研究投入接近2800亿元，占全社会研发投入比重达到7.08%，首次破7，创历史新高。
+邹浩 卢琪湖北孝感报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 01:41 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 01:31 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 01:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 01:45 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 01:25 - [时光音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-30 01:25 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-30 01:52 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 01:52 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 01:43 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 01:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
+- 2026-06-30 01:48 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
+- 2026-06-30 01:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
+- 2026-06-30 01:52 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 01:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 01:48 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 01:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 01:55 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 01:50 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 01:37 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 01:43 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-30 01:33 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
+- 2026-06-30 01:53 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-30 01:37 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/233848629.shtml)
-- 2026-06-30 01:35 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/37331195.shtml)
-- 2026-06-30 01:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/883203591.shtml)
-- 2026-06-30 01:25 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/2681796.shtml)
-- 2026-06-30 01:26 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/38629.shtml)
-- 2026-06-30 01:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/49841569897.shtml)
-- 2026-06-30 01:34 - [《贺子珍》](http://www.share.minike.top/Article/details/859647.shtml)
-- 2026-06-30 01:51 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/039611766.shtml)
-- 2026-06-30 01:29 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/04008.shtml)
-- 2026-06-30 01:37 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/79684.shtml)
-- 2026-06-30 01:36 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.kurohicncr.top/Article/details/3302690.shtml)
-- 2026-06-30 01:25 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/606882012477.shtml)
-- 2026-06-30 01:38 - [曼城官宣马雷斯卡出任主教练](https://www.share.kurohicncr.top/Article/details/508805.shtml)
-- 2026-06-30 01:26 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/7570120.shtml)
-- 2026-06-30 01:27 - [有哪些值得一提的生活窍门？](http://www.blog.minike.top/Article/details/225193.shtml)
+- 2026-06-30 01:35 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/138225055.shtml)
+- 2026-06-30 01:50 - [网警提醒警惕高考查分陷阱](https://www.blog.minike.top/Article/details/061951046441.shtml)
+- 2026-06-30 01:32 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/7942575.shtml)
+- 2026-06-30 01:31 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/949568702.shtml)
+- 2026-06-30 01:55 - [刘宇宁 好听](http://www.share.kurohicncr.top/Article/details/7852587.shtml)
+- 2026-06-30 01:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/616636258909.shtml)
+- 2026-06-30 01:50 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/835071057985.shtml)
+- 2026-06-30 01:54 - [85花告别古偶](https://www.share.minike.top/Article/details/6005809.shtml)
+- 2026-06-30 01:46 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/0904032231.shtml)
+- 2026-06-30 01:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/54134991410.shtml)
+- 2026-06-30 01:44 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/628637441618.shtml)
+- 2026-06-30 01:54 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/6185224.shtml)
+- 2026-06-30 01:45 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/951791625.shtml)
+- 2026-06-30 01:45 - [金牌调解](http://www.share.kurohicncr.top/Article/details/02152435.shtml)
+- 2026-06-30 01:39 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/605047.shtml)

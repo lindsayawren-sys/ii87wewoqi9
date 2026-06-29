@@ -1,59 +1,58 @@
-# “人类命运共同体理念与中国国际关系自主知识体系构建”学术研讨会举行
+# 端午一过鸡蛋就跌，这事怎么看？
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月11日电 近日，由人类命运共同体研究中心、中国国际关系学会主办的“人类命运共同体理念与中国国际关系自主知识体系构建”学术研讨会在外交学院举办。 外交部副部长、人类命运共同体研究中心副主任苗得雨出席开幕式并作主旨讲话。来自国内60余家知名高校及科研机构的150余位专家学者出席研讨会，外交学院党委书记、中心秘书长王世廷致辞，外交学院院长、中心副秘书长高飞主持会议。 苗
+作者：侯晓瑞/F3044447、Z0015326/一德期货生鲜畜牧分析师 要点速览版 短期考验 季节性淡季叠加天气因素，贸易环节采购谨慎，现货价格短期内仍将承压。 后市展望 支撑：供应偏紧的现实虽被延淘老鸡部分对冲，但并未完全逆转，本轮下跌空间预计有限； 驱动：中秋备货行情或是未来潜在的需求端驱动，若现货在梅雨季结束后企稳，此预期将重新进入市场定价。 随着端午备货落幕，终端刚需
 
 ## 正文
 
-中新网北京5月11日电 近日，由人类命运共同体研究中心、中国国际关系学会主办的“人类命运共同体理念与中国国际关系自主知识体系构建”学术研讨会在外交学院举办。
+作者：侯晓瑞/F3044447、Z0015326/一德期货生鲜畜牧分析师 要点速览版 短期考验 季节性淡季叠加天气因素，贸易环节采购谨慎，现货价格短期内仍将承压。
 
-外交部副部长、人类命运共同体研究中心副主任苗得雨出席开幕式并作主旨讲话。
+后市展望 支撑：供应偏紧的现实虽被延淘老鸡部分对冲，但并未完全逆转，本轮下跌空间预计有限； 驱动：中秋备货行情或是未来潜在的需求端驱动，若现货在梅雨季结束后企稳，此预期将重新进入市场定价。
 
-来自国内60余家知名高校及科研机构的150余位专家学者出席研讨会，外交学院党委书记、中心秘书长王世廷致辞，外交学院院长、中心副秘书长高飞主持会议。
+随着端午备货落幕，终端刚需回落，蛋价开启季节性回调，现货价格呈现全面下跌态势。
 
-苗得雨指出，构建人类命运共同体是习近平外交思想的核心理念，是指引世界前行之路的科学罗盘，是新时代中国外交的思想旗帜，是中国式现代化的本质要求，是构建中国国际关系自主知识体系的统领和遵循。
+供应端 当前在产蛋鸡存栏处于偏低水平，且新开产增量有限。
 
-人类命运共同体研究中心牵头发起人类命运共同体国内研究合作网络，旨在汇聚全国高校和科研机构力量，围绕学理化阐释和自主知识体系构建开展联合研究、协同攻关和成果共享。
+不过，养殖端在高利润驱动下淘汰意愿偏弱，淘汰日龄已延后至536天以上，前期延淘的老鸡仍在产蛋，这在一定程度上弥补了新开产的不足。
 
-希望各成员单位提高政治站位、加强理论武装；坚持标志性成果牵引、提升自主知识体系建设集成；坚持开放协同、形成全国学术力量共同参与的研究格局；着力提升国际阐释传播效能，推动人类命运共同体理念更好走向世界；以学理研究反哺政策研究、提升服务中国特色大国外交的资政能力；加强育人聚才、夯实自主知识体系建设的长远基础。
+尽管供应偏紧的局面并未完全缓解，但在阶段性利空兑现后，现货价格仍有趋势上行的可能。
 
-开幕式上，人类命运共同体国内研究合作网络启动仪式和中心中英文网站上线仪式举行。
+需求端 端午备货结束后，食品厂与商超的采购量明显缩减。
 
-(完)
+同时，南方进入梅雨季节，高温高湿环境加大了鸡蛋的储存难度，贸易商拿货趋于谨慎，导致市场走货速度放缓。
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 01:47 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-30 01:31 - [韩国股市绑架日本？高盛警告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 01:50 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 01:46 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 01:33 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
-- 2026-06-30 01:27 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 01:39 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 01:30 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 01:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
-- 2026-06-30 01:39 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
-- 2026-06-30 01:50 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 01:35 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 01:46 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 01:53 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 01:35 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 01:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 01:40 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 01:55 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 01:35 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-30 01:53 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-30 01:46 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-30 01:49 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-30 01:49 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 01:43 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:48 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/2059380.shtml)
-- 2026-06-30 01:24 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/198976139946.shtml)
-- 2026-06-30 01:46 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/6741128538.shtml)
-- 2026-06-30 01:44 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/95415460.shtml)
-- 2026-06-30 01:47 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/23616445943.shtml)
-- 2026-06-30 01:41 - [请回答王牌2019](https://www.blog.minike.top/Article/details/692899.shtml)
-- 2026-06-30 01:26 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/1115539788.shtml)
-- 2026-06-30 01:49 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/105370690857.shtml)
-- 2026-06-30 01:29 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/19473.shtml)
-- 2026-06-30 01:43 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/631594.shtml)
-- 2026-06-30 01:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/010027.shtml)
-- 2026-06-30 01:29 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/410735569.shtml)
-- 2026-06-30 01:36 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/66093515.shtml)
-- 2026-06-30 01:46 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/979277940.shtml)
-- 2026-06-30 01:27 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/605786297.shtml)
+- 2026-06-30 01:30 - [一切民族英雄都是中华民族的脊梁](http://www.share.kurohicncr.top/Article/details/360222640115.shtml)
+- 2026-06-30 01:57 - [孙兴慜发长文致歉](http://www.share.minike.top/Article/details/12175389823.shtml)
+- 2026-06-30 01:52 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/75757119780.shtml)
+- 2026-06-30 01:30 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/373220802.shtml)
+- 2026-06-30 01:59 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/795607849.shtml)
+- 2026-06-30 01:35 - [极限挑战第一季](https://www.share.minike.top/Article/details/60901.shtml)
+- 2026-06-30 01:58 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/121927.shtml)
+- 2026-06-30 01:52 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/82047965.shtml)
+- 2026-06-30 01:36 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/450339721.shtml)
+- 2026-06-30 01:58 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/6929151649.shtml)
+- 2026-06-30 01:53 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/73692.shtml)
+- 2026-06-30 01:38 - [腾讯与长鑫存储签200亿大单](http://www.blog.minike.top/Article/details/938728.shtml)
+- 2026-06-30 01:57 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/70973097945.shtml)
+- 2026-06-30 01:45 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/66287947819.shtml)
+- 2026-06-30 01:57 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/74503.shtml)

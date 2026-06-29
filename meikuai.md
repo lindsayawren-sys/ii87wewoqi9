@@ -1,57 +1,58 @@
-# 康耐特光学注销262.85万股已购回H股
+# 家用光疗设备买的是“美容神器”还是情绪价值？医生解答
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-康耐特光学（02276）发布公告，截至2026年4月30日，本公司于香港联合交易所有限公司进行一系列H股回购，合共回购262.85万股H股（股份回购），约占本公司于2025年6月12日股东大会批准回购H股的一般授权当日的已发行股本总额约0.548%。根据董事局于2026年5月5日通过的决议案，本公司回购的全部262.85万股H股已于2026年5月8日注销。股份回购所用资金总额为
+从“照照就变白”到“边洗澡边美容”，家用光疗设备来了 买的是“美容神器”还是情绪价值？ “30岁就‘老’了！再不加点‘猛料’，脸就完了！”社交媒体上，被这类话术戳中年龄焦虑的人，远比想象中更多。 从“照照就变白”的大排灯，到宣称“边洗澡边美容”的浴霸美容舱，家用光疗设备正被不少人加入购物车。有数据显示，中国家用美容仪市场规模年均复合增长率超过30%，今年预计将突破200亿元。而
 
 ## 正文
 
-康耐特光学（02276）发布公告，截至2026年4月30日，本公司于香港联合交易所有限公司进行一系列H股回购，合共回购262.85万股H股（股份回购），约占本公司于2025年6月12日股东大会批准回购H股的一般授权当日的已发行股本总额约0.548%。
+从“照照就变白”到“边洗澡边美容”，家用光疗设备来了 买的是“美容神器”还是情绪价值？
 
-根据董事局于2026年5月5日通过的决议案，本公司回购的全部262.85万股H股已于2026年5月8日注销。
+“30岁就‘老’了！
 
-股份回购所用资金总额为1.297亿港元（不包括交易成本）。
+再不加点‘猛料’，脸就完了！
 
-于根据H股回购计划回购的H股被注销后，本公司已发行H股总数将由5.069亿股减少至5.043亿股H股。
+”社交媒体上，被这类话术戳中年龄焦虑的人，远比想象中更多。
 
-本公司或会视乎市场情况，继续实施其2026年H股回购计划。
+从“照照就变白”的大排灯，到宣称“边洗澡边美容”的浴霸美容舱，家用光疗设备正被不少人加入购物车。
 
-责任编辑：卢昱君
+有数据显示，中国家用美容仪市场规模年均复合增长率超过30%，今年预计将突破200亿元。
+
+而在市场狂奔的另一面，“越照越黑”“用完烂脸”的吐槽与日俱增。
+
+当一束光被包装出种种神奇功效，消费者高价买回家的，是光电新科技，还是一种昂贵的情绪价值甚至是未被察觉的皮肤隐患？
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 01:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-30 01:38 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 01:36 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 01:33 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-30 01:48 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 01:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-30 01:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 01:52 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-30 01:49 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 01:40 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 01:45 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
-- 2026-06-30 01:27 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjmds.md)
-- 2026-06-30 01:27 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-30 01:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 01:34 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 01:49 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
+- 2026-06-30 01:34 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 01:40 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
+- 2026-06-30 01:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-30 01:37 - [曼城官宣马雷斯卡出任主教练](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 01:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 01:54 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-30 01:40 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-30 01:44 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 01:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 01:51 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:44 - [女子发现孩子非现任亲生起诉前任](https://www.blog.minike.top/Article/details/8137887373.shtml)
-- 2026-06-30 01:51 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/304977336.shtml)
-- 2026-06-30 01:51 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/4533905.shtml)
-- 2026-06-30 01:52 - [中国气象局启动气象灾害四级应急响应](https://www.blog.kurohicncr.top/Article/details/94238752382.shtml)
-- 2026-06-30 01:39 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/342747.shtml)
-- 2026-06-30 01:35 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/38740.shtml)
-- 2026-06-30 01:34 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/513317573.shtml)
-- 2026-06-30 01:49 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/53498.shtml)
-- 2026-06-30 01:42 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/4697495.shtml)
-- 2026-06-30 01:28 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/85892.shtml)
-- 2026-06-30 01:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/90889861595.shtml)
-- 2026-06-30 01:44 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/69735374.shtml)
-- 2026-06-30 01:31 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/084700.shtml)
-- 2026-06-30 01:52 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/347364856928.shtml)
-- 2026-06-30 01:39 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/82187558.shtml)
+- 2026-06-30 01:46 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/701907449746.shtml)
+- 2026-06-30 01:39 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/88294.shtml)
+- 2026-06-30 01:55 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/686072.shtml)
+- 2026-06-30 01:42 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/190879184.shtml)
+- 2026-06-30 01:46 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/586048.shtml)
+- 2026-06-30 01:50 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/16126450437.shtml)
+- 2026-06-30 01:42 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/883994.shtml)
+- 2026-06-30 01:35 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.minike.top/Article/details/009109.shtml)
+- 2026-06-30 01:58 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/2700943195.shtml)
+- 2026-06-30 01:38 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/9060959247.shtml)
+- 2026-06-30 01:37 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/96254209334.shtml)
+- 2026-06-30 01:42 - [女心理师](http://www.share.minike.top/Article/details/40328.shtml)
+- 2026-06-30 01:37 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/12208353.shtml)
+- 2026-06-30 01:53 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/528315770.shtml)
+- 2026-06-30 01:33 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/3469324801.shtml)

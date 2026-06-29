@@ -1,59 +1,57 @@
-# 总编星语 | 董秘“紧箍咒”落地：从“为老板挡子弹”到“对规则负责”
+# 新突破！日日顺入选全球首座大件供应链韧性灯塔
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：星岛记事 资本市场一个隐秘生态，正在经历剧烈震荡。 昨天（2026年4月24日），中国证监会发布《上市公司董事会秘书监管规则》，其中明确赋予董秘“直报权”，并建立严格追责机制。 消息一出，便在圈内引发广泛关注。今天清早，我所在某跑群，便有公司高管破例，
+6月22日，世界经济论坛（WEF）正式公布第16批全球灯塔网络（GLN)名单，海尔智家旗下日日顺青岛智慧物流园获评供应链韧性灯塔。此次入选，日日顺正式跻身全球灯塔网络核心成员，成为全球灯塔网络首座大件供应链韧性灯塔，同时也成为中国物流行业首次获此殊荣的供应链科技生态企业。这不仅标志着日日顺供应链在供应链物流领域数智化与服务能力获得国际权威认可，也是海尔智家打造平台服务型科技生态
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+6月22日，世界经济论坛（WEF）正式公布第16批全球灯塔网络（GLN)名单，海尔智家旗下日日顺青岛智慧物流园获评供应链韧性灯塔。
 
-来源：星岛记事 资本市场一个隐秘生态，正在经历剧烈震荡。
+此次入选，日日顺正式跻身全球灯塔网络核心成员，成为全球灯塔网络首座大件供应链韧性灯塔，同时也成为中国物流行业首次获此殊荣的供应链科技生态企业。
 
-昨天（2026年4月24日），中国证监会发布《上市公司董事会秘书监管规则》，其中明确赋予董秘“直报权”，并建立严格追责机制。
+这不仅标志着日日顺供应链在供应链物流领域数智化与服务能力获得国际权威认可，也是海尔智家打造平台服务型科技生态企业的又一缩影。
 
-消息一出，便在圈内引发广泛关注。
+▍全球权威认证，拓展海尔智家全链路灯塔版图全球灯塔网络由世界经济论坛联合麦肯锡发起，设立生产效率、供应链韧性、可持续发展、客户至上、人才发展五大专业类别。
 
-今天清早，我所在某跑群，便有公司高管破例，尚未分享跑步记录截图，就先聊上述意见的条款，其他高管则提及有自媒体解读“预计释放约千名董秘岗位”等议论和畅想。
+其评选标准严苛，全程由第三方独立核验，是目前全球制造业与供应链领域公认的权威认证之一。
 
-而就在前天，老牌家居企业菲林格尔（维权）（603226.SH）公告，原副董事长兼董秘孔磊因工作调整辞任董秘职务，同时聘任年仅34岁的中信证券前投行副总裁张益飞接任。
+此次世界经济论坛新增16座全球灯塔工厂，全球灯塔网络成员工厂总数达238家。
 
-更耐人寻味的是，一周前，A股市场还发生一起极端的反目事件。
+其中，供应链韧性标杆，是授予依托供应链全链路改造（规划、履约、物流等），提升业务响应速度、信息透明度与营运资金管控能力的生产基地。
 
-据《上海证券报》报道，4月15日，棒杰股份（002975.SZ）董事长曹远刚公开通过媒体及监管渠道，“举报”自家董秘刘栩越权信披、违规用印，导致公司陷入治理危机。
+世界经济论坛董事总经理基瓦・奥尔古德表示：“全球顶尖制造企业不再局限于优化单一生产工序，而是重构整套运营体系。
 
 ## 相关推荐
 
-- 2026-06-30 01:38 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 01:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-30 01:24 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-30 01:37 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
-- 2026-06-30 01:26 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-30 01:50 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 01:49 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
-- 2026-06-30 01:39 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 01:33 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 01:38 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 01:24 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 01:28 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-30 01:24 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 01:40 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-30 01:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 01:40 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 01:32 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 01:57 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 01:52 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-30 01:45 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 01:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
+- 2026-06-30 01:44 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 01:39 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
+- 2026-06-30 01:40 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djmat.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [世界杯](http://www.share.minike.top/Article/details/599888417.shtml)
-- 2026-06-30 01:42 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/7161810.shtml)
-- 2026-06-30 01:40 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/5305274380.shtml)
-- 2026-06-30 01:39 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/051933152057.shtml)
-- 2026-06-30 01:30 - [房价什么时候能涨](https://www.blog.minike.top/Article/details/372686995.shtml)
-- 2026-06-30 01:34 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/99125.shtml)
-- 2026-06-30 01:48 - [千与千寻](https://www.share.kurohicncr.top/Article/details/8893686.shtml)
-- 2026-06-30 01:27 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/20741308.shtml)
-- 2026-06-30 01:37 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/6047732.shtml)
-- 2026-06-30 01:51 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/3149105038.shtml)
-- 2026-06-30 01:41 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/27222.shtml)
-- 2026-06-30 01:31 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/867289830.shtml)
-- 2026-06-30 01:45 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/6021802591.shtml)
-- 2026-06-30 01:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/5146488.shtml)
-- 2026-06-30 01:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/5591916.shtml)
+- 2026-06-30 01:58 - [高考填志愿父亲和女儿产生分歧](http://www.blog.kurohicncr.top/Article/details/52899.shtml)
+- 2026-06-30 01:37 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/205151139.shtml)
+- 2026-06-30 01:46 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/920564004.shtml)
+- 2026-06-30 01:35 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/8827270.shtml)
+- 2026-06-30 01:36 - [日本进球](https://www.share.minike.top/Article/details/738839.shtml)
+- 2026-06-30 01:50 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/02182094188.shtml)
+- 2026-06-30 01:46 - [刘宇宁 好听](https://www.share.minike.top/Article/details/85081.shtml)
+- 2026-06-30 01:40 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.minike.top/Article/details/86091501.shtml)
+- 2026-06-30 01:55 - [辛纳vs凯茨玛诺维奇](https://www.share.minike.top/Article/details/710090.shtml)
+- 2026-06-30 01:41 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/6254707.shtml)
+- 2026-06-30 01:43 - [恋与深空需正视价值观偏差](https://www.share.kurohicncr.top/Article/details/4620845742.shtml)
+- 2026-06-30 01:57 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/5240648.shtml)
+- 2026-06-30 01:33 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/122259.shtml)
+- 2026-06-30 01:57 - [湖南祁东原文化馆被指贱卖](https://www.blog.kurohicncr.top/Article/details/3569442.shtml)
+- 2026-06-30 01:33 - [扬名立万](http://www.blog.minike.top/Article/details/04581795.shtml)

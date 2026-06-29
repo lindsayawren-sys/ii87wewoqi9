@@ -1,58 +1,50 @@
-# 对话：资本赋能・智创未来：机器人产业投融资热点与商业化破局
+# 苑举正谈岛内无人愿服兵役：台当局张口闭口要跟大陆“开战”，那不是开玩笑吗？
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。凯联资本硬科技行业合伙人姚宁波，启银资本董事长、启智具身智能科技创始人宋炎，融创投资执行合伙人、天津大学博士生导李翔宇出席并围绕“资本赋能・智创未来：机器人产业投融资热点与商业化破局”展开讨论，鼎旭投资管理合伙人，中关村高企协会副会长，创投委专职副主任郭海涛担任主持
+发布时间：2026年06月23日 07:50 来源：中国新闻网 6月22日，台湾大学哲学系教授苑举正参访重庆建川博物馆。在接受记者采访时，苑举正表示，大陆军队有非常多科技、军事外交人才，他们都一起为中国的未来努力，让中国不落后，能够有资格和平崛起。而岛内当前没有人愿意服兵役，民进党当局开口闭口就要跟大陆“开战”，简直是开玩笑。(记者 贾楠 制作 王宁) 责任编辑：【陈海峰】
 
 ## 正文
 
-专题：第28届北京科博会-未来产业推介会 第28届北京科博会-未来产业推介会于2026年5月8日-9日在北京举行。
+发布时间：2026年06月23日 07:50 来源：中国新闻网 6月22日，台湾大学哲学系教授苑举正参访重庆建川博物馆。
 
-凯联资本硬科技行业合伙人姚宁波，启银资本董事长、启智具身智能科技创始人宋炎，融创投资执行合伙人、天津大学博士生导李翔宇出席并围绕“资本赋能・智创未来：机器人产业投融资热点与商业化破局”展开讨论，鼎旭投资管理合伙人，中关村高企协会副会长，创投委专职副主任郭海涛担任主持。
+在接受记者采访时，苑举正表示，大陆军队有非常多科技、军事外交人才，他们都一起为中国的未来努力，让中国不落后，能够有资格和平崛起。
 
-以下为对话实录： 主持人/郭海涛：各位来宾，大家下午好！
+而岛内当前没有人愿意服兵役，民进党当局开口闭口就要跟大陆“开战”，简直是开玩笑。
 
-我是鼎旭投资的管理合伙人，同时担任中关村高新技术企业协会副会长及中关村创投协会创投委副主任。
-
-本次展会，我们在2062展位设立了展台，携手中关村众多优秀的人工智能企业共同参展。
-
-非常荣幸能够主持本场《资本赋能・智创未来：机器人产业投融资热点与商业化破局》圆桌会议。
-
-刚才通过嘉宾的分享，我们看到从合十思维赵普做的仿脑机器人，再到非夕科技胡总，包括思灵的陈尉总做的力控的机器人，在百花齐放的过程中，我们今天开始这一次圆桌的交流。
-
-有请各位嘉宾先介绍一下自身机构的情况，包括谈一谈对当前机器人产业投融资现状的看法，大家做一个简要的三分钟的解读，先从姚宁波总开始。
+(记者 贾楠 制作 王宁) 责任编辑：【陈海峰】
 
 ## 相关推荐
 
-- 2026-06-30 01:36 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
-- 2026-06-30 01:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 01:30 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 01:27 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-30 01:25 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 01:51 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 01:24 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 01:41 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-30 01:49 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 01:41 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 01:28 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 01:49 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 01:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 01:54 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 01:53 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
+- 2026-06-30 01:33 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 01:55 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-30 01:40 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 01:59 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 01:56 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-30 01:50 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-30 01:36 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-30 01:55 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/07378986357.shtml)
-- 2026-06-30 01:43 - [港股科技股强势反弹](https://www.blog.kurohicncr.top/Article/details/29242746.shtml)
-- 2026-06-30 01:41 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/4484157.shtml)
-- 2026-06-30 01:44 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/0099638035.shtml)
-- 2026-06-30 01:33 - [韩国的野心是想成“AI革命主导国”吗](http://www.share.kurohicncr.top/Article/details/1357831.shtml)
-- 2026-06-30 01:47 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/456961162.shtml)
-- 2026-06-30 01:38 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/216995621847.shtml)
-- 2026-06-30 01:51 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/1335653424.shtml)
-- 2026-06-30 01:24 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/61083923.shtml)
-- 2026-06-30 01:27 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/04053335905.shtml)
-- 2026-06-30 01:33 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/11282303.shtml)
-- 2026-06-30 01:44 - [姜妍走过来这段刘梅下班了](https://www.share.kurohicncr.top/Article/details/1706052.shtml)
-- 2026-06-30 01:28 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/13617.shtml)
-- 2026-06-30 01:34 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/8471445518.shtml)
-- 2026-06-30 01:38 - [电动车主等红灯遭三轮车横杆砸头](http://www.share.minike.top/Article/details/91263691282.shtml)
+- 2026-06-30 01:42 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.blog.kurohicncr.top/Article/details/9747208.shtml)
+- 2026-06-30 01:46 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/5322425327.shtml)
+- 2026-06-30 01:31 - [刘宇宁 好听](http://www.blog.kurohicncr.top/Article/details/4545422423.shtml)
+- 2026-06-30 01:56 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/249876.shtml)
+- 2026-06-30 01:41 - [天道](https://www.blog.kurohicncr.top/Article/details/0085397378.shtml)
+- 2026-06-30 01:30 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/9523820793.shtml)
+- 2026-06-30 01:32 - [战略导弹部队60年如何炼成大国长剑](https://www.share.kurohicncr.top/Article/details/4826408508.shtml)
+- 2026-06-30 01:36 - [网警提醒警惕高考查分陷阱](http://www.share.kurohicncr.top/Article/details/97899438763.shtml)
+- 2026-06-30 01:35 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/15921556.shtml)
+- 2026-06-30 01:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/632646458.shtml)
+- 2026-06-30 01:37 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/95860.shtml)
+- 2026-06-30 01:36 - [毒液2](http://www.blog.kurohicncr.top/Article/details/5897074696.shtml)
+- 2026-06-30 01:40 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/49626640350.shtml)
+- 2026-06-30 01:36 - [刘宇宁是去进货了吗](http://www.share.kurohicncr.top/Article/details/699088982464.shtml)
+- 2026-06-30 01:49 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/92472705917.shtml)

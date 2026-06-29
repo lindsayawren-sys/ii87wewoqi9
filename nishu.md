@@ -1,50 +1,60 @@
-# 二十载深耕 温州肯恩大学打造中美教育合作“活样板”
+# 日本干预汇市的风险上升 先前传出日、美财长举行在线会议
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 15:22 来源：中国新闻网 2006年5月8日，温州大学与美国肯恩大学在美国签约，共同创立温州肯恩大学。二十年来，该校已成为中美教育合作的标杆。作为服务国家外交战略的重要平台，两校自2015年启动交换项目以来，已实现学生互访超3000人次。当前，温州肯恩大学正开启“二次创业”，朝着建设“国际化创新型高水平大学”的目标迈进。(曹丹 孙琳茹 浙江
+在日元进一步走软，且传出日本财务大臣片山皋月与美国财政部长斯科特·贝森特举行在线会议的报道，外汇交易员正高度警戒日本当局可能进场干预汇市。 周二上午，日元兑美元汇率约为161.57，接近40年来的最低水准。NHK和共同社报道，片山和贝森特可能讨论了汇率问题。 市场担心，日本央行上周尽管在政策会议上升息，但提高借贷成本的速度可能不足以控制通胀，日元因此下跌。此外，美伊战争导致油价
 
 ## 正文
 
-发布时间：2026年05月11日 15:22 来源：中国新闻网 2006年5月8日，温州大学与美国肯恩大学在美国签约，共同创立温州肯恩大学。
+在日元进一步走软，且传出日本财务大臣片山皋月与美国财政部长斯科特·贝森特举行在线会议的报道，外汇交易员正高度警戒日本当局可能进场干预汇市。
 
-二十年来，该校已成为中美教育合作的标杆。
+周二上午，日元兑美元汇率约为161.57，接近40年来的最低水准。
 
-作为服务国家外交战略的重要平台，两校自2015年启动交换项目以来，已实现学生互访超3000人次。
+NHK和共同社报道，片山和贝森特可能讨论了汇率问题。
 
-当前，温州肯恩大学正开启“二次创业”，朝着建设“国际化创新型高水平大学”的目标迈进。
+市场担心，日本央行上周尽管在政策会议上升息，但提高借贷成本的速度可能不足以控制通胀，日元因此下跌。
 
-(曹丹 孙琳茹 浙江温州报道） 责任编辑：【刘湃】
+此外，美伊战争导致油价高企也对日元构成压力。
+
+片山本周表示，将在必要时对外汇市场采取适当行动，但最近的口头警告仍然挡不住日元下跌。
+
+三井住友信托银行驻纽约的交易员Takeru Yamamoto表示，日本当局或许希望通过美日的会议向市场传递讯号，表明其正与美方协同行动，且干预汇市的门槛不高。
+
+尽管市场对干预的担忧已升温，但日元疲弱的根本因素并未改变，美元兑日元本周可能测试162。
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
-- 2026-06-30 01:44 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-30 01:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 01:24 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-30 01:34 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 01:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 01:36 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-30 01:29 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 01:42 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-30 01:34 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 01:31 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
+- 2026-06-30 01:44 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-30 01:50 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-30 01:35 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-30 01:54 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:47 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 01:56 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 01:50 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 01:40 - [桂林原书记周家斌贪1.98亿被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
+- 2026-06-30 01:36 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 01:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
+- 2026-06-30 01:36 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 01:59 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 01:52 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/657581.shtml)
-- 2026-06-30 01:50 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.minike.top/Article/details/2413160.shtml)
-- 2026-06-30 01:53 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/9606699.shtml)
-- 2026-06-30 01:34 - [金牌调解](http://www.share.kurohicncr.top/Article/details/40412132368.shtml)
-- 2026-06-30 01:49 - [电影后室值得看吗](https://www.blog.minike.top/Article/details/1003010.shtml)
-- 2026-06-30 01:45 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.minike.top/Article/details/666091.shtml)
-- 2026-06-30 01:38 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/903648610198.shtml)
-- 2026-06-30 01:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.blog.minike.top/Article/details/0658181546.shtml)
-- 2026-06-30 01:53 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/4888776.shtml)
-- 2026-06-30 01:47 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/71627099.shtml)
-- 2026-06-30 01:34 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/4864555534.shtml)
-- 2026-06-30 01:47 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/36044664.shtml)
-- 2026-06-30 01:31 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/015913.shtml)
-- 2026-06-30 01:34 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/4643078.shtml)
-- 2026-06-30 01:31 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/886935020.shtml)
+- 2026-06-30 01:57 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.kurohicncr.top/Article/details/881607.shtml)
+- 2026-06-30 01:43 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/75455125.shtml)
+- 2026-06-30 01:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/7390948.shtml)
+- 2026-06-30 01:50 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/582059380.shtml)
+- 2026-06-30 01:31 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/479346726.shtml)
+- 2026-06-30 01:38 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/90604150852.shtml)
+- 2026-06-30 01:52 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/53233105805.shtml)
+- 2026-06-30 01:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/00571299.shtml)
+- 2026-06-30 01:47 - [恋与深空 日服](http://www.share.kurohicncr.top/Article/details/054102348.shtml)
+- 2026-06-30 01:54 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/573351995.shtml)
+- 2026-06-30 01:46 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/66358029.shtml)
+- 2026-06-30 01:53 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/9733096.shtml)
+- 2026-06-30 01:48 - [青春环游记第三季](http://www.blog.minike.top/Article/details/496957.shtml)
+- 2026-06-30 01:32 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/647499036.shtml)
+- 2026-06-30 01:38 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.kurohicncr.top/Article/details/8886615218.shtml)

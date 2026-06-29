@@ -1,45 +1,57 @@
-# 白宫记者团：特朗普称预计今晚将收到伊朗的消息
+# 基尔·斯塔默宣布辞去首相职务 英国将迎来自2022年以来的第五位首相
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-据白宫记者团简报，美国总统唐纳德·特朗普表示，他预计今晚将收到伊朗方面的消息。责任编辑：丁文武
+英国首相基尔·斯塔默表示，他将辞去英国首相职务。距离他率领工党以压倒性优势赢得大选、重返执政仅两年时间，其政治声望便急剧下滑。 斯塔默的离任为安迪·伯纳姆试图接任首相铺平了道路。长期担任英国大曼彻斯特市长的伯纳姆上周赢得议会席位，为发起领导权挑战做好了准备。 斯塔默的退出意味着英国将迎来自2022年以来的第五位首相。这对于一个曾以稳定著称的政治体系而言，无疑是一个令人错愕的标志
 
 ## 正文
 
-据白宫记者团简报，美国总统唐纳德·特朗普表示，他预计今晚将收到伊朗方面的消息。
+英国首相基尔·斯塔默表示，他将辞去英国首相职务。
 
-责任编辑：丁文武
+距离他率领工党以压倒性优势赢得大选、重返执政仅两年时间，其政治声望便急剧下滑。
+
+斯塔默的离任为安迪·伯纳姆试图接任首相铺平了道路。
+
+长期担任英国大曼彻斯特市长的伯纳姆上周赢得议会席位，为发起领导权挑战做好了准备。
+
+斯塔默的退出意味着英国将迎来自2022年以来的第五位首相。
+
+这对于一个曾以稳定著称的政治体系而言，无疑是一个令人错愕的标志性时刻。
+
+责任编辑：何云
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 01:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-30 01:27 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
-- 2026-06-30 01:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-30 01:43 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 01:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 01:31 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 01:48 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 01:48 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
-- 2026-06-30 01:46 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltmvb.md)
-- 2026-06-30 01:36 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-30 01:37 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 01:49 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 01:49 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:32 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 01:44 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-30 01:57 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
+- 2026-06-30 01:53 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 01:36 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 01:46 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-30 01:38 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 01:44 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 01:33 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 01:35 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [巴西把自己踢晕了](http://www.share.minike.top/Article/details/647117275805.shtml)
-- 2026-06-30 01:35 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/86853985164.shtml)
-- 2026-06-30 01:49 - [【硬核拆解】汽车人到底离我们有多远？](https://www.share.minike.top/Article/details/561487648.shtml)
-- 2026-06-30 01:36 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/896608882.shtml)
-- 2026-06-30 01:31 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/556185.shtml)
-- 2026-06-30 01:32 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/567261219.shtml)
-- 2026-06-30 01:42 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/62253650.shtml)
-- 2026-06-30 01:42 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/30928.shtml)
-- 2026-06-30 01:37 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/408700867.shtml)
-- 2026-06-30 01:28 - [金牌调解](http://www.share.minike.top/Article/details/299657830.shtml)
-- 2026-06-30 01:40 - [王健林甩卖超80座万达广场](https://www.blog.minike.top/Article/details/9373803900.shtml)
-- 2026-06-30 01:40 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/765963534.shtml)
-- 2026-06-30 01:45 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/1211848.shtml)
-- 2026-06-30 01:29 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/796165.shtml)
-- 2026-06-30 01:32 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/80116920012.shtml)
+- 2026-06-30 01:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/645661.shtml)
+- 2026-06-30 01:56 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/5685050.shtml)
+- 2026-06-30 01:47 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/79252.shtml)
+- 2026-06-30 01:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/79711.shtml)
+- 2026-06-30 01:32 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/21167749640.shtml)
+- 2026-06-30 01:57 - [一生一世](https://www.blog.kurohicncr.top/Article/details/574159993389.shtml)
+- 2026-06-30 01:36 - [男子身高一米八二仍做断骨增高](https://www.blog.minike.top/Article/details/31988.shtml)
+- 2026-06-30 01:43 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/62974935735.shtml)
+- 2026-06-30 01:53 - [韩国股市绑架日本？高盛警告](https://www.share.minike.top/Article/details/268577.shtml)
+- 2026-06-30 01:46 - [猛龙快船交易或将达成](https://www.blog.kurohicncr.top/Article/details/115358660.shtml)
+- 2026-06-30 01:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/944081.shtml)
+- 2026-06-30 01:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.kurohicncr.top/Article/details/0841128672.shtml)
+- 2026-06-30 01:39 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/387199119.shtml)
+- 2026-06-30 01:35 - [一见倾心](https://www.share.kurohicncr.top/Article/details/45773448268.shtml)
+- 2026-06-30 01:33 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.minike.top/Article/details/18703251998.shtml)

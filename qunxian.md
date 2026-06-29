@@ -1,56 +1,57 @@
-# 报告总结中国数智传播发展四大特点
+# 中国人民大学与北京人民艺术剧院签订合作框架协议
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月10日电 (记者 李京泽)北京城市学院数智传播研究院与社会科学文献出版社9日联合发布《数智传播蓝皮书：中国数智传播发展报告(2026)》。蓝皮书总结了当前中国数智传播发展的四大特点。 蓝皮书全面概括2025年以来数智技术革命与全球秩序演变交织驱动下的传播生态重构。其指出，中国数智传播发展已从局部探索迈入全面统筹、系统推进的新阶段，呈现以下特点： 一是生成式人工智能
+中新网北京6月22日电 (记者 曾玥)记者从中国人民大学获悉，该校近日与北京人民艺术剧院签订合作框架协议，推动文艺事业与教育事业双向赋能、深度融合。 在中国人民大学党委书记张东刚，北京人民艺术剧院党组副书记、院长冯远征的共同见证下，中国人民大学党委副书记高燕燕、北京人民艺术剧院党组副书记秦新春代表双方签署合作框架协议。 张东刚表示，中国人民大学与北京人民艺术剧院都具有鲜明的红色
 
 ## 正文
 
-中新网北京5月10日电 (记者 李京泽)北京城市学院数智传播研究院与社会科学文献出版社9日联合发布《数智传播蓝皮书：中国数智传播发展报告(2026)》。
+中新网北京6月22日电 (记者 曾玥)记者从中国人民大学获悉，该校近日与北京人民艺术剧院签订合作框架协议，推动文艺事业与教育事业双向赋能、深度融合。
 
-蓝皮书总结了当前中国数智传播发展的四大特点。
+在中国人民大学党委书记张东刚，北京人民艺术剧院党组副书记、院长冯远征的共同见证下，中国人民大学党委副书记高燕燕、北京人民艺术剧院党组副书记秦新春代表双方签署合作框架协议。
 
-蓝皮书全面概括2025年以来数智技术革命与全球秩序演变交织驱动下的传播生态重构。
+张东刚表示，中国人民大学与北京人民艺术剧院都具有鲜明的红色基因，都肩负着党和国家赋予的时代使命。
 
-其指出，中国数智传播发展已从局部探索迈入全面统筹、系统推进的新阶段，呈现以下特点： 一是生成式人工智能技术在新闻传播领域的应用已从概念走向实践，智能体广泛嵌入内容生产、生活服务、社会治理及文化传播等领域，中国主流媒体的平台化转型步入系统性构建阶段，呈现技术架构、运营机制与功能定位协同演进的显著特征； 二是视听智媒加速焕新，算法透明性与用户赋权成为平台生态建设的重要方向；三是中国城市国际传播建设步入数智化、体系化、品牌化的范式转型，市县融媒体中心以智能化媒资系统建设为基础，着力破解基层数智传播资源有限的困境； 四是网络舆论生态呈现人机协同、可预见性与多元联动的显著特征，数智技术深入主流媒体系统性变革布局，成为传媒产业的变革性力量。
+面向未来，愿双方携手并肩，赓续红色血脉，不负人民之名，推动资源共享、平台共建、人才共育，统筹优质资源，深耕美育实践，协同构建艺术学科自主知识体系，依托文艺创作阵地推动党的创新理论传播，引导广大师生和群众感悟思想伟力、增强思想力量，以天下之大美、人间之大美、思想之大美启智润心、铸魂育人，为推动社会主义文化繁荣发展和建设文化强国、教育强国作出更大贡献。
 
-蓝皮书同时指出，英国、法国、美国等主要国家纷纷加速数智传播发展，通过立法规范、技术研发与国际合作重塑全球传播能力。
+冯远征表示，站在新的历史起点上，北京人民艺术剧院愿以此次签约为契机，与中国人民大学进一步深化合作，同向发力、同频共振，探索文教融合新路径，推动艺术院团与高等院校资源共享、优势互补，打通理论与实践双向通道，以数字技术丰富舞台呈现、以艺术思维赋能科研创新，以戏剧之光照亮学生成长成才之路，让广大青年在沉浸式审美体验中坚定文化自信、厚植家国情怀，培养更多堪当民族复兴大任的时代新人。
 
-蓝皮书认为，2025年以来，在数智传播加速演进的同时，一些问题不容忽视：全球数智传播竞争加剧、数据滥用、算法偏见、平台垄断等伦理风险持续加剧，严重冲击信息传播的真实性、透明度与公平性，对行业法律规制与生态治理均提出了更高要求。
+根据协议，双方将秉持“优势互补，资源共享”的原则，聚焦戏剧美育普及、学术交流互建与人才培养创新，共同开发戏剧美育品牌课程与教材、打造高校戏剧类品牌实践，联合开展学术研究和专业人才培养，为推动文艺事业与教育事业双向赋能、深度融合注入新的活力。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-30 01:35 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 01:53 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 01:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 01:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 01:24 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
-- 2026-06-30 01:29 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 01:25 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-30 01:37 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-30 01:47 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-30 01:52 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 01:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 01:54 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-30 01:46 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zoumo.md)
+- 2026-06-30 01:33 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 01:54 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
+- 2026-06-30 01:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 01:46 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-30 01:54 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 01:47 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
+- 2026-06-30 01:53 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-30 01:40 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 01:34 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 01:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 01:44 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/39003584.shtml)
-- 2026-06-30 01:45 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/34721.shtml)
-- 2026-06-30 01:53 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/09599.shtml)
-- 2026-06-30 01:47 - [足球“出口导向”造就佛得角奇迹](https://www.share.kurohicncr.top/Article/details/0657502.shtml)
-- 2026-06-30 01:40 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/02595368.shtml)
-- 2026-06-30 01:50 - [马光远谈马斯克最大的价值](http://www.share.kurohicncr.top/Article/details/284195.shtml)
-- 2026-06-30 01:46 - [卖菜老人获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/340474689992.shtml)
-- 2026-06-30 01:46 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/580811351959.shtml)
-- 2026-06-30 01:28 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/61658.shtml)
-- 2026-06-30 01:29 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/135829.shtml)
-- 2026-06-30 01:50 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/919703049.shtml)
-- 2026-06-30 01:34 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/5420139.shtml)
-- 2026-06-30 01:41 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/47753130.shtml)
-- 2026-06-30 01:28 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/678780949.shtml)
-- 2026-06-30 01:39 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/13768659.shtml)
+- 2026-06-30 01:55 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/315017126777.shtml)
+- 2026-06-30 01:55 - [网警提醒4类“高考查分陷阱”](http://www.blog.kurohicncr.top/Article/details/88887089133.shtml)
+- 2026-06-30 01:57 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.kurohicncr.top/Article/details/212286897.shtml)
+- 2026-06-30 01:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/1346276.shtml)
+- 2026-06-30 01:53 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/83748706184.shtml)
+- 2026-06-30 01:53 - [千与千寻](http://www.share.minike.top/Article/details/6440359.shtml)
+- 2026-06-30 01:55 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/918454507.shtml)
+- 2026-06-30 01:51 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/7900625001.shtml)
+- 2026-06-30 01:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/434078.shtml)
+- 2026-06-30 01:35 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/090602644.shtml)
+- 2026-06-30 01:51 - [战略导弹部队60年如何炼成大国长剑](http://www.blog.minike.top/Article/details/879286.shtml)
+- 2026-06-30 01:45 - [周生如故](https://www.blog.minike.top/Article/details/94601.shtml)
+- 2026-06-30 01:57 - [绘画区你赢了](http://www.share.minike.top/Article/details/09723422.shtml)
+- 2026-06-30 01:54 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/251551395.shtml)
+- 2026-06-30 01:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/43265.shtml)

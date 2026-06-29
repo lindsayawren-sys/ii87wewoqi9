@@ -1,58 +1,59 @@
-# 中国消费者更看重“绿色可追溯” 为全球绿色供应链注入新动力
+# 端午节小长假皇岗、福田口岸迎送港澳旅客46万人次
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-全球媒体聚焦 | 中国消费者更看重“绿色可追溯” 为全球绿色供应链注入新动力 透社近日报道称，中国消费者和进口商对食品安全、绿色供应链和可追溯产品的关注正在上升，这一变化正在影响全球大宗商品贸易，也为巴西亚马孙雨林保护带来新的积极信号。 “绿色”“可追溯”牛肉将拥有更大市场空间 报道称，中国天津肉类协会成员企业已承诺，到今年年底采购5万吨获得“零毁林”认证的巴西牛肉，这一数量约
+中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。其中，经皇岗、福田口岸出入境港澳旅客46万人次。据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。 受香港、深圳、广州等地举办巡游竞渡、古礼
 
 ## 正文
 
-全球媒体聚焦 | 中国消费者更看重“绿色可追溯” 为全球绿色供应链注入新动力 透社近日报道称，中国消费者和进口商对食品安全、绿色供应链和可追溯产品的关注正在上升，这一变化正在影响全球大宗商品贸易，也为巴西亚马孙雨林保护带来新的积极信号。
+中新社深圳6月21日电 (索有为 黄俊生)深圳出入境边防检查总站21日发布的统计数据显示，自6月19日至21日17时，经皇岗、福田口岸出入境旅客逾70万人次(福田口岸出入境旅客逾54万人次)。
 
-“绿色”“可追溯”牛肉将拥有更大市场空间 报道称，中国天津肉类协会成员企业已承诺，到今年年底采购5万吨获得“零毁林”认证的巴西牛肉，这一数量约占今年巴西预计对华牛肉出口量的4.5%。
+其中，经皇岗、福田口岸出入境港澳旅客46万人次。
 
-而该协会成员企业本身在两国牛肉贸易中占有重要份额，中国从巴西进口的牛肉中约40%由这些企业采购。
+据统计，端午节小长假期间，经皇岗、福田口岸出入境的外国人1.1万余人次，其中免签入境2040人次。
 
-路透社认为，这一举动向巴西农牧业界释放新的信号——中国消费者对绿色供应链和产品可追溯性的要求正在提高。
+受香港、深圳、广州等地举办巡游竞渡、古礼仪式、文创市集、非遗展演、民俗体验、美食品鉴活动，叠加毕业出行等多重需求释放影响，连日来，大批内地居民将香港作为出境首选地，高中毕业生群体“小包团”现象较为明显。
 
-路透社认为，更深层的变化来自政策层面。
+同时，不少港澳居民返乡沐龙舟水、休闲娱乐消费、品味岭南韵味、悦享山海风情；令地处深港核心区的皇岗、福田口岸接续迎来出入境“两头忙”。
 
-中国正积极推动贸易领域的绿色转型：2019年修订《森林法》进一步强化相关管理，禁止非法木材贸易；2023年与巴西签署联合声明，承诺终结贸易驱动的非法毁林；自2025年起，中方一家大型国有粮食贸易企业承诺消除其供应链中的毁林行为。
+21日适逢周日，也是端午节小长假最后一天。
 
-一位中方进口商在接受路透社采访时表示，如今已不仅仅是“便宜就好”，未来，“零毁林、绿色、安全、可追溯”的牛肉将拥有更大市场空间。
+皇岗边检站预测，出入境双向客流高峰将于当天18时至22时出现。
 
-路透社的报道认为，中国是全球重要的牛肉进口市场，也是巴西牛肉的重要买家，购买了巴西逾10%的牛肉。
+作为唯一24小时通关的皇岗口岸，在深夜和凌晨时段的出入境客流将更为集中且持续时间长。
 
 ## 相关推荐
 
-- 2026-06-30 01:33 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-30 01:50 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-30 01:33 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 01:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-30 01:33 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 01:43 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-30 01:42 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
-- 2026-06-30 01:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-30 01:25 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
-- 2026-06-30 01:48 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 01:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 01:38 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
+- 2026-06-30 01:38 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
+- 2026-06-30 01:46 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 01:33 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 01:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-30 01:56 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 01:43 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 01:56 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 01:59 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 01:56 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-30 01:54 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 01:38 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 01:58 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
+- 2026-06-30 01:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/102366513999.shtml)
-- 2026-06-30 01:48 - [恋与深空致歉](http://www.share.minike.top/Article/details/8569318601.shtml)
-- 2026-06-30 01:24 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.minike.top/Article/details/3125201142.shtml)
-- 2026-06-30 01:52 - [《贺子珍》](https://www.share.kurohicncr.top/Article/details/192749212.shtml)
-- 2026-06-30 01:49 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/8664073.shtml)
-- 2026-06-30 01:25 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/085231.shtml)
-- 2026-06-30 01:40 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/5806578.shtml)
-- 2026-06-30 01:34 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.minike.top/Article/details/3630877.shtml)
-- 2026-06-30 01:50 - [货车司机恶意闯卡逃费被行拘](http://www.share.kurohicncr.top/Article/details/629063026765.shtml)
-- 2026-06-30 01:52 - [张凌赫 客串](https://www.blog.minike.top/Article/details/1824397759.shtml)
-- 2026-06-30 01:52 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/889332914106.shtml)
-- 2026-06-30 01:28 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/746388.shtml)
-- 2026-06-30 01:28 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/37818701180.shtml)
-- 2026-06-30 01:47 - [法拉利车主已自行承担修理费近3万](https://www.share.minike.top/Article/details/214733985.shtml)
-- 2026-06-30 01:27 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/33766.shtml)
+- 2026-06-30 01:41 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/83004339.shtml)
+- 2026-06-30 01:53 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/51016963.shtml)
+- 2026-06-30 01:41 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/0947357.shtml)
+- 2026-06-30 01:56 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/821861.shtml)
+- 2026-06-30 01:39 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/101013889770.shtml)
+- 2026-06-30 01:43 - [Prada在内娱首度签下偶像团体](http://www.blog.kurohicncr.top/Article/details/5441413.shtml)
+- 2026-06-30 01:30 - [如何评价《龙之家族》第三季第二集？](https://www.share.minike.top/Article/details/02212937.shtml)
+- 2026-06-30 01:36 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/57002.shtml)
+- 2026-06-30 01:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/13256147.shtml)
+- 2026-06-30 01:44 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/18144278.shtml)
+- 2026-06-30 01:51 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/905502749752.shtml)
+- 2026-06-30 01:43 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/673565494.shtml)
+- 2026-06-30 01:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/1354754498.shtml)
+- 2026-06-30 01:46 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/8406263.shtml)
+- 2026-06-30 01:51 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.minike.top/Article/details/15852943844.shtml)

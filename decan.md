@@ -1,45 +1,59 @@
-# 中芯国际发行股份购买资产获上交所重组委会议通过
+# 中教控股获中资教育公司最高公开国际评级 并成功发行美元债券
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海证券交易所并购重组审核委员会2026年第5次审议会议于2026年5月11日召开，审议结果为中芯国际集成电路制造有限公司（发行股份购买资产）符合重组条件和信息披露要求。
+上证报中国证券网讯(记者闫刘梦)中国教育集团控股有限公司(以下简称“中教控股”)近日成功发行2亿美元3年期高级无抵押债券，票息5.625%。该评级为中资教育行业目前获得的最高公开国际评级，同时该笔交易也是中资高等教育行业以独立信用发行的首笔高级无抵押美元债券。据悉，中金公司担任本交易的牵头评级顾问及全球协调人。国际多边开发机构亚洲基础设施投资银行(AIIB)作为锚定投资人在本笔
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海证券交易所并购重组审核委员会2026年第5次审议会议于2026年5月11日召开，审议结果为中芯国际集成电路制造有限公司（发行股份购买资产）符合重组条件和信息披露要求。
+上证报中国证券网讯(记者闫刘梦)中国教育集团控股有限公司(以下简称“中教控股”)近日成功发行2亿美元3年期高级无抵押债券，票息5.625%。
+
+该评级为中资教育行业目前获得的最高公开国际评级，同时该笔交易也是中资高等教育行业以独立信用发行的首笔高级无抵押美元债券。
+
+据悉，中金公司担任本交易的牵头评级顾问及全球协调人。
+
+国际多边开发机构亚洲基础设施投资银行(AIIB)作为锚定投资人在本笔交易中认购5000万美元。
+
+作为全球领先的私立高等教育运营商之一，中教控股凭借稳健的财务表现和优质资产，在全球知名教育企业中信用资质处于领先位置。
+
+据了解，本次交易获得全球投资者广泛认可，订单簿峰值规模突破8.7亿美元，超额认购倍数高达4.35倍。
+
+得益于强劲市场需求，最终定价较初始指导价T+220bps大幅收窄30个基点，至T+190bps。
+
+订单来源高度多元化，吸引了包括国际多边开发机构、国际主权基金、国际长线基金、保险机构、银行及对冲基金等众多高质量投资者参与，充分体现了国际资本市场对中国优质教育资产、中教控股信用资质、行业龙头地位以及长期发展战略的坚定信心。
 
 ## 相关推荐
 
-- 2026-06-30 01:30 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-30 01:33 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
-- 2026-06-30 01:50 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 01:36 - [乔家的儿女](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-30 01:53 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 01:29 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 01:40 - [把邻居裸体发群算维权还是侵权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-30 01:32 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
-- 2026-06-30 01:38 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-30 01:28 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 01:47 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 01:47 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-30 01:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 01:42 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 01:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 01:57 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 01:45 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 01:40 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
+- 2026-06-30 01:50 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-30 01:30 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 01:51 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
+- 2026-06-30 01:36 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-30 01:57 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 01:55 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 01:48 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
+- 2026-06-30 01:57 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:47 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/05469928245.shtml)
-- 2026-06-30 01:38 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/63288381.shtml)
-- 2026-06-30 01:38 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/32088601.shtml)
-- 2026-06-30 01:30 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/816664244626.shtml)
-- 2026-06-30 01:36 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/6208663541.shtml)
-- 2026-06-30 01:46 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.minike.top/Article/details/9624848454.shtml)
-- 2026-06-30 01:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/774216942059.shtml)
-- 2026-06-30 01:40 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/7897500373.shtml)
-- 2026-06-30 01:47 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/260878176.shtml)
-- 2026-06-30 01:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/624444.shtml)
-- 2026-06-30 01:24 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.kurohicncr.top/Article/details/6655925.shtml)
-- 2026-06-30 01:35 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/879274393.shtml)
-- 2026-06-30 01:37 - [赛博朋克边缘行者2预告片](http://www.blog.kurohicncr.top/Article/details/780500007292.shtml)
-- 2026-06-30 01:51 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/58594.shtml)
-- 2026-06-30 01:39 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/22874.shtml)
+- 2026-06-30 01:35 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/379660664567.shtml)
+- 2026-06-30 01:36 - [媒体：日本边磨刀边要货是做梦](http://www.share.minike.top/Article/details/76999224.shtml)
+- 2026-06-30 01:52 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/104090.shtml)
+- 2026-06-30 01:59 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.kurohicncr.top/Article/details/43418854157.shtml)
+- 2026-06-30 01:46 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/897759691261.shtml)
+- 2026-06-30 01:50 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/80843168.shtml)
+- 2026-06-30 01:35 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.minike.top/Article/details/93209589926.shtml)
+- 2026-06-30 01:37 - [原来周杰伦的龙拳是广告歌](http://www.share.kurohicncr.top/Article/details/64478.shtml)
+- 2026-06-30 01:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/932468123950.shtml)
+- 2026-06-30 01:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/283227.shtml)
+- 2026-06-30 01:30 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/39604852090.shtml)
+- 2026-06-30 01:46 - [“草莓月亮”浪漫现身](http://www.share.kurohicncr.top/Article/details/999104834.shtml)
+- 2026-06-30 01:57 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/605106283.shtml)
+- 2026-06-30 01:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.kurohicncr.top/Article/details/35123113.shtml)
+- 2026-06-30 01:46 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/42082527.shtml)

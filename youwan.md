@@ -1,59 +1,58 @@
-# 午后突发！华宝基金药ETF异动拉涨1%！港股通创新药翻红，520880放量溢价，成交逾4.2亿元大超上日全天
+# 特朗普称美国或收取中东地区20%的石油收益
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-11日午后，AH创新药突然发力。场内唯一药ETF华宝（562050）*快速拉升逾1%，创新药概念股君实生物-U领涨逾8%，普洛药业、百济神州A股大涨6.74%。 港股通创新药亦活跃，100%创新药研发标的——港股通创新药ETF华宝（520880）成功翻红，场内放量溢价，成交逾4.2亿元大超上日全天。权重股中国生物制药涨超3%，翰森制药、荣昌生物超1%。 据财联社5月11日最新消
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿6月21日电美国总统特朗普21日接受美国福克斯新闻频道采访时说，如果美国和伊朗未能达成协议，美国将会成为霍尔木兹海峡的“守护者”，并收取中东地区20%的石油收益。 该媒体表示，特朗普20日晚与伊朗方面通话，警告他们不要关闭霍尔木兹海峡。特朗普对伊朗官员说：“你们要是关闭它，你们就不会再拥有一个国
 
 ## 正文
 
-11日午后，AH创新药突然发力。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-场内唯一药ETF华宝（562050）*快速拉升逾1%，创新药概念股君实生物-U领涨逾8%，普洛药业、百济神州A股大涨6.74%。
+新华社华盛顿6月21日电美国总统特朗普21日接受美国福克斯新闻频道采访时说，如果美国和伊朗未能达成协议，美国将会成为霍尔木兹海峡的“守护者”，并收取中东地区20%的石油收益。
 
-港股通创新药亦活跃，100%创新药研发标的——港股通创新药ETF华宝（520880）成功翻红，场内放量溢价，成交逾4.2亿元大超上日全天。
+该媒体表示，特朗普20日晚与伊朗方面通话，警告他们不要关闭霍尔木兹海峡。
 
-权重股中国生物制药涨超3%，翰森制药、荣昌生物超1%。
+特朗普对伊朗官员说：“你们要是关闭它，你们就不会再拥有一个国家。
 
-据财联社5月11日最新消息，香港特区行政长官李家超出席亚洲医疗健康高峰论坛2026。
+” 特朗普称，“如果有必要，我们可能会接管霍尔木兹海峡”，“我们将对他们（伊朗）实施猛烈打击”，“如果他们达不成协议，我们就征收通行费”。
 
-李家超在致辞时提到，国家“十五五”规划提出优化创新药与临床急需药品审评审批，并支持其临床应用。
+特朗普称，美伊谅解备忘录只是延长了停火，并非最终协议。
 
-香港在推动医疗创新方面与国家“十五五”规划所制定的策略相辅相成，目标是将香港发展成国际医疗创新枢纽。
+如果伊朗在谈判桌上不作出严肃承诺，他会保留多种选择。
 
-政策面，国家医保局9日发布《2026年国家基本医疗保险、生育保险和工伤保险药品目录及商业健康保险创新药品目录调整工作方案》等相关文件，并向社会公开征求意见。
+特朗普还就伊朗总统佩泽希齐扬不放弃铀浓缩权利言论回应说：“他最好注意自己的言辞。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 01:28 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
-- 2026-06-30 01:51 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 01:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 01:32 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
-- 2026-06-30 01:27 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 01:41 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ievbs.md)
-- 2026-06-30 01:25 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 01:26 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-30 01:34 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
-- 2026-06-30 01:41 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 01:40 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-30 01:32 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-30 01:47 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 01:41 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 01:41 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-30 01:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-30 01:44 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-30 01:38 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-30 01:56 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 01:53 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 01:43 - [刘宇宁 好听](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 01:35 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 01:58 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnipv.md)
+- 2026-06-30 01:32 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/17465356.shtml)
-- 2026-06-30 01:25 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/60557373207.shtml)
-- 2026-06-30 01:38 - [曼城官宣马雷斯卡出任主教练](https://www.share.minike.top/Article/details/266068225.shtml)
-- 2026-06-30 01:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/5914673.shtml)
-- 2026-06-30 01:30 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/022797260.shtml)
-- 2026-06-30 01:40 - [好像看到了人类带孩子崩溃的样子](http://www.blog.kurohicncr.top/Article/details/4181804757.shtml)
-- 2026-06-30 01:52 - [拆解FIFA和世界杯的暗面](http://www.blog.kurohicncr.top/Article/details/61168417585.shtml)
-- 2026-06-30 01:39 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/1018551815.shtml)
-- 2026-06-30 01:53 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/280534446.shtml)
-- 2026-06-30 01:48 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/384563.shtml)
-- 2026-06-30 01:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/432390312394.shtml)
-- 2026-06-30 01:25 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/26598573952.shtml)
-- 2026-06-30 01:40 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/543636508.shtml)
-- 2026-06-30 01:52 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/002217.shtml)
-- 2026-06-30 01:40 - [周杰伦的歌勾起25年友情](http://www.blog.minike.top/Article/details/5212595897.shtml)
+- 2026-06-30 01:32 - [片寄凉太胖了好多](http://www.blog.kurohicncr.top/Article/details/053108304475.shtml)
+- 2026-06-30 01:35 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/0829828.shtml)
+- 2026-06-30 01:40 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/503879.shtml)
+- 2026-06-30 01:45 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/578823328.shtml)
+- 2026-06-30 01:30 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/65931285380.shtml)
+- 2026-06-30 01:59 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/1507522698.shtml)
+- 2026-06-30 01:53 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/63866.shtml)
+- 2026-06-30 01:36 - [恋与深空致歉](http://www.share.minike.top/Article/details/94600.shtml)
+- 2026-06-30 01:32 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/896474325401.shtml)
+- 2026-06-30 01:52 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/61622369.shtml)
+- 2026-06-30 01:40 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/808494131939.shtml)
+- 2026-06-30 01:59 - [MSI应援曲 如果季中成回忆](https://www.share.minike.top/Article/details/096310546.shtml)
+- 2026-06-30 01:53 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/96325379057.shtml)
+- 2026-06-30 01:52 - [赵丽颖风吹半夏含金量还在上升](https://www.blog.minike.top/Article/details/353744719173.shtml)
+- 2026-06-30 01:30 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/778751031.shtml)

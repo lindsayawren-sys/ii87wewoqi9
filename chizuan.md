@@ -1,44 +1,54 @@
-# 视频 | 李大霄：8倍地量时进场需谨慎
+# 嘉信理财进军预测市场业务
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！责任编辑：宋雅芳
+嘉信理财（Charles Schwab）正涉足预测市场。 知情人士透露，这家券商正与Cboe Global Markets合作，推出“全有或全无”期权合约，让客户能对标普500指数的表现进行“是或否”的二元押注。 这些合约与Kalshi或Polymarket等平台提供的合约略有不同，后者挂牌的是期货合约而非期权。但这些二元期权的本质运作方式是相同的：根据指数收盘价是高于还是低于
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+嘉信理财（Charles Schwab）正涉足预测市场。
 
-责任编辑：宋雅芳
+知情人士透露，这家券商正与Cboe Global Markets合作，推出“全有或全无”期权合约，让客户能对标普500指数的表现进行“是或否”的二元押注。
+
+这些合约与Kalshi或Polymarket等平台提供的合约略有不同，后者挂牌的是期货合约而非期权。
+
+但这些二元期权的本质运作方式是相同的：根据指数收盘价是高于还是低于目标价，它们要么支付固定的现金结算额，要么分文不给。
+
+知情人士称，嘉信理财将在未来几个月向客户提供这些合约。
+
+此外，嘉信理财还在推出一款类似的期权产品，带有Cboe的一项名为“the plus zone”的功能，允许交易员在预测大方向基本准确的情况下获得部分付款，即使指数的收盘价与他们的预测并非完全一致。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
-- 2026-06-30 01:27 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
-- 2026-06-30 01:46 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuxun.md)
-- 2026-06-30 01:32 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 01:36 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-30 01:40 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 01:26 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbcny.md)
-- 2026-06-30 01:25 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-30 01:52 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 01:29 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 01:34 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-30 01:35 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 01:34 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 01:57 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 01:43 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-30 01:50 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-30 01:33 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 01:58 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 01:30 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 01:51 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:41 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/129896.shtml)
-- 2026-06-30 01:26 - [扬名立万](http://www.share.kurohicncr.top/Article/details/5717457.shtml)
-- 2026-06-30 01:26 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/1084633.shtml)
-- 2026-06-30 01:52 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/868163.shtml)
-- 2026-06-30 01:33 - [全球最火存储ETF纳入兆易创新](https://www.share.minike.top/Article/details/631271.shtml)
-- 2026-06-30 01:44 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/84873354.shtml)
-- 2026-06-30 01:29 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/43820.shtml)
-- 2026-06-30 01:52 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/2394176527.shtml)
-- 2026-06-30 01:46 - [恋与深空将调整引狼入室文本](https://www.blog.minike.top/Article/details/5388075.shtml)
-- 2026-06-30 01:50 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/3145943488.shtml)
-- 2026-06-30 01:45 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/82539877417.shtml)
-- 2026-06-30 01:42 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.minike.top/Article/details/940154.shtml)
-- 2026-06-30 01:26 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/0743583474.shtml)
-- 2026-06-30 01:44 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/96813.shtml)
-- 2026-06-30 01:46 - [鉴定师的失败救赎](https://www.share.kurohicncr.top/Article/details/966034014671.shtml)
+- 2026-06-30 01:39 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/436245531.shtml)
+- 2026-06-30 01:49 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/594651496.shtml)
+- 2026-06-30 01:52 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/397952866.shtml)
+- 2026-06-30 01:37 - [《贺子珍》](https://www.blog.minike.top/Article/details/9474938.shtml)
+- 2026-06-30 01:45 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/8503178.shtml)
+- 2026-06-30 01:50 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/251169.shtml)
+- 2026-06-30 01:35 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/079487473241.shtml)
+- 2026-06-30 01:46 - [曝多支争冠球队有意塞克斯顿](http://www.share.kurohicncr.top/Article/details/298387410550.shtml)
+- 2026-06-30 01:37 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/5675323840.shtml)
+- 2026-06-30 01:31 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/86634008.shtml)
+- 2026-06-30 01:46 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/8813210.shtml)
+- 2026-06-30 01:39 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/85313.shtml)
+- 2026-06-30 01:51 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/438637574312.shtml)
+- 2026-06-30 01:41 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/73621285.shtml)
+- 2026-06-30 01:53 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/07196766286.shtml)

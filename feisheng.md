@@ -1,60 +1,58 @@
-# CBA季后赛：广东队加时“绝杀”北京队 大比分1:1战平
+# 霍尔木兹封锁三月，中东能源版图被迫“搭桥改道”，“四海倡议”能否撬动中东能源流向天平？
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新社东莞5月9日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛四分之一决赛第二回合9日晚在东莞举行。广东东阳光队(简称“广东队”)在加时赛中，凭借张皓嘉的三分“绝杀”，主场以102:99战胜北京北汽队(简称“北京队”)，将大比分扳为1:1平。本赛季CBA季后赛四分之一决赛采取三场两胜制。两队在第一回合交锋中，北京队主场获胜。本场比赛，两队均以最强
+汇通网 汇通财经APP讯——此前市场普遍判定霍尔木兹海峡完全封锁只是极端假设，然而地缘冲突让这条全球核心能源航道陷入停运，全球五分之一原油、液化天然气运输中断，能源供需两端均承受巨大经济损失。 危机过后，中东各油气出口国集中推进管线扩容与新线路建设，试图搭建多元化运输通道，从根源规避航道单一依赖带来的供应风险，区域能源运输格局迎来重塑。 沙特成熟管线发挥兜底作用，提前布局化解短
 
 ## 正文
 
-中新社东莞5月9日电 (记者 张璐)2025-2026赛季中国男子篮球职业联赛(CBA)季后赛四分之一决赛第二回合9日晚在东莞举行。
+汇通网 汇通财经APP讯——此前市场普遍判定霍尔木兹海峡完全封锁只是极端假设，然而地缘冲突让这条全球核心能源航道陷入停运，全球五分之一原油、液化天然气运输中断，能源供需两端均承受巨大经济损失。
 
-广东东阳光队(简称“广东队”)在加时赛中，凭借张皓嘉的三分“绝杀”，主场以102:99战胜北京北汽队(简称“北京队”)，将大比分扳为1:1平。
+危机过后，中东各油气出口国集中推进管线扩容与新线路建设，试图搭建多元化运输通道，从根源规避航道单一依赖带来的供应风险，区域能源运输格局迎来重塑。
 
-本赛季CBA季后赛四分之一决赛采取三场两胜制。
+沙特成熟管线发挥兜底作用，提前布局化解短期危机 海峡封锁发生后，拥有备选陆上管线的国家第一时间调整出口路线，沙特早年建成的东西管线成为核心缓冲载体。
 
-两队在第一回合交锋中，北京队主场获胜。
+该国将波斯湾原油出口全部转至红海方向，这条平日运力富余的管道单日输油量快速提升至700万桶，唯一制约运力释放的短板是延布港口装卸设施，沙特阿美已计划尽快完成配套扩建。
 
-本场比赛，两队均以最强阵容对阵，展开激烈争夺。
+业内分析人士罗恩·布索（Ron Bousso）梳理中东替代能源通道时提到，这条东西管线的修建初衷，正是上世纪八十年代预判海峡存在封锁风险而提前落地的战略工程，本次危机充分印证了多元运输布局的长远价值。
 
-比赛开始，北京队雷蒙命中三分，周琦、斯佩尔曼接连得分，开局以8:2领先。
+阿联酋、伊拉克加速管线扩容，降低波斯湾航道依赖 阿联酋现有管线可直达海峡外侧的富查伊拉港，为进一步分散风险，该国规划新建管道将现有日运力180万桶翻倍至360万桶，项目工期紧凑，预计明年年底竣工。
 
-随后，广东队加强进攻，麦考尔跳投得分，奎因、杜润旺相继命中三分，反超北京队。
+伊拉克原油出口超九成依靠波斯湾航道，受封锁冲击最为严重。
 
-关键时刻，北京队威廉姆斯里外开花，曾凡博命中三分，追平比分。
+冲突前该国日均出口原油超330万桶，危机期间产量自400万桶大幅下滑至100万桶出头，财政收入断崖式下跌，只能优先保障国内能源供给。
 
 ## 相关推荐
 
-- 2026-06-30 01:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
-- 2026-06-30 01:48 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 01:25 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-30 01:36 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
-- 2026-06-30 01:49 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-30 01:35 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 01:40 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 01:24 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 01:24 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 01:41 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 01:34 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
-- 2026-06-30 01:48 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-30 01:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
-- 2026-06-30 01:37 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
+- 2026-06-30 01:39 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 01:55 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 01:47 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
+- 2026-06-30 01:52 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-30 01:33 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 01:30 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-30 01:46 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 01:38 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 01:58 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
+- 2026-06-30 01:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-30 01:58 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 01:34 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [极限挑战第一季](https://www.blog.minike.top/Article/details/8735998.shtml)
-- 2026-06-30 01:28 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/22178.shtml)
-- 2026-06-30 01:50 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/045346201.shtml)
-- 2026-06-30 01:28 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/108126.shtml)
-- 2026-06-30 01:38 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/24908522680.shtml)
-- 2026-06-30 01:38 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/25148811.shtml)
-- 2026-06-30 01:26 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/59855560189.shtml)
-- 2026-06-30 01:24 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/53689.shtml)
-- 2026-06-30 01:33 - [刘宇宁 好听](http://www.blog.minike.top/Article/details/2740289729.shtml)
-- 2026-06-30 01:50 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/650188178093.shtml)
-- 2026-06-30 01:33 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/8376266.shtml)
-- 2026-06-30 01:43 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/542272272369.shtml)
-- 2026-06-30 01:39 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/6117080408.shtml)
-- 2026-06-30 01:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/918632198.shtml)
-- 2026-06-30 01:35 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/10559375.shtml)
+- 2026-06-30 01:49 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/4949645.shtml)
+- 2026-06-30 01:51 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/404697.shtml)
+- 2026-06-30 01:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/998487905.shtml)
+- 2026-06-30 02:00 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/883139931498.shtml)
+- 2026-06-30 01:59 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/264924336.shtml)
+- 2026-06-30 01:57 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/0416982.shtml)
+- 2026-06-30 01:46 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/709123879.shtml)
+- 2026-06-30 01:37 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/3868624.shtml)
+- 2026-06-30 01:35 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/754019.shtml)
+- 2026-06-30 01:44 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/960524084.shtml)
+- 2026-06-30 01:45 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/50519.shtml)
+- 2026-06-30 01:59 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/20067910735.shtml)
+- 2026-06-30 01:52 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/4964754.shtml)
+- 2026-06-30 01:58 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.kurohicncr.top/Article/details/8277532780.shtml)
+- 2026-06-30 01:53 - [小娘惹](http://www.share.minike.top/Article/details/117682230869.shtml)

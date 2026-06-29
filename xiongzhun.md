@@ -1,60 +1,46 @@
-# 从盈利王到亏损王，光伏组件五巨头一季度集体亏损，年内能靠储能翻身吗？
+# 英国“脱欧”公投十周年民调：多数英国人认为“脱欧”是错误决定
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新经纬5月9日电 (宋亚芬)2026年一季报显示，光伏行业亏损阴霾仍在。 Wind数据显示，在50家光伏产业成分上市公司中，有32家一季度归属于上市公司的净利润为正，占比64%；18家仍然亏损，占比36%。其中，不乏多家光伏组件龙头企业。 据InfoLink统计，2025年全球光伏组件厂商出货量排名前五的企业包括晶科能源、隆基绿能、天合光能、晶澳科技和通威股份。 而这五家组件
+发布时间：2026年06月23日 11:15 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新经纬5月9日电 (宋亚芬)2026年一季报显示，光伏行业亏损阴霾仍在。
-
-Wind数据显示，在50家光伏产业成分上市公司中，有32家一季度归属于上市公司的净利润为正，占比64%；18家仍然亏损，占比36%。
-
-其中，不乏多家光伏组件龙头企业。
-
-据InfoLink统计，2025年全球光伏组件厂商出货量排名前五的企业包括晶科能源、隆基绿能、天合光能、晶澳科技和通威股份。
-
-而这五家组件龙头一季度归母净利润集体亏损。
-
-晶科能源约亏损13.50亿元，隆基绿能约亏损19.2亿元，天合光能约亏损28.3亿元，晶澳科技约亏损10.7亿元，通威股份约亏损24.44亿元。
-
-光伏龙头利润去哪儿了？
-
-一般而言，大企业资金雄厚、成本控制能力强，抗风险能力理应更胜一筹。
+发布时间：2026年06月23日 11:15 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 01:52 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-30 01:34 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-30 01:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-30 01:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-30 01:46 - [浙江进入梅雨最强“攻击时段”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 01:52 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 01:28 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwetd.md)
-- 2026-06-30 01:32 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 01:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 01:39 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 01:28 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
-- 2026-06-30 01:31 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 01:26 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 01:31 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-30 01:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 01:31 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-30 01:39 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 01:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 01:41 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzblr.md)
+- 2026-06-30 01:40 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
+- 2026-06-30 01:59 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 01:54 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 01:40 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 01:35 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
+- 2026-06-30 01:31 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-30 01:33 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
+- 2026-06-30 01:36 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:51 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/043325308.shtml)
-- 2026-06-30 01:51 - [看看赶海都能遇到啥](http://www.share.minike.top/Article/details/17727545350.shtml)
-- 2026-06-30 01:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/574155.shtml)
-- 2026-06-30 01:53 - [媒体：日本边磨刀边要货是做梦](https://www.share.kurohicncr.top/Article/details/27275085.shtml)
-- 2026-06-30 01:28 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/4372724.shtml)
-- 2026-06-30 01:40 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/711832917791.shtml)
-- 2026-06-30 01:39 - [刘念回应](http://www.share.minike.top/Article/details/616877637.shtml)
-- 2026-06-30 01:28 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/34119061004.shtml)
-- 2026-06-30 01:42 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/76053940063.shtml)
-- 2026-06-30 01:25 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/340659.shtml)
-- 2026-06-30 01:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/19853764.shtml)
-- 2026-06-30 01:52 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/52215.shtml)
-- 2026-06-30 01:43 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/661775002535.shtml)
-- 2026-06-30 01:44 - [法拉利车主已自行承担修理费近3万](http://www.share.minike.top/Article/details/205249190.shtml)
-- 2026-06-30 01:47 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/0254402.shtml)
+- 2026-06-30 01:38 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/074184.shtml)
+- 2026-06-30 01:42 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/67058204.shtml)
+- 2026-06-30 01:37 - [恋与深空将调整引狼入室文本](http://www.blog.kurohicncr.top/Article/details/77972373.shtml)
+- 2026-06-30 01:36 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.kurohicncr.top/Article/details/688187907296.shtml)
+- 2026-06-30 01:46 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/332867.shtml)
+- 2026-06-30 01:52 - [吴艳妮回应夺冠](https://www.blog.minike.top/Article/details/359545.shtml)
+- 2026-06-30 01:31 - [国务院：稳步推进研究生考试招生改革](http://www.blog.minike.top/Article/details/44702768.shtml)
+- 2026-06-30 01:43 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/68657.shtml)
+- 2026-06-30 01:52 - [格莱美唱作人锐评歌手第6期](http://www.blog.minike.top/Article/details/4745895422.shtml)
+- 2026-06-30 01:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/90686792.shtml)
+- 2026-06-30 01:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.minike.top/Article/details/548344.shtml)
+- 2026-06-30 01:53 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/913948874842.shtml)
+- 2026-06-30 01:32 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/67022284.shtml)
+- 2026-06-30 01:54 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/423025696433.shtml)
+- 2026-06-30 01:30 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/451213880.shtml)

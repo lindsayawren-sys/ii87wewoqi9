@@ -1,59 +1,61 @@
-# 珠江流域即将进入“龙舟水”防御期 相关部门筑牢防汛防线
+# 南宁海关隶属龙邦海关涉案财物拍卖公告（2026年第二期）
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网广州5月10日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)10日消息，当前流域即将进入“龙舟水”防御期，强对流天气趋于活跃，降水将显著增多，相关部门要做好应急准备，完善应急处突预案，提升应急响应和协同作战能力，有效支撑抗洪抢险救灾。珠江委介绍，9日，珠江防总常务副总指挥、珠江委主任吴小龙率队赴西江干流肇庆段调研指导防汛备汛工作。吴小龙一行实地查看了西江下游景
+受中华人民共和国龙邦海关委托，本公司定于2026年6月30日10时至2026年7月1日10时止(延时的除外)在京东网络拍卖平台(https://auction.jd.com/haiguan.html)对以下标的进行公开拍卖： 拍卖标的及竞买保证金：头盔(Arai品牌)10个，竞买保证金壹万元。 以上标的为海关依法罚没的涉案财物，标的物以货物、物品的现状为准，所列品牌(标注)、型
 
 ## 正文
 
-中新网广州5月10日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)10日消息，当前流域即将进入“龙舟水”防御期，强对流天气趋于活跃，降水将显著增多，相关部门要做好应急准备，完善应急处突预案，提升应急响应和协同作战能力，有效支撑抗洪抢险救灾。
+受中华人民共和国龙邦海关委托，本公司定于2026年6月30日10时至2026年7月1日10时止(延时的除外)在京东网络拍卖平台(https://auction.jd.com/haiguan.html)对以下标的进行公开拍卖： 拍卖标的及竞买保证金：头盔(Arai品牌)10个，竞买保证金壹万元。
 
-珠江委介绍，9日，珠江防总常务副总指挥、珠江委主任吴小龙率队赴西江干流肇庆段调研指导防汛备汛工作。
+以上标的为海关依法罚没的涉案财物，标的物以货物、物品的现状为准，所列品牌(标注)、型号、规格、清单、有效期，均仅供参考，以现场展示为准。
 
-吴小龙一行实地查看了西江下游景丰联围、广东省防汛保障物资中心仓库，详细了解堤防达标治理、隐患排查整治以及防汛物资储备、调度保障机制等情况。
+拍卖人对其品质不作任何瑕疵担保，竞买人参与竞拍，视为已对拍卖标的物的品质状况有充分了解，并愿承担相关责任。
 
-吴小龙强调，要树牢底线思维、极限思维，紧盯重点区域、关键环节，超前布控、防线外推，做到底数清、情况明、措施实，以扎实有力的防御举措筑牢防汛安全防线。
+二、展示看样地点及时间：标的展示时间：2026年6月24日-25日 标的展示地点：广西龙邦海关仓库(请提前24小时联系我司预约，看货时请携带身份证原件)。
 
-吴小龙要求，要压紧责任落实，将防汛责任层层分解、细化到岗、落实到人，抓实抓细全链条防范应对措施。
+三、参与竞买应当办理的手续： (一)竞买人应当是具有民事行为能力的自然人，依法登记注册的公司法人或其他组织。
 
-要树牢“干堤”意识，聚焦穿堤建筑物、历史险工险段等重点部位，预置队伍、料物、设备，及时发现隐患，快速处置风险，确保工程安全度汛。
+法律、行政法规对拍卖标的的买卖具体有规定的，竞买人应当具备规定的条件。
 
-同时，要强化物资保障，完善物资储备体系，优化调运机制，科学调配物资，同时加大新型装备研发、配备，全面提升综合保障能力。
+(二)竞买人须凭有效证件原件于拍卖前办理竞买登记手续并交付保证金壹万元，保证金情况及详情请登录上述京东拍卖平台网址查看。
 
-要做好应急准备，完善应急处突预案，加强队伍培训和实战演练，提升应急响应和协同作战能力，确保快速响应、高效处置，有效支撑抗洪抢险救灾。
+有意向竞买人须注册京东账号并通过实名认证(已注册京东账号的通过实名认证即可)，并在线支付相应标的竞买保证金(因标的保证金金额较大，请竞买人先行在开户银行开通网银大额支付功能)，具体要求请阅读竞价页面内的《竞拍须知》及京东网络拍卖平台告知的海关拍卖流程(拍卖前必看)的相关准则。
 
 ## 相关推荐
 
-- 2026-06-30 01:29 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 01:48 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 01:47 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 01:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-30 01:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 01:45 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 01:31 - [韩国股市绑架日本？高盛警告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 01:47 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-30 01:49 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 01:33 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-30 01:26 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enqam.md)
-- 2026-06-30 01:45 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-30 01:49 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 01:34 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 01:30 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-30 01:54 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 01:38 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-30 01:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-30 01:40 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-30 01:45 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-30 01:56 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-30 01:56 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 01:56 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 01:42 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 01:33 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
+- 2026-06-30 01:50 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-30 01:31 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-30 01:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:50 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/33283.shtml)
-- 2026-06-30 01:27 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/37778053.shtml)
-- 2026-06-30 01:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/936501.shtml)
-- 2026-06-30 01:41 - [流金岁月](https://www.share.minike.top/Article/details/262163743.shtml)
-- 2026-06-30 01:32 - [穆祉丞躺TFING身上](https://www.blog.minike.top/Article/details/795022003.shtml)
-- 2026-06-30 01:45 - [时光音乐会](http://www.share.minike.top/Article/details/066928161498.shtml)
-- 2026-06-30 01:47 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/1913258.shtml)
-- 2026-06-30 01:27 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/344200.shtml)
-- 2026-06-30 01:49 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/44463516400.shtml)
-- 2026-06-30 01:25 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/768444925975.shtml)
-- 2026-06-30 01:44 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/20627861196.shtml)
-- 2026-06-30 01:24 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/62815371.shtml)
-- 2026-06-30 01:30 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/87909036.shtml)
-- 2026-06-30 01:37 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/36051.shtml)
-- 2026-06-30 01:51 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/950129.shtml)
+- 2026-06-30 01:47 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/9701330268.shtml)
+- 2026-06-30 01:59 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/65141782053.shtml)
+- 2026-06-30 01:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.kurohicncr.top/Article/details/849466084.shtml)
+- 2026-06-30 01:58 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/295683135.shtml)
+- 2026-06-30 01:32 - [刘宇宁是去进货了吗](https://www.blog.kurohicncr.top/Article/details/781090469.shtml)
+- 2026-06-30 01:50 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/054319752.shtml)
+- 2026-06-30 01:48 - [蔚来回应高压水枪洗车掉漆](https://www.share.minike.top/Article/details/46867780.shtml)
+- 2026-06-30 01:59 - [韩国股市绑架日本？高盛警告](https://www.blog.minike.top/Article/details/27276864937.shtml)
+- 2026-06-30 01:34 - [月亮](https://www.blog.kurohicncr.top/Article/details/72890016435.shtml)
+- 2026-06-30 01:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/723548763967.shtml)
+- 2026-06-30 01:35 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/38022.shtml)
+- 2026-06-30 01:44 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/80846510376.shtml)
+- 2026-06-30 01:55 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/286682.shtml)
+- 2026-06-30 01:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/880722.shtml)
+- 2026-06-30 01:49 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/370298024568.shtml)

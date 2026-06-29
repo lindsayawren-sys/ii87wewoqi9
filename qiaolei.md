@@ -1,57 +1,53 @@
-# 广西首个脑机接口中心揭牌 将面向东盟开展医疗合作
+# 珠江流域西江发生2026年第1号洪水
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-【东盟专线】广西首个脑机接口中心揭牌 将面向东盟开展医疗合作 中新社南宁5月10日电 (张广权 肖景凤)广西首个“脑机接口临床应用与转化创新中心”10日在广西医科大学第一附属医院揭牌成立。该中心将建设成为中国—东盟脑机接口临床应用与转化合作基地，面向东盟国家开展跨境医疗服务、技术输出、人才培养及国际多中心研究。 中心整合广西医科大学第一附属医院近20个科室及职能部门，计划用3年
+中新社北京6月22日电 (记者 陈溯)记者22日从中国水利部获悉，受降雨影响，珠江流域西江出现明显洪水过程。22日17时30分，西江干流武宣水文站(广西来宾)流量涨至25000立方米每秒，依据水利部《全国主要江河洪水编号规定》，此次洪水编号为“西江2026年第1号洪水”，为中国今年大江大河首次编号洪水。水利部当天专题会商西江汛情，维持针对广东、广西、贵州的洪水防御Ⅳ级应急响应，
 
 ## 正文
 
-【东盟专线】广西首个脑机接口中心揭牌 将面向东盟开展医疗合作 中新社南宁5月10日电 (张广权 肖景凤)广西首个“脑机接口临床应用与转化创新中心”10日在广西医科大学第一附属医院揭牌成立。
+中新社北京6月22日电 (记者 陈溯)记者22日从中国水利部获悉，受降雨影响，珠江流域西江出现明显洪水过程。
 
-该中心将建设成为中国—东盟脑机接口临床应用与转化合作基地，面向东盟国家开展跨境医疗服务、技术输出、人才培养及国际多中心研究。
+22日17时30分，西江干流武宣水文站(广西来宾)流量涨至25000立方米每秒，依据水利部《全国主要江河洪水编号规定》，此次洪水编号为“西江2026年第1号洪水”，为中国今年大江大河首次编号洪水。
 
-中心整合广西医科大学第一附属医院近20个科室及职能部门，计划用3年至5年建成集门诊、评估、临床诊疗、科研创新、技术转化与人才培养于一体的区域性高水平脑机接口临床转化基地。
+水利部当天专题会商西江汛情，维持针对广东、广西、贵州的洪水防御Ⅳ级应急响应，针对西江洪水防御提前发出通知，并派出工作组赴一线加强指导。
 
-广西医科大学第一附属医院院长郑宝石在揭牌仪式上表示，中心将整合医院多学科力量，催生前沿技术突破，培育复合型创新团队。
+水利部珠江水利委员会将针对广东、广西、贵州的洪水防御应急响应提升至Ⅲ级，滚动开展大江大河与中小河流洪水监测预报；调度西江上游天生桥一级、龙滩、光照等水库拦蓄洪水22.59亿立方米，全力避免红水河、柳江洪水恶劣遭遇；提前调度大藤峡水利枢纽预泄腾库2.18亿立方米，22日起根据洪水演进，运用大藤峡水利枢纽拦蓄洪水，全力减轻西江干流防洪压力；指导广西调度柳江干流麻石、浮石、古顶、大埔、红花及支流贝江落久等水库拦蓄洪水超3亿立方米，减轻柳州等地防洪压力。
 
-中心将设立脑机接口专病门诊及广西首个脑机接口融合病房。
+水利部表示，将紧盯西江汛情，加强雨水情监测预报预警，滚动会商研判，指导督促地方做好堤防巡查防守、水库安全度汛、中小河流洪水及山洪灾害防御，以及沿河城镇低洼区民众转移等工作。
 
-中心明确提出人工智能(AI)赋能脑机接口全流程，通过AI辅助脑电信号判读、解码算法优化及个性化治疗决策，提升诊疗效率。
-
-未来，该中心将开通东盟患者脑机接口诊疗绿色转诊通道，提供远程会诊、来华诊疗、术后随访等全流程跨境医疗服务。
-
-中心还将多语种翻译脑机接口诊疗规范、操作流程及质控标准等，向越南、马来西亚、泰国等东盟国家推广；举办中国—东盟脑机接口技术培训班，接收东盟医师进修，开展线上线下联合教学；发起东盟脑机接口多中心临床研究，共建跨境临床数据库等。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 01:26 - [韩文体部宣布对韩足协开展审计](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 01:45 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 01:53 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 01:44 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 01:37 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 01:30 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-30 01:40 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 01:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 01:43 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdwhw.md)
-- 2026-06-30 01:30 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 01:28 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 01:56 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nziul.md)
+- 2026-06-30 01:38 - [美股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 01:39 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 01:39 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 01:38 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 01:55 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
+- 2026-06-30 01:37 - [金牌调解](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-30 01:46 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 01:41 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 01:52 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 01:45 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:32 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/13051774496.shtml)
-- 2026-06-30 01:33 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/9248005.shtml)
-- 2026-06-30 01:36 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/871546639737.shtml)
-- 2026-06-30 01:33 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/3908605.shtml)
-- 2026-06-30 01:32 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/66129.shtml)
-- 2026-06-30 01:33 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/925053032445.shtml)
-- 2026-06-30 01:43 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/78921259.shtml)
-- 2026-06-30 01:32 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/126870253.shtml)
-- 2026-06-30 01:51 - [詹姆斯下赛季去哪](https://www.share.minike.top/Article/details/9102414473.shtml)
-- 2026-06-30 01:49 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/40646672.shtml)
-- 2026-06-30 01:32 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/44670.shtml)
-- 2026-06-30 01:45 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/102097.shtml)
-- 2026-06-30 01:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/9902705.shtml)
-- 2026-06-30 01:26 - [王楚钦谈表演球](https://www.share.kurohicncr.top/Article/details/082123740.shtml)
-- 2026-06-30 01:37 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/10673.shtml)
+- 2026-06-30 01:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/54214600.shtml)
+- 2026-06-30 01:58 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/1970786.shtml)
+- 2026-06-30 01:30 - [原来周杰伦的龙拳是广告歌](https://www.share.minike.top/Article/details/470305813.shtml)
+- 2026-06-30 01:38 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/13177.shtml)
+- 2026-06-30 01:59 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/343565422.shtml)
+- 2026-06-30 01:55 - [沙丘](http://www.share.minike.top/Article/details/17003860.shtml)
+- 2026-06-30 01:43 - [徐亮怒斥世界杯踢假球](https://www.blog.kurohicncr.top/Article/details/8346744451.shtml)
+- 2026-06-30 01:34 - [阿根廷世界杯的占卜玄学有多离谱](http://www.blog.kurohicncr.top/Article/details/69683.shtml)
+- 2026-06-30 01:31 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/6300464984.shtml)
+- 2026-06-30 01:41 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/1815317172.shtml)
+- 2026-06-30 01:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/4817214981.shtml)
+- 2026-06-30 01:40 - [辽宁居民楼疑液化气闪爆致3死](https://www.blog.minike.top/Article/details/3175508.shtml)
+- 2026-06-30 01:36 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/31922253.shtml)
+- 2026-06-30 01:45 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/42736770.shtml)
+- 2026-06-30 01:56 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/23829.shtml)

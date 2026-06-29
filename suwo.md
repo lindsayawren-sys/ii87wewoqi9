@@ -1,50 +1,56 @@
-# 大美边疆看我家丨黑龙江牡丹江：火山熔岩台地迎来插秧季
+# 花旗：老铺黄金维持“买入”评级 目标价下调至659港元
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 11:34 来源：中国新闻网 在黑龙江牡丹江，火山熔岩台地逢春苏醒，满目生机盎然。盈盈春水漫灌良田，待插秧的稻田环村落铺展，晕染成一幅清丽淡雅的水墨画卷。春耕启序，便是播撒希望之时。(作者：段秀梅） 责任编辑：【魏聪聪】
+花旗发布研报称，维持老铺黄金（06181）“买入”评级，基于第二季的营运情况，将老铺黄金2026至2028年的盈利预测下调6%至7%，将其目标价由700港元下调至659港元。该股在近期金价回落中已遭超卖，2027年预测市盈率为10倍，股息率为7.4%，估值具吸引力。 该行预期老铺黄金今年次季销售额将同比减弱，但盈利表现将更强劲，主要由于毛利率扩张足以抵销营运负杠杆效应。该行相信
 
 ## 正文
 
-发布时间：2026年05月11日 11:34 来源：中国新闻网 在黑龙江牡丹江，火山熔岩台地逢春苏醒，满目生机盎然。
+花旗发布研报称，维持老铺黄金（06181）“买入”评级，基于第二季的营运情况，将老铺黄金2026至2028年的盈利预测下调6%至7%，将其目标价由700港元下调至659港元。
 
-盈盈春水漫灌良田，待插秧的稻田环村落铺展，晕染成一幅清丽淡雅的水墨画卷。
+该股在近期金价回落中已遭超卖，2027年预测市盈率为10倍，股息率为7.4%，估值具吸引力。
 
-春耕启序，便是播撒希望之时。
+该行预期老铺黄金今年次季销售额将同比减弱，但盈利表现将更强劲，主要由于毛利率扩张足以抵销营运负杠杆效应。
 
-(作者：段秀梅） 责任编辑：【魏聪聪】
+该行相信，第二季的表现提供了一个最坏情况案例，以衡量由忠实核心客户所产生的业务规模及盈利能力，若金价进一步下跌，其下行风险有限。
+
+同时，管理层正测试更多措施以应对价格敏感型客户的流失，这有望推动第三季起出现按季改善。
+
+该行指出，第二季销售疲弱主要受到SKP（4月促销疲弱）及天猫（618活动疲弱）两大渠道拖累，因这两个渠道拥有较多价格敏感型客户，在公司产品溢价显著飙升（目前较传统黄金珠宝商高出约60%）及金价回落后选择流失。
+
+该行估计这两个主要渠道以往占销售额约30%6（现降至约20%），其下滑未能完全被2025年下半年开设的新大店销售所抵销。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 01:34 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 01:53 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 01:35 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 01:39 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-30 01:50 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 01:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 01:44 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bezwh.md)
-- 2026-06-30 01:34 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 01:34 - [古代人对纳妾的态度是什么样的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
-- 2026-06-30 01:24 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 01:50 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 01:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 01:31 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 01:35 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 01:35 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
+- 2026-06-30 01:41 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 01:30 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-30 01:39 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 01:53 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-30 01:39 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 01:49 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:38 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/90654112955.shtml)
-- 2026-06-30 01:40 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.minike.top/Article/details/51300030.shtml)
-- 2026-06-30 01:28 - [一见倾心](https://www.blog.minike.top/Article/details/97094.shtml)
-- 2026-06-30 01:37 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/33575332.shtml)
-- 2026-06-30 01:31 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/32501.shtml)
-- 2026-06-30 01:53 - [时光音乐会](https://www.blog.minike.top/Article/details/55808.shtml)
-- 2026-06-30 01:47 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/5346291.shtml)
-- 2026-06-30 01:49 - [免费试吃发差评被店家挂店门避雷](http://www.blog.kurohicncr.top/Article/details/2054777.shtml)
-- 2026-06-30 01:27 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://www.share.kurohicncr.top/Article/details/470020010090.shtml)
-- 2026-06-30 01:31 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.minike.top/Article/details/416312058199.shtml)
-- 2026-06-30 01:36 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/27864488587.shtml)
-- 2026-06-30 01:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/9203768.shtml)
-- 2026-06-30 01:45 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/06113.shtml)
-- 2026-06-30 01:26 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/02656691.shtml)
-- 2026-06-30 01:35 - [运20服役十周年宣传片有哪些亮点](http://www.share.kurohicncr.top/Article/details/7059935657.shtml)
+- 2026-06-30 01:43 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/91799671398.shtml)
+- 2026-06-30 01:43 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/973068423339.shtml)
+- 2026-06-30 01:33 - [沙丘](http://www.blog.kurohicncr.top/Article/details/907028391.shtml)
+- 2026-06-30 01:35 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/22086760345.shtml)
+- 2026-06-30 01:40 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/8810242970.shtml)
+- 2026-06-30 01:57 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/7274070965.shtml)
+- 2026-06-30 01:37 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/42531435.shtml)
+- 2026-06-30 01:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.kurohicncr.top/Article/details/00629377.shtml)
+- 2026-06-30 01:33 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/76063890225.shtml)
+- 2026-06-30 01:46 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/26860947883.shtml)
+- 2026-06-30 01:40 - [Prada在内娱首度签下偶像团体](http://www.share.kurohicncr.top/Article/details/577206429730.shtml)
+- 2026-06-30 01:51 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/4474252942.shtml)
+- 2026-06-30 01:32 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/062400787.shtml)
+- 2026-06-30 01:41 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/4430784647.shtml)
+- 2026-06-30 01:37 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/911496.shtml)

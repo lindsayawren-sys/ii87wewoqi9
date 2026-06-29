@@ -1,57 +1,58 @@
-# 2026年全国蹦床冠军赛昆明开跳 295名选手跃动“空中芭蕾”
+# 东风-17发射状态首次公开！多车齐射场面硬核
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网昆明5月9日电 (郭武辉 胡畅)2026年全国蹦床冠军赛9日在昆明开幕。来自全国13支代表队的295名运动员，将在为期三天的比赛中腾跃比拼，尽展“空中芭蕾”的力与美。 蹦床运动融力量、技巧、美感于一体，素有“空中芭蕾”的美誉。作为本年度国内最高水平的蹦床赛事之一，本次比赛设男女网上个人、男女双人同步、男女单跳个人、男女双蹦床个人及团体等多个项目。由国家体育总局体操运动管理
+这是火箭军某野外训练场，数枚新型导弹正在起竖。从火力突击的过程中可以看到，各作战单元不仅要密切协同完成多波次的火力打击，同时还要随时做好防强电磁干扰、防精确打击等特情处置。 官兵们表示，新型装备智能化程度更高，机动性能更强，火力打击更加精确，具有全天候、无依托、强突防的作战优势。 装备的迭代升级，本质是科技实力的硬核落地。近年来，东风-17、东风-26D、东风-31、东风-61
 
 ## 正文
 
-中新网昆明5月9日电 (郭武辉 胡畅)2026年全国蹦床冠军赛9日在昆明开幕。
+这是火箭军某野外训练场，数枚新型导弹正在起竖。
 
-来自全国13支代表队的295名运动员，将在为期三天的比赛中腾跃比拼，尽展“空中芭蕾”的力与美。
+从火力突击的过程中可以看到，各作战单元不仅要密切协同完成多波次的火力打击，同时还要随时做好防强电磁干扰、防精确打击等特情处置。
 
-蹦床运动融力量、技巧、美感于一体，素有“空中芭蕾”的美誉。
+官兵们表示，新型装备智能化程度更高，机动性能更强，火力打击更加精确，具有全天候、无依托、强突防的作战优势。
 
-作为本年度国内最高水平的蹦床赛事之一，本次比赛设男女网上个人、男女双人同步、男女单跳个人、男女双蹦床个人及团体等多个项目。
+装备的迭代升级，本质是科技实力的硬核落地。
 
-由国家体育总局体操运动管理中心、中国蹦床与技巧协会主办，云南省体育局联合主办，昆明市官渡区教育体育局承办。
+近年来，东风-17、东风-26D、东风-31、东风-61等一大批我国自主研发的新型主战装备列装、常态参训。
 
-中共昆明市官渡区委书记、区人民政府区长李德鸿介绍，作为昆明市主城核心区，官渡区近年来持续完善体育基础设施，大力推进体教融合发展，全民健身蔚然成风，并积累了丰富的办赛经验。
+专家解读：多车齐射对阵地安全、打击效果作用至关重要在东风-17实战化演练的画面当中，我们还看到了有多辆导弹发射车在公路上一字排开、导弹起竖、多车齐射的场景，这实战中会体现出什么优势？
 
-他表示，该区将举全区之力，在场馆运维、交通出行、餐饮住宿等各环节精益求精、周密部署，确保赛事安全、顺畅、精彩举办。
+军事评论员杜文龙表示，公路发射只是视频中展示出的一种样式，依托公路尽快发射是重点。
 
-国家体育总局体操运动管理中心副主任袁守龙称，继此次比赛后，2026年全国啦啦操联赛总决赛也将在昆明市官渡区举办，希望通过赛事带动当地体育运动、体育产业和旅游业发展。
+只要能够展开发射车，就可以完成起竖发射等动作。
 
 ## 相关推荐
 
-- 2026-06-30 01:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-30 01:53 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongchun.md)
-- 2026-06-30 01:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-30 01:24 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-30 01:37 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
-- 2026-06-30 01:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
-- 2026-06-30 01:46 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 01:52 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-30 01:53 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 01:27 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-30 01:51 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-30 01:56 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 01:32 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 01:46 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 01:41 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-30 01:40 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 01:39 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-30 01:46 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-30 01:45 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 01:36 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 01:53 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-30 01:38 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 01:36 - [马光远谈马斯克最大的价值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/5840725.shtml)
-- 2026-06-30 01:26 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/1942812847.shtml)
-- 2026-06-30 01:42 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/1083308.shtml)
-- 2026-06-30 01:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/174722.shtml)
-- 2026-06-30 01:48 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/665154286.shtml)
-- 2026-06-30 01:48 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/80769739.shtml)
-- 2026-06-30 01:42 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/75038627572.shtml)
-- 2026-06-30 01:36 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/22036557154.shtml)
-- 2026-06-30 01:51 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/358385484.shtml)
-- 2026-06-30 01:24 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/048175584888.shtml)
-- 2026-06-30 01:52 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/03933520730.shtml)
-- 2026-06-30 01:32 - [仙游一峡谷5人身亡知情者发声](http://www.blog.kurohicncr.top/Article/details/4718127.shtml)
-- 2026-06-30 01:45 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/26775397470.shtml)
-- 2026-06-30 01:32 - [中国对日本再出重拳](http://www.blog.kurohicncr.top/Article/details/097568382.shtml)
-- 2026-06-30 01:49 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/829686.shtml)
+- 2026-06-30 01:37 - [内马尔替补](http://www.blog.minike.top/Article/details/68716111784.shtml)
+- 2026-06-30 01:48 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/468244919.shtml)
+- 2026-06-30 01:33 - [勇敢的心第二部](http://www.blog.kurohicncr.top/Article/details/137422873.shtml)
+- 2026-06-30 01:46 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/511079436470.shtml)
+- 2026-06-30 01:41 - [腾讯与长鑫存储签200亿大单](http://www.share.minike.top/Article/details/87977540782.shtml)
+- 2026-06-30 01:45 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/792413998.shtml)
+- 2026-06-30 01:50 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/2898242573.shtml)
+- 2026-06-30 01:31 - [女子发现孩子非现任亲生起诉前任](http://www.blog.minike.top/Article/details/563975.shtml)
+- 2026-06-30 01:40 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/53062.shtml)
+- 2026-06-30 01:39 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/915366193925.shtml)
+- 2026-06-30 01:32 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/494324.shtml)
+- 2026-06-30 01:59 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/93551.shtml)
+- 2026-06-30 01:46 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.kurohicncr.top/Article/details/14517733.shtml)
+- 2026-06-30 01:50 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/4835317215.shtml)
+- 2026-06-30 01:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/25236710.shtml)

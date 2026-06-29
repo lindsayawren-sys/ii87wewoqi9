@@ -1,61 +1,60 @@
-# 芯片股迎来2000年以来最佳六周行情
+# 前美联储主席格林斯潘逝世 享年100岁
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-费城半导体指数自3月底以来累计上涨约32%，创下2000年以来最佳六周表现。本轮上涨由存储芯片价格飙升、人工智能需求持续爆发以及板块轮动资金流入共同驱动。 存储芯片领涨 自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片现货价格分别上涨约25%和18%，直接推动美光和闪迪股价在六周内分别上涨约45%和60%。存储芯片行业经历了长达两年的去库存周期，供给端产能受限，而AI服务器
+艾伦・格林斯潘的妻子在一份声明中证实，这位极具影响力的经济学家于周一离世。他曾五度出任美联储主席，在四任美国总统任期内执掌美国货币政策。 从冷战末期到数字时代来临，格林斯潘深刻塑造了现代美国资本主义的发展轨迹。他执掌美联储期间，见证了美国史上持续时间最长的一轮经济扩张周期，这场经济繁荣从1991年延续至2001年。但也有不少批评者指责，他推行的多项政策（例如主张放松金融业监管）
 
 ## 正文
 
-费城半导体指数自3月底以来累计上涨约32%，创下2000年以来最佳六周表现。
+艾伦・格林斯潘的妻子在一份声明中证实，这位极具影响力的经济学家于周一离世。
 
-本轮上涨由存储芯片价格飙升、人工智能需求持续爆发以及板块轮动资金流入共同驱动。
+他曾五度出任美联储主席，在四任美国总统任期内执掌美国货币政策。
 
-存储芯片领涨 自2月底伊朗战争爆发以来，DRAM和NAND闪存芯片现货价格分别上涨约25%和18%，直接推动美光和闪迪股价在六周内分别上涨约45%和60%。
+从冷战末期到数字时代来临，格林斯潘深刻塑造了现代美国资本主义的发展轨迹。
 
-存储芯片行业经历了长达两年的去库存周期，供给端产能受限，而AI服务器对高带宽内存的需求正在消耗大量产能，导致供需缺口扩大，涨价周期比预期更为猛烈。
+他执掌美联储期间，见证了美国史上持续时间最长的一轮经济扩张周期，这场经济繁荣从1991年延续至2001年。
 
-AI需求仍是核心叙事 英伟达六周内上涨约35%。
+但也有不少批评者指责，他推行的多项政策（例如主张放松金融业监管）为2007至2008年全球金融危机埋下了隐患。
 
-公司将于本月下旬公布财报，市场预期数据中心营收将再创新高。
+米切尔在声明中表示：“艾伦今早于家中离世，享年100岁，死因是帕金森病引发的多种并发症。
 
-博通上涨约28%，AMD上涨约25%。
+” “他是一位时代巨人，在两党多位总统执政的数十年间深刻影响美国经济走向，同时他始终坦诚直面自己犯下的决策失误。
 
-尽管AI相关芯片表现强劲，但模拟芯片和汽车芯片表现相对落后，德州仪器和恩智浦同期仅上涨约10%至12%，显示工业端需求复苏仍不均衡。
+”她说道。
 
 ## 相关推荐
 
-- 2026-06-30 01:48 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 01:43 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 01:26 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-30 01:40 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-30 01:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 01:35 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
-- 2026-06-30 01:34 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 01:51 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 01:28 - [张凌赫 客串](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-30 01:25 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 01:53 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 01:40 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 01:53 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henjuan.md)
-- 2026-06-30 01:44 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 01:41 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 01:44 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-30 01:50 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-30 01:37 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 01:31 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 01:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 01:53 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-30 01:38 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
+- 2026-06-30 01:49 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 01:58 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dltar.md)
+- 2026-06-30 01:53 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-30 01:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-30 01:59 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 01:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 01:49 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:24 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/5235031619.shtml)
-- 2026-06-30 01:41 - [田曦薇没招了](http://www.blog.minike.top/Article/details/40306.shtml)
-- 2026-06-30 01:38 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/19992985580.shtml)
-- 2026-06-30 01:33 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/222597781.shtml)
-- 2026-06-30 01:30 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.minike.top/Article/details/028990467118.shtml)
-- 2026-06-30 01:51 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/857227078.shtml)
-- 2026-06-30 01:26 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/709702836.shtml)
-- 2026-06-30 01:26 - [青春环游记第三季](https://www.share.minike.top/Article/details/648117.shtml)
-- 2026-06-30 01:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.minike.top/Article/details/019612.shtml)
-- 2026-06-30 01:53 - [我们的少年时代2](https://www.share.minike.top/Article/details/434443936399.shtml)
-- 2026-06-30 01:48 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/7315829.shtml)
-- 2026-06-30 01:35 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/70087727.shtml)
-- 2026-06-30 01:29 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/287754912443.shtml)
-- 2026-06-30 01:41 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/510298.shtml)
-- 2026-06-30 01:46 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/74472315054.shtml)
+- 2026-06-30 01:44 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/363858283586.shtml)
+- 2026-06-30 01:40 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.kurohicncr.top/Article/details/887048343473.shtml)
+- 2026-06-30 01:54 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/09973653095.shtml)
+- 2026-06-30 01:41 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/02898.shtml)
+- 2026-06-30 01:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/368893593582.shtml)
+- 2026-06-30 01:44 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/294748527792.shtml)
+- 2026-06-30 01:40 - [韩国的野心是想成“AI革命主导国”吗](http://www.blog.kurohicncr.top/Article/details/298138474287.shtml)
+- 2026-06-30 01:47 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/48284071881.shtml)
+- 2026-06-30 01:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/7781789.shtml)
+- 2026-06-30 01:49 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/625739.shtml)
+- 2026-06-30 01:54 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/92381057270.shtml)
+- 2026-06-30 01:44 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/2682267885.shtml)
+- 2026-06-30 01:38 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/86144466.shtml)
+- 2026-06-30 01:51 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/384087928636.shtml)
+- 2026-06-30 01:30 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/204722.shtml)

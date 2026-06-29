@@ -1,57 +1,47 @@
-# 检察机关依法分别对马爱平、姜志强、李景宽、洪鑫提起公诉
+# 聚合顺：截至2026年6月18日收盘公司股东人数为16691户
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网5月1日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对马爱平、姜志强、李景宽、洪鑫提起公诉。 宁夏检察机关依法对马爱平涉嫌受贿、利用影响力受贿案提起公诉 日前，宁夏回族自治区银川市原一级巡视员马爱平涉嫌受贿罪、利用影响力受贿罪一案，由宁夏回族自治区监察委员会调查终结，移送检察机关审查起诉。经宁夏回族自治区人民检察院指定管辖，由固原市人民检察院依法向固原市中级
+证券日报网讯 6月22日，聚合顺在互动平台回答投资者提问时表示，截至2026年6月18日收盘，公司股东人数为16691户。（文章来源：证券日报）
 
 ## 正文
 
-中新网5月1日电 据最高人民检察院微信公众号消息，日前，检察机关依法分别对马爱平、姜志强、李景宽、洪鑫提起公诉。
+证券日报网讯 6月22日，聚合顺在互动平台回答投资者提问时表示，截至2026年6月18日收盘，公司股东人数为16691户。
 
-宁夏检察机关依法对马爱平涉嫌受贿、利用影响力受贿案提起公诉 日前，宁夏回族自治区银川市原一级巡视员马爱平涉嫌受贿罪、利用影响力受贿罪一案，由宁夏回族自治区监察委员会调查终结，移送检察机关审查起诉。
-
-经宁夏回族自治区人民检察院指定管辖，由固原市人民检察院依法向固原市中级人民法院提起公诉。
-
-案件正在进一步办理中。
-
-检察机关在审查起诉阶段，依法告知了被告人马爱平享有的诉讼权利，并依法讯问了被告人，听取了辩护人的意见。
-
-固原市人民检察院起诉指控：被告人马爱平利用担任吴忠市交通局局长、党委书记，银川市兴庆区政府区长、区委书记，银川滨河新区(经济试验区)管委会副主任，银川综合保税区管委会主任等职务上的便利以及职权、地位形成的便利条件，为他人谋取利益，非法收受他人财物，数额特别巨大；离职后利用原职权、地位形成的便利条件，通过其他国家工作人员职务上的行为，为他人谋取不正当利益，收受他人财物，数额巨大，依法应当以受贿罪、利用影响力受贿罪追究其刑事责任。
-
-贵州检察机关依法对姜志强涉嫌受贿案提起公诉 日前，贵州省施秉县委原书记姜志强(正县级)涉嫌受贿罪一案，由贵州省监察委员会调查终结，移送检察机关审查起诉。
-
-经贵州省人民检察院指定管辖，由铜仁市人民检察院依法向铜仁市中级人民法院提起公诉。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-30 01:39 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-30 01:33 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-30 01:29 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 01:51 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 01:37 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 01:43 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 01:51 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
-- 2026-06-30 01:30 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 01:41 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 01:24 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
-- 2026-06-30 01:40 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-30 01:46 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-30 01:32 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 01:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-30 01:54 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 01:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 01:50 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-30 01:49 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
+- 2026-06-30 01:47 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 01:48 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 01:51 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-30 01:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-30 01:35 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:57 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:43 - [足球“出口导向”造就佛得角奇迹](http://www.blog.kurohicncr.top/Article/details/129851357.shtml)
-- 2026-06-30 01:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/872731.shtml)
-- 2026-06-30 01:39 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/791438200.shtml)
-- 2026-06-30 01:39 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.minike.top/Article/details/890612.shtml)
-- 2026-06-30 01:45 - [AI手机进入Agent时代](https://www.blog.kurohicncr.top/Article/details/12228096.shtml)
-- 2026-06-30 01:51 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/698329870093.shtml)
-- 2026-06-30 01:43 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/2572098214.shtml)
-- 2026-06-30 01:37 - [速度与激情9](https://www.blog.kurohicncr.top/Article/details/32261238924.shtml)
-- 2026-06-30 01:28 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.minike.top/Article/details/672191.shtml)
-- 2026-06-30 01:30 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/50867350.shtml)
-- 2026-06-30 01:36 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/89414.shtml)
-- 2026-06-30 01:34 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/28848477756.shtml)
-- 2026-06-30 01:44 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/91265257664.shtml)
-- 2026-06-30 01:40 - [檀健次王楚然吻戏看热了](http://www.blog.minike.top/Article/details/214849135.shtml)
-- 2026-06-30 01:43 - [古代人对纳妾的态度是什么样的？](http://www.blog.minike.top/Article/details/16273941578.shtml)
+- 2026-06-30 01:33 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/36047980.shtml)
+- 2026-06-30 01:34 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/693770608.shtml)
+- 2026-06-30 01:54 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/44974812859.shtml)
+- 2026-06-30 01:52 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/133344.shtml)
+- 2026-06-30 01:53 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/578258578005.shtml)
+- 2026-06-30 01:36 - [金牌调解](https://www.blog.minike.top/Article/details/44908116.shtml)
+- 2026-06-30 01:49 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.minike.top/Article/details/86441475082.shtml)
+- 2026-06-30 01:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/8995382.shtml)
+- 2026-06-30 01:30 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/424927136878.shtml)
+- 2026-06-30 01:40 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/448241948448.shtml)
+- 2026-06-30 01:47 - [武汉西安站在了3小时临界线门槛上](https://www.share.minike.top/Article/details/23448210.shtml)
+- 2026-06-30 01:32 - [女心理师](http://www.blog.minike.top/Article/details/28837663.shtml)
+- 2026-06-30 01:47 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/619159767753.shtml)
+- 2026-06-30 01:38 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/59039427186.shtml)
+- 2026-06-30 01:51 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/4186582.shtml)

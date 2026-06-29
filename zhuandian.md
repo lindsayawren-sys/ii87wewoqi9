@@ -1,61 +1,55 @@
-# 赖清德跪拜日本人被批“无耻无骨无格”
+# 腾讯据悉考虑退出对Marvelous等游戏工作室的投资
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 19:19 来源：中国新闻网 赖清德在“偷渡式”窜访返台后，于8日特意前往台南，其目的竟是为跪拜日本人。多家台媒报道，当日，赖清德现身乌山头水库，参加八田与一(日本殖民台湾时期为殖民者建造水利工程的日本人)纪念活动。赖清德在公开发言时将八田与一描述成“自己人”“一家人”。他跪拜后，许多日本人对其高喊“赖桑”。报道称，日本前首相安倍晋三遗孀安倍昭
+据知情人士透露，腾讯控股正在洽谈退出对日本几家游戏工作室的投资，其中包括在东京上市的Marvelous Inc．，这是腾讯重新评估其全球投资组合行动的一部分。 知情人士说，这家中国游戏发行巨头正在评估其在许多家工作室的少数股权，在某些情况下准备将股份出售回给原管理团队，即使这意味着造成亏损。 一位知情人士说，腾讯退出投资的标准之一是，该公司会考虑其与投资组合公司预期的协同效应是
 
 ## 正文
 
-发布时间：2026年05月09日 19:19 来源：中国新闻网 赖清德在“偷渡式”窜访返台后，于8日特意前往台南，其目的竟是为跪拜日本人。
+据知情人士透露，腾讯控股正在洽谈退出对日本几家游戏工作室的投资，其中包括在东京上市的Marvelous Inc．，这是腾讯重新评估其全球投资组合行动的一部分。
 
-多家台媒报道，当日，赖清德现身乌山头水库，参加八田与一(日本殖民台湾时期为殖民者建造水利工程的日本人)纪念活动。
+知情人士说，这家中国游戏发行巨头正在评估其在许多家工作室的少数股权，在某些情况下准备将股份出售回给原管理团队，即使这意味着造成亏损。
 
-赖清德在公开发言时将八田与一描述成“自己人”“一家人”。
+一位知情人士说，腾讯退出投资的标准之一是，该公司会考虑其与投资组合公司预期的协同效应是否已经消失。
 
-他跪拜后，许多日本人对其高喊“赖桑”。
+因讨论未公开事务，知情人士要求匿名。
 
-报道称，日本前首相安倍晋三遗孀安倍昭惠也在场。
+腾讯在声明中表示，电子游戏是腾讯的核心业务，公司将继续全力与我们的投资企业合作，并长期保持在日本游戏市场的强大存在。
 
-安倍曾公然鼓吹“台湾有事，就是日本有事”的错误言论。
-
-台湾时事评论员黎建南在接受中国新闻网 “燕新台”工作室专访时表示，赖清德跪拜八田与一是试图抹杀台湾先民抗日血泪，掩盖台湾先民被残害的事实。
-
-“赖清德对外无耻无骨无格，对内无法无知无情。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 01:32 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-30 01:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 01:35 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 01:43 - [送你一朵小红花](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 01:50 - [片寄凉太胖了好多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 01:47 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-30 01:28 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-30 01:30 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-30 01:40 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-30 01:53 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 01:49 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
-- 2026-06-30 01:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 01:45 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 01:29 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 01:46 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 01:37 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 01:30 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 01:49 - [这辈子过得最痛苦的生日...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 01:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-30 01:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 01:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 01:56 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 01:46 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 01:45 - [货车司机恶意闯卡逃费被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
+- 2026-06-30 01:42 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-30 01:44 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 01:48 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 01:41 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:42 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/24308169109.shtml)
-- 2026-06-30 01:24 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/556377.shtml)
-- 2026-06-30 01:26 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.blog.minike.top/Article/details/419188.shtml)
-- 2026-06-30 01:39 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/1020459.shtml)
-- 2026-06-30 01:38 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/463907542920.shtml)
-- 2026-06-30 01:34 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/99505.shtml)
-- 2026-06-30 01:35 - [绘画区你赢了](https://www.share.minike.top/Article/details/08550340.shtml)
-- 2026-06-30 01:27 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/3162266.shtml)
-- 2026-06-30 01:34 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/01560535065.shtml)
-- 2026-06-30 01:28 - [美股](https://www.blog.minike.top/Article/details/500859.shtml)
-- 2026-06-30 01:35 - [刘念回应](http://www.share.minike.top/Article/details/99049148907.shtml)
-- 2026-06-30 01:41 - [一生一世](http://www.share.minike.top/Article/details/769270140.shtml)
-- 2026-06-30 01:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/34911.shtml)
-- 2026-06-30 01:53 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/76545.shtml)
-- 2026-06-30 01:44 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/07720032280.shtml)
+- 2026-06-30 01:33 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/24055534567.shtml)
+- 2026-06-30 01:50 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/601663246.shtml)
+- 2026-06-30 01:44 - [运20飞机列装空军十周年](http://www.share.minike.top/Article/details/56783889.shtml)
+- 2026-06-30 01:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/2312166911.shtml)
+- 2026-06-30 01:44 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/58292738011.shtml)
+- 2026-06-30 01:46 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.kurohicncr.top/Article/details/94562064.shtml)
+- 2026-06-30 01:34 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/7041360.shtml)
+- 2026-06-30 01:30 - [第一炉香](http://www.share.minike.top/Article/details/43209015102.shtml)
+- 2026-06-30 01:35 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/06051.shtml)
+- 2026-06-30 01:55 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.kurohicncr.top/Article/details/925816285270.shtml)
+- 2026-06-30 01:45 - [一见倾心](https://www.share.minike.top/Article/details/999438367.shtml)
+- 2026-06-30 01:43 - [王楚钦孙颖莎混双对手产生](http://www.blog.minike.top/Article/details/436066342668.shtml)
+- 2026-06-30 01:42 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/6866718536.shtml)
+- 2026-06-30 01:47 - [世界杯](http://www.blog.minike.top/Article/details/30967638.shtml)
+- 2026-06-30 01:30 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/024800738.shtml)

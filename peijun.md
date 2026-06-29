@@ -1,56 +1,46 @@
-# 酒价内参5月9日价格发布：水晶剑南春下跌1元/瓶
+# “东北超”首场“辽宁德比”开赛
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。 今日白酒市场11
+发布时间：2026年06月21日 12:58 来源：中国新闻网 6月20日，2026东北地区城市足球联赛第三轮焦点战—大连队主场迎战沈阳队的“辽宁德比”开赛。这是”东北超“成立以来首次上演同省双城对决，吸引全国各地逾6万名球迷观赛。 (王翕瞳 杨毅 李雪飞 王涵) 责任编辑：【李季】
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月9日整体明显走弱。
+发布时间：2026年06月21日 12:58 来源：中国新闻网 6月20日，2026东北地区城市足球联赛第三轮焦点战—大连队主场迎战沈阳队的“辽宁德比”开赛。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9921元，较昨日下跌23元，创下近半个月以来最低。
+这是”东北超“成立以来首次上演同省双城对决，吸引全国各地逾6万名球迷观赛。
 
-市场在短暂平稳后再度下探，终端交投情绪转冷，高端龙头价格企稳，次高端和腰部单品普遍走弱且跌幅较重。
-
-今日白酒市场11大单品三涨七跌一平，输家占据绝对优势。
-
-上涨方面，精品茅台涨幅居前，上涨4元/瓶，近期走势平稳；飞天茅台与五粮液普五八代均上涨1元/瓶，后者平近一月最高价格。
-
-下跌方面，青花郎与习酒君品跌幅居前，均下跌6元/瓶，前者再度失守700元关口，近期该酒品的价格波动较为剧烈，在700元大关附近反复震荡，后者价格今日快速下探，回落至近一个月次低位；国窖1573、洋河梦之蓝M6+及古井贡古20均下跌5元/瓶，其中国窖1573再度跌破900元大关，梦之蓝M6+失守600元关口；青花汾20与水晶剑南春均下跌1元/瓶。
-
-五粮液1618的价格环比保持不变。
-
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+(王翕瞳 杨毅 李雪飞 王涵) 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-30 01:30 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 01:38 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 01:45 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 01:47 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 01:50 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 01:37 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 01:37 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
-- 2026-06-30 01:39 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 01:43 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-30 01:34 - [葫芦岛居民楼闪爆事故致3死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 01:33 - [电动车主等红灯遭三轮车横杆砸头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 01:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
+- 2026-06-30 01:31 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 01:48 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
+- 2026-06-30 01:51 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 01:46 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
+- 2026-06-30 01:49 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-30 01:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
+- 2026-06-30 01:54 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:28 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/10075761657.shtml)
-- 2026-06-30 01:38 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/5560136.shtml)
-- 2026-06-30 01:25 - [恋与深空 日服](https://www.blog.minike.top/Article/details/1000875039.shtml)
-- 2026-06-30 01:37 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/79178787.shtml)
-- 2026-06-30 01:48 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/18201804.shtml)
-- 2026-06-30 01:45 - [好像看到了人类带孩子崩溃的样子](http://www.blog.minike.top/Article/details/93328925221.shtml)
-- 2026-06-30 01:52 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.kurohicncr.top/Article/details/2045997827.shtml)
-- 2026-06-30 01:29 - [高中五人学习小组全员超650分](https://www.blog.minike.top/Article/details/3085253.shtml)
-- 2026-06-30 01:51 - [电动车主等红灯遭三轮车横杆砸头](https://www.blog.kurohicncr.top/Article/details/445300461.shtml)
-- 2026-06-30 01:36 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/51919143052.shtml)
-- 2026-06-30 01:44 - [恋与深空将调整引狼入室文本](https://www.blog.kurohicncr.top/Article/details/4847818378.shtml)
-- 2026-06-30 01:24 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/064889351342.shtml)
-- 2026-06-30 01:33 - [法拉利车主已自行承担修理费近3万](https://www.blog.minike.top/Article/details/08496339317.shtml)
-- 2026-06-30 01:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.kurohicncr.top/Article/details/551194982.shtml)
-- 2026-06-30 01:25 - [小娘惹](http://www.share.minike.top/Article/details/123595.shtml)
+- 2026-06-30 01:47 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/92844.shtml)
+- 2026-06-30 01:59 - [小孩曾卓君夺冠之路](https://www.blog.minike.top/Article/details/55963060.shtml)
+- 2026-06-30 01:56 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/79317.shtml)
+- 2026-06-30 01:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/257621944.shtml)
+- 2026-06-30 01:51 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/31195031.shtml)
+- 2026-06-30 01:42 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/09375749.shtml)
+- 2026-06-30 01:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/041233447.shtml)
+- 2026-06-30 01:47 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/9596677.shtml)
+- 2026-06-30 01:47 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/10938.shtml)
+- 2026-06-30 01:48 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/66360.shtml)
+- 2026-06-30 01:37 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/0705022939.shtml)
+- 2026-06-30 01:45 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/49708749470.shtml)
+- 2026-06-30 01:39 - [韩国股市绑架日本？高盛警告](http://www.share.kurohicncr.top/Article/details/01061779737.shtml)
+- 2026-06-30 01:49 - [第一炉香](https://www.share.kurohicncr.top/Article/details/8536197515.shtml)
+- 2026-06-30 01:32 - [TOP不是Prada全球普通人](http://www.blog.minike.top/Article/details/0798528.shtml)

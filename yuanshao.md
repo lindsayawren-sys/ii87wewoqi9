@@ -1,58 +1,47 @@
-# 以赛兴科普 第十三届重庆科普讲解大赛收官
+# 视频 | 2500亿上银基金总经理、督察长先后离任!重仓游戏股，“新潮买手”陈博有产品年内亏23%
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网重庆5月10日电 (记者 钟旖)第十三届重庆科普讲解大赛决赛10日在当地举行。这是目前重庆规模最大、水平最高、具有典型代表性和广泛传播影响的科普讲解竞赛。 据介绍，本届大赛以“奋进‘十五五’ 科技谱新篇”为主题，由重庆市科学技术局、中共重庆市委宣传部、重庆市科学技术协会、重庆市社会科学界联合会主办。 大赛自启动以来，吸引重庆12个市级部门和37个区县组队参赛。其中，成人组
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：深圳商报 责任编辑：宋雅芳
 
 ## 正文
 
-中新网重庆5月10日电 (记者 钟旖)第十三届重庆科普讲解大赛决赛10日在当地举行。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这是目前重庆规模最大、水平最高、具有典型代表性和广泛传播影响的科普讲解竞赛。
-
-据介绍，本届大赛以“奋进‘十五五’ 科技谱新篇”为主题，由重庆市科学技术局、中共重庆市委宣传部、重庆市科学技术协会、重庆市社会科学界联合会主办。
-
-大赛自启动以来，吸引重庆12个市级部门和37个区县组队参赛。
-
-其中，成人组有3590名选手报名比赛，青少年组有3056名选手报名。
-
-经过层层选拔，40名成人组选手和51名青少年组选手分别闯入决赛。
-
-选手们来自卫生健康、自然资源、海关消防、文旅交通、地震气象、人工智能等行业领域，全方位、多维度地讲解科学知识，提升公民素质。
-
-决赛现场，成人组和青少年组同时展开比拼。
+来源：深圳商报 责任编辑：宋雅芳
 
 ## 相关推荐
 
-- 2026-06-30 01:27 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 01:54 - [腾讯与长鑫存储签200亿大单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-30 01:26 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
-- 2026-06-30 01:39 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-30 01:26 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-30 01:25 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
-- 2026-06-30 01:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 01:25 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
-- 2026-06-30 01:46 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-30 01:30 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 01:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
-- 2026-06-30 01:29 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-30 01:30 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 01:43 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 01:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-30 01:47 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 01:42 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
+- 2026-06-30 01:47 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 01:49 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ledve.md)
+- 2026-06-30 01:37 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-30 01:36 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 01:34 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-30 01:37 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-30 01:39 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 01:43 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:40 - [永辉超市回应两个包子卖104元](https://www.share.minike.top/Article/details/397341612.shtml)
-- 2026-06-30 01:43 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/2020735941.shtml)
-- 2026-06-30 01:48 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/857404820466.shtml)
-- 2026-06-30 01:44 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/00333980688.shtml)
-- 2026-06-30 01:32 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/23079487923.shtml)
-- 2026-06-30 01:47 - [恋与深空 日服](https://www.share.minike.top/Article/details/1456493.shtml)
-- 2026-06-30 01:47 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/39191122540.shtml)
-- 2026-06-30 01:42 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/915727625810.shtml)
-- 2026-06-30 01:34 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/323472.shtml)
-- 2026-06-30 01:33 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/55832468394.shtml)
-- 2026-06-30 01:28 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/979719063589.shtml)
-- 2026-06-30 01:32 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/370906186.shtml)
-- 2026-06-30 01:31 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/91662.shtml)
-- 2026-06-30 01:39 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.kurohicncr.top/Article/details/235357.shtml)
-- 2026-06-30 01:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/474149556.shtml)
+- 2026-06-30 01:50 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/589467506.shtml)
+- 2026-06-30 01:32 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/53115614.shtml)
+- 2026-06-30 01:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/65715.shtml)
+- 2026-06-30 01:30 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/8655667.shtml)
+- 2026-06-30 01:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/61471474.shtml)
+- 2026-06-30 01:33 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/538937339.shtml)
+- 2026-06-30 01:33 - [俄军1周发射上千架无人机有何目的](https://www.blog.minike.top/Article/details/901399.shtml)
+- 2026-06-30 01:47 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/4342199.shtml)
+- 2026-06-30 01:45 - [永辉超市回应两个包子卖104元](http://www.blog.minike.top/Article/details/1016516444.shtml)
+- 2026-06-30 01:58 - [美股](http://www.blog.kurohicncr.top/Article/details/36259321128.shtml)
+- 2026-06-30 01:52 - [酒店推行“24小时退房”引热议](http://www.share.kurohicncr.top/Article/details/464180.shtml)
+- 2026-06-30 01:54 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/66674536624.shtml)
+- 2026-06-30 01:34 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/56844799.shtml)
+- 2026-06-30 01:59 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/92907.shtml)
+- 2026-06-30 01:59 - [猛龙快船交易或将达成](http://www.blog.kurohicncr.top/Article/details/18939011.shtml)

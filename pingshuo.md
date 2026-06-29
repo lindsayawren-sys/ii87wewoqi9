@@ -1,58 +1,53 @@
-# 一纸假名单掀起新能源汽车“锁电”风波，这一争议为何长期难解？
+# 外交部：日本“新型军国主义”威胁地区和平稳定
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 葛成 周姝祺 界面新闻编辑 | 周姝祺 5月9日，一则关于8家新能源企业因OTA“锁电”被集中约谈、3家被立案调查的消息将新能源汽车行业推上舆论风口。该话题迅速登上微博热搜，引发大量车主与行业人士关注。 事件源头可追溯至4月中旬。有媒体援引全国12315平台数据报道称，2026年3月，关于企业OTA“锁电”的投诉单月超过1.2万件，同比上涨273%。最终官方监
+人民财讯6月23日电，6月23日，外交部发言人郭嘉昆主持例行记者会。有记者就日本向乌克兰提供援助提问。 郭嘉昆表示，近年来，日本大肆推进“再军事化”，发展中远程强力进攻武器，解禁杀伤性武器出口，同域外国家互动频繁，扩大自卫队活动范围，打造可以实战的作战体系。这是在突破日本宪法、国际法规制和“专守防卫”等原则，挑战战后国际秩序，与日方自诩的“和平国家”形象背道而驰。日本“新型军国
 
 ## 正文
 
-界面新闻记者 | 葛成 周姝祺 界面新闻编辑 | 周姝祺 5月9日，一则关于8家新能源企业因OTA“锁电”被集中约谈、3家被立案调查的消息将新能源汽车行业推上舆论风口。
+人民财讯6月23日电，6月23日，外交部发言人郭嘉昆主持例行记者会。
 
-该话题迅速登上微博热搜，引发大量车主与行业人士关注。
+有记者就日本向乌克兰提供援助提问。
 
-事件源头可追溯至4月中旬。
+郭嘉昆表示，近年来，日本大肆推进“再军事化”，发展中远程强力进攻武器，解禁杀伤性武器出口，同域外国家互动频繁，扩大自卫队活动范围，打造可以实战的作战体系。
 
-有媒体援引全国12315平台数据报道称，2026年3月，关于企业OTA“锁电”的投诉单月超过1.2万件，同比上涨273%。
+这是在突破日本宪法、国际法规制和“专守防卫”等原则，挑战战后国际秩序，与日方自诩的“和平国家”形象背道而驰。
 
-最终官方监管介入，8家汽车企业被约谈，3家因违规被立案调查，2家撤回争议升级包并承诺恢复性能。
+日本“新型军国主义”成势为患，威胁地区和平稳定，国际社会必须高度警惕，坚决遏制。
 
-半个多月后，该文在社交网络持续发酵。
-
-部分网友通过AI应用查询所谓“涉事企业名单”，涉及比亚迪、特斯拉、蔚来、小鹏、理想、广汽埃安、极氪、问界等主流品牌。
-
-相关截图被大量转发，进一步放大了市场猜测。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 01:44 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
-- 2026-06-30 01:47 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 01:30 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
-- 2026-06-30 01:45 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 01:47 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
-- 2026-06-30 01:50 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 01:40 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
-- 2026-06-30 01:50 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 01:53 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-30 01:40 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 01:34 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-30 01:44 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 01:56 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-30 01:43 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 01:41 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-30 01:32 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-30 01:52 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 01:46 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 01:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-30 01:45 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-30 01:35 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 01:45 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 01:49 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/820214.shtml)
-- 2026-06-30 01:44 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/33869920.shtml)
-- 2026-06-30 01:47 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/13673.shtml)
-- 2026-06-30 01:44 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/689161.shtml)
-- 2026-06-30 01:33 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/59601460.shtml)
-- 2026-06-30 01:27 - [足球“出口导向”造就佛得角奇迹](http://www.share.minike.top/Article/details/32357529.shtml)
-- 2026-06-30 01:45 - [第一炉香](https://www.blog.minike.top/Article/details/710956.shtml)
-- 2026-06-30 01:40 - [有什么好的高中网课推荐吗？](https://www.blog.minike.top/Article/details/286398417130.shtml)
-- 2026-06-30 01:29 - [蔚来车主罚站](http://www.share.minike.top/Article/details/045239721.shtml)
-- 2026-06-30 01:24 - [片寄凉太胖了好多](http://www.share.minike.top/Article/details/00839079611.shtml)
-- 2026-06-30 01:40 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/465275768972.shtml)
-- 2026-06-30 01:45 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/047816392033.shtml)
-- 2026-06-30 01:37 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/2967070891.shtml)
-- 2026-06-30 01:44 - [辽宁居民楼疑液化气闪爆致3死](http://www.share.kurohicncr.top/Article/details/622252969223.shtml)
-- 2026-06-30 01:36 - [巴西把自己踢晕了](https://www.share.kurohicncr.top/Article/details/150028119127.shtml)
+- 2026-06-30 01:40 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/10448744262.shtml)
+- 2026-06-30 01:48 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/2566361.shtml)
+- 2026-06-30 01:46 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/846333.shtml)
+- 2026-06-30 01:43 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/0644035770.shtml)
+- 2026-06-30 01:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/430505.shtml)
+- 2026-06-30 01:47 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.blog.minike.top/Article/details/56705.shtml)
+- 2026-06-30 01:54 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/8357470.shtml)
+- 2026-06-30 01:43 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/147832.shtml)
+- 2026-06-30 01:53 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/82407711.shtml)
+- 2026-06-30 01:35 - [深扒韩国队淘汰背后原因](https://www.share.kurohicncr.top/Article/details/5276927081.shtml)
+- 2026-06-30 01:38 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/809346202355.shtml)
+- 2026-06-30 01:51 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/913782274.shtml)
+- 2026-06-30 01:57 - [四川宜宾地震为何震感明显](http://www.blog.minike.top/Article/details/9419846.shtml)
+- 2026-06-30 01:48 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/823646.shtml)
+- 2026-06-30 01:55 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.share.kurohicncr.top/Article/details/791970.shtml)

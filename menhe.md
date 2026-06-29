@@ -1,58 +1,50 @@
-# 以秦腔艺术为镜折射众生百态 电视剧《主角》迎开播
+# 新西兰龙舟队挑战佛山“龙舟漂移”：中国是头号好地方
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网北京5月10日电 (记者 高凯)5月10日，陕派文化大剧《主角》正式登陆CCTV-1黄金档独家电视首播。 该剧由张艺谋监制、张嘉益担任艺术总监，李少飞执导，改编自作家陈彦茅盾文学奖同名小说，郑桦、京榆编剧，马晓勇联合编剧，张嘉益、刘浩存、秦海璐、窦骁、翟子路、王晓晨领衔主演，以秦腔名伶忆秦娥近半个世纪的艺术人生为脉络，串联起几代秦腔人的坚守与沉浮。 作为国家广播电视总局重
+发布时间：2026年06月23日 11:01 来源：中国新闻网 近几年来的端午节前后，被誉为“水上F1”的广东佛山叠滘“漂移”龙舟‌都会成为传统龙舟文化“夯爆了”的代表，从南方水乡的小河里，到火遍全国，再到今年，连南半球的老外，都来凑热闹了。 跨越一万公里，从寒冷的冬季一头扎进夏天的河水，这支三十多人的新西兰队伍可不是来当观光客的，他们中大部分都是毛利汉子，一个个身材健硕，脸上
 
 ## 正文
 
-中新网北京5月10日电 (记者 高凯)5月10日，陕派文化大剧《主角》正式登陆CCTV-1黄金档独家电视首播。
+发布时间：2026年06月23日 11:01 来源：中国新闻网 近几年来的端午节前后，被誉为“水上F1”的广东佛山叠滘“漂移”龙舟‌都会成为传统龙舟文化“夯爆了”的代表，从南方水乡的小河里，到火遍全国，再到今年，连南半球的老外，都来凑热闹了。
 
-该剧由张艺谋监制、张嘉益担任艺术总监，李少飞执导，改编自作家陈彦茅盾文学奖同名小说，郑桦、京榆编剧，马晓勇联合编剧，张嘉益、刘浩存、秦海璐、窦骁、翟子路、王晓晨领衔主演，以秦腔名伶忆秦娥近半个世纪的艺术人生为脉络，串联起几代秦腔人的坚守与沉浮。
+跨越一万公里，从寒冷的冬季一头扎进夏天的河水，这支三十多人的新西兰队伍可不是来当观光客的，他们中大部分都是毛利汉子，一个个身材健硕，脸上身上都刻着民族图案。
 
-作为国家广播电视总局重点指导项目，陕西省重大文化精品扶持项目，《主角》将秦腔艺术作为一面折射时代变迁与人性百态的镜子，既有非遗的厚重底色，又有从黄土地上生长出的生命活力。
+在端午节的前一周，他们就抵达佛山，开启了训练模式。
 
-该剧塑造了以胡三元(张嘉益 饰)、忆秦娥(刘浩存 饰)、花彩香(秦海璐 饰)、刘红兵(窦骁 饰)、封潇潇(翟子路 饰)、米兰(王晓晨 饰)等为代表的一组鲜活人物群像。
+尽管来之前也看过一些视频画面，但亲身踏上“漂移”龙舟‌的赛场，汉子们还是被震撼到了。
 
-剧中人对待戏的态度，反映出他们的性格底色，更承载面对命运起落的心态。
-
-观众随着县剧团日常排戏、练功、赶场、拌嘴、解围，走进鸡飞狗跳的热闹生活，感受患难与共的温暖抚慰。
-
-胡三元一句“霜不打南瓜熟不透”，点透成长必经的关窍。
-
-剧中没有刻意制造的狗血冲突，全是扎根生活的真实细节：练功的苦、成名的难、人情的暖、世事的磨。
+记者 王庆然 佛山报道 责任编辑：【李季】
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [DRG官宣选手Akeman离队](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 01:51 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 01:44 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 01:41 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 01:45 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 01:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 01:47 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 01:43 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-30 01:38 - [汪苏泷年度歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 01:29 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-30 01:42 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-30 01:39 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 01:49 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 01:53 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-30 01:44 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-30 01:31 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 01:48 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-30 01:33 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 01:47 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 01:35 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
+- 2026-06-30 01:47 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 01:36 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.blog.kurohicncr.top/Article/details/872319545365.shtml)
-- 2026-06-30 01:51 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/53528404780.shtml)
-- 2026-06-30 01:52 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/2579700.shtml)
-- 2026-06-30 01:37 - [国常会听取人工智能发展情况汇报](http://www.blog.minike.top/Article/details/51617715955.shtml)
-- 2026-06-30 01:26 - [世界杯](https://www.blog.kurohicncr.top/Article/details/447690258252.shtml)
-- 2026-06-30 01:36 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/94144050.shtml)
-- 2026-06-30 01:28 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/54733315222.shtml)
-- 2026-06-30 01:45 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/898454206450.shtml)
-- 2026-06-30 01:41 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/609616.shtml)
-- 2026-06-30 01:24 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/67369781239.shtml)
-- 2026-06-30 01:39 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/105262.shtml)
-- 2026-06-30 01:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/79269021057.shtml)
-- 2026-06-30 01:37 - [《贺子珍》](https://www.blog.minike.top/Article/details/8530208.shtml)
-- 2026-06-30 01:31 - [法拉利车主已自行承担修理费近3万](http://www.share.kurohicncr.top/Article/details/19203.shtml)
-- 2026-06-30 01:45 - [世界杯：巴西vs日本](https://www.blog.kurohicncr.top/Article/details/386578786421.shtml)
+- 2026-06-30 01:30 - [杨紫被质疑未使用原名纯属误解](http://www.share.kurohicncr.top/Article/details/276821.shtml)
+- 2026-06-30 01:34 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/029898112.shtml)
+- 2026-06-30 01:57 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/468452575.shtml)
+- 2026-06-30 01:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.kurohicncr.top/Article/details/646920777.shtml)
+- 2026-06-30 01:39 - [中方绝不允许日菲侵害中方海洋权益](http://www.blog.minike.top/Article/details/7021101112.shtml)
+- 2026-06-30 01:56 - [董卿父亲发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/33751787879.shtml)
+- 2026-06-30 01:45 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.minike.top/Article/details/80170922143.shtml)
+- 2026-06-30 01:45 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/914675025677.shtml)
+- 2026-06-30 01:53 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/059625.shtml)
+- 2026-06-30 01:47 - [中国对日本再出重拳](https://www.share.kurohicncr.top/Article/details/04247469.shtml)
+- 2026-06-30 01:42 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/195767320360.shtml)
+- 2026-06-30 01:53 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/041653634924.shtml)
+- 2026-06-30 01:31 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/461888.shtml)
+- 2026-06-30 01:42 - [月亮](https://www.share.minike.top/Article/details/8763407.shtml)
+- 2026-06-30 01:35 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/9267808144.shtml)

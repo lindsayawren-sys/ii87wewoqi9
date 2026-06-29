@@ -1,57 +1,61 @@
-# 由于燃料成本上涨，斯里兰卡将电价上调18%
+# 多地洪涝灾害严重 广西电力部门快速响应全力保电
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-据斯里兰卡公用事业委员会主席KPL Chandralal称，由于燃料进口成本上涨，斯里兰卡将从当地时间5月10日午夜起将电价上调18%，小型家庭用户和商业用户除外。 他周六表示，预计到2026年9月，发电成本将增加380亿卢比。对于不受此次电价上涨影响的客户，每月用电量上限设定为180度。 斯里兰卡财政部承诺提供150亿卢比的补贴，用于避免小用户电价上涨。电力公司已被指示制定一
+中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。 洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急
 
 ## 正文
 
-据斯里兰卡公用事业委员会主席KPL Chandralal称，由于燃料进口成本上涨，斯里兰卡将从当地时间5月10日午夜起将电价上调18%，小型家庭用户和商业用户除外。
+中新网南宁6月22日电(林艳华 毛雨贤 罗洋)连日来，“龙舟水”持续影响广西，河池、柳州、桂林、百色等地出现大雨或暴雨，龙江全线、柳江上游都柳江、洛清江中上游、古宜河上游及红水河部分支流等多条河流出现超警戒洪水，多地城区和乡镇出现严重内涝，部分电力线路和设施因灾停运。
 
-他周六表示，预计到2026年9月，发电成本将增加380亿卢比。
+洪灾当前，南方电网广西电网公司快速响应，全力应对，按照“先复电后抢修”的原则，及时采用发电车、发电机等进行应急供电，满足受灾地区基本用电需求。
 
-对于不受此次电价上涨影响的客户，每月用电量上限设定为180度。
+同时，组织力量全面开展抢修。
 
-斯里兰卡财政部承诺提供150亿卢比的补贴，用于避免小用户电价上涨。
+6月21日18时20分，龙江出现192.44米洪峰水位，超警戒水位4.44米，为1970年以来最大洪水。
 
-电力公司已被指示制定一项发电计划，以在2030年前逐步淘汰液体燃料的使用。
+受持续强降雨及龙江水位上涨影响，河池市金城江区城区多处出现严重积水，当地医院、学校、居民小区、农贸市场等遭受洪水浸泡。
 
-责任编辑：于健 SF069
+面对河池严重汛情，南方电网广西电网公司从南宁等地跨区域调配排涝车、排涝方舱、发电车等共47台，从桂林、百色、来宾等地协调300多人的成建制抢修队伍支援河池抗汛抢修保电。
+
+6月21日凌晨，河池市人民医院外科楼一楼内涝，河池供电局第一时间前置一辆400千瓦应急发电车至医院，在配电房被水浸泡紧急避险停电时及时接入，保障了医院稳定供电。
+
+目前，河池市人民医院门诊大楼由市电供电，外科楼、宿舍区由发电车应急供电，医院用电不受影响。
 
 ## 相关推荐
 
-- 2026-06-30 01:28 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 01:26 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-30 01:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-30 01:41 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-30 01:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 01:42 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-30 01:30 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-30 01:42 - [恋与深空回应争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 01:35 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
-- 2026-06-30 01:24 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-30 01:28 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-30 01:36 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 01:40 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 01:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 01:49 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phuek.md)
+- 2026-06-30 01:48 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 01:34 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 01:45 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-30 01:30 - [战略导弹部队60年如何炼成大国长剑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-30 01:49 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 01:59 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 01:36 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 01:42 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
+- 2026-06-30 01:54 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 01:48 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-30 01:44 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 01:59 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 01:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-30 01:48 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
+- 2026-06-30 01:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:52 - [领克07GT搭载超跑同源MRC悬架](http://www.share.kurohicncr.top/Article/details/56859900763.shtml)
-- 2026-06-30 01:26 - [TOP Prada](https://www.blog.kurohicncr.top/Article/details/6572302.shtml)
-- 2026-06-30 01:30 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.minike.top/Article/details/41420368263.shtml)
-- 2026-06-30 01:31 - [天道](https://www.blog.minike.top/Article/details/62530483.shtml)
-- 2026-06-30 01:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/455880954.shtml)
-- 2026-06-30 01:35 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/794366897.shtml)
-- 2026-06-30 01:52 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/2286650.shtml)
-- 2026-06-30 01:38 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/11662.shtml)
-- 2026-06-30 01:35 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/24294.shtml)
-- 2026-06-30 01:34 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/335494879.shtml)
-- 2026-06-30 01:33 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/764665.shtml)
-- 2026-06-30 01:36 - [速度与激情9](https://www.share.minike.top/Article/details/21891134.shtml)
-- 2026-06-30 01:44 - [韩乔生吐槽世界杯扩军](http://www.blog.minike.top/Article/details/21764844.shtml)
-- 2026-06-30 01:44 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/970000.shtml)
-- 2026-06-30 01:46 - [歌剧老师锐评歌手第6期](https://www.share.kurohicncr.top/Article/details/566261.shtml)
+- 2026-06-30 01:30 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/23144110664.shtml)
+- 2026-06-30 01:57 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/0406043.shtml)
+- 2026-06-30 01:46 - [片寄凉太胖了好多](https://www.share.minike.top/Article/details/036704230.shtml)
+- 2026-06-30 01:41 - [桂林原书记周家斌贪1.98亿被判无期](http://www.blog.kurohicncr.top/Article/details/5452340.shtml)
+- 2026-06-30 01:49 - [李在明90度鞠躬感谢韩国两大财阀](https://www.blog.kurohicncr.top/Article/details/65771403096.shtml)
+- 2026-06-30 01:57 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/482633819.shtml)
+- 2026-06-30 01:55 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/8469636780.shtml)
+- 2026-06-30 01:42 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/25716155.shtml)
+- 2026-06-30 01:45 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/7854484.shtml)
+- 2026-06-30 01:40 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/2364094254.shtml)
+- 2026-06-30 01:59 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/717146.shtml)
+- 2026-06-30 01:37 - [超神人辉夜姬 第二集](http://www.blog.kurohicncr.top/Article/details/031569758169.shtml)
+- 2026-06-30 01:38 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/082586561091.shtml)
+- 2026-06-30 01:37 - [TFing最具影响力音乐厂牌](http://www.blog.kurohicncr.top/Article/details/9293355225.shtml)
+- 2026-06-30 01:31 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/302139.shtml)

@@ -1,49 +1,50 @@
-# 校园小胖墩越来越多 这所中学把减脂餐搬进食堂
+# 百胜中国于6月18日斥资300万美元回购7.01万股
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月11日 15:48 来源：中国新闻网 近日，湖南长沙周南中学食堂上架的专业减脂餐受到师生热捧。菜品低油低盐、营养科学配比，14元一份和普通套餐同价，每日限量供应十分抢手，食堂还增设营养角，方便学生自测健康状况。 这样的学校食堂你爱了吗？(杨华峰 李盈 游蕾） 责任编辑：【卢岩】
+百胜中国（09987）发布公告，于2026年6月18日，该公司斥资300万美元回购7.01万股。 于2026年6月18日，该公司斥资774.72万港元回购2.32万股。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年05月11日 15:48 来源：中国新闻网 近日，湖南长沙周南中学食堂上架的专业减脂餐受到师生热捧。
+百胜中国（09987）发布公告，于2026年6月18日，该公司斥资300万美元回购7.01万股。
 
-菜品低油低盐、营养科学配比，14元一份和普通套餐同价，每日限量供应十分抢手，食堂还增设营养角，方便学生自测健康状况。
+于2026年6月18日，该公司斥资774.72万港元回购2.32万股。
 
-这样的学校食堂你爱了吗？
-
-(杨华峰 李盈 游蕾） 责任编辑：【卢岩】
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 01:46 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 01:43 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
-- 2026-06-30 01:30 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-30 01:42 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-30 01:33 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
-- 2026-06-30 01:35 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
-- 2026-06-30 01:27 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-30 01:24 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-30 01:39 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bosfu.md)
-- 2026-06-30 01:40 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 01:39 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-30 01:30 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 01:44 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
+- 2026-06-30 01:56 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
+- 2026-06-30 01:42 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 01:58 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 01:56 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-30 01:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 01:42 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 01:44 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 01:37 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-30 01:51 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 01:44 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-30 01:51 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-30 01:32 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:27 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/647698322.shtml)
-- 2026-06-30 01:38 - [葫芦岛居民楼闪爆事故致3死](http://www.blog.kurohicncr.top/Article/details/1563199.shtml)
-- 2026-06-30 01:53 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/41646.shtml)
-- 2026-06-30 01:41 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/34455509192.shtml)
-- 2026-06-30 01:36 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/337591.shtml)
-- 2026-06-30 01:25 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/67829.shtml)
-- 2026-06-30 01:28 - [金刚川](https://www.share.minike.top/Article/details/845900107924.shtml)
-- 2026-06-30 01:27 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/789975138490.shtml)
-- 2026-06-30 01:53 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/5293942.shtml)
-- 2026-06-30 01:36 - [原来周杰伦的龙拳是广告歌](http://www.share.minike.top/Article/details/28974781393.shtml)
-- 2026-06-30 01:29 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/0481120.shtml)
-- 2026-06-30 01:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/5665748.shtml)
-- 2026-06-30 01:42 - [我和我的家乡](https://www.blog.minike.top/Article/details/54356416.shtml)
-- 2026-06-30 01:48 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/11436.shtml)
-- 2026-06-30 01:30 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/393079326.shtml)
+- 2026-06-30 01:47 - [欧洲人高温天为啥用不了空调](http://www.blog.minike.top/Article/details/458901.shtml)
+- 2026-06-30 01:37 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/54523398.shtml)
+- 2026-06-30 01:30 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.minike.top/Article/details/09381353.shtml)
+- 2026-06-30 01:42 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/994434476444.shtml)
+- 2026-06-30 01:44 - [恋与深空需正视价值观偏差](https://www.blog.minike.top/Article/details/7660893.shtml)
+- 2026-06-30 01:35 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/0025698.shtml)
+- 2026-06-30 01:34 - [把邻居裸体发群算维权还是侵权](https://www.share.minike.top/Article/details/870572410.shtml)
+- 2026-06-30 01:43 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/660426188672.shtml)
+- 2026-06-30 01:54 - [驻港部队军营开放日上演“肌肉秀”](https://www.blog.minike.top/Article/details/997264119121.shtml)
+- 2026-06-30 01:59 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/8481995915.shtml)
+- 2026-06-30 01:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/4559303.shtml)
+- 2026-06-30 01:49 - [天道](https://www.share.minike.top/Article/details/001907.shtml)
+- 2026-06-30 01:53 - [千万不要随便扣肚脐](https://www.blog.minike.top/Article/details/23649881506.shtml)
+- 2026-06-30 01:45 - [杨紫获白玉兰视后争议不止](https://www.share.kurohicncr.top/Article/details/62403.shtml)
+- 2026-06-30 01:58 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/483261.shtml)

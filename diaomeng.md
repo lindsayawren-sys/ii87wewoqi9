@@ -1,50 +1,60 @@
-# 山东栖霞：“00后”花饽饽手艺人“捏”出母亲节祝福
+# SpaceX的高评级引发质疑 宏大叙事考验债券投资者信心
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月09日 16:13 来源：中国新闻网 近日，山东栖霞。“00后”花饽饽手艺人周天聪，用一篮满是烟火气的“果蔬”花饽饽，送上了母亲节最动人的祝福。他把童年里妈妈厨房的三餐暖意，尽数揉进柔软面团，捏出活灵活现的家常食材。(张秀兵 陈慧娟 制作 刘昊） 责任编辑：【罗攀】
+将近十年前，穆迪首次评估英伟达时，给予其Baa1投资级评级，理由是其债务负担较轻，且在上市16年后自由现金流超过10亿美元。 上周，穆迪同样对埃隆·马斯克的SpaceX给予Baa1评级，尽管其公开的财务记录有限，“自由现金流持续为负”，以及未来几年仍需进行大量资本支出。 从很多方面来看，都反映出信用市场对马斯克及其近乎梦幻般宏大愿景的信任程度：包括可重复使用火箭、覆盖全球的卫星
 
 ## 正文
 
-发布时间：2026年05月09日 16:13 来源：中国新闻网 近日，山东栖霞。
+将近十年前，穆迪首次评估英伟达时，给予其Baa1投资级评级，理由是其债务负担较轻，且在上市16年后自由现金流超过10亿美元。
 
-“00后”花饽饽手艺人周天聪，用一篮满是烟火气的“果蔬”花饽饽，送上了母亲节最动人的祝福。
+上周，穆迪同样对埃隆·马斯克的SpaceX给予Baa1评级，尽管其公开的财务记录有限，“自由现金流持续为负”，以及未来几年仍需进行大量资本支出。
 
-他把童年里妈妈厨房的三餐暖意，尽数揉进柔软面团，捏出活灵活现的家常食材。
+从很多方面来看，都反映出信用市场对马斯克及其近乎梦幻般宏大愿景的信任程度：包括可重复使用火箭、覆盖全球的卫星网络、人工智能，甚至太空数据中心。
 
-(张秀兵 陈慧娟 制作 刘昊） 责任编辑：【罗攀】
+债券投资者正排队向该公司提供约200亿美元的融资，而且规模可能还会增加。
+
+在股票市场，信任程度如此跳跃较为常见。
+
+买家愿意为宏大叙事买单，希望获得爆炸性收益。
+
+然而，在投资级信用市场领域，却极为罕见。
+
+该市场看重的是现金流稳定、杠杆可控以及稳健且更加温和的回报。
 
 ## 相关推荐
 
-- 2026-06-30 01:42 - [媒体：日本边磨刀边要货是做梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 01:43 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jssoa.md)
-- 2026-06-30 01:42 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-30 01:51 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
-- 2026-06-30 01:51 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 01:28 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-30 01:39 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 01:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-30 01:37 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 01:24 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 01:36 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 01:27 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-30 01:59 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 01:35 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-30 01:59 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-30 01:51 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 01:48 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-30 01:46 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 01:56 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 01:39 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
+- 2026-06-30 01:49 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-30 01:35 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-30 01:41 - [穆祉丞躺TFING身上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-30 01:50 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 01:48 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 01:44 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:39 - [古代人对纳妾的态度是什么样的？](https://www.blog.kurohicncr.top/Article/details/31096286846.shtml)
-- 2026-06-30 01:45 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/318023987.shtml)
-- 2026-06-30 01:42 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/33044.shtml)
-- 2026-06-30 01:33 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/498419988006.shtml)
-- 2026-06-30 01:44 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/9134285422.shtml)
-- 2026-06-30 01:53 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/1199706.shtml)
-- 2026-06-30 01:49 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/73936.shtml)
-- 2026-06-30 01:26 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/62379.shtml)
-- 2026-06-30 01:27 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/3039089.shtml)
-- 2026-06-30 01:27 - [韩国的野心是想成“AI革命主导国”吗](https://www.share.minike.top/Article/details/79835.shtml)
-- 2026-06-30 01:26 - [刘宇宁 好听](https://www.blog.minike.top/Article/details/216274274.shtml)
-- 2026-06-30 01:26 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/05941005959.shtml)
-- 2026-06-30 01:49 - [片寄凉太胖了好多](https://www.share.kurohicncr.top/Article/details/43397.shtml)
-- 2026-06-30 01:45 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/19121319.shtml)
-- 2026-06-30 01:53 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/49135.shtml)
+- 2026-06-30 01:53 - [法媒点赞中国小区楼顶“人工降雨”](http://www.blog.minike.top/Article/details/08180146.shtml)
+- 2026-06-30 01:38 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/735007.shtml)
+- 2026-06-30 01:34 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/2197202.shtml)
+- 2026-06-30 01:37 - [月亮](http://www.blog.kurohicncr.top/Article/details/72135.shtml)
+- 2026-06-30 01:51 - [毒液2](https://www.share.kurohicncr.top/Article/details/08718.shtml)
+- 2026-06-30 01:56 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.blog.minike.top/Article/details/5433996.shtml)
+- 2026-06-30 01:56 - [原来周杰伦的龙拳是广告歌](https://www.blog.kurohicncr.top/Article/details/295077854.shtml)
+- 2026-06-30 01:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.minike.top/Article/details/165583743742.shtml)
+- 2026-06-30 01:57 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/30705.shtml)
+- 2026-06-30 01:31 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/27166.shtml)
+- 2026-06-30 01:54 - [男生高考695分志愿报考清华](https://www.share.kurohicncr.top/Article/details/13927.shtml)
+- 2026-06-30 01:41 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/294561726.shtml)
+- 2026-06-30 01:46 - [张碧晨最佳女歌手](https://www.blog.kurohicncr.top/Article/details/3502083.shtml)
+- 2026-06-30 01:57 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/91184.shtml)
+- 2026-06-30 01:44 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/57913.shtml)

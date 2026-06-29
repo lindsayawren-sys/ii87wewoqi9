@@ -1,57 +1,57 @@
-# 招商银行青岛分行被罚38.36万元：违反金融统计相关规定等
+# 《玩具总动员5》上映首周末全球票房突破3亿美元
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。 序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚
+迪士尼的《玩具总动员》系列电影依然热度不减。 这部皮克斯动画电影系列的第五部作品上映首周末在美国斩获1.6亿美元票房，创下该系列电影的最高纪录。在国际市场上，《玩具总动员5》也收获了1.52亿美元票房，使其三天全球票房累计达到约3.12亿美元。 根据Rentrak的数据，《玩具总动员4》此前保持着该系列电影的票房纪录，2019年上映首周末票房为1.209亿美元。自1995年第一
 
 ## 正文
 
-5月9日金融一线消息，中国人民银行青岛市分行行政处罚决定信息公示表显示，招商银行股份有限公司青岛分行因违反金融统计相关规定，违反人民币流通管理规定，违反反假货币业务管理规定，金融机构违反信用信息采集、提供、查询及相关管理规定，未按照规定开展客户尽职调查，受到警告并被罚款38.36万元。
+迪士尼的《玩具总动员》系列电影依然热度不减。
 
-序号 当事人名称（姓名、职务） 行政处罚决定书文号 违法行为类型 行政处罚内容 作出行政处罚决定机关名称 作出行政处罚决定日期 公示期限 备注 1 招商银行股份有限公司青岛分行 中国人民银行青岛市分行行政处罚决定书（青银罚决字〔2026〕3号） 1．违反金融统计相关规定。
+这部皮克斯动画电影系列的第五部作品上映首周末在美国斩获1.6亿美元票房，创下该系列电影的最高纪录。
 
-2．违反人民币流通管理规定。
+在国际市场上，《玩具总动员5》也收获了1.52亿美元票房，使其三天全球票房累计达到约3.12亿美元。
 
-3．违反反假货币业务管理规定。
+根据Rentrak的数据，《玩具总动员4》此前保持着该系列电影的票房纪录，2019年上映首周末票房为1.209亿美元。
 
-4．金融机构违反信用信息采集、提供、查询及相关管理规定。
+自1995年第一部上映以来，该系列电影的全球票房累计已超过30亿美元，其中两部作品的全球票房均超过10亿美元。
 
-5．未按照规定开展客户尽职调查。
+《玩具总动员5》的首周末票房位列动画电影第二，仅次于2018年上映的《超人总动员2》（北美票房1.827亿美元）。
 
-警告、处罚款38.36万元 中国人民银行青岛市分行 2026年4月30日 3年 责任编辑：曹睿潼
+据EntTelligence的数据显示，这个父亲节周末期间，约有1150万观众走进影院观看了《玩具总动员5》。
+
+超过四分之一的观众选择了价格更高的IMAX高级放映厅。
 
 ## 相关推荐
 
-- 2026-06-30 01:38 - [未来的飞机可能会用电吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-30 01:47 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 01:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-30 01:46 - [刘宇宁 好听](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 01:24 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 01:52 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-30 01:50 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-30 01:51 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 01:43 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 01:43 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 01:37 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
-- 2026-06-30 01:33 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-30 01:49 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 01:35 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
+- 2026-06-30 01:33 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 01:47 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 01:33 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
+- 2026-06-30 01:37 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 01:33 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 01:33 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-30 01:34 - [驻港部队军营开放日上演“肌肉秀”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-30 01:53 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-30 01:54 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lfrik.md)
+- 2026-06-30 01:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:25 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/89800532738.shtml)
-- 2026-06-30 01:49 - [父母催婚话术是如何做到全国统一的](https://www.blog.kurohicncr.top/Article/details/2540258.shtml)
-- 2026-06-30 01:38 - [金刚川](http://www.blog.minike.top/Article/details/1233413811.shtml)
-- 2026-06-30 01:43 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/958279562.shtml)
-- 2026-06-30 01:36 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/480586815.shtml)
-- 2026-06-30 01:51 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/995341621445.shtml)
-- 2026-06-30 01:26 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/659173255652.shtml)
-- 2026-06-30 01:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/238069.shtml)
-- 2026-06-30 01:52 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/109155.shtml)
-- 2026-06-30 01:28 - [媒体：日本边磨刀边要货是做梦](https://www.blog.kurohicncr.top/Article/details/23669150830.shtml)
-- 2026-06-30 01:30 - [日本硬刚巴西谁能赢](http://www.blog.minike.top/Article/details/829923076.shtml)
-- 2026-06-30 01:28 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/405248450.shtml)
-- 2026-06-30 01:27 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.blog.minike.top/Article/details/207452187.shtml)
-- 2026-06-30 01:47 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/477840.shtml)
-- 2026-06-30 01:48 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.minike.top/Article/details/32687.shtml)
+- 2026-06-30 01:35 - [把邻居裸体发群算维权还是侵权](http://www.blog.minike.top/Article/details/43281.shtml)
+- 2026-06-30 01:34 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/3809823515.shtml)
+- 2026-06-30 01:57 - [小娘惹](http://www.blog.minike.top/Article/details/6302429.shtml)
+- 2026-06-30 01:51 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/3132098045.shtml)
+- 2026-06-30 01:35 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/932649170002.shtml)
+- 2026-06-30 01:41 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/2436509545.shtml)
+- 2026-06-30 01:43 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/97808955.shtml)
+- 2026-06-30 01:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.kurohicncr.top/Article/details/48954.shtml)
+- 2026-06-30 01:44 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/72035.shtml)
+- 2026-06-30 01:59 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/866760983144.shtml)
+- 2026-06-30 01:41 - [女心理师](http://www.share.kurohicncr.top/Article/details/371576.shtml)
+- 2026-06-30 01:54 - [曝詹姆斯即将与勇士会面](https://www.blog.minike.top/Article/details/57600.shtml)
+- 2026-06-30 01:40 - [金牌调解](https://www.share.minike.top/Article/details/9486990104.shtml)
+- 2026-06-30 01:32 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/7141823.shtml)
+- 2026-06-30 01:50 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/436040.shtml)

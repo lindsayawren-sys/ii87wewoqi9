@@ -1,59 +1,57 @@
-# 旗下有大白兔奶糖、梅林午餐肉等国民品牌，光明肉业2025年却亏1.3亿！国资控股股东十年低位区域减持近1亿元
+# （美加墨世界杯）从佛得角队，感受足球的动人
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-旗下有大白兔奶糖、梅林午餐肉等国民品牌，光明肉业2025年却亏1.3亿元！国资控股股东十年低位区域减持近1亿元 每经记者|章光日 每经编辑|吴永久 尽管手握大白兔奶糖、梅林午餐肉等国民品牌，光明肉业却在2025年交出了一份亏损1.32亿元的成绩单，而公司上一次亏损出现在2009年。《每日经济新闻》记者（以下简称每经记者）注意到，在业绩承压、股价持续走低的背景下，公司控股股东于近
+中新社北京6月22日电 题：从佛得角队，感受足球的动人 作者 刘梦青 邢翀 当地时间21日，美国迈阿密硬石体育场见证了世界杯“新军”的历史时刻：佛得角队2:2战平乌拉圭队，并由此成为世界杯近百年历史上第一支在前两场小组赛面对前世界杯冠军保持不败的队伍。 佛得角队门将沃津尼亚说，“我们做了件很伟大的事，让全世界看到佛得角。”佛得角队的首场比赛中，40岁的沃津尼亚用7次极限扑救筑起
 
 ## 正文
 
-旗下有大白兔奶糖、梅林午餐肉等国民品牌，光明肉业2025年却亏1.3亿元！
+中新社北京6月22日电 题：从佛得角队，感受足球的动人 作者 刘梦青 邢翀 当地时间21日，美国迈阿密硬石体育场见证了世界杯“新军”的历史时刻：佛得角队2:2战平乌拉圭队，并由此成为世界杯近百年历史上第一支在前两场小组赛面对前世界杯冠军保持不败的队伍。
 
-国资控股股东十年低位区域减持近1亿元 每经记者|章光日 每经编辑|吴永久 尽管手握大白兔奶糖、梅林午餐肉等国民品牌，光明肉业却在2025年交出了一份亏损1.32亿元的成绩单，而公司上一次亏损出现在2009年。
+佛得角队门将沃津尼亚说，“我们做了件很伟大的事，让全世界看到佛得角。
 
-《每日经济新闻》记者（以下简称每经记者）注意到，在业绩承压、股价持续走低的背景下，公司控股股东于近期通过大宗交易完成减持，套现近1亿元，其交易价格较市价折让近10%，近乎卖在公司近10年股价的低位区域。
+”佛得角队的首场比赛中，40岁的沃津尼亚用7次极限扑救筑起防线，让劲旅西班牙队全场颗粒无收。
 
-2025年光明肉业资产减值损失超过9亿元，其中约4.82亿元的减值损失由公司子公司光明农牧科技有限公司（以下简称光明农科）造成，而公司控股股东也持有光明农科49%的股权。
+佛得角队0:0逼平西班牙队，从夺冠热门身上拿到队史世界杯第一分。
 
-在去年12月份，公司拟为光明农科提供财务资助的议案遭到中小股东的反对，未能获得股东大会通过。
+次轮面对乌拉圭，佛得角队证明其首战成绩绝非偶然。
 
-控股股东在近10年低位区域减持股份 2026年5月7日晚，光明肉业发布了关于控股股东减持计划实施完毕暨减持结果公告。
+第21分钟，皮纳主罚任意球直接破门，帮助球队打入队史世界杯首球。
 
-该公告显示，2026年4月9日至2026年5月6日，公司控股股东上海益民食品一厂（集团）有限公司（以下简称益民食品集团）通过大宗交易方式合计减持公司股份数量1866.0816万股（占公司总股本的1.99%），减持均价为5.30元，套现总金额约为9890.23万元。
+尽管乌拉圭队随后反扑，但比赛末段，瓦雷拉抓住对手后场失误，抢断后冷静推射破门，将比分顽强扳平。
 
-在完成此次减持计划后，益民食品集团持有光明肉业的股份比例降低至29.83%。
+连平两支世界冠军球队，佛得角队不仅打破外界对于小国球队的刻板印象，用防守纪律、身体对抗、反击效率和精神韧性为自己正名，而且让人们看到，世界杯不只属于传统强队，也属于那些虽第一次出现却敢于用尽全力改写命运的球队。
 
 ## 相关推荐
 
-- 2026-06-30 01:53 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 01:49 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 01:40 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-30 01:39 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 01:44 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 01:49 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 01:35 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbvvz.md)
-- 2026-06-30 01:44 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
-- 2026-06-30 01:53 - [国常会听取人工智能发展情况汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
-- 2026-06-30 01:43 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 01:34 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-30 01:49 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-30 01:29 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 01:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 01:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-30 01:38 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 01:41 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzlfm.md)
+- 2026-06-30 01:50 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 01:52 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 01:38 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 01:39 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hiynr.md)
+- 2026-06-30 01:55 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
+- 2026-06-30 01:31 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 01:40 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:26 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/682126.shtml)
-- 2026-06-30 01:44 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/91440982957.shtml)
-- 2026-06-30 01:39 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/2094593.shtml)
-- 2026-06-30 01:47 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/6401781.shtml)
-- 2026-06-30 01:34 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/6431730.shtml)
-- 2026-06-30 01:29 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/654273831.shtml)
-- 2026-06-30 01:43 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/294138731618.shtml)
-- 2026-06-30 01:41 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/624086.shtml)
-- 2026-06-30 01:29 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/0582463173.shtml)
-- 2026-06-30 01:27 - [“手机痴呆症”盯上中青年](https://www.share.minike.top/Article/details/96826576848.shtml)
-- 2026-06-30 01:53 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/51172755511.shtml)
-- 2026-06-30 01:50 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/359459616.shtml)
-- 2026-06-30 01:48 - [韩国股市绑架日本？高盛警告](http://www.share.minike.top/Article/details/233707371.shtml)
-- 2026-06-30 01:26 - [追觅称质量不行终身包修也没意义](http://www.blog.kurohicncr.top/Article/details/34001.shtml)
-- 2026-06-30 01:41 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/56783.shtml)
+- 2026-06-30 01:44 - [TOP不是Prada全球普通人](http://www.share.minike.top/Article/details/90872997.shtml)
+- 2026-06-30 01:50 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/78078.shtml)
+- 2026-06-30 01:59 - [王菲谢霆锋十指紧扣好甜](https://www.blog.kurohicncr.top/Article/details/3411000.shtml)
+- 2026-06-30 01:52 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/755885234220.shtml)
+- 2026-06-30 01:31 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/26594249.shtml)
+- 2026-06-30 01:35 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/849282685725.shtml)
+- 2026-06-30 01:34 - [詹姆斯 勇士](https://www.blog.kurohicncr.top/Article/details/370883616.shtml)
+- 2026-06-30 01:56 - [杨紫被质疑未使用原名纯属误解](http://www.blog.minike.top/Article/details/38621962.shtml)
+- 2026-06-30 01:54 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/702332.shtml)
+- 2026-06-30 01:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.kurohicncr.top/Article/details/49063506.shtml)
+- 2026-06-30 01:52 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.minike.top/Article/details/80744.shtml)
+- 2026-06-30 01:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/10905617.shtml)
+- 2026-06-30 01:46 - [英语考了145的人竟然教数学](https://www.blog.minike.top/Article/details/941402.shtml)
+- 2026-06-30 01:49 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/6667355117.shtml)
+- 2026-06-30 01:32 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/698572.shtml)

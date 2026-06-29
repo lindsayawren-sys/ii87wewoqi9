@@ -1,57 +1,61 @@
-# 飞絮点燃后秒变火球 这些安全提示要记牢→
+# 高中签率，深交所最大IPO明日申购！“复兴号”供应商也来了
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-近一段时间以来，甘肃兰州、白银等地的杨柳絮进入高发期。大量轻盈蓬松的飞絮随风飞舞，堆积成团，不仅影响城市环境，还带来了火灾隐患。 杨柳絮漫天飞舞 警惕“白色火患” 在甘肃兰州，黄河两岸、雁滩公园、滨河路主干道等地杨柳絮随风飘浮，还有不少附着在草坪和树干上，让人体感不适。 市民 张俊涛：尤其是黄河边或者各小区里面都有。从小区单元门一出来就跟下雪一样，特别特别多。眼下，西北地区气候
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！A股打新投资者注意啦！ 6月22日共有2只新股可申购，分别主板的华润新能源（001248.SZ），以及北交所的益坤电气（920222.BJ）。 预期“高中签率”新股 深交所最大IPO来啦 截至6月21日，华润新能源拟发行股份总数、网上发行股份数量，分别排名2026年以来沪深两市新股第一位、第二位。即投资者参
 
 ## 正文
 
-近一段时间以来，甘肃兰州、白银等地的杨柳絮进入高发期。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-大量轻盈蓬松的飞絮随风飞舞，堆积成团，不仅影响城市环境，还带来了火灾隐患。
+A股打新投资者注意啦！
 
-杨柳絮漫天飞舞 警惕“白色火患” 在甘肃兰州，黄河两岸、雁滩公园、滨河路主干道等地杨柳絮随风飘浮，还有不少附着在草坪和树干上，让人体感不适。
+6月22日共有2只新股可申购，分别主板的华润新能源（001248.SZ），以及北交所的益坤电气（920222.BJ）。
 
-市民 张俊涛：尤其是黄河边或者各小区里面都有。
+预期“高中签率”新股 深交所最大IPO来啦 截至6月21日，华润新能源拟发行股份总数、网上发行股份数量，分别排名2026年以来沪深两市新股第一位、第二位。
 
-从小区单元门一出来就跟下雪一样，特别特别多。
+即投资者参与申购华润新能源，“中签”概率较高。
 
-眼下，西北地区气候干燥、降水稀少，杨柳絮高发时段与火险高发期高度重叠。
+华润新能源主营业务为投资、开发、运营和管理风力、太阳能发电站，是国内最大的新能源发电运营商之一。
 
-杨柳絮燃点极低，遇明火可在数秒内迅速燃烧，并随风扩散，极易引燃周边草坪、车辆及建筑物。
+此次冲击上市，公司拟募集资金245亿元。
 
-市民 张俊涛：打火机引燃或者是吸烟，柳絮基本上就全着了。
+经统计，华润新能源将刷新深交所IPO融资纪录，超越2020年上市的金龙鱼，成为深交所史上最大规模IPO。
 
 ## 相关推荐
 
-- 2026-06-30 01:24 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 01:41 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-30 01:51 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-30 01:28 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 01:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-30 01:29 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-30 01:44 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 01:41 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-30 01:51 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-30 01:45 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
-- 2026-06-30 01:31 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 01:44 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 01:33 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-30 01:37 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 01:55 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 01:58 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oqlcr.md)
+- 2026-06-30 01:57 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-30 01:54 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 01:50 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jprma.md)
+- 2026-06-30 01:31 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 01:47 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 01:32 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 01:40 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-30 01:46 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 01:37 - [巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
+- 2026-06-30 01:44 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:36 - [永辉超市回应两个包子卖104元](http://www.share.kurohicncr.top/Article/details/19038.shtml)
-- 2026-06-30 01:42 - [格莱美唱作人锐评歌手第6期](https://www.share.minike.top/Article/details/60890907320.shtml)
-- 2026-06-30 01:49 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/479760.shtml)
-- 2026-06-30 01:39 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/144375.shtml)
-- 2026-06-30 01:24 - [曾沛慈和老公一起回台湾](http://www.blog.kurohicncr.top/Article/details/080993536.shtml)
-- 2026-06-30 01:44 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/793805816140.shtml)
-- 2026-06-30 01:52 - [千万不要随便扣肚脐](http://www.blog.kurohicncr.top/Article/details/98025.shtml)
-- 2026-06-30 01:37 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/654818.shtml)
-- 2026-06-30 01:52 - [腾讯与长鑫存储签200亿大单](https://www.blog.kurohicncr.top/Article/details/093732972.shtml)
-- 2026-06-30 01:37 - [沙丘](http://www.share.kurohicncr.top/Article/details/904845550766.shtml)
-- 2026-06-30 01:52 - [武汉西安站在了3小时临界线门槛上](http://www.blog.kurohicncr.top/Article/details/07105928003.shtml)
-- 2026-06-30 01:31 - [日本反击率先破门](https://www.share.minike.top/Article/details/25557805.shtml)
-- 2026-06-30 01:35 - [乔家的儿女](https://www.share.minike.top/Article/details/52139.shtml)
-- 2026-06-30 01:29 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/54870.shtml)
-- 2026-06-30 01:45 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/5063713745.shtml)
+- 2026-06-30 01:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/05475.shtml)
+- 2026-06-30 01:54 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/6084423.shtml)
+- 2026-06-30 01:47 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/89901796.shtml)
+- 2026-06-30 01:53 - [一生一世](https://www.share.minike.top/Article/details/2234613.shtml)
+- 2026-06-30 01:42 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/21175212.shtml)
+- 2026-06-30 01:32 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/03880.shtml)
+- 2026-06-30 01:31 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/4196426105.shtml)
+- 2026-06-30 01:51 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/499085580.shtml)
+- 2026-06-30 01:54 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/614758209.shtml)
+- 2026-06-30 01:31 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/505994.shtml)
+- 2026-06-30 01:40 - [法国生态部长反对大规模安装空调](https://www.blog.kurohicncr.top/Article/details/686461.shtml)
+- 2026-06-30 01:52 - [Prada在内娱首度签下偶像团体](https://www.blog.minike.top/Article/details/6195243.shtml)
+- 2026-06-30 01:50 - [星链在轨运行卫星已突破1.24万颗](https://www.share.minike.top/Article/details/70270.shtml)
+- 2026-06-30 01:30 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/35977901.shtml)
+- 2026-06-30 01:46 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/725446950.shtml)

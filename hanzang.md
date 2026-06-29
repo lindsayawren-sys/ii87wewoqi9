@@ -1,61 +1,58 @@
-# 酒价内参5月11日价格发布：洋河梦之蓝M6+下跌1元
+# 中国银联董俊峰：AI智能体时代亟需构建跨境信任共识
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。 今日白酒市场11大单品五涨五跌一平，涨跌结构均
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。中国银联董事长董俊峰表示，APEC区域覆盖了全球接近40%的人口、50%的贸易量和接近60%的GDP，在全球贸易互联互通中扮演着不可替代的角色。 董俊峰从三个维度分享了银联的观察与判断。 从行业态势来看，董俊峰表示，在APEC这
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月11日整体继续回暖。
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9955元，较昨日上涨11元，创下近12天以来最高。
+中国银联董事长董俊峰表示，APEC区域覆盖了全球接近40%的人口、50%的贸易量和接近60%的GDP，在全球贸易互联互通中扮演着不可替代的角色。
 
-市场连续两日走强，终端交投情绪保持活跃，核心单品涨跌分化依然显著。
+董俊峰从三个维度分享了银联的观察与判断。
 
-今日白酒市场11大单品五涨五跌一平，涨跌结构均衡。
+从行业态势来看，董俊峰表示，在APEC这样的区域市场里，数字钱包越来越成为非常重要的支付工具。
 
-上涨方面，古井贡古20与青花郎涨幅居前，均上涨5元/瓶，双双收获二连阳。
+他指出，从数据看，过去几年数字钱包的支付交易大概占到整个零售支付份额的60%以上，这样的渗透率在全球其他地区来说是非常高的。
 
-前者价格连续两日快速回弹，重回月内高位550元关口，后者创下近一月最高价格，近期该酒品在700元关口附近波动较为剧烈；习酒君品上涨4元/瓶；国窖1573上涨3元/瓶；五粮液1618上涨1元/瓶。
+董俊峰提到，很多银行，包括非银行金融机构，也包括一些金融科技公司和一些平台企业，都做了自己的数字钱包，有卡基的数字钱包，有账基的数字钱包，还有一些基于智能体的数字钱包。
 
-下跌方面，茅台系飞天茅台与精品茅台均下跌2元/瓶；青花汾20、洋河梦之蓝M6+及水晶剑南春均下跌1元/瓶。
+他认为，数字化的趋势大大改善了整个区域支付的普惠性，覆盖了很多以前没有银行账户的客户。
 
-五粮液普五八代的价格环比保持不变。
+基于数字钱包渗透率的提升，董俊峰指出，跨境支付中的二维码支付网络或者数字钱包支付的标准互联互通需求不断在提升，但不同国家的二维码标准是不一样的。
 
 ## 相关推荐
 
-- 2026-06-30 01:45 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 01:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
-- 2026-06-30 01:37 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-30 01:28 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 01:49 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-30 01:36 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-30 01:35 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 01:52 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 01:53 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 01:37 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 01:36 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
-- 2026-06-30 01:32 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 01:41 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 01:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 01:52 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-30 01:33 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-30 01:38 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 01:41 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-30 01:34 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 01:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 01:52 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 01:49 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-30 01:32 - [网警提醒警惕高考查分陷阱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-30 01:53 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-30 01:32 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 01:30 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 01:46 - [韩国的野心是想成“AI革命主导国”吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:31 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/09063.shtml)
-- 2026-06-30 01:37 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/980836329.shtml)
-- 2026-06-30 01:32 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/776321450735.shtml)
-- 2026-06-30 01:52 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/1235083.shtml)
-- 2026-06-30 01:50 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/560953566164.shtml)
-- 2026-06-30 01:52 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.kurohicncr.top/Article/details/521904.shtml)
-- 2026-06-30 01:34 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/741970.shtml)
-- 2026-06-30 01:44 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/234038251194.shtml)
-- 2026-06-30 01:53 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/67233.shtml)
-- 2026-06-30 01:44 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/8046103373.shtml)
-- 2026-06-30 01:33 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/0610806167.shtml)
-- 2026-06-30 01:27 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/75627499.shtml)
-- 2026-06-30 01:39 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.kurohicncr.top/Article/details/954115428816.shtml)
-- 2026-06-30 01:43 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/547217004002.shtml)
-- 2026-06-30 01:41 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/3363264563.shtml)
+- 2026-06-30 01:34 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/71406764754.shtml)
+- 2026-06-30 01:41 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/7026167.shtml)
+- 2026-06-30 01:38 - [穆祉丞年度人气艺人](https://www.blog.kurohicncr.top/Article/details/6318801281.shtml)
+- 2026-06-30 01:45 - [驻港部队军营开放日上演“肌肉秀”](http://www.blog.kurohicncr.top/Article/details/0537944.shtml)
+- 2026-06-30 01:57 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.minike.top/Article/details/079679.shtml)
+- 2026-06-30 01:59 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/75208.shtml)
+- 2026-06-30 01:39 - [巴西vs日本前瞻](http://www.blog.minike.top/Article/details/560656.shtml)
+- 2026-06-30 01:59 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/63877.shtml)
+- 2026-06-30 01:52 - [斗破苍穹](https://www.share.minike.top/Article/details/564741767980.shtml)
+- 2026-06-30 01:48 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/9773921.shtml)
+- 2026-06-30 01:53 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/506607848.shtml)
+- 2026-06-30 01:42 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/0538791.shtml)
+- 2026-06-30 01:56 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/4868745001.shtml)
+- 2026-06-30 01:54 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/94744946.shtml)
+- 2026-06-30 01:34 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/872244599384.shtml)

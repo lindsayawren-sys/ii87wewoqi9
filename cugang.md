@@ -1,57 +1,58 @@
-# 第十八届“香港杯”外交知识竞赛决赛在港举行 参赛规模创新高
+# 溢达集团董事长杨敏德：绿色实践可以增强企业竞争力
 
-> 更新时间：2026-06-30 01:54:02 UTC+8
+> 更新时间：2026-06-30 02:00:03 UTC+8
 
 ## 摘要
 
-中新网香港5月10日电 (记者 戴小橦)第十八届“香港杯”外交知识竞赛决赛暨颁奖典礼9日在香港举行。本届赛事以“外交担使命 青年创未来”为主题，吸引香港295所中小学、共计88448人报名参赛，参赛人数及赛事规模均创下历届最高。 决赛环节竞争激烈，中学组五强队伍通过抢答竞答、情景模拟等环节展开角逐，最终香港福建中学获得总决赛精英赛金奖，香港明爱屯门马登基金中学、香港拔萃女书院获
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。 ABAC中国香港代表、溢达集团董事长杨敏德在演讲中表示，可持续增长是关乎生死存亡的，我们必须要选择它。不管有没有达成跨境的共识，整个商界必须要行动起来自救。 她认为绿色实践是可以加强企业之间的合作，也能够增强企业的竞争力。可以
 
 ## 正文
 
-中新网香港5月10日电 (记者 戴小橦)第十八届“香港杯”外交知识竞赛决赛暨颁奖典礼9日在香港举行。
+专题：2026年APEC工商领导人中国论坛 2026年APEC工商领导人中国论坛于6月21日在北京举行，主题为“开放·互通·协同：链接亚太，共创未来”。
 
-本届赛事以“外交担使命 青年创未来”为主题，吸引香港295所中小学、共计88448人报名参赛，参赛人数及赛事规模均创下历届最高。
+ABAC中国香港代表、溢达集团董事长杨敏德在演讲中表示，可持续增长是关乎生死存亡的，我们必须要选择它。
 
-决赛环节竞争激烈，中学组五强队伍通过抢答竞答、情景模拟等环节展开角逐，最终香港福建中学获得总决赛精英赛金奖，香港明爱屯门马登基金中学、香港拔萃女书院获得银奖，香港路德会吕明才中学、香港管理专业协会罗桂祥中学获得铜奖。
+不管有没有达成跨境的共识，整个商界必须要行动起来自救。
 
-香港拔萃女书院学生李怡萱斩获个人奖项“最佳台风奖”。
+她认为绿色实践是可以加强企业之间的合作，也能够增强企业的竞争力。
 
-多位获奖学生表示，参与本次竞赛，让自己对国家外交方针政策有了更系统、更深刻的认知与认同。
+可以从良好的管理开始，比如说做精密管理，生产率就会提升，而且整个过程会更加的环保，企业也会有更大的竞争力。
 
-未来将立足所学所长，主动担当对外传播使者，用心讲好中国故事、香港故事，积极融入国家发展大局，以青年之力服务国家外交事业与香港长期繁荣稳定。
+“希望APEC的所有经济体的政府能够达成共识，这样企业界可以先行一步，实施绿色生产和绿色消费。
 
-颁奖典礼上，香港特区行政长官李家超致辞表示，这次竞赛不但丰富了同学们的外交知识、提升了分析能力和合作精神，更有助于引导同学们更深刻理解和平、发展、合作与共赢的核心价值。
+”她说。
 
-希望同学们把参赛的见闻，融入到日常的学习中，持续关注国际时事，积极了解国家发展，深入思考香港该如何更好融入和服务国家发展大局、深化国际交往合作，成长为民族复兴、国家富强的栋梁之才。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
 ## 相关推荐
 
-- 2026-06-30 01:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
-- 2026-06-30 01:35 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-30 01:44 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 01:29 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 01:34 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 01:32 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 01:33 - [追觅称质量不行终身包修也没意义](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 01:30 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 01:28 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-30 01:47 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 01:24 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-30 01:42 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
+- 2026-06-30 01:35 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 01:53 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-30 01:30 - [把邻居裸体发群算维权还是侵权](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 01:32 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 01:54 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-30 01:50 - [陈睿《让好内容发生》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 01:48 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-30 01:47 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
+- 2026-06-30 01:33 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-30 01:47 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-30 01:34 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 01:35 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/296530.shtml)
-- 2026-06-30 01:35 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/58261.shtml)
-- 2026-06-30 01:51 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/92891056908.shtml)
-- 2026-06-30 01:50 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/487234.shtml)
-- 2026-06-30 01:36 - [永辉超市回应两个包子卖104元](http://www.share.minike.top/Article/details/022089606.shtml)
-- 2026-06-30 01:33 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/509815.shtml)
-- 2026-06-30 01:43 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/7028550.shtml)
-- 2026-06-30 01:51 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/5693343167.shtml)
-- 2026-06-30 01:35 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/961986727943.shtml)
-- 2026-06-30 01:31 - [勇敢的心第二部](https://www.share.minike.top/Article/details/075261040606.shtml)
-- 2026-06-30 01:46 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/13295996.shtml)
-- 2026-06-30 01:26 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/96336.shtml)
-- 2026-06-30 01:46 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/89471.shtml)
-- 2026-06-30 01:52 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/545955854085.shtml)
-- 2026-06-30 01:27 - [请回答王牌2019](http://www.blog.minike.top/Article/details/187102.shtml)
+- 2026-06-30 01:48 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/551728.shtml)
+- 2026-06-30 01:46 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/77198.shtml)
+- 2026-06-30 01:59 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/95164802958.shtml)
+- 2026-06-30 01:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.blog.kurohicncr.top/Article/details/77956523.shtml)
+- 2026-06-30 01:50 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/82874301200.shtml)
+- 2026-06-30 01:50 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.kurohicncr.top/Article/details/677640653989.shtml)
+- 2026-06-30 01:32 - [刘念回应](http://www.share.kurohicncr.top/Article/details/1804668991.shtml)
+- 2026-06-30 01:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.minike.top/Article/details/08847579098.shtml)
+- 2026-06-30 01:33 - [这辈子过得最痛苦的生日...](https://www.share.minike.top/Article/details/66859100.shtml)
+- 2026-06-30 01:33 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/118266757185.shtml)
+- 2026-06-30 01:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/538683.shtml)
+- 2026-06-30 01:41 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/83618523.shtml)
+- 2026-06-30 01:45 - [建议不要突然完全停止喝咖啡](http://www.share.kurohicncr.top/Article/details/553095.shtml)
+- 2026-06-30 01:53 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/977739471583.shtml)
+- 2026-06-30 01:46 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/96781114539.shtml)
