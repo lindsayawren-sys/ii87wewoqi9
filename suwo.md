@@ -1,61 +1,59 @@
-# 尼泊尔5月国际游客同比增长约19%
+# 投资者遭遇“剧本杀”？围绕*ST汇科的“保壳”交易异象丛生
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新社加德满都6月2日电 (记者 崔楠)尼泊尔旅游委6月1日公布的最新数据显示，2026年5月，尼泊尔共接待国际游客102626人次，同比增长约19%。 数据显示，印度继续为尼泊尔最大客源国，5月共有逾4万人次印度游客到访尼泊尔，占当月国际游客总量近四成。中国游客11514人次，位居第二；美国游客9001人次，位列第三。孟加拉国、英国分列第四、第五位。 印度游客赴尼数量同比、环
+界面新闻记者 赵阳戈 A股的“保壳季”，从来不缺惊心动魄的剧情。 从4月9日尾盘离奇“闪崩”20CM跌停，到次日巨量封单“一字板”涨停，*ST汇科（维权）（300561.SZ）的近2万名股东被动坐了“极速过山车”。从“地狱”到“天堂”的切换，源于一份深夜发布的年报和一纸申请摘帽的公告。 *ST汇科惊心动魄走势的背后，暴露出了ST股投机的巨大风险，值得每一位市场参与者深思。 4月
 
 ## 正文
 
-中新社加德满都6月2日电 (记者 崔楠)尼泊尔旅游委6月1日公布的最新数据显示，2026年5月，尼泊尔共接待国际游客102626人次，同比增长约19%。
+界面新闻记者 赵阳戈 A股的“保壳季”，从来不缺惊心动魄的剧情。
 
-数据显示，印度继续为尼泊尔最大客源国，5月共有逾4万人次印度游客到访尼泊尔，占当月国际游客总量近四成。
+从4月9日尾盘离奇“闪崩”20CM跌停，到次日巨量封单“一字板”涨停，*ST汇科（维权）（300561.SZ）的近2万名股东被动坐了“极速过山车”。
 
-中国游客11514人次，位居第二；美国游客9001人次，位列第三。
+从“地狱”到“天堂”的切换，源于一份深夜发布的年报和一纸申请摘帽的公告。
 
-孟加拉国、英国分列第四、第五位。
+*ST汇科惊心动魄走势的背后，暴露出了ST股投机的巨大风险，值得每一位市场参与者深思。
 
-印度游客赴尼数量同比、环比均明显攀升。
+4月9日，A股市场整体表现较为平稳，*ST汇科早盘平开后走势随行就市并无太多异样，午后还出现了一些拉升。
 
-尼泊尔旅游部门数据显示，今年5月共有40782人次印度游客到访尼泊尔，较2025年5月的28160人次同比增长约44.8%；较今年4月的25196人次环比增长亦超过六成。
+然而，就在收盘前的半小时，风云突变，抛单如瀑布般倾泻而下，将股价死死按在20%的跌停板上，直至收盘。
 
-近期，印度多地持续高温。
+4月13日，公司继续20CM封住涨停板。
 
-尼泊尔旅游业者认为，除春季徒步、登山旅游旺季等传统因素外，毗邻印度且气候相对凉爽的尼泊尔高海拔地区，亦吸引部分印度游客入境避暑。
+来源：同花顺 这种尾盘突袭式的“核按钮”，通常被视为资金出逃的极端信号。
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-29 14:06 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 14:05 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 13:45 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/danhai.md)
-- 2026-06-29 13:46 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 13:44 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 14:08 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:44 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
-- 2026-06-29 13:42 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 14:09 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 14:07 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
-- 2026-06-29 13:47 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-29 13:49 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 13:48 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 13:48 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
+- 2026-06-29 14:08 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 13:53 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
+- 2026-06-29 14:13 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 14:14 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-29 14:08 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-29 14:09 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 14:03 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
+- 2026-06-29 13:50 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 14:10 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 14:04 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
+- 2026-06-29 14:11 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 14:00 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 14:06 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:04 - [韩国队出局是因为内讧吗](https://www.blog.minike.top/Article/details/034895.shtml)
-- 2026-06-29 13:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/4052589408.shtml)
-- 2026-06-29 13:55 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/59890.shtml)
-- 2026-06-29 14:00 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/7921134.shtml)
-- 2026-06-29 13:49 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/22922760.shtml)
-- 2026-06-29 14:04 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/562306.shtml)
-- 2026-06-29 13:59 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/141025476.shtml)
-- 2026-06-29 13:47 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/118205.shtml)
-- 2026-06-29 14:04 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/06605034.shtml)
-- 2026-06-29 13:59 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/08714.shtml)
-- 2026-06-29 13:50 - [海军舰艇编队将赴香港](http://www.blog.kurohicncr.top/Article/details/87454599898.shtml)
-- 2026-06-29 13:46 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/3075230.shtml)
-- 2026-06-29 13:56 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/469389.shtml)
-- 2026-06-29 13:48 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/145900.shtml)
-- 2026-06-29 13:51 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/2358459582.shtml)
+- 2026-06-29 14:03 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/99205721728.shtml)
+- 2026-06-29 13:50 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/449679554.shtml)
+- 2026-06-29 14:14 - [T1零封KC MSI](http://www.share.kurohicncr.top/Article/details/24648658211.shtml)
+- 2026-06-29 13:54 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/9348107251.shtml)
+- 2026-06-29 13:50 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/226252.shtml)
+- 2026-06-29 14:09 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/02988755.shtml)
+- 2026-06-29 13:56 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/1960111335.shtml)
+- 2026-06-29 13:49 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/33810263.shtml)
+- 2026-06-29 14:15 - [起风了](https://www.share.kurohicncr.top/Article/details/4853071.shtml)
+- 2026-06-29 13:56 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/04071.shtml)
+- 2026-06-29 14:08 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/920719813.shtml)
+- 2026-06-29 14:01 - [中方将20家日本实体列入管控名单](http://www.share.minike.top/Article/details/0704270594.shtml)
+- 2026-06-29 13:50 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/09311743.shtml)
+- 2026-06-29 14:05 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/29976.shtml)
+- 2026-06-29 13:57 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/41874.shtml)

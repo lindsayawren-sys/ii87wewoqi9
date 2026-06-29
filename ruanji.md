@@ -1,53 +1,59 @@
-# 郑丽文称愿与特朗普会面 外交部回应
+# 局部缺货现象导致清明节后山东蛋价涨势明显
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 (记者 谢雁冰)中国外交部发言人毛宁6月2日主持例行记者会。有记者就中国国民党主席郑丽文称访美期间愿意与美国总统特朗普会面提问。 毛宁：关于中国台湾地区对外交往问题，应当按照一个中国原则处理。(完)
+卓创资讯鸡蛋市场分析师刘旭 【导语】清明节过后山东市场鸡蛋价格上涨速度较快，且带动周边产区价格上涨，但后续支撑力度有限，业者多持谨慎观望态度。 清明节前期山东市场鸡蛋价格大致平稳，节日后涨价速度较快，超出业者预期，截至4月13日，山东市场鸡蛋日均价3.82元/斤，较4月1日涨幅17.90%，环比上月同期涨幅26.07%，同比涨幅16.82%。部分环节货源供应略显不足是近期蛋价上
 
 ## 正文
 
-中新网北京6月2日电 (记者 谢雁冰)中国外交部发言人毛宁6月2日主持例行记者会。
+卓创资讯鸡蛋市场分析师刘旭 【导语】清明节过后山东市场鸡蛋价格上涨速度较快，且带动周边产区价格上涨，但后续支撑力度有限，业者多持谨慎观望态度。
 
-有记者就中国国民党主席郑丽文称访美期间愿意与美国总统特朗普会面提问。
+清明节前期山东市场鸡蛋价格大致平稳，节日后涨价速度较快，超出业者预期，截至4月13日，山东市场鸡蛋日均价3.82元/斤，较4月1日涨幅17.90%，环比上月同期涨幅26.07%，同比涨幅16.82%。
 
-毛宁：关于中国台湾地区对外交往问题，应当按照一个中国原则处理。
+部分环节货源供应略显不足是近期蛋价上涨的主要动力。
 
-(完)
+多重因素导致部分市场鸡蛋供应量减少 3月份鸡蛋价格依旧围绕成本线上下调整，养殖盈利不佳，养殖单位淘汰老鸡积极性逐渐提高，3月底及4月初山东部分市场老母鸡出栏量较多，局部小散户减产30%以上，导致部分经销商常备货源不足，面临断供压力，因此出现加价收货现象。
+
+第二方面，近期肉鸡种蛋价格高于商品蛋价格，德州、聊城、滨州一带“商转种”现象较普遍，市场流通的商品蛋供应减少，一定程度上增加了货源紧张的局面。
+
+两种因素使得山东西部地区供需关系收紧，价格上涨。
+
+存栏量仍处高位，终端接受度待定 供应方面，截至3月底山东市场产蛋鸡存栏量依旧维持在1.45亿只以上，仍处较高水平，4月份老母鸡出栏量环比增多，但幅度有限，去产能速度依旧缓慢，另外前期换羽蛋鸡已普遍进入开产期，小鸡蛋供应紧张的局面也有所缓解，4月上旬部分市场货源紧张带来的涨价动力持续时间有限，蛋价上涨后劲不足。
+
+需求方面，清明节后山东蛋价上涨速度接近需求旺季，蛋价传导至终端需一定时间，终端消费者对“破4”蛋价的接受度待定。
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 13:54 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 14:04 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 14:06 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
-- 2026-06-29 14:01 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
-- 2026-06-29 13:48 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:59 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 13:43 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 13:48 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
-- 2026-06-29 13:48 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
-- 2026-06-29 14:08 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-29 13:48 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 13:47 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 13:47 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 14:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-29 14:00 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
+- 2026-06-29 13:50 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
+- 2026-06-29 14:04 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
+- 2026-06-29 14:12 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 14:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 14:16 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 14:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 13:53 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
+- 2026-06-29 13:55 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 13:59 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 13:51 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 14:11 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
+- 2026-06-29 14:05 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [一生一世](http://www.share.minike.top/Article/details/97953.shtml)
-- 2026-06-29 14:09 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/40539.shtml)
-- 2026-06-29 14:12 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/4745557293.shtml)
-- 2026-06-29 13:47 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/7868540.shtml)
-- 2026-06-29 13:52 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/81834838.shtml)
-- 2026-06-29 13:59 - [海清白玉兰奖运](https://www.share.minike.top/Article/details/8388164017.shtml)
-- 2026-06-29 13:56 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/533608769.shtml)
-- 2026-06-29 14:09 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/78309405.shtml)
-- 2026-06-29 13:42 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/2335748.shtml)
-- 2026-06-29 13:58 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/65642248.shtml)
-- 2026-06-29 13:45 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/58569642.shtml)
-- 2026-06-29 13:44 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/537199.shtml)
-- 2026-06-29 13:54 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/63197073761.shtml)
-- 2026-06-29 13:42 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/6653084.shtml)
-- 2026-06-29 14:09 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/093761285446.shtml)
+- 2026-06-29 13:57 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/728855771332.shtml)
+- 2026-06-29 13:52 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/0982298.shtml)
+- 2026-06-29 14:11 - [媒体人：警惕日本再次成战争加害国](https://www.blog.kurohicncr.top/Article/details/4099525974.shtml)
+- 2026-06-29 14:07 - [链博会上的机器人太全能了](https://www.blog.minike.top/Article/details/42278478.shtml)
+- 2026-06-29 13:57 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/6790628.shtml)
+- 2026-06-29 14:18 - [父亲患病母亲残疾女儿接到清华电话](https://www.blog.minike.top/Article/details/9728984443.shtml)
+- 2026-06-29 14:00 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/74282974.shtml)
+- 2026-06-29 13:58 - [毕业群都在出什么东西](https://www.share.minike.top/Article/details/05656794077.shtml)
+- 2026-06-29 14:14 - [啊啊啊](https://www.share.minike.top/Article/details/62521990.shtml)
+- 2026-06-29 14:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/59448920.shtml)
+- 2026-06-29 14:03 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/71311.shtml)
+- 2026-06-29 14:15 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/43874.shtml)
+- 2026-06-29 14:03 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/81998435.shtml)
+- 2026-06-29 14:05 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/0116705071.shtml)
+- 2026-06-29 14:08 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/819106196.shtml)

@@ -1,44 +1,44 @@
-# 三星堆考古发现11件红玉髓珠
+# 习言道｜必须实事求是、求真务实、真抓实干
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-四川省文物考古研究院6月2日公布最新研究成果，三星堆祭祀坑出土了11件红玉髓珠，是同期中国境内已知最南端的红玉髓文物，揭示了中国青铜时代的贸易网络与文化互动，为重建红玉髓原料及珠饰在东亚地区的来源与传播提供了关键证据，证明了中华文明多元一体的格局早在数千年前就已形成并深入发展。(央视新闻客户端)
+党的十八大以来，习近平总书记高度重视政绩观问题，多次明确“以实干出政绩”的实践路径。他指出——
 
 ## 正文
 
-四川省文物考古研究院6月2日公布最新研究成果，三星堆祭祀坑出土了11件红玉髓珠，是同期中国境内已知最南端的红玉髓文物，揭示了中国青铜时代的贸易网络与文化互动，为重建红玉髓原料及珠饰在东亚地区的来源与传播提供了关键证据，证明了中华文明多元一体的格局早在数千年前就已形成并深入发展。
+党的十八大以来，习近平总书记高度重视政绩观问题，多次明确“以实干出政绩”的实践路径。
 
-(央视新闻客户端)
+他指出——
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 14:00 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 13:56 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 13:44 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
-- 2026-06-29 14:04 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 13:50 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 13:58 - [佛得角到底在哪个“角”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 13:48 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 13:48 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 14:14 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 13:55 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 13:57 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 13:51 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
+- 2026-06-29 14:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-29 13:59 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 14:04 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-29 14:06 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 14:09 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tndic.md)
+- 2026-06-29 14:10 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/9688471900.shtml)
-- 2026-06-29 13:58 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/751993356094.shtml)
-- 2026-06-29 14:11 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/33671738476.shtml)
-- 2026-06-29 14:01 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/229504043056.shtml)
-- 2026-06-29 13:47 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/269181905471.shtml)
-- 2026-06-29 14:09 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/129373478.shtml)
-- 2026-06-29 13:47 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/5955060881.shtml)
-- 2026-06-29 13:45 - [伊朗球员致歉](http://www.share.minike.top/Article/details/87593826770.shtml)
-- 2026-06-29 13:46 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/234810070.shtml)
-- 2026-06-29 14:06 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/702480556.shtml)
-- 2026-06-29 14:10 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/97755247.shtml)
-- 2026-06-29 14:02 - [俄方：欧洲人热死是因拒绝俄能源](https://www.share.kurohicncr.top/Article/details/6403975.shtml)
-- 2026-06-29 13:52 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/4737566.shtml)
-- 2026-06-29 13:45 - [母亲去世80万赔偿款弟弟拿走74万](http://www.share.kurohicncr.top/Article/details/8536111.shtml)
-- 2026-06-29 13:54 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/390605911656.shtml)
+- 2026-06-29 13:54 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.kurohicncr.top/Article/details/244211072593.shtml)
+- 2026-06-29 13:50 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/1065597692.shtml)
+- 2026-06-29 14:09 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.kurohicncr.top/Article/details/5289364281.shtml)
+- 2026-06-29 13:53 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/20150362.shtml)
+- 2026-06-29 13:51 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/32435298727.shtml)
+- 2026-06-29 14:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/242802763815.shtml)
+- 2026-06-29 13:57 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/26902359.shtml)
+- 2026-06-29 13:53 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/596677217521.shtml)
+- 2026-06-29 14:06 - [四川宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/749715191930.shtml)
+- 2026-06-29 14:07 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/602966945486.shtml)
+- 2026-06-29 14:11 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/9619927.shtml)
+- 2026-06-29 14:02 - [俄称继续推进 乌称打击俄军设施](http://www.blog.kurohicncr.top/Article/details/636887.shtml)
+- 2026-06-29 14:14 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/551304110.shtml)
+- 2026-06-29 14:17 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/26599617529.shtml)
+- 2026-06-29 14:04 - [世界杯看台惊现一群“哈兰德”](http://www.blog.kurohicncr.top/Article/details/88475731.shtml)

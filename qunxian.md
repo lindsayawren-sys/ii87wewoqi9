@@ -1,61 +1,61 @@
-# 多家银行下调黄金结构性存款收益
+# 万亿市值版图生变 科技公司有望更多跻身
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-记者丨余纪昕 编辑丨杨希，曾芳 2026年以来，国际黄金市场走出了一轮暴涨暴跌的“过山车”行情。 wind数据显示，伦敦金自年初一路冲高，于1月29日触及5598.75美元/盎司的历史峰值，随后急速回撤，3月最深下探至4098.25美元/盎司，年内最大回撤幅度突破26%。截至6月2日发稿，现货黄金围绕4500美元/盎司附近窄幅震荡。 此后，金价自谷底快速反弹，一度重回4500美
+上市企业市值榜单揭示哪些变化编者按2026年一季度，中国上市企业市值500强榜单呈现鲜明结构性变化：13家万亿级企业构筑“金融+能源”稳健基石，43家新面孔携硬科技入局，多家公司市值翻倍增长。从腾讯、工商银行等传统巨头，到智谱、壁仞科技等AI与算力新锐，再到以宁德时代为代表的制造龙头，榜单映射出中国经济新旧动能加速转换的关键图景。资本市场正以市值语言，为高技术定价、为新质生产力
 
 ## 正文
 
-记者丨余纪昕 编辑丨杨希，曾芳 2026年以来，国际黄金市场走出了一轮暴涨暴跌的“过山车”行情。
+上市企业市值榜单揭示哪些变化编者按2026年一季度，中国上市企业市值500强榜单呈现鲜明结构性变化：13家万亿级企业构筑“金融+能源”稳健基石，43家新面孔携硬科技入局，多家公司市值翻倍增长。
 
-wind数据显示，伦敦金自年初一路冲高，于1月29日触及5598.75美元/盎司的历史峰值，随后急速回撤，3月最深下探至4098.25美元/盎司，年内最大回撤幅度突破26%。
+从腾讯、工商银行等传统巨头，到智谱、壁仞科技等AI与算力新锐，再到以宁德时代为代表的制造龙头，榜单映射出中国经济新旧动能加速转换的关键图景。
 
-截至6月2日发稿，现货黄金围绕4500美元/盎司附近窄幅震荡。
+资本市场正以市值语言，为高技术定价、为新质生产力投票，一批深耕核心技术的科创企业突围，彰显制度改革与产业升级的同频共振。
 
-此后，金价自谷底快速反弹，一度重回4500美元上方，但整体并未脱离调整消化期；截至6月2日发稿，伦敦金现在4520美元/盎司上下波动，市场表现仍为横盘震荡。
+这批新势力的崛起，绝非偶然的资本热潮，而是中国经济向创新驱动转型的生动缩影。
 
-伴随金价告别单边上涨、转向多空拉锯，21世纪经济报道记者注意到，近期，交通银行、华夏银行、招商银行等银行已下调挂钩黄金的结构性存款产品预期利率。
+本期报道解码市值变迁背后的时代大势。
 
-从额度来看，此前“上架即售空”的市场热度明显不再，多款产品在售额度充裕，投资者们似乎已经从年初的“抢不到”产品额度转向了如今的“挑着买”。
+科技股市值超万亿元的企业数量未来一定会持续增加，这是由中国经济转型升级的大趋势和科技产业发展的内在规律决定的。
 
-结构性存款产品一度火热 回顾今年1月，挂钩黄金的结构性存款产品热度随着金价飙高一同被点燃。
+随着“十五五”规划的全面实施，科技产业将迎来政策、技术和需求的三重共振。
 
-比如，1月，交通银行的“稳添慧”系列“挂钩AU99.99的黄金看涨/看跌64天”这两款产品，年化收益率区间为0.5%—3.20%，1万元起投，规模上限10亿元，在发行后不久便额度售罄。
+■张炜最新发布的2026年一季度“中国上市企业市值500强”榜单显示，市值超1万亿元的企业有13家，较2025年底减少2家。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 13:45 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-29 14:07 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-29 13:47 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 14:03 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
-- 2026-06-29 13:55 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 13:44 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 13:42 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 14:07 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 13:46 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-29 14:00 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
-- 2026-06-29 13:52 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 14:02 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 13:42 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-29 13:42 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 14:09 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-29 14:04 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 14:09 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 13:55 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
+- 2026-06-29 14:10 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-29 13:52 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 14:13 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
+- 2026-06-29 14:09 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 14:17 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 13:59 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 14:02 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:48 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 13:54 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-29 13:57 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 13:59 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/6894731.shtml)
-- 2026-06-29 13:47 - [四川宜宾地震](http://www.share.kurohicncr.top/Article/details/880550.shtml)
-- 2026-06-29 14:02 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.kurohicncr.top/Article/details/757716370428.shtml)
-- 2026-06-29 14:11 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/755476.shtml)
-- 2026-06-29 14:05 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/12379.shtml)
-- 2026-06-29 13:45 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/258318501.shtml)
-- 2026-06-29 13:51 - [韩国记者：解码“合肥模式”](https://www.blog.kurohicncr.top/Article/details/181531337.shtml)
-- 2026-06-29 14:04 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/373293397.shtml)
-- 2026-06-29 13:46 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/64142473339.shtml)
-- 2026-06-29 14:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.kurohicncr.top/Article/details/38935934.shtml)
-- 2026-06-29 14:02 - [人民日报评“AI脸看腻了”](https://www.blog.minike.top/Article/details/6819893.shtml)
-- 2026-06-29 13:54 - [高市早苗口齿不清被质疑醉酒](https://www.blog.kurohicncr.top/Article/details/57942.shtml)
-- 2026-06-29 13:47 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/67170844040.shtml)
-- 2026-06-29 13:59 - [NBA交易](http://www.share.kurohicncr.top/Article/details/329026904.shtml)
-- 2026-06-29 13:42 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/8388110996.shtml)
+- 2026-06-29 14:08 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/85051.shtml)
+- 2026-06-29 14:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/77032.shtml)
+- 2026-06-29 14:03 - [肖战深夜到达青岛赴十日终焉片场](https://www.share.kurohicncr.top/Article/details/30816908279.shtml)
+- 2026-06-29 14:03 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/18080338.shtml)
+- 2026-06-29 13:58 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/69998817351.shtml)
+- 2026-06-29 14:03 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/57960614.shtml)
+- 2026-06-29 14:13 - [袁隆平院士 不容诋毁！](http://www.share.minike.top/Article/details/0334843643.shtml)
+- 2026-06-29 13:54 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/65078443.shtml)
+- 2026-06-29 14:01 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.minike.top/Article/details/559195137306.shtml)
+- 2026-06-29 14:06 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/24473784.shtml)
+- 2026-06-29 14:01 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/5695605101.shtml)
+- 2026-06-29 14:08 - [俄称继续推进 乌称打击俄军设施](https://www.share.minike.top/Article/details/0688510.shtml)
+- 2026-06-29 13:58 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/5652418.shtml)
+- 2026-06-29 14:03 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/467030848769.shtml)
+- 2026-06-29 14:11 - [久坐小心“死臀综合征”](http://www.blog.minike.top/Article/details/62850437.shtml)

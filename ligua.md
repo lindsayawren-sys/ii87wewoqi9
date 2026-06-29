@@ -1,58 +1,56 @@
-# 打呼噜是睡得香吗？小心“隐形健康杀手”
+# 凯德投资为亚太信贷基金筹集3.2亿美元，需求持续增长
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电 生活听见身边人睡觉鼾声震天，大家总会下意识感慨：“这人睡得可真沉、真香！”。但从医学角度，打呼噜不仅不是睡得香，反而是一种病态信号，更是潜伏在我们身边的 “隐形健康杀手”。近日，北京市海淀医院神经内科主治医师周正宏撰写科普文章，从鼾声的形成原理、危害、高发人群以及科学干预方式，分析了打呼噜的潜在健康风险。以下为科普内容：先明白：正常睡眠和打呼噜的气流有什么
+凯德投资 CLILF 71 已为其亚太房地产信贷策略完成3.2亿美元的募资，这标志着其背靠淡马锡控股、扩大轻资产基金管理平台的又一举措。第二只旗舰基金ACP二期吸引了主要来自该地区的新老投资者组合，凯德自身作为发起人出资20%。该基金已完成了五笔第一抵押贷款的投放，涉及悉尼和首尔都市圈的后勤物流、办公及居住类资产，表明其早期专注于能产生收益的资产支持型头寸。 该策略被定位为私人
 
 ## 正文
 
-中新网北京6月2日电 生活听见身边人睡觉鼾声震天，大家总会下意识感慨：“这人睡得可真沉、真香！
+凯德投资 CLILF 71 已为其亚太房地产信贷策略完成3.2亿美元的募资，这标志着其背靠淡马锡控股、扩大轻资产基金管理平台的又一举措。
 
-”。
+第二只旗舰基金ACP二期吸引了主要来自该地区的新老投资者组合，凯德自身作为发起人出资20%。
 
-但从医学角度，打呼噜不仅不是睡得香，反而是一种病态信号，更是潜伏在我们身边的 “隐形健康杀手”。
+该基金已完成了五笔第一抵押贷款的投放，涉及悉尼和首尔都市圈的后勤物流、办公及居住类资产，表明其早期专注于能产生收益的资产支持型头寸。
 
-近日，北京市海淀医院神经内科主治医师周正宏撰写科普文章，从鼾声的形成原理、危害、高发人群以及科学干预方式，分析了打呼噜的潜在健康风险。
+该策略被定位为私人信贷领域内一种更具防御性的方式，专注于在整体信贷市场可能面临日益加剧压力之际进行优先担保投资。
 
-以下为科普内容：先明白：正常睡眠和打呼噜的气流有什么区别 想要明白打呼噜为什么是病，首先要了解人体睡眠时的呼吸生理机制。
+管理层指出，这种定位有助于使投资组合避开影响信贷行业其他领域的挑战，同时仍能获取由有形房地产抵押品支持的收益。
 
-人在清醒状态下，咽喉部、舌根、软腭、悬雍垂等部位的肌肉都保持一定的张力，如同紧绷的 “支架”，把上呼吸道撑开一条通畅的通道。
+最新募集的基金还使总管理资产规模增加了约6亿美元，在银行贷款条件收紧以及对灵活资本解决方案的需求持续上升的背景下，巩固了凯德投资在区域私人信贷领域不断扩大的影响力。
 
-空气从鼻腔吸入，经过鼻咽部、咽喉部，顺畅进入气管、支气管，最后到达肺部完成气体交换，整个过程气流平稳、无声无息，自然不会产生任何声音。
+机构对亚洲房地产抵押贷款的需求似乎正在增长，尽管该板块在总融资额中仅占约6%，远低于欧洲和美国的水平。
 
-当我们进入睡眠状态后，全身骨骼肌都会自然放松，咽喉部的软组织肌肉也会随之松弛。
+这种动态，加上投资者对下行保护的偏好，可能继续支持募资势头——2020年至2024年间，亚太信贷工具筹集了112亿美元，较前一个五年期增长超过40%。
 
 ## 相关推荐
 
-- 2026-06-29 14:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 14:06 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 13:47 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 13:43 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-29 14:04 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-29 14:11 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
-- 2026-06-29 14:06 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 14:10 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-29 13:59 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 14:03 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 13:48 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 14:09 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-29 14:17 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-29 13:58 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 13:57 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-29 14:16 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 14:08 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-29 13:58 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 13:51 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 14:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
+- 2026-06-29 14:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 14:16 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfuia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:04 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/728393.shtml)
-- 2026-06-29 13:56 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/4643284489.shtml)
-- 2026-06-29 13:49 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/04520822741.shtml)
-- 2026-06-29 13:48 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.minike.top/Article/details/23163304.shtml)
-- 2026-06-29 13:42 - [2021湖南卫视跨年演唱会](https://www.share.minike.top/Article/details/90661942.shtml)
-- 2026-06-29 13:43 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/800569578145.shtml)
-- 2026-06-29 13:59 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/34485226.shtml)
-- 2026-06-29 13:45 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/257696.shtml)
-- 2026-06-29 13:58 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/90757.shtml)
-- 2026-06-29 13:44 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/003225.shtml)
-- 2026-06-29 14:01 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/054937.shtml)
-- 2026-06-29 13:45 - [马斯克也站到了光里](https://www.share.minike.top/Article/details/1293093.shtml)
-- 2026-06-29 14:01 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/98782118.shtml)
-- 2026-06-29 14:01 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/532157229.shtml)
-- 2026-06-29 13:58 - [T1零封KC MSI](http://www.blog.kurohicncr.top/Article/details/76325183660.shtml)
+- 2026-06-29 14:07 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/794615.shtml)
+- 2026-06-29 14:06 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/1787249274.shtml)
+- 2026-06-29 14:15 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/11267754450.shtml)
+- 2026-06-29 14:17 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/919457380.shtml)
+- 2026-06-29 14:06 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/74307616138.shtml)
+- 2026-06-29 13:55 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/83359.shtml)
+- 2026-06-29 13:55 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/17457.shtml)
+- 2026-06-29 14:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/260555381.shtml)
+- 2026-06-29 13:57 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/937650163582.shtml)
+- 2026-06-29 14:11 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/2276984216.shtml)
+- 2026-06-29 13:50 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/05040217120.shtml)
+- 2026-06-29 14:07 - [沙丘](https://www.blog.kurohicncr.top/Article/details/97417895196.shtml)
+- 2026-06-29 13:48 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/87100.shtml)
+- 2026-06-29 14:12 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/33580.shtml)
+- 2026-06-29 14:08 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/805792.shtml)

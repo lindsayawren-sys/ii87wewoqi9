@@ -1,46 +1,46 @@
-# 伊朗最高领袖顾问：伊朗武装力量耐心有限
+# 特朗普称美军将封锁任何试图进出霍尔木兹海峡的船只
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 伊朗最高领袖军事顾问穆赫辛·雷扎伊1日在社交媒体发文说，伊朗武装力量的耐心是有限的。 雷扎伊重申，霍尔木兹海峡目前处于伊朗管理之下。伊朗不会允许海上封锁持续下去，也不会容忍黎巴嫩局势进一步升级。
+当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。(央视新闻客户端 央视记者 朱磊)
 
 ## 正文
 
-中新网6月2日电 伊朗最高领袖军事顾问穆赫辛·雷扎伊1日在社交媒体发文说，伊朗武装力量的耐心是有限的。
+当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。
 
-雷扎伊重申，霍尔木兹海峡目前处于伊朗管理之下。
-
-伊朗不会允许海上封锁持续下去，也不会容忍黎巴嫩局势进一步升级。
+(央视新闻客户端 央视记者 朱磊)
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 13:54 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 13:58 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
-- 2026-06-29 13:58 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 14:04 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 13:52 - [5万块的威力](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 14:10 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 14:06 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-29 14:06 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-29 13:46 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-29 14:13 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 14:02 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-29 13:59 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-29 13:51 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-29 14:03 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/okkym.md)
+- 2026-06-29 13:48 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-29 14:06 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 14:06 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 14:07 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 14:08 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 13:55 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 14:00 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [中国战机大片上新](https://www.blog.minike.top/Article/details/3788624.shtml)
-- 2026-06-29 14:07 - [双高胎](http://www.share.kurohicncr.top/Article/details/61722409.shtml)
-- 2026-06-29 13:42 - [TOP 无畏契约](https://www.share.minike.top/Article/details/71415162.shtml)
-- 2026-06-29 13:42 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/0886484.shtml)
-- 2026-06-29 14:00 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/567977215.shtml)
-- 2026-06-29 13:43 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/46283905.shtml)
-- 2026-06-29 14:06 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/01126992.shtml)
-- 2026-06-29 13:57 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/10067.shtml)
-- 2026-06-29 14:05 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/224859.shtml)
-- 2026-06-29 13:52 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/821457.shtml)
-- 2026-06-29 14:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/3735051216.shtml)
-- 2026-06-29 14:04 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.minike.top/Article/details/59178972574.shtml)
-- 2026-06-29 14:03 - [我和我的家乡](https://www.share.minike.top/Article/details/952838.shtml)
-- 2026-06-29 13:58 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/19654.shtml)
-- 2026-06-29 14:02 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/1823565332.shtml)
+- 2026-06-29 13:59 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/855854684.shtml)
+- 2026-06-29 14:10 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/4659338.shtml)
+- 2026-06-29 14:10 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/751536.shtml)
+- 2026-06-29 14:15 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/733080.shtml)
+- 2026-06-29 13:59 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/5652431413.shtml)
+- 2026-06-29 14:06 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/662181511848.shtml)
+- 2026-06-29 14:00 - [《昨夜将至》为何是悬疑黑马](https://www.share.minike.top/Article/details/02373.shtml)
+- 2026-06-29 13:50 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/70384897.shtml)
+- 2026-06-29 14:08 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/67571150.shtml)
+- 2026-06-29 14:15 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/025891.shtml)
+- 2026-06-29 14:08 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.share.minike.top/Article/details/773280472.shtml)
+- 2026-06-29 14:16 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/53692440076.shtml)
+- 2026-06-29 14:00 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/67766077790.shtml)
+- 2026-06-29 14:16 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/7622004.shtml)
+- 2026-06-29 14:14 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.kurohicncr.top/Article/details/71092311.shtml)

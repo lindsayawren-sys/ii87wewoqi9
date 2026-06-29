@@ -1,50 +1,60 @@
-# 交银国际：领展房产基金维持“买入”评级 目标价45.70港元
+# 经纬度：在消博会，感受消费升级的澎湃春潮
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-交银国际发布研报称，领展房产基金（00823）2026财年业绩营运压力与预期相若，派息符合预期，同时领展以必需消费为主的香港零售组合面对北上消费展现出韧性。该行相信其2026/27财年业绩仍可大致稳定，而回购以及房地产信托纳可能纳入港股通则会成为公司中长期股价催化剂。该行维持买入评级及目标价45.70港元。责任编辑：卢昱君
+澎湃特约评论员 毕舸 4月13日至18日，第六届中国国际消费品博览会在海南举办。作为“十五五”开局之年我国重大展会的“首展”，也是海南自贸港全岛封关运作以后的“首秀”，这场盛会承载着多重意义。商务部副部长盛秋平评价：“消博会已成为引领消费升级趋势的‘风向标’。” 从可实时翻译80多种语言的AI眼镜，到飞行汽车与无人配送从概念走向实景展示；从国潮出海馆里瓷器、丝绸、中医药、文博文
 
 ## 正文
 
-交银国际发布研报称，领展房产基金（00823）2026财年业绩营运压力与预期相若，派息符合预期，同时领展以必需消费为主的香港零售组合面对北上消费展现出韧性。
+澎湃特约评论员 毕舸 4月13日至18日，第六届中国国际消费品博览会在海南举办。
 
-该行相信其2026/27财年业绩仍可大致稳定，而回购以及房地产信托纳可能纳入港股通则会成为公司中长期股价催化剂。
+作为“十五五”开局之年我国重大展会的“首展”，也是海南自贸港全岛封关运作以后的“首秀”，这场盛会承载着多重意义。
 
-该行维持买入评级及目标价45.70港元。
+商务部副部长盛秋平评价：“消博会已成为引领消费升级趋势的‘风向标’。
 
-责任编辑：卢昱君
+” 从可实时翻译80多种语言的AI眼镜，到飞行汽车与无人配送从概念走向实景展示；从国潮出海馆里瓷器、丝绸、中医药、文博文创展品齐聚，到张雪机车与阿斯顿马丁、庞巴迪同台亮相……本届消博会引领消费新风向、共享发展新机遇、共绘开放新图景。
+
+而消博会的深层价值，就在于可以通过这一窗口精准把握中国消费升级的潮向和趋势。
+
+消博会对中国消费升级趋势的推动，体现在三个维度。
+
+其一，健康消费成为新兴热点。
+
+本届消博会设置健康消费专区，展示保健食品、乳制品、消费类药械、智能医疗等；博鳌分会场打造健康服务沉浸式体验场景。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 13:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 14:04 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-29 13:45 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 13:55 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-29 13:43 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 14:10 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-29 13:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
-- 2026-06-29 13:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/movqx.md)
-- 2026-06-29 13:48 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
-- 2026-06-29 13:59 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-29 13:58 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
+- 2026-06-29 14:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
+- 2026-06-29 13:51 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 13:54 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 13:54 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 14:03 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-29 14:07 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 14:01 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 13:56 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 14:11 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-29 14:08 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
+- 2026-06-29 14:03 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 14:16 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-29 14:01 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-29 13:55 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/1120619.shtml)
-- 2026-06-29 13:50 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/142189909137.shtml)
-- 2026-06-29 14:09 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/58435759.shtml)
-- 2026-06-29 13:59 - [人可以极简主义到什么程度？](http://www.share.minike.top/Article/details/3676707646.shtml)
-- 2026-06-29 14:10 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/4624639578.shtml)
-- 2026-06-29 14:03 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/018566.shtml)
-- 2026-06-29 13:45 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.minike.top/Article/details/5093916.shtml)
-- 2026-06-29 13:50 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/00571256612.shtml)
-- 2026-06-29 13:43 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/38754595546.shtml)
-- 2026-06-29 14:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.share.minike.top/Article/details/057378.shtml)
-- 2026-06-29 13:50 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/574792405441.shtml)
-- 2026-06-29 13:51 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/733753236407.shtml)
-- 2026-06-29 13:44 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/93947118.shtml)
-- 2026-06-29 13:45 - [职业选手禁止参赛！](http://www.blog.minike.top/Article/details/44153776201.shtml)
-- 2026-06-29 13:54 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/0469480.shtml)
+- 2026-06-29 13:49 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/05060749.shtml)
+- 2026-06-29 13:58 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.minike.top/Article/details/800312776106.shtml)
+- 2026-06-29 14:17 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.kurohicncr.top/Article/details/54993025.shtml)
+- 2026-06-29 13:51 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/849350842555.shtml)
+- 2026-06-29 14:12 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/957884723.shtml)
+- 2026-06-29 14:16 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/118371291409.shtml)
+- 2026-06-29 13:56 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/8570574750.shtml)
+- 2026-06-29 13:51 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/995294356.shtml)
+- 2026-06-29 14:13 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/84935394728.shtml)
+- 2026-06-29 14:10 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/200553725892.shtml)
+- 2026-06-29 13:50 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/925740039.shtml)
+- 2026-06-29 13:53 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/50047663962.shtml)
+- 2026-06-29 14:07 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/29020.shtml)
+- 2026-06-29 13:54 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/075342149.shtml)
+- 2026-06-29 14:07 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/16474754.shtml)

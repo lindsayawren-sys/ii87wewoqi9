@@ -1,57 +1,57 @@
-# 又见银行参股银行！中信银行9.8亿元折价入局，新晋红塔银行第四大股东
+# 中国建材午后逆市涨逾7% 机构看好公司高性能电子布持续放量
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-界面新闻记者 | 安震 近日，昆明产业开发投资有限责任公司（以下简称“昆明产投”）发布公告，公司通过昆明联合产权交易有限公司出售持有的云南红塔银行股份有限公司（以下简称“云南红塔银行”）14.52%的全部股权。股权受让方为中信银行，成交价9.8亿元。 交易完成后，中信银行成为云南红塔银行第四大股东。这是今年5月监管核准厦门国际银行增持廊坊银行股权后，又一例同业持股案例。 9.8
+中国建材（03323）午后逆市上涨6.96%，现报5.38港元，成交额3.17亿港元。 据证券时报报道，2025年我国玻璃纤维行业整体运行较前两年已有所改善。国盛证券指出，截至3月30日至4月3日，各类电子纱/布价格再度上涨，G75纱新月报价涨幅500-1000元/吨不等，配套7628电子布价格上调0.5元/米，高端品种价格涨幅亦突出。当前供不应求局面推动下新价落实进程预计将加
 
 ## 正文
 
-界面新闻记者 | 安震 近日，昆明产业开发投资有限责任公司（以下简称“昆明产投”）发布公告，公司通过昆明联合产权交易有限公司出售持有的云南红塔银行股份有限公司（以下简称“云南红塔银行”）14.52%的全部股权。
+中国建材（03323）午后逆市上涨6.96%，现报5.38港元，成交额3.17亿港元。
 
-股权受让方为中信银行，成交价9.8亿元。
+据证券时报报道，2025年我国玻璃纤维行业整体运行较前两年已有所改善。
 
-交易完成后，中信银行成为云南红塔银行第四大股东。
+国盛证券指出，截至3月30日至4月3日，各类电子纱/布价格再度上涨，G75纱新月报价涨幅500-1000元/吨不等，配套7628电子布价格上调0.5元/米，高端品种价格涨幅亦突出。
 
-这是今年5月监管核准厦门国际银行增持廊坊银行股权后，又一例同业持股案例。
+当前供不应求局面推动下新价落实进程预计将加快。
 
-9.8亿拿下同业股权 界面新闻注意到，今年4月，昆明产投就挂出了云南红塔银行股权。
+下游CCL订单饱满，供应端产量增速依旧缓慢，库存低位延续，多数货源紧俏度暂难缓解。
 
-转让价格约10.21亿元，折合每股1.116元。
+华泰证券表示，中国建材2025全年新材料板块收入555.57亿元，同比+14.4%，营业利润62.58亿元，同比+11.8%。
 
-相较于红塔银行2025年末每股净资产2.21元折价约49.5%。
+分产品看，玻纤销量/均价分别同比+3.1%/+12.8%，实现量价齐升，普通及高性能电子布有望打开玻纤板块新成长空间。
 
-不过首次挂牌最终流拍，此次成交属于二次挂牌，最终降价4000万元后成交。
+该行认为，随着全球首个零碳智能制造玻纤基地建成，高性能电子布持续放量，预计26年公司新材料业务盈利能力有望持续改善。
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
-- 2026-06-29 13:49 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-29 14:04 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 14:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 13:47 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yingxin.md)
-- 2026-06-29 14:03 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-29 14:11 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-29 14:08 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 14:05 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:54 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 13:53 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 14:14 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:58 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-29 14:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 13:56 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
+- 2026-06-29 13:48 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 14:13 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-29 14:12 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 13:48 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 14:07 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 14:17 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 14:06 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [一生一世](https://www.share.kurohicncr.top/Article/details/094048661141.shtml)
-- 2026-06-29 14:10 - [专家建议城乡居民养老金增至每月千元](http://www.blog.kurohicncr.top/Article/details/2175136658.shtml)
-- 2026-06-29 13:49 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/60953.shtml)
-- 2026-06-29 14:05 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/9451905.shtml)
-- 2026-06-29 14:02 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/52523160462.shtml)
-- 2026-06-29 13:51 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/457188784656.shtml)
-- 2026-06-29 13:57 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/08960469.shtml)
-- 2026-06-29 13:59 - [亚洲成世界杯最大失意者联盟](https://www.blog.kurohicncr.top/Article/details/3417206.shtml)
-- 2026-06-29 13:57 - [媒体人：警惕日本再次成战争加害国](http://www.share.kurohicncr.top/Article/details/032149281.shtml)
-- 2026-06-29 14:06 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/777263434788.shtml)
-- 2026-06-29 14:10 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/6835542829.shtml)
-- 2026-06-29 13:54 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/051241991311.shtml)
-- 2026-06-29 14:07 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/55179971616.shtml)
-- 2026-06-29 13:45 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/908744377232.shtml)
-- 2026-06-29 13:58 - [双高胎](https://www.share.minike.top/Article/details/8377600.shtml)
+- 2026-06-29 13:52 - [白宇摘下白玉兰送给杨幂](https://www.blog.kurohicncr.top/Article/details/60746039755.shtml)
+- 2026-06-29 13:49 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/53248099974.shtml)
+- 2026-06-29 14:00 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/32538.shtml)
+- 2026-06-29 14:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/2460180.shtml)
+- 2026-06-29 14:08 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/81556509671.shtml)
+- 2026-06-29 14:09 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/073165.shtml)
+- 2026-06-29 13:58 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/128192031.shtml)
+- 2026-06-29 14:04 - [沙丘](http://www.blog.minike.top/Article/details/77988037.shtml)
+- 2026-06-29 13:55 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/247638620.shtml)
+- 2026-06-29 14:07 - [TOP 无畏契约](https://www.share.minike.top/Article/details/2647785.shtml)
+- 2026-06-29 13:51 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/8925185.shtml)
+- 2026-06-29 13:50 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/40339685.shtml)
+- 2026-06-29 14:08 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/843597373530.shtml)
+- 2026-06-29 14:15 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/355947985906.shtml)
+- 2026-06-29 14:00 - [《贺子珍》](https://www.blog.minike.top/Article/details/33090838824.shtml)

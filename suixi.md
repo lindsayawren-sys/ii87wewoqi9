@@ -1,59 +1,57 @@
-# 卫材与CaringKind携手推出新计划，应对阿尔茨海默病患者用餐与营养需求
+# 机构：布伦特原油飙升反映市场重定价更为持久的霍尔木兹海峡冲击
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-卫材今日宣布，与CaringKind合作推出一项新计划，将其Magnolia Meals at Home项目扩展至阿尔茨海默病及相关痴呆症群体，提供针对性的用餐和营养指导资源。 随着疾病进展，认知和身体功能的变化可能使患者难以自行获取和准备食物、维持食欲或独立进食，这些挑战会影响营养状况和整体健康。Magnolia Meals at Home for ADRD旨在帮助家庭将用餐
+专题：一季报期至 四大主线布局正当时 VanEck Associates Corp．表示，美国总统唐纳德·特朗普下令封锁霍尔木兹海峡后，布伦特原油价格的飙升表明，随着市场对美伊停火的疑虑加深，投资者正在越来越多地把更持久的油价冲击计入价格之中。 VanEck跨资产策略师Anna Wu表示，市场开始愈发相信，油价冲击不再只是短暂的扰动，而是一个中长期情景——油价可能“在更长时间内
 
 ## 正文
 
-卫材今日宣布，与CaringKind合作推出一项新计划，将其Magnolia Meals at Home项目扩展至阿尔茨海默病及相关痴呆症群体，提供针对性的用餐和营养指导资源。
+专题：一季报期至 四大主线布局正当时 VanEck Associates Corp．表示，美国总统唐纳德·特朗普下令封锁霍尔木兹海峡后，布伦特原油价格的飙升表明，随着市场对美伊停火的疑虑加深，投资者正在越来越多地把更持久的油价冲击计入价格之中。
 
-随着疾病进展，认知和身体功能的变化可能使患者难以自行获取和准备食物、维持食欲或独立进食，这些挑战会影响营养状况和整体健康。
+VanEck跨资产策略师Anna Wu表示，市场开始愈发相信，油价冲击不再只是短暂的扰动，而是一个中长期情景——油价可能“在更长时间内维持在更高水平”。
 
-Magnolia Meals at Home for ADRD旨在帮助家庭将用餐管理纳入日常护理，提供脑健康食谱、膳食计划和针对不同疾病阶段的营养考量。
+油价此番回升看起来更像是技术性反弹——此前在停火消息宣布当天，油价曾大跌17%。
 
-资源包括易于操作的脑健康食谱、针对不同认知健康阶段保持健康饮食习惯的指导、帮助患者在用餐时保持独立和愉悦的实用技巧，以及提升意识并帮助社区实践资源的本地活动。
+在这样的背景下，随着市场适应新的价格区间，股票的表现可能较为抗跌。
 
-CaringKind总裁兼首席执行官Eleonora Tornatore-Mikesh表示：“CaringKind近50年来一直陪伴在痴呆症患者及其照护伙伴身边。
+这种动态类似投资者此前应对关税风险的方式：先出现一次集中“重新定价”，随后在最坏情形被吸收后，风险因素逐渐淡出成为“背景噪音”。
 
-帮助塑造Magnolia Meals at Home for ADRD，让我们能够将一线经验转化为家庭可立即使用的资源。
-
-” 该计划基于日益增多的科学证据。
-
-为期多年的美国POINTER研究涉及超过2000名老年人，结果表明采取结构化生活方式改变包括改善营养，可能有助于有认知衰退风险的个体维持认知功能。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 13:53 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 14:05 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 13:55 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 13:56 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 14:05 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 14:05 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:44 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-29 13:54 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-29 13:55 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
-- 2026-06-29 14:12 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 13:54 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
-- 2026-06-29 13:48 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 14:03 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 14:03 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 14:11 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
+- 2026-06-29 14:14 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-29 14:02 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 14:00 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 14:13 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-29 14:08 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 14:15 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 14:11 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
+- 2026-06-29 13:48 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-29 14:14 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 14:00 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 14:03 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 14:00 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
+- 2026-06-29 14:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/21135845191.shtml)
-- 2026-06-29 14:07 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/983100931056.shtml)
-- 2026-06-29 13:59 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/694465.shtml)
-- 2026-06-29 13:54 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/76180260.shtml)
-- 2026-06-29 13:48 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.kurohicncr.top/Article/details/95753302229.shtml)
-- 2026-06-29 13:55 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/35556.shtml)
-- 2026-06-29 14:10 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/75250.shtml)
-- 2026-06-29 13:56 - [人民日报评“AI脸看腻了”](http://www.share.kurohicncr.top/Article/details/22710797735.shtml)
-- 2026-06-29 13:54 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/989927034.shtml)
-- 2026-06-29 13:52 - [恋与深空失控领地](http://www.share.minike.top/Article/details/3606754.shtml)
-- 2026-06-29 13:43 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/9573526.shtml)
-- 2026-06-29 14:03 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/111995607.shtml)
-- 2026-06-29 13:49 - [爱很美味](https://www.share.kurohicncr.top/Article/details/180116.shtml)
-- 2026-06-29 14:08 - [海清白玉兰奖运](http://www.blog.minike.top/Article/details/84889194694.shtml)
-- 2026-06-29 14:07 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/30642.shtml)
+- 2026-06-29 14:14 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/99471.shtml)
+- 2026-06-29 13:49 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/8555478888.shtml)
+- 2026-06-29 13:51 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/2740628606.shtml)
+- 2026-06-29 14:16 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/29224772.shtml)
+- 2026-06-29 14:01 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/024491.shtml)
+- 2026-06-29 14:03 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/067944581.shtml)
+- 2026-06-29 14:13 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/83179.shtml)
+- 2026-06-29 13:52 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/922709701915.shtml)
+- 2026-06-29 13:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/051044880993.shtml)
+- 2026-06-29 14:07 - [日本前锋言论激怒巴西](https://www.share.kurohicncr.top/Article/details/637628601.shtml)
+- 2026-06-29 13:56 - [吴海燕兰西雅漫步复兴岛](http://www.share.kurohicncr.top/Article/details/080095098.shtml)
+- 2026-06-29 13:56 - [NBA交易](https://www.blog.minike.top/Article/details/7935732840.shtml)
+- 2026-06-29 14:09 - [巴黎两家殡仪馆爆满](https://www.blog.minike.top/Article/details/585216865923.shtml)
+- 2026-06-29 14:06 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/185874546.shtml)
+- 2026-06-29 14:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/5799406.shtml)

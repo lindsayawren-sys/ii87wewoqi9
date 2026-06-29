@@ -1,58 +1,60 @@
-# Genco航运董事会全票否决戴安娜航运最新收购要约
+# 国际海事组织：任何国家都无权在国际海峡实施航行限制
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-内容速览 Genco航运董事会以企业估值被严重低估为由，全票否决戴安娜航运修改后的收购报价。 Genco航运（股票代码：GNK，涨幅 0.46%）董事会全票拒绝戴安娜航运（股票代码：DSX，涨幅 3.39%）新一轮修订版主动收购要约，称该报价仍大幅低估公司本身及其所持资产价值。 Genco航运周二公告表示，公司联合外部财务与法律顾问对收购方案开展全面评估后，董事会作出上述决议；
+当地时间13日，国际海事组织召开了新闻发布会。国际海事组织秘书长多明格斯表示，当前地缘政治冲突正对全球航运安全造成影响，根据国际法，任何国家都无权在国际海峡实施航行限制。 国际海事组织秘书长 多明格斯：目前，由于冲突带来的影响。船只通过霍尔木兹海峡航道并不安全，这正是通行受阻的原因。但从法律角度讲，根据国际法，任何国家都无权在国际航道上，禁止无害通过和阻碍航行自由。 多明格斯在
 
 ## 正文
 
-内容速览 Genco航运董事会以企业估值被严重低估为由，全票否决戴安娜航运修改后的收购报价。
+当地时间13日，国际海事组织召开了新闻发布会。
 
-Genco航运（股票代码：GNK，涨幅 0.46%）董事会全票拒绝戴安娜航运（股票代码：DSX，涨幅 3.39%）新一轮修订版主动收购要约，称该报价仍大幅低估公司本身及其所持资产价值。
+国际海事组织秘书长多明格斯表示，当前地缘政治冲突正对全球航运安全造成影响，根据国际法，任何国家都无权在国际海峡实施航行限制。
 
-Genco航运周二公告表示，公司联合外部财务与法律顾问对收购方案开展全面评估后，董事会作出上述决议；经研判，本次收购对价低于Genco的净资产价值，且未包含控制权溢价。
+国际海事组织秘书长 多明格斯：目前，由于冲突带来的影响。
 
-戴安娜航运上周披露，拟以每股 24.80 美元的价格收购Genco全部流通股份，较此前 23.50 美元的首轮报价有所上调。
+船只通过霍尔木兹海峡航道并不安全，这正是通行受阻的原因。
 
-戴安娜补充称，该收购价较其首次发收购邀约前一交易日（11 月 21 日）Genco收盘价溢价 39%。
+但从法律角度讲，根据国际法，任何国家都无权在国际航道上，禁止无害通过和阻碍航行自由。
 
-彼时戴安娜还指责，Genco始终不愿就并购事宜开展实质性磋商。
+多明格斯在发布会上回答了总台记者的提问。
 
-Genco于周二再度驳斥该说法，并表态：只有戴安娜出具能够足额匹配公司资产内在价值、保障股东收益的报价，公司才愿意重启谈判会面。
+总台记者 杨兢兢：国际海事组织一直是规则制定者和协调者。
 
-“自 2024 年 6 月起，我司首席执行官主动接洽戴安娜、探讨并购可能性，双方接洽已历时两年，” Genco表示，“合作洽谈期间，戴安娜一贯企图在未支付公允足额对价的前提下夺取公司控制权。
+面对当前形势，如何通过协调防止局势升级为海上冲突，国际规则目前是否还有效。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
-- 2026-06-29 13:45 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 13:45 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 13:45 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 13:48 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
-- 2026-06-29 14:11 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 13:44 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-29 13:52 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 13:55 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-29 13:54 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 13:42 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 13:45 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-29 13:54 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 13:57 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-29 14:13 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 13:59 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
+- 2026-06-29 14:12 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 13:50 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
+- 2026-06-29 14:01 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 14:15 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
+- 2026-06-29 14:02 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-29 14:10 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 14:05 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 14:03 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 14:13 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 14:12 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/230999.shtml)
-- 2026-06-29 14:10 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.kurohicncr.top/Article/details/886632206.shtml)
-- 2026-06-29 14:11 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/031949628495.shtml)
-- 2026-06-29 14:06 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/7842999491.shtml)
-- 2026-06-29 14:06 - [斛珠夫人](https://www.share.kurohicncr.top/Article/details/42233.shtml)
-- 2026-06-29 13:57 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/8969720521.shtml)
-- 2026-06-29 13:48 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/022483.shtml)
-- 2026-06-29 13:44 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/08729.shtml)
-- 2026-06-29 13:59 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/5843827012.shtml)
-- 2026-06-29 14:07 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/893014002753.shtml)
-- 2026-06-29 13:56 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/42154980151.shtml)
-- 2026-06-29 14:05 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/0661499.shtml)
-- 2026-06-29 13:50 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.kurohicncr.top/Article/details/153101581010.shtml)
-- 2026-06-29 14:03 - [向佑说向佐是一生依靠](https://www.share.kurohicncr.top/Article/details/0536261.shtml)
-- 2026-06-29 13:46 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.minike.top/Article/details/4935802729.shtml)
+- 2026-06-29 13:51 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/50979916.shtml)
+- 2026-06-29 14:01 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/760433780392.shtml)
+- 2026-06-29 13:59 - [流金岁月](http://www.share.minike.top/Article/details/51886971427.shtml)
+- 2026-06-29 13:51 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/825047986111.shtml)
+- 2026-06-29 13:59 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/17590523.shtml)
+- 2026-06-29 14:10 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/760407543568.shtml)
+- 2026-06-29 13:48 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/817083.shtml)
+- 2026-06-29 13:50 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/525448417361.shtml)
+- 2026-06-29 13:56 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/661211005709.shtml)
+- 2026-06-29 14:08 - [时光音乐会](http://www.share.minike.top/Article/details/72566378.shtml)
+- 2026-06-29 14:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/46722130082.shtml)
+- 2026-06-29 13:53 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/31346.shtml)
+- 2026-06-29 13:52 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/25734.shtml)
+- 2026-06-29 13:48 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/276291117.shtml)
+- 2026-06-29 13:49 - [撒旦的腋窝是什么比喻](https://www.blog.minike.top/Article/details/008243757.shtml)

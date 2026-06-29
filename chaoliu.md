@@ -1,61 +1,58 @@
-# 独家丨美团领投 A 轮， Mindverse 总融资 5000 万美元，打造持续学习的 Agent 模型
+# 广州边检总站推出22项服务举措护航第139届广交会
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：极客公园）构建持续学习的 Agent 模型。作者｜徐珊编辑｜郑玄Mindverse 完成由美团领投的 A 轮融资，元禾璞华、韶音、变量资本和老股东追加跟投，历史股东包括蚂蚁、源一、红杉中国、真格、高榕等一线基金，融资额近 5000 万美元，高鹄资本担任独家财务顾问。一个会持续学习的先进 Agent模
+中新网广州4月13日电 (方伟彬 史雪晴)广州出入境边防检查总站(下称“广州边检总站”)13日发布消息，该站围绕六大领域研究制定了22项精准服务保障措施，全力护航第139届中国进出口商品交易会(广交会)。 广州边检总站聚焦参展客商核心通关需求，全方位提升口岸通行效率。在白云机场、琶洲港、南沙港等口岸全面设置广交会专用通道，开足查验窗口，并为重要外宾提供礼遇便利。同时，支持琶洲、
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州4月13日电 (方伟彬 史雪晴)广州出入境边防检查总站(下称“广州边检总站”)13日发布消息，该站围绕六大领域研究制定了22项精准服务保障措施，全力护航第139届中国进出口商品交易会(广交会)。
 
-（来源：极客公园）构建持续学习的 Agent 模型。
+广州边检总站聚焦参展客商核心通关需求，全方位提升口岸通行效率。
 
-作者｜徐珊编辑｜郑玄Mindverse 完成由美团领投的 A 轮融资，元禾璞华、韶音、变量资本和老股东追加跟投，历史股东包括蚂蚁、源一、红杉中国、真格、高榕等一线基金，融资额近 5000 万美元，高鹄资本担任独家财务顾问。
+在白云机场、琶洲港、南沙港等口岸全面设置广交会专用通道，开足查验窗口，并为重要外宾提供礼遇便利。
 
-一个会持续学习的先进 Agent模型，到底该怎么构建？
+同时，支持琶洲、南沙等口岸临时增开往返香港的客班轮航次。
 
-在大模型智能上限一路被推高时，「持续学习」的最佳答案还是没有出现。
+在政策红利方面，该站在主要口岸设置外国人临时入境许可办理专区，实现“即来即办、一次办结”，并持续落实外国人入境卡网上填报。
 
-「真正的 Agent 能力并非来自精巧的提示词拼凑，而是源自后训练。
+在琶洲港设置的边检快捷通道信息采集点，可提供“一地备案、全国共享”服务。
 
-」Mindverse (心洲科技) 是少数把赌注押在模型「内部」的一家创企，它在通用大模型的基础上，用强化学习让它从复杂、多步骤的真实任务中学会如何把事做成，让模型从「知道很多」变为「能办好事」。
+咨询服务同步升级。
 
-而实现持续进化的关键在于 LoRA 技术，它就像给一个强大的共享大脑挂上无数轻量的「技能包」，每个技能包只占极小参数，却能独立更新、彼此隔离，让模型以极低成本不断积累属于特定用户或场景的记忆与能力，而不是每次从头重训。
+广州边检总站组建了多语种口岸服务分队，提供现场翻译与引导；开通12367服务平台“广交会专线”，提供7×24小时多语种咨询；并在广交会现场设置线下展位，为中外客商提供面对面服务。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 14:04 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 14:08 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 14:10 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
-- 2026-06-29 14:07 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 14:07 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-29 13:56 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 13:43 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 14:06 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-29 13:49 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-29 13:50 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 14:00 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-29 13:58 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pavvb.md)
-- 2026-06-29 13:45 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 14:02 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
+- 2026-06-29 13:56 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-29 14:00 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 14:11 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 14:00 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 13:48 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
+- 2026-06-29 13:56 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
+- 2026-06-29 14:00 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 13:58 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 14:11 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gcrsr.md)
+- 2026-06-29 14:09 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 14:03 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 13:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/3976075.shtml)
-- 2026-06-29 13:47 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/2381345756.shtml)
-- 2026-06-29 13:49 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/2497359989.shtml)
-- 2026-06-29 14:08 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/34035.shtml)
-- 2026-06-29 13:59 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.minike.top/Article/details/3252455348.shtml)
-- 2026-06-29 13:42 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.minike.top/Article/details/36897.shtml)
-- 2026-06-29 14:05 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/2612180881.shtml)
-- 2026-06-29 14:05 - [三系杂交稻到底有多牛](http://www.share.minike.top/Article/details/098062.shtml)
-- 2026-06-29 13:53 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/15047952.shtml)
-- 2026-06-29 14:03 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/174230013.shtml)
-- 2026-06-29 13:54 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/7618497107.shtml)
-- 2026-06-29 13:48 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/0723514978.shtml)
-- 2026-06-29 14:06 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/9564158.shtml)
-- 2026-06-29 13:50 - [王祖蓝现场观看美加墨世界杯](https://www.share.kurohicncr.top/Article/details/211993925069.shtml)
-- 2026-06-29 14:00 - [韩国队启程回国众将回避镜头](http://www.blog.minike.top/Article/details/254646643.shtml)
+- 2026-06-29 14:00 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/1199636199.shtml)
+- 2026-06-29 14:03 - [美人鱼](http://www.blog.minike.top/Article/details/432565.shtml)
+- 2026-06-29 14:15 - [广州一高校通报网传禁止小米汽车入校](http://www.share.kurohicncr.top/Article/details/236565731.shtml)
+- 2026-06-29 14:01 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/28315297.shtml)
+- 2026-06-29 13:57 - [金刚川](http://www.blog.minike.top/Article/details/24235356283.shtml)
+- 2026-06-29 14:05 - [大 周 礼 时 代(4)](https://www.blog.kurohicncr.top/Article/details/02059713407.shtml)
+- 2026-06-29 14:08 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/71920255658.shtml)
+- 2026-06-29 14:07 - [【独家】牧神记 第89集 明心](https://www.blog.kurohicncr.top/Article/details/840887307.shtml)
+- 2026-06-29 13:57 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/396580391789.shtml)
+- 2026-06-29 14:05 - [A股限售股解禁一览](http://www.share.kurohicncr.top/Article/details/3096158.shtml)
+- 2026-06-29 14:02 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/18047808811.shtml)
+- 2026-06-29 14:10 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.minike.top/Article/details/75319634.shtml)
+- 2026-06-29 14:07 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/6710698.shtml)
+- 2026-06-29 14:06 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/59886.shtml)
+- 2026-06-29 14:08 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/24874.shtml)

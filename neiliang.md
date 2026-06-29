@@ -1,51 +1,61 @@
-# 上海仁达普惠金融发展研究基金会理事长徐敬惠：普惠保险有望进入更成熟发展阶段
+# 马斯克再次指责南非当局阻挠星链获得运营许可
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-上证报中国证券网讯（记者 何奎） 6月1日，上海仁达普惠金融发展研究基金会理事长徐敬惠在中国普惠保险国际研讨会上表示，当前，普惠保险呈现出覆盖范围由局部补缺向全域兜底延伸、产品供给由同质化向精准适配转变、服务模式由线下为主向数字化融合升级、发展机制由单方推动向多方协同转变等特征，在服务民生保障和完善多层次风险保障体系方面发挥着更加重要的作用。 徐敬惠认为，随着数字技术深化应用和
+专题：一季报期至 四大主线布局正当时 SpaceX首席执行官埃隆·马斯克周末再次指责南非政府阻挠其卫星互联网服务“星链”（Starlink）获得运营许可证，理由是他不是黑人，尽管他出生在南非。 马斯克在X网站上发帖称，南非“不允许星链项目获得许可”，并将此举与种族歧视联系起来。他还声称，有人多次提出，“让我们假装星链南非公司是由黑人运营，以此换取许可证，但我出于原则拒绝了。”
 
 ## 正文
 
-上证报中国证券网讯（记者 何奎） 6月1日，上海仁达普惠金融发展研究基金会理事长徐敬惠在中国普惠保险国际研讨会上表示，当前，普惠保险呈现出覆盖范围由局部补缺向全域兜底延伸、产品供给由同质化向精准适配转变、服务模式由线下为主向数字化融合升级、发展机制由单方推动向多方协同转变等特征，在服务民生保障和完善多层次风险保障体系方面发挥着更加重要的作用。
+专题：一季报期至 四大主线布局正当时 SpaceX首席执行官埃隆·马斯克周末再次指责南非政府阻挠其卫星互联网服务“星链”（Starlink）获得运营许可证，理由是他不是黑人，尽管他出生在南非。
 
-徐敬惠认为，随着数字技术深化应用和制度体系不断完善，普惠保险有望进入更加成熟的发展阶段，实现保障体系深度融合、产品供给精准细分、服务运营智能高效和全民普惠共享常态化。
+马斯克在X网站上发帖称，南非“不允许星链项目获得许可”，并将此举与种族歧视联系起来。
 
-徐敬惠表示，展望未来，普惠保险将更加注重可持续发展能力建设，从相对独立发展向融合发展转变，通过与普惠金融、绿色金融、科技金融、多层次社会保障体系以及保险主流业务深度协同，不断拓展服务场景和发展空间，推动形成具有中国特色的普惠保险发展新格局。
+他还声称，有人多次提出，“让我们假装星链南非公司是由黑人运营，以此换取许可证，但我出于原则拒绝了。
 
-责任编辑：曹睿潼
+” 马斯克将这场争议定性为原则问题，认为无论针对哪个群体，都不应鼓励歧视。
+
+他还抨击了南非政客，呼吁民众抵制他所称的种族主义官员。
+
+这一指控之所以引人注目，是因为星链已成为许多市场备受瞩目的连接方案，而马斯克的言论表明，南非的情况是个例外，他认为这是政治因素而非技术或市场需求造成的。
+
+考虑到马斯克本人曾强调他与南非有着个人联系（他的出生地就在南非），这种反差就显得更加尖锐。
+
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
-- 2026-06-29 14:05 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 13:57 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 13:53 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 13:43 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 13:51 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenguan.md)
-- 2026-06-29 13:59 - [TOP 无畏契约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 14:11 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 13:46 - [NBA交易](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 13:44 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 13:51 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 13:53 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
-- 2026-06-29 13:58 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 14:17 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:56 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 14:00 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 14:00 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 13:49 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
+- 2026-06-29 13:57 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 14:02 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 14:07 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-29 14:03 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-29 14:02 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 14:10 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-29 13:50 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-29 14:07 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 14:10 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 14:01 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [韩国队启程回国 全员羞愧低头](http://www.blog.minike.top/Article/details/09716510.shtml)
-- 2026-06-29 14:08 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/7703288.shtml)
-- 2026-06-29 13:55 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/60353.shtml)
-- 2026-06-29 14:02 - [自然资源部派专家赴宜宾地震影响区](http://www.share.kurohicncr.top/Article/details/594518.shtml)
-- 2026-06-29 14:01 - [美的空调 卡bug](http://www.share.minike.top/Article/details/0173370.shtml)
-- 2026-06-29 13:52 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/753881103212.shtml)
-- 2026-06-29 14:04 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/4789589.shtml)
-- 2026-06-29 13:42 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/016251.shtml)
-- 2026-06-29 14:09 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/0869281.shtml)
-- 2026-06-29 13:51 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/554495670.shtml)
-- 2026-06-29 14:07 - [民进党为什么拼命抹黑统战](https://www.share.minike.top/Article/details/79960626098.shtml)
-- 2026-06-29 13:52 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/908238957.shtml)
-- 2026-06-29 14:07 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/251644.shtml)
-- 2026-06-29 13:48 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/70224.shtml)
-- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/419615.shtml)
+- 2026-06-29 14:07 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/76413877615.shtml)
+- 2026-06-29 14:10 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/851942119.shtml)
+- 2026-06-29 14:15 - [双高胎](https://www.blog.minike.top/Article/details/0609535.shtml)
+- 2026-06-29 14:12 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/0298554.shtml)
+- 2026-06-29 14:15 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/9992771.shtml)
+- 2026-06-29 14:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/972509708.shtml)
+- 2026-06-29 13:48 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/7348051.shtml)
+- 2026-06-29 14:04 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/81091.shtml)
+- 2026-06-29 14:14 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/6373575300.shtml)
+- 2026-06-29 14:04 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/1074722914.shtml)
+- 2026-06-29 13:54 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/55321.shtml)
+- 2026-06-29 13:48 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/9720606833.shtml)
+- 2026-06-29 14:15 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/241428952.shtml)
+- 2026-06-29 13:50 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/30850760363.shtml)
+- 2026-06-29 13:57 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/53450556088.shtml)

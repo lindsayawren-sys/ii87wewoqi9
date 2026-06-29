@@ -1,53 +1,59 @@
-# 郑丽文在美国访问，外交部回应
+# 一季度我国社会融资规模增量近15万亿元 信贷支持实体经济质效持续提升
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-6月2日，外交部发言人毛宁主持例行记者会。 日本电视台记者提问，中国国民党主席郑丽文正在美国访问，她表示愿意与美国总统特朗普会面。外交部对此有何评论？ 对此，毛宁表示：“关于中国台湾地区对外交往问题，应当按照一个中国原则处理。” 来源：北京日报客户端 记者：李治宏责任编辑：刘万里 SF014
+本报北京4月13日电 （记者吴秋余）中国人民银行13日发布的金融统计数据报告显示：一季度，我国社会融资规模增量累计为14.83万亿元，处于历史同期较高水平。截至3月末，我国广义货币（M2）余额353.86万亿元，同比增长8.5%，比上年同期高1.5个百分点；社会融资规模存量456.46万亿元，同比增长7.9%，同经济增长、价格总水平预期目标相匹配。M2和社会融资规模增速均保持在
 
 ## 正文
 
-6月2日，外交部发言人毛宁主持例行记者会。
+本报北京4月13日电 （记者吴秋余）中国人民银行13日发布的金融统计数据报告显示：一季度，我国社会融资规模增量累计为14.83万亿元，处于历史同期较高水平。
 
-日本电视台记者提问，中国国民党主席郑丽文正在美国访问，她表示愿意与美国总统特朗普会面。
+截至3月末，我国广义货币（M2）余额353.86万亿元，同比增长8.5%，比上年同期高1.5个百分点；社会融资规模存量456.46万亿元，同比增长7.9%，同经济增长、价格总水平预期目标相匹配。
 
-外交部对此有何评论？
+M2和社会融资规模增速均保持在合理水平，为经济持续向好向优创造适宜的货币金融环境。
 
-对此，毛宁表示：“关于中国台湾地区对外交往问题，应当按照一个中国原则处理。
+数据显示，一季度我国贷款规模保持合理增长，信贷结构持续优化。
 
-” 来源：北京日报客户端 记者：李治宏责任编辑：刘万里 SF014
+一季度人民币贷款增加8.6万亿元，截至3月末，人民币各项贷款余额280.51万亿元，同比增长5.7%。
+
+从结构上看，普惠小微贷款余额为38.38万亿元，同比增长10.3%，不含房地产业的服务业中长期贷款余额为61.39万亿元，同比增长9.9%，以上贷款增速均高于同期各项贷款增速。
+
+与此同时，贷款利率保持在历史低位水平。
+
+3月份企业新发放贷款（本外币）加权平均利率约为3.1%，比上年同期低约25个基点；个人住房新发放贷款（本外币）加权平均利率约为3.1%，比上年同期低约6个基点。
 
 ## 相关推荐
 
-- 2026-06-29 13:47 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 13:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 13:54 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 14:01 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
-- 2026-06-29 14:06 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 14:03 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 13:54 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 13:47 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 13:42 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 13:50 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 14:01 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-29 13:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 14:09 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 13:56 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 14:04 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
+- 2026-06-29 13:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 13:54 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 13:53 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
+- 2026-06-29 13:59 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 13:57 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 13:53 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 14:17 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-29 13:59 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 13:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
+- 2026-06-29 13:48 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ultpz.md)
+- 2026-06-29 13:55 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/00821.shtml)
-- 2026-06-29 13:50 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/456310.shtml)
-- 2026-06-29 13:46 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/84060420257.shtml)
-- 2026-06-29 13:48 - [伊朗球员致歉](http://www.share.kurohicncr.top/Article/details/9642155.shtml)
-- 2026-06-29 13:45 - [张真源解读相思锁](http://www.blog.kurohicncr.top/Article/details/393482.shtml)
-- 2026-06-29 14:03 - [T1 vs KC MSI](https://www.share.minike.top/Article/details/807199561928.shtml)
-- 2026-06-29 13:47 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/810846473.shtml)
-- 2026-06-29 13:58 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/929762879872.shtml)
-- 2026-06-29 13:51 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/999218.shtml)
-- 2026-06-29 14:01 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/264496400.shtml)
-- 2026-06-29 13:43 - [杨紫 你幸福的话我会比你先流泪](https://www.share.minike.top/Article/details/46805.shtml)
-- 2026-06-29 13:48 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/8429003878.shtml)
-- 2026-06-29 13:54 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/6641058.shtml)
-- 2026-06-29 13:52 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/633013.shtml)
-- 2026-06-29 13:48 - [灿如繁星定档](https://www.share.minike.top/Article/details/09563572.shtml)
+- 2026-06-29 13:59 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/63322.shtml)
+- 2026-06-29 13:49 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/729202930170.shtml)
+- 2026-06-29 14:15 - [三都主：淘汰赛我会支持日本](http://www.blog.minike.top/Article/details/6721755639.shtml)
+- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/0612494.shtml)
+- 2026-06-29 14:05 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/7369058553.shtml)
+- 2026-06-29 14:08 - [为什么6月以来北方频繁降雨](https://www.share.minike.top/Article/details/9182428253.shtml)
+- 2026-06-29 14:13 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/438412531869.shtml)
+- 2026-06-29 14:08 - [俄军新型无人机战力如何](http://www.share.minike.top/Article/details/3254282.shtml)
+- 2026-06-29 14:07 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/938819833.shtml)
+- 2026-06-29 14:12 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/3315489438.shtml)
+- 2026-06-29 14:16 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/00739.shtml)
+- 2026-06-29 14:05 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/932488327058.shtml)
+- 2026-06-29 14:17 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/2859455918.shtml)
+- 2026-06-29 13:51 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/3728638570.shtml)
+- 2026-06-29 13:49 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/50306354299.shtml)

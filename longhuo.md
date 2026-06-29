@@ -1,61 +1,56 @@
-# 我国牵头制定的安全协议测试国际标准发布
+# 外籍记者探访“中国白茶之乡”福鼎：在这里，我看到传统与现代的完美融合
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-记者今天从国家标准委了解到国际标准《信息技术 安全服务密码套件一致性测试方法 第16部分：ECDSA-ECDH密码套件》发布。该标准由我国牵头主导制定，拥有完全自主知识产权，是我国信息安全服务领域的重要创新成果，为国际密码套件合规应用、安全测评提供了统一技术规范。射频识别(RFID)技术和自动识别与数据采集(AIDC)技术是物联网的底层支撑，是实现万物互联数据采集、设备识别、智
+中新网宁德4月12日电 (记者 吕巧琴 叶茂)“在这里，我看到传统与现代的完美融合，这就是‘福鼎白茶’走向世界的底气。”中阿卫视主持人阿思玛(Asmaa)12日在福建省宁德福鼎市如是说。 由中新社海外中心和中阿卫视联合打造的《文化中国》系列纪录片，以外籍驻华记者视角，向阿拉伯世界讲述中华优秀传统文化与现代中国发展的故事。当天，该系列2026年开篇之作《文化中国·宁德》摄制组走进
 
 ## 正文
 
-记者今天从国家标准委了解到国际标准《信息技术 安全服务密码套件一致性测试方法 第16部分：ECDSA-ECDH密码套件》发布。
+中新网宁德4月12日电 (记者 吕巧琴 叶茂)“在这里，我看到传统与现代的完美融合，这就是‘福鼎白茶’走向世界的底气。
 
-该标准由我国牵头主导制定，拥有完全自主知识产权，是我国信息安全服务领域的重要创新成果，为国际密码套件合规应用、安全测评提供了统一技术规范。
+”中阿卫视主持人阿思玛(Asmaa)12日在福建省宁德福鼎市如是说。
 
-射频识别(RFID)技术和自动识别与数据采集(AIDC)技术是物联网的底层支撑，是实现万物互联数据采集、设备识别、智能交互的关键基础。
+由中新社海外中心和中阿卫视联合打造的《文化中国》系列纪录片，以外籍驻华记者视角，向阿拉伯世界讲述中华优秀传统文化与现代中国发展的故事。
 
-这些技术广泛应用于智能制造、智慧物流、医疗健康、电子支付等重要领域。
+当天，该系列2026年开篇之作《文化中国·宁德》摄制组走进“中国白茶之乡”福鼎市，开启探寻福鼎白茶制作技艺与现代科技深度融合的奇妙之旅。
 
-随着物联网规模化普及，设备身份伪造、数据窃听、信息篡改等安全风险显著增多。
+节目将于5月播出。
 
-该标准聚焦安全协议一致性与符合性测试，统一了测试方法、技术要求与判定依据，可精准核验物联网产品安全防护性能，有效规范全球行业测试评估秩序。
+作为中国六大传统茶类之一，白茶始于唐宋，盛于明清，因成茶芽头肥壮、满披白毫、如银似雪而得名。
 
-该标准的发布补齐了全球物联网密码测试的标准短板，有效破解测试标准不一、合规无序等突出问题。
+福鼎白茶已有1400多年历史，福鼎市素有“世界白茶在中国，中国白茶在福鼎”之美誉，是中国白茶发源地、中国白茶核心产区和出口基地。
 
-同时彰显了我国密码安全领域的技术实力与国际引领优势，提升了我国在全球数字安全治理领域的标准话语权，为守护数字经济安全发展、赋能网络强国建设提供了国际标准支撑。
+在位于磻溪镇的大沁白茶·十三坪知青茶园内，阿思玛在茶农的指导下，以拇指和食指捏住嫩芽根部，轻轻一提，一片带着白毫的鲜叶落入掌心。
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 14:10 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 13:55 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 14:08 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 14:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 13:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 13:48 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-29 13:57 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 13:45 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-29 13:50 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 13:58 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-29 14:09 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 13:50 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
-- 2026-06-29 14:11 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 13:47 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-29 13:48 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 14:14 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 13:56 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
+- 2026-06-29 14:15 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 14:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 13:53 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
+- 2026-06-29 14:07 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 13:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 14:07 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-29 14:00 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/3045932056.shtml)
-- 2026-06-29 13:54 - [外网预言中国举办世界杯时间](http://www.blog.kurohicncr.top/Article/details/556517.shtml)
-- 2026-06-29 13:57 - [金牌调解](http://www.share.minike.top/Article/details/8122921691.shtml)
-- 2026-06-29 14:08 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/18907.shtml)
-- 2026-06-29 13:51 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/84072467.shtml)
-- 2026-06-29 14:01 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/4957924.shtml)
-- 2026-06-29 14:07 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/26009784.shtml)
-- 2026-06-29 14:09 - [我国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/78989.shtml)
-- 2026-06-29 13:58 - [和阿根廷球员家属一起看球](https://www.blog.kurohicncr.top/Article/details/134755.shtml)
-- 2026-06-29 14:02 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/8778524176.shtml)
-- 2026-06-29 13:42 - [扬名立万](http://www.blog.minike.top/Article/details/6673209378.shtml)
-- 2026-06-29 13:46 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/52677.shtml)
-- 2026-06-29 13:45 - [2025年人口增长10强城市出炉](http://www.blog.minike.top/Article/details/21640.shtml)
-- 2026-06-29 14:03 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/52811.shtml)
-- 2026-06-29 13:44 - [曝歌手第七期帮唱阵容](https://www.blog.minike.top/Article/details/1417211344.shtml)
+- 2026-06-29 13:58 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/0749766.shtml)
+- 2026-06-29 13:49 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/47780037309.shtml)
+- 2026-06-29 13:55 - [空调两年没洗 男子吹了三天双肺全白](http://www.share.kurohicncr.top/Article/details/3949140.shtml)
+- 2026-06-29 13:50 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/32310529.shtml)
+- 2026-06-29 14:02 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/30749284.shtml)
+- 2026-06-29 14:04 - [爱很美味](https://www.share.minike.top/Article/details/148943840222.shtml)
+- 2026-06-29 14:17 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/511656388.shtml)
+- 2026-06-29 13:52 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/35447706.shtml)
+- 2026-06-29 13:59 - [扬名立万](http://www.blog.minike.top/Article/details/8730934.shtml)
+- 2026-06-29 13:56 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/57546075153.shtml)
+- 2026-06-29 14:07 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/2939815.shtml)
+- 2026-06-29 13:51 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/5281626.shtml)
+- 2026-06-29 13:48 - [曾沛慈夺冠后人气](http://www.blog.minike.top/Article/details/649734321.shtml)
+- 2026-06-29 13:48 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/65259878418.shtml)
+- 2026-06-29 14:17 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/746206278626.shtml)

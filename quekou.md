@@ -1,60 +1,59 @@
-# 民营银行，排队“入编”
+# 第六届消博会启幕 超3400个中外品牌参展
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-来源：柒财经 从“破冰”到“扩容”，从“试验田”到“生力军”，在发展了十二个年头后，民营银行迎来变局。 4月下旬，东北地区首家民营银行——亿联银行股权变动的消息引发市场关注。据公开资料，亿联银行引入国资入股的事宜已被多方确定，吉林省金融控股集团股份有限公司（下称“吉林金控”）很可能成为新的“话事人”。 这意味着，亿联银行将正式告别纯民营血统，转向国资主导。 亿联银行的“身份之变
+中新社海口4月13日电 (记者 王子谦)第六届中国国际消费品博览会(简称“消博会”)13日在海口启幕，本届消博会有60多个国家和地区的超过3400个品牌参展，国际展品占比65%，较上届提升20个百分点。 第六届消博会是“十五五”开局之年中国重大展会的“首展”，也是海南自贸港全岛封关运作以后的“首秀”。本届消博会以“开放引领全球消费，创新驱动美好生活”为主题，展览面积达14.3万
 
 ## 正文
 
-来源：柒财经 从“破冰”到“扩容”，从“试验田”到“生力军”，在发展了十二个年头后，民营银行迎来变局。
+中新社海口4月13日电 (记者 王子谦)第六届中国国际消费品博览会(简称“消博会”)13日在海口启幕，本届消博会有60多个国家和地区的超过3400个品牌参展，国际展品占比65%，较上届提升20个百分点。
 
-4月下旬，东北地区首家民营银行——亿联银行股权变动的消息引发市场关注。
+第六届消博会是“十五五”开局之年中国重大展会的“首展”，也是海南自贸港全岛封关运作以后的“首秀”。
 
-据公开资料，亿联银行引入国资入股的事宜已被多方确定，吉林省金融控股集团股份有限公司（下称“吉林金控”）很可能成为新的“话事人”。
+本届消博会以“开放引领全球消费，创新驱动美好生活”为主题，展览面积达14.3万平方米。
 
-这意味着，亿联银行将正式告别纯民营血统，转向国资主导。
+展会围绕“新、奇、特、酷”消费精品主题，集中呈现绿色、健康、数字、智能等新型消费领域的精品新品。
 
-亿联银行的“身份之变”并非孤例。
+第六届消博会主会场设置科技消费、时尚潮流、健康消费、全球特色消费、免税与高端精品、国货精品和国潮出海等七大展区。
 
-自2024年下半年起，从江西到安徽，从江苏到吉林，民营银行正在经历一场深刻的顶层变革。
+此外，还在三亚设置国际游艇分展区，在博鳌乐城国际医疗旅游先行区设置国际健康消费分展区。
 
-01 民营银行排队“入编” 天眼查显示，目前已有至少4家民营银行发生重大股权变更，地方国资以“接盘者”和“控股者”的身份密集入场。
+作为亚太地区规模最大的消费精品展，本届消博会有爱尔兰、瑞士、韩国、意大利等22个国家和地区的消费精品馆亮相，参展国家和地区展团数量创新高。
 
-1、江西裕民银行 2024年8月，金融监管总局批复同意南昌金融控股有限公司受让正邦集团有限公司持有的江西裕民银行30%股份。
+加拿大为本届消博会主宾国，组织约40家企业、以历届最大规模代表团亮相。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-29 13:51 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcbwm.md)
-- 2026-06-29 13:45 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 13:49 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 13:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 14:06 - [詹俊预测德国大胜巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 13:57 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 13:54 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
-- 2026-06-29 13:45 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-29 13:49 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 13:45 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-29 13:58 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 13:58 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 14:09 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
+- 2026-06-29 13:52 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-29 14:16 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-29 13:55 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:55 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-29 14:12 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 14:05 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huntan.md)
+- 2026-06-29 14:03 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 13:50 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-29 14:12 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 14:12 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
+- 2026-06-29 13:54 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-29 13:55 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/598965480718.shtml)
-- 2026-06-29 13:56 - [高考志愿今起开始填报](https://www.share.minike.top/Article/details/12423458655.shtml)
-- 2026-06-29 13:56 - [加拿大92分钟绝杀](http://www.blog.minike.top/Article/details/56509777.shtml)
-- 2026-06-29 14:07 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/380699674.shtml)
-- 2026-06-29 13:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/539735.shtml)
-- 2026-06-29 13:57 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/48912733.shtml)
-- 2026-06-29 14:02 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/5984140.shtml)
-- 2026-06-29 14:03 - [李连杰回应网传不管前妻俩女儿](http://www.share.minike.top/Article/details/397702130328.shtml)
-- 2026-06-29 13:56 - [毒液2](https://www.share.kurohicncr.top/Article/details/6272664.shtml)
-- 2026-06-29 13:44 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/2774354313.shtml)
-- 2026-06-29 14:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/45289389.shtml)
-- 2026-06-29 14:06 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/70984239764.shtml)
-- 2026-06-29 14:00 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/4359843.shtml)
-- 2026-06-29 13:46 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/4437067.shtml)
-- 2026-06-29 13:55 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/221450427.shtml)
+- 2026-06-29 14:09 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/75320300.shtml)
+- 2026-06-29 14:17 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/923318.shtml)
+- 2026-06-29 14:13 - [【独家】牧神记 第89集 明心](https://www.share.kurohicncr.top/Article/details/7519166925.shtml)
+- 2026-06-29 13:54 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/721327317.shtml)
+- 2026-06-29 13:52 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/447529695604.shtml)
+- 2026-06-29 14:16 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/204949.shtml)
+- 2026-06-29 14:04 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/0330824.shtml)
+- 2026-06-29 14:17 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/214111.shtml)
+- 2026-06-29 14:09 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/32131527.shtml)
+- 2026-06-29 14:05 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/43866240741.shtml)
+- 2026-06-29 13:55 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/105058123.shtml)
+- 2026-06-29 13:52 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/2498003459.shtml)
+- 2026-06-29 14:10 - [哈兰德之歌火到国外](http://www.blog.kurohicncr.top/Article/details/7713105.shtml)
+- 2026-06-29 13:59 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/44499.shtml)
+- 2026-06-29 13:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/313383.shtml)

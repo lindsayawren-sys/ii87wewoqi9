@@ -1,56 +1,56 @@
-# 浙江嘉兴“红船小讲解”：童声话党史 薪火代代传
+# 环北部湾广东水资源配置工程累计投资达200亿元
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网嘉兴6月2日电 题：浙江嘉兴“红船小讲解”：童声话党史 薪火代代传 作者 邵燕飞 傅飞扬 黄彦君 “序厅是一个两层楼的圆形展厅，最吸引眼球的便是正中间全铜铸造的大型红船，从历史画卷中冲出，让人眼前一亮……”日前，在浙江嘉兴南湖革命纪念馆，少先队红领巾讲解员严嘉成的声音穿过人群，吸引了众多游客的目光。 作为整个纪念馆的开场讲解，严嘉成深知自己肩上的分量。“我们讲述的不只是一
+中新网茂名4月14日电 (记者 程景伟)环北部湾广东水资源配置工程(以下简称：环北广东工程)年度建设大会近日在广东高州举行。据悉，环北广东工程投资额累计已达200亿元，占总投资额近三成，上万名施工人员奋战在沿线，工程建设全面提速。 由粤海控股集团投资建设的国家重大水利工程环北广东工程，总长490公里，从西江干流云浮段引水至雷州半岛，供水范围包括粤西地区的云浮、阳江、茂名、湛江4
 
 ## 正文
 
-中新网嘉兴6月2日电 题：浙江嘉兴“红船小讲解”：童声话党史 薪火代代传 作者 邵燕飞 傅飞扬 黄彦君 “序厅是一个两层楼的圆形展厅，最吸引眼球的便是正中间全铜铸造的大型红船，从历史画卷中冲出，让人眼前一亮……”日前，在浙江嘉兴南湖革命纪念馆，少先队红领巾讲解员严嘉成的声音穿过人群，吸引了众多游客的目光。
+中新网茂名4月14日电 (记者 程景伟)环北部湾广东水资源配置工程(以下简称：环北广东工程)年度建设大会近日在广东高州举行。
 
-作为整个纪念馆的开场讲解，严嘉成深知自己肩上的分量。
+据悉，环北广东工程投资额累计已达200亿元，占总投资额近三成，上万名施工人员奋战在沿线，工程建设全面提速。
 
-“我们讲述的不只是一段历史，更是一份初心。
+由粤海控股集团投资建设的国家重大水利工程环北广东工程，总长490公里，从西江干流云浮段引水至雷州半岛，供水范围包括粤西地区的云浮、阳江、茂名、湛江4市，总投资614.5亿元，总工期8年，计划2031年全线通水。
 
-”他接受中新网采访时说。
+日前，工程施工C1标3#检修阀施工现场灯火通明、车流不息，现场正在进行混凝土浇筑，高峰时投入了30多台吊车、300多名作业人员。
 
-2013年，第一期“红船小讲解”夏令营活动成功举办，让成长在红船旁的少年成为红船故事的讲述者。
+在工程施工A1标地心泵站工区，机器轰鸣、车辆穿梭。
 
-目前，“红船小讲解”已有570多名嘉兴市级核心队员，累计讲解2800多次，服务听众超34万人次，成为当地红色旅游的一道亮丽风景。
+该工区正在全面推进基坑开挖与主体结构施工，深基坑开挖与土石方转运24小时连续作业，爆破钻孔同步进行，日前顺利完成首仓基础回填混凝土浇筑。
 
-南湖革命纪念馆少先队红领巾讲解员高晴萱表示，2024年加入团队以来，她不定期参加讲解活动，有时一天就要给两批到三批游客讲述红船故事。
+据介绍，截至目前，工程累计完成隧洞掘进170多公里，管线施工190多公里；全线24台盾构/TBM已始发23台，全长63公里的云开山隧洞掘进稳步推进，湛江分干线4段盾构区间先后贯通，全线5座泵站正全面加速建设。
 
-为了帮助“红船小讲解”迅速成长，南湖革命纪念馆建立了一套从招募、选拔、培训到考核、上岗的完整体系。
+该工程广泛应用智慧建管系统、管道智能安装台车、防腐机器人等新技术、新装备，在大幅提升施工效率的同时，也有效保障了工程安全质量。
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 13:45 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 14:10 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-29 13:42 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 14:11 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 14:11 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
-- 2026-06-29 13:48 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 14:05 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
-- 2026-06-29 13:53 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 13:58 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
+- 2026-06-29 14:14 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 13:49 - [NBA交易](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 13:58 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 13:57 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 14:13 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 13:48 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 14:04 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 13:50 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 13:52 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
+- 2026-06-29 14:15 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:49 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.kurohicncr.top/Article/details/9870638.shtml)
-- 2026-06-29 14:12 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/916272298188.shtml)
-- 2026-06-29 13:58 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/3119449140.shtml)
-- 2026-06-29 14:12 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/285413.shtml)
-- 2026-06-29 13:53 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/3160916906.shtml)
-- 2026-06-29 14:10 - [王楚钦 表演球擦网](https://www.blog.minike.top/Article/details/63981.shtml)
-- 2026-06-29 13:45 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/62468.shtml)
-- 2026-06-29 13:42 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/56875.shtml)
-- 2026-06-29 13:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/23830.shtml)
-- 2026-06-29 13:57 - [《贺子珍》](http://www.share.minike.top/Article/details/0854433711.shtml)
-- 2026-06-29 14:02 - [急先锋](http://www.blog.minike.top/Article/details/6971311070.shtml)
-- 2026-06-29 13:56 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/218478.shtml)
-- 2026-06-29 14:05 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/887510.shtml)
-- 2026-06-29 14:05 - [吴建豪宣布再婚](https://www.blog.minike.top/Article/details/19559.shtml)
-- 2026-06-29 13:45 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/06845658683.shtml)
+- 2026-06-29 14:02 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.kurohicncr.top/Article/details/072066.shtml)
+- 2026-06-29 13:56 - [南部战区位南海海域进行例行巡航](https://www.blog.minike.top/Article/details/335085703.shtml)
+- 2026-06-29 13:50 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.minike.top/Article/details/3528350989.shtml)
+- 2026-06-29 14:02 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/22035.shtml)
+- 2026-06-29 14:03 - [TLAW vs DCG MSI](https://www.blog.kurohicncr.top/Article/details/568495073.shtml)
+- 2026-06-29 14:12 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/64960.shtml)
+- 2026-06-29 14:15 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/98683475.shtml)
+- 2026-06-29 14:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.kurohicncr.top/Article/details/70382279212.shtml)
+- 2026-06-29 13:48 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.minike.top/Article/details/854801.shtml)
+- 2026-06-29 13:57 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.minike.top/Article/details/0060430162.shtml)
+- 2026-06-29 13:49 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/799811624358.shtml)
+- 2026-06-29 14:04 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/9669552.shtml)
+- 2026-06-29 13:56 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/08721433245.shtml)
+- 2026-06-29 13:48 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/50110.shtml)
+- 2026-06-29 14:00 - [小娘惹](http://www.share.kurohicncr.top/Article/details/1162936031.shtml)

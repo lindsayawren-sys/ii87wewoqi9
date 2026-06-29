@@ -1,60 +1,56 @@
-# 保险公司以首次确诊即使用“复发或难治性疾病”药物为由拒赔，法院判决败诉
+# 不得向8岁以下儿童开放！网信办发布11条网络直播打赏规定
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-白血病患者遵照医嘱使用治疗药物，却被保险公司以“超出药物适应证范围”为由拒赔。苏州昆山法院日前披露一起保险合同纠纷案详情，保险公司被判按照合同约定，以90%的比例支付理赔款45万余元。 该案中，保险公司试图以“首次确诊就使用案涉药物”，没有达到“复发或难治性”为由拒赔。办案法官表示，现代医学具有高度专业性和动态发展特征，疾病诊断标准、治疗方案常随医学进步而调整。对药品适应证中所
+中新网4月13日电 据“网信中国”微信公众号13日消息，中央网信办近日发布《关于加强网络直播打赏规范管理的通知》。其中提到，网站平台不得向八周岁以下的未成年人提供打赏服务。全文如下： 为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，现就有关工作要求通知如下： 1.明示打赏规则。网站平台向用户提供充值打赏服务，设置榜单排名，设计
 
 ## 正文
 
-白血病患者遵照医嘱使用治疗药物，却被保险公司以“超出药物适应证范围”为由拒赔。
+中新网4月13日电 据“网信中国”微信公众号13日消息，中央网信办近日发布《关于加强网络直播打赏规范管理的通知》。
 
-苏州昆山法院日前披露一起保险合同纠纷案详情，保险公司被判按照合同约定，以90%的比例支付理赔款45万余元。
+其中提到，网站平台不得向八周岁以下的未成年人提供打赏服务。
 
-该案中，保险公司试图以“首次确诊就使用案涉药物”，没有达到“复发或难治性”为由拒赔。
+全文如下： 为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，现就有关工作要求通知如下： 1.明示打赏规则。
 
-办案法官表示，现代医学具有高度专业性和动态发展特征，疾病诊断标准、治疗方案常随医学进步而调整。
+网站平台向用户提供充值打赏服务，设置榜单排名，设计互动玩法，应制定明确规则，并以直接、简洁方式公开，不得采取多次跳转、冗长条款等方式影响用户知晓。
 
-对药品适应证中所涉医学概念的认定，应回归临床专业判断，保险人无权单方面对医学概念作出限缩解释。
+2.规范打赏营利权限开通。
 
-以“首次确诊时就使用”为由拒赔，实质是将药品说明书中的适应证片面理解为“首次用药时必须满足”的静态条件，而忽视疾病动态演进的临床实际。
+网络直播账号申请开通打赏营利权限，如有违规记录，应在处置期满3个月后，再予以开通。
 
-若要求严格对照保险条款中的静态描述选择治疗方案，不仅违背医学伦理，更可能损害被保险人的生命健康权益。
+网络直播账号被禁言的，应同步暂停其打赏营利权限，时长为禁言期限的2至3倍。
 
-2024年1月1日，李女士（化名）投保某款商业人身保险，保期一年。
+3.提供打赏限额功能。
 
 ## 相关推荐
 
-- 2026-06-29 14:12 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 13:45 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-29 13:51 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 13:55 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 13:44 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 14:01 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
-- 2026-06-29 13:47 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 14:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 14:09 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 13:58 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 13:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-29 13:45 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
-- 2026-06-29 13:59 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
-- 2026-06-29 14:03 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 13:54 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 14:12 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 14:10 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 13:51 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 14:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-29 13:49 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 14:01 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-29 13:51 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-29 13:50 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuangsu.md)
+- 2026-06-29 14:10 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/92930069.shtml)
-- 2026-06-29 13:47 - [配音演员于小华病逝 享年78岁](https://www.blog.minike.top/Article/details/1003578.shtml)
-- 2026-06-29 14:09 - [爸爸当家](http://www.blog.minike.top/Article/details/4523946386.shtml)
-- 2026-06-29 13:42 - [欧洲超1300例超额死亡与高温有关](https://www.blog.kurohicncr.top/Article/details/018329.shtml)
-- 2026-06-29 14:08 - [灿如繁星定档](https://www.blog.minike.top/Article/details/8247390.shtml)
-- 2026-06-29 13:58 - [刘仲华院士愿当贺永辉导师](https://www.share.kurohicncr.top/Article/details/928215660678.shtml)
-- 2026-06-29 13:47 - [李在明称韩国足协任命了无能之人](https://www.share.kurohicncr.top/Article/details/17461216.shtml)
-- 2026-06-29 13:44 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.minike.top/Article/details/55338.shtml)
-- 2026-06-29 14:01 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/15329068.shtml)
-- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/646748374693.shtml)
-- 2026-06-29 14:11 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/44464100.shtml)
-- 2026-06-29 14:05 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.minike.top/Article/details/82867034.shtml)
-- 2026-06-29 14:09 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/5181156269.shtml)
-- 2026-06-29 14:04 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/110982923.shtml)
-- 2026-06-29 13:53 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/67213640.shtml)
+- 2026-06-29 13:53 - [斗破苍穹](http://www.blog.minike.top/Article/details/694130.shtml)
+- 2026-06-29 13:49 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/7959758428.shtml)
+- 2026-06-29 14:13 - [发反科学内容为何会有200万粉丝](http://www.blog.minike.top/Article/details/820186493.shtml)
+- 2026-06-29 14:00 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/16389.shtml)
+- 2026-06-29 13:53 - [事关个税 明日截止请抓紧办理](https://www.share.kurohicncr.top/Article/details/134970.shtml)
+- 2026-06-29 13:52 - [江苏财政厅原一级调研员谢功成被查](https://www.share.minike.top/Article/details/554350130943.shtml)
+- 2026-06-29 13:48 - [宜宾发生5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/103863.shtml)
+- 2026-06-29 14:00 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/496300.shtml)
+- 2026-06-29 14:00 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/4879660361.shtml)
+- 2026-06-29 13:52 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/725167332.shtml)
+- 2026-06-29 14:09 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/21391385.shtml)
+- 2026-06-29 14:05 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/1831897.shtml)
+- 2026-06-29 14:10 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/6473101432.shtml)
+- 2026-06-29 14:13 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/538355489.shtml)
+- 2026-06-29 13:49 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/111221.shtml)

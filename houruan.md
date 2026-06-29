@@ -1,57 +1,57 @@
-# 英唐智控又要"买买买"了：拟8亿吞下两个标的背后，一场长达十年的转型困局
+# 人工智能药物研发期望高涨，诺和诺德与OpenAI达成合作
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：全景财经 当一家公司以“发行股份”的方式再次准备出手收购时，你需要问的不是它买了什么，而是它过去买的，到底怎么样了？ 01 序幕：又一份发行股份购买资产预案 2025年10月底，英唐智控（300131.SZ）宣布停牌，筹划发行股份及支付现金购买资产。一
+核心要点 丹麦制药企业诺和诺德周二表示，将与 OpenAI 展开合作，“为患者更快推出全新、更优质的治疗方案”。 公司在一份声明中称，此次合作将助力诺和诺德更好地运用人工智能分析复杂数据集、筛选具有潜力的新药，并缩短药物从研发阶段到应用于患者的周期。 诺和诺德首席执行官迈克・杜斯塔德表示：“全球有数百万肥胖症与糖尿病患者亟需治疗方案，我们深知还有诸多待发现的疗法，有望改变他们的
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+核心要点 丹麦制药企业诺和诺德周二表示，将与 OpenAI 展开合作，“为患者更快推出全新、更优质的治疗方案”。
 
-来源：全景财经 当一家公司以“发行股份”的方式再次准备出手收购时，你需要问的不是它买了什么，而是它过去买的，到底怎么样了？
+公司在一份声明中称，此次合作将助力诺和诺德更好地运用人工智能分析复杂数据集、筛选具有潜力的新药，并缩短药物从研发阶段到应用于患者的周期。
 
-01 序幕：又一份发行股份购买资产预案 2025年10月底，英唐智控（300131.SZ）宣布停牌，筹划发行股份及支付现金购买资产。
+诺和诺德首席执行官迈克・杜斯塔德表示：“全球有数百万肥胖症与糖尿病患者亟需治疗方案，我们深知还有诸多待发现的疗法，有望改变他们的生活。
 
-一个月后预案出炉：公司拟以发行股份+现金的方式，拿下桂林光隆集成科技100%股权和上海奥简微电子100%股权，交易总对价约8.08亿元，同时向不超过35名特定投资者募集配套资金。
+将人工智能融入日常工作，让我们能够以前所未有的规模分析数据集，发现以往无法识别的规律，并以前所未有的速度验证研究假设。
 
-表面叙事非常熟悉且合乎逻辑——“从低毛利的电子元器件分销商，向高壁垒的半导体IDM企业华丽转身”。
+” OpenAI 首席执行官萨姆・奥尔特曼称：“人工智能正在重塑各行各业，而在生命科学领域，它能帮助人们过上更优质、更长寿的生活。
 
-从交易草案看，光隆集成主攻光开关、光保护模块和OCS光路交换机等，广泛应用于光网络保护、测试系统、AI智算中心、数据中心光路调度、光传感、激光雷达等领域。
+” 消息公布后，诺和诺德股价开盘后不久大涨 2.8%。
 
-奥简微电子则聚焦电源管理类模拟芯片，涵盖线性稳压器、降压转换器、升压转换器、升降压转换器等，广泛应用于消费电子、通信电子、医疗电子等，听起来个个踩在AI算力、光通信、国产替代的风口上。
+当前，各大制药企业正越来越多地借助人工智能优化运营、缩短冗长的研发流程。
 
-英唐智控表示，与标的公司在市场、产品和技术等方面存在显著协同。
+尽管人工智能有望助力新药研发，但专家表示，该行业远未充分发挥这项技术的全部潜力，更直接的效益或来自将其应用于药物研发的其他环节。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
-- 2026-06-29 13:51 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 14:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 14:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-29 13:54 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 14:04 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
-- 2026-06-29 14:07 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-29 14:01 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 13:56 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-29 14:10 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 13:52 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 14:03 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-29 14:14 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
+- 2026-06-29 14:15 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 13:50 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 14:04 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 14:04 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 14:08 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
+- 2026-06-29 14:13 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 14:14 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-29 14:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
+- 2026-06-29 14:03 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/55553808.shtml)
-- 2026-06-29 14:09 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/780445.shtml)
-- 2026-06-29 13:49 - [亚洲成世界杯最大失意者联盟](http://www.blog.kurohicncr.top/Article/details/58912001103.shtml)
-- 2026-06-29 13:43 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/5729129.shtml)
-- 2026-06-29 13:47 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/409357813.shtml)
-- 2026-06-29 14:01 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/42415059719.shtml)
-- 2026-06-29 13:56 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/6412650425.shtml)
-- 2026-06-29 14:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/100271.shtml)
-- 2026-06-29 13:52 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/87366838627.shtml)
-- 2026-06-29 14:08 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/7144266.shtml)
-- 2026-06-29 13:42 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/36519.shtml)
-- 2026-06-29 14:11 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/873053.shtml)
-- 2026-06-29 13:47 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/2411063524.shtml)
-- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.minike.top/Article/details/3123141402.shtml)
-- 2026-06-29 14:10 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/7567203.shtml)
+- 2026-06-29 14:09 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/5103213.shtml)
+- 2026-06-29 13:49 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/45821049534.shtml)
+- 2026-06-29 14:13 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/068338.shtml)
+- 2026-06-29 14:09 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/63735883064.shtml)
+- 2026-06-29 14:01 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/5704327996.shtml)
+- 2026-06-29 13:51 - [A股限售股解禁一览](https://www.blog.kurohicncr.top/Article/details/45793196973.shtml)
+- 2026-06-29 14:03 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/1478343734.shtml)
+- 2026-06-29 14:06 - [世界杯看到肖战了](http://www.blog.kurohicncr.top/Article/details/39365.shtml)
+- 2026-06-29 13:48 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/24646.shtml)
+- 2026-06-29 14:14 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/503648447.shtml)
+- 2026-06-29 14:05 - [急先锋](https://www.share.minike.top/Article/details/09632.shtml)
+- 2026-06-29 14:08 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/51884.shtml)
+- 2026-06-29 13:53 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/22408380.shtml)
+- 2026-06-29 14:05 - [iPhone18系列预计将大幅涨价](https://www.share.kurohicncr.top/Article/details/6333596.shtml)
+- 2026-06-29 13:52 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/91569.shtml)

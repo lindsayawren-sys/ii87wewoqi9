@@ -1,51 +1,61 @@
-# 国铁太原局开行“歌迷专列”：车厢变KTV，歌迷一路欢歌
+# 周亚琳（女，1977年生），年薪1013.5万元
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 20:56 来源：中国新闻网 近日，有着“歌迷之城”美誉的山西太原再度迎来演唱会热潮。国铁太原局分别加开北京、郑州方向两列“歌迷专列”，以运力满足歌迷返程运输需求，助力当地演唱会经济稳步发展。“歌迷专列”车厢内张贴歌手海报、设置歌迷互动区，开展歌曲互动、小型合唱等趣味活动，让演唱会的欢乐氛围一路延续。(王惠琳 张维嘉） 责任编辑：【叶攀】
+日前，比亚迪（002594.SZ）发布2025年年报，高管薪酬成为市场焦点。 公司高级副总裁兼财务总监周亚琳以1013.5万元税前年薪，成为A股首位年薪破千万的财务掌门人。这位1999年入职的“老将”，近十年薪资涨幅近8倍。 年报数据显示，周亚琳2025年薪酬较2024年的896万元增长117.5万元，成功突破千万大关。回溯其职业薪酬曲线，2015年她的年薪仅134万元，十年间
 
 ## 正文
 
-发布时间：2026年06月01日 20:56 来源：中国新闻网 近日，有着“歌迷之城”美誉的山西太原再度迎来演唱会热潮。
+日前，比亚迪（002594.SZ）发布2025年年报，高管薪酬成为市场焦点。
 
-国铁太原局分别加开北京、郑州方向两列“歌迷专列”，以运力满足歌迷返程运输需求，助力当地演唱会经济稳步发展。
+公司高级副总裁兼财务总监周亚琳以1013.5万元税前年薪，成为A股首位年薪破千万的财务掌门人。
 
-“歌迷专列”车厢内张贴歌手海报、设置歌迷互动区，开展歌曲互动、小型合唱等趣味活动，让演唱会的欢乐氛围一路延续。
+这位1999年入职的“老将”，近十年薪资涨幅近8倍。
 
-(王惠琳 张维嘉） 责任编辑：【叶攀】
+年报数据显示，周亚琳2025年薪酬较2024年的896万元增长117.5万元，成功突破千万大关。
+
+回溯其职业薪酬曲线，2015年她的年薪仅134万元，十年间涨幅近8倍。
+
+这一增长并非孤例，比亚迪多名高管薪酬迈入“千万级”。
+
+年报显示，公司执行副总裁李柯年薪1426.1万元，何志奇、何龙、罗红斌、杨冬生等高管薪酬也超过千万元。
+
+作为比亚迪“土生土长”的财务高管，周亚琳1977年出生，1999年从江西财经大学毕业后，便加入当时的比亚迪实业，从基层财务核算岗位起步。
 
 ## 相关推荐
 
-- 2026-06-29 14:04 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 13:45 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 13:49 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 13:54 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
-- 2026-06-29 13:51 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
-- 2026-06-29 14:04 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-29 14:02 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
-- 2026-06-29 13:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
-- 2026-06-29 13:43 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-29 14:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 14:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 13:51 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 13:50 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:02 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 13:59 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-29 14:07 - [如何“亲菌子”又“远小人儿”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 13:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 13:59 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 14:16 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 13:52 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
+- 2026-06-29 14:08 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 14:00 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 14:14 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
+- 2026-06-29 14:04 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 13:49 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-29 13:54 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
+- 2026-06-29 13:52 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 14:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/06645066838.shtml)
-- 2026-06-29 14:02 - [王楚钦周启豪爆分](https://www.blog.minike.top/Article/details/67292.shtml)
-- 2026-06-29 13:47 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/01710.shtml)
-- 2026-06-29 13:54 - [海清白玉兰奖运](https://www.blog.kurohicncr.top/Article/details/040785078.shtml)
-- 2026-06-29 14:01 - [流金岁月](https://www.blog.minike.top/Article/details/34408499720.shtml)
-- 2026-06-29 14:06 - [下飞机后，我做了个很蠢的决定......](http://www.share.minike.top/Article/details/9395067.shtml)
-- 2026-06-29 13:51 - [利率一再降 “存款搬家”搬去哪](https://www.blog.minike.top/Article/details/0594733416.shtml)
-- 2026-06-29 13:46 - [恋与深空失控领地](http://www.share.minike.top/Article/details/56697197.shtml)
-- 2026-06-29 14:06 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/47532.shtml)
-- 2026-06-29 14:01 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/89633.shtml)
-- 2026-06-29 13:57 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/7266261891.shtml)
-- 2026-06-29 13:55 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/1070154977.shtml)
-- 2026-06-29 14:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/80626532.shtml)
-- 2026-06-29 13:58 - [急先锋](https://www.share.minike.top/Article/details/51533354885.shtml)
-- 2026-06-29 14:08 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/98212490.shtml)
+- 2026-06-29 13:56 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/439166512.shtml)
+- 2026-06-29 14:10 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/7000376458.shtml)
+- 2026-06-29 14:00 - [委内瑞拉地震死亡人数升至1450人](https://www.blog.kurohicncr.top/Article/details/3759471757.shtml)
+- 2026-06-29 14:02 - [美人鱼](https://www.share.kurohicncr.top/Article/details/3343151136.shtml)
+- 2026-06-29 14:11 - [严浩翔FIY断层第一](http://www.share.kurohicncr.top/Article/details/864061.shtml)
+- 2026-06-29 14:01 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.kurohicncr.top/Article/details/76681726.shtml)
+- 2026-06-29 13:57 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/613426.shtml)
+- 2026-06-29 13:57 - [实习期把公司领导开除了](http://www.share.minike.top/Article/details/83327102.shtml)
+- 2026-06-29 13:48 - [毒液2](http://www.share.minike.top/Article/details/169664248.shtml)
+- 2026-06-29 14:04 - [严浩翔FIY断层第一](http://www.share.kurohicncr.top/Article/details/34883.shtml)
+- 2026-06-29 13:56 - [伊朗球员致歉](https://www.blog.kurohicncr.top/Article/details/214852703571.shtml)
+- 2026-06-29 14:17 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/84176238.shtml)
+- 2026-06-29 13:59 - [美人鱼](http://www.share.kurohicncr.top/Article/details/83411.shtml)
+- 2026-06-29 13:52 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/17226.shtml)
+- 2026-06-29 14:16 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/8328526.shtml)

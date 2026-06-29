@@ -1,61 +1,57 @@
-# 黄金取代美债成全球第一大储备资产，央行超3.6万吨囤金接近历史峰值！
+# 中国官方打三“虎” 乌兰、江敦涛、韩占武被“双开”
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-文章来源：金十数据 截至2025年底黄金占全球央行储备比重达27%，正式取代美债登顶全球储备第一，欧洲央行报告确认这一历史性转变，反映地缘冲突推动全球加速去美元化。 据欧洲央行，截至2025年底，黄金已取代美国国债，成为全球第一大储备资产。这一变化源于各国央行多年持续购金，以及近两年金价近乎翻倍的历史性上涨。 欧洲央行周二发布报告显示，2025年底黄金占全球央行储备资产的27%
+中新社北京4月13日电 中国官方13日连打三“虎”：湖南省人大常委会原党组书记、副主任乌兰，重庆市政府原党组成员、副市长江敦涛，国家烟草专卖局原党组成员、副局长韩占武，分别被开除党籍和公职。 公开资料显示，乌兰，女，蒙古族，1962年11月生，内蒙古科左中旗人。她长期在内蒙古工作，曾任内蒙古自治区党委常委、宣传部部长等职。2016年乌兰赴湖南省工作，任湖南省委副书记、省委党校校
 
 ## 正文
 
-文章来源：金十数据 截至2025年底黄金占全球央行储备比重达27%，正式取代美债登顶全球储备第一，欧洲央行报告确认这一历史性转变，反映地缘冲突推动全球加速去美元化。
+中新社北京4月13日电 中国官方13日连打三“虎”：湖南省人大常委会原党组书记、副主任乌兰，重庆市政府原党组成员、副市长江敦涛，国家烟草专卖局原党组成员、副局长韩占武，分别被开除党籍和公职。
 
-据欧洲央行，截至2025年底，黄金已取代美国国债，成为全球第一大储备资产。
+公开资料显示，乌兰，女，蒙古族，1962年11月生，内蒙古科左中旗人。
 
-这一变化源于各国央行多年持续购金，以及近两年金价近乎翻倍的历史性上涨。
+她长期在内蒙古工作，曾任内蒙古自治区党委常委、宣传部部长等职。
 
-欧洲央行周二发布报告显示，2025年底黄金占全球央行储备资产的27%，较上年的20%明显上升。
+2016年乌兰赴湖南省工作，任湖南省委副书记、省委党校校长等职，2023年任湖南省人大常委会党组书记、副主任。
 
-同期美国国债占比从25%降至22%，欧元储备资产占比则维持15%不变。
+此次发布的党纪政务处分通报称，经查，乌兰丧失理想信念，背弃初心使命，搞政治投机，结交政治骗子；违反中央八项规定精神，无偿接受他人提供的高档服装和高端医疗服务，接受可能影响公正执行公务的宴请；在干部选拔任用工作中为他人谋取利益并收受财物；违规收受礼品、礼金；家风不正，对家人失管失教；目无法纪，毫无敬畏，利用职务便利为他人在企业经营、项目承揽等方面谋利，并非法收受巨额财物。
 
-央行储备资产具有高流动性，用于支撑本币、履行国际支付义务及应对金融动荡。
+依据《中国共产党纪律处分条例》等有关规定，经中央纪委常委会会议研究并报中共中央批准，决定给予乌兰开除党籍处分；由国家监委给予其开除公职处分；终止其湖南省第十二次党代会代表资格；收缴其违纪违法所得；将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
 
-储备结构的调整，反映多国寻求美元之外替代资产的趋势。
+公开资料显示，江敦涛生于1969年5月，山东青岛人，曾任山东省淄博市委书记、潍坊市委书记等职，2023年任重庆市副市长。
 
-2022年以来，美国因俄乌冲突对俄实施制裁并冻结其美元储备，进一步加速了这一进程。
+经查，江敦涛丧失理想信念，背弃初心使命，政绩观严重偏差，违背高质量发展要求，急功近利、盲目蛮干，履行全面从严治党主体责任不力，对抗组织审查，搞迷信活动。
 
 ## 相关推荐
 
-- 2026-06-29 13:51 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
-- 2026-06-29 13:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
-- 2026-06-29 13:56 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-29 13:46 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
-- 2026-06-29 14:07 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 14:00 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 14:02 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-29 14:08 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
-- 2026-06-29 14:10 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 13:54 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 14:11 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-29 14:01 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 14:02 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 13:47 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 14:01 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 14:06 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-29 14:01 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/toveq.md)
+- 2026-06-29 13:51 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-29 13:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 13:50 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-29 14:07 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 14:00 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 13:49 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 14:04 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 13:56 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-29 13:48 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/418024.shtml)
-- 2026-06-29 14:05 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/4346445334.shtml)
-- 2026-06-29 13:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/4012047.shtml)
-- 2026-06-29 13:57 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/45248015.shtml)
-- 2026-06-29 13:44 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/6436981.shtml)
-- 2026-06-29 13:56 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/29379646.shtml)
-- 2026-06-29 13:43 - [前国足主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/10907.shtml)
-- 2026-06-29 14:06 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/531440330.shtml)
-- 2026-06-29 14:02 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.kurohicncr.top/Article/details/083028.shtml)
-- 2026-06-29 14:00 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.share.kurohicncr.top/Article/details/855864393951.shtml)
-- 2026-06-29 13:50 - [韩国国脚每人获35.5万奖金](https://www.blog.kurohicncr.top/Article/details/17445761.shtml)
-- 2026-06-29 13:45 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/072731691968.shtml)
-- 2026-06-29 13:47 - [爱情有烟火你是知道我爱看什么的](http://www.blog.minike.top/Article/details/54483343521.shtml)
-- 2026-06-29 14:01 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/7083081.shtml)
-- 2026-06-29 13:54 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/84352.shtml)
+- 2026-06-29 14:15 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/86894851.shtml)
+- 2026-06-29 13:59 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.kurohicncr.top/Article/details/149041.shtml)
+- 2026-06-29 13:49 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/06315742519.shtml)
+- 2026-06-29 13:51 - [韩国队出局是因为内讧吗](https://www.blog.kurohicncr.top/Article/details/862515.shtml)
+- 2026-06-29 14:15 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/571755899.shtml)
+- 2026-06-29 14:00 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.minike.top/Article/details/935793228.shtml)
+- 2026-06-29 13:50 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/871418.shtml)
+- 2026-06-29 14:15 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/83907915673.shtml)
+- 2026-06-29 14:12 - [四川宜宾地震](https://www.share.kurohicncr.top/Article/details/354923.shtml)
+- 2026-06-29 14:15 - [拆快递不再“里三层外三层”](http://www.blog.kurohicncr.top/Article/details/832461987.shtml)
+- 2026-06-29 13:59 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/65939.shtml)
+- 2026-06-29 13:57 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/195925499959.shtml)
+- 2026-06-29 14:06 - [11岁小孩哥汽修工龄4年](http://www.share.minike.top/Article/details/928445829.shtml)
+- 2026-06-29 13:48 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/6859199.shtml)
+- 2026-06-29 13:53 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/974594009461.shtml)

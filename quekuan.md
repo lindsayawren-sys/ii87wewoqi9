@@ -1,57 +1,58 @@
-# 民革中央黄河流域生态保护和高质量发展民主监督工作启动
+# 美国海军在和平谈判失败后封锁伊朗港口，油价逼近100美元
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网西宁6月2日电 (祁绣娟)6月1日，民革中央对口青海省四川省开展黄河流域生态保护和高质量发展民主监督工作启动会在青海省西宁市召开。全国人大常委会副委员长、民革中央主席郑建邦讲话，全国政协副主席、民革中央常务副主席何报翔主持。 会上，中共青海省委书记、省人大常委会主任吴晓军，四川省副省长马正勇作表态发言。中共青海省委副书记、省长罗东川汇报青海省黄河流域生态保护和高质量发展情
+周一，随着美国海军在周末和平谈判失败后对伊朗港口实施封锁，原油价格上涨。 5月交割的美国原油期货上涨逾2%，收于每桶99.08美元。6月交割的国际基准布伦特原油期货上涨逾4%，收于每桶99.36美元。 封锁于周一美国东部时间上午10点生效。美国中央司令部表示，不会阻碍往返于非伊朗港口的船只通行。 美国中央司令部周日表示：“封锁将对所有进出伊朗港口和沿海地区（包括阿拉伯湾和阿曼湾
 
 ## 正文
 
-中新网西宁6月2日电 (祁绣娟)6月1日，民革中央对口青海省四川省开展黄河流域生态保护和高质量发展民主监督工作启动会在青海省西宁市召开。
+周一，随着美国海军在周末和平谈判失败后对伊朗港口实施封锁，原油价格上涨。
 
-全国人大常委会副委员长、民革中央主席郑建邦讲话，全国政协副主席、民革中央常务副主席何报翔主持。
+5月交割的美国原油期货上涨逾2%，收于每桶99.08美元。
 
-会上，中共青海省委书记、省人大常委会主任吴晓军，四川省副省长马正勇作表态发言。
+6月交割的国际基准布伦特原油期货上涨逾4%，收于每桶99.36美元。
 
-中共青海省委副书记、省长罗东川汇报青海省黄河流域生态保护和高质量发展情况。
+封锁于周一美国东部时间上午10点生效。
 
-民革中央副主席李惠东介绍民主监督工作安排。
+美国中央司令部表示，不会阻碍往返于非伊朗港口的船只通行。
 
-黄河流域在我国经济社会发展和生态安全方面具有十分重要的地位。
+美国中央司令部周日表示：“封锁将对所有进出伊朗港口和沿海地区（包括阿拉伯湾和阿曼湾上的所有伊朗港口）的各国船只公正地强制执行。
 
-青海是黄河的发源地，是黄河流域重要的水源涵养地和生态屏障，承担着维护生态安全、保护三江源、保护“中华水塔”的重大使命。
+” 在周末于巴基斯坦举行的谈判中，美国和伊朗未能达成结束战争的协议后，总统唐纳德·特朗普下令实施封锁。
 
-四川是黄河上游重要的水源补给区，也是全球生物多样性保护重点地区，在国家发展大局特别是实施西部大开发战略中具有独特而重要的地位。
+特朗普周一威胁要摧毁任何接近封锁线的伊朗军舰。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 14:07 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 14:09 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 13:59 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-29 14:11 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
-- 2026-06-29 14:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 13:54 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-29 14:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 14:11 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:58 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
-- 2026-06-29 13:42 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
+- 2026-06-29 14:10 - [强⁶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
+- 2026-06-29 13:53 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 14:00 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 14:08 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-29 13:59 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
+- 2026-06-29 14:06 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-29 14:17 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
+- 2026-06-29 13:57 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 13:52 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 13:54 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
+- 2026-06-29 13:50 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 13:57 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/59940750.shtml)
-- 2026-06-29 14:04 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/581390739672.shtml)
-- 2026-06-29 13:55 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/761088717779.shtml)
-- 2026-06-29 13:45 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.kurohicncr.top/Article/details/852109441328.shtml)
-- 2026-06-29 14:10 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/0570416629.shtml)
-- 2026-06-29 13:46 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/853926577.shtml)
-- 2026-06-29 13:53 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/02761926320.shtml)
-- 2026-06-29 14:04 - [强⁶](https://www.share.minike.top/Article/details/1526912129.shtml)
-- 2026-06-29 14:04 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/703338.shtml)
-- 2026-06-29 14:07 - [小娘惹](https://www.blog.minike.top/Article/details/86802423.shtml)
-- 2026-06-29 14:06 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/77164809990.shtml)
-- 2026-06-29 13:59 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/85461016477.shtml)
-- 2026-06-29 13:48 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/93411.shtml)
-- 2026-06-29 13:59 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/4446337.shtml)
-- 2026-06-29 14:00 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/287807517584.shtml)
+- 2026-06-29 13:57 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/6308521080.shtml)
+- 2026-06-29 14:12 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/1581539.shtml)
+- 2026-06-29 14:15 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/300291949.shtml)
+- 2026-06-29 13:55 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/037596103.shtml)
+- 2026-06-29 14:07 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/679917.shtml)
+- 2026-06-29 14:16 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/4934894.shtml)
+- 2026-06-29 14:14 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/9572712756.shtml)
+- 2026-06-29 14:05 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/1695901.shtml)
+- 2026-06-29 13:53 - [送你一朵小红花](https://www.blog.minike.top/Article/details/487014.shtml)
+- 2026-06-29 14:04 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/08280908901.shtml)
+- 2026-06-29 14:01 - [宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/22046379292.shtml)
+- 2026-06-29 14:17 - [吴建豪宣布再婚](http://www.blog.minike.top/Article/details/506914734.shtml)
+- 2026-06-29 14:17 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.minike.top/Article/details/11474.shtml)
+- 2026-06-29 14:06 - [艾莎唱出了多少牛马的心声🥹](http://www.share.kurohicncr.top/Article/details/54246352602.shtml)
+- 2026-06-29 13:54 - [斗破苍穹](http://www.blog.minike.top/Article/details/25365916934.shtml)

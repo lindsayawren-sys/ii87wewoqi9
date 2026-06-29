@@ -1,60 +1,56 @@
-# 强制民众出售美元？韩国总统呼吁严惩散布假消息者
+# 新疆沙雅县：光伏板下“锁”住7750亩流沙
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-韩国总统李在明周二呼吁严惩那些明知故犯散布虚假信息的人。他援引警方正在调查的网络假新闻，该假新闻声称政府将强制民众出售美元。 李在明在其社交媒体账号上发出这一呼吁，并附上了一篇新闻报道，称警方已确认10名涉嫌散布假新闻的人员。这些假新闻声称政府将发布紧急命令，要求出售美元以应对中东冲突引发的经济危机。 李在明在账号上写道：“故意散布虚假信息，造成社会混乱和经济损失的行为，必须被
+中新网新疆沙雅4月14日电 (张家伟)几年前，这里还是流动沙丘遍布的不毛之地，如今光伏板下草方格锁住流沙，板外梭梭林筑起绿色屏障。 在新疆阿克苏地区沙雅县，中电建25万千瓦光伏治沙示范区历经两年多建设，如今累计治沙面积达7750亩。 据中电建新能源集团股份有限公司沙雅光伏一电站厂长王涛介绍，该项目2023年开工，2025年底建成，2026年4月起正式投入商用。示范区占地6450
 
 ## 正文
 
-韩国总统李在明周二呼吁严惩那些明知故犯散布虚假信息的人。
+中新网新疆沙雅4月14日电 (张家伟)几年前，这里还是流动沙丘遍布的不毛之地，如今光伏板下草方格锁住流沙，板外梭梭林筑起绿色屏障。
 
-他援引警方正在调查的网络假新闻，该假新闻声称政府将强制民众出售美元。
+在新疆阿克苏地区沙雅县，中电建25万千瓦光伏治沙示范区历经两年多建设，如今累计治沙面积达7750亩。
 
-李在明在其社交媒体账号上发出这一呼吁，并附上了一篇新闻报道，称警方已确认10名涉嫌散布假新闻的人员。
+据中电建新能源集团股份有限公司沙雅光伏一电站厂长王涛介绍，该项目2023年开工，2025年底建成，2026年4月起正式投入商用。
 
-这些假新闻声称政府将发布紧急命令，要求出售美元以应对中东冲突引发的经济危机。
+示范区占地6450亩，安装54万块N型单晶硅双面双玻组件，年发电量可达4.2亿千瓦时，可基本满足沙雅县群众一年用电需求。
 
-李在明在账号上写道：“故意散布虚假信息，造成社会混乱和经济损失的行为，必须被查明并严惩。
+在治沙方面，项目采用“工程固沙+生物固沙+光伏阻沙”等多层防护体系。
 
-” 他强调，散布损害公众利益的假新闻绝非言论自由，也绝不能容忍。
+光伏板下铺设草方格2000亩，园区外围种植梭梭林1300亩，加上光伏区本身的固沙作用，合计治沙面积已达7750亩。
 
-李在明指出：“任何伤害民众或破坏公共秩序和价值观的行为，都等同于严重犯罪，必须受到严惩，即使是出于玩笑。
+“刚来时每天都吃‘沙子拌饭’。
 
-” 当有关美元抛售的说法在网络社区和博客上流传时，韩国财政部驳斥这些说法是“假新闻”，称从未讨论过这样的措施。
+外头刮大风，房子里刮小风，每天起床都是一头沙子。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 13:45 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 14:03 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 14:07 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 13:51 - [F1奥地利大奖赛正赛集锦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 14:03 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-29 13:50 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 13:42 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-29 14:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
-- 2026-06-29 13:59 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 14:05 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 14:09 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-29 14:04 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 13:51 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 13:52 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-29 14:06 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 14:09 - [比亚迪为什么卖得越多市值越低](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 14:16 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 13:53 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oowpo.md)
+- 2026-06-29 13:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 13:48 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 14:07 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 14:10 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 13:51 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [斛珠夫人](http://www.blog.minike.top/Article/details/00777683428.shtml)
-- 2026-06-29 13:58 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/77349104523.shtml)
-- 2026-06-29 14:06 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/80729138.shtml)
-- 2026-06-29 14:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/197096782186.shtml)
-- 2026-06-29 13:47 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/5193691.shtml)
-- 2026-06-29 13:48 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.blog.minike.top/Article/details/6368620939.shtml)
-- 2026-06-29 13:46 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/271418520.shtml)
-- 2026-06-29 13:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4380591.shtml)
-- 2026-06-29 14:00 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/66228.shtml)
-- 2026-06-29 13:57 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/05038.shtml)
-- 2026-06-29 13:49 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/242660319.shtml)
-- 2026-06-29 13:45 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/988233.shtml)
-- 2026-06-29 13:58 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.kurohicncr.top/Article/details/606679.shtml)
-- 2026-06-29 14:03 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/807768898.shtml)
-- 2026-06-29 13:57 - [【独家】牧神记 第89集 明心](http://www.blog.kurohicncr.top/Article/details/31049.shtml)
+- 2026-06-29 14:06 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/115354828424.shtml)
+- 2026-06-29 13:55 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/941284716181.shtml)
+- 2026-06-29 14:12 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/052990.shtml)
+- 2026-06-29 13:48 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/066426348848.shtml)
+- 2026-06-29 14:15 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/87324.shtml)
+- 2026-06-29 13:55 - [世界杯：日本将与巴西争夺16强席位](http://www.share.minike.top/Article/details/445740.shtml)
+- 2026-06-29 14:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/952866892126.shtml)
+- 2026-06-29 13:57 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/575802.shtml)
+- 2026-06-29 14:07 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/186541279.shtml)
+- 2026-06-29 14:10 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/71508439.shtml)
+- 2026-06-29 14:09 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/144771.shtml)
+- 2026-06-29 14:00 - [高市早苗口齿不清被质疑醉酒](https://www.share.minike.top/Article/details/993800216.shtml)
+- 2026-06-29 13:58 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/5600019845.shtml)
+- 2026-06-29 13:48 - [T1对战KC](https://www.blog.minike.top/Article/details/961485.shtml)
+- 2026-06-29 13:52 - [德国连续三天刷新本国最高气温纪录](https://www.share.minike.top/Article/details/57311507.shtml)

@@ -1,58 +1,60 @@
-# 商业航天IPO生死局
+# 财务造假，退市！300391明日将摘牌
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-成败同框，悲喜交织。资本市场不在乎⼀次发射的成败，在乎的是企业有没有拿到IPO的门票。 作者：王雅洁 封图：东方IC 5月以来，商业航天企业IPO（首次公开发行）动作密集刷新。2026年5月14日，港交所官网披露成都国星宇航第三次递交的招股书，这家主打太空AI（人工智能）算力的公司拟冲刺港股“太空AI第一股”。 至此，据经济观察报不完全统计，商业航天领域已有超10家企业处于IP
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！长药退4月12日晚发布公告称，公司股票已被深交所决定终止上市，于3月20日进入退市整理期，最后交易日期为4月10日，将在4月13日被摘牌。 公司已聘请中山证券有限责任公司担任主办券商，并与其签订《委托股票转让协议》，聘请其提供股份转让服务，代理公司在证券交易所市场登记结算系统股份退出登记，办理股票重新确认及
 
 ## 正文
 
-成败同框，悲喜交织。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-资本市场不在乎⼀次发射的成败，在乎的是企业有没有拿到IPO的门票。
+长药退4月12日晚发布公告称，公司股票已被深交所决定终止上市，于3月20日进入退市整理期，最后交易日期为4月10日，将在4月13日被摘牌。
 
-作者：王雅洁 封图：东方IC 5月以来，商业航天企业IPO（首次公开发行）动作密集刷新。
+公司已聘请中山证券有限责任公司担任主办券商，并与其签订《委托股票转让协议》，聘请其提供股份转让服务，代理公司在证券交易所市场登记结算系统股份退出登记，办理股票重新确认及全国股份转让系统股份登记结算等事宜。
 
-2026年5月14日，港交所官网披露成都国星宇航第三次递交的招股书，这家主打太空AI（人工智能）算力的公司拟冲刺港股“太空AI第一股”。
+Wind数据显示，截至4月10日，长药退股价为0.19元/股，今年以来累计跌幅达78.16%。
 
-至此，据经济观察报不完全统计，商业航天领域已有超10家企业处于IPO进程中，从民营火箭公司星河动力、蓝箭航天，到国资背景的快舟火箭（航天科工火箭技术有限公司），涵盖火箭制造、卫星制造与应用全产业链。
+连续三年虚增收入和利润 1月23日，公司收到证监会作出的《行政处罚决定书》。
 
-一名接近快舟火箭的人士对经济观察报直言：“2026年是商业航天IPO的‘生死窗口期’，错过等于出局。
+经查，*ST长药连续三年虚增收入和利润，违反证券法律法规。
 
-” 为什么必须是2026？
+证监会对上市公司责令改正，给予警告，并处以1000万元罚款。
 
-2026年之所以成为商业航天IPO的集中爆发年，是多重时间压力叠加的结果。
+深交所1月23日公告称，对因涉嫌财务数据存在虚假记载被证监会立案的“*ST立方”“*ST长药”进行重点监控。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 13:48 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 13:57 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 13:50 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 13:48 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 14:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 13:56 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 14:02 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 14:01 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 14:10 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 13:57 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
-- 2026-06-29 13:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 14:12 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 13:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 14:09 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 13:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 13:52 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-29 13:58 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 14:13 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-29 14:10 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
+- 2026-06-29 13:55 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 14:12 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 13:52 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 14:01 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 14:10 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 14:08 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.minike.top/Article/details/359919.shtml)
-- 2026-06-29 13:45 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/544476.shtml)
-- 2026-06-29 13:58 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/19985827881.shtml)
-- 2026-06-29 13:55 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/302052208350.shtml)
-- 2026-06-29 13:51 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/48987.shtml)
-- 2026-06-29 14:10 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.minike.top/Article/details/002699365220.shtml)
-- 2026-06-29 13:49 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/456356520922.shtml)
-- 2026-06-29 14:05 - [一生一世](https://www.blog.minike.top/Article/details/86604.shtml)
-- 2026-06-29 13:50 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/5756200116.shtml)
-- 2026-06-29 13:49 - [男子月薪五千卖房借贷给女友转账百万](http://www.share.minike.top/Article/details/8563753794.shtml)
-- 2026-06-29 13:42 - [我把队友的7连跪剪成了艺术](http://www.share.minike.top/Article/details/905248.shtml)
-- 2026-06-29 13:54 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/518415009.shtml)
-- 2026-06-29 14:10 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/67733196.shtml)
-- 2026-06-29 13:56 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.kurohicncr.top/Article/details/50550797.shtml)
-- 2026-06-29 14:01 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/31086.shtml)
+- 2026-06-29 13:59 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/6071425.shtml)
+- 2026-06-29 14:04 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/34691279641.shtml)
+- 2026-06-29 13:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/0408344824.shtml)
+- 2026-06-29 13:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/21864983.shtml)
+- 2026-06-29 13:59 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/11354788.shtml)
+- 2026-06-29 14:05 - [Canna纳尔8-0对位单杀Doran](http://www.blog.minike.top/Article/details/291812698.shtml)
+- 2026-06-29 13:48 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/29221058930.shtml)
+- 2026-06-29 14:06 - [戴军否认1993年月入过万](https://www.share.kurohicncr.top/Article/details/44525.shtml)
+- 2026-06-29 14:17 - [河南考699分女生已接到清华大学电话](https://www.blog.kurohicncr.top/Article/details/884295021316.shtml)
+- 2026-06-29 13:53 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/81964123.shtml)
+- 2026-06-29 13:58 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/119118.shtml)
+- 2026-06-29 14:11 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/89971159729.shtml)
+- 2026-06-29 14:10 - [锐评浪姐7总决赛](https://www.share.minike.top/Article/details/0891324389.shtml)
+- 2026-06-29 13:58 - [普京称考虑全面禁止柴油出口](http://www.blog.minike.top/Article/details/93449156722.shtml)
+- 2026-06-29 14:05 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/490664550.shtml)

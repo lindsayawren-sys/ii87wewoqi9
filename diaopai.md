@@ -1,57 +1,58 @@
-# 华泰期货：下游情绪谨慎，玻碱盘面偏弱
+# 京东工业午前涨超12% 工业AI大模型跃升至2.0阶段
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-市场分析 玻璃方面：昨日玻璃期货震荡偏弱运行。现货方面，交投氛围一般，市场以刚需为主。 供需与逻辑：目前玻璃产能小幅回升，整体日熔量依旧处于低位，行业大面积亏损，企业暂无集中检修安排。地产疲软致使终端需求低迷，现货成交以刚需为主。市场库存同比偏高，中下游拿货意愿偏弱，去库节奏偏慢。依托燃料成本形成底部支撑，但价格上行空间受限。 纯碱方面：昨日纯碱期货震荡偏弱运行。现货方面，成交
+京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。 4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同
 
 ## 正文
 
-市场分析 玻璃方面：昨日玻璃期货震荡偏弱运行。
+京东工业（07618）午前涨超12%，截至发稿，股价上涨12.32%，现报13.77港元，成交额5645.43万港元。
 
-现货方面，交投氛围一般，市场以刚需为主。
+4月9日，京东工业发布工业AI大模型能力建设规划和技术成果，宣布正在从1.0阶段的AI工具跃迁到2.0阶段的AI专家。
 
-供需与逻辑：目前玻璃产能小幅回升，整体日熔量依旧处于低位，行业大面积亏损，企业暂无集中检修安排。
+京东工业的AI专家具备工作闭环能力，可独立完成商品、履约、售后等核心场景任务，从按需调用升级为自主进化，能主动洞察需求、参与决策、推进组织协同。
 
-地产疲软致使终端需求低迷，现货成交以刚需为主。
+国内首个工业供应链垂直AI大模型JoyIndustrial，将再次引领行业技术和应用升级。
 
-市场库存同比偏高，中下游拿货意愿偏弱，去库节奏偏慢。
+京东工业技术负责人表示，京东工业AI能力已经基本完成AI工具的建设和应用布局，在内外部业务实践中取得了扎实的成果，目前正处于向AI专家跃迁的过程中。
 
-依托燃料成本形成底部支撑，但价格上行空间受限。
+面向未来，京东工业认为AI专家会跃迁到3.0阶段的AI超脑，即可以实现生态进化，全链协同，和工业大模型构建数智化的供应链大脑，通过AI需求大脑、AI商品大脑、AI履约大脑等产品和服务，根本性地提升工业供应链水平。
 
-纯碱方面：昨日纯碱期货震荡偏弱运行。
-
-现货方面，成交以刚需为主，成交价格环比持平。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 14:01 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 13:49 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 13:42 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-29 13:52 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 13:57 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 13:57 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
-- 2026-06-29 13:45 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 13:57 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 13:56 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 14:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 13:49 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
+- 2026-06-29 13:48 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 13:55 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 14:10 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 14:15 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 13:51 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-29 14:14 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiekuai.md)
+- 2026-06-29 14:04 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 14:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 13:49 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 14:02 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 13:57 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
+- 2026-06-29 14:08 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-29 14:07 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/80117.shtml)
-- 2026-06-29 14:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/71935190.shtml)
-- 2026-06-29 13:44 - [这开放世界游戏，竟然允许玩家屠城？](https://www.blog.kurohicncr.top/Article/details/818806072673.shtml)
-- 2026-06-29 13:47 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/382761603.shtml)
-- 2026-06-29 14:02 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/39493617.shtml)
-- 2026-06-29 13:59 - [佛得角到底在哪个“角”](http://www.share.minike.top/Article/details/45914265.shtml)
-- 2026-06-29 14:07 - [实习期把公司领导开除了](https://www.share.kurohicncr.top/Article/details/14518.shtml)
-- 2026-06-29 13:55 - [加拿大92分钟绝杀](https://www.share.kurohicncr.top/Article/details/795129630362.shtml)
-- 2026-06-29 13:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/6125126628.shtml)
-- 2026-06-29 13:52 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/20590086325.shtml)
-- 2026-06-29 14:03 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/12423.shtml)
-- 2026-06-29 13:42 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/449359.shtml)
-- 2026-06-29 13:47 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/73507214.shtml)
-- 2026-06-29 13:59 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/6469464.shtml)
-- 2026-06-29 13:58 - [孙怡告别浪姐千字文](https://www.share.minike.top/Article/details/194260629.shtml)
+- 2026-06-29 14:06 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/6363019.shtml)
+- 2026-06-29 14:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/94373048925.shtml)
+- 2026-06-29 14:15 - [女心理师](https://www.share.kurohicncr.top/Article/details/688358.shtml)
+- 2026-06-29 13:48 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/65631.shtml)
+- 2026-06-29 13:49 - [青春环游记第三季](http://www.blog.minike.top/Article/details/069178297.shtml)
+- 2026-06-29 14:04 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/4647737.shtml)
+- 2026-06-29 14:04 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/7075573275.shtml)
+- 2026-06-29 13:48 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/94478.shtml)
+- 2026-06-29 14:13 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/08973948.shtml)
+- 2026-06-29 14:12 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/35053192.shtml)
+- 2026-06-29 14:05 - [周生如故](https://www.blog.kurohicncr.top/Article/details/845875.shtml)
+- 2026-06-29 13:49 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/4474774773.shtml)
+- 2026-06-29 13:53 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/8905385689.shtml)
+- 2026-06-29 13:59 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/4043056.shtml)
+- 2026-06-29 14:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/6867734528.shtml)

@@ -1,58 +1,56 @@
-# 面对儿童玩具新风险 法律与监管如何护安全？
+# 中央层面树立和践行正确政绩观学习教育工作专班 中央纪委办公厅公开通报四川省昭觉县、湖北省文化和旅游厅及湖北艺术职业学院政绩观存在偏差、不顾实际使用财政资金问题
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-最近一段时间以来，一些儿童玩具、儿童产品的安全性问题，备受媒体关注。6月2日，最高人民法院、国家市场监督管理总局联合发布典型案例，涉及面向未成年人的不安全商品、危险玩具售卖等新型风险。发布这些案例，法律到底要明确哪些界定标准和责任？治理儿童玩具、儿童产品等新型风险，法律和行政监管，又该如何协同发力？此次公布的典型案例有哪些典型性和普遍性 最高人民法院民一庭副庭长 蔡金芳：选择这
+新华社北京4月12日电 日前，中央层面树立和践行正确政绩观学习教育工作专班、中央纪委办公厅公开通报四川省昭觉县、湖北省文化和旅游厅及湖北艺术职业学院政绩观存在偏差、不顾实际使用财政资金问题。 经查，四川省昭觉县作为曾经的贫困县，财政支出主要靠上级转移支付，安排财政资金定制推广3首文旅宣传歌曲，预算149万元；湖北省文化和旅游厅使用财政资金，安排其直属事业单位湖北艺术职业学院定制
 
 ## 正文
 
-最近一段时间以来，一些儿童玩具、儿童产品的安全性问题，备受媒体关注。
+新华社北京4月12日电 日前，中央层面树立和践行正确政绩观学习教育工作专班、中央纪委办公厅公开通报四川省昭觉县、湖北省文化和旅游厅及湖北艺术职业学院政绩观存在偏差、不顾实际使用财政资金问题。
 
-6月2日，最高人民法院、国家市场监督管理总局联合发布典型案例，涉及面向未成年人的不安全商品、危险玩具售卖等新型风险。
+经查，四川省昭觉县作为曾经的贫困县，财政支出主要靠上级转移支付，安排财政资金定制推广3首文旅宣传歌曲，预算149万元；湖北省文化和旅游厅使用财政资金，安排其直属事业单位湖北艺术职业学院定制推广1首文旅宣传歌曲，预算300万元。
 
-发布这些案例，法律到底要明确哪些界定标准和责任？
+学习教育启动后，四川省昭觉县、湖北省文化和旅游厅及湖北艺术职业学院没有对照党中央部署要求查摆发现上述项目存在的问题，仍然继续推进相关采购工作，未及时叫停项目；落实党中央关于党政机关带头过紧日子要求不到位，在没有认真评估宣传效果的情况下，跟风推进文旅宣传歌曲采购项目；决策过程不够科学严谨，没有进行充分论证，带有主观盲目性，这是典型的政绩观偏差问题。
 
-治理儿童玩具、儿童产品等新型风险，法律和行政监管，又该如何协同发力？
+政绩观问题是一个根本性问题，关乎立党为公、执政为民。
 
-此次公布的典型案例有哪些典型性和普遍性 最高人民法院民一庭副庭长 蔡金芳：选择这些案例主要有两点考虑。
+党中央三令五申、响鼓重槌，今年又部署在全党开展树立和践行正确政绩观学习教育。
 
-一是这些案例涉及的领域和未成年人密切相关，未成年人多有接触。
+在学习教育中，四川省昭觉县、湖北省文化和旅游厅及湖北艺术职业学院学用脱节，学归学、做归做，不顾实际使用财政资金采购文旅宣传歌曲，反映出一些地方和单位领导干部对树立和践行正确政绩观的认识不清醒，对学习教育的部署要求落实不力。
 
-比如针筒糖，里面是糖果，外包装是针筒形状，属于可玩性食品，许多未成年人都喜欢，许多超市都有售卖。
+当前，学习教育正在稳健有序开展。
 
-密室类逃脱游戏，也受广大青少年喜爱。
+各级党组织特别是领导班子和领导干部要举一反三、汲取教训。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 14:11 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 13:52 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-29 13:49 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 13:57 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 14:03 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-29 13:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-29 14:05 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:47 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-29 13:48 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 13:50 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
-- 2026-06-29 13:53 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 13:57 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-29 14:15 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
+- 2026-06-29 14:02 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 13:59 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-29 13:59 - [Mrbeast的30天不吃饭挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-29 14:02 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 14:12 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-29 13:54 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 14:00 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 13:57 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/10385.shtml)
-- 2026-06-29 13:56 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/57354435743.shtml)
-- 2026-06-29 13:58 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.minike.top/Article/details/433597514.shtml)
-- 2026-06-29 13:53 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/3432530.shtml)
-- 2026-06-29 13:48 - [拆快递不再“里三层外三层”](https://www.share.minike.top/Article/details/652721320.shtml)
-- 2026-06-29 13:51 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/5225300153.shtml)
-- 2026-06-29 13:44 - [市民骑哈啰单车79分钟付30元](https://www.blog.kurohicncr.top/Article/details/51757.shtml)
-- 2026-06-29 13:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/07818105.shtml)
-- 2026-06-29 13:57 - [梅朗雄主张法国退出北约](https://www.blog.minike.top/Article/details/9474674.shtml)
-- 2026-06-29 14:01 - [一生一世](https://www.blog.kurohicncr.top/Article/details/3553738.shtml)
-- 2026-06-29 13:48 - [豆包收费了，你还会用吗？](https://www.blog.kurohicncr.top/Article/details/558324453068.shtml)
-- 2026-06-29 14:00 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/6304859.shtml)
-- 2026-06-29 13:45 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/54171259505.shtml)
-- 2026-06-29 14:07 - [扬名立万](https://www.blog.minike.top/Article/details/362353319.shtml)
-- 2026-06-29 13:55 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/177730.shtml)
+- 2026-06-29 14:01 - [詹俊预测德国大胜巴拉圭](http://www.blog.minike.top/Article/details/31498748.shtml)
+- 2026-06-29 13:49 - [斛珠夫人](http://www.blog.minike.top/Article/details/24517354.shtml)
+- 2026-06-29 13:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/2663550.shtml)
+- 2026-06-29 14:10 - [中方回应对日本相关出口管制措施](https://www.blog.kurohicncr.top/Article/details/470657.shtml)
+- 2026-06-29 13:57 - [在委侨团负责人：家乡的帮助很及时](https://www.share.kurohicncr.top/Article/details/7521129.shtml)
+- 2026-06-29 14:15 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.minike.top/Article/details/01697.shtml)
+- 2026-06-29 13:50 - [和阿根廷球员家属一起看球](https://www.share.minike.top/Article/details/7943386.shtml)
+- 2026-06-29 14:14 - [TOP 无畏契约](http://www.share.minike.top/Article/details/18630.shtml)
+- 2026-06-29 13:51 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/073770.shtml)
+- 2026-06-29 13:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/063492672841.shtml)
+- 2026-06-29 14:00 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/42807.shtml)
+- 2026-06-29 13:53 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/41681870.shtml)
+- 2026-06-29 14:12 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/99067788.shtml)
+- 2026-06-29 14:05 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/269908.shtml)
+- 2026-06-29 13:49 - [韩国政府将对世界杯出局追责](https://www.share.kurohicncr.top/Article/details/207932.shtml)

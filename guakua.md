@@ -1,56 +1,46 @@
-# Mobilewalla将通过SPACSphere合并在美上市
+# 重庆港海关劳务派遣服务采购项目中标公告
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-Mobilewalla与SPACSphere Acquisition Corp．今日宣布签署最终业务合并协议，Mobilewalla将借此成为一家上市公司。 该交易对Mobilewalla的投前估值为2.5亿美元。合并后的公司将获得SPACSphere信托账户中约1.725亿美元的现金，部分与Mobilewalla关联的机构投资者还承诺提供1000万美元支持交易。预计交易将于2
+1.项目名称：重庆港海关劳务派遣服务采购项目 2.采购人：中华人民共和国重庆港海关 3.采购方式：比选 4.开标时间：2026年4月3日5.中标供应商：重庆联朝服务外包有限公司 6.中标价格：70元/人/月 7.中标主要内容：重庆港海关劳务派遣服务采购项目 8.评审人员：王伟、陈乐、刘佳 9.联系人：姚老师 联系电话：023-67651238 10.公示期：2026年4月3日至
 
 ## 正文
 
-Mobilewalla与SPACSphere Acquisition Corp．今日宣布签署最终业务合并协议，Mobilewalla将借此成为一家上市公司。
+1.项目名称：重庆港海关劳务派遣服务采购项目 2.采购人：中华人民共和国重庆港海关 3.采购方式：比选 4.开标时间：2026年4月3日5.中标供应商：重庆联朝服务外包有限公司 6.中标价格：70元/人/月 7.中标主要内容：重庆港海关劳务派遣服务采购项目 8.评审人员：王伟、陈乐、刘佳 9.联系人：姚老师 联系电话：023-67651238 10.公示期：2026年4月3日至2026年4月7日。
 
-该交易对Mobilewalla的投前估值为2.5亿美元。
-
-合并后的公司将获得SPACSphere信托账户中约1.725亿美元的现金，部分与Mobilewalla关联的机构投资者还承诺提供1000万美元支持交易。
-
-预计交易将于2026年下半年完成，合并后的公司将被命名为Mobilewalla，Inc．，预计将在美国国家交易所上市。
-
-Mobilewalla由Anindya Datta博士于2012年创立，是一家专注于数据和垂直代理型人工智能解决方案的领先企业。
-
-公司历时14年研发，打造了一个专有的、EB级规模的研究级消费者数据平台，该平台提供高质量且符合隐私要求的数据，为多个面向消费者的行业提供垂直代理型人工智能解决方案。
-
-Mobilewalla目前提供三款垂直领域产品：市场分析套件Market Flow，帮助电信运营商衡量市场份额变化、评估客户流失和获取动态；代理型AI产品Telescope，正与一家财富50强电信公司进行试点，可回答通用AI工具无法处理的特定竞争和运营问题；以及面向新兴市场金融服务和金融科技领域的数据分析产品LendBetter，用于信用风险建模、欺诈预防和投资组合优化。
-
-截至2026年4月30日，Mobilewalla的年度经常性收入为1390万美元。
+中小企业声明函.pdf
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 13:55 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 14:00 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-29 13:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
-- 2026-06-29 13:57 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-29 13:53 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
-- 2026-06-29 14:08 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-29 14:09 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
-- 2026-06-29 14:01 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-29 13:52 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 13:55 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-29 14:03 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 14:06 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 13:59 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 14:05 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
+- 2026-06-29 14:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 14:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
+- 2026-06-29 13:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-29 13:59 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 13:57 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 13:52 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 14:04 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:46 - [四川宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/864276719227.shtml)
-- 2026-06-29 14:07 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/9773993.shtml)
-- 2026-06-29 13:42 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/029650807433.shtml)
-- 2026-06-29 13:54 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/80541053.shtml)
-- 2026-06-29 14:08 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/51882717.shtml)
-- 2026-06-29 14:00 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/22888860.shtml)
-- 2026-06-29 14:10 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/32482285.shtml)
-- 2026-06-29 14:06 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/393226553.shtml)
-- 2026-06-29 14:08 - [央视曝光高价回收老物件骗局](https://www.share.kurohicncr.top/Article/details/01625.shtml)
-- 2026-06-29 14:02 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.minike.top/Article/details/782917.shtml)
-- 2026-06-29 13:46 - [F1奥地利大奖赛正赛集锦](http://www.blog.kurohicncr.top/Article/details/09561513.shtml)
-- 2026-06-29 13:50 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/542261394.shtml)
-- 2026-06-29 14:05 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/14378268073.shtml)
-- 2026-06-29 13:49 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/77179.shtml)
-- 2026-06-29 14:10 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/85042647.shtml)
+- 2026-06-29 14:10 - [强⁶](https://www.blog.kurohicncr.top/Article/details/34013059.shtml)
+- 2026-06-29 14:10 - [新一代影后杨紫](https://www.blog.kurohicncr.top/Article/details/3061089371.shtml)
+- 2026-06-29 14:07 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/5952303537.shtml)
+- 2026-06-29 14:01 - [5万块的威力](https://www.share.kurohicncr.top/Article/details/51353212.shtml)
+- 2026-06-29 13:56 - [强⁶](http://www.share.kurohicncr.top/Article/details/60308445189.shtml)
+- 2026-06-29 14:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/2282439.shtml)
+- 2026-06-29 13:56 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/6911583.shtml)
+- 2026-06-29 13:57 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/384104472.shtml)
+- 2026-06-29 14:03 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.minike.top/Article/details/849097456813.shtml)
+- 2026-06-29 13:53 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/208090650281.shtml)
+- 2026-06-29 14:13 - [久坐小心“死臀综合征”](https://www.blog.minike.top/Article/details/2230812932.shtml)
+- 2026-06-29 13:52 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/59010.shtml)
+- 2026-06-29 14:01 - [中餐厅南北饮食差异](http://www.blog.kurohicncr.top/Article/details/688362912.shtml)
+- 2026-06-29 13:52 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/287204021426.shtml)
+- 2026-06-29 14:08 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/221887349.shtml)

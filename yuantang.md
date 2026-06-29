@@ -1,51 +1,46 @@
-# 穿中国制造“外骨骼”，外国市长体验黄山“画中游”！
+# 伊朗库姆省发现“星链”设备 10名嫌疑人被捕
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 19:34 来源：中国新闻网 当世界各地的市长来到中国，他们有一个好奇的问题：拥有如此厚重历史的国度，如何书写自己的现代化故事？在黄山，他们穿“外骨骼”登山、亲手做徽州鱼灯……中国式现代化的实践，传统与现代的平衡，令他们印象深刻。(唐雨弦 张俊） 责任编辑：【孟湘君】
+伊朗库姆省警方当地时间13日表示，已在当地发现数台“星链”卫星互联网设备，并就相关案件逮捕10名嫌疑人。 警方称，此类卫星互联网设备被归类为“危害安全类物品”，相关持有者将依法受到严肃处理。 (总台记者 李健南 李曌）
 
 ## 正文
 
-发布时间：2026年06月01日 19:34 来源：中国新闻网 当世界各地的市长来到中国，他们有一个好奇的问题：拥有如此厚重历史的国度，如何书写自己的现代化故事？
+伊朗库姆省警方当地时间13日表示，已在当地发现数台“星链”卫星互联网设备，并就相关案件逮捕10名嫌疑人。
 
-在黄山，他们穿“外骨骼”登山、亲手做徽州鱼灯……中国式现代化的实践，传统与现代的平衡，令他们印象深刻。
+警方称，此类卫星互联网设备被归类为“危害安全类物品”，相关持有者将依法受到严肃处理。
 
-(唐雨弦 张俊） 责任编辑：【孟湘君】
+(总台记者 李健南 李曌）
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 14:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:59 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 14:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 13:53 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 14:06 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
-- 2026-06-29 14:06 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 13:49 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 14:05 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-29 13:42 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 13:51 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
-- 2026-06-29 13:50 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 14:08 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 13:56 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
+- 2026-06-29 14:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 13:58 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-29 13:51 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 13:51 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-29 13:58 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-29 14:02 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 14:04 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 13:59 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengde.md)
+- 2026-06-29 13:53 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jgnqj.md)
+- 2026-06-29 13:53 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/406818.shtml)
-- 2026-06-29 13:42 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/70931280.shtml)
-- 2026-06-29 13:52 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/8739107.shtml)
-- 2026-06-29 13:50 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/1236849.shtml)
-- 2026-06-29 14:05 - [韩国记者：解码“合肥模式”](http://www.blog.kurohicncr.top/Article/details/8509685921.shtml)
-- 2026-06-29 14:08 - [绘画区你赢了](http://www.share.minike.top/Article/details/750670275.shtml)
-- 2026-06-29 13:51 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/10119746832.shtml)
-- 2026-06-29 14:08 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/76491.shtml)
-- 2026-06-29 13:44 - [巴西前锋说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/121717.shtml)
-- 2026-06-29 13:50 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/539304129307.shtml)
-- 2026-06-29 13:48 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/50166804130.shtml)
-- 2026-06-29 13:49 - [直击宜宾地震：监控剧烈摇晃](http://www.blog.kurohicncr.top/Article/details/26197047.shtml)
-- 2026-06-29 13:57 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/9643210005.shtml)
-- 2026-06-29 14:02 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/22352.shtml)
-- 2026-06-29 14:11 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/70216505.shtml)
+- 2026-06-29 13:48 - [在自己家不穿衣服犯法吗](https://www.share.minike.top/Article/details/24127631.shtml)
+- 2026-06-29 14:15 - [刘烨16岁儿子诺一颜值](http://www.share.minike.top/Article/details/888102772.shtml)
+- 2026-06-29 14:01 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/62135830540.shtml)
+- 2026-06-29 13:50 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/3515093.shtml)
+- 2026-06-29 14:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/164301018737.shtml)
+- 2026-06-29 14:08 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/88967492.shtml)
+- 2026-06-29 14:17 - [千与千寻](https://www.share.kurohicncr.top/Article/details/4518182.shtml)
+- 2026-06-29 14:09 - [王楚钦3-0周启豪 晋级32强](https://www.blog.minike.top/Article/details/91946242224.shtml)
+- 2026-06-29 13:48 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/4720430.shtml)
+- 2026-06-29 14:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/450306539.shtml)
+- 2026-06-29 13:55 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/687714.shtml)
+- 2026-06-29 14:07 - [青春环游记第三季](https://www.blog.minike.top/Article/details/898232401950.shtml)
+- 2026-06-29 14:12 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/6574327184.shtml)
+- 2026-06-29 13:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/2114353798.shtml)
+- 2026-06-29 14:00 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/054000.shtml)

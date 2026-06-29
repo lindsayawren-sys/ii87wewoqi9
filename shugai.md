@@ -1,59 +1,57 @@
-# InCoax与美国一级运营商签署光纤延伸解决方案协议
+# 高市再提修宪 引发日本民众广泛反对
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-瑞典宽带接入解决方案提供商InCoax Networks AB于6月2日宣布，已与美国一家一级电信运营商签署协议，为其光纤延伸解决方案在光纤宽带安装领域建立商业合作框架。 该协议紧接InCoax光纤延伸产品的近期发布。该解决方案旨在解决光纤宽带大规模部署中的实际安装难题：光纤入户点往往与住宅网关的最佳位置不一致。通过复用室内现有同轴电缆，该方案可减少铺设新室内光纤或以太网线的需
+日本执政党自由民主党12日在东京召开党大会。日本首相兼自民党总裁高市早苗再次表示将推进修宪，相关表态在日本国内引发大量质疑与反对。 据日本多家媒体报道，高市早苗在大会上谈及修宪问题时称，“由日本人自主进行修宪是自民党的基本方针，现在时机已经到来”。她还称，希望在明年召开党大会时，能够在提出修宪动议方面取得一定进展。此外，此次大会还发布了自民党所谓的“新愿景”，强调在思考未来国家
 
 ## 正文
 
-瑞典宽带接入解决方案提供商InCoax Networks AB于6月2日宣布，已与美国一家一级电信运营商签署协议，为其光纤延伸解决方案在光纤宽带安装领域建立商业合作框架。
+日本执政党自由民主党12日在东京召开党大会。
 
-该协议紧接InCoax光纤延伸产品的近期发布。
+日本首相兼自民党总裁高市早苗再次表示将推进修宪，相关表态在日本国内引发大量质疑与反对。
 
-该解决方案旨在解决光纤宽带大规模部署中的实际安装难题：光纤入户点往往与住宅网关的最佳位置不一致。
+据日本多家媒体报道，高市早苗在大会上谈及修宪问题时称，“由日本人自主进行修宪是自民党的基本方针，现在时机已经到来”。
 
-通过复用室内现有同轴电缆，该方案可减少铺设新室内光纤或以太网线的需求，从而降低安装复杂度并加速客户激活。
+她还称，希望在明年召开党大会时，能够在提出修宪动议方面取得一定进展。
 
-InCoax首席执行官Jakob Tobieson表示：“与美国一级运营商达成的这一协议，是对我们战略方向的重要验证。
+此外，此次大会还发布了自民党所谓的“新愿景”，强调在思考未来国家安全保障问题时，修宪比以往任何时候都更加重要。
 
-它为我们光纤延伸方案的核心应用场景之一建立了商业框架，也再次印证了复用现有同轴基础设施、简化室内光纤安装的现实意义。
+自民党高层称“时机逐渐成熟” 将切实推进修宪 日本自民党干事长铃木俊一12日在接受采访时表示，鉴于自民党在今年2月的众议院选举中获胜，“众议院宪法审查会成员中对修宪持积极态度的党团占多数，氛围已发生很大变化。
 
-” 该解决方案主要面向独栋住宅及部分小型公寓楼，基于MoCA 2.5技术，以非托管桥接方式运行，支持对称多千兆连接。
+”“与过去相比时机逐渐成熟，将充分应对以切实向前推进。
 
-运营商可沿用其现有光纤平台、住宅网关及客户开通流程，无需对原有系统进行大规模改造。
+”网友：“绝不能允许修宪” “让高市下台” 上述表态在社交媒体上引发质疑。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
-- 2026-06-29 14:06 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 13:47 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-29 14:06 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-29 13:47 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 13:54 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 13:49 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
-- 2026-06-29 13:49 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 13:52 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 13:54 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 14:07 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
-- 2026-06-29 14:09 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-29 13:43 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
+- 2026-06-29 13:53 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 14:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
+- 2026-06-29 13:55 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-29 14:15 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 14:09 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 14:16 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 14:05 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 14:03 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
+- 2026-06-29 13:52 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 13:50 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-29 14:07 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:45 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/28092196159.shtml)
-- 2026-06-29 13:51 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/4165523.shtml)
-- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/65309760.shtml)
-- 2026-06-29 13:49 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/096038749296.shtml)
-- 2026-06-29 13:43 - [俄军新型无人机战力如何](https://www.share.minike.top/Article/details/1409672.shtml)
-- 2026-06-29 13:43 - [博主：比亚迪赢了销量却输给资本](https://www.share.kurohicncr.top/Article/details/67532041.shtml)
-- 2026-06-29 13:54 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/3515490409.shtml)
-- 2026-06-29 13:54 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.kurohicncr.top/Article/details/371073917760.shtml)
-- 2026-06-29 13:54 - [致敬！中国首批缉毒警已全体退休](https://www.share.minike.top/Article/details/37173711.shtml)
-- 2026-06-29 13:43 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/86420.shtml)
-- 2026-06-29 13:55 - [为什么6月以来北方频繁降雨](https://www.blog.minike.top/Article/details/12692.shtml)
-- 2026-06-29 14:04 - [A股限售股解禁一览](http://www.share.kurohicncr.top/Article/details/8319344081.shtml)
-- 2026-06-29 14:03 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/3969302863.shtml)
-- 2026-06-29 13:53 - [一生一世](https://www.blog.kurohicncr.top/Article/details/5524171662.shtml)
-- 2026-06-29 13:44 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/987860.shtml)
+- 2026-06-29 14:03 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/788874459234.shtml)
+- 2026-06-29 13:51 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/7987799489.shtml)
+- 2026-06-29 14:08 - [陈靖可虞书欣领衔主演](https://www.share.kurohicncr.top/Article/details/26601.shtml)
+- 2026-06-29 14:06 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/03181421.shtml)
+- 2026-06-29 14:07 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.kurohicncr.top/Article/details/75982015186.shtml)
+- 2026-06-29 13:52 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/520857.shtml)
+- 2026-06-29 13:52 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/11048943819.shtml)
+- 2026-06-29 13:55 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/330843256.shtml)
+- 2026-06-29 14:08 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/818297788246.shtml)
+- 2026-06-29 14:03 - [内马尔能上场15分钟](https://www.blog.minike.top/Article/details/7452117018.shtml)
+- 2026-06-29 14:03 - [恋与深空遭抵制后仍置顶敖尹](http://www.share.minike.top/Article/details/935571.shtml)
+- 2026-06-29 14:15 - [普京：俄面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/85041.shtml)
+- 2026-06-29 14:17 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/2653428997.shtml)
+- 2026-06-29 14:02 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/364001289.shtml)
+- 2026-06-29 14:09 - [美人鱼](https://www.share.minike.top/Article/details/3395319542.shtml)

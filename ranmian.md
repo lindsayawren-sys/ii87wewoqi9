@@ -1,59 +1,59 @@
-# “猪王”牧原股份换帅
+# 美国宣布将全面封锁后 三艘船在尝试通过霍尔木兹海峡
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“猪王”牧原股份（002714.SZ）迎来重要的管理层更迭。6月1日，牧原股份公告称，公司董事长秦英林因到退休年龄辞任，同时辞去总裁等职务；曹治年辞任副董事长等职务。董事会选举曹治年为第五届董事会董事长，并聘任秦英林为终身荣誉董事长，其将担任牧原养猪研究院院长。 此外，高曈被聘任为公司总裁、财务负责人，并被
+三艘船在沿着伊朗海岸附近航行，试图穿越霍尔木兹海峡，这是自美国宣布要封锁该海峡以来首批尝试通过的船只。 船舶追踪数据显示，周一清晨，与伊朗没有明显关联的“New Future”号以及被美国制裁的“Auroura”号从阿联酋附近水域开始向东北方向航行。这两艘中型油轮应该是选择了靠近伊朗拉拉克岛以南的航道行使。伊朗近日表示，试图向东通行的船只应沿该航线航行。 “New Future
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+三艘船在沿着伊朗海岸附近航行，试图穿越霍尔木兹海峡，这是自美国宣布要封锁该海峡以来首批尝试通过的船只。
 
-“猪王”牧原股份（002714.SZ）迎来重要的管理层更迭。
+船舶追踪数据显示，周一清晨，与伊朗没有明显关联的“New Future”号以及被美国制裁的“Auroura”号从阿联酋附近水域开始向东北方向航行。
 
-6月1日，牧原股份公告称，公司董事长秦英林因到退休年龄辞任，同时辞去总裁等职务；曹治年辞任副董事长等职务。
+这两艘中型油轮应该是选择了靠近伊朗拉拉克岛以南的航道行使。
 
-董事会选举曹治年为第五届董事会董事长，并聘任秦英林为终身荣誉董事长，其将担任牧原养猪研究院院长。
+伊朗近日表示，试图向东通行的船只应沿该航线航行。
 
-此外，高曈被聘任为公司总裁、财务负责人，并被提名为非独立董事候选人。
+“New Future”号已通过霍尔木兹海峡的弯道，目前正向南驶入阿曼湾，而“Auroura”号还在拉拉克附近，目前正匀速航行。
 
-公司拟将董事会成员增至9名，新增1名非独立董事。
+与此同时，一艘悬挂越南国旗、由越南船东所有的液化石油气运输船正从相反方向接近霍尔木兹海峡海峡，像是要进入波斯湾。
 
-上述变更自董事会审议通过之日起生效，部分事项需待股东会审议。
+“NV Sunshine”号周日晚些时候从阿曼湾索哈附近海域开始向北航行，显示其目的地为阿联酋沙迦。
 
-出生于1965年的秦英林是牧原股份创始人，他最初从一名肉联厂的职工辞职下海养猪，从22头猪创业起步，一步步建成年出栏超7000万头的全产业链猪肉食品企业。
+美伊周末的谈判破裂后，美国总统特朗普周日宣布，美方将开始对霍尔木兹海峡周边区域实施全面封锁。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-29 13:42 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
-- 2026-06-29 14:07 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 13:47 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-29 13:54 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
-- 2026-06-29 13:50 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 13:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-29 13:54 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-29 13:52 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
-- 2026-06-29 13:55 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 14:11 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 14:08 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-29 13:58 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 14:06 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
+- 2026-06-29 13:59 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-29 14:17 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
+- 2026-06-29 13:51 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 14:00 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
+- 2026-06-29 13:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 14:11 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 13:59 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-29 14:00 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-29 14:05 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-29 14:12 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 14:17 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
+- 2026-06-29 14:02 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [7月1日起一批新规即将落地](http://www.share.kurohicncr.top/Article/details/928607616.shtml)
-- 2026-06-29 13:49 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/747962.shtml)
-- 2026-06-29 14:06 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/06395.shtml)
-- 2026-06-29 13:45 - [胡光宇一审获刑13年](http://www.share.kurohicncr.top/Article/details/120444555973.shtml)
-- 2026-06-29 13:59 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.minike.top/Article/details/685892005.shtml)
-- 2026-06-29 14:02 - [2026年Mac能玩游戏了吗](http://www.share.kurohicncr.top/Article/details/565298.shtml)
-- 2026-06-29 13:43 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/545332272.shtml)
-- 2026-06-29 13:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/2475558954.shtml)
-- 2026-06-29 13:51 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/14915483.shtml)
-- 2026-06-29 13:56 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/3604391080.shtml)
-- 2026-06-29 13:50 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/78597.shtml)
-- 2026-06-29 13:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/348588765057.shtml)
-- 2026-06-29 14:07 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/512131557.shtml)
-- 2026-06-29 14:09 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/20646.shtml)
-- 2026-06-29 13:51 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/317102.shtml)
+- 2026-06-29 13:57 - [当我回母校教书](https://www.blog.kurohicncr.top/Article/details/16901309299.shtml)
+- 2026-06-29 13:51 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/52092906.shtml)
+- 2026-06-29 14:12 - [韩体育部长回应李在明痛批](https://www.blog.minike.top/Article/details/902703617798.shtml)
+- 2026-06-29 13:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/770831.shtml)
+- 2026-06-29 14:01 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/8981132.shtml)
+- 2026-06-29 14:13 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/6238972.shtml)
+- 2026-06-29 14:00 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/62667185911.shtml)
+- 2026-06-29 14:11 - [链博会上的机器人太全能了](https://www.share.minike.top/Article/details/9677477668.shtml)
+- 2026-06-29 13:53 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/922425.shtml)
+- 2026-06-29 13:51 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/28033.shtml)
+- 2026-06-29 13:53 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/62024.shtml)
+- 2026-06-29 14:08 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/570512113.shtml)
+- 2026-06-29 14:06 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/66314230651.shtml)
+- 2026-06-29 13:55 - [下飞机后，我做了个很蠢的决定......](http://www.blog.kurohicncr.top/Article/details/226137141642.shtml)
+- 2026-06-29 14:01 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/3792395637.shtml)

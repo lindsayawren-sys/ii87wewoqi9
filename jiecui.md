@@ -1,57 +1,49 @@
-# 强势反弹！002384，午后涨停
+# 四川美丰：截至2026年4月10日股东人数为48195户
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-昨日跳水跌停的东山精密（002384）盘中重拾升势，午后再度封涨停。今年以来，该股已累计大涨近150%。 具体来看，东山精密2日午后封住涨停，截至收盘，该股报210.93元/股，成交超220亿元。昨日，该股盘中跳水跌停。 据了解，该股昨日突然跳水，或是受一些市场传闻影响。昨日，市场流传多条关于公司经营与并购业务的负面传言，内容涉及公司收购索尔思项目进展受阻、海外大客户订单交付出
+证券日报网讯 4月13日，四川美丰在互动平台回答投资者提问时表示，截至2026年4月10日，公司股东人数为48195户。（文章来源：证券日报）
 
 ## 正文
 
-昨日跳水跌停的东山精密（002384）盘中重拾升势，午后再度封涨停。
+证券日报网讯 4月13日，四川美丰在互动平台回答投资者提问时表示，截至2026年4月10日，公司股东人数为48195户。
 
-今年以来，该股已累计大涨近150%。
-
-具体来看，东山精密2日午后封住涨停，截至收盘，该股报210.93元/股，成交超220亿元。
-
-昨日，该股盘中跳水跌停。
-
-据了解，该股昨日突然跳水，或是受一些市场传闻影响。
-
-昨日，市场流传多条关于公司经营与并购业务的负面传言，内容涉及公司收购索尔思项目进展受阻、海外大客户订单交付出现问题、核心业务发展不及预期等内容。
-
-对此，有券商研究员称，公司业务一切进展顺利，索尔思早已经于2025年正式完成交割+并表+控制权的转移，不存在收购风险。
-
-收购已经全部落地，财务也已经于去年10月并表。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 13:58 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
-- 2026-06-29 14:11 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
-- 2026-06-29 13:55 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 14:01 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 13:58 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 14:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 13:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-29 13:46 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/itbbb.md)
-- 2026-06-29 13:55 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-29 13:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-29 14:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 14:08 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-29 13:50 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-29 14:04 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 13:52 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 13:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
+- 2026-06-29 13:53 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 13:51 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-29 13:58 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 13:59 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-29 13:56 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-29 14:03 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-29 14:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-29 14:11 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-29 14:13 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.kurohicncr.top/Article/details/76299.shtml)
-- 2026-06-29 13:54 - [如何“亲菌子”又“远小人儿”](http://www.share.kurohicncr.top/Article/details/22106.shtml)
-- 2026-06-29 13:45 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/56820730.shtml)
-- 2026-06-29 14:06 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/7537170.shtml)
-- 2026-06-29 14:00 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/828240048700.shtml)
-- 2026-06-29 13:44 - [普京：俄罗斯面临命运攸关时刻](http://www.share.kurohicncr.top/Article/details/572956034.shtml)
-- 2026-06-29 13:52 - [复盘曾沛慈浪姐夺冠之路](http://www.blog.kurohicncr.top/Article/details/6332609.shtml)
-- 2026-06-29 13:56 - [周锡玮：做堂堂正正的中国人](https://www.blog.minike.top/Article/details/2343055.shtml)
-- 2026-06-29 13:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/667779190132.shtml)
-- 2026-06-29 13:55 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/86667746.shtml)
-- 2026-06-29 13:42 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/128049487.shtml)
-- 2026-06-29 14:02 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/0243311.shtml)
-- 2026-06-29 14:01 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/257171.shtml)
-- 2026-06-29 13:42 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/21561733.shtml)
-- 2026-06-29 13:45 - [詹俊：巴西能凭借两大优势战胜日本](https://www.blog.minike.top/Article/details/0671136.shtml)
+- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/96412.shtml)
+- 2026-06-29 14:10 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/548592461667.shtml)
+- 2026-06-29 14:14 - [勇敢的心第二部](http://www.share.minike.top/Article/details/5141624294.shtml)
+- 2026-06-29 13:55 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/05191258.shtml)
+- 2026-06-29 13:53 - [T1零封KC MSI](http://www.share.minike.top/Article/details/895611.shtml)
+- 2026-06-29 14:13 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/91149278155.shtml)
+- 2026-06-29 13:55 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/9805771.shtml)
+- 2026-06-29 14:14 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/10081.shtml)
+- 2026-06-29 13:59 - [中国战机大片上新](https://www.share.kurohicncr.top/Article/details/124496882653.shtml)
+- 2026-06-29 13:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/536512770917.shtml)
+- 2026-06-29 14:17 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/7619587254.shtml)
+- 2026-06-29 14:17 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/70442052.shtml)
+- 2026-06-29 14:03 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/80297.shtml)
+- 2026-06-29 13:56 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/888653.shtml)
+- 2026-06-29 13:48 - [杨紫 你幸福的话我会比你先流泪](https://www.blog.minike.top/Article/details/1682287.shtml)

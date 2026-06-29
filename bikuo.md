@@ -1,57 +1,59 @@
-# 宁夏新型储能装机突破1000万千瓦
+# 深圳海关缉私局破获空港旅检渠道特大走私黄金出境案
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新社银川6月1日电 (记者 于晶)记者6月1日从国网宁夏电力有限公司获悉，宁夏新型储能装机规模突破1000万千瓦大关，标志着宁夏正式迈入千万千瓦级储能大省行列，在储能赛道上跻身中国第一方阵。 作为中国首个新能源综合示范区，宁夏新能源发展势头强劲。“十四五”以来，宁夏新增新能源装机3158.3万千瓦，截至2025年底总装机达5732万千瓦，装机占比已达65.5%，新能源成为宁夏
+中新网深圳4月13日电 (记者 索有为)深圳海关缉私局13日通报，该局日前破获一起空港旅检渠道特大走私黄金出境案，共抓获犯罪嫌疑人11名，查证涉嫌走私的黄金及其制品130千克，案值7800万元，摧毁一个涵盖中国内地采购、揽货通关、境外销售全流程链条的走私犯罪网络。 深圳宝安机场海关日前在对一趟深圳出境航班进行行李查验时，发现楼某、李某等3名旅客未向海关申报，在随身行李和托运行李
 
 ## 正文
 
-中新社银川6月1日电 (记者 于晶)记者6月1日从国网宁夏电力有限公司获悉，宁夏新型储能装机规模突破1000万千瓦大关，标志着宁夏正式迈入千万千瓦级储能大省行列，在储能赛道上跻身中国第一方阵。
+中新网深圳4月13日电 (记者 索有为)深圳海关缉私局13日通报，该局日前破获一起空港旅检渠道特大走私黄金出境案，共抓获犯罪嫌疑人11名，查证涉嫌走私的黄金及其制品130千克，案值7800万元，摧毁一个涵盖中国内地采购、揽货通关、境外销售全流程链条的走私犯罪网络。
 
-作为中国首个新能源综合示范区，宁夏新能源发展势头强劲。
+深圳宝安机场海关日前在对一趟深圳出境航班进行行李查验时，发现楼某、李某等3名旅客未向海关申报，在随身行李和托运行李中夹带手镯、戒指等黄金饰品近400件，总重达2.8千克，明显超出合理自用范围。
 
-“十四五”以来，宁夏新增新能源装机3158.3万千瓦，截至2025年底总装机达5732万千瓦，装机占比已达65.5%，新能源成为宁夏第一大电源。
+面对询问，该3人回答前后矛盾、疑点重重，海关立即将线索通报机场海关缉私分局。
 
-面对大规模并网带来的消纳挑战，宁夏将储能产业作为构建新型电力系统、破解消纳难题、保障电网安全的核心抓手。
+缉私警察介入后，通过对夹藏的黄金饰品种类、数量及刻意分散藏匿的行为进行研判分析，认为这并非偶发行为，背后极有可能隐藏着有组织的走私犯罪活动，随即成立专案组，并锁定一个盘踞在广州的走私黄金出境团伙。
 
-宁夏先后出台储能专项发展方案，创新推行容量电价保底等政策，稳定市场预期。
+经查，以黄某、方某为首的货主团伙，安排人员在深圳多家珠宝公司采购黄金及其制品，通过快递邮寄至彭某团伙位于广州的货代物流公司处，再由彭某组织“水客”以行李夹藏方式，通过跨境航班走私出境，最终流向黄某在境外开设的金店销售牟利。
 
-电网企业聚焦新能源富集片区、电网关键节点和负荷中心精准布点，推动储能从试点示范迈向规模化、集群化发展新阶段。
+据介绍，黄某有走私犯罪前科，对海关监管规则十分熟悉，反侦查意识强。
 
-宁夏通过常态化开展并网技术校验和安全隐患排查，持续优化源网荷储协同机制。
+其在境外拥有某国内黄金首饰品牌授权店，虽能以低于市场价在国内采购和加工黄金，却不具备合法出口资质，遂通过“自买自卖”、跨境走私方式牟取暴利。
 
-2026年1月至5月，储能应用使新能源利用率提升约5个百分点，充放电效率和资源盘活效能稳居西北前列。
+深圳海关缉私局在全面查清犯罪事实后集中收网。
 
 ## 相关推荐
 
-- 2026-06-29 13:42 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
-- 2026-06-29 14:11 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 13:42 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 13:55 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 14:04 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 13:58 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-29 13:58 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 13:59 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 13:45 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 14:01 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
-- 2026-06-29 14:04 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
+- 2026-06-29 14:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 14:13 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
+- 2026-06-29 14:03 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 14:15 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-29 14:16 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 13:49 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 13:48 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 13:53 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 14:01 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 13:54 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-29 13:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 14:15 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
+- 2026-06-29 13:49 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/139885588.shtml)
-- 2026-06-29 14:02 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/932177816942.shtml)
-- 2026-06-29 13:54 - [四川宜宾地震](http://www.blog.kurohicncr.top/Article/details/71283556257.shtml)
-- 2026-06-29 14:07 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/53186.shtml)
-- 2026-06-29 14:11 - [欧委会总部只给高层开空调](http://www.share.kurohicncr.top/Article/details/0671814.shtml)
-- 2026-06-29 13:57 - [汪东城回应45岁婚约](http://www.share.minike.top/Article/details/35693.shtml)
-- 2026-06-29 14:03 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/8859719195.shtml)
-- 2026-06-29 13:54 - [金刚川](http://www.blog.minike.top/Article/details/7260345.shtml)
-- 2026-06-29 13:59 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/653399604992.shtml)
-- 2026-06-29 13:42 - [普京：俄面临命运攸关时刻](https://www.blog.minike.top/Article/details/2590712.shtml)
-- 2026-06-29 13:47 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/236642031863.shtml)
-- 2026-06-29 14:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/5246715297.shtml)
-- 2026-06-29 13:56 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/84336312.shtml)
-- 2026-06-29 13:45 - [森保一：日本队要亲手改写历史](https://www.share.kurohicncr.top/Article/details/84212761.shtml)
-- 2026-06-29 14:00 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.share.kurohicncr.top/Article/details/2709593.shtml)
+- 2026-06-29 13:55 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/028287705.shtml)
+- 2026-06-29 13:59 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/675651.shtml)
+- 2026-06-29 14:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/245374659.shtml)
+- 2026-06-29 14:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/6168509473.shtml)
+- 2026-06-29 13:57 - [流金岁月](https://www.share.minike.top/Article/details/85873917.shtml)
+- 2026-06-29 14:16 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/6200797.shtml)
+- 2026-06-29 14:10 - [韩剧编剧又升级了](https://www.share.kurohicncr.top/Article/details/421518903.shtml)
+- 2026-06-29 13:51 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/98651489979.shtml)
+- 2026-06-29 14:00 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/936746243702.shtml)
+- 2026-06-29 14:07 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/78425323.shtml)
+- 2026-06-29 14:05 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/8620105.shtml)
+- 2026-06-29 13:53 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/05882.shtml)
+- 2026-06-29 14:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/6739792957.shtml)
+- 2026-06-29 14:15 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/77745.shtml)
+- 2026-06-29 14:04 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/625378.shtml)

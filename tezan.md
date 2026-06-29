@@ -1,59 +1,59 @@
-# 李家超：拟在哈萨克斯坦设香港经贸办 欢迎当地企业赴港上市
+# OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新社香港6月2日电 香港特区行政长官李家超1日率团展开对哈萨克斯坦的访问行程，与哈萨克斯坦领导人和官员会面，并到访重点机构。他表示，香港特区政府计划在哈萨克斯坦设立香港经济贸易办事处，两地贸易和商务往来有很大增长空间，欢迎哈萨克斯坦企业到香港发展和上市。 李家超当天与哈萨克斯坦总统托卡耶夫会面，就深化两地关系交流意见。李家超表示，期望两地加强双向合作，哈萨克斯坦企业善用香港的
+石油输出国组织（OPEC）数据显示，该组织3月原油产量创下纪录最大单月跌幅，因为中东冲突导致主要成员国出口受限。 OPEC秘书处月度报告显示，3月该组织产量减少788万桶/日，至2079万桶/日，主要受伊拉克、沙特阿拉伯、阿联酋和科威特产量下降拖累。这是自上世纪80年代有数据以来的最大降幅。 美以联盟与伊朗之间的冲突已使波斯湾关键水道霍尔木兹海峡关闭六周，迫使地区产油国关停部分
 
 ## 正文
 
-中新社香港6月2日电 香港特区行政长官李家超1日率团展开对哈萨克斯坦的访问行程，与哈萨克斯坦领导人和官员会面，并到访重点机构。
+石油输出国组织（OPEC）数据显示，该组织3月原油产量创下纪录最大单月跌幅，因为中东冲突导致主要成员国出口受限。
 
-他表示，香港特区政府计划在哈萨克斯坦设立香港经济贸易办事处，两地贸易和商务往来有很大增长空间，欢迎哈萨克斯坦企业到香港发展和上市。
+OPEC秘书处月度报告显示，3月该组织产量减少788万桶/日，至2079万桶/日，主要受伊拉克、沙特阿拉伯、阿联酋和科威特产量下降拖累。
 
-李家超当天与哈萨克斯坦总统托卡耶夫会面，就深化两地关系交流意见。
+这是自上世纪80年代有数据以来的最大降幅。
 
-李家超表示，期望两地加强双向合作，哈萨克斯坦企业善用香港的专业服务和营商优势，开拓中国内地和亚洲市场；香港和内地企业亦可把握哈萨克斯坦经济改革的发展机遇，在中亚建立业务据点，共同为高质量共建“一带一路”注入新动能。
+美以联盟与伊朗之间的冲突已使波斯湾关键水道霍尔木兹海峡关闭六周，迫使地区产油国关停部分产能。
 
-当日上午，李家超与哈萨克斯坦副总理兼国家经济部部长朱曼哈林会面。
+此举推高航空燃油、柴油和汽油等产品价格，可能对全球经济构成新一轮通胀压力。
 
-李家超表示，香港正致力建设成为国际黄金交易中心，而哈萨克斯坦拥有丰富黄金储备，香港可为哈萨克斯坦提供专业服务。
+报告显示，伊拉克3月产量降幅最大，减少256万桶/日，至163万桶/日。
 
-他提到，国际权威机构近日发表报告指出，香港超越瑞士成为全球最大跨境财富管理中心，欢迎哈萨克斯坦政府及企业善用香港作为国际金融中心和国际创新科技中心的优势，通过上市、发债、项目融资，为当地发展筹集国际资金。
+沙特紧随其后，减少231万桶/日，至780万桶/日。
 
-李家超当天下午到访当地科技和创新园区阿斯塔纳枢纽，了解哈萨克斯坦在人工智能领域的最新发展情况。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 13:46 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 13:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 14:06 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 13:47 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-29 13:43 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-29 14:11 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 13:57 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 13:56 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-29 13:47 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 13:56 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 13:42 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
-- 2026-06-29 13:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 14:00 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
+- 2026-06-29 13:51 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 14:08 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
+- 2026-06-29 14:14 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 13:56 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 14:00 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-29 14:06 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-29 14:07 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-29 14:13 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 13:58 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-29 14:10 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suntuan.md)
+- 2026-06-29 13:55 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
+- 2026-06-29 14:05 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 14:08 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/871917038498.shtml)
-- 2026-06-29 13:56 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/83210271.shtml)
-- 2026-06-29 13:58 - [灿如繁星定档](http://www.share.kurohicncr.top/Article/details/35595016.shtml)
-- 2026-06-29 13:56 - [王佳佳江疏影13年前后同框对比](http://www.blog.kurohicncr.top/Article/details/23439416230.shtml)
-- 2026-06-29 14:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/967180.shtml)
-- 2026-06-29 14:11 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/922362023584.shtml)
-- 2026-06-29 14:00 - [普京称考虑全面禁止柴油出口](http://www.blog.kurohicncr.top/Article/details/77394.shtml)
-- 2026-06-29 14:00 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.minike.top/Article/details/0289350131.shtml)
-- 2026-06-29 13:48 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/8330444107.shtml)
-- 2026-06-29 14:01 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/95644671.shtml)
-- 2026-06-29 13:48 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/7668096260.shtml)
-- 2026-06-29 13:57 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/0838410112.shtml)
-- 2026-06-29 14:05 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.share.kurohicncr.top/Article/details/56077323755.shtml)
-- 2026-06-29 13:46 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/358385.shtml)
-- 2026-06-29 13:56 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.minike.top/Article/details/17319969640.shtml)
+- 2026-06-29 14:06 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/55131.shtml)
+- 2026-06-29 14:08 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/712417720338.shtml)
+- 2026-06-29 13:49 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/0657681.shtml)
+- 2026-06-29 14:10 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/44167387726.shtml)
+- 2026-06-29 13:49 - [葫芦岛居民楼爆炸致3失联8伤](https://www.share.minike.top/Article/details/29579.shtml)
+- 2026-06-29 13:56 - [唐艺昕女儿接唐艺昕回家](http://www.blog.minike.top/Article/details/89300.shtml)
+- 2026-06-29 13:49 - [德国队前往比赛场地遭遇囧途](http://www.blog.kurohicncr.top/Article/details/554784124.shtml)
+- 2026-06-29 14:00 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/6606899.shtml)
+- 2026-06-29 13:51 - [起风了](http://www.share.kurohicncr.top/Article/details/19454015.shtml)
+- 2026-06-29 14:16 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.kurohicncr.top/Article/details/8771940736.shtml)
+- 2026-06-29 13:53 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/318275028155.shtml)
+- 2026-06-29 14:11 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/98469092925.shtml)
+- 2026-06-29 13:57 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.kurohicncr.top/Article/details/001385.shtml)
+- 2026-06-29 14:07 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/05192738031.shtml)
+- 2026-06-29 13:59 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.blog.kurohicncr.top/Article/details/455196398.shtml)

@@ -1,49 +1,54 @@
-# UNESCO黄山对话会：和世界朋友聊聊遗产保护那些事
+# 英国宣布：不参与封锁霍尔木兹海峡
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 12:58 来源：中国新闻网 5月31日至6月1日，第五届联合国教科文组织(UNESCO)名录遗产与可持续发展黄山对话会在安徽黄山举办，吸引了来自18个国际组织、35个国家和地区的200多名代表齐聚黄山。 据介绍，目前全球拥有1248项世界遗产、785处世界生物圈保护区以及229个世界地质公园。随着科技飞速进步，国际遗产保护领域愈发重视空间技术
+中新网4月13日电 据英国《卫报》当地时间12日报道，英国不会参与任何对霍尔木兹海峡的封锁行动。 据报道，一名英国政府发言人表示，英国将继续“支持航行自由和开放霍尔木兹海峡，这对于支持全球经济和降低国内生活成本至关重要”。 发言人补充说：“霍尔木兹海峡绝不能征收通行费。我们正与法国和其他伙伴紧急合作，组建一个广泛的联盟，以保护航行自由。” 报道提到，当地时间12日，美国总统特朗
 
 ## 正文
 
-发布时间：2026年06月02日 12:58 来源：中国新闻网 5月31日至6月1日，第五届联合国教科文组织(UNESCO)名录遗产与可持续发展黄山对话会在安徽黄山举办，吸引了来自18个国际组织、35个国家和地区的200多名代表齐聚黄山。
+中新网4月13日电 据英国《卫报》当地时间12日报道，英国不会参与任何对霍尔木兹海峡的封锁行动。
 
-据介绍，目前全球拥有1248项世界遗产、785处世界生物圈保护区以及229个世界地质公园。
+据报道，一名英国政府发言人表示，英国将继续“支持航行自由和开放霍尔木兹海峡，这对于支持全球经济和降低国内生活成本至关重要”。
 
-随着科技飞速进步，国际遗产保护领域愈发重视空间技术等数字化、智能化手段，在遗产识别、监测、评估、展示与管理等环节的重要作用。
+发言人补充说：“霍尔木兹海峡绝不能征收通行费。
 
-(刘鸿鹤 安徽黄山报道） 责任编辑：【张燕玲】
+我们正与法国和其他伙伴紧急合作，组建一个广泛的联盟，以保护航行自由。
+
+” 报道提到，当地时间12日，美国总统特朗普声称，美国将在北约盟国的协助下封锁霍尔木兹海峡。
+
+另据英国广播公司(BBC)报道，美国中央司令部发表声明称，将于美东时间4月13日上午10时起，对所有进出伊朗港口的海上交通实施封锁。
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 13:55 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
-- 2026-06-29 13:52 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
-- 2026-06-29 14:00 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 14:00 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 13:54 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-29 14:02 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
-- 2026-06-29 14:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
-- 2026-06-29 13:45 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 14:00 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
-- 2026-06-29 13:43 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 14:10 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 14:05 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 13:59 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 14:08 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 14:10 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cppnl.md)
+- 2026-06-29 14:14 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-29 14:11 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-29 14:15 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 14:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-29 13:55 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 13:51 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemoj.md)
+- 2026-06-29 14:16 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/903079.shtml)
-- 2026-06-29 14:09 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/278671885.shtml)
-- 2026-06-29 14:11 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/1691392.shtml)
-- 2026-06-29 13:42 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/951204.shtml)
-- 2026-06-29 13:51 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/65290584477.shtml)
-- 2026-06-29 13:42 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/766494.shtml)
-- 2026-06-29 14:01 - [TOP 无畏契约](http://www.share.minike.top/Article/details/929712572000.shtml)
-- 2026-06-29 14:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/21566.shtml)
-- 2026-06-29 14:11 - [啊啊啊](https://www.blog.kurohicncr.top/Article/details/04214052.shtml)
-- 2026-06-29 13:45 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.minike.top/Article/details/800808.shtml)
-- 2026-06-29 14:11 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/3374348812.shtml)
-- 2026-06-29 13:43 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/627283164213.shtml)
-- 2026-06-29 14:03 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/96454812585.shtml)
-- 2026-06-29 13:54 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.kurohicncr.top/Article/details/546957186052.shtml)
-- 2026-06-29 13:48 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/702848964842.shtml)
+- 2026-06-29 14:17 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/482710809155.shtml)
+- 2026-06-29 14:00 - [明星大侦探第四季](http://www.share.minike.top/Article/details/1328261710.shtml)
+- 2026-06-29 14:00 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/050080.shtml)
+- 2026-06-29 14:10 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/10800234802.shtml)
+- 2026-06-29 13:49 - [中餐厅南北饮食差异](https://www.blog.minike.top/Article/details/206822944522.shtml)
+- 2026-06-29 14:05 - [俄称继续推进 乌称打击俄军设施](https://www.blog.minike.top/Article/details/916069099.shtml)
+- 2026-06-29 14:14 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/1297683648.shtml)
+- 2026-06-29 13:50 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/80085141.shtml)
+- 2026-06-29 14:06 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/90495509926.shtml)
+- 2026-06-29 14:09 - [金刚川](https://www.share.minike.top/Article/details/5580890.shtml)
+- 2026-06-29 13:48 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/97029.shtml)
+- 2026-06-29 14:03 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/28051149026.shtml)
+- 2026-06-29 13:57 - [恋与深空底线不该被娱乐化](https://www.share.minike.top/Article/details/60715.shtml)
+- 2026-06-29 14:02 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/661805.shtml)
+- 2026-06-29 14:17 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/18429041026.shtml)

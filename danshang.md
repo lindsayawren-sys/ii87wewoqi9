@@ -1,61 +1,60 @@
-# 长江有色：2日氧化铝期价收跌1.28% 整体交投清淡
+# 今夜，跳水！特朗普：美军将封锁！霍尔木兹海峡，再生变数！两艘油轮紧急掉头
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-长江有色网6月2日讯，今日氧化铝所有合约全线收跌，主力月2609合约弱势走低；截止当日15：00收盘，氧化铝主力月2609合约报2851元，跌37元，跌幅1.28%；加权合约累计成交404498手，比前一交易日减少36732手，跌幅8.32%；持仓量464788手减少3519手，跌幅0.75%。 今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，6月2日氧化铝华南地区每吨报
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！伊朗局势突变！ 据最新消息，当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。他还表示，美国将开始“摧毁”伊朗人在霍尔木兹海峡布设的水雷。 特朗普12日还对伊朗发出新的威胁，称“在适当时间，我们会完全‘准备就绪’，我们的军队将把伊朗
 
 ## 正文
 
-长江有色网6月2日讯，今日氧化铝所有合约全线收跌，主力月2609合约弱势走低；截止当日15：00收盘，氧化铝主力月2609合约报2851元，跌37元，跌幅1.28%；加权合约累计成交404498手，比前一交易日减少36732手，跌幅8.32%；持仓量464788手减少3519手，跌幅0.75%。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-今日国内氧化铝现货价格持稳；据长江有色网ccmn数据，6月2日氧化铝华南地区每吨报2680-2730元之间，与前一交易日报价持平；华东地区氧化铝每吨报2690-2730元之间，与前一交易日报价持平；西南地区氧化铝每吨2755-2795元之间，与前一交易日报价持平；西北地区氧化铝每吨报2990-3030元之间，与前一交易日报价持平。
+伊朗局势突变！
 
-今日上期所氧化铝期货主力2609合约震荡走软，日间交易收跌1.28%，国内氧化铝现货价格持稳； 宏观层面，中东局势再度升级，伊朗暂停与美间接谈判，霍尔木兹及曼德海峡封锁风险推升油价，加剧全球通胀担忧。
+据最新消息，当地时间4月12日，美国总统特朗普在社交媒体平台发文称，即刻起，美国海军将开始对所有试图进入或离开霍尔木兹海峡的船只实施封锁。
 
-市场对美联储维持鹰派甚至年内再次加息的预期升温，美元与美债收益率走强，对以美元计价的有色金属形成整体估值压制。
+他还表示，美国将开始“摧毁”伊朗人在霍尔木兹海峡布设的水雷。
 
-氧化铝自身基本面偏弱，难以抵抗宏观流动性收紧的压力。
+特朗普12日还对伊朗发出新的威胁，称“在适当时间，我们会完全‘准备就绪’，我们的军队将把伊朗的残余力量终结。
 
-基本面，当前市场的核心矛盾仍是供应过剩。
+” 上述消息传开后，加密货币市场出现跳水，比特币跌破7.1万美元。
 
-国内新投产能稳定释放，产量稳步上升，而需求端受电解铝产能触顶限制，淡季消费增量有限，导致库存持续累积。
+截至发稿，比特币跌2.32%报70998美元，以太坊、BNB、Solana跌超2%，艾达币、Hyperliquid跌超4%。
 
-现货市场出货意愿强烈，但下游电解铝厂长单供应充足，对高价现货采购意愿低迷，整体交投清淡。
+1个小时内，加密货币全网爆仓超1900万美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 14:00 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-29 13:56 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-29 13:42 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 13:54 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
-- 2026-06-29 14:08 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiebu.md)
-- 2026-06-29 13:46 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 13:58 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 14:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 13:54 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
-- 2026-06-29 14:11 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
-- 2026-06-29 13:54 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-29 14:06 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 13:43 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 14:00 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 14:03 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:50 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 13:56 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 14:16 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 14:08 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-29 14:01 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 14:02 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 13:57 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-29 14:01 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
+- 2026-06-29 13:59 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 14:11 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
+- 2026-06-29 14:10 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 14:11 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evsft.md)
+- 2026-06-29 13:51 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/82856.shtml)
-- 2026-06-29 14:05 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/28181.shtml)
-- 2026-06-29 13:42 - [异世界一点都不好玩！](http://www.blog.kurohicncr.top/Article/details/199391562.shtml)
-- 2026-06-29 14:00 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/946971.shtml)
-- 2026-06-29 14:03 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/22667186813.shtml)
-- 2026-06-29 14:09 - [多家银行收紧个人贵金属业务](http://www.blog.kurohicncr.top/Article/details/261409.shtml)
-- 2026-06-29 13:59 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/576234392558.shtml)
-- 2026-06-29 13:52 - [比亚迪市值为何蒸发8000亿](https://www.share.minike.top/Article/details/74395843.shtml)
-- 2026-06-29 14:06 - [T1零封KC MSI](https://www.share.minike.top/Article/details/049440719.shtml)
-- 2026-06-29 13:50 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/9802986.shtml)
-- 2026-06-29 13:46 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/443602469184.shtml)
-- 2026-06-29 13:49 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/39948.shtml)
-- 2026-06-29 14:05 - [多家银行收紧个人贵金属业务](https://www.blog.kurohicncr.top/Article/details/46876245269.shtml)
-- 2026-06-29 13:58 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/0223318500.shtml)
-- 2026-06-29 14:08 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/650575402100.shtml)
+- 2026-06-29 13:53 - [世界杯用球成部分门将噩梦](http://www.blog.kurohicncr.top/Article/details/413815653.shtml)
+- 2026-06-29 14:16 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/4576042.shtml)
+- 2026-06-29 13:59 - [河南考699分女生已接到清华大学电话](https://www.share.minike.top/Article/details/349671.shtml)
+- 2026-06-29 14:14 - [韩国队如何把94%出线概率打到0%](https://www.share.minike.top/Article/details/6775609542.shtml)
+- 2026-06-29 13:59 - [专家建议城乡居民养老金增至每月千元](https://www.share.minike.top/Article/details/7484177652.shtml)
+- 2026-06-29 13:51 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/7998868843.shtml)
+- 2026-06-29 14:08 - [恋与深空失控领地](https://www.share.minike.top/Article/details/95246.shtml)
+- 2026-06-29 13:49 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/462485.shtml)
+- 2026-06-29 13:56 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/20597131782.shtml)
+- 2026-06-29 14:00 - [当我回母校教书](https://www.share.minike.top/Article/details/69711053275.shtml)
+- 2026-06-29 13:50 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/285827.shtml)
+- 2026-06-29 13:59 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/1605868274.shtml)
+- 2026-06-29 14:10 - [行程万里不忘初心](https://www.share.minike.top/Article/details/784006.shtml)
+- 2026-06-29 13:49 - [速度与激情9](http://www.blog.minike.top/Article/details/7902251566.shtml)
+- 2026-06-29 14:12 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/612311.shtml)

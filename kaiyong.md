@@ -1,56 +1,57 @@
-# ImmunityBio在ASCO 2026发布肺癌与膀胱癌新临床及对比数据
+# 中国一季度进出口超11万亿元 季度增速达近五年新高
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-ImmunityBio在2026年美国临床肿瘤学会年会上公布了两项壁报和一篇在线摘要，展示了其IL-15受体激动剂免疫疗法ANKTIVA在非小细胞肺癌和膀胱癌领域的最新临床数据。 在非小细胞肺癌方面，两项随机III期试验数据值得关注。第一项为ResQ201A试验，评估ANKTIVA联合替雷利珠单抗及多西他赛，对比多西他赛单药治疗免疫检查点抑制剂耐药的晚期或转移性非小细胞肺癌患者
+中新社北京4月14日电 (记者 王梦瑶)中国海关总署副署长王军14日在国新办新闻发布会上表示，中国一季度进出口超过11万亿元(人民币，下同)，为历史同期首次，季度增速也是近五年最高。 当日公布的数据显示，今年一季度，中国货物贸易进出口11.84万亿元，同比增长15%。其中，出口6.85万亿元，增长11.9%，进口4.99万亿元，增长19.6%。 各类经营主体全面增长。一季度，中
 
 ## 正文
 
-ImmunityBio在2026年美国临床肿瘤学会年会上公布了两项壁报和一篇在线摘要，展示了其IL-15受体激动剂免疫疗法ANKTIVA在非小细胞肺癌和膀胱癌领域的最新临床数据。
+中新社北京4月14日电 (记者 王梦瑶)中国海关总署副署长王军14日在国新办新闻发布会上表示，中国一季度进出口超过11万亿元(人民币，下同)，为历史同期首次，季度增速也是近五年最高。
 
-在非小细胞肺癌方面，两项随机III期试验数据值得关注。
+当日公布的数据显示，今年一季度，中国货物贸易进出口11.84万亿元，同比增长15%。
 
-第一项为ResQ201A试验，评估ANKTIVA联合替雷利珠单抗及多西他赛，对比多西他赛单药治疗免疫检查点抑制剂耐药的晚期或转移性非小细胞肺癌患者的疗效。
+其中，出口6.85万亿元，增长11.9%，进口4.99万亿元，增长19.6%。
 
-第二项为QUILT-2.023试验，评估ANKTIVA联合检查点抑制剂作为一线治疗方案在非小细胞肺癌患者中的疗效。
+各类经营主体全面增长。
 
-针对卡介苗无应答的非肌层浸润性膀胱癌，ImmunityBio公布了一项匹配调整间接比较分析结果，对比ANKTIVA联合BCG与帕博利珠单抗的疗效。
+一季度，中国民营企业进出口6.78万亿元，同比增长16.2%，占中国进出口总值的比重进一步提升至57.3%。
 
-该分析基于QUILT-3.032试验与帕博利珠单抗单药治疗数据的间接比较。
+同期，外商投资企业进出口3.47万亿元，国有企业进出口1.56万亿元，同比分别增长16.1%和8%。
 
-此前在2026年美国泌尿外科协会年会上，ImmunityBio已公布了ANKTIVA+BCG相对于其他两种FDA批准疗法的间接比较结果。
+市场多元化进一步巩固拓展。
 
-数据显示：与nadofaragene firadenovec-vncg相比，ANKTIVA+BCG治疗的患者在任何时间点达到完全缓解的可能性是其两倍（69.7% vs 53.4%），中位完全缓解持续时间超过两倍（22.1个月 vs 9.7个月），并将膀胱切除风险降低60%；与TAR-200相比，ANKTIVA+BCG在12个月时完全缓解率数值更高（49.2% vs 45.9%），且任何级别治疗相关不良事件显著更少（61.7% vs 83.5%）。
+一季度，中国对共建“一带一路”国家进出口6.06万亿元，同比增长14.2%，占进出口总值的51.2%，对东盟、拉美进出口均同比增长15.4%，对非洲进出口同比增长23.7%，对欧盟、英国进出口同比分别增长14.6%和13.1%，对亚太经合组织其他经济体进出口同比增长13.4%。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 13:50 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaokuo.md)
-- 2026-06-29 14:02 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
-- 2026-06-29 13:57 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 14:07 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
-- 2026-06-29 13:42 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-29 13:59 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 13:50 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 13:56 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
-- 2026-06-29 14:09 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 14:14 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwnjx.md)
+- 2026-06-29 13:52 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
+- 2026-06-29 13:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
+- 2026-06-29 13:52 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-29 14:01 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-29 13:48 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanjin.md)
+- 2026-06-29 14:10 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:54 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 14:13 - [新一代影后杨紫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 14:17 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-29 13:48 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bgckw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/74350674357.shtml)
-- 2026-06-29 13:48 - [开电动汽车真的很省钱吗？](http://www.blog.kurohicncr.top/Article/details/43113626.shtml)
-- 2026-06-29 13:43 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/017860724271.shtml)
-- 2026-06-29 13:56 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/05120238.shtml)
-- 2026-06-29 14:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/275159898.shtml)
-- 2026-06-29 13:58 - [北极荒岛生存挑战](http://www.share.kurohicncr.top/Article/details/10361868.shtml)
-- 2026-06-29 13:50 - [时光音乐会](https://www.blog.minike.top/Article/details/453739100.shtml)
-- 2026-06-29 13:58 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/9438734.shtml)
-- 2026-06-29 13:59 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/6280700099.shtml)
-- 2026-06-29 14:04 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/11115.shtml)
-- 2026-06-29 13:51 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/923349610840.shtml)
-- 2026-06-29 14:00 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/98468.shtml)
-- 2026-06-29 14:09 - [退休化学教授帮医药研发人员制毒](http://www.share.minike.top/Article/details/5706408.shtml)
-- 2026-06-29 14:11 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/643554805690.shtml)
-- 2026-06-29 14:07 - [手游300亿数据或被军事化运用](https://www.share.minike.top/Article/details/388687060.shtml)
+- 2026-06-29 14:03 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/37593848.shtml)
+- 2026-06-29 14:01 - [我们看到的星星是不是有些已经不存在了？](https://www.share.kurohicncr.top/Article/details/8756436637.shtml)
+- 2026-06-29 13:50 - [强⁶](https://www.share.kurohicncr.top/Article/details/188674416509.shtml)
+- 2026-06-29 14:13 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/3943560272.shtml)
+- 2026-06-29 13:49 - [5万块的威力](http://www.blog.minike.top/Article/details/165588.shtml)
+- 2026-06-29 14:03 - [TOP 无畏契约](http://www.share.minike.top/Article/details/85789057.shtml)
+- 2026-06-29 13:53 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/77471645.shtml)
+- 2026-06-29 14:14 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.minike.top/Article/details/548541790918.shtml)
+- 2026-06-29 14:16 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/61273266815.shtml)
+- 2026-06-29 14:10 - [锐评浪姐7总决赛](http://www.blog.kurohicncr.top/Article/details/812377011.shtml)
+- 2026-06-29 14:02 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/89920977707.shtml)
+- 2026-06-29 14:11 - [刘仲华院士愿当贺永辉导师](http://www.blog.minike.top/Article/details/20987151753.shtml)
+- 2026-06-29 14:12 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/309548012752.shtml)
+- 2026-06-29 14:01 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/5143291.shtml)
+- 2026-06-29 14:07 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/9727646.shtml)

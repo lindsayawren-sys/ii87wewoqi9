@@ -1,56 +1,47 @@
-# 万亿健康险走出舒适圈向带病体开“卷”：从 “择优承保” 到 “管好非标风险”
+# 知乎-W于4月10日斥资39.93万美元回购36.59万股
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-蓝鲸新闻6月2日讯（记者 石雨） 传统健康险依托筛选健康客群的增长模式逐渐触顶固化，增速持续疲软，存量竞争下，覆盖超4亿慢病患者的带病体市场，或成为行业突破增长瓶颈的核心增量赛道。 记者观察到，在政策引导、技术赋能的双重驱动下，国内健康险行业逐步告别“择优承保”的传统逻辑，转向主动承接非标风险，各类慢病专属险、肿瘤复发险、宽松既往症医疗险密集落地，缓解了带病体“投保难”的行业痛
+知乎-W（02390）发布公告，于2026年4月10日该公司斥资39.93万美元回购36.59万股，回购价格为每股1.08-1.10美元。责任编辑：卢昱君
 
 ## 正文
 
-蓝鲸新闻6月2日讯（记者 石雨） 传统健康险依托筛选健康客群的增长模式逐渐触顶固化，增速持续疲软，存量竞争下，覆盖超4亿慢病患者的带病体市场，或成为行业突破增长瓶颈的核心增量赛道。
+知乎-W（02390）发布公告，于2026年4月10日该公司斥资39.93万美元回购36.59万股，回购价格为每股1.08-1.10美元。
 
-记者观察到，在政策引导、技术赋能的双重驱动下，国内健康险行业逐步告别“择优承保”的传统逻辑，转向主动承接非标风险，各类慢病专属险、肿瘤复发险、宽松既往症医疗险密集落地，缓解了带病体“投保难”的行业痛点。
-
-但当前赛道仍处于粗放探索阶段，风险定价难、医疗数据缺失、全病程服务缺位、供需错配等问题凸显，制约市场潜力释放。
-
-从行业演进规律看，健康险从“保健康人”走向“保带病体”是产品发展进入深水区后的趋势，各方又该如何突破供给端的掣肘？
-
-健康险增长模式触及边界，转向带病体新赛道 被市场寄予厚望的健康险，近年来脚步却逐渐放慢，2025年保费增速仅2.04%，规模未破万亿。
-
-传统市场难以突破的背景下，越来越多机构将目光聚焦“带病体”人群。
-
-数据显示，我国慢性病整体患病率约在35%~45%区间，慢病患者超4亿人，75%的60岁以上老年人至少患有1种慢性病，43%有多病共存。
-
-且根据《带病体保险创新研究报告（2025）》，带病体群体平均治疗费用达8.7万元，约为居民年可支配收入的2.1倍，其中重大疾病患者平均治疗费用超过15万元。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 14:07 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-29 13:45 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 14:06 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
-- 2026-06-29 13:48 - [当我回母校教书](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 13:45 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 14:00 - [Canna纳尔8-0对位单杀Doran](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 13:45 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-29 13:50 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-29 14:02 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 14:07 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-29 14:13 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 13:56 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 14:06 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 14:10 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-29 13:56 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-29 13:54 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-29 13:55 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 14:02 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 14:08 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 14:05 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
+- 2026-06-29 14:11 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 14:09 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:55 - [江苏财政厅原一级调研员谢功成被查](http://www.share.minike.top/Article/details/106179336011.shtml)
-- 2026-06-29 13:53 - [三系杂交稻到底有多牛](https://www.blog.minike.top/Article/details/565542.shtml)
-- 2026-06-29 14:11 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.minike.top/Article/details/94775629.shtml)
-- 2026-06-29 14:03 - [多只A股发布股价异动公告](http://www.share.kurohicncr.top/Article/details/822792.shtml)
-- 2026-06-29 14:10 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/853122547779.shtml)
-- 2026-06-29 14:08 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/926449689.shtml)
-- 2026-06-29 14:09 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/95406239.shtml)
-- 2026-06-29 14:03 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/9743201197.shtml)
-- 2026-06-29 13:45 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/526132556.shtml)
-- 2026-06-29 14:11 - [博主：比亚迪赢了销量却输给资本](http://www.share.kurohicncr.top/Article/details/0122731.shtml)
-- 2026-06-29 13:55 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.minike.top/Article/details/255988518652.shtml)
-- 2026-06-29 14:01 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/498010223.shtml)
-- 2026-06-29 13:55 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/3611704393.shtml)
-- 2026-06-29 13:46 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/5548971547.shtml)
-- 2026-06-29 13:43 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/18274101.shtml)
+- 2026-06-29 14:04 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.minike.top/Article/details/149579283294.shtml)
+- 2026-06-29 14:07 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/4685059.shtml)
+- 2026-06-29 14:09 - [恋与深空失控领地](http://www.share.minike.top/Article/details/37023570.shtml)
+- 2026-06-29 14:07 - [金价银价下跌 油价上涨](http://www.share.minike.top/Article/details/37027185.shtml)
+- 2026-06-29 14:06 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/229353938404.shtml)
+- 2026-06-29 14:09 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/870689829.shtml)
+- 2026-06-29 14:00 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.minike.top/Article/details/471439.shtml)
+- 2026-06-29 14:05 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/61438.shtml)
+- 2026-06-29 14:01 - [美的空调 卡bug](https://www.share.minike.top/Article/details/136467.shtml)
+- 2026-06-29 13:58 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/049313121.shtml)
+- 2026-06-29 13:55 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/838101.shtml)
+- 2026-06-29 13:52 - [委内瑞拉地震已致1450死3150伤](https://www.blog.minike.top/Article/details/19166938.shtml)
+- 2026-06-29 14:01 - [巴西前锋说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/79274582.shtml)
+- 2026-06-29 14:08 - [三都主：淘汰赛我会支持日本](http://www.blog.minike.top/Article/details/22392.shtml)
+- 2026-06-29 14:05 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/926681484.shtml)

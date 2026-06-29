@@ -1,49 +1,54 @@
-# 新疆库车：独库公路恢复开通首日车水马龙
+# 美联储官员古尔斯比：战争对美国经济的影响取决于冲突持续时长
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 22:27 来源：中国新闻网 2026年6月1日，被称为“中国最美公路”之一的独库公路恢复开通。在独库公路库车段，来往车辆川流不息，形成了一条长龙穿梭在天山之间，蔚为壮观。(作者：张镭、李东) 责任编辑：【魏聪聪】
+芝加哥联邦储备银行行长奥斯坦·古尔斯比表示，伊朗冲突对美国经济的影响取决于战争持续的时间。 “如果油价连续数月维持在每桶90美元、100美元以上，那么在美国我们就必须把这一点纳入我们的计算中，”古尔斯比周一在接受福克斯新闻采访时表示。 古尔斯比表示，如果能源价格长期居高不下，可能会刺激能源生产领域的投资，但也可能对消费者信心造成影响。 “如果消费者信心和情绪开始恶化，不要感到惊
 
 ## 正文
 
-发布时间：2026年06月01日 22:27 来源：中国新闻网 2026年6月1日，被称为“中国最美公路”之一的独库公路恢复开通。
+芝加哥联邦储备银行行长奥斯坦·古尔斯比表示，伊朗冲突对美国经济的影响取决于战争持续的时间。
 
-在独库公路库车段，来往车辆川流不息，形成了一条长龙穿梭在天山之间，蔚为壮观。
+“如果油价连续数月维持在每桶90美元、100美元以上，那么在美国我们就必须把这一点纳入我们的计算中，”古尔斯比周一在接受福克斯新闻采访时表示。
 
-(作者：张镭、李东) 责任编辑：【魏聪聪】
+古尔斯比表示，如果能源价格长期居高不下，可能会刺激能源生产领域的投资，但也可能对消费者信心造成影响。
+
+“如果消费者信心和情绪开始恶化，不要感到惊讶，”古尔斯比说。
+
+他称消费者一直是美国经济中最强大的力量。
+
+古尔斯比表示，能源价格上涨最终可能会外溢，导致机票和食品价格上涨。
+
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 13:45 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 13:56 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 14:01 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-29 13:42 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 13:45 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guofeng.md)
-- 2026-06-29 13:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 14:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 13:59 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 14:08 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
-- 2026-06-29 13:58 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 13:54 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vctwx.md)
-- 2026-06-29 13:59 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 14:11 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 14:11 - [李在明称韩国足协任命了无能之人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
+- 2026-06-29 14:02 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 14:13 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 14:08 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiwang.md)
+- 2026-06-29 13:59 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 13:56 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 14:08 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 13:57 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-29 13:50 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.minike.top/Article/details/808511544861.shtml)
-- 2026-06-29 13:48 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/3804361.shtml)
-- 2026-06-29 13:53 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/771312437.shtml)
-- 2026-06-29 13:49 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/211211447.shtml)
-- 2026-06-29 13:49 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/26036367.shtml)
-- 2026-06-29 13:57 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/3121662372.shtml)
-- 2026-06-29 14:11 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/00634.shtml)
-- 2026-06-29 14:04 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/174971446.shtml)
-- 2026-06-29 14:09 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/081467040376.shtml)
-- 2026-06-29 13:52 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/725193703.shtml)
-- 2026-06-29 14:04 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/331296306659.shtml)
-- 2026-06-29 14:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/54496.shtml)
-- 2026-06-29 14:10 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/7902661906.shtml)
-- 2026-06-29 13:46 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/90430.shtml)
-- 2026-06-29 14:11 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/420724873.shtml)
+- 2026-06-29 13:50 - [俄称继续推进 乌称打击俄军设施](http://www.share.minike.top/Article/details/4037791336.shtml)
+- 2026-06-29 13:57 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/831340.shtml)
+- 2026-06-29 14:16 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/88770.shtml)
+- 2026-06-29 13:51 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/443494.shtml)
+- 2026-06-29 14:01 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/3527065924.shtml)
+- 2026-06-29 13:49 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/763719.shtml)
+- 2026-06-29 13:54 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/252741201116.shtml)
+- 2026-06-29 14:17 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/0294624.shtml)
+- 2026-06-29 14:10 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/60821312.shtml)
+- 2026-06-29 13:52 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/442050975373.shtml)
+- 2026-06-29 13:59 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/00376200278.shtml)
+- 2026-06-29 13:48 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/850391.shtml)
+- 2026-06-29 14:06 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/75183.shtml)
+- 2026-06-29 14:02 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/85898687910.shtml)
+- 2026-06-29 14:03 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.kurohicncr.top/Article/details/0059191.shtml)

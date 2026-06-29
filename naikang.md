@@ -1,43 +1,44 @@
-# 四川省住房和城乡建设厅党组成员、副厅长程刚被查
+# 海军工程大学走进中学校园，秒变追星现场，学生们追着官兵要签名合影
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据四川省纪委监委消息：四川省住房和城乡建设厅党组成员、副厅长程刚涉嫌严重违纪违法，主动投案，目前正接受四川省纪委监委纪律审查和监察调查。
+发布时间：2026年04月12日 19:48 来源：中国新闻网 海军工程大学走进中学校园，秒变追星现场，学生们追着官兵要签名合影。 责任编辑：【张楠】
 
 ## 正文
 
-中新网6月2日电 据四川省纪委监委消息：四川省住房和城乡建设厅党组成员、副厅长程刚涉嫌严重违纪违法，主动投案，目前正接受四川省纪委监委纪律审查和监察调查。
+发布时间：2026年04月12日 19:48 来源：中国新闻网 海军工程大学走进中学校园，秒变追星现场，学生们追着官兵要签名合影。
+
+责任编辑：【张楠】
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
-- 2026-06-29 14:07 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 13:47 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 13:57 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-29 13:50 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 13:50 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 14:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 13:42 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 13:51 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 13:48 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 14:00 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 14:08 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 14:03 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 14:05 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
+- 2026-06-29 14:04 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
+- 2026-06-29 14:07 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzext.md)
+- 2026-06-29 14:01 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 13:53 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 14:05 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-29 14:06 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:06 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/282994281669.shtml)
-- 2026-06-29 13:52 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/09599761.shtml)
-- 2026-06-29 13:43 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/572432.shtml)
-- 2026-06-29 13:55 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/34911056.shtml)
-- 2026-06-29 13:47 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/380134319.shtml)
-- 2026-06-29 13:49 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/63415752160.shtml)
-- 2026-06-29 14:03 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/69417938.shtml)
-- 2026-06-29 14:07 - [韩剧编剧又升级了](http://www.blog.kurohicncr.top/Article/details/58854149.shtml)
-- 2026-06-29 14:07 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.kurohicncr.top/Article/details/817827668910.shtml)
-- 2026-06-29 14:02 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/95083310.shtml)
-- 2026-06-29 13:50 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/806016856.shtml)
-- 2026-06-29 14:05 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/51901958.shtml)
-- 2026-06-29 13:59 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/18085039780.shtml)
-- 2026-06-29 13:50 - [周生如故](https://www.blog.minike.top/Article/details/5514123378.shtml)
-- 2026-06-29 14:01 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.minike.top/Article/details/420838009696.shtml)
+- 2026-06-29 13:52 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/08128.shtml)
+- 2026-06-29 14:09 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/7802806691.shtml)
+- 2026-06-29 14:11 - [日本前锋言论激怒巴西](https://www.blog.kurohicncr.top/Article/details/461931.shtml)
+- 2026-06-29 13:58 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/2657485550.shtml)
+- 2026-06-29 13:53 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/51321338680.shtml)
+- 2026-06-29 14:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/08462.shtml)
+- 2026-06-29 13:53 - [叶一茜森碟一起回北京了](http://www.share.minike.top/Article/details/907436142523.shtml)
+- 2026-06-29 14:08 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/4712875050.shtml)
+- 2026-06-29 14:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.kurohicncr.top/Article/details/668939765715.shtml)
+- 2026-06-29 13:56 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/348053432.shtml)
+- 2026-06-29 14:08 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/4569714.shtml)
+- 2026-06-29 14:15 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/62643452983.shtml)
+- 2026-06-29 13:51 - [为什么6月以来北方频繁降雨](http://www.share.kurohicncr.top/Article/details/0008434793.shtml)
+- 2026-06-29 13:58 - [FIFA回应佛得角队长被指控强奸](https://www.share.minike.top/Article/details/46833713.shtml)
+- 2026-06-29 14:13 - [俄军新型无人机战力如何](http://www.share.kurohicncr.top/Article/details/435435426567.shtml)

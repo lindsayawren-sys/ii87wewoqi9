@@ -1,58 +1,60 @@
-# 科技股反弹，能否“逢低布局”？机构给出思路→
+# 美国威胁封锁霍尔木兹海峡，伊朗议长：很快你们就会怀念4-5美元的油价
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月2日，A股缩量分化，指数涨多跌少，创业板指盘中涨逾3%。但个股跌多涨少，仅1543只收涨。电子元件、光通信模块等科技板块领涨。 受访人士表示，资金向高景气赛道极致集中，形成虹吸效应，导致指数与个股走势背离，折射出市场情绪低迷与结构分化加剧。短期来看，A股或延续指数温和震荡、板块轮动加速
+伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。 美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。 加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。随着所谓的‘封锁
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+伊朗议会议长穆罕默德·巴格尔·加利巴夫周日警告称，美国封锁伊朗港口将导致油价大幅上涨，而目前的汽油价格在事后看来将显得非常便宜。
 
-来源：国际金融报 6月2日，A股缩量分化，指数涨多跌少，创业板指盘中涨逾3%。
+美国中央司令部表示，封锁将于美国东部时间4月13日上午10点开始，适用于所有进出伊朗港口的船只，但前往非伊朗港口的船只仍可通行霍尔木兹海峡。
 
-但个股跌多涨少，仅1543只收涨。
+加利巴夫在社交平台上发布了一张华盛顿地区汽油价格地图的截图，并写道：“好好享受现在的油价吧。
 
-电子元件、光通信模块等科技板块领涨。
+随着所谓的‘封锁’，很快你们就会怀念 4-5 美元（每加仑）的汽油了。
 
-受访人士表示，资金向高景气赛道极致集中，形成虹吸效应，导致指数与个股走势背离，折射出市场情绪低迷与结构分化加剧。
+” 他还使用了“ΔO_BSOH>0 ⇒ f（f（O））>f（O）”这种符号，这是一种网络迷因式的数学简写，暗示封锁海峡造成的石油冲击会像滚雪球一样越滚越大，而不是像以往那样出现一次性的暴涨。
 
-短期来看，A股或延续指数温和震荡、板块轮动加速的格局。
+在特朗普表示美国将采取行动封锁与伊朗相关的船只通行，加利巴夫发表了上述言论。
 
-通信、电子等板块反弹 指数表现上，早盘一度下挫，随后震荡上扬，午后延续升势，主要指数多数收涨。
+此前，美国副总统万斯警告称谈判已经失败，而美伊谈判代表离开伊斯兰堡时，并未就伊朗核计划和霍尔木兹海峡问题达成协议。
 
-沪指收涨0.43%报4075.1点，创业板指收涨2.66%报4055.87点，深证成指收涨1.63%。
+美国汽车协会（AAA）公布的数据显示，截至4月12日，美国普通汽油的平均价格为每加仑4.125美元，其中加州为每加仑5.894美元，华盛顿州为每加仑5.390美元，而俄勒冈州和内华达州的价格则略低于每加仑5美元。
 
 ## 相关推荐
 
-- 2026-06-29 13:55 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
-- 2026-06-29 13:55 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 14:07 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 13:52 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
-- 2026-06-29 13:51 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
-- 2026-06-29 13:45 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
-- 2026-06-29 13:56 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 14:03 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 14:08 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 14:06 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
-- 2026-06-29 13:57 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-29 13:43 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-29 14:12 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
+- 2026-06-29 13:57 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 13:52 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 14:00 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 14:05 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
+- 2026-06-29 14:00 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-29 14:08 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 14:11 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 14:15 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
+- 2026-06-29 14:00 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 14:11 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
+- 2026-06-29 14:14 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-29 13:53 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 14:09 - [T1 vs KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/0454462475.shtml)
-- 2026-06-29 13:52 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/804704.shtml)
-- 2026-06-29 14:08 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/729173339619.shtml)
-- 2026-06-29 14:02 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/3201903.shtml)
-- 2026-06-29 13:44 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/0977381490.shtml)
-- 2026-06-29 13:45 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.kurohicncr.top/Article/details/42044653311.shtml)
-- 2026-06-29 13:47 - [42岁郭碧婷纯素颜状态](https://www.blog.minike.top/Article/details/26268365.shtml)
-- 2026-06-29 14:01 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/257482795404.shtml)
-- 2026-06-29 13:42 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/3830113.shtml)
-- 2026-06-29 13:55 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/07165886620.shtml)
-- 2026-06-29 13:42 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/592497.shtml)
-- 2026-06-29 13:58 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/8356097.shtml)
-- 2026-06-29 13:48 - [极限挑战第一季](https://www.share.minike.top/Article/details/13570338993.shtml)
-- 2026-06-29 13:44 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/721927.shtml)
-- 2026-06-29 14:03 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/13261706630.shtml)
+- 2026-06-29 14:01 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/977326115.shtml)
+- 2026-06-29 13:50 - [千与千寻](https://www.share.kurohicncr.top/Article/details/3627340.shtml)
+- 2026-06-29 14:09 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/2079261743.shtml)
+- 2026-06-29 14:11 - [美人鱼](https://www.share.minike.top/Article/details/33925.shtml)
+- 2026-06-29 13:52 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/74659.shtml)
+- 2026-06-29 14:12 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/1824406424.shtml)
+- 2026-06-29 13:53 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/187282204914.shtml)
+- 2026-06-29 14:14 - [急先锋](http://www.blog.kurohicncr.top/Article/details/862550.shtml)
+- 2026-06-29 14:16 - [男子月薪五千卖房借贷给女友转账百万](https://www.blog.minike.top/Article/details/9503962105.shtml)
+- 2026-06-29 14:11 - [明星大侦探第一季](https://www.share.minike.top/Article/details/2091298.shtml)
+- 2026-06-29 14:15 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/8529559642.shtml)
+- 2026-06-29 13:48 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/47116810209.shtml)
+- 2026-06-29 14:15 - [第一炉香](http://www.blog.minike.top/Article/details/5111306679.shtml)
+- 2026-06-29 14:05 - [配音演员于小华病逝 享年78岁](http://www.share.minike.top/Article/details/72388337315.shtml)
+- 2026-06-29 14:12 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/86945967.shtml)

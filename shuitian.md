@@ -1,56 +1,57 @@
-# 苏丹两地遭无人机袭击致67人死亡
+# 海致科技集团午前涨超10% Atlas智能体解决方案增长迅猛
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 喀土穆消息：当地时间5月31日，苏丹民间机构“紧急律师倡议”披露，近期发生在北科尔多凡州、西科尔多凡州的两起无人机袭击事件，造成大量人员死亡。 综合阿拉伯新闻网、《苏丹论坛报》等媒体报道，5月29日，北科尔多凡州一村庄遭到无人机袭击，造成57人死亡。据消息人士披露，此次袭击系苏丹快速支援部队所为。 5月30日，一架军用无人机袭击了苏丹西科尔多凡州阿布扎巴德
+海致科技（02706）盘中涨超21%，截至发稿，股价上涨10.39%，现报57.40港元，成交额1.35亿港元。 海致科技此前发布的2025年年报显示，该公司全年实现收入6.21亿元，同比增长23.4%；经调整净利润2415万元，同比增长42.6%。期内，核心增长引擎Atlas智能体收入1.46亿元，同比激增68.4%，成为公司增长最快的业务板块。质量指标上，公司智能体客单价达
 
 ## 正文
 
-中新社北京6月1日电 喀土穆消息：当地时间5月31日，苏丹民间机构“紧急律师倡议”披露，近期发生在北科尔多凡州、西科尔多凡州的两起无人机袭击事件，造成大量人员死亡。
+海致科技（02706）盘中涨超21%，截至发稿，股价上涨10.39%，现报57.40港元，成交额1.35亿港元。
 
-综合阿拉伯新闻网、《苏丹论坛报》等媒体报道，5月29日，北科尔多凡州一村庄遭到无人机袭击，造成57人死亡。
+海致科技此前发布的2025年年报显示，该公司全年实现收入6.21亿元，同比增长23.4%；经调整净利润2415万元，同比增长42.6%。
 
-据消息人士披露，此次袭击系苏丹快速支援部队所为。
+期内，核心增长引擎Atlas智能体收入1.46亿元，同比激增68.4%，成为公司增长最快的业务板块。
 
-5月30日，一架军用无人机袭击了苏丹西科尔多凡州阿布扎巴德-富拉公路上的两辆民用车辆，造成包括8名儿童在内的10人死亡，多人受伤，部分伤者伤势严重。
+质量指标上，公司智能体客单价达360万元，高于图谱解决方案的280万元；智能体毛利率提升至53.2%，拉动公司整体毛利率跃升7.1个百分点至43.3%。
 
-“紧急律师倡议”并未指明此次袭击的责任方，但表示袭击“发生在没有军事行动的平民区”，并补充说，这反映出“暴力活动已蔓延至流离失所者居住区”。
+值得一提的是，公司已从金融、公共安全等优势行业，向电信运营商、交通基建、无人空间等新领域拓展并实现订单落地。
 
-截至目前，尚未有任何组织宣称对上述两起袭击事件负责。
+为粤港澳大湾区某无人空间体系管理中心构建统一的无人设备图本体模型；为某海外非银金融机构落地包含大模型一体机在内的智能体应用平台。
 
-苏丹主要反对党之一的乌玛党将第二起袭击事件归咎于苏丹军方。
+公司明确提出，将把成熟经验快速复制到高端制造、医疗健康、智能矿业等新兴高价值领域，并依托香港上市平台逐步探索东南亚及海外市场。
 
-该党表示，在人口稠密地区和道路上反复使用无人机袭击平民，严重违反了国际人道主义法，是对人类生命的漠视。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 14:00 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
-- 2026-06-29 13:47 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 13:52 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 13:44 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 13:45 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 14:06 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
-- 2026-06-29 13:54 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 13:49 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-29 13:43 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 14:13 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 14:06 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-29 14:04 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-29 13:52 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 14:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 14:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 14:00 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 14:09 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 14:13 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 13:59 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 14:03 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:06 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/7648811.shtml)
-- 2026-06-29 14:04 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/5603331800.shtml)
-- 2026-06-29 13:54 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/08893235592.shtml)
-- 2026-06-29 14:06 - [李在明称韩国足协任命了无能之人](http://www.share.minike.top/Article/details/59001.shtml)
-- 2026-06-29 13:44 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/45848021865.shtml)
-- 2026-06-29 13:50 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/298967232.shtml)
-- 2026-06-29 14:04 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/3289980109.shtml)
-- 2026-06-29 14:07 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/383090451076.shtml)
-- 2026-06-29 14:11 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/66949102225.shtml)
-- 2026-06-29 13:46 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/37410899.shtml)
-- 2026-06-29 14:04 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/2496649.shtml)
-- 2026-06-29 13:50 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/948452666318.shtml)
-- 2026-06-29 13:50 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/662015.shtml)
-- 2026-06-29 13:43 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/690145924518.shtml)
-- 2026-06-29 14:10 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/73790.shtml)
+- 2026-06-29 13:51 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/5556833212.shtml)
+- 2026-06-29 13:52 - [TOP 无畏契约](https://www.blog.minike.top/Article/details/316911.shtml)
+- 2026-06-29 13:56 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.kurohicncr.top/Article/details/25259631953.shtml)
+- 2026-06-29 13:52 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/804253.shtml)
+- 2026-06-29 13:50 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/1813497.shtml)
+- 2026-06-29 14:06 - [南部战区位南海海域进行例行巡航](https://www.share.minike.top/Article/details/69462758722.shtml)
+- 2026-06-29 14:05 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/75644926871.shtml)
+- 2026-06-29 13:55 - [明星大侦探第一季](http://www.share.minike.top/Article/details/65963326082.shtml)
+- 2026-06-29 14:11 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/4426324.shtml)
+- 2026-06-29 14:16 - [严浩翔FIY断层第一](https://www.blog.minike.top/Article/details/48155791.shtml)
+- 2026-06-29 14:00 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/67726.shtml)
+- 2026-06-29 14:17 - [女子遭家暴两次起诉离婚均被驳回](http://www.share.minike.top/Article/details/33268097.shtml)
+- 2026-06-29 14:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/32890413674.shtml)
+- 2026-06-29 14:18 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/2035725146.shtml)
+- 2026-06-29 14:00 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/69737.shtml)

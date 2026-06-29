@@ -1,49 +1,59 @@
-# 赛力斯：5月新能源汽车销量33476辆
+# 中支公司收80万元罚单背后：恒邦保险承保亏损、工资缩水
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！（来源：每日经济新闻）每经AI快讯，6月1日，赛力斯发布产销快报，5月赛力斯新能源汽车销量33,476辆；1-5月累计销量145,108辆，同比增长15.14%。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：北京商报 一纸80万元罚单，将恒邦财产保险股份有限公司（以下简称“恒邦保险”）再次推至舆论前台。4月13日，北京商报记者了解到，近日，恒邦保险常州中心支公司因“编制虚假财务资料、虚挂代理业务套取费用”被罚款64万元，时任该中心支公司总经理王彪同时被警告并罚款16万元。 将目光投向这家成立于2014年末、总部位于南昌的财险公
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：北京商报 一纸80万元罚单，将恒邦财产保险股份有限公司（以下简称“恒邦保险”）再次推至舆论前台。
 
-（来源：每日经济新闻）每经AI快讯，6月1日，赛力斯发布产销快报，5月赛力斯新能源汽车销量33,476辆；1-5月累计销量145,108辆，同比增长15.14%。
+4月13日，北京商报记者了解到，近日，恒邦保险常州中心支公司因“编制虚假财务资料、虚挂代理业务套取费用”被罚款64万元，时任该中心支公司总经理王彪同时被警告并罚款16万元。
+
+将目光投向这家成立于2014年末、总部位于南昌的财险公司，另一组数据同样引人关注。
+
+2025年，该公司保险业务收入达到20.76亿元，但净利润却较2024年有所下滑。
+
+与此同时，其综合成本率常年盘踞在100%盈亏平衡线之上。
+
+一家拥有国资股东背景的财险公司，为何在合规管控和经营效益两大维度同时亮起“红灯”？
+
+账面盈利的光环之下，究竟掩盖着怎样的深层隐忧？
+
+分支机构屡触合规红线 近日的一张罚单，将恒邦保险分支机构的合规漏洞又一次暴露在聚光灯下。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-29 14:00 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 13:47 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 13:56 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 13:57 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 13:58 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 14:02 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-29 13:55 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 14:08 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 13:52 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 13:49 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 14:00 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-29 13:55 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-29 14:06 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:57 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 14:06 - [我设置了全宇宙最安全的密码](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 14:03 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 14:03 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-29 13:54 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 14:07 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 14:01 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-29 13:49 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-29 14:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 14:10 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-29 14:11 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 14:03 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
+- 2026-06-29 13:50 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
+- 2026-06-29 14:07 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [高考志愿今起开始填报](https://www.share.kurohicncr.top/Article/details/973441856.shtml)
-- 2026-06-29 14:06 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/978054103.shtml)
-- 2026-06-29 14:03 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/08899626.shtml)
-- 2026-06-29 14:10 - [起风了](https://www.blog.minike.top/Article/details/1451521336.shtml)
-- 2026-06-29 13:50 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.kurohicncr.top/Article/details/843494.shtml)
-- 2026-06-29 13:56 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/385854828.shtml)
-- 2026-06-29 13:52 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/46125245.shtml)
-- 2026-06-29 14:12 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/0514449104.shtml)
-- 2026-06-29 13:45 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.minike.top/Article/details/7007720841.shtml)
-- 2026-06-29 13:55 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/84642058496.shtml)
-- 2026-06-29 13:55 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/64593842670.shtml)
-- 2026-06-29 13:43 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/9401787197.shtml)
-- 2026-06-29 13:58 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/43917.shtml)
-- 2026-06-29 13:45 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/88298.shtml)
-- 2026-06-29 13:58 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/3547800.shtml)
+- 2026-06-29 14:11 - [2021湖南卫视跨年演唱会](http://www.blog.minike.top/Article/details/15754926.shtml)
+- 2026-06-29 14:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/93452701.shtml)
+- 2026-06-29 14:11 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/15279.shtml)
+- 2026-06-29 14:11 - [血糖高的人能吃西瓜吗](http://www.share.minike.top/Article/details/035062.shtml)
+- 2026-06-29 13:55 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/563117.shtml)
+- 2026-06-29 14:10 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/92657101288.shtml)
+- 2026-06-29 14:15 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/50879.shtml)
+- 2026-06-29 14:01 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/110519829154.shtml)
+- 2026-06-29 14:03 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.kurohicncr.top/Article/details/81540935.shtml)
+- 2026-06-29 14:04 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.minike.top/Article/details/8239021821.shtml)
+- 2026-06-29 13:51 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/12293.shtml)
+- 2026-06-29 13:57 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/292125.shtml)
+- 2026-06-29 14:06 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/028565184456.shtml)
+- 2026-06-29 14:02 - [评论员：高温撕开欧洲“遮羞布”](http://www.blog.minike.top/Article/details/1091501.shtml)
+- 2026-06-29 14:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/18782.shtml)

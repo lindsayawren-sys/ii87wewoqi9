@@ -1,53 +1,58 @@
-# 中央网信办组织召开未成年人网络保护协调机制工作会议
+# 韩国3月ICT出口额达435亿美元，同比增长逾一倍
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据“网信中国”微信公众号消息，6月2日，中央网信办组织召开未成年人网络保护协调机制工作会议，研究部署规范和管理未成年人使用网络相关工作。 会议强调，要提高政治站位、把握形势任务，深刻认识规范和管理未成年人使用网络，是推动党中央决策部署落地见效的重要任务，是顺应互联网发展管理趋势、有效回应人民群众关心关切的迫切需要，是保护未成年人网络合法权益、护航未成年人健康成
+韩国政府周二公布的数据显示，随着全球人工智能（AI）热潮推动半导体需求强劲增长，韩国3月份信息通信技术（ICT）产品出口额较上年同期增长超过一倍。 根据韩国科技信息通信部的数据，上月韩国ICT产品出口额达到435.1亿美元，高于去年同期的205.2亿美元，创历史同月最高。 进口额同比增长32.2%，达到161.5亿美元，贸易顺差达273.6亿美元。 韩国科技信息通信部在一份声明
 
 ## 正文
 
-中新网6月3日电 据“网信中国”微信公众号消息，6月2日，中央网信办组织召开未成年人网络保护协调机制工作会议，研究部署规范和管理未成年人使用网络相关工作。
+韩国政府周二公布的数据显示，随着全球人工智能（AI）热潮推动半导体需求强劲增长，韩国3月份信息通信技术（ICT）产品出口额较上年同期增长超过一倍。
 
-会议强调，要提高政治站位、把握形势任务，深刻认识规范和管理未成年人使用网络，是推动党中央决策部署落地见效的重要任务，是顺应互联网发展管理趋势、有效回应人民群众关心关切的迫切需要，是保护未成年人网络合法权益、护航未成年人健康成长的关键举措，切实增强做好工作的责任感使命感紧迫感。
+根据韩国科技信息通信部的数据，上月韩国ICT产品出口额达到435.1亿美元，高于去年同期的205.2亿美元，创历史同月最高。
 
-要明确目标、聚焦重点，扎实推进规范和管理未成年人使用网络的各项举措。
+进口额同比增长32.2%，达到161.5亿美元，贸易顺差达273.6亿美元。
 
-坚持分级分类，严管中高风险功能服务，划定触网安全底线；坚持管建并举，全面推广未成年人模式，升级专属内容池，优化未成年人专门设备，打造安全网络空间；坚持技术赋能，聚焦未成年人身份识别问题加大技术攻关力度，将网络保护要求融入技术规范，把法规要求通过技术标准落细，推动全覆盖、全链条、全闭环协同保护；坚持齐抓共管，充分发挥平台、学校、家庭、社会等多方力量，汇聚网络保护合力。
+韩国科技信息通信部在一份声明中表示：“上个月，ICT出口占韩国出口总额861.3亿美元的50.5%，再次巩固了该行业作为韩国经济核心增长引擎的地位。
 
-会议要求，要主动履责、强化担当，切实抓好各项任务落实。
+” 按产品划分，半导体出口额同比增长151%，从去年同期的130.6亿美元增至328.4亿美元，主要得益于全球人工智能数据中心强劲的需求。
 
-要以未成年人网络保护协调机制建立运行为契机，进一步强化政治引领，加强协同联动，落实工作责任，形成上下联动、左右协同、社会共治的工作格局，推动未成年人网络保护工作迈上新台阶、取得新成效。
+智能手机出口额在3月份同比增长57%，达到15.4亿美元，主要受新推出的高端机型销售强劲的推动。
+
+计算机及相关设备的出口额几乎增长了两倍，从去年同期的13.1亿美元增至35.9亿美元，这反映出人工智能数据中心对固态硬盘（SSD）的需求不断增长。
+
+相比之下，显示面板的出口额下降了9.3%，至14.9亿美元，主要原因是IT行业对有机发光二极管（OLED）产品的需求疲软。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 14:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 13:42 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 13:58 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbto.md)
-- 2026-06-29 14:11 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 13:51 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-29 14:11 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 14:01 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 13:59 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
-- 2026-06-29 14:07 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 14:11 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 14:02 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 13:56 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 13:51 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaozhua.md)
+- 2026-06-29 14:11 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 14:17 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
+- 2026-06-29 14:02 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 13:59 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 13:49 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
+- 2026-06-29 13:59 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 14:08 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 14:11 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 13:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/882913970084.shtml)
-- 2026-06-29 14:11 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/775974549.shtml)
-- 2026-06-29 14:10 - [A股限售股解禁一览](http://www.blog.minike.top/Article/details/30766933190.shtml)
-- 2026-06-29 13:43 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/85104.shtml)
-- 2026-06-29 13:55 - [职业选手禁止参赛！](https://www.share.kurohicncr.top/Article/details/40346.shtml)
-- 2026-06-29 13:42 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/49941.shtml)
-- 2026-06-29 14:07 - [A股限售股解禁一览](https://www.share.minike.top/Article/details/4551229832.shtml)
-- 2026-06-29 14:08 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/989055994.shtml)
-- 2026-06-29 14:03 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/55564820848.shtml)
-- 2026-06-29 13:49 - [小娘惹](https://www.share.minike.top/Article/details/600752082.shtml)
-- 2026-06-29 14:04 - [F1奥地利大奖赛正赛集锦](http://www.share.minike.top/Article/details/70152066526.shtml)
-- 2026-06-29 14:07 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/36696957.shtml)
-- 2026-06-29 14:06 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/0645615271.shtml)
-- 2026-06-29 13:43 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.share.minike.top/Article/details/9452380411.shtml)
-- 2026-06-29 13:48 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.kurohicncr.top/Article/details/62514.shtml)
+- 2026-06-29 14:02 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/189314852429.shtml)
+- 2026-06-29 14:09 - [为什么6月以来北方频繁降雨](http://www.share.minike.top/Article/details/121992345.shtml)
+- 2026-06-29 14:04 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/938532726520.shtml)
+- 2026-06-29 14:10 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/205558.shtml)
+- 2026-06-29 13:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/313006998384.shtml)
+- 2026-06-29 13:50 - [明星大侦探第四季](http://www.share.minike.top/Article/details/177850.shtml)
+- 2026-06-29 14:15 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/432117836.shtml)
+- 2026-06-29 13:48 - [五粮液回应宜宾地震影响](http://www.blog.minike.top/Article/details/62695486478.shtml)
+- 2026-06-29 14:09 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/225840.shtml)
+- 2026-06-29 14:06 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/02909.shtml)
+- 2026-06-29 13:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/19222331485.shtml)
+- 2026-06-29 14:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.share.minike.top/Article/details/296670721.shtml)
+- 2026-06-29 14:11 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/03574.shtml)
+- 2026-06-29 14:13 - [手游300亿数据或被军事化运用](https://www.share.kurohicncr.top/Article/details/35518.shtml)
+- 2026-06-29 14:03 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.kurohicncr.top/Article/details/62200500316.shtml)

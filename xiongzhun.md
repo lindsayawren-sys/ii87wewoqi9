@@ -1,60 +1,53 @@
-# 【持仓分析】中财期货鸡蛋净多头持仓连续第3日增加！
+# 亚市早盘黄金下跌 因美伊和谈破裂后美元走强
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-前20期商动态：净持仓较上日减少903手6月1日，鸡蛋前20名期货公司（全月份合约加总）多单持仓58.05万手，空单持仓55.38万手，多空比1.05。净持仓为2.67万手，相较上日减少903手。据统计，近两年价格和净持仓数据的相关系数为0.34，两者存在低度正相关关系(同向性)。数据时间2026-06-01鸡蛋指数收盘价4377.43净持仓26,683鸡蛋主力合约机构动向：从
+黄金在亚洲早盘下跌，因上周末美伊和谈破裂后美元走强。对于持有非美元货币的投资者来说，美元走强通常会使以美元计价的贵金属变得更加昂贵。现货黄金下跌1.9%，报每盎司4，656.29美元。此外，和谈失败在今晨引发原油价格飙升，这可能重新引发了通胀压力以及对央行可能加息的担忧，而加息或将削弱不计息贵金属的吸引力。责任编辑：王永生
 
 ## 正文
 
-前20期商动态：净持仓较上日减少903手6月1日，鸡蛋前20名期货公司（全月份合约加总）多单持仓58.05万手，空单持仓55.38万手，多空比1.05。
+黄金在亚洲早盘下跌，因上周末美伊和谈破裂后美元走强。
 
-净持仓为2.67万手，相较上日减少903手。
+对于持有非美元货币的投资者来说，美元走强通常会使以美元计价的贵金属变得更加昂贵。
 
-据统计，近两年价格和净持仓数据的相关系数为0.34，两者存在低度正相关关系(同向性)。
+现货黄金下跌1.9%，报每盎司4，656.29美元。
 
-数据时间2026-06-01鸡蛋指数收盘价4377.43净持仓26,683鸡蛋主力合约机构动向：从净多头持仓排行来看，创元期货以7065手净多排行榜首，日内净多头头寸增加1106手，该公司品种主力合约近一年盈利为4,022.41万元。
+此外，和谈失败在今晨引发原油价格飙升，这可能重新引发了通胀压力以及对央行可能加息的担忧，而加息或将削弱不计息贵金属的吸引力。
 
-净空排行方面，东方财富期货以2.12万手拔得头筹，日内净空头头寸增加2279手，该公司品种主力合约近一年盈利为-13,053.14万元。
-
-分类会员持仓净持仓净持仓增减近一年盈利（万）净多前三创元期货7,0651,1064,022.41中财期货6,3091,5184,569.13永安期货5,6232121,610.09净空前三东方财富期货21,2422,279-13,053.14平安期货8,496185-5,325.73中信建投期货5,721578-2,485.49中财期货净持仓与价格变化对比图从上文可以得出，鸡蛋年内盈利最高的机构为：中财期货。
-
-在过去的20个自然日（14个交易日）中，中财期货净头寸增加6次，减少8次，增减调仓胜率为57.14%。
-
-数据时间2026-06-01净持仓数值6,309收盘价4391增减变化1,518
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 13:52 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 14:05 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
-- 2026-06-29 14:10 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 14:08 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-29 14:10 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 13:57 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 13:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 13:51 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 13:59 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
-- 2026-06-29 13:57 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
-- 2026-06-29 13:45 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-29 13:50 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-29 13:49 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
-- 2026-06-29 13:43 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-29 13:51 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 14:02 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 14:02 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 13:52 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
+- 2026-06-29 14:09 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-29 14:09 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 14:09 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 14:08 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-29 14:12 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
+- 2026-06-29 13:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangkui.md)
+- 2026-06-29 14:07 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 13:59 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 13:55 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:48 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.blog.minike.top/Article/details/660470.shtml)
-- 2026-06-29 14:02 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/803152864.shtml)
-- 2026-06-29 14:10 - [江苏财政厅原一级调研员谢功成被查](http://www.share.kurohicncr.top/Article/details/84379.shtml)
-- 2026-06-29 13:57 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/6888622.shtml)
-- 2026-06-29 13:58 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/461371375942.shtml)
-- 2026-06-29 14:08 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/57374693.shtml)
-- 2026-06-29 14:06 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/3314288023.shtml)
-- 2026-06-29 14:04 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/69742.shtml)
-- 2026-06-29 14:07 - [急先锋](http://www.share.minike.top/Article/details/36688410.shtml)
-- 2026-06-29 13:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/0077555.shtml)
-- 2026-06-29 13:47 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/196884.shtml)
-- 2026-06-29 13:51 - [一见倾心](https://www.share.kurohicncr.top/Article/details/465571697287.shtml)
-- 2026-06-29 14:03 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/7828375.shtml)
-- 2026-06-29 14:10 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/927938690.shtml)
-- 2026-06-29 13:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/6605684.shtml)
+- 2026-06-29 13:51 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/1471856.shtml)
+- 2026-06-29 13:55 - [韩国政府将对世界杯出局追责](https://www.blog.kurohicncr.top/Article/details/981757069.shtml)
+- 2026-06-29 13:57 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/711736464771.shtml)
+- 2026-06-29 13:56 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/265759102.shtml)
+- 2026-06-29 14:12 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/152148945506.shtml)
+- 2026-06-29 14:12 - [张真源解读相思锁](http://www.share.minike.top/Article/details/1293604.shtml)
+- 2026-06-29 13:52 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/060839776.shtml)
+- 2026-06-29 14:10 - [强⁶](http://www.share.minike.top/Article/details/133362899864.shtml)
+- 2026-06-29 13:59 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/1086932.shtml)
+- 2026-06-29 13:58 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.minike.top/Article/details/667261.shtml)
+- 2026-06-29 13:59 - [教育部发布预警 事关高招录取](http://www.share.minike.top/Article/details/44996481.shtml)
+- 2026-06-29 14:11 - [四川宜宾地震致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/03213425.shtml)
+- 2026-06-29 13:57 - [美媒：空警-3000服役即成全球最强](http://www.share.kurohicncr.top/Article/details/7706087709.shtml)
+- 2026-06-29 14:09 - [起风了](https://www.blog.minike.top/Article/details/02010555.shtml)
+- 2026-06-29 14:12 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/9812281802.shtml)

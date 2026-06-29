@@ -1,56 +1,51 @@
-# IceCure Medical宣布实施1比30反向拆股以维持纳斯达克上市合规
+# 放假不“放羊”！带你沉浸打卡北京高校春假
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-IceCure Medical公司宣布，将对其普通股实施1比30的反向股票分割，以期重新符合纳斯达克资本市场每股1.00美元的最低买价要求。此次拆分已获股东及董事会批准，自2026年6月4日开盘起，公司股票将以拆分调整后的价格进行交易，交易代码仍为ICCM。 作为一家开发冷冻消融技术的以色列医疗器械公司，IceCure的核心产品ProSense系统利用液氮冷冻并破坏肿瘤，已在全
+发布时间：2026年04月13日 16:21 来源：中国新闻网 今年春天，北京多所高校开启“春假模式”，并开出特色“研学菜单”，呼吁学生放假不“放羊”。日前，记者跟随北京信息科技大学师生，走进京城四家非遗老字号，沉浸式打卡春假，测评“二八酱”冰激凌、品茉莉花茶、景泰蓝点蓝等非遗活动。该校相关负责人介绍，希望能将课内的小课堂和社会的大课堂有效融合，落实“健康第一”的教育理念。(记
 
 ## 正文
 
-IceCure Medical公司宣布，将对其普通股实施1比30的反向股票分割，以期重新符合纳斯达克资本市场每股1.00美元的最低买价要求。
+发布时间：2026年04月13日 16:21 来源：中国新闻网 今年春天，北京多所高校开启“春假模式”，并开出特色“研学菜单”，呼吁学生放假不“放羊”。
 
-此次拆分已获股东及董事会批准，自2026年6月4日开盘起，公司股票将以拆分调整后的价格进行交易，交易代码仍为ICCM。
+日前，记者跟随北京信息科技大学师生，走进京城四家非遗老字号，沉浸式打卡春假，测评“二八酱”冰激凌、品茉莉花茶、景泰蓝点蓝等非遗活动。
 
-作为一家开发冷冻消融技术的以色列医疗器械公司，IceCure的核心产品ProSense系统利用液氮冷冻并破坏肿瘤，已在全球多地获批用于乳腺、肾脏、肺部及肝脏等良恶性病变的治疗。
+该校相关负责人介绍，希望能将课内的小课堂和社会的大课堂有效融合，落实“健康第一”的教育理念。
 
-公司在2025年10月获得美国食品药品监督管理局的上市许可，将适应症扩展至部分老年低风险乳腺癌患者，并在随后获得了美国乳腺外科医师学会最新指南的推荐。
-
-根据其发布的2026年第一季度财报，公司全球收入同比增长26%，北美市场增幅达到84%，美国本土增长31%。
-
-公司认为，增长主要得益于核心产品在获得FDA许可后市场渗透率的初步提升。
-
-此次反向拆股旨在主动应对股价持续低于1美元所面临的退市风险。
-
-按照规定，公司需在2026年11月9日前解决该不合规问题。
+(记者卢晓娜 刘子衿 北京报道） 责任编辑：【周驰】
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 14:07 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 13:44 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 13:58 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:50 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
-- 2026-06-29 14:01 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 13:55 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
-- 2026-06-29 13:48 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-29 13:47 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
-- 2026-06-29 13:56 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 14:07 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
+- 2026-06-29 13:54 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 14:17 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
+- 2026-06-29 13:56 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-29 14:11 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 13:57 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 13:59 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 14:06 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 14:11 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 13:53 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-29 13:56 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 14:10 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 14:08 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/88045.shtml)
-- 2026-06-29 13:45 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/965834.shtml)
-- 2026-06-29 13:51 - [多只A股发布股价异动公告](https://www.share.kurohicncr.top/Article/details/11340.shtml)
-- 2026-06-29 13:54 - [为什么欧洲人不装空调](http://www.blog.minike.top/Article/details/782302587902.shtml)
-- 2026-06-29 14:01 - [大疆7月15日起涨价？公司回应](http://www.share.minike.top/Article/details/784505357.shtml)
-- 2026-06-29 13:48 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/64364359.shtml)
-- 2026-06-29 13:53 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/09049.shtml)
-- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/230818696307.shtml)
-- 2026-06-29 14:09 - [网约车司机转账1.5万后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/87148304662.shtml)
-- 2026-06-29 13:56 - [在自己家不穿衣服犯法吗](https://www.share.kurohicncr.top/Article/details/0779448170.shtml)
-- 2026-06-29 14:10 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/37959.shtml)
-- 2026-06-29 13:44 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/592050694680.shtml)
-- 2026-06-29 13:49 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/0372733.shtml)
-- 2026-06-29 14:10 - [网约车司机转账1.5万后被乘客拉黑](http://www.blog.minike.top/Article/details/33693683.shtml)
-- 2026-06-29 14:07 - [强⁶](https://www.share.minike.top/Article/details/488144537.shtml)
+- 2026-06-29 13:51 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/53133534771.shtml)
+- 2026-06-29 14:15 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/27497840854.shtml)
+- 2026-06-29 13:57 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/37246401.shtml)
+- 2026-06-29 14:05 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.minike.top/Article/details/154563126805.shtml)
+- 2026-06-29 14:04 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/473951901.shtml)
+- 2026-06-29 14:07 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/180874.shtml)
+- 2026-06-29 14:15 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/34488264037.shtml)
+- 2026-06-29 14:08 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/7907255.shtml)
+- 2026-06-29 14:17 - [《贺子珍》](http://www.blog.minike.top/Article/details/409419.shtml)
+- 2026-06-29 14:13 - [一生一世](http://www.share.minike.top/Article/details/912561464.shtml)
+- 2026-06-29 13:49 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/9252967466.shtml)
+- 2026-06-29 13:55 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/16695586.shtml)
+- 2026-06-29 13:54 - [海军舰艇编队将赴香港](https://www.share.kurohicncr.top/Article/details/8051713.shtml)
+- 2026-06-29 13:53 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/6169441844.shtml)
+- 2026-06-29 14:12 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/1222251257.shtml)

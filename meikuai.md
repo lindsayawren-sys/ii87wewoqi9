@@ -1,60 +1,61 @@
-# 人人租IPO遭遇证监会六连问：股权操作被质疑 多次违规被点名
+# 11项网络直播打赏规定为何出台、意义何在？专家解读
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。 2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。 具体来看： 其中前三项问询指向人人租的股权和资本运作问题。 首先是‌股权合
+记者今天(13日)从中央网信办获悉，为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，中央网信办发布“关于加强网络直播打赏规范管理的通知”。 据记者了解，“通知”中提出11项具体要求，包括：明示打赏规则、规范打赏营利权限开通、完善未成年人保护机制、建立打赏营利行为负面清单、加大处置和曝光力度等。 针对打赏规则及打赏营利权限开通，
 
 ## 正文
 
-来源：新经济观察团 饱受市场争议的知名租机平台人人租，赴港IPO之路突生波折。
+记者今天(13日)从中央网信办获悉，为进一步加强网络直播打赏管理，规范网络直播营利行为，推动网站平台合规健康运营，切实维护网民合法权益，中央网信办发布“关于加强网络直播打赏规范管理的通知”。
 
-2026年5月29日，证监会披露《境外发行上市备案补充材料要求》，退回人人租运营主体广州研趣信息科技股份有限公司招股书，要求企业针对股权沿革、财务真实性、境外业务、合规运作、股份权利状态等六大核心事项进行补充举证、自查说明。
+据记者了解，“通知”中提出11项具体要求，包括：明示打赏规则、规范打赏营利权限开通、完善未成年人保护机制、建立打赏营利行为负面清单、加大处置和曝光力度等。
 
-具体来看： 其中前三项问询指向人人租的股权和资本运作问题。
+针对打赏规则及打赏营利权限开通，“通知”要求，网站平台向用户提供充值打赏服务，设置榜单排名，设计互动玩法，应制定明确规则，并以直接、简洁方式公开，不得采取多次跳转、冗长条款等方式影响用户知晓。
 
-首先是‌股权合规性‌：需说明历次增资/股权转让定价依据、实缴出资情况、是否存在抽逃出资或瑕疵，并出具合法合规结论；其次是‌新增股东合理性‌：近12个月新增股东入股价格差异原因及是否存在利益输送；第三是‌股权激励合规‌：股权激励计划实施是否合法合规、有无利益输送。
+网络直播账号申请开通打赏营利权限，如有违规记录，应在处置期满3个月后，再予以开通。
 
-从公司实际资本操作来看，2025年5月人人租完成D轮融资，大华银行旗下ACIF V和ACIF （US） V合计出资约1.08亿元，仅认购研趣信息19.73万元注册资本。
+网络直播账号被禁言的，应同步暂停其打赏营利权限，时长为禁言期限的2至3倍。
 
-折算下来，外部投资者以每1元注册资本约547元的超高溢价入股，估值溢价水平远超行业常规逻辑。
+针对未成年人保护，“通知”要求，网站平台不得向八周岁以下的未成年人提供打赏服务。
 
-与之形成鲜明对比的是，2026年1月公司完成无募资股本扩容，通过股份溢价资本化方式，将注册资本从238万元大幅增至1500万元，本次增资仅为内部股本结构调整，未引入任何外部新资金。
+向八周岁至十六周岁的未成年人提供打赏服务，应征得其监护人同意。
 
-证监会要求解释D轮融资定价的合理性，显然是在质疑激进的溢价背后，是否存在未披露的抽屉协议或利益输送安排？
+向十六周岁以上的未成年人提供打赏服务，应征得其监护人同意或核验其收入证明材料。
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 13:46 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
-- 2026-06-29 13:55 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 13:45 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:52 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bgckw.md)
-- 2026-06-29 14:00 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinjian.md)
-- 2026-06-29 13:45 - [周深双眼皮贴又掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
-- 2026-06-29 13:58 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 14:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:49 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-29 13:58 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-29 14:11 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
-- 2026-06-29 13:54 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:51 - [林昀儒止步美国大满贯首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 13:58 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
+- 2026-06-29 14:03 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
+- 2026-06-29 13:59 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
+- 2026-06-29 13:55 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:53 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 13:50 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-29 14:02 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 13:56 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
+- 2026-06-29 14:07 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 14:03 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 14:14 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-29 14:08 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-29 13:53 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-29 14:08 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 14:01 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/38044203.shtml)
-- 2026-06-29 14:06 - [斛珠夫人](http://www.share.minike.top/Article/details/0716969060.shtml)
-- 2026-06-29 13:59 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/52468595.shtml)
-- 2026-06-29 13:49 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/019399900.shtml)
-- 2026-06-29 13:47 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/6199026649.shtml)
-- 2026-06-29 14:05 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/6529813.shtml)
-- 2026-06-29 14:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.minike.top/Article/details/89122983.shtml)
-- 2026-06-29 13:58 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/46398170.shtml)
-- 2026-06-29 13:52 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/42446256.shtml)
-- 2026-06-29 13:45 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/634723324.shtml)
-- 2026-06-29 13:46 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.kurohicncr.top/Article/details/283587.shtml)
-- 2026-06-29 13:58 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/21938.shtml)
-- 2026-06-29 13:50 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/6159029.shtml)
-- 2026-06-29 13:53 - [如果你一直单身，你准备怎么养老？](https://www.share.minike.top/Article/details/736173.shtml)
-- 2026-06-29 14:04 - [吴磊爱上回收了](https://www.blog.minike.top/Article/details/988513.shtml)
+- 2026-06-29 14:16 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/6143631.shtml)
+- 2026-06-29 14:14 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/83219679455.shtml)
+- 2026-06-29 14:01 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/278456112.shtml)
+- 2026-06-29 14:15 - [事关个税 明日截止请抓紧办理](http://www.blog.kurohicncr.top/Article/details/202607361.shtml)
+- 2026-06-29 14:09 - [日本主帅：目标是冠军](http://www.share.kurohicncr.top/Article/details/83648406.shtml)
+- 2026-06-29 13:53 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/461526466.shtml)
+- 2026-06-29 14:03 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/02885797877.shtml)
+- 2026-06-29 14:14 - [哈基米歌王争霸赛](http://www.share.kurohicncr.top/Article/details/36213501.shtml)
+- 2026-06-29 14:08 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.kurohicncr.top/Article/details/544315103300.shtml)
+- 2026-06-29 13:55 - [中国避暑神器在欧洲卖爆了](https://www.share.minike.top/Article/details/9788114.shtml)
+- 2026-06-29 14:10 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.minike.top/Article/details/75334744.shtml)
+- 2026-06-29 14:15 - [中俄联合巡航阵容强大 日本慌了？](http://www.blog.minike.top/Article/details/995216737396.shtml)
+- 2026-06-29 13:51 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/46327476672.shtml)
+- 2026-06-29 14:00 - [金牌调解](https://www.share.kurohicncr.top/Article/details/4415374532.shtml)
+- 2026-06-29 14:10 - [造谣县城满街都是小混混 男子被拘](http://www.share.minike.top/Article/details/154748.shtml)

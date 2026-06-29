@@ -1,60 +1,57 @@
-# “愤怒的商家”“被误伤”的买家……网上购物谁能决定“仅退款”
+# 总书记引领强国之路｜擘画中国制造新蓝图
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-谁能决定“仅退款” 为了一单190.71元的榴莲，经营榴莲网店的程岩驱车400多公里赶到山东德州，寻找“仅退款”的买家。他带着聊天记录作为证据，以及为线下店开业准备的喇叭。带喇叭是他从网上学的，想给恶意退款的买家造成心理压力。他想着“应该不会到这一步”，但带着“也能给自己壮胆”。 近年来，商家跨省追击“恶意仅退款”的买家不再是新鲜事。在社交平台上搜索“仅退款”三个字，“愤怒的商
+原标题：学习新语·总书记引领强国之路｜擘画中国制造新蓝图 2026年是“十五五”开局之年。“十五五”时期是基本实现社会主义现代化夯实基础、全面发力的关键时期。 如何走好关键一程，实现关键一跃？ “十五五”规划纲要提出16个“强国”建设目标。实现中华民族伟大复兴的中国梦，唯有踔厉奋发，笃行实干，把一个个“强国”建设目标实现好。 4月13日起，新华社“学习新语”栏目推出“总书记引领
 
 ## 正文
 
-谁能决定“仅退款” 为了一单190.71元的榴莲，经营榴莲网店的程岩驱车400多公里赶到山东德州，寻找“仅退款”的买家。
+原标题：学习新语·总书记引领强国之路｜擘画中国制造新蓝图 2026年是“十五五”开局之年。
 
-他带着聊天记录作为证据，以及为线下店开业准备的喇叭。
+“十五五”时期是基本实现社会主义现代化夯实基础、全面发力的关键时期。
 
-带喇叭是他从网上学的，想给恶意退款的买家造成心理压力。
+如何走好关键一程，实现关键一跃？
 
-他想着“应该不会到这一步”，但带着“也能给自己壮胆”。
+“十五五”规划纲要提出16个“强国”建设目标。
 
-近年来，商家跨省追击“恶意仅退款”的买家不再是新鲜事。
+实现中华民族伟大复兴的中国梦，唯有踔厉奋发，笃行实干，把一个个“强国”建设目标实现好。
 
-在社交平台上搜索“仅退款”三个字，“愤怒的商家”和“被误伤”的买家时常在相关帖子下面“论战”。
+4月13日起，新华社“学习新语”栏目推出“总书记引领强国之路”系列融合报道。
 
-程岩把自己的维权经历录成视频发到网上，引发了热烈讨论，账号流量最高的视频有13万个赞。
+视频：总书记引领强国之路｜擘画中国制造新蓝图来源：新华社 在“十五五”规划纲要提出的16个“强国”建设目标中，制造强国列于首位。
 
-商家把伪造证据、隐瞒收货完好事实，申请退款不退货的买家称为“白嫖党”。
+制造业是我国经济命脉所系，是立国之本、强国之基。
 
 ## 相关推荐
 
-- 2026-06-29 13:49 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-29 14:00 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-29 13:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-29 13:42 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-29 14:05 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
-- 2026-06-29 13:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 14:01 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 13:49 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 13:51 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 14:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-29 13:57 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-29 14:00 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
-- 2026-06-29 13:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-29 13:54 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-29 13:51 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 13:55 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 14:01 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 14:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-29 14:12 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
+- 2026-06-29 13:51 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
+- 2026-06-29 13:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 14:08 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-29 13:54 - [沙特足协主席发布声明主动请辞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 14:03 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
+- 2026-06-29 13:57 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/10721.shtml)
-- 2026-06-29 14:02 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/24424.shtml)
-- 2026-06-29 13:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/53155.shtml)
-- 2026-06-29 14:01 - [游戏数据被用于军事目的 国安部提醒](https://www.blog.kurohicncr.top/Article/details/0109935533.shtml)
-- 2026-06-29 13:48 - [FIFA回应佛得角队长被指控强奸](https://www.share.kurohicncr.top/Article/details/3525673.shtml)
-- 2026-06-29 13:56 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/0787762558.shtml)
-- 2026-06-29 13:55 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/8793884617.shtml)
-- 2026-06-29 14:08 - [下飞机后，我做了个很蠢的决定......](https://www.share.minike.top/Article/details/466636818.shtml)
-- 2026-06-29 14:05 - [央视起底直播诈骗连环套](http://www.share.kurohicncr.top/Article/details/812193895.shtml)
-- 2026-06-29 13:48 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/4991180500.shtml)
-- 2026-06-29 14:10 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/49137019.shtml)
-- 2026-06-29 14:09 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/7448305.shtml)
-- 2026-06-29 14:03 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/772269494299.shtml)
-- 2026-06-29 13:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/55701.shtml)
-- 2026-06-29 14:02 - [尹恩惠自曝14年没谈过恋爱](http://www.share.minike.top/Article/details/60619.shtml)
+- 2026-06-29 13:56 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.minike.top/Article/details/52056590.shtml)
+- 2026-06-29 14:06 - [天道](http://www.share.minike.top/Article/details/91127357530.shtml)
+- 2026-06-29 14:04 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/004482625491.shtml)
+- 2026-06-29 14:07 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/8329292905.shtml)
+- 2026-06-29 13:58 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/3882053490.shtml)
+- 2026-06-29 14:15 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.kurohicncr.top/Article/details/505413.shtml)
+- 2026-06-29 14:00 - [灿如繁星定档](http://www.share.minike.top/Article/details/90969.shtml)
+- 2026-06-29 14:14 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/3195421718.shtml)
+- 2026-06-29 13:52 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/699002703.shtml)
+- 2026-06-29 14:06 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/2787988.shtml)
+- 2026-06-29 14:12 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/2243561.shtml)
+- 2026-06-29 14:10 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/45945.shtml)
+- 2026-06-29 14:02 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/635897.shtml)
+- 2026-06-29 14:13 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/137808.shtml)
+- 2026-06-29 14:10 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/93131.shtml)

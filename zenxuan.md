@@ -1,59 +1,61 @@
-# ASCO2026：中国创新药数据高光亮眼，为什么股价全线下跌？逻辑在变化
+# 同业存单发行缩量2万亿元！多家银行实际认购量不及预期
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-美国中部时间5月29日至6月2日，被誉为全球肿瘤学界“奥斯卡”的2026年美国临床肿瘤学会（ASCO）年会正在芝加哥如火如荼地举行。大会以“转化医学的科学与实践：改善全球癌症患者预后”为主题，依旧汇聚了全球顶尖肿瘤学者，集中展示年度最具突破性的研究成果。中国创新药在本届年会上迎来了有史以来最亮眼的表现，真正成为ASCO的领衔主角之一。官方数据显示，中国学者主导的研究共有95项入
+来源：中国经营报 记者：慈玉鹏 Wind数据显示，今年1月1日至4月13日，同业存单发行额共计7.22万亿元，相比去年同期减少2万亿元。 主动补充负债意愿减弱 具体来说，今年截至4月13日，同业存单共发行只数共计5177个，相比去年同期减少1106只；发行额共计7.22万亿元，相比去年同期9.25万亿元缩减2万亿元。 中国邮政储蓄银行研究员娄飞鹏告诉记者，同业存单发行同比大减主
 
 ## 正文
 
-美国中部时间5月29日至6月2日，被誉为全球肿瘤学界“奥斯卡”的2026年美国临床肿瘤学会（ASCO）年会正在芝加哥如火如荼地举行。
+来源：中国经营报 记者：慈玉鹏 Wind数据显示，今年1月1日至4月13日，同业存单发行额共计7.22万亿元，相比去年同期减少2万亿元。
 
-大会以“转化医学的科学与实践：改善全球癌症患者预后”为主题，依旧汇聚了全球顶尖肿瘤学者，集中展示年度最具突破性的研究成果。
+主动补充负债意愿减弱 具体来说，今年截至4月13日，同业存单共发行只数共计5177个，相比去年同期减少1106只；发行额共计7.22万亿元，相比去年同期9.25万亿元缩减2万亿元。
 
-中国创新药在本届年会上迎来了有史以来最亮眼的表现，真正成为ASCO的领衔主角之一。
+中国邮政储蓄银行研究员娄飞鹏告诉记者，同业存单发行同比大减主要是实体融资需求偏弱，银行出现资产荒，叠加存款增长充裕，主动减少高成本同业负债；同时，市场流动性整体宽松，银行对存单依赖度下降；再者监管引导压降同业负债占比，叠加存单备案额度改革与市场观望情绪，银行发行意愿和供给同步收缩，整体从主动扩表转为被动调节。
 
-官方数据显示，中国学者主导的研究共有95项入选口头报告、快速口头报告、临床科学研讨会及继续教育专场等重要环节，较2024年的48项、2025年的72项再创新高。
+一位股份行人士表示，2026年以来同业存单发行量减少，由多重因素叠加导致。
 
-其中，12项研究入选代表全球肿瘤学领域最高水平的最新突破摘要（Late-Breaking Abstract——LBA）环节，占本届大会全部63项LBA的近五分之一。
+需求端，优质信贷资产稀缺，贷款投放承压，银行主动补充负债的意愿大幅减弱。
 
-全球肿瘤药物的下一个主战场将聚焦于多特异性抗体、下一代ADC及细胞基因疗法；中国企业在这波浪潮中已从“跟跑者”跃升为全球创新核心力量。
+成本端，2025 年年末至 2026 年年初资金面阶段性偏紧，发行利率一度上行，叠加一二级市场价格背离，投资者一级市场认购积极性下降。
 
-这一发展趋势在本届ASCO大会上得到了充分印证。
+实际认购量低于计划发行 近日，多家银行在中国货币网公示了同业存单发行情况。
 
-尤其是在多特异性抗体及下一代ADC领域，中国创新药的引领性优势已保持数年。
+例如，广东华兴银行2026年度第168期同业存单计划发行3.0亿元，实际认购量1.0亿元，占比33.33%；该行2026年度第169期同业存单计划发行量3.0亿元，实际认购量0.7亿元，占比23.33%。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 13:59 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 13:43 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 13:53 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 13:58 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmnsq.md)
-- 2026-06-29 14:06 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 13:57 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-29 13:47 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
-- 2026-06-29 13:52 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
-- 2026-06-29 14:00 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 14:06 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 13:54 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
-- 2026-06-29 14:06 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-29 14:16 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 13:53 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 14:00 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-29 14:02 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
+- 2026-06-29 13:49 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-29 14:11 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 14:16 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 13:51 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 14:00 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 14:03 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:01 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-29 14:05 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 14:14 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 14:07 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
+- 2026-06-29 13:52 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:52 - [中俄联合巡航阵容强大 日本慌了？](http://www.share.minike.top/Article/details/06124919.shtml)
-- 2026-06-29 14:08 - [严浩翔FIY断层第一](https://www.share.kurohicncr.top/Article/details/05848861.shtml)
-- 2026-06-29 14:09 - [DSpark论文深度解读](http://www.share.kurohicncr.top/Article/details/5174978139.shtml)
-- 2026-06-29 14:02 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/95616649023.shtml)
-- 2026-06-29 13:54 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/47924882217.shtml)
-- 2026-06-29 14:08 - [詹俊预测德国大胜巴拉圭](https://www.share.minike.top/Article/details/43530220182.shtml)
-- 2026-06-29 14:04 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/8410070271.shtml)
-- 2026-06-29 13:56 - [世界杯看到肖战了](https://www.blog.minike.top/Article/details/2717204207.shtml)
-- 2026-06-29 14:04 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/54012141.shtml)
-- 2026-06-29 14:11 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/82582459.shtml)
-- 2026-06-29 14:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/61780027.shtml)
-- 2026-06-29 14:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/67629776319.shtml)
-- 2026-06-29 13:48 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/3458551.shtml)
-- 2026-06-29 13:51 - [王楚钦美国大满贯晋级32强](https://www.share.kurohicncr.top/Article/details/61937767.shtml)
-- 2026-06-29 13:54 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/945350110386.shtml)
+- 2026-06-29 14:10 - [内马尔能上场15分钟](https://www.share.minike.top/Article/details/86970437643.shtml)
+- 2026-06-29 14:10 - [美国近12万名科技员工被解雇](https://www.blog.minike.top/Article/details/15684697.shtml)
+- 2026-06-29 14:16 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/709581943751.shtml)
+- 2026-06-29 14:06 - [强⁶](http://www.share.minike.top/Article/details/945514.shtml)
+- 2026-06-29 14:04 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/819998972420.shtml)
+- 2026-06-29 13:57 - [农发行总行专家委员会委员杜晓力被查](http://www.share.minike.top/Article/details/88501.shtml)
+- 2026-06-29 13:54 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/295003.shtml)
+- 2026-06-29 13:52 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/8636479.shtml)
+- 2026-06-29 13:49 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/394444.shtml)
+- 2026-06-29 13:52 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/52611622429.shtml)
+- 2026-06-29 13:59 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/012673184248.shtml)
+- 2026-06-29 14:09 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/61536.shtml)
+- 2026-06-29 13:58 - [为什么6月以来北方频繁降雨](http://www.share.kurohicncr.top/Article/details/692270045203.shtml)
+- 2026-06-29 14:13 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/50839.shtml)
+- 2026-06-29 14:01 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/020079267.shtml)

@@ -1,59 +1,57 @@
-# 腾讯大涨逾10%，创逾5年来最大单日涨幅，将推出“右滑”AI助手
+# 长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-6月2日消息，腾讯控股大涨逾10%，创自2021年1月25日以来最大单日涨幅。 消息面上，据报道，腾讯正在加速研发微信内嵌AI智能体，目前项目已进入原型测试阶段。这款AI助手将以右滑入口的形式深度融入微信界面，有望彻底重塑用户的日常使用体验，推动微信从社交工具向“超级智能助手”进化。 该智能体的核心竞争力在于其与微信小程序生态的深度捆绑。用户只需在主界面右滑即可调出对话窗口，通
+4月10日，长源东谷股票已经连续三个一字涨停，报收于49.37元，总市值攀升至约160亿元。 连续涨停板的背后，是一场由实控人李佐元家族主导的、被市场称为“左手倒右手”的百亿级资产腾挪。长源东谷拟通过发行股份的方式，收购李佐元家族控制下的襄阳康豪机电工程有限公司（下称“康豪机电”或标的公司）100%股权。 要理解这场交易，必须先理清一个复杂的家族控制版图。 长源东谷成立于200
 
 ## 正文
 
-6月2日消息，腾讯控股大涨逾10%，创自2021年1月25日以来最大单日涨幅。
+4月10日，长源东谷股票已经连续三个一字涨停，报收于49.37元，总市值攀升至约160亿元。
 
-消息面上，据报道，腾讯正在加速研发微信内嵌AI智能体，目前项目已进入原型测试阶段。
+连续涨停板的背后，是一场由实控人李佐元家族主导的、被市场称为“左手倒右手”的百亿级资产腾挪。
 
-这款AI助手将以右滑入口的形式深度融入微信界面，有望彻底重塑用户的日常使用体验，推动微信从社交工具向“超级智能助手”进化。
+长源东谷拟通过发行股份的方式，收购李佐元家族控制下的襄阳康豪机电工程有限公司（下称“康豪机电”或标的公司）100%股权。
 
-该智能体的核心竞争力在于其与微信小程序生态的深度捆绑。
+要理解这场交易，必须先理清一个复杂的家族控制版图。
 
-用户只需在主界面右滑即可调出对话窗口，通过输入自然语言指令，智能体便能自动调用海量小程序来完成复杂任务。
+长源东谷成立于2001年，主营柴油、天然气、汽油发动机缸体、缸盖、连杆等核心零部件的研发、生产及销售，主要客户包括福田康明斯、东风康明斯、东风商用车、广西玉柴、比亚迪、赛力斯等。
 
-例如，用户可以要求按口味和预算推荐咖啡馆，并由AI直接完成下单，全程无需手动跳转操作，实现了从“人找服务”到“服务找人”的转变。
+公司于2020年5月在上交所上市，李佐元家族——李佐元、其配偶徐能琛、其子李险峰、其女李从容——为共同实际控制人。
 
-在推广节奏上，腾讯计划最快于本月启动合规审批流程。
+根据天眼查数据，李佐元持股40.72%，徐能琛持股11.22%，李险峰和李从容各持股5.61%。
 
-审批通过后，将先进行小范围灰度测试，随后根据运行情况逐步全量推广。
+而此次的收购标的康豪机电，同样“生于”这个家族体系。
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 14:11 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 14:05 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 14:10 - [伊朗球员致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
-- 2026-06-29 14:10 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 14:02 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 14:08 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 13:53 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-29 14:10 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
-- 2026-06-29 14:04 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
-- 2026-06-29 13:49 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 13:52 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rirlw.md)
-- 2026-06-29 14:04 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 14:15 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 14:01 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 14:02 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 13:49 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-29 14:11 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 14:01 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-29 14:16 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 13:58 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
+- 2026-06-29 14:16 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 13:59 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
+- 2026-06-29 14:09 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:44 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/876893.shtml)
-- 2026-06-29 13:58 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/324677192.shtml)
-- 2026-06-29 13:54 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/22495.shtml)
-- 2026-06-29 14:04 - [强⁶](https://www.blog.kurohicncr.top/Article/details/054307.shtml)
-- 2026-06-29 14:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.minike.top/Article/details/02366.shtml)
-- 2026-06-29 14:01 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.minike.top/Article/details/331763741359.shtml)
-- 2026-06-29 13:44 - [下飞机后，我做了个很蠢的决定......](https://www.blog.minike.top/Article/details/15094762.shtml)
-- 2026-06-29 13:48 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/868423530896.shtml)
-- 2026-06-29 14:02 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.kurohicncr.top/Article/details/0087777662.shtml)
-- 2026-06-29 14:11 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/51148.shtml)
-- 2026-06-29 14:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.minike.top/Article/details/8872579558.shtml)
-- 2026-06-29 14:08 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/254193042.shtml)
-- 2026-06-29 14:00 - [Canna纳尔8-0对位单杀Doran](http://www.blog.kurohicncr.top/Article/details/905183.shtml)
-- 2026-06-29 13:49 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/959157.shtml)
-- 2026-06-29 13:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/53606255.shtml)
+- 2026-06-29 14:09 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/997332413.shtml)
+- 2026-06-29 13:59 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/97202048.shtml)
+- 2026-06-29 14:12 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/9614226.shtml)
+- 2026-06-29 13:57 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/68340.shtml)
+- 2026-06-29 14:13 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/468149.shtml)
+- 2026-06-29 14:04 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/357143369400.shtml)
+- 2026-06-29 13:53 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/399919850648.shtml)
+- 2026-06-29 14:15 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/823700277.shtml)
+- 2026-06-29 14:03 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/26388.shtml)
+- 2026-06-29 14:09 - [TOP 无畏契约](http://www.share.minike.top/Article/details/401307242.shtml)
+- 2026-06-29 13:52 - [异世界一点都不好玩！](https://www.blog.kurohicncr.top/Article/details/7184545641.shtml)
+- 2026-06-29 14:00 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/146371.shtml)
+- 2026-06-29 14:12 - [韩国队出局是因为内讧吗](http://www.share.kurohicncr.top/Article/details/66996.shtml)
+- 2026-06-29 14:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/18480564801.shtml)
+- 2026-06-29 14:04 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/664668.shtml)

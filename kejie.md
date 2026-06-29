@@ -1,55 +1,57 @@
-# 澜起科技早盘涨超10% 控股子公司横琴公司拟进行增资扩股
+# 容常青获批出任晋商银行董事、副董事长
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-澜起科技（06809）早盘涨超10%，截至发稿，股价上涨10.47%，现报420港元，成交额9.72亿港元。 6月1日，澜起科技发布公告，为满足公司控股子公司横琴公司的经营发展需要，横琴公司拟进行增资扩股并引入新投资方。横琴公司拟将其注册资本由人民币1.435亿元增加至1.657亿元，新增注册资本额为人民币2220万元，本轮增资方合计增资人民币4.995亿元。横琴公司作为公司控
+4月13日金融一线消息，国家金融监督管理总局山西监管局发布批复，核准容常青晋商银行股份有限公司董事、副董事长的任职资格。 公开资料显示，容常青，男，1970年1月生，管理学硕士研究生学历。1991年获武汉大学经济学学士学位，2002年获中南财经政法大学管理学硕士学位，2005年评定为高级审计师，2009年取得企业法律顾问资格。 容常青于1991年起任职于审计署武汉特派办，后曾在
 
 ## 正文
 
-澜起科技（06809）早盘涨超10%，截至发稿，股价上涨10.47%，现报420港元，成交额9.72亿港元。
+4月13日金融一线消息，国家金融监督管理总局山西监管局发布批复，核准容常青晋商银行股份有限公司董事、副董事长的任职资格。
 
-6月1日，澜起科技发布公告，为满足公司控股子公司横琴公司的经营发展需要，横琴公司拟进行增资扩股并引入新投资方。
+公开资料显示，容常青，男，1970年1月生，管理学硕士研究生学历。
 
-横琴公司拟将其注册资本由人民币1.435亿元增加至1.657亿元，新增注册资本额为人民币2220万元，本轮增资方合计增资人民币4.995亿元。
+1991年获武汉大学经济学学士学位，2002年获中南财经政法大学管理学硕士学位，2005年评定为高级审计师，2009年取得企业法律顾问资格。
 
-横琴公司作为公司控股子公司，主要从事CXL MXC、PCIe Switch芯片等新产品的研发和产业化，目前处于研发投入阶段，需要融资支持。
+容常青于1991年起任职于审计署武汉特派办，后曾在京东方科技集团股份有限公司移动数码事业部、北京荣泰恒嘉房地产开发有限公司及北京万东医疗装备股份有限公司担任财务、审计及管理职务。
 
-其中：新投资方海南云锋基金中心（有限合伙）（以下简称“海南云锋”）拟出资人民币5，175万元，认购横琴公司新增注册资本人民币230万元；新投资方YF Hestia II Limited（以下简称“YF Hestia II”，与海南云锋合称“云锋”）拟出资等值人民币1.98亿万元的美元，认购横琴公司新增注册资本人民币880万元；公司拟出资约人民币2.5亿元，认购横琴公司新增注册资本人民币1，110万元。
+2004年6月至2018年历任华能资本服务有限公司审计监察部主管及副处长、总经理工作部副处长及副经理、风险控制部经理及总法律顾问。
 
-责任编辑：卢昱君
+他于2018年9月起任晋商银行执行董事，同年12月起出任副行长，负责法律合规部、零售银行部、个人信贷资产部、信用卡业务部、资产管理部及小企业金融部。
+
+2020年11月因工作调动辞任后，于2021年1月被永诚财产保险股份有限公司聘任为公司总裁，但其任职资格并未获批。
+
+2025年3月被重新提名为晋商银行非执行董事。
 
 ## 相关推荐
 
-- 2026-06-29 13:45 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-29 14:11 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 14:07 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
-- 2026-06-29 13:42 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 14:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
-- 2026-06-29 14:07 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 14:05 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 13:50 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
-- 2026-06-29 14:08 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 14:03 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
-- 2026-06-29 13:44 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 14:00 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-29 13:55 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-29 13:54 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 14:07 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
+- 2026-06-29 13:55 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 14:17 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 14:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 14:10 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 13:56 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-29 13:50 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 14:00 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 13:52 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 14:02 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:51 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/3043450237.shtml)
-- 2026-06-29 13:54 - [《贺子珍》](http://www.share.minike.top/Article/details/54090241.shtml)
-- 2026-06-29 13:55 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/468030.shtml)
-- 2026-06-29 13:46 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.share.minike.top/Article/details/81977.shtml)
-- 2026-06-29 13:50 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/3055475781.shtml)
-- 2026-06-29 14:11 - [小娘惹](https://www.share.minike.top/Article/details/044711966677.shtml)
-- 2026-06-29 13:56 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/1116885.shtml)
-- 2026-06-29 13:58 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/6291701.shtml)
-- 2026-06-29 13:53 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/23162972.shtml)
-- 2026-06-29 13:59 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/79165449786.shtml)
-- 2026-06-29 14:02 - [请回答王牌2019](http://www.share.minike.top/Article/details/356702384.shtml)
-- 2026-06-29 13:58 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/71441265920.shtml)
-- 2026-06-29 14:03 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/9865931917.shtml)
-- 2026-06-29 13:57 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/822511358.shtml)
-- 2026-06-29 13:59 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/07184.shtml)
+- 2026-06-29 14:04 - [市民骑哈啰单车79分钟付30元](https://www.blog.minike.top/Article/details/00399.shtml)
+- 2026-06-29 13:49 - [加拿大92分钟绝杀](https://www.blog.minike.top/Article/details/399014261213.shtml)
+- 2026-06-29 14:05 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/679968282.shtml)
+- 2026-06-29 14:12 - [急先锋](http://www.blog.kurohicncr.top/Article/details/53155093.shtml)
+- 2026-06-29 14:05 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/881670004415.shtml)
+- 2026-06-29 14:02 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/37052408.shtml)
+- 2026-06-29 14:04 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/69295604.shtml)
+- 2026-06-29 14:00 - [森保一：日本队要亲手改写历史](https://www.blog.kurohicncr.top/Article/details/843386374318.shtml)
+- 2026-06-29 13:57 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/446839.shtml)
+- 2026-06-29 13:54 - [男子造谣县城满街都是小混混被行拘](http://www.share.kurohicncr.top/Article/details/5654220.shtml)
+- 2026-06-29 13:51 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/12063700.shtml)
+- 2026-06-29 14:05 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/35543.shtml)
+- 2026-06-29 14:04 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/55788.shtml)
+- 2026-06-29 13:48 - [韩媒破防：被中国球迷当笑柄](https://www.blog.kurohicncr.top/Article/details/32233.shtml)
+- 2026-06-29 14:03 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/72774624.shtml)

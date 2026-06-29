@@ -1,48 +1,59 @@
-# *ST节能：因公司涉嫌信息披露违法违规 被中国证监会立案
+# “汉堡馒头减肥法”，靠谱吗？专家提醒
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 人民财讯6月2日电，*ST节能（000820）6月2日公告，公司于6月2日收到中国证券监督管理委员会《立案告知书》，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案。在立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照相关规定履行信息披露义务。责任编辑：刘万里 SF014
+“汉堡馒头减肥法”，靠谱吗？(服务窗) 减去的可能是水分和肌肉 “每日早餐喝黑咖啡、吃鸡蛋，午餐吃两个汉堡(酱料减半、多加蔬菜)，晚餐吃两个馒头，并将进食时间控制在8小时内……”社交媒体上，一种名为“汉堡馒头减肥法”的饮食方式悄然走红。这种看似“快乐”的减重方法是否安全可靠？面对形形色色的减重“秘籍”，公众又该如何甄别与选择？ “评价一种饮食方式，首要标准是看其是否均衡。”天津
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 人民财讯6月2日电，*ST节能（000820）6月2日公告，公司于6月2日收到中国证券监督管理委员会《立案告知书》，因公司涉嫌信息披露违法违规，中国证监会决定对公司立案。
+“汉堡馒头减肥法”，靠谱吗？
 
-在立案调查期间，公司将积极配合中国证监会的调查工作，并严格按照相关规定履行信息披露义务。
+(服务窗) 减去的可能是水分和肌肉 “每日早餐喝黑咖啡、吃鸡蛋，午餐吃两个汉堡(酱料减半、多加蔬菜)，晚餐吃两个馒头，并将进食时间控制在8小时内……”社交媒体上，一种名为“汉堡馒头减肥法”的饮食方式悄然走红。
 
-责任编辑：刘万里 SF014
+这种看似“快乐”的减重方法是否安全可靠？
+
+面对形形色色的减重“秘籍”，公众又该如何甄别与选择？
+
+“评价一种饮食方式，首要标准是看其是否均衡。
+
+”天津市第一中心医院营养科主任、主任医师谭桂军解释，科学膳食的均衡性体现在以下几个维度：用餐时间相对固定，建议按早餐7时、午餐12时、晚餐18时进行饮食安排；能量分配合理，早、中、晚餐的能量摄入比例大致为3∶4∶3；进食结构搭配合理，每餐都应包含主食(碳水化合物)、优质蛋白(肉、蛋、奶、豆)和蔬菜。
+
+建议成年人每日摄入蔬菜不少于300克，其中新鲜深色蔬菜应占一半。
+
+反观“汉堡馒头减肥法”，早餐仅有咖啡和鸡蛋，缺乏提供基础能量的碳水化合物；晚餐则只有馒头，缺失蛋白质和蔬菜。
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
-- 2026-06-29 14:04 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
-- 2026-06-29 14:07 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 13:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 13:57 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 14:03 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 13:51 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwjva.md)
-- 2026-06-29 13:44 - [大 周 礼 时 代(4)](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-29 13:59 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 14:03 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 14:08 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-29 14:05 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 14:17 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 14:17 - [人民日报评“AI脸看腻了”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 13:59 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
+- 2026-06-29 14:03 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 13:49 - [血糖高的人能吃西瓜吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 13:52 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-29 14:15 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rvghm.md)
+- 2026-06-29 13:59 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
+- 2026-06-29 14:01 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-29 14:01 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-29 13:53 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 14:03 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-29 14:15 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [中央气象台发布强对流天气蓝色预警](https://www.share.kurohicncr.top/Article/details/57309398536.shtml)
-- 2026-06-29 13:55 - [流金岁月](https://www.share.minike.top/Article/details/93057821830.shtml)
-- 2026-06-29 14:04 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/299915233286.shtml)
-- 2026-06-29 13:51 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/5005534.shtml)
-- 2026-06-29 14:07 - [王佳佳江疏影13年前后同框对比](http://www.share.kurohicncr.top/Article/details/6915671.shtml)
-- 2026-06-29 14:05 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/53318753717.shtml)
-- 2026-06-29 13:49 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/257974726.shtml)
-- 2026-06-29 14:05 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/43980581.shtml)
-- 2026-06-29 14:00 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/9029108277.shtml)
-- 2026-06-29 14:04 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/8133190934.shtml)
-- 2026-06-29 14:03 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/25444585.shtml)
-- 2026-06-29 13:56 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/53865055442.shtml)
-- 2026-06-29 13:51 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.kurohicncr.top/Article/details/2255107753.shtml)
-- 2026-06-29 14:06 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/8739692489.shtml)
-- 2026-06-29 13:56 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.kurohicncr.top/Article/details/717827.shtml)
+- 2026-06-29 14:13 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/42608113598.shtml)
+- 2026-06-29 14:13 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/93161.shtml)
+- 2026-06-29 13:53 - [林昀儒不敌17岁小将止步首轮](http://www.share.minike.top/Article/details/061567972607.shtml)
+- 2026-06-29 14:08 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.minike.top/Article/details/169685426.shtml)
+- 2026-06-29 14:10 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/62812634.shtml)
+- 2026-06-29 13:49 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/33963122807.shtml)
+- 2026-06-29 14:01 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/804694693.shtml)
+- 2026-06-29 13:49 - [孙颖莎将迎来本届美国大满贯首秀](https://www.blog.minike.top/Article/details/582990548012.shtml)
+- 2026-06-29 13:53 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/782806434552.shtml)
+- 2026-06-29 13:57 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/60061.shtml)
+- 2026-06-29 13:48 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/9537982839.shtml)
+- 2026-06-29 13:58 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/3181706770.shtml)
+- 2026-06-29 13:51 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/75727450.shtml)
+- 2026-06-29 14:15 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/9146198215.shtml)
+- 2026-06-29 14:09 - [天道](https://www.blog.kurohicncr.top/Article/details/3267229.shtml)

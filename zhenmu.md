@@ -1,50 +1,56 @@
-# 人民币兑美元中间价报6.8187，下调20点
+# 港交所证券产品主管Brian：全球资本从美国回流中国资产 散户参与度愈发重要 AI半导体仍是驱动力
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-6月2日，人民币兑美元中间价报6.8187，下调20点。 美联储6月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储到6月维持利率不变的概率为98.4%，累计降息25个基点的概率为1.6%。美联储到7月维持利率不变的概率为90.2%，累计加息25个基点的概率8.4%，累计降息25个基点的概率为1.4%。责任编辑：郭建
+专题：格林威治经济论坛 • 香港2026 文/新浪财经香港站 赵岚 在4月13日格林威治经济论坛·2026香港活动中，港交所证券产品发展主管Brian Roberts表示，过去多年全球流动性持续向美国集中，形成明显的流动性真空。伴随近年全球宏观格局变化，国际资本开启新一轮全球化再配置。中国内地及香港市场作为亚洲市场增长核心引擎，将成为本轮资本回流的主要受益者。 目前，美元资产吸
 
 ## 正文
 
-6月2日，人民币兑美元中间价报6.8187，下调20点。
+专题：格林威治经济论坛 • 香港2026 文/新浪财经香港站 赵岚 在4月13日格林威治经济论坛·2026香港活动中，港交所证券产品发展主管Brian Roberts表示，过去多年全球流动性持续向美国集中，形成明显的流动性真空。
 
-美联储6月维持利率不变的概率为98.4% 据CME“美联储观察”：美联储到6月维持利率不变的概率为98.4%，累计降息25个基点的概率为1.6%。
+伴随近年全球宏观格局变化，国际资本开启新一轮全球化再配置。
 
-美联储到7月维持利率不变的概率为90.2%，累计加息25个基点的概率8.4%，累计降息25个基点的概率为1.4%。
+中国内地及香港市场作为亚洲市场增长核心引擎，将成为本轮资本回流的主要受益者。
 
-责任编辑：郭建
+目前，美元资产吸引力在持续减弱，美国债务规模持续攀升，财政赤字扩大，叠加特朗普政府贸易保护主义政策与美联储政策波动，引发全球对美元资产的信心动摇。
+
+此外，美联储政策转向趋势明确，2025 年末美联储进入降息周期，美元指数跌破 100 关口，美元存款利率优势逐步消失，促使全球资金寻求更高收益与风险分散渠道。
+
+叠加地缘政治重构，美伊冲突、俄乌战争等事件加剧全球不确定性，推动主权基金加速减持美债，转向新兴市场硬资产。
+
+资本配置逻辑对应转变，从 “单一锚定美国” 到 “分散化回归”，机构投资者开始重新评估全球资产风险收益比，非美资产尤其是亚洲市场的相对吸引力显著提升。
+
+Brian强调，健康友好的市场环境是交易所发展的核心动力。
 
 ## 相关推荐
 
-- 2026-06-29 13:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-29 13:46 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 13:42 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-29 13:48 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 14:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
-- 2026-06-29 13:53 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 13:46 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-29 13:46 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
-- 2026-06-29 13:43 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-29 13:54 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
-- 2026-06-29 14:03 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
-- 2026-06-29 14:00 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 14:02 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-29 14:01 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 14:03 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
+- 2026-06-29 13:56 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbzlf.md)
+- 2026-06-29 13:53 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 13:50 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 13:52 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-29 13:54 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 13:51 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 14:00 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [白宇摘下白玉兰送给杨幂](http://www.share.kurohicncr.top/Article/details/4862272917.shtml)
-- 2026-06-29 13:59 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/076676455.shtml)
-- 2026-06-29 13:55 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/12588.shtml)
-- 2026-06-29 13:59 - [韩国队差旅费亏麻了](https://www.blog.minike.top/Article/details/9797806366.shtml)
-- 2026-06-29 13:48 - [美伊同意停止互袭](http://www.blog.kurohicncr.top/Article/details/91581494.shtml)
-- 2026-06-29 13:50 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.minike.top/Article/details/990145987424.shtml)
-- 2026-06-29 14:09 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/785295.shtml)
-- 2026-06-29 13:45 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.kurohicncr.top/Article/details/072521579.shtml)
-- 2026-06-29 13:48 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/586274246.shtml)
-- 2026-06-29 13:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/13827261.shtml)
-- 2026-06-29 13:59 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/164435945.shtml)
-- 2026-06-29 13:55 - [王楚钦周启豪爆分](https://www.blog.kurohicncr.top/Article/details/321945.shtml)
-- 2026-06-29 14:06 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/4454337937.shtml)
-- 2026-06-29 13:46 - [天道](https://www.share.minike.top/Article/details/9230240737.shtml)
-- 2026-06-29 14:11 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/67936273.shtml)
+- 2026-06-29 14:00 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/860616053.shtml)
+- 2026-06-29 14:02 - [湖北钟祥市委书记张勇拟任新职](http://www.share.kurohicncr.top/Article/details/429991681.shtml)
+- 2026-06-29 14:17 - [去了一趟潮汕。](https://www.blog.kurohicncr.top/Article/details/2508061532.shtml)
+- 2026-06-29 13:53 - [青春环游记第三季](https://www.blog.minike.top/Article/details/33291949.shtml)
+- 2026-06-29 14:04 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/2618850.shtml)
+- 2026-06-29 14:11 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.kurohicncr.top/Article/details/109017673890.shtml)
+- 2026-06-29 14:09 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/21096307.shtml)
+- 2026-06-29 13:52 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/5083616.shtml)
+- 2026-06-29 14:06 - [曾沛慈夺冠后人气](http://www.share.minike.top/Article/details/53685749657.shtml)
+- 2026-06-29 13:52 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/147657524096.shtml)
+- 2026-06-29 14:05 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/48150952.shtml)
+- 2026-06-29 14:12 - [速度与激情9](http://www.blog.minike.top/Article/details/579155.shtml)
+- 2026-06-29 14:13 - [沙特足协主席发布声明主动请辞](http://www.blog.minike.top/Article/details/864115559.shtml)
+- 2026-06-29 14:11 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/44985222.shtml)
+- 2026-06-29 14:14 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/59449026.shtml)

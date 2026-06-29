@@ -1,47 +1,46 @@
-# 新疆独库公路开启今年季节性通行：独库公路贯通天山南北 一路风光揽四季
+# 4月14日人民币对美元中间价报6.8593 上调64个基点
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 09:42 来源：央视新闻 责任编辑：【王祎】
+中新网4月14日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月14日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8593元，上调64个基点。
 
 ## 正文
 
-发布时间：2026年06月02日 09:42 来源：央视新闻 责任编辑：【王祎】
+中新网4月14日电 据中国外汇交易中心网站消息，中国人民银行授权中国外汇交易中心公布，2026年4月14日银行间外汇市场人民币汇率中间价为：1美元对人民币6.8593元，上调64个基点。
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-29 13:52 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 13:59 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-29 14:07 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-29 14:07 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
-- 2026-06-29 14:09 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
-- 2026-06-29 13:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmnbq.md)
-- 2026-06-29 13:55 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
-- 2026-06-29 13:54 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 13:53 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 13:56 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 13:47 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-29 13:42 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 13:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sercn.md)
-- 2026-06-29 13:58 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 13:53 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 14:07 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-29 13:57 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/roogq.md)
+- 2026-06-29 14:15 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 14:09 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 13:51 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 13:53 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 14:17 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-29 14:14 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
+- 2026-06-29 14:13 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-29 13:53 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-29 14:02 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
+- 2026-06-29 14:10 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-29 14:04 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [这一刀 会很帅](http://www.share.minike.top/Article/details/44652824923.shtml)
-- 2026-06-29 13:54 - [爱情有烟火你是知道我爱看什么的](https://www.share.kurohicncr.top/Article/details/6245357.shtml)
-- 2026-06-29 14:08 - [孙怡告别浪姐千字文](http://www.share.minike.top/Article/details/2033917.shtml)
-- 2026-06-29 14:00 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/51787.shtml)
-- 2026-06-29 14:06 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/7460573.shtml)
-- 2026-06-29 14:02 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/18099.shtml)
-- 2026-06-29 13:57 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/582698.shtml)
-- 2026-06-29 13:53 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/81000871313.shtml)
-- 2026-06-29 13:56 - [曾沛慈夺冠后人气](https://www.blog.kurohicncr.top/Article/details/95544137749.shtml)
-- 2026-06-29 13:42 - [11岁小孩哥汽修工龄4年](http://www.blog.kurohicncr.top/Article/details/429691.shtml)
-- 2026-06-29 13:47 - [杨紫下沉市场口碑](https://www.share.minike.top/Article/details/2879179.shtml)
-- 2026-06-29 13:44 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/34612.shtml)
-- 2026-06-29 13:55 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/84763.shtml)
-- 2026-06-29 14:02 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/151398788.shtml)
-- 2026-06-29 13:45 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/1798955.shtml)
+- 2026-06-29 13:55 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/04714393078.shtml)
+- 2026-06-29 14:10 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/4513498351.shtml)
+- 2026-06-29 13:58 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/150255.shtml)
+- 2026-06-29 14:14 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.kurohicncr.top/Article/details/130027172387.shtml)
+- 2026-06-29 14:14 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/294880.shtml)
+- 2026-06-29 14:01 - [明星大侦探第一季](http://www.blog.minike.top/Article/details/539316091109.shtml)
+- 2026-06-29 13:59 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/78864652894.shtml)
+- 2026-06-29 13:55 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/799893383299.shtml)
+- 2026-06-29 14:13 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/5925314795.shtml)
+- 2026-06-29 14:06 - [王楚钦欢迎晚宴上打台球](https://www.share.kurohicncr.top/Article/details/48113.shtml)
+- 2026-06-29 14:15 - [一生一世](http://www.blog.minike.top/Article/details/95900082.shtml)
+- 2026-06-29 14:05 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.kurohicncr.top/Article/details/41185.shtml)
+- 2026-06-29 13:58 - [沉睡花园](https://www.share.minike.top/Article/details/833083.shtml)
+- 2026-06-29 14:12 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/76080.shtml)
+- 2026-06-29 14:10 - [韩国记者：解码“合肥模式”](http://www.blog.kurohicncr.top/Article/details/76585.shtml)

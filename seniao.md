@@ -1,61 +1,47 @@
-# 1110亿元育儿补贴资金来了
+# 日本长期国债收益率一度升至27年高位
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-6月底前各地将集中发放育儿补贴资金，中央财政资金已到账 今年6月底前各地将集中发放一批育儿补贴资金，而中央财政已经备好资金，确保这一惠民政策落地。 6月2日，财政部公开表示，近期下达2026年育儿补贴补助资金999亿元，较上年增长10.6%，支持各地为符合条件的婴幼儿发放育儿补贴。预计全年各级财政共安排补贴资金约1100亿元。 中国去年首次实施育儿补贴制度，对3周岁以下婴幼儿按
+发布时间：2026年04月14日 10:40 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 正文
 
-6月底前各地将集中发放育儿补贴资金，中央财政资金已到账 今年6月底前各地将集中发放一批育儿补贴资金，而中央财政已经备好资金，确保这一惠民政策落地。
-
-6月2日，财政部公开表示，近期下达2026年育儿补贴补助资金999亿元，较上年增长10.6%，支持各地为符合条件的婴幼儿发放育儿补贴。
-
-预计全年各级财政共安排补贴资金约1100亿元。
-
-中国去年首次实施育儿补贴制度，对3周岁以下婴幼儿按每月300元标准发放财政补贴。
-
-而这一财政补贴资金总体来看约九成来自中央财政，剩余一成由地方财政承担。
-
-因此，今年国家预计各级财政安排育儿补贴补助资金约1100亿元，其中中央财政承担近1000亿元，剩余100亿元则由各地财政承担。
-
-早在去年底，中央财政就已经提前下达了2026年育儿补贴补助资金预算，便于地方提前做好预算确保这一政策落地。
-
-今年1月5日，2026年育儿补贴全面开放申领。
+发布时间：2026年04月14日 10:40 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 14:05 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
-- 2026-06-29 14:01 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-29 13:44 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-29 14:02 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 14:05 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
-- 2026-06-29 14:01 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 13:46 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-29 13:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/arijx.md)
-- 2026-06-29 14:10 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-29 14:11 - [链博会上的机器人太全能了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
-- 2026-06-29 14:01 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-29 13:52 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 14:11 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-29 13:56 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
+- 2026-06-29 14:06 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 13:50 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
+- 2026-06-29 13:48 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 14:08 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 14:06 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-29 14:05 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-29 14:14 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 14:02 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-29 14:05 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 14:09 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 13:49 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-29 14:00 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
+- 2026-06-29 13:50 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 14:05 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-29 14:01 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:47 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/7243494.shtml)
-- 2026-06-29 14:02 - [TLAW vs DCG MSI](https://www.share.minike.top/Article/details/854159.shtml)
-- 2026-06-29 13:56 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/01712.shtml)
-- 2026-06-29 14:08 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/0722495.shtml)
-- 2026-06-29 13:49 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/725641.shtml)
-- 2026-06-29 14:08 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.minike.top/Article/details/252752780.shtml)
-- 2026-06-29 13:51 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/2275557332.shtml)
-- 2026-06-29 13:48 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/68818.shtml)
-- 2026-06-29 13:57 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/525458.shtml)
-- 2026-06-29 13:52 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/02062.shtml)
-- 2026-06-29 14:10 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/22574231399.shtml)
-- 2026-06-29 13:43 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/496794944697.shtml)
-- 2026-06-29 13:42 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/629670.shtml)
-- 2026-06-29 14:06 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/9947482.shtml)
-- 2026-06-29 13:44 - [2026年Mac能玩游戏了吗](http://www.share.kurohicncr.top/Article/details/402893.shtml)
+- 2026-06-29 13:54 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/5053605.shtml)
+- 2026-06-29 13:49 - [致敬！中国首批缉毒警已全体退休](https://www.blog.minike.top/Article/details/75243704832.shtml)
+- 2026-06-29 14:14 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/30887.shtml)
+- 2026-06-29 13:49 - [哈兰德这该死的胜负欲](https://www.share.kurohicncr.top/Article/details/473020904877.shtml)
+- 2026-06-29 14:15 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/77349.shtml)
+- 2026-06-29 14:06 - [职业选手禁止参赛！](http://www.share.minike.top/Article/details/0396801397.shtml)
+- 2026-06-29 14:11 - [急先锋](https://www.share.minike.top/Article/details/0190413.shtml)
+- 2026-06-29 14:08 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/46828008.shtml)
+- 2026-06-29 13:59 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.share.minike.top/Article/details/03760.shtml)
+- 2026-06-29 14:00 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/9057672507.shtml)
+- 2026-06-29 13:59 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/764761117265.shtml)
+- 2026-06-29 13:50 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.kurohicncr.top/Article/details/83588.shtml)
+- 2026-06-29 13:56 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.blog.minike.top/Article/details/419411856497.shtml)
+- 2026-06-29 14:16 - [游戏数据被用于军事目的 国安部提醒](http://www.share.minike.top/Article/details/8202823383.shtml)
+- 2026-06-29 13:55 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/9595272.shtml)

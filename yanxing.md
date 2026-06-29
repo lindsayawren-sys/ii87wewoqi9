@@ -1,46 +1,57 @@
-# 未来几天东北华北等地强对流仍频繁
+# 远见控股：建议股份合并
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:19 来源：央视新闻 责任编辑：【王祎】
+远见控股（00862）发布公告，董事会建议进行股份合并，将公司股本中每10股每股面值0.01港元的现有股份合并为1股每股面值0.1港元的合并股份。于本公告日期，公司的法定股本为2亿港元，分为200亿股每股面值0.01港元的现有股份，其中39.24亿股现有股份已获配发及发行，并已缴足或入账列作缴足。股份合并须待（其中包括）股东于股东特别大会上以普通决议案批准后，方可作实。 于本公
 
 ## 正文
 
-发布时间：2026年06月02日 13:19 来源：央视新闻 责任编辑：【王祎】
+远见控股（00862）发布公告，董事会建议进行股份合并，将公司股本中每10股每股面值0.01港元的现有股份合并为1股每股面值0.1港元的合并股份。
+
+于本公告日期，公司的法定股本为2亿港元，分为200亿股每股面值0.01港元的现有股份，其中39.24亿股现有股份已获配发及发行，并已缴足或入账列作缴足。
+
+股份合并须待（其中包括）股东于股东特别大会上以普通决议案批准后，方可作实。
+
+于本公告日期，现有股份于联交所买卖的每手买卖单位为5000股现有股份。
+
+建议待股份合并生效后并以其为条件，于联交所买卖的每手买卖单位由5000股现有股份更改为10000股合并股份。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-29 13:51 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 13:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 14:09 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-29 14:09 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 14:00 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-29 14:04 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 14:01 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
-- 2026-06-29 13:43 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 14:08 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-29 13:45 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
-- 2026-06-29 14:02 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 13:54 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-29 13:47 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-29 13:58 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-29 13:54 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-29 14:11 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 14:01 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 14:13 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 14:04 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
+- 2026-06-29 13:49 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 14:09 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 14:11 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
+- 2026-06-29 14:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhengfo.md)
+- 2026-06-29 14:00 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 13:59 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 13:52 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiao.md)
+- 2026-06-29 14:12 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 14:03 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/25112307.shtml)
-- 2026-06-29 13:51 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.share.minike.top/Article/details/64346109091.shtml)
-- 2026-06-29 13:55 - [去了一趟潮汕。](http://www.blog.minike.top/Article/details/477682.shtml)
-- 2026-06-29 14:07 - [失明的我带老妈去了趟“火星”](https://www.share.minike.top/Article/details/86598719582.shtml)
-- 2026-06-29 14:05 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/942133.shtml)
-- 2026-06-29 14:09 - [北极荒岛生存挑战](http://www.share.minike.top/Article/details/037668869934.shtml)
-- 2026-06-29 14:08 - [王祖蓝现场观看美加墨世界杯](https://www.share.minike.top/Article/details/6783455331.shtml)
-- 2026-06-29 13:42 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/67047707.shtml)
-- 2026-06-29 13:43 - [一见倾心](https://www.share.minike.top/Article/details/9990092046.shtml)
-- 2026-06-29 13:55 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/899291816.shtml)
-- 2026-06-29 13:46 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/8519751.shtml)
-- 2026-06-29 14:00 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.kurohicncr.top/Article/details/2410656.shtml)
-- 2026-06-29 13:45 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/985848178.shtml)
-- 2026-06-29 14:00 - [开电动汽车真的很省钱吗？](https://www.share.minike.top/Article/details/2644530.shtml)
-- 2026-06-29 13:46 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/1529283.shtml)
+- 2026-06-29 14:10 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/9662668200.shtml)
+- 2026-06-29 14:01 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/3436653366.shtml)
+- 2026-06-29 14:02 - [亚洲成世界杯最大失意者联盟](https://www.blog.minike.top/Article/details/74895153.shtml)
+- 2026-06-29 13:54 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/0518107632.shtml)
+- 2026-06-29 14:00 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/4618347143.shtml)
+- 2026-06-29 13:57 - [詹俊：巴西能凭借两大优势战胜日本](https://www.share.minike.top/Article/details/77046252.shtml)
+- 2026-06-29 14:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/53052865.shtml)
+- 2026-06-29 14:05 - [爸爸当家](http://www.share.minike.top/Article/details/24020.shtml)
+- 2026-06-29 14:10 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/827620980444.shtml)
+- 2026-06-29 13:54 - [伊朗球员致歉](https://www.blog.minike.top/Article/details/71791.shtml)
+- 2026-06-29 13:55 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/973848.shtml)
+- 2026-06-29 13:56 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/7540504595.shtml)
+- 2026-06-29 14:15 - [中国邮政上海分公司总经理李柏平被查](https://www.share.minike.top/Article/details/781034.shtml)
+- 2026-06-29 13:53 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/833026683.shtml)
+- 2026-06-29 14:16 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/455528.shtml)

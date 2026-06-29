@@ -1,59 +1,59 @@
-# 浙江宁波探索未成年人观护共治 解锁迷途少年成长密码
+# 国家医保局：进一步将口腔等3个领域纳入自查自纠范围
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-中新网宁波6月1日电 (钱晨菲 张力 徐超)曾经多次和同学打架、成绩连职高都“悬”的初中生小然(化名)，如今成绩持续提升。小然的转变，得益于“奉法护苗”观护中心的教育。 近日，浙江未成年人犯罪预防媒体采访团走进宁波市奉化区、鄞州区，探访宁波市公安局如何在浙江率先创立未成年人社会观护共治模式，照亮迷途少年的向阳之路。 近年来，随着未成年人违法犯罪问题日益突出，如何通过科学、有效的
+中新网4月14日电 据“国家医保局”微信公众号消息，为深入贯彻《国务院办公厅关于加强医疗保障基金使用常态化监管的实施意见》要求，持续深化医保基金管理突出问题专项整治，进一步压实定点医药机构自我管理主体责任，规范医保基金使用，近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。自查自纠聚焦重点领域“逐渐细化、持续深化”。在既往心血管内科
 
 ## 正文
 
-中新网宁波6月1日电 (钱晨菲 张力 徐超)曾经多次和同学打架、成绩连职高都“悬”的初中生小然(化名)，如今成绩持续提升。
+中新网4月14日电 据“国家医保局”微信公众号消息，为深入贯彻《国务院办公厅关于加强医疗保障基金使用常态化监管的实施意见》要求，持续深化医保基金管理突出问题专项整治，进一步压实定点医药机构自我管理主体责任，规范医保基金使用，近日，国家医疗保障局在全国范围内组织开展2026年定点医药机构违法违规使用医保基金自查自纠工作。
 
-小然的转变，得益于“奉法护苗”观护中心的教育。
+自查自纠聚焦重点领域“逐渐细化、持续深化”。
 
-近日，浙江未成年人犯罪预防媒体采访团走进宁波市奉化区、鄞州区，探访宁波市公安局如何在浙江率先创立未成年人社会观护共治模式，照亮迷途少年的向阳之路。
+在既往心血管内科、骨科、血液净化、康复、医学影像、临床检验、肿瘤、麻醉、重症医学等9个重点领域的基础上，本年度进一步将口腔、内分泌、精神医学3个领域纳入自查自纠范围。
 
-近年来，随着未成年人违法犯罪问题日益突出，如何通过科学、有效的干预手段，实现罪错未成年人的教育、感化和挽救，成为基层社会治理的重要议题。
+各地医保部门以此为基础，结合实际组织开展自查，确保全面覆盖、不留死角。
 
-去年以来，宁波市公安局联合市委社工部、市委政法委，依托“浙里安·红枫”宁波义警协会未成年人保护队伍，探索创建“晨曦之光”严重不良行为社会观护志愿服务项目。
+本次自查自纠工作分三个阶段有序推进。
 
-宁波市公安局治安支队相关负责人表示，按照相关规定，社会观护中心接收的对象一般为已满12周岁未满18周岁，具有《中华人民共和国预防未成年人犯罪法》规定的盗窃、殴打他人、寻衅滋事等九种严重危害社会行为的宁波籍或在宁波辖区内有相对固定住所的未成年人。
+一是细化制定本地清单。
 
-“每一个迷途少年，心中都藏着一把尚未被发现的钥匙，我们不是要‘改造’谁，而是要找到那把钥匙，帮孩子打开自己的门。
+国家医保局已下发2026年定点医药机构违法违规使用医保基金典型问题清单，各地医保部门已于3月底前结合本地医保政策、诊疗项目规范，对问题清单进行细化完善。
 
-”“晨曦之光”项目相关负责人说。
+二是组织全面自查。
 
 ## 相关推荐
 
-- 2026-06-29 13:50 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 14:04 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angreng.md)
-- 2026-06-29 13:55 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 14:10 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 13:48 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 14:02 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 14:10 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-29 13:50 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-29 14:09 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-29 13:47 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-29 13:55 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 14:00 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 13:51 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-29 14:17 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 13:48 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
+- 2026-06-29 14:17 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 14:03 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 14:16 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-29 14:04 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:15 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adgfx.md)
+- 2026-06-29 14:04 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 14:08 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 14:17 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:49 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 13:57 - [教育部发布预警 事关高招录取](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 13:54 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/8976770.shtml)
-- 2026-06-29 13:45 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/18748.shtml)
-- 2026-06-29 14:02 - [沙丘](http://www.blog.minike.top/Article/details/30506780284.shtml)
-- 2026-06-29 14:00 - [47岁吴建豪再婚](https://www.share.kurohicncr.top/Article/details/81976.shtml)
-- 2026-06-29 14:00 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/70675547434.shtml)
-- 2026-06-29 14:08 - [爱情有烟火你是知道我爱看什么的](https://www.share.minike.top/Article/details/6328712.shtml)
-- 2026-06-29 13:56 - [事关个税 明日截止请抓紧办理](https://www.blog.kurohicncr.top/Article/details/06699.shtml)
-- 2026-06-29 13:56 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/94130.shtml)
-- 2026-06-29 13:53 - [薛之谦演唱会](https://www.share.minike.top/Article/details/2175970059.shtml)
-- 2026-06-29 14:04 - [周生如故](https://www.share.kurohicncr.top/Article/details/618824312.shtml)
-- 2026-06-29 13:47 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.share.kurohicncr.top/Article/details/415051571698.shtml)
-- 2026-06-29 14:01 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/9440415945.shtml)
-- 2026-06-29 14:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/04066256352.shtml)
-- 2026-06-29 13:57 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/73003.shtml)
-- 2026-06-29 13:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/664508246031.shtml)
+- 2026-06-29 14:10 - [人民日报评“AI脸看腻了”](https://www.blog.kurohicncr.top/Article/details/08569975433.shtml)
+- 2026-06-29 14:11 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/8104589.shtml)
+- 2026-06-29 14:08 - [青春环游记第三季](http://www.blog.minike.top/Article/details/66501.shtml)
+- 2026-06-29 14:08 - [iPhone18系列预计将大幅涨价](https://www.blog.kurohicncr.top/Article/details/24195.shtml)
+- 2026-06-29 14:15 - [李连杰否认不管前妻两女儿](https://www.blog.minike.top/Article/details/08722556.shtml)
+- 2026-06-29 14:12 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/64028095886.shtml)
+- 2026-06-29 14:14 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/265812563607.shtml)
+- 2026-06-29 14:06 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.minike.top/Article/details/696526073.shtml)
+- 2026-06-29 13:54 - [起风了](https://www.share.minike.top/Article/details/4978718.shtml)
+- 2026-06-29 14:07 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/658759352.shtml)
+- 2026-06-29 13:56 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/3647592057.shtml)
+- 2026-06-29 14:16 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/54698.shtml)
+- 2026-06-29 14:03 - [急先锋](http://www.blog.minike.top/Article/details/17230.shtml)
+- 2026-06-29 14:13 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.kurohicncr.top/Article/details/81843912.shtml)
+- 2026-06-29 14:13 - [龟梨和也田中美奈实结婚](http://www.share.kurohicncr.top/Article/details/94863299875.shtml)

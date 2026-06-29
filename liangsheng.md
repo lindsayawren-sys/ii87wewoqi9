@@ -1,56 +1,45 @@
-# Real Brokerage进军新不伦瑞克省 加拿大业务扩展至第六省
+# 莫桑比克总统查波将访华
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-Real Brokerage Inc． 周二宣布已正式进军加拿大新不伦瑞克省，这是该公司在加拿大扩展至的第六个省份，进一步巩固了其在加拿大房地产市场的布局。Real通过引入独立经纪公司Creativ Realty在新不伦瑞克省开展业务，后者将作为该省的运营基础。 Creativ Realty由Martin Gallant领导，Gallant将出任Real在新不伦瑞克省的董事经纪
+外交部发言人宣布： 应国家主席习近平邀请，莫桑比克共和国总统丹尼尔·弗朗西斯科·查波将于4月16日至22日对中国进行国事访问。
 
 ## 正文
 
-Real Brokerage Inc． 周二宣布已正式进军加拿大新不伦瑞克省，这是该公司在加拿大扩展至的第六个省份，进一步巩固了其在加拿大房地产市场的布局。
-
-Real通过引入独立经纪公司Creativ Realty在新不伦瑞克省开展业务，后者将作为该省的运营基础。
-
-Creativ Realty由Martin Gallant领导，Gallant将出任Real在新不伦瑞克省的董事经纪。
-
-该团队拥有42名经纪人，业务覆盖东南地区各价位市场，包括豪宅领域，2025年总销售额超过3亿美元。
-
-Gallant表示：“在评估如何长期支持经纪人的业务时，我们认为与Real在文化上天然契合，其技术平台、教育资源和费用结构最终促成了这一决定。
-
-” Real首席增长官Jason Cassity称：“新不伦瑞克省对我们来说是一项重要的战略扩张。
-
-全省经纪人对更现代、协作性更强的经纪模式的兴趣持续增长，Martin和Creativ Realty团队为Real在该省的发展提供了理想的基础。
-
-” 目前Real已在加拿大的不列颠哥伦比亚省、阿尔伯塔省、萨斯喀彻温省、曼尼托巴省、安大略省和新不伦瑞克省开展业务。
+外交部发言人宣布： 应国家主席习近平邀请，莫桑比克共和国总统丹尼尔·弗朗西斯科·查波将于4月16日至22日对中国进行国事访问。
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 13:56 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-29 13:50 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 14:01 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
-- 2026-06-29 14:10 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
-- 2026-06-29 14:07 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 14:00 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fiasy.md)
-- 2026-06-29 13:46 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-29 13:47 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 14:07 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 14:07 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
+- 2026-06-29 14:07 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 14:09 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 14:11 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-29 13:49 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 14:10 - [105年初心滚烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
+- 2026-06-29 14:07 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 13:49 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtkdu.md)
+- 2026-06-29 13:50 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-29 13:54 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
+- 2026-06-29 14:17 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-29 13:50 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 14:11 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:53 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/34019808746.shtml)
-- 2026-06-29 14:10 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/318812116.shtml)
-- 2026-06-29 13:59 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/944990173.shtml)
-- 2026-06-29 14:11 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/43820.shtml)
-- 2026-06-29 13:43 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/940070126.shtml)
-- 2026-06-29 13:44 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/91810.shtml)
-- 2026-06-29 13:44 - [加拿大92分钟绝杀成世界杯首个16强](http://www.blog.minike.top/Article/details/711460.shtml)
-- 2026-06-29 14:11 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/944537169.shtml)
-- 2026-06-29 13:51 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/5471217269.shtml)
-- 2026-06-29 13:49 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/8245573884.shtml)
-- 2026-06-29 13:58 - [韩媒破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/17976708804.shtml)
-- 2026-06-29 13:58 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/35372777.shtml)
-- 2026-06-29 14:02 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/39098556159.shtml)
-- 2026-06-29 13:58 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/99526.shtml)
-- 2026-06-29 14:01 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.share.kurohicncr.top/Article/details/794034884.shtml)
+- 2026-06-29 13:55 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/6917907.shtml)
+- 2026-06-29 13:56 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/63702.shtml)
+- 2026-06-29 14:10 - [起风了](http://www.share.kurohicncr.top/Article/details/383106836.shtml)
+- 2026-06-29 14:14 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/17302141.shtml)
+- 2026-06-29 14:14 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/891523671215.shtml)
+- 2026-06-29 14:02 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/781171443.shtml)
+- 2026-06-29 14:11 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/739457402.shtml)
+- 2026-06-29 13:49 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/70156181298.shtml)
+- 2026-06-29 14:09 - [白宇摘下白玉兰送给杨幂](http://www.blog.kurohicncr.top/Article/details/436102212486.shtml)
+- 2026-06-29 13:56 - [DSpark论文深度解读](http://www.blog.minike.top/Article/details/1660423435.shtml)
+- 2026-06-29 14:10 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/388143.shtml)
+- 2026-06-29 13:55 - [记者率先试乘西十高铁](https://www.blog.minike.top/Article/details/44822281600.shtml)
+- 2026-06-29 14:15 - [美人鱼](https://www.share.kurohicncr.top/Article/details/29516362.shtml)
+- 2026-06-29 13:52 - [在家赤身裸体是否绝对自由](https://www.blog.kurohicncr.top/Article/details/77784171118.shtml)
+- 2026-06-29 13:54 - [灿如繁星定档](http://www.blog.minike.top/Article/details/012914014.shtml)

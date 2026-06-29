@@ -1,48 +1,61 @@
-# 铜业股早盘集体走高 江西铜业股份及中国有色矿业均涨超3%
+# 欧洲3月纯电和插电式混动汽车销量同比飙升37%，创历史新高
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-铜业股早盘集体走高，截至发稿，江西铜业股份（00358）上涨3.35%，报35.78港元；中国有色矿业（01258）上涨3.35%，报14.83港元；五矿资源（01208）上涨2.41%，报9.34港元。责任编辑：卢昱君
+咨询公司Benchmark Mineral Intelligence（BMI）周二公布的数据显示，燃油成本上涨推动欧洲3月份纯电和插电式混动汽车销量创下历史新高，并推动了今年全球纯电和插电式混动汽车销量首次实现增长。 自2月28日伊朗冲突爆发以来，世界各国政府纷纷设定燃油价格上限，以保护车主免受油价飙升的影响。这场冲突导致霍尔木兹海峡航运中断，该路线承载着全球约20%的石油供应
 
 ## 正文
 
-铜业股早盘集体走高，截至发稿，江西铜业股份（00358）上涨3.35%，报35.78港元；中国有色矿业（01258）上涨3.35%，报14.83港元；五矿资源（01208）上涨2.41%，报9.34港元。
+咨询公司Benchmark Mineral Intelligence（BMI）周二公布的数据显示，燃油成本上涨推动欧洲3月份纯电和插电式混动汽车销量创下历史新高，并推动了今年全球纯电和插电式混动汽车销量首次实现增长。
 
-责任编辑：卢昱君
+自2月28日伊朗冲突爆发以来，世界各国政府纷纷设定燃油价格上限，以保护车主免受油价飙升的影响。
+
+这场冲突导致霍尔木兹海峡航运中断，该路线承载着全球约20%的石油供应。
+
+BMI的数据显示，3月份全球纯电动和插电式混动汽车的新车注册量同比增长3%，达到170万辆以上；欧洲的注册量更是增长了37%，创下近54万辆的历史新高。
+
+BMI数据经理查尔斯·莱斯特表示，“这在很大程度上可以归因于汽油价格上涨”。
+
+莱斯特补充说，增长最强劲的国家是能源价格涨幅最大的国家，包括澳大利亚、新西兰、越南和泰国，这些国家合计推动了除中国、欧洲和北美三大主要市场之外的电动汽车注册量增长了79%。
+
+BMI数据显示，中国市场3月份的纯电和插电式混动汽车注册量超过85万辆，同比下降了14%。
+
+在北美，3月份纯电和插电式混动汽车注册量同比下降了30%，为12.15万辆，这是自美国电动汽车税收抵免政策结束以及特朗普政府提议进一步削减二氧化碳排放标准以来，连续第六个月出现同比下降。
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 13:46 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 13:43 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 13:49 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 13:47 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 13:54 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 13:43 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-29 14:05 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 14:12 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
-- 2026-06-29 13:53 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 14:07 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 14:07 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-29 14:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-29 14:00 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
+- 2026-06-29 14:00 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-29 13:50 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
+- 2026-06-29 14:17 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:49 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
+- 2026-06-29 13:57 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-29 14:09 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 14:05 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:51 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 13:59 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvoie.md)
+- 2026-06-29 13:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 14:02 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 14:13 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
+- 2026-06-29 14:14 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 14:12 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 14:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/9118161.shtml)
-- 2026-06-29 14:00 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/118595516940.shtml)
-- 2026-06-29 13:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/5562867.shtml)
-- 2026-06-29 13:53 - [市民骑哈啰单车79分钟被收费30元](http://www.share.minike.top/Article/details/09459395614.shtml)
-- 2026-06-29 13:51 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/72536266984.shtml)
-- 2026-06-29 14:09 - [复盘曾沛慈浪姐夺冠之路](http://www.share.minike.top/Article/details/09417.shtml)
-- 2026-06-29 14:08 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/119600.shtml)
-- 2026-06-29 13:50 - [韩国队启程回国 全员羞愧低头](http://www.blog.kurohicncr.top/Article/details/2760501.shtml)
-- 2026-06-29 14:11 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.minike.top/Article/details/7468893.shtml)
-- 2026-06-29 13:47 - [A股](https://www.share.minike.top/Article/details/8931557507.shtml)
-- 2026-06-29 14:05 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/0171931.shtml)
-- 2026-06-29 13:43 - [爸爸当家](https://www.blog.kurohicncr.top/Article/details/3728977.shtml)
-- 2026-06-29 14:11 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/12608.shtml)
-- 2026-06-29 14:09 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/899168917.shtml)
-- 2026-06-29 13:59 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/69093337376.shtml)
+- 2026-06-29 14:16 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/50787007.shtml)
+- 2026-06-29 14:02 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/80474747289.shtml)
+- 2026-06-29 14:16 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/414753322604.shtml)
+- 2026-06-29 13:57 - [国足前主帅：亚洲仅两队晋级不意外](http://www.share.minike.top/Article/details/589582549.shtml)
+- 2026-06-29 14:04 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/030323.shtml)
+- 2026-06-29 14:07 - [起风了](https://www.share.minike.top/Article/details/876387.shtml)
+- 2026-06-29 14:11 - [毒液2](http://www.blog.kurohicncr.top/Article/details/671118312922.shtml)
+- 2026-06-29 13:52 - [急先锋](http://www.blog.minike.top/Article/details/3453095.shtml)
+- 2026-06-29 14:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/23369.shtml)
+- 2026-06-29 13:54 - [自然资源部派专家赴宜宾地震影响区](http://www.blog.kurohicncr.top/Article/details/584001050.shtml)
+- 2026-06-29 13:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/32078.shtml)
+- 2026-06-29 14:00 - [韩国队出局引发意大利球迷全网狂欢](https://www.blog.minike.top/Article/details/685827480.shtml)
+- 2026-06-29 14:05 - [起风了](http://www.blog.kurohicncr.top/Article/details/85275.shtml)
+- 2026-06-29 14:07 - [致敬！中国首批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/807144500.shtml)
+- 2026-06-29 13:56 - [韩国政府将对世界杯出局追责](http://www.share.minike.top/Article/details/006816925.shtml)

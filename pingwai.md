@@ -1,48 +1,61 @@
-# 特朗普任命Pulte为代理国家情报总监
+# 投资中国·2026海南自由贸易港全球产业招商大会举行
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-“我任命联邦住房金融局局长、房利美/房地美董事长William J． Pulte担任代理国家情报总监，”特朗普在Truth Social上表示。 “在此期间，他将继续担任联邦住房金融局局长，”他补充道。责任编辑：何云
+中新网海口4月14日电 (记者 王子谦)4月14日，由海南省人民政府与商务部联合主办的投资中国·2026海南自由贸易港全球产业招商大会在海口举行。 作为2026年“投资中国”系列国家级重点活动，大会以“封关新起点，投资新机遇”为主题，以“高规格引领、国际化扩容、精准化对接、实效化招商、全流程服务”为核心亮点，全方位展现海南自贸港封关运作新风貌，为自贸港高质量发展汇聚全球投资新动
 
 ## 正文
 
-“我任命联邦住房金融局局长、房利美/房地美董事长William J． Pulte担任代理国家情报总监，”特朗普在Truth Social上表示。
+中新网海口4月14日电 (记者 王子谦)4月14日，由海南省人民政府与商务部联合主办的投资中国·2026海南自由贸易港全球产业招商大会在海口举行。
 
-“在此期间，他将继续担任联邦住房金融局局长，”他补充道。
+作为2026年“投资中国”系列国家级重点活动，大会以“封关新起点，投资新机遇”为主题，以“高规格引领、国际化扩容、精准化对接、实效化招商、全流程服务”为核心亮点，全方位展现海南自贸港封关运作新风貌，为自贸港高质量发展汇聚全球投资新动能。
 
-责任编辑：何云
+大会共有277家外资企业参会，较上届增长超一倍。
+
+世界500强、中国500强、民企500强及知名国际化企业、商协会100余家派核心代表出席。
+
+大会发布比较优势清单、应用场景清单及典型落地案例，明确28个细分产业优势、138个招商方向、88项应用场景，以及近300个优质项目，总投资额达3500亿元，同步推出54个已落地成功案例，为企业投资提供清晰指引。
+
+大会紧扣海南自贸港产业布局，靶向策划12场产业专场对接会，将聚焦生物医药、低空经济、数字经济、航天、深海科技与未来产业等12大重点领域，实现产业需求与投资意向精准匹配。
+
+本次大会以高效对接、务实合作推动一批重点项目签约落地，为海南自贸港培育特色产业、构建开放型经济新体制注入强劲动力。
+
+未来，海南将持续以开放姿态汇聚全球资源，与全球投资者共筑自贸港发展新蓝图。
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 14:01 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-29 13:51 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 14:09 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 14:09 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 14:11 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 14:05 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 13:54 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 14:00 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 13:45 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtops.md)
-- 2026-06-29 14:00 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
-- 2026-06-29 13:52 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
+- 2026-06-29 14:14 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 13:48 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-29 13:48 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-29 14:10 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 13:50 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
+- 2026-06-29 13:58 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-29 14:01 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 13:50 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-29 14:13 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
+- 2026-06-29 14:06 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 14:03 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 13:59 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 14:13 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 14:08 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssjfq.md)
+- 2026-06-29 13:55 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/8812552.shtml)
-- 2026-06-29 14:03 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/327503872.shtml)
-- 2026-06-29 13:47 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/87206383.shtml)
-- 2026-06-29 13:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/08369.shtml)
-- 2026-06-29 14:04 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/944621149.shtml)
-- 2026-06-29 13:53 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.kurohicncr.top/Article/details/313364858423.shtml)
-- 2026-06-29 14:01 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/6191293.shtml)
-- 2026-06-29 14:03 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/037354862.shtml)
-- 2026-06-29 13:54 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/45778291.shtml)
-- 2026-06-29 14:11 - [T1零封KC MSI](https://www.share.minike.top/Article/details/28070532779.shtml)
-- 2026-06-29 14:00 - [11岁小孩哥汽修工龄4年](https://www.blog.minike.top/Article/details/93430205.shtml)
-- 2026-06-29 14:10 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/91932693.shtml)
-- 2026-06-29 13:58 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.kurohicncr.top/Article/details/98354.shtml)
-- 2026-06-29 14:06 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/9293773.shtml)
-- 2026-06-29 13:51 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/69005019742.shtml)
+- 2026-06-29 14:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/577285404.shtml)
+- 2026-06-29 14:13 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/833874692547.shtml)
+- 2026-06-29 14:06 - [直击宜宾地震：监控剧烈摇晃](https://www.blog.minike.top/Article/details/76715.shtml)
+- 2026-06-29 14:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/65662624.shtml)
+- 2026-06-29 14:16 - [中国战机大片上新](https://www.share.minike.top/Article/details/2501774049.shtml)
+- 2026-06-29 13:55 - [105年初心滚烫](http://www.share.minike.top/Article/details/35649.shtml)
+- 2026-06-29 14:02 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/194180125688.shtml)
+- 2026-06-29 14:13 - [欧洲超1300例超额死亡与高温有关](https://www.share.minike.top/Article/details/190994.shtml)
+- 2026-06-29 14:13 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/9039281447.shtml)
+- 2026-06-29 14:17 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/53436.shtml)
+- 2026-06-29 13:55 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/5320375189.shtml)
+- 2026-06-29 13:48 - [为什么6月以来北方频繁降雨](https://www.blog.minike.top/Article/details/356943.shtml)
+- 2026-06-29 14:14 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/74017897.shtml)
+- 2026-06-29 14:09 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/7292161.shtml)
+- 2026-06-29 14:12 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/79880754766.shtml)

@@ -1,61 +1,46 @@
-# 微软将在Build开发者大会发布全新AI模型与Windows升级内容
+# 伊朗伊斯兰革命卫队海军称：霍尔木兹海峡处于伊朗完全管控下
 
-> 更新时间：2026-06-29 14:12:02 UTC+8
+> 更新时间：2026-06-29 14:18:02 UTC+8
 
 ## 摘要
 
-本周微软将在旧金山举办Build开发者大会，会场规模精简、场地更紧凑。目前开发者对Windows与GitHub的信任度跌至历史低位，本次大会正是微软重拾开发者信任、勾勒产品未来路线的关键契机。 据消息人士透露，微软将发布适配Windows的全新AI模型、自研新一代推理大模型，以及一款Copilot超级应用。 微软还会披露多项优化Windows开发体验的落地进展。 知情消息显示，
+发布时间：2026年04月13日 10:34 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 正文
 
-本周微软将在旧金山举办Build开发者大会，会场规模精简、场地更紧凑。
-
-目前开发者对Windows与GitHub的信任度跌至历史低位，本次大会正是微软重拾开发者信任、勾勒产品未来路线的关键契机。
-
-据消息人士透露，微软将发布适配Windows的全新AI模型、自研新一代推理大模型，以及一款Copilot超级应用。
-
-微软还会披露多项优化Windows开发体验的落地进展。
-
-知情消息显示，本周微软将推出面向开发者深度定制的Win11专属环境，囊括开发者长期呼吁的多项功能：纯净无冗余干扰的系统环境，预装各类常用软件、开发工具与运行脚本。
-
-除此之外，微软还会详解针对Win11底层代码重构、提升系统性能与整体使用体验的研发工作。
-
-微软同期还将官宣Windows适配英伟达RTXSpark等新一代硬件芯片的相关进展。
-
-责任编辑：刘明亮
+发布时间：2026年04月13日 10:34 来源：央视新闻客户端 责任编辑：【杜晓姣】
 
 ## 相关推荐
 
-- 2026-06-29 13:44 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 14:04 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-29 13:43 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 13:46 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-29 14:04 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 14:11 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 13:50 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 14:11 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-29 13:48 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 13:56 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 14:04 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
-- 2026-06-29 14:09 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-29 14:07 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 13:50 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-29 13:50 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 14:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-29 13:56 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-29 13:58 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 13:51 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 14:14 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-29 13:58 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
+- 2026-06-29 14:02 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-29 14:02 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 14:16 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 14:10 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 13:54 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-29 14:09 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 14:05 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-29 13:56 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:00 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.kurohicncr.top/Article/details/04358735432.shtml)
-- 2026-06-29 13:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.kurohicncr.top/Article/details/721746.shtml)
-- 2026-06-29 14:02 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/1548797.shtml)
-- 2026-06-29 13:44 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/964521466311.shtml)
-- 2026-06-29 13:46 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/539600287700.shtml)
-- 2026-06-29 14:01 - [链博会上的机器人太全能了](http://www.blog.kurohicncr.top/Article/details/84077124978.shtml)
-- 2026-06-29 14:04 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/141050.shtml)
-- 2026-06-29 13:46 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/2799505808.shtml)
-- 2026-06-29 14:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/880612255381.shtml)
-- 2026-06-29 13:42 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/309155088829.shtml)
-- 2026-06-29 14:06 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.kurohicncr.top/Article/details/6229104.shtml)
-- 2026-06-29 13:46 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/4742310.shtml)
-- 2026-06-29 14:03 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/991798760226.shtml)
-- 2026-06-29 13:52 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/25483337.shtml)
-- 2026-06-29 13:58 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.kurohicncr.top/Article/details/0794672179.shtml)
+- 2026-06-29 13:52 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/813367895343.shtml)
+- 2026-06-29 14:00 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.minike.top/Article/details/54302.shtml)
+- 2026-06-29 13:55 - [【独家】牧神记 第89集 明心](http://www.blog.kurohicncr.top/Article/details/65131954.shtml)
+- 2026-06-29 14:05 - [中国战机大片上新](http://www.share.minike.top/Article/details/32238.shtml)
+- 2026-06-29 14:00 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/40510148111.shtml)
+- 2026-06-29 14:17 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/86077248118.shtml)
+- 2026-06-29 13:52 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/861699.shtml)
+- 2026-06-29 13:55 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/46243.shtml)
+- 2026-06-29 13:48 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/620294356045.shtml)
+- 2026-06-29 13:57 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/986424725861.shtml)
+- 2026-06-29 14:05 - [委内瑞拉2400亿美元债务怎么还](https://www.share.minike.top/Article/details/46715653.shtml)
+- 2026-06-29 13:58 - [送你一朵小红花](https://www.blog.minike.top/Article/details/6754001860.shtml)
+- 2026-06-29 13:52 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/81929878.shtml)
+- 2026-06-29 14:05 - [林昀儒止步美国大满贯首轮](http://www.blog.kurohicncr.top/Article/details/239771854540.shtml)
+- 2026-06-29 14:13 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/4360687128.shtml)
