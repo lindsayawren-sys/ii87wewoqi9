@@ -1,61 +1,47 @@
-# 摩根士丹利看好Chef‘s Warehouse，称中东担忧“过度”
+# 永川海关2026年度信息化运维服务采购项目中标公告
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-摩根士丹利在给客户的一份报告中重申了对特色食品分销商Chef’s Warehouse的增持评级。 分析师Brian Harbour将该股目标价从76美元上调至83美元，意味着较周三收盘价有10%的上涨空间。该公司周三上午公布的第一季度调整后盈利和营收均超出预期。 Harbour写道：“对中东的担忧有其道理，但或许过度了。”“面对对中东业务的担忧（实际情况似乎好于预期），CHEF
+1、项目名称：永川海关2026年度信息化运维服务采购项目 2、采购人：中华人民共和国永川海关 3、采购方式：比选 4、开标时间：2026年4月3日5、中标价格：70000元 6、中标供应商：中国电子口岸数据中心重庆分中心 7、中标主要内容：永川海关2026年度信息化运维服务 8、评审人员：夏铭乾、谭希盛、黄盼盼、卢科宇、黄禄杰 9、联系人：李老师 联系电话：023-497881
 
 ## 正文
 
-摩根士丹利在给客户的一份报告中重申了对特色食品分销商Chef’s Warehouse的增持评级。
-
-分析师Brian Harbour将该股目标价从76美元上调至83美元，意味着较周三收盘价有10%的上涨空间。
-
-该公司周三上午公布的第一季度调整后盈利和营收均超出预期。
-
-Harbour写道：“对中东的担忧有其道理，但或许过度了。
-
-”“面对对中东业务的担忧（实际情况似乎好于预期），CHEF第一季度表现远超预期，全面超预期，同时季度至今势头仍在持续。
-
-先前的指引保持不变，但我们据此将超预期因素纳入考量。
-
-” 他补充道：“对伊朗冲突的担忧最近一直是一个悬而未决的问题——到目前为止，在中东业务占公司业务不到10%的情况下，销售量同比下降约25%，主要与旅游业相关，我们认为这好于预期，并在一定程度上被美国业绩所抵消，因此在我们看来，今日股价积极反应并创下历史新高。
-
-” 责任编辑：张俊 SF065
+1、项目名称：永川海关2026年度信息化运维服务采购项目 2、采购人：中华人民共和国永川海关 3、采购方式：比选 4、开标时间：2026年4月3日5、中标价格：70000元 6、中标供应商：中国电子口岸数据中心重庆分中心 7、中标主要内容：永川海关2026年度信息化运维服务 8、评审人员：夏铭乾、谭希盛、黄盼盼、卢科宇、黄禄杰 9、联系人：李老师 联系电话：023-49788119 10、公示期：2026年4月3日至2026年4月7日。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:22 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 11:18 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:46 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:27 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:21 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:37 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:32 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 11:19 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:38 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:26 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:25 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:44 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:31 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:19 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:40 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:22 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:19 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:35 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:20 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:30 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:35 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:22 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 11:40 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:46 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:32 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:48 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:43 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:31 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:24 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](http://www.blog.kurohicncr.top/Article/details/82259.shtml)
-- 2026-06-29 11:34 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.blog.kurohicncr.top/Article/details/22895.shtml)
-- 2026-06-29 11:28 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.share.kurohicncr.top/Article/details/3017088.shtml)
-- 2026-06-29 11:29 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.share.kurohicncr.top/Article/details/5255801764.shtml)
-- 2026-06-29 11:40 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.kurohicncr.top/Article/details/29191815.shtml)
-- 2026-06-29 11:39 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.blog.kurohicncr.top/Article/details/19877145.shtml)
-- 2026-06-29 11:43 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [王毅同美国国务卿鲁比奥通电话](http://www.share.kurohicncr.top/Article/details/8017550449.shtml)
-- 2026-06-29 11:33 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.share.kurohicncr.top/Article/details/1592131319.shtml)
-- 2026-06-29 11:36 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.blog.kurohicncr.top/Article/details/16678683920.shtml)
-- 2026-06-29 11:22 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.minike.top/Article/details/647818220.shtml)
-- 2026-06-29 11:33 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.blog.minike.top/Article/details/54096.shtml)
-- 2026-06-29 11:32 - [海南商业航天重点项目加速建设](http://www.share.kurohicncr.top/Article/details/446535665277.shtml)
+- 2026-06-29 11:19 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](http://www.blog.kurohicncr.top/Article/details/683033637.shtml)
+- 2026-06-29 11:30 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [冰川消退预警峰值水量 奥地利能源转型提速](http://www.blog.minike.top/Article/details/01784.shtml)
+- 2026-06-29 11:48 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.minike.top/Article/details/2658712.shtml)
+- 2026-06-29 11:36 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.blog.minike.top/Article/details/8523167.shtml)
+- 2026-06-29 11:28 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.share.minike.top/Article/details/422348.shtml)
+- 2026-06-29 11:44 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.blog.kurohicncr.top/Article/details/29390524904.shtml)
+- 2026-06-29 11:28 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.blog.kurohicncr.top/Article/details/2754002459.shtml)
+- 2026-06-29 11:33 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.blog.kurohicncr.top/Article/details/9417836495.shtml)
+- 2026-06-29 11:35 - [荷兰首相将与特朗普讨论阿斯麦出口限制](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [特朗普重申伊朗不能拥有核武器](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.share.kurohicncr.top/Article/details/4352946966.shtml)

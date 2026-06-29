@@ -1,59 +1,61 @@
-# 首届“天山·香江经贸座谈会”香港举行 疆港共商合作机遇
+# 英国首相称不支持特朗普封锁霍尔木兹海峡的计划
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网香港4月30日电 首届“天山·香江经贸座谈会”近日在香港举行，多名商界及金融界代表就深化疆港两地合作提出建议，涵盖金融、产业投资、文化旅游和人才交流等领域。 新疆维吾尔自治区人民政府副主席朱立凡在会上介绍，新疆正加速推进“一带一路”核心区建设，推动产业智能化、绿色化转型升级，布局人工智能等新兴产业。热诚邀请香港广大企业家走进新疆，考察调研、投资兴业，两地联手开拓中亚市场与
+英国不会参与美国拟对霍尔木兹海峡进行的封锁，这又给美国总统唐纳德·特朗普和英国首相基尔·斯塔默围绕伊朗冲突增添一个新的争端。 斯塔默周一在接受采访时说：“我们不支持封锁。”他说，英国的外交和政治努力，以及军事能力，“从我们的角度来看，都集中于全面开通海峡”。 英国政府周日发表声明称，将继续呼吁保障航行自由并开放海峡。此前， 特朗普宣布美国将对这条对全球能源供应至关重要的战略水道
 
 ## 正文
 
-中新网香港4月30日电 首届“天山·香江经贸座谈会”近日在香港举行，多名商界及金融界代表就深化疆港两地合作提出建议，涵盖金融、产业投资、文化旅游和人才交流等领域。
+英国不会参与美国拟对霍尔木兹海峡进行的封锁，这又给美国总统唐纳德·特朗普和英国首相基尔·斯塔默围绕伊朗冲突增添一个新的争端。
 
-新疆维吾尔自治区人民政府副主席朱立凡在会上介绍，新疆正加速推进“一带一路”核心区建设，推动产业智能化、绿色化转型升级，布局人工智能等新兴产业。
+斯塔默周一在接受采访时说：“我们不支持封锁。
 
-热诚邀请香港广大企业家走进新疆，考察调研、投资兴业，两地联手开拓中亚市场与共建“一带一路”国家和地区的商机。
+”他说，英国的外交和政治努力，以及军事能力，“从我们的角度来看，都集中于全面开通海峡”。
 
-新疆也将持续打造市场化、法治化、国际化营商环境，为香港企业来疆发展提供保障。
+英国政府周日发表声明称，将继续呼吁保障航行自由并开放海峡。
 
-香港特区政府投资推广署署长刘凯旋在发言时指出，香港不仅是内地对外开放的“超级联系人”，更是助力产业发展的“超级增值人”。
+此前， 特朗普宣布美国将对这条对全球能源供应至关重要的战略水道实施全面海上封锁。
 
-新疆在特色农牧业、新能源、新材料、纺织服装、文化旅游等方面拥有得天独厚的发展潜力，可借助香港成熟的国际渠道、专业服务体系迈向全球市场，实现疆港双向赋能、双向增值。
+英国及其他一些国家的代表将在未来几天再次举行会议，讨论开通海峡的计划。
 
-香港新疆联谊会主席兼会长田蕾致辞表示，新疆正加快建设内陆开放和沿边开放高地，资源丰厚、机遇无限；香港作为国际金融、贸易、航运中心，是联通内地与世界的重要桥梁。
+然而，参与谈判的许多国家都不愿在达成持久和平协议之前投入海军力量。
 
-两地优势互补，合作前景广阔。
+大多数国家认为，以军事手段开通海峡并非可行之策。
 
 ## 相关推荐
 
-- 2026-06-29 11:32 - [上一秒看海下一秒玩“雪” 长沙大王山狂欢节“五一”启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:23 - [美政府官员称2月28日开始的“敌对行动已结束”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:27 - [杭州机器人交警“五一”忙“加班”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:19 - [中金：澳门4月博彩收入大致符合预期 首选金沙中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:40 - [伊朗给出14点谈判提议 特朗普对内容表示不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:32 - [浙江杭州：AI融合科技文旅场景吸引民众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:45 - [美军封锁逼退41艘伊朗油轮6900万桶原油，德黑兰内外交困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:44 - [港股收评：恒指涨1.24% 科指涨2.16% 科网股、电力设备股普涨 半导体板块大涨 小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:22 - [“香港金融之夜”活动在港举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:30 - [风花雪月遇咖香 “风花雪月·啡尝不可”2026大理咖啡节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:35 - [中央气象台：江南华南等地将有强降水及强对流天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:38 - [全美自动驾驶出租车行业迎来爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:45 - [特朗普称可能考虑从西班牙和意大利撤出部分军队](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:39 - [这种防癌方式不仅有效，性价比也很高！丨肿瘤防治早知道](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:24 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 11:45 - [美方封锁进出伊朗港口船只 外交部：只会激化矛盾 加剧局势紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:24 - [2025重庆城市足球超级联赛落幕 两江临空队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:27 - [Anthropic的Mythos模型助力黑客攻击，或对银行业造成严重后果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:23 - [中国诚通发展集团附属与华电大同新能源订立售后回租协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:46 - [美国封锁霍尔木兹海峡之际，印度购买俄油豁免期恰好到期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:43 - [下班上课夜间“充电” 杭州青年夜校AI培训受追捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:30 - [正面硬刚亚马逊？ 京东再进军欧洲推行“211”配送，欧洲人买单吗？｜欧陆志](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:36 - [这个国之重器，干了件济世救人的事……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:30 - [直播海报：国务院政策例行吹风会：介绍健全全周期全渠道药品价格形成机制有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:25 - [天孚通信：无源稳健有源增长，光器件平台龙头尽享AI红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:22 - [万科拟调整“23万科MTN001”本金兑付安排：偿还40%，剩余60%展期一年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:21 - [3000亿元的大时代，公募如何构建FOF的护城河？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:45 - [哈萨克斯坦今年第一季度GDP同比增长3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](http://www.share.kurohicncr.top/Article/details/710669.shtml)
-- 2026-06-29 11:39 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [“五一”假期 各地特色文旅活动精彩纷呈](http://www.blog.minike.top/Article/details/13537.shtml)
-- 2026-06-29 11:18 - [中国首部政务服务领域区域协同立法施行](http://www.share.kurohicncr.top/Article/details/7421674350.shtml)
-- 2026-06-29 11:39 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](http://www.share.minike.top/Article/details/2414015737.shtml)
-- 2026-06-29 11:42 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](http://www.share.kurohicncr.top/Article/details/42004806066.shtml)
-- 2026-06-29 11:28 - [芝加哥期权交易所正裁减全球20%员工](http://www.share.kurohicncr.top/Article/details/7449598860.shtml)
-- 2026-06-29 11:32 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](http://www.blog.minike.top/Article/details/2847969.shtml)
-- 2026-06-29 11:47 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](http://www.share.kurohicncr.top/Article/details/059081254.shtml)
-- 2026-06-29 11:21 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](http://www.share.minike.top/Article/details/32585354670.shtml)
-- 2026-06-29 11:22 - [“五一”假期首日：民众游杭州西湖享江南时光](http://www.share.kurohicncr.top/Article/details/0517292521.shtml)
-- 2026-06-29 11:36 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.share.kurohicncr.top/Article/details/8493746.shtml)
+- 2026-06-29 11:46 - [贝森特：关税水平或在7月初前恢复](http://www.share.minike.top/Article/details/60233318184.shtml)
+- 2026-06-29 11:34 - [重磅数据本周发布，中国经济有望迎“开门红”](http://www.share.kurohicncr.top/Article/details/081343896823.shtml)
+- 2026-06-29 11:36 - [土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡](http://www.share.minike.top/Article/details/855314.shtml)
+- 2026-06-29 11:36 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](http://www.share.minike.top/Article/details/8003554.shtml)
+- 2026-06-29 11:47 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](http://www.share.minike.top/Article/details/74340322420.shtml)
+- 2026-06-29 11:42 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](http://www.blog.minike.top/Article/details/004929946.shtml)
+- 2026-06-29 11:34 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](http://www.blog.minike.top/Article/details/630376.shtml)
+- 2026-06-29 11:25 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](http://www.blog.kurohicncr.top/Article/details/21516410263.shtml)
+- 2026-06-29 11:22 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](http://www.blog.kurohicncr.top/Article/details/2173526629.shtml)
+- 2026-06-29 11:20 - [印尼的塑料袋与万里之外的战火](http://www.blog.kurohicncr.top/Article/details/8351597481.shtml)
+- 2026-06-29 11:29 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](http://www.share.minike.top/Article/details/71199460031.shtml)
+- 2026-06-29 11:35 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](http://www.blog.kurohicncr.top/Article/details/08934538643.shtml)
+- 2026-06-29 11:46 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](http://www.blog.minike.top/Article/details/1619005.shtml)
+- 2026-06-29 11:37 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lisacumin64-arch)

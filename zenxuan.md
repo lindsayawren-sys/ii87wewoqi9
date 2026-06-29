@@ -1,59 +1,60 @@
-# 东西问丨这位美国汉学家26年前就在春晚说相声，现在……
+# 花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网成都5月3日电 题：这位美国汉学家26年前就在春晚说相声，现在…… 作者 袁牟知博 学中文有多难？声调像唱歌、汉字像画画、语法不看主语而重话题——随便拎出一条，都够外国学生头疼半年。但有一个美国人，不仅学会了中文，还学会了说相声。 他叫莫大伟(David James Moser)，美国汉学家、首都师范大学国际文化学院副教授、密歇根大学中国研究学博士。从被汉字之美吸引，到师
+花旗集团表示，其对私募信贷公司的敞口在第四季度为220亿美元。 该行周二在一份演示材料中称，这些贷款属于其对非银金融机构的整体贷款组合的一部分，该组合截至去年年底总规模为1180亿美元。花旗还表示，其企业私募信贷仓储融资具备“充足的权益缓冲”，并设有结构性保护措施以帮助公司应对重大压力。 作为直接贷款机构常用的投资工具，商业发展公司（BDC）近几个月受到冲击。因投资者对该行业愈
 
 ## 正文
 
-中新网成都5月3日电 题：这位美国汉学家26年前就在春晚说相声，现在…… 作者 袁牟知博 学中文有多难？
+花旗集团表示，其对私募信贷公司的敞口在第四季度为220亿美元。
 
-声调像唱歌、汉字像画画、语法不看主语而重话题——随便拎出一条，都够外国学生头疼半年。
+该行周二在一份演示材料中称，这些贷款属于其对非银金融机构的整体贷款组合的一部分，该组合截至去年年底总规模为1180亿美元。
 
-但有一个美国人，不仅学会了中文，还学会了说相声。
+花旗还表示，其企业私募信贷仓储融资具备“充足的权益缓冲”，并设有结构性保护措施以帮助公司应对重大压力。
 
-他叫莫大伟(David James Moser)，美国汉学家、首都师范大学国际文化学院副教授、密歇根大学中国研究学博士。
+作为直接贷款机构常用的投资工具，商业发展公司（BDC）近几个月受到冲击。
 
-从被汉字之美吸引，到师从相声名家丁广泉“抖”响中文包袱，他深耕中文研究几十年，以西方母语者的视角，触碰到这门语言最深处的思维逻辑。
+因投资者对该行业愈发谨慎，与Blue Owl Capital和阿波罗全球管理等公司相关的BDC面临赎回压力。
 
-在他看来，那些让外国学生焦虑的声调、汉字、语法，大多停留在表面。
+花旗周二澄清称，其对非银行金融机构贷款中，投向BDC的比例不到1%。
 
-“你就算用一声说完整句话，中国人也能猜个八九不离十。
+该公司表示，其企业私人信贷融资组合在整个存续期间“零损失”。
 
-” 近日，中新社“东西问”独家对话莫大伟，听他解读学习中文的门道。
+富国银行周二早些时候披露，截至3月底，其私人信贷敞口约为362亿美元，其中商业服务、软件和医疗保健行业公司约占抵押品总价值的一半。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:21 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:19 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:40 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:31 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:46 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:23 - [2026五一档新片票房破9000万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:46 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:43 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:21 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:30 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:32 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:27 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:43 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:30 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:48 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:37 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:23 - [“停飞潮”全球蔓延，航空业陷高油价困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:42 - [愤怒的李想和遭到围攻的理想汽车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 11:30 - [顺丰、京东、中通、韵达、申通等回应快递涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:34 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:21 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:21 - [美国对伊朗海上交通封锁13日生效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:28 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:26 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:34 - [跨越四百年 西班牙首相感叹：中国依旧伟大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:31 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:22 - [海南商业航天重点项目加速建设](http://www.share.kurohicncr.top/Article/details/8545352679.shtml)
-- 2026-06-29 11:26 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.kurohicncr.top/Article/details/521047739.shtml)
-- 2026-06-29 11:30 - [美官员：美军“福特”号航母已离开中东](http://www.blog.kurohicncr.top/Article/details/177914.shtml)
-- 2026-06-29 11:25 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/39647139685.shtml)
-- 2026-06-29 11:22 - [孟加拉国外交部长卡利勒将访华](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.blog.kurohicncr.top/Article/details/062365.shtml)
-- 2026-06-29 11:24 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](http://www.blog.kurohicncr.top/Article/details/423503423.shtml)
-- 2026-06-29 11:37 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.share.minike.top/Article/details/39554758.shtml)
-- 2026-06-29 11:42 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.blog.kurohicncr.top/Article/details/25617997635.shtml)
-- 2026-06-29 11:34 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.share.minike.top/Article/details/95690683337.shtml)
-- 2026-06-29 11:20 - [河南洛阳：户外露营成“五一”假期新选择](http://www.blog.kurohicncr.top/Article/details/01600902185.shtml)
-- 2026-06-29 11:25 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.minike.top/Article/details/1574142.shtml)
-- 2026-06-29 11:18 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.share.kurohicncr.top/Article/details/85274.shtml)
+- 2026-06-29 11:39 - [上交所就龙元建设相关事项下发监管工作函](http://www.blog.minike.top/Article/details/81011.shtml)
+- 2026-06-29 11:41 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.blog.minike.top/Article/details/31874854.shtml)
+- 2026-06-29 11:33 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.share.kurohicncr.top/Article/details/60368.shtml)
+- 2026-06-29 11:44 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](http://www.share.minike.top/Article/details/514348325.shtml)
+- 2026-06-29 11:43 - [A股指数收红！锂矿板块午后放量拉升！](http://www.share.minike.top/Article/details/61714.shtml)
+- 2026-06-29 11:46 - [日本邮船采用3D技术设计建造新一代CTV](http://www.share.minike.top/Article/details/372145363.shtml)
+- 2026-06-29 11:31 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](http://www.blog.kurohicncr.top/Article/details/809184899396.shtml)
+- 2026-06-29 11:21 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](http://www.blog.kurohicncr.top/Article/details/0430989.shtml)
+- 2026-06-29 11:43 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.blog.kurohicncr.top/Article/details/2373036166.shtml)
+- 2026-06-29 11:27 - [巴基斯坦防长称美伊谈判将很快重启](http://www.blog.kurohicncr.top/Article/details/0963499337.shtml)
+- 2026-06-29 11:26 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](http://www.share.kurohicncr.top/Article/details/38814575950.shtml)
+- 2026-06-29 11:47 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](http://www.blog.minike.top/Article/details/486854.shtml)
+- 2026-06-29 11:31 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](http://www.blog.kurohicncr.top/Article/details/04727.shtml)

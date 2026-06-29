@@ -1,58 +1,56 @@
-# 阿贝尔：超大规模企业必须"承担其能源使用的全部成本"
+# 甘肃环县九村联建一个厂 带富千户种粮人
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-伯克希尔·哈撒韦公司首席执行官格雷格·阿贝尔于2026年5月2日在内布拉斯加州奥马哈市举行的伯克希尔·哈撒韦年度股东大会上发表讲话。 阿贝尔表示，必须将数据中心的能源使用成本与电网的其他普通用户分离开来，确保这些成本由要求供电的企业来承担。 “超大规模企业、数据中心以及能源的使用方——他们必须承担全部成本，”他说。 在人工智能热潮期间，数据中心给区域电网带来的压力一直是许多环保
+中新网兰州4月14日电 (史珊)一辆辆三轮车、农用车排起长队，一袋袋颗粒饱满的荞麦整齐堆放，等待过磅、检验、入库......在甘肃庆阳市环县山城乡山联谷农产品加工厂，前来交售的农户们脸上洋溢着喜悦，感慨着家门口卖粮的舒心与踏实。 得益于稳定的销路和可观的收益，去年王仲林家向该加工厂交售荞麦一万多斤。日前，他依旧选择将自家种植的7000多斤荞麦交售至此。 暖心的收粮场景，源自当地
 
 ## 正文
 
-伯克希尔·哈撒韦公司首席执行官格雷格·阿贝尔于2026年5月2日在内布拉斯加州奥马哈市举行的伯克希尔·哈撒韦年度股东大会上发表讲话。
+中新网兰州4月14日电 (史珊)一辆辆三轮车、农用车排起长队，一袋袋颗粒饱满的荞麦整齐堆放，等待过磅、检验、入库......在甘肃庆阳市环县山城乡山联谷农产品加工厂，前来交售的农户们脸上洋溢着喜悦，感慨着家门口卖粮的舒心与踏实。
 
-阿贝尔表示，必须将数据中心的能源使用成本与电网的其他普通用户分离开来，确保这些成本由要求供电的企业来承担。
+得益于稳定的销路和可观的收益，去年王仲林家向该加工厂交售荞麦一万多斤。
 
-“超大规模企业、数据中心以及能源的使用方——他们必须承担全部成本，”他说。
+日前，他依旧选择将自家种植的7000多斤荞麦交售至此。
 
-在人工智能热潮期间，数据中心给区域电网带来的压力一直是许多环保和消费者权益倡导组织关注的焦点。
+暖心的收粮场景，源自当地立足资源优势、深耕小杂粮产业的有力举措。
 
-政策研究机构“环境与能源研究所在今年2月的一份分析报告中得出结论：”随着数据中心在全国范围内扩张，公用事业公司收到了数百吉瓦的并网请求，这需要进行大规模的基础设施投资。
+2022年以来，山城乡依托当地产业基础，发展小杂粮产业，形成“草羊与杂粮两翼齐飞”发展格局，在中国化学工程集团有限公司扶持下，全乡9个村党支部联合发力，创办农村集体所有制企业——山联谷农产品加工厂。
 
-“”许多家庭的电费正在飙升，加剧了可负担性危机。
+“山联谷农产品加工厂的收购价不但比市场价高两毛钱，而且还有二次分红，民众的积极性非常高，都把最好的荞麦拿来交售，粮款一周内就能打到农户账户上。
 
-“责任编辑：张俊 SF065
+”山城乡赵庄村党支部副书记李仲科道出了其中的门道。
+
+赵庄村一年能种5000多亩荞麦，基本上家家户户都交售到了这个加工厂。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:31 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:22 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:45 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:22 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 11:40 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:32 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:39 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:21 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:18 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:34 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:21 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:32 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:20 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:23 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:35 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:23 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:38 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:26 - [高市再提修宪 引发日本民众广泛反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:28 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:25 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:47 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:38 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:39 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.share.minike.top/Article/details/684183275.shtml)
-- 2026-06-29 11:30 - [刚刚，利好来了！上海，重磅出手！](http://www.blog.kurohicncr.top/Article/details/290544932739.shtml)
-- 2026-06-29 11:31 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.share.kurohicncr.top/Article/details/35145335243.shtml)
-- 2026-06-29 11:42 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.blog.kurohicncr.top/Article/details/149332954.shtml)
-- 2026-06-29 11:24 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.blog.kurohicncr.top/Article/details/7287041595.shtml)
-- 2026-06-29 11:21 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](http://www.blog.minike.top/Article/details/413934.shtml)
-- 2026-06-29 11:29 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](http://www.blog.minike.top/Article/details/49169549148.shtml)
-- 2026-06-29 11:23 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.minike.top/Article/details/61203560.shtml)
-- 2026-06-29 11:43 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.share.kurohicncr.top/Article/details/193621576.shtml)
-- 2026-06-29 11:31 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.blog.kurohicncr.top/Article/details/95268.shtml)
-- 2026-06-29 11:18 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.share.minike.top/Article/details/58326033544.shtml)
-- 2026-06-29 11:23 - [一觉醒来，美国对欧洲下狠手了](http://www.share.minike.top/Article/details/889707.shtml)
-- 2026-06-29 11:29 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.blog.minike.top/Article/details/59176682.shtml)
-- 2026-06-29 11:29 - [学习新语｜幸福属于劳动者](http://www.blog.minike.top/Article/details/87273914.shtml)
+- 2026-06-29 11:26 - [专家学者南京共商生态文明传播新路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [新加坡第一季度经济增长放缓](http://www.share.kurohicncr.top/Article/details/87043.shtml)
+- 2026-06-29 11:24 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.blog.kurohicncr.top/Article/details/31573060249.shtml)
+- 2026-06-29 11:34 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.share.kurohicncr.top/Article/details/5833149.shtml)
+- 2026-06-29 11:48 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [Revolution Medicines胰腺癌药物取得成功](http://www.share.minike.top/Article/details/6386358.shtml)
+- 2026-06-29 11:47 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.blog.kurohicncr.top/Article/details/6564557.shtml)
+- 2026-06-29 11:39 - [中天策略:4月14日市场分析](http://www.blog.kurohicncr.top/Article/details/39250.shtml)
+- 2026-06-29 11:45 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](http://www.blog.minike.top/Article/details/74793.shtml)
+- 2026-06-29 11:46 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.blog.minike.top/Article/details/744552533184.shtml)
+- 2026-06-29 11:23 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](http://www.share.kurohicncr.top/Article/details/46845927.shtml)
+- 2026-06-29 11:25 - [今年以来地方债发行节奏提速](http://www.share.kurohicncr.top/Article/details/00033554970.shtml)
+- 2026-06-29 11:23 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.blog.kurohicncr.top/Article/details/6384478403.shtml)
+- 2026-06-29 11:46 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.blog.minike.top/Article/details/8600372.shtml)

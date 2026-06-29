@@ -1,48 +1,58 @@
-# 暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨
+# “邮储银行号”遥感卫星升空！银行为何接力放卫星？
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网5月2日电 据中央气象台网站消息，中央气象台5月2日06时发布暴雨蓝色预警： 预计，5月2日08时至3日08时，贵州南部、广西北部、湖南南部、江西中部和东北部、安徽南部、浙江西南部、福建西部及四川南部、云南西部等地部分地区有大到暴雨，其中，广西东北部等地局地有大暴雨(100～120毫米)。上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地
+每经记者|李玉雯 每经编辑|杨翼 又有商业银行放卫星！4月14日，邮储银行与长光卫星技术股份有限公司联合研制的“邮储银行号”遥感卫星，搭乘力箭一号遥十二运载火箭，在甘肃酒泉卫星发射中心成功发射。 据记者了解，“邮储银行号”为高精度、高分辨率光学遥感卫星，具备优于0.5米分辨率的全色高清成像能力，具备快速响应、高频次成像、全天时、高覆盖的遥感监测能力。目前，卫星数据已接入邮储银行
 
 ## 正文
 
-中新网5月2日电 据中央气象台网站消息，中央气象台5月2日06时发布暴雨蓝色预警： 预计，5月2日08时至3日08时，贵州南部、广西北部、湖南南部、江西中部和东北部、安徽南部、浙江西南部、福建西部及四川南部、云南西部等地部分地区有大到暴雨，其中，广西东北部等地局地有大暴雨(100～120毫米)。
+每经记者|李玉雯 每经编辑|杨翼 又有商业银行放卫星！
 
-上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。
+4月14日，邮储银行与长光卫星技术股份有限公司联合研制的“邮储银行号”遥感卫星，搭乘力箭一号遥十二运载火箭，在甘肃酒泉卫星发射中心成功发射。
 
-防御指南： 1、政府及相关部门按照职责做好防暴雨准备工作； 2、学校、幼儿园采取适当措施，保证学生和幼儿安全； 3、驾驶人员应当注意道路积水和交通阻塞，确保安全； 4、检查城市、农田、鱼塘排水系统，做好排涝准备。
+据记者了解，“邮储银行号”为高精度、高分辨率光学遥感卫星，具备优于0.5米分辨率的全色高清成像能力，具备快速响应、高频次成像、全天时、高覆盖的遥感监测能力。
+
+目前，卫星数据已接入邮储银行“绿洲”主动风险防控平台。
+
+《每日经济新闻》记者注意到，近年来，银行频频布局商业航天赛道，依托遥感卫星技术突破传统金融服务的局限性。
+
+在邮储银行之前，平安银行、招商银行、浦发银行三家股份行已将卫星送上太空，其中平安银行和招商银行发射了不止一颗卫星。
+
+那么，银行为何要积极布局商业航天？
+
+在探索卫星遥感技术方面又有哪些侧重？
 
 ## 相关推荐
 
-- 2026-06-29 11:24 - [刚刚，利好来了！上海，重磅出手！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:43 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:26 - [西藏昌都文旅资源亮相天津 多项合作签约落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:37 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:19 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 11:36 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:34 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:45 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:46 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:29 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:41 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:30 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:41 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:25 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:46 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:40 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:37 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:31 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:48 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:32 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:43 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:40 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:38 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:43 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:37 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](http://www.share.minike.top/Article/details/45307728.shtml)
-- 2026-06-29 11:35 - [以防长：以色列或“很快”对伊朗“再次采取行动”](http://www.share.minike.top/Article/details/66203132295.shtml)
-- 2026-06-29 11:25 - [【追光的你】习言道｜追求进步是青年最宝贵的特质](http://www.blog.kurohicncr.top/Article/details/226933.shtml)
-- 2026-06-29 11:39 - [香港清华同学会成立70周年峰会在港举办](http://www.blog.kurohicncr.top/Article/details/06080513588.shtml)
-- 2026-06-29 11:26 - [美国得克萨斯州发生枪击事件 致2死10伤](http://www.share.kurohicncr.top/Article/details/71832432.shtml)
-- 2026-06-29 11:19 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](http://www.blog.minike.top/Article/details/7868385312.shtml)
-- 2026-06-29 11:31 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.blog.minike.top/Article/details/1332343.shtml)
-- 2026-06-29 11:43 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.share.kurohicncr.top/Article/details/48072491139.shtml)
-- 2026-06-29 11:22 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](http://www.blog.kurohicncr.top/Article/details/8667666.shtml)
-- 2026-06-29 11:29 - [漳汕高铁广东段山家特大桥首梁架设](http://www.share.minike.top/Article/details/315124785.shtml)
-- 2026-06-29 11:30 - [“金融国家队”为何选中了他们](http://www.blog.minike.top/Article/details/14833479.shtml)
-- 2026-06-29 11:20 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.blog.minike.top/Article/details/26883792197.shtml)
-- 2026-06-29 11:47 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.share.kurohicncr.top/Article/details/17281.shtml)
-- 2026-06-29 11:45 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.blog.kurohicncr.top/Article/details/667108208846.shtml)
+- 2026-06-29 11:25 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [世界正向东看，访华潮折射时代大势](http://www.share.kurohicncr.top/Article/details/6446570.shtml)
+- 2026-06-29 11:33 - [刚刚，利好来了！直线爆拉，中东大消息！](http://www.blog.kurohicncr.top/Article/details/5744789563.shtml)
+- 2026-06-29 11:41 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.blog.kurohicncr.top/Article/details/646891323752.shtml)
+- 2026-06-29 11:47 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:25 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](http://www.share.minike.top/Article/details/347158886.shtml)
+- 2026-06-29 11:33 - [王沪宁会见越共中央总书记、国家主席苏林](http://www.blog.kurohicncr.top/Article/details/444447862.shtml)
+- 2026-06-29 11:30 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.share.minike.top/Article/details/78074.shtml)
+- 2026-06-29 11:45 - [修好政德才能出好政绩（思想纵横）](http://www.share.minike.top/Article/details/9104799782.shtml)
+- 2026-06-29 11:44 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.blog.kurohicncr.top/Article/details/733096872645.shtml)
+- 2026-06-29 11:38 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.blog.kurohicncr.top/Article/details/82483644194.shtml)
+- 2026-06-29 11:21 - [西班牙首相：世界离不开中国](http://www.share.minike.top/Article/details/881532.shtml)
+- 2026-06-29 11:40 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](http://www.share.kurohicncr.top/Article/details/691973683009.shtml)
+- 2026-06-29 11:25 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.blog.minike.top/Article/details/1492453.shtml)
+- 2026-06-29 11:28 - [*ST万方面临“市值退” 4月14日开市起停牌](https://github.com/lisacumin64-arch)

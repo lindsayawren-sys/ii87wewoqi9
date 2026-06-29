@@ -1,57 +1,57 @@
-# 巴菲特深度伪造视频，带来一场出人意料的AI风险警示
+# 新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 本届股东大会上，股东们意外上了一堂人工智能风险警示课。阿贝尔在问答环节开场，放出了一个看似十分熟悉的面孔。 会场大屏播放了一段视频：画面中的巴菲特身着西装，自我介绍，并向阿贝尔提出一个问题 —— 投资者为何应当长期持有伯克希尔股票。 视频里的人物说道： “大家好，我是沃伦，来自奥马哈。格雷格，我关注这家公司已经很久了，非常久…… 我的问题
+新华社南京4月13日电 题：“幸福公交”迎亲，婚事“轻装上阵” 新华社记者黄培锋、毛俊 扶手挂上“囍”字挂件，刷卡机旁摆鲜花，车身上定制婚礼信息……没有豪车车队，一辆精心装扮的公交车婚车足以“传递幸福”。车里十来位亲朋好友与两位新人唱着歌做着游戏，一路欢声笑语，喜气洋洋。 说起今年1月份自己与爱人策划的这场“公交车迎亲”，来自江苏省连云港市赣榆区的小伙刘新团话语间依然难掩激动，
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 本届股东大会上，股东们意外上了一堂人工智能风险警示课。
+新华社南京4月13日电 题：“幸福公交”迎亲，婚事“轻装上阵” 新华社记者黄培锋、毛俊 扶手挂上“囍”字挂件，刷卡机旁摆鲜花，车身上定制婚礼信息……没有豪车车队，一辆精心装扮的公交车婚车足以“传递幸福”。
 
-阿贝尔在问答环节开场，放出了一个看似十分熟悉的面孔。
+车里十来位亲朋好友与两位新人唱着歌做着游戏，一路欢声笑语，喜气洋洋。
 
-会场大屏播放了一段视频：画面中的巴菲特身着西装，自我介绍，并向阿贝尔提出一个问题 —— 投资者为何应当长期持有伯克希尔股票。
+说起今年1月份自己与爱人策划的这场“公交车迎亲”，来自江苏省连云港市赣榆区的小伙刘新团话语间依然难掩激动，“相比于传统的车队，把公交车作为婚车一路上更加热闹，省了一笔开销的同时还简化了迎亲的流程。
 
-视频里的人物说道： “大家好，我是沃伦，来自奥马哈。
+”据刘新团介绍，当地租借传统的婚车车队一般要花费三四千元，而租一辆公交车作为婚车仅花了600元。
 
-格雷格，我关注这家公司已经很久了，非常久…… 我的问题很简单。
+“当时想着给自己的婚礼来点特别的元素，结果和媳妇一拍即合，跟双方父母在这件事上沟通得也特别顺畅，没什么阻碍，整个过程特别愉快。
 
-我今年 95 岁，有的是时间，还有樱桃可乐相伴。
+”刘新团笑着说。
 
-我想弄明白，也好跟其他股东解释：大家为什么要长期持有伯克希尔的股票？
+这场“公交车迎亲”是江苏省连云港市赣榆区近年来婚俗悄然发生变化的一个缩影。
 
-” 阿贝尔随后揭晓，这段影像并非真人录制，而是利用人工智能生成的深度伪造（Deepfake） 视频。
+地处苏鲁交界的赣榆素有“江苏北大门”之称。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:21 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:30 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:26 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:20 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:25 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:40 - [吉尔登服饰营收攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:21 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:19 - [阿贝尔重申伯克希尔核心原则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:38 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:21 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:21 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:48 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:33 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:22 - [依必安派特亮相2026中国制冷展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 11:30 - [央行发布2026年一季度金融统计数据报告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:47 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:30 - [中方：愿同匈牙利新一届政府加强高层交往](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:26 - [大商所发布《服务实体经济白皮书（2025）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:36 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:26 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:30 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:24 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.blog.minike.top/Article/details/166910750.shtml)
-- 2026-06-29 11:30 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [科技与艺术深度融合 重庆上演互动烟花戏剧](http://www.blog.kurohicncr.top/Article/details/622968.shtml)
-- 2026-06-29 11:41 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](http://www.blog.kurohicncr.top/Article/details/866612131624.shtml)
-- 2026-06-29 11:20 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](http://www.share.kurohicncr.top/Article/details/76353.shtml)
-- 2026-06-29 11:19 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](http://www.blog.kurohicncr.top/Article/details/596283124.shtml)
-- 2026-06-29 11:29 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](http://www.share.kurohicncr.top/Article/details/259702975.shtml)
-- 2026-06-29 11:24 - [德国经济一季度环比增长0.3%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](http://www.share.minike.top/Article/details/10554.shtml)
-- 2026-06-29 11:32 - [可孚医疗：发售价厘定为每股H股39.33港元](http://www.blog.minike.top/Article/details/4261082.shtml)
-- 2026-06-29 11:30 - [数万日本民众举行集会 呼吁守护和平宪法](http://www.blog.kurohicncr.top/Article/details/4871261.shtml)
-- 2026-06-29 11:30 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.share.minike.top/Article/details/38335050535.shtml)
-- 2026-06-29 11:22 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.share.minike.top/Article/details/933875291.shtml)
-- 2026-06-29 11:19 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.blog.minike.top/Article/details/516858.shtml)
+- 2026-06-29 11:24 - [乌军对克里米亚发动大规模袭击](http://www.share.minike.top/Article/details/6523213.shtml)
+- 2026-06-29 11:28 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.blog.kurohicncr.top/Article/details/1060804.shtml)
+- 2026-06-29 11:45 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.minike.top/Article/details/783767642.shtml)
+- 2026-06-29 11:35 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.share.kurohicncr.top/Article/details/056304.shtml)
+- 2026-06-29 11:31 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](http://www.blog.kurohicncr.top/Article/details/0946220235.shtml)
+- 2026-06-29 11:47 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:45 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](http://www.share.kurohicncr.top/Article/details/575069.shtml)
+- 2026-06-29 11:27 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](http://www.blog.minike.top/Article/details/12783676.shtml)
+- 2026-06-29 11:30 - [特朗普称伊朗致电美方说希望达成协议](http://www.share.minike.top/Article/details/91052551.shtml)
+- 2026-06-29 11:22 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](http://www.blog.minike.top/Article/details/395455005210.shtml)
+- 2026-06-29 11:44 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.blog.minike.top/Article/details/49781.shtml)
+- 2026-06-29 11:24 - [巴西非遗乐团走进北京丰台奏响友谊乐章](http://www.share.minike.top/Article/details/364401.shtml)
+- 2026-06-29 11:25 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.share.kurohicncr.top/Article/details/622787193.shtml)

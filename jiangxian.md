@@ -1,58 +1,44 @@
-# 全美自动驾驶出租车行业迎来爆发式增长
+# 天孚通信：无源稳健有源增长，光器件平台龙头尽享AI红利
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。 历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。 目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在
+年报点评报告信息文中报告节选自天风证券（维权）研究所已公开发布研究报告，具体报告内容及相关风险提示等详见完整版报告。证券研究报告：《 无源稳健有源增长，光器件平台龙头尽享AI红利》对外发布时间：2026年4月13日报告发布机构：天风证券股份有限公司本报告分析师：王奕红 SAC 执业证书编号：S1110517090004余芳沁 SAC 执业证书编号：S1110521080006唐
 
 ## 正文
 
-谷歌旗下 Waymo、特斯拉及其他五家无人驾驶出租车企业，正争相在美国数十座城市落地运营服务 内容速览 自动驾驶出租车正在美国各大城市快速扩张；摩根士丹利预估，三年内全美半数人口将可使用自动驾驶网约车服务。
+年报点评报告信息文中报告节选自天风证券（维权）研究所已公开发布研究报告，具体报告内容及相关风险提示等详见完整版报告。
 
-历经近十年的热度炒作、行业遇冷再到再度回暖，自动驾驶出租车如今开始在美国越来越多的城市上路运营。
-
-目前，Waymo、特斯拉、Zoox 以及一众知名度较低的无人驾驶企业，已在加州、得克萨斯州及多个其他州的街头投入自动驾驶车辆运行。
-
-2010 年代行业热潮催生了数十家备受追捧的初创企业，纷纷宣称将颠覆私人购车模式。
-
-但自动驾驶技术研发成本高昂、复杂城区路况的自动驾驶技术难题、以及严苛的监管环境，导致大量初创公司倒闭。
-
-多起重大安全事故，也让无人驾驶车辆的安全性受到愈发严格的审视。
-
-摩根士丹利预测，未来三年内，约半数美国民众将能够使用自动驾驶出租车服务。
-
-机构估算，美国自动驾驶出行订单将迎来快速增长：2025 年约 1500 万单，今年将增至约 3600 万单；到 2030 年，出行规模预计将接近7.5 亿单。
+证券研究报告：《 无源稳健有源增长，光器件平台龙头尽享AI红利》对外发布时间：2026年4月13日报告发布机构：天风证券股份有限公司本报告分析师：王奕红 SAC 执业证书编号：S1110517090004余芳沁 SAC 执业证书编号：S1110521080006唐海清 SAC 执业证书编号：S1110517030002
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:43 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:26 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 11:39 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 11:43 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:32 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:26 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:28 - [长三角铁路5月2日预计发送旅客418万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:47 - [“对你们充满了敬意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:21 - [云南“五一”假期多地降雪 呈反季冰雪景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:25 - [江西梅江灌区主体工程全面完工试通水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:35 - [国羽3:0胜日本队挺进尤伯杯决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:31 - [全球第二储能企业海辰储能代表福建亮相香港国际创科展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:36 - [五大险企2025年总投资收益率普升 新华保险6.6%领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:39 - [城堡证券：伊朗战争烈度升级风险减弱 股债市场存在反弹机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:42 - [新东方-S遭First Beijing Investment Limited减持67万股 每股均价约46.12港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:36 - [立遗嘱人群数量连续多年稳步增长 年轻群体已成为遗嘱规划新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:34 - [台湾自媒体人踏春入滇 共赴泼水节文化盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:37 - [神驰机电：拟出资6000万元参与设立股权投资合伙企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:46 - [古兜控股获JYH Hong Kong Limited增持约1.07亿股 每股作价0.0603港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:47 - [珂玛科技可转债发行安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:31 - [美国总统特朗普： 封锁伊朗后美国将能大卖石油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:33 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.share.minike.top/Article/details/959230797.shtml)
-- 2026-06-29 11:22 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.blog.kurohicncr.top/Article/details/261551.shtml)
-- 2026-06-29 11:38 - [福州地铁客流连创新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.share.minike.top/Article/details/19418760.shtml)
-- 2026-06-29 11:23 - [“05后”持有人猛增10倍，年轻人涌向AI基金](http://www.share.kurohicncr.top/Article/details/47772537.shtml)
-- 2026-06-29 11:27 - [2026五一档新片票房破9000万](http://www.blog.minike.top/Article/details/801874.shtml)
-- 2026-06-29 11:19 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.blog.kurohicncr.top/Article/details/298202944.shtml)
-- 2026-06-29 11:34 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](http://www.blog.minike.top/Article/details/2072255.shtml)
-- 2026-06-29 11:26 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](http://www.share.minike.top/Article/details/483064.shtml)
-- 2026-06-29 11:34 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](http://www.blog.minike.top/Article/details/3807994.shtml)
-- 2026-06-29 11:42 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](http://www.blog.kurohicncr.top/Article/details/15751788.shtml)
-- 2026-06-29 11:40 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](http://www.share.minike.top/Article/details/8726823.shtml)
+- 2026-06-29 11:46 - [中国清洁技术优势扩大](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](http://www.share.kurohicncr.top/Article/details/703015538542.shtml)
+- 2026-06-29 11:20 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](http://www.share.kurohicncr.top/Article/details/24844579977.shtml)
+- 2026-06-29 11:25 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](http://www.blog.minike.top/Article/details/96201645.shtml)
+- 2026-06-29 11:29 - [“停飞潮”全球蔓延，航空业陷高油价困局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [愤怒的李想和遭到围攻的理想汽车](http://www.blog.minike.top/Article/details/30118036560.shtml)
+- 2026-06-29 11:23 - [顺丰、京东、中通、韵达、申通等回应快递涨价](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/428519.shtml)
+- 2026-06-29 11:22 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](http://www.blog.kurohicncr.top/Article/details/592591973945.shtml)
+- 2026-06-29 11:27 - [美国对伊朗海上交通封锁13日生效](http://www.blog.kurohicncr.top/Article/details/6643373.shtml)
+- 2026-06-29 11:29 - [恒大集团、恒大地产及许家印案一审开庭](http://www.share.kurohicncr.top/Article/details/00471101166.shtml)
+- 2026-06-29 11:44 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](http://www.blog.kurohicncr.top/Article/details/9794121699.shtml)
+- 2026-06-29 11:25 - [跨越四百年 西班牙首相感叹：中国依旧伟大](http://www.share.minike.top/Article/details/4779206466.shtml)
+- 2026-06-29 11:43 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:23 - [涉案3000万元 非法集资瞄准“银发旅游团”](http://www.share.kurohicncr.top/Article/details/2882524.shtml)

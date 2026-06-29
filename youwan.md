@@ -1,58 +1,58 @@
-# “香港金融之夜”活动在港举办
+# 正面硬刚亚马逊？ 京东再进军欧洲推行“211”配送，欧洲人买单吗？｜欧陆志
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。 香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，
+文|《欧陆志》栏目 郝倩 发自瑞士日内瓦 今年1月份，刘强东带着夫人章泽天手牵手低调现身瑞士冬季达沃斯——这次低调露面释放出一个强烈信号——他们又要在欧洲发力了。 近日，京东在英国、德国、法国、荷兰、比利时和卢森堡正式推出线上商城Joybuy。欧洲版京东，被法国媒体点评为“正面硬刚亚马逊”。 外媒之所以如此评价，源于其运营模式。与Shein和Temu不同，京东没有采用跨境小包裹
 
 ## 正文
 
-中新网香港4月30日电 (记者 戴小橦)中央广播电视总台“央视财经金融强国——香港金融之夜”30日在香港举办。
+文|《欧陆志》栏目 郝倩 发自瑞士日内瓦 今年1月份，刘强东带着夫人章泽天手牵手低调现身瑞士冬季达沃斯——这次低调露面释放出一个强烈信号——他们又要在欧洲发力了。
 
-活动以“汇聚、驱动、链通”为主题，现场同步发布了“央视财经粤港澳大湾区城市活力指数2026”。
+近日，京东在英国、德国、法国、荷兰、比利时和卢森堡正式推出线上商城Joybuy。
 
-香港特区政府财政司司长陈茂波出席活动并致辞表示，今年香港特区政府提出“金融+”发展策略，目标是让金融赋能渗透到产业每一个环节，加快推动金融、创科与产业发展三者之间的相互赋能，以香港所长服务国家所需，同时为自身开拓更广阔的发展空间。
+欧洲版京东，被法国媒体点评为“正面硬刚亚马逊”。
 
-中央广播电视总台亚太总站站长曹毅致辞表示，在“十五五”开局之年的新起点，活动聚焦香港的金融创新与实践。
+外媒之所以如此评价，源于其运营模式。
 
-面向未来，希望共同探索香港发挥金融优势，在服务国家现代化建设中实现自身繁荣发展的新路径。
+与Shein和Temu不同，京东没有采用跨境小包裹的模式，而转向本地电商模式。
 
-活动现场分享了“香港金融之夜典型案例”，聚焦全球资本的配置高地、智能时代创新的金融引擎、人民币国际化的战略枢纽三个方面，展现香港金融服务国家战略、融入新发展格局、打造全球金融枢纽的创新实践。
+《欧陆志》栏目观察发现，半个月来有一堆国际大牌和中国大牌入驻，还有很多欧洲本地知名品牌参与其中。
 
-活动现场，中央广播电视总台财经节目中心发布“央视财经粤港澳大湾区城市活力指数2026”。
+值得注意的是，京东此次加入了“211”服务。
 
-指数聚焦粤港澳世界级城市群，结合大湾区金融中心、科创高地、开放融合等特色，独家解析粤港澳大湾区各城市活力表现。
+按照Joybuy英国总经理诺布斯（Matthew Nobbs）解释，“为主要城市消费者提供211配送是关键卖点：上午11点前下单，可当日送达；晚上11点前下单，次日15点之前送达。
 
 ## 相关推荐
 
-- 2026-06-29 11:39 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:24 - [伏季休渔启幕 广西北海侨港码头渔市热闹收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:20 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 11:31 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-29 11:29 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:27 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:44 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 11:31 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:26 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:20 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 11:31 - [长三角铁路5月2日预计发送旅客418万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 11:29 - [“对你们充满了敬意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:31 - [美联航据悉提议与美国航空合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:30 - [金蝶国际早盘高开逾8% 截至3月底ARR同比增长约19%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:48 - [美企员工对人工智能的采用存在分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:24 - [全球第二储能企业海辰储能代表福建亮相香港国际创科展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 11:37 - [五大险企2025年总投资收益率普升 新华保险6.6%领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 11:48 - [城堡证券：伊朗战争烈度升级风险减弱 股债市场存在反弹机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:31 - [新东方-S遭First Beijing Investment Limited减持67万股 每股均价约46.12港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:41 - [立遗嘱人群数量连续多年稳步增长 年轻群体已成为遗嘱规划新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:39 - [台湾自媒体人踏春入滇 共赴泼水节文化盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:47 - [神驰机电：拟出资6000万元参与设立股权投资合伙企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:41 - [古兜控股获JYH Hong Kong Limited增持约1.07亿股 每股作价0.0603港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:43 - [珂玛科技可转债发行安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [中国铁路迎来“五一”假期运输客流最高峰](http://www.share.kurohicncr.top/Article/details/203976043.shtml)
-- 2026-06-29 11:33 - [致敬劳动者｜每一方寸，因你而闪光](http://www.blog.minike.top/Article/details/76509.shtml)
-- 2026-06-29 11:39 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.blog.minike.top/Article/details/913648.shtml)
-- 2026-06-29 11:33 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](http://www.share.minike.top/Article/details/413822.shtml)
-- 2026-06-29 11:39 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.blog.kurohicncr.top/Article/details/8157254594.shtml)
-- 2026-06-29 11:25 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.blog.kurohicncr.top/Article/details/47209666.shtml)
-- 2026-06-29 11:20 - [福州地铁客流连创新高](http://www.blog.kurohicncr.top/Article/details/749580.shtml)
-- 2026-06-29 11:19 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.share.minike.top/Article/details/2328843628.shtml)
-- 2026-06-29 11:20 - [“05后”持有人猛增10倍，年轻人涌向AI基金](http://www.share.minike.top/Article/details/12530.shtml)
-- 2026-06-29 11:23 - [2026五一档新片票房破9000万](http://www.blog.minike.top/Article/details/284327125200.shtml)
-- 2026-06-29 11:24 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.share.minike.top/Article/details/821328219.shtml)
-- 2026-06-29 11:18 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.blog.minike.top/Article/details/8359254.shtml)
-- 2026-06-29 11:18 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](http://www.blog.minike.top/Article/details/960127.shtml)
+- 2026-06-29 11:24 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](http://www.blog.minike.top/Article/details/54400.shtml)
+- 2026-06-29 11:21 - [今年以来多个细分赛道ETF实现大幅净流入](http://www.share.minike.top/Article/details/53813856423.shtml)
+- 2026-06-29 11:45 - [浙江杭州：智能游艇畅游富春江](http://www.share.minike.top/Article/details/066377.shtml)
+- 2026-06-29 11:33 - [中国清洁技术优势扩大](http://www.blog.kurohicncr.top/Article/details/62700.shtml)
+- 2026-06-29 11:41 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](http://www.blog.kurohicncr.top/Article/details/04210.shtml)
+- 2026-06-29 11:32 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](http://www.share.minike.top/Article/details/324744.shtml)
+- 2026-06-29 11:38 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](http://www.blog.minike.top/Article/details/4792541.shtml)
+- 2026-06-29 11:45 - [“停飞潮”全球蔓延，航空业陷高油价困局](http://www.blog.minike.top/Article/details/227658.shtml)
+- 2026-06-29 11:35 - [愤怒的李想和遭到围攻的理想汽车](http://www.share.minike.top/Article/details/3886312.shtml)
+- 2026-06-29 11:33 - [顺丰、京东、中通、韵达、申通等回应快递涨价](http://www.blog.kurohicncr.top/Article/details/5117592803.shtml)
+- 2026-06-29 11:33 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/044308.shtml)
+- 2026-06-29 11:41 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](http://www.blog.kurohicncr.top/Article/details/12110804.shtml)
+- 2026-06-29 11:20 - [美国对伊朗海上交通封锁13日生效](http://www.blog.minike.top/Article/details/4745586.shtml)
+- 2026-06-29 11:36 - [恒大集团、恒大地产及许家印案一审开庭](http://www.blog.minike.top/Article/details/9099413.shtml)
+- 2026-06-29 11:38 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](http://www.blog.minike.top/Article/details/2029913985.shtml)

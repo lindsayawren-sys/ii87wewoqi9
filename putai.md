@@ -1,52 +1,61 @@
-# 【东西问】与龙共舞的凤，何以成为中华民族精神象征？
+# 长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月30日 19:06 来源：中国新闻网 中华民族是一个爱凤、崇凤的民族。正所谓“龙凤呈祥”，凤与龙并称，是中华民族独特文化基因和共有精神标识。凤文化作为中华民族优秀传统文化的重要一脉，起源于何处？又如何传承发展？日前，华中师范大学国家文化产业研究中心文化资源研究所所长徐金龙接受中新社“东西问”专访。 邹浩 吴淘淘 胡威虎湖北武汉报道 责任编辑：【周驰】
+4月10日，长源东谷股票已经连续三个一字涨停，报收于49.37元，总市值攀升至约160亿元。 连续涨停板的背后，是一场由实控人李佐元家族主导的、被市场称为“左手倒右手”的百亿级资产腾挪。长源东谷拟通过发行股份的方式，收购李佐元家族控制下的襄阳康豪机电工程有限公司（下称“康豪机电”或标的公司）100%股权。 要理解这场交易，必须先理清一个复杂的家族控制版图。 长源东谷成立于200
 
 ## 正文
 
-发布时间：2026年04月30日 19:06 来源：中国新闻网 中华民族是一个爱凤、崇凤的民族。
+4月10日，长源东谷股票已经连续三个一字涨停，报收于49.37元，总市值攀升至约160亿元。
 
-正所谓“龙凤呈祥”，凤与龙并称，是中华民族独特文化基因和共有精神标识。
+连续涨停板的背后，是一场由实控人李佐元家族主导的、被市场称为“左手倒右手”的百亿级资产腾挪。
 
-凤文化作为中华民族优秀传统文化的重要一脉，起源于何处？
+长源东谷拟通过发行股份的方式，收购李佐元家族控制下的襄阳康豪机电工程有限公司（下称“康豪机电”或标的公司）100%股权。
 
-又如何传承发展？
+要理解这场交易，必须先理清一个复杂的家族控制版图。
 
-日前，华中师范大学国家文化产业研究中心文化资源研究所所长徐金龙接受中新社“东西问”专访。
+长源东谷成立于2001年，主营柴油、天然气、汽油发动机缸体、缸盖、连杆等核心零部件的研发、生产及销售，主要客户包括福田康明斯、东风康明斯、东风商用车、广西玉柴、比亚迪、赛力斯等。
 
-邹浩 吴淘淘 胡威虎湖北武汉报道 责任编辑：【周驰】
+公司于2020年5月在上交所上市，李佐元家族——李佐元、其配偶徐能琛、其子李险峰、其女李从容——为共同实际控制人。
+
+根据天眼查数据，李佐元持股40.72%，徐能琛持股11.22%，李险峰和李从容各持股5.61%。
+
+而此次的收购标的康豪机电，同样“生于”这个家族体系。
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:18 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:31 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:24 - [远东国际观察：日本国会参议院通过2026财年预算案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:30 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:38 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 11:21 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:19 - [福州地铁客流连创新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:29 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:29 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:33 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:20 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:37 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:24 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:23 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:39 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:21 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:31 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:26 - [“停飞潮”全球蔓延，航空业陷高油价困局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:37 - [愤怒的李想和遭到围攻的理想汽车](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:41 - [顺丰、京东、中通、韵达、申通等回应快递涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:40 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 11:41 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:27 - [美国对伊朗海上交通封锁13日生效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:37 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.blog.kurohicncr.top/Article/details/2340718680.shtml)
-- 2026-06-29 11:34 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.blog.minike.top/Article/details/89368907020.shtml)
-- 2026-06-29 11:26 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.minike.top/Article/details/315574094.shtml)
-- 2026-06-29 11:22 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.blog.kurohicncr.top/Article/details/8730497.shtml)
-- 2026-06-29 11:29 - [海南商业航天重点项目加速建设](http://www.share.kurohicncr.top/Article/details/7882580.shtml)
-- 2026-06-29 11:41 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.minike.top/Article/details/064851014856.shtml)
-- 2026-06-29 11:27 - [美官员：美军“福特”号航母已离开中东](http://www.share.minike.top/Article/details/44183590437.shtml)
-- 2026-06-29 11:23 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/6718583314.shtml)
-- 2026-06-29 11:39 - [孟加拉国外交部长卡利勒将访华](http://www.share.kurohicncr.top/Article/details/337239455.shtml)
-- 2026-06-29 11:26 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](http://www.share.kurohicncr.top/Article/details/6976038.shtml)
-- 2026-06-29 11:20 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [网信部门严管“自媒体”未规范标注信息来源行为](http://www.share.minike.top/Article/details/795299.shtml)
-- 2026-06-29 11:44 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.share.kurohicncr.top/Article/details/56502985474.shtml)
-- 2026-06-29 11:24 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.share.kurohicncr.top/Article/details/46010170583.shtml)
+- 2026-06-29 11:27 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.blog.kurohicncr.top/Article/details/04781897115.shtml)
+- 2026-06-29 11:44 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.share.minike.top/Article/details/856625.shtml)
+- 2026-06-29 11:32 - [特朗普重申伊朗不能拥有核武器](http://www.blog.minike.top/Article/details/48015184704.shtml)
+- 2026-06-29 11:35 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.share.kurohicncr.top/Article/details/27927.shtml)
+- 2026-06-29 11:40 - [上交所就龙元建设相关事项下发监管工作函](http://www.blog.kurohicncr.top/Article/details/016320167005.shtml)
+- 2026-06-29 11:45 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.blog.minike.top/Article/details/809981153.shtml)
+- 2026-06-29 11:42 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [两面针：公司目前已布局并推出电动牙刷产品](http://www.share.kurohicncr.top/Article/details/1404002.shtml)
+- 2026-06-29 11:35 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](http://www.blog.kurohicncr.top/Article/details/97460473327.shtml)
+- 2026-06-29 11:21 - [A股指数收红！锂矿板块午后放量拉升！](http://www.blog.minike.top/Article/details/3505808282.shtml)
+- 2026-06-29 11:32 - [日本邮船采用3D技术设计建造新一代CTV](http://www.blog.minike.top/Article/details/40035533.shtml)
+- 2026-06-29 11:40 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](http://www.blog.minike.top/Article/details/862136.shtml)
+- 2026-06-29 11:20 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](http://www.share.kurohicncr.top/Article/details/6005560.shtml)
+- 2026-06-29 11:39 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.blog.minike.top/Article/details/240195378613.shtml)

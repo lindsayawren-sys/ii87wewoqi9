@@ -1,54 +1,59 @@
-# 美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令
+# 贝森特：关税水平或在7月初前恢复
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新社北京5月2日电 (记者 尹倩芸)中国商务部2日发布公告，公布关于美国对5家中国企业实施涉伊朗石油制裁措施的阻断禁令。 商务部新闻发言人当日表示，2025年以来，美国根据其制裁其他国家的行政令，以参与伊朗石油交易为由，将恒力石化(大连)炼化有限公司、山东寿光鲁清石化有限公司、山东金诚石化集团有限公司、河北鑫海化工集团有限公司、山东胜星化工有限公司等中国企业列入“特别指定国民
+【相关阅读】美国海关4月20日将启动关税退款 美国财政部长贝森特表示，特朗普的关税水平可能会在7月初前恢复到最高法院废除多项征收令之前的水平。在最高法院裁定特朗普利用紧急权力加征早期关税属于违宪后，贝森特正寻求利用不同的授权（如301调查等）来重建其“关税墙”。贝森特提到，虽然很难说对伊战争的后果何时会“波及”美国经济，但目前经济状况依然强劲。他认为，美国今年的增长率仍能轻易超
 
 ## 正文
 
-中新社北京5月2日电 (记者 尹倩芸)中国商务部2日发布公告，公布关于美国对5家中国企业实施涉伊朗石油制裁措施的阻断禁令。
+【相关阅读】美国海关4月20日将启动关税退款 美国财政部长贝森特表示，特朗普的关税水平可能会在7月初前恢复到最高法院废除多项征收令之前的水平。
 
-商务部新闻发言人当日表示，2025年以来，美国根据其制裁其他国家的行政令，以参与伊朗石油交易为由，将恒力石化(大连)炼化有限公司、山东寿光鲁清石化有限公司、山东金诚石化集团有限公司、河北鑫海化工集团有限公司、山东胜星化工有限公司等中国企业列入“特别指定国民清单”(SDN清单)、实施冻结资产和禁止交易等制裁措施，不当禁止或限制中国企业与第三国(地区)及其公民、法人或其他组织开展正常的经贸及相关活动，违反国际法和国际关系基本准则。
+在最高法院裁定特朗普利用紧急权力加征早期关税属于违宪后，贝森特正寻求利用不同的授权（如301调查等）来重建其“关税墙”。
 
-发言人称，为维护国家主权、安全、发展利益，保护中国公民、法人或其他组织的合法权益，根据《阻断外国法律与措施不当域外适用办法》和有关工作机制评估结果，商务部发布禁令，规定不得承认、不得执行、不得遵守美国对上述5家中国企业的制裁措施。
+贝森特提到，虽然很难说对伊战争的后果何时会“波及”美国经济，但目前经济状况依然强劲。
 
-发言人强调，中国政府一贯反对缺乏联合国授权和国际法依据的单边制裁。
+他认为，美国今年的增长率仍能轻易超过3%甚至3.5%。
 
-此次发布禁令，是依法实施《阻断外国法律与措施不当域外适用办法》的具体行动，不影响中方承担和履行国际义务，也不影响中国依法保护外商投资企业的合法权益。
+他还补充称，剔除波动较大的能源和食品价格的核心通胀率持续下降是一个好迹象。
 
-商务部将继续密切跟踪有关国家法律与措施不当域外适用的情况，如存在《阻断外国法律与措施不当域外适用办法》规定的情形，将依法开展相关工作。
+贝森特表示：“我认为美联储在通胀问题上一直判断错误，核心通胀正在下降。
 
-(完)
+如果他们想等到数据更清晰再采取行动，我表示理解，但那将意味着利率应该下调更多。
+
+”责任编辑：张恒星
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:42 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:27 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:31 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 11:29 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:31 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:34 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:20 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:42 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:42 - [致敬劳动者｜每一方寸，因你而闪光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 11:20 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:33 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:29 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:22 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:35 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:41 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:44 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:43 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:39 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:39 - [今年以来多个细分赛道ETF实现大幅净流入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:45 - [浙江杭州：智能游艇畅游富春江](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:30 - [中国清洁技术优势扩大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:38 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.blog.minike.top/Article/details/91697668402.shtml)
-- 2026-06-29 11:43 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.blog.minike.top/Article/details/203350.shtml)
-- 2026-06-29 11:36 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.blog.kurohicncr.top/Article/details/578455202.shtml)
-- 2026-06-29 11:40 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.kurohicncr.top/Article/details/105038739.shtml)
-- 2026-06-29 11:25 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.blog.kurohicncr.top/Article/details/289505818260.shtml)
-- 2026-06-29 11:44 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.share.minike.top/Article/details/835302797.shtml)
-- 2026-06-29 11:41 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.share.kurohicncr.top/Article/details/7649247.shtml)
-- 2026-06-29 11:46 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.share.kurohicncr.top/Article/details/61506038.shtml)
-- 2026-06-29 11:23 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.kurohicncr.top/Article/details/078503534.shtml)
-- 2026-06-29 11:31 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [海南商业航天重点项目加速建设](http://www.blog.minike.top/Article/details/21281671181.shtml)
-- 2026-06-29 11:21 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.share.minike.top/Article/details/81430553071.shtml)
-- 2026-06-29 11:46 - [美官员：美军“福特”号航母已离开中东](http://www.blog.kurohicncr.top/Article/details/497632.shtml)
-- 2026-06-29 11:47 - [水利部滚动会商部署“五一”假期期间防汛工作](http://www.share.minike.top/Article/details/08966200583.shtml)
+- 2026-06-29 11:27 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.blog.minike.top/Article/details/358657.shtml)
+- 2026-06-29 11:20 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.minike.top/Article/details/98517910403.shtml)
+- 2026-06-29 11:46 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.blog.kurohicncr.top/Article/details/0706125071.shtml)
+- 2026-06-29 11:29 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.blog.kurohicncr.top/Article/details/227107959848.shtml)
+- 2026-06-29 11:45 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.share.kurohicncr.top/Article/details/0813712797.shtml)
+- 2026-06-29 11:39 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.blog.kurohicncr.top/Article/details/54860836566.shtml)
+- 2026-06-29 11:31 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.share.kurohicncr.top/Article/details/97437234148.shtml)
+- 2026-06-29 11:29 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.share.kurohicncr.top/Article/details/34046270.shtml)
+- 2026-06-29 11:21 - [特朗普重申伊朗不能拥有核武器](http://www.share.minike.top/Article/details/6846016.shtml)
+- 2026-06-29 11:38 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.share.minike.top/Article/details/56710870.shtml)
+- 2026-06-29 11:37 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.blog.minike.top/Article/details/97754784.shtml)
+- 2026-06-29 11:38 - [上交所就龙元建设相关事项下发监管工作函](http://www.share.minike.top/Article/details/437828990.shtml)
+- 2026-06-29 11:41 - [王毅同巴基斯坦副总理兼外长达尔通电话](http://www.blog.minike.top/Article/details/362598377587.shtml)
+- 2026-06-29 11:47 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](http://www.blog.kurohicncr.top/Article/details/76661896.shtml)

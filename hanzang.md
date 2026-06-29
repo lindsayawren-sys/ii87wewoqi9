@@ -1,61 +1,56 @@
-# 彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”
+# AI叠加强基本面双轮驱动，储能板块再迎强催化
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-马斯克创纪录的1580亿美元薪酬数字，听起来足以买下星巴克，但其实际价值与特斯拉股票一样充满了“空气”。 特斯拉周四提交的监管文件显示，公司2025年计入了约1584亿美元的高管薪酬支出，这几乎是特斯拉自2010年以来创造的息税折旧摊销前利润的两倍。然而，这个令人咋舌的数字伴随着关键说明：公司报告的年度薪酬与实际可实现价值之间可能存在“重大脱节”。 原因在于，马斯克的薪酬完全由
+储能板块经历前期超跌修复后，叠加AI叙事外溢与强劲基本面支撑，今日延续上涨动能。截至4月14日13时50分，储能电池ETF易方达(159566)上涨1.49%，电池ETF易方达(159175)上涨1.03%，储能板块整体成交活跃。个股方面，鹏辉能源(300438.SZ)、禾望电气(603063.SH)、盛弘股份(300693.SZ)、同力天启(605286.SH)、申菱环境(3
 
 ## 正文
 
-马斯克创纪录的1580亿美元薪酬数字，听起来足以买下星巴克，但其实际价值与特斯拉股票一样充满了“空气”。
+储能板块经历前期超跌修复后，叠加AI叙事外溢与强劲基本面支撑，今日延续上涨动能。
 
-特斯拉周四提交的监管文件显示，公司2025年计入了约1584亿美元的高管薪酬支出，这几乎是特斯拉自2010年以来创造的息税折旧摊销前利润的两倍。
+截至4月14日13时50分，储能电池ETF易方达(159566)上涨1.49%，电池ETF易方达(159175)上涨1.03%，储能板块整体成交活跃。
 
-然而，这个令人咋舌的数字伴随着关键说明：公司报告的年度薪酬与实际可实现价值之间可能存在“重大脱节”。
+个股方面，鹏辉能源(300438.SZ)、禾望电气(603063.SH)、盛弘股份(300693.SZ)、同力天启(605286.SH)、申菱环境(301018.SZ)、英维克(002837.SZ)涨超5%，阳光电源(300274.SZ)、派能科技(688063.SH)、麦格米特(002851.SZ)、新风光(688663.SH)等跟涨。
 
-原因在于，马斯克的薪酬完全由股票期权构成，与特斯拉股价及一系列运营里程碑挂钩。
+此前3月初战争后大量避险资金涌入储能板块，但在3月下旬因战事超预期升级，集中流出，受避险资金集中流出影响，储能经历了深度回调。
 
-在2025年，特斯拉未能实现任何市值或运营目标，这意味着马斯克实际到手的薪酬为零。
+随着资金压力释放和地缘局势缓和，强劲的基本面业绩带动板块反弹。
 
-这一结构犹如特斯拉股票本身：基于遥远的未来承诺而非当下利润。
+反弹之后，板块上涨逻辑进一步明确，核心受益于AI叙事外溢与基本面超预期双重支撑。
 
-特斯拉远期市盈率高达约180倍，远超其他大型科技股的估值水平。
+一方面，AI叙事外溢带动相关需求爆发，当前AI是市场资金共识最强的方向，AIAgent爆发推动AI硬件需求提速，人工智能数据中心(AIDC)需求预期显著提升，其配套储能空间也随之打开。
 
-要实现全部薪酬，马斯克需将特斯拉市值从约1.4万亿美元提升至8.5万亿美元，并完成交付2000万辆汽车等雄心勃勃的目标。
+储能电池ETF易方达中约三成权重覆盖AIDC相关的液冷、HVDC、SST等领域，能够直接受益于本轮AI叙事的持续走强。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:21 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:30 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:43 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:22 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:28 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:40 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:26 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:29 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:39 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:24 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:24 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:28 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 11:18 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:19 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:25 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:24 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:26 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:26 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 11:42 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:41 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:19 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 11:27 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:33 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:38 - [海关总署：今年一季度我国货物进出口同比增长15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.blog.minike.top/Article/details/8587624.shtml)
-- 2026-06-29 11:30 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.minike.top/Article/details/1935798.shtml)
-- 2026-06-29 11:35 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.minike.top/Article/details/342513474.shtml)
-- 2026-06-29 11:35 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.blog.kurohicncr.top/Article/details/4566247.shtml)
-- 2026-06-29 11:28 - [福建首个侨台档案融合展示馆开门迎客](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.share.minike.top/Article/details/336398.shtml)
-- 2026-06-29 11:46 - [巴西国家石油公司宣布航空煤油提价18%](http://www.share.kurohicncr.top/Article/details/2807664460.shtml)
-- 2026-06-29 11:41 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.share.minike.top/Article/details/78394.shtml)
-- 2026-06-29 11:30 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.share.kurohicncr.top/Article/details/517247221.shtml)
-- 2026-06-29 11:39 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.share.kurohicncr.top/Article/details/235703465.shtml)
-- 2026-06-29 11:41 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.share.kurohicncr.top/Article/details/376519310542.shtml)
-- 2026-06-29 11:36 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](http://www.blog.minike.top/Article/details/523253983.shtml)
-- 2026-06-29 11:38 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.share.minike.top/Article/details/449526.shtml)
-- 2026-06-29 11:41 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.blog.kurohicncr.top/Article/details/1211451556.shtml)
-- 2026-06-29 11:26 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](http://www.blog.kurohicncr.top/Article/details/851356.shtml)
+- 2026-06-29 11:29 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.blog.kurohicncr.top/Article/details/41149118767.shtml)
+- 2026-06-29 11:37 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.blog.minike.top/Article/details/8610301.shtml)
+- 2026-06-29 11:28 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.blog.minike.top/Article/details/767989.shtml)
+- 2026-06-29 11:39 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/962896.shtml)
+- 2026-06-29 11:19 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.blog.kurohicncr.top/Article/details/3470942.shtml)
+- 2026-06-29 11:22 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.share.minike.top/Article/details/26729.shtml)
+- 2026-06-29 11:43 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.blog.minike.top/Article/details/4750828688.shtml)
+- 2026-06-29 11:24 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.blog.minike.top/Article/details/6771450.shtml)
+- 2026-06-29 11:37 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [美国称霍尔木兹封锁首日六船折返](http://www.blog.kurohicncr.top/Article/details/82449280.shtml)
+- 2026-06-29 11:41 - [浙江温州：园博园意大利馆开馆](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [德林控股于4月13日斥资114.9万港元回购100万股](http://www.share.kurohicncr.top/Article/details/6389802.shtml)
+- 2026-06-29 11:22 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.blog.minike.top/Article/details/44766888235.shtml)
+- 2026-06-29 11:25 - [2月马来西亚天然橡胶产量环比下降24.1%](http://www.blog.kurohicncr.top/Article/details/38492767141.shtml)

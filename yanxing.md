@@ -1,56 +1,61 @@
-# （八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长
+# 欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新社福建晋江5月4日电 题：晋江梧林娘惹文化魅力焕新侨韵悠长 中新社记者 孙虹 刺绣上衣、纱笼长裙配上精致的首饰和绣珠鞋，来自广州的游客高晓燕变身“小娘惹”，漫步在有着600多年历史的福建晋江梧林传统村落。环顾四周，有不少与她装扮类似的游客，徜徉于闽南红砖古厝与侨厝之间。 5月4日，马来西亚大鼓秀、舞蹈秀接连在梧林传统村落的侨批馆、朝东楼等地演出。今年“五一”假期，以“潮起十
+受有关中东局势可能缓和的报道推动，能源价格下跌，欧洲各期限政府债券收益率周二全线下行。 收益率曲线牛市趋陡。德国和英国两年期国债收益率均下跌11个基点，法国和意大利同期限收益率则下跌12个基点。 交易员下调了对英国央行和欧洲央行进一步收紧货币政策的押注。货币市场目前计入英国央行2026年加息36个基点，欧洲央行加息57个基点。 截至伦敦时间下午4点35分，基准布伦特原油期货下跌
 
 ## 正文
 
-中新社福建晋江5月4日电 题：晋江梧林娘惹文化魅力焕新侨韵悠长 中新社记者 孙虹 刺绣上衣、纱笼长裙配上精致的首饰和绣珠鞋，来自广州的游客高晓燕变身“小娘惹”，漫步在有着600多年历史的福建晋江梧林传统村落。
+受有关中东局势可能缓和的报道推动，能源价格下跌，欧洲各期限政府债券收益率周二全线下行。
 
-环顾四周，有不少与她装扮类似的游客，徜徉于闽南红砖古厝与侨厝之间。
+收益率曲线牛市趋陡。
 
-5月4日，马来西亚大鼓秀、舞蹈秀接连在梧林传统村落的侨批馆、朝东楼等地演出。
+德国和英国两年期国债收益率均下跌11个基点，法国和意大利同期限收益率则下跌12个基点。
 
-今年“五一”假期，以“潮起十三州”为主题的梧林南洋文化月暨娘惹文化季于当地举办，更为这座百年侨村增加了人气与热度。
+交易员下调了对英国央行和欧洲央行进一步收紧货币政策的押注。
 
-聚集了200多幢百年建筑的梧林传统村落，被誉为“华侨建筑博物馆”。
+货币市场目前计入英国央行2026年加息36个基点，欧洲央行加息57个基点。
 
-自2022年起，梧林每年举办“南洋文化月”“娘惹文化季”主题活动，通过丰富多元的内容、灵活多样的呈现形式打造中国首个“娘惹文化体验村”。
+截至伦敦时间下午4点35分，基准布伦特原油期货下跌3.7%，报每桶95.7美元左右。
 
-“何为娘惹？
+此前有报道称，伊朗正考虑短暂停止通过霍尔木兹海峡的运输，以避免直接试探美国封锁并破坏谈判进程。
 
-那是我们的先人从闽南出发，将中华的礼俗与南洋的风土糅合在一起而长出的独一无二的文化。
+市场将这一报道解读为和平谈判成功概率上升的信号。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:28 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:44 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:40 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:37 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:29 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:41 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 11:22 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:29 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:45 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:23 - [高市再提修宪 引发日本民众广泛反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:23 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:22 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:36 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:34 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:25 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:47 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:31 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 11:32 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:46 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:46 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 11:36 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 11:47 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:42 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:44 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.share.minike.top/Article/details/427600216.shtml)
-- 2026-06-29 11:22 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.blog.kurohicncr.top/Article/details/16497805645.shtml)
-- 2026-06-29 11:45 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](http://www.share.minike.top/Article/details/19723400889.shtml)
-- 2026-06-29 11:34 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](http://www.blog.kurohicncr.top/Article/details/50795534279.shtml)
-- 2026-06-29 11:27 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.share.kurohicncr.top/Article/details/207568.shtml)
-- 2026-06-29 11:43 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.share.kurohicncr.top/Article/details/97299039.shtml)
-- 2026-06-29 11:24 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.blog.kurohicncr.top/Article/details/74624981015.shtml)
-- 2026-06-29 11:39 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.blog.kurohicncr.top/Article/details/59865.shtml)
-- 2026-06-29 11:43 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.share.kurohicncr.top/Article/details/83504.shtml)
-- 2026-06-29 11:38 - [学习新语｜幸福属于劳动者](http://www.blog.minike.top/Article/details/269831.shtml)
-- 2026-06-29 11:30 - [刚刚，全线大涨！日本，突然动手了！](http://www.blog.minike.top/Article/details/622175.shtml)
-- 2026-06-29 11:38 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.blog.minike.top/Article/details/622234.shtml)
-- 2026-06-29 11:31 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.share.kurohicncr.top/Article/details/938359996548.shtml)
-- 2026-06-29 11:41 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](http://www.share.kurohicncr.top/Article/details/792221729.shtml)
+- 2026-06-29 11:34 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.share.minike.top/Article/details/692525723631.shtml)
+- 2026-06-29 11:21 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](http://www.share.kurohicncr.top/Article/details/8360489.shtml)
+- 2026-06-29 11:39 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.share.minike.top/Article/details/6412070672.shtml)
+- 2026-06-29 11:41 - [中天策略:4月14日市场分析](http://www.share.minike.top/Article/details/389473797816.shtml)
+- 2026-06-29 11:33 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](http://www.share.kurohicncr.top/Article/details/86659.shtml)
+- 2026-06-29 11:22 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [今年以来地方债发行节奏提速](http://www.share.minike.top/Article/details/25761020.shtml)
+- 2026-06-29 11:44 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.blog.minike.top/Article/details/17219364864.shtml)
+- 2026-06-29 11:38 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.blog.kurohicncr.top/Article/details/43085.shtml)
+- 2026-06-29 11:20 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.share.minike.top/Article/details/79879465296.shtml)
+- 2026-06-29 11:45 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.blog.kurohicncr.top/Article/details/6878490559.shtml)

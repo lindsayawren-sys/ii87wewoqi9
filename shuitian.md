@@ -1,61 +1,57 @@
-# 市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展
+# 美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-新华社北京4月30日电 题：市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展 新华社记者叶昊鸣 中国物流与采购联合会日前公布今年前3个月我国物流运行数据。一季度，全国社会物流总额96.4万亿元，按可比价格计算，同比增长6.2%，增速较2025年全年、2025年同期分别提高1.1和0.5个百分点。物流运行稳中有进、平稳有序。 一季度，我国工业品物流总额同比增长5.
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国是直通车 本文字数：724，阅读时长大约1分钟 美伊谈判，来回踢球。 据国是直通车，美国副总统万斯13日称，美国同伊朗谈判已取得进展，目前“球在伊朗一边”，关键在于伊朗能否展现“足够的灵活性”。 万斯当天接受采访时说，此前在巴基斯坦举行的美伊会谈期间，双方进行了“一些富有成效的交流”，伊朗在谈判中展
 
 ## 正文
 
-新华社北京4月30日电 题：市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展 新华社记者叶昊鸣 中国物流与采购联合会日前公布今年前3个月我国物流运行数据。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-一季度，全国社会物流总额96.4万亿元，按可比价格计算，同比增长6.2%，增速较2025年全年、2025年同期分别提高1.1和0.5个百分点。
+来源：国是直通车 本文字数：724，阅读时长大约1分钟 美伊谈判，来回踢球。
 
-物流运行稳中有进、平稳有序。
+据国是直通车，美国副总统万斯13日称，美国同伊朗谈判已取得进展，目前“球在伊朗一边”，关键在于伊朗能否展现“足够的灵活性”。
 
-一季度，我国工业品物流总额同比增长5.8%，对社会物流总额的增长贡献率超过80%。
+万斯当天接受采访时说，此前在巴基斯坦举行的美伊会谈期间，双方进行了“一些富有成效的交流”，伊朗在谈判中展现出一定的灵活性，但“还不够”。
 
-从行业结构看，制造业物流需求占比超八成，计算机等高端制造领域增速均超过10%。
+至于双方是否再次举行会谈，万斯表示这一问题“最好直接去问伊朗方面”。
 
-装备制造产业占比持续提升，有力带动产业链上下游协同复苏。
+但据伊朗媒体12日报道，一名消息人士说，伊朗在与美国谈判中提出了合理建议，现在球在美国一方，美方需务实看待这些问题。
 
-民生消费物流稳步向好，新型消费动能持续增强。
+这名消息人士说：“正如美国政府在战争决策上犯了错误一样，它在谈判决策上也犯了错误。
 
-一季度，我国单位与居民物品物流总额同比增长6.5%。
+伊朗并不急于求成，除非美国同意达成一项合理的协议，否则霍尔木兹海峡的局势不会有任何改变。
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:22 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:24 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 11:22 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:19 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 11:42 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:20 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:24 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:21 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:46 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:35 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:35 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:31 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:34 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:28 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:44 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:48 - [美国对伊朗海上交通封锁13日生效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:41 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:41 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:38 - [跨越四百年 西班牙首相感叹：中国依旧伟大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:24 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:45 - [涉案3000万元 非法集资瞄准“银发旅游团”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:34 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:37 - [长安期货：美伊和谈暂无成果 关注CPI数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 11:40 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:26 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](http://www.blog.minike.top/Article/details/1619732.shtml)
-- 2026-06-29 11:25 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.share.minike.top/Article/details/8999189.shtml)
-- 2026-06-29 11:20 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.blog.kurohicncr.top/Article/details/46473215.shtml)
-- 2026-06-29 11:27 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.share.kurohicncr.top/Article/details/294115.shtml)
-- 2026-06-29 11:38 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.minike.top/Article/details/840205186.shtml)
-- 2026-06-29 11:34 - [中国医生完成尼日尔首例鼓室成形术](http://www.share.kurohicncr.top/Article/details/343349366686.shtml)
-- 2026-06-29 11:42 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.blog.kurohicncr.top/Article/details/0127550.shtml)
-- 2026-06-29 11:46 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.blog.minike.top/Article/details/59778650.shtml)
-- 2026-06-29 11:23 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.share.kurohicncr.top/Article/details/921110373457.shtml)
-- 2026-06-29 11:20 - [吉尔登服饰营收攀升](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.blog.minike.top/Article/details/937888872975.shtml)
-- 2026-06-29 11:45 - [阿贝尔重申伯克希尔核心原则](http://www.blog.minike.top/Article/details/030026945673.shtml)
-- 2026-06-29 11:41 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:40 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.share.kurohicncr.top/Article/details/253043792234.shtml)
+- 2026-06-29 11:37 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](http://www.blog.minike.top/Article/details/641673996467.shtml)
+- 2026-06-29 11:19 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](http://www.share.kurohicncr.top/Article/details/734712125230.shtml)
+- 2026-06-29 11:44 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.blog.kurohicncr.top/Article/details/039319894.shtml)
+- 2026-06-29 11:40 - [巴基斯坦防长称美伊谈判将很快重启](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](http://www.blog.minike.top/Article/details/29063.shtml)
+- 2026-06-29 11:30 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](http://www.share.minike.top/Article/details/51695806480.shtml)
+- 2026-06-29 11:38 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](http://www.share.minike.top/Article/details/7246451.shtml)
+- 2026-06-29 11:44 - [依必安派特亮相2026中国制冷展](http://www.blog.minike.top/Article/details/766569378.shtml)
+- 2026-06-29 11:35 - [央行发布2026年一季度金融统计数据报告](http://www.share.minike.top/Article/details/11006.shtml)
+- 2026-06-29 11:37 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](http://www.blog.minike.top/Article/details/91128917048.shtml)
+- 2026-06-29 11:31 - [中方：愿同匈牙利新一届政府加强高层交往](http://www.share.minike.top/Article/details/31875.shtml)
+- 2026-06-29 11:45 - [大商所发布《服务实体经济白皮书（2025）》](http://www.blog.minike.top/Article/details/068157216316.shtml)
+- 2026-06-29 11:46 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](http://www.share.kurohicncr.top/Article/details/7767914018.shtml)
+- 2026-06-29 11:41 - [商务部、中国进出口银行：加大进出口信贷支持力度](http://www.blog.minike.top/Article/details/1670233694.shtml)
+- 2026-06-29 11:22 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](http://www.share.minike.top/Article/details/806506.shtml)

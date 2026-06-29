@@ -1,61 +1,58 @@
-# 东京审判中国检察官向哲濬之子向隆万：历史不容忘却
+# 新加坡第一季度经济增长放缓
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。 当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。 向隆万回
+新加坡经济在第一季度失去动能，逊于预期，并且随着中东冲突开始对贸易和制造业构成压力，经济已显现初步承压迹象。根据周二公布的初步预估数据，新加坡1-3月国内生产总值（GDP）同比增长4.6%。相比之下，第四季度增幅修正为5.7%，媒体调查预测的增幅为5.7%。经季节性调整后，第一季度该国经济环比萎缩0.3%。相比之下，第四季度修正后为环比增长1.3%，而调查的预估为萎缩0.75%
 
 ## 正文
 
-中新网绍兴4月30日电(林波 孙琳茹)“父亲在法庭上的样子，和我记忆中的他判若两人。
+新加坡经济在第一季度失去动能，逊于预期，并且随着中东冲突开始对贸易和制造业构成压力，经济已显现初步承压迹象。
 
-”4月30日，上海交通大学东京审判研究中心名誉主任、东京审判中国检察官向哲濬之子向隆万接受中新网专访时，回忆起1946年5月父亲第一次在远东国际军事法庭上的影像，依然难掩激动。
+根据周二公布的初步预估数据，新加坡1-3月国内生产总值（GDP）同比增长4.6%。
 
-当日，《远东国际军事法庭庭审记录·全译本》(以下简称《全译本》)首发式暨学术座谈会在浙江越秀外国语学院举行。
+相比之下，第四季度增幅修正为5.7%，媒体调查预测的增幅为5.7%。
 
-向隆万回忆说，那一天，向哲濬驳斥了一位辩护律师的观点。
+经季节性调整后，第一季度该国经济环比萎缩0.3%。
 
-对方声称，日中之间在1941年12月之前并不存在战争状态，因此起诉书中的相关指控不应成立。
+相比之下，第四季度修正后为环比增长1.3%，而调查的预估为萎缩0.75%。
 
-向哲濬当场严正指出，从“九一八”事变开始，成千上万的中国民众已经因此丧生，这是全世界都知道的事实。
+新加坡贸易与工业部表示：“虽然2026年第一季度GDP增长保持韧性，但2月底开始的美-以色列-伊朗冲突可能会在未来几个季度对经济活动构成压力。
 
-“他在法庭上非常从容，但大义凛然。
-
-”向隆万说，在他的成长记忆中，父亲是一位慈祥的老人，与邻里关系和睦。
+”责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:38 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:35 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:24 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:43 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:47 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:29 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:26 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:27 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:21 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:39 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:39 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:43 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:34 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 11:34 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:41 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:22 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:29 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:19 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:46 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:27 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 11:39 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:46 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 11:20 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 11:20 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:41 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:24 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:41 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:41 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](http://www.blog.kurohicncr.top/Article/details/9062818.shtml)
-- 2026-06-29 11:38 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.blog.minike.top/Article/details/636982391.shtml)
-- 2026-06-29 11:47 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.share.kurohicncr.top/Article/details/837674994211.shtml)
-- 2026-06-29 11:42 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](http://www.blog.minike.top/Article/details/04985123.shtml)
-- 2026-06-29 11:23 - [漳汕高铁广东段山家特大桥首梁架设](http://www.blog.minike.top/Article/details/5713000560.shtml)
-- 2026-06-29 11:32 - [“金融国家队”为何选中了他们](http://www.share.kurohicncr.top/Article/details/765237.shtml)
-- 2026-06-29 11:41 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [“五一”假期首日广东水上出行迎来客流高峰](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.share.kurohicncr.top/Article/details/7018966208.shtml)
-- 2026-06-29 11:29 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.minike.top/Article/details/171746.shtml)
-- 2026-06-29 11:39 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.minike.top/Article/details/86556513.shtml)
-- 2026-06-29 11:42 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.share.minike.top/Article/details/99794948051.shtml)
-- 2026-06-29 11:32 - [福建首个侨台档案融合展示馆开门迎客](http://www.share.minike.top/Article/details/235102.shtml)
-- 2026-06-29 11:28 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.blog.minike.top/Article/details/758282924.shtml)
-- 2026-06-29 11:23 - [巴西国家石油公司宣布航空煤油提价18%](http://www.blog.minike.top/Article/details/812389470715.shtml)
+- 2026-06-29 11:26 - [王沪宁会见越共中央总书记、国家主席苏林](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.blog.minike.top/Article/details/051642.shtml)
+- 2026-06-29 11:20 - [修好政德才能出好政绩（思想纵横）](http://www.share.minike.top/Article/details/191340405.shtml)
+- 2026-06-29 11:42 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.blog.minike.top/Article/details/59696489511.shtml)
+- 2026-06-29 11:33 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.share.kurohicncr.top/Article/details/242895313840.shtml)
+- 2026-06-29 11:24 - [西班牙首相：世界离不开中国](http://www.blog.minike.top/Article/details/6586520.shtml)
+- 2026-06-29 11:35 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.share.kurohicncr.top/Article/details/70587064726.shtml)
+- 2026-06-29 11:37 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.blog.kurohicncr.top/Article/details/6899331667.shtml)
+- 2026-06-29 11:48 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.blog.kurohicncr.top/Article/details/641273490610.shtml)
+- 2026-06-29 11:47 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.blog.kurohicncr.top/Article/details/6267930006.shtml)
+- 2026-06-29 11:44 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.share.kurohicncr.top/Article/details/84379016087.shtml)
+- 2026-06-29 11:25 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/68943694.shtml)
+- 2026-06-29 11:44 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.blog.minike.top/Article/details/0230861511.shtml)
+- 2026-06-29 11:39 - [东盟学子以艺架桥 欢庆广西“三月三”](https://github.com/lisacumin64-arch)

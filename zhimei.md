@@ -1,58 +1,59 @@
-# 浙江杭州：民众走“运”度假期
+# 微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网杭州5月1日电(鲍梦妮 莫旭亮 章元元)5月1日，2026年“行走大运河”全民健身健步走活动在杭州临平塘栖古镇鸣枪。2000名健身爱好者沿着10公里的京杭大运河游步道健步前行，一路穿行于古镇街巷、水乡田园与生态岸线之间，以运动开启“五一”假期。 据悉，塘栖古镇位于杭州北部，京杭大运河穿镇而过，明清时期为“江南十大名镇”之首。 当日的健步走行程中，特色文化展演依次呈现：塘栖
+微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。 微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。 瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至3
 
 ## 正文
 
-中新网杭州5月1日电(鲍梦妮 莫旭亮 章元元)5月1日，2026年“行走大运河”全民健身健步走活动在杭州临平塘栖古镇鸣枪。
+微创机器人-B（02252）盘中涨超7%，截至发稿，股价上涨5.17%，现报29.30港元，成交额1.67亿港元。
 
-2000名健身爱好者沿着10公里的京杭大运河游步道健步前行，一路穿行于古镇街巷、水乡田园与生态岸线之间，以运动开启“五一”假期。
+微创机器人去年海外收入按年增长287%，其中图迈手术机器人销售量更增长超过五倍。
 
-据悉，塘栖古镇位于杭州北部，京杭大运河穿镇而过，明清时期为“江南十大名镇”之首。
+瑞银表示，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大。
 
-当日的健步走行程中，特色文化展演依次呈现：塘栖村内，喜庆热闹的水乡婚礼再现运河沿岸传统婚俗；丁河村头，鱼鹰捕鱼技艺现场展示，展现运河人家古老的生产生活场景；超丁村的千亩麦田里，做野米饭、“称人”等传统民俗体验让游人可以感受节气文化。
+瑞银发布研报称，将微创机器人-B（02252）目标价由21.4港元上调至35.9港元；评级从“中性”升为“买入”； 料集团2026至2028年的预测收入年复合增长率（CAGR）达49.5%，每股盈利（EPS）年复合增长率高达185.5%，看好其强劲的海外销售潜力。
 
-临平还在沿途补给站点准备了当地风味。
+公司去年海外收入同比增长287%，其中“图迈”手术机器人销售量更增长超过五倍。
 
-大运河国医生活馆的中药饮、塘栖老字号朱一堂及法根糕点、超山蜜饯等，让参与者在健步之余品尝到地道运河滋味。
+不同于已发展市场，微创机器人聚焦于南美、南亚及中东欧等中等收入发展中国家，这些地区的手术机器人渗透率较低，需求庞大； 预计到2034年，这些地区累计将有超过10，000台腹腔镜手术机器人的安装需求，而微创机器人作为市场先驱之一，有望取得25%的市场份额。
 
-据悉，本次活动与2026浙江(杭州)国际时尚体育周房车营地集结活动实现了无缝衔接。
-
-健步走终点直达超山风景名胜区东园房车营地现场，两大活动共同打造出“上午运河健步、下午潮玩营地”的假日新体验。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:29 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:19 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:22 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 11:21 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 11:27 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:47 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:45 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:48 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:22 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:37 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:28 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:27 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 11:22 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:29 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 11:47 - [中国太保：总经理助理刘龙的任职资格获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:29 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:41 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:44 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:22 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:30 - [辽宁营商环境的“民生温度”与“投资信心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:40 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 11:46 - [荷兰首相将与特朗普讨论阿斯麦出口限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:48 - [特朗普重申伊朗不能拥有核武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 11:28 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:42 - [谷歌最新Gemini升级预示更大规模的机器人布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:33 - [上交所就龙元建设相关事项下发监管工作函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:37 - [王毅同巴基斯坦副总理兼外长达尔通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.share.kurohicncr.top/Article/details/421615864.shtml)
-- 2026-06-29 11:28 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](http://www.blog.minike.top/Article/details/22117071.shtml)
-- 2026-06-29 11:41 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.share.kurohicncr.top/Article/details/9700045980.shtml)
-- 2026-06-29 11:32 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](http://www.share.minike.top/Article/details/98118146281.shtml)
-- 2026-06-29 11:35 - [三星电子任命新的视觉显示业务负责人](http://www.blog.minike.top/Article/details/56294066.shtml)
-- 2026-06-29 11:19 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](http://www.blog.minike.top/Article/details/98504.shtml)
-- 2026-06-29 11:35 - [韩国特检组就金建希首案二审结果提出抗诉](http://www.share.kurohicncr.top/Article/details/300668357.shtml)
-- 2026-06-29 11:18 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](http://www.share.kurohicncr.top/Article/details/161341073168.shtml)
-- 2026-06-29 11:19 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](http://www.blog.minike.top/Article/details/71572823518.shtml)
-- 2026-06-29 11:26 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.blog.kurohicncr.top/Article/details/814279946.shtml)
-- 2026-06-29 11:39 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.share.kurohicncr.top/Article/details/904690948.shtml)
-- 2026-06-29 11:30 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](http://www.blog.minike.top/Article/details/57275.shtml)
+- 2026-06-29 11:40 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](http://www.share.kurohicncr.top/Article/details/828620252.shtml)
+- 2026-06-29 11:23 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.blog.kurohicncr.top/Article/details/26541.shtml)
+- 2026-06-29 11:41 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](http://www.blog.minike.top/Article/details/69283.shtml)
+- 2026-06-29 11:43 - [五一视界早盘涨逾6% 日前获创始人增持765万股](http://www.blog.minike.top/Article/details/26902.shtml)
+- 2026-06-29 11:33 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](http://www.share.kurohicncr.top/Article/details/692180609917.shtml)
+- 2026-06-29 11:45 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](http://www.share.minike.top/Article/details/30959249966.shtml)
+- 2026-06-29 11:40 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](http://www.blog.kurohicncr.top/Article/details/69380.shtml)
+- 2026-06-29 11:34 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](http://www.share.minike.top/Article/details/951272.shtml)
+- 2026-06-29 11:40 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [高市再提修宪 引发日本民众广泛反对](http://www.blog.kurohicncr.top/Article/details/345229622.shtml)
+- 2026-06-29 11:27 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](http://www.blog.minike.top/Article/details/78670628.shtml)
+- 2026-06-29 11:48 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](http://www.share.kurohicncr.top/Article/details/586313.shtml)
+- 2026-06-29 11:39 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lisacumin64-arch)

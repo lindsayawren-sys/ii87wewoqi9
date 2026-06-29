@@ -1,54 +1,58 @@
-# 新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动
+# “乔、灌、药”立体种植 新疆和田探索出治沙增收新模式
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-据中国地震台网正式测定：2026年5月3日18时00分，新疆吐鲁番市托克逊县发生4.7级地震，震源深度20千米，震中位于托克逊县库米什镇正南方向6千米(北纬42.19度，东经88.19度)，常住人口约500人，距托克逊县城约104公里，托克逊县城有震感。震中附近地形类型为山前低山丘陵，10公里范围内平均海拔高度为1143米。地震发生后，吐鲁番支队地震救援机动队9车30人1犬已在
+春日回暖，塔克拉玛干沙漠边缘绿意渐浓。新疆和田地区于田县在沙漠“锁边”“合龙”基础上，今年创新模式，在玫瑰花田间套种中药材射干，治沙模式从过去的“乔灌结合”转向“乔、灌、药”立体种植，走出一条生态与经济协同共进的新路子。近日，于田县奥依托格拉克乡沙漠锁边合龙带迎来一派繁忙景象。农户们穿梭在整齐的玫瑰苗间，忙着移栽射干种苗，打洞、扶苗、培土，一气呵成。这是当地盘活沙地利用价值推出
 
 ## 正文
 
-据中国地震台网正式测定：2026年5月3日18时00分，新疆吐鲁番市托克逊县发生4.7级地震，震源深度20千米，震中位于托克逊县库米什镇正南方向6千米(北纬42.19度，东经88.19度)，常住人口约500人，距托克逊县城约104公里，托克逊县城有震感。
+春日回暖，塔克拉玛干沙漠边缘绿意渐浓。
 
-震中附近地形类型为山前低山丘陵，10公里范围内平均海拔高度为1143米。
+新疆和田地区于田县在沙漠“锁边”“合龙”基础上，今年创新模式，在玫瑰花田间套种中药材射干，治沙模式从过去的“乔灌结合”转向“乔、灌、药”立体种植，走出一条生态与经济协同共进的新路子。
 
-地震发生后，吐鲁番支队地震救援机动队9车30人1犬已在营区集结完毕，做好救援准备。
+近日，于田县奥依托格拉克乡沙漠锁边合龙带迎来一派繁忙景象。
 
-托克逊县九龙路消防救援站3车11人地震救援先遣队赶赴现场。
+农户们穿梭在整齐的玫瑰苗间，忙着移栽射干种苗，打洞、扶苗、培土，一气呵成。
 
-途中，经与辖区速报员、当地公安、应急等相关部门核实，暂未接到人员伤亡和房屋倒塌相关警情报告。
+这是当地盘活沙地利用价值推出的间作新模式：玫瑰与射干共生，一块地、两份收益。
 
-目前，托克逊县交通、电力、通信及群众生产生活秩序均正常。
+于田县奥依托格拉克乡依格孜都维村种植户 阿不都克日木：今年种了50亩玫瑰，中间套种了射干。
 
-(央视新闻客户端 总台记者 王新宇 彭婵)
+玫瑰花采完后，秋天还能收一茬射干，一块地赚两份钱。
+
+为了让射干在沙地里扎下根，当地技术人员把课堂搬到了田间地头，从浇水、施肥到病虫害防治，全程跟踪服务。
 
 ## 相关推荐
 
-- 2026-06-29 11:30 - [三星电子任命新的视觉显示业务负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:36 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:43 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 11:39 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:25 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:42 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:44 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 11:45 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:33 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:44 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 11:31 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 11:42 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:45 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:47 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:31 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:26 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:45 - [高市再提修宪 引发日本民众广泛反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:20 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:41 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 11:25 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:23 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:26 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.blog.minike.top/Article/details/46776634.shtml)
-- 2026-06-29 11:41 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](http://www.blog.kurohicncr.top/Article/details/65749853.shtml)
-- 2026-06-29 11:43 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.share.kurohicncr.top/Article/details/3332398.shtml)
-- 2026-06-29 11:46 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.blog.kurohicncr.top/Article/details/389381112.shtml)
-- 2026-06-29 11:27 - [刚刚，利好来了！上海，重磅出手！](http://www.blog.minike.top/Article/details/0654638296.shtml)
-- 2026-06-29 11:24 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.blog.kurohicncr.top/Article/details/50296212.shtml)
-- 2026-06-29 11:37 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.blog.kurohicncr.top/Article/details/20578911.shtml)
-- 2026-06-29 11:18 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](http://www.share.kurohicncr.top/Article/details/643121398.shtml)
-- 2026-06-29 11:27 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](http://www.share.minike.top/Article/details/35639.shtml)
-- 2026-06-29 11:21 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.minike.top/Article/details/57386311270.shtml)
-- 2026-06-29 11:24 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.share.kurohicncr.top/Article/details/50688.shtml)
-- 2026-06-29 11:33 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.blog.minike.top/Article/details/641774617212.shtml)
-- 2026-06-29 11:39 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.blog.minike.top/Article/details/17531798.shtml)
-- 2026-06-29 11:37 - [一觉醒来，美国对欧洲下狠手了](http://www.blog.kurohicncr.top/Article/details/221223946.shtml)
+- 2026-06-29 11:24 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](http://www.blog.kurohicncr.top/Article/details/51743130257.shtml)
+- 2026-06-29 11:34 - [国晟科技，浑身是谜](http://www.blog.minike.top/Article/details/4977147439.shtml)
+- 2026-06-29 11:48 - [专家学者南京共商生态文明传播新路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [新加坡第一季度经济增长放缓](http://www.blog.minike.top/Article/details/90579813068.shtml)
+- 2026-06-29 11:34 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.blog.minike.top/Article/details/34940807478.shtml)
+- 2026-06-29 11:42 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](http://www.share.minike.top/Article/details/23840484.shtml)
+- 2026-06-29 11:26 - [Revolution Medicines胰腺癌药物取得成功](http://www.blog.minike.top/Article/details/228501.shtml)
+- 2026-06-29 11:26 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.share.kurohicncr.top/Article/details/517726803835.shtml)
+- 2026-06-29 11:36 - [中天策略:4月14日市场分析](http://www.share.minike.top/Article/details/645118.shtml)
+- 2026-06-29 11:45 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](http://www.blog.minike.top/Article/details/17914285.shtml)
+- 2026-06-29 11:25 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.blog.kurohicncr.top/Article/details/04554.shtml)
+- 2026-06-29 11:36 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](http://www.blog.minike.top/Article/details/5511162.shtml)
+- 2026-06-29 11:33 - [今年以来地方债发行节奏提速](http://www.blog.minike.top/Article/details/05178988730.shtml)

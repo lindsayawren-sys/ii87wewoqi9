@@ -1,57 +1,56 @@
-# 零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期
+# 京津冀定向挑战赛天津落幕 四百余名选手花海寻春
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年4月，零跑汽车交出震撼答卷：单月交付量首次突破7万台，达到71387台，创品牌历史新高，持续巩固造车新势力销量领跑地位。 从一季度超11万台登顶新势力榜首，到3月破5万、4月再冲7万，零跑以连续爆发的增长曲线，印证科技普惠路线的强大生命力，标志着零跑在连续登顶新势力季度榜首之后，完成了从“规模领先
+中新网天津4月13日电 (薛淳月 周亚强)第二届京津冀定向挑战赛(宝坻站)暨2026“桃花缘杯”职工定向赛12日在天津宝坻落幕，吸引了来自京津冀地区的400余名选手参与，选手们在宝坻区的万亩桃园内感受春日。 本次赛事将竞技体育与趣味互动相结合，设置专业组和青年职工联谊组两个组别，通过“体育+旅游+文化”的融合模式为京津冀三地体育爱好者搭建了交流平台。专业组选手需要借助地图和指北
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网天津4月13日电 (薛淳月 周亚强)第二届京津冀定向挑战赛(宝坻站)暨2026“桃花缘杯”职工定向赛12日在天津宝坻落幕，吸引了来自京津冀地区的400余名选手参与，选手们在宝坻区的万亩桃园内感受春日。
 
-2026年4月，零跑汽车交出震撼答卷：单月交付量首次突破7万台，达到71387台，创品牌历史新高，持续巩固造车新势力销量领跑地位。
+本次赛事将竞技体育与趣味互动相结合，设置专业组和青年职工联谊组两个组别，通过“体育+旅游+文化”的融合模式为京津冀三地体育爱好者搭建了交流平台。
 
-从一季度超11万台登顶新势力榜首，到3月破5万、4月再冲7万，零跑以连续爆发的增长曲线，印证科技普惠路线的强大生命力，标志着零跑在连续登顶新势力季度榜首之后，完成了从“规模领先”到“品牌质变”的关键一跃。
+专业组选手需要借助地图和指北针，在花海中寻找打卡点。
 
-当外界还在讨论新势力排位战时，零跑已经用“全域自研降本、好而不贵定价、爆款密集上市、智驾科技普惠”的四步闭环，构建出一条清晰的增长飞轮。
+青年职工联谊组的选手则侧重在完成定向任务的同时，通过团队协作增进交流。
 
-7万台，正成为零跑开启新增长周期的起跳板。
+“在桃林里跑定向还是第一次，风景太美了，跑起来特别享受。
 
-规模化驱动价值质变完成正反馈 新势力领跑者地位继续巩固 4月超7万台的交付成绩，一举刷新了零跑自身的单月交付纪录，让零跑在新势力赛道和激烈的市场竞争中一骑绝尘，进一步巩固了零跑作为造车新势力单月销量领跑者的地位，成为行业现象级标杆。
+”来自北京的专业组选手张先生完赛后难掩兴奋，称这场比赛为对体力与脑力的双重拉练。
 
-继一季度以超11万台交付量登顶新势力榜首后，零跑从3月5万，到4月7万的跨越式增长，展现出的不是偶发性的脉冲，而是高增长的新常态。
+来自天津宝坻的青年职工李女士则表示赛事为工作忙碌的她提供了放松身心的机会，还“通过比赛认识很多新朋友，特别有意义”。
 
-这个数字的意义，放在更大的坐标下来看会更加清晰。
+天津市宝坻区口东镇相关负责人表示，未来该镇将持续深化京津冀体育文化交流合作，依托八台港万亩桃园和潮白河生态资源，打造更多具有区域特色的品牌赛事，推动体育赛事与文旅产业深度融合，助力乡村振兴。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:35 - [吉尔登服饰营收攀升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:33 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:34 - [阿贝尔重申伯克希尔核心原则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:42 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:23 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 11:20 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:44 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:43 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:23 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:26 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:27 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:39 - [中方：愿同匈牙利新一届政府加强高层交往](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:23 - [大商所发布《服务实体经济白皮书（2025）》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:21 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:29 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:41 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:19 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:46 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 11:24 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 11:48 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](http://www.share.kurohicncr.top/Article/details/89766885.shtml)
-- 2026-06-29 11:29 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](http://www.share.minike.top/Article/details/860505698.shtml)
-- 2026-06-29 11:37 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](http://www.share.kurohicncr.top/Article/details/859218393.shtml)
-- 2026-06-29 11:47 - [德国经济一季度环比增长0.3%](http://www.share.minike.top/Article/details/682149956.shtml)
-- 2026-06-29 11:39 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [可孚医疗：发售价厘定为每股H股39.33港元](http://www.blog.minike.top/Article/details/97625.shtml)
-- 2026-06-29 11:22 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.blog.kurohicncr.top/Article/details/8303029226.shtml)
-- 2026-06-29 11:43 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.share.minike.top/Article/details/855105.shtml)
-- 2026-06-29 11:39 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.blog.kurohicncr.top/Article/details/57883734007.shtml)
-- 2026-06-29 11:42 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.share.minike.top/Article/details/44624579049.shtml)
-- 2026-06-29 11:27 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](http://www.share.minike.top/Article/details/9380305.shtml)
-- 2026-06-29 11:31 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.share.kurohicncr.top/Article/details/495513471.shtml)
-- 2026-06-29 11:42 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.share.kurohicncr.top/Article/details/135826498.shtml)
+- 2026-06-29 11:27 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](http://www.blog.minike.top/Article/details/57124.shtml)
+- 2026-06-29 11:24 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](http://www.share.minike.top/Article/details/86996464029.shtml)
+- 2026-06-29 11:46 - [特朗普称伊朗致电美方说希望达成协议](http://www.share.kurohicncr.top/Article/details/58255139.shtml)
+- 2026-06-29 11:41 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](http://www.share.minike.top/Article/details/0836414957.shtml)
+- 2026-06-29 11:29 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](http://www.blog.minike.top/Article/details/63828.shtml)
+- 2026-06-29 11:44 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.share.minike.top/Article/details/680019.shtml)
+- 2026-06-29 11:27 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.share.minike.top/Article/details/74086644558.shtml)
+- 2026-06-29 11:31 - [巴西非遗乐团走进北京丰台奏响友谊乐章](http://www.blog.kurohicncr.top/Article/details/41355.shtml)
+- 2026-06-29 11:39 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.blog.kurohicncr.top/Article/details/04820.shtml)
+- 2026-06-29 11:30 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](http://www.blog.minike.top/Article/details/185539748.shtml)
+- 2026-06-29 11:24 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](http://www.blog.minike.top/Article/details/77640.shtml)
+- 2026-06-29 11:19 - [国家安全“大事”，跟普通人有什么关系？](http://www.blog.kurohicncr.top/Article/details/24453279.shtml)
+- 2026-06-29 11:35 - [习近平会见西班牙首相桑切斯](http://www.share.minike.top/Article/details/374227609.shtml)

@@ -1,55 +1,61 @@
-# 今年以来广西爱店口岸跨境贸易持续升温
+# 五大险企2025年总投资收益率普升 新华保险6.6%领跑
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月2日电(向希旺)据广西爱店出入境边防检查站2日提供的统计数据，2026年前四个月，爱店口岸累计查验出入境人员超15万人次；进出境车辆5.2万辆次，同比增长13.9%；进出口货值约340亿元人民币，同比增长近50%。 据介绍，2026年以来，爱店口岸人员、车辆通关量持续攀升，背后是跨境经贸合作、人员探亲访友、商务洽谈等需求的持续回暖，也折射出口岸通关服务保障能力不断
+21世纪经济报道记者 林汉垚、实习生 徐若萱 2025年，中国人寿、中国平安、中国人保、中国太保、新华保险五大A股上市险企在复杂宏观环境下交出了一份亮眼的投资成绩单。 截至2025年年末，五家机构合计投资资产规模突破20.7万亿元，总投资收益率普遍提高。 在监管引导长期资金入市与新会计准则落地的双重背景下，上市险企的投资策略呈现鲜明特征：一方面，固收资产作为“压舱石”地位稳固，
 
 ## 正文
 
-中新网南宁5月2日电(向希旺)据广西爱店出入境边防检查站2日提供的统计数据，2026年前四个月，爱店口岸累计查验出入境人员超15万人次；进出境车辆5.2万辆次，同比增长13.9%；进出口货值约340亿元人民币，同比增长近50%。
+21世纪经济报道记者 林汉垚、实习生 徐若萱 2025年，中国人寿、中国平安、中国人保、中国太保、新华保险五大A股上市险企在复杂宏观环境下交出了一份亮眼的投资成绩单。
 
-据介绍，2026年以来，爱店口岸人员、车辆通关量持续攀升，背后是跨境经贸合作、人员探亲访友、商务洽谈等需求的持续回暖，也折射出口岸通关服务保障能力不断提升。
+截至2025年年末，五家机构合计投资资产规模突破20.7万亿元，总投资收益率普遍提高。
 
-当前正值“五一”假期，中国—东盟跨境出行、经贸往来需求持续释放，广西爱店口岸流量持续升温。
+在监管引导长期资金入市与新会计准则落地的双重背景下，上市险企的投资策略呈现鲜明特征：一方面，固收资产作为“压舱石”地位稳固，通过拉长久期、增配政府债来对冲利率下行风险；另一方面，险企抓住市场机遇，大幅加仓权益资产，“股票+基金”平均占比提升，并将新质生产力作为核心配置主线。
 
-结合“五一”假期通关高峰特点，爱店口岸联建部门提前谋划，持续开通生鲜、危化品“绿色通道”，做好查验设施及系统维护，确保“快捷通”通关系统运转顺畅。
+与此同时，非标债权与地产等另类投资敞口持续压降，资产配置结构进一步优化，形成了固收打底、权益增强、另类补位的全新格局。
 
-爱店口岸相关负责人表示，未来，爱店口岸将持续深化通关便利化改革，紧盯跨境往来需求，不断提升通关效率和服务质量，进一步畅通跨境人员往来与经贸融通通道，为地方经济高质量发展注入强劲新动能。
+固收类资产仍是险资配置绝对主体 2025年，新华保险总投资收益率达6.6%，同比提升0.8个百分点，位居行业前列。
 
-(完)
+中国人寿实现总投资收益3876.94亿元，同比增加794.43亿元，总投资收益率为6.09%。
+
+中国人保总投资收益923.23亿元，同比增长12.4%，创历史最好水平，总投资收益率为5.7%。
+
+总投资收益率涵盖所有投资活动的收益，包含股票买卖价差等主动交易收益及以公允价值计量且其变动计入当期损益（FVTPL）资产的市值波动，更能反映险企对权益市场机会的把握能力。
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [“对你们充满了敬意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:41 - [云南“五一”假期多地降雪 呈反季冰雪景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:19 - [江西梅江灌区主体工程全面完工试通水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:34 - [国羽3:0胜日本队挺进尤伯杯决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:27 - [福建海域进入海洋伏季休渔期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:24 - [激进投资机构Saba与SpaceX激烈纷争后，掌控英国科技基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:26 - [午盘：道指上涨700点 市场关注美股财报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:43 - [阿联酋宣布退出OPEC，霍尔木兹封锁致短期油价持续高企](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:19 - [人民论坛网评丨从“看一场球”到“赴一座城” ——“经济新活力”系列评](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:35 - [委内瑞拉4月石油出口创2018年来新高 委政府无自主支配收入权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:44 - [摩根士丹利看好Chef‘s Warehouse，称中东担忧“过度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:25 - [劳动者宋春胜：千家万户的“安全阀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:35 - [成都宽窄巷子景区游人如织](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:27 - [珂玛科技可转债发行安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:22 - [美国总统特朗普： 封锁伊朗后美国将能大卖石油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 11:24 - [花洒很干净，不用清洁……是真是假？| 谣言终结站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:26 - [绿叶制药获瑞银增持1395.45万股 每股作价约2.85港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:45 - [中信建投期货：4月14日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:24 - [习近平会见阿联酋阿布扎比王储哈立德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 11:45 - [创新药“加速度”，商保角色重塑：从补充支付到核心参与！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:45 - [比亚迪又拿下两大电芯订单！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 11:20 - [多国政要排队访华 为何而来？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:27 - [肖远企在澳门葡语国家（地区）保险监管研讨会上的演讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:32 - [永川海关2026年度信息化运维服务采购项目中标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:35 - [赢家时尚：受托人根据股份奖励计划购买合共92.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:34 - [涨超六成！环氧丙烷价格快速走高 多股业绩有望翻倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:22 - [贝森特：关税水平或在7月初前恢复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 11:27 - [重磅数据本周发布，中国经济有望迎“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.blog.minike.top/Article/details/85954017.shtml)
-- 2026-06-29 11:20 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.share.kurohicncr.top/Article/details/01583214317.shtml)
-- 2026-06-29 11:27 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](http://www.blog.minike.top/Article/details/132234.shtml)
-- 2026-06-29 11:35 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](http://www.share.kurohicncr.top/Article/details/86728938.shtml)
-- 2026-06-29 11:47 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](http://www.blog.kurohicncr.top/Article/details/616649861.shtml)
-- 2026-06-29 11:41 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [中国驻英大使郑泽光：香港发展拥有四大优势](http://www.blog.kurohicncr.top/Article/details/116050607451.shtml)
-- 2026-06-29 11:28 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [特朗普抨击国会限制其战争权力的举动](http://www.share.kurohicncr.top/Article/details/084009193732.shtml)
-- 2026-06-29 11:42 - [浙江杭州：民众走“运”度假期](http://www.blog.kurohicncr.top/Article/details/237267062037.shtml)
-- 2026-06-29 11:25 - [天津国际邮轮母港单日出入境旅客创年内新高](http://www.blog.kurohicncr.top/Article/details/670786629302.shtml)
-- 2026-06-29 11:32 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.share.minike.top/Article/details/78925.shtml)
+- 2026-06-29 11:46 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [美国对伊朗海上交通封锁13日生效](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [恒大集团、恒大地产及许家印案一审开庭](http://www.share.kurohicncr.top/Article/details/3001080.shtml)
+- 2026-06-29 11:38 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](http://www.blog.kurohicncr.top/Article/details/83195.shtml)
+- 2026-06-29 11:29 - [跨越四百年 西班牙首相感叹：中国依旧伟大](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](http://www.blog.kurohicncr.top/Article/details/343679439365.shtml)
+- 2026-06-29 11:27 - [涉案3000万元 非法集资瞄准“银发旅游团”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](http://www.share.kurohicncr.top/Article/details/054592.shtml)
+- 2026-06-29 11:23 - [长安期货：美伊和谈暂无成果 关注CPI数据](http://www.share.kurohicncr.top/Article/details/95194841.shtml)
+- 2026-06-29 11:32 - [恒大集团、恒大地产及许家印案一审开庭](http://www.blog.kurohicncr.top/Article/details/0358599453.shtml)
+- 2026-06-29 11:21 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](http://www.share.kurohicncr.top/Article/details/85506379216.shtml)
+- 2026-06-29 11:43 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](http://www.blog.kurohicncr.top/Article/details/4412561.shtml)
+- 2026-06-29 11:48 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](http://www.share.kurohicncr.top/Article/details/9826255.shtml)
+- 2026-06-29 11:39 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.share.minike.top/Article/details/466835.shtml)

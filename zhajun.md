@@ -1,58 +1,60 @@
-# 吉尔登服饰营收攀升
+# 中方：愿同匈牙利新一届政府加强高层交往
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 收购恒适品牌产生的整合成本拖累公司利润 内容摘要 受收购恒适品牌提振，吉尔登服饰一季度净销售额达11.7 亿美元，上年同期为 7.117 亿美元。 服装制造商吉尔登服饰（GIL）一季度销售额增长，公司已开始合并新收购的恒适品牌业务财报数据，并持续推进并购后的成本协同落地。 公司周四公布，一季度净销售额11.7 亿美元，高于上年同期的 7.1
+中新网北京4月13日电 (记者 谢雁冰 黄钰钦)中国外交部发言人郭嘉昆13日主持例行记者会。 有记者提问：据报道，4月12日，匈牙利举行新一届国会选举。目前，蒂萨党主席毛焦尔已宣布胜选，青民盟主席欧尔班已承认败选并向毛焦尔表示祝贺。中方对此有何评论？对中匈关系未来发展有何期待？ 郭嘉昆：毛焦尔先生领导的蒂萨党在匈牙利新一届国会选举中获胜，中方对此表示祝贺。中方高度重视中匈关系发
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 收购恒适品牌产生的整合成本拖累公司利润 内容摘要 受收购恒适品牌提振，吉尔登服饰一季度净销售额达11.7 亿美元，上年同期为 7.117 亿美元。
+中新网北京4月13日电 (记者 谢雁冰 黄钰钦)中国外交部发言人郭嘉昆13日主持例行记者会。
 
-服装制造商吉尔登服饰（GIL）一季度销售额增长，公司已开始合并新收购的恒适品牌业务财报数据，并持续推进并购后的成本协同落地。
+有记者提问：据报道，4月12日，匈牙利举行新一届国会选举。
 
-公司周四公布，一季度净销售额11.7 亿美元，高于上年同期的 7.117 亿美元，也超出市场预期的 11.4 亿美元。
+目前，蒂萨党主席毛焦尔已宣布胜选，青民盟主席欧尔班已承认败选并向毛焦尔表示祝贺。
 
-吉尔登本季度录得净亏损 6580 万美元，折合每股亏损 36 美分；而上年同期净利润为 8470 万美元。
+中方对此有何评论？
 
-公司表示，盈亏逆转主要源于收购相关费用，以及整合恒适品牌产生的各项成本。
+对中匈关系未来发展有何期待？
 
-吉尔登主营批发及零售市场的 T 恤、抓绒服饰与内衣产品，去年以22 亿美元收购恒适品牌，旨在扩充品牌矩阵、加速零售渠道业务增长，目前公司正推进业务整合，以实现成本协同效益。
+郭嘉昆：毛焦尔先生领导的蒂萨党在匈牙利新一届国会选举中获胜，中方对此表示祝贺。
 
-剔除恒适收购相关费用等一次性特殊项目后，调整后每股收益 43 美分，高于分析师预期的 35 美分。
+中方高度重视中匈关系发展，愿在相互尊重、平等相待、互利共赢的基础上，同匈牙利新一届政府加强高层交往，增进政治互信，拓展务实合作，扩大人文交流，造福两国人民。
 
-公司重申全年业绩指引： 全年营收预期60 亿 —62 亿美元，调整后每股收益预期4.20—4.40 美元。
+(完）
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 11:40 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:19 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:30 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:40 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:23 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:41 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:21 - [三星电子任命新的视觉显示业务负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:21 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 11:30 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:30 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:21 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:21 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:48 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 11:34 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:39 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:34 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:39 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:26 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:26 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:29 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:46 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:29 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:45 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:23 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:45 - [高市再提修宪 引发日本民众广泛反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:34 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.share.kurohicncr.top/Article/details/12626135521.shtml)
-- 2026-06-29 11:24 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.share.kurohicncr.top/Article/details/138616413.shtml)
-- 2026-06-29 11:40 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.blog.kurohicncr.top/Article/details/8343524729.shtml)
-- 2026-06-29 11:36 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.blog.minike.top/Article/details/871840.shtml)
-- 2026-06-29 11:31 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.blog.minike.top/Article/details/891887476.shtml)
-- 2026-06-29 11:19 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.share.minike.top/Article/details/63757.shtml)
-- 2026-06-29 11:42 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](http://www.share.minike.top/Article/details/275021065.shtml)
-- 2026-06-29 11:33 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.share.kurohicncr.top/Article/details/957662.shtml)
-- 2026-06-29 11:47 - [刚刚，利好来了！上海，重磅出手！](http://www.blog.minike.top/Article/details/52885524929.shtml)
-- 2026-06-29 11:41 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.share.minike.top/Article/details/91093421294.shtml)
-- 2026-06-29 11:44 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.share.kurohicncr.top/Article/details/906302719.shtml)
-- 2026-06-29 11:34 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.blog.kurohicncr.top/Article/details/685960913.shtml)
+- 2026-06-29 11:37 - [巴西非遗乐团走进北京丰台奏响友谊乐章](http://www.blog.kurohicncr.top/Article/details/2845712.shtml)
+- 2026-06-29 11:28 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.blog.minike.top/Article/details/997497298282.shtml)
+- 2026-06-29 11:32 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](http://www.blog.kurohicncr.top/Article/details/1840702.shtml)
+- 2026-06-29 11:20 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](http://www.blog.minike.top/Article/details/9249128812.shtml)
+- 2026-06-29 11:26 - [国家安全“大事”，跟普通人有什么关系？](http://www.share.kurohicncr.top/Article/details/779005073690.shtml)
+- 2026-06-29 11:35 - [习近平会见西班牙首相桑切斯](http://www.blog.kurohicncr.top/Article/details/052645300.shtml)
+- 2026-06-29 11:33 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](http://www.blog.kurohicncr.top/Article/details/05302.shtml)
+- 2026-06-29 11:45 - [国晟科技，浑身是谜](http://www.share.kurohicncr.top/Article/details/86812700867.shtml)
+- 2026-06-29 11:23 - [专家学者南京共商生态文明传播新路径](http://www.share.minike.top/Article/details/77408.shtml)
+- 2026-06-29 11:40 - [新加坡第一季度经济增长放缓](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.share.minike.top/Article/details/2568347459.shtml)
+- 2026-06-29 11:25 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.share.kurohicncr.top/Article/details/743731.shtml)
+- 2026-06-29 11:26 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](http://www.blog.minike.top/Article/details/01393751087.shtml)

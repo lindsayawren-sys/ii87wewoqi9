@@ -1,57 +1,44 @@
-# 劳动者宋春胜：千家万户的“安全阀”
+# 赢家时尚：受托人根据股份奖励计划购买合共92.55万股
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网沈阳5月1日电 题：劳动者宋春胜：千家万户的“安全阀” 作者 杨茜茜 5月1日，沈阳老城区的街巷刚飘起早点摊的热气，宋春胜已背着工具包，叩响了今天第一户家门。上门安检，是他坚守岗位的第九个劳动节。“我不奢求谁记住我，只希望大家能记住安全用气常识，平平安安的。”他说。 “第一次敲用户家门，手都攥紧了工牌，手指发抖，犹豫好几分钟才敢敲下去。”回忆起刚入职的场景，宋春胜记忆犹新
+赢家时尚（03709）发布公告，根据股份奖励计划的条款及条件，股份奖励计划的受托人已于2026年4月10日从市场购买合共92.55万股本公司股份，并为获选参与者的利益以信托方式持有。责任编辑：卢昱君
 
 ## 正文
 
-中新网沈阳5月1日电 题：劳动者宋春胜：千家万户的“安全阀” 作者 杨茜茜 5月1日，沈阳老城区的街巷刚飘起早点摊的热气，宋春胜已背着工具包，叩响了今天第一户家门。
+赢家时尚（03709）发布公告，根据股份奖励计划的条款及条件，股份奖励计划的受托人已于2026年4月10日从市场购买合共92.55万股本公司股份，并为获选参与者的利益以信托方式持有。
 
-上门安检，是他坚守岗位的第九个劳动节。
-
-“我不奢求谁记住我，只希望大家能记住安全用气常识，平平安安的。
-
-”他说。
-
-“第一次敲用户家门，手都攥紧了工牌，手指发抖，犹豫好几分钟才敢敲下去。
-
-”回忆起刚入职的场景，宋春胜记忆犹新，“门开那一刻，我头都不敢抬，心里既怕用户不耐烦，又怕自己说的不专业。
-
-” 这个从辽西喀左农村走出来的青年，毫不避讳自己的来处：“我家祖祖辈辈都是农民。
-
-”2016年，他考入沈阳燃气，成为一线安检员。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:47 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:24 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 11:27 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:24 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 11:31 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:23 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:36 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:24 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 11:32 - [美国威胁制裁向伊朗缴通行费的航运企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:47 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:21 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 11:44 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:47 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:44 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:28 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:45 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:30 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:22 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:20 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:40 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.kurohicncr.top/Article/details/57926103.shtml)
-- 2026-06-29 11:41 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.share.kurohicncr.top/Article/details/331893.shtml)
-- 2026-06-29 11:46 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.share.minike.top/Article/details/876947854.shtml)
-- 2026-06-29 11:43 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.share.minike.top/Article/details/12077078.shtml)
-- 2026-06-29 11:36 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.blog.minike.top/Article/details/45630.shtml)
-- 2026-06-29 11:25 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.share.minike.top/Article/details/6026509.shtml)
-- 2026-06-29 11:38 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.blog.minike.top/Article/details/03200942.shtml)
-- 2026-06-29 11:44 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.blog.kurohicncr.top/Article/details/169342893.shtml)
-- 2026-06-29 11:23 - [王毅同美国国务卿鲁比奥通电话](http://www.blog.kurohicncr.top/Article/details/3818123910.shtml)
-- 2026-06-29 11:42 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](http://www.share.minike.top/Article/details/8913230.shtml)
-- 2026-06-29 11:46 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.share.minike.top/Article/details/4045918.shtml)
-- 2026-06-29 11:41 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.share.kurohicncr.top/Article/details/92318.shtml)
-- 2026-06-29 11:23 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.share.kurohicncr.top/Article/details/7788498103.shtml)
-- 2026-06-29 11:38 - [海南商业航天重点项目加速建设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](http://www.blog.kurohicncr.top/Article/details/115322.shtml)
+- 2026-06-29 11:28 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](http://www.blog.kurohicncr.top/Article/details/48182.shtml)
+- 2026-06-29 11:29 - [冰川消退预警峰值水量 奥地利能源转型提速](http://www.share.kurohicncr.top/Article/details/713210814959.shtml)
+- 2026-06-29 11:20 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.blog.minike.top/Article/details/5022948789.shtml)
+- 2026-06-29 11:36 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.kurohicncr.top/Article/details/47761745.shtml)
+- 2026-06-29 11:38 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.share.kurohicncr.top/Article/details/67753.shtml)
+- 2026-06-29 11:22 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.share.kurohicncr.top/Article/details/83345.shtml)
+- 2026-06-29 11:23 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.blog.minike.top/Article/details/8470218.shtml)
+- 2026-06-29 11:46 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.blog.minike.top/Article/details/63351.shtml)
+- 2026-06-29 11:33 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.share.kurohicncr.top/Article/details/78808968.shtml)
+- 2026-06-29 11:41 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.blog.minike.top/Article/details/9659708633.shtml)
+- 2026-06-29 11:23 - [特朗普重申伊朗不能拥有核武器](http://www.share.kurohicncr.top/Article/details/582189374493.shtml)
+- 2026-06-29 11:42 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.blog.minike.top/Article/details/5764613.shtml)
+- 2026-06-29 11:46 - [谷歌最新Gemini升级预示更大规模的机器人布局](http://www.share.minike.top/Article/details/74623.shtml)
+- 2026-06-29 11:33 - [上交所就龙元建设相关事项下发监管工作函](https://github.com/lisacumin64-arch)

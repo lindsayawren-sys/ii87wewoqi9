@@ -1,57 +1,61 @@
-# 中国奥园委聘毕马威咨询(香港)为财务顾问
+# 富国基金27周年：深耕专业 迈向高质量发展新阶段
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中国奥园（03883）发布公告，诚如2026年3月30日公告所公布，本公司及本集团整体持续面临巨大的流动性压力。具体而言，截至本公告日期，本公司尚未就相关票据（定义见2026年3月30日公告）于30天宽限期届满前支付或促使支付已于2026年3月30日到期应付的利息。根据相关票据，这构成违约事件，并已个别地触发本公司若干境外融资项下的交叉违约。 鉴于当前情况，本公司已决定为维护债
+4月13日，富国基金迎来成立27周年。自1999年成立以来，富国基金始终扎根资产管理本源，坚守“以持有人利益为先”的核心理念，以专业能力服务居民财富管理与实体经济发展。Wind数据显示，截至2025年末，富国基金为投资者累计盈利超2050亿元，服务客户突破1.39亿户。 随着公募基金高质量发展行动方案的持续深化，行业发展方向进一步明晰。与此同时，低利率时代来临，居民财富管理需求
 
 ## 正文
 
-中国奥园（03883）发布公告，诚如2026年3月30日公告所公布，本公司及本集团整体持续面临巨大的流动性压力。
+4月13日，富国基金迎来成立27周年。
 
-具体而言，截至本公告日期，本公司尚未就相关票据（定义见2026年3月30日公告）于30天宽限期届满前支付或促使支付已于2026年3月30日到期应付的利息。
+自1999年成立以来，富国基金始终扎根资产管理本源，坚守“以持有人利益为先”的核心理念，以专业能力服务居民财富管理与实体经济发展。
 
-根据相关票据，这构成违约事件，并已个别地触发本公司若干境外融资项下的交叉违约。
+Wind数据显示，截至2025年末，富国基金为投资者累计盈利超2050亿元，服务客户突破1.39亿户。
 
-鉴于当前情况，本公司已决定为维护债权人及其他相关持份者的最佳利益，自2026年3月30日起暂停支付所有境外融资债务已到期或将到期的本金及利息。
+随着公募基金高质量发展行动方案的持续深化，行业发展方向进一步明晰。
 
-为公平地落实这个决定，并尽可能确保本公司债权人与本集团其他境外债权人获得同等对待，本公司将致力促使各附属公司同样暂停支付其各自境外融资债务（未因其他原因而违约者）的本金及利息。
+与此同时，低利率时代来临，居民财富管理需求加速向多元化、净值化方向演进；新质生产力加速培育，对金融资源配置提出更高要求。
 
-暂停履行上述财务义务，可能导致本集团部分债权人要求提前或即时还款及╱或根据适用文件的条款采取行动。
+面对新机遇和挑战，富国基金以“三驾马车”的战略格局为依托，推动权益、固收、量化三大业务协同发力，持续锻造平台化、体系化的长期投资能力，在高质量发展新征程中书写自己的答卷。
 
-截至本公告日期，除就按揭贷款收到的通知（如2026年2月27日公告所披露）外，本公司并无收到任何其他境外债权人发出的提前还款通知或其他要求。
+深耕投研主业，以均衡布局夯实长期回报能力 公募基金高质量发展的核心，在于恪守信义义务、以投资者为本，推动行业从规模扩张转向价值创造与回报提升。
 
-本公司已委聘毕马威咨询（香港）有限公司为其财务顾问，并委聘年利达律师事务所为其法律顾问，以评估本集团的资本结构及流动性，并协助本公司制定适当而全面的重组方案。
+富国基金紧扣行业导向，在投研能力建设、业务均衡发展、投资者获得感三大维度扎实深耕。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:37 - [亚马逊AWS营收增长28%，达到376亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:21 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:32 - [刚刚，利好来了！上海，重磅出手！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:47 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:31 - [西藏昌都文旅资源亮相天津 多项合作签约落地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:47 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:46 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:21 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:18 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:19 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:36 - [国晟科技，浑身是谜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:32 - [专家学者南京共商生态文明传播新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:35 - [新加坡第一季度经济增长放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 11:39 - [创业板增设第四套上市标准 更好支持优质创新企业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:21 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:22 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:43 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:35 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 11:46 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:40 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:44 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:23 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 11:26 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:36 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:28 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [国铁广州局“五一”假期预计发送旅客2277万人次](http://www.blog.kurohicncr.top/Article/details/3387044675.shtml)
-- 2026-06-29 11:28 - [“中文热是中国发展成就最好的印证”——访俄罗斯伊尔库茨克国立大学孔院俄方院长拜拉莫娃](http://www.share.kurohicncr.top/Article/details/00897545.shtml)
-- 2026-06-29 11:41 - [玉浦高速公路200余名建设者“五一”不打烊 铺筑发展快车道](http://www.blog.minike.top/Article/details/8739097908.shtml)
-- 2026-06-29 11:19 - [关税退税提振利润难掩现金流疲软，Stellantis股价重挫](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [特朗普削减驻德美军计划引发美国及北约盟友质疑](http://www.blog.kurohicncr.top/Article/details/45553.shtml)
-- 2026-06-29 11:45 - [以防长：以色列或“很快”对伊朗“再次采取行动”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [【追光的你】习言道｜追求进步是青年最宝贵的特质](http://www.share.kurohicncr.top/Article/details/493756.shtml)
-- 2026-06-29 11:33 - [香港清华同学会成立70周年峰会在港举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [美国得克萨斯州发生枪击事件 致2死10伤](http://www.blog.minike.top/Article/details/256729.shtml)
-- 2026-06-29 11:20 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.blog.kurohicncr.top/Article/details/59362.shtml)
-- 2026-06-29 11:21 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.share.minike.top/Article/details/222871.shtml)
-- 2026-06-29 11:18 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [漳汕高铁广东段山家特大桥首梁架设](http://www.blog.kurohicncr.top/Article/details/317342201360.shtml)
-- 2026-06-29 11:28 - [“金融国家队”为何选中了他们](http://www.share.minike.top/Article/details/351341664511.shtml)
+- 2026-06-29 11:42 - [海南文昌积极打造中国首个商业航天卫星数据加工贸易区](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [东亚银行发行149.27万股代息股份](http://www.share.minike.top/Article/details/569942265052.shtml)
+- 2026-06-29 11:42 - [尾盘，A股突然异动！大面积涨停！外围，传来利好](http://www.blog.minike.top/Article/details/756556.shtml)
+- 2026-06-29 11:38 - [中国工商银行深圳分行原党委委员、副行长姚玉平接受纪律审查和监察调查](http://www.share.kurohicncr.top/Article/details/07849.shtml)
+- 2026-06-29 11:44 - [世界正向东看，访华潮折射时代大势](http://www.blog.kurohicncr.top/Article/details/718127633584.shtml)
+- 2026-06-29 11:25 - [刚刚，利好来了！直线爆拉，中东大消息！](http://www.blog.kurohicncr.top/Article/details/374501.shtml)
+- 2026-06-29 11:22 - [英国财政大臣抨击美国贸然发动对伊战争是愚蠢之举](http://www.blog.kurohicncr.top/Article/details/63732.shtml)
+- 2026-06-29 11:25 - [中美“乒乓外交”55周年纪念活动在沪举行 亲历者冀两国青年接续友谊](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](http://www.blog.minike.top/Article/details/9190157.shtml)
+- 2026-06-29 11:25 - [王沪宁会见越共中央总书记、国家主席苏林](http://www.share.minike.top/Article/details/0422236192.shtml)
+- 2026-06-29 11:41 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [修好政德才能出好政绩（思想纵横）](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.share.kurohicncr.top/Article/details/816961.shtml)
+- 2026-06-29 11:27 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.blog.minike.top/Article/details/18192629.shtml)
+- 2026-06-29 11:23 - [西班牙首相：世界离不开中国](http://www.share.minike.top/Article/details/87997378.shtml)

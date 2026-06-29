@@ -1,57 +1,55 @@
-# 刚刚，全线大涨！日本，突然动手了！
+# 台当局拟引进印度移工引发岛内巨大争议，超九成民众反对
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中国基金报 【导读】全球大涨，原油跳水，日元突发异动 中国基金报记者 泰勒 兄弟姐妹们啊，今晚外围市场突然巨震！ 其中，黄金、白银直线拉升，黄金大涨超2%，白银涨超3%。 原油市场跳水大跌。 与此同时，欧美股市低开高走，不断攀升。 那么是什么原因触发了全球市场的异动？中东局势方面，美伊双方依旧在互放狠
+发布时间：2026年04月14日 16:35 来源：中国新闻网 台当局劳动部门负责人洪申翰日前在台立法机构称，首批来自印度的移工(即外籍劳工)最快将于今年底到台湾，此举引发岛内社会高度关注，已有3万人联署要求立即中止该项措施。台湾社交频道一项网络投票结果显示，参与投票的2.5万人中，高达93%的民众对引进印度移工表示反对。中国国民党台立法机构党团书记长林沛祥指出，民进党的决策模
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月14日 16:35 来源：中国新闻网 台当局劳动部门负责人洪申翰日前在台立法机构称，首批来自印度的移工(即外籍劳工)最快将于今年底到台湾，此举引发岛内社会高度关注，已有3万人联署要求立即中止该项措施。
 
-来源：中国基金报 【导读】全球大涨，原油跳水，日元突发异动 中国基金报记者 泰勒 兄弟姐妹们啊，今晚外围市场突然巨震！
+台湾社交频道一项网络投票结果显示，参与投票的2.5万人中，高达93%的民众对引进印度移工表示反对。
 
-其中，黄金、白银直线拉升，黄金大涨超2%，白银涨超3%。
+中国国民党台立法机构党团书记长林沛祥指出，民进党的决策模式是“先上车后补票”。
 
-原油市场跳水大跌。
+国民党籍民意代表王鸿薇痛斥：“民进党面对民怨沸腾只敢甩锅给在野党，敢做不敢当，真的很没出息。
 
-与此同时，欧美股市低开高走，不断攀升。
-
-那么是什么原因触发了全球市场的异动？
-
-中东局势方面，美伊双方依旧在互放狠话，均没有退让的意思；而欧洲央行、英国央行刚刚宣布保持利率不变，也在预期之中。
-
-只能推断是其他消息引发了原油跳水。
+”(策划/制作：燕新台 君言晚 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 11:27 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:47 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:27 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:28 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:35 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:46 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:43 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 11:23 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:37 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:23 - [亚马逊：受损阿联酋云区域恢复需数月时间](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:45 - [乡村“发明家”让“手搓”坚果打磨机走向世界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:41 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:43 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:20 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:45 - [海关总署：今年一季度我国货物进出口同比增长15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:38 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:35 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:41 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 11:22 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:39 - [不做下一个Temu：小红书Redshop的差异化突围之战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:41 - [中天策略:4月13日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 11:34 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:48 - [安徽合肥加速竞逐未来产业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:27 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:25 - [探馆消博会|未来生活，能有多酷？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:36 - [“海上名山”新潮出圈迎园博 浙江乐清全域联动谱文旅新篇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [巴西国家石油公司宣布航空煤油提价18%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [马里一军营被武装组织控制 首都周边交通受阻](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.share.kurohicncr.top/Article/details/8683070260.shtml)
-- 2026-06-29 11:30 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.blog.minike.top/Article/details/92092014454.shtml)
-- 2026-06-29 11:36 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.share.minike.top/Article/details/444181.shtml)
-- 2026-06-29 11:31 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.blog.minike.top/Article/details/310779645.shtml)
-- 2026-06-29 11:35 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.share.kurohicncr.top/Article/details/0353685.shtml)
-- 2026-06-29 11:26 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍](http://www.blog.kurohicncr.top/Article/details/971046118.shtml)
-- 2026-06-29 11:39 - [直击巴菲特股东会｜对话巴菲特旗下分公司高管：巴菲特和格雷格信任每一位经理](http://www.blog.minike.top/Article/details/07336.shtml)
-- 2026-06-29 11:39 - [数据中心需求强劲，开利第一季度利润超预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [观界江 品鱼鲜 “中国第一龙乡”嘉荫开江活动引游人](http://www.blog.minike.top/Article/details/189138910.shtml)
-- 2026-06-29 11:21 - [“五一” 假期拉萨市民山谷过林卡 乐享假日时光](http://www.blog.kurohicncr.top/Article/details/55129712.shtml)
-- 2026-06-29 11:24 - [江苏海警局联合多部门启动2026年海洋伏季休渔专项执法行动](http://www.share.minike.top/Article/details/837000.shtml)
+- 2026-06-29 11:36 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.share.minike.top/Article/details/35786.shtml)
+- 2026-06-29 11:38 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.share.kurohicncr.top/Article/details/87650910.shtml)
+- 2026-06-29 11:26 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](http://www.blog.kurohicncr.top/Article/details/593672850232.shtml)
+- 2026-06-29 11:47 - [美国称霍尔木兹封锁首日六船折返](http://www.share.minike.top/Article/details/90224456217.shtml)
+- 2026-06-29 11:27 - [浙江温州：园博园意大利馆开馆](http://www.share.kurohicncr.top/Article/details/8611888.shtml)
+- 2026-06-29 11:48 - [德林控股于4月13日斥资114.9万港元回购100万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.share.minike.top/Article/details/595546.shtml)
+- 2026-06-29 11:48 - [2月马来西亚天然橡胶产量环比下降24.1%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [青海玉树：三江源头添新绿 全民护绿促发展](http://www.share.minike.top/Article/details/958012.shtml)
+- 2026-06-29 11:35 - [特朗普发难后 教宗良十四世誓言继续发声批评伊朗战争](http://www.blog.minike.top/Article/details/122954540056.shtml)
+- 2026-06-29 11:36 - [A股收评：超3700只个股飘红，三大指数集体收涨](http://www.blog.minike.top/Article/details/0922946.shtml)
+- 2026-06-29 11:43 - [通宇通讯中标中国移动吉林公司空调型美化天线采购项目](http://www.share.kurohicncr.top/Article/details/06433.shtml)
+- 2026-06-29 11:39 - [事关金银，上期所最新通知](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [美国宣布将全面封锁后 三艘船在尝试通过霍尔木兹海峡](http://www.share.minike.top/Article/details/009429521267.shtml)

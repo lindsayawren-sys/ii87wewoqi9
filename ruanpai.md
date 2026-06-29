@@ -1,58 +1,59 @@
-# 王毅同美国国务卿鲁比奥通电话
+# 辽宁营商环境的“民生温度”与“投资信心”
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新社北京4月30日电 中共中央政治局委员、外交部长王毅4月30日同美国国务卿鲁比奥通电话。 王毅表示，元首外交始终是中美关系的“定盘星”。在习近平主席和特朗普总统战略引领下，中美关系总体保持了稳定。这符合两国人民根本利益，也符合国际社会普遍期待。双方要维护好来之不易的稳定局面，筹备好重要高层互动议程，扩大合作面、管控分歧点，探索构建具有战略性、建设性、稳定性的中美关系，实现相
+中新网沈阳4月13日电 (王涵)到4月13日，辽宁优化营商环境攻坚迎来百日节点。营商环境好不好，不是单纯的考核数字，而要看老百姓和企业切身的“体感温度”。百日来，辽宁从细微处着手，通过政务服务的“做减法”和民生保障的“做加法”，正悄然发生着从“管理”向“服务”的观念之变。这种变化，不仅让当地人感受到了实惠，更转化为外界投资辽宁的坚定信心。微观体感：从“折返跑”到“立等可取” “
 
 ## 正文
 
-中新社北京4月30日电 中共中央政治局委员、外交部长王毅4月30日同美国国务卿鲁比奥通电话。
+中新网沈阳4月13日电 (王涵)到4月13日，辽宁优化营商环境攻坚迎来百日节点。
 
-王毅表示，元首外交始终是中美关系的“定盘星”。
+营商环境好不好，不是单纯的考核数字，而要看老百姓和企业切身的“体感温度”。
 
-在习近平主席和特朗普总统战略引领下，中美关系总体保持了稳定。
+百日来，辽宁从细微处着手，通过政务服务的“做减法”和民生保障的“做加法”，正悄然发生着从“管理”向“服务”的观念之变。
 
-这符合两国人民根本利益，也符合国际社会普遍期待。
+这种变化，不仅让当地人感受到了实惠，更转化为外界投资辽宁的坚定信心。
 
-双方要维护好来之不易的稳定局面，筹备好重要高层互动议程，扩大合作面、管控分歧点，探索构建具有战略性、建设性、稳定性的中美关系，实现相互尊重、和平共处、合作共赢。
+微观体感：从“折返跑”到“立等可取” “以前打政务热线，要在语音导航里按半天键，现在一拨就有人接。
 
-王毅强调，台湾问题事关中国的核心利益，是中美关系的最大风险点。
+”这是近期辽宁许多民众的共同感受。
 
-美方应信守承诺，作出正确抉择，为中美合作打开新的空间，为世界和平作出应尽努力。
+记者从辽宁省数据局了解到，除沈阳、大连外，辽宁已全面取消12345热线语音导航，直接转人工接听。
 
-鲁比奥表示，美中关系是世界上最重要的双边关系，元首外交是美中关系的核心。
+热线“秒接”的背后，是政务服务效率的系统性重构。
 
 ## 相关推荐
 
-- 2026-06-29 11:26 - [美官员：美军“福特”号航母已离开中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:37 - [水利部滚动会商部署“五一”假期期间防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:19 - [孟加拉国外交部长卡利勒将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 11:35 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:18 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:40 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 11:18 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 11:43 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:39 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:19 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 11:23 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:21 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:22 - [王毅同巴基斯坦副总理兼外长达尔通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:38 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 11:33 - [两面针：公司目前已布局并推出电动牙刷产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:36 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:41 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:34 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:28 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:22 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 11:45 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:33 - [巴基斯坦防长称美伊谈判将很快重启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:29 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 11:42 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:36 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](http://www.blog.kurohicncr.top/Article/details/230776925.shtml)
-- 2026-06-29 11:29 - [渤海人寿获批增加注册资本至16.87亿元](http://www.blog.minike.top/Article/details/638205678.shtml)
-- 2026-06-29 11:46 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](http://www.share.minike.top/Article/details/7584369.shtml)
-- 2026-06-29 11:25 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [台湾宜兰县海域发生6.1级地震](http://www.blog.minike.top/Article/details/339720.shtml)
-- 2026-06-29 11:18 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](http://www.blog.minike.top/Article/details/40363190.shtml)
-- 2026-06-29 11:37 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](http://www.blog.minike.top/Article/details/0781912.shtml)
-- 2026-06-29 11:25 - [广交会观察：全球采购商寻“鲜”中国美食](http://www.blog.minike.top/Article/details/355485445.shtml)
-- 2026-06-29 11:19 - [新加坡外国存款创历史新高 避险需求激增](http://www.blog.minike.top/Article/details/66796028.shtml)
-- 2026-06-29 11:46 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.blog.minike.top/Article/details/92510061117.shtml)
-- 2026-06-29 11:21 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](http://www.blog.minike.top/Article/details/47124350.shtml)
-- 2026-06-29 11:27 - [科技与艺术深度融合 重庆上演互动烟花戏剧](http://www.share.kurohicncr.top/Article/details/106707998.shtml)
-- 2026-06-29 11:39 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](http://www.blog.kurohicncr.top/Article/details/8906018.shtml)
-- 2026-06-29 11:24 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](http://www.blog.minike.top/Article/details/90717.shtml)
+- 2026-06-29 11:43 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](http://www.share.kurohicncr.top/Article/details/204069557794.shtml)
+- 2026-06-29 11:36 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](http://www.share.minike.top/Article/details/93875569308.shtml)
+- 2026-06-29 11:24 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](http://www.blog.minike.top/Article/details/84328277439.shtml)
+- 2026-06-29 11:44 - [违规超量投放共享自行车，哈啰公司被约谈](http://www.share.minike.top/Article/details/13623629.shtml)
+- 2026-06-29 11:33 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](http://www.share.kurohicncr.top/Article/details/362792814140.shtml)
+- 2026-06-29 11:28 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](http://www.share.kurohicncr.top/Article/details/30302311339.shtml)
+- 2026-06-29 11:45 - [帝王国际投资：清盘呈请获撤回](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [美媒：若美伊重返谈判桌 万斯将再次率团](http://www.blog.minike.top/Article/details/556101397.shtml)
+- 2026-06-29 11:32 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [乌军对克里米亚发动大规模袭击](http://www.blog.minike.top/Article/details/62723378528.shtml)
+- 2026-06-29 11:22 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.blog.kurohicncr.top/Article/details/44981910430.shtml)
+- 2026-06-29 11:37 - [对冲基金资本正重塑拥有180年历史的保险模式](http://www.share.kurohicncr.top/Article/details/77957312.shtml)
+- 2026-06-29 11:41 - [能源价格回落后 交易员下调对欧洲央行加息的押注](http://www.share.kurohicncr.top/Article/details/8428759.shtml)
+- 2026-06-29 11:34 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lisacumin64-arch)

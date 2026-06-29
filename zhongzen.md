@@ -1,56 +1,44 @@
-# 钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍
+# Revolution Medicines胰腺癌药物取得成功
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-数据是个宝数据宝投资少烦恼钠离子电池产业化迎来历史性拐点。全球最大订单落地钠电池量产能力形成在自然界，钠资源储量极其丰富，且分布广泛。钠离子电池具有资源丰富、安全性高、在极端低温或高温环境下表现优异等特点。钠离子电池材料在工作中，产热更低、电芯膨胀应力更小，安全稳定性更优；在长时储能主流应用场景中，可简化储能系统整体架构，减少辅助能耗损耗，提升电站运行效率与综合经济性。凭借这些
+Revolution Medicines表示，daraxonrasib在既往接受过治疗的胰腺癌中达到了3期临床试验终点，将中位总生存期延长一倍至13.2个月（化疗组为6.7个月），并计划寻求FDA审查。责任编辑：张俊 SF065
 
 ## 正文
 
-数据是个宝数据宝投资少烦恼钠离子电池产业化迎来历史性拐点。
+Revolution Medicines表示，daraxonrasib在既往接受过治疗的胰腺癌中达到了3期临床试验终点，将中位总生存期延长一倍至13.2个月（化疗组为6.7个月），并计划寻求FDA审查。
 
-全球最大订单落地钠电池量产能力形成在自然界，钠资源储量极其丰富，且分布广泛。
-
-钠离子电池具有资源丰富、安全性高、在极端低温或高温环境下表现优异等特点。
-
-钠离子电池材料在工作中，产热更低、电芯膨胀应力更小，安全稳定性更优；在长时储能主流应用场景中，可简化储能系统整体架构，减少辅助能耗损耗，提升电站运行效率与综合经济性。
-
-凭借这些优势，钠离子电池在储能和中低端动力领域具有广阔应用前景。
-
-宁德时代近日发布消息称，公司与海博思创签署储能钠离子电池战略合作协议，达成3年60GWh（吉瓦时）钠离子电池订单合作。
-
-此次合作标志着宁德时代已攻克钠离子电池量产全链条难题，具备规模化交付能力，这是全球迄今规模最大的钠离子电池订单，开启全球钠电产业规模化爆发新阶段。
-
-华北电力大学能源动力与机械工程学院材料科学与工程教研室副教授王舒玮表示，此次60GWh订单的落地，标志着钠离子电池从实验室“参数竞赛”迈入工程化规模验证的新阶段，这将倒逼上游材料和设备工艺加速成熟，推动产业从政策驱动转向市场驱动。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 11:41 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:25 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:29 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:40 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:18 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 11:46 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 11:22 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:34 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:35 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:35 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:32 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:40 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:44 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:35 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 11:25 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:30 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:47 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:39 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:27 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:20 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:25 - [“金融国家队”为何选中了他们](http://www.blog.minike.top/Article/details/921443695.shtml)
-- 2026-06-29 11:39 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.share.minike.top/Article/details/2393106.shtml)
-- 2026-06-29 11:43 - [“五一”假期首日广东水上出行迎来客流高峰](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:46 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.blog.kurohicncr.top/Article/details/71823979359.shtml)
-- 2026-06-29 11:34 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.minike.top/Article/details/58744849078.shtml)
-- 2026-06-29 11:47 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.blog.kurohicncr.top/Article/details/8669417.shtml)
-- 2026-06-29 11:34 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.blog.kurohicncr.top/Article/details/4031643489.shtml)
-- 2026-06-29 11:34 - [福建首个侨台档案融合展示馆开门迎客](http://www.share.minike.top/Article/details/90126295.shtml)
-- 2026-06-29 11:18 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.share.kurohicncr.top/Article/details/7852381.shtml)
-- 2026-06-29 11:26 - [巴西国家石油公司宣布航空煤油提价18%](http://www.blog.kurohicncr.top/Article/details/148992862229.shtml)
-- 2026-06-29 11:27 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.share.kurohicncr.top/Article/details/25366575.shtml)
-- 2026-06-29 11:33 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.share.minike.top/Article/details/197416.shtml)
-- 2026-06-29 11:26 - [Vulcan Materials一季度营收超预期 因建材需求强劲](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.share.kurohicncr.top/Article/details/23595828.shtml)
-- 2026-06-29 11:20 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](http://www.blog.kurohicncr.top/Article/details/410218.shtml)
+- 2026-06-29 11:20 - [西班牙首相：世界离不开中国](http://www.blog.kurohicncr.top/Article/details/93013046070.shtml)
+- 2026-06-29 11:36 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](http://www.blog.kurohicncr.top/Article/details/914841399.shtml)
+- 2026-06-29 11:29 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.blog.minike.top/Article/details/5058802258.shtml)
+- 2026-06-29 11:31 - [*ST万方面临“市值退” 4月14日开市起停牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.blog.kurohicncr.top/Article/details/372982.shtml)
+- 2026-06-29 11:35 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.blog.kurohicncr.top/Article/details/516667.shtml)
+- 2026-06-29 11:24 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.share.kurohicncr.top/Article/details/59901588.shtml)
+- 2026-06-29 11:45 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/69662288.shtml)
+- 2026-06-29 11:29 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.share.kurohicncr.top/Article/details/8142838524.shtml)
+- 2026-06-29 11:28 - [东盟学子以艺架桥 欢庆广西“三月三”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.share.kurohicncr.top/Article/details/487366771.shtml)
+- 2026-06-29 11:45 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.share.kurohicncr.top/Article/details/33159.shtml)
+- 2026-06-29 11:21 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [美国称霍尔木兹封锁首日六船折返](http://www.share.minike.top/Article/details/1124269.shtml)
+- 2026-06-29 11:26 - [浙江温州：园博园意大利馆开馆](http://www.blog.kurohicncr.top/Article/details/6655389.shtml)

@@ -1,59 +1,58 @@
-# 亚马逊AWS营收增长28%，达到376亿美元
+# 专家学者南京共商生态文明传播新路径
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-在企业对人工智能服务需求的推动下，亚马逊公司公布的云业务增长强于预期，股价随之上涨。 亚马逊云服务（AWS）第一季度营收增长28%，达到376亿美元，超出华尔街预期。总净销售额增至1815亿美元。 首席执行官安迪·贾西表示，亚马逊今年将维持约2000亿美元的人工智能相关投资目标。本季度资本支出达到442亿美元，同比增长超过76%。 公司通过与OpenAI和Anthropic扩大
+中新网南京4月13日电 (刘思雨 尹申申)中国林学会生态文明传播分会成立大会暨首届生态文明传播学术研讨会近日在南京林业大学举行，来自全国高校、科研院所、主流媒体的专家学者齐聚南京，共商生态文明传播新路径。南京林业大学校长勇强在致辞中表示，申请设立中国林学会生态文明传播分会，是南京林业大学积极服务国家生态文明建设、自觉践行农林高校使命担当的重要举措。学校将持续为分会建设提供有力支
 
 ## 正文
 
-在企业对人工智能服务需求的推动下，亚马逊公司公布的云业务增长强于预期，股价随之上涨。
+中新网南京4月13日电 (刘思雨 尹申申)中国林学会生态文明传播分会成立大会暨首届生态文明传播学术研讨会近日在南京林业大学举行，来自全国高校、科研院所、主流媒体的专家学者齐聚南京，共商生态文明传播新路径。
 
-亚马逊云服务（AWS）第一季度营收增长28%，达到376亿美元，超出华尔街预期。
+南京林业大学校长勇强在致辞中表示，申请设立中国林学会生态文明传播分会，是南京林业大学积极服务国家生态文明建设、自觉践行农林高校使命担当的重要举措。
 
-总净销售额增至1815亿美元。
+学校将持续为分会建设提供有力支持，推动其在智库研究、学术交流、人才培养与科学普及等方面系统开展各项工作，努力将其建设成为生态文明传播领域的高水平阵地。
 
-首席执行官安迪·贾西表示，亚马逊今年将维持约2000亿美元的人工智能相关投资目标。
+中国林学会副秘书长曾祥谓指出，成立该分会是学会顺应发展趋势、服务国家生态文明建设大局的重要战略举措，旨在搭建跨域协同创新平台，推动理论与实践深度融合。
 
-本季度资本支出达到442亿美元，同比增长超过76%。
+希望分会依托南京林业大学的学科优势，凝聚领域专家，深耕学术研究、传播实践、人才培养与国际合作，打造一流传播高地，助力提升中国全球生态治理话语权。
 
-公司通过与OpenAI和Anthropic扩大合作伙伴关系，强化了其在人工智能领域的地位。
+大会选举产生了第一届委员会，南京林业大学副校长张晓琴当选首届主任委员。
 
-亚马逊最近在AWS上提供了OpenAI模型，并同意向Anthropic投资至多250亿美元，后者承诺在10年内向AWS投入超过1000亿美元。
+她表示，分会将坚持“学术立会、服务兴会、科普惠民、开放合作、规范办会”的工作方向，努力建设成为服务国家战略的智库、学术创新的前沿、人才培养的平台和行业传播的推动力量。
 
-广告业务仍是另一个亮点，营收增长24%，达到172亿美元。
+主旨报告环节，与会嘉宾分别从媒介实践、理论创新等维度分享了关于生态文明传播的前沿思考。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:45 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:29 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:23 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:39 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:36 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:23 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:27 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:39 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:37 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:35 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:31 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:27 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 11:20 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:45 - [中天策略:4月14日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:37 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:20 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:34 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:19 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:35 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:32 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:36 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:19 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:31 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:39 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [美国得克萨斯州发生枪击事件 致2死10伤](http://www.blog.minike.top/Article/details/74223707.shtml)
-- 2026-06-29 11:36 - [一杯清香里的世界连接：青花汾酒走进全球投资者的感官与记忆](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](http://www.share.minike.top/Article/details/2463002811.shtml)
-- 2026-06-29 11:45 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.blog.kurohicncr.top/Article/details/686468397255.shtml)
-- 2026-06-29 11:28 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](http://www.blog.minike.top/Article/details/52961310.shtml)
-- 2026-06-29 11:41 - [漳汕高铁广东段山家特大桥首梁架设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:24 - [“金融国家队”为何选中了他们](http://www.share.minike.top/Article/details/26697807.shtml)
-- 2026-06-29 11:22 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.share.minike.top/Article/details/7847046.shtml)
-- 2026-06-29 11:34 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.share.kurohicncr.top/Article/details/21681114977.shtml)
-- 2026-06-29 11:24 - [关于开展2026年企业ESG实践成果展示活动的通知](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.minike.top/Article/details/8009795.shtml)
-- 2026-06-29 11:34 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.blog.minike.top/Article/details/59610.shtml)
-- 2026-06-29 11:46 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.share.minike.top/Article/details/229176997500.shtml)
-- 2026-06-29 11:28 - [福建首个侨台档案融合展示馆开门迎客](http://www.blog.kurohicncr.top/Article/details/43218087591.shtml)
-- 2026-06-29 11:26 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [中国科大先研院孵化科技企业362家 成果转化走上“快车道”](http://www.share.minike.top/Article/details/933552026.shtml)
+- 2026-06-29 11:43 - [王沪宁会见越共中央总书记、国家主席苏林](http://www.blog.minike.top/Article/details/7687969.shtml)
+- 2026-06-29 11:21 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](http://www.share.minike.top/Article/details/7175301739.shtml)
+- 2026-06-29 11:27 - [修好政德才能出好政绩（思想纵横）](http://www.blog.minike.top/Article/details/97186819764.shtml)
+- 2026-06-29 11:21 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.blog.kurohicncr.top/Article/details/71494339.shtml)
+- 2026-06-29 11:46 - [西班牙首相：世界离不开中国](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:22 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.blog.minike.top/Article/details/35958496004.shtml)
+- 2026-06-29 11:26 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.share.kurohicncr.top/Article/details/9432055846.shtml)
+- 2026-06-29 11:48 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.share.kurohicncr.top/Article/details/01160.shtml)
+- 2026-06-29 11:33 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.share.kurohicncr.top/Article/details/061456.shtml)
+- 2026-06-29 11:47 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.blog.minike.top/Article/details/14919467324.shtml)
+- 2026-06-29 11:42 - [英国石油称其石油交易业务表现“异常出色”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](https://github.com/lisacumin64-arch)

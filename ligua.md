@@ -1,48 +1,59 @@
-# 三星电子任命新的视觉显示业务负责人
+# 五一视界早盘涨逾6% 日前获创始人增持765万股
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-韩国三星电子周一宣布了一项领导层调整，任命新的视觉显示业务负责人以应对当前挑战。 此次调整后，原全球营销办公室负责人Lee Won-jin，将正式出任该业务部门负责人。 三星在一份声明中表示：“凭借其过往的商业成就和市场洞察力，Lee Won-jin，有望带领团队扭转业务颓势，发掘新的增长点，从而进一步提升视觉显示业务的竞争力。”责任编辑：于健 SF069
+五一视界（06651）连续第二个交易日大涨，今早再一度涨近17%，昨日收涨超28%。截至发稿，股价上涨5.72%，现报51.40港元，成交额6.12亿港元。 4月13日，五一视界创始人通过ESOP计划增持765万股公司股份，约占总股本1.8%。根据公司招股书披露，在2030年千亿市值目标达成前，创始人年度薪酬被限定在51万港元以内，公司市值达到1000亿时方可解锁股权激励（约占
 
 ## 正文
 
-韩国三星电子周一宣布了一项领导层调整，任命新的视觉显示业务负责人以应对当前挑战。
+五一视界（06651）连续第二个交易日大涨，今早再一度涨近17%，昨日收涨超28%。
 
-此次调整后，原全球营销办公室负责人Lee Won-jin，将正式出任该业务部门负责人。
+截至发稿，股价上涨5.72%，现报51.40港元，成交额6.12亿港元。
 
-三星在一份声明中表示：“凭借其过往的商业成就和市场洞察力，Lee Won-jin，有望带领团队扭转业务颓势，发掘新的增长点，从而进一步提升视觉显示业务的竞争力。
+4月13日，五一视界创始人通过ESOP计划增持765万股公司股份，约占总股本1.8%。
 
-”责任编辑：于健 SF069
+根据公司招股书披露，在2030年千亿市值目标达成前，创始人年度薪酬被限定在51万港元以内，公司市值达到1000亿时方可解锁股权激励（约占总股本10%）。
+
+值得一提的是，五一视界此前发布全球首款“物理直觉”世界模型51World Model，并同时发布专为具身智能打造的Agent底座系统——51Claw，将51World Model与OpenClaw融合，帮助AI进入物理世界。
+
+目前，51World Model已覆盖智能驾驶、具身机器人、低空经济、数字工厂、智慧基建、应急防灾六大物理AI应用场景，提供API接口与SDK接入服务。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:43 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:46 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:43 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:39 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:26 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 11:40 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 11:21 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:28 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:33 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:44 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:44 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:44 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:36 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 11:39 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 11:43 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 11:32 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:19 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:47 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:24 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 11:32 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 11:22 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:46 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:26 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 11:20 - [对冲基金资本正重塑拥有180年历史的保险模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.blog.minike.top/Article/details/126333936858.shtml)
-- 2026-06-29 11:25 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](http://www.blog.kurohicncr.top/Article/details/75387.shtml)
-- 2026-06-29 11:44 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](http://www.share.minike.top/Article/details/932375273.shtml)
-- 2026-06-29 11:37 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.share.kurohicncr.top/Article/details/47398.shtml)
-- 2026-06-29 11:42 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.blog.minike.top/Article/details/8944973146.shtml)
-- 2026-06-29 11:25 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.blog.kurohicncr.top/Article/details/27029354.shtml)
-- 2026-06-29 11:19 - [学习新语｜幸福属于劳动者](http://www.share.minike.top/Article/details/161279059816.shtml)
-- 2026-06-29 11:20 - [刚刚，全线大涨！日本，突然动手了！](http://www.share.minike.top/Article/details/1278047.shtml)
-- 2026-06-29 11:33 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.blog.minike.top/Article/details/393342.shtml)
-- 2026-06-29 11:27 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.share.minike.top/Article/details/58256502.shtml)
-- 2026-06-29 11:31 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](http://www.blog.minike.top/Article/details/69803336815.shtml)
-- 2026-06-29 11:43 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.blog.minike.top/Article/details/233148631189.shtml)
+- 2026-06-29 11:21 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [Revolution Medicines胰腺癌药物取得成功](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.share.kurohicncr.top/Article/details/41274.shtml)
+- 2026-06-29 11:22 - [中天策略:4月14日市场分析](http://www.share.minike.top/Article/details/9351035610.shtml)
+- 2026-06-29 11:36 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](http://www.share.kurohicncr.top/Article/details/1319964.shtml)
+- 2026-06-29 11:35 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.share.kurohicncr.top/Article/details/4593538.shtml)
+- 2026-06-29 11:25 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](http://www.blog.minike.top/Article/details/1317484.shtml)
+- 2026-06-29 11:27 - [今年以来地方债发行节奏提速](http://www.share.minike.top/Article/details/42164.shtml)
+- 2026-06-29 11:31 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.blog.kurohicncr.top/Article/details/229338919.shtml)
+- 2026-06-29 11:39 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.blog.kurohicncr.top/Article/details/371091422712.shtml)
+- 2026-06-29 11:32 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.share.kurohicncr.top/Article/details/8586413.shtml)
+- 2026-06-29 11:39 - [马斯克的SpaceX新数据：星链成绝对核心](http://www.blog.minike.top/Article/details/622534777031.shtml)
+- 2026-06-29 11:31 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.share.minike.top/Article/details/9875286.shtml)
+- 2026-06-29 11:35 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.kurohicncr.top/Article/details/059447.shtml)
+- 2026-06-29 11:19 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](http://www.blog.minike.top/Article/details/014625568961.shtml)

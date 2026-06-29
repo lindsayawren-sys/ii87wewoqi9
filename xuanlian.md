@@ -1,47 +1,58 @@
-# 港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%
+# 海泰发展财务造假被罚，投资者索赔条件更新
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-5月4日消息，港股涨幅进一步扩大，恒生指数涨超2%，恒生科技指数涨超3%重回5000点。恒指成分股中，小米涨超6%，百度涨超5%，中芯国际、舜宇光学科技、美团、药明生物涨4%，快手、网易、阿里巴巴、理想汽车等涨超3%。 责任编辑：郝欣煜
+一、财务造假领处罚 4月11日，海泰发展（维权）（600082）发布公告，公司于2026年4月10日收到中国证监会天津监管局的《行政处罚事先告知书》。 因2021年及2022年年报存在虚假记载，公司股票将被实施其他风险警示。公司股票于4月13日停牌一天，4月14日复牌，复牌后股票简称变更为“ST海泰”。 上海沪紫律师事务所刘鹏律师表示上市公司的年报以及财报是投资者投资的一个评判
 
 ## 正文
 
-5月4日消息，港股涨幅进一步扩大，恒生指数涨超2%，恒生科技指数涨超3%重回5000点。
+一、财务造假领处罚 4月11日，海泰发展（维权）（600082）发布公告，公司于2026年4月10日收到中国证监会天津监管局的《行政处罚事先告知书》。
 
-恒指成分股中，小米涨超6%，百度涨超5%，中芯国际、舜宇光学科技、美团、药明生物涨4%，快手、网易、阿里巴巴、理想汽车等涨超3%。
+因2021年及2022年年报存在虚假记载，公司股票将被实施其他风险警示。
 
-责任编辑：郝欣煜
+公司股票于4月13日停牌一天，4月14日复牌，复牌后股票简称变更为“ST海泰”。
+
+上海沪紫律师事务所刘鹏律师表示上市公司的年报以及财报是投资者投资的一个评判标准，如上市公司在财报中出现差错，那么很大可能会对投资者的决策产生误导而造成投资损失。
+
+（刘鹏律师专栏） 中国证监会历来秉持“零容忍”原则，致力于维护市场秩序和保护广大投资者的合法权益。
+
+在此背景下，受损投资者应积极采取行动，维护自身权益。
+
+二、投资者维权要求 经查明，2021 年至 2022 年，海泰发展作为中间商参与由下游公司主导的棉花贸易业务，未能有效识别该类业务合同、单据和资金形成闭环，相关商品的风险、报酬未实质性转移，不应确认相应的营业收入、营业成本及利润。
+
+最终导致2021年年报、2022年年报存在虚假记载。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
-- 2026-06-29 11:46 - [海南商业航天重点项目加速建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:35 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:35 - [美官员：美军“福特”号航母已离开中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:30 - [水利部滚动会商部署“五一”假期期间防汛工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 11:20 - [孟加拉国外交部长卡利勒将访华](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:47 - [巴菲特深度伪造视频，带来一场出人意料的AI风险警示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:20 - [陆岛相连20载 浙南“孤岛”化身“海上花园”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:21 - [网信部门严管“自媒体”未规范标注信息来源行为](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:44 - [从“贸易出海”到“体系出海” 中企借广交会拓全球生态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 11:45 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:44 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:37 - [谷歌最新Gemini升级预示更大规模的机器人布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:33 - [上交所就龙元建设相关事项下发监管工作函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:40 - [王毅同巴基斯坦副总理兼外长达尔通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:42 - [五日股价大涨45%，张小泉澄清公司与光模块、PCB无关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 11:24 - [两面针：公司目前已布局并推出电动牙刷产品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:27 - [新婚俗 新风尚丨“幸福公交”迎亲，婚事“轻装上阵”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:44 - [A股指数收红！锂矿板块午后放量拉升！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 11:35 - [日本邮船采用3D技术设计建造新一代CTV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:19 - [400辆网约车百余次故障？电动汽车质量纠纷该找谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:42 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 11:46 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:26 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.share.kurohicncr.top/Article/details/59002773120.shtml)
-- 2026-06-29 11:33 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.blog.minike.top/Article/details/4072818.shtml)
-- 2026-06-29 11:43 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](http://www.blog.minike.top/Article/details/494554.shtml)
-- 2026-06-29 11:26 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:44 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](http://www.blog.minike.top/Article/details/61054512.shtml)
-- 2026-06-29 11:41 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](http://www.share.minike.top/Article/details/955196768.shtml)
-- 2026-06-29 11:47 - [台湾宜兰县海域发生6.1级地震](http://www.blog.minike.top/Article/details/95025.shtml)
-- 2026-06-29 11:47 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](http://www.blog.minike.top/Article/details/889500036271.shtml)
-- 2026-06-29 11:34 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [广交会观察：全球采购商寻“鲜”中国美食](http://www.blog.minike.top/Article/details/878212.shtml)
-- 2026-06-29 11:31 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](http://www.share.kurohicncr.top/Article/details/517318024921.shtml)
-- 2026-06-29 11:47 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](http://www.share.minike.top/Article/details/9679915.shtml)
+- 2026-06-29 11:44 - [高市再提修宪 引发日本民众广泛反对](http://www.share.kurohicncr.top/Article/details/758211.shtml)
+- 2026-06-29 11:35 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](http://www.blog.minike.top/Article/details/41093.shtml)
+- 2026-06-29 11:25 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](http://www.share.kurohicncr.top/Article/details/52393894.shtml)
+- 2026-06-29 11:45 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](http://www.blog.minike.top/Article/details/935608166.shtml)
+- 2026-06-29 11:22 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](http://www.share.minike.top/Article/details/4284370.shtml)
+- 2026-06-29 11:32 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](http://www.blog.minike.top/Article/details/331662.shtml)
+- 2026-06-29 11:34 - [违规超量投放共享自行车，哈啰公司被约谈](http://www.blog.kurohicncr.top/Article/details/076700250.shtml)
+- 2026-06-29 11:41 - [5年亏超120亿，“胖改”难救永辉超市](http://www.blog.minike.top/Article/details/1614943299.shtml)
+- 2026-06-29 11:20 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](http://www.blog.minike.top/Article/details/70597.shtml)
+- 2026-06-29 11:37 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](http://www.blog.kurohicncr.top/Article/details/66483.shtml)
+- 2026-06-29 11:48 - [帝王国际投资：清盘呈请获撤回](http://www.blog.minike.top/Article/details/769058.shtml)
+- 2026-06-29 11:23 - [美媒：若美伊重返谈判桌 万斯将再次率团](http://www.blog.minike.top/Article/details/843305.shtml)
+- 2026-06-29 11:24 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](http://www.blog.minike.top/Article/details/343737432952.shtml)
+- 2026-06-29 11:40 - [乌军对克里米亚发动大规模袭击](http://www.share.minike.top/Article/details/03362070.shtml)
+- 2026-06-29 11:45 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](http://www.blog.kurohicncr.top/Article/details/406093.shtml)

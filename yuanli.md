@@ -1,57 +1,61 @@
-# 福建海域进入海洋伏季休渔期
+# 中信建投期货：4月14日黑色系早报
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网福州5月1日电 (记者 闫旭)5月1日12时起，福建海域进入海洋伏季休渔期，最长休渔时间4个月半，全省共10600多艘渔船参与伏休。 为维护海上正常渔业生产秩序，确保休渔制度顺利实施，4月30日，福建省海洋与渔业执法总队在特勤执法支队基地码头启动2026年度海洋伏季休渔海上联合执法行动。9艘执法船艇汽笛齐鸣、编队起航，执法人员整装就位、奔赴任务海域开展执法检查。 据悉，本
+钢材早报：成本端扰动继续，期钢震荡运行 市场信息： 1、 美国军方正式在霍尔木兹海峡实施封锁，任何未经授权进入或离开封锁区域的船只都可能被拦截、改道和扣押。 2、 巴基斯坦、埃及和土耳其将在未来几天继续与美国和伊朗进行会谈，以弥合分歧，推动达成结束战争的协议。据俄新社13日援引美国《大西洋》月刊报道，美国和伊朗之间的下一轮“直接谈判”可能于16日在巴基斯坦首都伊斯兰堡举行。 3
 
 ## 正文
 
-中新网福州5月1日电 (记者 闫旭)5月1日12时起，福建海域进入海洋伏季休渔期，最长休渔时间4个月半，全省共10600多艘渔船参与伏休。
+钢材早报：成本端扰动继续，期钢震荡运行 市场信息： 1、 美国军方正式在霍尔木兹海峡实施封锁，任何未经授权进入或离开封锁区域的船只都可能被拦截、改道和扣押。
 
-为维护海上正常渔业生产秩序，确保休渔制度顺利实施，4月30日，福建省海洋与渔业执法总队在特勤执法支队基地码头启动2026年度海洋伏季休渔海上联合执法行动。
+2、 巴基斯坦、埃及和土耳其将在未来几天继续与美国和伊朗进行会谈，以弥合分歧，推动达成结束战争的协议。
 
-9艘执法船艇汽笛齐鸣、编队起航，执法人员整装就位、奔赴任务海域开展执法检查。
+据俄新社13日援引美国《大西洋》月刊报道，美国和伊朗之间的下一轮“直接谈判”可能于16日在巴基斯坦首都伊斯兰堡举行。
 
-据悉，本次行动为期3天，将坚持“高压、严管、全覆盖”的态势，海上与陆上同步发力，紧盯异地伏休渔船、异地修造渔船、大马力涉渔快艇、活鱼运输船、资源调查船、专项(特许)捕捞渔船、往年违反伏休规定渔船，以及伏休期过户渔船等重点对象，严查应休未休等违反伏季休渔规定出海作业渔船，严厉打击涉渔“三无”船舶，乡镇船舶从事非法捕捞等违法违规行为，坚决筑牢海洋伏季休渔执法监管防线。
+3、 4月13日，全国主港铁矿石成交72.30万吨，环比减25.2%；237家主流贸易商建筑钢材成交12.11万吨，环比增7.7%。
 
-连日来，福建省各级海洋与渔业执法机构广泛开展伏季休渔法规宣传，全方位部署休渔执法监管工作，全力保障2026年伏季休渔开局秩序稳定。
+4、 4 月 9 日焦炭价格偏强运行，内蒙地区个别焦企对焦炭价格提出第二轮上涨，主流焦钢企业暂未回应。
 
-据福建省海洋与渔业执法总队相关负责人介绍，下一步将派出6个伏休督导组，分别奔赴沿海各设区市、平潭综合实验区，压实属地责任，督导推进各项执法监管任务，为推动福建海洋渔业绿色可持续发展、建设更高水平的“海上福建”作出新的更大贡献。
+5、 上周，247 家钢厂高炉开工率83.2%，环比增加0.13 个百分点；钢厂盈利率48.05%，环比持平。
 
-(完)
+6、 上周，五大钢材品种供应858.48万吨，周环比增6.97万吨，增幅为0.8%；总库存1812.92万吨，周环比降37.53万吨，降幅为2.0%；表观消费量为896.01万吨，环比降0.3%，其中，建材消费增0.1%，板材消费降0.5%。
+
+（楚新莉 期货交易咨询从业信息：Z0018419，仅供参考） 螺纹钢： 产业数据方面，上周螺纹钢产量继续增加，累计增加8.49万吨。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [劳动者宋春胜：千家万户的“安全阀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:33 - [成都宽窄巷子景区游人如织](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 11:30 - [美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:30 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:20 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:21 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 11:29 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:33 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:20 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 11:29 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:37 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:29 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:22 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:45 - [赢家时尚：受托人根据股份奖励计划购买合共92.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 11:33 - [涨超六成！环氧丙烷价格快速走高 多股业绩有望翻倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 11:32 - [贝森特：关税水平或在7月初前恢复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:29 - [重磅数据本周发布，中国经济有望迎“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 11:27 - [土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 11:28 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:35 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 11:24 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:22 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:21 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 11:23 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:48 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:29 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:33 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 11:33 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:36 - [特朗普抨击国会限制其战争权力的举动](http://www.share.kurohicncr.top/Article/details/7131133545.shtml)
-- 2026-06-29 11:39 - [浙江杭州：民众走“运”度假期](http://www.blog.minike.top/Article/details/2139936.shtml)
-- 2026-06-29 11:37 - [天津国际邮轮母港单日出入境旅客创年内新高](http://www.blog.minike.top/Article/details/4292011.shtml)
-- 2026-06-29 11:38 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.share.minike.top/Article/details/29135.shtml)
-- 2026-06-29 11:33 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](http://www.blog.minike.top/Article/details/2563330254.shtml)
-- 2026-06-29 11:45 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](http://www.share.kurohicncr.top/Article/details/62401706334.shtml)
-- 2026-06-29 11:46 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](http://www.blog.kurohicncr.top/Article/details/525257473.shtml)
-- 2026-06-29 11:18 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.minike.top/Article/details/36811033.shtml)
-- 2026-06-29 11:19 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.share.minike.top/Article/details/5124243529.shtml)
-- 2026-06-29 11:30 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.blog.kurohicncr.top/Article/details/6289658.shtml)
-- 2026-06-29 11:34 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.share.kurohicncr.top/Article/details/93144957873.shtml)
-- 2026-06-29 11:41 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:26 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](http://www.blog.minike.top/Article/details/1148850624.shtml)
+- 2026-06-29 11:36 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](http://www.share.kurohicncr.top/Article/details/5843678440.shtml)
+- 2026-06-29 11:27 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](http://www.share.kurohicncr.top/Article/details/37806705.shtml)
+- 2026-06-29 11:26 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](http://www.blog.minike.top/Article/details/91620914082.shtml)
+- 2026-06-29 11:28 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [天风策略：特朗普TACO了吗？](http://www.share.minike.top/Article/details/6403696601.shtml)
+- 2026-06-29 11:31 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](http://www.share.minike.top/Article/details/199873.shtml)
+- 2026-06-29 11:29 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:39 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.share.kurohicncr.top/Article/details/10845609491.shtml)
+- 2026-06-29 11:48 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.minike.top/Article/details/7022853.shtml)
+- 2026-06-29 11:44 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.share.kurohicncr.top/Article/details/1982595565.shtml)
+- 2026-06-29 11:35 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.blog.kurohicncr.top/Article/details/1508327993.shtml)
+- 2026-06-29 11:40 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](http://www.blog.minike.top/Article/details/76356901569.shtml)

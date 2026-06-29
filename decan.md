@@ -1,57 +1,54 @@
-# 中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒
+# 中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网巴黎5月1日电 中国驻法使领馆当地时间4月30日发布领事提醒，呼吁防范冒充中国驻外使领馆的工作人员进行电信网络诈骗。 该领事提醒说，一段时间以来，冒充中国驻外使领馆工作人员进行电信网络诈骗的案件多发，不法分子一般以要求当事人前往使领馆“领取文件”为由通知其“涉案”，继而将电话转接至所谓“国内公检法机关”，对当事人进行精神控制，最后以“缴纳保证金”或“将资金转移至‘安全账户
+中船防务（00317）发盈喜后高开逾8%，截至发稿，股价上涨4.97%，现报14.36港元，成交额2657.55万港元。 4月13日，中船防务发布公告，公司预计2026年第一季度实现归属于母公司所有者的净利润人民币3.6亿元至4.3亿元，同比增加95.16%至133.11%。 预计2026年第一季度实现归属于母公司所有者的扣除非经常性损益的净利润人民币3.3亿元至3.9亿元，同
 
 ## 正文
 
-中新网巴黎5月1日电 中国驻法使领馆当地时间4月30日发布领事提醒，呼吁防范冒充中国驻外使领馆的工作人员进行电信网络诈骗。
+中船防务（00317）发盈喜后高开逾8%，截至发稿，股价上涨4.97%，现报14.36港元，成交额2657.55万港元。
 
-该领事提醒说，一段时间以来，冒充中国驻外使领馆工作人员进行电信网络诈骗的案件多发，不法分子一般以要求当事人前往使领馆“领取文件”为由通知其“涉案”，继而将电话转接至所谓“国内公检法机关”，对当事人进行精神控制，最后以“缴纳保证金”或“将资金转移至‘安全账户’”等为由实施诈骗。
+4月13日，中船防务发布公告，公司预计2026年第一季度实现归属于母公司所有者的净利润人民币3.6亿元至4.3亿元，同比增加95.16%至133.11%。
 
-中国驻法国使领馆再次提醒广大在法中国公民特别是旅法留学生，凡是出现以下情况均为诈骗： 一是以驻外使领馆或国内公检法机关名义来电通知您涉案；二是在视频中向您展示办公场所、您或家人的身份证件以及所谓“警官证”“公函”“法院判决书”等材料； 三是要求您下载特定软件或APP，并要求定期进行安全汇报； 四是要求您卸载微博、小红书等软件，并以案件涉密为由要求您切断亲属、家人联系； 五是以注销护照、户籍和强制执行等为威胁，要求您即刻回国或前往第三国； 六是以“缴纳保证金”或“将资金转移至‘安全账户’”等各种理由要求您转账汇款，并“承诺”相关款项将在结案后退还。
+预计2026年第一季度实现归属于母公司所有者的扣除非经常性损益的净利润人民币3.3亿元至3.9亿元，同比增加85.44%至119.16%。
 
-中国驻法使领馆在提醒中再次强调，网络空间鱼龙混杂，信息核实难度大，耳听和眼见均不一定为实。
+报告期内，公司把握船舶行业发展机遇，订单承接态势良好，产品结构不断优化；持续深化精益生产管理，主建船型建造周期进一步压降，推动营业收入稳步增长，产品毛利同比增加；公司联营企业经营业绩显著提升，确认投资收益同比大幅增加。
 
-接到此类电话，请大家勿紧张、勿轻信、勿转账，直接挂断即可。
-
-外交部全球领事保护与服务应急热线(24小时)：+86-10-12308或+86-10-65612308 中国驻法国大使馆领事保护与协助电话：+33-153758840 中国驻马赛总领馆领事保护与协助电话：+33-491320019 中国驻斯特拉斯堡总领馆领事保护与协助电话：+33-609994464 中国驻里昂总领馆领事保护与协助电话：+33-785620931 中国驻圣但尼总领馆领事保护与协助电话：+262-693925807 中国驻帕皮提领事馆领事保护与协助电话：+689-87295620(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 11:28 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 11:34 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:25 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:37 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:43 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 11:22 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:20 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:47 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:18 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 11:32 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:31 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:34 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 11:20 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:42 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:29 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:29 - [美国对伊朗海上交通封锁13日生效](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:24 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 11:21 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 11:47 - [跨越四百年 西班牙首相感叹：中国依旧伟大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:35 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:20 - [涉案3000万元 非法集资瞄准“银发旅游团”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:32 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:19 - [长安期货：美伊和谈暂无成果 关注CPI数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:28 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:26 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:37 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 11:29 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:42 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:35 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [首次突破12万亿元！A股“出海王”揭晓（附名单）](http://www.blog.minike.top/Article/details/026299944.shtml)
-- 2026-06-29 11:36 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.share.kurohicncr.top/Article/details/58307454.shtml)
-- 2026-06-29 11:21 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [河南洛阳：户外露营成“五一”假期新选择](http://www.share.minike.top/Article/details/18410.shtml)
-- 2026-06-29 11:33 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.share.minike.top/Article/details/976713.shtml)
-- 2026-06-29 11:45 - [中国医生完成尼日尔首例鼓室成形术](http://www.share.kurohicncr.top/Article/details/563651731.shtml)
-- 2026-06-29 11:20 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.blog.kurohicncr.top/Article/details/34424.shtml)
-- 2026-06-29 11:34 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.blog.minike.top/Article/details/05630122123.shtml)
-- 2026-06-29 11:19 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.share.kurohicncr.top/Article/details/72552400721.shtml)
-- 2026-06-29 11:38 - [吉尔登服饰营收攀升](http://www.share.minike.top/Article/details/320865256.shtml)
-- 2026-06-29 11:25 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.share.kurohicncr.top/Article/details/83425275039.shtml)
-- 2026-06-29 11:41 - [阿贝尔重申伯克希尔核心原则](http://www.blog.minike.top/Article/details/0933407844.shtml)
-- 2026-06-29 11:47 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](http://www.share.minike.top/Article/details/338896.shtml)
-- 2026-06-29 11:37 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](http://www.blog.kurohicncr.top/Article/details/5553613.shtml)
+- 2026-06-29 11:46 - [Anthropic联合创始人：正与特朗普政府讨论下一个人工智能模型](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.blog.kurohicncr.top/Article/details/06807789822.shtml)
+- 2026-06-29 11:40 - [巴基斯坦防长称美伊谈判将很快重启](http://www.share.kurohicncr.top/Article/details/590440.shtml)
+- 2026-06-29 11:37 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](http://www.share.minike.top/Article/details/18785956627.shtml)
+- 2026-06-29 11:43 - [依必安派特亮相2026中国制冷展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [央行发布2026年一季度金融统计数据报告](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](http://www.blog.minike.top/Article/details/76793.shtml)
+- 2026-06-29 11:27 - [中方：愿同匈牙利新一届政府加强高层交往](http://www.blog.minike.top/Article/details/531988980.shtml)
+- 2026-06-29 11:34 - [大商所发布《服务实体经济白皮书（2025）》](http://www.share.kurohicncr.top/Article/details/232937.shtml)
+- 2026-06-29 11:31 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](http://www.blog.minike.top/Article/details/47859952154.shtml)
+- 2026-06-29 11:22 - [商务部、中国进出口银行：加大进出口信贷支持力度](http://www.share.kurohicncr.top/Article/details/534004312.shtml)
+- 2026-06-29 11:45 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](http://www.share.kurohicncr.top/Article/details/772387892.shtml)
+- 2026-06-29 11:43 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](http://www.share.kurohicncr.top/Article/details/66434.shtml)

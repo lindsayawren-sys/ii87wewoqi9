@@ -1,56 +1,58 @@
-# 委内瑞拉4月石油出口创2018年来新高 委政府无自主支配收入权
+# 肖远企在澳门葡语国家（地区）保险监管研讨会上的演讲
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-委内瑞拉4月石油出口量攀升至123万桶/日，环比增长14%，创下自2018年以来的最高月度纪录。这一增长主要得益于对美国、印度和欧洲的销量显著提升。 根据航运数据和委内瑞拉国家石油公司的内部文件，美国是4月委内瑞拉石油的最大出口目的地，直接出口量达44.5万桶/日，高于3月的36.3万桶/日。对印度出口量增至37.4万桶/日，对欧洲出口量升至约16.5万桶/日。 雪佛龙公司在此
+登录新浪财经APP 搜索【信披】查看更多考评等级 很高兴参加这次研讨会。下面围绕研讨会主题“国际现代金融监管的挑战与应对”谈几点看法，供大家参考。 第一、关于国际金融监管规则等效性 二战后形成的布雷顿森林体系至巴塞尔协议Ⅲ的演进，本质上是全球金融监管从碎片化走向一致性的历史进程。通过标准和原则的引导，执行评估的约束，以及跨境监管合作的加强，全球金融监管在不同国家和地区的等效实现
 
 ## 正文
 
-委内瑞拉4月石油出口量攀升至123万桶/日，环比增长14%，创下自2018年以来的最高月度纪录。
+登录新浪财经APP 搜索【信披】查看更多考评等级 很高兴参加这次研讨会。
 
-这一增长主要得益于对美国、印度和欧洲的销量显著提升。
+下面围绕研讨会主题“国际现代金融监管的挑战与应对”谈几点看法，供大家参考。
 
-根据航运数据和委内瑞拉国家石油公司的内部文件，美国是4月委内瑞拉石油的最大出口目的地，直接出口量达44.5万桶/日，高于3月的36.3万桶/日。
+第一、关于国际金融监管规则等效性 二战后形成的布雷顿森林体系至巴塞尔协议Ⅲ的演进，本质上是全球金融监管从碎片化走向一致性的历史进程。
 
-对印度出口量增至37.4万桶/日，对欧洲出口量升至约16.5万桶/日。
+通过标准和原则的引导，执行评估的约束，以及跨境监管合作的加强，全球金融监管在不同国家和地区的等效实现取得较大进展，对维护全球金融稳定效果明显。
 
-雪佛龙公司在此轮复苏中扮演了重要角色，其负责的出口量从3月的26.7万桶/日攀升至4月的30.8万桶/日，占该国总出口量的25%。
+但当前国际监管框架已出现结构性裂痕，根据巴塞尔银行监管委员会发布的巴塞尔协议Ⅲ相关执行进展监测报告，第三支柱信息披露要求的执行偏差度最高值已创下了巴塞尔协议Ⅲ实施以来的纪录，巴塞尔协议Ⅲ面临改革以来在执行层面上的巨大挑战。
 
-此前，雪佛龙与委内瑞拉政府签署了两项关键协议，通过资产置换扩大了在奥里诺科重油带的业务布局。
+加强全球金融监管关键在于构建“核心原则+适应性调整”的双层监管架构——维护资本充足、流动性管理等核心监管标准的严肃性，同时建立监管弹性空间，允许各国实施适应性监管。
 
-贸易公司Vitol和Trafigura承运了约56%的出口量，即69.1万桶/日，印度信实工业也是主要接收方之一。
+这种制度设计既需防范监管竞次效应，又要为不同国家和地区金融结构差异保留必要的灵活性。
 
-分析人士指出，自1月美国与委内瑞拉签署供应协议并放松制裁以来，委内瑞拉持续清理库存并恢复原油产量，加之近期伊朗冲突导致全球供应收紧，增加了市场对替代原油来源的需求。
+第二、关于跨周期监管 2008年国际金融危机之后，国际上对金融跨周期监管进行了探索。
 
 ## 相关推荐
 
-- 2026-06-29 11:21 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 11:33 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:22 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:36 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:23 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:47 - [芝加哥期权交易所正裁减全球20%员工](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 11:33 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 11:18 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:28 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 11:20 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 11:25 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 11:31 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:37 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:28 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:21 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:32 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 11:35 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:28 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:35 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 11:33 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:44 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 11:20 - [苏富比向卖家提供7%利息以延后支付拍卖款项](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](http://www.share.kurohicncr.top/Article/details/69147629950.shtml)
-- 2026-06-29 11:22 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](http://www.share.minike.top/Article/details/33485.shtml)
-- 2026-06-29 11:22 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.minike.top/Article/details/655933903054.shtml)
-- 2026-06-29 11:25 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.blog.minike.top/Article/details/99416906807.shtml)
-- 2026-06-29 11:39 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.share.minike.top/Article/details/221818602.shtml)
-- 2026-06-29 11:20 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.share.kurohicncr.top/Article/details/3076639088.shtml)
-- 2026-06-29 11:28 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](http://www.share.minike.top/Article/details/73310931.shtml)
-- 2026-06-29 11:27 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](http://www.blog.kurohicncr.top/Article/details/51348692870.shtml)
-- 2026-06-29 11:35 - [王毅同美国国务卿鲁比奥通电话](http://www.blog.kurohicncr.top/Article/details/6682995.shtml)
-- 2026-06-29 11:32 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](http://www.blog.minike.top/Article/details/51019587.shtml)
-- 2026-06-29 11:34 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](http://www.blog.minike.top/Article/details/56937664.shtml)
-- 2026-06-29 11:35 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](http://www.blog.kurohicncr.top/Article/details/96096.shtml)
+- 2026-06-29 11:33 - [天风策略：特朗普TACO了吗？](http://www.blog.minike.top/Article/details/38716680.shtml)
+- 2026-06-29 11:38 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](http://www.blog.minike.top/Article/details/3160287.shtml)
+- 2026-06-29 11:33 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [冰川消退预警峰值水量 奥地利能源转型提速](http://www.share.kurohicncr.top/Article/details/83596.shtml)
+- 2026-06-29 11:32 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:37 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.blog.minike.top/Article/details/84239.shtml)
+- 2026-06-29 11:26 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.share.kurohicncr.top/Article/details/3408042.shtml)
+- 2026-06-29 11:29 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.blog.kurohicncr.top/Article/details/0502187.shtml)
+- 2026-06-29 11:40 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](http://www.share.minike.top/Article/details/36369.shtml)
+- 2026-06-29 11:37 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [辽宁营商环境的“民生温度”与“投资信心”](http://www.share.kurohicncr.top/Article/details/0619516.shtml)
+- 2026-06-29 11:23 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](http://www.share.kurohicncr.top/Article/details/22884905.shtml)
+- 2026-06-29 11:24 - [荷兰首相将与特朗普讨论阿斯麦出口限制](http://www.blog.minike.top/Article/details/130680.shtml)
+- 2026-06-29 11:45 - [特朗普重申伊朗不能拥有核武器](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](http://www.blog.kurohicncr.top/Article/details/9229613966.shtml)

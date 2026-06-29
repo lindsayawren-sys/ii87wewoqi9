@@ -1,59 +1,50 @@
-# 韩国特检组就金建希首案二审结果提出抗诉
+# 快讯：WTI原油日内大跌4.00%，现报88.37美元/桶
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新社首尔5月4日电 (记者 金旭)当地时间4日，韩国“金建希特检组”就前总统尹锡悦妻子金建希首案二审结果提出抗诉。 据韩联社报道，4月28日，在金建希首案二审中，法院认定金建希违反《资本市场法》和《特定犯罪加重处罚法》，以操纵股价和斡旋受贿罪等判处其有期徒刑4年，并处罚金5000万韩元(约合23万元人民币)。同时，法院还宣布没收其收受的一条高价项链，并追缴2000余万韩元。金
+WTI原油日内大跌4.00%，现报88.37美元/桶。 消息面上，记者当地时间4月14日获悉，美国总统特朗普在最新采访中表示，美国对伊朗的战争已经“结束”。责任编辑：朱赫楠
 
 ## 正文
 
-中新社首尔5月4日电 (记者 金旭)当地时间4日，韩国“金建希特检组”就前总统尹锡悦妻子金建希首案二审结果提出抗诉。
+WTI原油日内大跌4.00%，现报88.37美元/桶。
 
-据韩联社报道，4月28日，在金建希首案二审中，法院认定金建希违反《资本市场法》和《特定犯罪加重处罚法》，以操纵股价和斡旋受贿罪等判处其有期徒刑4年，并处罚金5000万韩元(约合23万元人民币)。
+消息面上，记者当地时间4月14日获悉，美国总统特朗普在最新采访中表示，美国对伊朗的战争已经“结束”。
 
-同时，法院还宣布没收其收受的一条高价项链，并追缴2000余万韩元。
-
-金建希方面已于4月30日对二审判决表示不服并提起上诉。
-
-2025年12月3日，韩国“金建希特检组”请求法院判处金建希有期徒刑15年，并处罚金20亿韩元。
-
-今年1月28日，金建希首案一审被判有期徒刑1年8个月。
-
-4月8日，在金建希首案二审庭审中，特检组提出判处其15年有期徒刑的量刑建议。
-
-(完)
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 11:45 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:41 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:24 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:39 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:43 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:39 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:26 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 11:35 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:27 - [广交会观察：全球采购商寻“鲜”中国美食](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:36 - [新加坡外国存款创历史新高 避险需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 11:23 - [专利悬崖倒逼制药业加速并购，2026年或成“超级并购大年”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:46 - [甲骨文加入五角大楼人工智能项目 股价飙升至盘中高点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:46 - [科技与艺术深度融合 重庆上演互动烟花戏剧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 11:43 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 11:32 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:35 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:40 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:23 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:25 - [CoreMarine与Jumbo Offshore合作开展阿根廷FLNG安装与连接项目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:37 - [中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:48 - [帝王国际投资：清盘呈请获撤回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 11:38 - [美媒：若美伊重返谈判桌 万斯将再次率团](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 11:37 - [ATFX汇市前瞻:褐皮书与PPI数据来袭 G20与原油月报本周发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:48 - [乌军对克里米亚发动大规模袭击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:38 - [协和与长轻联合启动“4816营养食疗疗法临床试验” 探索营养食疗改善慢性病新路径](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:21 - [对冲基金资本正重塑拥有180年历史的保险模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:26 - [能源价格回落后 交易员下调对欧洲央行加息的押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.kurohicncr.top/Article/details/2554525.shtml)
-- 2026-06-29 11:36 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.blog.minike.top/Article/details/2973405474.shtml)
-- 2026-06-29 11:39 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.blog.minike.top/Article/details/93423793.shtml)
-- 2026-06-29 11:40 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [一觉醒来，美国对欧洲下狠手了](http://www.share.kurohicncr.top/Article/details/34509306.shtml)
-- 2026-06-29 11:26 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [学习新语｜幸福属于劳动者](http://www.share.minike.top/Article/details/0532699.shtml)
-- 2026-06-29 11:42 - [刚刚，全线大涨！日本，突然动手了！](http://www.blog.kurohicncr.top/Article/details/48883427.shtml)
-- 2026-06-29 11:31 - [“五一”假期，中国游中国购的引力“藏不住了”](http://www.share.minike.top/Article/details/110733024089.shtml)
-- 2026-06-29 11:47 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](http://www.share.minike.top/Article/details/172156131.shtml)
-- 2026-06-29 11:22 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](http://www.blog.kurohicncr.top/Article/details/5834354953.shtml)
-- 2026-06-29 11:28 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.share.minike.top/Article/details/9900065523.shtml)
-- 2026-06-29 11:30 - [印尼Mako天然气项目稳步推进，预计2027年投产](http://www.blog.minike.top/Article/details/390872.shtml)
+- 2026-06-29 11:48 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.blog.minike.top/Article/details/367467963.shtml)
+- 2026-06-29 11:41 - [中天策略:4月14日市场分析](http://www.share.kurohicncr.top/Article/details/949542826.shtml)
+- 2026-06-29 11:27 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.share.minike.top/Article/details/930890695.shtml)
+- 2026-06-29 11:35 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](http://www.blog.kurohicncr.top/Article/details/48807.shtml)
+- 2026-06-29 11:37 - [今年以来地方债发行节奏提速](http://www.share.kurohicncr.top/Article/details/003415.shtml)
+- 2026-06-29 11:46 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.blog.kurohicncr.top/Article/details/221913.shtml)
+- 2026-06-29 11:46 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.blog.minike.top/Article/details/496596635206.shtml)
+- 2026-06-29 11:34 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.share.kurohicncr.top/Article/details/34176646.shtml)
+- 2026-06-29 11:45 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](http://www.blog.kurohicncr.top/Article/details/82079639530.shtml)
+- 2026-06-29 11:27 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](http://www.share.kurohicncr.top/Article/details/73651041.shtml)
+- 2026-06-29 11:32 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](http://www.blog.minike.top/Article/details/66404725.shtml)
+- 2026-06-29 11:30 - [钦州港海关2026年4月份“关长接待日”公告](http://www.blog.kurohicncr.top/Article/details/41019707.shtml)
+- 2026-06-29 11:20 - [双象股份：拟每10股分红2元](http://www.share.minike.top/Article/details/879150.shtml)

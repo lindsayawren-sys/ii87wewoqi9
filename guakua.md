@@ -1,58 +1,60 @@
-# 福州地铁客流连创新高
+# 郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网福州5月3日电 (记者 闫旭 通讯员 陈勤思 陈晶晶)“五一”假期，福州文旅热度飙升，人气持续爆棚。记者3日从福建省交通运输厅获悉，4月30日，福州地铁单日客运量超159.64万人次，创单日客流最高纪录，同比增长21.89%。5月1日，福州地铁单日客运量超189.35万人次，同比增长36.71%，再创单日客流最高纪录。福州市交通运输局提前对接市文化和旅游部门，梳理“五一”
+中国国民党主席郑丽文在大陆参访期间，特意点赞福建经典名菜鸡汤汆海蚌，让这道珍馐瞬间火遍两岸。 鸡汤汆海蚌 被誉为闽菜“皇后” 在福州地区传统宴席上必备这道汤菜 一碗封神 靠的不是花哨技法 一半在漳港海蚌 另一半灵魂在于 那锅熬足七八小时的“三茸鸡汤” 鲜、清、脆、嫩 一口入魂 忘不掉 天下独一份的“西施舌” 漳港 位于福州长乐的沿海 漳港海蚌是此处特有的名贵贝类品种 因其足部肌
 
 ## 正文
 
-中新网福州5月3日电 (记者 闫旭 通讯员 陈勤思 陈晶晶)“五一”假期，福州文旅热度飙升，人气持续爆棚。
+中国国民党主席郑丽文在大陆参访期间，特意点赞福建经典名菜鸡汤汆海蚌，让这道珍馐瞬间火遍两岸。
 
-记者3日从福建省交通运输厅获悉，4月30日，福州地铁单日客运量超159.64万人次，创单日客流最高纪录，同比增长21.89%。
+鸡汤汆海蚌 被誉为闽菜“皇后” 在福州地区传统宴席上必备这道汤菜 一碗封神 靠的不是花哨技法 一半在漳港海蚌 另一半灵魂在于 那锅熬足七八小时的“三茸鸡汤” 鲜、清、脆、嫩 一口入魂 忘不掉 天下独一份的“西施舌” 漳港 位于福州长乐的沿海 漳港海蚌是此处特有的名贵贝类品种 因其足部肌肉发达，细嫩、色白，如舌状 故雅称为“西施舌” 漳港海蚌肉质脆嫩 滋味甘美 在明朝时期就已被奉为宫廷贡品 2010年 漳港海蚌成功获批“国家地理标志产品” 俯身拿起一只外壳莹白的海蚌 指腹轻抚蚌壳边缘 福州文儒坊九号酒店管理有限公司董事长 郭可文说： “福州长乐漳港的滩涂， 咸淡水交汇的泥沙里，才能长出这种海蚌。
 
-5月1日，福州地铁单日客运量超189.35万人次，同比增长36.71%，再创单日客流最高纪录。
+蚌肉吸足了山海灵气， 咬着脆嫩无腥。
 
-福州市交通运输局提前对接市文化和旅游部门，梳理“五一”假期文旅主题活动清单，部署地铁运营企业加强景区、商圈、枢纽站周边地铁站的客流监测，采取多项措施强化运力保障、优化出行服务。
+” 中国饭店协会名厨委副主席、闽菜大师 陈辉介绍： “每只海蚌需现开现取肉， 挤出细如银丝的‘蚌针’， 去除内脏后切成片状，全程要快如闪电， 慢一点，鲜味就跑了。
 
-4月28日至5月5日期间，福州开展地铁、公交免费乘车活动，福州地铁所有车站进站闸机打开，乘客无需购票、检票，通过安检后直接进站乘车，畅享绿色出行。
+” 海蚌下锅汆烫不能超过3秒 上桌15秒内必吃 晚一口，直接变老！
 
-4月30日、5月5日两天，福州地铁1、2、4、5、6号线及滨海快线运营末班车延至23:30始发，全力保障夜间客流疏运。
+！
 
-节日期间，福州地铁各线路均安排2列备用列车，根据客流变化灵活加密行车班次。
+！
 
-同时，福州交通部门提前在客流管控关键站点、换乘枢纽布设铁马等隔离设施，增派工作人员开展现场客流引导、出行咨询服务，全方位保障地铁运营安全。
+陈辉还透露 他试过广东海蚌、美国海蚌‌等其它海蚌 最后做出的汤菜 都达不到漳港海蚌达到的效果 长乐海蚌资源增殖自然保护区设立已40余年 2024年6月 漳港海蚌资源增殖保护区生态司法保护基地 揭牌成立 为漳港海蚌保护再添司法保障 鸡汤汆海蚌≠鸡+蚌 作为福建省级非物质文化遗产代表性项目 鸡汤汆海蚌制作技艺的精髓 藏在“选料如选玉、吊汤似炼金”的讲究里 很多人以为：鸡汤汆海蚌=鸡+蚌 大错特错！
 
 ## 相关推荐
 
-- 2026-06-29 11:46 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 11:35 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:37 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:21 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:25 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:37 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 11:19 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:43 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:42 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:40 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:19 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:29 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:42 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:30 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:45 - [跨越四百年 西班牙首相感叹：中国依旧伟大](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:23 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:36 - [涉案3000万元 非法集资瞄准“银发旅游团”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:36 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 11:42 - [长安期货：美伊和谈暂无成果 关注CPI数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:40 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:42 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 11:42 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 11:37 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:48 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:46 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:33 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [零跑汽车4月销量破7万台创新纪录："双爆款"与"智驾普惠"共振 科技赋能开启新增长周期](http://www.blog.minike.top/Article/details/41077879.shtml)
-- 2026-06-29 11:33 - [Spirit Air股价暴跌逾70% 据报该航司准备停止运营](http://www.share.kurohicncr.top/Article/details/5531328916.shtml)
-- 2026-06-29 11:27 - [河南洛阳：户外露营成“五一”假期新选择](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [伊朗议会要员：美干涉霍尔木兹海峡“新管理制度”将被视为违反停火](http://www.blog.kurohicncr.top/Article/details/05719061309.shtml)
-- 2026-06-29 11:26 - [中国医生完成尼日尔首例鼓室成形术](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.share.kurohicncr.top/Article/details/375371.shtml)
-- 2026-06-29 11:37 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.blog.minike.top/Article/details/57151357533.shtml)
-- 2026-06-29 11:44 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.blog.minike.top/Article/details/9446944206.shtml)
-- 2026-06-29 11:37 - [吉尔登服饰营收攀升](http://www.share.minike.top/Article/details/845238.shtml)
-- 2026-06-29 11:21 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.share.kurohicncr.top/Article/details/951906512520.shtml)
-- 2026-06-29 11:44 - [阿贝尔重申伯克希尔核心原则](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:38 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:20 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.blog.minike.top/Article/details/374625.shtml)
-- 2026-06-29 11:32 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [重庆新开往返菲律宾马尼拉客运航线](http://www.share.kurohicncr.top/Article/details/226558697320.shtml)
+- 2026-06-29 11:21 - [京津冀定向挑战赛天津落幕 四百余名选手花海寻春](http://www.blog.minike.top/Article/details/186503657773.shtml)
+- 2026-06-29 11:22 - [巴基斯坦防长称美伊谈判将很快重启](http://www.share.kurohicncr.top/Article/details/50904853.shtml)
+- 2026-06-29 11:19 - [兴业证券：首予保利置业增持评级 毛利率有望企稳](http://www.blog.kurohicncr.top/Article/details/08397.shtml)
+- 2026-06-29 11:39 - [远大医药盘中涨超4% 重磅核药SIR-Spheres®钇\[90Y\]微球注射液再度迎来里程碑进展](http://www.share.minike.top/Article/details/6161337.shtml)
+- 2026-06-29 11:34 - [华尔街行情向好，摩根大通固定收益与投行业绩超预期](http://www.blog.minike.top/Article/details/90883305.shtml)
+- 2026-06-29 11:19 - [依必安派特亮相2026中国制冷展](http://www.share.kurohicncr.top/Article/details/7593166240.shtml)
+- 2026-06-29 11:38 - [央行发布2026年一季度金融统计数据报告](http://www.share.minike.top/Article/details/4631382833.shtml)
+- 2026-06-29 11:42 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](http://www.blog.minike.top/Article/details/679734.shtml)
+- 2026-06-29 11:28 - [中方：愿同匈牙利新一届政府加强高层交往](http://www.share.kurohicncr.top/Article/details/9356505.shtml)
+- 2026-06-29 11:34 - [大商所发布《服务实体经济白皮书（2025）》](http://www.share.kurohicncr.top/Article/details/841171285.shtml)
+- 2026-06-29 11:21 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](http://www.share.kurohicncr.top/Article/details/75049088.shtml)
+- 2026-06-29 11:46 - [商务部、中国进出口银行：加大进出口信贷支持力度](http://www.blog.kurohicncr.top/Article/details/131481.shtml)
+- 2026-06-29 11:20 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:47 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](http://www.blog.kurohicncr.top/Article/details/401699.shtml)

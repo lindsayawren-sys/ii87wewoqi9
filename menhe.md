@@ -1,60 +1,61 @@
-# 从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛
+# 创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网厦门5月3日电 (林永传 郑素描)5月2日至3日，2026年厦门“同安古城杯”龙舟邀请赛暨福建省水上运动联赛(同安站)在厦门同安苏颂公园西溪举行，首次组队参赛的台胞代表队格外引人关注。 本届比赛共有26支代表队参赛，由长期在厦门同安生活、工作、创业的台胞组成的厦门台商协会捷豹龙舟队是其中一支。 该队队员、扎根同安的“90后”台青韩文翰说，自己从小在台湾跟着长辈划龙舟，今天
+2026年以来，光通信板块表现持续强势，创金合信数字经济基金经理王鑫表示，海外云厂商高资本开支、高端光芯片供给偏紧、AI 算力需求爆发共振，推动板块从预期博弈走向基本面兑现。他认为，当前板块整体估值偏高，但并非系统性泡沫，处于“高估值高成长”阶段，其中，光模块及光器件领域龙头更具配置价值。 1、2026年光通信板块表现强势，您认为这轮行情的核心驱动力是什么？是短期主题炒作，还是
 
 ## 正文
 
-中新网厦门5月3日电 (林永传 郑素描)5月2日至3日，2026年厦门“同安古城杯”龙舟邀请赛暨福建省水上运动联赛(同安站)在厦门同安苏颂公园西溪举行，首次组队参赛的台胞代表队格外引人关注。
+2026年以来，光通信板块表现持续强势，创金合信数字经济基金经理王鑫表示，海外云厂商高资本开支、高端光芯片供给偏紧、AI 算力需求爆发共振，推动板块从预期博弈走向基本面兑现。
 
-本届比赛共有26支代表队参赛，由长期在厦门同安生活、工作、创业的台胞组成的厦门台商协会捷豹龙舟队是其中一支。
+他认为，当前板块整体估值偏高，但并非系统性泡沫，处于“高估值高成长”阶段，其中，光模块及光器件领域龙头更具配置价值。
 
-该队队员、扎根同安的“90后”台青韩文翰说，自己从小在台湾跟着长辈划龙舟，今天在厦门同安参加龙舟赛，“划桨的时候耳边除了鼓声，还有岸边观众扯着嗓子喊的‘加油’声，那种亲切感就像在家乡参加邻里比赛”。
+1、2026年光通信板块表现强势，您认为这轮行情的核心驱动力是什么？
 
-他说，往年自己是该龙舟赛的观众，今天成了上场的选手，实实在在感受到“同根同源”不是一句口号，而是握在手里的桨、是一起喊的号子。
+是短期主题炒作，还是产业趋势的实质性兑现？
 
-作为千年古城同安的年度文化盛事，本届龙舟赛共设200米直道赛、500米直道赛、龙舟拔河赛三个竞赛项目，分公开男子组、本地男子组、本地混合组三个组别。
+创金合信数字经济基金经理王鑫：近期光通信板块表现强势，核心驱动来自海外云厂商资本开支维持高位、上游高端光芯片和光纤等关键环节供给偏紧、新技术路线打开长期成长空间等多重因素共振，产业景气度显著强于多数行业。
 
-台胞代表队以本地男子组身份参与了200米、500米直道赛两项角逐。
+伴随AI集群规模的继续扩张，光通信仍是AI产业链中价值量增加最快的细分环节，未来2年需求有望实现翻倍增长，且供给侧呈现部分环节涨价和新技术加速落地的产业趋势。
 
-当龙舟拼尽全力划过终点时，观众们为他们热烈鼓掌喝彩。
+当前板块股价驱动已从预期博弈转向订单、产能、交付节奏的基本面兑现阶段，上涨具备较强的业绩支撑，并非单纯依赖市场情绪驱动。
 
-“同安是著名的台胞祖地，目前有近千名台胞长期在此定居创业”，厦门同安区委台办主任张福军介绍，近年来同安已累计举办超150场涉台交流活动，参与台胞超万人次。
+2、光通信领域技术迭代加速，1.6T光模块进入规模化放量元年，CPO（共封装光学）、OCS（光交换机）等新技术方向备受关注，这些领域当前处于什么阶段？
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 11:25 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 11:20 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 11:32 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 11:37 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 11:20 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:25 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:31 - [日元保卫战或一触即发 日本财相警告“时机临近”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 11:41 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:30 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:35 - [英特尔收购Sambanova获美国反垄断批准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:19 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:21 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 11:19 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:28 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:24 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:19 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:30 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:44 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:25 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:19 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:34 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:44 - [海关总署：今年一季度我国货物进出口同比增长15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:43 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:27 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:22 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:23 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 11:20 - [不做下一个Temu：小红书Redshop的差异化突围之战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 11:20 - [中天策略:4月13日市场分析](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:47 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.share.kurohicncr.top/Article/details/34281226055.shtml)
-- 2026-06-29 11:42 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.kurohicncr.top/Article/details/7692594.shtml)
-- 2026-06-29 11:34 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.blog.kurohicncr.top/Article/details/60518281900.shtml)
-- 2026-06-29 11:44 - [福建首个侨台档案融合展示馆开门迎客](http://www.blog.minike.top/Article/details/893613589176.shtml)
-- 2026-06-29 11:28 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.share.kurohicncr.top/Article/details/363987.shtml)
-- 2026-06-29 11:46 - [巴西国家石油公司宣布航空煤油提价18%](http://www.share.kurohicncr.top/Article/details/121451526.shtml)
-- 2026-06-29 11:20 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.share.kurohicncr.top/Article/details/126647.shtml)
-- 2026-06-29 11:39 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](http://www.share.kurohicncr.top/Article/details/8636404.shtml)
-- 2026-06-29 11:36 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.blog.minike.top/Article/details/87777223214.shtml)
-- 2026-06-29 11:47 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.blog.kurohicncr.top/Article/details/43122152520.shtml)
-- 2026-06-29 11:46 - [5月1日全社会跨区域人员流动量预计超3.4亿人次](http://www.share.kurohicncr.top/Article/details/9699733005.shtml)
-- 2026-06-29 11:46 - [见证历史！伯克希尔现金储备近3万亿！95岁巴菲特正式“退役”，阿贝尔：不会为了AI而AI](http://www.blog.kurohicncr.top/Article/details/255434715.shtml)
-- 2026-06-29 11:20 - [专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默](http://www.share.kurohicncr.top/Article/details/0692381.shtml)
-- 2026-06-29 11:41 - [【小新的Vlog】探访藏在四川深山里的“白衣飘飘” 邂逅漫山“植物活化石”](http://www.blog.minike.top/Article/details/19138674.shtml)
-- 2026-06-29 11:33 - [存储巨头业绩股价双炸裂，利润最高涨超7倍，股价年涨幅最高35倍](http://www.share.kurohicncr.top/Article/details/64754989885.shtml)
+- 2026-06-29 11:20 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.share.minike.top/Article/details/774992634.shtml)
+- 2026-06-29 11:31 - [A股午评：超2600只个股飘绿，三大指数集体收涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:35 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.share.minike.top/Article/details/2226832016.shtml)
+- 2026-06-29 11:41 - [英国石油称其石油交易业务表现“异常出色”](http://www.share.kurohicncr.top/Article/details/416014564356.shtml)
+- 2026-06-29 11:21 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](http://www.blog.minike.top/Article/details/24041681502.shtml)
+- 2026-06-29 11:47 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.blog.kurohicncr.top/Article/details/491367127.shtml)
+- 2026-06-29 11:30 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.share.minike.top/Article/details/7970198385.shtml)
+- 2026-06-29 11:46 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.share.minike.top/Article/details/751559255946.shtml)
+- 2026-06-29 11:32 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [美国称霍尔木兹封锁首日六船折返](http://www.share.kurohicncr.top/Article/details/0202403.shtml)
+- 2026-06-29 11:31 - [浙江温州：园博园意大利馆开馆](http://www.share.minike.top/Article/details/0351088261.shtml)
+- 2026-06-29 11:38 - [德林控股于4月13日斥资114.9万港元回购100万股](http://www.blog.minike.top/Article/details/107087773925.shtml)
+- 2026-06-29 11:37 - [北京人艺话剧《张居正》香港上演 冯远征：以诚意之作深化京港戏剧交流](http://www.share.minike.top/Article/details/407198109546.shtml)
+- 2026-06-29 11:31 - [2月马来西亚天然橡胶产量环比下降24.1%](http://www.share.kurohicncr.top/Article/details/1388238.shtml)
+- 2026-06-29 11:19 - [青海玉树：三江源头添新绿 全民护绿促发展](http://www.blog.kurohicncr.top/Article/details/1771696431.shtml)

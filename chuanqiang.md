@@ -1,61 +1,57 @@
-# 华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”
+# 依必安派特亮相2026中国制冷展
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月04日 09:15 来源：中国新闻网 2008年，北京奥运会的圣火点燃了无数人的梦想，也在一位马来西亚小女孩的心中埋下了种子——去中国留学。2023年，她如愿来到中国，在北京体育大学开启了留学生活。 她叫尤韦立，是一名马来西亚华裔青年。谈起在中国的生活，她说：“中国很大，要慢慢走慢慢看。”学习之余，她走遍中国多个城市，在旅途中感受着中国的多元风貌。品尝
+4月10日，第三十七届国际制冷、空调、供暖、通风及食品冷冻加工展览会(简称“2026中国制冷展”)在北京首都国际会展中心圆满落下帷幕。 展会现场，全球领先的风机与电机制造商依必安派特以“引领空气技术进入下一个新时代”为主题精彩亮相，集中展示了面向暖通空调、数据中心、制冷、住宅通风及新能源等领域的空气技术解决方案，并围绕技术创新、客户价值与本土发展等方向分享了公司在中国市场的发展
 
 ## 正文
 
-发布时间：2026年05月04日 09:15 来源：中国新闻网 2008年，北京奥运会的圣火点燃了无数人的梦想，也在一位马来西亚小女孩的心中埋下了种子——去中国留学。
+4月10日，第三十七届国际制冷、空调、供暖、通风及食品冷冻加工展览会(简称“2026中国制冷展”)在北京首都国际会展中心圆满落下帷幕。
 
-2023年，她如愿来到中国，在北京体育大学开启了留学生活。
+展会现场，全球领先的风机与电机制造商依必安派特以“引领空气技术进入下一个新时代”为主题精彩亮相，集中展示了面向暖通空调、数据中心、制冷、住宅通风及新能源等领域的空气技术解决方案，并围绕技术创新、客户价值与本土发展等方向分享了公司在中国市场的发展成果。
 
-她叫尤韦立，是一名马来西亚华裔青年。
+三十载深耕，与中国市场共成长 当前，中国已成为全球最大的制冷空调设备生产国、消费国和出口国，为全球行业发展提供了坚实支撑，制冷空调产业作为我国装备制造业的重要支柱、实体经济的关键组成部分，在国家加快建设制造强国、推动实体经济高质量发展的战略指引下，砥砺前行、稳步发展，主要经济指标保持平稳向好态势，充分彰显了中国制冷展的国际吸引力和行业凝聚力。
 
-谈起在中国的生活，她说：“中国很大，要慢慢走慢慢看。
+据悉，2026年，依必安派特迎来了进入中国市场的三十周年。
 
-”学习之余，她走遍中国多个城市，在旅途中感受着中国的多元风貌。
+自1996年在上海成立首家全资子公司以来，公司持续推进本地化发展，目前已形成以上海大中华区总部、西安国家级绿色工厂及佛山空气技术华南聚合枢纽为核心的本地化布局。
 
-品尝特色美食、体验旅拍……每一次新鲜的体验，都让她对中国文化有了更深的理解。
+在中国，依必安派特拥有超过1,700名员工，本地化率约90%，构建起覆盖研发、生产、供应链与市场销售服务的完整体系，并将客户价值辐射至亚太、中东及非洲市场。
 
-她不禁感慨：“来到中国后，我体验了太多第一次。
+客户需求演变驱动战略转型 回顾三十年的发展历程，依必安派特大中华区销售及市场副总裁程宏深有感触：“早期中国市场处于起步期，我们更多是引进国外成熟产品。
 
-” 责任编辑：【韦俊龙】
+而随着市场慢慢走向成熟，中国客户的需求发生了深刻变化——他们不仅关注品质、可靠性和能效，更关注低噪音、定制化解决方案以及系统层面的优化。
 
 ## 相关推荐
 
-- 2026-06-29 11:44 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 11:41 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 11:33 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 11:38 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 11:45 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:39 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 11:40 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:33 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 11:36 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 11:30 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:26 - [三星电子任命新的视觉显示业务负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 11:32 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:19 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:38 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:45 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:29 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:26 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:28 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 11:46 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 11:39 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:27 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:47 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 11:21 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 11:27 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 11:44 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 11:37 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:30 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.share.minike.top/Article/details/49722.shtml)
-- 2026-06-29 11:38 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.blog.minike.top/Article/details/806517644896.shtml)
-- 2026-06-29 11:30 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.blog.kurohicncr.top/Article/details/471100314.shtml)
-- 2026-06-29 11:30 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.blog.minike.top/Article/details/836182.shtml)
-- 2026-06-29 11:33 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.blog.kurohicncr.top/Article/details/867256478303.shtml)
-- 2026-06-29 11:28 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](http://www.blog.minike.top/Article/details/968412.shtml)
-- 2026-06-29 11:34 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.blog.kurohicncr.top/Article/details/21866330.shtml)
-- 2026-06-29 11:42 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.blog.minike.top/Article/details/17489.shtml)
-- 2026-06-29 11:26 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.share.kurohicncr.top/Article/details/554353.shtml)
-- 2026-06-29 11:21 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:43 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.share.minike.top/Article/details/91408037.shtml)
-- 2026-06-29 11:22 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.share.minike.top/Article/details/6829790.shtml)
-- 2026-06-29 11:27 - [刚刚，利好来了！上海，重磅出手！](http://www.share.minike.top/Article/details/0173812034.shtml)
+- 2026-06-29 11:33 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.share.kurohicncr.top/Article/details/62020468.shtml)
+- 2026-06-29 11:32 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.share.minike.top/Article/details/182771.shtml)
+- 2026-06-29 11:48 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:19 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [国家安全“大事”，跟普通人有什么关系？](http://www.share.kurohicncr.top/Article/details/797842925.shtml)
+- 2026-06-29 11:40 - [习近平会见西班牙首相桑切斯](http://www.blog.minike.top/Article/details/138250.shtml)
+- 2026-06-29 11:47 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](http://www.blog.minike.top/Article/details/86082342835.shtml)
+- 2026-06-29 11:23 - [国晟科技，浑身是谜](http://www.blog.minike.top/Article/details/2472355.shtml)
+- 2026-06-29 11:30 - [专家学者南京共商生态文明传播新路径](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [新加坡第一季度经济增长放缓](http://www.share.kurohicncr.top/Article/details/781919.shtml)
+- 2026-06-29 11:24 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.blog.kurohicncr.top/Article/details/059953.shtml)

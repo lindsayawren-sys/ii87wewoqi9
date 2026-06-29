@@ -1,57 +1,48 @@
-# 铜业巨头官宣：“A拆H”
+# 大美边疆看我家丨辽宁东港：獐岛皮皮虾上岸记
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！在主动终止“A拆A”计划近两年后，江西铜业宣布再次重启江铜铜箔IPO进程。 4月30日晚，江西铜业公告称，为进一步优化公司产业布局、拓宽融资渠道，提高控股子公司江铜铜箔的核心竞争力，持续做强铜箔业务，公司拟筹划分拆江铜铜箔至香港联合交易所有限公司上市。 江铜铜箔转战港股IPO 相较于此前冲击创业板未果，此次
+发布时间：2026年04月14日 17:55 来源：中国新闻网 在辽宁丹东东港市北井子镇獐岛村，每年的四五月份，是皮皮虾上岸的大忙季。退潮时，渔民驾驶小船在距离岛屿四五海里附近的海域作业，或下网或收网，涨潮时返回。獐岛村有一百多艘专门用来收获皮皮虾的小船，忙碌的春收季，獐岛的皮皮虾美味和小渔船美景都在线。(作者：孙成武） 责任编辑：【魏聪聪】
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+发布时间：2026年04月14日 17:55 来源：中国新闻网 在辽宁丹东东港市北井子镇獐岛村，每年的四五月份，是皮皮虾上岸的大忙季。
 
-在主动终止“A拆A”计划近两年后，江西铜业宣布再次重启江铜铜箔IPO进程。
+退潮时，渔民驾驶小船在距离岛屿四五海里附近的海域作业，或下网或收网，涨潮时返回。
 
-4月30日晚，江西铜业公告称，为进一步优化公司产业布局、拓宽融资渠道，提高控股子公司江铜铜箔的核心竞争力，持续做强铜箔业务，公司拟筹划分拆江铜铜箔至香港联合交易所有限公司上市。
+獐岛村有一百多艘专门用来收获皮皮虾的小船，忙碌的春收季，獐岛的皮皮虾美味和小渔船美景都在线。
 
-江铜铜箔转战港股IPO 相较于此前冲击创业板未果，此次江铜铜箔选择转战港股上市。
-
-据公告，江铜铜箔成立于2003年，注册资本5亿元，是国内领先的高性能电解铜箔研发、生产与销售企业，专注为新能源、电子信息等核心领域提供关键材料解决方案，主要产品按应用领域分类包括电子电路铜箔和锂电铜箔。
-
-回溯来看，2022年2月，江西铜业宣布筹划江铜铜箔分拆上市事宜，引发市场广泛关注。
-
-2022年9月，深交所受理江铜铜箔上市申请，并于2023年6月15日成功过会。
-
-虽然成功过会，但公司业绩下滑和独立性等问题还是受到了监管关注。
+(作者：孙成武） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 11:37 - [美政府官员称2月28日开始的“敌对行动已结束”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 11:18 - [杭州机器人交警“五一”忙“加班”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 11:30 - [中金：澳门4月博彩收入大致符合预期 首选金沙中国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:44 - [伊朗给出14点谈判提议 特朗普对内容表示不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:19 - [浙江杭州：AI融合科技文旅场景吸引民众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 11:46 - [美军封锁逼退41艘伊朗油轮6900万桶原油，德黑兰内外交困](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:30 - [港股收评：恒指涨1.24% 科指涨2.16% 科网股、电力设备股普涨 半导体板块大涨 小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:28 - [“香港金融之夜”活动在港举办](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:22 - [风花雪月遇咖香 “风花雪月·啡尝不可”2026大理咖啡节启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:31 - [中央气象台：江南华南等地将有强降水及强对流天气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 11:47 - [全美自动驾驶出租车行业迎来爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 11:36 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 11:30 - [美方封锁进出伊朗港口船只 外交部：只会激化矛盾 加剧局势紧张](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:33 - [2025重庆城市足球超级联赛落幕 两江临空队夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 11:19 - [Anthropic的Mythos模型助力黑客攻击，或对银行业造成严重后果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 11:44 - [中国诚通发展集团附属与华电大同新能源订立售后回租协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 11:33 - [美国封锁霍尔木兹海峡之际，印度购买俄油豁免期恰好到期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:32 - [下班上课夜间“充电” 杭州青年夜校AI培训受追捧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 11:27 - [正面硬刚亚马逊？ 京东再进军欧洲推行“211”配送，欧洲人买单吗？｜欧陆志](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 11:40 - [这个国之重器，干了件济世救人的事……](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 11:30 - [直播海报：国务院政策例行吹风会：介绍健全全周期全渠道药品价格形成机制有关情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](http://www.blog.minike.top/Article/details/58614391.shtml)
-- 2026-06-29 11:41 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:34 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [中国首部政务服务领域区域协同立法施行](http://www.blog.kurohicncr.top/Article/details/097505901782.shtml)
-- 2026-06-29 11:36 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [福建舰两年8次海试 中国航母技术实现历史性跨越](http://www.share.kurohicncr.top/Article/details/264041.shtml)
-- 2026-06-29 11:37 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](http://www.blog.kurohicncr.top/Article/details/206669389.shtml)
-- 2026-06-29 11:18 - [芝加哥期权交易所正裁减全球20%员工](http://www.share.kurohicncr.top/Article/details/33813370.shtml)
-- 2026-06-29 11:32 - [花样游泳世界杯侧记：长安浪花起 出水亦芙蓉](http://www.share.minike.top/Article/details/46460.shtml)
-- 2026-06-29 11:35 - [阿吉特・贾恩谈霍尔木兹海峡船舶保险：取决于定价](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [东西问丨这位美国汉学家26年前就在春晚说相声，现在……](http://www.blog.minike.top/Article/details/616784736750.shtml)
-- 2026-06-29 11:46 - [世界泳联花样游泳世界杯（西安站） 中国选手郭牧也夺金](http://www.blog.minike.top/Article/details/3202211940.shtml)
-- 2026-06-29 11:43 - [“五一”假期首日：民众游杭州西湖享江南时光](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.blog.minike.top/Article/details/13857275.shtml)
-- 2026-06-29 11:21 - [中国铁路迎来“五一”假期运输客流最高峰](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [重磅数据本周发布，中国经济有望迎“开门红”](http://www.blog.kurohicncr.top/Article/details/2757282.shtml)
+- 2026-06-29 11:23 - [土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡](http://www.share.minike.top/Article/details/87054511.shtml)
+- 2026-06-29 11:34 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](http://www.blog.kurohicncr.top/Article/details/19372801.shtml)
+- 2026-06-29 11:32 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](http://www.share.kurohicncr.top/Article/details/80917839607.shtml)
+- 2026-06-29 11:39 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](http://www.blog.kurohicncr.top/Article/details/00447792256.shtml)
+- 2026-06-29 11:39 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:34 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](http://www.share.minike.top/Article/details/60141603.shtml)
+- 2026-06-29 11:47 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:27 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](http://www.blog.minike.top/Article/details/090805008669.shtml)
+- 2026-06-29 11:49 - [印尼的塑料袋与万里之外的战火](http://www.blog.kurohicncr.top/Article/details/209518680.shtml)
+- 2026-06-29 11:34 - [花旗集团披露第四季度私募信贷敞口220亿美元 对BDC投入比例很低](http://www.blog.kurohicncr.top/Article/details/4730780894.shtml)
+- 2026-06-29 11:44 - [Anthropic据悉收到多家风投公司的投资提议，估值达8000亿美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:21 - [井泉大使会见菲律宾司法部长弗雷德里克·维达](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:28 - [苏富比向卖家提供7%利息以延后支付拍卖款项](http://www.share.kurohicncr.top/Article/details/871438185079.shtml)
+- 2026-06-29 11:46 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](http://www.blog.minike.top/Article/details/26024722111.shtml)

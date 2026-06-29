@@ -1,54 +1,61 @@
-# 江西梅江灌区主体工程全面完工试通水
+# 花洒很干净，不用清洁……是真是假？| 谣言终结站
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-今天(4月30日)，国家重点水利工程——江西梅江灌区主体工程全面完工，顺利实现全灌区试通水，工程不仅填补了江西省山地丘陵地区无大型灌区的空白，也为我国南方同类型地区大型灌区建设提供了经验。 梅江灌区位于江西赣州市宁都县，是江西首个山地丘陵地区大型灌区。灌区范围覆盖宁都县23个乡镇(街道)，整体划分为北灌区、西灌区、南灌区三个区8个灌片，总控制面积716.19平方公里，设计灌溉面
+很多人认为，花洒持续通水、本身就很干净，不需要特意清洁。事实上，长期未被清理的花洒的出水口和管道内壁会附着滑腻的生物膜，其中藏匿着军团菌、霉菌等致病菌。淋浴时，这些致病菌可通过呼吸或皮肤接触侵入人体，进而危害身体健康。在温暖、黑暗、潮湿的环境中，极易滋生非结核分枝杆菌，其中鸟分枝杆菌在花洒中检出率较高，可引发肺部感染、淋巴结炎等。健康人群接触后可能出现慢性轻度肺部感染，表现为疲
 
 ## 正文
 
-今天(4月30日)，国家重点水利工程——江西梅江灌区主体工程全面完工，顺利实现全灌区试通水，工程不仅填补了江西省山地丘陵地区无大型灌区的空白，也为我国南方同类型地区大型灌区建设提供了经验。
+很多人认为，花洒持续通水、本身就很干净，不需要特意清洁。
 
-梅江灌区位于江西赣州市宁都县，是江西首个山地丘陵地区大型灌区。
+事实上，长期未被清理的花洒的出水口和管道内壁会附着滑腻的生物膜，其中藏匿着军团菌、霉菌等致病菌。
 
-灌区范围覆盖宁都县23个乡镇(街道)，整体划分为北灌区、西灌区、南灌区三个区8个灌片，总控制面积716.19平方公里，设计灌溉面积58万亩。
+淋浴时，这些致病菌可通过呼吸或皮肤接触侵入人体，进而危害身体健康。
 
-工程以当地团结水库为龙头，构建起“长藤结瓜”式的水资源优化配置网络，同步建成覆盖全流程的数字孪生智慧管理平台，实现从水源取水、渠系输水到田间用水的全过程自动化控制与精准化调度。
+在温暖、黑暗、潮湿的环境中，极易滋生非结核分枝杆菌，其中鸟分枝杆菌在花洒中检出率较高，可引发肺部感染、淋巴结炎等。
 
-随着主体工程全面通水，灌区年供水能力大幅提升，预计年均增加粮食产量约0.28亿斤，远期可实现年均新增农业经济效益4.43亿元，将惠及赣南老区79万群众。
+健康人群接触后可能出现慢性轻度肺部感染，表现为疲倦、乏力、长期干咳等症状；支气管扩张患者、老年人以及免疫力低下人群，感染风险更高，症状也更严重，严重者还可能出现全身播散性感染。
 
-(总台央视记者 朱江 张伟)
+可能有人会疑惑：“我家的花洒好几年没换了，但家人并没有觉得不舒服。
+
+这种病菌真有这么厉害吗？
+
+”事实上，鸟分枝杆菌属于条件致病菌，免疫功能正常者通常不易发病，但仍存在健康隐患。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [委内瑞拉4月石油出口创2018年来新高 委政府无自主支配收入权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 11:21 - [摩根士丹利看好Chef‘s Warehouse，称中东担忧“过度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 11:33 - [劳动者宋春胜：千家万户的“安全阀”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 11:36 - [成都宽窄巷子景区游人如织](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-29 11:20 - [美国对5家中企实施涉伊朗石油制裁措施 中方发布阻断禁令](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 11:32 - [巴西国家石油公司投资8.7亿雷亚尔重启巴拉那州尿素生产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:34 - [巴菲特：如今民众投机赌博情绪，史上前所未有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 11:24 - [“五一”假期 各地特色文旅活动精彩纷呈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:45 - [中国首部政务服务领域区域协同立法施行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 11:32 - [谷歌云增速超越微软、亚马逊，三大云厂商均受益AI需求业绩超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 11:30 - [福建舰两年8次海试 中国航母技术实现历史性跨越](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 11:32 - [【东西问】与龙共舞的凤，何以成为中华民族精神象征？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 11:25 - [肖远企在澳门葡语国家（地区）保险监管研讨会上的演讲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:29 - [永川海关2026年度信息化运维服务采购项目中标公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:25 - [赢家时尚：受托人根据股份奖励计划购买合共92.55万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:20 - [涨超六成！环氧丙烷价格快速走高 多股业绩有望翻倍增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 11:26 - [贝森特：关税水平或在7月初前恢复](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 11:20 - [重磅数据本周发布，中国经济有望迎“开门红”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:41 - [土耳其一中学发生枪击事件致16人受伤 枪手自杀身亡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 11:31 - [二十年爱心接力 澳门汇才慈善会情暖湖南江永瑶乡学子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:41 - [山水本身就是一间流动的自然课堂 春日文旅从“看风景”走向“读自然”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 11:26 - [乐氏国际控股附属拟1万元收购杭州一行物流有限公司100%股权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 11:24 - [“挂床住院”现象近年来时有发生 专家：完善相关制度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:42 - [长源东谷实控人家族“左手倒右手”式并购：标的突击增资 停牌前股价暴涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:46 - [多国留学青年走进浙江丽水 沉浸式感受侨乡发展新貌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 11:46 - [四川荣县回应“男子献血十年要求免诊查费遭拒”：医院已当面致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:20 - [印尼的塑料袋与万里之外的战火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:35 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:28 - [特朗普抨击国会限制其战争权力的举动](http://www.share.kurohicncr.top/Article/details/4550241.shtml)
-- 2026-06-29 11:28 - [浙江杭州：民众走“运”度假期](http://www.blog.minike.top/Article/details/57058.shtml)
-- 2026-06-29 11:31 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](http://www.blog.kurohicncr.top/Article/details/2355801.shtml)
-- 2026-06-29 11:18 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](http://www.blog.kurohicncr.top/Article/details/143056518.shtml)
-- 2026-06-29 11:25 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](http://www.share.kurohicncr.top/Article/details/347159863854.shtml)
-- 2026-06-29 11:34 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](http://www.blog.kurohicncr.top/Article/details/511158615.shtml)
-- 2026-06-29 11:37 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](http://www.share.minike.top/Article/details/20035.shtml)
-- 2026-06-29 11:42 - [宁夏银川：水上运动成民众假期户外社交“新宠”](http://www.blog.kurohicncr.top/Article/details/6463771438.shtml)
-- 2026-06-29 11:33 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](http://www.blog.minike.top/Article/details/43143.shtml)
-- 2026-06-29 11:31 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](http://www.blog.minike.top/Article/details/44648.shtml)
-- 2026-06-29 11:38 - [贵州台江：万人盛装游演欢度“姊妹节”](http://www.share.kurohicncr.top/Article/details/15199.shtml)
-- 2026-06-29 11:35 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](http://www.blog.kurohicncr.top/Article/details/00285840732.shtml)
+- 2026-06-29 11:38 - [恒大集团、恒大地产及许家印案一审开庭](http://www.blog.minike.top/Article/details/74067719.shtml)
+- 2026-06-29 11:43 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](http://www.blog.kurohicncr.top/Article/details/26664.shtml)
+- 2026-06-29 11:37 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](http://www.blog.minike.top/Article/details/8866975.shtml)
+- 2026-06-29 11:28 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](http://www.share.kurohicncr.top/Article/details/550321958.shtml)
+- 2026-06-29 11:22 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](http://www.blog.minike.top/Article/details/475595.shtml)
+- 2026-06-29 11:28 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [香港交易所推出两只科技指数 易方达香港获授权](http://www.blog.kurohicncr.top/Article/details/027322.shtml)
+- 2026-06-29 11:44 - [天风策略：特朗普TACO了吗？](http://www.share.minike.top/Article/details/480092930.shtml)
+- 2026-06-29 11:28 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](http://www.share.minike.top/Article/details/5444336001.shtml)
+- 2026-06-29 11:23 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](http://www.blog.minike.top/Article/details/530270.shtml)
+- 2026-06-29 11:29 - [冰川消退预警峰值水量 奥地利能源转型提速](http://www.share.kurohicncr.top/Article/details/1528607881.shtml)
+- 2026-06-29 11:44 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](http://www.blog.kurohicncr.top/Article/details/240662430525.shtml)
+- 2026-06-29 11:48 - [中国太保：总经理助理刘龙的任职资格获核准](http://www.share.kurohicncr.top/Article/details/113804130.shtml)
+- 2026-06-29 11:20 - [大众汽车集团交付量下滑，受中美市场疲软拖累](http://www.blog.kurohicncr.top/Article/details/0288962975.shtml)
+- 2026-06-29 11:26 - [海泰发展财务造假被罚，投资者索赔条件更新](http://www.share.minike.top/Article/details/02910553.shtml)

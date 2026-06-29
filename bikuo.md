@@ -1,60 +1,57 @@
-# 西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲
+# Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。 这家西班牙银行过半业务收入来自欧洲以外市场。其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧
+Adobe和Figma均获得BTIG的谨慎认可，其犹豫的根本原因在于AI将从现在开始如何改变一切。 从表面上看，Adobe依然强劲。它是创意软件领域无可争议的领导者，年收入约240亿美元，利润率令大多数公司难以企及。但目前的问题不在于Adobe今天的地位，而在于随着AI开始重塑内容创作方式，接下来会发生什么。BTIG实际上认可Adobe在AI方面的布局，甚至认为其估值看起来合理
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 净利息收入实现两位数增长，手续费及佣金净收入走高 西班牙对外银行（BBVA）公布利润同比增长，依托信贷业务持续扩张及核心主要市场稳健表现，缓冲了成本走高与拨备计提增加带来的冲击。
+Adobe和Figma均获得BTIG的谨慎认可，其犹豫的根本原因在于AI将从现在开始如何改变一切。
 
-这家西班牙银行过半业务收入来自欧洲以外市场。
+从表面上看，Adobe依然强劲。
 
-其一季度净利润同比上涨 11%，达29.9 亿欧元（折合 34.9 亿美元），高于公司统计的分析师一致预期 28 亿欧元。
+它是创意软件领域无可争议的领导者，年收入约240亿美元，利润率令大多数公司难以企及。
 
-一季度营业总收入同比增长 14%，至106.5 亿欧元，同样超出分析师 100.5 亿欧元的预期。
+但目前的问题不在于Adobe今天的地位，而在于随着AI开始重塑内容创作方式，接下来会发生什么。
 
-营收增长主要由两大板块拉动：净利息收入实现两位数增幅（贷款利息收入减去客户存款利息支出），同时资产管理、支付及保险业务带来的手续费及佣金净收入同步提升。
+BTIG实际上认可Adobe在AI方面的布局，甚至认为其估值看起来合理，但尚未准备好全面投入。
 
-西班牙与墨西哥两大市场贡献该行约三分之二营收，BBVA 在两地的企业贷与个人消费贷规模均实现增长。
+Figma处境类似，只是处于更早期的阶段。
 
-此外，土耳其及南美分支机构业绩表现改善，企业与投行业务也保持持续扩张。
+市场对其AI工具充满热情，尤其是使用量正在迅速增长。
 
-运营成本同比攀升 14%，至40.5 亿欧元，部分源于西班牙本土自愿离职裁员计划。
+但一旦用户开始为这些功能付费，有多少需求能够持续尚不清楚。
 
 ## 相关推荐
 
-- 2026-06-29 11:23 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:42 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:43 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 11:30 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 11:21 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:35 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:47 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 11:30 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:19 - [渤海人寿获批增加注册资本至16.87亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 11:32 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:22 - [2026上海浪琴环球马术冠军赛 比利时选手夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 11:18 - [台湾宜兰县海域发生6.1级地震](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:26 - [世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 11:19 - [重庆迎“五一”文旅热潮 多举措打造“近悦远来”旅游目的地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:22 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 11:46 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 11:24 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:36 - [高市再提修宪 引发日本民众广泛反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:27 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 11:44 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:38 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 11:30 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:27 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 11:44 - [违规超量投放共享自行车，哈啰公司被约谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:46 - [5年亏超120亿，“胖改”难救永辉超市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.blog.kurohicncr.top/Article/details/99474636897.shtml)
-- 2026-06-29 11:35 - [刚刚，利好来了！上海，重磅出手！](http://www.share.kurohicncr.top/Article/details/512398179.shtml)
-- 2026-06-29 11:21 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.blog.kurohicncr.top/Article/details/77519.shtml)
-- 2026-06-29 11:28 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.share.kurohicncr.top/Article/details/183625590186.shtml)
-- 2026-06-29 11:43 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.share.minike.top/Article/details/794506.shtml)
-- 2026-06-29 11:39 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [“五一”假期首日 浙江义乌市场人气“爆棚”消费旺](http://www.blog.minike.top/Article/details/91155.shtml)
-- 2026-06-29 11:45 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](http://www.blog.kurohicncr.top/Article/details/923777256654.shtml)
-- 2026-06-29 11:39 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](http://www.share.kurohicncr.top/Article/details/629341.shtml)
-- 2026-06-29 11:36 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](http://www.share.kurohicncr.top/Article/details/7807464523.shtml)
-- 2026-06-29 11:40 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:41 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](http://www.share.minike.top/Article/details/682034.shtml)
-- 2026-06-29 11:45 - [学习新语｜幸福属于劳动者](http://www.blog.minike.top/Article/details/795653690268.shtml)
-- 2026-06-29 11:21 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [新加坡第一季度经济增长放缓](http://www.blog.kurohicncr.top/Article/details/605603.shtml)
+- 2026-06-29 11:44 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.share.kurohicncr.top/Article/details/58022.shtml)
+- 2026-06-29 11:44 - [原油：油价下挫 美伊和谈预期缓解供应担忧](http://www.share.minike.top/Article/details/40191668.shtml)
+- 2026-06-29 11:37 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.share.kurohicncr.top/Article/details/21815305.shtml)
+- 2026-06-29 11:25 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](http://www.blog.kurohicncr.top/Article/details/82749650212.shtml)
+- 2026-06-29 11:43 - [Revolution Medicines胰腺癌药物取得成功](http://www.blog.minike.top/Article/details/76654153.shtml)
+- 2026-06-29 11:25 - [甘肃省酒泉市：民族团结与经济发展同频共振](http://www.blog.minike.top/Article/details/805886.shtml)
+- 2026-06-29 11:29 - [中天策略:4月14日市场分析](http://www.share.minike.top/Article/details/564062780.shtml)
+- 2026-06-29 11:43 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](http://www.share.kurohicncr.top/Article/details/88063924.shtml)
+- 2026-06-29 11:38 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](http://www.blog.minike.top/Article/details/64373744.shtml)
+- 2026-06-29 11:46 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:26 - [今年以来地方债发行节奏提速](http://www.share.kurohicncr.top/Article/details/100400.shtml)
+- 2026-06-29 11:22 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](http://www.blog.kurohicncr.top/Article/details/975016270.shtml)
+- 2026-06-29 11:21 - [收评：国内期货主力合约涨跌互现 PX涨超4%](http://www.share.minike.top/Article/details/2979201.shtml)
+- 2026-06-29 11:33 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](http://www.blog.minike.top/Article/details/602840953456.shtml)

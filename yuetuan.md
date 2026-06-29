@@ -1,51 +1,56 @@
-# 四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚
+# 开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月03日 19:53 来源：中国新闻网 在四川岳池低坑大瀑布，山水不再只是观赏对象，而是沉浸式国风体验的天然布景。游客身着汉服凌空飞渡，置身水雾青山之间，衣袂翩跹与飞瀑流泉相融共生。 “五一”假期，低坑大瀑布景区“天外飞仙”威亚项目前排起长队。这种体验式文旅新业态契合年轻人出游审美，让游客实现从“看风景”到“成为风景”的转变，同时盘活了当地特色文旅资源，
+中新网海南文昌4月14日电 题：开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包” 中新网记者 张茜翼 四月的海南，椰风海韵正浓。文昌椰子大观园里，来自全球的200多份椰子种质资源郁郁葱葱；而数公里外的中国热带农业科学院椰子研究所试验基地里，来自阿联酋的椰枣苗历经数年精心管护，已悄然挂上幼果。 一个是中国的“椰子之乡”，一个是沙漠馈赠的“生命之树”——二者虽不在一处，却
 
 ## 正文
 
-发布时间：2026年05月03日 19:53 来源：中国新闻网 在四川岳池低坑大瀑布，山水不再只是观赏对象，而是沉浸式国风体验的天然布景。
+中新网海南文昌4月14日电 题：开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包” 中新网记者 张茜翼 四月的海南，椰风海韵正浓。
 
-游客身着汉服凌空飞渡，置身水雾青山之间，衣袂翩跹与飞瀑流泉相融共生。
+文昌椰子大观园里，来自全球的200多份椰子种质资源郁郁葱葱；而数公里外的中国热带农业科学院椰子研究所试验基地里，来自阿联酋的椰枣苗历经数年精心管护，已悄然挂上幼果。
 
-“五一”假期，低坑大瀑布景区“天外飞仙”威亚项目前排起长队。
+一个是中国的“椰子之乡”，一个是沙漠馈赠的“生命之树”——二者虽不在一处，却同属中国热带农业科学院椰子研究所的科研版图。
 
-这种体验式文旅新业态契合年轻人出游审美，让游客实现从“看风景”到“成为风景”的转变，同时盘活了当地特色文旅资源，成为县域文旅破圈引流、带动村民就近就业增收的新增长点。
+14日，参加“开局之年看中国·开放自贸港”网络主题传播活动的海内外媒体人走进文昌椰子大观园，探访了这个被誉为“世界椰子博览，中国椰子之窗”的科研与文旅地标。
 
-(王利文 制作 侯诗蕊） 责任编辑：【王凯】
+从科研高地到文旅地标 占地443亩的椰子大观园，前身为1980年建立的椰子种质资源库。
+
+如今，这里汇集了217种棕榈植物、130多种海南特色珍稀树种。
+
+园区依托中国热带农业科学院椰子研究所的科研力量，从世界各地采集和交换椰子种质资源，现收集200多份，居全国第一。
+
+“椰子树浑身是宝，椰肉鲜嫩、椰汁爽口、椰干当梁、椰壳可雕、椰根入药。
 
 ## 相关推荐
 
-- 2026-06-29 11:19 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:34 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 11:38 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:18 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 11:26 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:42 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 11:43 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:42 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 11:31 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 11:38 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:34 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 11:26 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 11:48 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 11:42 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:31 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:44 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:44 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:34 - [天风策略：特朗普TACO了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 11:27 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 11:42 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:31 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:46 - [吉尔登服饰营收攀升](http://www.share.kurohicncr.top/Article/details/24454.shtml)
-- 2026-06-29 11:34 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.blog.kurohicncr.top/Article/details/4591965.shtml)
-- 2026-06-29 11:29 - [阿贝尔重申伯克希尔核心原则](http://www.share.minike.top/Article/details/099846922.shtml)
-- 2026-06-29 11:38 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](http://www.blog.minike.top/Article/details/9968150862.shtml)
-- 2026-06-29 11:21 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.share.minike.top/Article/details/52810345.shtml)
-- 2026-06-29 11:47 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [重庆新开往返菲律宾马尼拉客运航线](http://www.blog.kurohicncr.top/Article/details/628088503349.shtml)
-- 2026-06-29 11:34 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](http://www.share.minike.top/Article/details/456569916239.shtml)
-- 2026-06-29 11:36 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](http://www.blog.minike.top/Article/details/6555067211.shtml)
-- 2026-06-29 11:36 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](http://www.share.kurohicncr.top/Article/details/0661804162.shtml)
-- 2026-06-29 11:41 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.share.kurohicncr.top/Article/details/744688.shtml)
-- 2026-06-29 11:43 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](http://www.blog.kurohicncr.top/Article/details/75725367726.shtml)
-- 2026-06-29 11:38 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.blog.minike.top/Article/details/334225360999.shtml)
-- 2026-06-29 11:21 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](http://www.share.minike.top/Article/details/61197211703.shtml)
-- 2026-06-29 11:24 - [三星电子任命新的视觉显示业务负责人](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [中方：愿同匈牙利新一届政府加强高层交往](http://www.share.kurohicncr.top/Article/details/6816025306.shtml)
+- 2026-06-29 11:34 - [大商所发布《服务实体经济白皮书（2025）》](http://www.share.minike.top/Article/details/322856660507.shtml)
+- 2026-06-29 11:47 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](http://www.share.kurohicncr.top/Article/details/036172067729.shtml)
+- 2026-06-29 11:38 - [商务部、中国进出口银行：加大进出口信贷支持力度](http://www.blog.kurohicncr.top/Article/details/1511179037.shtml)
+- 2026-06-29 11:42 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](http://www.share.minike.top/Article/details/95789.shtml)
+- 2026-06-29 11:27 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](http://www.share.minike.top/Article/details/27320120.shtml)
+- 2026-06-29 11:35 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](http://www.blog.kurohicncr.top/Article/details/262707962.shtml)
+- 2026-06-29 11:26 - [甘肃环县九村联建一个厂 带富千户种粮人](http://www.share.minike.top/Article/details/30101240.shtml)
+- 2026-06-29 11:27 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](http://www.blog.minike.top/Article/details/81451.shtml)
+- 2026-06-29 11:20 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](http://www.share.minike.top/Article/details/84792629.shtml)
+- 2026-06-29 11:42 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.share.minike.top/Article/details/273384191.shtml)
+- 2026-06-29 11:21 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [五一视界早盘涨逾6% 日前获创始人增持765万股](http://www.blog.minike.top/Article/details/4447682.shtml)

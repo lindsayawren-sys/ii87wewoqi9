@@ -1,57 +1,60 @@
-# 中国医生完成尼日尔首例鼓室成形术
+# 华尔街行情向好，摩根大通固定收益与投行业绩超预期
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-中新网南宁5月3日电(张广权)第25批援尼日尔中国医疗队(以下简称：中国医疗队)2日提供的消息称，该医疗队近日在尼日尔综合医院成功完成该国首例鼓室成形术，标志着当地耳科诊疗从单纯药物保守治疗正式迈入手术根治新阶段。 一名尼日尔患者被耳疾困扰长达三年，因炎症引发鼓膜大穿孔、中耳病变，常年耳内流脓、听力持续下降，严重影响生活。受限于当地设备匮乏、技术空白，患者只能依靠药物临时缓解，
+专题：聚焦美股2026年第一季度财报 核心要点 该银行公布业绩如下： 值得关注的是，作为银行盈利核心驱动力的 2026 年全年净利息收入指引，该行从此前的 1045 亿美元下调至约 1030 亿美元。 摩根大通周二公布一季度财报，受益于固定收益及投资银行业务营收超预期，整体业绩好于市场预期。 该银行具体业绩数据： 公司净利润同比增长 13%，至 164.9 亿美元，折合每股收益
 
 ## 正文
 
-中新网南宁5月3日电(张广权)第25批援尼日尔中国医疗队(以下简称：中国医疗队)2日提供的消息称，该医疗队近日在尼日尔综合医院成功完成该国首例鼓室成形术，标志着当地耳科诊疗从单纯药物保守治疗正式迈入手术根治新阶段。
+专题：聚焦美股2026年第一季度财报 核心要点 该银行公布业绩如下： 值得关注的是，作为银行盈利核心驱动力的 2026 年全年净利息收入指引，该行从此前的 1045 亿美元下调至约 1030 亿美元。
 
-一名尼日尔患者被耳疾困扰长达三年，因炎症引发鼓膜大穿孔、中耳病变，常年耳内流脓、听力持续下降，严重影响生活。
+摩根大通周二公布一季度财报，受益于固定收益及投资银行业务营收超预期，整体业绩好于市场预期。
 
-受限于当地设备匮乏、技术空白，患者只能依靠药物临时缓解，始终无法根治，长期陷入“发炎—流脓—停药—复发”的循环，甚至面临颅内感染的风险。
+该银行具体业绩数据： 公司净利润同比增长 13%，至 164.9 亿美元，折合每股收益 5.94 美元；营收同比增长 10%，至 505.4 亿美元。
 
-中国医疗队结合当地实际，带领当地医生整理一套适配的耳科手术器械，量身制定精细手术方案。
+受大宗商品、信贷、外汇及新兴市场交易活跃度提升推动，该行固定收益交易营收大涨 21%，至 70.8 亿美元，较 StreetAccount 预期高出约 3.7 亿美元。
 
-术中，来自广西医科大学第一附属医院的医师精准清除中耳病灶、消除感染隐患，巧妙取用患者自身耳屏软骨，为破损鼓膜精准“补洞”。
+并购咨询与股票承销费用增长带动投行业务手续费大幅攀升 28%，至 28.8 亿美元，超出预期约 2.6 亿美元。
 
-中国麻醉医师、手术护士与当地医务人员一道，确保手术各环节衔接顺畅，风险可控。
+推动该行本季度业绩超预期的另一因素是：其计提的贷款损失准备金低于分析师预期。
 
-在手术过程中，中国医疗队队员向尼日尔医生详细讲解解剖结构、移植技巧等要点，把技术毫无保留地传授。
+该行信贷损失拨备为 25 亿美元，较 StreetAccount 预期少约 5 亿美元，显示摩根大通的客户偿债能力保持稳健。
 
-同时，中国医疗队还协助当地建立术前诊断—术中规范—术后随访全流程标准化诊疗体系，将“中国方案”“中国标准”留在尼日尔，真正打造一支“带不走的医疗队”。
+具体来看，本季度该行释放了 1.39 亿美元个人消费信贷储备，同时商业信贷储备增加 3.27 亿美元；去年同期，该行信贷损失拨备为 33 亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 11:22 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:42 - [云南边境的目瑙纵歌，何以火爆全网？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
-- 2026-06-29 11:24 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 11:32 - [重庆新开往返菲律宾马尼拉客运航线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:45 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 11:28 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 11:39 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 11:35 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:33 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 11:38 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 11:36 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:34 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 11:29 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 11:42 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 11:22 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 11:35 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:45 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 11:46 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 11:23 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 11:20 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 11:41 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:20 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 11:32 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 11:23 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:22 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:27 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](http://www.share.kurohicncr.top/Article/details/297987034.shtml)
-- 2026-06-29 11:21 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [在香港沉浸式“邂逅”蒙娜丽莎](http://www.blog.minike.top/Article/details/2903093.shtml)
-- 2026-06-29 11:45 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](http://www.share.minike.top/Article/details/30822055186.shtml)
-- 2026-06-29 11:41 - [中国奥园委聘毕马威咨询(香港)为财务顾问](http://www.blog.kurohicncr.top/Article/details/341040062705.shtml)
-- 2026-06-29 11:44 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.share.minike.top/Article/details/25981.shtml)
-- 2026-06-29 11:29 - [欧洲央行维持存款利率在2.00%不变 符合预期](http://www.share.minike.top/Article/details/7933296097.shtml)
-- 2026-06-29 11:45 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.blog.kurohicncr.top/Article/details/171257702570.shtml)
-- 2026-06-29 11:36 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.blog.kurohicncr.top/Article/details/103868786185.shtml)
-- 2026-06-29 11:21 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.blog.minike.top/Article/details/7783613.shtml)
-- 2026-06-29 11:20 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](http://www.blog.minike.top/Article/details/89708664517.shtml)
-- 2026-06-29 11:19 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.share.kurohicncr.top/Article/details/4594869624.shtml)
-- 2026-06-29 11:31 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.blog.minike.top/Article/details/51537.shtml)
+- 2026-06-29 11:33 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](http://www.blog.minike.top/Article/details/776532555.shtml)
+- 2026-06-29 11:48 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](http://www.blog.minike.top/Article/details/3122700.shtml)
+- 2026-06-29 11:43 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](http://www.share.kurohicncr.top/Article/details/872901396825.shtml)
+- 2026-06-29 11:25 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [富国基金27周年：深耕专业 迈向高质量发展新阶段](http://www.blog.minike.top/Article/details/206710.shtml)
+- 2026-06-29 11:42 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](http://www.blog.minike.top/Article/details/252301.shtml)
+- 2026-06-29 11:37 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](http://www.share.minike.top/Article/details/168779811.shtml)
+- 2026-06-29 11:46 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](http://www.share.kurohicncr.top/Article/details/38043996.shtml)
+- 2026-06-29 11:38 - [国家安全“大事”，跟普通人有什么关系？](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [习近平会见西班牙首相桑切斯](http://www.blog.minike.top/Article/details/58286991.shtml)
+- 2026-06-29 11:27 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [国晟科技，浑身是谜](http://www.share.kurohicncr.top/Article/details/846946.shtml)
+- 2026-06-29 11:22 - [专家学者南京共商生态文明传播新路径](http://www.blog.minike.top/Article/details/147286133280.shtml)
+- 2026-06-29 11:33 - [新加坡第一季度经济增长放缓](https://github.com/lisacumin64-arch)

@@ -1,58 +1,52 @@
-# 阿贝尔重申伯克希尔核心原则
+# 朝中社发文，批评日本自卫队改组“暴露危险野心”
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-专题：巴菲特2026年股东大会重磅来袭 2026年伯克希尔哈撒韦股东会正在进行中。公司CEO阿贝尔重申了其前任巴菲特长期倡导的核心投资与运营原则。 阿贝尔向投资者表示，伯克希尔的首要任务依然是持有美国国债、保持财务独立性、资本配置的灵活性、税务效率，以及警惕傲慢、官僚主义和自满这“ABC”三大弊病。 “我们多次听到：傲慢、官僚主义和自满——这些会悄然渗透进公司的‘ABC’——将
+中新网4月14日电 近日，朝中社发表题为《从宇宙作战武力的快速扩充看战犯国家的危险军事企图》的评论，对日本建设太空作战力量的行为进行了批判。 文章提到，2026年春，在日本自卫队的编制调整中，航空自卫队将更名为航空宇宙自卫队，其所辖的宇宙作战群已升格为宇宙作战团，人员规模也较前增长一倍以上。 文章表示，日本于2020年首次组建了一支专门负责太空领域的小型部队，其兵力在短短几年内
 
 ## 正文
 
-专题：巴菲特2026年股东大会重磅来袭 2026年伯克希尔哈撒韦股东会正在进行中。
+中新网4月14日电 近日，朝中社发表题为《从宇宙作战武力的快速扩充看战犯国家的危险军事企图》的评论，对日本建设太空作战力量的行为进行了批判。
 
-公司CEO阿贝尔重申了其前任巴菲特长期倡导的核心投资与运营原则。
+文章提到，2026年春，在日本自卫队的编制调整中，航空自卫队将更名为航空宇宙自卫队，其所辖的宇宙作战群已升格为宇宙作战团，人员规模也较前增长一倍以上。
 
-阿贝尔向投资者表示，伯克希尔的首要任务依然是持有美国国债、保持财务独立性、资本配置的灵活性、税务效率，以及警惕傲慢、官僚主义和自满这“ABC”三大弊病。
+文章表示，日本于2020年首次组建了一支专门负责太空领域的小型部队，其兵力在短短几年内增长了数十倍，而且其名称和编制每隔两三年就不断变化，这引起了国际社会对日本快速扩张的太空部队的真实情况的严重关切。
 
-“我们多次听到：傲慢、官僚主义和自满——这些会悄然渗透进公司的‘ABC’——将摧毁一家企业，我们决不允许这种情况发生。
+文章称，日本长期以来一直在逐步奠定法律、物质和技术基础，以实现将自卫队的作战范围扩展到太空的野心。
 
-”阿贝尔说道。
+文章强调：“更引人注目的是，近期在日本政界新军国主义势力得势，整体军事力量部署被调整为攻击型，在宇宙空间也占据先发制人打击阵地的不寻常举动变本加厉。
 
-阿贝尔形容伯克希尔“独一无二”，既能整合多种不同类型的业务，又能快速灵活地部署资本。
-
-“伯克希尔是一家综合企业集团，我们承认这一点。
-
-但我们是独特的综合企业，能够非常高效地调动资本。
+” 文章最后直言：“日本挑战国际社会，把‘自卫队’完全变成攻击型武力还嫌不够，竟疯狂企图掌控宇宙空间”，这一现实如实地表明日本“万分危险的野心和好战性”。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 11:23 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 11:43 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:36 - [体验多元！“影视+文旅”点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 11:43 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:29 - [三星电子任命新的视觉显示业务负责人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 11:24 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:42 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:41 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:33 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:43 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 11:29 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:42 - [甘肃环县九村联建一个厂 带富千户种粮人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:41 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:40 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 11:29 - [李强同阿联酋阿布扎比王储哈立德会谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:47 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:44 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 11:33 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:33 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:26 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 11:32 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:19 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](http://www.blog.kurohicncr.top/Article/details/19255503.shtml)
-- 2026-06-29 11:38 - [欧洲央行维持存款利率在2.00%不变 符合预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:21 - [暴雨蓝色预警：贵州、广西等地部分地区有大到暴雨](http://www.blog.minike.top/Article/details/5758610.shtml)
-- 2026-06-29 11:22 - [5月4日中国跨区域人员流动量预计超2.9亿人次](http://www.share.kurohicncr.top/Article/details/360178002.shtml)
-- 2026-06-29 11:37 - [内房股早盘集体上涨 万科企业涨逾10%融信中国涨逾7%](http://www.share.kurohicncr.top/Article/details/08460702.shtml)
-- 2026-06-29 11:43 - [东西问丨杜方绥：中国文学何以打动世界读者？](http://www.blog.kurohicncr.top/Article/details/21382023.shtml)
-- 2026-06-29 11:27 - [东京通胀进一步降温 支撑日本央行加息谨慎立场](http://www.share.kurohicncr.top/Article/details/15474169.shtml)
-- 2026-06-29 11:23 - [亚马逊AWS营收增长28%，达到376亿美元](http://www.blog.kurohicncr.top/Article/details/6622340.shtml)
-- 2026-06-29 11:23 - [东京审判中国检察官向哲濬之子向隆万：历史不容忘却](http://www.share.kurohicncr.top/Article/details/96871281777.shtml)
-- 2026-06-29 11:37 - [刚刚，利好来了！上海，重磅出手！](http://www.share.minike.top/Article/details/92061756628.shtml)
-- 2026-06-29 11:25 - [3月核心通胀率升至3.2%，一季度经济增速仅2%不及预期](http://www.blog.minike.top/Article/details/3086970.shtml)
-- 2026-06-29 11:18 - [西藏昌都文旅资源亮相天津 多项合作签约落地](http://www.share.kurohicncr.top/Article/details/86881191.shtml)
-- 2026-06-29 11:25 - [埃克森美孚与雪佛龙无视特朗普政府增产呼吁](http://www.blog.kurohicncr.top/Article/details/11249.shtml)
-- 2026-06-29 11:18 - [钠电池迎来历史性拐点！业绩报喜概念股出炉，4股市盈率不到30倍](http://www.share.kurohicncr.top/Article/details/25669941670.shtml)
-- 2026-06-29 11:43 - [鲍威尔打破75年传统！美联储32年“透明时代”将终结，凯文·沃什能否兑现降息承诺？](http://www.share.kurohicncr.top/Article/details/508681967228.shtml)
+- 2026-06-29 11:23 - [优彩资源人事调整：戴泽新之女戴梦茜卸任董秘，投行出身赖嫣珩接棒 | 长三角资本局](http://www.share.minike.top/Article/details/27555.shtml)
+- 2026-06-29 11:39 - [新加坡金管局上调汇率区间斜率 预计2026年核心通胀率为1.5%-2.5%](http://www.share.kurohicncr.top/Article/details/75959.shtml)
+- 2026-06-29 11:30 - [“邮储银行号”遥感卫星升空！银行为何接力放卫星？](http://www.share.kurohicncr.top/Article/details/8660348034.shtml)
+- 2026-06-29 11:43 - [国家安全“大事”，跟普通人有什么关系？](http://www.share.minike.top/Article/details/6467249.shtml)
+- 2026-06-29 11:31 - [习近平会见西班牙首相桑切斯](http://www.share.minike.top/Article/details/2865502.shtml)
+- 2026-06-29 11:43 - [企业加速入驻 中国首个大模型创新生态社区“AI磁力”增强](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [国晟科技，浑身是谜](http://www.share.kurohicncr.top/Article/details/1915170.shtml)
+- 2026-06-29 11:31 - [专家学者南京共商生态文明传播新路径](http://www.share.kurohicncr.top/Article/details/377025293.shtml)
+- 2026-06-29 11:29 - [新加坡第一季度经济增长放缓](http://www.share.kurohicncr.top/Article/details/557638866.shtml)
+- 2026-06-29 11:28 - [创业板增设第四套上市标准 更好支持优质创新企业发展](http://www.blog.minike.top/Article/details/668179.shtml)
+- 2026-06-29 11:23 - [原油：油价下挫 美伊和谈预期缓解供应担忧](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [百余枚新修复海昏简牍展出 齐《论语》《诗经》原件首展](http://www.share.kurohicncr.top/Article/details/61775065.shtml)
+- 2026-06-29 11:19 - [马克龙分别与伊朗、美国总统通电话 呼吁重启谈判](http://www.share.minike.top/Article/details/5771267178.shtml)
+- 2026-06-29 11:30 - [Revolution Medicines胰腺癌药物取得成功](http://www.blog.minike.top/Article/details/4247533.shtml)
+- 2026-06-29 11:32 - [甘肃省酒泉市：民族团结与经济发展同频共振](https://github.com/lisacumin64-arch)

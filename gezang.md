@@ -1,56 +1,58 @@
-# 外交部发言人就东京审判开庭80周年答记者问
+# 3000亿元的大时代，公募如何构建FOF的护城河？
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-外交部发言人就东京审判开庭80周年答记者问，具体内容如下。 问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。请问中方对此有何评论？ 答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。这场历史性审判汇聚11国司法力量，以海量铁证和严
+来源：界面新闻 作者：微澜 3000亿时代公募FOF的机遇与挑战：构建护城河，拥抱多资产时代 今年以来，受中东局势的影响，全球股市呈现高位震荡，以黄金、白银等贵金属为代表的避险资产也先冲高后回落。截至4月2日，今年以来上证指数跌幅为0.51%，沪深300指数跌幅为2.24%。 在市场的剧烈波动中，以公募FOF为代表的稳健类资产成为投资者的首选。公募FOF产品数量稳定上升，规模也
 
 ## 正文
 
-外交部发言人就东京审判开庭80周年答记者问，具体内容如下。
+来源：界面新闻 作者：微澜 3000亿时代公募FOF的机遇与挑战：构建护城河，拥抱多资产时代 今年以来，受中东局势的影响，全球股市呈现高位震荡，以黄金、白银等贵金属为代表的避险资产也先冲高后回落。
 
-问：今天是远东国际军事法庭（东京审判）开庭80周年纪念日。
+截至4月2日，今年以来上证指数跌幅为0.51%，沪深300指数跌幅为2.24%。
 
-近期，中国、日本、国际社会都举行了一系列纪念活动，重温东京审判历史意义。
+在市场的剧烈波动中，以公募FOF为代表的稳健类资产成为投资者的首选。
 
-请问中方对此有何评论？
+公募FOF产品数量稳定上升，规模也创下2022年以来的新高。
 
-答：1946年5月3日，根据日本无条件投降安排和盟军最高统帅颁布的《远东国际军事法庭宪章》，远东国际军事法庭正式开庭。
+今年以来，公募FOF基金发行热度持续升温，目前已完成募集的49只FOF合计募集规模为674亿元，FOF总规模突破3000亿元。
 
-这场历史性审判汇聚11国司法力量，以海量铁证和严谨法理，判定日本军国主义发动侵略战争、严重违反国际法，揭露日本侵略者在亚洲多国犯下的累累罪行，判处东条英机等25名甲级战犯绞刑、徒刑，驳斥所谓“胜利者审判”“自卫战争”“事后立法”等谬论。
+在公募FOF发展的新阶段，从选基金到选资产，多资产策略FOF正成为市场新的主流方向。
 
-东京审判是《开罗宣言》《波茨坦公告》规定的实施，反映战胜国与受害者集体意志，践行《联合国宪章》的宗旨与原则，捍卫了二战胜利成果。
+FOF规模创历史新高 2025年，伴随着权益市场的回暖，公募FOF基金市场呈现显著复苏，产品数量稳步增长。
 
-接受东京审判判决是战后日本回归国际社会的前提。
+截至2025年末，全市场共有549只公募FOF基金（不同份额合并计算），合计规模2441.88亿元。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 11:23 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:45 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:24 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 11:19 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 11:29 - [长三角铁路5月2日预计发送旅客418万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:30 - [“对你们充满了敬意”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 11:35 - [云南“五一”假期多地降雪 呈反季冰雪景观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 11:30 - [江西梅江灌区主体工程全面完工试通水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 11:33 - [国羽3:0胜日本队挺进尤伯杯决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 11:26 - [城堡证券：伊朗战争烈度升级风险减弱 股债市场存在反弹机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 11:23 - [新东方-S遭First Beijing Investment Limited减持67万股 每股均价约46.12港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 11:39 - [立遗嘱人群数量连续多年稳步增长 年轻群体已成为遗嘱规划新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:34 - [台湾自媒体人踏春入滇 共赴泼水节文化盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 11:30 - [神驰机电：拟出资6000万元参与设立股权投资合伙企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:29 - [古兜控股获JYH Hong Kong Limited增持约1.07亿股 每股作价0.0603港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:44 - [珂玛科技可转债发行安排](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 11:20 - [美国总统特朗普： 封锁伊朗后美国将能大卖石油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 11:21 - [花洒很干净，不用清洁……是真是假？| 谣言终结站](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:36 - [绿叶制药获瑞银增持1395.45万股 每股作价约2.85港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 11:22 - [中信建投期货：4月14日黑色系早报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 11:41 - [习近平会见阿联酋阿布扎比王储哈立德](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:31 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.blog.kurohicncr.top/Article/details/527273.shtml)
-- 2026-06-29 11:37 - [福州地铁客流连创新高](http://www.share.kurohicncr.top/Article/details/29860.shtml)
-- 2026-06-29 11:47 - [埃及侨商：持续推动“零关税”红利转化为务实合作](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:29 - [“05后”持有人猛增10倍，年轻人涌向AI基金](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:35 - [2026五一档新片票房破9000万](http://www.share.kurohicncr.top/Article/details/6288520.shtml)
-- 2026-06-29 11:33 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:45 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.share.minike.top/Article/details/7978196.shtml)
-- 2026-06-29 11:22 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.blog.kurohicncr.top/Article/details/595729064531.shtml)
-- 2026-06-29 11:38 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](http://www.blog.kurohicncr.top/Article/details/16921761249.shtml)
-- 2026-06-29 11:20 - [四川岳池：游客化身“天外飞仙” 参与式文旅成新风尚](http://www.share.minike.top/Article/details/8750362.shtml)
-- 2026-06-29 11:37 - [贵州·台江2026年苗族姊妹节开幕 上演精彩文艺节目](http://www.share.kurohicncr.top/Article/details/7219772046.shtml)
-- 2026-06-29 11:42 - [前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？](http://www.blog.minike.top/Article/details/513483498187.shtml)
-- 2026-06-29 11:35 - [墨西哥总统预计Pemex与巴西国家石油公司将达成协议](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](http://www.blog.minike.top/Article/details/10649.shtml)
-- 2026-06-29 11:40 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](http://www.share.kurohicncr.top/Article/details/37475671.shtml)
+- 2026-06-29 11:33 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](http://www.share.kurohicncr.top/Article/details/909720058145.shtml)
+- 2026-06-29 11:37 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](http://www.blog.kurohicncr.top/Article/details/183415373.shtml)
+- 2026-06-29 11:48 - [“停飞潮”全球蔓延，航空业陷高油价困局](http://www.blog.kurohicncr.top/Article/details/07393834585.shtml)
+- 2026-06-29 11:35 - [愤怒的李想和遭到围攻的理想汽车](http://www.share.minike.top/Article/details/67136.shtml)
+- 2026-06-29 11:31 - [顺丰、京东、中通、韵达、申通等回应快递涨价](http://www.blog.kurohicncr.top/Article/details/37811.shtml)
+- 2026-06-29 11:20 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](http://www.blog.minike.top/Article/details/9088948.shtml)
+- 2026-06-29 11:42 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](http://www.blog.minike.top/Article/details/77372309988.shtml)
+- 2026-06-29 11:44 - [美国对伊朗海上交通封锁13日生效](http://www.blog.kurohicncr.top/Article/details/6087973377.shtml)
+- 2026-06-29 11:22 - [恒大集团、恒大地产及许家印案一审开庭](http://www.share.kurohicncr.top/Article/details/223647.shtml)
+- 2026-06-29 11:35 - [开局之年看中国·开放自贸港：当“椰子之乡”牵手“沙漠面包”](http://www.share.minike.top/Article/details/6597169.shtml)
+- 2026-06-29 11:28 - [跨越四百年 西班牙首相感叹：中国依旧伟大](http://www.share.kurohicncr.top/Article/details/59578.shtml)
+- 2026-06-29 11:31 - [“00”后藏族设计师班珠丹塔 让藏装焕发时代光彩](http://www.blog.kurohicncr.top/Article/details/646390066413.shtml)
+- 2026-06-29 11:19 - [涉案3000万元 非法集资瞄准“银发旅游团”](http://www.blog.kurohicncr.top/Article/details/079158.shtml)
+- 2026-06-29 11:27 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](http://www.blog.minike.top/Article/details/0401182680.shtml)
+- 2026-06-29 11:21 - [长安期货：美伊和谈暂无成果 关注CPI数据](http://www.share.kurohicncr.top/Article/details/6776071641.shtml)

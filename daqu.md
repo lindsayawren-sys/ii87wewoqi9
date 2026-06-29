@@ -1,61 +1,56 @@
-# 刚刚，利好来了！上海，重磅出手！
+# 创业板增设第四套上市标准 更好支持优质创新企业发展
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-在商业航天领域，上海出手了！ 企查查信息显示，4月30日，上海商业航天海上发射技术有限公司成立，注册资本11亿元人民币。股东结构方面，该公司由上海国盛集团、中国商火等五家企业共同持股。 二级市场上，A股商业航天概念股今日大幅拉升，截至收盘时，西部材料、中国长城、上海沪工、海昌新材等近20只相关概念股涨停或涨超10%。 有机构表示，当前，商业航天已进入加速发展期，国内卫星发射有望
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 田 鹏 4月10日，经国务院同意，中国证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》）。同日，深圳证券交易所（以下简称“深交所”）就同步制定修订的4项配套业务规则公开征求意见。 围绕更好服务新质生产力的改革目标，《创业板意见》在发行上市端作出重要创新，增设第
 
 ## 正文
 
-在商业航天领域，上海出手了！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-企查查信息显示，4月30日，上海商业航天海上发射技术有限公司成立，注册资本11亿元人民币。
+本报记者 田 鹏 4月10日，经国务院同意，中国证监会发布《关于深化创业板改革 更好服务新质生产力发展的意见》（以下简称《创业板意见》）。
 
-股东结构方面，该公司由上海国盛集团、中国商火等五家企业共同持股。
+同日，深圳证券交易所（以下简称“深交所”）就同步制定修订的4项配套业务规则公开征求意见。
 
-二级市场上，A股商业航天概念股今日大幅拉升，截至收盘时，西部材料、中国长城、上海沪工、海昌新材等近20只相关概念股涨停或涨超10%。
+围绕更好服务新质生产力的改革目标，《创业板意见》在发行上市端作出重要创新，增设第四套上市标准，通过引入收入复合增长率、研发投入等成长性、创新性指标，与市值、收入指标进行组合，以更好地支持具备高成长潜力与突出创新能力的优质企业，支持不同类型的新兴产业、未来产业领域优质创新创业企业上市。
 
-有机构表示，当前，商业航天已进入加速发展期，国内卫星发射有望加速，可回收火箭技术临点将至。
+接受《证券日报》记者采访的专家表示，此次政策将收入增速和研发投入强度纳入创业板上市标准核心指标，使那些处于技术突破前夜的成长性、创新性企业，获得了与自身发展阶段精准契合、与创新规律深度适配的上市通道。
 
-上海商业航天海上发射公司成立 最新信息显示，上海商业航天海上发射技术有限公司于4月30日成立，法定代表人为哈尔曼，注册资本11亿元人民币，注册地址为上海市闵行区春德路。
+对于优质创新企业而言，这不仅是“鞋子更合脚”的便利，更是创新价值被市场发现、成长潜力被资本赋能的制度性突破，有力推动科技创新和产业创新加速融合。
 
-上述公司的经营范围包括民用航天发射技术服务；火箭控制系统研发；火箭发动机研发与制造；火箭发射设备研发和制造；特种设备设计等。
+靶向破局 适配创新发展趋势 当前，全球创新生态日趋活跃，前沿技术迭代加速，科技创新与产业创新深度融合，新兴产业与未来产业蓬勃发展、加速演进。
 
-股东结构方面，该公司由上海国盛（集团）有限公司、上海市莘庄工业区经济技术发展有限公司、上海垣信卫星科技有限公司、中国海洋工程装备技术发展有限公司、中国航天科技集团商业火箭有限公司共同持股。
+立足这一时代要求，资本市场亟须进一步优化资源配置功能，提供更加精准高效、适配创新规律的金融服务，更好适配创新发展趋势。
 
 ## 相关推荐
 
-- 2026-06-29 11:42 - [彭博评论：马斯克的薪酬就像特斯拉股票，全是“空气”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:40 - [从“场边观赛”到“上场竞技”台胞组队参加厦门龙舟赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 11:35 - [“科技+”“电影+”“赛事+” “五一”假期出游焕新彩文旅市场活力四射](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 11:37 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 11:24 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 11:27 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 11:40 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 11:26 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 11:44 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 11:39 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 11:23 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 11:34 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 11:39 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:28 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:35 - [以更大力度更实举措加强基础研究](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:21 - [AI叠加强基本面双轮驱动，储能板块再迎强催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 11:22 - [创金合信基金王鑫：光通信板块进入基本面兑现阶段 更看好龙头公司投资机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 11:42 - [捕捉全球医药创新机遇，借道专业工具把握“新质生产力”投资主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 11:23 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 11:43 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 11:45 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 11:46 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 11:21 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 11:46 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 11:19 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:28 - [宁夏银川：咖啡遇上音乐 “五一”假期解锁文旅休闲新场景](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [马斯克2025年特斯拉薪酬总额达1580亿美元](http://www.share.minike.top/Article/details/429562041229.shtml)
-- 2026-06-29 11:44 - [挪威油企与工会谈判破裂，拟通过调解避免罢工及产量中断](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:27 - [漳汕高铁广东段山家特大桥首梁架设](http://www.share.minike.top/Article/details/25853449910.shtml)
-- 2026-06-29 11:44 - [“金融国家队”为何选中了他们](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:47 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](http://www.blog.minike.top/Article/details/47753899.shtml)
-- 2026-06-29 11:18 - [“五一”假期首日广东水上出行迎来客流高峰](http://www.blog.minike.top/Article/details/2134922.shtml)
-- 2026-06-29 11:19 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.share.kurohicncr.top/Article/details/62580.shtml)
-- 2026-06-29 11:39 - [干预数小时后 日元兑美元汇率大幅上涨](http://www.blog.kurohicncr.top/Article/details/91092578586.shtml)
-- 2026-06-29 11:18 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.blog.kurohicncr.top/Article/details/436350628.shtml)
-- 2026-06-29 11:27 - [刀为笔、木为纸 木版年画比赛展非遗魅力](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:42 - [福建首个侨台档案融合展示馆开门迎客](http://www.blog.minike.top/Article/details/784937.shtml)
-- 2026-06-29 11:29 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.blog.minike.top/Article/details/876146269529.shtml)
-- 2026-06-29 11:41 - [巴西国家石油公司宣布航空煤油提价18%](http://www.blog.kurohicncr.top/Article/details/5018816.shtml)
-- 2026-06-29 11:28 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.blog.kurohicncr.top/Article/details/93643297.shtml)
+- 2026-06-29 11:49 - [特朗普猛烈抨击教皇利奥十四世对美外交政策的批评](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:40 - [修好政德才能出好政绩（思想纵横）](http://www.blog.kurohicncr.top/Article/details/8636125471.shtml)
+- 2026-06-29 11:39 - [习近平会见西班牙首相桑切斯：共同捍卫真正的多边主义 守护全球和平与发展](http://www.share.kurohicncr.top/Article/details/902223.shtml)
+- 2026-06-29 11:46 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.share.kurohicncr.top/Article/details/296002700.shtml)
+- 2026-06-29 11:44 - [西班牙首相：世界离不开中国](http://www.blog.kurohicncr.top/Article/details/779247.shtml)
+- 2026-06-29 11:45 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](http://www.share.kurohicncr.top/Article/details/505499.shtml)
+- 2026-06-29 11:46 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.share.kurohicncr.top/Article/details/30335574.shtml)
+- 2026-06-29 11:19 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.share.kurohicncr.top/Article/details/441828651131.shtml)
+- 2026-06-29 11:25 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](http://www.share.kurohicncr.top/Article/details/64671402.shtml)
+- 2026-06-29 11:45 - [A股午评：超2600只个股飘绿，三大指数集体收涨](http://www.share.minike.top/Article/details/64595848135.shtml)
+- 2026-06-29 11:38 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](http://www.share.kurohicncr.top/Article/details/76288961130.shtml)
+- 2026-06-29 11:28 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.kurohicncr.top/Article/details/4826578882.shtml)
+- 2026-06-29 11:45 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:38 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.share.minike.top/Article/details/01004220532.shtml)
+- 2026-06-29 11:48 - [贺兰山下的微醺时光：一杯尽揽岁月风华](http://www.blog.minike.top/Article/details/50669.shtml)

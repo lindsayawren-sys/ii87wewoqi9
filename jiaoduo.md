@@ -1,59 +1,59 @@
-# 前瞻｜巴菲特谢幕，阿贝尔登场：2026伯克希尔股东大会有何看点？
+# “00”后藏族设计师班珠丹塔 让藏装焕发时代光彩
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-界面新闻特派记者王子啡（发自美国奥马哈） 美国中部城市奥马哈，正在迎来一场注定不同寻常的股东大会。 每年五月，成千上万名投资者涌入这座位于内布拉斯加州的城市，以求能亲眼见见沃伦·巴菲特（Warren Buffett）、亲耳聆听他的投资建议。他们在CHI健康中心外，早早排起长队——可能还会买上一盒冰雪皇后的冰淇淋、或是See’s Candies的糖果——期待在之后那个超长的问答环
+西藏商报 记者 张雪芳 郑常容 近日，26岁的“00后”藏族设计师班珠丹塔携七套融合西藏传统技艺与现代美学的藏装作品，惊艳亮相2026年中国国际时装周(春季)“冈仁卓嘎·郭蓉蓉时装发布”大秀，成为秀场内外备受关注的焦点。 出于对家乡文化的热爱，加之不懈努力和出众才华，班珠丹塔设计的藏族服饰曾先后亮相2025年总台春节联欢晚会拉萨分会场、2025年藏历新年晚会及2026年藏历新年
 
 ## 正文
 
-界面新闻特派记者王子啡（发自美国奥马哈） 美国中部城市奥马哈，正在迎来一场注定不同寻常的股东大会。
+西藏商报 记者 张雪芳 郑常容 近日，26岁的“00后”藏族设计师班珠丹塔携七套融合西藏传统技艺与现代美学的藏装作品，惊艳亮相2026年中国国际时装周(春季)“冈仁卓嘎·郭蓉蓉时装发布”大秀，成为秀场内外备受关注的焦点。
 
-每年五月，成千上万名投资者涌入这座位于内布拉斯加州的城市，以求能亲眼见见沃伦·巴菲特（Warren Buffett）、亲耳聆听他的投资建议。
+出于对家乡文化的热爱，加之不懈努力和出众才华，班珠丹塔设计的藏族服饰曾先后亮相2025年总台春节联欢晚会拉萨分会场、2025年藏历新年晚会及2026年藏历新年晚会。
 
-他们在CHI健康中心外，早早排起长队——可能还会买上一盒冰雪皇后的冰淇淋、或是See’s Candies的糖果——期待在之后那个超长的问答环节里，亲见一位耄耋老人连续数小时，舌战四方。
+怀揣传承使命与文化担当，他始终以弘扬西藏非遗为己任，积极为西藏传统文化发声，让西藏服饰文化在世界舞台上绽放出夺目的光彩。
 
-这套仪式，维持了六十年。
+惊艳亮相时装周上的西藏风采 谈起2026年中国国际时装周(春季)“冈仁卓嘎·郭蓉蓉时装发布”大秀，班珠丹塔表示，此次亮相的七套藏装作品，宛如七颗精心雕琢的宝石，完美呈现了西藏服饰文化的独特魅力。
 
-但2026年5月2日，这一切将有所不同。
+在服装设计中，他深度融入国家级非遗氆氇织造、堆绣及金银器錾刻、掐丝等传统技艺，既完整保留藏装盛装的庄重仪式感与常服的实用适配性，又跳出传统复刻的局限。
 
-今年是伯克希尔·哈撒韦（Berkshire Hathaway）股东大会六十年历史上，第一次不由巴菲特主持。
+在色彩搭配、面料选择、结构剪裁与首饰搭配上注入当代审美，让四套古典盛装与三套季节常服兼具历史厚重感与时尚潮流感。
 
-去年5月，95岁的巴菲特在大会上宣布卸任CEO，将接力棒正式交给格雷格·阿贝尔（Greg Abel）。
+此外，班珠丹塔还从西藏壁画、唐卡与古典歌舞服饰中汲取灵感。
 
-董事会随后于2026年1月1日确认阿贝尔出任新CEO，巴菲特以非执行董事长身份留任。
+他自己身穿的服饰以国家级非遗歌舞“甲谐”男士礼服为灵感，选用古铜色为主调，以流苏的红、松石的蓝作点睛，搭配索夏帽、肩帔等传统配饰，重构藏装“雅而不素、艳而不俗”的内敛韵味，追求且运用藏式元素，希望让更多人认识和了解藏族服饰美学。
 
 ## 相关推荐
 
-- 2026-06-29 11:18 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 11:31 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:47 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 11:46 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 11:21 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:30 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 11:28 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 11:18 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 11:19 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 11:26 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 11:34 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 11:44 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 11:46 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:40 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 11:29 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:29 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 11:37 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 11:25 - [天风策略：特朗普TACO了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 11:42 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:37 - [【新思想引领新征程】服务业扩能提质 锻造经济增长新引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 11:23 - [冰川消退预警峰值水量 奥地利能源转型提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 11:38 - [参议员Scott：沃什的美联储主席提名确认听证会将于下周举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 11:21 - [中国太保：总经理助理刘龙的任职资格获核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 11:26 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 11:42 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 11:37 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:42 - [阿贝尔重申伯克希尔核心原则](http://www.share.kurohicncr.top/Article/details/024143.shtml)
-- 2026-06-29 11:39 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](http://www.blog.minike.top/Article/details/4684442152.shtml)
-- 2026-06-29 11:40 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.share.kurohicncr.top/Article/details/035765.shtml)
-- 2026-06-29 11:32 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](http://www.share.kurohicncr.top/Article/details/68500975.shtml)
-- 2026-06-29 11:31 - [重庆新开往返菲律宾马尼拉客运航线](http://www.blog.minike.top/Article/details/6846285.shtml)
-- 2026-06-29 11:32 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](http://www.share.minike.top/Article/details/3159440.shtml)
-- 2026-06-29 11:23 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:36 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](http://www.blog.kurohicncr.top/Article/details/7521886149.shtml)
-- 2026-06-29 11:27 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.blog.minike.top/Article/details/60682.shtml)
-- 2026-06-29 11:36 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.share.kurohicncr.top/Article/details/3214069084.shtml)
-- 2026-06-29 11:45 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](http://www.share.kurohicncr.top/Article/details/09816968.shtml)
-- 2026-06-29 11:30 - [三星电子任命新的视觉显示业务负责人](http://www.blog.minike.top/Article/details/69887324408.shtml)
-- 2026-06-29 11:26 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](http://www.share.kurohicncr.top/Article/details/542280.shtml)
-- 2026-06-29 11:27 - [韩国特检组就金建希首案二审结果提出抗诉](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:42 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:20 - [商务部、中国进出口银行：加大进出口信贷支持力度](http://www.share.minike.top/Article/details/51647674567.shtml)
+- 2026-06-29 11:21 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](http://www.share.minike.top/Article/details/84658886618.shtml)
+- 2026-06-29 11:29 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](http://www.blog.kurohicncr.top/Article/details/012254995.shtml)
+- 2026-06-29 11:48 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](http://www.share.kurohicncr.top/Article/details/739676688.shtml)
+- 2026-06-29 11:26 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [甘肃环县九村联建一个厂 带富千户种粮人](http://www.blog.minike.top/Article/details/20520.shtml)
+- 2026-06-29 11:20 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](http://www.share.kurohicncr.top/Article/details/3307602.shtml)
+- 2026-06-29 11:21 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.blog.kurohicncr.top/Article/details/626068291.shtml)
+- 2026-06-29 11:46 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](http://www.blog.kurohicncr.top/Article/details/7568787.shtml)
+- 2026-06-29 11:46 - [五一视界早盘涨逾6% 日前获创始人增持765万股](http://www.blog.minike.top/Article/details/695351.shtml)
+- 2026-06-29 11:27 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](http://www.share.kurohicncr.top/Article/details/0171281477.shtml)
+- 2026-06-29 11:49 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](http://www.blog.kurohicncr.top/Article/details/128903217.shtml)

@@ -1,57 +1,57 @@
-# 埃克森美孚与雪佛龙无视特朗普政府增产呼吁
+# 马克龙分别与伊朗、美国总统通电话 呼吁重启谈判
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-埃克森美孚和雪佛龙拒绝了白宫提出的增产要求，顶住了来自特朗普政府的压力。 当前，美国政府正疲于应对数十年来最严重的能源危机。 埃克森美孚首席财务官尼尔·汉森表示，该公司在美国主要油气产区二叠纪盆地的战略“没有变化”。 雪佛龙首席财务官艾梅尔·邦纳则表示，“这场危机并未促使我们的任何计划发生改变”。 伊朗战争导致海湾地区石油产量锐减，并对中东及其他地区的炼油业务造成冲击，引发了一
+中新社巴黎4月14日电(记者 李洋)法国总统马克龙14日通过社交媒体表示，他13日分别与伊朗总统佩泽希齐扬和美国总统特朗普通电话，呼吁伊美双方重启谈判。 马克龙表示，他在通话中敦促在巴基斯坦伊斯兰堡暂停的伊美谈判能够恢复，相关“误解”能够得到澄清，并避免局势的进一步升级。他强调所有各方均需严格遵守停火协议，并且相关停火协议应包括黎巴嫩。 伊朗与美国的代表团数天前已在伊斯兰堡进行
 
 ## 正文
 
-埃克森美孚和雪佛龙拒绝了白宫提出的增产要求，顶住了来自特朗普政府的压力。
+中新社巴黎4月14日电(记者 李洋)法国总统马克龙14日通过社交媒体表示，他13日分别与伊朗总统佩泽希齐扬和美国总统特朗普通电话，呼吁伊美双方重启谈判。
 
-当前，美国政府正疲于应对数十年来最严重的能源危机。
+马克龙表示，他在通话中敦促在巴基斯坦伊斯兰堡暂停的伊美谈判能够恢复，相关“误解”能够得到澄清，并避免局势的进一步升级。
 
-埃克森美孚首席财务官尼尔·汉森表示，该公司在美国主要油气产区二叠纪盆地的战略“没有变化”。
+他强调所有各方均需严格遵守停火协议，并且相关停火协议应包括黎巴嫩。
 
-雪佛龙首席财务官艾梅尔·邦纳则表示，“这场危机并未促使我们的任何计划发生改变”。
+伊朗与美国的代表团数天前已在伊斯兰堡进行了谈判，双方未达成共识。
 
-伊朗战争导致海湾地区石油产量锐减，并对中东及其他地区的炼油业务造成冲击，引发了一场可能加剧全球通胀的能源冲击。
+巴基斯坦官方已提议美国和伊朗在伊斯兰堡举行新一轮谈判。
 
-周四，油价升至每桶126美元，为战争爆发以来的最高水平。
+在谈及霍尔木兹海峡时，马克龙表示，霍尔木兹海峡应尽快“无条件重新开放”，不受任何限制也不应收取费用。
 
-与此同时，美国汽油价格飙升至每加仑4美元以上，这打破了总统特朗普在竞选时作出的将油价降至2美元以下、降低美国人生活成本的承诺。
+马克龙还同时确认，法国和英国计划于本周五(17日)在巴黎举办一次视频会议，讨论在安全条件准许的情况下帮助恢复霍尔木兹海峡的航行自由。
 
-责任编辑：陈钰嘉
+法国官方14日早些时候表示，马克龙和英国首相斯塔默将共同主持此次视频会议，并指出相关任务是“纯粹防御性”的，目的是确保霍尔木兹海峡安全。
 
 ## 相关推荐
 
-- 2026-06-29 11:20 - [一觉醒来，美国对欧洲下狠手了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:38 - [“五一”假期首日预计迎出行客流最高峰 多措并举筑牢旅客出行“安全网”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 11:45 - [学习新语｜幸福属于劳动者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 11:24 - [刚刚，全线大涨！日本，突然动手了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 11:37 - [“五一”假期，中国游中国购的引力“藏不住了”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 11:24 - [意大利制药公司凯西以19亿美元收购美国竞争对手KalVista](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:31 - [赛事流量转消费增量 广东云浮依托粤超激活文旅消费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 11:24 - [一习话·追光的你丨“向每一位辛勤付出的奋斗者致敬”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 11:33 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:35 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 11:30 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 11:30 - [今年以来地方债发行节奏提速](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 11:46 - [纽约联储报告：美联储去年债券持仓账面亏损缩减至8442亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 11:37 - [收评：国内期货主力合约涨跌互现 PX涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 11:47 - [台当局拟引进印度移工引发岛内巨大争议，超九成民众反对](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 11:31 - [马斯克的SpaceX新数据：星链成绝对核心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 11:47 - [中石油董事长拜会阿联酋阿布扎比王储，就深化能源领域合作交换意见](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 11:43 - [适老家电政策元年，如何用科技填补隐性需求的缺口？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 11:35 - [上海市常务副市长吴伟：以强大的国际金融中心助力金融强国建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 11:47 - [钦州港海关2026年4月份“关长接待日”公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 11:30 - [双象股份：拟每10股分红2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 11:25 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:32 - [漳汕高铁广东段山家特大桥首梁架设](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:19 - [“金融国家队”为何选中了他们](http://www.blog.kurohicncr.top/Article/details/490315.shtml)
-- 2026-06-29 11:41 - [ASMPT早盘高开逾4% 建银国际将目标价上调至190港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:31 - [“五一”假期首日广东水上出行迎来客流高峰](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:25 - [关于开展2026年企业ESG实践成果展示活动的通知](http://www.share.minike.top/Article/details/9542497233.shtml)
-- 2026-06-29 11:36 - [干预数小时后 日元兑美元汇率大幅上涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:30 - [“苏超”南京赛区志愿者暖心护航 宁马青年聚力绽放青春力量](http://www.share.kurohicncr.top/Article/details/489069225.shtml)
-- 2026-06-29 11:19 - [刀为笔、木为纸 木版年画比赛展非遗魅力](http://www.blog.minike.top/Article/details/966585.shtml)
-- 2026-06-29 11:36 - [福建首个侨台档案融合展示馆开门迎客](http://www.blog.minike.top/Article/details/07175.shtml)
-- 2026-06-29 11:47 - [AI浪潮里的“模速青年”：勇敢追梦，让年轻有“模”有样](http://www.share.kurohicncr.top/Article/details/126999.shtml)
-- 2026-06-29 11:28 - [巴西国家石油公司宣布航空煤油提价18%](http://www.share.kurohicncr.top/Article/details/375762180285.shtml)
-- 2026-06-29 11:36 - [马里一军营被武装组织控制 首都周边交通受阻](http://www.blog.minike.top/Article/details/4849454301.shtml)
-- 2026-06-29 11:27 - [伯克希尔一季度利润翻倍以上 保险、铁路、能源业务提振业绩](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:39 - [Vulcan Materials一季度营收超预期 因建材需求强劲](http://www.blog.kurohicncr.top/Article/details/21759.shtml)
-- 2026-06-29 11:37 - [巴菲特：当前并非伯克希尔理想的投资环境](http://www.share.kurohicncr.top/Article/details/9026583290.shtml)
+- 2026-06-29 11:45 - [价格大涨约50%！家电业部分塑料从进口转向国内供应](http://www.share.kurohicncr.top/Article/details/2794037.shtml)
+- 2026-06-29 11:20 - [西班牙首相：世界离不开中国](http://www.share.minike.top/Article/details/635978028.shtml)
+- 2026-06-29 11:35 - [分析师上调英特尔评级 凸显服务器芯片市场持续走强](http://www.blog.minike.top/Article/details/4846771191.shtml)
+- 2026-06-29 11:36 - [中科宇航IPO：报告期内股份支付金额高达19亿元 技术独立性待考 实控人“双跨”问题仍未解决](http://www.share.kurohicncr.top/Article/details/01249401.shtml)
+- 2026-06-29 11:19 - [*ST万方面临“市值退” 4月14日开市起停牌](http://www.blog.kurohicncr.top/Article/details/6892438263.shtml)
+- 2026-06-29 11:39 - [特一药业：根据米内网等第三方市场数据，硫酸氨基葡萄糖胶囊近年来的国内销售规模持续扩大](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:30 - [A股午评：超2600只个股飘绿，三大指数集体收涨](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:44 - [伊朗内政部长指示边境省份“消除海上封锁威胁”](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:31 - [英国石油称其石油交易业务表现“异常出色”](http://www.blog.minike.top/Article/details/952591440.shtml)
+- 2026-06-29 11:37 - [人民币兑美元中间价较上日调升64点至6.8593 升值至2023年3月24日以来最高！](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [东盟学子以艺架桥 欢庆广西“三月三”](http://www.blog.kurohicncr.top/Article/details/312774.shtml)
+- 2026-06-29 11:31 - [贺兰山下的微醺时光：一杯尽揽岁月风华](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:46 - [第十二届“东方财富杯”全国大学生金融挑战赛正式启动 以金融实践赋能青年素养提升](http://www.blog.kurohicncr.top/Article/details/7753912.shtml)
+- 2026-06-29 11:38 - [近一周“一口价”黄金产品最高下跌17%！机构依旧看好黄金后市](http://www.share.kurohicncr.top/Article/details/62088.shtml)
+- 2026-06-29 11:44 - [美国称霍尔木兹封锁首日六船折返](http://www.blog.minike.top/Article/details/04006.shtml)

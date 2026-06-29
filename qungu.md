@@ -1,59 +1,57 @@
-# 世界泳联花样游泳世界杯（西安站）首日 中国队收获第三金
+# 中国首位国际安徒生奖插画家奖得主蔡皋：保持童心 用真诚去创作
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-云南边境的目瑙纵歌，何以火爆全网？上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！孩子吃饭少、长不高、脾气暴？专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅
+中新社长沙4月14日电 (记者 邓霞)“这个奖太重了，不是给我一个人的，它属于所有为孩子写书、画画的人。”获得2026年国际安徒生奖插画家奖的中国绘本画家蔡皋14日在湖南长沙接受采访时如是说。 1946年出生于湖南长沙的蔡皋，是首位获得国际安徒生奖插画家奖的中国艺术家。她常年从事童书编辑和图画书创作，其作品曾获第14届布拉迪斯拉发国际儿童图书展“金苹果奖”。 蔡皋并未接受过科班
 
 ## 正文
 
-云南边境的目瑙纵歌，何以火爆全网？
+中新社长沙4月14日电 (记者 邓霞)“这个奖太重了，不是给我一个人的，它属于所有为孩子写书、画画的人。
 
-上午议事、下午狂欢，篝火迎春、魔女之夜……世界各国的“劳动节”太不一样了！
+”获得2026年国际安徒生奖插画家奖的中国绘本画家蔡皋14日在湖南长沙接受采访时如是说。
 
-孩子吃饭少、长不高、脾气暴？
+1946年出生于湖南长沙的蔡皋，是首位获得国际安徒生奖插画家奖的中国艺术家。
 
-专家：警惕这种罕见病专访台退役少校舰长吕礼诗：绝不因台当局打压而妥协沉默当中国大市场以零关税向非洲53国“敞开怀抱”绍兴黄酒“春藏”热 中外家庭“封藏”人生喜事百年冰泉豆浆香飘海内外：烟火乡愁 味引八方多家景区宣布免门票，这个五一，跟着电影去旅游！
+她常年从事童书编辑和图画书创作，其作品曾获第14届布拉迪斯拉发国际儿童图书展“金苹果奖”。
 
-中国文学何以打动世界读者？
+蔡皋并未接受过科班的美术训练，“完全是靠自学、凭着一股子热爱”走到了今天。
 
-凤何以成为中华民族文化标识？
+“小时候，我没有童话书，是听外婆讲的童谣和故事长大的。
 
-“王的盛宴”：从“No Kings”到“TWO KINGS”“王的演讲”：满堂笑声之后，查尔斯说了大家爱听的，唯独漏了英美必须听的记者手记：亚沙会，让世界从三亚看见开放中国AI末日论：真实风险还是叙事陷阱？
+”在蔡皋的讲述中，热爱生活的外婆，是她的美学和哲学启蒙老师。
 
-伊朗战事已烧250亿美元？
+蔡皋说，外婆故事里的那些朴素道理滋养了她的创作，也成为她作品《月亮粑粑》《月亮走我也走》里抹不掉的湖湘底色。
 
 ## 相关推荐
 
-- 2026-06-29 11:34 - [华安基金苏圻涵|洞见全球视野：透视跨境投资地图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 11:48 - [Check Point一季度利润超预期，但营收指引不及预期拖累股价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 11:44 - [广西桂林开通至韩国大邱国际航线 东亚空中航线网络再扩容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 11:37 - [2026年“国际中文日”文艺巡演活动在北爱尔兰举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 11:18 - [马斯克法庭交锋OpenAI，称奥特曼“不诚实”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 11:32 - [德国经济一季度环比增长0.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 11:40 - [摩森康胜：消费承压环境下，啤酒消费需求依旧坚挺](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:25 - [可孚医疗：发售价厘定为每股H股39.33港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 11:46 - [数万日本民众举行集会 呼吁守护和平宪法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 11:23 - [在香港沉浸式“邂逅”蒙娜丽莎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 11:46 - [FDA批准Axsome新药用于治疗阿尔茨海默病激越症状](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 11:19 - [中国奥园委聘毕马威咨询(香港)为财务顾问](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 11:28 - [首都图书馆“京城有戏”戏曲艺术传承推广系列活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 11:40 - [能源价格回落后 交易员下调对欧洲央行加息的押注](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 11:23 - [周黑鸭于4月13日斥资149.61万港元回购94.1万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 11:38 - [公用事业公司计划未来五年投入1.4万亿美元，助力人工智能热潮发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 11:25 - [海垦十大招商项目亮相“粤贸全国”广东—海南经贸交流对接会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 11:22 - [从滞销盘到区域标杆 远洋建管获委托方授予“最佳战友”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 11:23 - [特朗普称伊朗致电美方说希望达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:23 - [总台海峡时评丨十项促进两岸交流合作新政将给台胞带来实实在在的和平利好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:23 - [郑州银行12名董高离开，赵飞省了一大笔薪酬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 11:30 - [从一名学生到近两千家庭 台湾教师架起两岸“童心桥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 11:29 - [中国人民银行：将开展5000亿买断式逆回购操作 期限为6个月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 11:43 - [巴西非遗乐团走进北京丰台奏响友谊乐章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:44 - [安徽南陵失联18岁少年遗体被找到 警方排除刑事案件](http://www.share.minike.top/Article/details/82774579.shtml)
-- 2026-06-29 11:42 - [印尼Mako天然气项目稳步推进，预计2027年投产](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:22 - [私募信贷投资潮起潮落：AIG放缓部署，Ares遭遇压力](http://www.blog.minike.top/Article/details/445203.shtml)
-- 2026-06-29 11:28 - [以更大力度更实举措加强基础研究](http://www.share.kurohicncr.top/Article/details/33140700362.shtml)
-- 2026-06-29 11:27 - [日元保卫战或一触即发 日本财相警告“时机临近”](http://www.share.kurohicncr.top/Article/details/187962.shtml)
-- 2026-06-29 11:36 - [埃克森CEO对委内瑞拉态度转变 此前曾批评该国“不可投资”](http://www.blog.minike.top/Article/details/12315.shtml)
-- 2026-06-29 11:37 - [民警一声“快来帮忙”，整座桥上的人都来了！](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [英特尔收购Sambanova获美国反垄断批准](http://www.blog.minike.top/Article/details/47512235.shtml)
-- 2026-06-29 11:40 - [北约秘书长：北约欧洲国家听懂特朗普的话了 正落实美军请求](http://www.share.kurohicncr.top/Article/details/9870028897.shtml)
-- 2026-06-29 11:35 - [一见·加强基础研究，总书记强调这个关键因素](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:23 - [亚马逊业绩超预期，AWS重新加速增长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:32 - [亚马逊：受损阿联酋云区域恢复需数月时间](http://www.share.kurohicncr.top/Article/details/408044469.shtml)
-- 2026-06-29 11:45 - [乡村“发明家”让“手搓”坚果打磨机走向世界](http://www.share.minike.top/Article/details/094972416403.shtml)
-- 2026-06-29 11:23 - [习近平总书记同劳动者在一起的故事](http://www.blog.kurohicncr.top/Article/details/08360461133.shtml)
-- 2026-06-29 11:46 - [维珍澳大利亚航空或将航班削减措施延续至第三季度](http://www.blog.minike.top/Article/details/170466583782.shtml)
+- 2026-06-29 11:46 - [钦州港海关2026年4月份“关长接待日”公告](http://www.share.kurohicncr.top/Article/details/8062035.shtml)
+- 2026-06-29 11:26 - [双象股份：拟每10股分红2元](http://www.share.kurohicncr.top/Article/details/34845518072.shtml)
+- 2026-06-29 11:36 - [多晶硅主力合约午后涨停，多股大涨，6股获机构密切关注](http://www.share.minike.top/Article/details/99278704.shtml)
+- 2026-06-29 11:21 - [搭建高端交流平台 深耕侨乡文脉传承——开平民建以学术交流赋能侨乡文化建设](http://www.share.kurohicncr.top/Article/details/32085738781.shtml)
+- 2026-06-29 11:43 - [强业绩提振，金山软件涨超8%，腾讯混元3.0发布在即，华宝基金港股互联网ETF（513770）涨超1%](http://www.blog.minike.top/Article/details/449042.shtml)
+- 2026-06-29 11:19 - [海关总署：今年一季度我国货物进出口同比增长15%](http://www.blog.minike.top/Article/details/713035.shtml)
+- 2026-06-29 11:22 - [从三分薄地到致富产业 山西大同黄花全产业链产值达25亿元](http://www.blog.kurohicncr.top/Article/details/5603154.shtml)
+- 2026-06-29 11:23 - [视频 | 布林肯:霍尔木兹海峡问题就是特朗普搞出来的，现在纵火犯自己跑去灭火](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [中金：维持腾讯控股“跑赢行业”评级 目标价666港元](http://www.share.minike.top/Article/details/8204191.shtml)
+- 2026-06-29 11:45 - [特朗普与昔日盟友梅洛尼翻脸 称她“辜负了美国”](http://www.share.minike.top/Article/details/4072294251.shtml)
+- 2026-06-29 11:27 - [不做下一个Temu：小红书Redshop的差异化突围之战](http://www.blog.minike.top/Article/details/11606310664.shtml)
+- 2026-06-29 11:40 - [中天策略:4月13日市场分析](http://www.share.kurohicncr.top/Article/details/93486393.shtml)
+- 2026-06-29 11:29 - [第六届中国国际消费品博览会启幕 超3400个品牌参展](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:29 - [安徽合肥加速竞逐未来产业](http://www.blog.kurohicncr.top/Article/details/7721711565.shtml)
+- 2026-06-29 11:49 - [韩国3月ICT出口额达435亿美元，同比增长逾一倍](https://github.com/lisacumin64-arch)

@@ -1,57 +1,53 @@
-# 港股收评：恒指涨1.24% 科指涨2.16% 科网股、电力设备股普涨 半导体板块大涨 小米涨超6%
+# 下班上课夜间“充电” 杭州青年夜校AI培训受追捧
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-5月4日消息，港股三大指数集体上涨。截至收盘，恒生指数涨1.24%，报26095.88点，恒生科技指数涨2.16%，国企指数涨1.07%。盘面上，科网股普涨，小米涨超6%，阿里巴巴涨超4%，快手、百度涨超3%；电力设备股涨幅居前，潍柴动力涨超12%；半导体板块大涨，天数智芯涨超20%；航空股强势，中国国航涨超5%。 电力设备股涨幅居前，潍柴动力涨超12%。公司近日发布的2024
+AI可以成为老辈子们的“数字拐杖”吗？台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦辽宁持续发力打造营商环境好口碑具身智能打开“中国服务”新空间印尼的塑料袋与万里之外的战火76载同心同行，中国和印尼情谊跨越山海美伊会谈无果而终，市场担忧情绪蔓延美国封锁临近！油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼
 
 ## 正文
 
-5月4日消息，港股三大指数集体上涨。
+AI可以成为老辈子们的“数字拐杖”吗？
 
-截至收盘，恒生指数涨1.24%，报26095.88点，恒生科技指数涨2.16%，国企指数涨1.07%。
+台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦辽宁持续发力打造营商环境好口碑具身智能打开“中国服务”新空间印尼的塑料袋与万里之外的战火76载同心同行，中国和印尼情谊跨越山海美伊会谈无果而终，市场担忧情绪蔓延美国封锁临近！
 
-盘面上，科网股普涨，小米涨超6%，阿里巴巴涨超4%，快手、百度涨超3%；电力设备股涨幅居前，潍柴动力涨超12%；半导体板块大涨，天数智芯涨超20%；航空股强势，中国国航涨超5%。
+油价冲上100美元，黄金跳水匈牙利迎变局，欧尔班16年强人执政生涯画下句点人这一辈子，一定要去趟云南“撒”个“泼”！
 
-电力设备股涨幅居前，潍柴动力涨超12%。
+“99%芦荟胶”里的99%，竟是指“久久”坚持补水“一天可能讲了上百遍”，脑机接口有多火？
 
-公司近日发布的2024年一季度财报显示，期内实现营业收入625.6亿元，同比增长8.9%；归属于母公司净利润30.9亿元，同比增幅达13.8%。
+记南部战区海军第一医院文职军医田剑：以针为媒传播中国强军之音律师起诉小红书，600元认证费成“肉包子打狗”？
 
-值得注意的是，数据中心发电产品销售收入同比激增超240%，成为业绩增长的核心驱动力。
-
-摩根大通据此上调公司目标价至52港元。
-
-半导体板块大涨，天数智芯涨超20%。
+西班牙首相四年四度访华 中西两国书写“变局中的不变友谊”封关赋能开放 外资加速入琼从汉代博山炉到新中式香薰 中国人的“情绪消费”从未缺席中国简牍宝库破圈揭秘丝路故事680枚钱币、42件化石 外籍旅客携出境被海关查获北京人艺话剧《张居正》香港上演新兵遇雨天询问能否暂停体能训练 班长坚定回应天津“大象滑梯乐园”建成开放 解锁几代人童年记忆探访南京超级充电绿色示范站 快充只需十分钟现场直击郑丽文上海参访 感受两岸交流带来蓬勃生机郑丽文对话在沪台青，在沪台青：这里发展机遇多 能够酝酿人生的厚度当“爱笛声”遇上“保安诗人” 他们把生活写满诗歌1分钟10人同步跳绳258次外国友人勇闯泼水节狂欢现场机器人深夜狂飙半马 下班后开启躺平模式动物园为小黑熊举办“百日庆典”重庆动物园“萌宝天团”春日齐亮相加拿大人学打麻将 拿着对照表说“碰、杠、吃”广州遭遇大暴雨 一野生动
 
 ## 相关推荐
 
-- 2026-06-29 11:31 - [福州市签约22个数字经济重点项目 总投资190亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 11:47 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 11:34 - [伏季休渔启幕 广西北海侨港码头渔市热闹收官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 11:23 - [星火成炬｜生活的想象力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 11:43 - [厦门推动两岸标准共通助力台企拓宽市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:40 - [今年以来广西爱店口岸跨境贸易持续升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 11:36 - [亚马逊Audible李博隆：AI让研发成本和机会成本大大下降，越来越多科技公司开始做跨界](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 11:27 - [深度伪造的“虚拟”沃伦·巴菲特开启伯克希尔年度股东大会问答环节](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 11:41 - [110对新人军营大婚：戎装白纱共绘“家国浪漫”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 11:27 - [成都铁路迎“五一”假期客流高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 11:24 - [最新名单！这些公司锁定退市，多元化出清格局成形](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 11:44 - [哈萨克斯坦今年第一季度GDP同比增长3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 11:37 - [美联航据悉提议与美国航空合并](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 11:22 - [金蝶国际早盘高开逾8% 截至3月底ARR同比增长约19%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:37 - [美企员工对人工智能的采用存在分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 11:44 - [全球第二储能企业海辰储能代表福建亮相香港国际创科展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:38 - [五大险企2025年总投资收益率普升 新华保险6.6%领跑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 11:23 - [城堡证券：伊朗战争烈度升级风险减弱 股债市场存在反弹机会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 11:20 - [新东方-S遭First Beijing Investment Limited减持67万股 每股均价约46.12港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 11:32 - [立遗嘱人群数量连续多年稳步增长 年轻群体已成为遗嘱规划新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:23 - [台湾自媒体人踏春入滇 共赴泼水节文化盛宴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:35 - [神驰机电：拟出资6000万元参与设立股权投资合伙企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:29 - [美国威胁制裁向伊朗缴通行费的航运企业](http://www.share.minike.top/Article/details/4949616690.shtml)
-- 2026-06-29 11:26 - [中国铁路迎来“五一”假期运输客流最高峰](http://www.blog.minike.top/Article/details/91121.shtml)
-- 2026-06-29 11:18 - [致敬劳动者｜每一方寸，因你而闪光](http://www.blog.kurohicncr.top/Article/details/611524766.shtml)
-- 2026-06-29 11:30 - [远东国际观察：日本国会参议院通过2026财年预算案](http://www.share.kurohicncr.top/Article/details/37313009.shtml)
-- 2026-06-29 11:36 - [跳水世界杯总决赛王宗源男子3米板“四连冠”](http://www.blog.minike.top/Article/details/74481.shtml)
-- 2026-06-29 11:31 - [市场供需协同改善 物流发展质效良好——透视一季度我国社会物流发展](http://www.blog.kurohicncr.top/Article/details/032429630.shtml)
-- 2026-06-29 11:33 - [中国驻法使领馆发布关于谨防冒充中国驻外使领馆工作人员行骗的领事提醒](http://www.share.minike.top/Article/details/8587463.shtml)
-- 2026-06-29 11:37 - [福州地铁客流连创新高](http://www.blog.minike.top/Article/details/0574997443.shtml)
-- 2026-06-29 11:35 - [埃及侨商：持续推动“零关税”红利转化为务实合作](http://www.blog.kurohicncr.top/Article/details/43171.shtml)
-- 2026-06-29 11:23 - [“05后”持有人猛增10倍，年轻人涌向AI基金](http://www.blog.minike.top/Article/details/64646.shtml)
-- 2026-06-29 11:46 - [2026五一档新片票房破9000万](http://www.share.kurohicncr.top/Article/details/563156112659.shtml)
-- 2026-06-29 11:42 - [美国制造业保持扩张势头 价格指标触及四年高位](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:18 - [鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性](http://www.share.kurohicncr.top/Article/details/253816498.shtml)
-- 2026-06-29 11:20 - [多位驻华大使出席“书香连中西·文明共生辉”国际文化会客厅活动](http://www.share.kurohicncr.top/Article/details/494600544167.shtml)
-- 2026-06-29 11:37 - [五一假期 游客沉浸式感受新疆那达慕草原盛会](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:36 - [苏富比向卖家提供7%利息以延后支付拍卖款项](http://www.blog.kurohicncr.top/Article/details/55662980297.shtml)
+- 2026-06-29 11:45 - [OPEC 3月产量创史上最大单月跌幅 中东冲突重创出口](http://www.blog.kurohicncr.top/Article/details/565285359.shtml)
+- 2026-06-29 11:40 - [今年以来多个细分赛道ETF实现大幅净流入](http://www.share.kurohicncr.top/Article/details/12844.shtml)
+- 2026-06-29 11:31 - [浙江杭州：智能游艇畅游富春江](http://www.blog.kurohicncr.top/Article/details/906867310.shtml)
+- 2026-06-29 11:48 - [中国清洁技术优势扩大](http://www.blog.kurohicncr.top/Article/details/277811912.shtml)
+- 2026-06-29 11:22 - [美国：球在伊朗一边，伊朗：球在美国一方，巴基斯坦：呼吁双方延长临时停火](http://www.share.kurohicncr.top/Article/details/24984.shtml)
+- 2026-06-29 11:29 - [中船防务盘初涨逾8% 预期一季度归母净利同比增加95.16%至133.11%](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:41 - [郑丽文在北京点赞的福建名菜：鸡汤汆海蚌，一口尝尽山海情](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:32 - [“停飞潮”全球蔓延，航空业陷高油价困局](http://www.share.kurohicncr.top/Article/details/725826444.shtml)
+- 2026-06-29 11:35 - [愤怒的李想和遭到围攻的理想汽车](http://www.blog.minike.top/Article/details/254379987326.shtml)
+- 2026-06-29 11:29 - [顺丰、京东、中通、韵达、申通等回应快递涨价](http://www.blog.minike.top/Article/details/0188942.shtml)
+- 2026-06-29 11:22 - [美国宣布封锁后，三艘油轮试图穿越霍尔木兹海峡](http://www.share.minike.top/Article/details/14377.shtml)
+- 2026-06-29 11:21 - [日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务](http://www.share.kurohicncr.top/Article/details/4247406.shtml)
+- 2026-06-29 11:35 - [美国对伊朗海上交通封锁13日生效](http://www.share.kurohicncr.top/Article/details/430128.shtml)
+- 2026-06-29 11:36 - [恒大集团、恒大地产及许家印案一审开庭](http://www.share.kurohicncr.top/Article/details/933556925.shtml)

@@ -1,58 +1,57 @@
-# 每天走路够这个量 或能延寿11年！健步走行动清单快掌握→
+# 香港交易所推出两只科技指数 易方达香港获授权
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-走路是“长寿药”又添新证据！ 走路不仅可以降低17%全因死亡风险 如果你每天走够11000步 或可将寿命延长11年！同样是走路 为何你却走出一身病？ 如何正确健步走？ 快一起来看看吧～ 01 走路是“长寿药” 又添新证据 2026年1月，《英国医学杂志》子刊发表的一项长达30年的研究发现，只要动起来，无论做什么运动，其死亡风险就比不运动的人低，而走路更是性价比极高的长寿运动。
+4月13日，香港交易及结算所有限公司（以下简称“香港交易所”）推出两只科技类指数，分别是香港交易所韩国交易所半导体指数、香港交易所科技及美国科技100指数，并宣布已与易方达资产管理（香港）有限公司（以下简称“易方达香港”）等资产管理机构签订授权协议。 随着越来越多不同领域的科技公司选择在香港市场上市，投资者对相关金融产品的需求日益多元。此次推出的两只指数旨在助力投资者布局全球及
 
 ## 正文
 
-走路是“长寿药”又添新证据！
+4月13日，香港交易及结算所有限公司（以下简称“香港交易所”）推出两只科技类指数，分别是香港交易所韩国交易所半导体指数、香港交易所科技及美国科技100指数，并宣布已与易方达资产管理（香港）有限公司（以下简称“易方达香港”）等资产管理机构签订授权协议。
 
-走路不仅可以降低17%全因死亡风险 如果你每天走够11000步 或可将寿命延长11年！
+随着越来越多不同领域的科技公司选择在香港市场上市，投资者对相关金融产品的需求日益多元。
 
-同样是走路 为何你却走出一身病？
+此次推出的两只指数旨在助力投资者布局全球及区域科技领域的投资主题，提供更广泛的跨市场投资机遇，同时推动市场开发更多ETF纳入南向ETF通，为内地投资者提供更丰富的跨市场投资选择。
 
-如何正确健步走？
+相关ETF产品待获批后，预计将在香港市场推出。
 
-快一起来看看吧～ 01 走路是“长寿药” 又添新证据 2026年1月，《英国医学杂志》子刊发表的一项长达30年的研究发现，只要动起来，无论做什么运动，其死亡风险就比不运动的人低，而走路更是性价比极高的长寿运动。
+具体来看，香港交易所韩国交易所半导体指数追踪符合港股通资格的香港上市半导体公司，以及韩国交易所半导体15指数所有成份股的表现；香港交易所科技及美国科技100指数追踪香港交易所科技100指数所有成份股以及在纳斯达克上市的100家市值最高的科技公司（包括美股七大科技巨头）的表现。
 
-各种运动在降低全因死亡风险方面： 走路：可降低17%； 网球、壁球：可降低15%； 划船、健美操：可降低14%； 力量训练：可降低13%； 跑步：可降低13%； 慢跑：可降低11%； 爬楼梯：可降低10%； 骑自行车：可降低4%。
+两只指数中，符合港股通资格的香港上市公司占约60%、海外上市公司占约40%。
 
-2024年11月，《英国运动医学杂志》上发表的一项研究也显示，40岁以后，对于运动量最小的人，每天以4.8公里/小时的速度步行111分钟(约为11000步)，或同等运动量的其他运动，或可将寿命延长11年。
+香港交易所集团行政总裁陈翊庭表示，“我们很高兴宣布推出两项全新指数，进一步丰富香港交易所的指数产品，致力实现我们构建交易所主导的指数生态圈，体现对推动产品创新和市场发展的长远承诺。
 
-注意： 每天走路11000步只是一个大概数字，每个人要根据自身实际情况，适量增减运动量。
+本次扩展涵盖自营及联合冠名的新基准指数，并着重把握科技发展带来的机遇，旨在促进指数挂钩产品多元化，加强市场参与度，从而提升集资和二级市场之流动性与活力。
 
 ## 相关推荐
 
-- 2026-06-29 11:38 - [贵州台江：万人盛装游演欢度“姊妹节”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 11:33 - [港股涨幅进一步扩大，恒生指数涨超2%，小米涨超6%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 11:23 - [数字中国建设峰会勾勒AI新趋势：迈向“能说会做”新阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 11:34 - [赏赫哲非遗品铁锅炖鱼 “蜜都”饶河开江民俗文化活动启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 11:18 - [王毅同美国国务卿鲁比奥通电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 11:31 - [委内瑞拉日均石油出口突破百万桶 美方称将“无限期”控制其石油销售](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 11:39 - [体育流媒体平台DAZN斥资1亿美元押注科技公司ViewLift](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:32 - [焦点访谈｜传承劳模精神 用奋斗创造美好未来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 11:43 - [前美国国家经济委员会主任科恩警告：油价上涨将冲击美国消费力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 11:44 - [海南商业航天重点项目加速建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 11:33 - [广州番禺公安户籍档案数字化助失联半世纪港澳老人重逢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 11:32 - [美官员：美军“福特”号航母已离开中东](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:46 - [大众汽车集团交付量下滑，受中美市场疲软拖累](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 11:41 - [海泰发展财务造假被罚，投资者索赔条件更新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 11:36 - [平安人寿联合清华大学发布中国寿险代理人高质量转型白皮书](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 11:40 - [戴尔和惠普股价大涨 据报英伟达正在洽购一家大企业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 11:32 - [辽宁营商环境的“民生温度”与“投资信心”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 11:31 - [网易云音乐于4月14日斥资1499.7万港元回购12.32万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 11:19 - [荷兰首相将与特朗普讨论阿斯麦出口限制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 11:30 - [特朗普重申伊朗不能拥有核武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 11:39 - [科技赋能防控秸秆焚烧 黑龙江“守田行动”筑牢春耕防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 11:24 - [谷歌最新Gemini升级预示更大规模的机器人布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
+- 2026-06-29 11:46 - [上交所就龙元建设相关事项下发监管工作函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:41 - [体验多元！“影视+文旅”点亮“五一”假期](http://www.blog.kurohicncr.top/Article/details/306778.shtml)
-- 2026-06-29 11:29 - [（八闽千姿）晋江梧林娘惹文化魅力焕新侨韵悠长](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:37 - [三星电子任命新的视觉显示业务负责人](http://www.share.minike.top/Article/details/28244005.shtml)
-- 2026-06-29 11:45 - [朝鲜外务省：美国炒作朝鲜“网络威胁”是无稽之谈](http://www.share.kurohicncr.top/Article/details/96995945.shtml)
-- 2026-06-29 11:28 - [韩国特检组就金建希首案二审结果提出抗诉](http://www.blog.kurohicncr.top/Article/details/39703557100.shtml)
-- 2026-06-29 11:28 - [阿贝尔谈及自己与阿吉特・贾恩的继任规划](http://www.share.minike.top/Article/details/74955561.shtml)
-- 2026-06-29 11:47 - [广西“县超”现戏剧性战果 柳南队绝处逢生进决赛](http://www.share.kurohicncr.top/Article/details/170136.shtml)
-- 2026-06-29 11:35 - [广西投资集团有限公司总经理刘明洪接受审查调查](https://github.com/lisacumin64-arch)
-- 2026-06-29 11:33 - [东京审判开庭80周年 中国法官梅汝璈故居迎参观热潮](http://www.share.minike.top/Article/details/11411648.shtml)
-- 2026-06-29 11:38 - [内布拉斯加大学Jane Liu：企业对AI的应用要有一定的目的性，不能跟风](http://www.share.minike.top/Article/details/32188024415.shtml)
-- 2026-06-29 11:35 - [915亿元！第二批“两新”政策项目清单和资金下达 加力扩围激活经济新动能](http://www.share.minike.top/Article/details/29217.shtml)
-- 2026-06-29 11:35 - [从贺兰山到美加墨：让老手艺成为“可触摸的文化符号”](http://www.share.minike.top/Article/details/3193698627.shtml)
-- 2026-06-29 11:25 - [中国心连心化肥大涨逾14% 新产能投放有望带动业绩爆发式增长](http://www.blog.kurohicncr.top/Article/details/90969.shtml)
-- 2026-06-29 11:33 - [渤海人寿获批增加注册资本至16.87亿元](http://www.blog.kurohicncr.top/Article/details/37270.shtml)
-- 2026-06-29 11:19 - [混双冰壶世锦赛：中国队排名小组第6 无缘淘汰赛](http://www.blog.minike.top/Article/details/1932000.shtml)
+- 2026-06-29 11:29 - [李强同阿联酋阿布扎比王储哈立德会谈](http://www.share.minike.top/Article/details/45579664.shtml)
+- 2026-06-29 11:19 - [欧洲债市：各期限收益率全线下行 市场下调对欧英央行的加息押注](http://www.share.kurohicncr.top/Article/details/54640131524.shtml)
+- 2026-06-29 11:45 - [五一视界早盘涨逾6% 日前获创始人增持765万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:43 - [中国正计划向伊朗提供武器？外交部：反对无根据的抹黑或恶意关联](http://www.share.kurohicncr.top/Article/details/85469692230.shtml)
+- 2026-06-29 11:24 - [快讯：WTI原油日内大跌4.00%，现报88.37美元/桶](http://www.share.kurohicncr.top/Article/details/49671.shtml)
+- 2026-06-29 11:37 - [向上转机就在四月，华宝基金创业板人工智能连创新高！最大港股通信息技术ETF（159131）涨超2%又跑赢！](http://www.blog.kurohicncr.top/Article/details/100588.shtml)
+- 2026-06-29 11:48 - [外交部谈美伊在巴基斯坦谈判：是朝有利于局势缓和方向迈出的一步](http://www.share.minike.top/Article/details/31801643.shtml)
+- 2026-06-29 11:27 - [美国财长贝森特：伊朗冲突期间美联储按兵不动是正确做法](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:33 - [高市再提修宪 引发日本民众广泛反对](http://www.blog.minike.top/Article/details/17110265058.shtml)
+- 2026-06-29 11:40 - [台生热议国共青年双向交流平台：走进真实大陆，扎根奋斗逐梦](http://www.blog.minike.top/Article/details/614566.shtml)
+- 2026-06-29 11:29 - [芝加哥期市：CBOT大豆期货收跌，预计美国种植面积将增加](http://www.blog.minike.top/Article/details/74382.shtml)
+- 2026-06-29 11:23 - [世界杯氛围日益浓厚 中国企业多维抢抓赛事红利](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [建滔系早盘继续走高 建滔积层板涨逾6%建滔集团涨逾5%](http://www.share.kurohicncr.top/Article/details/226234503125.shtml)
+- 2026-06-29 11:46 - [燃油价格翻倍，全美多家航司宣布托运行李涨价](http://www.share.kurohicncr.top/Article/details/136788798.shtml)
+- 2026-06-29 11:27 - [违规超量投放共享自行车，哈啰公司被约谈](http://www.blog.minike.top/Article/details/90775164472.shtml)

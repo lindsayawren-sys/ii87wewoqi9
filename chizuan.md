@@ -1,61 +1,45 @@
-# 鲍威尔称将在卸任主席后留任理事，捍卫美联储独立性
+# 日上集团：公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务
 
-> 更新时间：2026-06-29 11:48:06 UTC+8
+> 更新时间：2026-06-29 11:49:03 UTC+8
 
 ## 摘要
 
-美联储主席杰罗姆·鲍威尔周三宣布，在5月15日主席任期结束后，他将继续留任美联储理事，留任时长尚待确定。这是鲍威尔作为主席出席的最后一次政策会议后的发布会，标志着其八年掌舵生涯的结束。 鲍威尔明确表示，留任是为了捍卫美联储的独立性。此前，美国司法部曾就美联储总部大楼翻新项目对其展开刑事调查。尽管调查已于近日结束，但鲍威尔指出，司法部仍保留“若有刑事转介可重启调查”的可能性，因此
+证券日报网讯 4月13日，日上集团在互动平台回答投资者提问时表示，公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务。（文章来源：证券日报）
 
 ## 正文
 
-美联储主席杰罗姆·鲍威尔周三宣布，在5月15日主席任期结束后，他将继续留任美联储理事，留任时长尚待确定。
+证券日报网讯 4月13日，日上集团在互动平台回答投资者提问时表示，公司专注于汽车车轮和钢结构双主业，目前未拓展机器人相关业务。
 
-这是鲍威尔作为主席出席的最后一次政策会议后的发布会，标志着其八年掌舵生涯的结束。
-
-鲍威尔明确表示，留任是为了捍卫美联储的独立性。
-
-此前，美国司法部曾就美联储总部大楼翻新项目对其展开刑事调查。
-
-尽管调查已于近日结束，但鲍威尔指出，司法部仍保留“若有刑事转介可重启调查”的可能性，因此他决定在问题获得圆满解决前继续留任。
-
-他表示：“我将不会离开美联储，除非这一调查以透明和不可改变的方式真正结束。
-
-” 外界分析认为，鲍威尔此举具有重要战略意义。
-
-他的理事任期最长可至2028年1月，留任实际上限制了特朗普总统进一步安插更多人选进入美联储决策层的空间。
+（文章来源：证券日报）
 
 ## 相关推荐
 
-- 2026-06-29 11:25 - [新发现东京审判“萨顿档案”揭露侵华日军四方面暴行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 11:47 - [花旗：维持香港楼价看涨8%预期 看好三大地产股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 11:25 - [中国驻英大使郑泽光：香港发展拥有四大优势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 11:40 - [这群年轻人用AI“吵了一架” ，最后成了朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 11:43 - [特朗普抨击国会限制其战争权力的举动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 11:28 - [浙江杭州：民众走“运”度假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 11:42 - [天津国际邮轮母港单日出入境旅客创年内新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 11:21 - [宁夏酒配中国菜：一场从“酒庄”到“餐桌”的场景革新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-29 11:47 - [每天走路够这个量 或能延寿11年！健步走行动清单快掌握→](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 11:32 - [中国生物医学新技术“基本法”实施 院企专家盼规范促产业发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 11:22 - [特朗普：美国开启霍尔木兹海峡船只通行自由行动将于中东时间周一上午启动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 11:32 - [韩国3月网购销售额突破25万亿韩元创新高，特斯拉需求激增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 11:26 - [宁夏银川：水上运动成民众假期户外社交“新宠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 11:20 - [“五一”假期外国游客打卡重庆雄奇山水 世界自然遗产天生三桥受青睐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 11:21 - [港股半导体股盘初集体走强，天数智芯大涨17%，国产算力芯片企业迎来业绩兑现关键期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 11:29 - [药捷安康-B拟折让约18.00%发行508.5万股配售股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 11:30 - [长安期货：美伊和谈暂无成果 关注CPI数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 11:29 - [恒大集团、恒大地产及许家印案一审开庭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 11:48 - [（乡村行·看振兴）湖光山色引客来 艺术唤醒“空心村”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 11:39 - [新华社：运动员因何频遭网暴？全红婵案警示几何？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 11:48 - [微创机器人-B午后涨超5% 瑞银将其目标价上调至35.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 11:36 - [巴比食品投资东鹏饮料，“甜果”变“苦果”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 11:21 - [Onyx称如果美国真的封锁霍尔木兹海峡 油价或涨至每桶150美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 11:34 - [香港交易所推出两只科技指数 易方达香港获授权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 11:20 - [天风策略：特朗普TACO了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 11:39 - [3月黑猫投诉企业红黑榜：Agoda擅自取消订单且阻挠用户申诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 11:45 - [华裔新生代｜解锁多元中国！华裔青年赞“中国很大，要慢慢走慢慢看”](http://www.share.minike.top/Article/details/568509216.shtml)
-- 2026-06-29 11:26 - [文旅观察：浙江乡村“土味”玩法引领消费新潮流](http://www.blog.kurohicncr.top/Article/details/57545475569.shtml)
-- 2026-06-29 11:31 - [浙江宁波机场口岸迎来出入境客流“双向热潮”](http://www.share.kurohicncr.top/Article/details/6789471783.shtml)
-- 2026-06-29 11:19 - [吉尔登服饰营收攀升](http://www.blog.minike.top/Article/details/425953350.shtml)
-- 2026-06-29 11:26 - [原油：布伦特油价自四年高点回落 战争担忧抑制市场流动性](http://www.blog.kurohicncr.top/Article/details/6979432394.shtml)
-- 2026-06-29 11:46 - [阿贝尔重申伯克希尔核心原则](http://www.share.kurohicncr.top/Article/details/525069835391.shtml)
-- 2026-06-29 11:37 - [程伟豪谈《消失的人》：日常缝隙中的不安视角](http://www.blog.kurohicncr.top/Article/details/16725454.shtml)
-- 2026-06-29 11:23 - [云南边境的目瑙纵歌，何以火爆全网？](http://www.share.kurohicncr.top/Article/details/849489694.shtml)
-- 2026-06-29 11:25 - [苹果Q2财报超预期：营收1112亿增17%，研发投入激增33%，在华收入大涨28%](http://www.blog.minike.top/Article/details/588165.shtml)
-- 2026-06-29 11:27 - [重庆新开往返菲律宾马尼拉客运航线](http://www.share.minike.top/Article/details/76297583.shtml)
-- 2026-06-29 11:43 - [新疆吐鲁番市托克逊县发生4.7级地震 消防部门紧急出动](http://www.blog.kurohicncr.top/Article/details/6999486697.shtml)
-- 2026-06-29 11:26 - [“垃圾短信”新规来了：明示同意是前提，退订不再靠运气](http://www.share.minike.top/Article/details/77944843.shtml)
-- 2026-06-29 11:30 - [阿贝尔：超大规模企业必须"承担其能源使用的全部成本"](http://www.share.minike.top/Article/details/451674817.shtml)
-- 2026-06-29 11:21 - [西班牙对外银行财报超预期 持续贷款增长形成业绩缓冲](http://www.share.kurohicncr.top/Article/details/392931530990.shtml)
-- 2026-06-29 11:31 - [第139届广交会第三期开幕 首设“功能与科技面料”专区](http://www.share.minike.top/Article/details/2460947.shtml)
+- 2026-06-29 11:22 - [依必安派特亮相2026中国制冷展](http://www.blog.minike.top/Article/details/89739854605.shtml)
+- 2026-06-29 11:22 - [央行发布2026年一季度金融统计数据报告](http://www.blog.minike.top/Article/details/43537796.shtml)
+- 2026-06-29 11:23 - [贵州省人大常委会秘书长、办公厅主任潘荣接受审查调查](http://www.blog.kurohicncr.top/Article/details/806496592170.shtml)
+- 2026-06-29 11:23 - [中方：愿同匈牙利新一届政府加强高层交往](http://www.blog.minike.top/Article/details/84456.shtml)
+- 2026-06-29 11:24 - [大商所发布《服务实体经济白皮书（2025）》](http://www.share.minike.top/Article/details/721325.shtml)
+- 2026-06-29 11:48 - [朝中社发文，批评日本自卫队改组“暴露危险野心”](http://www.blog.kurohicncr.top/Article/details/31211.shtml)
+- 2026-06-29 11:24 - [商务部、中国进出口银行：加大进出口信贷支持力度](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:24 - [美国3月生产者价格涨幅低于预期 尽管战争相关的能源成本飙升](https://github.com/lisacumin64-arch)
+- 2026-06-29 11:48 - [【惠誉评论】上市的中国资产管理公司尽管盈利承压，但业务活动持续增长](http://www.share.minike.top/Article/details/46633276.shtml)
+- 2026-06-29 11:22 - [开局之年看中国·开放自贸港：文旅融合呈现产业新活力](http://www.share.minike.top/Article/details/683788916.shtml)
+- 2026-06-29 11:21 - [“乔、灌、药”立体种植 新疆和田探索出治沙增收新模式](http://www.blog.minike.top/Article/details/6344914022.shtml)
+- 2026-06-29 11:44 - [油价飙升之际 日本央行据悉考虑大幅上调通胀预期](http://www.share.kurohicncr.top/Article/details/158325.shtml)
+- 2026-06-29 11:19 - [甘肃环县九村联建一个厂 带富千户种粮人](http://www.blog.kurohicncr.top/Article/details/05577412.shtml)
+- 2026-06-29 11:28 - [Adobe与Figma前景看好但存隐忧 市场等待更清晰的变现趋势](http://www.share.kurohicncr.top/Article/details/4871512128.shtml)
+- 2026-06-29 11:24 - [OpenAI是否正脱离微软的掌控？与亚马逊的新联盟让利害关系进一步升级](http://www.share.kurohicncr.top/Article/details/21556244.shtml)
