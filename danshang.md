@@ -1,61 +1,58 @@
-# 刘必安等十六人非法集资案一审宣判
+# 韩国拟推出AI 全民分红政策，引发市场剧烈震荡
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-4月27日，长沙市中级人民法院依法公开宣判被告人刘必安等十六人集资诈骗、非法吸收公众存款罪一案，对被告人刘必安以集资诈骗罪判处无期徒刑，剥夺政治权利终身，并处没收个人全部财产；对其余十五名被告人分别以集资诈骗罪、非法吸收公众存款罪判处五年至十五年不等有期徒刑，并处罚金。经审理查明，2014年8月起，被告人刘必安等人在不具备吸收公众存款资格的情况下，以中战华信集团有限公司及多家关
+韩国一名高层政策官员表态称，国家应利用征收 AI 行业利润税收向全民发放 “分红”。 此番言论凸显社会诉求日益强烈：要求重新分配 AI 热潮带来的巨额收益，当前三星电子、SK 海力士等芯片企业已借此赚得盆满钵满。 韩国总统政策首席秘书金龙范在脸书发文抛出上述观点，周二直接引发韩国股市剧烈波动，投资者难以预判政策落地范围。 韩国综合指数盘中一度大跌 5.1%；随后这位颇具影响力的
 
 ## 正文
 
-4月27日，长沙市中级人民法院依法公开宣判被告人刘必安等十六人集资诈骗、非法吸收公众存款罪一案，对被告人刘必安以集资诈骗罪判处无期徒刑，剥夺政治权利终身，并处没收个人全部财产；对其余十五名被告人分别以集资诈骗罪、非法吸收公众存款罪判处五年至十五年不等有期徒刑，并处罚金。
+韩国一名高层政策官员表态称，国家应利用征收 AI 行业利润税收向全民发放 “分红”。
 
-经审理查明，2014年8月起，被告人刘必安等人在不具备吸收公众存款资格的情况下，以中战华信集团有限公司及多家关联公司名义，通过虚构投资项目、公开虚假宣传等方式，以还本付息、许诺高额回报为诱饵，向社会公众募集资金314亿余元。
+此番言论凸显社会诉求日益强烈：要求重新分配 AI 热潮带来的巨额收益，当前三星电子、SK 海力士等芯片企业已借此赚得盆满钵满。
 
-大部分集资款用于兑付到期本息、发放员工工资及提成、个人使用和挥霍等，造成集资参与人经济损失61亿余元。
+韩国总统政策首席秘书金龙范在脸书发文抛出上述观点，周二直接引发韩国股市剧烈波动，投资者难以预判政策落地范围。
 
-案发后，办案机关追缴部分资金、不动产、机动车、购买的公司股权等资产。
+韩国综合指数盘中一度大跌 5.1%；随后这位颇具影响力的政策顾问出面澄清：只是想动用AI 热潮产生的超额税收收入，并非针对企业利润新开暴利税。
 
-现追赃挽损工作仍在进行中。
+总统府官员向彭博社表示，金龙范此番言论仅为个人观点，尚未进入正式政策研讨流程。
 
-追缴到案的资产将在判决生效后依法执行，按集资额比例返还集资参与人。
+个股表现：三星电子跌 2.3%，SK 海力士跌 2.4%；韩国综合指数收盘下跌 2.3%。
 
-法院认为，被告人刘必安等人以非法占有为目的，使用诈骗方法非法集资，数额巨大，造成集资参与人财产损失，严重扰乱国家金融管理秩序，应依法严惩。
+此次风波是政界担忧AI 时代贫富差距进一步拉大的又一典型案例。
 
-根据各被告人的犯罪事实、性质、情节和社会危害程度，依法作出上述判决。
+在韩国，公众日益呼吁行业龙头分享全球 AI 基建浪潮带来的红利。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 04:45 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-30 04:55 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 04:36 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-30 04:44 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
-- 2026-06-30 04:37 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-30 04:46 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 04:35 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
-- 2026-06-30 04:34 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 04:43 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 04:58 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 04:52 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 04:33 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
-- 2026-06-30 04:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 04:56 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
+- 2026-06-30 04:50 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-30 04:53 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 04:43 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
+- 2026-06-30 04:43 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-30 05:01 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:41 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 04:43 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-30 04:48 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-30 04:41 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-30 04:57 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-30 05:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/41268459.shtml)
-- 2026-06-30 04:42 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.minike.top/Article/details/730859.shtml)
-- 2026-06-30 04:38 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/474864221.shtml)
-- 2026-06-30 04:34 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/3886291.shtml)
-- 2026-06-30 04:59 - [科学备孕男女都要上心](https://www.blog.kurohicncr.top/Article/details/2211078052.shtml)
-- 2026-06-30 04:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/2825300163.shtml)
-- 2026-06-30 04:57 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/334562693.shtml)
-- 2026-06-30 04:41 - [恋与深空回应争议](https://www.share.kurohicncr.top/Article/details/9735740432.shtml)
-- 2026-06-30 04:34 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/19179342096.shtml)
-- 2026-06-30 04:46 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/290784.shtml)
-- 2026-06-30 04:50 - [绘画区你赢了](http://www.share.minike.top/Article/details/4001415737.shtml)
-- 2026-06-30 04:31 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/83807.shtml)
-- 2026-06-30 04:53 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/474183198023.shtml)
-- 2026-06-30 04:46 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/42440816662.shtml)
-- 2026-06-30 04:52 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/9347424.shtml)
+- 2026-06-30 04:52 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.minike.top/Article/details/318948788041.shtml)
+- 2026-06-30 04:44 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/757883108.shtml)
+- 2026-06-30 04:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/810975741.shtml)
+- 2026-06-30 05:03 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/7859346.shtml)
+- 2026-06-30 04:38 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/120311386.shtml)
+- 2026-06-30 04:38 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/46135971176.shtml)
+- 2026-06-30 04:57 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/62816629856.shtml)
+- 2026-06-30 04:43 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/32187176.shtml)
+- 2026-06-30 05:03 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/3287310.shtml)
+- 2026-06-30 04:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.minike.top/Article/details/213719385.shtml)
+- 2026-06-30 04:55 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/719311182.shtml)
+- 2026-06-30 05:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/5031358.shtml)
+- 2026-06-30 05:04 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/86167352791.shtml)
+- 2026-06-30 04:36 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/791160558.shtml)
+- 2026-06-30 04:47 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/84183.shtml)

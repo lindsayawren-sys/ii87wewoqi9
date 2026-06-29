@@ -1,57 +1,55 @@
-# 鲍威尔的“最后一舞”：为“更久不降息”铺路？
+# 马来西亚即将进入西南季风期
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-华尔街见闻 本周四，4月FOMC会议降息悬念已无，博弈全在措辞毫厘之间——鹰派表述能否落地、鲍威尔是否迎来“谢幕发布会”、接班人沃什能否在6月前宣誓就任，三重变局叠加核心PCE触近三年新高与油价破百的“烈焰”，美联储政策天平正向“无限期按兵不动”倾斜，降息时间表或彻底消失。 本周四，4月FOMC会议在即，市场不必等待降息悬念揭晓——政策维持不变已是板上钉钉——真正的博弈全然聚焦
+中新社吉隆坡5月11日电(记者 刘育英)马来西亚气象局11日发布预报称，2026年西南季风预计将于5月14日开始，并持续至9月，全国大部分地区将进入较为干燥少雨的天气阶段，局部地区可能出现强对流天气及烟霾风险。根据预报，本次西南季风将持续至9月，其中7月至9月为季风最活跃时期。马来西亚气象局总监表示，季风期间低层大气将持续吹送西南风，全国大部分地区湿度偏低、云量减少，整体降雨量
 
 ## 正文
 
-华尔街见闻 本周四，4月FOMC会议降息悬念已无，博弈全在措辞毫厘之间——鹰派表述能否落地、鲍威尔是否迎来“谢幕发布会”、接班人沃什能否在6月前宣誓就任，三重变局叠加核心PCE触近三年新高与油价破百的“烈焰”，美联储政策天平正向“无限期按兵不动”倾斜，降息时间表或彻底消失。
+中新社吉隆坡5月11日电(记者 刘育英)马来西亚气象局11日发布预报称，2026年西南季风预计将于5月14日开始，并持续至9月，全国大部分地区将进入较为干燥少雨的天气阶段，局部地区可能出现强对流天气及烟霾风险。
 
-本周四，4月FOMC会议在即，市场不必等待降息悬念揭晓——政策维持不变已是板上钉钉——真正的博弈全然聚焦于措辞的毫厘之差。
+根据预报，本次西南季风将持续至9月，其中7月至9月为季风最活跃时期。
 
-德银与瑞银在各自的最新研报中均指出，本次会议的核心问题在于：委员会是否会正式采纳“双向”风险表述，或鲍威尔是否会在发布会上发出更为均衡的风险评估信号，为“更久不降息”的前景正式铺路。
+马来西亚气象局总监表示，季风期间低层大气将持续吹送西南风，全国大部分地区湿度偏低、云量减少，整体降雨量偏少，无雨天数也将多于降雨天数。
 
-德意志银行的基准判断是，实质性指引调整将推迟至6月，但风险明显偏向鹰派。
+不过，马来半岛西部、沙捞越州北部及沙巴州西部部分地区，仍可能出现伴随雷暴和强风的短时强降雨天气。
 
-对投资者而言，这一微妙转向意味着降息时间表或被进一步压缩乃至彻底消失，利率中枢将在中性水平无限期停留，债券久期风险不可低估。
+马来西亚气象局表示，将持续监测季风变化，并通过官方网站、社交媒体及短信系统发布强对流、高温、干旱及烟霾预警。
 
-更具历史意味的背景是，本次4月会议极有可能是鲍威尔作为美联储主席的“谢幕舞台”。
+气象局同时提醒民众避免露天焚烧活动，以降低烟霾发生风险，并呼吁公众在季风期间注意节约用水。
 
-美国司法部本周宣布终止对鲍威尔就联储大楼翻新工程监管问题的调查，此前横亘于凯文·沃什提名路上的最大政治障碍随之消除。
-
-瑞银预计，沃什将顺利通过参议院银行委员会表决，并于6月16日至17日FOMC会议前宣誓就任美联储理事会主席。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:31 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 04:44 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-30 04:32 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
-- 2026-06-30 04:59 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 04:30 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-30 04:49 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 04:35 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 04:31 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
-- 2026-06-30 04:33 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-30 04:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-30 04:31 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-30 04:49 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-30 04:39 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 04:46 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 04:52 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-30 04:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-30 05:00 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
+- 2026-06-30 04:40 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 04:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 04:37 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 04:45 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 04:46 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [巴西补时绝杀日本](https://www.share.minike.top/Article/details/122573937882.shtml)
-- 2026-06-30 04:57 - [第一炉香](http://www.share.minike.top/Article/details/27826.shtml)
-- 2026-06-30 04:31 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/191303883.shtml)
-- 2026-06-30 04:33 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/75022423.shtml)
-- 2026-06-30 04:43 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/32572242.shtml)
-- 2026-06-30 04:39 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/93250.shtml)
-- 2026-06-30 04:32 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/6417118.shtml)
-- 2026-06-30 04:30 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/268682530907.shtml)
-- 2026-06-30 04:58 - [中国代表在联合国点名日本所犯罪行](http://www.share.minike.top/Article/details/721986.shtml)
-- 2026-06-30 04:49 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/4745327.shtml)
-- 2026-06-30 04:57 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/026816431.shtml)
-- 2026-06-30 04:41 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/658580.shtml)
-- 2026-06-30 04:51 - [恋与深空已删除锅里洗澡文案](https://www.blog.kurohicncr.top/Article/details/26293307639.shtml)
-- 2026-06-30 04:42 - [女子称留了30年长发被剪索赔2.5万](https://www.share.kurohicncr.top/Article/details/05772.shtml)
-- 2026-06-30 04:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/55409687.shtml)
+- 2026-06-30 04:52 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/0340908.shtml)
+- 2026-06-30 04:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.kurohicncr.top/Article/details/64161490.shtml)
+- 2026-06-30 04:45 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/042620640.shtml)
+- 2026-06-30 04:56 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/16172.shtml)
+- 2026-06-30 04:54 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/9860641.shtml)
+- 2026-06-30 04:46 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/678366711.shtml)
+- 2026-06-30 04:37 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/4489888207.shtml)
+- 2026-06-30 05:00 - [“十五五”优质本科扩容](http://www.blog.kurohicncr.top/Article/details/54660289838.shtml)
+- 2026-06-30 04:56 - [周生如故](https://www.blog.minike.top/Article/details/51090.shtml)
+- 2026-06-30 04:39 - [内马尔替补](https://www.blog.minike.top/Article/details/775470410.shtml)
+- 2026-06-30 04:43 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/229538.shtml)
+- 2026-06-30 05:02 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/02700.shtml)
+- 2026-06-30 05:03 - [美人鱼](https://www.blog.minike.top/Article/details/1258072.shtml)
+- 2026-06-30 04:49 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/30080853.shtml)
+- 2026-06-30 04:44 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/5897622092.shtml)

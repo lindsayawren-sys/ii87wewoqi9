@@ -1,58 +1,56 @@
-# 从丹炉传说到海外货架 安徽八公山“磨”出千年豆腐发展新路
+# 豆粕：中美峰会 = 美豆的 “最大利好触发器”
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网淮南4月25日电 (谢梦茹 徐梦雨 刘维思)托掌修方、沉刀片薄、叠压细切……近日，走进安徽省淮南市八公山区一家酒店后厨，豆腐制作手艺人申树生正在教“00后”学徒张贝贝制作当地豆腐宴名菜清汤白玉饺和鸡汤菊花盅。 八公山位于淮河之畔，是豆腐的发祥地。这里至今仍流传着淮南王刘安在炼丹中无意间发明豆腐的传说。 “八公山泉水清冽甘甜，富含多种矿物质，用其制作的豆腐质地细腻、豆香浓郁
+大地期货研究院 观点小结 核心观点：震荡本周豆粕外盘强、内盘弱、基差承压，受美豆上涨+ 中国采购预期支撑，但国内受到港大增、养殖疲弱、库存回升压制；短期看USDA 报告+ 中美峰会，中期看南美到港与油厂开机，整体呈高位震荡、上有顶下有底格局。 现货基差：偏空供应宽松持续施压现货和远月基差，现货弱于期货，油厂挺价乏力。 南美大豆：偏空巴西丰产且进入出口旺季；阿根廷进入收割期，产量
 
 ## 正文
 
-中新网淮南4月25日电 (谢梦茹 徐梦雨 刘维思)托掌修方、沉刀片薄、叠压细切……近日，走进安徽省淮南市八公山区一家酒店后厨，豆腐制作手艺人申树生正在教“00后”学徒张贝贝制作当地豆腐宴名菜清汤白玉饺和鸡汤菊花盅。
+大地期货研究院 观点小结 核心观点：震荡本周豆粕外盘强、内盘弱、基差承压，受美豆上涨+ 中国采购预期支撑，但国内受到港大增、养殖疲弱、库存回升压制；短期看USDA 报告+ 中美峰会，中期看南美到港与油厂开机，整体呈高位震荡、上有顶下有底格局。
 
-八公山位于淮河之畔，是豆腐的发祥地。
+现货基差：偏空供应宽松持续施压现货和远月基差，现货弱于期货，油厂挺价乏力。
 
-这里至今仍流传着淮南王刘安在炼丹中无意间发明豆腐的传说。
+南美大豆：偏空巴西丰产且进入出口旺季；阿根廷进入收割期，产量相对稳定。
 
-“八公山泉水清冽甘甜，富含多种矿物质，用其制作的豆腐质地细腻、豆香浓郁，这是制作淮南豆腐宴的先天优势。
+美国大豆：利多新作播种超前，供需报告即将发布并，26/27年度供需中性或偏紧；中美会晤，市场押注中国增加美豆采购。
 
-”申树生早已将选豆、泡豆、磨浆等十余道豆腐制作的传统工序烂熟于心。
+进口采购：中性以近月巴西豆为主，5月-9月到港量大。
 
-申树生说，从古代宫廷佳肴到如今百姓餐桌美味，淮南豆腐宴历经千年演变，已形成400多道特色菜品。
+明年新作盘面榨利丰厚。
 
-其中，清汤白玉饺入选安徽省十大旅游名小吃，凤尾琵琶豆腐虾等菜品更是造型精巧、口感独特。
+大豆到港库存：偏空5-8月月均到港或高达1100万吨，大豆进入累库通道，供应宽松。
 
-申树生并不止步于古法，他将豆腐与虾肉融合，用西米包裹馅料，推出低脂低糖的创新料理。
+豆粕消费库存：中性豆粕库存周度继续下降，同比略好。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 04:37 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-30 04:36 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-30 04:32 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
-- 2026-06-30 04:45 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 04:58 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 04:52 - [二次元提前预演明日巴西对日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-30 04:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 04:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
-- 2026-06-30 04:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
-- 2026-06-30 04:38 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 04:42 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:57 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 05:04 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 04:57 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 04:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 04:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 04:42 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 04:38 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 04:50 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 04:49 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:45 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/16818461451.shtml)
-- 2026-06-30 04:38 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/08686399.shtml)
-- 2026-06-30 04:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/898894595923.shtml)
-- 2026-06-30 04:46 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/211167137.shtml)
-- 2026-06-30 04:47 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/42168260.shtml)
-- 2026-06-30 04:36 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/061962.shtml)
-- 2026-06-30 04:41 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/910313900.shtml)
-- 2026-06-30 04:56 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/56045818.shtml)
-- 2026-06-30 04:43 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/1884234390.shtml)
-- 2026-06-30 04:57 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/6636384594.shtml)
-- 2026-06-30 04:59 - [巴西绝杀](https://www.share.kurohicncr.top/Article/details/561118.shtml)
-- 2026-06-30 04:55 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/734301730.shtml)
-- 2026-06-30 04:36 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/0584152.shtml)
-- 2026-06-30 04:57 - [中国对日本再出重拳](https://www.blog.minike.top/Article/details/746834.shtml)
-- 2026-06-30 04:34 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/9308127.shtml)
+- 2026-06-30 05:05 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.minike.top/Article/details/258820593.shtml)
+- 2026-06-30 04:50 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/38020082.shtml)
+- 2026-06-30 05:03 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/325656496.shtml)
+- 2026-06-30 04:45 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/3341827.shtml)
+- 2026-06-30 04:52 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/79301.shtml)
+- 2026-06-30 04:47 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/183405583177.shtml)
+- 2026-06-30 04:56 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/23704.shtml)
+- 2026-06-30 04:46 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.minike.top/Article/details/9948037796.shtml)
+- 2026-06-30 04:38 - [巴西2比1日本](https://www.share.minike.top/Article/details/81006.shtml)
+- 2026-06-30 04:54 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/4768392987.shtml)
+- 2026-06-30 04:51 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/033985.shtml)
+- 2026-06-30 05:01 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/244541.shtml)
+- 2026-06-30 05:05 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/0904833129.shtml)
+- 2026-06-30 05:05 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/13973172402.shtml)
+- 2026-06-30 05:05 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/914210.shtml)

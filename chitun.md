@@ -1,54 +1,45 @@
-# 比亚迪王传福、李云飞乘地铁去北京车展，网友称“一点没架子，好低调”
+# 黄金股早盘普遍上扬 中国黄金国际涨超3%紫金矿业涨超2%
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-专题：2026北京国际车展 4月26日，有北京网友发文偶遇比亚迪董事长王传福及比亚迪公关处总经理李云飞，乘坐北京地铁去参加北京车展。 有网友在评论区表示，“一点没架子，好低调的出行”，还有网友评论称“是今天吗，我前天也遇到了”。 此前，有网友发视频称，偶遇比亚迪董事长王传福夫妇乘坐地铁去参加北京车展。 视频画面显示，王传福夫妇在地铁上各自低头看手机。 责任编辑：李思阳
+黄金股早盘普遍上扬，截至发稿，中国黄金国际（02099）上涨3.29%，报178.80港元；紫金矿业（02899）上涨2.33%，报38.66港元；紫金黄金国际（02259）上涨1.22%，报166港元；赤峰黄金（06693）上涨1.84%，报42.04港元。责任编辑：卢昱君
 
 ## 正文
 
-专题：2026北京国际车展 4月26日，有北京网友发文偶遇比亚迪董事长王传福及比亚迪公关处总经理李云飞，乘坐北京地铁去参加北京车展。
+黄金股早盘普遍上扬，截至发稿，中国黄金国际（02099）上涨3.29%，报178.80港元；紫金矿业（02899）上涨2.33%，报38.66港元；紫金黄金国际（02259）上涨1.22%，报166港元；赤峰黄金（06693）上涨1.84%，报42.04港元。
 
-有网友在评论区表示，“一点没架子，好低调的出行”，还有网友评论称“是今天吗，我前天也遇到了”。
-
-此前，有网友发视频称，偶遇比亚迪董事长王传福夫妇乘坐地铁去参加北京车展。
-
-视频画面显示，王传福夫妇在地铁上各自低头看手机。
-
-责任编辑：李思阳
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-30 04:41 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 04:40 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-30 04:54 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-30 04:57 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-30 04:42 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 04:34 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 04:37 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
-- 2026-06-30 04:35 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
-- 2026-06-30 04:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcakj.md)
-- 2026-06-30 04:32 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-30 04:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
-- 2026-06-30 04:48 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 04:59 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-30 05:01 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-30 04:41 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 05:04 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 04:58 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-30 05:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 04:40 - [院士：太空轨道必须抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-30 04:40 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 04:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 04:48 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 04:57 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
+- 2026-06-30 04:41 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/8879332953.shtml)
-- 2026-06-30 04:41 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/837350217669.shtml)
-- 2026-06-30 04:57 - [孙兴慜道歉](https://www.share.minike.top/Article/details/17692.shtml)
-- 2026-06-30 04:49 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/86117383193.shtml)
-- 2026-06-30 04:32 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.kurohicncr.top/Article/details/5672633689.shtml)
-- 2026-06-30 04:46 - [世界杯](https://www.blog.kurohicncr.top/Article/details/260719539.shtml)
-- 2026-06-30 04:54 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/8147014988.shtml)
-- 2026-06-30 04:45 - [巴西绝杀](https://www.blog.minike.top/Article/details/8549088.shtml)
-- 2026-06-30 04:38 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/535272.shtml)
-- 2026-06-30 04:43 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/8546970874.shtml)
-- 2026-06-30 04:50 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/09140870.shtml)
-- 2026-06-30 04:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/11884622.shtml)
-- 2026-06-30 04:43 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/42239649612.shtml)
-- 2026-06-30 04:44 - [日本半场1比0领先巴西](https://www.share.minike.top/Article/details/93766.shtml)
-- 2026-06-30 04:59 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/0364285.shtml)
+- 2026-06-30 04:51 - [巴西醒醒 这是淘汰赛](https://www.share.kurohicncr.top/Article/details/3060246152.shtml)
+- 2026-06-30 04:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/15586065.shtml)
+- 2026-06-30 04:55 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/3656072.shtml)
+- 2026-06-30 05:04 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/128490.shtml)
+- 2026-06-30 04:42 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/2549090654.shtml)
+- 2026-06-30 04:46 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/1359721.shtml)
+- 2026-06-30 05:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/828435.shtml)
+- 2026-06-30 04:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/555811.shtml)
+- 2026-06-30 05:02 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/19577179009.shtml)
+- 2026-06-30 04:46 - [张碧晨最佳女歌手](http://www.blog.kurohicncr.top/Article/details/801878.shtml)
+- 2026-06-30 04:58 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/48424955721.shtml)
+- 2026-06-30 04:53 - [孙兴慜发长文致歉](https://www.share.kurohicncr.top/Article/details/69182656.shtml)
+- 2026-06-30 05:02 - [我想说 其实你很好！](https://www.share.minike.top/Article/details/83996170.shtml)
+- 2026-06-30 04:45 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/67186356.shtml)
+- 2026-06-30 04:53 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/60398.shtml)

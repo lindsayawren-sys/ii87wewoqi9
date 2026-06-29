@@ -1,48 +1,59 @@
-# 开F1、骑摩托赛车 2026北京车展好逛又好玩
+# Kinder Morgan势将结束六连跌，油价反弹提振能源板块
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 15:41 来源：中国新闻网 4月26日，2026北京车展迎来了首个公众参观日。与往年“只可远观”的静态展示不同，今年的北京车展上，观众能够坐进F1赛车的狭窄座舱，跨上MotoGP顶级战车，体验赛车手的驾驶乐趣。(记者 刘超 谢龙飞 制作 王嘉怡） 责任编辑：【周驰】
+Kinder Morgan股价周一跳涨约3%，势将结束此前连续六个交易日的下跌走势，受益于原油价格反弹及地缘政治紧张局势再度升温。 此前，该股自5月1日起持续走低，截至5月8日累计跌幅超过3%。周一盘中，Kinder Morgan股价上涨约2.3%至32.13美元，将年内涨幅扩大至约16%，远超标普500指数同期近8%的涨幅。 涨势主要受能源板块整体走强带动。美国总统特朗普当日
 
 ## 正文
 
-发布时间：2026年04月26日 15:41 来源：中国新闻网 4月26日，2026北京车展迎来了首个公众参观日。
+Kinder Morgan股价周一跳涨约3%，势将结束此前连续六个交易日的下跌走势，受益于原油价格反弹及地缘政治紧张局势再度升温。
 
-与往年“只可远观”的静态展示不同，今年的北京车展上，观众能够坐进F1赛车的狭窄座舱，跨上MotoGP顶级战车，体验赛车手的驾驶乐趣。
+此前，该股自5月1日起持续走低，截至5月8日累计跌幅超过3%。
 
-(记者 刘超 谢龙飞 制作 王嘉怡） 责任编辑：【周驰】
+周一盘中，Kinder Morgan股价上涨约2.3%至32.13美元，将年内涨幅扩大至约16%，远超标普500指数同期近8%的涨幅。
+
+涨势主要受能源板块整体走强带动。
+
+美国总统特朗普当日公开拒绝了伊朗的和平提议，称停火协议“命悬一线”。
+
+受此影响，埃克森美孚、雪佛龙、康菲石油等能源股普遍上涨约2%至3%。
+
+Kinder Morgan近期基本面亦传出利好。
+
+公司一季度财报显示，调整后每股收益达0.48美元，远超市场预期的0.40美元；营收48.3亿美元，同样超出预期。
 
 ## 相关推荐
 
-- 2026-06-30 04:53 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-30 04:48 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 04:31 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 04:59 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 04:50 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 04:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 04:44 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
-- 2026-06-30 04:49 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-30 04:32 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
-- 2026-06-30 04:48 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-30 04:38 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 04:31 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 04:57 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-30 05:04 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-30 05:02 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 04:58 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 04:51 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
+- 2026-06-30 05:00 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 04:38 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 04:46 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 04:57 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 05:04 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 05:00 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-30 04:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 05:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:43 - [我想说 其实你很好！](https://www.share.kurohicncr.top/Article/details/048835512450.shtml)
-- 2026-06-30 04:36 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/561954494997.shtml)
-- 2026-06-30 04:42 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/39369.shtml)
-- 2026-06-30 04:46 - [王健林甩卖超80座万达广场](http://www.share.kurohicncr.top/Article/details/307470795328.shtml)
-- 2026-06-30 04:30 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/803181247833.shtml)
-- 2026-06-30 04:37 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/174475439.shtml)
-- 2026-06-30 04:42 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/3893373706.shtml)
-- 2026-06-30 04:57 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/991179.shtml)
-- 2026-06-30 04:34 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/00325225152.shtml)
-- 2026-06-30 04:53 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.blog.minike.top/Article/details/956689.shtml)
-- 2026-06-30 04:43 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/21726.shtml)
-- 2026-06-30 04:59 - [我和我的家乡](http://www.share.minike.top/Article/details/3082155.shtml)
-- 2026-06-30 04:42 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/00080064.shtml)
-- 2026-06-30 04:38 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/44238.shtml)
-- 2026-06-30 04:40 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/46801446.shtml)
+- 2026-06-30 04:56 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/915041645682.shtml)
+- 2026-06-30 05:05 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.kurohicncr.top/Article/details/730590496.shtml)
+- 2026-06-30 04:36 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/662278361139.shtml)
+- 2026-06-30 05:04 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/6836994847.shtml)
+- 2026-06-30 04:42 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.minike.top/Article/details/9569708.shtml)
+- 2026-06-30 04:49 - [TOP不是Prada全球普通人](https://www.blog.kurohicncr.top/Article/details/646295.shtml)
+- 2026-06-30 04:53 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/2385669.shtml)
+- 2026-06-30 05:03 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/339537001.shtml)
+- 2026-06-30 04:37 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/520515.shtml)
+- 2026-06-30 04:36 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/42210.shtml)
+- 2026-06-30 04:37 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/663281183.shtml)
+- 2026-06-30 04:53 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/9680991644.shtml)
+- 2026-06-30 04:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/52460161.shtml)
+- 2026-06-30 05:03 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/8347686.shtml)
+- 2026-06-30 04:53 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/849375.shtml)

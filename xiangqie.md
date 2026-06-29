@@ -1,57 +1,53 @@
-# 小摩：继续视智谱与MiniMax-W为中国AI采用周期结构性受益者 续予“增持”评级
+# 全球首个面向南方国家的教师数字素养提升行动计划发布
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，持续认为智谱（02513）与MiniMax-W（00100）均为中国人工智能采用周期的结构性受益者，其背后有强劲的API需求、不断改善的变现能力，以及国内市场企业级AI工作负载扩展仍处初期阶段作为支撑，均予 “增持”评级，目标价分别950港元及1，100港元。 在乐观展望下，两者目前提供不同模式体现有关主题：智谱具更清晰变现框架，且在达至年底年化收入约10亿
+中新社杭州5月12日电 《全球南方教师数字素养提升行动计划》(简称“行动计划”)12日在杭州发布。记者从现场获悉，该计划是全球首个专门面向南方国家教师数字素养提升的国际行动方案，旨在系统性助力发展中国家应对教育数字化转型中的共性挑战。2026世界数字教育大会“为未来学校准备教师”平行会议当日在浙江杭州举行，行动计划于会上发布。 行动计划提出四项核心举措，包括搭建多边协同架构，健
 
 ## 正文
 
-摩根大通发布研报称，持续认为智谱（02513）与MiniMax-W（00100）均为中国人工智能采用周期的结构性受益者，其背后有强劲的API需求、不断改善的变现能力，以及国内市场企业级AI工作负载扩展仍处初期阶段作为支撑，均予 “增持”评级，目标价分别950港元及1，100港元。
+中新社杭州5月12日电 《全球南方教师数字素养提升行动计划》(简称“行动计划”)12日在杭州发布。
 
-在乐观展望下，两者目前提供不同模式体现有关主题：智谱具更清晰变现框架，且在达至年底年化收入约10亿美元的执行路径上更具可衡量性，得益于API定价及代码采用情况的高透明度； MiniMax则具备更大的年化收入率上行空间，相较于当前股价反映的约年终年化收入率7亿美元，若其能更灵活地跨区域调度与部署运算资源，在业界仍受限于GPU供应紧缺下，将能更快扩大规模并提升营收。
+记者从现场获悉，该计划是全球首个专门面向南方国家教师数字素养提升的国际行动方案，旨在系统性助力发展中国家应对教育数字化转型中的共性挑战。
 
-该行指，行业关键的基本面风险点包括相对商业模式定位、竞争态势、定价纪律、中美技术能力差距，以及使用量增长转化为年化收入率的能力。
+2026世界数字教育大会“为未来学校准备教师”平行会议当日在浙江杭州举行，行动计划于会上发布。
 
-只要相关条件持续有利，股价技术性回调应被视为加仓良机。
+行动计划提出四项核心举措，包括搭建多边协同架构，健全全球南方教师数字素养协作机制；构建分层培训体系，深度对接联合国教科文组织“全球教师校园”，培育“种子教师”；共创本土实践枢纽，建设“数字教育样板学校”，在重点国家打造一批可观摩、可参与、可复制的本土化转型样板；拓展在地支持网络，依托“孔子学院”“鲁班工坊”等平台，为当地教师提供持续、便捷的在地化服务。
 
-若条件恶化，该行将采取更谨慎的观点。
+据悉，该计划将由全球教师发展学院非洲学院(浙江师范大学)牵头协调推进，未来三年将重点启动协作机制搭建、高阶课程联合开发及“灯塔学校”试点等旗舰项目，为提升全球教师数字素养贡献中国智慧与可行方案。
 
-责任编辑：卢昱君
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 05:00 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 04:31 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-30 04:50 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 04:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-30 04:54 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
-- 2026-06-30 04:47 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 04:48 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 04:51 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 04:44 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 04:55 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-30 04:52 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-30 04:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 04:42 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-30 04:42 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
-- 2026-06-30 04:41 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
+- 2026-06-30 04:47 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 04:42 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 04:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 04:46 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 04:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 04:57 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 05:05 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 04:39 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suopo.md)
+- 2026-06-30 04:38 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 04:57 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 04:42 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/42540787991.shtml)
-- 2026-06-30 04:37 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.kurohicncr.top/Article/details/1975257.shtml)
-- 2026-06-30 04:43 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/269111.shtml)
-- 2026-06-30 04:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/297924.shtml)
-- 2026-06-30 04:44 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/226773016.shtml)
-- 2026-06-30 04:41 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/600561712.shtml)
-- 2026-06-30 04:51 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/64863229575.shtml)
-- 2026-06-30 04:59 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.minike.top/Article/details/37635646.shtml)
-- 2026-06-30 04:37 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/1477052.shtml)
-- 2026-06-30 04:48 - [张碧晨一开口梦回逐玉](https://www.blog.kurohicncr.top/Article/details/198262363772.shtml)
-- 2026-06-30 04:37 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/572250.shtml)
-- 2026-06-30 04:45 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/62383333.shtml)
-- 2026-06-30 04:31 - [建议不要突然完全停止喝咖啡](http://www.blog.kurohicncr.top/Article/details/58020.shtml)
-- 2026-06-30 04:59 - [美股](https://www.share.minike.top/Article/details/92273.shtml)
-- 2026-06-30 04:39 - [日本世界杯淘汰赛历史0胜](https://www.share.kurohicncr.top/Article/details/51896936.shtml)
+- 2026-06-30 04:47 - [苗族银饰](http://www.share.minike.top/Article/details/75844.shtml)
+- 2026-06-30 05:01 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/2359059304.shtml)
+- 2026-06-30 04:49 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/890754.shtml)
+- 2026-06-30 05:00 - [曝娱乐圈大部分明星失业](http://www.share.kurohicncr.top/Article/details/7500251.shtml)
+- 2026-06-30 04:57 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/96293593.shtml)
+- 2026-06-30 04:50 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/961777592322.shtml)
+- 2026-06-30 04:36 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/5038912.shtml)
+- 2026-06-30 05:05 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/87016926694.shtml)
+- 2026-06-30 04:48 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/323499.shtml)
+- 2026-06-30 04:43 - [赛博朋克边缘行者2预告片](https://www.blog.kurohicncr.top/Article/details/9189829237.shtml)
+- 2026-06-30 05:01 - [蔚来车主罚站](https://www.blog.kurohicncr.top/Article/details/41561.shtml)
+- 2026-06-30 04:50 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/87831727.shtml)
+- 2026-06-30 04:47 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/059171401143.shtml)
+- 2026-06-30 04:59 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/372494275.shtml)
+- 2026-06-30 04:41 - [袁咏仪张智霖儿子寸头近照](http://www.share.minike.top/Article/details/724342085604.shtml)

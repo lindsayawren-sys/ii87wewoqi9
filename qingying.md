@@ -1,59 +1,46 @@
-# 圆明园含经堂改造开放 新增透视展示牌还原古建格局
+# 朝“问”健康 晨起空腹喝淡盐水没有养生效果
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-近日，北京圆明园遗址公园的上百种牡丹盛放。作为牡丹主要种植区域的含经堂遗址，经过提升改造后重新开放。 含经堂是圆明园牡丹种植最集中的区域。去年4月7日，含经堂启动遗址保护展示设施提升改造工程。上个月30日，该区域改造完成，重新开放，不仅加装了适老化设施、古建戏台防护网等，还引入了透视展示牌。通过透视效果图直观还原含经堂当年的建筑格局，让观众站在遗址前就能读懂建筑布局，解决了大遗
+发布时间：2026年05月12日 09:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-近日，北京圆明园遗址公园的上百种牡丹盛放。
-
-作为牡丹主要种植区域的含经堂遗址，经过提升改造后重新开放。
-
-含经堂是圆明园牡丹种植最集中的区域。
-
-去年4月7日，含经堂启动遗址保护展示设施提升改造工程。
-
-上个月30日，该区域改造完成，重新开放，不仅加装了适老化设施、古建戏台防护网等，还引入了透视展示牌。
-
-通过透视效果图直观还原含经堂当年的建筑格局，让观众站在遗址前就能读懂建筑布局，解决了大遗址“看残垣不懂格局”问题。
-
-圆明园管理处宣传科科长 余娜：我们希望通过这种景观的营造，让游客走进历史遗址，让他们能够感受到历史和遗址的一个碰撞，这也是我们对历史文化的一种活化。
-
-圆明园牡丹正值盛花期据介绍，圆明园的牡丹种植面积有三万平方米，除了含经堂，还有藻园、镂月开云等主要牡丹种植区域。
+发布时间：2026年05月12日 09:16 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 04:41 - [德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 04:33 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaokai.md)
-- 2026-06-30 04:47 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-30 04:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-30 04:50 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 04:54 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-30 04:48 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
-- 2026-06-30 04:35 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ketao.md)
-- 2026-06-30 04:52 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
-- 2026-06-30 04:33 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 04:58 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
-- 2026-06-30 04:44 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qktme.md)
+- 2026-06-30 04:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 04:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-30 04:56 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 04:40 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
+- 2026-06-30 04:41 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
+- 2026-06-30 04:50 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-30 04:53 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnism.md)
+- 2026-06-30 04:43 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 04:51 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-30 04:51 - [庆祝中国共产党成立105周年音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 05:06 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
+- 2026-06-30 04:48 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-30 05:05 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
+- 2026-06-30 04:42 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/5792351.shtml)
-- 2026-06-30 04:36 - [亚洲球队全部告别世界杯](http://www.blog.kurohicncr.top/Article/details/334273038.shtml)
-- 2026-06-30 04:31 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/4097995718.shtml)
-- 2026-06-30 04:51 - [巴西绝杀](http://www.blog.kurohicncr.top/Article/details/235797.shtml)
-- 2026-06-30 04:31 - [金刚川](http://www.share.kurohicncr.top/Article/details/75464719.shtml)
-- 2026-06-30 04:50 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/210961.shtml)
-- 2026-06-30 04:54 - [苗族银饰](https://www.share.kurohicncr.top/Article/details/124151551.shtml)
-- 2026-06-30 04:38 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/015056055.shtml)
-- 2026-06-30 04:52 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/8308977022.shtml)
-- 2026-06-30 04:50 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/79689.shtml)
-- 2026-06-30 04:44 - [刘宇宁胸肌腹肌全给看了](http://www.blog.kurohicncr.top/Article/details/89312970902.shtml)
-- 2026-06-30 04:59 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/876625.shtml)
-- 2026-06-30 04:45 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/558254003.shtml)
-- 2026-06-30 04:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/366485577.shtml)
-- 2026-06-30 04:48 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/703099.shtml)
+- 2026-06-30 05:04 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/97941893469.shtml)
+- 2026-06-30 04:39 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/711875602799.shtml)
+- 2026-06-30 04:54 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/64427.shtml)
+- 2026-06-30 04:57 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/51798462088.shtml)
+- 2026-06-30 04:41 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/6251815.shtml)
+- 2026-06-30 05:01 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/760804561.shtml)
+- 2026-06-30 04:41 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/26278138.shtml)
+- 2026-06-30 04:40 - [王楚钦孙颖莎混双对手产生](https://www.share.kurohicncr.top/Article/details/208748.shtml)
+- 2026-06-30 04:41 - [MSI应援曲 如果季中成回忆](http://www.blog.kurohicncr.top/Article/details/042052623544.shtml)
+- 2026-06-30 05:02 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/389322.shtml)
+- 2026-06-30 04:45 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/667909345.shtml)
+- 2026-06-30 04:42 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/028312353.shtml)
+- 2026-06-30 04:54 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/3029246258.shtml)
+- 2026-06-30 04:54 - [美股](http://www.blog.kurohicncr.top/Article/details/437574.shtml)
+- 2026-06-30 04:40 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/029146.shtml)

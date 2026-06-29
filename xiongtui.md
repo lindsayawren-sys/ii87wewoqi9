@@ -1,55 +1,53 @@
-# 印尼外长排除在马六甲海峡收通行费的可能性
+# 节能风电：股东张家玮并非演员张凌赫
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-印尼外长表示，该国不会寻求对通过马六甲海峡的船只征收通行费，以平息此前财政部长提出相关想法后引发的担忧。 “作为一个贸易国家，印尼支持航行自由，并期待海上航道保持通畅，”印尼外交部长苏吉约诺周四在雅加达表示。“因此，印尼并不适合征收此类费用——那样做并不恰当。” 印尼财政部长萨德瓦周三时提出质疑，印尼不对通过这条狭窄水道的船只收费究竟“是对还是错”。责任编辑：于健 SF069
+中新网北京5月12日电 (记者 陈康亮)中节能风力发电股份有限公司(下称节能风电)12日在互动平台表示，关于近期网络流传的“公司股东张家玮为演员张凌赫”的相关信息，公司高度重视并进行了核实。经核查，股东张家玮并非演员张凌赫。请广大投资者务必以公司在指定信息披露媒体发布的公告为准，切勿轻信和传播未经证实的网络消息，注意甄别信息真伪，谨慎决策，注意投资风险。 近期，节能风电股价持续
 
 ## 正文
 
-印尼外长表示，该国不会寻求对通过马六甲海峡的船只征收通行费，以平息此前财政部长提出相关想法后引发的担忧。
+中新网北京5月12日电 (记者 陈康亮)中节能风力发电股份有限公司(下称节能风电)12日在互动平台表示，关于近期网络流传的“公司股东张家玮为演员张凌赫”的相关信息，公司高度重视并进行了核实。
 
-“作为一个贸易国家，印尼支持航行自由，并期待海上航道保持通畅，”印尼外交部长苏吉约诺周四在雅加达表示。
+经核查，股东张家玮并非演员张凌赫。
 
-“因此，印尼并不适合征收此类费用——那样做并不恰当。
+请广大投资者务必以公司在指定信息披露媒体发布的公告为准，切勿轻信和传播未经证实的网络消息，注意甄别信息真伪，谨慎决策，注意投资风险。
 
-” 印尼财政部长萨德瓦周三时提出质疑，印尼不对通过这条狭窄水道的船只收费究竟“是对还是错”。
+近期，节能风电股价持续上涨，5月份累计涨逾20%。
 
-责任编辑：于健 SF069
+截至5月12日收盘，公司股票总市值逾330亿元。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 04:50 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
-- 2026-06-30 04:54 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 04:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 04:55 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
-- 2026-06-30 04:56 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-30 04:36 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-30 04:51 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 04:50 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
-- 2026-06-30 04:58 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
-- 2026-06-30 04:34 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 04:41 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 04:59 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 04:56 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-30 04:36 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 04:56 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 04:39 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-30 04:53 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
+- 2026-06-30 04:41 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzqan.md)
+- 2026-06-30 04:39 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 04:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrdyp.md)
+- 2026-06-30 04:51 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-30 04:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 04:59 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 05:00 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 04:59 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/458709.shtml)
-- 2026-06-30 04:46 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/531876522361.shtml)
-- 2026-06-30 04:37 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/93873923.shtml)
-- 2026-06-30 04:41 - [男生180+，有腹肌是什么体验？](http://www.blog.kurohicncr.top/Article/details/18412.shtml)
-- 2026-06-30 04:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/852963497.shtml)
-- 2026-06-30 04:39 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/00806724957.shtml)
-- 2026-06-30 04:49 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/812253.shtml)
-- 2026-06-30 04:38 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/3976930071.shtml)
-- 2026-06-30 04:37 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/4603504.shtml)
-- 2026-06-30 04:32 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/097173023.shtml)
-- 2026-06-30 04:36 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.kurohicncr.top/Article/details/151756757.shtml)
-- 2026-06-30 04:45 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/991180.shtml)
-- 2026-06-30 04:55 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/053485568177.shtml)
-- 2026-06-30 04:31 - [急先锋](https://www.blog.kurohicncr.top/Article/details/57808.shtml)
-- 2026-06-30 04:55 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/473630502065.shtml)
+- 2026-06-30 05:03 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/58561.shtml)
+- 2026-06-30 05:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/435256505197.shtml)
+- 2026-06-30 04:56 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/116553693600.shtml)
+- 2026-06-30 04:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/10294553647.shtml)
+- 2026-06-30 04:43 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/30092564.shtml)
+- 2026-06-30 04:51 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/6412371931.shtml)
+- 2026-06-30 04:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.kurohicncr.top/Article/details/966095506.shtml)
+- 2026-06-30 04:49 - [请回答王牌2019](http://www.blog.minike.top/Article/details/153108200838.shtml)
+- 2026-06-30 04:53 - [董卿父亲发文悼念亡妻](http://www.blog.minike.top/Article/details/83872.shtml)
+- 2026-06-30 04:52 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/62464.shtml)
+- 2026-06-30 04:37 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/323981.shtml)
+- 2026-06-30 04:42 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/0983331312.shtml)
+- 2026-06-30 05:01 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/4935847.shtml)
+- 2026-06-30 04:43 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/531280519.shtml)
+- 2026-06-30 04:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/5573819.shtml)

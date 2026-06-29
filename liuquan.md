@@ -1,61 +1,57 @@
-# 中国国家能源局：可保障各种情形下的油气安全保供能力
+# 新疆哈密：光热发电项目年发2亿度清洁电
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 (记者 王梦瑶)中东战事引发的能源危机波及多国，中国国家能源局综合司副司长张星27日在北京表示，中国积极推进油气行业高质量发展，可以保障在各种情形下的安全保供能力。 在当天召开的国家能源局例行新闻发布会上，张星表示，中国大力提升油气勘探开发力度，稳步提升国内油气产量，原油产量持续保持年产2亿吨以上并创新高，天然气产量连续9年超百亿方增产。 加快推进油气基
+中新网新疆哈密5月12日电 (袁鹏冲)在新疆哈密市伊吾县淖毛湖镇的戈壁之上，中国能建哈密熔盐塔式5万千瓦光热发电项目熠熠生辉。 作为我国首批、新疆唯一国家光热示范项目，这座投资约16亿元、占地6000亩的“超级镜子电站”2017年10月开工，2021年完成并网、试运行及验收，2022年4月正式进入运营期。本期装机容量50兆瓦，年发电量约2亿度。 “石榴花开 籽籽同心”铸牢中华民
 
 ## 正文
 
-中新社北京4月27日电 (记者 王梦瑶)中东战事引发的能源危机波及多国，中国国家能源局综合司副司长张星27日在北京表示，中国积极推进油气行业高质量发展，可以保障在各种情形下的安全保供能力。
+中新网新疆哈密5月12日电 (袁鹏冲)在新疆哈密市伊吾县淖毛湖镇的戈壁之上，中国能建哈密熔盐塔式5万千瓦光热发电项目熠熠生辉。
 
-在当天召开的国家能源局例行新闻发布会上，张星表示，中国大力提升油气勘探开发力度，稳步提升国内油气产量，原油产量持续保持年产2亿吨以上并创新高，天然气产量连续9年超百亿方增产。
+作为我国首批、新疆唯一国家光热示范项目，这座投资约16亿元、占地6000亩的“超级镜子电站”2017年10月开工，2021年完成并网、试运行及验收，2022年4月正式进入运营期。
 
-加快推进油气基础设施规划建设，长输油气管道里程突破20万公里，油气“全国一张网”进一步拓展，液化天然气(LNG)总接收能力超过1.2亿吨/年。
+本期装机容量50兆瓦，年发电量约2亿度。
 
-持续巩固完善多元油气进口体系建设。
+“石榴花开 籽籽同心”铸牢中华民族共同体意识网络主题活动11日走进该光热发电项目现场。
 
-目前已经与全球近50个国家开展油气贸易合作，进口来源涵盖全球主要油气出口国，始终保持油气资源进口稳定可靠。
+记者了解到，技术创新是项目核心亮点。
 
-此外，还持续开展油气消费可靠有序替代。
+该项目聚光集热系统由14500面巨蜥式五边形定日镜组成，单面镜面积48.5平方米，可实时追踪太阳轨迹，将光能反射至220米高的吸热塔转化为热能，搭配13小时储热系统，实现24小时连续稳定供电。
 
-张星说，在上述工作的共同支撑促进下，中国油气行业产业韧性和灵活应对风险挑战能力不断增强。
+项目兼具生态与发展价值，运行期间无固体垃圾产生，助力优化能源结构、替代常规化石能源，契合国家环保政策与“双碳”战略。
 
-今年以来，中国国家发改委、国家能源局会同有关方面积极应对外部环境变化的挑战，全力做好油气保供工作，通过稳产、多元化进口、价格临时调控等多种方式确保油气供应平稳有序，有效保障了经济平稳运行和民生需求。
+同时，它深度激活当地太阳能资源，助力西部大开发与共建“一带一路”建设，更为我国大容量光热发电积累宝贵设计、运营经验。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 04:57 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 04:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
-- 2026-06-30 04:33 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
-- 2026-06-30 04:45 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-30 04:38 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 04:32 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 04:47 - [如何评价《龙之家族》第三季第二集？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 04:43 - [巴西醒醒 这是淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 04:55 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 04:35 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-30 04:56 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 04:33 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 04:45 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:35 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 05:01 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
+- 2026-06-30 04:43 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 04:51 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 05:02 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 04:55 - [刘必安等16人非法集资案二审宣判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 04:58 - [世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 04:37 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 04:37 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-30 04:55 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
+- 2026-06-30 04:56 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 05:03 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.kurohicncr.top/Article/details/56279989.shtml)
-- 2026-06-30 04:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/428985.shtml)
-- 2026-06-30 04:52 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.kurohicncr.top/Article/details/296519.shtml)
-- 2026-06-30 04:38 - [刘念回应](http://www.share.kurohicncr.top/Article/details/285865538.shtml)
-- 2026-06-30 04:55 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.kurohicncr.top/Article/details/5785915.shtml)
-- 2026-06-30 04:53 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/0934912.shtml)
-- 2026-06-30 04:54 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/142934.shtml)
-- 2026-06-30 04:49 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/0786548624.shtml)
-- 2026-06-30 04:36 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/443563905790.shtml)
-- 2026-06-30 04:39 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/5527280.shtml)
-- 2026-06-30 04:58 - [中国再对日本出重拳](https://www.blog.kurohicncr.top/Article/details/0695991777.shtml)
-- 2026-06-30 04:32 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/3036253273.shtml)
-- 2026-06-30 04:42 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/800733846510.shtml)
-- 2026-06-30 04:43 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/8263507003.shtml)
-- 2026-06-30 04:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/948496678218.shtml)
+- 2026-06-30 04:43 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/163705699.shtml)
+- 2026-06-30 04:55 - [爱很美味](https://www.share.minike.top/Article/details/261994264.shtml)
+- 2026-06-30 04:49 - [院士：太空轨道必须抢](http://www.blog.minike.top/Article/details/41814.shtml)
+- 2026-06-30 04:53 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/391313.shtml)
+- 2026-06-30 05:00 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.kurohicncr.top/Article/details/829170.shtml)
+- 2026-06-30 04:51 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.minike.top/Article/details/74922.shtml)
+- 2026-06-30 04:43 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/17721.shtml)
+- 2026-06-30 04:59 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/76213265.shtml)
+- 2026-06-30 04:52 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/2640053.shtml)
+- 2026-06-30 04:49 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/50950715.shtml)
+- 2026-06-30 04:43 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/988325853356.shtml)
+- 2026-06-30 04:57 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/820424.shtml)
+- 2026-06-30 04:59 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/060130860.shtml)
+- 2026-06-30 05:03 - [如何评价杨紫白玉兰获奖](https://www.share.kurohicncr.top/Article/details/21630390882.shtml)
+- 2026-06-30 04:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/822402609451.shtml)

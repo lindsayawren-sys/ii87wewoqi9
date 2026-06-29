@@ -1,57 +1,57 @@
-# 【好评中国·新角色】赛道上的“新跑者”
+# 大涨118%！A股年内首只翻倍ETF诞生
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-近日，在2026北京亦庄半程马拉松暨人形机器人半程马拉松上，“闪电”机器人以50分26秒的净时成绩夺冠，超越了人类男子半马世界纪录。这不仅是技术速度的比拼，更是人工智能与机械躯体共同塑造的实体参与者，以奔跑之姿展现的全新可能。这场突破的意义，远不止赛道上的速度胜负。从蹒跚学步到健步如飞，从短距离演示到长距离耐力奔跑，这一“新角色”的成长，是具身智能技术的标志性跨越。长距离动态平
+记者丨易妍君 编辑丨张星 受全球AI算力需求爆发催化，5月12日，韩国半导体巨头继续暴涨，截至发稿，SK海力士涨3.67%，三星电子涨1.31%。此前一周，前述两只热门韩股的区间涨幅分别达到31%、22%。 韩国综合指数于5月12日一度涨2.3%，再创历史新高，逼近8000点大关。而5月6日，该指数刚刚突破7000点。 “狂热”情绪进一步向国内市场蔓延，相关跨境ETF溢价率再度
 
 ## 正文
 
-近日，在2026北京亦庄半程马拉松暨人形机器人半程马拉松上，“闪电”机器人以50分26秒的净时成绩夺冠，超越了人类男子半马世界纪录。
+记者丨易妍君 编辑丨张星 受全球AI算力需求爆发催化，5月12日，韩国半导体巨头继续暴涨，截至发稿，SK海力士涨3.67%，三星电子涨1.31%。
 
-这不仅是技术速度的比拼，更是人工智能与机械躯体共同塑造的实体参与者，以奔跑之姿展现的全新可能。
+此前一周，前述两只热门韩股的区间涨幅分别达到31%、22%。
 
-这场突破的意义，远不止赛道上的速度胜负。
+韩国综合指数于5月12日一度涨2.3%，再创历史新高，逼近8000点大关。
 
-从蹒跚学步到健步如飞，从短距离演示到长距离耐力奔跑，这一“新角色”的成长，是具身智能技术的标志性跨越。
+而5月6日，该指数刚刚突破7000点。
 
-长距离动态平衡控制、高能量密度续航、复杂路况自主导航，这些曾经的“硬骨头”被逐一攻克，由AI衍生的新角色，从实验室的演示雏形，跨过实用化落地门槛，开始具备走进人类社会、承担社会分工的能力。
+“狂热”情绪进一步向国内市场蔓延，相关跨境ETF溢价率再度高企。
 
-越是颠覆性的新角色，越需要耐心与支持。
+A股年内首只翻倍ETF诞生！
 
-无论是新职业群体的成长，还是AI衍生新角色的成熟，都离不开长周期培育。
+截至5月11日，中韩半导体ETF华泰柏瑞（513310）年内涨幅118.63%。
 
-人形机器人研发周期长、投入大、风险高，近年来，“拨投结合”等创新机制的探索，让耐心资本敢于投向长周期培育领域，为技术萌芽期送去关键支持，既分担成长风险，又撬动社会资源跟进。
+近一年来该基金业绩已猛涨超215%。
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhinu.md)
-- 2026-06-30 04:48 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-30 04:57 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 04:40 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 04:45 - [健全中小学教师工资长效联动机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-30 04:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-30 04:38 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
-- 2026-06-30 04:55 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
-- 2026-06-30 04:55 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
-- 2026-06-30 04:35 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
-- 2026-06-30 04:32 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 04:45 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-30 04:44 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdozn.md)
+- 2026-06-30 04:45 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-30 04:59 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-30 05:05 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 04:58 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 04:45 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-30 04:52 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-30 05:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-30 04:56 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-30 04:59 - [世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/2967328968.shtml)
-- 2026-06-30 04:58 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/831201930351.shtml)
-- 2026-06-30 04:53 - [足球小将的剧本成真了](http://www.blog.kurohicncr.top/Article/details/26165005.shtml)
-- 2026-06-30 04:57 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/94292082.shtml)
-- 2026-06-30 04:32 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/43581743.shtml)
-- 2026-06-30 04:58 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/843633.shtml)
-- 2026-06-30 04:31 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/224824613669.shtml)
-- 2026-06-30 04:44 - [欧洲家电巨头为何输掉了这个夏天](http://www.share.kurohicncr.top/Article/details/352775498.shtml)
-- 2026-06-30 04:49 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/1263922756.shtml)
-- 2026-06-30 04:53 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/6374348949.shtml)
-- 2026-06-30 04:44 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/16390.shtml)
-- 2026-06-30 04:45 - [孙兴慜道歉](https://www.share.minike.top/Article/details/33286.shtml)
-- 2026-06-30 04:43 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/6526686517.shtml)
-- 2026-06-30 04:45 - [王健林甩卖超80座万达广场](https://www.blog.kurohicncr.top/Article/details/70868315.shtml)
-- 2026-06-30 04:55 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/693633541.shtml)
+- 2026-06-30 04:54 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/7985182712.shtml)
+- 2026-06-30 04:48 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/63095451.shtml)
+- 2026-06-30 04:59 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/951716167.shtml)
+- 2026-06-30 04:51 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/7162585.shtml)
+- 2026-06-30 04:44 - [同样是装空调差别怎么能这么大](https://www.share.kurohicncr.top/Article/details/96800.shtml)
+- 2026-06-30 04:53 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/10237644170.shtml)
+- 2026-06-30 04:56 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/917501017996.shtml)
+- 2026-06-30 04:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/8917128.shtml)
+- 2026-06-30 04:44 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/236164064292.shtml)
+- 2026-06-30 04:39 - [贺峻霖拎着爱马仕回国了](https://www.share.minike.top/Article/details/0056240199.shtml)
+- 2026-06-30 05:02 - [巴西替补奇兵读秒绝杀](https://www.share.kurohicncr.top/Article/details/9374646.shtml)
+- 2026-06-30 04:37 - [复古未来主义沙画「夜泳」](https://www.blog.kurohicncr.top/Article/details/64451665134.shtml)
+- 2026-06-30 04:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/85972925124.shtml)
+- 2026-06-30 04:41 - [85花告别古偶](https://www.share.minike.top/Article/details/533070934.shtml)
+- 2026-06-30 04:40 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/278442.shtml)

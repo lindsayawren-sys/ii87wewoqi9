@@ -1,53 +1,57 @@
-# 【澜湄印象】泰星齐聚春城 以艺为桥促中泰民心相通
+# 重仓科技板块基金狂飙，超1600只产品净值创新高
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 14:31 来源：中国新闻网 4月24日至26日，2026昆明·泰国节期间，四位在中国拥有广泛受众基础的泰国影视演员——马里奥·毛瑞尔、查侬·散顶腾古、泰莎昂·派索克乔纶、徐志贤，先后亮相云南昆明，以三场明星见面会掀起跨文化交流热潮。 马里奥凭借《初恋这件小事》成为中国观众熟知的泰国面孔；查侬以《不期而爱》圈粉无数；泰莎昂凭借《一诺倾情》成为一
+打开基金账户，你的净值创新高了吗？ 5月A股震荡攀高，市场情绪悄然回暖，公募基金的赚钱效应同步释放。5月11日，就有超过1600只主动权益基金复权单位净值同步刷新成立以来最高纪录，至此年内正收益产品占比超过86%。 观察来看，多只重仓光通信、半导体的基金净值一路狂奔，广发远见智选等绩优产品年内回报已突破110%；而部分消费主题产品仍在“掉队”，有的年内还亏了两位数，甚至创下历史
 
 ## 正文
 
-发布时间：2026年04月26日 14:31 来源：中国新闻网 4月24日至26日，2026昆明·泰国节期间，四位在中国拥有广泛受众基础的泰国影视演员——马里奥·毛瑞尔、查侬·散顶腾古、泰莎昂·派索克乔纶、徐志贤，先后亮相云南昆明，以三场明星见面会掀起跨文化交流热潮。
+打开基金账户，你的净值创新高了吗？
 
-马里奥凭借《初恋这件小事》成为中国观众熟知的泰国面孔；查侬以《不期而爱》圈粉无数；泰莎昂凭借《一诺倾情》成为一代观众的“泰剧女神”；徐志贤主演的《萌妻食神》等中泰合拍剧，让他快速走近中国观众。
+5月A股震荡攀高，市场情绪悄然回暖，公募基金的赚钱效应同步释放。
 
-每一场见面会都人气爆棚，马里奥现身时，全场欢呼声此起彼伏，他亲切挥手致意，分享他爱吃的昆明米线；查侬与泰莎昂的同框互动中，两人与粉丝近距离交流，探讨两国文化的多元魅力；徐志贤的见面会于4月26日晚举行，已成为本届泰国节备受期待的收官亮点。
+5月11日，就有超过1600只主动权益基金复权单位净值同步刷新成立以来最高纪录，至此年内正收益产品占比超过86%。
 
-昆明·泰国节至今已成功举办至第16届，是中泰两国民间友好交流的重要平台。
+观察来看，多只重仓光通信、半导体的基金净值一路狂奔，广发远见智选等绩优产品年内回报已突破110%；而部分消费主题产品仍在“掉队”，有的年内还亏了两位数，甚至创下历史新低，与领跑者拉开了136个百分点的业绩鸿沟。
 
-明星见面会用线下相逢打破荧屏的距离感，让演员与观众面对面交流，生动诠释“中泰一家亲”的深厚情谊。
+展望后市，受访机构普遍认为指数震荡上行仍是主基调。
 
-(袁鸿凯） 责任编辑：【周驰】
+招商基金投研人士对第一财经表示，国内增长预期与流动性环境向好，产业催化依旧丰富，预计指数仍将维持震荡上行格局。
+
+此外，随着业绩披露期结束，资金开始从绩优龙头向中小市值主题扩散。
+
+1600只基金净值创新高 进入5月，A股市场延续震荡向上态势，上证指数逐步攀升至4200点整数关口。
 
 ## 相关推荐
 
-- 2026-06-30 04:42 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 04:52 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 04:55 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 04:59 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 04:32 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 04:56 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-30 04:58 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
-- 2026-06-30 04:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-30 04:37 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-30 04:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 04:35 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-30 04:57 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
+- 2026-06-30 04:59 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-30 04:55 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
+- 2026-06-30 04:40 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
+- 2026-06-30 04:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 04:37 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 04:46 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 04:56 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkixu.md)
+- 2026-06-30 04:58 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 04:42 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 04:38 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [月亮](https://www.share.minike.top/Article/details/539226157.shtml)
-- 2026-06-30 04:59 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/5173653.shtml)
-- 2026-06-30 04:48 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/216145.shtml)
-- 2026-06-30 04:31 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/2620543133.shtml)
-- 2026-06-30 04:58 - [王欣瑜2-1击败科恰雷托](http://www.share.kurohicncr.top/Article/details/95516.shtml)
-- 2026-06-30 04:46 - [国内最大沙漠发洪水意味着什么](http://www.share.minike.top/Article/details/5259504569.shtml)
-- 2026-06-30 04:38 - [花少8要去世界杯举办国](http://www.blog.kurohicncr.top/Article/details/582065.shtml)
-- 2026-06-30 04:34 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/3876803536.shtml)
-- 2026-06-30 04:51 - [一见倾心](http://www.share.minike.top/Article/details/053164162.shtml)
-- 2026-06-30 04:32 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/6660659.shtml)
-- 2026-06-30 04:49 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/456409716521.shtml)
-- 2026-06-30 04:56 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.kurohicncr.top/Article/details/595851018.shtml)
-- 2026-06-30 04:48 - [第一炉香](https://www.share.minike.top/Article/details/90469.shtml)
-- 2026-06-30 04:45 - [中方追加1亿元物资援助委内瑞拉](http://www.share.minike.top/Article/details/22956505.shtml)
-- 2026-06-30 04:37 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/6146783.shtml)
+- 2026-06-30 05:03 - [小孩曾卓君夺冠之路](http://www.share.minike.top/Article/details/169662154.shtml)
+- 2026-06-30 04:53 - [苗族银饰](https://www.share.minike.top/Article/details/977252711.shtml)
+- 2026-06-30 04:55 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/2875992.shtml)
+- 2026-06-30 04:41 - [急先锋](http://www.blog.minike.top/Article/details/749737.shtml)
+- 2026-06-30 04:45 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/884606391.shtml)
+- 2026-06-30 04:55 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/611089565039.shtml)
+- 2026-06-30 04:39 - [男子身高一米八二仍做断骨增高](http://www.blog.minike.top/Article/details/271450.shtml)
+- 2026-06-30 04:45 - [我们的少年时代2](http://www.share.minike.top/Article/details/624296.shtml)
+- 2026-06-30 05:00 - [刘念回应](https://www.blog.minike.top/Article/details/457913628.shtml)
+- 2026-06-30 04:36 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.kurohicncr.top/Article/details/332702442413.shtml)
+- 2026-06-30 04:48 - [张帅时隔四年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/441530.shtml)
+- 2026-06-30 05:05 - [为什么香港的冲厕水是咸的？](https://www.blog.kurohicncr.top/Article/details/017742.shtml)
+- 2026-06-30 04:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/44847478575.shtml)
+- 2026-06-30 04:38 - [怕iPhone涨价的用户已紧急换新](https://www.blog.minike.top/Article/details/4870597240.shtml)
+- 2026-06-30 04:58 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/62999616.shtml)

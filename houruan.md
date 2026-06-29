@@ -1,55 +1,50 @@
-# 小摩：ASMPT给予“增持”评级 目标价上升至175港元
+# 我国成功发射千帆极轨09组卫星
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-摩根大通发布研报称，ASMPT（00522）今年首季业绩及次季指引，均远高于市场预期，主要受惠于半导体及表面贴装技术（SMT）收入强劲，以及半导体毛利率改善。小摩预计，ASMPT今年收入增长约30%至40%，因其先进封装持续扩张，以及AI服务器电路板及电源管理IC带动主流半导体和SMT解决方案强劲复苏。故上调今明两年每股盈利预测35%及21%，目标价由130港元升至175港元，
+北京时间2026年5月12日19时59分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨09组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。 此次任务是长征系列运载火箭的第642次飞行。 (总台央视记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
 
 ## 正文
 
-摩根大通发布研报称，ASMPT（00522）今年首季业绩及次季指引，均远高于市场预期，主要受惠于半导体及表面贴装技术（SMT）收入强劲，以及半导体毛利率改善。
+北京时间2026年5月12日19时59分，我国在太原卫星发射中心使用长征六号改运载火箭，成功将千帆极轨09组卫星发射升空，卫星顺利进入预定轨道，发射任务取得圆满成功。
 
-小摩预计，ASMPT今年收入增长约30%至40%，因其先进封装持续扩张，以及AI服务器电路板及电源管理IC带动主流半导体和SMT解决方案强劲复苏。
+此次任务是长征系列运载火箭的第642次飞行。
 
-故上调今明两年每股盈利预测35%及21%，目标价由130港元升至175港元，给予“增持”评级。
-
-该行认为，公司未来几季有数个催化剂推动股价上涨包括积压的HBM4订单，可能在SK海力士解决其Rubin芯片的逻辑基板挑战后，于今年下半年获得释放； 同时，公司正与所有DRAM制造商就HBM4E TCB的认证合作进行广泛磋商等。
-
-责任编辑：卢昱君
+(总台央视记者 杨弘杨 刘鑫蕊 郝明鑫 李宸)
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 04:48 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bffcz.md)
-- 2026-06-30 04:40 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-30 04:59 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 04:50 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
-- 2026-06-30 04:37 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
-- 2026-06-30 04:41 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-30 04:31 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
-- 2026-06-30 04:34 - [《贺子珍》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-30 04:40 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-30 04:44 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-30 04:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
-- 2026-06-30 04:34 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
-- 2026-06-30 04:39 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 04:39 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 04:51 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-30 04:59 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-30 04:39 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 05:01 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-30 04:47 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-30 04:56 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 05:03 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 04:45 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbqry.md)
+- 2026-06-30 04:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 04:37 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 04:48 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 04:42 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 05:03 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 04:38 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/157058842.shtml)
-- 2026-06-30 04:42 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/901174.shtml)
-- 2026-06-30 04:48 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/25241.shtml)
-- 2026-06-30 04:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.kurohicncr.top/Article/details/04568316974.shtml)
-- 2026-06-30 04:48 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/7349360.shtml)
-- 2026-06-30 04:31 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.minike.top/Article/details/53552762.shtml)
-- 2026-06-30 04:51 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/395085104.shtml)
-- 2026-06-30 04:56 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/63593958410.shtml)
-- 2026-06-30 04:43 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/20861157.shtml)
-- 2026-06-30 04:48 - [辛纳vs凯茨玛诺维奇](http://www.share.kurohicncr.top/Article/details/29645.shtml)
-- 2026-06-30 04:46 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/64345102.shtml)
-- 2026-06-30 04:56 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/07857.shtml)
-- 2026-06-30 04:48 - [锐评T1零封KC](http://www.blog.minike.top/Article/details/5968287653.shtml)
-- 2026-06-30 04:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/2706207558.shtml)
-- 2026-06-30 04:57 - [日本进球](http://www.blog.minike.top/Article/details/60424159184.shtml)
+- 2026-06-30 04:40 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/3068425.shtml)
+- 2026-06-30 04:56 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/246171289.shtml)
+- 2026-06-30 04:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.minike.top/Article/details/343386454.shtml)
+- 2026-06-30 04:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/63749515.shtml)
+- 2026-06-30 05:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/817933861458.shtml)
+- 2026-06-30 04:46 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/362665462.shtml)
+- 2026-06-30 04:43 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/93238176684.shtml)
+- 2026-06-30 04:45 - [吴艳妮回应夺冠](https://www.blog.kurohicncr.top/Article/details/57975824504.shtml)
+- 2026-06-30 04:46 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/380352082084.shtml)
+- 2026-06-30 04:55 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/4386269.shtml)
+- 2026-06-30 04:48 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/5569571744.shtml)
+- 2026-06-30 05:04 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/5588572.shtml)
+- 2026-06-30 05:05 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/3097091.shtml)
+- 2026-06-30 04:58 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1271897.shtml)
+- 2026-06-30 04:46 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/19730971.shtml)

@@ -1,56 +1,52 @@
-# 福州科技秀：机器人灵动起舞引围观
+# 香港首个风力发电站因设备达设计寿命上限关闭
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变
+中新网香港5月11日电 香港电灯有限公司11日公布，香港首个风力发电站“南丫风采发电站”因相关设备已达20年设计寿命上限，即日起正式关闭。 2006年2月落成投产的南丫风采发电站，坐落于南丫岛北面的大岭一处山丘上，按照大岭的平均风速达每秒5.5米计算，每年可生产约80万至100万度电。 “南丫风采发电站”这个名称是由一个公开命名比赛而来。多年来，南丫风采发电站已成为南丫岛的地标
 
 ## 正文
 
-“700台机器没日没夜打，月赚10万”，年轻人开始靠3D打印“搞钱”杨某某每天90元扮流浪女 “深山救助”视频摆拍细节公开“我们第一次来，太震撼了”，老外涌入北京车展采茶专列、球迷专列，旅游列车扎堆上新抢占“五一”市场如何从萨迦寺历史看中华民族大一统？
+中新网香港5月11日电 香港电灯有限公司11日公布，香港首个风力发电站“南丫风采发电站”因相关设备已达20年设计寿命上限，即日起正式关闭。
 
-推动海洋经济高质量发展 加快建设海洋强国1.65亿实时人口筑牢广东发展根基从“中国游”到“中式生活”：外国人眼中的中国魅力与巨变餐桌上的泾源风物诗：一块黄牛肉的乡野与醇厚被忽视的“口腔杀手”，正悄悄盯上年轻人生猪价格创7年多新低 零售市场和居民消费体验有啥变化巴基斯坦记者：新疆“强迫劳动”何在？
+2006年2月落成投产的南丫风采发电站，坐落于南丫岛北面的大岭一处山丘上，按照大岭的平均风速达每秒5.5米计算，每年可生产约80万至100万度电。
 
-义乌“因地制宜”发展的启示演员陈丽君晋升副主任 戏剧青年人才如何蓄力成长？
+“南丫风采发电站”这个名称是由一个公开命名比赛而来。
 
-太阳今日爆发X2.4级耀斑，有何影响？
+多年来，南丫风采发电站已成为南丫岛的地标，是旅客必到之处。
 
-为何说中国全面推广普及国家通用语言文字和保护少数民族语言文化并行不悖？
+据悉，南丫风采发电站也是香港首个由电力公司发展的具有商业规模的可再生能源项目。
 
-企业玩“心机商标”，但口碑不会陪你演作家蒋胜男：真正的“大女主”不是玛丽苏式“等人来救”12位志愿军烈士在沈阳安葬 鸣枪12响致敬志愿军烈士寻根黄帝故里！
-
-台胞小可的拜祖初体验沈阳塔台迎接志愿军忠烈回家西藏樟木口岸全面复通后出入境人员突破100万人次中国海军以最高礼仪迎接烈士遗骸回国深圳市非血缘造血干细胞捐献达1000例宿迁：在“项王故里”邂逅水韵柔情沈阳全城披红 迎第十三批志愿军烈士遗骸归国实拍西汉王后的“硬核”文具惊险！
-
-买馕忘拉手刹，爱车溜坡撞上绿化带5.2米高！
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 04:40 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-30 04:40 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
-- 2026-06-30 04:54 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 04:46 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-30 04:35 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-30 04:52 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 04:37 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
-- 2026-06-30 04:32 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 04:59 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 04:46 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tejit.md)
+- 2026-06-30 04:46 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 04:36 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-30 04:48 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hangcan.md)
+- 2026-06-30 05:04 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 04:52 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 04:58 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/munhv.md)
+- 2026-06-30 05:02 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-30 04:48 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-30 04:41 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/305171.shtml)
-- 2026-06-30 04:34 - [女心理师](http://www.blog.minike.top/Article/details/0150409269.shtml)
-- 2026-06-30 04:53 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/4588611.shtml)
-- 2026-06-30 04:54 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/484717104582.shtml)
-- 2026-06-30 04:34 - [极限挑战第一季](https://www.blog.minike.top/Article/details/388249.shtml)
-- 2026-06-30 04:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/4299846.shtml)
-- 2026-06-30 04:36 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/49241311.shtml)
-- 2026-06-30 04:34 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/964761034.shtml)
-- 2026-06-30 04:54 - [内马尔中场休息积极鼓励队友](https://www.blog.kurohicncr.top/Article/details/43329181652.shtml)
-- 2026-06-30 04:49 - [医药暴涨5.91%背后](https://www.blog.kurohicncr.top/Article/details/4297014954.shtml)
-- 2026-06-30 04:43 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/754115.shtml)
-- 2026-06-30 04:51 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/56839.shtml)
-- 2026-06-30 04:50 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/59503307052.shtml)
-- 2026-06-30 04:40 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/8249357.shtml)
-- 2026-06-30 04:34 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/91795511.shtml)
+- 2026-06-30 05:01 - [日本世界杯淘汰赛历史0胜](http://www.blog.kurohicncr.top/Article/details/423348098318.shtml)
+- 2026-06-30 04:37 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/03024699540.shtml)
+- 2026-06-30 04:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/846493610192.shtml)
+- 2026-06-30 04:40 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/8155898995.shtml)
+- 2026-06-30 04:59 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/1029110382.shtml)
+- 2026-06-30 04:57 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/04444.shtml)
+- 2026-06-30 05:01 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/093247149950.shtml)
+- 2026-06-30 04:42 - [逃狱兄弟](http://www.blog.minike.top/Article/details/22760392204.shtml)
+- 2026-06-30 04:53 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/9363700.shtml)
+- 2026-06-30 05:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/08046848091.shtml)
+- 2026-06-30 05:00 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/388783.shtml)
+- 2026-06-30 05:03 - [美人鱼](http://www.share.minike.top/Article/details/110153.shtml)
+- 2026-06-30 05:03 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/5621963.shtml)
+- 2026-06-30 04:40 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/92173590887.shtml)
+- 2026-06-30 05:03 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.minike.top/Article/details/4106231.shtml)

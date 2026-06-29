@@ -1,58 +1,58 @@
-# 上海银行副行长俞敏华谈对公信贷：去年“由降到稳”，下一阶段争取“从增到优”
+# （近观中国）将中美友好的火炬传给年轻一代
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行副行长俞敏华回顾了上海银行2025年上海银行对公信贷业务的情况，他表示去年一年经历了调整，总体是“由降到稳”的过程。到了今年，因为去年下半年和四季度做了调整，也为今年的信贷投放做了一些项目储备，储备规模超过了1000亿。 他给出了今年一季度的情况，一季度整体信贷投放、对公信贷投放的增量达
+中新社北京5月12日电 题：将中美友好的火炬传给年轻一代 ——访美国艾奥瓦州友人卢卡·贝隆 中新社记者 曾玥 “也许我们相隔万里，但望向同一轮月亮。” 于美国艾奥瓦州友人卢卡·贝隆而言，这是对深厚情谊的诗意表达，也是对美中关系的朴素认知——“我们看向同一个目标，我们向往同一轮月亮。” 这份体悟，源自一段跨越时空的中美“老友记”。近日在北京接受中新社专访时，贝隆向记者展示了一封特
 
 ## 正文
 
-4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，上海银行副行长俞敏华回顾了上海银行2025年上海银行对公信贷业务的情况，他表示去年一年经历了调整，总体是“由降到稳”的过程。
+中新社北京5月12日电 题：将中美友好的火炬传给年轻一代 ——访美国艾奥瓦州友人卢卡·贝隆 中新社记者 曾玥 “也许我们相隔万里，但望向同一轮月亮。
 
-到了今年，因为去年下半年和四季度做了调整，也为今年的信贷投放做了一些项目储备，储备规模超过了1000亿。
+” 于美国艾奥瓦州友人卢卡·贝隆而言，这是对深厚情谊的诗意表达，也是对美中关系的朴素认知——“我们看向同一个目标，我们向往同一轮月亮。
 
-他给出了今年一季度的情况，一季度整体信贷投放、对公信贷投放的增量达到了976亿，对公信贷余额超过了1000亿。
+” 这份体悟，源自一段跨越时空的中美“老友记”。
 
-976亿是对公人民币贷款，如果再加上外币贷款，整个对公贷款的增量也将近1000亿，整体增幅超过10%。
+近日在北京接受中新社专访时，贝隆向记者展示了一封特殊的信件和贺卡。
 
-在这个过程中，我们信贷投放主要聚焦的领域包括：国资国企重大项目、民营企业、制造业科技普惠等等。
+2月16日，中国国家主席习近平复信美国艾奥瓦州友人并回赠新春贺卡，致以节日祝福。
 
-展望未来，俞敏华表示，从二季度开始：在一季度总量增长和夯实的基础上，我们要优化信贷结构。
+他在信中重温了41年前访问艾奥瓦州的美好回忆，并写道：“无论形势如何变化，中美两国人民交流合作的愿望不会改变，两国青少年相知相亲的情谊不会改变。
 
-我们计划在二季度乃至全年的对公信贷增长中，让“五篇大文章”转型业务的增量占比达到70%。
+” 对两国人文交往的寄语漂洋过海，抵达致信人贝隆手中。
 
-这是我们下一阶段“从增到优”的策略。
+昔日存放日程单、老照片和旧报纸的收藏夹里，又添一份新的珍藏。
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 04:49 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 04:54 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
-- 2026-06-30 04:31 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 04:30 - [张月感谢了每一公的队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
-- 2026-06-30 04:50 - [苗族银饰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-30 04:55 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 04:55 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 04:52 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 04:59 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 04:50 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 04:40 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-30 04:45 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-30 04:59 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 05:04 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 04:38 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
+- 2026-06-30 04:56 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 05:04 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-30 04:43 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 04:52 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kztgh.md)
+- 2026-06-30 04:56 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
+- 2026-06-30 04:36 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 04:41 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-30 04:57 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/369824069.shtml)
-- 2026-06-30 04:38 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/98783878983.shtml)
-- 2026-06-30 04:45 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/27906140.shtml)
-- 2026-06-30 04:36 - [巴西VS日本前瞻](https://www.share.minike.top/Article/details/6182828.shtml)
-- 2026-06-30 04:40 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/66910831.shtml)
-- 2026-06-30 04:43 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/148679180.shtml)
-- 2026-06-30 04:34 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/902261480.shtml)
-- 2026-06-30 04:35 - [我觉得你是在无中生友](http://www.blog.minike.top/Article/details/84483.shtml)
-- 2026-06-30 04:57 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/474186390.shtml)
-- 2026-06-30 04:47 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/725781434.shtml)
-- 2026-06-30 04:46 - [巴西2-1绝杀日本](http://www.share.minike.top/Article/details/206520394.shtml)
-- 2026-06-30 04:58 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/493859773735.shtml)
-- 2026-06-30 04:32 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/498682659.shtml)
-- 2026-06-30 04:36 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/09563829197.shtml)
-- 2026-06-30 04:36 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/862120.shtml)
+- 2026-06-30 04:53 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/76144.shtml)
+- 2026-06-30 04:40 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/26142881921.shtml)
+- 2026-06-30 04:52 - [日本接连三场大型军演想干什么](https://www.blog.kurohicncr.top/Article/details/25414.shtml)
+- 2026-06-30 04:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.minike.top/Article/details/242715638553.shtml)
+- 2026-06-30 04:54 - [上市央企地产商 两年换了三任董事长](http://www.blog.minike.top/Article/details/065029.shtml)
+- 2026-06-30 04:56 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/60315169.shtml)
+- 2026-06-30 04:56 - [DeepSeek启动成立来最大规模招聘](http://www.blog.kurohicncr.top/Article/details/59491868.shtml)
+- 2026-06-30 04:49 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/027681.shtml)
+- 2026-06-30 04:57 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/068035239.shtml)
+- 2026-06-30 04:57 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/1884441488.shtml)
+- 2026-06-30 04:58 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/357023131.shtml)
+- 2026-06-30 04:43 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/04421709879.shtml)
+- 2026-06-30 05:02 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/48577860.shtml)
+- 2026-06-30 04:54 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/781163.shtml)
+- 2026-06-30 05:02 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/124427155.shtml)

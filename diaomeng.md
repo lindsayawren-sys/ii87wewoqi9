@@ -1,61 +1,56 @@
-# 天津证监局部署证券基金监管重点：拥抱人工智能 引导“长钱长投”
+# 广东公布第三批以县城为重要载体的新型城镇化建设试点
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网天津4月27日电 (记者 周亚强)天津证监局27日召开天津辖区2026年证券基金机构监管工作会议。记者从会上获悉，今年天津将深入推进一流投资银行和投资机构建设，引导中长期资金入市，全力巩固资本市场稳中向好势头。 人工智能成为会议高频词。会议指出，辖区证券基金机构要积极研究、前瞻布局人工智能、大数据等技术在证券基金领域的应用，借助金融科技手段提升服务能力、降低服务成本、创新
+中新网广州5月11日电 (记者 程景伟)广东全省深入实施“百县千镇万村高质量发展工程”促进城乡区域协调发展推进会11日在广州召开。会上宣读了广东第三批以县城为重要载体的新型城镇化建设试点、第一批以县城为重要载体的城镇化建设提质增效行动支持的县(市)、第一批镇村片区组团培育、第一批开展现代化建设的中心镇、第一批小城市试点培育等名单。广东第三批以县城为重要载体的新型城镇化建设试点名
 
 ## 正文
 
-中新网天津4月27日电 (记者 周亚强)天津证监局27日召开天津辖区2026年证券基金机构监管工作会议。
+中新网广州5月11日电 (记者 程景伟)广东全省深入实施“百县千镇万村高质量发展工程”促进城乡区域协调发展推进会11日在广州召开。
 
-记者从会上获悉，今年天津将深入推进一流投资银行和投资机构建设，引导中长期资金入市，全力巩固资本市场稳中向好势头。
+会上宣读了广东第三批以县城为重要载体的新型城镇化建设试点、第一批以县城为重要载体的城镇化建设提质增效行动支持的县(市)、第一批镇村片区组团培育、第一批开展现代化建设的中心镇、第一批小城市试点培育等名单。
 
-人工智能成为会议高频词。
+广东第三批以县城为重要载体的新型城镇化建设试点名单中，共有20个县(市)入选，覆盖9个地级市，包括汕头市南澳县、韶关市仁化县、河源市连平县、梅州市兴宁市、江门市恩平市、湛江市徐闻县、肇庆市广宁县、清远市连山壮族瑶族自治县、云浮市郁南县等。
 
-会议指出，辖区证券基金机构要积极研究、前瞻布局人工智能、大数据等技术在证券基金领域的应用，借助金融科技手段提升服务能力、降低服务成本、创新服务模式。
+加上首批15个和第二批22个试点，目前广东共有57个县(市)被确定为以县城为重要载体的新型城镇化建设试点。
 
-同时，要注意人工智能大模型的安全合规运用，防范“幻觉”“黑箱”等风险，加强风险提示和投资者教育。
+广东第一批开展现代化建设的中心镇名单中，全省共有100个镇入选，包括广州市白云区人和镇、珠海市金湾区红旗镇、佛山市禅城区南庄镇、汕尾市陆丰市碣石镇、东莞市凤岗镇、阳江市阳西县沙扒镇、潮州市潮安区彩塘镇等。
 
-在引导“长钱长投”方面，会议要求各机构带头践行长期投资、价值投资理念，提升投资稳健性和价值判断力。
+会上通报了2025年度广东省实施“百千万工程”考核结果；广东省有关负责人就《关于进一步优化县域发展格局 增强县镇村发展动能的实施方案》作解读说明；部分省直单位和市县结合年度考核及实地督查结果作交流发言、表态发言。
 
-天津证监局将加强与天津市有关部门沟通，研究中长期资金入市可落地举措，推动落实长周期考核机制，共同营造“长钱长投”的市场生态。
+东莞市委书记韦皓表示，2025年，东莞实现地区生产总值1.27万亿元，农村集体总资产突破3000亿元，村民股东年人均分红突破万元，城乡居民收入均衡度居全省前列。
 
-服务实体经济方面，2025年辖区机构服务企业利用资本市场融资3146亿元，承销科创债等创新品种债323亿元，同比增长六成。
+该市将高标准建设沿东江、潮玩文旅、水濂山三大片区，积极推进现代化中心镇建设和小城市试点培育。
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/irynu.md)
-- 2026-06-30 04:53 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 04:38 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-30 04:43 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-30 04:46 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
-- 2026-06-30 04:56 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-30 04:46 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 04:39 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-30 04:40 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
-- 2026-06-30 04:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
-- 2026-06-30 04:54 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-30 04:56 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 04:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 04:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 04:46 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
+- 2026-06-30 04:39 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 04:48 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/plklw.md)
+- 2026-06-30 04:38 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 05:01 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uucop.md)
+- 2026-06-30 05:00 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 04:40 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 04:40 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-30 04:59 - [德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
+- 2026-06-30 04:39 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 05:00 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/86969210811.shtml)
-- 2026-06-30 04:38 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/63590.shtml)
-- 2026-06-30 04:47 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/26059970876.shtml)
-- 2026-06-30 04:47 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/291116.shtml)
-- 2026-06-30 04:30 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/03214802445.shtml)
-- 2026-06-30 04:38 - [月亮](https://www.share.minike.top/Article/details/36621149843.shtml)
-- 2026-06-30 04:31 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/8879176.shtml)
-- 2026-06-30 04:48 - [王楚钦谈表演球](http://www.share.kurohicncr.top/Article/details/414701.shtml)
-- 2026-06-30 04:43 - [这一刀 会很帅](https://www.share.minike.top/Article/details/04284711206.shtml)
-- 2026-06-30 04:50 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/79715938.shtml)
-- 2026-06-30 04:59 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/212474792.shtml)
-- 2026-06-30 04:47 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/4606882.shtml)
-- 2026-06-30 04:52 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/58842495.shtml)
-- 2026-06-30 04:49 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/537012.shtml)
-- 2026-06-30 04:41 - [扫黑风暴](http://www.share.minike.top/Article/details/64226293267.shtml)
+- 2026-06-30 04:41 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/188725250.shtml)
+- 2026-06-30 04:53 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/8125101.shtml)
+- 2026-06-30 04:36 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/7427773.shtml)
+- 2026-06-30 04:51 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/789623.shtml)
+- 2026-06-30 04:48 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/25557177760.shtml)
+- 2026-06-30 04:43 - [建议不要突然完全停止喝咖啡](https://www.share.kurohicncr.top/Article/details/038838489.shtml)
+- 2026-06-30 04:36 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/636673.shtml)
+- 2026-06-30 04:55 - [天道](http://www.blog.minike.top/Article/details/128606213016.shtml)
+- 2026-06-30 04:36 - [考入南大计算机，复读考清北值吗？](http://www.share.minike.top/Article/details/1165783269.shtml)
+- 2026-06-30 04:58 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/18096784526.shtml)
+- 2026-06-30 05:04 - [贺峻霖拎着爱马仕回国了](http://www.share.minike.top/Article/details/006682376650.shtml)
+- 2026-06-30 04:45 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/0464281285.shtml)
+- 2026-06-30 04:47 - [范志毅看好日本队淘汰巴西](http://www.blog.kurohicncr.top/Article/details/16133.shtml)
+- 2026-06-30 04:55 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/7310906896.shtml)
+- 2026-06-30 04:40 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/0304445589.shtml)

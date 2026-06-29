@@ -1,56 +1,58 @@
-# 文远知行韩旭：L4自动驾驶已是“现在时”，不是将来时
+# 紫金银行业绩“失速”：净利骤降、息差垫底、资产质量走弱
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。文远知行创始人兼CEO韩旭出席并演讲。 韩旭直言到，“L4可能因为种种原因大家都没有看到，但其实它已经来了。”他建议北京市民周末去亦庄自动驾驶试验区，可以打到包括文远知行、百度、小马智行、滴滴在内的多家企业的L4级自动驾驶出租车。在广州，通过
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：证券之星 近日，紫金银行（601860.SH）披露2025年年报及2026年一季报显示，该行经营面临多重压力，业绩出现明显失速，净息差持续收窄且处于行业垫底水平，资产质量承压下不良率实现三连升，同时现金流与资本充足率指标呈现波动下滑态势。 证券之星注意到，尽管管理层已推出多项举措试图改善经营状况，20
 
 ## 正文
 
-专题：第二届自动驾驶产业发展论坛 4月25日，第二届自动驾驶产业发展论坛在北京召开，主题为“加速自动驾驶产业发展 凝聚自动驾驶安全共识”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-文远知行创始人兼CEO韩旭出席并演讲。
+来源：证券之星 近日，紫金银行（601860.SH）披露2025年年报及2026年一季报显示，该行经营面临多重压力，业绩出现明显失速，净息差持续收窄且处于行业垫底水平，资产质量承压下不良率实现三连升，同时现金流与资本充足率指标呈现波动下滑态势。
 
-韩旭直言到，“L4可能因为种种原因大家都没有看到，但其实它已经来了。
+证券之星注意到，尽管管理层已推出多项举措试图改善经营状况，2026年一季度出现边际企稳迹象，但在银行业资产荒与息差收窄的大背景下，区域性农商行的转型突围仍面临严峻挑战。
 
-”他建议北京市民周末去亦庄自动驾驶试验区，可以打到包括文远知行、百度、小马智行、滴滴在内的多家企业的L4级自动驾驶出租车。
+01． 业绩失速，息差持续收窄 根据紫金银行财报显示，2025年年度营业收入41.18亿元，同比下降7.72%；归母净利润为12.44亿元，同比下降23.35%；基本每股收益为0.34元/股，同比下降22.73%。
 
-在广州，通过“文远出行”App同样可以打到纯无人驾驶车辆——车内没有安全员。
+财报显示，该行净息差2025年降至1.13%，较2024年的1.42%大幅下降0.29个百分点，在10家A股上市农商行中排名垫底，也是唯一一家净息差低于1.20%的银行。
 
-他透露，文远知行不仅在广州和北京实现了纯无人运营，在阿联酋的阿布扎比和迪拜也已通过Uber平台提供Robotaxi服务，用户可在打车选项中直接选择“无人驾驶打车”。
+这一数值不仅远低于2025年商业银行1.42%的平均净息差水平，与农商行1.60%的行业均值更是存在显著差距。
 
-此外，韩旭介绍到，公司在瑞士获得了纯无人牌照，在斯洛伐克也有环卫车订单，在日本接到了千辆级别的无人驾驶小巴订单。
+进入2026年一季度，这一趋势仍未得到扭转，净息差进一步下探至1.08%，在A股上市银行中垫底。
 
-韩旭强调：“载人的无人驾驶已经实现了，这是现在时，不是将来时。
+净息差的持续收窄直接导致利息净收入大幅萎缩。
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/moikb.md)
-- 2026-06-30 04:58 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-30 04:39 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
-- 2026-06-30 04:36 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 04:33 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 04:43 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 04:52 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
-- 2026-06-30 04:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 04:52 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-30 04:35 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 04:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-30 05:01 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-30 04:39 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 05:03 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 04:37 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 04:39 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 05:05 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoxin.md)
+- 2026-06-30 04:38 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
+- 2026-06-30 04:52 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-30 04:42 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-30 04:55 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-30 04:42 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/36760144.shtml)
-- 2026-06-30 04:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/8002708640.shtml)
-- 2026-06-30 04:50 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/78561029.shtml)
-- 2026-06-30 04:45 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/934705.shtml)
-- 2026-06-30 04:58 - [吴艳妮回应夺冠](http://www.blog.kurohicncr.top/Article/details/277097.shtml)
-- 2026-06-30 04:53 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/5253314.shtml)
-- 2026-06-30 04:41 - [李在明向韩国两大财阀90度鞠躬](https://www.share.minike.top/Article/details/128180.shtml)
-- 2026-06-30 04:52 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/01384576.shtml)
-- 2026-06-30 04:51 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/860241.shtml)
-- 2026-06-30 04:43 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/6871956278.shtml)
-- 2026-06-30 04:48 - [点菜也要教吗](https://www.blog.kurohicncr.top/Article/details/360311.shtml)
-- 2026-06-30 04:40 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/151361.shtml)
-- 2026-06-30 04:30 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/75261168.shtml)
-- 2026-06-30 04:44 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/60127.shtml)
-- 2026-06-30 04:51 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/972690.shtml)
+- 2026-06-30 04:53 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/430786756.shtml)
+- 2026-06-30 04:38 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/0681784.shtml)
+- 2026-06-30 04:46 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.kurohicncr.top/Article/details/9628013169.shtml)
+- 2026-06-30 04:58 - [81岁老人被男子买光菜回家车祸去世](https://www.share.minike.top/Article/details/193956917107.shtml)
+- 2026-06-30 04:40 - [王欣瑜2-1击败科恰雷托](https://www.blog.minike.top/Article/details/474616.shtml)
+- 2026-06-30 04:43 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/2648926.shtml)
+- 2026-06-30 04:55 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/7082586.shtml)
+- 2026-06-30 04:58 - [世界杯](https://www.share.minike.top/Article/details/20002969.shtml)
+- 2026-06-30 05:02 - [牺牲民警倒下前还在保护群众](https://www.share.minike.top/Article/details/915663010.shtml)
+- 2026-06-30 04:36 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/426090742.shtml)
+- 2026-06-30 04:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/02743793.shtml)
+- 2026-06-30 04:46 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.kurohicncr.top/Article/details/60529321779.shtml)
+- 2026-06-30 04:52 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/27389782.shtml)
+- 2026-06-30 04:46 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/7941684742.shtml)
+- 2026-06-30 04:39 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.kurohicncr.top/Article/details/194913773.shtml)

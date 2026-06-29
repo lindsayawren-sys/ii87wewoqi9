@@ -1,59 +1,57 @@
-# （经济观察）“机器人+钢铁”：重塑中国钢铁产业生态
+# 24项改革措施，推动综合保税区扩能提质（政策解读）
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-中新网武汉4月25日电 (记者 阮煜琳)“钢铁工业作为国民经济的重要基础产业，生产场景工序链条长、作业环境复杂，是机器人与人工智能( AI)规模化落地、具身智能产业化应用的主战场。”工业和信息化部装备工业一司原一级巡视员苗长兴提出。“当前，机器人已全面覆盖铁前、炼钢、轧钢全生产链条，替代人工进入高温、高粉尘等高危岗位，既提升了生产安全，又稳定了作业精度。”苗长兴日前在武汉举行的
+24项改革措施，推动综合保税区扩能提质（政策解读） 本报记者 欧阳洁《人民日报》（2026年05月13日 第 02 版） 不久前，《关于促进综合保税区扩能提质的若干措施》出台，提出24项改革措施。2025年，全国综合保税区实现进出口值7.2万亿元，占同期全国外贸进出口的比重达16%，有力促进了我国开放型经济发展。如何进一步发挥综合保税区作用？怎样推动各项改革措施落地见效？记者近
 
 ## 正文
 
-中新网武汉4月25日电 (记者 阮煜琳)“钢铁工业作为国民经济的重要基础产业，生产场景工序链条长、作业环境复杂，是机器人与人工智能( AI)规模化落地、具身智能产业化应用的主战场。
+24项改革措施，推动综合保税区扩能提质（政策解读） 本报记者 欧阳洁《人民日报》（2026年05月13日 第 02 版） 不久前，《关于促进综合保税区扩能提质的若干措施》出台，提出24项改革措施。
 
-”工业和信息化部装备工业一司原一级巡视员苗长兴提出。
+2025年，全国综合保税区实现进出口值7.2万亿元，占同期全国外贸进出口的比重达16%，有力促进了我国开放型经济发展。
 
-“当前，机器人已全面覆盖铁前、炼钢、轧钢全生产链条，替代人工进入高温、高粉尘等高危岗位，既提升了生产安全，又稳定了作业精度。
+如何进一步发挥综合保税区作用？
 
-”苗长兴日前在武汉举行的第七届钢铁工业智能制造大会暨“机器人+钢铁”协同应用创新研讨会上说，钢铁专属大模型加快落地，具身智能算法融入产线，头部钢企实现多环节无人化作业。
+怎样推动各项改革措施落地见效？
 
-中国钢铁行业智能制造发展成就突出。
+记者近日进行了采访。
 
-机器人已成为钢铁数智化转型的核心载体，机器视觉、机器人实现规模化应用，机器人(含无人化装备)应用密度达到每万人65台。
+近期，一辆悬挂GMS（大湄公河次区域）专用标识的国际运输车辆，在海关监管下驶出深圳前海综合保税区，经广西口岸出境，直抵越南，标志着粤港澳大湾区首票GMS国际公路运输业务落地，一条连接大湾区与东南亚的跨境物流新线路启用。
 
-武汉钢铁有限公司总经理宋泽啟指出，当前，钢铁行业的智能化转型正从“单点探索”迈向“系统推进”，从“项目示范”走向“全面普及”。
+在新的监管模式下，货物自启运地装箱施封后，可直达目的地拆箱，途中无需换车装卸，实现跨境货运“一次委托、一单到底、一箱直达”。
 
-截至2024年年底，95%的重点统计钢铁企业已将数字化转型纳入总体发展战略，95%的企业已应用工业互联网平台，机器人应用密度达到65台(套)/万人。
+据深圳海关统计，今年前4个月，前海综合保税区进出口2015.4亿元，增长59.8%，居全国综合保税区首位。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 04:40 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 04:38 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
-- 2026-06-30 04:53 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 04:52 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 04:55 - [张帅晋级温网次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
-- 2026-06-30 04:57 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 04:49 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-30 04:45 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-30 04:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 04:50 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 04:48 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-30 04:54 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-30 04:43 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 04:37 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-30 04:55 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 04:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 04:44 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 04:51 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 04:41 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 04:59 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-30 05:03 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
+- 2026-06-30 04:51 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 04:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqcj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [巴西扳平比分](http://www.blog.minike.top/Article/details/5792224.shtml)
-- 2026-06-30 04:36 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.minike.top/Article/details/81116.shtml)
-- 2026-06-30 04:50 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/575350109.shtml)
-- 2026-06-30 04:38 - [真实感受到千香是积压剧了](http://www.share.minike.top/Article/details/2462206033.shtml)
-- 2026-06-30 04:52 - [上半年全国特种设备安全形势总体平稳](https://www.blog.minike.top/Article/details/92240552232.shtml)
-- 2026-06-30 04:47 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/5833738.shtml)
-- 2026-06-30 04:30 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/29514731.shtml)
-- 2026-06-30 04:52 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/72040690.shtml)
-- 2026-06-30 04:47 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/575786605181.shtml)
-- 2026-06-30 04:30 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/35652156718.shtml)
-- 2026-06-30 04:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/884437856199.shtml)
-- 2026-06-30 04:37 - [巴西VS日本前瞻](http://www.share.minike.top/Article/details/67982435270.shtml)
-- 2026-06-30 04:54 - [法国部长说装空调没用](http://www.share.minike.top/Article/details/4066173.shtml)
-- 2026-06-30 04:37 - [高考填志愿父亲和女儿产生分歧](http://www.blog.minike.top/Article/details/4085233.shtml)
-- 2026-06-30 04:53 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/4369301.shtml)
+- 2026-06-30 04:54 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/478015.shtml)
+- 2026-06-30 04:46 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/51266082832.shtml)
+- 2026-06-30 04:56 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.blog.minike.top/Article/details/2949916615.shtml)
+- 2026-06-30 04:39 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/9170241941.shtml)
+- 2026-06-30 04:40 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/838930609777.shtml)
+- 2026-06-30 04:50 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/40707.shtml)
+- 2026-06-30 04:52 - [考入南大计算机，复读考清北值吗？](https://www.share.kurohicncr.top/Article/details/5687974.shtml)
+- 2026-06-30 04:39 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.minike.top/Article/details/832037.shtml)
+- 2026-06-30 04:41 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/489507924.shtml)
+- 2026-06-30 04:46 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/682479223358.shtml)
+- 2026-06-30 04:41 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/99198.shtml)
+- 2026-06-30 04:40 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/41109.shtml)
+- 2026-06-30 05:03 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/9556202.shtml)
+- 2026-06-30 04:47 - [又一家县级医院关停门诊输液大厅](https://www.share.kurohicncr.top/Article/details/3133802.shtml)
+- 2026-06-30 04:54 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/8764107.shtml)

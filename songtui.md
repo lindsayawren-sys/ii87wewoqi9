@@ -1,56 +1,57 @@
-# 宇树科技赢了！最高法院认定其遭恶意诉讼
+# 违规跨省经营，还欺骗投保人！复星联合健康保险四川分公司被罚
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-4月27日，界面新闻从中国最高人民法院官网获悉，近日，高院就杭州露韦美日化有限公司（下称“露韦美公司”）起诉明星科技企业宇树科技相关专利侵权案件，作出判决：认定露韦美公司针对宇树公司旗下“A2机器狗”和“Go2机器狗”提起的系列专利侵权诉讼构成恶意诉讼，需向宇树公司赔偿合理开支8万元，同时承担案件受理费用共计3700元。 界面新闻从最高人民法院新闻局在官方微信号公布的信息了解到
+因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告并罚款。来源｜读创财经编辑｜薛婷阳 责编｜李耿光5月11日，国家金融监督管理总局四川监管局披露的行政处罚信息公开表显示，因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告，并合计罚款41万元。具体来看，复星
 
 ## 正文
 
-4月27日，界面新闻从中国最高人民法院官网获悉，近日，高院就杭州露韦美日化有限公司（下称“露韦美公司”）起诉明星科技企业宇树科技相关专利侵权案件，作出判决：认定露韦美公司针对宇树公司旗下“A2机器狗”和“Go2机器狗”提起的系列专利侵权诉讼构成恶意诉讼，需向宇树公司赔偿合理开支8万元，同时承担案件受理费用共计3700元。
+因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告并罚款。
 
-界面新闻从最高人民法院新闻局在官方微信号公布的信息了解到，此前，该案于4月14日进行了公开开庭审理。
+来源｜读创财经编辑｜薛婷阳 责编｜李耿光5月11日，国家金融监督管理总局四川监管局披露的行政处罚信息公开表显示，因存在“违规跨省经营”“欺骗投保人”等四项违法违规行为，复星联合健康保险股份有限公司四川分公司及相关责任人被警告，并合计罚款41万元。
 
-4月20日，最高法知识产权法庭副庭长郃中林也在发布会上回应了该案相关情况：涉宇某科技公司机器狗的专利案件，除了最高法今年年初二审维持认定宇某科技公司不构成专利侵权并对原告涉案不诚信诉讼行为予以谴责的案件外；近期，最高法知识产权法庭还受理了同一专利权人就同一专利起诉宇某科技公司另一款机器狗产品专利侵权和宇某科技公司反诉专利权人恶意诉讼的上诉案件，将争取尽快作出判决。
+具体来看，复星联合健康保险股份有限公司四川分公司存在以下违法违规：违规跨省经营保险业务；欺骗投保人；财务业务数据不真实；未按规定对双录视频资料进行管理。
 
-据《财经》报道，最高法院在审判过程中，统筹考虑了露韦美公司一系列相关诉讼行为，经过综合判断，最终认定露韦美公司先后针对宇树旗下“A2机器狗”和“Go2机器狗”提起的两件专利侵权诉讼构成恶意诉讼。
+国家金融监督管理总局四川监管局对复星联合健康保险股份有限公司四川分公司警告并罚款29万元；对张元超、尹冬、靳川磊、谭琳、王欣警告并罚款总计12万元。
 
-该案二审的审判长邓卓指出，本案重点考虑的因素包括：第一，权利人（露韦美公司）所提诉讼是否明显缺乏权利基础或事实根据；第二，权利人是否对此明知，存在主观过错；第三，是否造成他人损害；第四，诉讼与损害结果之间是否存在因果关系；尤其是，对于权利人依据同一专利针对被诉侵权人的多个型号类似产品提起多个专利侵权诉讼的，应当综合考虑权利人在各个诉讼中的具体行为。
+官网显示，复星联合健康保险股份有限公司（简称“复星联合健康保险”）成立于2017年1月，主要股东是上海复星产业投资有限公司、上海复星医药（集团）股份有限公司、国际金融公司（IFC）、亚洲开发银行（ADB）、广东宜华房地产开发有限公司、广州南沙科金控股集团有限公司、宁波西子资产管理有限公司、重庆东银控股集团有限公司、上海丰实资产管理有限公司和迪安诊断技术集团股份有限公司。
 
-据悉，宇树公司主张的8万元赔偿实际仅为应对“A2机器狗”侵权诉讼及反诉案件一审的律师代理费用，包含对“一种电子狗”专利权提起无效宣告请求的费用，但不包含本案二审律师代理费用。
+公司注册地广东省广州市，以健康发展、特色经营、创新驱动、体验至上为宗旨，专业提供健康保障及健康管理服务。
 
-2026年年初，最高人民法院在涉宇树科技机器狗案件二审判决书中，对明显有违诚信诉讼行为进行了严肃谴责，引起广泛关注。
+读创财经注意到，复星联合健康保险此次被罚并非孤例。
 
-2月，据央视新闻报道，针对露韦美公司起诉宇树科技专利侵权一案，最高法院作出终审判决，不仅驳回了原告的上诉，维持了宇树科技不构成侵权的判决，更在判决书中直接点名批评原告的行为“可谓既精心算计、又反复无常”。
+2024年7月12日，国家金融监督管理总局曾对复星联合健康保险开出一张 “百万级”罚单。
 
 ## 相关推荐
 
-- 2026-06-30 04:53 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 04:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-30 04:38 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vbkvk.md)
-- 2026-06-30 04:38 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
-- 2026-06-30 04:30 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 04:32 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 04:47 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 04:36 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
-- 2026-06-30 04:34 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
-- 2026-06-30 04:56 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 04:41 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-30 05:05 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caohong.md)
+- 2026-06-30 04:46 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-30 05:05 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 04:41 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 04:37 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-30 05:00 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 04:59 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 04:37 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
+- 2026-06-30 05:05 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-30 04:41 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [斛珠夫人](http://www.share.minike.top/Article/details/8378170319.shtml)
-- 2026-06-30 04:31 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/17123.shtml)
-- 2026-06-30 04:32 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/15463404.shtml)
-- 2026-06-30 04:41 - [【大鸣王潮1566】真拿你没办法](http://www.blog.minike.top/Article/details/11914.shtml)
-- 2026-06-30 04:36 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/5490635.shtml)
-- 2026-06-30 04:33 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/11540.shtml)
-- 2026-06-30 04:35 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/876099426816.shtml)
-- 2026-06-30 04:53 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/29486.shtml)
-- 2026-06-30 04:41 - [荷兰vs摩洛哥前瞻](http://www.share.minike.top/Article/details/9699252077.shtml)
-- 2026-06-30 04:41 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/13623142.shtml)
-- 2026-06-30 04:33 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/29644829690.shtml)
-- 2026-06-30 04:31 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/65592.shtml)
-- 2026-06-30 04:41 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/314795010205.shtml)
-- 2026-06-30 04:44 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/963429622130.shtml)
-- 2026-06-30 04:50 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/7115667316.shtml)
+- 2026-06-30 04:41 - [日本16强魔咒](http://www.blog.kurohicncr.top/Article/details/0404898.shtml)
+- 2026-06-30 05:05 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/94034278.shtml)
+- 2026-06-30 04:36 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/000548717823.shtml)
+- 2026-06-30 04:46 - [乔家的儿女](https://www.blog.kurohicncr.top/Article/details/045410136.shtml)
+- 2026-06-30 04:42 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/02553396463.shtml)
+- 2026-06-30 04:37 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/143191.shtml)
+- 2026-06-30 04:46 - [中国猪圈装空调让欧洲网友破防](http://www.share.minike.top/Article/details/962604637.shtml)
+- 2026-06-30 05:04 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/30950614.shtml)
+- 2026-06-30 04:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/618136227.shtml)
+- 2026-06-30 04:42 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/989783.shtml)
+- 2026-06-30 05:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/5798188133.shtml)
+- 2026-06-30 05:05 - [德约科维奇向温网对手放狠话](http://www.blog.minike.top/Article/details/365938798.shtml)
+- 2026-06-30 05:01 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/831056311.shtml)
+- 2026-06-30 04:36 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/71414.shtml)
+- 2026-06-30 04:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/744150342.shtml)

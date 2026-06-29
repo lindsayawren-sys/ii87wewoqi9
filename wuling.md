@@ -1,61 +1,57 @@
-# 我国拟修订农业法 增加建立粮食安全监测预警制度等内容
+# 加州海上天然气平台退役作业期间发生火灾
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业
+周一，美国海岸警卫队及其合作伙伴对加利福尼亚州圣巴巴拉附近海域一座已停运的天然气平台上的火灾进行了应急响应。 早上6点30分，当平台人员正在对Habitat平台进行退役作业时，该平台发生火灾。 Habitat平台是一座非产油平台，位于圣巴巴拉西南约8英里处。 应急响应人员和平台人员报告称，火势于上午11点40分被扑灭。 目前没有迹象表明平台有石油泄漏入海，也未对野生动物或公众造
 
 ## 正文
 
-中新网北京4月27日电(记者 郭超凯 黄钰钦)农业法修订草案27日提请十四届全国人大常委会首次审议。
+周一，美国海岸警卫队及其合作伙伴对加利福尼亚州圣巴巴拉附近海域一座已停运的天然气平台上的火灾进行了应急响应。
 
-为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
+早上6点30分，当平台人员正在对Habitat平台进行退役作业时，该平台发生火灾。
 
-全国人大农业与农村委员会主任委员杜家毫27日受委托对草案作说明。
+Habitat平台是一座非产油平台，位于圣巴巴拉西南约8英里处。
 
-杜家毫表示，此次修订旨在进一步巩固和加强农业在国民经济中的基础地位，坚持大农业观、大食物观，推动农业高质量发展，推进乡村全面振兴，加快建设农业强国，为实现农业农村现代化提供有力法治保障。
+应急响应人员和平台人员报告称，火势于上午11点40分被扑灭。
 
-为保障粮食安全和重要农产品供给，草案明确国家粮食安全战略，健全粮食主产区利益补偿机制和粮食生产者收益保障机制，增加建立粮食安全监测预警制度、建立政府粮食储备体系、完善粮食应急管理体制等内容。
+目前没有迹象表明平台有石油泄漏入海，也未对野生动物或公众造成影响。
 
-草案明确落实大食物观，构建多元化食物供给体系，将“林业”修改为“林草业”，增加发展粮食和棉、油、糖、蔬菜等农产品及饲草饲料生产，发展经济林和林下经济、保障畜禽养殖用地、发展草原畜牧业、发展食物产业等内容。
+参与响应的机构包括： 美国海岸警卫队西南区、洛杉矶-长滩分遣队、海峡群岛站；文图拉县消防局、文图拉市消防局、圣巴巴拉县消防局、圣巴巴拉市消防局；安全与环境执法局；海上溢油应急公司。
 
-草案还规定强化农业气象综合监测、农业防灾减灾、动植物疫情监测预警等措施。
-
-加强耕地保护和质量提升，加强高标准农田建设，保护黑土地，治理和利用盐碱地。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-30 04:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 04:42 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-30 04:37 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-30 04:47 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxvto.md)
-- 2026-06-30 04:46 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 04:30 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-30 04:52 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-30 04:34 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 04:43 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kangteng.md)
-- 2026-06-30 04:39 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 04:31 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 04:31 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 04:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-30 04:32 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 04:45 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-30 04:44 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-30 04:59 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
+- 2026-06-30 04:55 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 04:58 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-30 04:37 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-30 04:49 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 04:37 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-30 04:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
+- 2026-06-30 04:50 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-30 04:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-30 04:42 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-30 04:58 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 04:49 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/9409033064.shtml)
-- 2026-06-30 04:49 - [这一刀 会很帅](https://www.share.minike.top/Article/details/001056392.shtml)
-- 2026-06-30 04:39 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/622827.shtml)
-- 2026-06-30 04:45 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/32237863354.shtml)
-- 2026-06-30 04:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.kurohicncr.top/Article/details/9833623.shtml)
-- 2026-06-30 04:31 - [巴西把自己踢晕了](http://www.share.kurohicncr.top/Article/details/293467161727.shtml)
-- 2026-06-30 04:50 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/47964962870.shtml)
-- 2026-06-30 04:56 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/27499.shtml)
-- 2026-06-30 04:31 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/59379072.shtml)
-- 2026-06-30 04:46 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/53247.shtml)
-- 2026-06-30 04:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/242055440056.shtml)
-- 2026-06-30 04:50 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/197843112.shtml)
-- 2026-06-30 04:35 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/04500.shtml)
-- 2026-06-30 04:42 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/4346384.shtml)
-- 2026-06-30 04:38 - [存储三巨头遭遇集体诉讼](http://www.blog.kurohicncr.top/Article/details/05883777982.shtml)
+- 2026-06-30 04:41 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/17697.shtml)
+- 2026-06-30 05:03 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/3548628.shtml)
+- 2026-06-30 04:59 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/3861333.shtml)
+- 2026-06-30 04:40 - [千与千寻](http://www.share.kurohicncr.top/Article/details/20220859.shtml)
+- 2026-06-30 04:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/351876.shtml)
+- 2026-06-30 04:47 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/938021.shtml)
+- 2026-06-30 05:02 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/108541199.shtml)
+- 2026-06-30 04:58 - [补时绝杀 巴西2-1淘汰日本](http://www.share.kurohicncr.top/Article/details/364633144465.shtml)
+- 2026-06-30 05:04 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/17024280.shtml)
+- 2026-06-30 05:01 - [沙丘](https://www.share.kurohicncr.top/Article/details/5602761357.shtml)
+- 2026-06-30 04:41 - [审核了不止十年的低创鬼畜](https://www.blog.minike.top/Article/details/428738.shtml)
+- 2026-06-30 04:42 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/730462.shtml)
+- 2026-06-30 04:49 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/09774.shtml)
+- 2026-06-30 04:45 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/383833627106.shtml)
+- 2026-06-30 04:47 - [本西奇成本届温网女单首位晋级球员](https://www.blog.kurohicncr.top/Article/details/20300196025.shtml)

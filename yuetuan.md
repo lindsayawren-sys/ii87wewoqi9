@@ -1,56 +1,51 @@
-# 严查“心机商标” 官方亮明态度
+# 手回集团建议采纳2026年限制性股份单位计划及授出合共66.84万份限制性股份单位
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网北京4月25日电(记者 左雨晴) 针对广受社会关注的“心机商标”问题，中国新闻网《民生调查局》近期推出《别被牙膏的“3D炫白”“医研”骗了，那只是商标》《光明“新鲜牧场”擦边鲜牛奶，有消费者称被误导》《陈克明、金沙河、白象“手擀”挂面，手擀是商标》《没了“手打”，今麦郎还有“1桶半”“1袋半”“1.5倍”》等系列报道。4月23日，在国新办举行的发布会上，国家知识产权局副局
+手回集团（02621）发布公告，为进一步加强薪酬委员会的独立性及提升公司的企业管治常规，董事会决议于有条件授出前对薪酬委员会的组成作出以下变更，自相关决议案于2026年5月11日获通过后即时生效：执行董事李鉴庭先生获委任为薪酬委员会成员，而光耀先生将不再担任薪酬委员会成员。 于2026年5月11日，董事会决议建议，待股东批准后，采纳一项限制性股份单位计划（2026年限制性股份单
 
 ## 正文
 
-中新网北京4月25日电(记者 左雨晴) 针对广受社会关注的“心机商标”问题，中国新闻网《民生调查局》近期推出《别被牙膏的“3D炫白”“医研”骗了，那只是商标》《光明“新鲜牧场”擦边鲜牛奶，有消费者称被误导》《陈克明、金沙河、白象“手擀”挂面，手擀是商标》《没了“手打”，今麦郎还有“1桶半”“1袋半”“1.5倍”》等系列报道。
+手回集团（02621）发布公告，为进一步加强薪酬委员会的独立性及提升公司的企业管治常规，董事会决议于有条件授出前对薪酬委员会的组成作出以下变更，自相关决议案于2026年5月11日获通过后即时生效：执行董事李鉴庭先生获委任为薪酬委员会成员，而光耀先生将不再担任薪酬委员会成员。
 
-4月23日，在国新办举行的发布会上，国家知识产权局副局长芮文彪回答媒体相关提问时指出，近一段时间，“心机商标”引起了不少消费者的关注，国家知识产权局对此高度重视，在积极推进系统治理。
+于2026年5月11日，董事会决议建议，待股东批准后，采纳一项限制性股份单位计划（2026年限制性股份单位计划）。
 
-他说，对“心机商标”，“我们的态度非常明确，那就是：商标是用来识别商品和服务来源的，不能当作广告进行虚假宣传，误导消费者”。
+2026年限制性股份单位计划将透过以下方式提供资金：（i）公司转让予受托人的库存股份，（ii）受托人根据董事会的指示从二级市场购买的现有股份及╱或（iii）公司配发及发行的新股份，因此将构成上市规则第17章项下由新股份出资的股份计划。
 
-“心机商标”为何频频出现？
+于2026年5月11日，待股东于股东周年大会上批准采纳2026年限制性股份单位计划后，董事会决议有条件地向94名合资格参与者授出合共66.84万份限制性股份单位，其中包括（i）向两名执行董事授出2.8万份限制性股份单位；（ii）向公司一名高级管理人员授出17.05万份限制性股份单位（须待承授人接纳后方可作实），约占于本公告日期已发行股份总数（不包括库存股份）的0.30%。
 
-北京恒都律师事务所合伙人高广童律师向记者表示，此类易引发消费者误解的商标之所以大量出现，并非源于商标注册放得太宽，而是部分企业在商标获准注册之后，通过包装设计和宣传策略刻意放大相关词汇的描述性含义，最终触发公众质疑。
-
-高广童指出，商标注册审查以形式合规审查与法定要件的规范适用为核心，无法在注册阶段穷尽所有真实的市场交易与使用场景。
-
-部分词汇在商标申请阶段看似仅为独立的品牌标识元素，但一旦进入商品包装、宣传推广的实际使用语境，就极易被消费者解读为对商品功能、配方、产地、规格或数量的描述性信息。
-
-其次，商标审查结论具有鲜明的时间性与个案性。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-30 04:49 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
-- 2026-06-30 04:55 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 04:42 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-30 04:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
-- 2026-06-30 04:48 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-30 04:45 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-30 04:53 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 04:53 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 04:52 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-30 04:51 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 04:54 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
+- 2026-06-30 05:02 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 04:51 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tlrju.md)
+- 2026-06-30 04:57 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 04:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
+- 2026-06-30 04:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 04:59 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 04:57 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 04:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-30 04:40 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [不开心就去看三年前的购物订单](https://www.blog.kurohicncr.top/Article/details/986002721.shtml)
-- 2026-06-30 04:40 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/513152508671.shtml)
-- 2026-06-30 04:30 - [张帅晋级温网次轮](http://www.blog.minike.top/Article/details/5470770237.shtml)
-- 2026-06-30 04:47 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/4720741.shtml)
-- 2026-06-30 04:37 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/0846967.shtml)
-- 2026-06-30 04:39 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/871004211556.shtml)
-- 2026-06-30 04:37 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/6625787.shtml)
-- 2026-06-30 04:37 - [我和我的家乡](http://www.share.minike.top/Article/details/5218226279.shtml)
-- 2026-06-30 04:31 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/623012080864.shtml)
-- 2026-06-30 04:43 - [杨紫获白玉兰视后争议不止](http://www.share.minike.top/Article/details/35685821303.shtml)
-- 2026-06-30 04:39 - [明星大侦探第四季](https://www.share.minike.top/Article/details/5485535666.shtml)
-- 2026-06-30 04:37 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/7986075363.shtml)
-- 2026-06-30 04:36 - [内马尔替补](http://www.blog.minike.top/Article/details/57480110069.shtml)
-- 2026-06-30 04:34 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/934313.shtml)
-- 2026-06-30 04:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/490839036702.shtml)
+- 2026-06-30 04:58 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.minike.top/Article/details/55229.shtml)
+- 2026-06-30 04:54 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/396403541980.shtml)
+- 2026-06-30 04:58 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/9687352.shtml)
+- 2026-06-30 04:49 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/81120997186.shtml)
+- 2026-06-30 04:39 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/205504.shtml)
+- 2026-06-30 04:37 - [斗破苍穹](https://www.share.minike.top/Article/details/5848068108.shtml)
+- 2026-06-30 04:44 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/30029.shtml)
+- 2026-06-30 04:39 - [为什么会有「念旧」的心理？](https://www.share.minike.top/Article/details/46796497.shtml)
+- 2026-06-30 04:52 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/6424451257.shtml)
+- 2026-06-30 04:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.blog.kurohicncr.top/Article/details/761541546.shtml)
+- 2026-06-30 04:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/56728.shtml)
+- 2026-06-30 04:59 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/3443578177.shtml)
+- 2026-06-30 04:36 - [浙江队将获百万元世界杯补偿](https://www.blog.minike.top/Article/details/69183834.shtml)
+- 2026-06-30 04:54 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/09927228062.shtml)
+- 2026-06-30 05:00 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/512168.shtml)

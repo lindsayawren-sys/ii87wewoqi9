@@ -1,58 +1,56 @@
-# 近一年业绩翻倍！富国基金曹晋详解科技股投资：AI仍是大方向，还看好这些
+# 宗馥莉被曝罢免销售负责人，直管营销
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-（来源：投资作业本Pro） 在近期富国基金四季度论坛上，基金经理曹晋阐述了他的投资理念，并重点拆解了科技股的投资方法。 投资作业本课代表整理了要点如下： 1、对于国内市场，我们必须认识到自身所处的市场环境。做投资一定要对脚下的市场有充分的认知。 市场非常偏好时代贝塔的叙事，非常偏好成长股投资，非常偏好净利润高增长公司的表现，这不仅仅是中国，美国同样如此。 2、我从2023年开始
+据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。 据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。宏胜饮料集团的总裁即为宗馥莉。 同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
 
 ## 正文
 
-（来源：投资作业本Pro） 在近期富国基金四季度论坛上，基金经理曹晋阐述了他的投资理念，并重点拆解了科技股的投资方法。
+据界面新闻，娃哈哈和宏胜饮料在去年经历一系列人事波动后，今年再次迎来核心部门人员的变动。
 
-投资作业本课代表整理了要点如下： 1、对于国内市场，我们必须认识到自身所处的市场环境。
+据报道，5月11日，宏胜饮料集团发布一份组织架构调整及人员任免通知。
 
-做投资一定要对脚下的市场有充分的认知。
+其中一个重点是：将营销中心划归总裁统筹直管；营销中心总监兼销售公司总经理吴汀燕被免职。
 
-市场非常偏好时代贝塔的叙事，非常偏好成长股投资，非常偏好净利润高增长公司的表现，这不仅仅是中国，美国同样如此。
+宏胜饮料集团的总裁即为宗馥莉。
 
-2、我从2023年开始就一直持有光模块及相关标的。
+同时，对销售公司内设科室整合重组，组成两大科室：商超特通管理科和渠道管理科，新科室承接原有全部业务职能。
 
-核心是要抓住行业的供需错配，哪怕这种供需错配是周期性的，带来的超额收益也非常惊人。
+简单说，宏胜饮料集团和娃哈哈品牌的“营销中心”更像是管理和运营体系，“销售公司”则是具体承接经销商、渠道和回款的实体公司，两者是前后台的关系。
 
-3、第三个我非常看好的未来方向是3D打印（前两个看好方向是宠物食品和AI）。
+此外，宏胜饮料还宣布了这些科室的相关负责人及相关人士变动。
 
-2024年就在季报和年报中不断披露持仓结构和重仓标的。
+其中大部分人员都是升职，而只有吴汀燕和吴潘潘（原计划中心生产管理科科长）被免职。
 
 ## 相关推荐
 
-- 2026-06-30 04:30 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
-- 2026-06-30 04:34 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 04:38 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 04:56 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-30 04:36 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-30 04:53 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 04:53 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 04:32 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-30 04:57 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-30 04:34 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 04:53 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
-- 2026-06-30 04:48 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-30 04:36 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
+- 2026-06-30 04:41 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 04:50 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
+- 2026-06-30 04:46 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-30 04:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 05:02 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
+- 2026-06-30 05:02 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
+- 2026-06-30 04:48 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-30 04:57 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-30 04:44 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:51 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.kurohicncr.top/Article/details/97888133.shtml)
-- 2026-06-30 04:33 - [扬名立万](http://www.share.minike.top/Article/details/17911009.shtml)
-- 2026-06-30 04:54 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/107171992.shtml)
-- 2026-06-30 04:42 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/93379480301.shtml)
-- 2026-06-30 04:47 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/1251654224.shtml)
-- 2026-06-30 04:46 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/404350378999.shtml)
-- 2026-06-30 04:31 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.minike.top/Article/details/1287413542.shtml)
-- 2026-06-30 04:53 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/813262547524.shtml)
-- 2026-06-30 04:47 - [欧洲空调安装费用为何如此高昂](http://www.share.minike.top/Article/details/88761.shtml)
-- 2026-06-30 04:35 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/005033097831.shtml)
-- 2026-06-30 04:57 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/559728126740.shtml)
-- 2026-06-30 04:51 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/036514342.shtml)
-- 2026-06-30 04:53 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/99442.shtml)
-- 2026-06-30 04:52 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/993922.shtml)
-- 2026-06-30 04:42 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/6666678.shtml)
+- 2026-06-30 04:42 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/2719034484.shtml)
+- 2026-06-30 04:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/3302279.shtml)
+- 2026-06-30 05:02 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/22514.shtml)
+- 2026-06-30 04:53 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/27207.shtml)
+- 2026-06-30 04:40 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/1187882497.shtml)
+- 2026-06-30 04:55 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/814499.shtml)
+- 2026-06-30 05:02 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/108616.shtml)
+- 2026-06-30 04:55 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/259924398408.shtml)
+- 2026-06-30 04:41 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/98231575.shtml)
+- 2026-06-30 04:58 - [日本进球](http://www.blog.minike.top/Article/details/39120230.shtml)
+- 2026-06-30 04:58 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/5939448609.shtml)
+- 2026-06-30 04:42 - [恋与深空回应争议](https://www.blog.kurohicncr.top/Article/details/715832083.shtml)
+- 2026-06-30 04:51 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.kurohicncr.top/Article/details/30678084.shtml)
+- 2026-06-30 04:53 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/99145971573.shtml)
+- 2026-06-30 05:02 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/7164367098.shtml)

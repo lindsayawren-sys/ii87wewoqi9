@@ -1,58 +1,61 @@
-# （经济观察）中国推动算力普惠 解中小企业“算力之渴”
+# 煤焦供需逐渐恢复 双焦期价冲高回落
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新社北京4月26日电 (记者 刘亮)中国工业和信息化部近日印发通知，组织开展普惠算力赋能中小企业发展专项行动。受访专家称，此举将进一步降低中小企业使用算力的成本，更好支撑企业数字化转型和智能化发展。算力即对数据的处理能力，包括信息计算力、网络运载力、数据存储力。中国信息通信研究院云计算与数字化研究所总工程师郭亮近日接受中新社记者专访时说，“算力正成为数字经济时代中小企业数字化
+（来源：市场资讯） 研报正文 【期现行情】 上周焦煤 2609 合约周五收于 1286，周跌幅 0.08%，现货市场主流地区报价震荡运行。 上周焦炭 2609 合约周五收于 1828，周跌幅 0.71%，现货市场主流地区报价暂稳运行。 【基本面分析】 焦煤： 供应端：上周全国 523 家炼焦煤矿山核定产能利用率92.4%，环比上升1.1%；精煤日均产量 79.2 万吨，环比减少
 
 ## 正文
 
-中新社北京4月26日电 (记者 刘亮)中国工业和信息化部近日印发通知，组织开展普惠算力赋能中小企业发展专项行动。
+（来源：市场资讯） 研报正文 【期现行情】 上周焦煤 2609 合约周五收于 1286，周跌幅 0.08%，现货市场主流地区报价震荡运行。
 
-受访专家称，此举将进一步降低中小企业使用算力的成本，更好支撑企业数字化转型和智能化发展。
+上周焦炭 2609 合约周五收于 1828，周跌幅 0.71%，现货市场主流地区报价暂稳运行。
 
-算力即对数据的处理能力，包括信息计算力、网络运载力、数据存储力。
+【基本面分析】 焦煤： 供应端：上周全国 523 家炼焦煤矿山核定产能利用率92.4%，环比上升1.1%；精煤日均产量 79.2 万吨，环比减少 0.3 万吨。
 
-中国信息通信研究院云计算与数字化研究所总工程师郭亮近日接受中新社记者专访时说，“算力正成为数字经济时代中小企业数字化转型的重要引擎，决定企业的创新能力与市场竞争力。
+全国314 家独立洗煤厂产能利用率38.4%，环比持平；精煤日均产量 28.2 万吨，环比持平。
 
-” 然而，大部分中小企业在获取算力时面临着获取难、用不起、不会用的“三难”问题。
+五一过后，主产地煤矿因安全检查趋紧而停限产的逐渐恢复正常生产，目前产地多数煤矿生产比较稳定，炼焦煤供应稳中有升。
 
-郭亮指出，高性能算力资源稀缺，中小企业难以稳定获取适配AI(人工智能)研发、智能制造等场景的算力；随着AI应用快速发展，算力调用成本攀升；缺乏专业技术团队，难以将算力有效转化为生产力。
+上周，焦企补库节奏放缓，以维持当前库存为主，煤矿出货放缓，煤矿库存小幅累积。
 
-此次专项行动提出探索“算力银行”“算力超市”等创新业务，加强对中小企业算力应用的公共服务力度。
+需求端：焦煤价格震荡偏弱，焦企吨焦利润延续小幅回升，继续对焦企生产积极性有所提升，加上五一假期结束，焦钢企业开工逐步恢复对焦煤刚性需求增加，但焦炭第三轮提涨博弈继续进行，焦企对高价煤种采购偏谨慎按需补库，加上钢厂复产放缓，焦企对焦煤采购仍以刚需及性价比较高的煤种为主。
 
-郭亮介绍，“算力银行”就像一个可存储和支取算力的存钱罐，以往企业买了算力设备，业务低谷期存在大量算力闲置浪费，而“算力银行”模式允许中小企业将闲置算力资源“存”入平台，当算力不足时又可通过平台“取”出使用，平台通过跨区域、跨周期智能调度统一调配算力资源，大幅提升整体算力利用率。
+从焦煤线上竞拍来看，上周部分煤种成交价格小幅回落。
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 04:30 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-30 04:31 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 04:52 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
-- 2026-06-30 04:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 04:30 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-30 04:50 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 04:38 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciwen.md)
-- 2026-06-30 04:31 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 04:33 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 04:48 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
-- 2026-06-30 04:47 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
+- 2026-06-30 05:01 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 04:41 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 04:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 04:40 - [王欣瑜：今年经历了一些起伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-30 04:47 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 05:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 04:58 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
+- 2026-06-30 04:51 - [恋与深空将调整引狼入室文本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 04:38 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 04:49 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qeuvm.md)
+- 2026-06-30 04:44 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-30 05:04 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-30 04:48 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 05:03 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-30 05:01 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/03314.shtml)
-- 2026-06-30 04:49 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/6723626307.shtml)
-- 2026-06-30 04:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.minike.top/Article/details/8731253.shtml)
-- 2026-06-30 04:51 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/71021.shtml)
-- 2026-06-30 04:34 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/31722648.shtml)
-- 2026-06-30 04:54 - [大学生遇地震裹被子从5楼冲下](https://www.share.minike.top/Article/details/7105398.shtml)
-- 2026-06-30 04:54 - [极限挑战第一季](http://www.share.minike.top/Article/details/052163564.shtml)
-- 2026-06-30 04:52 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/377250740.shtml)
-- 2026-06-30 04:42 - [房价什么时候能涨](https://www.share.kurohicncr.top/Article/details/468612338.shtml)
-- 2026-06-30 04:54 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/7871091207.shtml)
-- 2026-06-30 04:54 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/188397509800.shtml)
-- 2026-06-30 04:38 - [电影后室值得看吗](https://www.share.kurohicncr.top/Article/details/765184.shtml)
-- 2026-06-30 04:40 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/361442806378.shtml)
-- 2026-06-30 04:57 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/159010658.shtml)
-- 2026-06-30 04:45 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/5495912.shtml)
+- 2026-06-30 05:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/16573039.shtml)
+- 2026-06-30 04:40 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/990927868468.shtml)
+- 2026-06-30 04:57 - [一直以为方便面汤是要倒掉的](http://www.share.kurohicncr.top/Article/details/62556833.shtml)
+- 2026-06-30 04:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/653413.shtml)
+- 2026-06-30 04:58 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/34272588.shtml)
+- 2026-06-30 04:59 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/9726041574.shtml)
+- 2026-06-30 04:41 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/941111724.shtml)
+- 2026-06-30 04:59 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/279274790443.shtml)
+- 2026-06-30 04:59 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/24467513625.shtml)
+- 2026-06-30 04:53 - [苗族银饰](https://www.share.minike.top/Article/details/505755759082.shtml)
+- 2026-06-30 04:52 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/831826831.shtml)
+- 2026-06-30 04:51 - [牺牲民警倒下前还在保护群众](http://www.blog.minike.top/Article/details/419341.shtml)
+- 2026-06-30 05:05 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/60470709589.shtml)
+- 2026-06-30 04:58 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/098730.shtml)
+- 2026-06-30 04:58 - [我们的少年时代2](http://www.share.kurohicncr.top/Article/details/699718598.shtml)

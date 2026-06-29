@@ -1,58 +1,56 @@
-# 用猪血刷墙？神兽是下凡的神仙？ 打假故宫“伪知识”
+# 特斯拉将向德国工厂注资2.5亿美元
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-用猪血刷墙？神兽是下凡的神仙？ 坐在故宫屋檐下 打假故宫“伪知识” 近日，生活·读书·新知三联书店出版《坐在故宫屋檐下：图解紫禁城五十问》。这是一本以学术作为支撑，以通俗易懂、图文并茂方式呈现，打假故宫“伪知识”的书。作为一名故宫学者，我写这本书的主要目的，就是准确讲好故宫故事，弘扬和传播好中华优秀传统文化。而我写作的动机，主要源于3个方面：公众对故宫知识的渴求、网络关于故宫知
+马斯克旗下的特斯拉将向其德国工厂注资2.5亿美元，用于提高电动汽车电芯产能。随著欧洲市场销量回暖，特斯拉正借此举进一步提升该地区的整体产量。 柏林-勃兰登堡工厂是特斯拉在欧洲的首个制造基地。这座“超级工厂”于2022年3月投产，不仅生产数十万辆Model Y汽车，还制造数以百万计的电芯。电芯是为电动汽车提供动力的储能单元。 工厂负责人安德烈·蒂里希在社交平台上发文称，这笔2.5
 
 ## 正文
 
-用猪血刷墙？
+马斯克旗下的特斯拉将向其德国工厂注资2.5亿美元，用于提高电动汽车电芯产能。
 
-神兽是下凡的神仙？
+随著欧洲市场销量回暖，特斯拉正借此举进一步提升该地区的整体产量。
 
-坐在故宫屋檐下 打假故宫“伪知识” 近日，生活·读书·新知三联书店出版《坐在故宫屋檐下：图解紫禁城五十问》。
+柏林-勃兰登堡工厂是特斯拉在欧洲的首个制造基地。
 
-这是一本以学术作为支撑，以通俗易懂、图文并茂方式呈现，打假故宫“伪知识”的书。
+这座“超级工厂”于2022年3月投产，不仅生产数十万辆Model Y汽车，还制造数以百万计的电芯。
 
-作为一名故宫学者，我写这本书的主要目的，就是准确讲好故宫故事，弘扬和传播好中华优秀传统文化。
+电芯是为电动汽车提供动力的储能单元。
 
-而我写作的动机，主要源于3个方面：公众对故宫知识的渴求、网络关于故宫知识的不实传言，以及部分导游对故宫知识的错误解读。
+工厂负责人安德烈·蒂里希在社交平台上发文称，这笔2.5亿美元的投资将助力特斯拉扩充员工队伍并提升产能。
 
-公众为何走进故宫：从“打卡”到“求知”故宫又名紫禁城，在历史上曾为明清皇宫。
+特斯拉的目标是在该厂实现100万辆的产量；就在最近，该厂的累计产量刚刚突破75万辆大关。
 
-故宫拥有世界上现存规模最大、保存最为完整的木结构古代宫殿建筑群。
+蒂里希表示，眼下德国本土车企正面临来自竞争对手的激烈竞争角逐，整个德国工业界处境艰难，而特斯拉的这一增资计划无疑是个好消息。
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 04:46 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 04:50 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
-- 2026-06-30 04:58 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-30 04:53 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
-- 2026-06-30 04:39 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
-- 2026-06-30 04:32 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-30 04:50 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
-- 2026-06-30 04:59 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 04:33 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 04:58 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-30 04:48 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 04:45 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 04:58 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
+- 2026-06-30 04:47 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 05:03 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 04:36 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
+- 2026-06-30 05:02 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-30 04:36 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 04:38 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanang.md)
+- 2026-06-30 04:38 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-30 04:36 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [刘念回应](http://www.share.kurohicncr.top/Article/details/70528898.shtml)
-- 2026-06-30 04:50 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/574109.shtml)
-- 2026-06-30 04:53 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/79259160.shtml)
-- 2026-06-30 04:44 - [辛纳vs凯茨玛诺维奇](http://www.blog.kurohicncr.top/Article/details/61561230312.shtml)
-- 2026-06-30 04:36 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.minike.top/Article/details/221358.shtml)
-- 2026-06-30 04:50 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/172397065.shtml)
-- 2026-06-30 04:42 - [又一美国科技巨头转向中国大模型](http://www.share.minike.top/Article/details/17549.shtml)
-- 2026-06-30 04:59 - [美股](http://www.share.minike.top/Article/details/8675469.shtml)
-- 2026-06-30 04:55 - [恋与深空 日服](http://www.share.minike.top/Article/details/90549800918.shtml)
-- 2026-06-30 04:48 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/62488351979.shtml)
-- 2026-06-30 04:58 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/284365025093.shtml)
-- 2026-06-30 04:38 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/12959.shtml)
-- 2026-06-30 04:37 - [俄乌双方伤亡近180万人](https://www.share.kurohicncr.top/Article/details/83493.shtml)
-- 2026-06-30 04:52 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/23189.shtml)
-- 2026-06-30 04:47 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/5940828881.shtml)
+- 2026-06-30 04:56 - [王欣瑜2-1击败科恰雷托](http://www.share.minike.top/Article/details/935763.shtml)
+- 2026-06-30 04:59 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.minike.top/Article/details/264365.shtml)
+- 2026-06-30 05:01 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/393080.shtml)
+- 2026-06-30 05:03 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/275277621.shtml)
+- 2026-06-30 05:01 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/5278673.shtml)
+- 2026-06-30 04:41 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/719755.shtml)
+- 2026-06-30 05:03 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/836585937024.shtml)
+- 2026-06-30 04:39 - [《男人至死是傻得儿》](https://www.share.kurohicncr.top/Article/details/0181200.shtml)
+- 2026-06-30 04:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/46622992.shtml)
+- 2026-06-30 04:49 - [一见倾心](http://www.share.kurohicncr.top/Article/details/577872948274.shtml)
+- 2026-06-30 04:40 - [85花告别古偶](https://www.blog.minike.top/Article/details/28649478.shtml)
+- 2026-06-30 04:59 - [巴西醒醒 这是淘汰赛](http://www.share.kurohicncr.top/Article/details/992960818.shtml)
+- 2026-06-30 04:43 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/27210298.shtml)
+- 2026-06-30 04:42 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/9617988902.shtml)
+- 2026-06-30 04:38 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/69884694.shtml)

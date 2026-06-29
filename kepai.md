@@ -1,57 +1,55 @@
-# 济南法院知识产权专业化审判25周年 审结知产案件5.4万件
+# 贵州茅台王莉：2026年的主基调是“以消费者为中心”的市场化改革，全面向“C”
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网济南4月23日电(周艺伟)4月23日，在第26个世界知识产权日到来之际，济南市中级人民法院举行知识产权宣传周暨济南法院知识产权专业化审判25周年座谈会，通报济南法院知识产权司法服务保障经济社会创新发展工作报告与50件典型案例。 济南市中级人民法院审判委员会专职委员毕惠岩在会上介绍，25年来，济南法院共审结知识产权案件5.4万件，20起案件入选国家级知识产权指导性案例、典型
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月11日，贵州茅台召开2025年度及2026年第一季度业绩说明会。会上，贵州茅台党委副书记、董事、代总经理王莉表示，2026年公司发展的主基调是“以消费者为中心”的市场化改革，全面向“C”。 她指出，与此前围绕渠道的市场化改革不同，本轮改革聚焦于“以消费者为中心”，重点在供给侧能够切实形成与“C端”适配的能力，具体来说
 
 ## 正文
 
-中新网济南4月23日电(周艺伟)4月23日，在第26个世界知识产权日到来之际，济南市中级人民法院举行知识产权宣传周暨济南法院知识产权专业化审判25周年座谈会，通报济南法院知识产权司法服务保障经济社会创新发展工作报告与50件典型案例。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 5月11日，贵州茅台召开2025年度及2026年第一季度业绩说明会。
 
-济南市中级人民法院审判委员会专职委员毕惠岩在会上介绍，25年来，济南法院共审结知识产权案件5.4万件，20起案件入选国家级知识产权指导性案例、典型案例，为山东经济社会高质量发展提供有力司法服务和保障。
+会上，贵州茅台党委副书记、董事、代总经理王莉表示，2026年公司发展的主基调是“以消费者为中心”的市场化改革，全面向“C”。
 
-毕惠岩表示，济南法院加大人工智能、数字经济等前沿领域保护力度，共审结涉高端智能装备专利、集成电路布图设计等发明、实用新型专利及技术秘密案件4735件，审理山东首例诉前禁令案、确认专利不侵权案、标准必要专利案，以高质量审判服务保障科技创新。
+她指出，与此前围绕渠道的市场化改革不同，本轮改革聚焦于“以消费者为中心”，重点在供给侧能够切实形成与“C端”适配的能力，具体来说在于产品体系、渠道生态、商业模式、供应链组织的全面转型适配，这是公司乃至行业前所未有的一次以市场需求为驱动的深入探索。
 
-同时，济南法院加强农业科技成果保护，共审结植物新品种案件493件，依法审结全国首例植物新品种权属案、全国首批通过收获物维权的植物新品种侵权案等典型案件；采取首案示范、类案调解思路，妥善化解涉外蓝莓植物新品种系列案等，助力现代农业发展。
+目前，公司市场化改革与转型的整体推进节奏与落地效果均符合预期，我们对此保持信心。
 
-“济南法院还加强对知名品牌、老字号、具有历史传承意义标志的保护，打击恶意抢注、商标攀附及仿冒等不诚信行为，共审结商标权案件9074件、地理标志案件69件、特许经营合同案件4055件。
+王莉表示，茅台已进入由高速增长向高质量发展的换挡期，生产经营一定会围绕高质量、可持续发展这一目标，以市场需求为导向，全力以赴推动改革落地，为股东创造更大价值，也真诚希望获得广大股东的关心支持。
 
-”毕惠岩说，济南法院制定特许经营合同、商标权纠纷案件指导意见，统一济南全市审判标准和裁判尺度。
-
-著作权保护方面，济南法院共审结著作权案件21056件，审理涉及齐白石等一批中国国内知名艺术家的著作权纠纷案件，促进文化产业繁荣发展。
-
-此外，济南法院在山东率先实施惩罚性赔偿制度，适用惩罚性赔偿审结案件20起，判赔8655万元人民币。
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-30 04:31 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 04:30 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 04:33 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-30 04:51 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 04:57 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
-- 2026-06-30 04:55 - [拆解FIFA和世界杯的暗面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 04:43 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-30 04:30 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
-- 2026-06-30 04:39 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 04:55 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 04:31 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 04:46 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 04:55 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-30 05:02 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-30 05:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 05:03 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-30 05:00 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 05:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 04:41 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-30 04:58 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
+- 2026-06-30 04:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-30 05:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 04:52 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-30 05:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:33 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/2923141.shtml)
-- 2026-06-30 04:47 - [我们的少年时代2](https://www.share.minike.top/Article/details/33344657.shtml)
-- 2026-06-30 04:53 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/58872598.shtml)
-- 2026-06-30 04:48 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.kurohicncr.top/Article/details/336316.shtml)
-- 2026-06-30 04:50 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/407246.shtml)
-- 2026-06-30 04:42 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/96526409.shtml)
-- 2026-06-30 04:44 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/416394933505.shtml)
-- 2026-06-30 04:50 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/46426263.shtml)
-- 2026-06-30 04:33 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.minike.top/Article/details/723477040239.shtml)
-- 2026-06-30 04:58 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/5407348343.shtml)
-- 2026-06-30 04:32 - [周杰伦的歌勾起25年友情](https://www.blog.kurohicncr.top/Article/details/1201009701.shtml)
-- 2026-06-30 04:55 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/39969679.shtml)
-- 2026-06-30 04:43 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/29981924.shtml)
-- 2026-06-30 04:37 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/2066921.shtml)
-- 2026-06-30 04:36 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/990100363.shtml)
+- 2026-06-30 05:01 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/04134.shtml)
+- 2026-06-30 05:03 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/1780399.shtml)
+- 2026-06-30 04:39 - [老外对中国cosplay竟这样评价…](https://www.share.kurohicncr.top/Article/details/300701353649.shtml)
+- 2026-06-30 04:55 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/9844338.shtml)
+- 2026-06-30 04:44 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/4136335508.shtml)
+- 2026-06-30 04:37 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/79674.shtml)
+- 2026-06-30 04:44 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/413170.shtml)
+- 2026-06-30 04:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/318120801909.shtml)
+- 2026-06-30 04:44 - [巴西绝杀日本](http://www.blog.kurohicncr.top/Article/details/10319.shtml)
+- 2026-06-30 04:57 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/991708785.shtml)
+- 2026-06-30 04:39 - [DeepSeek V4正式版要来了](https://www.blog.kurohicncr.top/Article/details/338626992075.shtml)
+- 2026-06-30 05:00 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/078792419.shtml)
+- 2026-06-30 04:53 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/42366.shtml)
+- 2026-06-30 04:58 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/38063690.shtml)
+- 2026-06-30 04:44 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/3934270.shtml)

@@ -1,59 +1,57 @@
-# 广东举办民营企业参与共建“一带一路”培训班
+# 诚益通（300430）投资者索赔分析
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网佛山4月27日电 (记者 许青青)由广东省工商联与中国银行广东省分行共同主办的2026“护企扬帆 商拓四海”交流活动暨广东民营企业参与共建“一带一路”培训班(东南亚专场)27日在佛山市举行。会上，广东省工商联牵头成立的“广东省民营企业出海服务团”(下称“服务团”)正式成立。 据介绍，该服务团旨在整合内地、港澳及海外出海服务资源，依托智库、专业服务平台、金融保险机构、法律等
+2026年4月29日晚，诚益通（300430）公告，公司聘请的信永中和会计师事务所（特殊普通合伙）对公司2025 年度进 行审计，会计师事务所出具了无法表示意见的审计报告，对公司2025 年度内部控制的有效性进行了审计，并出具了否定意见审计报告。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市
 
 ## 正文
 
-中新网佛山4月27日电 (记者 许青青)由广东省工商联与中国银行广东省分行共同主办的2026“护企扬帆 商拓四海”交流活动暨广东民营企业参与共建“一带一路”培训班(东南亚专场)27日在佛山市举行。
+2026年4月29日晚，诚益通（300430）公告，公司聘请的信永中和会计师事务所（特殊普通合伙）对公司2025 年度进 行审计，会计师事务所出具了无法表示意见的审计报告，对公司2025 年度内部控制的有效性进行了审计，并出具了否定意见审计报告。
 
-会上，广东省工商联牵头成立的“广东省民营企业出海服务团”(下称“服务团”)正式成立。
+部分股民或许存在索赔机会。
 
-据介绍，该服务团旨在整合内地、港澳及海外出海服务资源，依托智库、专业服务平台、金融保险机构、法律等专业力量，涵盖线上与线下平台、高校智库、金融保险机构、法律会计咨询机构、港澳及海内外商协会、重点企业、境外园区等七大领域，首批已有110余家单位加入。
+徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
 
-服务团的具体工作内容包括：信息共享与线上服务、政策宣讲与线下服务、货物通关及人员出海便利、投融资服务与风险管理、涉外法律援助及合规建设、资源对接与协同网络构建、典型案例推广等，将为出海民营企业提供智力支持、调查研究、宣传培训及企业服务。
+（徐劲律师专栏） 暂定索赔条件： 在2026年4月30日前买入，并在2026年4月30日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
 
-培训期间，服务团代表包括中国人民银行广东省分行、中国出口信用保险公司广东分公司、海关总署广东分署、涉外律师事务所、香港贸发局、广东省民营企业海外贸易促进会、佛山市南商出海基地等单位分别就相关主题作了分享。
+（*ST益通维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
 
-广东省委统战部副部长、省工商联党组书记陈志清表示，希望广东民营企业坚定信心，大力参与国际竞争；立足自身产业特色，深耕主业创新，从“产品走出去”向“品牌走出去、技术走出去、标准走出去”跨越升级；合理布局，统筹安全与发展，将保障产业链供应链安全摆在突出位置；抢抓数字贸易发展风口，以“人工智能+外贸”深度融合为抓手，推动传统优势产业迭代升级；健全海外合规管理、风险预警与知识产权保护体系，审慎开展海外投资与产能合作。
+（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
 
-广东省工商联副主席、广东省民营经济国际合作商会会长、福达集团董事局主席王福亮表示，将借助服务团的力量，加强与海内外商会与企业间的联系、互动、交流和合作，拓宽视野、拓展市场。
+徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
 
-据悉，下一步，广东省工商联将携手各方力量，持续深化服务，推动各项工作落地见效。
+） 责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-30 04:31 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 04:54 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 04:45 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
-- 2026-06-30 04:32 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 04:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
-- 2026-06-30 04:59 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 04:58 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 04:58 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-30 04:54 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 04:33 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-30 04:34 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
-- 2026-06-30 04:48 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
-- 2026-06-30 04:46 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
+- 2026-06-30 04:49 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 04:44 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
+- 2026-06-30 04:52 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 04:57 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 04:37 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 04:47 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
+- 2026-06-30 04:52 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-30 04:44 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 04:56 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 04:57 - [老外对中国cosplay竟这样评价…](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
+- 2026-06-30 04:48 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/3368371.shtml)
-- 2026-06-30 04:32 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.kurohicncr.top/Article/details/96730673.shtml)
-- 2026-06-30 04:49 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/86406.shtml)
-- 2026-06-30 04:52 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.minike.top/Article/details/293505029846.shtml)
-- 2026-06-30 04:53 - [牺牲民警倒下前还在保护群众](http://www.blog.kurohicncr.top/Article/details/27742807.shtml)
-- 2026-06-30 04:53 - [女子发现孩子非现任亲生状告前任索赔](http://www.blog.kurohicncr.top/Article/details/5548691376.shtml)
-- 2026-06-30 04:56 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/074556.shtml)
-- 2026-06-30 04:39 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/01933138.shtml)
-- 2026-06-30 04:40 - [极限挑战第一季](https://www.share.minike.top/Article/details/19354737.shtml)
-- 2026-06-30 04:58 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/788110.shtml)
-- 2026-06-30 04:40 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/912304636470.shtml)
-- 2026-06-30 04:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.minike.top/Article/details/02814314.shtml)
-- 2026-06-30 04:31 - [“十五五”优质本科扩容](https://www.blog.kurohicncr.top/Article/details/7336138675.shtml)
-- 2026-06-30 04:49 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/89299.shtml)
-- 2026-06-30 04:30 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/53582961.shtml)
+- 2026-06-30 04:42 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/562192.shtml)
+- 2026-06-30 05:02 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/3961980883.shtml)
+- 2026-06-30 04:52 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/988522879.shtml)
+- 2026-06-30 05:00 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/47096098325.shtml)
+- 2026-06-30 04:48 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/626670.shtml)
+- 2026-06-30 04:59 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.kurohicncr.top/Article/details/438753232201.shtml)
+- 2026-06-30 05:03 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.kurohicncr.top/Article/details/90113.shtml)
+- 2026-06-30 04:45 - [王楚钦孙颖莎混双对手产生](http://www.share.kurohicncr.top/Article/details/56352930.shtml)
+- 2026-06-30 04:53 - [媒体评哈兰德之歌火了](https://www.blog.minike.top/Article/details/576887729.shtml)
+- 2026-06-30 05:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/6722696.shtml)
+- 2026-06-30 05:04 - [流金岁月](http://www.blog.minike.top/Article/details/2087079.shtml)
+- 2026-06-30 04:55 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/49724745764.shtml)
+- 2026-06-30 04:40 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/40360254498.shtml)
+- 2026-06-30 04:55 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/2134403162.shtml)
+- 2026-06-30 04:51 - [老外对中国cosplay竟这样评价…](http://www.share.kurohicncr.top/Article/details/6308618.shtml)

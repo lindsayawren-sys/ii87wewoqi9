@@ -1,53 +1,61 @@
-# 高盛：腾讯控股维持“买入”评级 目标价700港元
+# “调试全能王”的进阶之路：让“天花板”一层层往上长
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-高盛发布研报称，维持对腾讯控股（00700）“买入”评级，目标价700港元。尽管腾讯今年全年利润增长放缓，该行继续预测公司今年首季及全年经调整经营溢利分别同比增长10%及8%。 腾讯发布开源Hy3 preview语言模型，是集团AI战略重组后的首个具体成果，模型指标及对智能体功能的侧重基本符合预期。该模型由首席AI科学家姚顺雨（OpenAI前研究员）领导开发，参数量为2，950
+中新网株洲5月12日电 (刘曼 成荣华 邹靖兰 何丽丽)湖南株洲素有“中国电力机车之都”之称，拥有全国规模最大的轨道交通装备产业集群。在中车株洲电力机车有限公司城轨制造中心，一批即将发往欧盟国家的地铁列车、动车组，正等待通过欧盟最高铁路标准TSI(铁路互联互通技术规范)认证的全系统调试。 此次关键调试标准严苛、流程复杂、外文图纸晦涩，每一项信号、制动、电路等参数都必须达到毫秒级
 
 ## 正文
 
-高盛发布研报称，维持对腾讯控股（00700）“买入”评级，目标价700港元。
+中新网株洲5月12日电 (刘曼 成荣华 邹靖兰 何丽丽)湖南株洲素有“中国电力机车之都”之称，拥有全国规模最大的轨道交通装备产业集群。
 
-尽管腾讯今年全年利润增长放缓，该行继续预测公司今年首季及全年经调整经营溢利分别同比增长10%及8%。
+在中车株洲电力机车有限公司城轨制造中心，一批即将发往欧盟国家的地铁列车、动车组，正等待通过欧盟最高铁路标准TSI(铁路互联互通技术规范)认证的全系统调试。
 
-腾讯发布开源Hy3 preview语言模型，是集团AI战略重组后的首个具体成果，模型指标及对智能体功能的侧重基本符合预期。
+此次关键调试标准严苛、流程复杂、外文图纸晦涩，每一项信号、制动、电路等参数都必须达到毫秒级精度要求。
 
-该模型由首席AI科学家姚顺雨（OpenAI前研究员）领导开发，参数量为2，950亿（激活参数210亿），规模较同业小，着重实用性、代理功能、复杂推理及编码能力等。
+任务交到了中车首席技能专家周峰手上。
 
-高盛认为，继上周发布HY-World 2.0 3D模型后，Hy3 preview发布是混元团队全面重组后的关键进展，预期Hy3正式版及更大参数模型将陆续推出。
+从业16年，他被同行称为“全能调试王”，以精湛技艺护航中国轨道交通走向海外。
 
-责任编辑：卢昱君
+从学徒到能手 2010年4月20日，周峰入职刚满一百天。
+
+那天，师父费秋元没有让他碰设备，只问了一个问题：“这列车两端头车，核心功能有什么关键区别？
+
+”周峰当场语塞，从书本上背来的知识像散落零件，拼不出完整答案。
 
 ## 相关推荐
 
-- 2026-06-30 04:47 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-30 04:32 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 04:44 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 04:31 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-30 04:56 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 04:40 - [杨紫获白玉兰视后为何争议难平](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-30 04:55 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
-- 2026-06-30 04:38 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 04:42 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:49 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzdgf.md)
-- 2026-06-30 04:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-30 04:48 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 04:46 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
+- 2026-06-30 04:55 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 05:03 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 04:37 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 04:59 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 04:36 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-30 04:46 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-30 04:46 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 04:45 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
+- 2026-06-30 04:59 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 04:56 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 04:43 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-30 04:44 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 04:52 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:54 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/785601.shtml)
-- 2026-06-30 04:51 - [日本反击率先破门](http://www.share.minike.top/Article/details/86569767201.shtml)
-- 2026-06-30 04:42 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/11745.shtml)
-- 2026-06-30 04:31 - [一见倾心](https://www.share.minike.top/Article/details/770098922.shtml)
-- 2026-06-30 04:54 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.kurohicncr.top/Article/details/29727011.shtml)
-- 2026-06-30 04:58 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.kurohicncr.top/Article/details/43632114.shtml)
-- 2026-06-30 04:39 - [国务院：稳步推进研究生考试招生改革](https://www.blog.minike.top/Article/details/20372.shtml)
-- 2026-06-30 04:53 - [巴西扳平比分](https://www.share.minike.top/Article/details/579779.shtml)
-- 2026-06-30 04:38 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/1501830187.shtml)
-- 2026-06-30 04:57 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/437532333732.shtml)
-- 2026-06-30 04:42 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/0281461.shtml)
-- 2026-06-30 04:49 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/9724630055.shtml)
-- 2026-06-30 04:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/439187883538.shtml)
-- 2026-06-30 04:44 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/233909973.shtml)
-- 2026-06-30 04:54 - [急先锋](http://www.blog.kurohicncr.top/Article/details/9422524.shtml)
+- 2026-06-30 04:57 - [这种关系可能正在悄悄“催老”你](https://www.blog.kurohicncr.top/Article/details/7147210.shtml)
+- 2026-06-30 05:03 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/758487292383.shtml)
+- 2026-06-30 04:44 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/790698.shtml)
+- 2026-06-30 05:03 - [超神人辉夜姬 第二集](https://www.share.kurohicncr.top/Article/details/87960.shtml)
+- 2026-06-30 04:47 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/50256.shtml)
+- 2026-06-30 04:50 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/955227.shtml)
+- 2026-06-30 04:45 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/885838719.shtml)
+- 2026-06-30 04:51 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.kurohicncr.top/Article/details/81131062.shtml)
+- 2026-06-30 04:40 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/19332822474.shtml)
+- 2026-06-30 05:00 - [曝多支争冠球队有意塞克斯顿](http://www.share.minike.top/Article/details/143860320.shtml)
+- 2026-06-30 04:56 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/19223329.shtml)
+- 2026-06-30 04:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/45113.shtml)
+- 2026-06-30 04:36 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/85293.shtml)
+- 2026-06-30 04:39 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/40747.shtml)
+- 2026-06-30 04:42 - [格力遥控器里有黄金](https://www.share.minike.top/Article/details/593479854.shtml)

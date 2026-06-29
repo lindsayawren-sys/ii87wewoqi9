@@ -1,56 +1,56 @@
-# 【建投有色】镍&不锈钢周报 | 镍市利多形成共振，二次通胀的逻辑愈发牢靠
+# 从盐碱滩涂到亿吨大港 东营港经开区海陆联动向海图强
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-分析师 | 刘佳奇 中信建投期货研究发展部 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年4月27日 摘要 本周观点： 消息面上，受2026年RKAB配额大幅削减影响，WBN矿山将于5月停产维护，消息刺激下镍价偏强运行。另一方面，中东局势影响冲击仍在，印尼市场面临硫磺断供风险，预计湿法项目受冲击最为严重，目前MHP流通紧张，镍钴系数坚挺，一
+中新网东营5月11日电(沙见龙 陈仕钊)2025年12月22日，随着“万木春32”轮最后一个集装箱平稳落地，山东东营港年度货物吞吐量首次突破1亿吨，正式迈入“亿吨大港”行列。如今，渤海湾南岸巨轮穿梭、吊臂起落，在这片昔日的盐碱滩涂上，一座现代化深水大港正加速崛起。 近年来，东营港经济开发区锚定港产城融合发展主线，以系统性改革破题，主要经济指标保持两位数增长，综合实力位居“全国化
 
 ## 正文
 
-分析师 | 刘佳奇 中信建投期货研究发展部 期货交易咨询业务资格：证监许可〔2011〕1461号 本报告完成时间 | 2026年4月27日 摘要 本周观点： 消息面上，受2026年RKAB配额大幅削减影响，WBN矿山将于5月停产维护，消息刺激下镍价偏强运行。
+中新网东营5月11日电(沙见龙 陈仕钊)2025年12月22日，随着“万木春32”轮最后一个集装箱平稳落地，山东东营港年度货物吞吐量首次突破1亿吨，正式迈入“亿吨大港”行列。
 
-另一方面，中东局势影响冲击仍在，印尼市场面临硫磺断供风险，预计湿法项目受冲击最为严重，目前MHP流通紧张，镍钴系数坚挺，一体化转电镍成本支撑或将大幅抬升。
+如今，渤海湾南岸巨轮穿梭、吊臂起落，在这片昔日的盐碱滩涂上，一座现代化深水大港正加速崛起。
 
-不锈钢方面，行情基本随镍价一同波动，但五一假期临近，市场短期看好节日需求，为钢价提供额外支撑。
+近年来，东营港经济开发区锚定港产城融合发展主线，以系统性改革破题，主要经济指标保持两位数增长，综合实力位居“全国化工园区30强”第4位，在全国“十四五”具有竞争力优势化工园区中排名首位。
 
-总的来看，目前镍市供应扰动明显，利多形成共振，对弱需求的反应有所钝化，二次通胀的逻辑愈发牢固。
+东营综合保税区在全国、全省绩效评估中持续进位，实现跨越式发展。
 
-沪镍2606参考区间140000-160000元/吨。
+港口能级实现历史性跨越 围绕“国家级重要港口、国家级能源保障港”定位，东营港累计投资超268亿元人民币，建成码头泊位61个，其中对外开放泊位34个。
 
-SS2606参考区间14700-16100元/吨。
+4个10万吨级液化泊位、10万吨级通用泊位、集装箱码头相继投用。
 
-操作策略： 操作上，逢低布多。
+尤为引人注目的是，中国北方首座25万吨级单点系泊超大型原油码头已在东营港建设完成，今年年内将实现远洋超级油轮直航，靠泊能力实现“5万——10万——25万吨”三级跨越。
 
-不确定性风险： 地缘政治，美联储政策，关税扰动，国内经济复苏，印尼、菲律宾产业政策。
+今年一季度，东营港货物吞吐量完成2318万吨，同比增长7%，其中外贸完成536万吨，同比增长33%，外贸支撑能力显著提升。
 
 ## 相关推荐
 
-- 2026-06-30 04:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 04:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
-- 2026-06-30 04:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/udsck.md)
-- 2026-06-30 04:52 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 04:48 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-30 04:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-30 04:32 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-30 04:37 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 04:57 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
-- 2026-06-30 04:46 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-30 04:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-30 04:44 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 04:36 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 04:56 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 04:43 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 04:55 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 05:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
+- 2026-06-30 04:44 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 04:41 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 04:43 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:42 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/857493.shtml)
-- 2026-06-30 04:47 - [武汉西安站在了3小时临界线门槛上](https://www.blog.minike.top/Article/details/475995.shtml)
-- 2026-06-30 04:55 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/26776.shtml)
-- 2026-06-30 04:52 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/70901.shtml)
-- 2026-06-30 04:55 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/9821669992.shtml)
-- 2026-06-30 04:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/1205461401.shtml)
-- 2026-06-30 04:35 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/770263121390.shtml)
-- 2026-06-30 04:49 - [董卿母亲癌症去世](http://www.blog.kurohicncr.top/Article/details/815122568793.shtml)
-- 2026-06-30 04:30 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/41184437.shtml)
-- 2026-06-30 04:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.share.minike.top/Article/details/352429633.shtml)
-- 2026-06-30 04:30 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.minike.top/Article/details/35478.shtml)
-- 2026-06-30 04:49 - [姜妍走过来这段刘梅下班了](http://www.blog.minike.top/Article/details/70325703344.shtml)
-- 2026-06-30 04:51 - [AI手机进入Agent时代](http://www.blog.kurohicncr.top/Article/details/278265736210.shtml)
-- 2026-06-30 04:31 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/089757880865.shtml)
-- 2026-06-30 04:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/680715887.shtml)
+- 2026-06-30 04:52 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/3897974764.shtml)
+- 2026-06-30 05:05 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/221968112.shtml)
+- 2026-06-30 05:01 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/48675092775.shtml)
+- 2026-06-30 04:47 - [张月感谢了每一公的队友](https://www.share.minike.top/Article/details/13488.shtml)
+- 2026-06-30 05:04 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/986999.shtml)
+- 2026-06-30 04:43 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/5819915.shtml)
+- 2026-06-30 04:37 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/46718555588.shtml)
+- 2026-06-30 04:42 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/092176188.shtml)
+- 2026-06-30 05:02 - [俄乌双方伤亡近180万人](https://www.blog.kurohicncr.top/Article/details/73150.shtml)
+- 2026-06-30 04:39 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/757349884.shtml)
+- 2026-06-30 05:03 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/619135302074.shtml)
+- 2026-06-30 04:58 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/5039526939.shtml)
+- 2026-06-30 04:42 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/483458.shtml)
+- 2026-06-30 04:38 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/327803.shtml)
+- 2026-06-30 04:39 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/55018581.shtml)

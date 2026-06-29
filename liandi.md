@@ -1,56 +1,43 @@
-# 一季度广东纪检监察机关处分厅级干部32人
+# 4月新能源汽车产销量及出口量均稳定增长
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网广州4月25日电 (记者 程景伟)广东省纪委监委“南粤清风网”24日晚通报2026年第一季度全省纪检监察机关监督检查审查调查情况。一季度全省纪检监察机关处分厅级干部32人，处级干部518人，科级干部1314人，一般干部943人，农村、企业等其他人员5266人。2026年第一季度，全省纪检监察机关共接收信访举报39389件次，其中检举控告类信访举报11288件次。处置问题线
+发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中新网广州4月25日电 (记者 程景伟)广东省纪委监委“南粤清风网”24日晚通报2026年第一季度全省纪检监察机关监督检查审查调查情况。
-
-一季度全省纪检监察机关处分厅级干部32人，处级干部518人，科级干部1314人，一般干部943人，农村、企业等其他人员5266人。
-
-2026年第一季度，全省纪检监察机关共接收信访举报39389件次，其中检举控告类信访举报11288件次。
-
-处置问题线索28031件。
-
-立案9989件，其中立案厅级干部18人、处级干部521人、科级干部1436人。
-
-处分8073人，其中党纪处分6226人、政务处分2560人。
-
-2026年第一季度，全省纪检监察机关运用“四种形态”批评教育和处理17957人次。
-
-其中，运用第一种形态批评教育和处理9541人次，占总人次的53.1%；运用第二种形态处理6414人次，占35.7%；运用第三种形态处理1008人次，占5.6%；运用第四种形态处理994人次，占5.6%。
+发布时间：2026年05月12日 09:02 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-30 04:33 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
-- 2026-06-30 04:50 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
-- 2026-06-30 04:56 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-30 04:32 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-30 04:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
-- 2026-06-30 04:53 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/helbe.md)
-- 2026-06-30 04:56 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-30 04:49 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:49 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 05:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-30 04:43 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 05:03 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
+- 2026-06-30 04:51 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-30 04:47 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-30 04:52 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-30 04:46 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-30 05:04 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 04:45 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 05:02 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-30 05:05 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/923574501.shtml)
-- 2026-06-30 04:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/1005650.shtml)
-- 2026-06-30 04:46 - [千与千寻](https://www.share.kurohicncr.top/Article/details/87898665460.shtml)
-- 2026-06-30 04:33 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/4103538126.shtml)
-- 2026-06-30 04:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/261943203.shtml)
-- 2026-06-30 04:54 - [高考填志愿父亲和女儿产生分歧](https://www.share.kurohicncr.top/Article/details/05178711439.shtml)
-- 2026-06-30 04:48 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/5120213378.shtml)
-- 2026-06-30 04:59 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/061620546439.shtml)
-- 2026-06-30 04:40 - [锐评T1零封KC](https://www.blog.minike.top/Article/details/68883539.shtml)
-- 2026-06-30 04:40 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/31959356884.shtml)
-- 2026-06-30 04:55 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/494049683833.shtml)
-- 2026-06-30 04:45 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/2427416180.shtml)
-- 2026-06-30 04:38 - [我们的少年时代2](https://www.share.kurohicncr.top/Article/details/76211085215.shtml)
-- 2026-06-30 04:36 - [千与千寻](https://www.share.kurohicncr.top/Article/details/4284996773.shtml)
-- 2026-06-30 04:45 - [陈小云又好好的养了自己一年](https://www.blog.kurohicncr.top/Article/details/9240151.shtml)
+- 2026-06-30 04:38 - [金刚川](https://www.share.minike.top/Article/details/02311.shtml)
+- 2026-06-30 04:36 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/983712379.shtml)
+- 2026-06-30 04:36 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/182888075298.shtml)
+- 2026-06-30 04:38 - [安切洛蒂 换人](https://www.share.minike.top/Article/details/644232432.shtml)
+- 2026-06-30 04:55 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/448000878.shtml)
+- 2026-06-30 04:43 - [张帅时隔四年再取温网正赛胜利](http://www.blog.kurohicncr.top/Article/details/36690904298.shtml)
+- 2026-06-30 04:36 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/30696409085.shtml)
+- 2026-06-30 04:48 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/8998691238.shtml)
+- 2026-06-30 04:58 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/451430826.shtml)
+- 2026-06-30 05:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/643781.shtml)
+- 2026-06-30 04:39 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/163176.shtml)
+- 2026-06-30 05:05 - [月亮](https://www.share.kurohicncr.top/Article/details/81751334081.shtml)
+- 2026-06-30 04:52 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/6542567720.shtml)
+- 2026-06-30 04:59 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/9112375329.shtml)
+- 2026-06-30 04:44 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/407793.shtml)

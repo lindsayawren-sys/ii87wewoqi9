@@ -1,56 +1,57 @@
-# 广西举办残疾人读书日活动 作家现场分享阅读力量
+# Hims & Hers公布一季度亏损、业绩指引疲软，股价暴跌15.2%
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网南宁4月23日电(张广权 李卓恒)4月23日，“书香逐梦，桂在阅读”2026年广西残疾人读书日活动在南宁举行。 本次活动由广西壮族自治区残疾人联合会(以下简称“广西残联”)主办，南宁市残疾人联合会承办。 广西残联宣文部主任张朝志在致辞中表示，广西残联始终重视残疾人文化建设，着力补齐阅读资源短板，保障残疾人平等享有阅读权利。他希望残疾人朋友养成良好阅读习惯，在阅读中成长，并
+专题：聚焦美股2026年第一季度财报 核心要点 数字医疗公司 Hims & Hers 周二受一季度财报疲软拖累，股价大幅下挫。 公司一季度净亏损达 9200 万美元，高于去年同期的 5000 万美元。 该公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。 远程医疗企业 Hims & Hers 发布一季度亏损业绩，且全年业绩指引偏弱，周二股价应声大跌。 这家数字健康公司周一公
 
 ## 正文
 
-中新网南宁4月23日电(张广权 李卓恒)4月23日，“书香逐梦，桂在阅读”2026年广西残疾人读书日活动在南宁举行。
+专题：聚焦美股2026年第一季度财报 核心要点 数字医疗公司 Hims & Hers 周二受一季度财报疲软拖累，股价大幅下挫。
 
-本次活动由广西壮族自治区残疾人联合会(以下简称“广西残联”)主办，南宁市残疾人联合会承办。
+公司一季度净亏损达 9200 万美元，高于去年同期的 5000 万美元。
 
-广西残联宣文部主任张朝志在致辞中表示，广西残联始终重视残疾人文化建设，着力补齐阅读资源短板，保障残疾人平等享有阅读权利。
+该公司近期与诺和诺德达成合作，将在平台销售其品牌减肥药。
 
-他希望残疾人朋友养成良好阅读习惯，在阅读中成长，并呼吁全社会关注残疾人文化需求，营造残健融合良好氛围。
+远程医疗企业 Hims & Hers 发布一季度亏损业绩，且全年业绩指引偏弱，周二股价应声大跌。
 
-随后，图书捐赠仪式举行。
+这家数字健康公司周一公布一季报：净亏损 9200 万美元，去年同期约为 5000 万美元； 调整后息税折旧摊销前利润（EBITDA）为 4400 万美元，低于去年的 9100 万美元； 营收同比仅增长 4%，至 6.08 亿美元； 单用户月均收入降至 80 美元，去年为 85 美元。
 
-针对南宁市残疾人活动中心盲文书籍短缺的情况，广西残联向该中心捐赠了一批盲文书籍。
+公司给出业绩预期： 该股最新跌幅15.2%。
 
-阅读分享环节中，视力障碍作家李莹讲述失明后通过阅读重拾信心的经历，如何克服困难开始创作之路；残疾人作家林竹结合自身创作经历，鼓励残疾人用文字表达自我。
+花旗分析师评价其业绩预期好坏参半，并指出公司二季度展望低于花旗预估。
 
-对于怀揣文学梦的残疾人朋友，广西作家鬼子建议残疾人朋友从自身出发，不必局限于现实生活，可尝试玄幻等想象类题材。
+分析师同时提示，随着公司减少对复方 GLP-1 减肥药业务的依赖，一季度正处于业务转型期。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cugjm.md)
-- 2026-06-30 04:30 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
-- 2026-06-30 04:42 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 04:53 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
-- 2026-06-30 04:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 04:42 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-30 04:52 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-30 04:44 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
-- 2026-06-30 04:30 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
-- 2026-06-30 04:31 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-30 04:55 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
+- 2026-06-30 05:02 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
+- 2026-06-30 05:04 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
+- 2026-06-30 04:37 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
+- 2026-06-30 04:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
+- 2026-06-30 04:46 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzxgu.md)
+- 2026-06-30 04:39 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-30 05:05 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 05:04 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 04:58 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 04:44 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/2420398.shtml)
-- 2026-06-30 04:30 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/230483704.shtml)
-- 2026-06-30 04:54 - [恋与深空 巧合](https://www.share.minike.top/Article/details/6155966110.shtml)
-- 2026-06-30 04:55 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/3977060.shtml)
-- 2026-06-30 04:46 - [𝗩𝟴 'singasong' Official MV](http://www.blog.kurohicncr.top/Article/details/9635110071.shtml)
-- 2026-06-30 04:34 - [巴西2-1绝杀日本](https://www.blog.kurohicncr.top/Article/details/18160521.shtml)
-- 2026-06-30 04:31 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/47506668.shtml)
-- 2026-06-30 04:32 - [孙兴慜道歉](http://www.share.minike.top/Article/details/0011566433.shtml)
-- 2026-06-30 04:54 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/685439.shtml)
-- 2026-06-30 04:42 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/57004359561.shtml)
-- 2026-06-30 04:47 - [中方追加1亿元物资援助委内瑞拉](https://www.share.kurohicncr.top/Article/details/66192.shtml)
-- 2026-06-30 04:34 - [爱直接对嘴喝饮料的人天塌了](http://www.blog.kurohicncr.top/Article/details/891850467803.shtml)
-- 2026-06-30 04:36 - [科技牛市下的最大考验是什么](https://www.share.kurohicncr.top/Article/details/581022.shtml)
-- 2026-06-30 04:43 - [刘宇宁东方风云榜人气](https://www.share.minike.top/Article/details/21150457.shtml)
-- 2026-06-30 04:36 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/330315015.shtml)
+- 2026-06-30 04:55 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/835067922.shtml)
+- 2026-06-30 04:38 - [赵今麦瘦好多](https://www.share.minike.top/Article/details/2948743487.shtml)
+- 2026-06-30 05:00 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/1538209.shtml)
+- 2026-06-30 04:42 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/791271.shtml)
+- 2026-06-30 05:03 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/088152063202.shtml)
+- 2026-06-30 05:01 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.minike.top/Article/details/61009748.shtml)
+- 2026-06-30 05:03 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/21295846.shtml)
+- 2026-06-30 04:47 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/52068987.shtml)
+- 2026-06-30 04:47 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/943016.shtml)
+- 2026-06-30 04:49 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/201607817637.shtml)
+- 2026-06-30 05:04 - [赵今麦瘦好多](http://www.share.minike.top/Article/details/260964477.shtml)
+- 2026-06-30 04:58 - [领克汽车官宣正式进军拉力赛](https://www.share.kurohicncr.top/Article/details/78671752.shtml)
+- 2026-06-30 05:02 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.minike.top/Article/details/928757159650.shtml)
+- 2026-06-30 04:43 - [日本16强魔咒](https://www.blog.minike.top/Article/details/929980002.shtml)
+- 2026-06-30 04:44 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/34924021170.shtml)

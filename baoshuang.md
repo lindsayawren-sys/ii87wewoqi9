@@ -1,61 +1,57 @@
-# 湖南新田废弃砖厂变身智慧蔬菜产业园
+# 汶川地震18周年 台青走进灾区缅怀遇难者
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-中新网长沙4月27日电(卓宇斌)在湖南新田县龙泉街道鱼游村一处昔日废弃砖厂，正在上演一场种菜的技术变革。 由新田青云集团与山东寿光农控集团合作共建的新田寿光设施蔬菜示范产业园，正以“寿光技术+新田模式”，为新田设施农业补短板、树样板。走进鱼游村试验大棚，工人们正忙着采摘、分拣。 “大棚配备了水肥一体化和智能温控系统，水果黄瓜产量比传统种植高出两到三倍。这个‘玉玲珑’品种皮薄肉脆
+中新社成都5月12日电 (黄欣欣)“每年到这一天看新闻我都要流眼泪，我当时就住在这，隔壁就有孩子遇难。”夏春季是2008年汶川地震亲历者，18年后站在都江堰市抗震救灾·恢复重建陈列馆，向台湾青年忆起当年的惊心动魄。12日，约30名两岸媒体人走进当年的地震灾区，缅怀遇难者。作为距离震中最近的区县之一，都江堰全市遇难人数超三千人，多所学校教学楼垮塌。 展厅里，挂着灾民暂借水泥涵管避
 
 ## 正文
 
-中新网长沙4月27日电(卓宇斌)在湖南新田县龙泉街道鱼游村一处昔日废弃砖厂，正在上演一场种菜的技术变革。
+中新社成都5月12日电 (黄欣欣)“每年到这一天看新闻我都要流眼泪，我当时就住在这，隔壁就有孩子遇难。
 
-由新田青云集团与山东寿光农控集团合作共建的新田寿光设施蔬菜示范产业园，正以“寿光技术+新田模式”，为新田设施农业补短板、树样板。
+”夏春季是2008年汶川地震亲历者，18年后站在都江堰市抗震救灾·恢复重建陈列馆，向台湾青年忆起当年的惊心动魄。
 
-走进鱼游村试验大棚，工人们正忙着采摘、分拣。
+12日，约30名两岸媒体人走进当年的地震灾区，缅怀遇难者。
 
-“大棚配备了水肥一体化和智能温控系统，水果黄瓜产量比传统种植高出两到三倍。
+作为距离震中最近的区县之一，都江堰全市遇难人数超三千人，多所学校教学楼垮塌。
 
-这个‘玉玲珑’品种皮薄肉脆、口感特别清爽，在粤港澳市场很受欢迎。
+展厅里，挂着灾民暂借水泥涵管避灾的照片。
 
-”寿光农控集团驻新田项目技术员张文明介绍，试验棚已成功种植西红柿、黄瓜、辣椒三大类13个品种，陆续挂果并进入采收期。
+夏春季说，为躲避余震，他和邻居在货车里住了数月。
 
-长期以来，新田蔬菜产业以露天种植为主，抗风险能力弱、标准化程度低、市场议价能力不足。
+“十多年前我在台湾电视上看到这些画面，手都在抖。
 
-新田寿光设施蔬菜示范产业园是新田县补齐设施农业短板的重点工程。
+那时台湾街头到处是募捐箱，我和朋友把零用钱都塞进去。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
-- 2026-06-30 04:41 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-30 04:43 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
-- 2026-06-30 04:54 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 04:34 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-30 04:40 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
-- 2026-06-30 04:52 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 04:38 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 04:48 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-30 04:32 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-30 04:43 - [欧洲人高温天为啥用不了空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duizhang.md)
-- 2026-06-30 04:31 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-30 04:34 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
-- 2026-06-30 04:31 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 04:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-30 04:50 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-30 04:55 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 04:50 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 05:02 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
+- 2026-06-30 04:47 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 05:04 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 05:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bennong.md)
+- 2026-06-30 04:36 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 04:39 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-30 05:03 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 04:59 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:59 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/8374872649.shtml)
-- 2026-06-30 04:50 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/440576595.shtml)
-- 2026-06-30 04:56 - [《贺子珍》](http://www.share.minike.top/Article/details/717785925691.shtml)
-- 2026-06-30 04:30 - [创新药板块能否“苦尽甘来”](http://www.share.kurohicncr.top/Article/details/638704.shtml)
-- 2026-06-30 04:52 - [鉴定师的失败救赎](https://www.blog.minike.top/Article/details/6238137.shtml)
-- 2026-06-30 04:56 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.share.kurohicncr.top/Article/details/857780211.shtml)
-- 2026-06-30 04:38 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.kurohicncr.top/Article/details/119463.shtml)
-- 2026-06-30 04:44 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/901384386.shtml)
-- 2026-06-30 04:56 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/0192766.shtml)
-- 2026-06-30 04:57 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/82161.shtml)
-- 2026-06-30 04:54 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/64426194566.shtml)
-- 2026-06-30 04:47 - [绘画区你赢了](https://www.share.minike.top/Article/details/222166236.shtml)
-- 2026-06-30 04:50 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/12691.shtml)
-- 2026-06-30 04:37 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/2308884352.shtml)
-- 2026-06-30 04:40 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/3592137.shtml)
+- 2026-06-30 04:47 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/73516538779.shtml)
+- 2026-06-30 04:52 - [巴西把自己踢晕了](http://www.blog.minike.top/Article/details/259471.shtml)
+- 2026-06-30 04:56 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/952346.shtml)
+- 2026-06-30 05:02 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/6962751.shtml)
+- 2026-06-30 05:00 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/039927792.shtml)
+- 2026-06-30 04:58 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/6089027910.shtml)
+- 2026-06-30 05:03 - [女心理师](https://www.blog.kurohicncr.top/Article/details/369512001931.shtml)
+- 2026-06-30 05:01 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/26594776008.shtml)
+- 2026-06-30 04:56 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.kurohicncr.top/Article/details/5620770147.shtml)
+- 2026-06-30 04:42 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/67802601555.shtml)
+- 2026-06-30 04:49 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/5753102.shtml)
+- 2026-06-30 04:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/92425900.shtml)
+- 2026-06-30 04:41 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/308587.shtml)
+- 2026-06-30 05:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/0458164.shtml)
+- 2026-06-30 04:42 - [如何评价杨紫白玉兰获奖](http://www.share.kurohicncr.top/Article/details/230885418106.shtml)

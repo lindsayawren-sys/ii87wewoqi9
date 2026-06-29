@@ -1,61 +1,57 @@
-# 当“绿水青山”成为世界语言——见证生态环境国际对话
+# “中国最后的使鹿部落”迎驯鹿产仔高峰
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-当前，世界百年未有之大变局加速演进，人类赖以生存的地球家园遭遇着气候变化、生物多样性丧失、环境污染“三重危机”，但单边主义、保护主义抬头，生态环境领域多边合作遭遇逆流，给全球环境治理带来严峻挑战。面对人类可持续发展该何去何从的世界之问，中国坚持以习近平生态文明思想为引领，承担大国责任、展现大国担当，实现了由全球环境治理参与者到引领者的重大转变。 这些年，由于工作关系，我直接参与
+中新社内蒙古呼伦贝尔5月11日电 (记者 张玮)初夏之际，在大兴安岭的幽深密林中，清脆婉转的鹿鸣悠悠回荡，一年一度的驯鹿产仔季如期而至。 生活在内蒙古自治区呼伦贝尔根河市敖鲁古雅鄂温克民族乡的使鹿鄂温克人，是中国唯一世代驯养驯鹿的民族。千百年来，他们逐林而居、伴鹿相守，默默守护着中国最后的驯鹿种群。 目前，正值驯鹿产仔高峰期，“90后”使鹿鄂温克人阿尤莎在延续传统管护经验的同时
 
 ## 正文
 
-当前，世界百年未有之大变局加速演进，人类赖以生存的地球家园遭遇着气候变化、生物多样性丧失、环境污染“三重危机”，但单边主义、保护主义抬头，生态环境领域多边合作遭遇逆流，给全球环境治理带来严峻挑战。
+中新社内蒙古呼伦贝尔5月11日电 (记者 张玮)初夏之际，在大兴安岭的幽深密林中，清脆婉转的鹿鸣悠悠回荡，一年一度的驯鹿产仔季如期而至。
 
-面对人类可持续发展该何去何从的世界之问，中国坚持以习近平生态文明思想为引领，承担大国责任、展现大国担当，实现了由全球环境治理参与者到引领者的重大转变。
+生活在内蒙古自治区呼伦贝尔根河市敖鲁古雅鄂温克民族乡的使鹿鄂温克人，是中国唯一世代驯养驯鹿的民族。
 
-这些年，由于工作关系，我直接参与了不少生态环境领域的国际交流合作活动，愈发深刻感受到这一重大转变背后的中国智慧、中国方案、中国力量，也愈发深刻体会到习近平生态文明思想的真理力量和实践伟力。
+千百年来，他们逐林而居、伴鹿相守，默默守护着中国最后的驯鹿种群。
 
-从参与者到引领者的角色转变，不是自说自话，而是扎根于中国生态文明建设的历史性、转折性、全局性变化，印证于一系列看得见、摸得着、举世瞩目的巨大成就中。
+目前，正值驯鹿产仔高峰期，“90后”使鹿鄂温克人阿尤莎在延续传统管护经验的同时，融入科学防疫方法，全力保障驯鹿种群稳定繁育。
 
-作为新时代生态文明建设的一线参与者和见证者，我有幸更加近距离地感受到习近平生态文明思想，在“听到—读懂—认同—借鉴”的轨迹上，不断深入人心、走向世界，指引全球绿色转型和环境治理沿着正确的航向，驶向清洁、美丽、可持续的未来。
+“我将疫苗防疫贯穿繁育全过程，有效规避了驯鹿传染病的发生，提升幼鹿成活率。
 
-从“听到中国声音”到“读懂中国理念” 早些年我们出去交流，更多是讲清楚“中国做了什么”。
+” 截至目前，阿尤莎驯鹿放养点已顺利降生7头新生幼鹿，新生驯鹿的存活率达100%。
 
-我们带着各种数据图表、案例图片去参加国际会议，告诉大家我们的森林覆盖率增加了，空气质量变好了，河水变清了。
+“现在我们在山里的生活条件比以前好很多，可以住在帐篷里，也可以住在房车里，政府还给我们配备太阳能板用来取电。
 
-那时，得到的反馈常常是：“很了不起，但这是你们的国情，在别的国家不一定行得通。
+”使鹿鄂温克人觉乐从小和驯鹿生活在一起，他也见证了山里的变化。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-30 04:42 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 04:37 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-30 04:30 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
-- 2026-06-30 04:55 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-30 04:33 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-30 04:30 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-30 04:57 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
-- 2026-06-30 04:31 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ljkfm.md)
-- 2026-06-30 04:51 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 04:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
-- 2026-06-30 04:49 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-30 04:38 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 04:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
-- 2026-06-30 04:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
+- 2026-06-30 04:54 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
+- 2026-06-30 04:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
+- 2026-06-30 04:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
+- 2026-06-30 04:44 - [免费试吃发差评被店家挂店门避雷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 04:40 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tndic.md)
+- 2026-06-30 04:39 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
+- 2026-06-30 04:36 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-30 05:04 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
+- 2026-06-30 04:52 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 04:42 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanggai.md)
+- 2026-06-30 05:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:49 - [二次元提前预演明日巴西对日本](http://www.share.kurohicncr.top/Article/details/4529298408.shtml)
-- 2026-06-30 04:36 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/751267.shtml)
-- 2026-06-30 04:48 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/559540345.shtml)
-- 2026-06-30 04:55 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/84068202.shtml)
-- 2026-06-30 04:58 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/3730537198.shtml)
-- 2026-06-30 04:56 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/02721610008.shtml)
-- 2026-06-30 04:40 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/13661120.shtml)
-- 2026-06-30 04:46 - [急先锋](http://www.share.minike.top/Article/details/68545.shtml)
-- 2026-06-30 04:52 - [送你一朵小红花](http://www.blog.kurohicncr.top/Article/details/74348.shtml)
-- 2026-06-30 04:47 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/6199587.shtml)
-- 2026-06-30 04:40 - [领克汽车官宣正式进军拉力赛](http://www.share.kurohicncr.top/Article/details/750941986.shtml)
-- 2026-06-30 04:59 - [亚洲球队全部告别世界杯](http://www.blog.minike.top/Article/details/39329077.shtml)
-- 2026-06-30 04:31 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/70052.shtml)
-- 2026-06-30 04:42 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/894533650606.shtml)
-- 2026-06-30 04:59 - [院士：太空轨道必须抢](http://www.blog.kurohicncr.top/Article/details/676850948.shtml)
+- 2026-06-30 05:02 - [法国小学众筹装空调后市长下令拆除](http://www.blog.kurohicncr.top/Article/details/667425.shtml)
+- 2026-06-30 04:43 - [歌剧老师锐评歌手第6期](http://www.blog.kurohicncr.top/Article/details/3828973260.shtml)
+- 2026-06-30 04:36 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/1615798514.shtml)
+- 2026-06-30 04:41 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/7111841.shtml)
+- 2026-06-30 04:52 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/363908144718.shtml)
+- 2026-06-30 04:39 - [国务院：探索延长义务教育年限](http://www.blog.minike.top/Article/details/449278.shtml)
+- 2026-06-30 04:36 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/870608.shtml)
+- 2026-06-30 04:52 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/750571237.shtml)
+- 2026-06-30 04:54 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.kurohicncr.top/Article/details/7168498001.shtml)
+- 2026-06-30 04:51 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/129412238.shtml)
+- 2026-06-30 04:38 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.minike.top/Article/details/810351157866.shtml)
+- 2026-06-30 04:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.kurohicncr.top/Article/details/98384623947.shtml)
+- 2026-06-30 04:54 - [巴西2-1绝杀日本](http://www.share.kurohicncr.top/Article/details/722588.shtml)
+- 2026-06-30 05:05 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/05248883.shtml)
+- 2026-06-30 04:38 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/225969904.shtml)

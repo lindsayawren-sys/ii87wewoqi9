@@ -1,60 +1,60 @@
-# 香港廉政公署举办专题讲座解码“十五五”规划
+# 从“蜀道通”到“蜀道畅” 四川如何以交通大突破推动开放大提升？
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-中新社香港4月27日电 (记者 刘玥晴)香港廉政公署(简称“廉署”)近日举办“解码‘十五五’规划——对香港和廉署的启示”专题讲座，邀请复旦大学中国研究院院长张维为和清华大学公共管理学院教授鄢一龙主讲，让廉署上下深入了解国家“十五五”规划内容，并思考如何将反贪工作与国家发展大局紧密结合。 “十五五”规划纲要提出，支持港澳深度参与高质量共建“一带一路”。张维为认为，共建“一带一路”
+中新网成都5月11日电 (程兆)四川省人民政府新闻办公室11日在成都举行“开局起步‘十五五’”四川专场新闻发布会。会上，中共四川省委常委、省人民政府常务副省长董卫民表示，四川过去是“蜀道难”，现在完成了“蜀道通”，下一步要实现“蜀道畅”。 近年来，四川持续加码交通基础设施建设，不断打通内联外畅大通道。作为内陆大省，四川如何以交通大突破推动开放大提升，成为发布会上媒体关注的问题之
 
 ## 正文
 
-中新社香港4月27日电 (记者 刘玥晴)香港廉政公署(简称“廉署”)近日举办“解码‘十五五’规划——对香港和廉署的启示”专题讲座，邀请复旦大学中国研究院院长张维为和清华大学公共管理学院教授鄢一龙主讲，让廉署上下深入了解国家“十五五”规划内容，并思考如何将反贪工作与国家发展大局紧密结合。
+中新网成都5月11日电 (程兆)四川省人民政府新闻办公室11日在成都举行“开局起步‘十五五’”四川专场新闻发布会。
 
-“十五五”规划纲要提出，支持港澳深度参与高质量共建“一带一路”。
+会上，中共四川省委常委、省人民政府常务副省长董卫民表示，四川过去是“蜀道难”，现在完成了“蜀道通”，下一步要实现“蜀道畅”。
 
-张维为认为，共建“一带一路”正朝着数字化、绿色化方向发展，海量项目与资金加速流转，新型、跨境腐败风险防控的重要性愈发凸显。
+近年来，四川持续加码交通基础设施建设，不断打通内联外畅大通道。
 
-廉署辖下香港国际廉政学院曾为共建“一带一路”国家和地区举办反贪培训，未来可继续参与“一带一路”廉洁建设，分享香港经验。
+作为内陆大省，四川如何以交通大突破推动开放大提升，成为发布会上媒体关注的问题之一。
 
-鄢一龙结合廉署“一九七四”咖啡厅的文化设计阐释廉洁内涵：咖啡提神醒脑，时刻警示公职人员和市场主体保持清醒，摒弃侥幸心理，杜绝隐性贪腐、利益输送等行为。
+董卫民介绍，四川的高质量发展伴随着交通的大发展，“蜀道通”有两个标志性变化。
 
-他说，名为“清廉”“保密”“‘诚’果”的咖啡也让香港市民和各地游客更加了解廉署的工作、清廉的观念。
+首先是从外向通道看，四川正加快实现门户枢纽之变。
 
-“香港将反贪倡廉与优化营商环境紧密结合的成熟经验十分宝贵，可为国家扩大高水平对外开放、完善社会主义市场经济体制提供务实参考与支撑。
+成都国际航空枢纽运营国际(地区)客货运航线104条，通达全球46个国家，旅客吞吐量突破9000万人次、居全国第3位；中欧班列年开行量超2000列，西南首家国际公路运输集结中心在川落地。
 
-”鄢一龙指出，香港应不断发挥软实力，宣传清廉文化，讲好国家与香港的反腐败故事，提升全球廉洁治理水平。
+随着通道体系持续完善，“四川造”产品正经由“空中丝路”“钢铁驼队”高效出海，大山里的鱼子酱抢“鲜”端进欧洲餐厅，北欧三文鱼、东南亚榴莲等也在四川集散分拨全国。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
-- 2026-06-30 04:58 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
-- 2026-06-30 04:34 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
-- 2026-06-30 04:36 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
-- 2026-06-30 04:38 - [杨紫被质疑未使用原名纯属误解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 04:32 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 04:45 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 04:50 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
-- 2026-06-30 04:51 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
-- 2026-06-30 04:59 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 04:34 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
-- 2026-06-30 04:51 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 04:51 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 04:48 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-30 04:46 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 04:49 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 05:02 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-30 04:39 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 04:46 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 04:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffuaa.md)
+- 2026-06-30 05:03 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 04:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
+- 2026-06-30 04:36 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 04:37 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ekwhl.md)
+- 2026-06-30 04:46 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-30 04:44 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 04:50 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
+- 2026-06-30 05:00 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/23587399.shtml)
-- 2026-06-30 04:55 - [男生高考695分志愿报考清华](http://www.blog.kurohicncr.top/Article/details/45567.shtml)
-- 2026-06-30 04:50 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/22872417.shtml)
-- 2026-06-30 04:30 - [四川宜宾地震为何震感明显](http://www.blog.kurohicncr.top/Article/details/022390569.shtml)
-- 2026-06-30 04:30 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/85690840.shtml)
-- 2026-06-30 04:47 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.minike.top/Article/details/21148.shtml)
-- 2026-06-30 04:51 - [刘念回应](http://www.blog.minike.top/Article/details/142327939642.shtml)
-- 2026-06-30 04:50 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/67620297345.shtml)
-- 2026-06-30 04:37 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.share.minike.top/Article/details/528706997473.shtml)
-- 2026-06-30 04:39 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/198777560914.shtml)
-- 2026-06-30 04:40 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/538194985.shtml)
-- 2026-06-30 04:32 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/708820086.shtml)
-- 2026-06-30 04:58 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/8984814809.shtml)
-- 2026-06-30 04:41 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/071700172.shtml)
-- 2026-06-30 04:57 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/5672203.shtml)
+- 2026-06-30 04:57 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/64319739.shtml)
+- 2026-06-30 05:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/98547.shtml)
+- 2026-06-30 04:53 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/403189543807.shtml)
+- 2026-06-30 04:43 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/734594437.shtml)
+- 2026-06-30 04:45 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/458910.shtml)
+- 2026-06-30 04:40 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/0646586679.shtml)
+- 2026-06-30 05:05 - [本科毕业生为何涌入专科学校](http://www.blog.minike.top/Article/details/328581672185.shtml)
+- 2026-06-30 04:41 - [这些7月新规影响你我](https://www.blog.kurohicncr.top/Article/details/55314.shtml)
+- 2026-06-30 04:40 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.blog.minike.top/Article/details/67801171465.shtml)
+- 2026-06-30 04:48 - [审核了不止十年的低创鬼畜](http://www.share.kurohicncr.top/Article/details/52270368.shtml)
+- 2026-06-30 04:59 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/814309984132.shtml)
+- 2026-06-30 04:39 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/75265762.shtml)
+- 2026-06-30 04:46 - [世界杯巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/754563124.shtml)
+- 2026-06-30 04:56 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/73511.shtml)
+- 2026-06-30 05:05 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/419719.shtml)

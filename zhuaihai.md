@@ -1,52 +1,58 @@
-# 巴西监管机构批准深入调查谷歌新闻内容使用情况
+# ATFX:美国CPI数据发布 美元何去何从
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-巴西反垄断监督机构CADE周四批准了一项建议，即深化对Alphabet旗下谷歌使用新闻内容的调查，以评估该公司滥用市场支配地位的可能性。CADE的成员支持其临时负责人迪奥戈-汤姆森-德-安德拉德（Diogo Thomson de Andrade）的建议，将此案退回其总监管 ，以进行正式的行政诉讼，理由是自2019年调查开始以来，谷歌的行为发生了变化。德-安德拉德的新分析指出，谷
+专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。 ▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间
 
 ## 正文
 
-巴西反垄断监督机构CADE周四批准了一项建议，即深化对Alphabet旗下谷歌使用新闻内容的调查，以评估该公司滥用市场支配地位的可能性。
+专题：ATFX外汇专栏投稿 5月12，ATFX：北京时间今日20：30，美国将公布4月未季调CPI年率，前值为3.3%，预期值3.7%，预期增幅明显。
 
-CADE的成员支持其临时负责人迪奥戈-汤姆森-德-安德拉德（Diogo Thomson de Andrade）的建议，将此案退回其总监管 ，以进行正式的行政诉讼，理由是自2019年调查开始以来，谷歌的行为发生了变化。
+4月季调后CPI月率，同时公布，前值为0.9%，预期值0.6%，预期降幅同样明显。
 
-德-安德拉德的新分析指出，谷歌的行为是随着人工智能生成功能的发展而演变的，该功能可直接在搜索界面中合成信息。
+通胀数据同比下降而环比上升，意味着美国的短期物价水平下降但长期仍存在高通胀风险。
 
-它强调了新闻出版商在触达受众方面对谷歌搜索机制的潜在结构性依赖。
+▲ATFX图 美原油WTI在三月份涨幅明显，四月份虽然维持高位区间，但整体涨幅有限。
 
-德-安德拉德指出，这可能构成剥削性滥用，即在没有相应补偿的情况下从第三方内容中获取价值。
+CPI数据衡量的是价格增量，在国际油价温和波动的前提下，四月份环比数据极可能出现下降。
 
-责任编辑：王永生
+短期CPI数据影响短期美元走势，如果市场主流观点认为下降的环比数据会降低美联储加息的紧迫性，美元可能遭受冲击。
+
+▲ATFX图 核心CPI年率，前值为2.6%，预期值为2.7%，预期增幅不明显。
+
+核心CPI月率，前值为0.2%，预期值为0.4%，预期增幅中等。
 
 ## 相关推荐
 
-- 2026-06-30 04:39 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-30 04:43 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuzhang.md)
-- 2026-06-30 04:49 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 04:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 04:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-30 04:54 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-30 04:40 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 04:35 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haoku.md)
-- 2026-06-30 04:43 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 04:57 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 04:56 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-30 04:58 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 05:06 - [日本 高位逼抢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-30 04:58 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-30 04:47 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 04:48 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
+- 2026-06-30 04:44 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-30 04:41 - [张帅时隔四年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
+- 2026-06-30 04:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-30 04:54 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
+- 2026-06-30 04:44 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 04:47 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tupo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [85花告别古偶](https://www.blog.minike.top/Article/details/234847537170.shtml)
-- 2026-06-30 04:44 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/90380.shtml)
-- 2026-06-30 04:52 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/254254.shtml)
-- 2026-06-30 04:48 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/2471780451.shtml)
-- 2026-06-30 04:42 - [法国生态部长反对大规模安装空调](http://www.share.kurohicncr.top/Article/details/609131.shtml)
-- 2026-06-30 04:34 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/499417.shtml)
-- 2026-06-30 04:55 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/703991380801.shtml)
-- 2026-06-30 04:54 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/799446120256.shtml)
-- 2026-06-30 04:54 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/33638.shtml)
-- 2026-06-30 04:55 - [陈睿《让好内容发生》](http://www.blog.kurohicncr.top/Article/details/8489644.shtml)
-- 2026-06-30 04:40 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/24301.shtml)
-- 2026-06-30 04:59 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/94710.shtml)
-- 2026-06-30 04:55 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/251599.shtml)
-- 2026-06-30 04:57 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/72483209.shtml)
-- 2026-06-30 04:45 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/03581939298.shtml)
+- 2026-06-30 04:48 - [多人在马路中间打羽毛球 交警回应](https://www.blog.kurohicncr.top/Article/details/53419828211.shtml)
+- 2026-06-30 05:01 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/5187487.shtml)
+- 2026-06-30 04:36 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/1287658.shtml)
+- 2026-06-30 04:52 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/811980.shtml)
+- 2026-06-30 04:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/39509592.shtml)
+- 2026-06-30 04:46 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/150670.shtml)
+- 2026-06-30 04:40 - [巴西vs日本首发名单](http://www.blog.kurohicncr.top/Article/details/86182154406.shtml)
+- 2026-06-30 04:43 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/438311377370.shtml)
+- 2026-06-30 04:55 - [当语文老师求助数学老师...](http://www.blog.kurohicncr.top/Article/details/676453390.shtml)
+- 2026-06-30 04:39 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/343885508.shtml)
+- 2026-06-30 04:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.kurohicncr.top/Article/details/645729.shtml)
+- 2026-06-30 04:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/66087778803.shtml)
+- 2026-06-30 04:48 - [上半年全国特种设备安全形势总体平稳](https://www.blog.kurohicncr.top/Article/details/104333331.shtml)
+- 2026-06-30 04:58 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.minike.top/Article/details/8515253.shtml)
+- 2026-06-30 04:42 - [大范围高温会带来哪些经济影响](https://www.blog.minike.top/Article/details/11456932363.shtml)

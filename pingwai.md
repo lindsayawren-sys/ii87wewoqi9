@@ -1,59 +1,56 @@
-# “糊类第一股”黑芝麻被立案！受损股民或可索赔
+# 即将破百！44家公募包揽99只“10元基”
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-4月24日晚间，黑芝麻（维权）发布公告称，公司及公司时任董事长韦清文收到中国证监会下发的《立案告知书》。 这一纸公告，将这家老牌国货上市公司推向了舆论的风口浪尖，也让早已“退休”的66岁创始人韦清文再次回到聚光灯下。 据公开信息，董事长韦清文掌舵黑芝麻长达二十年，可以说是一手创办了该企业并成功上市，还被称为“黑芝麻第一股”。 尽管早已离开董事长的实权岗位，但在监管层的追责体系中
+来源：中国基金报 【导读】44家公募包揽99只“10元基” 见习记者 闫军 公募基金高质量发展改革一周年之际，万得偏股混合型基金指数创下新高。在为投资者赚钱的理念下，主动权益基金交出的是一份怎样的答卷？ 5月11日晚间基金净值更新后，全市场4800余只主动权益基金中，复权单位净值突破10元的产品达99只，来自44家基金公司，距离百只“10元基”时代仅一步之遥。 “10元基”意味
 
 ## 正文
 
-4月24日晚间，黑芝麻（维权）发布公告称，公司及公司时任董事长韦清文收到中国证监会下发的《立案告知书》。
+来源：中国基金报 【导读】44家公募包揽99只“10元基” 见习记者 闫军 公募基金高质量发展改革一周年之际，万得偏股混合型基金指数创下新高。
 
-这一纸公告，将这家老牌国货上市公司推向了舆论的风口浪尖，也让早已“退休”的66岁创始人韦清文再次回到聚光灯下。
+在为投资者赚钱的理念下，主动权益基金交出的是一份怎样的答卷？
 
-据公开信息，董事长韦清文掌舵黑芝麻长达二十年，可以说是一手创办了该企业并成功上市，还被称为“黑芝麻第一股”。
+5月11日晚间基金净值更新后，全市场4800余只主动权益基金中，复权单位净值突破10元的产品达99只，来自44家基金公司，距离百只“10元基”时代仅一步之遥。
 
-尽管早已离开董事长的实权岗位，但在监管层的追责体系中，只要任期内存在违规“旧账”，就无法因离职而切割责任。
+“10元基”意味着基金自成立以来为持有人创造了丰厚回报，更是基金管理人长期投资能力的体现。
 
-此次立案针对的正是韦清文任职期间公司暴露出的治理乱象。
+即便是ETF大行其道，挖掘阿尔法的主动管理能力依然是基金公司最为认可的核心竞争力。
 
-上海沪紫律师事务所刘鹏律师表示目前符合于2026年4月24日（含当日）之前买入，并在2026年4月25日之后卖出或仍持有而亏损的即可报名索赔。
+复盘这些“10元基”，一方面，可以看到公募基金行业20余年来，长期优秀业绩的产品仍然稀缺；另一方面，“10元基”也成为公募践行长期主义的最佳佐证，其中成立时间最短的东方红启恒三年持有，已运作超5年，其余98只成立时间均超10年。
 
-（黑芝麻维权入口） 梳理过往公告，此前黑芝麻已因多项违规行为被监管层多次“点名”。
+“10元基”数量距离百只仅一步之遥 宏利成长登顶 国泰基金介绍道，“10元基”指的是基金复权单位净值达到或超过10元。
 
-其中被监管查实在2020年12月至2023年期间，黑芝麻曾通过外部单位向控股股东及其关联方转付资金，形成了非经营性的资金占用。
+之所以选择复权单位净值，是考虑了基金份额的拆分、分红等情况计算出的基金净值表现，更能够反映基金长期的真实业绩。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 04:51 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 04:33 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-30 04:56 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-30 04:30 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 04:37 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 04:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 04:52 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 04:49 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-30 04:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
-- 2026-06-30 04:47 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 04:35 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-30 04:35 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 04:46 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-30 04:54 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 04:41 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mydyc.md)
+- 2026-06-30 04:52 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-30 04:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suaho.md)
+- 2026-06-30 04:55 - [我们的少年时代2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 05:01 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 04:57 - [男生高考695分志愿报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 05:03 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 04:52 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/248057.shtml)
-- 2026-06-30 04:52 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/281684867.shtml)
-- 2026-06-30 04:49 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.kurohicncr.top/Article/details/16053003.shtml)
-- 2026-06-30 04:41 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/214211811.shtml)
-- 2026-06-30 04:57 - [考入南大计算机，复读考清北值吗？](http://www.blog.kurohicncr.top/Article/details/27616.shtml)
-- 2026-06-30 04:37 - [王欣瑜连续4年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/691148478.shtml)
-- 2026-06-30 04:40 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/0001343004.shtml)
-- 2026-06-30 04:30 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/1905085.shtml)
-- 2026-06-30 04:54 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/85104.shtml)
-- 2026-06-30 04:48 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/33269533.shtml)
-- 2026-06-30 04:57 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/9568582.shtml)
-- 2026-06-30 04:46 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/8372503.shtml)
-- 2026-06-30 04:48 - [网警提醒4类“高考查分陷阱”](https://www.share.kurohicncr.top/Article/details/6170978611.shtml)
-- 2026-06-30 04:46 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/346004.shtml)
-- 2026-06-30 04:47 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/44625179652.shtml)
+- 2026-06-30 05:02 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/0194663.shtml)
+- 2026-06-30 04:39 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/98905.shtml)
+- 2026-06-30 04:49 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/601567619806.shtml)
+- 2026-06-30 05:00 - [袁咏仪张智霖儿子寸头近照](https://www.blog.minike.top/Article/details/73852.shtml)
+- 2026-06-30 05:05 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/08834.shtml)
+- 2026-06-30 04:43 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/104684.shtml)
+- 2026-06-30 04:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/940948358.shtml)
+- 2026-06-30 04:53 - [王欣瑜连续4年晋级温网第二轮](http://www.share.minike.top/Article/details/160121761.shtml)
+- 2026-06-30 05:03 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.kurohicncr.top/Article/details/412181.shtml)
+- 2026-06-30 04:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/46941.shtml)
+- 2026-06-30 04:36 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/687749677193.shtml)
+- 2026-06-30 05:01 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/84716877422.shtml)
+- 2026-06-30 04:57 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/55753233061.shtml)
+- 2026-06-30 04:43 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/99717243.shtml)
+- 2026-06-30 04:42 - [中国18岁小将再现一投夺冠](https://www.share.minike.top/Article/details/26120123857.shtml)

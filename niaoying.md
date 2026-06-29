@@ -1,61 +1,60 @@
-# 中信建投期货：4月24日能化早报
+# 中华美食在巴西：一炉烧饼出 全是“浙”里情
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-橡胶：扰动仍未结束，短期偏强震荡 周四，国产全乳胶16900/吨，环比上日下跌100元/吨；泰国20号混合胶16180元/吨，环比上日下跌40元/吨。 原料端：泰国胶水报收78.4泰铢/公斤，环比上日上涨0.1泰铢/公斤；泰国杯胶报收61.5 泰铢/公斤，环比上日上涨0.7泰铢/公斤；云南胶水报收16.2元/公斤，环比上日上涨0.2 元/公斤；海南胶水报收15.8元/公斤，环比
+中新网圣保罗5月12日电(记者 林春茵)13岁就开始学做烧饼的浙江丽水缙云籍侨胞施传明，两年前投亲来到巴西圣保罗。他卖过眼镜、守过仓库，最终是靠着一炉缙云烧饼，在圣保罗站稳了脚跟。 今年以来，圣保罗中华美食庙会频频举办，烧饼炉子一开，咸香松脆的缙云烧饼、金华酥饼就迎来如云食客。炉前帮忙擀面的巴西姑娘琳达·拉莫斯对记者说，“巴西人觉得这是最好吃的披萨，中国人觉得这是最好吃的家乡味
 
 ## 正文
 
-橡胶：扰动仍未结束，短期偏强震荡 周四，国产全乳胶16900/吨，环比上日下跌100元/吨；泰国20号混合胶16180元/吨，环比上日下跌40元/吨。
+中新网圣保罗5月12日电(记者 林春茵)13岁就开始学做烧饼的浙江丽水缙云籍侨胞施传明，两年前投亲来到巴西圣保罗。
 
-原料端：泰国胶水报收78.4泰铢/公斤，环比上日上涨0.1泰铢/公斤；泰国杯胶报收61.5 泰铢/公斤，环比上日上涨0.7泰铢/公斤；云南胶水报收16.2元/公斤，环比上日上涨0.2 元/公斤；海南胶水报收15.8元/公斤，环比上日持平。
+他卖过眼镜、守过仓库，最终是靠着一炉缙云烧饼，在圣保罗站稳了脚跟。
 
-截至2026年4月19日，中国天然橡胶社会库存133.4万吨，环比下降1.7万吨，降幅1.3%。
+今年以来，圣保罗中华美食庙会频频举办，烧饼炉子一开，咸香松脆的缙云烧饼、金华酥饼就迎来如云食客。
 
-中国深色胶社会总库存为91.9万吨，下降1.15%。
+炉前帮忙擀面的巴西姑娘琳达·拉莫斯对记者说，“巴西人觉得这是最好吃的披萨，中国人觉得这是最好吃的家乡味。
 
-其中青岛现货库存降0.8%；云南降2.4%；越南10降5.5%；NR库存小计降1.8%。
+” 守着炉子看施传明烤饼，有种质朴的烟火气。
 
-中国浅色胶社会总库存为41.5万吨，环比降1.5%。
+面是一大早揉好的——凌晨3点多起床，前一天留的老面揪子添上几大勺小麦粉，掺进温水，揉到面团光滑，“老面发的，可比酵母的来得香”。
 
-其中老全乳胶环比降1.4%，3L环比降5.3%，RU库存小计降0.09%。
+半肥瘦的猪后腿肉剁丁，梅干菜剁细，调盐调糖，这是关键，“咸淡全靠手感”。
 
-观点：近期，在国内云南海南与越南产区出现了明显的高温少雨天气，而从目前的气象数据来看，泰国、印尼、科特迪瓦等全球主产区（三者合计占比65%）尽管同样出现高温天气，但是降雨量并未出现显著异常，降雨量目前仍未低于2024年同期，均温也未高于2024年同期（2024年的天气条件相对极端），故目前的天气条件或至少优于2024年同期，因此预计天气问题对供应端的冲击弱于2024年。
+巴西木炭火起得旺，炉子很快烫起来。
 
 ## 相关推荐
 
-- 2026-06-30 04:46 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-30 04:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 04:51 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-30 04:54 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-30 04:58 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
-- 2026-06-30 04:47 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-30 04:38 - [港股科技股强势反弹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-30 04:43 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-30 04:33 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
-- 2026-06-30 04:46 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paokuai.md)
-- 2026-06-30 04:52 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-30 04:36 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 04:42 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 04:44 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-30 04:40 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-30 04:46 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djnlj.md)
+- 2026-06-30 04:45 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 04:59 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 04:44 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 04:41 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 04:51 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-30 04:40 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-30 04:44 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
+- 2026-06-30 04:45 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
+- 2026-06-30 04:48 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
+- 2026-06-30 04:55 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 04:58 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
+- 2026-06-30 04:45 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 04:58 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/31154.shtml)
-- 2026-06-30 04:52 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/24319599.shtml)
-- 2026-06-30 04:42 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/949577732708.shtml)
-- 2026-06-30 04:47 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/10733.shtml)
-- 2026-06-30 04:50 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/79808.shtml)
-- 2026-06-30 04:57 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/4286043530.shtml)
-- 2026-06-30 04:54 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/75732586807.shtml)
-- 2026-06-30 04:39 - [韩乔生吐槽世界杯扩军](https://www.share.minike.top/Article/details/467562932267.shtml)
-- 2026-06-30 04:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/36804559842.shtml)
-- 2026-06-30 04:32 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/013242.shtml)
-- 2026-06-30 04:52 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/83566933.shtml)
-- 2026-06-30 04:46 - [董卿母亲癌症去世](https://www.blog.kurohicncr.top/Article/details/2133252.shtml)
-- 2026-06-30 04:50 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/5428555362.shtml)
-- 2026-06-30 04:58 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/640933.shtml)
-- 2026-06-30 04:30 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/59224489.shtml)
+- 2026-06-30 04:43 - [曝多支争冠球队有意塞克斯顿](https://www.blog.minike.top/Article/details/151063970.shtml)
+- 2026-06-30 04:55 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.kurohicncr.top/Article/details/4455456.shtml)
+- 2026-06-30 05:00 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/88313.shtml)
+- 2026-06-30 05:00 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/94277754.shtml)
+- 2026-06-30 04:50 - [小娘惹](https://www.share.minike.top/Article/details/37837304675.shtml)
+- 2026-06-30 04:59 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/3707468637.shtml)
+- 2026-06-30 04:52 - [真实感受到千香是积压剧了](http://www.blog.minike.top/Article/details/30586503.shtml)
+- 2026-06-30 04:51 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/59447152856.shtml)
+- 2026-06-30 04:51 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/80436841275.shtml)
+- 2026-06-30 05:00 - [酒店推行“24小时退房”引热议](https://www.blog.kurohicncr.top/Article/details/3919357410.shtml)
+- 2026-06-30 04:55 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/109800913012.shtml)
+- 2026-06-30 04:46 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/28842.shtml)
+- 2026-06-30 04:42 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/353391442.shtml)
+- 2026-06-30 04:50 - [流金岁月](https://www.share.minike.top/Article/details/819174.shtml)
+- 2026-06-30 05:04 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/83368177685.shtml)

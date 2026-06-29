@@ -1,54 +1,60 @@
-# 保利集团严正声明：未开设任何黄金、原油等商品交易平台
+# A股连续4天3万亿+，增量资金买了什么？
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-中新网4月23日电(吴家驹)据“中国保利”公众号4月23日消息，中国保利集团有限公司(简称“保利集团”)发布严正声明称，近期，保利集团关注到，有不法分子以保利集团及下属企业名义开展经营和宣传活动，使用APP、网站等进行黄金交易，涉及假冒注册及虚假宣传。 声明称，经核查，窑野河流域生态治理项目办公室假冒保利集团及下属公司名义，开展柠冬塔煤矿尾矿治理项目施工活动并进行虚假宣传。保利
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：财联社 近1个月，A股交投活跃度显著提升，截至今日（5月11日）收盘，市场成交额已连续4个交易日稳定在3万亿上方，并较4月初时低点接近翻倍增长。资金端来看，融资客近段时间加仓力度明显加大，4月以来累计增持规模接近2200亿元。 目前，A股融资余额已攀升至2.78万亿元，持续刷新历史纪录。板块布局上，资
 
 ## 正文
 
-中新网4月23日电(吴家驹)据“中国保利”公众号4月23日消息，中国保利集团有限公司(简称“保利集团”)发布严正声明称，近期，保利集团关注到，有不法分子以保利集团及下属企业名义开展经营和宣传活动，使用APP、网站等进行黄金交易，涉及假冒注册及虚假宣传。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-声明称，经核查，窑野河流域生态治理项目办公室假冒保利集团及下属公司名义，开展柠冬塔煤矿尾矿治理项目施工活动并进行虚假宣传。
+来源：财联社 近1个月，A股交投活跃度显著提升，截至今日（5月11日）收盘，市场成交额已连续4个交易日稳定在3万亿上方，并较4月初时低点接近翻倍增长。
 
-保利集团及下属公司未组织、参与前述项目治理施工相关活动，亦未对窑野河流域生态治理项目办公室及相关人员进行任何授权、授意，其一切行为与保利集团无关。
+资金端来看，融资客近段时间加仓力度明显加大，4月以来累计增持规模接近2200亿元。
 
-声明还称，保利集团未开设任何黄金、原油等商品交易平台或投资理财网站。
+目前，A股融资余额已攀升至2.78万亿元，持续刷新历史纪录。
 
-保利集团提醒社会各界提高警惕、注意甄别，谨慎开展投资合作，如发现违法犯罪行为，请尽快到公安机关报案。
+板块布局上，资金扎堆TMT赛道，其中，电子板块4月以来融资净买额近879亿元，远超第二位的通信板块（224亿元），TMT四大板块合计净买额达1222亿元。
 
-此外，保利集团称，重庆聚之益能源科技有限公司、广东汇商陆铁岗投资咨询有限公司、北京创心远江科技有限公司等公司系通过伪造印章、注册材料，将企业注册为保利集团下属公司的假冒国企，实际与保利集团及所属公司无任何隶属与股权关系，也不存在任何投资、合作、业务等关系。
+个股层面，寒武纪、东山精密、中际旭创、兆易创新、海光信息等标的成为融资客4月以来重点加仓方向。
 
-(完)
+ETF资金近期则呈现分化格局，剔除价格因素，仅统计股票型ETF和QDII，跟踪港股通创新药、通信、卫星、电池、自由现金流等相关ETF基金4月以来的基金规模实现显著扩容，而头部权重宽基ETF及科创板、创业板ETF延续净赎回态势，产品份额、基金规模均明显收缩。
+
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-30 04:56 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-30 04:42 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfaqa.md)
-- 2026-06-30 04:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 04:54 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
-- 2026-06-30 04:31 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 04:45 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 04:34 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 04:45 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
-- 2026-06-30 04:52 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 04:54 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 05:04 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 05:02 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 04:45 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 04:48 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
+- 2026-06-30 04:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 04:42 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-30 05:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 04:58 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
+- 2026-06-30 04:52 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
+- 2026-06-30 05:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 04:40 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 04:37 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 04:37 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 04:51 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:55 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/65676093.shtml)
-- 2026-06-30 04:40 - [极限挑战第一季](http://www.share.minike.top/Article/details/74200.shtml)
-- 2026-06-30 04:40 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.minike.top/Article/details/49595472.shtml)
-- 2026-06-30 04:39 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/48443228.shtml)
-- 2026-06-30 04:48 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/42383.shtml)
-- 2026-06-30 04:58 - [女子用家人生日买彩票中1032万](http://www.share.kurohicncr.top/Article/details/097011219811.shtml)
-- 2026-06-30 04:42 - [日本接连三场大型军演想干什么](http://www.share.kurohicncr.top/Article/details/86348.shtml)
-- 2026-06-30 04:43 - [张帅晋级温网次轮](http://www.share.kurohicncr.top/Article/details/695513510380.shtml)
-- 2026-06-30 04:43 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/2938175278.shtml)
-- 2026-06-30 04:57 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/63204.shtml)
-- 2026-06-30 04:46 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.minike.top/Article/details/049357507690.shtml)
-- 2026-06-30 04:57 - [乔家的儿女](https://www.share.minike.top/Article/details/5712604.shtml)
-- 2026-06-30 04:58 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/4542461.shtml)
-- 2026-06-30 04:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/5763222.shtml)
-- 2026-06-30 04:56 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/238323216274.shtml)
+- 2026-06-30 04:39 - [王菲谢霆锋十指紧扣好甜](http://www.blog.minike.top/Article/details/7617438.shtml)
+- 2026-06-30 05:00 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/805143.shtml)
+- 2026-06-30 04:54 - [问心2金世佳追妻火葬场](https://www.blog.minike.top/Article/details/41734593900.shtml)
+- 2026-06-30 04:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/47910087.shtml)
+- 2026-06-30 04:45 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/20596.shtml)
+- 2026-06-30 04:47 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/00390652628.shtml)
+- 2026-06-30 04:49 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/309570258533.shtml)
+- 2026-06-30 04:53 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/2286851.shtml)
+- 2026-06-30 04:47 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/55875631582.shtml)
+- 2026-06-30 04:41 - [恋与深空回应争议](https://www.blog.minike.top/Article/details/41176879033.shtml)
+- 2026-06-30 04:52 - [恋与深空将调整引狼入室文本](http://www.share.minike.top/Article/details/866758.shtml)
+- 2026-06-30 04:58 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/37712796078.shtml)
+- 2026-06-30 04:54 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/172517545589.shtml)
+- 2026-06-30 04:51 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/822313380419.shtml)
+- 2026-06-30 04:45 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/450465164.shtml)

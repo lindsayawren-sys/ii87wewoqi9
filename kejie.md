@@ -1,57 +1,59 @@
-# 小店的“逆袭”故事藏着民营经济的活跃密码
+# 光大期货：5月12日金融日报
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-【开局之年看中国·遇见不一样的江苏】小店的“逆袭”故事藏着民营经济的活跃密码 民营经济是推进中国式现代化的生力军，是高质量发展的重要基础。“开局之年看中国·遇见不一样的江苏”采访采风团走进常州东哈·东北街边烧烤、江苏笛莎公主文化产业股份有限公司，近距离了解他们的“逆袭”故事，他们的创业佳话是无数创业者逐梦成长的缩影，也是民营经济活力迸发的鲜活注脚。 把握互联网“基因”优势 从小
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指继续大幅上涨，Wind全A上涨1.56%，成交额3.57万亿元。中证1000指数上涨1.44%，中证500指数上涨1.67%，沪深300指数上涨1.64%，上证50指数上涨1.27%。A股市场2026年一季报表现亮眼。 26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的
 
 ## 正文
 
-【开局之年看中国·遇见不一样的江苏】小店的“逆袭”故事藏着民营经济的活跃密码 民营经济是推进中国式现代化的生力军，是高质量发展的重要基础。
+股指： （王东灜，从业资格号：F03087149；交易咨询资格号：Z0019537） 昨日，全球股指继续大幅上涨，Wind全A上涨1.56%，成交额3.57万亿元。
 
-“开局之年看中国·遇见不一样的江苏”采访采风团走进常州东哈·东北街边烧烤、江苏笛莎公主文化产业股份有限公司，近距离了解他们的“逆袭”故事，他们的创业佳话是无数创业者逐梦成长的缩影，也是民营经济活力迸发的鲜活注脚。
+中证1000指数上涨1.44%，中证500指数上涨1.67%，沪深300指数上涨1.64%，上证50指数上涨1.27%。
 
-把握互联网“基因”优势 从小淘宝店到领军品牌 深耕直播为发展赋能创立于2009年的江苏笛莎公主文化产业股份有限公司曾经只是一个只有十几人的小淘宝店，如今已经发展成为国内唯一专注女童用品的领军品牌。
+A股市场2026年一季报表现亮眼。
 
-这家店是如何书写自己的“逆袭”故事的？
+26Q1全A剔除金融营收同比增速5.2%，大幅高于25Q3的0.6%，是2023年以来的最高值。
 
-笛莎以“每个女孩都是公主”为品牌核心理念，首推“中国女童用品产业”新概念，定位于“互联网+”及“文化+”领域，涵盖动漫衍生女童用品、娱乐和教育等产业链业务。
+营收同比增速可以看做是上市公司资产端收益率，该数值过去三年来首次超过主要资金利率，这代表我国实体经济在总量层面进入新的通胀阶段。
 
-除了打造IP形象，他们的秘诀就在于发挥根植于创业之初的互联网基因优势，进行数字化建设，增强效率。
+此外，全A剔除金融在一季度的净利润同比增速为11.7%，盈利端同步继续修复。
 
-笛莎采取的是线上电子商务和线下O2O体验店为一体的营销模式。
+同时，A股板块间分化严重。
 
-线下打造O2O新零售模式，已开设130多家线下体验店。
+一方面，以AI为代表的科技制造业和有色等周期板块增速迅猛。
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-30 04:59 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 04:43 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pangzhui.md)
-- 2026-06-30 04:37 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-30 04:38 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
-- 2026-06-30 04:41 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-30 04:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 04:49 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
-- 2026-06-30 04:57 - [存储三巨头遭遇集体诉讼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-30 04:50 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 04:48 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozaoe.md)
+- 2026-06-30 05:04 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
+- 2026-06-30 04:54 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aepgx.md)
+- 2026-06-30 04:58 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 04:52 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 04:50 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
+- 2026-06-30 04:56 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-30 04:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-30 04:38 - [又一家县级医院关停门诊输液大厅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-30 04:49 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-30 04:54 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 04:55 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnahe.md)
+- 2026-06-30 04:52 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 05:03 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [我们的少年时代2](http://www.share.minike.top/Article/details/63200.shtml)
-- 2026-06-30 04:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/28659357.shtml)
-- 2026-06-30 04:33 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/32533.shtml)
-- 2026-06-30 04:37 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/6715869.shtml)
-- 2026-06-30 04:36 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/105244626.shtml)
-- 2026-06-30 04:57 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/63362691208.shtml)
-- 2026-06-30 04:35 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/07215018.shtml)
-- 2026-06-30 04:43 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/861844039507.shtml)
-- 2026-06-30 04:30 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/674345.shtml)
-- 2026-06-30 04:37 - [周杰伦的歌勾起25年友情](https://www.share.kurohicncr.top/Article/details/91951.shtml)
-- 2026-06-30 04:55 - [日本进球](https://www.blog.minike.top/Article/details/8141202207.shtml)
-- 2026-06-30 04:41 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/7725014.shtml)
-- 2026-06-30 04:40 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/3429648795.shtml)
-- 2026-06-30 04:49 - [问心2神一集鬼三集](http://www.share.kurohicncr.top/Article/details/06012953145.shtml)
-- 2026-06-30 04:40 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/029032.shtml)
+- 2026-06-30 05:00 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/519346.shtml)
+- 2026-06-30 05:01 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/2784026147.shtml)
+- 2026-06-30 04:52 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/26210.shtml)
+- 2026-06-30 04:48 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/752429348.shtml)
+- 2026-06-30 05:02 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/0676828.shtml)
+- 2026-06-30 04:41 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/9102013603.shtml)
+- 2026-06-30 04:40 - [女心理师](https://www.blog.kurohicncr.top/Article/details/2050338.shtml)
+- 2026-06-30 04:47 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/589909137341.shtml)
+- 2026-06-30 05:01 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.kurohicncr.top/Article/details/77512740720.shtml)
+- 2026-06-30 04:48 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/81234.shtml)
+- 2026-06-30 05:01 - [巴西2比1日本](http://www.share.minike.top/Article/details/131310850126.shtml)
+- 2026-06-30 04:41 - [模仿老妈打牌赢了和输了的区别！](https://www.share.kurohicncr.top/Article/details/1410599447.shtml)
+- 2026-06-30 05:03 - [美股](https://www.blog.kurohicncr.top/Article/details/942732514.shtml)
+- 2026-06-30 04:48 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.blog.kurohicncr.top/Article/details/7098123675.shtml)
+- 2026-06-30 05:05 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/19990517559.shtml)

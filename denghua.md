@@ -1,60 +1,56 @@
-# 中办国办印发《关于加强新就业群体服务管理的意见》 系统性护航新就业形态
+# 清越科技（688496）拟被处罚，投资者索赔分析
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中共中央办公厅、国务院办公厅近期印发《关于加强新就业群体服务管理的意见》（以下简称《意见》），系统部署新就业群体服务管理工作，从算法规范、社保体系完善、关爱服务与社会融入、制度保障等方面作出系统性制度安排，为全国新就业群体筑牢权益保障底线。 作为数字经济时代的“城市奔跑者”，快递员、外卖骑手、网约车司机等新
+2026年5月8日公告，清越科技（688496）公司收到中国证券监督管理委员下发的《行政处罚事先告知书》（处罚字\[2026\]13号）。部分股民或许存在索赔机会。 徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+2026年5月8日公告，清越科技（688496）公司收到中国证券监督管理委员下发的《行政处罚事先告知书》（处罚字\[2026\]13号）。
 
-中共中央办公厅、国务院办公厅近期印发《关于加强新就业群体服务管理的意见》（以下简称《意见》），系统部署新就业群体服务管理工作，从算法规范、社保体系完善、关爱服务与社会融入、制度保障等方面作出系统性制度安排，为全国新就业群体筑牢权益保障底线。
+部分股民或许存在索赔机会。
 
-作为数字经济时代的“城市奔跑者”，快递员、外卖骑手、网约车司机等新就业群体，是社会主义劳动者的重要组成部分，更是经济社会发展不可或缺的重要力量。
+徐劲律师（北京市盈科（深圳）律师事务所）认为，根据证券虚假陈述新司法解释，已明确取消前置程序，投资者因上市公司虚假陈述导致损失，可以向有管辖权的法院提起民事赔偿诉讼以维护自己的合法权益，可索赔损失范围包括投资差额损失、印花税及佣金损失。
 
-近年来，平台经济蓬勃兴起，新就业形态供需两端持续扩张。
+（徐劲律师专栏） 暂定索赔条件： 在2022年12月9日至2025年11月1日期间买入，并在2025年11月1日后卖出或仍持有而亏损的投资者（最终索赔结果以法院判决为准）。
 
-暨南大学经济与社会研究院和智联招聘联合发布的《2025中国新就业形态报告》显示，2025年招聘职位数与求职人数同比分别增长15.1%和11.0%。
+（清越科技维权入口） 投资者应准备下列材料：身份证复印件，证券账户开户信息确认单（原件加盖证券公司营业部印章），证券交易记录流水（从首次买入该股票至今并加盖证券公司营业部印章，有库存股的还要打印出库存股数）。
 
-但快速发展背后，用工不规范、算法不透明、社保覆盖不足、职业认同偏低等痛点日益凸显，成为制约新业态健康发展的瓶颈。
+（本文由北京市盈科（深圳）律师事务所徐劲律师（执业证号14403200610948623）供稿，不代表新浪财经的立场。
 
-“《意见》的出台，是中央为新就业群体量身打造的重要制度安排。
+徐劲律师擅长在上市公司虚假陈述案件中为股民维权索赔，执业十余年来，曾代理投资者起诉多家上市公司成功索赔。
 
-”北京社会科学院副研究员王鹏接受证券时报记者采访时表示，新就业群体流动性强、组织化程度低，《意见》既解决了他们最关心的权益保障难题，也为新业态健康发展划定了清晰方向。
+） 责任编辑：韦子蓉
 
 ## 相关推荐
 
-- 2026-06-30 04:45 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-30 04:30 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-30 04:45 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 04:38 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
-- 2026-06-30 04:55 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-30 04:38 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
-- 2026-06-30 04:33 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 04:34 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-30 04:52 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
-- 2026-06-30 04:32 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
-- 2026-06-30 04:59 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-30 04:42 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-30 04:34 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 04:32 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqca.md)
+- 2026-06-30 04:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-30 04:43 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uscao.md)
+- 2026-06-30 04:42 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-30 04:44 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 05:03 - [男子身高一米八二仍做断骨增高](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 04:40 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 04:52 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 04:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
+- 2026-06-30 04:46 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
+- 2026-06-30 04:41 - [苗族银饰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/999953370.shtml)
-- 2026-06-30 04:40 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/0881299661.shtml)
-- 2026-06-30 04:52 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.kurohicncr.top/Article/details/67131106.shtml)
-- 2026-06-30 04:32 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.share.minike.top/Article/details/322728947.shtml)
-- 2026-06-30 04:47 - [赵今麦电影开端客串路透](http://www.blog.minike.top/Article/details/85683589461.shtml)
-- 2026-06-30 04:30 - [韩国人为什么这么在乎输赢](https://www.blog.kurohicncr.top/Article/details/456721.shtml)
-- 2026-06-30 04:50 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/315607073315.shtml)
-- 2026-06-30 04:54 - [我设置了全宇宙最安全的密码](https://www.blog.minike.top/Article/details/2968123153.shtml)
-- 2026-06-30 04:52 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.share.kurohicncr.top/Article/details/32449.shtml)
-- 2026-06-30 04:53 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/5720108567.shtml)
-- 2026-06-30 04:35 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/33583.shtml)
-- 2026-06-30 04:42 - [李在明90度鞠躬感谢韩国两大财阀](https://www.share.kurohicncr.top/Article/details/365700.shtml)
-- 2026-06-30 04:51 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/992329.shtml)
-- 2026-06-30 04:54 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/9458782837.shtml)
-- 2026-06-30 04:51 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/687280.shtml)
+- 2026-06-30 04:57 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.kurohicncr.top/Article/details/908433.shtml)
+- 2026-06-30 04:56 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/3709948848.shtml)
+- 2026-06-30 04:56 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/851682.shtml)
+- 2026-06-30 05:03 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/84551451700.shtml)
+- 2026-06-30 04:41 - [董卿父亲发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/31641450318.shtml)
+- 2026-06-30 05:02 - [袁咏仪张智霖儿子寸头近照](http://www.blog.kurohicncr.top/Article/details/17129.shtml)
+- 2026-06-30 05:05 - [月亮](http://www.blog.kurohicncr.top/Article/details/1756931.shtml)
+- 2026-06-30 04:47 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.share.kurohicncr.top/Article/details/437912855.shtml)
+- 2026-06-30 04:53 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/02951674162.shtml)
+- 2026-06-30 05:02 - [巴西醒醒 这是淘汰赛](https://www.blog.minike.top/Article/details/868286481517.shtml)
+- 2026-06-30 04:45 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/178775491185.shtml)
+- 2026-06-30 05:04 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/3463496.shtml)
+- 2026-06-30 04:56 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/15843212864.shtml)
+- 2026-06-30 04:48 - [急先锋](https://www.share.kurohicncr.top/Article/details/654334662.shtml)
+- 2026-06-30 04:48 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/72428366801.shtml)

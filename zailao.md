@@ -1,60 +1,57 @@
-# 李方慧：一路摔跤，一路成长
+# 路特斯缩减纯电动计划 定于 2028 年推出新款超跑
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网4月26日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动之“荣耀冰雪”第三站24日来到哈尔滨市复华小学校。自由式滑雪U型场地运动员李方慧通过分享自己雪上逐梦的成长故事，将中华体育精神传递给现场师生，鼓励同学们勇敢追光。 宣讲环节，李方慧以“一路摔跤、一路成长”为主题，讲述了与冰雪运动的不解之缘。从初登雪道到征战国际赛场，这条向着热爱奔跑的路，她一走
+路特斯于周二表示，计划在 2028 年推出品牌首款全新超跑，并将收缩纯电动发展布局。这家英国跑车制造商受电动汽车需求放缓、政府补贴退坡影响，正转向以混动为主的发展战略。 这家隶属吉利集团的车企，此前原定 2028 年实现全系车型纯电动化；如今在名为“2030 聚焦战略”的长期规划下，将车型结构比例调整为混动车型占 60%、纯电动车型占 40%。 此次战略调整，折射出整个汽车行业
 
 ## 正文
 
-中新网4月26日电 “中华体育精神大讲堂”校园宣讲活动、“冠军体育课”运动员进校园活动之“荣耀冰雪”第三站24日来到哈尔滨市复华小学校。
+路特斯于周二表示，计划在 2028 年推出品牌首款全新超跑，并将收缩纯电动发展布局。
 
-自由式滑雪U型场地运动员李方慧通过分享自己雪上逐梦的成长故事，将中华体育精神传递给现场师生，鼓励同学们勇敢追光。
+这家英国跑车制造商受电动汽车需求放缓、政府补贴退坡影响，正转向以混动为主的发展战略。
 
-宣讲环节，李方慧以“一路摔跤、一路成长”为主题，讲述了与冰雪运动的不解之缘。
+这家隶属吉利集团的车企，此前原定 2028 年实现全系车型纯电动化；如今在名为“2030 聚焦战略”的长期规划下，将车型结构比例调整为混动车型占 60%、纯电动车型占 40%。
 
-从初登雪道到征战国际赛场，这条向着热爱奔跑的路，她一走就是14年，“那些没打倒我的，终究会让我变得更加强大。
+此次战略调整，折射出整个汽车行业的普遍转向：各大车企正直面电动汽车市场渗透率不及预期、各国政策补贴逐步退出的行业现状。
 
-” 正是凭着这股不肯认输的倔强韧劲，李方慧把每一次摔倒都化作成长的养分，最终迎来了厚积薄发的时刻——在2026年米兰冬奥会上斩获银牌。
+路特斯透露，旗下首款全新超跑Type 135将在欧洲投产，更多详细信息将于今年晚些时候公布。
 
-她真挚的讲述，触动了在场每一位师生。
+该公司同时表示，其面向全球最大电动车市场中国推出的插混车型Eletre X，订单量已突破 1000 台，该车也计划于年底前开启欧洲市场交付。
 
-冠军体育课上，李方慧化身“特派体育老师”，与同学们一同开启了活力满满的冰雪训练体验课。
-
-李方慧先带领大家完成热身运动，充分舒展身体、做好运动准备。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-30 04:49 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 04:51 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 04:39 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-30 04:49 - [上半年全国特种设备安全形势总体平稳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 04:34 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-30 04:35 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:55 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-30 04:41 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 04:38 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 04:41 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
-- 2026-06-30 04:38 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-30 04:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-30 04:33 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
-- 2026-06-30 04:36 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 04:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-30 04:55 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gexu.md)
+- 2026-06-30 04:37 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-30 04:51 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 04:39 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
+- 2026-06-30 04:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-30 04:44 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 05:04 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 04:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 05:01 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-30 04:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 05:05 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 04:44 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/762824630.shtml)
-- 2026-06-30 04:45 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/16233.shtml)
-- 2026-06-30 04:58 - [男子诋毁袁隆平科研成果被刑拘](https://www.blog.minike.top/Article/details/60107.shtml)
-- 2026-06-30 04:33 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/5636460223.shtml)
-- 2026-06-30 04:47 - [田曦薇没招了](http://www.share.minike.top/Article/details/59552160583.shtml)
-- 2026-06-30 04:44 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/840079749810.shtml)
-- 2026-06-30 04:39 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.kurohicncr.top/Article/details/31447815.shtml)
-- 2026-06-30 04:46 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/27574894.shtml)
-- 2026-06-30 04:40 - [田曦薇没招了](http://www.share.kurohicncr.top/Article/details/4067326.shtml)
-- 2026-06-30 04:42 - [永辉超市回应两个包子卖104元](http://www.blog.kurohicncr.top/Article/details/15249.shtml)
-- 2026-06-30 04:35 - [韩国队输球后连呼吸都是错的吗](http://www.blog.minike.top/Article/details/719758697.shtml)
-- 2026-06-30 04:51 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/489393.shtml)
-- 2026-06-30 04:39 - [人类...完蛋了...](http://www.blog.minike.top/Article/details/7669652726.shtml)
-- 2026-06-30 04:58 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/39017273816.shtml)
-- 2026-06-30 04:47 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/87737918553.shtml)
+- 2026-06-30 04:36 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/413095895.shtml)
+- 2026-06-30 04:45 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/806760811.shtml)
+- 2026-06-30 05:05 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/92062203745.shtml)
+- 2026-06-30 04:44 - [俄乌双方伤亡近180万人](https://www.blog.minike.top/Article/details/432278.shtml)
+- 2026-06-30 05:04 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.kurohicncr.top/Article/details/86905785064.shtml)
+- 2026-06-30 04:44 - [我们的少年时代2](http://www.blog.minike.top/Article/details/56068.shtml)
+- 2026-06-30 04:59 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.minike.top/Article/details/3703684.shtml)
+- 2026-06-30 04:47 - [人类...完蛋了...](http://www.share.minike.top/Article/details/529985.shtml)
+- 2026-06-30 04:53 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/7805736.shtml)
+- 2026-06-30 04:55 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/09011259001.shtml)
+- 2026-06-30 04:41 - [健全中小学教师工资长效联动机制](http://www.blog.kurohicncr.top/Article/details/40081.shtml)
+- 2026-06-30 04:49 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/945220.shtml)
+- 2026-06-30 04:45 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/47037.shtml)
+- 2026-06-30 04:36 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/118796515609.shtml)
+- 2026-06-30 05:00 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/873958741571.shtml)

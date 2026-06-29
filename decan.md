@@ -1,57 +1,57 @@
-# 广合科技盘中涨超15% 预计第一季度净利润同比增长58%至66%
+# 张果彤:黄金大概率将继续震荡
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-广合科技盘中涨超15%，月内累计涨幅已超80%。截至发稿，涨7.37%，报163.10港元，成交额4.11亿港元。 广合科技拟于4月29日举行董事会会议考虑及通过一季度业绩。公司此前发布盈喜，预计2026年第一季度归属于上市公司股东的净利润为3.8亿元-4亿元，比上年同期增长58.09%-66.41%。主要得益于算力PCB市场爆发、泰国工厂产能释放及黄石子公司成本优化三大引擎驱
+5月11日，上周一美指正如预期反弹到了98.40附近后，承压受阻回落，周图收小阳柱。从图形来看，美指仍然偏弱，但震幅越来越小，本周要么继续向下创新低，要么反转向上反弹，密切关注周一区间破位情况。周一关注97.70至98.30区间，看如何破位。若向上破位，继续向上反弹概率加大，上方关注98.50和98.70和99.40；若向下破位，则向下测试97.50和97.30的概率将加大。这
 
 ## 正文
 
-广合科技盘中涨超15%，月内累计涨幅已超80%。
+5月11日，上周一美指正如预期反弹到了98.40附近后，承压受阻回落，周图收小阳柱。
 
-截至发稿，涨7.37%，报163.10港元，成交额4.11亿港元。
+从图形来看，美指仍然偏弱，但震幅越来越小，本周要么继续向下创新低，要么反转向上反弹，密切关注周一区间破位情况。
 
-广合科技拟于4月29日举行董事会会议考虑及通过一季度业绩。
+周一关注97.70至98.30区间，看如何破位。
 
-公司此前发布盈喜，预计2026年第一季度归属于上市公司股东的净利润为3.8亿元-4亿元，比上年同期增长58.09%-66.41%。
+若向上破位，继续向上反弹概率加大，上方关注98.50和98.70和99.40；若向下破位，则向下测试97.50和97.30的概率将加大。
 
-主要得益于算力PCB市场爆发、泰国工厂产能释放及黄石子公司成本优化三大引擎驱动。
+这个区域若下跌空间较小；若向上反弹空间较大。
 
-浙商证券指出，广合科技是全球服务器PCB领域的重要头部厂商之一。
+今日激进者可做多，保守者观望。
 
-公司是少数真正深度受益于AI服务器PCB升级周期的纯正标的。
+激进者操作建议：98.00附近短线做多，止损97.70，目标看向98.50和98.70，再看向99.00和99.40．控制仓量，严格止损。
 
-“三地四厂”布局逐步成型，产能、交付与全球化能力进入新阶段。
+上周一欧元正如预期下跌到1.1680，后得以支撑向上反弹，上周就是一个区间震荡格局，周图收小阳柱。
 
 ## 相关推荐
 
-- 2026-06-30 04:37 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
-- 2026-06-30 04:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 04:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
-- 2026-06-30 04:42 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 04:33 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-30 04:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-30 04:42 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 04:40 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 04:44 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
-- 2026-06-30 04:41 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 04:43 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
+- 2026-06-30 04:36 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 04:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
+- 2026-06-30 04:50 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
+- 2026-06-30 04:42 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxeul.md)
+- 2026-06-30 04:45 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 04:45 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-30 04:52 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 04:36 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 04:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 04:49 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-30 04:41 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:35 - [有哪些值得一提的生活窍门？](http://www.blog.kurohicncr.top/Article/details/97222370932.shtml)
-- 2026-06-30 04:37 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/021484808758.shtml)
-- 2026-06-30 04:59 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/1628409.shtml)
-- 2026-06-30 04:44 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/19320.shtml)
-- 2026-06-30 04:30 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/58032220067.shtml)
-- 2026-06-30 04:45 - [星链在轨运行卫星已突破1.24万颗](https://www.blog.minike.top/Article/details/94982631.shtml)
-- 2026-06-30 04:37 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/15073256134.shtml)
-- 2026-06-30 04:43 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/05546930940.shtml)
-- 2026-06-30 04:40 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/85918627811.shtml)
-- 2026-06-30 04:36 - [达美乐运输面团时被雨淋到 客服回应](https://www.share.minike.top/Article/details/410229039346.shtml)
-- 2026-06-30 04:59 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/66289426388.shtml)
-- 2026-06-30 04:51 - [沙丘](https://www.share.minike.top/Article/details/69431770001.shtml)
-- 2026-06-30 04:57 - [韩乔生吐槽世界杯扩军](http://www.share.kurohicncr.top/Article/details/76604002.shtml)
-- 2026-06-30 04:44 - [田曦薇没招了](https://www.share.minike.top/Article/details/5746562.shtml)
-- 2026-06-30 04:31 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.minike.top/Article/details/9739773857.shtml)
+- 2026-06-30 04:54 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/506145.shtml)
+- 2026-06-30 04:38 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/7309439175.shtml)
+- 2026-06-30 04:58 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/64446354.shtml)
+- 2026-06-30 05:03 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/3531465.shtml)
+- 2026-06-30 04:40 - [啊啊啊](http://www.blog.minike.top/Article/details/9807735.shtml)
+- 2026-06-30 04:39 - [巴西把自己踢晕了](https://www.share.minike.top/Article/details/86749478626.shtml)
+- 2026-06-30 04:48 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/4152233.shtml)
+- 2026-06-30 05:01 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/28614113.shtml)
+- 2026-06-30 04:59 - [韩国人为什么这么在乎输赢](http://www.share.minike.top/Article/details/480031.shtml)
+- 2026-06-30 04:46 - [考入南大计算机，复读考清北值吗？](http://www.blog.minike.top/Article/details/42196.shtml)
+- 2026-06-30 04:56 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.kurohicncr.top/Article/details/0840865996.shtml)
+- 2026-06-30 04:38 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/06325532.shtml)
+- 2026-06-30 04:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/06945.shtml)
+- 2026-06-30 04:49 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/783363856.shtml)
+- 2026-06-30 04:38 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/544712.shtml)

@@ -1,60 +1,60 @@
-# 辽宁以营商环境之“优”促文旅假日之“热”
+# RadexMarkets瑞德克斯:金价回升蓄势上行可期
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-中新网沈阳4月25日电 (记者 韩宏)“五一”未至，辽宁已“热”。随着辽宁多地推行中小学春假制度，4月末的“春假”与“五一”假期相连，不少家庭迎来长达8天的出游档期。同程旅行平台上，辽宁省“五一”旅游产品整体搜索及预订热度同比增长69%。 假日之“热”的背后，并非偶然。刚刚过去的清明假期，辽宁接待游客人次和旅游综合收入实现两位数增长。而从“听劝”服务到“免罚”清单，从智慧平台到
+5月12，国际黄金市场近期展现出企稳回升的迹象，现货金价在经历两周回调后重新站上每盎司4700美元上方，周五金价上涨0.65%至4716美元附近，白银亦同步走强超过2%。RadexMarkets瑞德克斯表示，黄金重返4700关口反映出多头力量阶段性回归，市场对前期回调的恐慌情绪逐步消化。该机构分析称，本轮反弹的支撑来自宏观因素与机构配置需求的共振，贵金属作为跨周期资产的中长期投
 
 ## 正文
 
-中新网沈阳4月25日电 (记者 韩宏)“五一”未至，辽宁已“热”。
+5月12，国际黄金市场近期展现出企稳回升的迹象，现货金价在经历两周回调后重新站上每盎司4700美元上方，周五金价上涨0.65%至4716美元附近，白银亦同步走强超过2%。
 
-随着辽宁多地推行中小学春假制度，4月末的“春假”与“五一”假期相连，不少家庭迎来长达8天的出游档期。
+RadexMarkets瑞德克斯表示，黄金重返4700关口反映出多头力量阶段性回归，市场对前期回调的恐慌情绪逐步消化。
 
-同程旅行平台上，辽宁省“五一”旅游产品整体搜索及预订热度同比增长69%。
+该机构分析称，本轮反弹的支撑来自宏观因素与机构配置需求的共振，贵金属作为跨周期资产的中长期投资逻辑依然完整。
 
-假日之“热”的背后，并非偶然。
+宏观环境方面，美联储基准利率在3.5%至3.75%区间维持稳定，中东冲突推升的能源价格使得通胀压力难以快速回落，市场对年内降息的预期明显降温。
 
-刚刚过去的清明假期，辽宁接待游客人次和旅游综合收入实现两位数增长。
+RadexMarkets瑞德克斯认为，分化的联储与不确定的政策路径使得降息时点尚难确认，但实际利率长期回落趋势并未改变。
 
-而从“听劝”服务到“免罚”清单，从智慧平台到信用监管，一场以营商环境之“优”促文旅假日之“热”的深层变革，正让辽宁成为越来越多游客“来了不想走，走了还想来”的目的地。
+该机构判断，央行储备多元化、美元体系演化与避险需求构成金价中枢上移的核心逻辑，机构客户在调整后的区间下沿配置力度有所抬升，长线资金的耐心特征非常明显。
 
-放眼一季度，辽宁省经济运行平稳开局，地区生产总值同比增长2.8%。
+技术层面看，黄金日线突破短期均线压制后多头排列重新形成，MACD动能转正，KDJ自超卖区域明显上行，显示空头力量阶段性释放完毕。
 
-尽管第三产业增速有所放缓，但新动能潜力巨大。
+机构层面亦关注到，全球央行的购金节奏并未中断，亚洲实物金需求保持稳健，ETF持仓数据的边际变化、印度与中东婚庆季实物需求以及COMEX期金交割比率，亦是观察资金面真实态度的关键观察窗口。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 04:50 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-30 04:54 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 04:47 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-30 04:50 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 04:31 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyhlg.md)
-- 2026-06-30 04:58 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
-- 2026-06-30 04:41 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 04:54 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-30 04:51 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-30 04:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 04:43 - [金牌调解](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nksic.md)
-- 2026-06-30 04:44 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-30 04:57 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
+- 2026-06-30 05:03 - [官方：建立健全学龄人口预测预警机制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 04:50 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 04:37 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-30 04:39 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 05:03 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
+- 2026-06-30 04:52 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
+- 2026-06-30 04:47 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
+- 2026-06-30 04:58 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-30 04:54 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 04:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-30 04:38 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 05:00 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 04:51 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
+- 2026-06-30 04:56 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [本西奇成本届温网女单首位晋级球员](https://www.blog.minike.top/Article/details/80217.shtml)
-- 2026-06-30 04:42 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/6268118.shtml)
-- 2026-06-30 04:41 - [巴西扳平比分](http://www.share.kurohicncr.top/Article/details/05048140782.shtml)
-- 2026-06-30 04:59 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/334873857105.shtml)
-- 2026-06-30 04:46 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/909437.shtml)
-- 2026-06-30 04:40 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/2269166.shtml)
-- 2026-06-30 04:51 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/01229591.shtml)
-- 2026-06-30 04:49 - [当语文老师求助数学老师...](https://www.blog.kurohicncr.top/Article/details/926980293.shtml)
-- 2026-06-30 04:54 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/001288989309.shtml)
-- 2026-06-30 04:52 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/979316197487.shtml)
-- 2026-06-30 04:50 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/952508891.shtml)
-- 2026-06-30 04:36 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/353183872289.shtml)
-- 2026-06-30 04:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/1008748.shtml)
-- 2026-06-30 04:44 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/05649321004.shtml)
-- 2026-06-30 04:46 - [赵今麦瘦好多](http://www.blog.kurohicncr.top/Article/details/099726.shtml)
+- 2026-06-30 04:40 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/95895.shtml)
+- 2026-06-30 04:51 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/8825145198.shtml)
+- 2026-06-30 04:45 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.kurohicncr.top/Article/details/8225264793.shtml)
+- 2026-06-30 04:51 - [袁咏仪张智霖儿子寸头近照](https://www.share.kurohicncr.top/Article/details/32078.shtml)
+- 2026-06-30 04:49 - [诋毁袁隆平的网红岂能封号了之](https://www.share.minike.top/Article/details/26820.shtml)
+- 2026-06-30 04:51 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/957682095265.shtml)
+- 2026-06-30 04:46 - [巴西队与日本队将展开正面对决](http://www.blog.minike.top/Article/details/78080133.shtml)
+- 2026-06-30 04:38 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/47681607103.shtml)
+- 2026-06-30 04:37 - [杨紫获白玉兰视后争议不止](https://www.blog.minike.top/Article/details/7246797.shtml)
+- 2026-06-30 04:47 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/603572.shtml)
+- 2026-06-30 04:57 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/93904293.shtml)
+- 2026-06-30 05:03 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/62302.shtml)
+- 2026-06-30 05:02 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/61429041600.shtml)
+- 2026-06-30 04:42 - [点菜也要教吗](https://www.share.minike.top/Article/details/004577.shtml)
+- 2026-06-30 05:05 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/50715.shtml)

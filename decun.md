@@ -1,60 +1,57 @@
-# 披露文件显示，特朗普3月份购买了至少5100万美元的债券
+# 伊朗战事推升美国通胀至近三年最高水平
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-据周六公布的财务披露文件显示，美国总统特朗普3月份购买了至少5100万美元的债券，涉及多个行业。 根据美国政府道德办公室发布的表格，特朗普上月进行了175笔金融交易。这些表格未列出每笔买卖的具体金额，仅提供了每笔交易的金额范围。披露的资产大多是各州、县、学区以及与政府机构或公私合营企业有关联的其他实体发行的市政债券。其金额在100万至500万美元之间的26笔最大交易，主要为市政
+专题：美国4月消费者物价同比上涨3.8%，创2023年5月以来新高 伊朗冲突引发油价暴涨，冲击波蔓延至美国经济，将 4 月通胀推升至 2023 年末以来最高。 伊朗战事正推动美国通胀急剧攀升，汽油价格飙升的影响传导至整个美国经济，令人不安地联想到过往能源冲击重塑数百万家庭日常生活的时代。 美国劳工统计局数据显示，截至 4 月的一年内，消费者物价指数（CPI）同比上涨 3.8%，
 
 ## 正文
 
-据周六公布的财务披露文件显示，美国总统特朗普3月份购买了至少5100万美元的债券，涉及多个行业。
+专题：美国4月消费者物价同比上涨3.8%，创2023年5月以来新高 伊朗冲突引发油价暴涨，冲击波蔓延至美国经济，将 4 月通胀推升至 2023 年末以来最高。
 
-根据美国政府道德办公室发布的表格，特朗普上月进行了175笔金融交易。
+伊朗战事正推动美国通胀急剧攀升，汽油价格飙升的影响传导至整个美国经济，令人不安地联想到过往能源冲击重塑数百万家庭日常生活的时代。
 
-这些表格未列出每笔买卖的具体金额，仅提供了每笔交易的金额范围。
+美国劳工统计局数据显示，截至 4 月的一年内，消费者物价指数（CPI）同比上涨 3.8%，高于 3 月的 3.3% 与 2 月的 2.4%。
 
-披露的资产大多是各州、县、学区以及与政府机构或公私合营企业有关联的其他实体发行的市政债券。
+4 月整体物价环比上涨 0.6%，能源价格走高是主要推手。
 
-其金额在100万至500万美元之间的26笔最大交易，主要为市政债券或美国国债，尽管其中两笔交易是购买威斯尔豪瑟公司和通用汽车公司的企业债券。
+汽油价格上月大涨 5.4%，过去一年涨幅约 30%。
 
-他还投资了一只追踪高收益债券指数的交易所交易基金。
+受去年秋季政府停摆带来的数据异常影响，此前被人为压低的住房成本，4 月环比反弹 0.6%。
 
-特朗普购买了能源、科技、医疗保健和金融服务领域的公司债券，发行方包括星座能源、西方石油、博通、英伟达、Meta Platforms、微软以及华尔街银行花旗集团、高盛和摩根大通，还有波音公司。
+此次同比涨幅创2023 年 5 月以来新高（当时通胀率达 4%），也是中东冲突连续第二个月明显推高美国居民物价。
 
-特朗普在所有资产类别中的债券购买总额约为1.61亿美元。
+4 月通胀数据亦高于经济学家预期。
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 04:51 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-30 04:33 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-30 04:47 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 04:42 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 04:48 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
-- 2026-06-30 04:38 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
-- 2026-06-30 04:43 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-30 04:57 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-30 04:51 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 04:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 04:48 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
-- 2026-06-30 04:53 - [世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 04:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 05:03 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jgnqj.md)
+- 2026-06-30 04:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 04:42 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 05:00 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 04:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
+- 2026-06-30 05:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
+- 2026-06-30 04:36 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-30 04:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-30 04:37 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 04:46 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-30 04:49 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/56097123152.shtml)
-- 2026-06-30 04:58 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/69726.shtml)
-- 2026-06-30 04:37 - [天道](http://www.share.kurohicncr.top/Article/details/0606397.shtml)
-- 2026-06-30 04:51 - [美股三大指数高开 西部数据涨超2%](https://www.blog.minike.top/Article/details/292001.shtml)
-- 2026-06-30 04:55 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/866825942.shtml)
-- 2026-06-30 04:54 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/2664711.shtml)
-- 2026-06-30 04:34 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/84793.shtml)
-- 2026-06-30 04:44 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/53820154882.shtml)
-- 2026-06-30 04:59 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/4155533.shtml)
-- 2026-06-30 04:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/334595076210.shtml)
-- 2026-06-30 04:49 - [毒液2](http://www.share.kurohicncr.top/Article/details/5351827.shtml)
-- 2026-06-30 04:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.kurohicncr.top/Article/details/5668206.shtml)
-- 2026-06-30 04:38 - [超神人辉夜姬 第二集](http://www.blog.minike.top/Article/details/028967788.shtml)
-- 2026-06-30 04:50 - [拆解FIFA和世界杯的暗面](https://www.share.kurohicncr.top/Article/details/7852048136.shtml)
-- 2026-06-30 04:37 - [恋与深空 巧合](http://www.share.minike.top/Article/details/470979911.shtml)
+- 2026-06-30 04:39 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/52652.shtml)
+- 2026-06-30 05:03 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/29412.shtml)
+- 2026-06-30 04:54 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/7076717489.shtml)
+- 2026-06-30 04:44 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/390739.shtml)
+- 2026-06-30 04:50 - [穆祉丞年度人气艺人](http://www.blog.minike.top/Article/details/02573928.shtml)
+- 2026-06-30 05:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.minike.top/Article/details/8132214556.shtml)
+- 2026-06-30 04:39 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/068966628.shtml)
+- 2026-06-30 04:39 - [女子用家人生日买彩票中1032万](https://www.share.kurohicncr.top/Article/details/973191.shtml)
+- 2026-06-30 04:57 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/94225.shtml)
+- 2026-06-30 04:50 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/99771940945.shtml)
+- 2026-06-30 05:04 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/283539.shtml)
+- 2026-06-30 05:03 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/87748379.shtml)
+- 2026-06-30 04:55 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/8595744.shtml)
+- 2026-06-30 05:05 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/08302814.shtml)
+- 2026-06-30 04:55 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/402668.shtml)

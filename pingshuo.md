@@ -1,57 +1,59 @@
-# 全国首单超额保险模式知识产权海外侵权责任险落地广州
+# 直击广西龙胜火灾现场：明火已扑灭 5栋民房受损
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网广州4月27日电 (张璐 范敏玲 郭晓金)据广州黄埔官方26日消息，“科创竞逐·知产领航——2026年广州开发区、广州市黄埔区知识产权周暨知识产权综改试验十周年主题活动”(简称“活动”)近日在广州商学院举行。该区落地全国首单超额保险模式知识产权海外侵权责任险，对为本区企事业单位投保知识产权保险的单位按投保费用最高50%给予最高100万元扶持。 如今，广州开发区、黄埔区知识
+中新网广西桂林5月11日电(杨宗盛)5月11日11时许，广西桂林龙胜各族自治县龙脊镇小寨村满田一组突发民房火灾。据了解，明火已于当日12时30分左右被扑灭，消防救援人员正对起火区域进行排查。目前，受灾民众情绪稳定，各项善后工作正有序推进。 据龙脊镇镇长俸华蔚介绍，接到报案后，龙胜各族自治县县委、县政府立即启动应急预案，该县应急管理局、消防大队、卫健局以及龙脊镇人民政府等相关部门
 
 ## 正文
 
-中新网广州4月27日电 (张璐 范敏玲 郭晓金)据广州黄埔官方26日消息，“科创竞逐·知产领航——2026年广州开发区、广州市黄埔区知识产权周暨知识产权综改试验十周年主题活动”(简称“活动”)近日在广州商学院举行。
+中新网广西桂林5月11日电(杨宗盛)5月11日11时许，广西桂林龙胜各族自治县龙脊镇小寨村满田一组突发民房火灾。
 
-该区落地全国首单超额保险模式知识产权海外侵权责任险，对为本区企事业单位投保知识产权保险的单位按投保费用最高50%给予最高100万元扶持。
+据了解，明火已于当日12时30分左右被扑灭，消防救援人员正对起火区域进行排查。
 
-如今，广州开发区、黄埔区知识产权综改交出了区域实践的答卷——累计推出全国、全省首创举措40项，全区有效发明专利拥有量达50558件，每万人发明专利拥有量达409.3件，知识产权质押融资累计超619亿元，发行全国首单纯专利、纯商标等知识产权证券化产品，落地全国首单知识产权海外侵权责任险，总保额突破10.4亿元。
+目前，受灾民众情绪稳定，各项善后工作正有序推进。
 
-在知识产权综改有力支撑下，广州开发区、黄埔区科技创新能力连续5年位居全国经开区第一，集聚近3000家国家级高新技术企业、93家上市企业，形成新能源与新型储能、智能网联和新能源汽车等5大千亿级产业集群。
+据龙脊镇镇长俸华蔚介绍，接到报案后，龙胜各族自治县县委、县政府立即启动应急预案，该县应急管理局、消防大队、卫健局以及龙脊镇人民政府等相关部门迅速赶赴现场处置。
 
-企业在海外遭遇知识产权风险时，往往面临着典型的“低频高赔”双重特征。
+经初步核实，火灾共造成5栋民房、7户人家受灾，财产损失主要为大米、农具、家电等物品。
 
-据介绍，全国首单超额保险模式知识产权海外侵权责任险创新采用“基础层+超额层”立体防护伞模式，基础层覆盖高频小额纠纷，超额层应对大额突发损失，以更低成本撬动更高保障。
+因过完春节，当地农户家中牲畜较少，未造成重大养殖损失。
 
-据了解，广州开发区、黄埔区通过持续的政策创新与市场培育，在知识产权保险领域取得令人瞩目的成就，相关核心数据指标在全国范围内已形成显著的“断层式领先”优势。
+俸华蔚表示，目前善后工作已全面展开，龙脊镇成立工作专班，对受灾民众进行“一户一专班”对接，由县委、县政府领导成员带队，逐户落实住房、医疗、防疫及生活物资保障。
 
-广东省首单重大科技攻关综合保险“穗创保”出险即赔付，破解高校及科研机构“不敢转”企业“不敢接”难题。
+应急救灾工棚及油、米等生活必需品已全部到位，能够及时满足民众基本需求。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-30 04:33 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-30 04:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
-- 2026-06-30 04:34 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
-- 2026-06-30 04:52 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-30 04:51 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-30 04:39 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-30 04:57 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-30 04:43 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-30 04:40 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-30 04:48 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 05:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-30 04:59 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-30 04:52 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 04:47 - [法国部长说装空调没用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-30 05:00 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 05:02 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nkbzg.md)
+- 2026-06-30 05:05 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
+- 2026-06-30 05:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 04:36 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
+- 2026-06-30 04:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 04:36 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 04:45 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 04:59 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:38 - [问心2金世佳追妻火葬场](https://www.share.minike.top/Article/details/68584872183.shtml)
-- 2026-06-30 04:40 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/8612955.shtml)
-- 2026-06-30 04:53 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/994799.shtml)
-- 2026-06-30 04:57 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/986626058.shtml)
-- 2026-06-30 04:57 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/1680411.shtml)
-- 2026-06-30 04:55 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/3420802.shtml)
-- 2026-06-30 04:51 - [德国vs巴拉圭](https://www.blog.minike.top/Article/details/184692.shtml)
-- 2026-06-30 04:39 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/14697239099.shtml)
-- 2026-06-30 04:59 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/52365323.shtml)
-- 2026-06-30 04:39 - [韩乔生吐槽世界杯扩军](https://www.blog.kurohicncr.top/Article/details/512798958.shtml)
-- 2026-06-30 04:53 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/968536.shtml)
-- 2026-06-30 04:49 - [AI手机进入Agent时代](https://www.share.kurohicncr.top/Article/details/47902238.shtml)
-- 2026-06-30 04:34 - [存储三巨头遭遇集体诉讼](https://www.share.minike.top/Article/details/896077.shtml)
-- 2026-06-30 04:45 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/8565735068.shtml)
-- 2026-06-30 04:55 - [一生一世](https://www.share.kurohicncr.top/Article/details/91020.shtml)
+- 2026-06-30 04:41 - [王欣瑜温网开门红](http://www.blog.kurohicncr.top/Article/details/207728972924.shtml)
+- 2026-06-30 04:44 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/158206.shtml)
+- 2026-06-30 04:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/3475121570.shtml)
+- 2026-06-30 04:54 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/799086178.shtml)
+- 2026-06-30 04:54 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/2776121.shtml)
+- 2026-06-30 05:04 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/6480611.shtml)
+- 2026-06-30 04:59 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/4142850.shtml)
+- 2026-06-30 05:03 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/280996043.shtml)
+- 2026-06-30 05:03 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/36755.shtml)
+- 2026-06-30 04:40 - [沙丘](http://www.blog.kurohicncr.top/Article/details/43019973.shtml)
+- 2026-06-30 04:44 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/22057.shtml)
+- 2026-06-30 04:46 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/498837.shtml)
+- 2026-06-30 05:04 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/286655.shtml)
+- 2026-06-30 04:52 - [日本接连三场大型军演想干什么](https://www.blog.minike.top/Article/details/230673.shtml)
+- 2026-06-30 04:42 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/32692.shtml)

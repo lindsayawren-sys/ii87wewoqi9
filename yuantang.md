@@ -1,59 +1,56 @@
-# 上海银行业务总监武俊：2026年债券市场区间震荡 中长期限波动加大
+# 地缘脱敏，铜价领涨2240元/吨：有色金属迎“结构性牛市”新周期
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会。谈及2025年债券市场表现，业务总监武俊指出，2025年债券市场经历了明显调整，收益率曲线上升且波动显著增强，调整后的收益率曲线形态与经济基本面基本吻合。对于2026年债券市场，他强调需重点关注两个方面：一是2025年曲线波动的状态记忆将延续至2026年，二是地缘政治冲突升级会对全球市场及国内债
+长江有色金属网 期货早盘休市行情： ——5月12日长江现货价格动态： 1#铜价报106790元/吨，涨2240元；升水为210元/吨，跌40元；A00铝锭报24380元/吨，跌10元；贴水报115元；0#锌报24360元/吨，涨240元；1#锌报24260元/吨，涨240元；1#铅锭报16600元/吨，跌125元；1#镍报146100元/吨，跌2600元；1#锡报431500元
 
 ## 正文
 
-4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会。
+长江有色金属网 期货早盘休市行情： ——5月12日长江现货价格动态： 1#铜价报106790元/吨，涨2240元；升水为210元/吨，跌40元；A00铝锭报24380元/吨，跌10元；贴水报115元；0#锌报24360元/吨，涨240元；1#锌报24260元/吨，涨240元；1#铅锭报16600元/吨，跌125元；1#镍报146100元/吨，跌2600元；1#锡报431500元/吨，涨750元； 周二早盘，有色金属板块延续了昨夜的强势表现，呈现出“无视地缘扰动，回归产业逻辑”的独立行情。
 
-谈及2025年债券市场表现，业务总监武俊指出，2025年债券市场经历了明显调整，收益率曲线上升且波动显著增强，调整后的收益率曲线形态与经济基本面基本吻合。
+尽管美伊谈判陷入僵局，霍尔木兹海峡的通航风险持续存在，但市场并未陷入恐慌性抛售，反而在供应端的多重硬约束下，铜、铝、锡等品种集体走强。
 
-对于2026年债券市场，他强调需重点关注两个方面：一是2025年曲线波动的状态记忆将延续至2026年，二是地缘政治冲突升级会对全球市场及国内债券市场产生影响。
+这标志着当前金属市场的定价逻辑，已从短期的地缘博弈彻底转向了长期的供需错配。
 
-不过总体而言，2026年资金利率仍将维持较低水平，债券市场将呈现区间震荡态势，其中中长期限债券波动会明显加大。
+铜：供应“硬约束”确立上涨趋势 铜价昨日强势突破13900美元/吨关口，距离历史高点仅一步之遥。
 
-在行业投资策略方面，武俊表示2025年至2026年上海银行将聚焦四个核心方向。
+当前市场已对美伊局势产生“脱敏”反应，资金关注的焦点完全落在了供应端的紧缺上。
 
-首先是加大企业债投资力度，围绕行业战略重点，着重布局科创债、绿色债和先进制造业领域，优化债券投资结构。
+印尼格拉斯伯格铜矿复产预期的反复，叠加智利矿区运营挑战，使得矿端供应持续紧张。
 
-其次，把握人民币国际化推进趋势，拓展离岸人民币资产，挖掘利差空间。
+更为严峻的是，受中东局势影响，全球硫磺及硫酸供应出现缺口，这对依赖湿法冶金的刚果（金）等主产国构成了实质性威胁，理论上最大可冲击全球约8%的矿产铜供应。
 
-第三，提升核心交易能力，加强市场联动，保持价差在收益中的贡献。
+需求端，中国库存持续去化，叠加AI算力基建与能源转型的长期托底，铜价单边上涨趋势基本确立。
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 04:39 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-30 04:55 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiegun.md)
-- 2026-06-30 04:48 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adxfe.md)
-- 2026-06-30 04:42 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-30 04:53 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-30 04:31 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-30 04:51 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 04:37 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-30 04:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 04:36 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-30 04:50 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 04:48 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-30 04:51 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-30 04:54 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-30 04:47 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 05:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 04:42 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-30 04:46 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ievbs.md)
+- 2026-06-30 04:55 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
+- 2026-06-30 04:59 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
+- 2026-06-30 04:39 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 04:37 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:41 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/53019.shtml)
-- 2026-06-30 04:36 - [张凌赫杨超越 峨眉](https://www.blog.minike.top/Article/details/2425767922.shtml)
-- 2026-06-30 04:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/19864.shtml)
-- 2026-06-30 04:49 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/77347365430.shtml)
-- 2026-06-30 04:46 - [世界杯连开三场决战](http://www.share.minike.top/Article/details/410605.shtml)
-- 2026-06-30 04:48 - [大范围高温会带来哪些经济影响](https://www.blog.kurohicncr.top/Article/details/3619767.shtml)
-- 2026-06-30 04:40 - [欧洲人高温天为啥用不了空调](https://www.share.minike.top/Article/details/34043.shtml)
-- 2026-06-30 04:43 - [数据前瞻巴西VS日本](https://www.share.minike.top/Article/details/467014056753.shtml)
-- 2026-06-30 04:58 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/201912309.shtml)
-- 2026-06-30 04:57 - [人类...完蛋了...](https://www.share.minike.top/Article/details/368871.shtml)
-- 2026-06-30 04:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/980192.shtml)
-- 2026-06-30 04:40 - [补时绝杀 巴西2-1淘汰日本](https://www.share.kurohicncr.top/Article/details/94942785.shtml)
-- 2026-06-30 04:43 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/058290366.shtml)
-- 2026-06-30 04:33 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/0607969534.shtml)
-- 2026-06-30 04:55 - [一直以为方便面汤是要倒掉的](https://www.blog.minike.top/Article/details/313002428610.shtml)
+- 2026-06-30 04:59 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/63185602.shtml)
+- 2026-06-30 04:49 - [真实感受到千香是积压剧了](http://www.blog.kurohicncr.top/Article/details/363357217661.shtml)
+- 2026-06-30 04:41 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/094332796339.shtml)
+- 2026-06-30 04:54 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.kurohicncr.top/Article/details/42014138117.shtml)
+- 2026-06-30 04:53 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/22880963.shtml)
+- 2026-06-30 04:38 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/41416713.shtml)
+- 2026-06-30 04:44 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/213611549039.shtml)
+- 2026-06-30 04:45 - [这些7月新规影响你我](http://www.blog.kurohicncr.top/Article/details/747381093.shtml)
+- 2026-06-30 04:55 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/3212471301.shtml)
+- 2026-06-30 04:39 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/813665481986.shtml)
+- 2026-06-30 05:01 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/46853793999.shtml)
+- 2026-06-30 04:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/209106.shtml)
+- 2026-06-30 04:59 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/659125646.shtml)
+- 2026-06-30 05:00 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.minike.top/Article/details/4264433223.shtml)
+- 2026-06-30 04:48 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.minike.top/Article/details/40683432.shtml)

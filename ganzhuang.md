@@ -1,55 +1,45 @@
-# 白宫晚宴枪击最新调查进展：被捕枪手为一名家教，曾留下字条
+# 视频|特朗普：期待访问中国 一定会很精彩！
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网4月27日电 据美联社27日报道，针对白宫记者协会晚宴枪击事件的最新调查结果显示，当晚被捕的加州男子是一名受过高等教育的家教和业余电子游戏开发者，他曾留下字条反对美国总统特朗普的政策。 当局称，来自加州托伦斯的艾伦于当地时间25日晚在华盛顿举行的晚宴上被拘留，一个与嫌疑人同名、照片看似吻合的社交媒体资料显示，他在过去六年间作为一名兼职家教，为希望考入大学的学生提供入学咨询
+来源：中国新闻社 责任编辑：杨赐
 
 ## 正文
 
-中新网4月27日电 据美联社27日报道，针对白宫记者协会晚宴枪击事件的最新调查结果显示，当晚被捕的加州男子是一名受过高等教育的家教和业余电子游戏开发者，他曾留下字条反对美国总统特朗普的政策。
-
-当局称，来自加州托伦斯的艾伦于当地时间25日晚在华盛顿举行的晚宴上被拘留，一个与嫌疑人同名、照片看似吻合的社交媒体资料显示，他在过去六年间作为一名兼职家教，为希望考入大学的学生提供入学咨询和考试辅导等服务。
-
-美联社获得的一份副本显示，在这名31岁男子袭击前几分钟发给家人的信息中，他自称为"友好联邦刺客"，并猛烈抨击特朗普领导下美国政府近期采取的行动，包括美国被指控在太平洋东部打击涉嫌走私毒品的船只等。
-
-当地时间26日，美国代理司法部长托德·布兰奇表示，白宫记者协会晚宴的枪手，意图刺杀美国总统特朗普及部分官员。
-
-枪击事件发生后，特朗普表示，这名嫌疑人“心中怀有很久的强烈仇恨”，并称他的家人知道他“有困难”，并证实该枪手留有字条。
-
-目前，美国联邦调查局刑事部门和反恐特遣队正在详细调查此事件。
+来源：中国新闻社 责任编辑：杨赐
 
 ## 相关推荐
 
-- 2026-06-30 04:51 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnomj.md)
-- 2026-06-30 04:54 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 04:50 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-30 04:44 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 04:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
-- 2026-06-30 04:40 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 04:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-30 04:32 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 04:52 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
-- 2026-06-30 04:45 - [巴西绝杀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-30 04:47 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
-- 2026-06-30 04:40 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 04:55 - [巴西2比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
+- 2026-06-30 04:50 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 05:02 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfemm.md)
+- 2026-06-30 04:43 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 05:04 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 04:54 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
+- 2026-06-30 04:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 05:03 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 04:49 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
+- 2026-06-30 04:45 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 04:57 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
+- 2026-06-30 04:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-30 04:49 - [问心2金世佳追妻火葬场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
+- 2026-06-30 04:38 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:40 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/176336324.shtml)
-- 2026-06-30 04:37 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/5988894369.shtml)
-- 2026-06-30 04:46 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/4764749307.shtml)
-- 2026-06-30 04:52 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/894485937747.shtml)
-- 2026-06-30 04:50 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/1993258921.shtml)
-- 2026-06-30 04:30 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.kurohicncr.top/Article/details/94343.shtml)
-- 2026-06-30 04:53 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/284381320.shtml)
-- 2026-06-30 04:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/1704027436.shtml)
-- 2026-06-30 04:55 - [张凌赫 客串](http://www.blog.kurohicncr.top/Article/details/31116435.shtml)
-- 2026-06-30 04:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.share.minike.top/Article/details/93236321182.shtml)
-- 2026-06-30 04:39 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/8205904659.shtml)
-- 2026-06-30 04:52 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/217604.shtml)
-- 2026-06-30 04:58 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.minike.top/Article/details/967771506.shtml)
-- 2026-06-30 04:34 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/127581.shtml)
-- 2026-06-30 04:31 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/46411704.shtml)
+- 2026-06-30 04:40 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/7180524514.shtml)
+- 2026-06-30 04:39 - [男子诋毁袁隆平科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/6908294.shtml)
+- 2026-06-30 04:38 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.minike.top/Article/details/216498.shtml)
+- 2026-06-30 05:03 - [斗破苍穹](https://www.share.minike.top/Article/details/98678210.shtml)
+- 2026-06-30 04:44 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/76422524.shtml)
+- 2026-06-30 04:56 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/8749021628.shtml)
+- 2026-06-30 04:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/754062.shtml)
+- 2026-06-30 04:57 - [法国小学众筹装空调后市长下令拆除](https://www.blog.kurohicncr.top/Article/details/6539534.shtml)
+- 2026-06-30 05:00 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/721898589682.shtml)
+- 2026-06-30 04:58 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/155699575.shtml)
+- 2026-06-30 04:52 - [致敬！中国首批缉毒警已全体退休](http://www.blog.minike.top/Article/details/408401967.shtml)
+- 2026-06-30 04:40 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/5661789935.shtml)
+- 2026-06-30 04:58 - [急先锋](https://www.blog.kurohicncr.top/Article/details/4405895.shtml)
+- 2026-06-30 04:39 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/87554998242.shtml)
+- 2026-06-30 04:37 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/099561778567.shtml)

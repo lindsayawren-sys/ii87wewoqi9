@@ -1,57 +1,59 @@
-# APEC“中国年”工商界活动取得重要阶段性成果
+# 英国地方选举过后，英镑汇率或将承压走弱
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新社北京4月26日电 (记者 尹倩芸)记者26日从中国贸促会获悉，APEC“中国年”工商界活动取得重要阶段性成果。 当地时间4月22日至25日，中国贸促会组织中方工商界代表团赴墨西哥首都墨西哥城，出席2026年亚太经合组织(APEC)工商咨询理事会(ABAC)第二次会议。本次会议上，ABAC对外发布《关于支持亚太自贸区的声明》和《关于支持互联互通的声明》，并通过了致APEC贸
+瑞士联合私人银行分析师在研报中表示，执政党工党与反对党保守党在上周地方选举中双双表现惨淡，英镑短期及中期走势或将承压疲软。 “此次地方选举结果可能带来若干短期与长期影响。” 分析师称，工党议员或将质疑首相基尔・斯塔默的领导能力，且目前缺乏有实力的合适继任人选。 债券市场已在一定程度上计价消化了这一风险，两年期与十年期国债收益率均出现上行。 分析师表示，在债务可持续性基本面脆弱、
 
 ## 正文
 
-中新社北京4月26日电 (记者 尹倩芸)记者26日从中国贸促会获悉，APEC“中国年”工商界活动取得重要阶段性成果。
+瑞士联合私人银行分析师在研报中表示，执政党工党与反对党保守党在上周地方选举中双双表现惨淡，英镑短期及中期走势或将承压疲软。
 
-当地时间4月22日至25日，中国贸促会组织中方工商界代表团赴墨西哥首都墨西哥城，出席2026年亚太经合组织(APEC)工商咨询理事会(ABAC)第二次会议。
+“此次地方选举结果可能带来若干短期与长期影响。
 
-本次会议上，ABAC对外发布《关于支持亚太自贸区的声明》和《关于支持互联互通的声明》，并通过了致APEC贸易部长信函和报告以及致妇女经济论坛信函。
+” 分析师称，工党议员或将质疑首相基尔・斯塔默的领导能力，且目前缺乏有实力的合适继任人选。
 
-亚太工商界就支持拓展亚太自贸区建设多元路径、制定亚太互联互通蓝图升级版阐明了共同立场，一致呼吁APEC经济体保持市场开放，持续提升区域经济一体化水平，避免采取新的贸易限制性措施，为11月领导人非正式会议积累了高质量工商界成果。
+债券市场已在一定程度上计价消化了这一风险，两年期与十年期国债收益率均出现上行。
 
-会议期间，亚太工商界围绕区域经济一体化、可持续发展、数字创新和互联互通四大重点领域深入交流，提出多项务实提案。
+分析师表示，在债务可持续性基本面脆弱、通胀预期走高的背景下，收益率上行料难以利好英镑。
 
-中国贸促会会同中方代表在会上呼吁支持亚太自贸区建设，介绍中国在“人工智能+”等前沿领域的成功经验，并就能源互联互通、零碳转型、海洋能源协同开发等议题提出多项倡议。
+欧元兑英镑上涨 0.1%，报 0.8651；瑞士联合私人银行预计年底将升至 0.90。
 
-ABAC是APEC机制中代表工商界的常设机构，向领导人会议传递工商界声音、贡献务实方案。
-
-中国贸促会承担ABAC中国秘书处工作。
+责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-30 04:37 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-30 04:43 - [锐评T1零封KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
-- 2026-06-30 04:57 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 04:58 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 04:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
-- 2026-06-30 04:33 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 04:49 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
-- 2026-06-30 04:52 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
-- 2026-06-30 04:42 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshui.md)
-- 2026-06-30 04:52 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 05:01 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-30 04:49 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 04:45 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-30 04:38 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-30 04:40 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 04:47 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 04:49 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-30 04:45 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
+- 2026-06-30 04:41 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-30 04:55 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
+- 2026-06-30 05:00 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 04:40 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 04:39 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-30 04:39 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-30 05:02 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/08821.shtml)
-- 2026-06-30 04:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/95243867511.shtml)
-- 2026-06-30 04:57 - [日本 高位逼抢](http://www.share.kurohicncr.top/Article/details/184557.shtml)
-- 2026-06-30 04:52 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/001770032225.shtml)
-- 2026-06-30 04:43 - [老外对中国cosplay竟这样评价…](https://www.blog.kurohicncr.top/Article/details/81858645640.shtml)
-- 2026-06-30 04:35 - [金刚川](http://www.blog.kurohicncr.top/Article/details/439124472940.shtml)
-- 2026-06-30 04:49 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/251201.shtml)
-- 2026-06-30 04:42 - [湖南祁东原文化馆被指贱卖](https://www.blog.minike.top/Article/details/379525.shtml)
-- 2026-06-30 04:35 - [徐亮怒斥世界杯踢假球](http://www.share.kurohicncr.top/Article/details/676039247097.shtml)
-- 2026-06-30 04:45 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/60791617.shtml)
-- 2026-06-30 04:51 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.minike.top/Article/details/209662558926.shtml)
-- 2026-06-30 04:44 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/1487534.shtml)
-- 2026-06-30 04:54 - [赵丽颖风吹半夏含金量还在上升](https://www.share.kurohicncr.top/Article/details/4046800.shtml)
-- 2026-06-30 04:55 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/334013601725.shtml)
-- 2026-06-30 04:51 - [“手机痴呆症”盯上中青年](http://www.share.minike.top/Article/details/832726.shtml)
+- 2026-06-30 04:55 - [世界杯：德国vs巴拉圭](https://www.share.minike.top/Article/details/13526402.shtml)
+- 2026-06-30 04:59 - [巴西绝杀日本](http://www.blog.minike.top/Article/details/225810.shtml)
+- 2026-06-30 04:50 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/69636.shtml)
+- 2026-06-30 04:42 - [为什么会有「念旧」的心理？](https://www.blog.kurohicncr.top/Article/details/41029354081.shtml)
+- 2026-06-30 04:43 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/64859.shtml)
+- 2026-06-30 05:05 - [爱很美味](http://www.share.minike.top/Article/details/8463554888.shtml)
+- 2026-06-30 04:38 - [日本接连三场大型军演想干什么](http://www.blog.kurohicncr.top/Article/details/61224216821.shtml)
+- 2026-06-30 05:02 - [刘必安等16人非法集资案二审宣判](http://www.share.kurohicncr.top/Article/details/80678377.shtml)
+- 2026-06-30 04:49 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/89020.shtml)
+- 2026-06-30 04:47 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/45503.shtml)
+- 2026-06-30 04:57 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/87701694674.shtml)
+- 2026-06-30 04:56 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/6307232070.shtml)
+- 2026-06-30 04:41 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/517207.shtml)
+- 2026-06-30 04:44 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/6296895136.shtml)
+- 2026-06-30 04:54 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/90311.shtml)

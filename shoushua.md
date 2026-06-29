@@ -1,57 +1,61 @@
-# 习近平总书记关切事·作风之变｜作风建设久久为功
+# 溯源南岛语族 共续海洋文脉：2026两岸海洋文化交流平台走进平潭
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-作风建设只有起点没有终点。习近平总书记指出，“作风建设永远在路上，永远没有休止符，必须抓常、抓细、抓长，持续努力、久久为功”。 当前，各地坚持以正确政绩观引领实干硬作风，运用大数据信息化赋能日常监督，强化针对性纪律教育在小事小节上锤炼作风，健全制度刚性约束推动作风建设常态长效，打好作风建设持久战，让清风正气激荡神州大地。 数字赋能监督日“常” “你们看，这条异常数据背后‘大有文
+中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。 全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中
 
 ## 正文
 
-作风建设只有起点没有终点。
+中新网福建平潭5月12日电 (李百加)2026两岸海洋文化交流平台主场活动12日在福建省平潭综合实验区举行。
 
-习近平总书记指出，“作风建设永远在路上，永远没有休止符，必须抓常、抓细、抓长，持续努力、久久为功”。
+活动以“越山向海 潮汇一脉”为主题，吸引岛内政党、社会团体代表，阿美、泰雅等10余个族群代表以及在陆台商台青等近300人参与。
 
-当前，各地坚持以正确政绩观引领实干硬作风，运用大数据信息化赋能日常监督，强化针对性纪律教育在小事小节上锤炼作风，健全制度刚性约束推动作风建设常态长效，打好作风建设持久战，让清风正气激荡神州大地。
+全国政协副主席、台盟中央主席苏辉致辞指出，福建平潭是南岛语族的“起锚之地”。
 
-数字赋能监督日“常” “你们看，这条异常数据背后‘大有文章’！
+2026年两岸海洋文化交流平台主场活动落地平潭，围绕南岛语族溯源、中华海洋文化传承等议题开展交流，有助于两岸同胞把握潮流大势、坚守民族大义、厚植历史自信。
 
-”在重庆市渝中区纪委监委的办公室内，渝中区纪委监委第七纪检监察室主任蔡文军与几名工作人员围在电脑旁，使用大数据“显微镜”精准快速地筛查异常数据。
+台盟坚持继承和弘扬台湾同胞爱国爱乡光荣传统，矢志推动两岸关系和平发展、推进祖国统一大业，通过搭建海洋文化交流平台等举措，促进两岸交流交往交融。
 
-“我们探索建立了‘数字化’反腐败工具箱，常态化分析来自职能部门的监督信息，及时发现隐藏在数据背后的廉洁风险。
+她期盼本次活动助力平潭建设两岸共同市场先行区域，加快建成经济发展、社会和谐、环境优美、独具特色的两岸同胞共同家园。
 
-”蔡文军说。
+全国政协常委、港澳台侨委员会主任刘赐贵表示，全国政协港澳台侨委员会始终把深化两岸各领域交流合作、促进两岸同胞心灵契合作为重要履职方向。
 
-今年初，渝中区纪委监委以一条异常业务数据为线索，揪出了重庆市某国企原执行董事王某某涉嫌受贿犯罪问题。
+委员会坚定支持台盟等民主党派发挥特色优势，开展形式多样的对台交流活动，为两岸同胞交流交往交融搭建更多平台、创造更好条件。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
-- 2026-06-30 04:53 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-30 04:52 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
-- 2026-06-30 04:50 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 04:53 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
-- 2026-06-30 04:53 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
-- 2026-06-30 04:34 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangliao.md)
-- 2026-06-30 04:52 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
-- 2026-06-30 04:40 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-30 04:42 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-30 04:30 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
+- 2026-06-30 04:50 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 04:57 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-30 04:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 04:52 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
+- 2026-06-30 04:53 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-30 04:38 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 04:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijws.md)
+- 2026-06-30 04:49 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-30 04:51 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 04:44 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-30 04:36 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 05:04 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
+- 2026-06-30 04:49 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 04:55 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
+- 2026-06-30 05:02 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [人类...完蛋了...](https://www.share.minike.top/Article/details/13798.shtml)
-- 2026-06-30 04:56 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/820806094.shtml)
-- 2026-06-30 04:59 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/1312934.shtml)
-- 2026-06-30 04:47 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/1884383.shtml)
-- 2026-06-30 04:49 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/11290813445.shtml)
-- 2026-06-30 04:57 - [乔家的儿女](http://www.blog.minike.top/Article/details/9921812.shtml)
-- 2026-06-30 04:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.blog.minike.top/Article/details/77686428.shtml)
-- 2026-06-30 04:52 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.kurohicncr.top/Article/details/296373336967.shtml)
-- 2026-06-30 04:51 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/20736.shtml)
-- 2026-06-30 04:44 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/135637702553.shtml)
-- 2026-06-30 04:43 - [DeepSeek启动成立来最大规模招聘](https://www.blog.minike.top/Article/details/8176339305.shtml)
-- 2026-06-30 04:33 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/5356399.shtml)
-- 2026-06-30 04:31 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/68742.shtml)
-- 2026-06-30 04:33 - [足球小将的剧本成真了](https://www.blog.kurohicncr.top/Article/details/886432747366.shtml)
-- 2026-06-30 04:50 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.minike.top/Article/details/62829071.shtml)
+- 2026-06-30 04:37 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/10509964.shtml)
+- 2026-06-30 04:57 - [男子身高一米八二仍做断骨增高](http://www.share.kurohicncr.top/Article/details/62777860880.shtml)
+- 2026-06-30 04:59 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/40899059111.shtml)
+- 2026-06-30 04:58 - [恋与深空 巧合](http://www.share.minike.top/Article/details/952825.shtml)
+- 2026-06-30 04:55 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/0886046958.shtml)
+- 2026-06-30 04:37 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/024156.shtml)
+- 2026-06-30 04:56 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.minike.top/Article/details/375845224382.shtml)
+- 2026-06-30 04:54 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/1843590111.shtml)
+- 2026-06-30 04:39 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/497703302694.shtml)
+- 2026-06-30 05:03 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/93424.shtml)
+- 2026-06-30 04:39 - [巴西vs日本首发名单](https://www.share.kurohicncr.top/Article/details/31611948.shtml)
+- 2026-06-30 04:49 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.minike.top/Article/details/6461382930.shtml)
+- 2026-06-30 04:40 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/96339.shtml)
+- 2026-06-30 04:54 - [父母催婚话术是如何做到全国统一的](https://www.blog.minike.top/Article/details/4799405.shtml)
+- 2026-06-30 04:47 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/21547253.shtml)

@@ -1,61 +1,56 @@
-# 2026五一档新片预售票房破1500万
+# 机构预测2026年泰国平均通货膨胀率为3.4%
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-据网络平台数据，2026年五一档新片预售票房突破1500万，《给阿嬷的情书》《寒战1994》《消失的人》分列前三位。 题材多元、精彩纷呈 多部新片集结五一档 今年五一假期，电影市场迎来多部新作。影片涵盖动作、喜剧、悬疑、动画、历史战争等多元题材，类型丰富、看点十足，满足不同观众观影喜好。 《浴血困牛山》 今年是红军长征胜利90周年，多部革命历史题材影片陆续上映，以光影为载体回望
+中新社曼谷5月12日电(记者 李映民)泰国开泰研究中心12日发布报告称，受能源成本上升等因素影响，预计2026年泰国平均通货膨胀率为3.4%。 报告指出，受中东冲突影响，2026年4月泰国通货膨胀率升至2.89%，为一年来首次出现正值，并创38个月新高。开泰研究中心预计，2026年平均通货膨胀率为3.4%，源于成本上升逐步传导至消费品价格。预计通胀率将在第三季度达到峰值，第四季
 
 ## 正文
 
-据网络平台数据，2026年五一档新片预售票房突破1500万，《给阿嬷的情书》《寒战1994》《消失的人》分列前三位。
+中新社曼谷5月12日电(记者 李映民)泰国开泰研究中心12日发布报告称，受能源成本上升等因素影响，预计2026年泰国平均通货膨胀率为3.4%。
 
-题材多元、精彩纷呈 多部新片集结五一档 今年五一假期，电影市场迎来多部新作。
+报告指出，受中东冲突影响，2026年4月泰国通货膨胀率升至2.89%，为一年来首次出现正值，并创38个月新高。
 
-影片涵盖动作、喜剧、悬疑、动画、历史战争等多元题材，类型丰富、看点十足，满足不同观众观影喜好。
+开泰研究中心预计，2026年平均通货膨胀率为3.4%，源于成本上升逐步传导至消费品价格。
 
-《浴血困牛山》 今年是红军长征胜利90周年，多部革命历史题材影片陆续上映，以光影为载体回望峥嵘岁月，缅怀革命先烈，传承红色基因。
+预计通胀率将在第三季度达到峰值，第四季度维持在高位。
 
-《浴血困牛山》以红六军团长征为背景，讲述了红十八师五十二团指战员转战湘桂黔边，面对数倍敌人，浴血奋战，最终100多名红军战士“宁死不伤百姓，宁死不当俘虏”，全部跳崖牺牲。
+报告认为，导致2026年泰国通胀上升的主要原因有三。
 
-“他们平均年龄甚至不到20岁。
+一是2026年第二季度能源价格显著上升。
 
-”导演张淑平说：“我们这一代人要讲好他们的故事，传承他们的精神。
+即使中东局势有所好转，下半年能源价格逐步下降，也难以恢复至战前水平。
 
-”演员卢海华激动地说：“这些没有留下姓名的英雄从来没有走远，你记得，我记得，他们就永远活着。
+泰国国内燃油价格虽然已从4月份的峰值开始回落，但预计2026年平均价格仍将高于上年。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 04:42 - [李准基参加文彩元婚礼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 04:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
-- 2026-06-30 04:48 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 04:42 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-30 04:31 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 04:30 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-30 04:39 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 04:32 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 04:49 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-30 04:43 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 04:30 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
-- 2026-06-30 04:37 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-30 04:47 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
-- 2026-06-30 04:42 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-30 04:42 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 04:44 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 04:39 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
+- 2026-06-30 04:52 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
+- 2026-06-30 04:38 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-30 04:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 04:44 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djnlj.md)
+- 2026-06-30 04:43 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
+- 2026-06-30 04:59 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
+- 2026-06-30 05:01 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:40 - [王楚钦孙颖莎混双对手产生](https://www.blog.kurohicncr.top/Article/details/79511162.shtml)
-- 2026-06-30 04:48 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/295274785.shtml)
-- 2026-06-30 04:57 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/59522729.shtml)
-- 2026-06-30 04:51 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/34006961702.shtml)
-- 2026-06-30 04:34 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/4369199.shtml)
-- 2026-06-30 04:57 - [存储三巨头遭遇集体诉讼](https://www.blog.minike.top/Article/details/48634.shtml)
-- 2026-06-30 04:53 - [恋与深空 日服](http://www.share.minike.top/Article/details/44828623.shtml)
-- 2026-06-30 04:37 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/945349151.shtml)
-- 2026-06-30 04:58 - [谢依霖说杨幂是聚会第一把张罗手](http://www.share.kurohicncr.top/Article/details/73864264584.shtml)
-- 2026-06-30 04:55 - [湖北云南的这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/5499284.shtml)
-- 2026-06-30 04:51 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/75904818.shtml)
-- 2026-06-30 04:40 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.minike.top/Article/details/4299201.shtml)
-- 2026-06-30 04:42 - [院士：太空轨道必须抢](https://www.blog.minike.top/Article/details/1741728.shtml)
-- 2026-06-30 04:43 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/926910747871.shtml)
-- 2026-06-30 04:49 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/732777247471.shtml)
+- 2026-06-30 04:40 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/7163176678.shtml)
+- 2026-06-30 05:03 - [本西奇成本届温网女单首位晋级球员](http://www.blog.kurohicncr.top/Article/details/25354987.shtml)
+- 2026-06-30 04:38 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/9381032.shtml)
+- 2026-06-30 04:55 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/08623284639.shtml)
+- 2026-06-30 04:43 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/720548.shtml)
+- 2026-06-30 04:45 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/1279097231.shtml)
+- 2026-06-30 04:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/547204068856.shtml)
+- 2026-06-30 04:47 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/7879262541.shtml)
+- 2026-06-30 04:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.blog.minike.top/Article/details/57836.shtml)
+- 2026-06-30 05:05 - [美人鱼](https://www.blog.minike.top/Article/details/35354.shtml)
+- 2026-06-30 05:03 - [锐评T1零封KC](https://www.share.minike.top/Article/details/8163883870.shtml)
+- 2026-06-30 04:45 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/398925.shtml)
+- 2026-06-30 04:50 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/99206990.shtml)
+- 2026-06-30 04:59 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/75061086990.shtml)
+- 2026-06-30 04:42 - [鉴定师的失败救赎](http://www.share.minike.top/Article/details/839949392395.shtml)

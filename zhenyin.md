@@ -1,57 +1,59 @@
-# 泛林集团发布强劲Q3业绩，AI需求持续推动增长
+# 周天勇：劳动力流动贡献的经济增长和近年的下行压力
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-泛林集团公布了令人印象深刻的季度业绩，尽管表现强劲且对第四季度（6月）给出了乐观预测，其股价仍出现小幅下跌。这家半导体行业晶圆制造设备的领先供应商实现调整后每股收益1.47美元，同比增长41%。营收也同比增长24%，达到58.4亿美元。对于第四季度（6月），公司预计每股收益在1.50至1.80美元之间，营收预计在62亿至70亿美元之间。 AI需求驱动成功 对AI的持续需求是泛林
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：天勇谈经济 前天晚上才看到4月30日，新浪财经转了一篇化名“九门提督”的热心网友的《评周天勇“一元论”： 还是两条腿走路靠谱！》的文章，发表在2022年5月18日。笔者就此回答一下，用数据通俗地再现一下48年二元体制变动影响的国民经济流动和增长。今天先发出之一。 周天勇 看来其文章是明显对我目前计划行
 
 ## 正文
 
-泛林集团公布了令人印象深刻的季度业绩，尽管表现强劲且对第四季度（6月）给出了乐观预测，其股价仍出现小幅下跌。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这家半导体行业晶圆制造设备的领先供应商实现调整后每股收益1.47美元，同比增长41%。
+来源：天勇谈经济 前天晚上才看到4月30日，新浪财经转了一篇化名“九门提督”的热心网友的《评周天勇“一元论”： 还是两条腿走路靠谱！
 
-营收也同比增长24%，达到58.4亿美元。
+》的文章，发表在2022年5月18日。
 
-对于第四季度（6月），公司预计每股收益在1.50至1.80美元之间，营收预计在62亿至70亿美元之间。
+笔者就此回答一下，用数据通俗地再现一下48年二元体制变动影响的国民经济流动和增长。
 
-AI需求驱动成功 对AI的持续需求是泛林集团成功的驱动力，因为AI计算的需求增加了所有主要器件领域的沉积和蚀刻工艺强度。
+今天先发出之一。
 
-对AI数据中心存储的需求推动了NAND闪存需求的加强，促使技术升级。
+周天勇 看来其文章是明显对我目前计划行政与市场机制二元体制，向一元社会主义市场经济转轨带来经济增长，还有转轨缓慢和停滞形成的增长下行的解释没有理解，认为发展经济靠计划行政和市场机制，即还是由两种资源配置体制走路靠谱。
 
-DRAM内存也受益于高带宽内存需求以及向更注重能效的先进制程的转变。
+论述体制作用与经济产出和增长的关系，的确是一个学术问题。
 
-代工和逻辑芯片领域依然强劲，先进封装收入预计在2026年增长超过50%。
+为什么称之为国民经济工程实验室？
 
 ## 相关推荐
 
-- 2026-06-30 04:36 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-30 04:35 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
-- 2026-06-30 04:58 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-30 04:42 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-30 04:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-30 04:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
-- 2026-06-30 04:45 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 04:59 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 04:49 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 04:57 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 04:39 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
+- 2026-06-30 04:37 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 04:57 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 04:55 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 04:49 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 04:55 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 04:57 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 04:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
+- 2026-06-30 04:55 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 05:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 04:52 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 04:41 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 04:37 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jlszu.md)
+- 2026-06-30 04:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/136281219.shtml)
-- 2026-06-30 04:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/065621.shtml)
-- 2026-06-30 04:35 - [月亮](https://www.share.minike.top/Article/details/64071784.shtml)
-- 2026-06-30 04:39 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/55653144.shtml)
-- 2026-06-30 04:38 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3439479.shtml)
-- 2026-06-30 04:34 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/82263551781.shtml)
-- 2026-06-30 04:39 - [徐亮怒斥世界杯踢假球](https://www.blog.minike.top/Article/details/01670003957.shtml)
-- 2026-06-30 04:36 - [我觉得你是在无中生友](https://www.share.minike.top/Article/details/546491059.shtml)
-- 2026-06-30 04:51 - [UP主复刻百万英镑牛排套餐](http://www.blog.minike.top/Article/details/51758.shtml)
-- 2026-06-30 04:49 - [世界杯巴西vs日本前瞻](http://www.blog.minike.top/Article/details/08936404.shtml)
-- 2026-06-30 04:51 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/92524.shtml)
-- 2026-06-30 04:58 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/078813665567.shtml)
-- 2026-06-30 04:49 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/50618.shtml)
-- 2026-06-30 04:59 - [中国18岁小将再现一投夺冠](http://www.share.minike.top/Article/details/3880829.shtml)
-- 2026-06-30 04:59 - [第一炉香](http://www.share.kurohicncr.top/Article/details/065348471546.shtml)
+- 2026-06-30 04:59 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/7208310455.shtml)
+- 2026-06-30 04:39 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/855300876113.shtml)
+- 2026-06-30 04:50 - [我把队友的7连跪剪成了艺术](http://www.blog.kurohicncr.top/Article/details/1309071.shtml)
+- 2026-06-30 04:44 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/7355392.shtml)
+- 2026-06-30 04:59 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/714055345.shtml)
+- 2026-06-30 04:39 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.kurohicncr.top/Article/details/7651912676.shtml)
+- 2026-06-30 04:58 - [中方追加1亿元物资援助委内瑞拉](http://www.blog.kurohicncr.top/Article/details/68604.shtml)
+- 2026-06-30 04:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/990270420.shtml)
+- 2026-06-30 04:42 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/7140624.shtml)
+- 2026-06-30 04:40 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/440812899.shtml)
+- 2026-06-30 04:38 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/32432.shtml)
+- 2026-06-30 04:44 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.minike.top/Article/details/65451706.shtml)
+- 2026-06-30 04:37 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/2825662484.shtml)
+- 2026-06-30 04:57 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/4211303.shtml)
+- 2026-06-30 04:51 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](http://www.blog.kurohicncr.top/Article/details/84435549891.shtml)

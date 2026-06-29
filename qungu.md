@@ -1,56 +1,60 @@
-# 四大证券报头版头条内容精华摘要_2026年4月24日_财经新闻
+# 中国地震局：61.3%的公众基本具备防震避险能力
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月24日（星期五），今日报刊头条主要内容精华如下： 中国证券报 一季报密集披露 社保基金大幅加仓这些股票 随着上市公司一季报密集披露，社保基金2026年一季度末重仓股及一季度持股变动情况浮出水面。Wind数据显示，截至4月22日，已有763家A股上市公司披露2026年一季报。其中，1
+中新网吉林5月12日电 (记者 孙自法)中国地震局5月12日发布的公众防震避险能力评估结果显示，包括具备较好防震避险能力、具备防震避险能力、具有一定的防震避险能力等三种情况在内，61.3%的公众基本具备防震避险能力，38.7%的公众能力不足。 当天是中国第18个全国防灾减灾日，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防
 
 ## 正文
 
-专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网吉林5月12日电 (记者 孙自法)中国地震局5月12日发布的公众防震避险能力评估结果显示，包括具备较好防震避险能力、具备防震避险能力、具有一定的防震避险能力等三种情况在内，61.3%的公众基本具备防震避险能力，38.7%的公众能力不足。
 
-4月24日（星期五），今日报刊头条主要内容精华如下： 中国证券报 一季报密集披露 社保基金大幅加仓这些股票 随着上市公司一季报密集披露，社保基金2026年一季度末重仓股及一季度持股变动情况浮出水面。
+当天是中国第18个全国防灾减灾日，聚焦“提升公众避险能力，夯实防震减灾基础”主题，中国地震局、吉林省人民政府在吉林市共同举办第三届全国防震减灾科普主场活动。
 
-Wind数据显示，截至4月22日，已有763家A股上市公司披露2026年一季报。
+中国地震局在活动上发布了公众防震避险能力评估结果。
 
-其中，118家上市公司的前十大流通股东名单中出现了社保基金的身影。
+该评估基于中国地震局2025年印发的《防震减灾基本知识与技能大纲及释义》构建，以线上抽样问卷调查形式开展，本次调查共覆盖31个省(自治区、直辖市)110个地级市、630个区、1473个乡镇、5683个社区(村)。
 
-社保基金在一季度新进成为32只个股的前十大流通股东，并对另外40只个股的持股数量较上季度末有所增加。
+调查对象为10岁-74周岁居民，获得有效样本80845份，涵盖不同职业、学历人群。
 
-存储、代工龙头齐创新高 半导体硬件成AI高确定性赛道 4月22日，美股半导体板块再度成为市场焦点。
+据中国地震局公共服务司介绍，经过对调查样本得分进行分布统计与聚类分析，形成四级能力分类：4.7%的公众具备较好防震避险能力，14.5%的公众具备防震避险能力，42.1%的公众具有一定的防震避险能力，38.7%的公众能力不足。
 
-某存储芯片龙头收盘上涨8.48%，创历史新高。
+从能力维度上看，公众避险知识技能相对较好，风险与科学认知存在短板，防灾意识与应急准备偏弱，信息渠道多元化不足。
 
-同日，另一晶圆代工龙头发布的一季报同样令市场振奋：营收359亿美元，同比增长近41%，毛利率达66.2%创下历史新高，AI相关需求被描述为“持续极度强劲”。
+从年龄结构上看，10岁-14岁的少年组具备防震避险能力占比最高，为21.9%；从学历水平上看，防震避险能力与受教育程度呈正相关关系；从职业分类上看，机关事业单位人员、专业技术人员、学生三类群体具备防震避险能力占比最高，均超过了20%。
 
 ## 相关推荐
 
-- 2026-06-30 04:41 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-30 04:47 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 04:35 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-30 04:45 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 04:31 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-30 04:53 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
-- 2026-06-30 04:31 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 04:51 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
-- 2026-06-30 04:52 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 04:34 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-30 04:48 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-30 04:44 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 05:05 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 05:01 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 04:45 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
+- 2026-06-30 05:04 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 04:39 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-30 04:51 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
+- 2026-06-30 04:46 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 05:05 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-30 04:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 04:58 - [一切民族英雄都是中华民族的脊梁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
+- 2026-06-30 04:54 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 04:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:46 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/735694796.shtml)
-- 2026-06-30 04:37 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/505292.shtml)
-- 2026-06-30 04:48 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/665044873.shtml)
-- 2026-06-30 04:55 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.blog.minike.top/Article/details/543825498.shtml)
-- 2026-06-30 04:37 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/02644010.shtml)
-- 2026-06-30 04:31 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/6540082.shtml)
-- 2026-06-30 04:57 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/861789089.shtml)
-- 2026-06-30 04:34 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/72689.shtml)
-- 2026-06-30 04:56 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/5129930.shtml)
-- 2026-06-30 04:46 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/70644.shtml)
-- 2026-06-30 04:34 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/9950122.shtml)
-- 2026-06-30 04:55 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/36471083.shtml)
-- 2026-06-30 04:32 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.share.minike.top/Article/details/728376636011.shtml)
-- 2026-06-30 04:34 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/56771.shtml)
-- 2026-06-30 04:55 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/174099.shtml)
+- 2026-06-30 04:47 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/07909853.shtml)
+- 2026-06-30 04:43 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/71543.shtml)
+- 2026-06-30 04:40 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/4046378.shtml)
+- 2026-06-30 04:45 - [女子清吧被陌生人投放伟哥](https://www.share.kurohicncr.top/Article/details/775978.shtml)
+- 2026-06-30 04:41 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/766733393.shtml)
+- 2026-06-30 05:05 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/1491093414.shtml)
+- 2026-06-30 04:40 - [韩国人为什么这么在乎输赢](http://www.blog.kurohicncr.top/Article/details/069169291.shtml)
+- 2026-06-30 04:57 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/1516693.shtml)
+- 2026-06-30 04:51 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/621404749481.shtml)
+- 2026-06-30 04:48 - [恋与深空将调整引狼入室文本](http://www.blog.minike.top/Article/details/8472027258.shtml)
+- 2026-06-30 04:56 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/7788754493.shtml)
+- 2026-06-30 05:04 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/6677561.shtml)
+- 2026-06-30 05:02 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/55543816978.shtml)
+- 2026-06-30 04:50 - [时光音乐会](https://www.blog.minike.top/Article/details/697775.shtml)
+- 2026-06-30 05:03 - [亚洲球队全部告别世界杯](https://www.share.minike.top/Article/details/76268549028.shtml)

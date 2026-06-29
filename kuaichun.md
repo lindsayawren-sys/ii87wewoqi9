@@ -1,61 +1,61 @@
-# 民族节庆多姿多彩 浙江黄岩文化交融续写同心“石榴情”
+# 联合国教科文组织发布首份《高等教育全球趋势报告》
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网台州4月25日电(周健 章鸣宇)古桥映春水，山歌聚同心。4月24日晚，浙江台州黄岩区五洞桥两岸灯火璀璨、人流如织，一场热闹喜庆的“三月三”各族民众联欢活动精彩上演。各族民众身着盛装齐聚河畔，赏实景歌舞、逛非遗市集、品民族美食，沉浸式感受浓郁民俗氛围，在欢声笑语中拉近彼此距离。 “山歌好比春江水，不怕滩险弯又多。”随着悠扬歌声在夜空中响起，千年五洞桥化作天然实景大舞台。民族
+中新网巴黎5月12日电 联合国教科文组织12日发布首份《高等教育全球趋势报告》。 报告显示，过去20年间，全球高等教育在校生人数增长超过一倍，2024年达到2.69亿人。同一时期，国际学生流动规模增长2倍，赴海外求学的学生接近730万人，其中一半在欧洲和北美国家就读。如今，高等教育阶段女性人数已超过男性，但在博士阶段仍居少数。与此同时，全球区域间不平等问题依然突出，撒哈拉以南非
 
 ## 正文
 
-中新网台州4月25日电(周健 章鸣宇)古桥映春水，山歌聚同心。
+中新网巴黎5月12日电 联合国教科文组织12日发布首份《高等教育全球趋势报告》。
 
-4月24日晚，浙江台州黄岩区五洞桥两岸灯火璀璨、人流如织，一场热闹喜庆的“三月三”各族民众联欢活动精彩上演。
+报告显示，过去20年间，全球高等教育在校生人数增长超过一倍，2024年达到2.69亿人。
 
-各族民众身着盛装齐聚河畔，赏实景歌舞、逛非遗市集、品民族美食，沉浸式感受浓郁民俗氛围，在欢声笑语中拉近彼此距离。
+同一时期，国际学生流动规模增长2倍，赴海外求学的学生接近730万人，其中一半在欧洲和北美国家就读。
 
-“山歌好比春江水，不怕滩险弯又多。
+如今，高等教育阶段女性人数已超过男性，但在博士阶段仍居少数。
 
-”随着悠扬歌声在夜空中响起，千年五洞桥化作天然实景大舞台。
+与此同时，全球区域间不平等问题依然突出，撒哈拉以南非洲等地区的高等教育入学率和毕业率仍然偏低。
 
-民族同胞临水而立、踏歌起舞，桥上光影摇曳，水面倒映舞姿。
+联合国教科文组织总干事埃纳尼表示，高等教育在建设可持续社会方面发挥着不可替代的作用。
 
-悠扬的山歌穿桥过水、回荡河畔，岸边市民驻足聆听、应声附和，桥、水、人、景浑然一体。
+新报告表明，全球对高等教育的需求持续增长。
 
-“灯光好看、山歌好听，人们在桥边水边一起看演出，沉浸式体验感特别好。
+然而，这种扩张并不总能转化为公平的机会，这凸显出建立创新型筹资模式，以提供高质量、包容性的高等教育的重要性。
 
 ## 相关推荐
 
-- 2026-06-30 04:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
-- 2026-06-30 04:37 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
-- 2026-06-30 04:43 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-30 04:33 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 04:32 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tfmcr.md)
-- 2026-06-30 04:43 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
-- 2026-06-30 04:58 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
-- 2026-06-30 04:54 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-30 04:58 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 04:41 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 04:38 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-30 04:31 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
-- 2026-06-30 04:55 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-30 04:41 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 04:57 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 04:54 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 04:52 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 04:40 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 04:36 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-30 04:45 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 04:59 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 04:48 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
+- 2026-06-30 04:55 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-30 04:52 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 05:04 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
+- 2026-06-30 04:37 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-30 04:48 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
+- 2026-06-30 04:55 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-30 04:39 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 04:53 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/412561231.shtml)
-- 2026-06-30 04:44 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/0954010.shtml)
-- 2026-06-30 04:46 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/75427730.shtml)
-- 2026-06-30 04:31 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/011299781.shtml)
-- 2026-06-30 04:47 - [日本半场1比0领先巴西](https://www.blog.minike.top/Article/details/1445875.shtml)
-- 2026-06-30 04:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/3536878693.shtml)
-- 2026-06-30 04:51 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/1625812.shtml)
-- 2026-06-30 04:30 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/59723455.shtml)
-- 2026-06-30 04:44 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/6589370.shtml)
-- 2026-06-30 04:30 - [国内最大沙漠发洪水意味着什么](http://www.share.kurohicncr.top/Article/details/243201488.shtml)
-- 2026-06-30 04:36 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/639018224455.shtml)
-- 2026-06-30 04:45 - [AI手机进入Agent时代](https://www.share.minike.top/Article/details/75574370710.shtml)
-- 2026-06-30 04:48 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/298792635.shtml)
-- 2026-06-30 04:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/441243.shtml)
-- 2026-06-30 04:30 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/67719.shtml)
+- 2026-06-30 04:52 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.blog.minike.top/Article/details/365333052.shtml)
+- 2026-06-30 04:47 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/281884.shtml)
+- 2026-06-30 05:05 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/901040.shtml)
+- 2026-06-30 04:46 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/50818016723.shtml)
+- 2026-06-30 05:04 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/092388136090.shtml)
+- 2026-06-30 04:54 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/297487.shtml)
+- 2026-06-30 04:43 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.minike.top/Article/details/79206721700.shtml)
+- 2026-06-30 04:38 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/45401479658.shtml)
+- 2026-06-30 05:04 - [【全网首杀】涤墨作战7人870分](http://www.share.kurohicncr.top/Article/details/319815491552.shtml)
+- 2026-06-30 04:49 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/2542619.shtml)
+- 2026-06-30 04:53 - [永辉超市回应两个包子卖104元](https://www.blog.kurohicncr.top/Article/details/43118.shtml)
+- 2026-06-30 04:49 - [张凌赫 客串](http://www.blog.minike.top/Article/details/5209923.shtml)
+- 2026-06-30 04:40 - [起风了](http://www.share.minike.top/Article/details/832271485.shtml)
+- 2026-06-30 05:04 - [世界杯：德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/20228.shtml)
+- 2026-06-30 04:38 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/96299190.shtml)

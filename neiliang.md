@@ -1,57 +1,58 @@
-# 欧美同学会赴楚雄市开展国情教育研习活动
+# 监管重拳出击，这五家上市公司大批投资者索赔，点击查看→
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-2026年4月23日，欧美同学会“知国情、话自信”留学人员国情教育研习班一行53人走进楚雄市，开展国情教育研习活动。 活动期间，研习班学员先后参访了中国彝医药博览馆和楚雄市御留花卉有限公司。 在中国彝医药博览馆，学员们深入了解楚雄彝医药种植研发、生产加工、康养服务的全产业链发展历程，对楚雄打造“滇中药谷”的生动实践给予充分肯定。 在楚雄市御留花卉有限公司，学员们实地观摩了花卉种
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！2026年的年报季，对于持有科蓝软件（维权）、*ST福成（维权）、利欧股份（维权）、兴化股份、ST南都（维权）（南都电源）这五只股票的投资者来说，并不好过。从突如其来的立案调查，到业绩预告的离奇“变脸”，再到因内控失效导致的“戴帽”ST，资本市场的波动让不少
 
 ## 正文
 
-2026年4月23日，欧美同学会“知国情、话自信”留学人员国情教育研习班一行53人走进楚雄市，开展国情教育研习活动。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-活动期间，研习班学员先后参访了中国彝医药博览馆和楚雄市御留花卉有限公司。
+2026年的年报季，对于持有科蓝软件（维权）、*ST福成（维权）、利欧股份（维权）、兴化股份、ST南都（维权）（南都电源）这五只股票的投资者来说，并不好过。
 
-在中国彝医药博览馆，学员们深入了解楚雄彝医药种植研发、生产加工、康养服务的全产业链发展历程，对楚雄打造“滇中药谷”的生动实践给予充分肯定。
+从突如其来的立案调查，到业绩预告的离奇“变脸”，再到因内控失效导致的“戴帽”ST，资本市场的波动让不少股民损失惨重。
 
-在楚雄市御留花卉有限公司，学员们实地观摩了花卉种植、运营发展全貌，了解苍岭镇花卉产业布局、发展成效以及企业生产经营、市场发展等情况。
+暴雷以来，上海沪紫律师事务所刘鹏律师团队收到了大批投资者索赔报名，本期整理了这五支参与索赔人数较多的股票，受损股民还可登记维权。
 
-此次国情研习活动搭建了欧美同学会成员了解楚雄、赋能地方发展的桥梁，为助力楚雄市特色产业对外交流、品牌输出、市场拓展凝聚智慧力量。
+1、科蓝软件：信披违规被立案 违规事实： 2026年4月30日晚间，科蓝软件突然公告收到证监会《立案告知书》，因涉嫌信息披露违法违规，证监会决定对公司立案。
 
-(楚雄市统一战线微信公众号)
+立案当日，公司已被北京证监局查出存在“收入核算不规范”，导致2020年至2022年年报披露不准确，此外还存在非经营性资金往来及内控不规范等问题。
+
+索赔条件： 于2021年4月27日-2026年4月30日（含当日）期间买入，并在2026年5月1日之后卖出或仍持有而亏损 刘鹏律师表示，虽然证监会处罚尚未落地，但当日收到的行政监管措施已指明违规方向，受损投资者索赔基础较为坚实。
+
+2、*ST福成：年报无法表示意见，连续6个跌停 违规事实： 福成股份因审计机构对其2025年财报出具“无法表示意见”的审计报告，且内控被出具“否定意见”，公司股票自5月6日起被实施退市风险警示及其他风险警示，股票简称变更为“*ST福成”。
 
 ## 相关推荐
 
-- 2026-06-30 04:55 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 04:46 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-30 04:39 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-30 04:59 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 04:41 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
-- 2026-06-30 04:45 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 04:32 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-30 04:59 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 04:34 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-30 04:41 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
-- 2026-06-30 04:31 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 04:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
-- 2026-06-30 04:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-30 04:42 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-30 04:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
+- 2026-06-30 04:54 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
+- 2026-06-30 04:37 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
+- 2026-06-30 04:45 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
+- 2026-06-30 04:48 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
+- 2026-06-30 04:49 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/udsck.md)
+- 2026-06-30 05:00 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-30 04:46 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 05:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 04:50 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 04:59 - [中国对日本再出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
+- 2026-06-30 04:50 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tclib.md)
+- 2026-06-30 05:01 - [世界杯：德国vs巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:37 - [巴西扳平比分](http://www.share.minike.top/Article/details/02252385324.shtml)
-- 2026-06-30 04:34 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/59895079.shtml)
-- 2026-06-30 04:49 - [巴西2比1日本](https://www.blog.minike.top/Article/details/97377448.shtml)
-- 2026-06-30 04:53 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/85109355.shtml)
-- 2026-06-30 04:35 - [德国vs巴拉圭](http://www.share.minike.top/Article/details/48721.shtml)
-- 2026-06-30 04:54 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/261470590835.shtml)
-- 2026-06-30 04:51 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.minike.top/Article/details/482868971.shtml)
-- 2026-06-30 04:36 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/5709326658.shtml)
-- 2026-06-30 04:51 - [我用3千多根木棍做了张分压点阵床](https://www.blog.kurohicncr.top/Article/details/1716624950.shtml)
-- 2026-06-30 04:34 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/615056.shtml)
-- 2026-06-30 04:52 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/85982183.shtml)
-- 2026-06-30 04:34 - [怕iPhone涨价的用户已紧急换新](http://www.blog.minike.top/Article/details/6406590812.shtml)
-- 2026-06-30 04:52 - [又一美国科技巨头转向中国大模型](http://www.blog.kurohicncr.top/Article/details/291648.shtml)
-- 2026-06-30 04:55 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/673126894.shtml)
-- 2026-06-30 04:33 - [恋与深空 日服](https://www.blog.minike.top/Article/details/5234794.shtml)
+- 2026-06-30 04:41 - [张帅时隔四年再取温网正赛胜利](http://www.share.minike.top/Article/details/1685833054.shtml)
+- 2026-06-30 04:52 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/25298333.shtml)
+- 2026-06-30 04:43 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/57531414246.shtml)
+- 2026-06-30 04:42 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.minike.top/Article/details/407377.shtml)
+- 2026-06-30 05:01 - [刘宇宁是去进货了吗](http://www.blog.kurohicncr.top/Article/details/179718.shtml)
+- 2026-06-30 05:02 - [好像看到了人类带孩子崩溃的样子](https://www.blog.kurohicncr.top/Article/details/2832279326.shtml)
+- 2026-06-30 04:48 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/739369948.shtml)
+- 2026-06-30 04:40 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/0929285772.shtml)
+- 2026-06-30 04:59 - [王健林甩卖超80座万达广场](https://www.share.kurohicncr.top/Article/details/1500392.shtml)
+- 2026-06-30 04:41 - [阿娇瘦了10斤](http://www.blog.kurohicncr.top/Article/details/504328.shtml)
+- 2026-06-30 04:38 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/876489.shtml)
+- 2026-06-30 04:49 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.kurohicncr.top/Article/details/9261629.shtml)
+- 2026-06-30 05:00 - [千香](https://www.share.kurohicncr.top/Article/details/072715.shtml)
+- 2026-06-30 05:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.minike.top/Article/details/94603.shtml)
+- 2026-06-30 04:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.minike.top/Article/details/19206515192.shtml)

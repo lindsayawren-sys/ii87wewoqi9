@@ -1,58 +1,57 @@
-# 英国大型企业普遍不清楚自身数据在海外被人工智能如何使用
+# 东方园林（东方新能，002310）索赔倒计时两个月，园城黄金（600766）索赔案已有胜诉
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-一项研究显示，英国多数大型企业并不清楚自身敏感数据在海外被人工智能系统处理时的具体用途，凸显出这一快速发展技术带来的风险。 该研究针对英国营收超 1 亿英镑企业的高级技术与数据负责人展开调查，结果显示 61%的受访者无法全面掌握数据在海外的处理方式，报告指出这一问题主要困扰企业董事会。 研究机构 Harbr Data 的调查显示，近四分之三的受访者表示，数据通过人工智能系统流出
+上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。 2024年1月31日晚，东方园林公告收
 
 ## 正文
 
-一项研究显示，英国多数大型企业并不清楚自身敏感数据在海外被人工智能系统处理时的具体用途，凸显出这一快速发展技术带来的风险。
+上海久诚律师事务所股票索赔律师许峰提示，东方园林（002310）虚假陈述引发的投资者索赔案已经进入最后两个月倒计时，提醒投资者注意，“过期作废”。
 
-该研究针对英国营收超 1 亿英镑企业的高级技术与数据负责人展开调查，结果显示 61%的受访者无法全面掌握数据在海外的处理方式，报告指出这一问题主要困扰企业董事会。
+（许峰律师专栏） 许峰律师代理的东方园林投资者索赔案已向北京金融法院多次提交立案，公告信息显示，该案已有投资者和解获赔，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-研究机构 Harbr Data 的调查显示，近四分之三的受访者表示，数据通过人工智能系统流出英国的频率至少为每周一次，其中三分之一称每日都有数据外流。
+2024年1月31日晚，东方园林公告收到证监会北京监管局出具的《行政处罚决定书》，经查明，东方园林违法事实如下： 2018年6月，东方园林及其子公司组成联合体，中标广西贵港市覃塘区全域旅游PPP项目。
 
-情况较轻时，数据处理地点与方式不透明可能带来监管合规风险，尤其涉及数据隐私、存储地规定及安全问题。
+2019年12月，东方园林根据与供应商成本扣减结算情况，调减广西贵港项目相关成本2，232.19万元，但未在2019年相应调减营业收入3，541.84万元，直到2022年才进行调整。
 
-情况严重时，则可能导致数据泄露或被恶意利用。
+该情况导致公司2019年度虚增收入、利润及资产各3，541.84万元，2020年度、2021年度虛增资产各3，541.84万元，2022年度虚减收入、利润各3，541.84万元。
 
-英国安全通信平台 Element 首席执行官兼联合创始人马修・霍奇森表示：“人们似乎对数据治理机制知之甚少。
+“20东林G1”公司债券募集说明书使用了2019年年度报告相关财务数据。
 
-” “现实风险在于，人们随意复制粘贴文档或机密信息，这些信息随后被用于训练模型，可能出现在他人的信息中。
+上述事项导致东方园林2019年至2022年年度报告及“20东林G1”公司债券募集说明书存在错报。
 
-此类事件已造成过严重后果。
+许峰律师认为，在2020年4月30日到2023年7月13日之间买入东方园林股票，并且在2023年7月13日后卖出或继续持有股票的投资者，在最后两个月诉讼时效内还可发起索赔。
 
 ## 相关推荐
 
-- 2026-06-30 04:38 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
-- 2026-06-30 04:50 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-30 04:44 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 04:35 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 04:39 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 04:53 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-30 04:34 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
-- 2026-06-30 04:57 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/merhz.md)
-- 2026-06-30 04:50 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usror.md)
-- 2026-06-30 04:51 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-30 04:41 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-30 04:46 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-30 05:02 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 04:54 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 04:56 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
+- 2026-06-30 04:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-30 04:44 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzpwf.md)
+- 2026-06-30 04:57 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 04:54 - [日本 高位逼抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 04:49 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 04:58 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 04:53 - [电影后室值得看吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pimcb.md)
+- 2026-06-30 04:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/konggao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:39 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/8509455175.shtml)
-- 2026-06-30 04:33 - [扫黑风暴](http://www.share.minike.top/Article/details/111520333367.shtml)
-- 2026-06-30 04:43 - [起风了](http://www.share.kurohicncr.top/Article/details/9470362028.shtml)
-- 2026-06-30 04:31 - [沪指深V回升站稳4000点](http://www.blog.minike.top/Article/details/463642499052.shtml)
-- 2026-06-30 04:34 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/578105411.shtml)
-- 2026-06-30 04:36 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/4925350.shtml)
-- 2026-06-30 04:50 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/7377242.shtml)
-- 2026-06-30 04:42 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/22111.shtml)
-- 2026-06-30 04:40 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/56159943.shtml)
-- 2026-06-30 04:31 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.minike.top/Article/details/93776.shtml)
-- 2026-06-30 04:39 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/74141705.shtml)
-- 2026-06-30 04:35 - [极限挑战第一季](http://www.blog.kurohicncr.top/Article/details/81931.shtml)
-- 2026-06-30 04:34 - [一直以为方便面汤是要倒掉的](https://www.blog.kurohicncr.top/Article/details/74915618575.shtml)
-- 2026-06-30 04:44 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](http://www.share.kurohicncr.top/Article/details/36524887947.shtml)
-- 2026-06-30 04:31 - [国务院：稳步推进研究生考试招生改革](https://www.blog.kurohicncr.top/Article/details/74234.shtml)
+- 2026-06-30 05:05 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/1292835849.shtml)
+- 2026-06-30 04:54 - [这些7月新规影响你我](http://www.share.kurohicncr.top/Article/details/67483656.shtml)
+- 2026-06-30 04:36 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/295904223.shtml)
+- 2026-06-30 04:49 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/7575552781.shtml)
+- 2026-06-30 04:47 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/917616968.shtml)
+- 2026-06-30 05:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.minike.top/Article/details/67970.shtml)
+- 2026-06-30 04:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/1614526.shtml)
+- 2026-06-30 04:45 - [王楚钦孙颖莎混双对手产生](http://www.share.minike.top/Article/details/5948456.shtml)
+- 2026-06-30 04:53 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/845326917946.shtml)
+- 2026-06-30 04:37 - [孙兴慜道歉](http://www.share.minike.top/Article/details/402370318435.shtml)
+- 2026-06-30 04:50 - [王欣瑜：今年经历了一些起伏](http://www.blog.minike.top/Article/details/5222881.shtml)
+- 2026-06-30 05:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/93621750.shtml)
+- 2026-06-30 04:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/87130.shtml)
+- 2026-06-30 04:51 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/9474630451.shtml)
+- 2026-06-30 05:03 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/399355.shtml)

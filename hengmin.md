@@ -1,56 +1,48 @@
-# 郑钦文无缘WTA1000马德里站单打16强
+# 特朗普寻求暂停征收联邦汽油税 “直到合适的时候为止”
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:03 UTC+8
 
 ## 摘要
 
-中新社北京4月27日电 当地时间26日举行的女子网球选手协会(WTA)1000马德里站单打第三轮比赛中，赛会32号种子、中国选手郑钦文以1:2被2号种子、哈萨克斯坦名将莱巴金娜逆转，无缘16强。 莱巴金娜本赛季状态火热，目前世界排名第二位，已斩获澳网和WTA500斯图加特站冠军。在因伤退出斯图加特站后，郑钦文在马德里站第二轮迎来红土赛季首秀，以2:1逆转战胜前澳网冠军、法网亚军
+美国总统唐纳德·特朗普在白宫对记者表示，他将寻求暂停征收联邦汽油税，“直到合适的时候为止”。 特朗普还表示，“它占比很小，但毕竟是钱”。 此举需要获得国会批准，美国联邦汽油税为每加仑18.4美分。责任编辑：丁文武
 
 ## 正文
 
-中新社北京4月27日电 当地时间26日举行的女子网球选手协会(WTA)1000马德里站单打第三轮比赛中，赛会32号种子、中国选手郑钦文以1:2被2号种子、哈萨克斯坦名将莱巴金娜逆转，无缘16强。
+美国总统唐纳德·特朗普在白宫对记者表示，他将寻求暂停征收联邦汽油税，“直到合适的时候为止”。
 
-莱巴金娜本赛季状态火热，目前世界排名第二位，已斩获澳网和WTA500斯图加特站冠军。
+特朗普还表示，“它占比很小，但毕竟是钱”。
 
-在因伤退出斯图加特站后，郑钦文在马德里站第二轮迎来红土赛季首秀，以2:1逆转战胜前澳网冠军、法网亚军肯宁。
+此举需要获得国会批准，美国联邦汽油税为每加仑18.4美分。
 
-郑钦文和莱巴金娜此前交手四次，郑钦文三次告负，唯一一胜来自2024年WTA年终总决赛小组赛。
-
-两人最近一次交手是在今年2月的WTA1000多哈站单打第三轮，伤愈复出不久的郑钦文以1:2不敌莱巴金娜，无缘八强。
-
-26日的比赛是两人首次在红土球场上相遇。
-
-首盘，郑钦文在第五局实现关键破发，并将领先优势保持至局末，以6:4先下一城。
-
-第二盘的局面更为胶着，郑钦文开局率先破发，不过莱巴金娜随后成功兑现第二个破发点、实现回破，郑钦文在第十局30:0领先的情况下连续发出三个双误，莱巴金娜盘末破发，以6:4将大比分扳平。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 04:57 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbvd.md)
-- 2026-06-30 04:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 04:30 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-30 04:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-30 04:34 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 04:31 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
-- 2026-06-30 04:51 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-30 04:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-30 04:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 04:41 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-30 04:46 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
+- 2026-06-30 04:54 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
+- 2026-06-30 04:39 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
+- 2026-06-30 04:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 04:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-30 04:43 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-30 04:54 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 04:51 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 04:39 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-30 04:58 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:34 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/7168165.shtml)
-- 2026-06-30 04:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/025529.shtml)
-- 2026-06-30 04:30 - [父母催婚话术是如何做到全国统一的](http://www.blog.minike.top/Article/details/5410108003.shtml)
-- 2026-06-30 04:46 - [外国游客开始涌入中国农村](https://www.share.kurohicncr.top/Article/details/2026777211.shtml)
-- 2026-06-30 04:50 - [手底下人带不动怎么办？](http://www.blog.kurohicncr.top/Article/details/021182534.shtml)
-- 2026-06-30 04:40 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/239790918.shtml)
-- 2026-06-30 04:49 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/1337594920.shtml)
-- 2026-06-30 04:43 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/00051937586.shtml)
-- 2026-06-30 04:44 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/48798380.shtml)
-- 2026-06-30 04:38 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/29163955724.shtml)
-- 2026-06-30 04:39 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/015890.shtml)
-- 2026-06-30 04:33 - [原来周杰伦的龙拳是广告歌](http://www.blog.kurohicncr.top/Article/details/1219875777.shtml)
-- 2026-06-30 04:54 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/70842876.shtml)
-- 2026-06-30 04:51 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/597580399814.shtml)
-- 2026-06-30 04:36 - [巴西替补奇兵读秒绝杀](http://www.share.minike.top/Article/details/814066018.shtml)
+- 2026-06-30 04:40 - [法国小学众筹装空调后市长下令拆除](https://www.blog.minike.top/Article/details/79735499.shtml)
+- 2026-06-30 04:52 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/063220749373.shtml)
+- 2026-06-30 04:46 - [王灿兮被烫伤两年后维权成功](http://www.share.kurohicncr.top/Article/details/24538266.shtml)
+- 2026-06-30 04:40 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/07464987618.shtml)
+- 2026-06-30 05:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/672749518.shtml)
+- 2026-06-30 04:43 - [辛纳vs凯茨玛诺维奇](http://www.share.minike.top/Article/details/76425918.shtml)
+- 2026-06-30 04:59 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/45511355550.shtml)
+- 2026-06-30 04:51 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/1518850266.shtml)
+- 2026-06-30 05:02 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/996827.shtml)
+- 2026-06-30 04:41 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/5154558.shtml)
+- 2026-06-30 04:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/55187034482.shtml)
+- 2026-06-30 04:44 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/82016955804.shtml)
+- 2026-06-30 04:54 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/622049.shtml)
+- 2026-06-30 05:03 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/3419331.shtml)
+- 2026-06-30 04:43 - [蔚来回应高压水枪洗车掉漆](http://www.share.minike.top/Article/details/2954605500.shtml)

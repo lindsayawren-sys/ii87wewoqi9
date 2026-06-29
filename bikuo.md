@@ -1,43 +1,52 @@
-# 消息人士：伊朗外长或在未来率团返回伊斯兰堡
+# 尼泊尔国际汇款流入增逾三成 外汇储备升至235.5亿美元
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-新华社伊斯兰堡4月25日电(记者邹学冕 杨恺)巴基斯坦消息人士25日告诉新华社记者，如果相关接触进展顺利，伊朗外交部长阿拉格齐或在未来率团返回巴首都伊斯兰堡。
+中新网加德满都5月12日电 (记者 崔楠)尼泊尔中央银行11日发布最新报告称，2025/26财年前9个月，尼泊尔国际汇款和外汇储备持续增长。 数据显示，2025年7月中旬至2026年4月中旬，该国汇款流入量同比增长31.9%，达115.5亿美元。同期，该国外汇储备从2025年7月中旬的195亿美元增至2026年4月中旬的235.5亿美元，增幅逾两成。 报告称，根据2025/26
 
 ## 正文
 
-新华社伊斯兰堡4月25日电(记者邹学冕 杨恺)巴基斯坦消息人士25日告诉新华社记者，如果相关接触进展顺利，伊朗外交部长阿拉格齐或在未来率团返回巴首都伊斯兰堡。
+中新网加德满都5月12日电 (记者 崔楠)尼泊尔中央银行11日发布最新报告称，2025/26财年前9个月，尼泊尔国际汇款和外汇储备持续增长。
+
+数据显示，2025年7月中旬至2026年4月中旬，该国汇款流入量同比增长31.9%，达115.5亿美元。
+
+同期，该国外汇储备从2025年7月中旬的195亿美元增至2026年4月中旬的235.5亿美元，增幅逾两成。
+
+报告称，根据2025/26财年前9个月进口情况，尼泊尔现有外汇储备可支撑未来21.8个月的商品进口，以及18.4个月的商品和服务进口。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:50 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-30 04:45 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-30 04:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 04:34 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
-- 2026-06-30 04:54 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bajdk.md)
-- 2026-06-30 04:43 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-30 04:41 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
-- 2026-06-30 04:53 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 04:56 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-30 04:56 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-30 04:59 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 04:54 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-30 05:00 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 04:49 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
+- 2026-06-30 04:38 - [“十五五”优质本科扩容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-30 04:38 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-30 04:45 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-30 04:48 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dunkuan.md)
+- 2026-06-30 04:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uscao.md)
+- 2026-06-30 05:00 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 04:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksmfi.md)
+- 2026-06-30 04:59 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 04:49 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:58 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.share.minike.top/Article/details/230871669.shtml)
-- 2026-06-30 04:45 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/835214170617.shtml)
-- 2026-06-30 04:53 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/2903186.shtml)
-- 2026-06-30 04:47 - [明星大侦探第四季](http://www.share.minike.top/Article/details/4651189.shtml)
-- 2026-06-30 04:52 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/73587.shtml)
-- 2026-06-30 04:44 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/226391.shtml)
-- 2026-06-30 04:43 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://www.share.kurohicncr.top/Article/details/314660093938.shtml)
-- 2026-06-30 04:34 - [斗破苍穹](https://www.blog.minike.top/Article/details/6084194.shtml)
-- 2026-06-30 04:52 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/3018960173.shtml)
-- 2026-06-30 04:51 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/125969.shtml)
-- 2026-06-30 04:44 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/679938915.shtml)
-- 2026-06-30 04:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/14090.shtml)
-- 2026-06-30 04:43 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/88366248.shtml)
-- 2026-06-30 04:41 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/49459.shtml)
-- 2026-06-30 04:48 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.minike.top/Article/details/5554516.shtml)
+- 2026-06-30 04:58 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/278012003.shtml)
+- 2026-06-30 04:42 - [85花告别古偶](https://www.blog.minike.top/Article/details/23955.shtml)
+- 2026-06-30 04:44 - [琉球·冲绳学术问题国际研讨会举行](https://www.blog.kurohicncr.top/Article/details/48298.shtml)
+- 2026-06-30 05:04 - [星链在轨运行卫星已突破1.24万颗](https://www.share.kurohicncr.top/Article/details/576062455875.shtml)
+- 2026-06-30 04:53 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/34711347.shtml)
+- 2026-06-30 05:04 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/7401929.shtml)
+- 2026-06-30 04:56 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/6750235361.shtml)
+- 2026-06-30 04:48 - [多人在马路中间打羽毛球 交警回应](http://www.share.minike.top/Article/details/1294694582.shtml)
+- 2026-06-30 04:48 - [𝗩𝟴 'singasong' Official MV](http://www.share.minike.top/Article/details/06487.shtml)
+- 2026-06-30 04:50 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/66826916.shtml)
+- 2026-06-30 04:53 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/74486.shtml)
+- 2026-06-30 05:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.blog.minike.top/Article/details/24345319895.shtml)
+- 2026-06-30 04:42 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/9499616299.shtml)
+- 2026-06-30 04:40 - [一见倾心](https://www.share.kurohicncr.top/Article/details/860544.shtml)
+- 2026-06-30 04:43 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/9144612.shtml)

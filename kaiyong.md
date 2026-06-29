@@ -1,58 +1,59 @@
-# 广西崇左举办跨国阅读大会
+# 年内首例上市农商行获省国资买入，多家银行年报前后获增持，基本面拐点来了？
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网崇左4月25日电(黄令妍)4月25日，“边域书香 跨国共读”2026年崇左市跨国阅读大会举行，中越知名作家、文学爱好者、学生代表等800余人共同开启一场跨越国界的文学之旅。 活动在作家访谈环节中拉开帷幕。鲁迅文学奖获得者肖江虹、廖润柏(笔名：鬼子)，越南作家范文当、丁氏如翠，广西网络文学作家姚李福(笔名：浮梦流年)、文学桂军人才培养“1+2”工程学员黄鼎雄(笔名：顾骨)，
+财联社5月12日讯（记者 邹俊涛）5月11日晚，江苏有线公告，该公司拟购买常熟银行不超过3.5%（含）的股份，总投资金额不超过9亿元（含）人民币。 据了解，这是今年首例上市农商行获省级国资大手笔买入。 5月12日上午，财联社记者以投资者身份致电常熟银行获悉， 相关买入计划较早前双方已有沟通，但目前尚未实际买入，对市场影目前无法判断。此外，由于是财务投资，预计对公司经营方面不会产
 
 ## 正文
 
-中新网崇左4月25日电(黄令妍)4月25日，“边域书香 跨国共读”2026年崇左市跨国阅读大会举行，中越知名作家、文学爱好者、学生代表等800余人共同开启一场跨越国界的文学之旅。
+财联社5月12日讯（记者 邹俊涛）5月11日晚，江苏有线公告，该公司拟购买常熟银行不超过3.5%（含）的股份，总投资金额不超过9亿元（含）人民币。
 
-活动在作家访谈环节中拉开帷幕。
+据了解，这是今年首例上市农商行获省级国资大手笔买入。
 
-鲁迅文学奖获得者肖江虹、廖润柏(笔名：鬼子)，越南作家范文当、丁氏如翠，广西网络文学作家姚李福(笔名：浮梦流年)、文学桂军人才培养“1+2”工程学员黄鼎雄(笔名：顾骨)，分别分享了他们的创作心得、阅读感悟，让在场观众深切感受到文字创作的力量。
+5月12日上午，财联社记者以投资者身份致电常熟银行获悉， 相关买入计划较早前双方已有沟通，但目前尚未实际买入，对市场影目前无法判断。
 
-进入中越青年文学经典共读环节，两国青年代表深情共读中越作家优秀文学作品节选，在文字里交流互鉴，增进友谊。
+此外，由于是财务投资，预计对公司经营方面不会产生影响。
 
-随后，全场观众齐声诵读中国古代经典诗作。
+值得关注的是，近期多家上市银行披露再获资金买入，集中在年报披露前后。
 
-现场还举行了书籍签售、文化市集等活动，作家们与读者亲切互动，分享阅读乐趣。
+受访业内人士认为，最新财报披露银行息差降幅收窄等因素有望支撑未来营收和利润增长稳步修复，相关股票再次吸引市场资金关注。
 
-据介绍，今年崇左市跨国阅读大会首次走出室内，以山水为幕、以自然为舞台，打造沉浸式阅读新体验。
+9亿规模战略投资买入 主要冲投资收益而来 据了解，江苏有线的第一大股东、控股股东为江苏省文化科技控股集团有限公司当前持股52%，实际控制人为江苏省国资委。
 
-活动现场创新设置科技互动打卡区，VR阅读设备让读者“走进”书中世界，智能机器人互动吸引青少年驻足体验，科技与人文的融合为传统阅读注入新活力。
+江苏有线在公告中表示，本次投资为战略性投资，公司将对常熟银行股份进行长期战略持有。
 
 ## 相关推荐
 
-- 2026-06-30 04:46 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-30 04:49 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-30 04:33 - [浪姐成团夜爆笑吐槽](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-30 04:53 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uvkgt.md)
-- 2026-06-30 04:40 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kztgh.md)
-- 2026-06-30 04:43 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 04:54 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
-- 2026-06-30 04:30 - [普京间接喊话特朗普有何考量](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-30 04:32 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-30 04:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-30 04:58 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 04:54 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
+- 2026-06-30 04:56 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 04:53 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 04:47 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 04:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
+- 2026-06-30 05:01 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-30 04:46 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-30 04:37 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 04:36 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 04:56 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-30 04:51 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 04:44 - [韩国队输球后连呼吸都是错的吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssmws.md)
+- 2026-06-30 04:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-30 04:57 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:48 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/13187748.shtml)
-- 2026-06-30 04:46 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/4020992.shtml)
-- 2026-06-30 04:55 - [官方：建立健全学龄人口预测预警机制](http://www.share.kurohicncr.top/Article/details/337744673883.shtml)
-- 2026-06-30 04:52 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/0820971625.shtml)
-- 2026-06-30 04:49 - [足球小将的剧本成真了](https://www.blog.minike.top/Article/details/99620843.shtml)
-- 2026-06-30 04:52 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/05007199878.shtml)
-- 2026-06-30 04:40 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/08029.shtml)
-- 2026-06-30 04:59 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/101429644982.shtml)
-- 2026-06-30 04:57 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.kurohicncr.top/Article/details/372463764.shtml)
-- 2026-06-30 04:51 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/42568934220.shtml)
-- 2026-06-30 04:39 - [媒体评哈兰德之歌火了](https://www.share.minike.top/Article/details/64805.shtml)
-- 2026-06-30 04:46 - [五哈和他们的朋友](http://www.blog.kurohicncr.top/Article/details/2569591.shtml)
-- 2026-06-30 04:57 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/827690.shtml)
-- 2026-06-30 04:39 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/1160771.shtml)
-- 2026-06-30 04:30 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/695173380.shtml)
+- 2026-06-30 04:59 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/771658343.shtml)
+- 2026-06-30 04:40 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/959824.shtml)
+- 2026-06-30 04:38 - [周杰伦的歌勾起25年友情](http://www.share.minike.top/Article/details/410224800.shtml)
+- 2026-06-30 05:05 - [考入南大计算机，复读考清北值吗？](https://www.blog.kurohicncr.top/Article/details/3100941075.shtml)
+- 2026-06-30 04:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/41071.shtml)
+- 2026-06-30 04:55 - [亚洲球队全部告别世界杯](https://www.blog.minike.top/Article/details/96176415.shtml)
+- 2026-06-30 04:41 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/1281471435.shtml)
+- 2026-06-30 04:40 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/7273255042.shtml)
+- 2026-06-30 04:48 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/221248478.shtml)
+- 2026-06-30 04:55 - [𝗩𝟴 'singasong' Official MV](https://www.share.kurohicncr.top/Article/details/9483162.shtml)
+- 2026-06-30 04:43 - [强制戒网瘾起诉父亲](http://www.blog.minike.top/Article/details/8410787.shtml)
+- 2026-06-30 05:04 - [19岁男孩快220斤被查出营养不良](https://www.blog.minike.top/Article/details/15273675685.shtml)
+- 2026-06-30 04:40 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/937995705.shtml)
+- 2026-06-30 04:54 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/37255.shtml)
+- 2026-06-30 04:55 - [曝娱乐圈大部分明星失业](https://www.share.minike.top/Article/details/2079807.shtml)

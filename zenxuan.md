@@ -1,56 +1,60 @@
-# “鸟中大熊猫”彩鹮首次现身云南云县
+# 全国首个特种设备检验质量监督抽查标准启动编制
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。 彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。 此次发现地爱华镇芦蒿箐，水系充沛
+中新网北京5月12日电 (记者 吕少威)记者今天从北京市市场监督管理局获悉，全国首个特种设备检验工作质量监督抽查领域专项标准——《特种设备检验工作质量监督检查实施指南》(以下简称《指南》)编制工作近日在北京正式启动。该标准由国家市场监督管理总局支持、北京市市场监督管理局牵头申报，将填补国内该领域专项标准的空白。目前，全国特种设备检验机构承担着超2400万台特种设备的检验工作，覆
 
 ## 正文
 
-中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。
+中新网北京5月12日电 (记者 吕少威)记者今天从北京市市场监督管理局获悉，全国首个特种设备检验工作质量监督抽查领域专项标准——《特种设备检验工作质量监督检查实施指南》(以下简称《指南》)编制工作近日在北京正式启动。
 
-彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。
+该标准由国家市场监督管理总局支持、北京市市场监督管理局牵头申报，将填补国内该领域专项标准的空白。
 
-其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。
+目前，全国特种设备检验机构承担着超2400万台特种设备的检验工作，覆盖电梯、气瓶、客运索道、大型游乐设施等与群众生活密切相关的设备，检验工作质量直接关系到特种设备的隐患排查治理效果，但针对检验质量的监督抽查的程序和内容一直没有相关标准。
 
-此次发现地爱华镇芦蒿箐，水系充沛、植被完好，湿地生境优越，为彩鹮提供了理想的觅食与栖息环境。
+北京市市场监管局组建工作组并联合四川、上海、山东、江苏等20个省(区、市)的技术机构、行业协会及相关单位共同编制《指南》。
 
-拍摄画面显示，两只彩鹮与白鹭、牛背鹭友好相处，时而在浅水中缓步踱步，时而低头用长喙探觅水生昆虫、小鱼及软体动物，姿态从容警觉。
+《指南》着眼特种设备检验机构检验工作质量，将充分吸纳北京市多年开展特种设备检验质量监督抽查的实践经验，在全国范围系统性规范监督抽查全流程、全环节的实施要求，从源头上持续提升检验环节安全隐患排查治理的精准性、规范性与有效性。
 
-近年来，云县持续推进湿地修复与生态保护，先后吸引钳嘴鹳、褐翅鸦鹃等多种珍稀鸟类栖息。
+标准编制过程中将借鉴各地检验监管实践并吸纳相关工作经验，广泛征求意见后，按程序报批发布。
 
-彩鹮的现身，是对当地生态环境质量的高度认可。
+作为我国特种设备安全监管领域的重要基础性标准，《特种设备检验工作质量监督检查实施指南》的制定，将以标准化手段持续强化特种设备全链条安全保障，切实维护特种设备使用安全，为全国特种设备安全治理体系和治理能力现代化建设贡献可复制、可推广的“北京经验”。
 
-目前，云县林草部门已加强对芦蒿箐区域的巡护监测，并将加大宣传力度，引导公众共同守护珍稀物种的栖息家园。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 04:53 - [这些7月新规影响你我](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
-- 2026-06-30 04:34 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 04:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 04:30 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 04:48 - [大范围高温会带来哪些经济影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
-- 2026-06-30 04:33 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
-- 2026-06-30 04:38 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-30 04:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-30 04:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-30 04:31 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 04:42 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 04:49 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-30 04:55 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 04:36 - [巴西若输日本将创36年最差纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 04:44 - [有酒店推行24小时退房制](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-30 04:37 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 04:58 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-30 04:58 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-30 04:43 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-30 04:39 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-30 04:57 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-30 04:50 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 04:49 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 04:48 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:57 - [杨紫获白玉兰视后为何争议难平](https://www.blog.minike.top/Article/details/652938.shtml)
-- 2026-06-30 04:49 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/307163263136.shtml)
-- 2026-06-30 04:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.minike.top/Article/details/571462774.shtml)
-- 2026-06-30 04:51 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/29600.shtml)
-- 2026-06-30 04:46 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/7094898.shtml)
-- 2026-06-30 04:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/945387714.shtml)
-- 2026-06-30 04:30 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.kurohicncr.top/Article/details/45562494.shtml)
-- 2026-06-30 04:43 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/5508021875.shtml)
-- 2026-06-30 04:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.share.minike.top/Article/details/2982006690.shtml)
-- 2026-06-30 04:42 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/0108551906.shtml)
-- 2026-06-30 04:58 - [美股三大指数高开 西部数据涨超2%](http://www.blog.kurohicncr.top/Article/details/49619.shtml)
-- 2026-06-30 04:45 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/2350809710.shtml)
-- 2026-06-30 04:39 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/953650133.shtml)
-- 2026-06-30 04:33 - [急先锋](https://www.blog.kurohicncr.top/Article/details/71359596.shtml)
-- 2026-06-30 04:39 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/8667771.shtml)
+- 2026-06-30 05:04 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/4072523.shtml)
+- 2026-06-30 05:00 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/92883742423.shtml)
+- 2026-06-30 04:37 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/026869497256.shtml)
+- 2026-06-30 04:45 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.blog.kurohicncr.top/Article/details/79088.shtml)
+- 2026-06-30 04:52 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/72513400833.shtml)
+- 2026-06-30 04:36 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/4249158.shtml)
+- 2026-06-30 05:01 - [我设置了全宇宙最安全的密码](http://www.blog.kurohicncr.top/Article/details/84942534.shtml)
+- 2026-06-30 04:43 - [请回答王牌2019](https://www.share.minike.top/Article/details/06898.shtml)
+- 2026-06-30 04:46 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/717214433.shtml)
+- 2026-06-30 04:49 - [青春环游记第三季](http://www.blog.minike.top/Article/details/02393.shtml)
+- 2026-06-30 04:58 - [扬名立万](http://www.share.minike.top/Article/details/51208.shtml)
+- 2026-06-30 04:48 - [世界杯巴西vs日本前瞻](http://www.share.minike.top/Article/details/03110.shtml)
+- 2026-06-30 04:55 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/53587420.shtml)
+- 2026-06-30 04:46 - [这一刀 会很帅](https://www.blog.minike.top/Article/details/675258476.shtml)
+- 2026-06-30 04:51 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/915738.shtml)

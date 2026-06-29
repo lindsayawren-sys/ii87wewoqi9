@@ -1,54 +1,56 @@
-# 浙江杭州：捷克学员拜师国医大师 助力中医文化“出海”
+# 全球最高端的飞机 “收债人”，正在批量回收精神航空客机
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月26日 12:25 来源：中国新闻网 4月24日，浙江省杭州中西医结合医院举行国医大师施杞先生收徒拜师仪式暨国医大师施杞传承工作室揭牌仪式。作为第四届国医大师、国家级非物质文化遗产“中医正骨疗法”项目代表性传承人、石氏伤科联盟主席，施杞教授已深耕中医骨伤六十载。此次收徒仪式中，捷克Wuxing中医学院创始人Petr正式成为国医大师施杞的入室弟子。据了解
+航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。 彼时精神航空仍在正常运营、航班还在天上飞行。但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。 艾伦说：“我只有 6 个小时，紧急凑齐 20
 
 ## 正文
 
-发布时间：2026年04月26日 12:25 来源：中国新闻网 4月24日，浙江省杭州中西医结合医院举行国医大师施杞先生收徒拜师仪式暨国医大师施杞传承工作室揭牌仪式。
+航司倒闭倒计时开启，数十架飞机亟待收回、停放至亚利桑那飞机坟场；有人调侃：“我能穿短裤飞吗？
 
-作为第四届国医大师、国家级非物质文化遗产“中医正骨疗法”项目代表性传承人、石氏伤科联盟主席，施杞教授已深耕中医骨伤六十载。
+” 周五傍晚 6 点，鲍勃・艾伦接到了一通紧急电话，消息很明确：立刻备好飞机回收团队。
 
-此次收徒仪式中，捷克Wuxing中医学院创始人Petr正式成为国医大师施杞的入室弟子。
+彼时精神航空仍在正常运营、航班还在天上飞行。
 
-据了解，Petr多年前在上海学医后回国创立Wuxing中医学院，将中医文化带回家乡，并于近年邀请家乡的中医爱好者来杭州交流学习。
+但旗下数十架亮黄色客机的所有权归飞机租赁公司所有，眼看精神航空濒临破产清算，租赁方愈发焦虑，急于收回自有飞机。
 
-如今Petr又在杭州拜师，成为中医文化“走出去”的桥梁。
+艾伦说：“我只有 6 个小时，紧急凑齐 20 名飞行员。
 
-(王刚） 责任编辑：【周驰】
+” 他创立的游牧航空集团，数月来一直在待命，密切关注精神航空的破产动向。
+
+艾伦与联合创始人史蒂夫・乔尔达诺迅速组建飞行员队伍，其中大多是曾在精神航空任职的老员工。
+
+他们建了一个 WhatsApp 群组，很快扩充到 40 人。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 04:57 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 04:54 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 04:35 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 04:41 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
-- 2026-06-30 04:37 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
-- 2026-06-30 04:31 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-30 04:48 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 04:49 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-30 04:50 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 04:50 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 04:32 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-30 04:55 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
+- 2026-06-30 04:43 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 05:04 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-30 04:53 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-30 04:49 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-30 04:53 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-30 04:46 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
+- 2026-06-30 04:44 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 05:03 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 04:36 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:30 - [外国游客开始涌入中国农村](https://www.share.minike.top/Article/details/0178633886.shtml)
-- 2026-06-30 04:51 - [佐野海舟远射破门](http://www.blog.minike.top/Article/details/761847715.shtml)
-- 2026-06-30 04:31 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/2551173.shtml)
-- 2026-06-30 04:46 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/4019972692.shtml)
-- 2026-06-30 04:59 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/673673171.shtml)
-- 2026-06-30 04:55 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/790431782.shtml)
-- 2026-06-30 04:48 - [德国vs巴拉圭](https://www.blog.kurohicncr.top/Article/details/26534765380.shtml)
-- 2026-06-30 04:43 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.minike.top/Article/details/8232883820.shtml)
-- 2026-06-30 04:45 - [巴西替补奇兵读秒绝杀](https://www.share.minike.top/Article/details/37716759.shtml)
-- 2026-06-30 04:32 - [问心2神一集鬼三集](https://www.blog.kurohicncr.top/Article/details/454066568597.shtml)
-- 2026-06-30 04:56 - [日本世界杯淘汰赛历史0胜](https://www.blog.kurohicncr.top/Article/details/16249406.shtml)
-- 2026-06-30 04:55 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.blog.kurohicncr.top/Article/details/196561.shtml)
-- 2026-06-30 04:46 - [王欣瑜温网开门红](https://www.share.kurohicncr.top/Article/details/81113724.shtml)
-- 2026-06-30 04:48 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/84468225332.shtml)
-- 2026-06-30 04:44 - [杨紫获白玉兰视后为何争议难平](http://www.share.kurohicncr.top/Article/details/4360321.shtml)
+- 2026-06-30 04:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.minike.top/Article/details/93269.shtml)
+- 2026-06-30 04:58 - [本届世界杯已有5名球员被控强奸](http://www.blog.kurohicncr.top/Article/details/86314.shtml)
+- 2026-06-30 04:41 - [TOP Prada](http://www.share.kurohicncr.top/Article/details/585476.shtml)
+- 2026-06-30 05:03 - [我们的少年时代2](http://www.blog.kurohicncr.top/Article/details/65358144.shtml)
+- 2026-06-30 04:46 - [沙丘](https://www.share.minike.top/Article/details/135221153.shtml)
+- 2026-06-30 04:51 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/0163729.shtml)
+- 2026-06-30 05:01 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.minike.top/Article/details/2466281.shtml)
+- 2026-06-30 04:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.share.minike.top/Article/details/494006744.shtml)
+- 2026-06-30 04:52 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/26349840211.shtml)
+- 2026-06-30 04:39 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/35418438017.shtml)
+- 2026-06-30 04:40 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/8928532563.shtml)
+- 2026-06-30 04:36 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/53695430.shtml)
+- 2026-06-30 04:36 - [金刚川](https://www.blog.minike.top/Article/details/057448894.shtml)
+- 2026-06-30 05:02 - [杨紫获白玉兰视后争议不止](https://www.share.minike.top/Article/details/97763187.shtml)
+- 2026-06-30 04:54 - [欧洲家电巨头为何输掉了这个夏天](http://www.blog.minike.top/Article/details/21213917556.shtml)

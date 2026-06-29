@@ -1,59 +1,48 @@
-# 保险科技IPO热背后的盈利困局：10家中5家仍亏
+# 世卫：加沙已有超4.3万人致残，其中四分之一为儿童
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-21世纪经济报道记者 孙诗卉 2025年，保险科技行业迎来一波上市热潮，超过10家保险中介及科技公司开启上市进程，其中5家成功登陆美股或港股。进入2026年，这股热潮仍在延续。 今年年初，镁信健康向港交所二次递表；圆心科技于4月22日第六次递表港交所，刷新递表次数纪录；暖哇科技于4月向港交所二次递表；同受众安孵化的另一家AI保险科技公司众安信科也已于1月向港交所递交上市申请，正
+中新网5月13日电 据俄罗斯卫星通讯社12日援引世界卫生组织的消息，自2023年10月以来，加沙地带已有超过4.3万人因军事行动致残，其中四分之一为儿童。 世卫组织驻巴勒斯坦被占领土代表范德维尔特在日内瓦举行的新闻发布会上称：“根据世卫组织的最新估计，自2023年10月以来，加沙地带已有17.2万人受伤，其中约4.3万人为重伤，四分之一的人是儿童。” 范德维尔特指出，加沙地带康
 
 ## 正文
 
-21世纪经济报道记者 孙诗卉 2025年，保险科技行业迎来一波上市热潮，超过10家保险中介及科技公司开启上市进程，其中5家成功登陆美股或港股。
+中新网5月13日电 据俄罗斯卫星通讯社12日援引世界卫生组织的消息，自2023年10月以来，加沙地带已有超过4.3万人因军事行动致残，其中四分之一为儿童。
 
-进入2026年，这股热潮仍在延续。
+世卫组织驻巴勒斯坦被占领土代表范德维尔特在日内瓦举行的新闻发布会上称：“根据世卫组织的最新估计，自2023年10月以来，加沙地带已有17.2万人受伤，其中约4.3万人为重伤，四分之一的人是儿童。
 
-今年年初，镁信健康向港交所二次递表；圆心科技于4月22日第六次递表港交所，刷新递表次数纪录；暖哇科技于4月向港交所二次递表；同受众安孵化的另一家AI保险科技公司众安信科也已于1月向港交所递交上市申请，正式启动港股IPO进程。
-
-此外，专注赋能保险代理人赛道的i云保已于2024年7月获中国证监会境外上市备案通过，赴美上市进程仍在推进中；美股方面还有恒光控股、青民数科等公司排队候场。
-
-密集的上市动态表明，保险科技公司正在以更快的速度集体冲击资本市场。
-
-多位受访专家指出，保险科技行业正从“追求规模”转向“追求利润”，资本市场也开始用更严格的标准审视企业的真实盈利能力。
-
-持续亏损、研发开支占比过高等因素，已成为压制估值的重要变量。
-
-上市险科业绩分化，AI成盈利关键 从已披露2025年业绩的上市保险科技公司来看，业绩分化明显。
+” 范德维尔特指出，加沙地带康复医疗系统目前面临严峻挑战。
 
 ## 相关推荐
 
-- 2026-06-30 04:35 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
-- 2026-06-30 04:58 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-30 04:38 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 04:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 04:46 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 04:49 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 04:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-30 04:52 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 04:53 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-30 04:38 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 04:33 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
-- 2026-06-30 04:55 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rteyp.md)
-- 2026-06-30 04:36 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 04:38 - [“草莓月亮”浪漫现身](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 04:58 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 04:56 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 05:04 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-30 04:56 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-30 04:43 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
+- 2026-06-30 04:47 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
+- 2026-06-30 04:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-30 04:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-30 04:36 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-30 04:38 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
+- 2026-06-30 05:01 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/06336.shtml)
-- 2026-06-30 04:38 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/6527340.shtml)
-- 2026-06-30 04:44 - [美加墨世界杯：亚洲足球的得意与失意](https://www.share.minike.top/Article/details/899029734.shtml)
-- 2026-06-30 04:48 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/21171525204.shtml)
-- 2026-06-30 04:35 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/85086556253.shtml)
-- 2026-06-30 04:32 - [原来周杰伦的龙拳是广告歌](https://www.share.kurohicncr.top/Article/details/663437919767.shtml)
-- 2026-06-30 04:46 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.kurohicncr.top/Article/details/890200808070.shtml)
-- 2026-06-30 04:37 - [张碧晨最佳女歌手](http://www.blog.minike.top/Article/details/348621068.shtml)
-- 2026-06-30 04:41 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/95054171393.shtml)
-- 2026-06-30 04:52 - [欧盟分楼层开空调惹争议](http://www.blog.kurohicncr.top/Article/details/8992671617.shtml)
-- 2026-06-30 04:54 - [科学备孕男女都要上心](http://www.blog.minike.top/Article/details/960852053.shtml)
-- 2026-06-30 04:39 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/589161311.shtml)
-- 2026-06-30 04:51 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/88648620.shtml)
-- 2026-06-30 04:35 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/768392483671.shtml)
-- 2026-06-30 04:38 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/45069.shtml)
+- 2026-06-30 04:45 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/8281299.shtml)
+- 2026-06-30 04:48 - [科技牛市下的最大考验是什么](https://www.blog.kurohicncr.top/Article/details/701804.shtml)
+- 2026-06-30 04:56 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/37565783365.shtml)
+- 2026-06-30 04:55 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/551112.shtml)
+- 2026-06-30 04:44 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/50645830.shtml)
+- 2026-06-30 04:37 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/90935.shtml)
+- 2026-06-30 05:05 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/795065763764.shtml)
+- 2026-06-30 04:54 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/22357.shtml)
+- 2026-06-30 05:03 - [补时绝杀 巴西2-1淘汰日本](https://www.blog.kurohicncr.top/Article/details/827703.shtml)
+- 2026-06-30 04:38 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/9984021.shtml)
+- 2026-06-30 05:02 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/2266139.shtml)
+- 2026-06-30 04:53 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/3218803.shtml)
+- 2026-06-30 04:40 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.minike.top/Article/details/76990885030.shtml)
+- 2026-06-30 04:38 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/7926781.shtml)
+- 2026-06-30 04:38 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/802613248247.shtml)

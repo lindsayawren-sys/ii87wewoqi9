@@ -1,57 +1,59 @@
-# 特朗普取消维特科夫与库什纳前往巴基斯坦开展和平谈判的行程
+# A股沸腾！超百股涨停，上证指数、创业板指同创近11年新高！牛市还有多少上行空间？
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-特朗普总统于周六突然取消其两名首席谈判代表前往巴基斯坦伊斯兰堡的行程，这一举动进一步表明，伊朗与美国在达成停战协议方面仍存在巨大分歧。 美国总统特朗普表示，他在代表团航班即将起飞前紧急叫停此行，并告知伊朗方面，双方可改为通过电话展开谈判。 据伊朗官方媒体报道，伊朗总统在与巴基斯坦总理通电话时表示，只要美国持续对往返伊朗港口的船只实施海上封锁，伊朗就不会重启和平谈判。此次通话发生
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：华夏时报 华夏时报记者 帅可聪 北京报道 2026年5月11日，A股三大指数集体上涨，上证指数突破4200点关口，创业板指大涨超3%，二者均创下近11年新高。全市场单日成交额超3.5万亿元，创下近4个月新高。 前海开源基金首席经济学家杨德龙向《华夏时报》记者表示，整体来看，当前A股市场或进入一波加速上
 
 ## 正文
 
-特朗普总统于周六突然取消其两名首席谈判代表前往巴基斯坦伊斯兰堡的行程，这一举动进一步表明，伊朗与美国在达成停战协议方面仍存在巨大分歧。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-美国总统特朗普表示，他在代表团航班即将起飞前紧急叫停此行，并告知伊朗方面，双方可改为通过电话展开谈判。
+来源：华夏时报 华夏时报记者 帅可聪 北京报道 2026年5月11日，A股三大指数集体上涨，上证指数突破4200点关口，创业板指大涨超3%，二者均创下近11年新高。
 
-据伊朗官方媒体报道，伊朗总统在与巴基斯坦总理通电话时表示，只要美国持续对往返伊朗港口的船只实施海上封锁，伊朗就不会重启和平谈判。
+全市场单日成交额超3.5万亿元，创下近4个月新高。
 
-此次通话发生在特朗普取消两名高级谈判代表前往巴基斯坦、计划与伊朗外长会晤的行程之后，这也首次表明，本轮谈判或已被伊朗单方面搁置。
+前海开源基金首席经济学家杨德龙向《华夏时报》记者表示，整体来看，当前A股市场或进入一波加速上攻行情，市场赚钱效应吸引了更多投资者配置A股股票或基金，居民储蓄向资本市场大转移的节奏有望加快，市场的赚钱效应也有望逐步增强。
 
-伊朗官媒报道称，伊朗总统马苏德・佩泽希扬向巴基斯坦领导人表示，伊朗绝不会在施压、威胁与封锁的环境下参与谈判。
+中信建投证券投资策略分析师夏凡捷称，从长期看，在美元信用缓慢被侵蚀、全球资本寻找新锚点的大背景下，人民币的确定性溢价和中国资产的重估，或许才刚刚开始。
 
-他补充指出，美国的海上封锁加剧了伊朗领导层内部的猜忌与不信任，也与其口头上声称的外交谈判意愿完全相悖。
+从拔估值到涨业绩，A股进入牛市下半场。
 
-伊朗官方媒体称，伊朗外交部长阿巴斯・阿拉克齐结束阿曼之行后将返回伊斯兰堡。
+单日成交额超3.5万亿元 5月11日，A股三大指数高开高走，全天单边震荡走强，市场整体情绪较为乐观。
 
-伊朗代表团其他成员此前已从伊斯兰堡返回德黑兰，围绕 “结束战事” 展开进一步磋商，这批人员将于周日抵达巴基斯坦，与阿拉克齐会合。
+截至收盘，上证指数涨1.08%，报4225.02点；深证成指涨2.16%，报15899.3点；创业板指大涨3.5%，报3928.97点。
 
 ## 相关推荐
 
-- 2026-06-30 04:32 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 04:42 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-30 04:34 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
-- 2026-06-30 04:56 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eepda.md)
-- 2026-06-30 04:34 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-30 04:37 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
-- 2026-06-30 04:34 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzext.md)
-- 2026-06-30 04:47 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-30 04:30 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-30 04:56 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-30 04:49 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-30 04:55 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 04:58 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-30 04:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 04:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 05:00 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-30 05:01 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
+- 2026-06-30 05:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
+- 2026-06-30 05:02 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 04:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-30 05:03 - [同样是装空调差别怎么能这么大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 04:37 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 04:36 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
+- 2026-06-30 04:48 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lsgxz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:31 - [真实感受到千香是积压剧了](https://www.blog.minike.top/Article/details/820488219563.shtml)
-- 2026-06-30 04:47 - [佐野海舟远射破门](https://www.share.kurohicncr.top/Article/details/6273977572.shtml)
-- 2026-06-30 04:43 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/491610830174.shtml)
-- 2026-06-30 04:31 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/656666585849.shtml)
-- 2026-06-30 04:46 - [明星大侦探第四季](http://www.share.minike.top/Article/details/98762184778.shtml)
-- 2026-06-30 04:50 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/606829.shtml)
-- 2026-06-30 04:39 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/29975966534.shtml)
-- 2026-06-30 04:52 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/46438.shtml)
-- 2026-06-30 04:43 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/300291037229.shtml)
-- 2026-06-30 04:53 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.kurohicncr.top/Article/details/553747571163.shtml)
-- 2026-06-30 04:45 - [补时绝杀 巴西2-1淘汰日本](https://www.share.minike.top/Article/details/64936.shtml)
-- 2026-06-30 04:31 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/994573.shtml)
-- 2026-06-30 04:36 - [青春环游记第三季](http://www.blog.minike.top/Article/details/14411415586.shtml)
-- 2026-06-30 04:55 - [又一家县级医院关停门诊输液大厅](https://www.blog.kurohicncr.top/Article/details/499368.shtml)
-- 2026-06-30 04:42 - [“柠檬茶能换怀表？”](https://www.blog.kurohicncr.top/Article/details/88639189.shtml)
+- 2026-06-30 05:02 - [女子驾车致丈夫身亡法院认定无家暴](https://www.share.kurohicncr.top/Article/details/145273.shtml)
+- 2026-06-30 04:53 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/46799.shtml)
+- 2026-06-30 05:03 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/147621830981.shtml)
+- 2026-06-30 04:40 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/970916100333.shtml)
+- 2026-06-30 04:58 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/9679115936.shtml)
+- 2026-06-30 04:43 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/98807.shtml)
+- 2026-06-30 05:01 - [美媒：美军第五舰队司令部已无法使用](https://www.share.kurohicncr.top/Article/details/10117966230.shtml)
+- 2026-06-30 04:52 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/957322682.shtml)
+- 2026-06-30 04:54 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/0392834.shtml)
+- 2026-06-30 04:36 - [女子用家人生日买彩票中1032万](https://www.share.minike.top/Article/details/2022303555.shtml)
+- 2026-06-30 04:49 - [千香](https://www.share.kurohicncr.top/Article/details/445889.shtml)
+- 2026-06-30 04:53 - [男子中医院拔火罐致浅2度烧伤](https://www.share.minike.top/Article/details/589440089413.shtml)
+- 2026-06-30 04:51 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/60230.shtml)
+- 2026-06-30 04:39 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/8766434.shtml)
+- 2026-06-30 04:48 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/988224428263.shtml)

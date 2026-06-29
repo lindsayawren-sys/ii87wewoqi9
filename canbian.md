@@ -1,59 +1,59 @@
-# 2026年新疆阿勒泰地区夏秋季旅游启动
+# 长江有色: 美伊谈判再次破裂加剧中东铝供应忧虑 12日铝价或大涨
 
-> 更新时间：2026-06-30 05:00:02 UTC+8
+> 更新时间：2026-06-30 05:06:02 UTC+8
 
 ## 摘要
 
-中新网新疆阿勒泰4月27日电 (袁鹏冲)2026年“5·19中国旅游日”阿勒泰地区分会场活动暨阿勒泰地区2026年“我的阿勒泰·清凉一夏”夏秋季旅游启动仪式，26日在新疆阿勒泰市举行，现场展示阿勒泰优质夏秋季文旅资源、特色产品与惠民举措。 活动现场发布阿勒泰地区夏秋季文体旅系列活动、精品旅游线路及文体旅惠民措施，为游客奉上丰富多样的出行选择，还推出景区网络达人扶持政策，通过免票
+长江铝价alu.ccmn.cn短评：美伊谈判再次破裂加剧中东铝供应忧虑，隔夜伦铝收涨2.27%；国内库存虽处高位，但电解铝冶炼利润高企叠加看涨情绪提振，今现铝或大涨。【铝期货市场】：美伊谈判再次破裂加剧中东铝供应忧虑，隔夜伦铝震荡走强，最新收盘报价3582美元/吨，收涨80美元，涨幅2.27%，成交量22305手增加6049手，持仓量670611手减少37手。晚间沪铝高开后偏强
 
 ## 正文
 
-中新网新疆阿勒泰4月27日电 (袁鹏冲)2026年“5·19中国旅游日”阿勒泰地区分会场活动暨阿勒泰地区2026年“我的阿勒泰·清凉一夏”夏秋季旅游启动仪式，26日在新疆阿勒泰市举行，现场展示阿勒泰优质夏秋季文旅资源、特色产品与惠民举措。
+长江铝价alu.ccmn.cn短评：美伊谈判再次破裂加剧中东铝供应忧虑，隔夜伦铝收涨2.27%；国内库存虽处高位，但电解铝冶炼利润高企叠加看涨情绪提振，今现铝或大涨。
 
-活动现场发布阿勒泰地区夏秋季文体旅系列活动、精品旅游线路及文体旅惠民措施，为游客奉上丰富多样的出行选择，还推出景区网络达人扶持政策，通过免票入园、专属服务等礼遇，鼓励全网达人聚焦阿勒泰山水人文，讲好阿勒泰故事。
+【铝期货市场】：美伊谈判再次破裂加剧中东铝供应忧虑，隔夜伦铝震荡走强，最新收盘报价3582美元/吨，收涨80美元，涨幅2.27%，成交量22305手增加6049手，持仓量670611手减少37手。
 
-仪式上，阿勒泰地区旅游协会代表发布旅游行业提升旅游服务质量倡议书，切实保障游客合法权益。
+晚间沪铝高开后偏强运行；主力月2606合约最新收盘价报24690元/吨，涨140元，涨幅0.57%。
 
-本次活动同步设置五大特色展销体验街区与三大互动特色活动，构建“可看、可玩、可购、可感”的文旅消费场景。
+伦敦金属交易所（LME）5月9日伦铝最新库存量报353350公吨，较上个交易日减少2425公吨，跌幅0.68%。
 
-其中，非遗展示体验一条街呈现民族刺绣、毛皮雪板制作等传统技艺，搭配民谣演唱、民俗舞蹈，让游客近距离感受非遗魅力。
+长江铝业网讯：5月11日现货铝价，长江现货A00铝锭价报24390元/吨，涨170元；广东现货A00铝锭价报24240元/吨，涨180元。
 
-阿勒泰地区文化体育广播电视和旅游局党组成员、副局长王新慧表示，将以此次活动为契机，持续完善文旅服务配套、规范旅游市场秩序、丰富文旅消费业态，全力打造夏季避暑旅游目的地，用心用情为广大游客提供安心、舒心、放心的旅游体验。
+宏观层面，美伊停火谈判陷入僵局。
 
-(完)
+特朗普本周一斥责伊朗的最新回应“完全不可接受”，并警告停火协议“岌岌可危”。
+
+伊朗方面则坚持要求美国赔偿战争损失，并强调对霍尔木兹海峡的主权。
 
 ## 相关推荐
 
-- 2026-06-30 04:52 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 04:41 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 04:53 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-30 04:30 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
-- 2026-06-30 04:48 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
-- 2026-06-30 04:32 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 04:55 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-30 04:40 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-30 04:33 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
-- 2026-06-30 04:32 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-30 04:52 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 04:43 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 04:54 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 04:59 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 04:41 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-30 04:52 - [世界杯“美洲德比”7月1日开打](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 05:00 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-30 04:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 04:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-30 05:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-30 04:55 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
+- 2026-06-30 04:38 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
+- 2026-06-30 05:01 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 04:44 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tckzj.md)
+- 2026-06-30 05:02 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 04:44 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-30 04:44 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-30 05:03 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/angong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 04:44 - [张帅时隔四年晋级温网第二轮](http://www.share.kurohicncr.top/Article/details/4542867306.shtml)
-- 2026-06-30 04:31 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/8155751406.shtml)
-- 2026-06-30 04:48 - [逃狱兄弟](https://www.share.minike.top/Article/details/08045.shtml)
-- 2026-06-30 04:40 - [杨紫被质疑未使用原名](http://www.blog.minike.top/Article/details/634148.shtml)
-- 2026-06-30 04:57 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/05577.shtml)
-- 2026-06-30 04:38 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/652125.shtml)
-- 2026-06-30 04:35 - [恋与深空回应争议](http://www.blog.minike.top/Article/details/8502236.shtml)
-- 2026-06-30 04:38 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/59225.shtml)
-- 2026-06-30 04:39 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/796316.shtml)
-- 2026-06-30 04:51 - [袁咏仪张智霖儿子寸头近照](http://www.blog.minike.top/Article/details/7631820642.shtml)
-- 2026-06-30 04:30 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/8395444370.shtml)
-- 2026-06-30 04:41 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/8619719.shtml)
-- 2026-06-30 04:33 - [月亮](https://www.blog.minike.top/Article/details/25575428846.shtml)
-- 2026-06-30 04:59 - [全网说丑的玫瑰空调卖了5万台](http://www.share.kurohicncr.top/Article/details/679540504744.shtml)
-- 2026-06-30 04:45 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/3664778.shtml)
+- 2026-06-30 05:01 - [送你一朵小红花](http://www.share.minike.top/Article/details/17340988.shtml)
+- 2026-06-30 04:44 - [国务院：探索延长义务教育年限](http://www.share.kurohicncr.top/Article/details/26355.shtml)
+- 2026-06-30 04:54 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/1019705.shtml)
+- 2026-06-30 04:50 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.kurohicncr.top/Article/details/174237586.shtml)
+- 2026-06-30 04:39 - [中国18岁小将再现一投夺冠](http://www.blog.kurohicncr.top/Article/details/8689497258.shtml)
+- 2026-06-30 04:42 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/470267.shtml)
+- 2026-06-30 04:49 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/0237450.shtml)
+- 2026-06-30 04:39 - [大范围高温会带来哪些经济影响](https://www.share.kurohicncr.top/Article/details/96076391.shtml)
+- 2026-06-30 04:38 - [法国部长说装空调没用](https://www.share.kurohicncr.top/Article/details/3568079.shtml)
+- 2026-06-30 04:46 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/89938552281.shtml)
+- 2026-06-30 05:01 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/54553.shtml)
+- 2026-06-30 05:02 - [乔家的儿女](http://www.share.minike.top/Article/details/6178904.shtml)
+- 2026-06-30 05:03 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/83818722237.shtml)
+- 2026-06-30 04:56 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/26857227.shtml)
+- 2026-06-30 04:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/300437.shtml)
