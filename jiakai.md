@@ -1,59 +1,46 @@
-# 俄央行宣布下调基准利率至14.25%
+# 美联航因燃油价格飙升下调展望
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。 俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。可持续通胀率将在2026年下半年达到4%左右。 俄央行表示，中期内，通胀风险
+由于燃油价格上涨，美国联合航空公司（UAL）将2026年每股收益预期从此前的12-14美元下调至7-11美元，尽管第一季度调整后每股收益1.19美元和营收146.1亿美元均超出预期。责任编辑：张俊 SF065
 
 ## 正文
 
-中新社莫斯科6月19日电 俄罗斯中央银行19日宣布，决定将基准利率下调25个基点至14.25%。
+由于燃油价格上涨，美国联合航空公司（UAL）将2026年每股收益预期从此前的12-14美元下调至7-11美元，尽管第一季度调整后每股收益1.19美元和营收146.1亿美元均超出预期。
 
-俄央行当天发布公告称，在今年初经济增长出现短暂下滑后，目前仍保持温和增长。
-
-可持续物价上涨略有放缓，总体维持在4%至5%的年化区间。
-
-俄央行预测，在当前货币政策下，2026年年化通胀率将降至4.5%至5.5%。
-
-可持续通胀率将在2026年下半年达到4%左右。
-
-俄央行表示，中期内，通胀风险将继续超过通缩风险。
-
-通胀风险主要与高通胀预期、工资增长长期超过生产率增长、全球经济前景恶化以及地缘政治紧张局势下全球物价压力上升有关。
-
-俄央行行长纳比乌琳娜当天在新闻发布会上表示，受一次性因素影响，当前物价上涨速度明显放缓，持续通胀预期也略有下降。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 13:28 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cknrh.md)
-- 2026-06-29 13:29 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 13:21 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-29 13:30 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
-- 2026-06-29 13:35 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ceijv.md)
-- 2026-06-29 13:32 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-29 13:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 13:22 - [【独家】牧神记 第89集 明心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 13:30 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
-- 2026-06-29 13:15 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-29 13:28 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 13:34 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 13:34 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-29 13:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 13:42 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 13:24 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
+- 2026-06-29 13:25 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:18 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 13:37 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-29 13:29 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
+- 2026-06-29 13:47 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 13:44 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 13:24 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:26 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.share.minike.top/Article/details/381032529951.shtml)
-- 2026-06-29 13:16 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/13064096932.shtml)
-- 2026-06-29 13:27 - [啊啊啊](https://www.share.minike.top/Article/details/7494282.shtml)
-- 2026-06-29 13:23 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/1400113.shtml)
-- 2026-06-29 13:34 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/42020066.shtml)
-- 2026-06-29 13:22 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/11363185949.shtml)
-- 2026-06-29 13:18 - [第一炉香](http://www.blog.minike.top/Article/details/94075.shtml)
-- 2026-06-29 13:35 - [三系杂交稻到底有多牛](http://www.share.kurohicncr.top/Article/details/682152.shtml)
-- 2026-06-29 13:38 - [中方回应对日本相关出口管制措施](http://www.share.minike.top/Article/details/448661425.shtml)
-- 2026-06-29 13:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/1548471.shtml)
-- 2026-06-29 13:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/7506299291.shtml)
-- 2026-06-29 13:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/38103.shtml)
-- 2026-06-29 13:26 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/633127452339.shtml)
-- 2026-06-29 13:39 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.minike.top/Article/details/89090.shtml)
-- 2026-06-29 13:32 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.kurohicncr.top/Article/details/062732.shtml)
+- 2026-06-29 13:44 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.minike.top/Article/details/2323601.shtml)
+- 2026-06-29 13:30 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/349088.shtml)
+- 2026-06-29 13:43 - [我和我的家乡](https://www.blog.minike.top/Article/details/682936.shtml)
+- 2026-06-29 13:21 - [韩媒破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/298145247.shtml)
+- 2026-06-29 13:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/55087.shtml)
+- 2026-06-29 13:36 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/45156181.shtml)
+- 2026-06-29 13:45 - [网友偶遇胡军和李乃文](http://www.share.minike.top/Article/details/58315640.shtml)
+- 2026-06-29 13:47 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/51904263083.shtml)
+- 2026-06-29 13:23 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.minike.top/Article/details/35610.shtml)
+- 2026-06-29 13:40 - [中央气象台发布强对流天气蓝色预警](http://www.blog.kurohicncr.top/Article/details/0963295575.shtml)
+- 2026-06-29 13:36 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/76085982.shtml)
+- 2026-06-29 13:43 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.minike.top/Article/details/40127729863.shtml)
+- 2026-06-29 13:44 - [母亲去世80万赔偿款弟弟拿走74万](https://www.blog.minike.top/Article/details/55787742.shtml)
+- 2026-06-29 13:33 - [逃狱兄弟](http://www.blog.minike.top/Article/details/0851450.shtml)
+- 2026-06-29 13:29 - [清华姚班UP主详解AI专业就业](https://www.share.kurohicncr.top/Article/details/1863177.shtml)

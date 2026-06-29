@@ -1,56 +1,54 @@
-# 6月19日收盘：美股三大股指收涨 英特尔涨超10%领涨芯片板块
+# 大陆导航APP，也上了台当局“黑名单”
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-北京时间6月19日凌晨，美股三大股指迎来修复上涨，纳指涨1.91%。美股前一交易日遭遇抛售，美联储释放年内存在加息可能性的信号。 道指涨72.71点，涨幅为0.14%，报51565.26点；纳指涨496.27点，涨幅为1.91%，报26517.93点；标普500指数涨80.48点，涨幅为1.08%，报7500.58点。 英特尔带领芯片板块走高，股价大涨10%。此前美国总统特朗普
+发布时间：2026年04月23日 15:26 来源：中国新闻网 大陆导航软件高德地图4月开放新功能，在台湾地区也能查看红绿灯倒数计时。不出意外，岛内随即有人跳出来质疑，声称这项便民功能存在所谓“国安风险”。资深媒体人罗友志则调侃，在这个时代要禁到密不透风，到底是禁心安，还是禁老百姓智商？民进党当局对大陆应用软件疑神疑鬼并非个例，此前封禁小红书也引发岛内舆论争议。台北市长蒋万安曾
 
 ## 正文
 
-北京时间6月19日凌晨，美股三大股指迎来修复上涨，纳指涨1.91%。
+发布时间：2026年04月23日 15:26 来源：中国新闻网 大陆导航软件高德地图4月开放新功能，在台湾地区也能查看红绿灯倒数计时。
 
-美股前一交易日遭遇抛售，美联储释放年内存在加息可能性的信号。
+不出意外，岛内随即有人跳出来质疑，声称这项便民功能存在所谓“国安风险”。
 
-道指涨72.71点，涨幅为0.14%，报51565.26点；纳指涨496.27点，涨幅为1.91%，报26517.93点；标普500指数涨80.48点，涨幅为1.08%，报7500.58点。
+资深媒体人罗友志则调侃，在这个时代要禁到密不透风，到底是禁心安，还是禁老百姓智商？
 
-英特尔带领芯片板块走高，股价大涨10%。
+民进党当局对大陆应用软件疑神疑鬼并非个例，此前封禁小红书也引发岛内舆论争议。
 
-此前美国总统特朗普宣布，该企业将与苹果在美国本土开展芯片设计合作。
+台北市长蒋万安曾批评，民进党当局以打诈之名，行政治操作之实，根本无法服众。
 
-英伟达、美光科技等半导体个股分别上涨超2%、8%。
-
-财富联盟首席执行官罗伯特・康佐表示：“人工智能基础设施建设、AI赋能各行各业的大背景下，企业跨界合作的市场乐观情绪不断升温。
-
-苹果与英特尔的本次合作，也可以看作未来产业合作趋势的一个缩影。
+(策划/制作：燕新台 君言晚 明昭言 中新网“燕新台”工作室出品） 责任编辑：【吉翔】
 
 ## 相关推荐
 
-- 2026-06-29 13:29 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taaze.md)
-- 2026-06-29 13:39 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 13:27 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 13:41 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 13:34 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 13:37 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-29 13:34 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 13:15 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yuedeng.md)
-- 2026-06-29 13:36 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 13:41 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 13:41 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taopiao.md)
+- 2026-06-29 13:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-29 13:20 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-29 13:32 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 13:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 13:27 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 13:20 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-29 13:46 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqnhs.md)
+- 2026-06-29 13:40 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-29 13:24 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 13:19 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
+- 2026-06-29 13:38 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:41 - [梅朗雄主张法国退出北约](https://www.share.minike.top/Article/details/0422607.shtml)
-- 2026-06-29 13:41 - [俄军新型无人机战力如何](https://www.blog.minike.top/Article/details/774494708997.shtml)
-- 2026-06-29 13:13 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.minike.top/Article/details/49983.shtml)
-- 2026-06-29 13:24 - [韩国拟将部分刑责年龄降至13岁](http://www.share.minike.top/Article/details/43349223.shtml)
-- 2026-06-29 13:34 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.minike.top/Article/details/753663695270.shtml)
-- 2026-06-29 13:22 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/24530875171.shtml)
-- 2026-06-29 13:26 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/3811462.shtml)
-- 2026-06-29 13:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/904507203564.shtml)
-- 2026-06-29 13:38 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.minike.top/Article/details/68621483.shtml)
-- 2026-06-29 13:27 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/418102492.shtml)
-- 2026-06-29 13:36 - [Mrbeast的30天不吃饭挑战](http://www.blog.kurohicncr.top/Article/details/2482441378.shtml)
-- 2026-06-29 13:14 - [T1零封KC MSI](http://www.share.minike.top/Article/details/25313366349.shtml)
-- 2026-06-29 13:19 - [未来5年全国能源体系将呈现这些特征](https://www.blog.kurohicncr.top/Article/details/947740476.shtml)
-- 2026-06-29 13:21 - [曝歌手第七期帮唱阵容](https://www.share.minike.top/Article/details/46865825.shtml)
-- 2026-06-29 13:31 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/492704886869.shtml)
+- 2026-06-29 13:39 - [2025年人口增长10强城市出炉](http://www.blog.kurohicncr.top/Article/details/88309425534.shtml)
+- 2026-06-29 13:33 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/22577.shtml)
+- 2026-06-29 13:19 - [流金岁月](https://www.blog.minike.top/Article/details/0779043827.shtml)
+- 2026-06-29 13:18 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/137162080385.shtml)
+- 2026-06-29 13:28 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/25229622.shtml)
+- 2026-06-29 13:32 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/65134230629.shtml)
+- 2026-06-29 13:36 - [一见倾心](http://www.share.minike.top/Article/details/52001840946.shtml)
+- 2026-06-29 13:47 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/0368141.shtml)
+- 2026-06-29 13:34 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/3476907.shtml)
+- 2026-06-29 13:27 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/280378928.shtml)
+- 2026-06-29 13:36 - [在自己家不穿衣服犯法吗](https://www.blog.minike.top/Article/details/310824403.shtml)
+- 2026-06-29 13:43 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/844707678.shtml)
+- 2026-06-29 13:23 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.kurohicncr.top/Article/details/08638.shtml)
+- 2026-06-29 13:36 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/96809051774.shtml)
+- 2026-06-29 13:39 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/136858.shtml)

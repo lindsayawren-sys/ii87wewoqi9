@@ -1,59 +1,56 @@
-# 中外选手南宁邕江竞渡迎端午
+# 赛峰集团因发动机交付量激增实现营收两位数增长
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网南宁6月20日电(记者 黄艳梅)“龙舟是一项很好玩的运动。通过比赛我体会到了同舟共济、团结拼搏的精神，我喜欢划龙舟。”广西交通职业技术学院刚果(金)籍留学生包爽19日接受中新网记者采访时说。 2026年南宁龙舟公开赛当日在广西南宁“母亲河”邕江擂鼓开赛，来自海内外的48支龙舟队伍劈波斩浪，让民众在端午佳节近距离感受传统龙舟的速度与激情。 南宁龙舟赛始于1978年。本届赛事
+专题：聚焦美股2026年第一季度财报 为空客、波音飞机提供动力的发动机交付量增长 63% 受 LEAP 航空发动机交付量大幅增长推动，赛峰集团一季度调整后营收攀升。 这家法国航空航天集团周四表示，一季度调整后营收增长 19%，至 86.2 亿欧元（101.2 亿美元）；合并营收为 84.9 亿欧元，高于 2025 年同期的 73.8 亿欧元。 增长主要得益于LEAP 发动机交付
 
 ## 正文
 
-中新网南宁6月20日电(记者 黄艳梅)“龙舟是一项很好玩的运动。
+专题：聚焦美股2026年第一季度财报 为空客、波音飞机提供动力的发动机交付量增长 63% 受 LEAP 航空发动机交付量大幅增长推动，赛峰集团一季度调整后营收攀升。
 
-通过比赛我体会到了同舟共济、团结拼搏的精神，我喜欢划龙舟。
+这家法国航空航天集团周四表示，一季度调整后营收增长 19%，至 86.2 亿欧元（101.2 亿美元）；合并营收为 84.9 亿欧元，高于 2025 年同期的 73.8 亿欧元。
 
-”广西交通职业技术学院刚果(金)籍留学生包爽19日接受中新网记者采访时说。
+增长主要得益于LEAP 发动机交付量激增 63%，该发动机为空客和波音多款机型提供动力。
 
-2026年南宁龙舟公开赛当日在广西南宁“母亲河”邕江擂鼓开赛，来自海内外的48支龙舟队伍劈波斩浪，让民众在端午佳节近距离感受传统龙舟的速度与激情。
+赛峰称，零部件销售额与服务销售额分别增长 29% 和 43%。
 
-南宁龙舟赛始于1978年。
+集团表示，防务业务订单延续良好增长势头，主要受欧洲市场强劲需求拉动。
 
-本届赛事设公开组22人龙舟、公开组12人龙舟和校园U18组12人龙舟三个大组，均进行200米直道赛和300米直道赛。
-
-本届赛事，青年群体表现活跃，35岁及以下人群占比近六成，让传统民俗在青春力量的加入中焕发新的活力。
-
-当日正值中国端午节，南宁围绕“龙舟竞渡、文旅融合、消费惠民”推出系列文旅体商活动，覆盖非遗展演、文艺演出、文旅体验等。
+公司维持 2026 年业绩展望不变，预计： 责任编辑：郭明煜
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
-- 2026-06-29 13:27 - [比亚迪市值为何蒸发8000亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 13:34 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-29 13:25 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 13:26 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 13:34 - [世界杯超牛补水广告出现了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jllrk.md)
-- 2026-06-29 13:28 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-29 13:12 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 13:31 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 13:13 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 13:28 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
-- 2026-06-29 13:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
-- 2026-06-29 13:31 - [A股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
+- 2026-06-29 13:41 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cantai.md)
+- 2026-06-29 13:32 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfemm.md)
+- 2026-06-29 13:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 13:21 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 13:41 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
+- 2026-06-29 13:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oskuw.md)
+- 2026-06-29 13:30 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-29 13:33 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-29 13:34 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpjjq.md)
+- 2026-06-29 13:31 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaozhai.md)
+- 2026-06-29 13:41 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 13:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 13:41 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
+- 2026-06-29 13:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/277702.shtml)
-- 2026-06-29 13:21 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/5268703.shtml)
-- 2026-06-29 13:21 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/1368650.shtml)
-- 2026-06-29 13:40 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/5771415568.shtml)
-- 2026-06-29 13:36 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/37504604334.shtml)
-- 2026-06-29 13:25 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/8860938.shtml)
-- 2026-06-29 13:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/04655.shtml)
-- 2026-06-29 13:36 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/87516487089.shtml)
-- 2026-06-29 13:31 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.minike.top/Article/details/3157684.shtml)
-- 2026-06-29 13:25 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/49970406.shtml)
-- 2026-06-29 13:22 - [爱很美味](https://www.share.kurohicncr.top/Article/details/3123122376.shtml)
-- 2026-06-29 13:32 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/7304285.shtml)
-- 2026-06-29 13:21 - [T1对战KC](https://www.blog.minike.top/Article/details/72164.shtml)
-- 2026-06-29 13:21 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/2631928834.shtml)
-- 2026-06-29 13:41 - [这位天才台湾人第一次来大陆，开智了](http://www.share.minike.top/Article/details/86832694308.shtml)
+- 2026-06-29 13:22 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/282969777895.shtml)
+- 2026-06-29 13:25 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.kurohicncr.top/Article/details/892483.shtml)
+- 2026-06-29 13:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/230063.shtml)
+- 2026-06-29 13:19 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/45451.shtml)
+- 2026-06-29 13:21 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/719995.shtml)
+- 2026-06-29 13:18 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/25867.shtml)
+- 2026-06-29 13:27 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/08382447364.shtml)
+- 2026-06-29 13:38 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/980097.shtml)
+- 2026-06-29 13:39 - [毕业群都在出什么东西](http://www.blog.minike.top/Article/details/21913.shtml)
+- 2026-06-29 13:30 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/45620886163.shtml)
+- 2026-06-29 13:27 - [天道](https://www.blog.kurohicncr.top/Article/details/8281122240.shtml)
+- 2026-06-29 13:22 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/9983104.shtml)
+- 2026-06-29 13:29 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/9005168162.shtml)
+- 2026-06-29 13:42 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/15250740.shtml)
+- 2026-06-29 13:36 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/12101959169.shtml)

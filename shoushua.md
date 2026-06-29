@@ -1,57 +1,59 @@
-# 美伊60天高危谈判开局，态度一“热”一“冷”，特朗普遭“自家人”倒戈，中东突发连环变局！
+# 江苏宁沪高速公路拟向丹金公司增资1.28亿元
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-文/筱弋 千呼万唤，美国和伊朗的代表团，21日终于在瑞士比尔根山开始谈判。 美国副总统万斯带着队伍来了，伊朗议长卡利巴夫亲自挂帅，巴基斯坦和卡塔尔的调解人也悉数到场。然而，就在大家准备入座前夕，霍尔木兹海峡却被伊朗军方“拉闸”了。 这不像是来开会，反倒像是在火药桶上“拆盲盒”。 美伊谈判表态一“热”一“冷” 谈判桌上，美伊双方的表态呈现出截然不同的“温差”。 美方释放的信号相对
+江苏宁沪高速公路（00177）发布公告，2026年4月22日，公司与常州交控、中交第三航务工程局有限公司、江苏路翔交通工程有限公司、无锡交通建设工程集团股份有限公司、中交路桥华东工程有限公司、江苏前美交通建设集团有限公司、中交二航局第四工程有限公司、江苏金堰交通工程有限公司、徐州市交通工程总承包有限公司、中交一公局第二工程有限公司、中交隧道工程局有限公司、江苏常鑫路桥集团有限公
 
 ## 正文
 
-文/筱弋 千呼万唤，美国和伊朗的代表团，21日终于在瑞士比尔根山开始谈判。
+江苏宁沪高速公路（00177）发布公告，2026年4月22日，公司与常州交控、中交第三航务工程局有限公司、江苏路翔交通工程有限公司、无锡交通建设工程集团股份有限公司、中交路桥华东工程有限公司、江苏前美交通建设集团有限公司、中交二航局第四工程有限公司、江苏金堰交通工程有限公司、徐州市交通工程总承包有限公司、中交一公局第二工程有限公司、中交隧道工程局有限公司、江苏常鑫路桥集团有限公司签署《江苏丹金高速公路有限公司引入社会资本出资协议》，共同向丹金公司出资。
 
-美国副总统万斯带着队伍来了，伊朗议长卡利巴夫亲自挂帅，巴基斯坦和卡塔尔的调解人也悉数到场。
+根据《出资协议》，公司及其他出资方向丹金公司进行现金增资，公司出资人民币1.28亿元，其他出资方总计出资人民币4.59亿元。
 
-然而，就在大家准备入座前夕，霍尔木兹海峡却被伊朗军方“拉闸”了。
+各方同意，新投资者将按照与现有股东相同的条件，按人民币每1元注册资本出资人民币1元，如同初始投资者一样。
 
-这不像是来开会，反倒像是在火药桶上“拆盲盒”。
+本次增资完成后，丹金公司增加注册资本人民币5.87亿元，公司对丹金公司的持股比将由约74.5998%降低至约69.2845%，丹金公司仍为公司的控股子公司。
 
-美伊谈判表态一“热”一“冷” 谈判桌上，美伊双方的表态呈现出截然不同的“温差”。
+丹金项目是苏南高速路网的重要组成部分，该项目的成功实施将进一步加强公司在苏南高速路网中的领先地位。
 
-美方释放的信号相对积极。
+通过引入社会资本增资，将有助于为丹金项目提供必要的资金，同时降低公司自身的资本投入要求。
 
-美国副总统万斯在21日对外表示，特朗普总统致力于实现区域全面停火，希望改善与伊朗的关系，并透露“过去数小时在相关问题上取得了重大进展”。
-
-不仅如此，美方代表团的阵容也堪称“豪华”——除了万斯亲自坐镇，还有总统特使威特科夫以及特朗普女婿库什纳。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-29 13:38 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 13:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 13:15 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 13:37 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 13:35 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 13:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 13:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
-- 2026-06-29 13:36 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 13:32 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 13:24 - [强⁶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 13:34 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 13:23 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-29 13:25 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 13:20 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 13:24 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 13:31 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chengpei.md)
+- 2026-06-29 13:31 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 13:37 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-29 13:21 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 13:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 13:43 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 13:37 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 13:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 13:36 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/okkym.md)
+- 2026-06-29 13:37 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:31 - [周生如故](https://www.share.minike.top/Article/details/356485212216.shtml)
-- 2026-06-29 13:16 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/8359174.shtml)
-- 2026-06-29 13:36 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/46733580.shtml)
-- 2026-06-29 13:20 - [马斯克也站到了光里](https://www.share.minike.top/Article/details/65305.shtml)
-- 2026-06-29 13:39 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/00803.shtml)
-- 2026-06-29 13:33 - [韩国记者：解码“合肥模式”](https://www.blog.kurohicncr.top/Article/details/6588776.shtml)
-- 2026-06-29 13:25 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.minike.top/Article/details/754512028002.shtml)
-- 2026-06-29 13:12 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/996401.shtml)
-- 2026-06-29 13:22 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/010004.shtml)
-- 2026-06-29 13:20 - [腾讯回应做独立支付APP](http://www.blog.kurohicncr.top/Article/details/48167528474.shtml)
-- 2026-06-29 13:39 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/5415882.shtml)
-- 2026-06-29 13:28 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/211891.shtml)
-- 2026-06-29 13:23 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.kurohicncr.top/Article/details/40767133959.shtml)
-- 2026-06-29 13:33 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/04588.shtml)
-- 2026-06-29 13:18 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/688836351.shtml)
+- 2026-06-29 13:34 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/44233565401.shtml)
+- 2026-06-29 13:35 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/3980813.shtml)
+- 2026-06-29 13:38 - [周生如故](https://www.blog.kurohicncr.top/Article/details/0152625.shtml)
+- 2026-06-29 13:35 - [医药股集体爆发](https://www.share.minike.top/Article/details/86875714214.shtml)
+- 2026-06-29 13:42 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/56300.shtml)
+- 2026-06-29 13:28 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/633918.shtml)
+- 2026-06-29 13:23 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.minike.top/Article/details/94128.shtml)
+- 2026-06-29 13:19 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/8239326.shtml)
+- 2026-06-29 13:28 - [日本前锋言论激怒巴西](http://www.blog.minike.top/Article/details/68850216.shtml)
+- 2026-06-29 13:45 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/50190634.shtml)
+- 2026-06-29 13:38 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/64676913482.shtml)
+- 2026-06-29 13:18 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/101238432.shtml)
+- 2026-06-29 13:35 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/38381408717.shtml)
+- 2026-06-29 13:34 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/321144244594.shtml)
+- 2026-06-29 13:26 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.blog.kurohicncr.top/Article/details/990854210.shtml)

@@ -1,58 +1,52 @@
-# 湖北咸宁九宫山护林员刘炳生：四十载寒暑守林海
+# 三部门：力争到今年底 有效铲除专利造假、不正当交易黑灰产业链
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网咸宁6月22日电 题：湖北咸宁九宫山护林员刘炳生：四十载寒暑守林海 作者 胡传林 朱亚平 金珂如 仲夏时节，走进湖北咸宁九宫山国家级自然保护区，万顷原始林海郁郁葱葱。每日清晨，58岁的护林员刘炳生都会背上行囊，奔赴深山开启巡护工作。四十载寒暑更迭，他扎根茫茫深山，用双脚丈量万亩山林，用热爱呵护草木生灵。 1986年，18岁的刘炳生子承父业，成为九宫山国家级自然保护区的一名
+国家知识产权局、公安部、国家市场监督管理总局今天(23日)发布《知识产权代理行业“整治规范年”行动方案》，持续深化知识产权代理行业整治，推动知识产权代理行业规范健康发展，营造良好创新生态和服务环境。《方案》要求，严厉打击典型违法违规代理行为，在代理审批、日常监管、行业自律等方面全面从严；整治清理违法违规代理机构和人员，夯实行业发展基础；强化政策端、申请端、代理端、审查端协同联动
 
 ## 正文
 
-中新网咸宁6月22日电 题：湖北咸宁九宫山护林员刘炳生：四十载寒暑守林海 作者 胡传林 朱亚平 金珂如 仲夏时节，走进湖北咸宁九宫山国家级自然保护区，万顷原始林海郁郁葱葱。
+国家知识产权局、公安部、国家市场监督管理总局今天(23日)发布《知识产权代理行业“整治规范年”行动方案》，持续深化知识产权代理行业整治，推动知识产权代理行业规范健康发展，营造良好创新生态和服务环境。
 
-每日清晨，58岁的护林员刘炳生都会背上行囊，奔赴深山开启巡护工作。
+《方案》要求，严厉打击典型违法违规代理行为，在代理审批、日常监管、行业自律等方面全面从严；整治清理违法违规代理机构和人员，夯实行业发展基础；强化政策端、申请端、代理端、审查端协同联动，全链条规范知识产权申请、代理、交易、使用行为。
 
-四十载寒暑更迭，他扎根茫茫深山，用双脚丈量万亩山林，用热爱呵护草木生灵。
+《方案》提出，力争到2026年底，代理违法违规行为和不规范执业行为得到全面遏制，专利造假、不正当交易的黑灰产业链得到有效铲除，行业秩序实现根本好转；代理行业准入质量显著提升，行业规模实现“瘦身健体”；协同监管、信用监管、智慧监管等长效机制进一步健全，监管能力大幅提升；知识产权代理服务质量明显提高。
 
-1986年，18岁的刘炳生子承父业，成为九宫山国家级自然保护区的一名护林员。
-
-初入深山时，父亲手把手教他辨识地形、排查火险、保护动植物。
-
-他坚守在鄂西南最高峰老鸦尖旁的林区，2017年主动请缨，奔赴更为偏远、条件更为艰苦的西隅口管理站，接续护林使命。
-
-四十年来，他风雨无阻巡护山林，累计徒步里程超30万公里，排查数百处火险隐患。
-
-日复一日穿行密林，刘炳生与这片山林结下了深厚羁绊。
+(总台央视记者 王婧）
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-29 13:27 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
-- 2026-06-29 13:23 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 13:32 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 13:41 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-29 13:32 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/weinen.md)
-- 2026-06-29 13:20 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zangfan.md)
-- 2026-06-29 13:16 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
-- 2026-06-29 13:14 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
-- 2026-06-29 13:32 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 13:13 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-29 13:41 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 13:40 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 13:32 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 13:23 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 13:25 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 13:38 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-29 13:29 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 13:40 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
+- 2026-06-29 13:35 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 13:46 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 13:39 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-29 13:21 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
+- 2026-06-29 13:20 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovbka.md)
+- 2026-06-29 13:37 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 13:31 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [美人鱼](https://www.blog.minike.top/Article/details/15734888.shtml)
-- 2026-06-29 13:37 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/75188177.shtml)
-- 2026-06-29 13:36 - [6月我国降水为何偏多](http://www.share.minike.top/Article/details/2949747.shtml)
-- 2026-06-29 13:37 - [上周末 多领域成果密集“上新”](https://www.blog.kurohicncr.top/Article/details/214117389348.shtml)
-- 2026-06-29 13:20 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.kurohicncr.top/Article/details/77774.shtml)
-- 2026-06-29 13:14 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.kurohicncr.top/Article/details/1615542.shtml)
-- 2026-06-29 13:12 - [斗破苍穹](https://www.blog.minike.top/Article/details/64654779606.shtml)
-- 2026-06-29 13:30 - [哈兰德这该死的胜负欲](http://www.share.minike.top/Article/details/301355348468.shtml)
-- 2026-06-29 13:39 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/0888058.shtml)
-- 2026-06-29 13:19 - [网友偶遇胡军和李乃文](http://www.share.minike.top/Article/details/20635990.shtml)
-- 2026-06-29 13:33 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/574755.shtml)
-- 2026-06-29 13:20 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/249731458.shtml)
-- 2026-06-29 13:36 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/35438343.shtml)
-- 2026-06-29 13:23 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.kurohicncr.top/Article/details/7350841.shtml)
-- 2026-06-29 13:39 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/03130477.shtml)
+- 2026-06-29 13:18 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/53606741.shtml)
+- 2026-06-29 13:32 - [高考志愿今起开始填报](http://www.share.minike.top/Article/details/941960634.shtml)
+- 2026-06-29 13:23 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/653226.shtml)
+- 2026-06-29 13:40 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/73011645.shtml)
+- 2026-06-29 13:24 - [王楚钦3比0周启豪](https://www.blog.minike.top/Article/details/742999.shtml)
+- 2026-06-29 13:45 - [加拿大92分钟绝杀](https://www.share.kurohicncr.top/Article/details/145117735387.shtml)
+- 2026-06-29 13:45 - [多只A股发布股价异动公告](https://www.blog.kurohicncr.top/Article/details/21756611610.shtml)
+- 2026-06-29 13:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/88849884478.shtml)
+- 2026-06-29 13:38 - [普京：俄面临命运攸关时刻](https://www.blog.kurohicncr.top/Article/details/06320.shtml)
+- 2026-06-29 13:42 - [职业选手禁止参赛！](http://www.blog.kurohicncr.top/Article/details/6570507.shtml)
+- 2026-06-29 13:40 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/0468217255.shtml)
+- 2026-06-29 13:34 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/99474677929.shtml)
+- 2026-06-29 13:35 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.kurohicncr.top/Article/details/967927126536.shtml)
+- 2026-06-29 13:36 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/33858.shtml)
+- 2026-06-29 13:34 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.kurohicncr.top/Article/details/1723946527.shtml)

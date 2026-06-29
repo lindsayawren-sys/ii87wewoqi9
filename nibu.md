@@ -1,59 +1,50 @@
-# 斯塔默去留悬而未决，政策连续性遭遇重新评估
+# 洲际船务附属拟7270万美元出售两艘船舶
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-汇通财经APP讯——6月22日周一，英国政治格局正在经历显著扰动。围绕首相基尔·斯塔默可能提前公布离任时间表的消息持续发酵，使市场重新定价英国政治稳定性溢价。尽管相关表态仍存在不确定性，但多方信号已显示，执政核心层对权力延续能力的判断正在发生变化。与此同时，潜在接任人选安迪·伯纳姆的快速崛起，使政治路径从“稳定预期”迅速转向“高频变动预期”，这对金融市场风险评估框架形成直接冲击
+洲际船务（02409）发布公告，于2026年4月23日（联交所交易时段后），卖方Seacon Vancouver Ltd及Seacon Oslo Ltd（公司的间接全资附属公司）与买方AsyadShipping Company SAOG（ASCO）订立协议，据此，卖方同意出售而买方同意购买船舶，总代价为7270万美元，每艘船舶的代价为3635万美元。 船舶目前根据各自的光船租赁
 
 ## 正文
 
-汇通财经APP讯——6月22日周一，英国政治格局正在经历显著扰动。
+洲际船务（02409）发布公告，于2026年4月23日（联交所交易时段后），卖方Seacon Vancouver Ltd及Seacon Oslo Ltd（公司的间接全资附属公司）与买方AsyadShipping Company SAOG（ASCO）订立协议，据此，卖方同意出售而买方同意购买船舶，总代价为7270万美元，每艘船舶的代价为3635万美元。
 
-围绕首相基尔·斯塔默可能提前公布离任时间表的消息持续发酵，使市场重新定价英国政治稳定性溢价。
+船舶目前根据各自的光船租赁，由各自的拥有人租赁予卖方。
 
-尽管相关表态仍存在不确定性，但多方信号已显示，执政核心层对权力延续能力的判断正在发生变化。
+卖方意图于交付日期之前，根据光船租赁的条款，按各自的购买选择权价格行使各自的购买选择权以收购船舶。
 
-与此同时，潜在接任人选安迪·伯纳姆的快速崛起，使政治路径从“稳定预期”迅速转向“高频变动预期”，这对金融市场风险评估框架形成直接冲击。
+卖方透过行使购买选择权收购的船舶，将根据协议进一步交付予买方。
 
-一 政治周期突变与制度稳定性再评估 当前局势的关键不在于单一领导人去留，而在于英国在短时间内可能进入第七任首相周期的结构性变化。
-
-过去十年高频更迭已形成路径依赖，使政策连续性折价成为市场长期变量。
-
-本轮变化的特殊性在于，执政党内部推动的权力重组加速，使传统选举周期约束被内部政治博弈部分弱化。
-
-从定价逻辑看，政治稳定性下降通常会通过三个路径传导：政府债务融资成本上行、长期投资决策延迟、外资配置权重调整。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nvtpn.md)
-- 2026-06-29 13:32 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 13:12 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sdlua.md)
-- 2026-06-29 13:41 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 13:29 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-29 13:16 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-29 13:40 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
-- 2026-06-29 13:32 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:21 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:31 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
-- 2026-06-29 13:21 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 13:21 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 13:28 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 13:24 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-29 13:47 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 13:30 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-29 13:19 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 13:43 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
+- 2026-06-29 13:37 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
+- 2026-06-29 13:19 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:26 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-29 13:25 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 13:25 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/29216.shtml)
-- 2026-06-29 13:39 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/7878424064.shtml)
-- 2026-06-29 13:28 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/740591765.shtml)
-- 2026-06-29 13:30 - [医药股集体爆发](https://www.share.minike.top/Article/details/53788474907.shtml)
-- 2026-06-29 13:36 - [智界V9成为高端圈层共同选择](https://www.share.minike.top/Article/details/5095814291.shtml)
-- 2026-06-29 13:14 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/43308.shtml)
-- 2026-06-29 13:19 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/5393161653.shtml)
-- 2026-06-29 13:40 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/3341404786.shtml)
-- 2026-06-29 13:22 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/4472758.shtml)
-- 2026-06-29 13:38 - [媒体评恋与深空争议](http://www.blog.kurohicncr.top/Article/details/755000394.shtml)
-- 2026-06-29 13:12 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/51230.shtml)
-- 2026-06-29 13:24 - [找到了10年前跪舔b站的视频](https://www.blog.minike.top/Article/details/34944.shtml)
-- 2026-06-29 13:32 - [毕业寄几百斤快递回家女生发声](http://www.share.kurohicncr.top/Article/details/2886044.shtml)
-- 2026-06-29 13:23 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/932024887205.shtml)
-- 2026-06-29 13:15 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/0875525.shtml)
+- 2026-06-29 13:18 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/28175.shtml)
+- 2026-06-29 13:19 - [强⁶](http://www.blog.minike.top/Article/details/553715190922.shtml)
+- 2026-06-29 13:18 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/224771.shtml)
+- 2026-06-29 13:36 - [沙特足协主席发布声明主动请辞](https://www.share.kurohicncr.top/Article/details/3497668515.shtml)
+- 2026-06-29 13:47 - [F1奥地利大奖赛正赛集锦](http://www.blog.kurohicncr.top/Article/details/188084.shtml)
+- 2026-06-29 13:39 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/022288.shtml)
+- 2026-06-29 13:43 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/053917920.shtml)
+- 2026-06-29 13:22 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.minike.top/Article/details/79185308.shtml)
+- 2026-06-29 13:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/31240.shtml)
+- 2026-06-29 13:41 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/394873816518.shtml)
+- 2026-06-29 13:45 - [前国足主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/1497710.shtml)
+- 2026-06-29 13:42 - [一见倾心](https://www.share.kurohicncr.top/Article/details/19313110767.shtml)
+- 2026-06-29 13:45 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.minike.top/Article/details/1110533.shtml)
+- 2026-06-29 13:26 - [辽宁葫芦岛坍塌居民楼有人员失联](https://www.blog.minike.top/Article/details/852673976115.shtml)
+- 2026-06-29 13:25 - [普京称考虑全面禁止柴油出口](https://www.share.minike.top/Article/details/8706577.shtml)

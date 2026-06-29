@@ -1,59 +1,47 @@
-# 牛市旗手回归，千亿巨头涨停！顶流券商ETF华宝（512000）猛攻5%，机构高呼：所有错杀，都会涨回
+# 特朗普下令击沉任何在霍尔木兹海峡布设水雷的船只
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-6月22日，券商异动猛攻，千亿巨头广发证券封板，长江证券冲击涨停，中信建投涨超7%，华泰证券涨超6%，中信证券、东方财富涨超5%。规模360亿元+的顶流券商ETF华宝（512000）低开高走，午后进一步拉升，场内价格现涨超5%。 分析认为，当下券商板块迎来多重逻辑支撑：首先是市场风格再平衡，中报有业绩支撑的券商板块弹性更强；二是券商行业并购重组加速推进，政策支持下行业集中度提升
+新华社华盛顿4月23日电 美国总统特朗普23日在社交媒体上称，他已向美国海军下令，一旦发现任何船只在霍尔木兹海峡水域布设水雷，可开火将其击沉。
 
 ## 正文
 
-6月22日，券商异动猛攻，千亿巨头广发证券封板，长江证券冲击涨停，中信建投涨超7%，华泰证券涨超6%，中信证券、东方财富涨超5%。
-
-规模360亿元+的顶流券商ETF华宝（512000）低开高走，午后进一步拉升，场内价格现涨超5%。
-
-分析认为，当下券商板块迎来多重逻辑支撑：首先是市场风格再平衡，中报有业绩支撑的券商板块弹性更强；二是券商行业并购重组加速推进，政策支持下行业集中度提升，头部及区域券商竞争力有望增强；三是板块业绩与估值存在明显“剪刀差”，2025年以来多数券商业绩稳健增长但股价滞涨，估值修复空间充足；四是年内A股IPO数量及募资金额同比大幅增长，为券商投行带来稳定收入增量；五是A股交投活跃带动财富管理需求攀升，券商相关业务迎来成长机遇。
-
-东方财富证券指出，所有错杀，都会涨回。
-
-强烈看好非银金融，尤其是券商，其ROE已创22年以来新高，仍有进一步提升空间。
-
-其PB低于历史90%时间。
-
-如果未来大A真有走熊那天，那么券商估值也已经率先完成这个进程。
-
-反之，市场因为任何理由极限压制券商估值，其后续终会像弹簧一样修复。
+新华社华盛顿4月23日电 美国总统特朗普23日在社交媒体上称，他已向美国海军下令，一旦发现任何船只在霍尔木兹海峡水域布设水雷，可开火将其击沉。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
-- 2026-06-29 13:30 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 13:20 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 13:33 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 13:34 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 13:18 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 13:18 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 13:17 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
-- 2026-06-29 13:36 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
-- 2026-06-29 13:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
-- 2026-06-29 13:17 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
-- 2026-06-29 13:19 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 13:24 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 13:34 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 13:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-29 13:44 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
+- 2026-06-29 13:42 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 13:42 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
+- 2026-06-29 13:20 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 13:31 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jtjex.md)
+- 2026-06-29 13:32 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 13:42 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 13:24 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 13:30 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 13:37 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
+- 2026-06-29 13:19 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-29 13:32 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frilp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:16 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.minike.top/Article/details/808346340288.shtml)
-- 2026-06-29 13:21 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/447141182.shtml)
-- 2026-06-29 13:39 - [尽量少用玻璃吸管](https://www.share.minike.top/Article/details/148558567.shtml)
-- 2026-06-29 13:21 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/49503889466.shtml)
-- 2026-06-29 13:34 - [A股限售股解禁一览](http://www.share.minike.top/Article/details/350363.shtml)
-- 2026-06-29 13:35 - [流金岁月](https://www.share.kurohicncr.top/Article/details/00653391257.shtml)
-- 2026-06-29 13:31 - [张真源解读相思锁](https://www.share.minike.top/Article/details/475500874.shtml)
-- 2026-06-29 13:17 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/554951.shtml)
-- 2026-06-29 13:18 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/638498686364.shtml)
-- 2026-06-29 13:36 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/982240193.shtml)
-- 2026-06-29 13:21 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/494317693979.shtml)
-- 2026-06-29 13:33 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/137208439.shtml)
-- 2026-06-29 13:26 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/03585172.shtml)
-- 2026-06-29 13:31 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/6741582666.shtml)
-- 2026-06-29 13:32 - [白玉兰最佳女主角提名片段](https://www.blog.minike.top/Article/details/6448097523.shtml)
+- 2026-06-29 13:27 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/03504.shtml)
+- 2026-06-29 13:25 - [加拿大92分钟绝杀南非](https://www.blog.minike.top/Article/details/18383.shtml)
+- 2026-06-29 13:25 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.minike.top/Article/details/3473712.shtml)
+- 2026-06-29 13:38 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/32921410131.shtml)
+- 2026-06-29 13:39 - [前国足主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/3435749085.shtml)
+- 2026-06-29 13:19 - [T1对战KC](https://www.blog.minike.top/Article/details/4238897.shtml)
+- 2026-06-29 13:43 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/66073040713.shtml)
+- 2026-06-29 13:18 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/48127.shtml)
+- 2026-06-29 13:40 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.kurohicncr.top/Article/details/785833371348.shtml)
+- 2026-06-29 13:34 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/0201079885.shtml)
+- 2026-06-29 13:35 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/2442875.shtml)
+- 2026-06-29 13:41 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/03199661.shtml)
+- 2026-06-29 13:27 - [爱很美味](https://www.share.minike.top/Article/details/760975169800.shtml)
+- 2026-06-29 13:32 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/55313.shtml)
+- 2026-06-29 13:35 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/71278487867.shtml)

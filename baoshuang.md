@@ -1,59 +1,61 @@
-# 易捷航空董事会拒绝卡斯尔莱克63亿美元收购要约
+# 美联储主席提名人沃什的“双重面孔”
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。 易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支
+在美联储的鹰派岁月里，凯文·沃什如同一名手持利刃的通胀猎手。那时的沃什，是紧缩的旗手，是通胀的宿敌，是泡沫预言家不愿听到的名字。 然而时移世易，后来的沃什放下了曾经紧握的利率长矛，低利率成为他新的信条，公开批评美联储自酿苦果，呼吁一场制度的更迭。他依然谈论独立性，但措辞中多了与政治风向的妥协。 据新华社报道，美国总统特朗普提名的美联储主席候选人凯文·沃什21日在国会参议院银行委
 
 ## 正文
 
-根据本次收购方案，接受要约的易捷航空股东每股将获得 625 便士现金，溢价幅度约 59% 此前易捷航空曾表示，卡斯尔莱克选择此时发起收购属于借机抄底，受中东局势影响，公司股价当时正处于阶段性低位。
+在美联储的鹰派岁月里，凯文·沃什如同一名手持利刃的通胀猎手。
 
-易捷航空董事会否决了美国投资公司卡斯尔莱克第三次价值 47.4 亿英镑（折合 62.7 亿美元）的收购要约。
+那时的沃什，是紧缩的旗手，是通胀的宿敌，是泡沫预言家不愿听到的名字。
 
-受中东冲突冲击股价下跌后，这家美国投资机构仍呼吁该英国廉价航空公司的股东支持其将易捷航空私有化的收购计划。
+然而时移世易，后来的沃什放下了曾经紧握的利率长矛，低利率成为他新的信条，公开批评美联储自酿苦果，呼吁一场制度的更迭。
 
-按照收购方案，接受要约的易捷航空股东每股可获得 625 便士现金。
+他依然谈论独立性，但措辞中多了与政治风向的妥协。
 
-相较于该机构首次披露拟发起收购前、公司 5 月 28 日 394.20 便士的收盘价，本次要约溢价约 59%。
+据新华社报道，美国总统特朗普提名的美联储主席候选人凯文·沃什21日在国会参议院银行委员会听证会上表示，若当选，他“绝对不会成为总统的傀儡”。
 
-卡斯尔莱克要求易捷航空股东在本周五监管申报截止日期前考量该收购方案，届时收购方需正式对外公布明确的收购意向。
+“如果确认出任美联储主席一职，我将成为一名独立的行动者。
 
-过去一个月内，该机构已先后两次提出收购报价：每股 560 便士、每股 600 便士的要约分别在本周二、上周六遭到拒绝，最新一轮收购要约于上周日被易捷航空董事会否决。
+”沃什说。
 
-易捷航空表示，董事会全体一致否决本次最新要约，理由是该报价仍严重低估了公司自身业务价值与未来发展前景，并建议股东现阶段不要接受本次收购邀约。
+但沃什一席话并未打消外界的担忧，他巧妙地回避了一系列棘手的问题，以案件在审理为由，拒绝就特朗普试图解雇美联储理事莉萨·库克的举动、针对美联储现任主席鲍威尔的刑事调查表明任何立场。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 13:24 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 13:37 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
-- 2026-06-29 13:21 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-29 13:16 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-29 13:29 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
-- 2026-06-29 13:26 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-29 13:41 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 13:39 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 13:19 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:30 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-29 13:38 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
-- 2026-06-29 13:33 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 13:21 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
+- 2026-06-29 13:32 - [啊啊啊](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 13:44 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 13:23 - [汪东城回应45岁婚约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 13:40 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
+- 2026-06-29 13:19 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 13:34 - [加拿大92分钟绝杀南非](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 13:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:41 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 13:38 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
+- 2026-06-29 13:23 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 13:46 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-29 13:41 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-29 13:22 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 13:35 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [宜宾地震致13人受轻微伤](http://www.share.minike.top/Article/details/0287311319.shtml)
-- 2026-06-29 13:27 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/2335433527.shtml)
-- 2026-06-29 13:39 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/9279195759.shtml)
-- 2026-06-29 13:12 - [T1零封KC MSI](https://www.share.minike.top/Article/details/16682.shtml)
-- 2026-06-29 13:27 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/7070185783.shtml)
-- 2026-06-29 13:15 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/7992752.shtml)
-- 2026-06-29 13:32 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/3151054575.shtml)
-- 2026-06-29 13:41 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/676500469498.shtml)
-- 2026-06-29 13:40 - [北极荒岛生存挑战](http://www.blog.minike.top/Article/details/635398.shtml)
-- 2026-06-29 13:30 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/35505822.shtml)
-- 2026-06-29 13:14 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.minike.top/Article/details/068815.shtml)
-- 2026-06-29 13:37 - [强⁶](http://www.blog.kurohicncr.top/Article/details/57568365940.shtml)
-- 2026-06-29 13:24 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/4210758583.shtml)
-- 2026-06-29 13:20 - [异世界一点都不好玩！](http://www.blog.kurohicncr.top/Article/details/88740519540.shtml)
-- 2026-06-29 13:23 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/34713407.shtml)
+- 2026-06-29 13:41 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/0013896.shtml)
+- 2026-06-29 13:45 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/1132691587.shtml)
+- 2026-06-29 13:41 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/021873235057.shtml)
+- 2026-06-29 13:47 - [日本主帅：对战胜巴西很有信心](http://www.blog.kurohicncr.top/Article/details/7933581.shtml)
+- 2026-06-29 13:29 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/991730695.shtml)
+- 2026-06-29 13:33 - [金牌调解](https://www.blog.minike.top/Article/details/15130.shtml)
+- 2026-06-29 13:23 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/1164352670.shtml)
+- 2026-06-29 13:47 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/57331872.shtml)
+- 2026-06-29 13:39 - [沉睡花园](http://www.share.minike.top/Article/details/567715.shtml)
+- 2026-06-29 13:24 - [女心理师](http://www.share.minike.top/Article/details/077167745117.shtml)
+- 2026-06-29 13:38 - [A股](http://www.blog.kurohicncr.top/Article/details/03936737620.shtml)
+- 2026-06-29 13:24 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.kurohicncr.top/Article/details/240257.shtml)
+- 2026-06-29 13:43 - [韩国拟将部分刑责年龄降至13岁](https://www.blog.kurohicncr.top/Article/details/730786.shtml)
+- 2026-06-29 13:39 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/0968240.shtml)
+- 2026-06-29 13:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/639177337142.shtml)

@@ -1,57 +1,58 @@
-# 韩国今年迄今出口额达4564亿美元，同比飙升45.6%
+# 姚顺雨加盟后首交“成绩单”，腾讯混元Hy3 preview模型发布
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-韩国海关周一公布的数据显示，6月前20天韩国出口额同比增长60.4%，创下历史新高，其中半导体出货量强劲增长尤为突出。 韩国海关总署数据显示，6月1日至20日期间，韩国出口额达到620亿美元，而去年同期为386亿美元。 这一数字创下历史新高，超过了今年3月前20天创下的543亿美元的前纪录。 同期进口额同比增长23.2%，达到445亿美元，贸易顺差达170亿美元。 按行业划分，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！腾讯混元“重建”后首次发布大模型。 4月23日，腾讯混元 Hy3 preview 语言模型发布并开源。这是一个快慢思考融合的混合专家模型，总参数295B，激活参数21B，最大支持256K上下文长度。这是混元重建后训练的第一个模型，也是混元迄今最智能的模型，在复杂推理、指令遵循、上下文学习、代码、智能体等能力
 
 ## 正文
 
-韩国海关周一公布的数据显示，6月前20天韩国出口额同比增长60.4%，创下历史新高，其中半导体出货量强劲增长尤为突出。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-韩国海关总署数据显示，6月1日至20日期间，韩国出口额达到620亿美元，而去年同期为386亿美元。
+腾讯混元“重建”后首次发布大模型。
 
-这一数字创下历史新高，超过了今年3月前20天创下的543亿美元的前纪录。
+4月23日，腾讯混元 Hy3 preview 语言模型发布并开源。
 
-同期进口额同比增长23.2%，达到445亿美元，贸易顺差达170亿美元。
+这是一个快慢思考融合的混合专家模型，总参数295B，激活参数21B，最大支持256K上下文长度。
 
-按行业划分，受人工智能（AI）行业推动的全球存储器需求激增，芯片出口额增长近两倍，达到255亿美元，占出口总额的41.2%，较上年同期增长18.3个百分点。
+这是混元重建后训练的第一个模型，也是混元迄今最智能的模型，在复杂推理、指令遵循、上下文学习、代码、智能体等能力及推理性能上实现大幅提升。
 
-汽车和石油产品出口额也分别增长2.3%和39%，达到37.3亿美元和36.7亿美元。
+值得注意的是，这是腾讯混元在去年重建后，首次对外披露大模型。
 
-不过，汽车零部件出口额下降9.5%，至11亿美元。
+去年12月17日，澎湃新闻记者了解到，腾讯升级大模型研发架构，新成立AI Infra部、AI Data部、数据计算平台部，全面强化其大模型的研发体系与核心能力。
 
-按目的地划分，对华出口额飙升86.9%，达到130亿美元；对美出口额也大幅增长53.9%，达到114亿美元。
+姚顺雨（Vinces Yao）出任“CEO/总裁办公室”首席AI科学家，向腾讯总裁刘炽平汇报；同时兼任AI Infra部、大语言模型部负责人，向技术工程事业群总裁卢山汇报。
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 13:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-29 13:36 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-29 13:18 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
-- 2026-06-29 13:39 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 13:24 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
-- 2026-06-29 13:19 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-29 13:30 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-29 13:40 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-29 13:14 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
-- 2026-06-29 13:41 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
+- 2026-06-29 13:44 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuhao.md)
+- 2026-06-29 13:46 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lyqms.md)
+- 2026-06-29 13:29 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
+- 2026-06-29 13:38 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvumi.md)
+- 2026-06-29 13:42 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 13:44 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-29 13:35 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 13:44 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 13:18 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-29 13:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 13:27 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-29 13:28 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [运20飞机列装空军十周年](http://www.blog.kurohicncr.top/Article/details/73470812899.shtml)
-- 2026-06-29 13:19 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/7984616.shtml)
-- 2026-06-29 13:38 - [实习期把公司领导开除了](https://www.blog.kurohicncr.top/Article/details/05726.shtml)
-- 2026-06-29 13:19 - [中餐厅南北饮食差异](https://www.share.kurohicncr.top/Article/details/6676245985.shtml)
-- 2026-06-29 13:28 - [恋与深空需直面玩家6大疑问](http://www.share.minike.top/Article/details/568444.shtml)
-- 2026-06-29 13:24 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/56918181.shtml)
-- 2026-06-29 13:25 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/31601119532.shtml)
-- 2026-06-29 13:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.minike.top/Article/details/013351.shtml)
-- 2026-06-29 13:21 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/472252.shtml)
-- 2026-06-29 13:14 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/8912473.shtml)
-- 2026-06-29 13:29 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/625622731828.shtml)
-- 2026-06-29 13:26 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/791542586222.shtml)
-- 2026-06-29 13:22 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/7705313072.shtml)
-- 2026-06-29 13:22 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/664106748175.shtml)
-- 2026-06-29 13:18 - [啊啊啊](http://www.share.minike.top/Article/details/294869.shtml)
+- 2026-06-29 13:22 - [韩国记者：解码“合肥模式”](https://www.share.minike.top/Article/details/4914604811.shtml)
+- 2026-06-29 13:36 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/70535.shtml)
+- 2026-06-29 13:34 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/7393309221.shtml)
+- 2026-06-29 13:45 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.minike.top/Article/details/45006103404.shtml)
+- 2026-06-29 13:45 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/11228571921.shtml)
+- 2026-06-29 13:27 - [手底下人带不动怎么办？](https://www.share.kurohicncr.top/Article/details/071969545.shtml)
+- 2026-06-29 13:36 - [古力娜扎美出新高度](http://www.share.minike.top/Article/details/24489.shtml)
+- 2026-06-29 13:26 - [久坐小心“死臀综合征”](http://www.share.kurohicncr.top/Article/details/82393287275.shtml)
+- 2026-06-29 13:35 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/33526177907.shtml)
+- 2026-06-29 13:35 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.blog.kurohicncr.top/Article/details/5434646.shtml)
+- 2026-06-29 13:26 - [薛之谦演唱会](https://www.blog.kurohicncr.top/Article/details/354485.shtml)
+- 2026-06-29 13:23 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/507866.shtml)
+- 2026-06-29 13:18 - [大范围炎热天气将至](https://www.blog.kurohicncr.top/Article/details/7908538.shtml)
+- 2026-06-29 13:26 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/8994783.shtml)
+- 2026-06-29 13:45 - [毒液2](http://www.blog.minike.top/Article/details/3319837358.shtml)

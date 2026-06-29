@@ -1,59 +1,58 @@
-# 日本央行副行长称将继续加息，以防范潜在通胀率超过目标
+# 中国（南京）软件谷与中国信通院打造智能经济新生态
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-日本央行副行长冰见野良三周五表示，日本央行将继续加息，以防范潜在通胀率超过2%的目标。 冰见野良三指出，由于企业将中东冲突带来的成本上涨转嫁给消费者，批发通胀率正以较快的速度加速上升，这可能导致更广泛的物价上涨。 冰见野良三在日本国会解释日本央行周二将政策利率上调至1%的原因时说：“潜在通胀存在偏离目标并向上波动的风险。” 他表示，尽管中东冲突导致油价上涨可能对经济增长构成压力
+中新网北京4月23日电 (记者 刘亮)记者23日从中国信通院获悉，中国(南京)软件谷与中国信息通信研究院近日正式签署战略合作框架协议，双方将紧扣国家“人工智能+”行动部署与“打造智能经济新形态”政策导向，聚焦数字员工平台建设与OPC(一人公司)模式创新，构建“平台化承载、场景化落地、产业化孵化、治理化运行”的新型合作体系。当前，人工智能正从“生成内容”向“执行任务、协同工作、交
 
 ## 正文
 
-日本央行副行长冰见野良三周五表示，日本央行将继续加息，以防范潜在通胀率超过2%的目标。
+中新网北京4月23日电 (记者 刘亮)记者23日从中国信通院获悉，中国(南京)软件谷与中国信息通信研究院近日正式签署战略合作框架协议，双方将紧扣国家“人工智能+”行动部署与“打造智能经济新形态”政策导向，聚焦数字员工平台建设与OPC(一人公司)模式创新，构建“平台化承载、场景化落地、产业化孵化、治理化运行”的新型合作体系。
 
-冰见野良三指出，由于企业将中东冲突带来的成本上涨转嫁给消费者，批发通胀率正以较快的速度加速上升，这可能导致更广泛的物价上涨。
+当前，人工智能正从“生成内容”向“执行任务、协同工作、交付结果”的新阶段加速演进。
 
-冰见野良三在日本国会解释日本央行周二将政策利率上调至1%的原因时说：“潜在通胀存在偏离目标并向上波动的风险。
+2026年政府工作报告首次明确“打造智能经济新形态”，将人工智能作为拓展经济增长新空间的核心引擎，而OPC一人公司凭借“超级个体+ AI协同”的新型组织形态，已成为激发市场活力的重要载体，全国注册量年增超47%，长三角地区更是集聚近半数新增主体。
 
-” 他表示，尽管中东冲突导致油价上涨可能对经济增长构成压力，但由于企业利润和家庭收入的强劲增长，日本经济展现出韧性。
+作为中国首个软件名城核心承载区与南京人工智能生态建设主阵地，中国(南京)软件谷已集聚AI企业381家、从业人员超5万人，“AI·镜界”人工智能生态街区等载体加速成型，着力推动产业从单点应用迈向生态化协同。
 
-美国周四宣布解除对伊朗的封锁，随着结束战争的临时协议生效，油轮得以通过霍尔木兹海峡。
+据了解，中国(南京)软件谷与中国信通院拟共建标准化数字员工供给体系，整合底层技术形成可复用、可扩展的智能化服务矩阵，同时建立覆盖全生命周期的OPC场景适配规范，破解单人公司智能化转型的合规与稳定性难题，护航“单人成军”创业新模式。
 
-尽管两国之间仍有一些关键问题尚未解决。
+合作拟聚焦产业研究、跨境电商、制造运维等高频场景，加速数实融合落地；通过定向培养复合型AI人才、开展企业管理者专项培训，推动传统企业向OPC模式演化重构。
 
-当被问及日元疲软时，冰见野良三表示，日本央行正密切关注日元走势，因为这是影响经济和通胀的关键因素之一。
+双方还将搭建面向中小企业与创业者的公共AI能力底座，开放算力、数据等核心资源，带动数据治理、运维审计等配套服务链发展，进一步完善区域“创新链—产业链—资金链—人才链”深度融合的智能原生产业生态。
 
-日本央行周二将利率上调至31年来的最高水平，这是其政策正常化进程中的一个里程碑式步骤，表明日本准备进一步收紧货币政策，以应对伊朗冲突引发的能源冲击带来的价格压力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 13:32 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 13:32 - [曾沛慈夺冠后人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-29 13:19 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 13:24 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 13:24 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 13:35 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
-- 2026-06-29 13:30 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
-- 2026-06-29 13:20 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-29 13:40 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:36 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:21 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
-- 2026-06-29 13:27 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 13:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 13:24 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-29 13:23 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
+- 2026-06-29 13:40 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/youlan.md)
+- 2026-06-29 13:27 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 13:36 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
+- 2026-06-29 13:36 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 13:33 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 13:39 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
+- 2026-06-29 13:27 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-29 13:36 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
+- 2026-06-29 13:33 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:18 - [极限挑战第一季](http://www.blog.minike.top/Article/details/113099639944.shtml)
-- 2026-06-29 13:32 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/505383690642.shtml)
-- 2026-06-29 13:21 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/058796.shtml)
-- 2026-06-29 13:16 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/0430194959.shtml)
-- 2026-06-29 13:33 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/13825623.shtml)
-- 2026-06-29 13:13 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/51917008625.shtml)
-- 2026-06-29 13:41 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/51921398.shtml)
-- 2026-06-29 13:20 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://www.share.minike.top/Article/details/6713275940.shtml)
-- 2026-06-29 13:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/97595.shtml)
-- 2026-06-29 13:41 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/03894.shtml)
-- 2026-06-29 13:22 - [大 周 礼 时 代(4)](http://www.share.minike.top/Article/details/4831247.shtml)
-- 2026-06-29 13:13 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/02871.shtml)
-- 2026-06-29 13:13 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/02920586524.shtml)
-- 2026-06-29 13:13 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/78806015558.shtml)
-- 2026-06-29 13:17 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/86973257.shtml)
+- 2026-06-29 13:31 - [吴昕要助理买的药6年前已停产](https://www.blog.kurohicncr.top/Article/details/5628416020.shtml)
+- 2026-06-29 13:25 - [腾讯回应做独立支付APP](http://www.blog.minike.top/Article/details/83464989155.shtml)
+- 2026-06-29 13:39 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/94685536.shtml)
+- 2026-06-29 13:30 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/4149503.shtml)
+- 2026-06-29 13:24 - [久坐小心“死臀综合征”](https://www.share.minike.top/Article/details/24607723.shtml)
+- 2026-06-29 13:40 - [女心理师](http://www.share.minike.top/Article/details/15477414261.shtml)
+- 2026-06-29 13:21 - [恋与深空失控领地](https://www.share.minike.top/Article/details/25742.shtml)
+- 2026-06-29 13:42 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/4716388.shtml)
+- 2026-06-29 13:32 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.minike.top/Article/details/200518860447.shtml)
+- 2026-06-29 13:21 - [宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/2291766017.shtml)
+- 2026-06-29 13:44 - [事关个税 明日截止请抓紧办理](https://www.share.minike.top/Article/details/82529859592.shtml)
+- 2026-06-29 13:45 - [四川宜宾地震已致13人受轻微伤](http://www.share.kurohicncr.top/Article/details/8477039049.shtml)
+- 2026-06-29 13:45 - [2026年Mac能玩游戏了吗](https://www.share.kurohicncr.top/Article/details/34315.shtml)
+- 2026-06-29 13:41 - [四川宜宾地震已致13人受轻微伤](http://www.blog.minike.top/Article/details/487089365.shtml)
+- 2026-06-29 13:24 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/5584913.shtml)

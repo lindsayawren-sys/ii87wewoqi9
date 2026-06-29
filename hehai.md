@@ -1,59 +1,57 @@
-# 第28届金爵奖揭晓 中国影片《大西洋》斩获最佳影片
+# 黑龙江“换心人”健康存活32年 刷新亚洲纪录
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新社上海6月20日电 (记者 王笈)第28届上海国际电影节金爵奖颁奖典礼20日晚在上海大剧院举行。中国影片《大西洋》斩获最佳影片、最佳摄影两项大奖，比利时影片《微光女孩》获颁评委会大奖。 《大西洋》是“95后”导演钟凯峰自编自导的长片首作，以声音美学构建起一场奇幻寻父之旅，是一则关于身份、记忆与被时代吞没之人的寓言。 评委会表示，这是一部给所有评委带来惊喜的作品。导演以实验性
+中新网哈尔滨4月23日电(记者 刘璐)“遵照医嘱、规律生活、阳光心态。”4月23日，在哈尔滨医科大学附属第二医院(以下简称哈医大二院)第二十二届“4.26爱心日”大型义诊活动现场，术后健康存活32年的于文峰总结了自己的“养心经”。 作为中国最早开展脏器移植研究的医院之一，1994年2月，哈医大二院为黑龙江省尚志市帽儿山镇中学教师于文峰成功实施了同种异体心脏移植手术。术后，他重返
 
 ## 正文
 
-中新社上海6月20日电 (记者 王笈)第28届上海国际电影节金爵奖颁奖典礼20日晚在上海大剧院举行。
+中新网哈尔滨4月23日电(记者 刘璐)“遵照医嘱、规律生活、阳光心态。
 
-中国影片《大西洋》斩获最佳影片、最佳摄影两项大奖，比利时影片《微光女孩》获颁评委会大奖。
+”4月23日，在哈尔滨医科大学附属第二医院(以下简称哈医大二院)第二十二届“4.26爱心日”大型义诊活动现场，术后健康存活32年的于文峰总结了自己的“养心经”。
 
-《大西洋》是“95后”导演钟凯峰自编自导的长片首作，以声音美学构建起一场奇幻寻父之旅，是一则关于身份、记忆与被时代吞没之人的寓言。
+作为中国最早开展脏器移植研究的医院之一，1994年2月，哈医大二院为黑龙江省尚志市帽儿山镇中学教师于文峰成功实施了同种异体心脏移植手术。
 
-评委会表示，这是一部给所有评委带来惊喜的作品。
+术后，他重返教学一线。
 
-导演以实验性的先锋姿态，大胆叩问人生的荒诞底色；摄影与剪接如翼双飞，以凌厉而富有韵律的视觉语言，构筑出一场前所未见的银幕奇观。
+32年过去，如今63岁的于文峰依然保持着良好的生活状态，是亚洲心脏移植术后存活纪录保持者。
 
-《微光女孩》则用纪录片式的克制影像和美丽的诗句，铺展出一段属于南美大地的真实人生，带领观众沿着一个女孩的心路一起成长。
+他表示，自己每天坚持散步、打太极拳，保证三餐规律和充足睡眠，最重要的是保持阳光心态。
 
-《哈莉玛》(摩洛哥)获颁最佳导演、最佳女演员奖。
+于文峰的经历也映射着中国心脏移植技术的持续发展。
 
-导演亚辛·伊德里西从日常生活的琐碎肌理中，提炼出动人的戏剧张力，完成了一次对生活与信仰的复杂、多维而细腻的勘探；演员哈迪贾·阿玛丽的表演直击人心，仅凭双眸就展露出角色的隐忍灵魂与厚重过往。
+据哈医大二院心血管病医院院长、心内科主任于波介绍，心脏移植和人工心脏是终末期心力衰竭患者最后的生命防线。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 13:36 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 13:36 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-29 13:23 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
-- 2026-06-29 13:16 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 13:12 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 13:19 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 13:12 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 13:37 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-29 13:15 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
-- 2026-06-29 13:24 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 13:31 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
-- 2026-06-29 13:13 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-29 13:36 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 13:43 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
+- 2026-06-29 13:29 - [行程万里不忘初心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 13:27 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 13:29 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
+- 2026-06-29 13:46 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 13:25 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 13:27 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 13:19 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-29 13:33 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 13:27 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/66646.shtml)
-- 2026-06-29 13:17 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/0844171.shtml)
-- 2026-06-29 13:13 - [韩国国脚每人获35.5万奖金](http://www.blog.minike.top/Article/details/67208.shtml)
-- 2026-06-29 13:16 - [本周做什么都顺的星座](https://www.share.kurohicncr.top/Article/details/75698164872.shtml)
-- 2026-06-29 13:16 - [起风了](http://www.blog.minike.top/Article/details/36556800.shtml)
-- 2026-06-29 13:13 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/17701.shtml)
-- 2026-06-29 13:38 - [灿如繁星定档](http://www.blog.minike.top/Article/details/56113.shtml)
-- 2026-06-29 13:12 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://www.share.minike.top/Article/details/9137613.shtml)
-- 2026-06-29 13:31 - [世界杯用球成部分门将噩梦](https://www.blog.kurohicncr.top/Article/details/35775821735.shtml)
-- 2026-06-29 13:31 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/628319803.shtml)
-- 2026-06-29 13:14 - [请回答王牌2019](http://www.share.minike.top/Article/details/22543817797.shtml)
-- 2026-06-29 13:12 - [蜘蛛侠:英雄归来](http://www.share.kurohicncr.top/Article/details/416652082.shtml)
-- 2026-06-29 13:20 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/346693127.shtml)
-- 2026-06-29 13:21 - [3D打印不是工业革命，它是……](http://www.share.kurohicncr.top/Article/details/38965.shtml)
-- 2026-06-29 13:15 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.kurohicncr.top/Article/details/458524.shtml)
+- 2026-06-29 13:22 - [普京称俄处于命运攸关之际](https://www.share.minike.top/Article/details/3378747.shtml)
+- 2026-06-29 13:37 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/19999147849.shtml)
+- 2026-06-29 13:29 - [王楚钦首轮赢下国乒德比](http://www.blog.kurohicncr.top/Article/details/0787847211.shtml)
+- 2026-06-29 13:37 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/262478.shtml)
+- 2026-06-29 13:23 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.blog.kurohicncr.top/Article/details/48245877678.shtml)
+- 2026-06-29 13:38 - [毒液2](https://www.blog.minike.top/Article/details/71484914058.shtml)
+- 2026-06-29 13:40 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.minike.top/Article/details/12528901.shtml)
+- 2026-06-29 13:24 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/420382206.shtml)
+- 2026-06-29 13:21 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/492483523050.shtml)
+- 2026-06-29 13:45 - [梅朗雄主张法国退出北约](http://www.share.kurohicncr.top/Article/details/195279.shtml)
+- 2026-06-29 13:36 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/06463.shtml)
+- 2026-06-29 13:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/95927712.shtml)
+- 2026-06-29 13:21 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/637777740.shtml)
+- 2026-06-29 13:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/714462491685.shtml)
+- 2026-06-29 13:41 - [这位猫咪，请你自重！](https://www.blog.minike.top/Article/details/894210905279.shtml)

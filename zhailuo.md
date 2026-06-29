@@ -1,56 +1,52 @@
-# 天岳先进盘中涨超10% 里昂维持“跑赢大市”评级
+# 首都机场早盘涨超3% 第一季度营业收入14.13亿元同比增长5.1%
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-天岳先进（02631）早盘一度涨超10%，截至发稿，股价上涨6.13%，现报104.80港元，成交额5.15亿港元。 据Yole，全球功率半导体市场规模有望增至2030年433亿美元，其中AI数据中心相关规模有望达106亿美元、占比近1/4，SiC、GaN在数据中心规模CAGR分别达29.5%/46.3%。此外，英飞凌预计2027财年AI数据中心收入将超过25亿欧元，3年翻10
+首都机场（00694）今早逆势走高，一度涨近4%，截至发稿，股价上涨3.33%，现报1.86港元，成交额571.55万港元。 4月23日晚，北京首都机场股份发布截至2026年3月31日止3个月业绩，营业收入14.13亿元，同比增长5.1%；净利润926.6万元，上年同期亏损1.25亿元。报告期内，公司营业成本降至12亿元，营业亏损464万元，比去年同期营业亏损1.2亿元显著收窄
 
 ## 正文
 
-天岳先进（02631）早盘一度涨超10%，截至发稿，股价上涨6.13%，现报104.80港元，成交额5.15亿港元。
+首都机场（00694）今早逆势走高，一度涨近4%，截至发稿，股价上涨3.33%，现报1.86港元，成交额571.55万港元。
 
-据Yole，全球功率半导体市场规模有望增至2030年433亿美元，其中AI数据中心相关规模有望达106亿美元、占比近1/4，SiC、GaN在数据中心规模CAGR分别达29.5%/46.3%。
+4月23日晚，北京首都机场股份发布截至2026年3月31日止3个月业绩，营业收入14.13亿元，同比增长5.1%；净利润926.6万元，上年同期亏损1.25亿元。
 
-此外，英飞凌预计2027财年AI数据中心收入将超过25亿欧元，3年翻10倍；意法半导体预计2027年AI数据中心收入将达到20亿美金。
-
-里昂此前指出，天岳先进目前的8吋碳化硅衬底产能正处于满负荷运转状态。
-
-受益于数据中心强劲需求带动的销量增长，该行将公司2027及 2028预测财年的收入预测分别上调6%及4%至33.59亿及37.11亿元人民币；净利润预测随之调高7%及6%。
-
-该行将天岳先进H股的预测市销率估值倍数由12倍调升至14倍，H股目标价由86.6港元上调至106.6港元，维持“跑赢大市”评级。
+报告期内，公司营业成本降至12亿元，营业亏损464万元，比去年同期营业亏损1.2亿元显著收窄，以及营业外收入同比大增近1700万元。
 
 责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-29 13:26 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-29 13:13 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 13:13 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 13:38 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 13:37 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
-- 2026-06-29 13:22 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 13:23 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 13:15 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qlrhk.md)
-- 2026-06-29 13:30 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-29 13:33 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaomiao.md)
-- 2026-06-29 13:20 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 13:37 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
+- 2026-06-29 13:19 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-29 13:40 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 13:31 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gofvf.md)
+- 2026-06-29 13:42 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
+- 2026-06-29 13:24 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 13:38 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 13:29 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
+- 2026-06-29 13:32 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-29 13:34 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:44 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 13:45 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
+- 2026-06-29 13:39 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 13:26 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:27 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/37415207.shtml)
-- 2026-06-29 13:18 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/9532902764.shtml)
-- 2026-06-29 13:26 - [赵露思爸爸拍vlog翻车了](https://www.share.kurohicncr.top/Article/details/20740532801.shtml)
-- 2026-06-29 13:14 - [各路“神仙”扎堆洛阳乘地铁](https://www.share.kurohicncr.top/Article/details/47779.shtml)
-- 2026-06-29 13:24 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.minike.top/Article/details/024008112663.shtml)
-- 2026-06-29 13:21 - [两个教官【皮影人行动4.0】](http://www.share.kurohicncr.top/Article/details/5571819265.shtml)
-- 2026-06-29 13:12 - [青春环游记第三季](https://www.blog.minike.top/Article/details/138208653982.shtml)
-- 2026-06-29 13:22 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/417759321221.shtml)
-- 2026-06-29 13:25 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/7889814.shtml)
-- 2026-06-29 13:40 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/8471265005.shtml)
-- 2026-06-29 13:22 - [韩体育部长回应李在明痛批](https://www.blog.minike.top/Article/details/039354830.shtml)
-- 2026-06-29 13:20 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/9899489805.shtml)
-- 2026-06-29 13:32 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/528552.shtml)
-- 2026-06-29 13:25 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/63988365128.shtml)
-- 2026-06-29 13:31 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/444459.shtml)
+- 2026-06-29 13:19 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/209326595401.shtml)
+- 2026-06-29 13:18 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/087202556.shtml)
+- 2026-06-29 13:28 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/612986157316.shtml)
+- 2026-06-29 13:29 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/155927670728.shtml)
+- 2026-06-29 13:37 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/183803.shtml)
+- 2026-06-29 13:47 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.kurohicncr.top/Article/details/146280901933.shtml)
+- 2026-06-29 13:31 - [T1对战KC](https://www.blog.minike.top/Article/details/591853943.shtml)
+- 2026-06-29 13:21 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/827426.shtml)
+- 2026-06-29 13:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/136812069212.shtml)
+- 2026-06-29 13:37 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/91667368878.shtml)
+- 2026-06-29 13:25 - [尽量少用玻璃吸管](https://www.share.kurohicncr.top/Article/details/1198243166.shtml)
+- 2026-06-29 13:27 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/3222933.shtml)
+- 2026-06-29 13:24 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/510416531940.shtml)
+- 2026-06-29 13:38 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/5418829236.shtml)
+- 2026-06-29 13:36 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/672690.shtml)

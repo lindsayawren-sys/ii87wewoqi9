@@ -1,60 +1,57 @@
-# 墨西哥出线背后：强队回归让AI找回节奏，讯飞星火、中移九天两家模型精准命中比分
+# 连续15日回购、四年累计耗资超千亿港元，友邦保险为何如此坚定？
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！三场比赛强队展现优势，AI整体命中率显著回升 北京时间6月19日，2026年世界杯小组赛再战三场。对于“世界杯预测人机大战”来说，这一天意义特殊。一方面，本届世界杯首支晋级32强的球队正式诞生——墨西哥；另一方面，在经历连续多日的冷门冲击后，12家AI大模型终于迎来了久违的集体“回血”。 过去几天，从西班牙
+友邦保险（01299.HK）再启巨额回购。 4月22日，友邦保险斥资约2.35亿港元回购282.6万股股份。截至4月23日，友邦保险自3月30日以来已连续15个交易日进行回购，合计回购4471.92万股，累计回购金额38.22亿港元。 事实上，友邦保险的回购动作已持续了四年。 2022年3月，友邦保险宣布推出100亿美元股票回购计划，旨在提升股东回报，减少市场上流通股数量，进而
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+友邦保险（01299.HK）再启巨额回购。
 
-三场比赛强队展现优势，AI整体命中率显著回升 北京时间6月19日，2026年世界杯小组赛再战三场。
+4月22日，友邦保险斥资约2.35亿港元回购282.6万股股份。
 
-对于“世界杯预测人机大战”来说，这一天意义特殊。
+截至4月23日，友邦保险自3月30日以来已连续15个交易日进行回购，合计回购4471.92万股，累计回购金额38.22亿港元。
 
-一方面，本届世界杯首支晋级32强的球队正式诞生——墨西哥；另一方面，在经历连续多日的冷门冲击后，12家AI大模型终于迎来了久违的集体“回血”。
+事实上，友邦保险的回购动作已持续了四年。
 
-过去几天，从西班牙被佛得角逼平，到比利时战平埃及，再到伊朗与新西兰打平，频繁出现的冷门和平局让AI预测命中率持续下滑，“平局”甚至一度成为AI最大的克星。
+2022年3月，友邦保险宣布推出100亿美元股票回购计划，旨在提升股东回报，减少市场上流通股数量，进而提升每股收益，同时让公司保留财务实力以继续投资于重大增长机遇。
 
-但今天，剧情变了。
+公告称，股份回购计划的资金将以友邦保险集团可用资本及现金储备拨付，该计划所回购的股份将被注销。
 
-瑞士赢了。
+2024年4月，友邦保险公布优化的资本管理政策，在现有股份回购计划中增加20亿美元，总额增至120亿美元。
 
-加拿大赢了。
+2025年2月，友邦保险公告称其已完成120亿美元回购计划。
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 13:25 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:19 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 13:12 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 13:12 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-29 13:21 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-29 13:16 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 13:31 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
-- 2026-06-29 13:17 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
-- 2026-06-29 13:27 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
-- 2026-06-29 13:25 - [日本和澳大利亚能代表亚洲足球走多远](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 13:20 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 13:36 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 13:13 - [TOP 无畏契约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 13:45 - [光与夜之恋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-29 13:38 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 13:34 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 13:27 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 13:31 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
+- 2026-06-29 13:24 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
+- 2026-06-29 13:32 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 13:41 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvidn.md)
+- 2026-06-29 13:18 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 13:46 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 13:40 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.minike.top/Article/details/18018.shtml)
-- 2026-06-29 13:14 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/9960089126.shtml)
-- 2026-06-29 13:28 - [中国避暑神器在欧洲卖爆了](http://www.blog.kurohicncr.top/Article/details/224145.shtml)
-- 2026-06-29 13:34 - [强⁶](https://www.share.kurohicncr.top/Article/details/116322875.shtml)
-- 2026-06-29 13:12 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/35444.shtml)
-- 2026-06-29 13:15 - [赵今麦客串电影版开端](https://www.share.minike.top/Article/details/8748409.shtml)
-- 2026-06-29 13:21 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/70660947.shtml)
-- 2026-06-29 13:26 - [哈兰德之歌火到国外](http://www.blog.minike.top/Article/details/008776457.shtml)
-- 2026-06-29 13:18 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/1714075.shtml)
-- 2026-06-29 13:31 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/3739401565.shtml)
-- 2026-06-29 13:29 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/12067.shtml)
-- 2026-06-29 13:41 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/752628.shtml)
-- 2026-06-29 13:23 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/351657296.shtml)
-- 2026-06-29 13:26 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/67189.shtml)
-- 2026-06-29 13:24 - [急先锋](https://www.blog.kurohicncr.top/Article/details/5234672.shtml)
+- 2026-06-29 13:34 - [叶一茜森碟一起回北京了](http://www.blog.kurohicncr.top/Article/details/36727.shtml)
+- 2026-06-29 13:20 - [5万块的威力](http://www.blog.minike.top/Article/details/8270111.shtml)
+- 2026-06-29 13:36 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.minike.top/Article/details/898100345.shtml)
+- 2026-06-29 13:21 - [天道](http://www.blog.kurohicncr.top/Article/details/1151124071.shtml)
+- 2026-06-29 13:44 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.kurohicncr.top/Article/details/63796289427.shtml)
+- 2026-06-29 13:19 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.kurohicncr.top/Article/details/6236327798.shtml)
+- 2026-06-29 13:30 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/341384633286.shtml)
+- 2026-06-29 13:41 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/269719620.shtml)
+- 2026-06-29 13:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.minike.top/Article/details/07163334947.shtml)
+- 2026-06-29 13:38 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.kurohicncr.top/Article/details/329348065738.shtml)
+- 2026-06-29 13:30 - [千与千寻](https://www.blog.minike.top/Article/details/0903536.shtml)
+- 2026-06-29 13:43 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/649805211.shtml)
+- 2026-06-29 13:20 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/740651000.shtml)
+- 2026-06-29 13:28 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/561245960.shtml)
+- 2026-06-29 13:18 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/786574.shtml)

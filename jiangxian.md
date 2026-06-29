@@ -1,60 +1,48 @@
-# 芯片股狂欢周！美股基金流入创新高，日经7万点，韩股一年涨两倍
+# 外交部：中方敦促美方停止助台巩固所谓“邦交”
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-市场聚焦下周三美光科技财报。 本周，芯片股再次成为了全球股市的焦点。 受益于美伊签署谅解备忘录，霍尔木兹海峡恢复通航，缓解全球通胀与加息恐慌，资金回流风险资产，同时AI景气持续超预期，多家芯片、存储企业财报指引上调，带动天量资金涌向美股，以及日韩等市场。 美股基金净流入创新高 由迈克尔·哈特内特牵头的美银策略团队在研报中援引全球资金流向监测机构EPFR数据称，截至6月17日的一
+针对美方在赖清德“暂缓”窜访斯威士兰问题上的错误言论，外交部发言人郭嘉昆4月23日在例行记者会上说，美方对中方捍卫国家主权和领土完整的正当行动指手画脚，对有关国家维护一个中国原则的正义之举横加指责，完全是混淆是非、颠倒黑白，中方坚决反对，绝不接受。 郭嘉昆表示，中方敦促美方恪守一个中国原则和中美三个联合公报，停止借台湾问题干涉中国内政，停止助台巩固所谓“邦交”，停止向“台独”分
 
 ## 正文
 
-市场聚焦下周三美光科技财报。
+针对美方在赖清德“暂缓”窜访斯威士兰问题上的错误言论，外交部发言人郭嘉昆4月23日在例行记者会上说，美方对中方捍卫国家主权和领土完整的正当行动指手画脚，对有关国家维护一个中国原则的正义之举横加指责，完全是混淆是非、颠倒黑白，中方坚决反对，绝不接受。
 
-本周，芯片股再次成为了全球股市的焦点。
+郭嘉昆表示，中方敦促美方恪守一个中国原则和中美三个联合公报，停止借台湾问题干涉中国内政，停止助台巩固所谓“邦交”，停止向“台独”分裂势力发出错误信号。
 
-受益于美伊签署谅解备忘录，霍尔木兹海峡恢复通航，缓解全球通胀与加息恐慌，资金回流风险资产，同时AI景气持续超预期，多家芯片、存储企业财报指引上调，带动天量资金涌向美股，以及日韩等市场。
-
-美股基金净流入创新高 由迈克尔·哈特内特牵头的美银策略团队在研报中援引全球资金流向监测机构EPFR数据称，截至6月17日的一周，美股股票基金净流入1192亿美元，创下历史最高纪录。
-
-美股中型股基金单周净流入199亿美元，刷新历史峰值；小盘股基金单周流入123亿美元，为历史第二高。
-
-科技板块是资金聚焦核心，单周净流入192亿美元，为历史最高值。
-
-美股迎来天量资金的同时，科技企业集中开展大额股权融资。
-
-SpaceX已于6月12日完成史上规模最大IPO，股权融资额750亿美元；Anthropic、OpenAI也将紧随其后启动上市。
+（总台央视记者 申杨） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-29 13:16 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:39 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
-- 2026-06-29 13:29 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
-- 2026-06-29 13:16 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 13:38 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 13:35 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-29 13:36 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:21 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
-- 2026-06-29 13:34 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
-- 2026-06-29 13:12 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 13:28 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 13:16 - [谢霆锋演唱会变大型呲水现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 13:37 - [杨紫《生命树》播放量破百亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 13:25 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
+- 2026-06-29 13:23 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
+- 2026-06-29 13:28 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qzghf.md)
+- 2026-06-29 13:46 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 13:40 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 13:44 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 13:41 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 13:35 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
+- 2026-06-29 13:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 13:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
+- 2026-06-29 13:43 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 13:20 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/segai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:34 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/101515549.shtml)
-- 2026-06-29 13:41 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/715708.shtml)
-- 2026-06-29 13:23 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/2585730095.shtml)
-- 2026-06-29 13:24 - [时光音乐会](http://www.blog.minike.top/Article/details/0117369.shtml)
-- 2026-06-29 13:25 - [博主：比亚迪赢了销量却输给资本](http://www.blog.minike.top/Article/details/303501401545.shtml)
-- 2026-06-29 13:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/592829917943.shtml)
-- 2026-06-29 13:22 - [记者率先试乘西十高铁](https://www.share.kurohicncr.top/Article/details/810120028450.shtml)
-- 2026-06-29 13:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/33687130.shtml)
-- 2026-06-29 13:15 - [乔家的儿女](http://www.blog.minike.top/Article/details/429581.shtml)
-- 2026-06-29 13:24 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/04506.shtml)
-- 2026-06-29 13:17 - [急先锋](https://www.blog.kurohicncr.top/Article/details/41957029023.shtml)
-- 2026-06-29 13:36 - [巴西德国15次闯进世界杯淘汰赛](https://www.blog.kurohicncr.top/Article/details/6354804.shtml)
-- 2026-06-29 13:41 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/65235400962.shtml)
-- 2026-06-29 13:20 - [A股](https://www.blog.kurohicncr.top/Article/details/4016035377.shtml)
-- 2026-06-29 13:33 - [3D打印不是工业革命，它是……](https://www.share.kurohicncr.top/Article/details/027090057.shtml)
+- 2026-06-29 13:29 - [张一山说杨紫早该拿奖了](http://www.blog.kurohicncr.top/Article/details/55234166.shtml)
+- 2026-06-29 13:38 - [起风了](http://www.blog.minike.top/Article/details/4595646383.shtml)
+- 2026-06-29 13:20 - [NBA交易](https://www.blog.minike.top/Article/details/9422667646.shtml)
+- 2026-06-29 13:24 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/5496511132.shtml)
+- 2026-06-29 13:32 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/096531.shtml)
+- 2026-06-29 13:18 - [世界杯超牛补水广告出现了](http://www.share.minike.top/Article/details/92439.shtml)
+- 2026-06-29 13:21 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.minike.top/Article/details/107334.shtml)
+- 2026-06-29 13:33 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/12535920.shtml)
+- 2026-06-29 13:22 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/24614.shtml)
+- 2026-06-29 13:31 - [媒体评恋与深空争议](http://www.share.kurohicncr.top/Article/details/270367935281.shtml)
+- 2026-06-29 13:40 - [我们注定是一撮县城葱姜蒜](http://www.blog.minike.top/Article/details/771327828.shtml)
+- 2026-06-29 13:44 - [乔家的儿女](http://www.share.minike.top/Article/details/44251.shtml)
+- 2026-06-29 13:46 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/489216.shtml)
+- 2026-06-29 13:25 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/5723800536.shtml)
+- 2026-06-29 13:30 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/29692841303.shtml)

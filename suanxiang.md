@@ -1,59 +1,51 @@
-# 美伊18小时拉锯式对话结束，真正的考验刚刚开始
+# 华润饮料获非执行董事王德刚2日累计增持5.96万股 耗资约52.97万港元
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电(魏晨曦)当地时间6月22日，斡旋方卡塔尔和巴基斯坦发布联合声明，确认在美伊谅解备忘录框架下举行的首轮高级别会谈已在瑞士比尔根山结束。 这是美伊自本月中旬达成初步协议以来，首次高级别面对面接触。围绕霍尔木兹海峡通航、黎巴嫩局势以及伊朗核问题等敏感议题，双方历经约18小时拉锯式磋商后，同意转入技术层面继续“交锋”。 从一度陷入僵局到连夜持续磋商，历经近一天一夜的
+香港联交所最新资料显示，4月20日-21日，非执行董事王德刚分别增持华润饮料（02460）3.46万股、2.5万股，每股分别作价8.913港元、8.85港元，总金额约为52.97万港元。增持后最新持股数目为9万股。责任编辑：卢昱君
 
 ## 正文
 
-中新网6月22日电(魏晨曦)当地时间6月22日，斡旋方卡塔尔和巴基斯坦发布联合声明，确认在美伊谅解备忘录框架下举行的首轮高级别会谈已在瑞士比尔根山结束。
+香港联交所最新资料显示，4月20日-21日，非执行董事王德刚分别增持华润饮料（02460）3.46万股、2.5万股，每股分别作价8.913港元、8.85港元，总金额约为52.97万港元。
 
-这是美伊自本月中旬达成初步协议以来，首次高级别面对面接触。
+增持后最新持股数目为9万股。
 
-围绕霍尔木兹海峡通航、黎巴嫩局势以及伊朗核问题等敏感议题，双方历经约18小时拉锯式磋商后，同意转入技术层面继续“交锋”。
-
-从一度陷入僵局到连夜持续磋商，历经近一天一夜的密集博弈后，美伊最终选择将谈判留在桌上，而非把分歧带回战场。
-
-然而，真正的考验，才刚刚开始。
-
-伊朗称“取得良好进展” 但不满美方强硬表态 伊朗外交部发言人巴加埃22日表示，伊朗与美国经过约18小时谈判，已就一份文件文本形成共识。
-
-相关联合声明已由卡塔尔和巴基斯坦两国作为调解方发布。
-
-巴加埃称，此轮会谈重点讨论了启动最终协议谈判所需的基础性工作，各方同意由技术小组继续就落实美伊谅解备忘录涉及的问题展开磋商。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 13:17 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-29 13:12 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 13:16 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-29 13:22 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
-- 2026-06-29 13:14 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
-- 2026-06-29 13:22 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
-- 2026-06-29 13:22 - [双高胎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
-- 2026-06-29 13:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-29 13:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 13:40 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfulb.md)
-- 2026-06-29 13:41 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
-- 2026-06-29 13:32 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 13:36 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
+- 2026-06-29 13:23 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
+- 2026-06-29 13:29 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-29 13:18 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
+- 2026-06-29 13:26 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 13:45 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
+- 2026-06-29 13:32 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-29 13:42 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 13:22 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 13:24 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 13:32 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-29 13:25 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
+- 2026-06-29 13:22 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-29 13:27 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
+- 2026-06-29 13:41 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/501726.shtml)
-- 2026-06-29 13:37 - [韩国媒体破防：被中国球迷当笑柄](https://www.blog.minike.top/Article/details/624206030883.shtml)
-- 2026-06-29 13:35 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/46289829855.shtml)
-- 2026-06-29 13:19 - [德云色预测世界杯16强](http://www.share.kurohicncr.top/Article/details/54955.shtml)
-- 2026-06-29 13:22 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.blog.kurohicncr.top/Article/details/2061242.shtml)
-- 2026-06-29 13:12 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/5953933962.shtml)
-- 2026-06-29 13:40 - [宜宾5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/955984667597.shtml)
-- 2026-06-29 13:24 - [伊朗球员致歉](http://www.share.minike.top/Article/details/025951468.shtml)
-- 2026-06-29 13:36 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/96704792.shtml)
-- 2026-06-29 13:18 - [张真源解读相思锁](https://www.share.kurohicncr.top/Article/details/268059994.shtml)
-- 2026-06-29 13:39 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/99069736777.shtml)
-- 2026-06-29 13:17 - [为什么欧洲人不装空调](http://www.share.minike.top/Article/details/32002.shtml)
-- 2026-06-29 13:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/629826809.shtml)
-- 2026-06-29 13:33 - [王楚钦3-0周启豪 晋级32强](http://www.blog.kurohicncr.top/Article/details/60804480.shtml)
-- 2026-06-29 13:20 - [3D打印不是工业革命，它是……](http://www.blog.kurohicncr.top/Article/details/886594980883.shtml)
+- 2026-06-29 13:36 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.minike.top/Article/details/4385123552.shtml)
+- 2026-06-29 13:36 - [毕业寄几百斤快递回家女生发声](https://www.share.kurohicncr.top/Article/details/74542179283.shtml)
+- 2026-06-29 13:26 - [市民骑哈啰单车79分钟被收费30元](https://www.share.kurohicncr.top/Article/details/24323.shtml)
+- 2026-06-29 13:44 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/5366033.shtml)
+- 2026-06-29 13:39 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/328457.shtml)
+- 2026-06-29 13:35 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/9340268565.shtml)
+- 2026-06-29 13:34 - [扬名立万](https://www.share.minike.top/Article/details/39310697.shtml)
+- 2026-06-29 13:27 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/6219635775.shtml)
+- 2026-06-29 13:33 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/5690412.shtml)
+- 2026-06-29 13:20 - [迈巴赫提车第二天发现大灯起雾](http://www.share.kurohicncr.top/Article/details/0095626017.shtml)
+- 2026-06-29 13:24 - [Mrbeast的30天不吃饭挑战](https://www.share.kurohicncr.top/Article/details/94504598.shtml)
+- 2026-06-29 13:34 - [NBA交易](http://www.share.kurohicncr.top/Article/details/46361.shtml)
+- 2026-06-29 13:22 - [毒液2](http://www.blog.minike.top/Article/details/342247027869.shtml)
+- 2026-06-29 13:28 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/66069520708.shtml)
+- 2026-06-29 13:34 - [游戏数据竟被用于军事目的](https://www.blog.minike.top/Article/details/90072158154.shtml)

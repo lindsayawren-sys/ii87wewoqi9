@@ -1,61 +1,60 @@
-# 宁德时代枧下窝锂矿重获用地意见书，锂市供需格局影响几何？
+# 欧盟对俄罗斯发起新一轮制裁
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-端午节前的最后一个工作日，备受锂矿市场关注的宁德时代（300750.SZ/03750.HK）枧下窝矿项目迎来新进展。 6月18日，江西省自然资源厅发布了一条用地预审与选址行政许可事项，许可证书名称为《中华人民共和国建设项目用地预审与选址意见书》。行政相对人名称为宜春时代新能源矿业有限公司（下称“宜春时代”），即宁德时代的间接控股子公司。该许可决定自2026年6月17日起生效，有
+中新社布鲁塞尔4月23日电 (记者 德永健)欧盟23日对俄罗斯发起新一轮制裁，涉及能源、金融、贸易、媒体等多个领域。 据欧盟理事会当日发布的公告，欧盟能源制裁涉及俄罗斯石油勘探、开采、炼制、运输等一系列环节，同时认定46艘油轮隶属于俄罗斯“影子船队”，禁止这些油轮驶入欧盟管辖范围内的港口。 金融制裁方面，欧盟将20家俄罗斯银行及4家第三国金融机构列为制裁对象，并以提供加密货币服
 
 ## 正文
 
-端午节前的最后一个工作日，备受锂矿市场关注的宁德时代（300750.SZ/03750.HK）枧下窝矿项目迎来新进展。
+中新社布鲁塞尔4月23日电 (记者 德永健)欧盟23日对俄罗斯发起新一轮制裁，涉及能源、金融、贸易、媒体等多个领域。
 
-6月18日，江西省自然资源厅发布了一条用地预审与选址行政许可事项，许可证书名称为《中华人民共和国建设项目用地预审与选址意见书》。
+据欧盟理事会当日发布的公告，欧盟能源制裁涉及俄罗斯石油勘探、开采、炼制、运输等一系列环节，同时认定46艘油轮隶属于俄罗斯“影子船队”，禁止这些油轮驶入欧盟管辖范围内的港口。
 
-行政相对人名称为宜春时代新能源矿业有限公司（下称“宜春时代”），即宁德时代的间接控股子公司。
+金融制裁方面，欧盟将20家俄罗斯银行及4家第三国金融机构列为制裁对象，并以提供加密货币服务为由，将一家吉尔吉斯斯坦实体及俄罗斯所有加密货币交易平台列为制裁对象。
 
-该许可决定自2026年6月17日起生效，有效期至2029年6月17日。
+贸易制裁方面，欧盟以支持俄罗斯军工复合体为由，将58家公司和相关人员及16家第三国实体列为制裁对象。
 
-这份行政许可对应的是江西省宜丰县圳口里-奉新县枧下窝锂矿采矿项目。
+以打击制裁规避为由，禁止向吉尔吉斯斯坦出口数控机床和无线电设备。
 
-值得注意的是，原意见书于6月8日被江西省自然资源厅公告注销，系宜春时代此前主动申请。
+在进出口领域，将总值逾3.6亿欧元的欧盟产品纳入对俄出口禁令，将总值逾5.7亿欧元的俄罗斯产品纳入对俄进口禁令。
 
-《建设项目用地预审与选址意见书》是项目落地的法定前置文件。
+此外，欧盟以乌克兰儿童问题为由，将俄罗斯5名个人和一家实体列为制裁对象。
 
-枧下窝锂矿的停产风波始于近十个月前。
+以打击制裁规避为由，在制裁俄罗斯媒体的基础上，将相关媒体的镜像网站也列为制裁对象。
 
 ## 相关推荐
 
-- 2026-06-29 13:38 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:32 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 13:36 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
-- 2026-06-29 13:37 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 13:20 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 13:16 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 13:23 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
-- 2026-06-29 13:32 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bwkfo.md)
-- 2026-06-29 13:32 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hwxhm.md)
-- 2026-06-29 13:13 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 13:15 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 13:41 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
-- 2026-06-29 13:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-29 13:40 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 13:41 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 13:45 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
+- 2026-06-29 13:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-29 13:27 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 13:44 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-29 13:38 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 13:28 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-29 13:34 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dezzl.md)
+- 2026-06-29 13:27 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-29 13:41 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 13:45 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 13:24 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
+- 2026-06-29 13:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 13:37 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:22 - [尽量少用玻璃吸管](https://www.blog.minike.top/Article/details/15281.shtml)
-- 2026-06-29 13:20 - [Agent带来token消耗爆炸](http://www.blog.minike.top/Article/details/2344654.shtml)
-- 2026-06-29 13:12 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/83224.shtml)
-- 2026-06-29 13:26 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/09822122804.shtml)
-- 2026-06-29 13:19 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/03239358424.shtml)
-- 2026-06-29 13:28 - [宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/130287.shtml)
-- 2026-06-29 13:14 - [航空运输旅客服务质量国标将实施](http://www.blog.kurohicncr.top/Article/details/66473.shtml)
-- 2026-06-29 13:31 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/96262879.shtml)
-- 2026-06-29 13:18 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.minike.top/Article/details/4455819.shtml)
-- 2026-06-29 13:17 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/81407.shtml)
-- 2026-06-29 13:18 - [斗破苍穹](http://www.share.kurohicncr.top/Article/details/26552581.shtml)
-- 2026-06-29 13:26 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/577676690.shtml)
-- 2026-06-29 13:39 - [小娘惹](https://www.share.kurohicncr.top/Article/details/364574191559.shtml)
-- 2026-06-29 13:29 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/12341354496.shtml)
-- 2026-06-29 13:25 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/2458892564.shtml)
+- 2026-06-29 13:29 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/933587586686.shtml)
+- 2026-06-29 13:25 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/743783049601.shtml)
+- 2026-06-29 13:21 - [领克900大型SUV值得购买吗?](https://www.blog.minike.top/Article/details/424131983.shtml)
+- 2026-06-29 13:36 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/81189201.shtml)
+- 2026-06-29 13:32 - [周生如故](http://www.blog.minike.top/Article/details/493964.shtml)
+- 2026-06-29 13:44 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/59741580356.shtml)
+- 2026-06-29 13:28 - [《昨夜将至》为何是悬疑黑马](http://www.share.kurohicncr.top/Article/details/06333791.shtml)
+- 2026-06-29 13:27 - [周锡玮：做堂堂正正的中国人](http://www.share.kurohicncr.top/Article/details/69080353221.shtml)
+- 2026-06-29 13:29 - [恋与深空评分暴跌至1.8](http://www.share.minike.top/Article/details/931992.shtml)
+- 2026-06-29 13:18 - [詹俊预测德国大胜巴拉圭](http://www.share.kurohicncr.top/Article/details/79655041.shtml)
+- 2026-06-29 13:22 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/6198960707.shtml)
+- 2026-06-29 13:33 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/94675476729.shtml)
+- 2026-06-29 13:21 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/8825754973.shtml)
+- 2026-06-29 13:38 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/63210648.shtml)
+- 2026-06-29 13:26 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/84694.shtml)

@@ -1,47 +1,60 @@
-# 传音控股发布公告 已重新提交H股上市申请并披露相关资料
+# 稀土产业盈利改善趋势明朗！稀土ETF华泰柏瑞（516780）聚焦基本面优质的龙头标的
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。（文章来源：央广财经）
+近期，稀土现货价格持续走高，市场关注度随之升温。在供需结构趋紧、海外供给扰动与国内政策调控的多重作用下，稀土的战略价值正被市场重新定价，相关产品随之成为资金布局的重要方向。作为市场首只（21/2/26）稀土产业主题ETF，稀土ETF华泰柏瑞（516780）已连续3个交易日获资金增持，最新规模达32.03亿元，流动性优势较突出。 （数据来源：Wind、交易所，截至26/4/22；
 
 ## 正文
 
-6月21日，传音控股（688036.SH）发布公告称，公司已于2026年6月18日向香港联交所重新提交本次H股发行上市的申请，并于同日在香港联交所网站刊登申请资料。
+近期，稀土现货价格持续走高，市场关注度随之升温。
 
-本次发行尚需取得证监会备案、香港证监会及香港联交所等批准，存在不确定性。
+在供需结构趋紧、海外供给扰动与国内政策调控的多重作用下，稀土的战略价值正被市场重新定价，相关产品随之成为资金布局的重要方向。
 
-（文章来源：央广财经）
+作为市场首只（21/2/26）稀土产业主题ETF，稀土ETF华泰柏瑞（516780）已连续3个交易日获资金增持，最新规模达32.03亿元，流动性优势较突出。
+
+（数据来源：Wind、交易所，截至26/4/22；政策来源：国务院第31次常务会议通过《稀土管理条例》-24/4/26） 从现货市场看，稀土价格涨势明显。
+
+截至昨日（26/4/22），金属镨钕价格上涨5000元/吨至100.5万元/吨，金属镨价格上涨1万元/吨至106万元/吨，氧化镨价格上涨2500元/吨至86.5万元/吨，国内轻稀土系列品种全线走强。
+
+与此同时，行业龙头企业的调价动作进一步巩固涨价预期，两大龙头公司在4月10日同步公告上调稀土精矿关联交易价格，单季度环比涨幅高达44.61%。
+
+稀土价格密集上涨，本质源于供需结构的持续收紧。
+
+一方面，我国作为全球稀土产业链的核心主导方，持续对稀土相关物项与核心技术实施出口管制，合理引导全球供应节奏；叠加海外部分稀土资源开发受阻、资源保护主义抬头，全球供给弹性进一步收紧。
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 13:25 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
-- 2026-06-29 13:33 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 13:13 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owtvb.md)
-- 2026-06-29 13:29 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 13:37 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 13:41 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 13:15 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 13:29 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
-- 2026-06-29 13:15 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 13:27 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 13:21 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-29 13:20 - [NBA交易](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 13:24 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 13:35 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-29 13:27 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 13:30 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 13:24 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-29 13:47 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqtmm.md)
+- 2026-06-29 13:42 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-29 13:41 - [医药股集体爆发](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-29 13:42 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 13:42 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-29 13:47 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
+- 2026-06-29 13:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:40 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/718872.shtml)
-- 2026-06-29 13:21 - [媒体人：警惕日本再次成战争加害国](http://www.share.minike.top/Article/details/170899.shtml)
-- 2026-06-29 13:28 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/2837305336.shtml)
-- 2026-06-29 13:36 - [世界杯超牛补水广告出现了](http://www.share.kurohicncr.top/Article/details/27300543.shtml)
-- 2026-06-29 13:20 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/3505298.shtml)
-- 2026-06-29 13:36 - [江苏财政厅原一级调研员谢功成被查](http://www.blog.minike.top/Article/details/9579586.shtml)
-- 2026-06-29 13:29 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/08053.shtml)
-- 2026-06-29 13:16 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/27184199644.shtml)
-- 2026-06-29 13:37 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.kurohicncr.top/Article/details/85987.shtml)
-- 2026-06-29 13:22 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/4617152.shtml)
-- 2026-06-29 13:15 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/075078.shtml)
-- 2026-06-29 13:14 - [韩国拟将部分刑责年龄降至13岁](https://www.share.minike.top/Article/details/58155.shtml)
-- 2026-06-29 13:19 - [在巴西能拍到什么？](https://www.blog.minike.top/Article/details/74800306577.shtml)
-- 2026-06-29 13:22 - [各路“神仙”扎堆洛阳乘地铁](https://www.blog.kurohicncr.top/Article/details/609721807.shtml)
-- 2026-06-29 13:35 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/5328989.shtml)
+- 2026-06-29 13:32 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/30756249335.shtml)
+- 2026-06-29 13:38 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/5509089.shtml)
+- 2026-06-29 13:22 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/657179.shtml)
+- 2026-06-29 13:32 - [DeepSeek联合北京大学发布论文](http://www.share.minike.top/Article/details/656269904.shtml)
+- 2026-06-29 13:41 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/0160042.shtml)
+- 2026-06-29 13:37 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.kurohicncr.top/Article/details/77272387264.shtml)
+- 2026-06-29 13:40 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/892709.shtml)
+- 2026-06-29 13:43 - [ENC瓦中国香港负印度数据图](http://www.blog.minike.top/Article/details/1038603587.shtml)
+- 2026-06-29 13:34 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/399870487316.shtml)
+- 2026-06-29 13:41 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/32809248319.shtml)
+- 2026-06-29 13:46 - [哈兰德之歌火到国外](http://www.share.minike.top/Article/details/838003451.shtml)
+- 2026-06-29 13:21 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/867183490320.shtml)
+- 2026-06-29 13:32 - [伊朗球员致歉](https://www.share.minike.top/Article/details/855385.shtml)
+- 2026-06-29 13:38 - [拆快递不再“里三层外三层”](http://www.share.kurohicncr.top/Article/details/264082.shtml)
+- 2026-06-29 13:33 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/7876013208.shtml)

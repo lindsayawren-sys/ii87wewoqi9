@@ -1,58 +1,57 @@
-# 广西河池遭洪水侵袭 当地紧急转移疏散民众
+# 乒乓球机器人球技如何？最新研究称可超越人类精英乒乓球手
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？“桑巴军团”卷土重来，内马尔去哪了？比尔根山会谈临时取消，美伊僵局是否难破？一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！专访
+中新网北京4月23日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇机器人学论文称，索尼公司人工智能研发部门(Sony AI)开发的一个基于人工智能的乒乓球机器人系统，其表现可超越人类的精英乒乓球手。 这项研究结果表明，机器人系统有潜力执行复杂的实时互动任务，并预示其在快速准确物理交互的领域有着更广泛的应用前景。 该论文介绍，乒乓球对机器人而言是一种极富挑战性的运动，因为它
 
 ## 正文
 
-端午食粽习俗为何成为具有广泛影响力的文化现象？
+中新网北京4月23日电 (记者 孙自法)国际学术期刊《自然》最新发表一篇机器人学论文称，索尼公司人工智能研发部门(Sony AI)开发的一个基于人工智能的乒乓球机器人系统，其表现可超越人类的精英乒乓球手。
 
-“桑巴军团”卷土重来，内马尔去哪了？
+这项研究结果表明，机器人系统有潜力执行复杂的实时互动任务，并预示其在快速准确物理交互的领域有着更广泛的应用前景。
 
-比尔根山会谈临时取消，美伊僵局是否难破？
+该论文介绍，乒乓球对机器人而言是一种极富挑战性的运动，因为它需要在极低延迟感知(最小化延迟处理速度)下作出快速反应，准确预测包括复杂旋转球在内的球运动轨迹。
 
-一道西湖蟹酿橙，品出中缅胞波情大疆与影石，到底为啥打这么狠？
+在过去的研究中，多种机器人系统尝试应对这些难题，但通常都是请初学者或业余球手来测试，使用非标准、经改造的器材(通常会限制球的旋转和速度)，并采用非标准的规则。
 
-浙江河阳：千年“古村落活化石”以新业态赋能文化新消费虎蝶蟾绣于一包，是中华文明共情世界的符号姑蔑国，是什么国？
+在本项研究中，论文第一作者和通讯作者、Sony AI团队Peter Dürr与同事一起，研发推出了一个自动机器人系统，能与卓越的人类乒乓球手对战。
 
-外卖“补贴战” 将迎明确监管红线人工智能书写世界杯崭新篇章释永信这记警钟，敲得够响！
+这个乒乓球机器人系统名为Ace，由使用摄像机网络的高速感知系统、基于AI的控制系统以及一个拥有8个关节的高速机器臂组成。
 
-专访李思潼：谢谢南枝这一生的善良与坚守，辛苦你了！
+论文作者在一系列比赛中评估了Ace的表现，这些比赛基于日本职业乒乓球联赛规则进行，参赛选手包括5位精英选手(每位都有10年以上的乒乓球实战经验，平均每周训练20小时)，两位职业选手(均活跃于日本职业联赛)。
 
-中国汽车产业加速迈向价值竞争阶段遭遇“进球荒”，“亚洲一哥”孙兴慜“廉颇老矣”？
+Ace在与精英选手的5场比赛中赢得了3场，但与两位职业选手的比赛都落败了(过程中赢了一局)。
 
 ## 相关推荐
 
-- 2026-06-29 13:15 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-29 13:29 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 13:27 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:39 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
-- 2026-06-29 13:17 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 13:24 - [毒液2](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-29 13:26 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 13:32 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-29 13:26 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-29 13:16 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 13:24 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 13:38 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 13:43 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-29 13:27 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
+- 2026-06-29 13:30 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 13:20 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanliu.md)
+- 2026-06-29 13:42 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-29 13:24 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksmfi.md)
+- 2026-06-29 13:29 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:27 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kffxz.md)
+- 2026-06-29 13:28 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
+- 2026-06-29 13:42 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
+- 2026-06-29 13:20 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.minike.top/Article/details/72232732.shtml)
-- 2026-06-29 13:21 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/97808945.shtml)
-- 2026-06-29 13:16 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.share.kurohicncr.top/Article/details/129333431.shtml)
-- 2026-06-29 13:23 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.share.minike.top/Article/details/09352538.shtml)
-- 2026-06-29 13:30 - [时光音乐会](https://www.share.minike.top/Article/details/03590007059.shtml)
-- 2026-06-29 13:28 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/28562.shtml)
-- 2026-06-29 13:31 - [女儿称是生父强奸所生拒付赡养费](http://www.blog.minike.top/Article/details/124250959254.shtml)
-- 2026-06-29 13:30 - [比亚迪为什么卖得越多市值越低](https://www.share.kurohicncr.top/Article/details/32877.shtml)
-- 2026-06-29 13:32 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/56137874871.shtml)
-- 2026-06-29 13:19 - [民进党为什么拼命抹黑统战](http://www.share.minike.top/Article/details/7538705855.shtml)
-- 2026-06-29 13:25 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/758528256.shtml)
-- 2026-06-29 13:19 - [爱很美味](http://www.share.kurohicncr.top/Article/details/23787134298.shtml)
-- 2026-06-29 13:16 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/7981672331.shtml)
-- 2026-06-29 13:22 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.minike.top/Article/details/63612282520.shtml)
-- 2026-06-29 13:20 - [网友偶遇胡军和李乃文](https://www.blog.kurohicncr.top/Article/details/82861722.shtml)
+- 2026-06-29 13:41 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/38007.shtml)
+- 2026-06-29 13:19 - [普京称考虑全面禁止柴油出口](https://www.blog.kurohicncr.top/Article/details/26284.shtml)
+- 2026-06-29 13:43 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/80574.shtml)
+- 2026-06-29 13:27 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/62109107146.shtml)
+- 2026-06-29 13:40 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/50253787.shtml)
+- 2026-06-29 13:42 - [美国近12万名科技员工被解雇](https://www.blog.kurohicncr.top/Article/details/65415628.shtml)
+- 2026-06-29 13:37 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/755124542.shtml)
+- 2026-06-29 13:45 - [马杜罗社交媒体账号再发文](https://www.share.kurohicncr.top/Article/details/597560.shtml)
+- 2026-06-29 13:45 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/385286906045.shtml)
+- 2026-06-29 13:36 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/432383664442.shtml)
+- 2026-06-29 13:30 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/685249595.shtml)
+- 2026-06-29 13:18 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/4646670.shtml)
+- 2026-06-29 13:25 - [流金岁月](http://www.blog.minike.top/Article/details/1962645029.shtml)
+- 2026-06-29 13:45 - [宜宾发生5.5级地震 成都震感明显](https://www.share.kurohicncr.top/Article/details/6204500404.shtml)
+- 2026-06-29 13:26 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/81647947208.shtml)

@@ -1,61 +1,51 @@
-# 英国宣布追加投资5000万英镑促进关键材料生产
+# 伊朗总统称欢迎对话 美实施封锁等行径是谈判主要障碍
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-英国政府周一宣布，将投资5000万英镑（约合6600万美元）用于促进关键材料的国内生产，以减少对全球集中供应链的依赖，增强经济韧性。 这笔资金将用于支持开采、加工和回收等项目，旨在保障从智能手机、冰箱到电动汽车电池等各类产品所需的原材料供应。 此前，英国已向该领域投入超过2亿英镑。 英国工业大臣克里斯·麦克唐纳 （Chris McDonald） 计划在访问英格兰东北部的工业研究
+当地时间22日晚，伊朗总统佩泽希齐扬通过社交媒体发表声明称，伊朗欢迎对话与协议(谈判)，并将继续坚持这一立场。 他强调，美国违背承诺、实施封锁和发出威胁，是阻碍美伊谈判的主要障碍。(总台记者 李健南 米春泽)
 
 ## 正文
 
-英国政府周一宣布，将投资5000万英镑（约合6600万美元）用于促进关键材料的国内生产，以减少对全球集中供应链的依赖，增强经济韧性。
+当地时间22日晚，伊朗总统佩泽希齐扬通过社交媒体发表声明称，伊朗欢迎对话与协议(谈判)，并将继续坚持这一立场。
 
-这笔资金将用于支持开采、加工和回收等项目，旨在保障从智能手机、冰箱到电动汽车电池等各类产品所需的原材料供应。
+他强调，美国违背承诺、实施封锁和发出威胁，是阻碍美伊谈判的主要障碍。
 
-此前，英国已向该领域投入超过2亿英镑。
-
-英国工业大臣克里斯·麦克唐纳 （Chris McDonald） 计划在访问英格兰东北部的工业研究中心期间启动该计划，该中心的公司正在开发金属回收和加工技术。
-
-随着需求的增长，英国正在加紧努力确保关键矿物的供应。
-
-“关键矿物对我们的国家安全至关重要，”麦克唐纳说。
-
-近期取得的进展包括英国25年来首家商业稀土磁体工厂的投产。
-
-该工厂由Mkango Resources旗下的HyProMag公司在伯明翰运营，利用回收材料生产用于电机和其他技术的磁体。
+(总台记者 李健南 米春泽)
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 13:28 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 13:31 - [A股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-29 13:41 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-29 13:27 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 13:33 - [双高胎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
-- 2026-06-29 13:21 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
-- 2026-06-29 13:16 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-29 13:38 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
-- 2026-06-29 13:15 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 13:20 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhengcen.md)
-- 2026-06-29 13:20 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-29 13:40 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 13:12 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kjnuh.md)
-- 2026-06-29 13:35 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
+- 2026-06-29 13:39 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 13:37 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uyaux.md)
+- 2026-06-29 13:23 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
+- 2026-06-29 13:40 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
+- 2026-06-29 13:42 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-29 13:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
+- 2026-06-29 13:25 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-29 13:30 - [医护人员观影《四渡》传承长征精神](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 13:47 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-29 13:33 - [薛之谦演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-29 13:31 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-29 13:27 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
+- 2026-06-29 13:34 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 13:37 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-29 13:47 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.minike.top/Article/details/4675866312.shtml)
-- 2026-06-29 13:19 - [赵露思爸爸拍vlog翻车了](http://www.blog.kurohicncr.top/Article/details/3211832297.shtml)
-- 2026-06-29 13:15 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/641470.shtml)
-- 2026-06-29 13:16 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/311297.shtml)
-- 2026-06-29 13:18 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/64525048.shtml)
-- 2026-06-29 13:25 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/1008815.shtml)
-- 2026-06-29 13:25 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/1127463500.shtml)
-- 2026-06-29 13:33 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/1749191.shtml)
-- 2026-06-29 13:31 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/317052599122.shtml)
-- 2026-06-29 13:14 - [医药股集体爆发](https://www.share.kurohicncr.top/Article/details/310836519746.shtml)
-- 2026-06-29 13:13 - [请回答王牌2019](https://www.blog.minike.top/Article/details/383435584002.shtml)
-- 2026-06-29 13:17 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/965312900138.shtml)
-- 2026-06-29 13:29 - [3D打印不是工业革命，它是……](https://www.blog.kurohicncr.top/Article/details/335547.shtml)
-- 2026-06-29 13:35 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/142911197392.shtml)
-- 2026-06-29 13:30 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/99059.shtml)
+- 2026-06-29 13:37 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/254058207.shtml)
+- 2026-06-29 13:39 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/922996.shtml)
+- 2026-06-29 13:26 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/06556019328.shtml)
+- 2026-06-29 13:20 - [张一山说杨紫早该拿奖了](http://www.share.kurohicncr.top/Article/details/05540.shtml)
+- 2026-06-29 13:45 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/4980332081.shtml)
+- 2026-06-29 13:40 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.kurohicncr.top/Article/details/8003868.shtml)
+- 2026-06-29 13:20 - [时光音乐会](https://www.blog.minike.top/Article/details/970368367532.shtml)
+- 2026-06-29 13:47 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/401515.shtml)
+- 2026-06-29 13:40 - [媒体人：警惕日本再次成战争加害国](http://www.blog.kurohicncr.top/Article/details/8429429.shtml)
+- 2026-06-29 13:29 - [F1奥地利正赛战报](https://www.share.minike.top/Article/details/73405071823.shtml)
+- 2026-06-29 13:18 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/618890177.shtml)
+- 2026-06-29 13:34 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/955285741.shtml)
+- 2026-06-29 13:31 - [志愿选择倒计时！浙大学生送祝福](http://www.share.minike.top/Article/details/26759627977.shtml)
+- 2026-06-29 13:28 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/98933219.shtml)
+- 2026-06-29 13:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/518618400172.shtml)

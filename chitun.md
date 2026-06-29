@@ -1,61 +1,56 @@
-# 谁懂啊！宝岛台湾居然也有“南北粽之争”！
+# 三星在AI热潮中日进斗金 三万名员工集会要求同享富贵
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 10:14 来源：中国新闻网 谁懂啊！宝岛台湾居然也有“南北粽之争”！近日，两位在北京上学的台湾青年，直奔前门大街打卡端午氛围感。台湾北部油润炒饭粽VS南部绵密蒸糯粽，大陆北方清甜蜜枣甜粽VS南方多汁鲜肉咸粽。这么多种粽子，究竟哪一种更美味？吵不停啊……吵不停，可当掀开粽叶的那一刻，却直接“破防”了！不管海峡两岸、南北口味差多少，端午最珍贵的永
+数万人聚集在了三星电子的主要芯片产业园外，要求让员工分到更多人工智能热潮带来的丰厚利润。 警方告诉当地媒体，约有3万人参加了在韩国南部城市平泽举行的这一集会；组织者称有3.9万人。平泽是三星庞大的半导体产业园区所在地。三星工会希望将15%的营业利润分配给芯片部门的员工。这相当于超过40万亿韩元（270亿美元）的总额，即平均每位员工逾40万美元。 推荐阅读：三星电子季度利润飙升近
 
 ## 正文
 
-发布时间：2026年06月20日 10:14 来源：中国新闻网 谁懂啊！
+数万人聚集在了三星电子的主要芯片产业园外，要求让员工分到更多人工智能热潮带来的丰厚利润。
 
-宝岛台湾居然也有“南北粽之争”！
+警方告诉当地媒体，约有3万人参加了在韩国南部城市平泽举行的这一集会；组织者称有3.9万人。
 
-近日，两位在北京上学的台湾青年，直奔前门大街打卡端午氛围感。
+平泽是三星庞大的半导体产业园区所在地。
 
-台湾北部油润炒饭粽VS南部绵密蒸糯粽，大陆北方清甜蜜枣甜粽VS南方多汁鲜肉咸粽。
+三星工会希望将15%的营业利润分配给芯片部门的员工。
 
-这么多种粽子，究竟哪一种更美味？
+这相当于超过40万亿韩元（270亿美元）的总额，即平均每位员工逾40万美元。
 
-吵不停啊……吵不停，可当掀开粽叶的那一刻，却直接“破防”了！
+推荐阅读：三星电子季度利润飙升近八倍 人工智能芯片销售火爆 三星此前在利润丰厚的高带宽存储（HBM）领域落后于本土竞争对手SK海力士。
 
-不管海峡两岸、南北口味差多少，端午最珍贵的永远是和家人围在一起包粽子的团圆时刻。
+这家韩国市值最高的公司在东山再起的同时，也面临着员工薪酬和奖金要求的压力。
 
-尝遍万千风味，但舌尖上的思念与心安处的团圆，还是那个味儿。
+它们再加上美光，这三个巨头近年来日益转向生产用于英伟达AI加速器的HBM。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 13:30 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dmprw.md)
-- 2026-06-29 13:24 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 13:17 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
-- 2026-06-29 13:20 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
-- 2026-06-29 13:32 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
-- 2026-06-29 13:30 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:27 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 13:14 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 13:41 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-29 13:22 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
-- 2026-06-29 13:35 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-29 13:18 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banpi.md)
-- 2026-06-29 13:39 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-29 13:31 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-29 13:37 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 13:22 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 13:32 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 13:22 - [中国战机大片上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 13:36 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 13:37 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-29 13:38 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
+- 2026-06-29 13:37 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
+- 2026-06-29 13:44 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 13:29 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/33216.shtml)
-- 2026-06-29 13:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/33937421137.shtml)
-- 2026-06-29 13:22 - [美人鱼](https://www.blog.minike.top/Article/details/47886960.shtml)
-- 2026-06-29 13:38 - [成都至北京将新增动卧](https://www.blog.minike.top/Article/details/23471516.shtml)
-- 2026-06-29 13:19 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/3758090208.shtml)
-- 2026-06-29 13:20 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/134557735804.shtml)
-- 2026-06-29 13:28 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/3516174095.shtml)
-- 2026-06-29 13:20 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/3276650167.shtml)
-- 2026-06-29 13:37 - [A股](http://www.blog.kurohicncr.top/Article/details/56660818613.shtml)
-- 2026-06-29 13:16 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.minike.top/Article/details/150579.shtml)
-- 2026-06-29 13:15 - [请回答王牌2019](https://www.blog.minike.top/Article/details/66881.shtml)
-- 2026-06-29 13:27 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/20446.shtml)
-- 2026-06-29 13:24 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/385898318.shtml)
-- 2026-06-29 13:30 - [韩国队如何把94%出线概率打到0%](http://www.blog.kurohicncr.top/Article/details/152250103905.shtml)
-- 2026-06-29 13:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/635578542.shtml)
+- 2026-06-29 13:28 - [克洛普：加拿大主帅还能继续创造历史](http://www.blog.kurohicncr.top/Article/details/9451869782.shtml)
+- 2026-06-29 13:47 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/3085023788.shtml)
+- 2026-06-29 13:20 - [男子偶遇婴儿被锁车内大哭挣扎](http://www.blog.kurohicncr.top/Article/details/35774136.shtml)
+- 2026-06-29 13:35 - [普京：俄罗斯面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/54822507363.shtml)
+- 2026-06-29 13:19 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/03528622991.shtml)
+- 2026-06-29 13:30 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/67563180950.shtml)
+- 2026-06-29 13:40 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.share.kurohicncr.top/Article/details/057006.shtml)
+- 2026-06-29 13:42 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/624009.shtml)
+- 2026-06-29 13:21 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/0641258697.shtml)
+- 2026-06-29 13:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/3345031.shtml)
+- 2026-06-29 13:34 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/81847052.shtml)
+- 2026-06-29 13:37 - [杨紫飞奔拥抱胡歌](https://www.blog.minike.top/Article/details/873825372.shtml)
+- 2026-06-29 13:41 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.share.minike.top/Article/details/577440556.shtml)
+- 2026-06-29 13:34 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.kurohicncr.top/Article/details/88923959.shtml)
+- 2026-06-29 13:35 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.kurohicncr.top/Article/details/82738060.shtml)

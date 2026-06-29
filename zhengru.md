@@ -1,55 +1,57 @@
-# 视频|散户大神“狂龙十八段”卓海杭，出任银之杰董事长。银之杰20cm涨停，封单超8万手，市值229亿
+# 英国议会通过法案：现年17岁及以下青少年终身禁止买烟
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：海量财经官方账号 散户大神“狂龙十八段”卓海杭，出任银之杰董事长。银之杰20cm涨停，封单超8万手。股价报32.35元/股，市值229亿。 责任编辑：宋雅芳
+中新社伦敦4月22日电 (记者 欧阳开宇)英国议会22日正式通过《烟草与电子烟法案》，推出极具严苛性的终身吸烟禁令，英国现年17岁及以下青少年、未来所有新生儿，将终身无法合法购买烟草制品。 该法案推行滚动式年龄禁烟规则，烟草合法购买年龄逐年上调，覆盖2009年1月1日及以后出生的所有人群，意味着这一群体将彻底失去合法购烟资格。英国政府旨在以此打造该国首个“无烟一代”。 除控烟核
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社伦敦4月22日电 (记者 欧阳开宇)英国议会22日正式通过《烟草与电子烟法案》，推出极具严苛性的终身吸烟禁令，英国现年17岁及以下青少年、未来所有新生儿，将终身无法合法购买烟草制品。
 
-来源：海量财经官方账号 散户大神“狂龙十八段”卓海杭，出任银之杰董事长。
+该法案推行滚动式年龄禁烟规则，烟草合法购买年龄逐年上调，覆盖2009年1月1日及以后出生的所有人群，意味着这一群体将彻底失去合法购烟资格。
 
-银之杰20cm涨停，封单超8万手。
+英国政府旨在以此打造该国首个“无烟一代”。
 
-股价报32.35元/股，市值229亿。
+除控烟核心条款外，法案同步收紧电子烟及尼古丁产品监管，同时严格限制电子烟广告投放、产品展示、免费派发与折扣促销行为。
 
-责任编辑：宋雅芳
+英国官方数据显示，该国每年因吸烟导致约6.4万人死亡、40万人住院，每年耗费英国国民医保体系约30亿英镑(约合277亿元人民币)，吸烟带来的公共卫生压力持续居高不下。
+
+同时，青少年电子烟吸食率攀升、尼古丁成瘾问题加剧，也成为英国政策制定者重点关注的社会议题。
+
+英国卫生大臣斯特里廷表示，法案获批是英国国民健康领域的历史性时刻，通过这项立法，英国年轻一代将免受尼古丁终身成瘾危害，远离烟草带来的健康风险。
+
+他指出，预防胜于治疗，该法案不仅能挽救生命、缓解医疗体系运行压力，更将助力构建更健康的英国社会。
 
 ## 相关推荐
 
-- 2026-06-29 13:16 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-29 13:41 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-29 13:38 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
-- 2026-06-29 13:26 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-29 13:14 - [本周做什么都顺的星座](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-29 13:26 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/murfy.md)
-- 2026-06-29 13:13 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
-- 2026-06-29 13:32 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 13:20 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 13:24 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 13:39 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-29 13:13 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiepan.md)
-- 2026-06-29 13:25 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
-- 2026-06-29 13:30 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 13:14 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 13:47 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 13:43 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 13:21 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwetd.md)
+- 2026-06-29 13:36 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-29 13:43 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
+- 2026-06-29 13:18 - [6月我国降水为何偏多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
+- 2026-06-29 13:44 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xishu.md)
+- 2026-06-29 13:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
+- 2026-06-29 13:20 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-29 13:31 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 13:41 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:13 - [《虎吹最难绷の一集》](http://www.blog.minike.top/Article/details/4631748.shtml)
-- 2026-06-29 13:20 - [初心如磐 红色足迹](https://www.blog.minike.top/Article/details/14465625284.shtml)
-- 2026-06-29 13:14 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/94914226586.shtml)
-- 2026-06-29 13:12 - [《贺子珍》](https://www.blog.minike.top/Article/details/75376595.shtml)
-- 2026-06-29 13:18 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/93543.shtml)
-- 2026-06-29 13:25 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/6203065.shtml)
-- 2026-06-29 13:14 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/7451387152.shtml)
-- 2026-06-29 13:20 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/7901914046.shtml)
-- 2026-06-29 13:29 - [上周末 多领域成果密集“上新”](https://www.share.minike.top/Article/details/7380077401.shtml)
-- 2026-06-29 13:20 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/3450840349.shtml)
-- 2026-06-29 13:39 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/3704009325.shtml)
-- 2026-06-29 13:17 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/9747059.shtml)
-- 2026-06-29 13:21 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/35459.shtml)
-- 2026-06-29 13:24 - [《昨夜将至》为何是悬疑黑马](http://www.blog.kurohicncr.top/Article/details/89258924.shtml)
-- 2026-06-29 13:41 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/2708203.shtml)
+- 2026-06-29 13:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.share.minike.top/Article/details/629660747950.shtml)
+- 2026-06-29 13:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.minike.top/Article/details/8210713533.shtml)
+- 2026-06-29 13:47 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/025454291.shtml)
+- 2026-06-29 13:47 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/720554333.shtml)
+- 2026-06-29 13:37 - [光与夜之恋](http://www.blog.kurohicncr.top/Article/details/956647.shtml)
+- 2026-06-29 13:23 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/482220500.shtml)
+- 2026-06-29 13:22 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/317700.shtml)
+- 2026-06-29 13:40 - [起风了](http://www.share.kurohicncr.top/Article/details/747198817238.shtml)
+- 2026-06-29 13:30 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/257996.shtml)
+- 2026-06-29 13:22 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.blog.kurohicncr.top/Article/details/0272430.shtml)
+- 2026-06-29 13:38 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/25993.shtml)
+- 2026-06-29 13:26 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/81929.shtml)
+- 2026-06-29 13:24 - [天道](https://www.blog.minike.top/Article/details/192073008.shtml)
+- 2026-06-29 13:43 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/90744350758.shtml)
+- 2026-06-29 13:44 - [布里奇斯被交易至太阳](http://www.blog.kurohicncr.top/Article/details/548621122581.shtml)

@@ -1,47 +1,58 @@
-# 光大期货0622热点追踪：节后蛋价断崖下跌？牛回头还是跌势开启？
+# 生态产品价值如何实现？自然资源部介绍典型案例
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-专题：光大期货热点追踪视频合集 光大期货0622热点追踪：节后蛋价断崖下跌？牛回头还是跌势开启？责任编辑：朱赫楠
+中新网北京4月22日电 (庞无忌 陶思阅)2026年政府工作报告提出，要完善多元化生态补偿机制，拓展生态产品价值实现渠道。 生态产品价值如何实现？在日前举办的自然资源部媒体座谈会上，湖南、安徽两地介绍了生态产品价值实现的实践经验。 湖南省衡阳市东洲岛作为湘江流域三大江心洲之一，承载着船山书院、罗汉寺等珍贵历史文化遗存。湖南省自然资源厅权益处处长黄运茂介绍，近年来在此构建起了集自
 
 ## 正文
 
-专题：光大期货热点追踪视频合集 光大期货0622热点追踪：节后蛋价断崖下跌？
+中新网北京4月22日电 (庞无忌 陶思阅)2026年政府工作报告提出，要完善多元化生态补偿机制，拓展生态产品价值实现渠道。
 
-牛回头还是跌势开启？
+生态产品价值如何实现？
 
-责任编辑：朱赫楠
+在日前举办的自然资源部媒体座谈会上，湖南、安徽两地介绍了生态产品价值实现的实践经验。
+
+湖南省衡阳市东洲岛作为湘江流域三大江心洲之一，承载着船山书院、罗汉寺等珍贵历史文化遗存。
+
+湖南省自然资源厅权益处处长黄运茂介绍，近年来在此构建起了集自然保护、文化传承、科技赋能、旅游消费、民生增收于一体的多元业态。
+
+“我们以全民所有自然资源资产所有权委托代理机制国家试点为契机，开展土地、矿产等自然资源资产清查，摸清东洲岛资源家底。
+
+”黄运茂说，随后拟定正负面清单，明确资源开发利用边界；设定国有建设用地使用权、湘江游船旅游观光经营权和岛上文化旅游经营权，并委托专业机构评估总体价值，更好显化东洲岛多要素资源综合价值。
+
+此后，科学编制资产组合供应方案，依托衡阳市公共资源交易中心“云上资交”系统公开出让；创新采用“价高者得+运营方案评审”复合竞价规则，成功引入市场运营主体。
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 13:24 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdxxu.md)
-- 2026-06-29 13:15 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-29 13:16 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-29 13:27 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-29 13:27 - [吴磊爱上回收了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-29 13:29 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 13:33 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leiqie.md)
-- 2026-06-29 13:32 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-29 13:38 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:19 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 13:36 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/krgvl.md)
+- 2026-06-29 13:34 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 13:28 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
+- 2026-06-29 13:44 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 13:19 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-29 13:42 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 13:36 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-29 13:37 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 13:38 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 13:22 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 13:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
+- 2026-06-29 13:45 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:15 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/9877398511.shtml)
-- 2026-06-29 13:37 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/805031723.shtml)
-- 2026-06-29 13:36 - [起风了](http://www.share.minike.top/Article/details/439114570235.shtml)
-- 2026-06-29 13:33 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/19115617639.shtml)
-- 2026-06-29 13:17 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/6041912.shtml)
-- 2026-06-29 13:12 - [未来5年全国能源体系将呈现这些特征](https://www.share.minike.top/Article/details/60333342.shtml)
-- 2026-06-29 13:21 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/5330027656.shtml)
-- 2026-06-29 13:21 - [Agent带来token消耗爆炸](http://www.share.kurohicncr.top/Article/details/73360185.shtml)
-- 2026-06-29 13:13 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/61260153107.shtml)
-- 2026-06-29 13:28 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/9830971.shtml)
-- 2026-06-29 13:33 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/1360692918.shtml)
-- 2026-06-29 13:22 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/78188.shtml)
-- 2026-06-29 13:17 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/25960.shtml)
-- 2026-06-29 13:30 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/983530410.shtml)
-- 2026-06-29 13:18 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/349412.shtml)
+- 2026-06-29 13:26 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/56879089.shtml)
+- 2026-06-29 13:18 - [周生如故](https://www.blog.kurohicncr.top/Article/details/023924.shtml)
+- 2026-06-29 13:29 - [鸭子洪水中摆渡救鸡 课文照进现实](https://www.blog.kurohicncr.top/Article/details/4421022.shtml)
+- 2026-06-29 13:38 - [明星大侦探第一季](https://www.share.minike.top/Article/details/66824342.shtml)
+- 2026-06-29 13:39 - [原来大雷哥给杨紫准备了三件祖海高定](http://www.share.minike.top/Article/details/28910.shtml)
+- 2026-06-29 13:34 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.kurohicncr.top/Article/details/167250.shtml)
+- 2026-06-29 13:19 - [在家赤身裸体是否绝对自由](http://www.share.kurohicncr.top/Article/details/12134.shtml)
+- 2026-06-29 13:46 - [高考公平需要延伸到志愿填报这一环](https://www.share.minike.top/Article/details/25694590.shtml)
+- 2026-06-29 13:24 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/967914.shtml)
+- 2026-06-29 13:31 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.kurohicncr.top/Article/details/63777165.shtml)
+- 2026-06-29 13:37 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.minike.top/Article/details/275254332366.shtml)
+- 2026-06-29 13:38 - [德云色预测世界杯16强](https://www.blog.minike.top/Article/details/501432473.shtml)
+- 2026-06-29 13:21 - [DSpark论文深度解读](https://www.blog.kurohicncr.top/Article/details/080246.shtml)
+- 2026-06-29 13:41 - [王楚钦周启豪爆分](http://www.share.minike.top/Article/details/64875110.shtml)
+- 2026-06-29 13:41 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/108799101619.shtml)

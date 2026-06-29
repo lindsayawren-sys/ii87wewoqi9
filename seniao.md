@@ -1,57 +1,54 @@
-# 日本央行副行长冰见野良三警告核心通胀率存在升破央行2%目标的风险
+# 亚市早盘油价上涨 因霍尔木兹海峡仍然关闭
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-日本央行副行长冰见野良三在解释本周初加息的理由时表示，核心通胀率存在升破央行2%目标的风险。 “我们注意到，企业间的交易正在以较快的速度转嫁上升的成本，我们认为这最终可能引发范围广泛的消费品和服务价格普遍上涨。”冰见野良三周五在国会回答提问时说。“核心通胀率存在加速升破央行2%目标的风险。” 冰见野良三是日本央行周二将基准利率上调至31年来最高水平后，首位公开讲话的央行官员。他
+在霍尔木兹海峡持续关闭之际，油价在早盘上涨。美国总统特朗普表示，该海峡仍然“严密封锁“，并命令美国海军“射杀“任何在水道中布设水雷的船只。德国商业银行研究部的Barbara Lambrecht在一份研究报告中表示：“霍尔木兹海峡的关闭仍然是决定性因素。“这位大宗商品分析师补充说，只要对石油贸易至关重要的该海峡的封锁看不到尽头，油价就可能保持在每桶100美元以上。近月合约布伦特原
 
 ## 正文
 
-日本央行副行长冰见野良三在解释本周初加息的理由时表示，核心通胀率存在升破央行2%目标的风险。
+在霍尔木兹海峡持续关闭之际，油价在早盘上涨。
 
-“我们注意到，企业间的交易正在以较快的速度转嫁上升的成本，我们认为这最终可能引发范围广泛的消费品和服务价格普遍上涨。
+美国总统特朗普表示，该海峡仍然“严密封锁“，并命令美国海军“射杀“任何在水道中布设水雷的船只。
 
-”冰见野良三周五在国会回答提问时说。
+德国商业银行研究部的Barbara Lambrecht在一份研究报告中表示：“霍尔木兹海峡的关闭仍然是决定性因素。
 
-“核心通胀率存在加速升破央行2%目标的风险。
+“这位大宗商品分析师补充说，只要对石油贸易至关重要的该海峡的封锁看不到尽头，油价就可能保持在每桶100美元以上。
 
-” 冰见野良三是日本央行周二将基准利率上调至31年来最高水平后，首位公开讲话的央行官员。
-
-他重申，日本央行将根据经济和通胀情况继续加息，但没有就潜在加息时点给出明确暗示。
-
-在冰见野良三发表讲话之际，日元兑美元处于161.25附近，弱于日本当局4月底入市干预、支撑日元时的水平。
+近月合约布伦特原油期货上涨1.1%，至每桶106.26美元；近月合约西得州中质油期货上涨1.0%，至每桶96.80美元。
 
 责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-29 13:17 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 13:14 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 13:16 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
-- 2026-06-29 13:15 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 13:34 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-29 13:21 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
-- 2026-06-29 13:18 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:36 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 13:18 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-29 13:14 - [以前不让妆女二可以艳压女主](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
+- 2026-06-29 13:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 13:39 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 13:36 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 13:39 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:34 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 13:18 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-29 13:33 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-29 13:24 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 13:43 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-29 13:18 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 13:44 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 13:47 - [恋与深空需直面玩家6大疑问](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.minike.top/Article/details/702978104.shtml)
-- 2026-06-29 13:26 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/729628.shtml)
-- 2026-06-29 13:24 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/23946596793.shtml)
-- 2026-06-29 13:36 - [刘仲华院士愿当贺永辉导师](https://www.share.kurohicncr.top/Article/details/422133.shtml)
-- 2026-06-29 13:24 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/083235049.shtml)
-- 2026-06-29 13:25 - [撒旦的腋窝是什么比喻](https://www.share.minike.top/Article/details/01405495.shtml)
-- 2026-06-29 13:28 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/11899564926.shtml)
-- 2026-06-29 13:19 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.blog.kurohicncr.top/Article/details/669273877.shtml)
-- 2026-06-29 13:24 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/66106.shtml)
-- 2026-06-29 13:28 - [为什么欧洲人不装空调](http://www.share.kurohicncr.top/Article/details/810520096.shtml)
-- 2026-06-29 13:12 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/452369532441.shtml)
-- 2026-06-29 13:17 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.minike.top/Article/details/91832730.shtml)
-- 2026-06-29 13:19 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://www.share.minike.top/Article/details/93530.shtml)
-- 2026-06-29 13:14 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/56251955.shtml)
-- 2026-06-29 13:38 - [恋与深空评分暴跌至1.8](https://www.blog.kurohicncr.top/Article/details/874340.shtml)
+- 2026-06-29 13:25 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/11608744.shtml)
+- 2026-06-29 13:38 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/12154474.shtml)
+- 2026-06-29 13:24 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/986608.shtml)
+- 2026-06-29 13:36 - [事关个税 明日截止请抓紧办理](http://www.blog.minike.top/Article/details/73934430086.shtml)
+- 2026-06-29 13:35 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/449912.shtml)
+- 2026-06-29 13:42 - [加拿大92分钟绝杀南非](https://www.blog.kurohicncr.top/Article/details/23429926156.shtml)
+- 2026-06-29 13:19 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/61139213.shtml)
+- 2026-06-29 13:44 - [王楚钦美国大满贯晋级32强](https://www.share.minike.top/Article/details/5235493.shtml)
+- 2026-06-29 13:22 - [三都主：淘汰赛我会支持日本](http://www.share.minike.top/Article/details/51535.shtml)
+- 2026-06-29 13:29 - [久坐小心“死臀综合征”](https://www.blog.kurohicncr.top/Article/details/191976250156.shtml)
+- 2026-06-29 13:40 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.blog.kurohicncr.top/Article/details/319554592150.shtml)
+- 2026-06-29 13:22 - [美国近12万名科技员工被解雇](http://www.blog.kurohicncr.top/Article/details/45895945538.shtml)
+- 2026-06-29 13:28 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.blog.kurohicncr.top/Article/details/170336.shtml)
+- 2026-06-29 13:32 - [央视曝光高价回收老物件骗局](https://www.share.minike.top/Article/details/338851250.shtml)
+- 2026-06-29 13:28 - [周生如故](http://www.blog.kurohicncr.top/Article/details/233574687.shtml)

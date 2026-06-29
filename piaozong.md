@@ -1,45 +1,46 @@
-# 中银国际：蜜雪集团首予“增持”评级 在下沉市场具备强竞争优势
+# 大美边疆看我家丨黑龙江哈尔滨：江畔夜景醉人心
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中银国际发布研报称，首次覆盖蜜雪集团（02097），给予增持评级，主要考虑到：1）公司在茶饮市场一超多强，在咖啡市场也具备一定竞争力，整体来看在下沉市场竞争力显著，有望享受下沉市场增长红利；2）公司在出海领域布局全国领先，多地区共进，门店数量提升有望带来新增长点；3）公司持续发力供应链建设，维护加盟商生态，竞争壁垒厚，在市场冲击下有望守护自身优势；4）品牌IP建设有望同消费者产
+发布时间：2026年04月23日 11:17 来源：中国新闻网 在哈尔滨公路大桥，车流穿梭于江水之上，灯光与黄昏交相辉映，形成一幅独特的江畔夜景图。(作者：孙钰博） 责任编辑：【魏聪聪】
 
 ## 正文
 
-中银国际发布研报称，首次覆盖蜜雪集团（02097），给予增持评级，主要考虑到：1）公司在茶饮市场一超多强，在咖啡市场也具备一定竞争力，整体来看在下沉市场竞争力显著，有望享受下沉市场增长红利；2）公司在出海领域布局全国领先，多地区共进，门店数量提升有望带来新增长点；3）公司持续发力供应链建设，维护加盟商生态，竞争壁垒厚，在市场冲击下有望守护自身优势；4）品牌IP建设有望同消费者产生情绪共鸣，构建情绪壁垒，同时IP热度不断上升，变现空间更大。
+发布时间：2026年04月23日 11:17 来源：中国新闻网 在哈尔滨公路大桥，车流穿梭于江水之上，灯光与黄昏交相辉映，形成一幅独特的江畔夜景图。
 
-责任编辑：卢昱君
+(作者：孙钰博） 责任编辑：【魏聪聪】
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-29 13:14 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
-- 2026-06-29 13:38 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 13:23 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
-- 2026-06-29 13:34 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-29 13:37 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanxiang.md)
-- 2026-06-29 13:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
-- 2026-06-29 13:12 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 13:34 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
-- 2026-06-29 13:24 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-29 13:32 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 13:22 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-29 13:35 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 13:18 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-29 13:32 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 13:47 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
+- 2026-06-29 13:44 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
+- 2026-06-29 13:35 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-29 13:43 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-29 13:38 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
+- 2026-06-29 13:42 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 13:47 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [ENC瓦中国香港负印度数据图](https://www.share.minike.top/Article/details/5238353.shtml)
-- 2026-06-29 13:39 - [第一炉香](https://www.share.kurohicncr.top/Article/details/01371.shtml)
-- 2026-06-29 13:13 - [这位猫咪，请你自重！](https://www.share.kurohicncr.top/Article/details/05909.shtml)
-- 2026-06-29 13:32 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/4845561.shtml)
-- 2026-06-29 13:22 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/05276235610.shtml)
-- 2026-06-29 13:22 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/9105400378.shtml)
-- 2026-06-29 13:21 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/50802.shtml)
-- 2026-06-29 13:41 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/8411959.shtml)
-- 2026-06-29 13:25 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/63475258691.shtml)
-- 2026-06-29 13:40 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/09674634359.shtml)
-- 2026-06-29 13:41 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/5495891516.shtml)
-- 2026-06-29 13:21 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/163296.shtml)
-- 2026-06-29 13:17 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/5334970.shtml)
-- 2026-06-29 13:34 - [王楚钦首轮赢下国乒德比](https://www.share.minike.top/Article/details/8419313.shtml)
-- 2026-06-29 13:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/821435.shtml)
+- 2026-06-29 13:37 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/7550908.shtml)
+- 2026-06-29 13:33 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/38158838.shtml)
+- 2026-06-29 13:23 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/7579966.shtml)
+- 2026-06-29 13:39 - [以前不让妆女二可以艳压女主](http://www.blog.minike.top/Article/details/20374057.shtml)
+- 2026-06-29 13:44 - [志愿选择倒计时！浙大学生送祝福](https://www.share.minike.top/Article/details/817529071426.shtml)
+- 2026-06-29 13:47 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.blog.kurohicncr.top/Article/details/3680467.shtml)
+- 2026-06-29 13:19 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/755810.shtml)
+- 2026-06-29 13:21 - [佛得角到底在哪个“角”](https://www.blog.minike.top/Article/details/82433915.shtml)
+- 2026-06-29 13:24 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/93639.shtml)
+- 2026-06-29 13:26 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/04259803687.shtml)
+- 2026-06-29 13:43 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/54105491778.shtml)
+- 2026-06-29 13:31 - [T1零封KC MSI](http://www.share.minike.top/Article/details/711530342364.shtml)
+- 2026-06-29 13:33 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.kurohicncr.top/Article/details/5480588230.shtml)
+- 2026-06-29 13:45 - [沙特足协主席发布声明主动请辞](http://www.share.kurohicncr.top/Article/details/5718320228.shtml)
+- 2026-06-29 13:18 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.minike.top/Article/details/4595546883.shtml)

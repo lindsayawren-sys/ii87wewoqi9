@@ -1,51 +1,59 @@
-# 以国风雅集为媒 长春“Z世代”传承中华传统礼仪文化
+# 人民锐评：全民阅读时代，实体书店如何转型升级？
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月20日 23:13 来源：中国新闻网 6月20日，吉林长春，20余名年轻汉服爱好者在商圈举办国风雅集，投壶体验、汉服巡游、华服模特大赛、国风运动会及礼祭屈原仪式展演轮番上演，吸引众多市民驻足观赏。 本次活动策划组织者以“95后”“00后”汉服爱好者为主，旨在向大众普及中华优秀传统民俗文化。(记者 吕盛楠) 责任编辑：【曲克】
+金台岩 来源：人民网-观点频道 “共促全民阅读，共建书香社会”，4月20日至22日，第五届全民阅读大会在江西南昌举办，“全民阅读活动周”同步启动。2026年修订版《全民阅读促进条例》正式施行，全民阅读由倡议上升为国家法定制度。 《第二十三次全国国民阅读调查报告》显示，2025年数字化阅读方式(电脑端网络在线阅读、手机阅读、电子阅读器阅读、Pad阅读、听书、视频讲书等)的接触率为
 
 ## 正文
 
-发布时间：2026年06月20日 23:13 来源：中国新闻网 6月20日，吉林长春，20余名年轻汉服爱好者在商圈举办国风雅集，投壶体验、汉服巡游、华服模特大赛、国风运动会及礼祭屈原仪式展演轮番上演，吸引众多市民驻足观赏。
+金台岩 来源：人民网-观点频道 “共促全民阅读，共建书香社会”，4月20日至22日，第五届全民阅读大会在江西南昌举办，“全民阅读活动周”同步启动。
 
-本次活动策划组织者以“95后”“00后”汉服爱好者为主，旨在向大众普及中华优秀传统民俗文化。
+2026年修订版《全民阅读促进条例》正式施行，全民阅读由倡议上升为国家法定制度。
 
-(记者 吕盛楠) 责任编辑：【曲克】
+《第二十三次全国国民阅读调查报告》显示，2025年数字化阅读方式(电脑端网络在线阅读、手机阅读、电子阅读器阅读、Pad阅读、听书、视频讲书等)的接触率为80.8%，较2024年的80.6%增长了0.2个百分点。
+
+数字化时代，人们阅读习惯日渐改变，实体书店如何借势焕新？
+
+书店的独立价值与核心竞争力又在哪里？
+
+无需回避，一些书店从书籍种类、服务质量到环境，难以满足当下消费者的多元需求。
+
+一方面，实体书店租金等运营成本较高，往往靠“图书+X”的运营模式，引入咖啡、文创、轻餐饮等才能勉强收支平衡。
+
+多元经营下，一些书店不重视图书质量，什么好卖摆什么。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 13:27 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
-- 2026-06-29 13:33 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 13:17 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
-- 2026-06-29 13:12 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-29 13:26 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 13:20 - [我们注定是一撮县城葱姜蒜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 13:36 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 13:18 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
-- 2026-06-29 13:40 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
-- 2026-06-29 13:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
-- 2026-06-29 13:22 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-29 13:13 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyhlg.md)
-- 2026-06-29 13:30 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzlfm.md)
-- 2026-06-29 13:32 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 13:46 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 13:26 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvsna.md)
+- 2026-06-29 13:37 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 13:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 13:33 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/maygo.md)
+- 2026-06-29 13:47 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-29 13:35 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-29 13:21 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
+- 2026-06-29 13:32 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-29 13:36 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 13:26 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
+- 2026-06-29 13:43 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-29 13:39 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:29 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.share.kurohicncr.top/Article/details/33118498.shtml)
-- 2026-06-29 13:28 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.kurohicncr.top/Article/details/6683100854.shtml)
-- 2026-06-29 13:22 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/5378309357.shtml)
-- 2026-06-29 13:33 - [第一炉香](https://www.share.minike.top/Article/details/619294.shtml)
-- 2026-06-29 13:12 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/84973870.shtml)
-- 2026-06-29 13:13 - [当我回母校教书](https://www.blog.minike.top/Article/details/384019787.shtml)
-- 2026-06-29 13:17 - [伊朗球员致歉](http://www.blog.minike.top/Article/details/04582.shtml)
-- 2026-06-29 13:18 - [日本主帅：对战胜巴西很有信心](https://www.share.minike.top/Article/details/01549592.shtml)
-- 2026-06-29 13:23 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.minike.top/Article/details/63686034761.shtml)
-- 2026-06-29 13:28 - [为什么欧洲人不装空调](https://www.blog.minike.top/Article/details/248382.shtml)
-- 2026-06-29 13:30 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/89379060.shtml)
-- 2026-06-29 13:33 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.kurohicncr.top/Article/details/405479738.shtml)
-- 2026-06-29 13:36 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/0865085072.shtml)
-- 2026-06-29 13:38 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/597080975788.shtml)
-- 2026-06-29 13:24 - [赵露思爸爸拍vlog翻车了](https://www.blog.minike.top/Article/details/43516.shtml)
+- 2026-06-29 13:42 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/0977742506.shtml)
+- 2026-06-29 13:32 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/568159.shtml)
+- 2026-06-29 13:46 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/27477378834.shtml)
+- 2026-06-29 13:43 - [小娘惹](http://www.share.kurohicncr.top/Article/details/34986105878.shtml)
+- 2026-06-29 13:21 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/19871717.shtml)
+- 2026-06-29 13:24 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/9854551.shtml)
+- 2026-06-29 13:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/877552519.shtml)
+- 2026-06-29 13:43 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/65596299256.shtml)
+- 2026-06-29 13:28 - [中国代表在联合国点名日本所犯罪行](http://www.blog.kurohicncr.top/Article/details/629375397.shtml)
+- 2026-06-29 13:32 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/01010749.shtml)
+- 2026-06-29 13:33 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/03677.shtml)
+- 2026-06-29 13:25 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/51277842177.shtml)
+- 2026-06-29 13:47 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/480082039.shtml)
+- 2026-06-29 13:46 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/39778724334.shtml)
+- 2026-06-29 13:39 - [为什么欧洲人不装空调](https://www.share.minike.top/Article/details/044527.shtml)

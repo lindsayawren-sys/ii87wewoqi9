@@ -1,59 +1,54 @@
-# 北京启动第三次全国古树名木资源普查 新增自然保护区内调查
+# 追觅俞浩：雷军太完美了，大家对他要求太高，说错一点都会被放大
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月18日电 (记者 徐婧)北京市园林绿化局18日介绍，北京市全面启动第三次全国古树名木资源普查。本次普查以2017年北京市第二次古树名木普查和2021年古树名木体检工作为基础，对全市行政区域内所有古树、名木及古树群开展全方位、全覆盖排查。北京古树名木资源丰富，现存古树名木4万余株。近年来，北京制定实施了《北京市古树名木保护规划(2021年—2035年)》。在全市古树
+4月22日，追觅科技创始人俞浩在微博发文谈及雷军。俞浩说：“雷总是我非常敬佩的企业家，各方面的楷模！可是大家对雷总要求太高了，只要稍微说错一点点话，甚至谈不上有啥错，都会被放大解读，他太完美了！” 他表示他不想这样，也做不到，自己就是要经常骂骂人、经常说错话，时不时爆一点小雷出来，这样大家就习惯了。 在俞浩看来，只要不是生死，都不是事，这是他们主动选择犯错的策略，通过不断测试小
 
 ## 正文
 
-中新网北京6月18日电 (记者 徐婧)北京市园林绿化局18日介绍，北京市全面启动第三次全国古树名木资源普查。
+4月22日，追觅科技创始人俞浩在微博发文谈及雷军。
 
-本次普查以2017年北京市第二次古树名木普查和2021年古树名木体检工作为基础，对全市行政区域内所有古树、名木及古树群开展全方位、全覆盖排查。
+俞浩说：“雷总是我非常敬佩的企业家，各方面的楷模！
 
-北京古树名木资源丰富，现存古树名木4万余株。
+可是大家对雷总要求太高了，只要稍微说错一点点话，甚至谈不上有啥错，都会被放大解读，他太完美了！
 
-近年来，北京制定实施了《北京市古树名木保护规划(2021年—2035年)》。
+” 他表示他不想这样，也做不到，自己就是要经常骂骂人、经常说错话，时不时爆一点小雷出来，这样大家就习惯了。
 
-在全市古树名木体检全覆盖的基础上持续加大濒危衰弱古树名木抢救复壮力度，实行“一树一策”。
+在俞浩看来，只要不是生死，都不是事，这是他们主动选择犯错的策略，通过不断测试小风险，从而避免集中的大风险。
 
-做好知名古树名木基因的收集、保存和扩繁。
-
-本次普查工作将全面摸清当前北京古树名木资源数量、位置分布、生长状况和保护管理等情况，深度挖掘其历史文化内涵，搭建标准化、精细化的古树名木资源管理数据库。
-
-普查分为五个时间段开展。
+责任编辑：王翔
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-29 13:28 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
-- 2026-06-29 13:23 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 13:16 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 13:14 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
-- 2026-06-29 13:36 - [开电动汽车真的很省钱吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jivfs.md)
-- 2026-06-29 13:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 13:28 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtxhh.md)
-- 2026-06-29 13:41 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 13:15 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-29 13:29 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 13:23 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 13:14 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-29 13:27 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 13:26 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
+- 2026-06-29 13:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 13:39 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
+- 2026-06-29 13:36 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 13:19 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-29 13:37 - [李连杰否认不管前妻两女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-29 13:26 - [手游300亿数据或被军事化运用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 13:34 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 13:27 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-29 13:32 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-29 13:42 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/237576.shtml)
-- 2026-06-29 13:22 - [普京称俄处于命运攸关之际](http://www.share.kurohicncr.top/Article/details/27610745.shtml)
-- 2026-06-29 13:30 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/257725034.shtml)
-- 2026-06-29 13:39 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/677110206.shtml)
-- 2026-06-29 13:18 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/082742755.shtml)
-- 2026-06-29 13:39 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/476787909.shtml)
-- 2026-06-29 13:21 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/177171.shtml)
-- 2026-06-29 13:14 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/06622.shtml)
-- 2026-06-29 13:19 - [记者暗访贵州和云南多个养老机构](http://www.blog.minike.top/Article/details/10520590.shtml)
-- 2026-06-29 13:16 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.minike.top/Article/details/78524973.shtml)
-- 2026-06-29 13:20 - [3D打印不是工业革命，它是……](http://www.blog.kurohicncr.top/Article/details/0069447876.shtml)
-- 2026-06-29 13:22 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/37867801.shtml)
-- 2026-06-29 13:36 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/9712902.shtml)
-- 2026-06-29 13:21 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/6889237.shtml)
-- 2026-06-29 13:31 - [我和我的家乡](https://www.blog.kurohicncr.top/Article/details/8024482.shtml)
+- 2026-06-29 13:28 - [林昀儒不敌17岁小将止步首轮](http://www.blog.kurohicncr.top/Article/details/6760182855.shtml)
+- 2026-06-29 13:35 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.kurohicncr.top/Article/details/82281782071.shtml)
+- 2026-06-29 13:41 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/928716635870.shtml)
+- 2026-06-29 13:18 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.share.minike.top/Article/details/194573834.shtml)
+- 2026-06-29 13:39 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/420214.shtml)
+- 2026-06-29 13:45 - [美媒：空警-3000服役即成全球最强](https://www.blog.minike.top/Article/details/156396980464.shtml)
+- 2026-06-29 13:35 - [C罗关心罗德里戈伤情](http://www.share.minike.top/Article/details/225000745497.shtml)
+- 2026-06-29 13:20 - [美人鱼](http://www.share.kurohicncr.top/Article/details/708836297931.shtml)
+- 2026-06-29 13:34 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/1834630583.shtml)
+- 2026-06-29 13:20 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/1669320800.shtml)
+- 2026-06-29 13:42 - [普京称俄处于命运攸关之际](http://www.blog.minike.top/Article/details/46321378.shtml)
+- 2026-06-29 13:40 - [外网预言中国举办世界杯时间](http://www.share.kurohicncr.top/Article/details/49635.shtml)
+- 2026-06-29 13:29 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/80178047.shtml)
+- 2026-06-29 13:38 - [媒体：这一次合肥芜湖在伯仲之间](https://www.share.kurohicncr.top/Article/details/09062462338.shtml)
+- 2026-06-29 13:43 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/50747057.shtml)

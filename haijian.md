@@ -1,46 +1,57 @@
-# 清华大学教授孟天广：大学生应提升3个AI素养
+# 光大期货0423热点追踪：焦煤冲高回落，基本面支撑仍在
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月22日 14:35 来源：中国新闻网 当前，人工智能(AI)快速普及，引发新一轮高等教育如何适应AI技术的讨论。就此，清华大学社会科学学院党委书记、教授孟天广认为，应抓好3个AI关键教育，即用AI提升学生的创造力、判断力和独立思考能力。(左登基） 责任编辑：【程春雨】
+连续反弹过后，焦煤期货今日震荡走弱，截至收盘，按收盘价计算，焦煤主力合约跌幅约1.2%，成为黑色板块中跌幅靠前的品种。 从基本面来看，焦煤的供需格局并未发生实质性改变。需求端，终端钢材价格回暖带动钢厂利润修复，高炉开工维持高位，对焦炭的刚性需求较强，同时，临近五一假期，钢厂存在一定的原料备货需求，近期补库积极性有所提升，此外，焦化企业利润也有所改善，部分焦企对优质煤种适量采购，
 
 ## 正文
 
-发布时间：2026年06月22日 14:35 来源：中国新闻网 当前，人工智能(AI)快速普及，引发新一轮高等教育如何适应AI技术的讨论。
+连续反弹过后，焦煤期货今日震荡走弱，截至收盘，按收盘价计算，焦煤主力合约跌幅约1.2%，成为黑色板块中跌幅靠前的品种。
 
-就此，清华大学社会科学学院党委书记、教授孟天广认为，应抓好3个AI关键教育，即用AI提升学生的创造力、判断力和独立思考能力。
+从基本面来看，焦煤的供需格局并未发生实质性改变。
 
-(左登基） 责任编辑：【程春雨】
+需求端，终端钢材价格回暖带动钢厂利润修复，高炉开工维持高位，对焦炭的刚性需求较强，同时，临近五一假期，钢厂存在一定的原料备货需求，近期补库积极性有所提升，此外，焦化企业利润也有所改善，部分焦企对优质煤种适量采购，补库意愿较前期回升，对炼焦煤采购形成支撑。
+
+供应端方面，产地煤矿受安监扰动，产能释放受到一定限制，短期增量有限。
+
+综合来看，今日焦煤盘面的回落，大概率是连续反弹后的阶段性情绪修复所致，而非基本面转弱。
+
+在需求韧性、供应受限的背景下，预计短期焦煤盘面仍将维持偏强运行格局，关注节前补库节奏及相关政策变化。
+
+信息来源：光大期货研究所 撰稿：姚涛 从业资格：F3082336 交易咨询资格：Z0018553 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
+
+我们已力求报告内容的客观、公正，但文中的观点、结论和建议仅供参考，并不构成任何具体产品、业务的推介以及相关品种的操作依据和建议，投资者据此作出的任何投资决策自负盈亏，与本公司和作者无关。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-29 13:24 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
-- 2026-06-29 13:29 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-29 13:38 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 13:20 - [游戏数据竟被用于军事目的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 13:21 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 13:19 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-29 13:27 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zunjing.md)
-- 2026-06-29 13:22 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
-- 2026-06-29 13:16 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
+- 2026-06-29 13:19 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-29 13:45 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 13:26 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-29 13:32 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 13:22 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-29 13:42 - [本周做什么都顺的星座](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-29 13:20 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 13:28 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 13:45 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkixu.md)
+- 2026-06-29 13:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
+- 2026-06-29 13:40 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/667065408769.shtml)
-- 2026-06-29 13:23 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/52608426616.shtml)
-- 2026-06-29 13:27 - [医药股集体爆发](http://www.share.minike.top/Article/details/46484.shtml)
-- 2026-06-29 13:38 - [两个教官【皮影人行动4.0】](https://www.share.kurohicncr.top/Article/details/507888.shtml)
-- 2026-06-29 13:38 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/87193040428.shtml)
-- 2026-06-29 13:13 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/50246264704.shtml)
-- 2026-06-29 13:18 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/8550804194.shtml)
-- 2026-06-29 13:41 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/317416944221.shtml)
-- 2026-06-29 13:22 - [北极荒岛生存挑战](https://www.share.kurohicncr.top/Article/details/32434046.shtml)
-- 2026-06-29 13:30 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.minike.top/Article/details/09482608.shtml)
-- 2026-06-29 13:21 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.kurohicncr.top/Article/details/5685434.shtml)
-- 2026-06-29 13:39 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/10200.shtml)
-- 2026-06-29 13:26 - [千与千寻](https://www.blog.minike.top/Article/details/5239743027.shtml)
-- 2026-06-29 13:25 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.minike.top/Article/details/1931176.shtml)
-- 2026-06-29 13:37 - [AG冠军五人组轮换](https://www.blog.minike.top/Article/details/84537414593.shtml)
+- 2026-06-29 13:32 - [迈巴赫提车第二天发现大灯起雾](https://www.share.kurohicncr.top/Article/details/5010207.shtml)
+- 2026-06-29 13:38 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/03588594390.shtml)
+- 2026-06-29 13:48 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/23917251.shtml)
+- 2026-06-29 13:34 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.kurohicncr.top/Article/details/46129702595.shtml)
+- 2026-06-29 13:38 - [赵露思爸爸拍vlog“翻车”](http://www.blog.minike.top/Article/details/9563524643.shtml)
+- 2026-06-29 13:29 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/123549556.shtml)
+- 2026-06-29 13:25 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/84240021.shtml)
+- 2026-06-29 13:40 - [韩国政府将对世界杯出局追责](http://www.share.minike.top/Article/details/1683642.shtml)
+- 2026-06-29 13:34 - [美伊同意停止互袭](http://www.share.minike.top/Article/details/67159.shtml)
+- 2026-06-29 13:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.blog.minike.top/Article/details/320947282.shtml)
+- 2026-06-29 13:19 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/1785214807.shtml)
+- 2026-06-29 13:20 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/924208991.shtml)
+- 2026-06-29 13:35 - [韩国队启程回国众将回避镜头](http://www.share.kurohicncr.top/Article/details/172593343105.shtml)
+- 2026-06-29 13:40 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/467932.shtml)
+- 2026-06-29 13:28 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/908970035460.shtml)

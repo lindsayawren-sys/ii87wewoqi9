@@ -1,58 +1,61 @@
-# 广州车陂再现“又有龙船又有戏” 广府端午风情浓郁
+# 山河念忠魂 1800余名社会各界代表迎接志愿军烈士遗骸回家
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网广州6月20日电 (程景伟 文瑶 李喜燕)端午假期，广州天河车陂街道再现“又有龙船又有戏”特色民俗盛景，18日至19日一连两晚上演粤剧粤曲惠民系列活动，来自广州粤剧院的名家新秀轮番登台演出，让戏迷直呼“过瘾”。 广州天河车陂村始建于唐朝，村内龙舟文化已有300多年历史。2022年，“车陂龙舟景”入选广东省第八批省级非物质文化遗产代表性项目名录。粤剧与车陂渊源深厚，早在二十
+今天，第十三批在韩中国人民志愿军烈士遗骸及遗物归国。1800余名来自社会各界的代表齐聚现场，全程参与迎回与悼念仪式，用无声的凝望与肃穆的致敬，迎接英雄归家。 在沈阳桃仙国际机场，文艺工作者段奕宏看到覆盖着五星红旗的烈士棺椁，深受触动。他说：“我会汲取这样的精神力量，为我未来的艺术之路提供更好的营养”。 连续13年赴约的抗美援朝老战士南启祥和他的孙子南宁也来到了现场。如今，他的孙
 
 ## 正文
 
-中新网广州6月20日电 (程景伟 文瑶 李喜燕)端午假期，广州天河车陂街道再现“又有龙船又有戏”特色民俗盛景，18日至19日一连两晚上演粤剧粤曲惠民系列活动，来自广州粤剧院的名家新秀轮番登台演出，让戏迷直呼“过瘾”。
+今天，第十三批在韩中国人民志愿军烈士遗骸及遗物归国。
 
-广州天河车陂村始建于唐朝，村内龙舟文化已有300多年历史。
+1800余名来自社会各界的代表齐聚现场，全程参与迎回与悼念仪式，用无声的凝望与肃穆的致敬，迎接英雄归家。
 
-2022年，“车陂龙舟景”入选广东省第八批省级非物质文化遗产代表性项目名录。
+在沈阳桃仙国际机场，文艺工作者段奕宏看到覆盖着五星红旗的烈士棺椁，深受触动。
 
-粤剧与车陂渊源深厚，早在二十世纪二三十年代，节庆搭棚唱大戏已是当地民俗，粤剧早已融入百姓日常生活。
+他说：“我会汲取这样的精神力量，为我未来的艺术之路提供更好的营养”。
 
-今年端午假期，广州天河车陂热闹非凡，白天有龙舟巡游，夜晚有大戏开锣，村民们齐聚一堂，赏龙舟、睇大戏，尽享广府地道的端午风情。
+连续13年赴约的抗美援朝老战士南启祥和他的孙子南宁也来到了现场。
 
-18日晚，折子戏专场以传统例戏《八仙贺寿》开场，寓意吉祥安康。
+如今，他的孙子已穿上警服，成为了一名铁路警察，把先辈用生命铸就的英雄精神，化作守护家国平安的日常。
 
-本场演出不仅有广州粤剧院专业演员献演《步月抒怀》《拾筝》《扈家庄》《抢笛》《花好月圆》《刁蛮公主戆驸马》等作品选段，还有车陂粤剧私伙局的发烧友演出《梦会太湖》《七月七日长生殿》《艳曲动皇心》等折子戏。
+此外，现场还邀请了冬奥健儿、来自港澳台与全国各地英雄小学的少年儿童，以及解放军官兵、公安干警、航天员乘组等各行各业的代表。
 
-19日晚，粤剧表演艺术家、中国戏剧梅花奖得主倪惠英倾情演唱经典粤曲《贵妃醉酒》选段，一展粤剧名家风采。
+(总台记者 杨雪 李新峰 缪秋成 姜继媛 崔肖冉 林姗蓉 王泽亮)
 
 ## 相关推荐
 
-- 2026-06-29 13:32 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-29 13:41 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 13:22 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 13:35 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 13:41 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 13:13 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 13:33 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 13:14 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 13:38 - [T1对战KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 13:12 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 13:18 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-29 13:19 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 13:27 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-29 13:25 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 13:30 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-29 13:37 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
+- 2026-06-29 13:40 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 13:27 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 13:38 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-29 13:28 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 13:25 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 13:30 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rsmhb.md)
+- 2026-06-29 13:41 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 13:43 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pimcb.md)
+- 2026-06-29 13:28 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovbka.md)
+- 2026-06-29 13:47 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 13:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/96592938950.shtml)
-- 2026-06-29 13:13 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/44121552.shtml)
-- 2026-06-29 13:27 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/40635.shtml)
-- 2026-06-29 13:38 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.kurohicncr.top/Article/details/762337.shtml)
-- 2026-06-29 13:33 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/39519012071.shtml)
-- 2026-06-29 13:17 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/13604128.shtml)
-- 2026-06-29 13:21 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/40651791.shtml)
-- 2026-06-29 13:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/820838190.shtml)
-- 2026-06-29 13:25 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/472687507503.shtml)
-- 2026-06-29 13:28 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/915098256.shtml)
-- 2026-06-29 13:14 - [王佳佳江疏影13年前后同框对比](https://www.share.minike.top/Article/details/478394.shtml)
-- 2026-06-29 13:36 - [成都至北京将新增动卧](https://www.share.kurohicncr.top/Article/details/762893.shtml)
-- 2026-06-29 13:35 - [宜宾发生5.5级地震 成都震感明显](https://www.blog.minike.top/Article/details/295161692656.shtml)
-- 2026-06-29 13:24 - [肖战深夜到达青岛赴十日终焉片场](https://www.blog.kurohicncr.top/Article/details/189937660814.shtml)
-- 2026-06-29 13:29 - [女子跑步4年不拉伸小腿肌肉硬如铁](http://www.share.kurohicncr.top/Article/details/53304295.shtml)
+- 2026-06-29 13:24 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/819525599695.shtml)
+- 2026-06-29 13:28 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/43940.shtml)
+- 2026-06-29 13:34 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/4440330035.shtml)
+- 2026-06-29 13:28 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.kurohicncr.top/Article/details/5759788.shtml)
+- 2026-06-29 13:44 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/040327.shtml)
+- 2026-06-29 13:29 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/780835.shtml)
+- 2026-06-29 13:33 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.kurohicncr.top/Article/details/7904094.shtml)
+- 2026-06-29 13:19 - [韩媒破防：被中国球迷当笑柄](http://www.share.minike.top/Article/details/91487006.shtml)
+- 2026-06-29 13:19 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/65043.shtml)
+- 2026-06-29 13:41 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/866794077618.shtml)
+- 2026-06-29 13:42 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/117140134.shtml)
+- 2026-06-29 13:30 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://www.blog.minike.top/Article/details/29543.shtml)
+- 2026-06-29 13:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/4749222115.shtml)
+- 2026-06-29 13:32 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.kurohicncr.top/Article/details/35482887392.shtml)
+- 2026-06-29 13:39 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/46272818.shtml)

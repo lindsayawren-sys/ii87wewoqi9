@@ -1,61 +1,56 @@
-# 3省联动，57名采茶工的欠薪追回来了！
+# 傲农生物摘帽不满一年再度被立案，受损投资者维权通道现已开启
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-工会“娘家人”全链追责，保障超龄劳动者权益“不落空” 【工会工作法治化·实践行】3省联动，57名采茶工的欠薪追回来了！ 开栏的话 法治是工会发挥桥梁纽带作用、履行维权服务基本职责、推动构建和谐劳动关系的有效途径。近年来，各地工会大力推进工会工作法治化，切实维护劳动领域政治安全，持续深化工会改革和建设，充分发挥党联系职工群众的桥梁纽带作用。即日起，本报推出“工会工作法治化·实践行
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、立案调查叠加业绩大幅下滑 2026年4月22日晚，傲农生物（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。公司在披露《立案通知书》的同日披露了2025年年度财报，财报显示，公司全年实现营业收入84.75亿元，同比下降3.29%，这已是连续第
 
 ## 正文
 
-工会“娘家人”全链追责，保障超龄劳动者权益“不落空” 【工会工作法治化·实践行】3省联动，57名采茶工的欠薪追回来了！
+登录新浪财经APP 搜索【信披】查看更多考评等级 一、立案调查叠加业绩大幅下滑 2026年4月22日晚，傲农生物（维权）公告称，因公司涉嫌信息披露违法违规，根据《中华人民共和国证券法》《中华人民共和国行政处罚法》等法律法规，证监会决定对公司立案。
 
-开栏的话 法治是工会发挥桥梁纽带作用、履行维权服务基本职责、推动构建和谐劳动关系的有效途径。
+公司在披露《立案通知书》的同日披露了2025年年度财报，财报显示，公司全年实现营业收入84.75亿元，同比下降3.29%，这已是连续第三年出现营收下滑。
 
-近年来，各地工会大力推进工会工作法治化，切实维护劳动领域政治安全，持续深化工会改革和建设，充分发挥党联系职工群众的桥梁纽带作用。
+全年归母净利润为7762.16万元，同比大幅下滑86.60%，扣非归母净利润仍处于亏损状态，达-4.74亿元。
 
-即日起，本报推出“工会工作法治化·实践行”专栏，聚焦各地工会深入推进工会工作法治化的创新探索，充分展现各地工会以法治为护盾做好维权服务，积极运用法治思维和法治方式调处劳动关系矛盾，保障职工合法权益，在法治轨道上推动工会工作不断迈上新台阶的生动实践。
+业绩大幅下滑的利空与立案调查的合规风险叠加，让这家刚摆脱退市危机、摘帽未满一年的农牧企业，再次引发市场关注。
 
-敬请垂注。
+目前暂定于符合以下任意区间的投资者即可参与索赔：于2026年4月22日（含当日）之前买入，并在2026年4月23日之后卖出或仍持有而亏损。
 
-从贵州黔东南到浙江淳安，再到江苏宿迁，跨越3个省份，历时5个多月——57名采茶工的血汗钱，终于一分不少地追回来了。
+二、过去曾有多次信披违规 此次立案并非该公司首次触碰监管红线。
 
-不久前，江苏省宿迁市总工会工作人员来到贵州省黔东南自治州黎平县，向57名采茶工现场发放被拖欠的12万余元工资。
+2024年3月，上交所已对公司及控股股东、实际控制人出具监管警示；同年9月，福建证监局再发警示函，明确指出公司存在未及时披露诉讼仲裁、到期债务违约、对外担保及控股股东股权质押等多项违规行为。
 
-发放现场，工人们笑容满面，唱起了侗族民歌《欢迎你到侗寨来》以表达感谢。
+回溯审计与内控记录可见，公司的合规问题早有端倪。
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 13:40 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
-- 2026-06-29 13:27 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 13:23 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
-- 2026-06-29 13:41 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-29 13:39 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ungls.md)
-- 2026-06-29 13:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-29 13:13 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 13:24 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
-- 2026-06-29 13:30 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 13:13 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
-- 2026-06-29 13:28 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 13:13 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-29 13:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/canduo.md)
-- 2026-06-29 13:21 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 13:35 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 13:41 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-29 13:22 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
+- 2026-06-29 13:44 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dltar.md)
+- 2026-06-29 13:29 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 13:28 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-29 13:38 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 13:41 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-29 13:42 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 13:28 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [C罗关心罗德里戈伤情](https://www.share.kurohicncr.top/Article/details/321602100.shtml)
-- 2026-06-29 13:26 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.kurohicncr.top/Article/details/05365.shtml)
-- 2026-06-29 13:28 - [韩国队如何把94%出线概率打到0%](https://www.blog.kurohicncr.top/Article/details/50400226.shtml)
-- 2026-06-29 13:32 - [斛珠夫人](http://www.share.minike.top/Article/details/76052.shtml)
-- 2026-06-29 13:33 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/92594593322.shtml)
-- 2026-06-29 13:36 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/4162435.shtml)
-- 2026-06-29 13:37 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/691161212.shtml)
-- 2026-06-29 13:23 - [和阿根廷球员家属一起看球](http://www.share.kurohicncr.top/Article/details/6266625.shtml)
-- 2026-06-29 13:40 - [日本主教练回应迎战巴西](https://www.share.kurohicncr.top/Article/details/537965644.shtml)
-- 2026-06-29 13:14 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/21961369150.shtml)
-- 2026-06-29 13:31 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/67795075214.shtml)
-- 2026-06-29 13:24 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/926030119.shtml)
-- 2026-06-29 13:30 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/02614809837.shtml)
-- 2026-06-29 13:34 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/706009594799.shtml)
-- 2026-06-29 13:27 - [孙怡告别浪姐千字文](https://www.share.kurohicncr.top/Article/details/45902975.shtml)
+- 2026-06-29 13:26 - [韩国队差旅费亏麻了](https://www.share.kurohicncr.top/Article/details/697209.shtml)
+- 2026-06-29 13:25 - [普京称俄处于命运攸关之际](http://www.blog.minike.top/Article/details/9029292738.shtml)
+- 2026-06-29 13:39 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/4256073.shtml)
+- 2026-06-29 13:45 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/7753207954.shtml)
+- 2026-06-29 13:30 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/608361775.shtml)
+- 2026-06-29 13:43 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/319729430.shtml)
+- 2026-06-29 13:20 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.share.kurohicncr.top/Article/details/8537064215.shtml)
+- 2026-06-29 13:34 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/346647399364.shtml)
+- 2026-06-29 13:33 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/4281069286.shtml)
+- 2026-06-29 13:25 - [五粮液回应宜宾地震影响](https://www.blog.kurohicncr.top/Article/details/494952.shtml)
+- 2026-06-29 13:29 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/206845.shtml)
+- 2026-06-29 13:29 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/413238.shtml)
+- 2026-06-29 13:33 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/622234156.shtml)
+- 2026-06-29 13:28 - [媒体评恋与深空争议](https://www.blog.minike.top/Article/details/62586.shtml)
+- 2026-06-29 13:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/582412186.shtml)

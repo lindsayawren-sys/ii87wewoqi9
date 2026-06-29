@@ -1,60 +1,56 @@
-# 套餐“杀熟”讨论热烈，三大运营商为何仍沉默？
+# 风范股份光伏业务两年累亏近6亿元 商誉暴雷后剥离光伏资产回归主业
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！近日，澎湃新闻连续刊发调查报道，直击三大运营商普遍存在的“新老用户不同权”痛点：多年老用户手握高价低配的老套餐，低价大流量优惠套餐只面向新入网用户；老用户正常申请降档换优惠屡屡碰壁，唯有亮出携号转网、向工信部投诉的诉求，客服才启动“挽留”机制，事实上就是“不闹不理”。 报道引发了热烈讨论，相关话题接连登上热
+4月20日晚，风范股份发布2025年年报，报告期内公司实现营收29.8亿元，同比下降7.66%，归母净利润亏损3.87亿元，扣非归母净利润亏损4.48亿元。 公司表示，报告期内亏损的主要原因，是子公司晶樱光电的亏损和并购晶樱光电时产生商誉的减值。 风范股份始建于1993年，早年深耕输变电产品。2023年，公司以9.6亿元对价收购晶樱光电60%股权，跨界布局光伏领域。 收购当年，
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月20日晚，风范股份发布2025年年报，报告期内公司实现营收29.8亿元，同比下降7.66%，归母净利润亏损3.87亿元，扣非归母净利润亏损4.48亿元。
 
-近日，澎湃新闻连续刊发调查报道，直击三大运营商普遍存在的“新老用户不同权”痛点：多年老用户手握高价低配的老套餐，低价大流量优惠套餐只面向新入网用户；老用户正常申请降档换优惠屡屡碰壁，唯有亮出携号转网、向工信部投诉的诉求，客服才启动“挽留”机制，事实上就是“不闹不理”。
+公司表示，报告期内亏损的主要原因，是子公司晶樱光电的亏损和并购晶樱光电时产生商誉的减值。
 
-报道引发了热烈讨论，相关话题接连登上热搜。
+风范股份始建于1993年，早年深耕输变电产品。
 
-央视新闻、人民日报等央媒相继跟进。
+2023年，公司以9.6亿元对价收购晶樱光电60%股权，跨界布局光伏领域。
 
-一边是全网用户集体共情、主流媒体集体点名批评，一边是涉事运营商至今未作出正面回应，对长期存在的权益鸿沟沉默以对。
+收购当年，风范股份营业收入、归母净利润均实现高增，增速分别达到25%、113%。
 
-舆论热度居高不下，行业顽疾却迟迟不见系统性整改，背后暴露出的深层问题，值得深度审视。
+而之后光伏行业急转直下，供需失衡下全行业陷入“价格战”。
 
-运营商的“喜新厌旧”问题戳中了亿万用户切身痛点。
+而硅片作为光伏产业链的核心下游环节，其价格承受重压，风范股份光伏业务毛利率直接被打为负值。
 
-当下我国移动电话用户总量突破18亿，市场进入存量竞争阶段，绝大多数人手中手机号绑定银行卡、社保、社交账号，更换号码意味着极高的成本。
+2024年，风范股份单晶硅片、单晶电池片的毛利率分别为-8.45%、-37.3%。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-29 13:30 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:40 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
-- 2026-06-29 13:22 - [哈兰德之歌火到国外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:38 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 13:38 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 13:38 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/necvw.md)
-- 2026-06-29 13:20 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 13:32 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 13:13 - [谢霆锋演唱会变大型呲水现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yandiao.md)
-- 2026-06-29 13:21 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
-- 2026-06-29 13:28 - [男子偶遇婴儿被锁车内大哭挣扎](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
-- 2026-06-29 13:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-29 13:26 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 13:26 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 13:24 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
+- 2026-06-29 13:28 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 13:42 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 13:47 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-29 13:41 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:42 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 13:32 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
+- 2026-06-29 13:27 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nbvjw.md)
+- 2026-06-29 13:37 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:38 - [斗破苍穹](http://www.blog.kurohicncr.top/Article/details/82302398.shtml)
-- 2026-06-29 13:32 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/4168850.shtml)
-- 2026-06-29 13:21 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/659713201.shtml)
-- 2026-06-29 13:35 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.kurohicncr.top/Article/details/532985.shtml)
-- 2026-06-29 13:34 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/075608129.shtml)
-- 2026-06-29 13:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/9096422742.shtml)
-- 2026-06-29 13:16 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/27186190075.shtml)
-- 2026-06-29 13:31 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/0553171.shtml)
-- 2026-06-29 13:38 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/873799.shtml)
-- 2026-06-29 13:22 - [游戏数据竟被用于军事目的](https://www.share.kurohicncr.top/Article/details/59066651.shtml)
-- 2026-06-29 13:39 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/705983925104.shtml)
-- 2026-06-29 13:20 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/83666279.shtml)
-- 2026-06-29 13:28 - [C罗关心罗德里戈伤情](http://www.blog.minike.top/Article/details/29588519622.shtml)
-- 2026-06-29 13:26 - [金价银价下跌 油价上涨](https://www.blog.minike.top/Article/details/4746464406.shtml)
-- 2026-06-29 13:21 - [急先锋](http://www.share.minike.top/Article/details/90631721490.shtml)
+- 2026-06-29 13:39 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.share.kurohicncr.top/Article/details/495806807.shtml)
+- 2026-06-29 13:30 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/468426.shtml)
+- 2026-06-29 13:24 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/18998.shtml)
+- 2026-06-29 13:47 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.minike.top/Article/details/82255435.shtml)
+- 2026-06-29 13:47 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/610699.shtml)
+- 2026-06-29 13:32 - [中俄联合巡航阵容强大 日本慌了？](https://www.share.minike.top/Article/details/5282377.shtml)
+- 2026-06-29 13:29 - [毕业寄几百斤快递回家女生发声](http://www.share.minike.top/Article/details/506325622914.shtml)
+- 2026-06-29 13:29 - [流金岁月](https://www.share.minike.top/Article/details/0102468791.shtml)
+- 2026-06-29 13:28 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.kurohicncr.top/Article/details/114669102622.shtml)
+- 2026-06-29 13:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.minike.top/Article/details/354434123.shtml)
+- 2026-06-29 13:25 - [A股](https://www.share.kurohicncr.top/Article/details/827041.shtml)
+- 2026-06-29 13:21 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/2116080.shtml)
+- 2026-06-29 13:35 - [吴海燕兰西雅漫步复兴岛](http://www.blog.minike.top/Article/details/8214789088.shtml)
+- 2026-06-29 13:38 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/934233.shtml)
+- 2026-06-29 13:46 - [A股](http://www.share.minike.top/Article/details/67238099.shtml)

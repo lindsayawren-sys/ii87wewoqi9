@@ -1,56 +1,57 @@
-# 欧洲央行管委：若通胀蔓延至能源领域以外，将支持下月再次加息
+# 统筹推进商业航天标准化建设 商业航天标准体系（1.0版）发布
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-欧洲央行管委、比利时央行行长皮埃尔·温施（Pierre Wunsch）周五表示，如果看到欧元区通胀蔓延至能源以外的更多迹象，欧洲央行最早可能在下个月再次加息，即便美伊协议已令油价承压下行。 欧洲央行上周进行了三年来首次加息。此后，美国和伊朗达成的临时和平协议引发油价大幅下跌，缓解了人们对能源价格持续引发通胀冲击的担忧。 温施经常被视为支持高利率的政策鹰派，他表示，一项经确认的协
+新华社成都4月24日电(记者李倩薇、宋晨)4月24日，在第十一个“中国航天日”主场活动启动仪式上，国家航天局、国家市场监督管理总局联合发布《商业航天标准体系(1.0版)》，旨在深入贯彻落实国家战略，推进商业航天高质量发展，发挥标准化在产业发展中的引领性和基础性作用，统筹推进商业航天标准化建设。据介绍，这一体系遵循“全链条、全领域、模块化、可重构”思路，聚焦“箭星场用治”总体布局
 
 ## 正文
 
-欧洲央行管委、比利时央行行长皮埃尔·温施（Pierre Wunsch）周五表示，如果看到欧元区通胀蔓延至能源以外的更多迹象，欧洲央行最早可能在下个月再次加息，即便美伊协议已令油价承压下行。
+新华社成都4月24日电(记者李倩薇、宋晨)4月24日，在第十一个“中国航天日”主场活动启动仪式上，国家航天局、国家市场监督管理总局联合发布《商业航天标准体系(1.0版)》，旨在深入贯彻落实国家战略，推进商业航天高质量发展，发挥标准化在产业发展中的引领性和基础性作用，统筹推进商业航天标准化建设。
 
-欧洲央行上周进行了三年来首次加息。
+据介绍，这一体系遵循“全链条、全领域、模块化、可重构”思路，聚焦“箭星场用治”总体布局、全产业链创新、发展模式变革和健康生态打造，构建商业航天标准体系，下设行业治理、研发制造、发射和测运控、空间应用服务、基础共性、设施设备等6个一级分支，包含32个二级分支与100个三级分支，规划标准项目千余项。
 
-此后，美国和伊朗达成的临时和平协议引发油价大幅下跌，缓解了人们对能源价格持续引发通胀冲击的担忧。
+体系涵盖国际、国内各级各类适用标准。
 
-温施经常被视为支持高利率的政策鹰派，他表示，一项经确认的协议应该会降低通胀，并支持欧元区经济增长——甚至可能导致明年石油供应过剩。
+体系的发布将为我国商业航天标准化建设、实现高质量安全发展提供坚实支撑。
 
-但他认为，如果服务业等行业的通胀上升，欧洲央行可能仍需再次加息，即便最终可能再度降息。
+后续，国家航天局将持续优化商业航天标准体系顶层设计，加速商业航天标准有效供给，开发商业航天标准服务平台，加紧建设商业航天标准服务“一张网”，助力商业航天高质量发展和航天强国建设。
 
-“我们看到的服务业通胀数据不太乐观，”温施表示。
-
-他指的是欧元区5月份服务业通胀率从3.0%升至3.5%。
-
-“如果这种情况持续下去，为了安全起见，或许应该再加息25个基点，然后等到通胀趋势开始逆转时再降息。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:14 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 13:38 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
-- 2026-06-29 13:25 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-29 13:23 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 13:24 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 13:14 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 13:32 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
-- 2026-06-29 13:25 - [王楚钦周启豪爆分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 13:26 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 13:26 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 13:46 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 13:32 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 13:34 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 13:22 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-29 13:36 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpoce.md)
+- 2026-06-29 13:28 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lwmzl.md)
+- 2026-06-29 13:24 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 13:25 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 13:25 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 13:26 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 13:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-29 13:29 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-29 13:39 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 13:29 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
+- 2026-06-29 13:44 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:20 - [张真源解读相思锁](http://www.blog.minike.top/Article/details/4791851.shtml)
-- 2026-06-29 13:21 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.share.minike.top/Article/details/82389.shtml)
-- 2026-06-29 13:30 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/748763388664.shtml)
-- 2026-06-29 13:25 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/306114.shtml)
-- 2026-06-29 13:34 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/2504180.shtml)
-- 2026-06-29 13:35 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/16782777.shtml)
-- 2026-06-29 13:29 - [伊朗队员在酒店看球从狂喜到绝望](http://www.blog.kurohicncr.top/Article/details/0594286429.shtml)
-- 2026-06-29 13:23 - [张真源解读相思锁](https://www.share.minike.top/Article/details/43031781298.shtml)
-- 2026-06-29 13:12 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/245627146.shtml)
-- 2026-06-29 13:32 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/14475270.shtml)
-- 2026-06-29 13:38 - [领克900大型SUV值得购买吗?](https://www.share.kurohicncr.top/Article/details/6141719.shtml)
-- 2026-06-29 13:20 - [C罗关心罗德里戈伤情](http://www.blog.kurohicncr.top/Article/details/8143004.shtml)
-- 2026-06-29 13:21 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/7014074.shtml)
-- 2026-06-29 13:22 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/552892132.shtml)
-- 2026-06-29 13:16 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/5094860.shtml)
+- 2026-06-29 13:41 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/12479297720.shtml)
+- 2026-06-29 13:22 - [日本主帅：目标是冠军](https://www.blog.kurohicncr.top/Article/details/90606629006.shtml)
+- 2026-06-29 13:29 - [俄方：欧洲人热死是因拒绝俄能源](https://www.blog.minike.top/Article/details/603716881.shtml)
+- 2026-06-29 13:31 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/85145324.shtml)
+- 2026-06-29 13:32 - [韩媒破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/765988.shtml)
+- 2026-06-29 13:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/7720650441.shtml)
+- 2026-06-29 13:37 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/495105525679.shtml)
+- 2026-06-29 13:24 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.kurohicncr.top/Article/details/820287441904.shtml)
+- 2026-06-29 13:35 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/3467334908.shtml)
+- 2026-06-29 13:30 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/31133.shtml)
+- 2026-06-29 13:47 - [灿如繁星定档](http://www.blog.minike.top/Article/details/24191004640.shtml)
+- 2026-06-29 13:30 - [尽量少用玻璃吸管](http://www.share.kurohicncr.top/Article/details/118454842948.shtml)
+- 2026-06-29 13:19 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/4100432130.shtml)
+- 2026-06-29 13:24 - [林昀儒止步美国大满贯首轮](https://www.share.kurohicncr.top/Article/details/1747835209.shtml)
+- 2026-06-29 13:43 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/112352.shtml)

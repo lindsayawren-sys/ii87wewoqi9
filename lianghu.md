@@ -1,47 +1,61 @@
-# 《给阿嬷的情书》马来西亚公映 华社掀包场观影热潮
+# 艾伯维斥资14亿美元在北卡罗来纳州建制药园区
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月19日 14:32 来源：中国新闻网 电影《给阿嬷的情书》于当地时间6月18日正式登陆马来西亚院线。公映前夕及上映首日，各类宗乡会馆、华商商会等本地华团接连推出专场包场，围绕亲情、侨乡乡愁的叙事在马来西亚华社引发共同记忆，掀起观影热潮。(记者 刘育英 制作 徐妙巧） 责任编辑：【孙静波】
+2026年4月22日，全球生物制药巨头艾伯维公司（AbbVie）宣布了一项重大投资计划，将斥资14亿美元在美国北卡罗来纳州达勒姆市建设一个全新的制药制造园区。这是该公司迄今为止在单一地点进行的最大规模投资。 根据规划，这座占地185英亩的新园区将成为艾伯维在美国主要的注射药物生产基地，旨在扩大其国内产能，以满足全球市场对关键药物的需求。该园区将专注于生产治疗免疫系统疾病、癌症以
 
 ## 正文
 
-发布时间：2026年06月19日 14:32 来源：中国新闻网 电影《给阿嬷的情书》于当地时间6月18日正式登陆马来西亚院线。
+2026年4月22日，全球生物制药巨头艾伯维公司（AbbVie）宣布了一项重大投资计划，将斥资14亿美元在美国北卡罗来纳州达勒姆市建设一个全新的制药制造园区。
 
-公映前夕及上映首日，各类宗乡会馆、华商商会等本地华团接连推出专场包场，围绕亲情、侨乡乡愁的叙事在马来西亚华社引发共同记忆，掀起观影热潮。
+这是该公司迄今为止在单一地点进行的最大规模投资。
 
-(记者 刘育英 制作 徐妙巧） 责任编辑：【孙静波】
+根据规划，这座占地185英亩的新园区将成为艾伯维在美国主要的注射药物生产基地，旨在扩大其国内产能，以满足全球市场对关键药物的需求。
+
+该园区将专注于生产治疗免疫系统疾病、癌症以及脑部和神经疾病的药物。
+
+艾伯维计划在四年内为该园区招聘734名员工，岗位涵盖工程师、科学家和制造人员。
+
+该项目预计将于2026年动工，并于2028年底完工，在此期间将创造超过2000个建筑工作岗位。
+
+园区的第一阶段建设将包括制造工厂、实验室、仓库、办公空间及员工设施。
+
+此项投资是艾伯维未来十年在美国投入约1000亿美元用于研发和制造宏伟计划的重要组成部分。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
-- 2026-06-29 13:27 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 13:36 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
-- 2026-06-29 13:13 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-29 13:23 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
-- 2026-06-29 13:41 - [毕业寄几百斤快递回家女生发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 13:18 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
-- 2026-06-29 13:40 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 13:40 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 13:33 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 13:34 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 13:19 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 13:43 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-29 13:23 - [记者暗访贵州和云南多个养老机构](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 13:37 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
+- 2026-06-29 13:22 - [张一山说杨紫早该拿奖了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-29 13:47 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-29 13:36 - [小S在香港被偶遇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 13:28 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uprxr.md)
+- 2026-06-29 13:30 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-29 13:40 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cizui.md)
+- 2026-06-29 13:32 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 13:21 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
+- 2026-06-29 13:22 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
+- 2026-06-29 13:35 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 13:26 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/6992460.shtml)
-- 2026-06-29 13:32 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/3542556.shtml)
-- 2026-06-29 13:18 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/1075541401.shtml)
-- 2026-06-29 13:41 - [加拿大女球迷玩人浪把手机甩飞](http://www.share.minike.top/Article/details/85685623447.shtml)
-- 2026-06-29 13:17 - [游戏数据竟被用于军事目的](http://www.share.minike.top/Article/details/60780092777.shtml)
-- 2026-06-29 13:41 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/21541526.shtml)
-- 2026-06-29 13:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/15515027.shtml)
-- 2026-06-29 13:39 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/47777085904.shtml)
-- 2026-06-29 13:37 - [A股](http://www.share.kurohicncr.top/Article/details/47989841444.shtml)
-- 2026-06-29 13:32 - [中方将20家日本实体列入关注名单](http://www.blog.minike.top/Article/details/47042118072.shtml)
-- 2026-06-29 13:33 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/521082163626.shtml)
-- 2026-06-29 13:31 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.minike.top/Article/details/51514.shtml)
-- 2026-06-29 13:34 - [在家赤身裸体是否绝对自由](https://www.share.kurohicncr.top/Article/details/390963717292.shtml)
-- 2026-06-29 13:14 - [中餐厅南北饮食差异](http://www.share.minike.top/Article/details/870599943.shtml)
-- 2026-06-29 13:28 - [永远保持对人民的赤子之心](http://www.share.minike.top/Article/details/3400794.shtml)
+- 2026-06-29 13:18 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/45275.shtml)
+- 2026-06-29 13:37 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/251321555.shtml)
+- 2026-06-29 13:27 - [腾讯回应做独立支付APP](http://www.blog.kurohicncr.top/Article/details/13296338438.shtml)
+- 2026-06-29 13:20 - [毕业群都在出什么东西](https://www.share.kurohicncr.top/Article/details/99029.shtml)
+- 2026-06-29 13:34 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.minike.top/Article/details/53907031953.shtml)
+- 2026-06-29 13:35 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/7872898983.shtml)
+- 2026-06-29 13:27 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/371337.shtml)
+- 2026-06-29 13:42 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/89812137414.shtml)
+- 2026-06-29 13:22 - [佛得角到底在哪个“角”](http://www.blog.minike.top/Article/details/79561.shtml)
+- 2026-06-29 13:42 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/77566115771.shtml)
+- 2026-06-29 13:25 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/849378922841.shtml)
+- 2026-06-29 13:38 - [F1奥地利大奖赛正赛集锦](http://www.blog.kurohicncr.top/Article/details/1133473.shtml)
+- 2026-06-29 13:35 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/81522870491.shtml)
+- 2026-06-29 13:41 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/2725654299.shtml)
+- 2026-06-29 13:22 - [6月我国降水为何偏多](http://www.share.kurohicncr.top/Article/details/069640505152.shtml)

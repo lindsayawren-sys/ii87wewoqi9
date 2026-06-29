@@ -1,58 +1,49 @@
-# 6连涨后首度回调，华宝基金军工ETF（512810）跌2.5%再失年线！光启技术两日挫逾18%！机构：加大军工关注度
+# 大摩：中国海洋石油给予“增持”评级 目标价28.9港元
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-6月22日，军工板块连涨6个交易日后首度回调，军工核心资产——军工ETF华宝（512810）盘中跌超2%，连失10日、20日及年线。 成份股跌多涨少，光启技术继上日逼近跌停后，再跌逾9%创近1年新低。华丰科技、中科星图、国博电子等多股挫逾7%。上涨方面，旭光电子涨停，逆市走出7天6板。 申万宏源最新军工行业周报指出，受近期海外宏观及地缘政治环境波动影响，行业关注度有所提升。基本
+摩根士丹利发布研报称，预计中国海洋石油（00883）在成本方面将继续优于中国内地三大油企，低成本策略和强大的执行记录，应使中海油处于有利地位，能充分受惠于油价上涨。大摩将中海油目标价定于28.9港元，给予“增持”评级。报告提及，中海油承诺2025至2027财年的派息比率不低于45%，这可能显示管理层对油价走势及公司盈余持乐观信心。责任编辑：卢昱君
 
 ## 正文
 
-6月22日，军工板块连涨6个交易日后首度回调，军工核心资产——军工ETF华宝（512810）盘中跌超2%，连失10日、20日及年线。
+摩根士丹利发布研报称，预计中国海洋石油（00883）在成本方面将继续优于中国内地三大油企，低成本策略和强大的执行记录，应使中海油处于有利地位，能充分受惠于油价上涨。
 
-成份股跌多涨少，光启技术继上日逼近跌停后，再跌逾9%创近1年新低。
+大摩将中海油目标价定于28.9港元，给予“增持”评级。
 
-华丰科技、中科星图、国博电子等多股挫逾7%。
+报告提及，中海油承诺2025至2027财年的派息比率不低于45%，这可能显示管理层对油价走势及公司盈余持乐观信心。
 
-上涨方面，旭光电子涨停，逆市走出7天6板。
-
-申万宏源最新军工行业周报指出，受近期海外宏观及地缘政治环境波动影响，行业关注度有所提升。
-
-基本面上看，预计下半年十五五规划将有序落地，订单及业绩呈现修复性趋势，建议加大军工行业关注度。
-
-同时重视军工出海带来的投资机会，例如军机、防空预警系统、高端无人机等军贸订单的推进及落地情况带来的主题性催化；以及红外、消耗类无人机、硝化棉等产品量价齐升趋势带来的业绩持续性兑现。
-
-【投军工，选“八一”】代码有“八一”的军工ETF华宝（512810）（原国防军工ETF）被动跟踪中证军工指数，全面覆盖商业航天、低空经济、MLCC、大飞机、燃机、军工AI等热门主题。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jahqx.md)
-- 2026-06-29 13:13 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 13:38 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 13:25 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntofj.md)
-- 2026-06-29 13:12 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
-- 2026-06-29 13:38 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 13:34 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 13:39 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
-- 2026-06-29 13:35 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 13:15 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 13:35 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 13:23 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-29 13:22 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
+- 2026-06-29 13:39 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
+- 2026-06-29 13:46 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-29 13:25 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 13:30 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 13:36 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 13:42 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 13:19 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
+- 2026-06-29 13:35 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
+- 2026-06-29 13:36 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 13:37 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:36 - [高考志愿今起开始填报](http://www.blog.kurohicncr.top/Article/details/5996735.shtml)
-- 2026-06-29 13:15 - [哈兰德这该死的胜负欲](http://www.share.kurohicncr.top/Article/details/43243.shtml)
-- 2026-06-29 13:40 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://www.share.kurohicncr.top/Article/details/3704606.shtml)
-- 2026-06-29 13:35 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/391786.shtml)
-- 2026-06-29 13:21 - [陈靖可虞书欣领衔主演](https://www.blog.minike.top/Article/details/908742.shtml)
-- 2026-06-29 13:17 - [各路“神仙”扎堆洛阳乘地铁](http://www.blog.kurohicncr.top/Article/details/449434115223.shtml)
-- 2026-06-29 13:30 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.minike.top/Article/details/782158387.shtml)
-- 2026-06-29 13:33 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/9075004538.shtml)
-- 2026-06-29 13:16 - [【独家】牧神记 第89集 明心](http://www.share.minike.top/Article/details/530507243.shtml)
-- 2026-06-29 13:29 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/386517231.shtml)
-- 2026-06-29 13:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.minike.top/Article/details/914917652.shtml)
-- 2026-06-29 13:18 - [爱很美味](http://www.share.minike.top/Article/details/570687022615.shtml)
-- 2026-06-29 13:32 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/4269134529.shtml)
-- 2026-06-29 13:13 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/55766298.shtml)
-- 2026-06-29 13:39 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/37466.shtml)
+- 2026-06-29 13:24 - [日本主帅：对战胜巴西很有信心](http://www.share.minike.top/Article/details/9708368.shtml)
+- 2026-06-29 13:37 - [强⁶](http://www.share.kurohicncr.top/Article/details/8169787.shtml)
+- 2026-06-29 13:26 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/808752.shtml)
+- 2026-06-29 13:30 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.kurohicncr.top/Article/details/65988.shtml)
+- 2026-06-29 13:47 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.kurohicncr.top/Article/details/16011.shtml)
+- 2026-06-29 13:22 - [起风了](https://www.share.minike.top/Article/details/097516607.shtml)
+- 2026-06-29 13:33 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/21849.shtml)
+- 2026-06-29 13:26 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/45706176467.shtml)
+- 2026-06-29 13:47 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/7442657.shtml)
+- 2026-06-29 13:30 - [1954年以来闯进世界杯淘汰赛次数排行](https://www.share.minike.top/Article/details/7103679138.shtml)
+- 2026-06-29 13:39 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/901571796.shtml)
+- 2026-06-29 13:21 - [2026年Mac能玩游戏了吗](https://www.share.minike.top/Article/details/433745622.shtml)
+- 2026-06-29 13:37 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/6221032151.shtml)
+- 2026-06-29 13:40 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/550208155.shtml)
+- 2026-06-29 13:36 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/265208.shtml)

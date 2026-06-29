@@ -1,45 +1,59 @@
-# 美副总统万斯将出席与伊朗方面的谈判
+# 若执掌美联储，凯文·沃什将如何“打破常规”？
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 13:03 来源：央视新闻 责任编辑：【王祎】
+如果凯文·沃什最终获得确认成为下一任美联储主席，他准备在从通胀框架到资产负债表管理等关键领域推行深刻的改革。这位前美联储理事在4月21日的参议院确认听证会上清晰地勾勒出与前任截然不同的施政蓝图。 摒弃“前瞻性指引”，重构通胀治理框架 沃什在长达两小时的听证会上多次强调，美联储需要进行“彻底的体制改革”。他严厉批评了美联储在2021年至2022年期间的通胀误判，称其为“致命的政策
 
 ## 正文
 
-发布时间：2026年06月21日 13:03 来源：央视新闻 责任编辑：【王祎】
+如果凯文·沃什最终获得确认成为下一任美联储主席，他准备在从通胀框架到资产负债表管理等关键领域推行深刻的改革。
+
+这位前美联储理事在4月21日的参议院确认听证会上清晰地勾勒出与前任截然不同的施政蓝图。
+
+摒弃“前瞻性指引”，重构通胀治理框架 沃什在长达两小时的听证会上多次强调，美联储需要进行“彻底的体制改革”。
+
+他严厉批评了美联储在2021年至2022年期间的通胀误判，称其为“致命的政策错误”，并认为美国经济仍在为此付出代价。
+
+他主张建立一个“全新的通胀框架”，核心在于改变与市场的沟通方式。
+
+他明确批评现行的“前瞻性指引”是“相当无益的”，认为官员过早透露利率路径会使政策制定在面对经济变化时陷入僵化。
+
+他倾向于在美联储内部进行更“混乱”、更具争议性的公开辩论，允许真实的异议存在，而非形成内部一致的共识。
+
+推动“缩表”与“降息”双线并行 在货币政策工具的选择上，沃什主张回归传统。
 
 ## 相关推荐
 
-- 2026-06-29 13:33 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:22 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
-- 2026-06-29 13:26 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjtrc.md)
-- 2026-06-29 13:14 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 13:21 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
-- 2026-06-29 13:14 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-29 13:16 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 13:23 - [四川宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 13:24 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uysvl.md)
-- 2026-06-29 13:35 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 13:38 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 13:36 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 13:24 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-29 13:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-29 13:22 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/okkym.md)
+- 2026-06-29 13:44 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-29 13:45 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 13:39 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-29 13:38 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 13:41 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
+- 2026-06-29 13:29 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 13:18 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 13:28 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qishou.md)
+- 2026-06-29 13:30 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 13:37 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
+- 2026-06-29 13:30 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [恋与深空失控领地](https://www.blog.minike.top/Article/details/50005.shtml)
-- 2026-06-29 13:32 - [T1零封KC MSI](https://www.blog.kurohicncr.top/Article/details/77456.shtml)
-- 2026-06-29 13:40 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/74243601465.shtml)
-- 2026-06-29 13:15 - [网友偶遇胡军和李乃文](https://www.share.minike.top/Article/details/35665848.shtml)
-- 2026-06-29 13:21 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/76730788670.shtml)
-- 2026-06-29 13:19 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/06533.shtml)
-- 2026-06-29 13:14 - [张一山说杨紫早该拿奖了](https://www.share.minike.top/Article/details/52861921493.shtml)
-- 2026-06-29 13:15 - [毒液2](https://www.share.minike.top/Article/details/126592605.shtml)
-- 2026-06-29 13:24 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/759753949430.shtml)
-- 2026-06-29 13:33 - [流金岁月](https://www.share.kurohicncr.top/Article/details/960805392.shtml)
-- 2026-06-29 13:13 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/9392729332.shtml)
-- 2026-06-29 13:37 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/8294842.shtml)
-- 2026-06-29 13:14 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/440560034396.shtml)
-- 2026-06-29 13:34 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/9583662.shtml)
-- 2026-06-29 13:13 - [毒液2](http://www.share.minike.top/Article/details/21931.shtml)
+- 2026-06-29 13:39 - [吴昕要助理买的药6年前已停产](http://www.blog.kurohicncr.top/Article/details/27438.shtml)
+- 2026-06-29 13:36 - [退休化学教授帮医药研发人员制毒](https://www.blog.minike.top/Article/details/154156770934.shtml)
+- 2026-06-29 13:29 - [明星大侦探第四季](https://www.blog.minike.top/Article/details/302875210.shtml)
+- 2026-06-29 13:42 - [韩体育部长回应李在明痛批](https://www.blog.minike.top/Article/details/204358393044.shtml)
+- 2026-06-29 13:43 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/634187447.shtml)
+- 2026-06-29 13:34 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/58642523070.shtml)
+- 2026-06-29 13:43 - [普京称俄处于命运攸关之际](http://www.blog.kurohicncr.top/Article/details/642986.shtml)
+- 2026-06-29 13:33 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.share.minike.top/Article/details/129907283.shtml)
+- 2026-06-29 13:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/1336200.shtml)
+- 2026-06-29 13:18 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/23066.shtml)
+- 2026-06-29 13:38 - [张真源解读相思锁](http://www.share.minike.top/Article/details/42351.shtml)
+- 2026-06-29 13:28 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.kurohicncr.top/Article/details/1968635806.shtml)
+- 2026-06-29 13:23 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/613983.shtml)
+- 2026-06-29 13:26 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/54434119248.shtml)
+- 2026-06-29 13:25 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.minike.top/Article/details/98400.shtml)

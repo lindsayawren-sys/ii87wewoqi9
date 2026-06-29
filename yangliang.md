@@ -1,52 +1,52 @@
-# 外交部：中方同立陶宛沟通的大门始终敞开，希望立方果断纠正错误
+# 瑞银：思格新能首予“买入”评级 目标价651港元
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网北京6月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。 当日有记者就中国和立陶宛关系提问。 郭嘉昆：关于中立关系，中方已经多次表明立场。当前中立关系的困难和症结在于立方违反一个中国原则，背弃了立方在两国建交公报中的政治承诺。中方同立方沟通的大门始终敞开。希望立方尽早采取行动，果断纠正错误，回到恪守一个中国原则的正确轨道上来，为中立关系正常化创造条件
+瑞银发布研报称，首予思格新能（06656）“买入”评级，目标价651港元。公司成立于2022年，产能迅速扩张，出货量由2022年的0.02吉瓦时增长至2025年的3.9吉瓦时。该行称，公司的旗舰产品可堆叠全一体化分布式电池储能系统（BESS）需求强劲，2024年在该细分市场的全球市场占有率达到28.6%。凭借其具竞争力的产品及成熟的销售渠道，该行预期思格新能2026至2028年
 
 ## 正文
 
-中新网北京6月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。
+瑞银发布研报称，首予思格新能（06656）“买入”评级，目标价651港元。
 
-当日有记者就中国和立陶宛关系提问。
+公司成立于2022年，产能迅速扩张，出货量由2022年的0.02吉瓦时增长至2025年的3.9吉瓦时。
 
-郭嘉昆：关于中立关系，中方已经多次表明立场。
+该行称，公司的旗舰产品可堆叠全一体化分布式电池储能系统（BESS）需求强劲，2024年在该细分市场的全球市场占有率达到28.6%。
 
-当前中立关系的困难和症结在于立方违反一个中国原则，背弃了立方在两国建交公报中的政治承诺。
+凭借其具竞争力的产品及成熟的销售渠道，该行预期思格新能2026至2028年每股盈利年均复合增长率将达33%。
 
-中方同立方沟通的大门始终敞开。
-
-希望立方尽早采取行动，果断纠正错误，回到恪守一个中国原则的正确轨道上来，为中立关系正常化创造条件。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:17 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-29 13:27 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanhao.md)
-- 2026-06-29 13:25 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-29 13:21 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-29 13:19 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-29 13:22 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-29 13:22 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-29 13:28 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 13:14 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-29 13:31 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 13:39 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 13:27 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
+- 2026-06-29 13:25 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 13:33 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-29 13:45 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 13:30 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 13:36 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 13:41 - [DeepSeek联合北京大学发布论文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-29 13:19 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 13:43 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 13:42 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-29 13:18 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [智界V9成为高端圈层共同选择](https://www.blog.minike.top/Article/details/4262052603.shtml)
-- 2026-06-29 13:12 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/71975531859.shtml)
-- 2026-06-29 13:19 - [白玉兰最佳女主角提名片段](https://www.share.minike.top/Article/details/259551024122.shtml)
-- 2026-06-29 13:12 - [谢霆锋演唱会变大型呲水现场](https://www.share.kurohicncr.top/Article/details/37238286055.shtml)
-- 2026-06-29 13:29 - [《贺子珍》](http://www.share.minike.top/Article/details/38431331482.shtml)
-- 2026-06-29 13:25 - [当我回母校教书](http://www.share.minike.top/Article/details/070872746.shtml)
-- 2026-06-29 13:26 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/1616349.shtml)
-- 2026-06-29 13:30 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/409823.shtml)
-- 2026-06-29 13:26 - [去了一趟潮汕。](https://www.share.kurohicncr.top/Article/details/02210317554.shtml)
-- 2026-06-29 13:34 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/4263591931.shtml)
-- 2026-06-29 13:21 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/4281965.shtml)
-- 2026-06-29 13:26 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.kurohicncr.top/Article/details/94844824.shtml)
-- 2026-06-29 13:24 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.kurohicncr.top/Article/details/3061453.shtml)
-- 2026-06-29 13:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.minike.top/Article/details/699182.shtml)
-- 2026-06-29 13:27 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/761118864.shtml)
+- 2026-06-29 13:32 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/65444.shtml)
+- 2026-06-29 13:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/9618218.shtml)
+- 2026-06-29 13:41 - [恋与深空需直面玩家6大疑问](http://www.share.kurohicncr.top/Article/details/799107.shtml)
+- 2026-06-29 13:22 - [游戏数据竟被用于军事目的](https://www.blog.minike.top/Article/details/6492434.shtml)
+- 2026-06-29 13:47 - [亚洲成世界杯最大失意者联盟](http://www.share.minike.top/Article/details/948700023.shtml)
+- 2026-06-29 13:25 - [小S在香港被偶遇](http://www.blog.minike.top/Article/details/3494514039.shtml)
+- 2026-06-29 13:33 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/87453.shtml)
+- 2026-06-29 13:45 - [海军舰艇编队将赴香港](http://www.share.minike.top/Article/details/84334946327.shtml)
+- 2026-06-29 13:31 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.minike.top/Article/details/8942338.shtml)
+- 2026-06-29 13:24 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/83071.shtml)
+- 2026-06-29 13:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/13180783548.shtml)
+- 2026-06-29 13:47 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/2713477.shtml)
+- 2026-06-29 13:40 - [爱情有烟火你是知道我爱看什么的](https://www.blog.kurohicncr.top/Article/details/648182.shtml)
+- 2026-06-29 13:39 - [速度与激情9](http://www.share.minike.top/Article/details/566101739557.shtml)
+- 2026-06-29 13:40 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/69388.shtml)

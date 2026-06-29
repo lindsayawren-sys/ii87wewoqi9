@@ -1,56 +1,60 @@
-# 轻松健康午后涨超12% 近日与巴塞尔医疗订立三年战略合作备忘录
+# 名医进山村 留下“徒弟”守乡亲
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-轻松健康（02661）午后一度涨超20%，截至发稿，股价上涨12.19%，现报15.55港元，成交额2.51亿港元。 近日，轻松健康发布公告，公司与巴塞尔医疗集团有限公司（巴塞尔医疗，纳斯达克证券交易所股票代码：BMGL）经友好协商，订立一份有效期为三年的战略合作备忘录。本次合作依托集团自研的证元芳•MedClaw医疗AI协作体系统及AIcare技术栈优势、多年AI健康领域落地
+“刘大夫，我母亲腰痛好点了，该怎么避免复发？”近日，北京门头沟区陇驾庄村村民门亚宁来到妙峰山镇卫生院二楼问诊。当天接诊的大夫叫刘洋，是当地一位小有名气的青年医生。 妙峰山镇卫生院位于京西山区，刘洋已在此工作12年，她的成长与九三学社北京市委会的一个社会服务工作密切相关。 2014年2月，为响应首都统一战线“8＋1”行动号召，九三学社北京市委会首个“名医工作室”在妙峰山镇卫生院挂
 
 ## 正文
 
-轻松健康（02661）午后一度涨超20%，截至发稿，股价上涨12.19%，现报15.55港元，成交额2.51亿港元。
+“刘大夫，我母亲腰痛好点了，该怎么避免复发？
 
-近日，轻松健康发布公告，公司与巴塞尔医疗集团有限公司（巴塞尔医疗，纳斯达克证券交易所股票代码：BMGL）经友好协商，订立一份有效期为三年的战略合作备忘录。
+”近日，北京门头沟区陇驾庄村村民门亚宁来到妙峰山镇卫生院二楼问诊。
 
-本次合作依托集团自研的证元芳•MedClaw医疗AI协作体系统及AIcare技术栈优势、多年AI健康领域落地经验展开，旨在实现技术输出与技术迭代双向发展。
+当天接诊的大夫叫刘洋，是当地一位小有名气的青年医生。
 
-双方一致认为，将集团经验证的健康AI基础设施，与巴塞尔医疗在东南亚的临床场景及市场入口相结合，有助于推动区域医疗服务的智能化升级，并为双方共同开拓新的市场机会。
+妙峰山镇卫生院位于京西山区，刘洋已在此工作12年，她的成长与九三学社北京市委会的一个社会服务工作密切相关。
 
-同时，双方拟以集团Alcare技术栈为基础，支持巴塞尔医疗在东南亚地区开展AI-native的医疗服务升级，并共同拓展区域市场，建立长期、稳定的战略合作关系。
+2014年2月，为响应首都统一战线“8＋1”行动号召，九三学社北京市委会首个“名医工作室”在妙峰山镇卫生院挂牌成立，定期聘请三甲医院知名专家坐诊，为周边村民治病解困。
 
-责任编辑：卢昱君
+这一年也是刘洋扎根乡村的第一年。
+
+彼时，她抓药“心里没底”，针灸、拔罐只会“基础操作”。
+
+随着“名医工作室”活动不断开展，专家不仅定期坐诊，还让卫生院的医护人员跟师学习。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-29 13:27 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
-- 2026-06-29 13:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
-- 2026-06-29 13:15 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 13:37 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-29 13:36 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-29 13:39 - [宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 13:31 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 13:35 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
-- 2026-06-29 13:37 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 13:16 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-29 13:24 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 13:34 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 13:13 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wanghao.md)
+- 2026-06-29 13:22 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-29 13:20 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 13:42 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
+- 2026-06-29 13:30 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-29 13:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 13:24 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
+- 2026-06-29 13:40 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
+- 2026-06-29 13:45 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 13:21 - [杨紫《生命树》播放量破百亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-29 13:20 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
+- 2026-06-29 13:32 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 13:36 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 13:36 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 13:22 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/10375046.shtml)
-- 2026-06-29 13:35 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/882785.shtml)
-- 2026-06-29 13:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/587466765252.shtml)
-- 2026-06-29 13:36 - [爱很美味](https://www.share.minike.top/Article/details/451124800070.shtml)
-- 2026-06-29 13:24 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.kurohicncr.top/Article/details/425449354801.shtml)
-- 2026-06-29 13:15 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/63178154081.shtml)
-- 2026-06-29 13:21 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/578417517.shtml)
-- 2026-06-29 13:18 - [张亚中：以中山精神为桥凝聚血脉认同](http://www.share.minike.top/Article/details/60542.shtml)
-- 2026-06-29 13:29 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/32799.shtml)
-- 2026-06-29 13:41 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/5681656.shtml)
-- 2026-06-29 13:36 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/05574.shtml)
-- 2026-06-29 13:20 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/66615524354.shtml)
-- 2026-06-29 13:31 - [水利部部署南方地区暴雨洪水防御工作](https://www.share.minike.top/Article/details/5677160513.shtml)
-- 2026-06-29 13:23 - [斛珠夫人](http://www.share.minike.top/Article/details/83220.shtml)
-- 2026-06-29 13:20 - [第一批缉毒警已全体退休](http://www.share.minike.top/Article/details/54589797.shtml)
+- 2026-06-29 13:46 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/031693535984.shtml)
+- 2026-06-29 13:26 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/3849113.shtml)
+- 2026-06-29 13:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/18501778.shtml)
+- 2026-06-29 13:45 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.kurohicncr.top/Article/details/283357344608.shtml)
+- 2026-06-29 13:30 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/424795412.shtml)
+- 2026-06-29 13:27 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/29470464242.shtml)
+- 2026-06-29 13:45 - [TOP 无畏契约](https://www.blog.kurohicncr.top/Article/details/869811.shtml)
+- 2026-06-29 13:47 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.minike.top/Article/details/22236120.shtml)
+- 2026-06-29 13:25 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/114673.shtml)
+- 2026-06-29 13:19 - [天道](https://www.blog.kurohicncr.top/Article/details/08182.shtml)
+- 2026-06-29 13:27 - [我设置了全宇宙最安全的密码](http://www.share.kurohicncr.top/Article/details/110096407.shtml)
+- 2026-06-29 13:39 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/09290159.shtml)
+- 2026-06-29 13:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/01390.shtml)
+- 2026-06-29 13:36 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/5760935412.shtml)
+- 2026-06-29 13:44 - [唐艺昕女儿接唐艺昕回家](https://www.share.kurohicncr.top/Article/details/79699763811.shtml)

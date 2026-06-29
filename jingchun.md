@@ -1,55 +1,44 @@
-# 摩根士丹利策略师称股市面临流动性收紧风险
+# 快讯：多晶硅主力合约日内下跌6.00%，现报41930元/吨
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-摩根士丹利策略师表示，相较于潜在的加息风险，当前股市面临的更大威胁来自流动性趋紧。 由Michael Wilson领导的团队指出，美联储通过储备管理进行的资产购买规模较峰值已下降约75%，其资产负债表所提供的流动性支持正在减弱。 策略师在报告中写道：“流动性环境正在收紧，并可能在7月时持续对股市上行构成阻力，尤其是在市场试探美联储新近展现的政策立场之际，”。 该团队预计，企业利
+4月24日早盘，多晶硅主力合约日内下跌6.00%，现报41930元/吨。责任编辑：朱赫楠
 
 ## 正文
 
-摩根士丹利策略师表示，相较于潜在的加息风险，当前股市面临的更大威胁来自流动性趋紧。
+4月24日早盘，多晶硅主力合约日内下跌6.00%，现报41930元/吨。
 
-由Michael Wilson领导的团队指出，美联储通过储备管理进行的资产购买规模较峰值已下降约75%，其资产负债表所提供的流动性支持正在减弱。
-
-策略师在报告中写道：“流动性环境正在收紧，并可能在7月时持续对股市上行构成阻力，尤其是在市场试探美联储新近展现的政策立场之际，”。
-
-该团队预计，企业利润仍将是推动股市牛市的核心动力。
-
-责任编辑：何云
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 13:40 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-29 13:24 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
-- 2026-06-29 13:39 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 13:31 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 13:24 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 13:20 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
-- 2026-06-29 13:29 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 13:17 - [中方将20家日本实体列入出口管制名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
-- 2026-06-29 13:15 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-29 13:27 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 13:38 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
-- 2026-06-29 13:22 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
-- 2026-06-29 13:33 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-29 13:31 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 13:21 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iunpc.md)
+- 2026-06-29 13:35 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-29 13:32 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-29 13:18 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
+- 2026-06-29 13:38 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 13:22 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcakj.md)
+- 2026-06-29 13:29 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangchuan.md)
+- 2026-06-29 13:32 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-29 13:29 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 13:43 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 13:36 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:33 - [【独家】牧神记 第89集 明心](https://www.blog.kurohicncr.top/Article/details/7113637125.shtml)
-- 2026-06-29 13:21 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/177060977894.shtml)
-- 2026-06-29 13:22 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/20699.shtml)
-- 2026-06-29 13:25 - [灿如繁星定档](https://www.blog.kurohicncr.top/Article/details/412425269813.shtml)
-- 2026-06-29 13:23 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/143044504781.shtml)
-- 2026-06-29 13:12 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/702051.shtml)
-- 2026-06-29 13:30 - [记者暗访贵州和云南多个养老机构](http://www.share.kurohicncr.top/Article/details/85859742.shtml)
-- 2026-06-29 13:23 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/9857373.shtml)
-- 2026-06-29 13:38 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/176149050.shtml)
-- 2026-06-29 13:14 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/63125191.shtml)
-- 2026-06-29 13:19 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/721661.shtml)
-- 2026-06-29 13:12 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/71621171.shtml)
-- 2026-06-29 13:39 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/13178994.shtml)
-- 2026-06-29 13:40 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/92934737.shtml)
-- 2026-06-29 13:22 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/891050.shtml)
+- 2026-06-29 13:39 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/60524.shtml)
+- 2026-06-29 13:42 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.minike.top/Article/details/9596649152.shtml)
+- 2026-06-29 13:19 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/412442.shtml)
+- 2026-06-29 13:38 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/732353.shtml)
+- 2026-06-29 13:43 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/64297993778.shtml)
+- 2026-06-29 13:21 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/79398174220.shtml)
+- 2026-06-29 13:32 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/459007430.shtml)
+- 2026-06-29 13:22 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/67491273427.shtml)
+- 2026-06-29 13:40 - [韩国队启程回国 全员羞愧低头](https://www.blog.minike.top/Article/details/446013045140.shtml)
+- 2026-06-29 13:47 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/517697278094.shtml)
+- 2026-06-29 13:44 - [医护人员观影《四渡》传承长征精神](http://www.share.minike.top/Article/details/73208708376.shtml)
+- 2026-06-29 13:24 - [这开放世界游戏，竟然允许玩家屠城？](http://www.share.minike.top/Article/details/473094627464.shtml)
+- 2026-06-29 13:27 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/10612959.shtml)
+- 2026-06-29 13:20 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/7068275.shtml)
+- 2026-06-29 13:32 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/18078014.shtml)

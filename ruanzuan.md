@@ -1,59 +1,61 @@
-# 西藏普兰边关“野生萌”糌粑粽寄平安
+# 瑞士政府微调资本新规，瑞银仍需增资200亿美元
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网拉萨6月19日电 题：西藏普兰边关“野生萌”糌粑粽寄平安 作者 贡桑拉姆 郑江渝 李晞乔 仲夏风暖，粽叶传情。又是一年端午至，在雪域高原西南边陲，西藏普兰出入境边防检查站立足驻地民俗特色，邀约周边藏族村民开展警民端午共建活动。戍边民警与藏族乡亲围坐一堂，融传统端午民俗与高原本土风物于一体，就地取材创意制作藏式糌粑粽，在烟火暖意中共度佳节、共话团结、共寄边关美好祝福。 地处
+据媒体4月23日报道，瑞士政府周三宣布对瑞银集团（UBS）的新资本规则提案作出部分让步，但坚持要求其为海外业务提供全额资本支持，预计该行仍需额外补充约200亿美元资本金。 根据修改后的方案，瑞士政府在无形资产处理上作出妥协：瑞银将无需立即从其资本金中全额扣除软件和递延税资产，而是采纳与欧盟一致的更温和方案。瑞银此前估计，若全额扣除这些资产，其资本金将减少约110亿美元。 然而，
 
 ## 正文
 
-中新网拉萨6月19日电 题：西藏普兰边关“野生萌”糌粑粽寄平安 作者 贡桑拉姆 郑江渝 李晞乔 仲夏风暖，粽叶传情。
+据媒体4月23日报道，瑞士政府周三宣布对瑞银集团（UBS）的新资本规则提案作出部分让步，但坚持要求其为海外业务提供全额资本支持，预计该行仍需额外补充约200亿美元资本金。
 
-又是一年端午至，在雪域高原西南边陲，西藏普兰出入境边防检查站立足驻地民俗特色，邀约周边藏族村民开展警民端午共建活动。
+根据修改后的方案，瑞士政府在无形资产处理上作出妥协：瑞银将无需立即从其资本金中全额扣除软件和递延税资产，而是采纳与欧盟一致的更温和方案。
 
-戍边民警与藏族乡亲围坐一堂，融传统端午民俗与高原本土风物于一体，就地取材创意制作藏式糌粑粽，在烟火暖意中共度佳节、共话团结、共寄边关美好祝福。
+瑞银此前估计，若全额扣除这些资产，其资本金将减少约110亿美元。
 
-地处阿里地区南部的普兰县，坐落于中国西南边境前沿，毗邻印度、尼泊尔。
+然而，政府在核心条款上维持强硬立场，坚持要求瑞银必须使用最高质量的核心资本（CET1）为其海外子公司提供100%的资本支持，而非此前要求的60%。
 
-境内的普兰口岸，是西藏重要的对外通商口岸，也是中尼经贸往来、文化互通的关键窗口，常年有边民、游客、商贸人员往来穿梭，一代代边检民警扎根雪域、坚守国门，守护着边境口岸的安宁与畅通。
+瑞士政府认为，此举是防止重演瑞士信贷倒闭危机的关键。
 
-高原风物藏温情，民俗烟火寄平安。
+瑞银对此表示反对，认为该要求过于苛刻，将削弱其国际竞争力。
 
-在普兰当地，“一口糌粑配酥油茶，吃进肚里，一天安安全全”的谚语家喻户晓、代代相传。
+受新规影响，瑞银股价此前表现落后于同行。
 
-千百年来，糌粑、酥油茶早已融入高原群众的烟火日常，不仅是适配高寒气候的特色饮食，更承载着当地群众祈愿平安顺遂、岁岁安康的质朴初心，是雪域高原最纯粹的平安期许。
+不过，受此次部分让步消息提振，瑞银股价周三盘前上涨超3%。
 
 ## 相关推荐
 
-- 2026-06-29 13:37 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 13:27 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-29 13:12 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-29 13:27 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
-- 2026-06-29 13:31 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 13:18 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
-- 2026-06-29 13:30 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/paoxun.md)
-- 2026-06-29 13:40 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
-- 2026-06-29 13:22 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
-- 2026-06-29 13:30 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
-- 2026-06-29 13:15 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/npqjl.md)
-- 2026-06-29 13:24 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 13:18 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
+- 2026-06-29 13:30 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 13:42 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-29 13:44 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
+- 2026-06-29 13:47 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-29 13:29 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chaire.md)
+- 2026-06-29 13:20 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
+- 2026-06-29 13:37 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 13:34 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-29 13:27 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
+- 2026-06-29 13:35 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
+- 2026-06-29 13:19 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 13:21 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
+- 2026-06-29 13:20 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 13:41 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-29 13:31 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [俄称继续推进 乌称打击俄军设施](https://www.blog.kurohicncr.top/Article/details/56869787.shtml)
-- 2026-06-29 13:39 - [豆包收费了，你还会用吗？](http://www.blog.kurohicncr.top/Article/details/42862.shtml)
-- 2026-06-29 13:35 - [志愿选择倒计时！浙大学生送祝福](http://www.blog.minike.top/Article/details/650151.shtml)
-- 2026-06-29 13:39 - [DeepSeek联合北京大学发布论文](https://www.share.kurohicncr.top/Article/details/693312339.shtml)
-- 2026-06-29 13:33 - [手底下人带不动怎么办？](https://www.share.minike.top/Article/details/64110809.shtml)
-- 2026-06-29 13:23 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/8580401.shtml)
-- 2026-06-29 13:41 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/86068243.shtml)
-- 2026-06-29 13:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/1214706079.shtml)
-- 2026-06-29 13:27 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.minike.top/Article/details/70836313.shtml)
-- 2026-06-29 13:16 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.kurohicncr.top/Article/details/1870932755.shtml)
-- 2026-06-29 13:30 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/676618.shtml)
-- 2026-06-29 13:35 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/0850963308.shtml)
-- 2026-06-29 13:13 - [去了一趟潮汕。](https://www.blog.minike.top/Article/details/348647738335.shtml)
-- 2026-06-29 13:23 - [媒体：这一次合肥芜湖在伯仲之间](http://www.blog.kurohicncr.top/Article/details/848072.shtml)
-- 2026-06-29 13:18 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/4597514057.shtml)
+- 2026-06-29 13:18 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.share.kurohicncr.top/Article/details/7510474.shtml)
+- 2026-06-29 13:19 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/61963792.shtml)
+- 2026-06-29 13:41 - [沙丘](https://www.blog.kurohicncr.top/Article/details/4379156278.shtml)
+- 2026-06-29 13:24 - [唐艺昕女儿接唐艺昕回家](https://www.blog.minike.top/Article/details/86135831194.shtml)
+- 2026-06-29 13:24 - [王楚钦美国大满贯晋级32强](https://www.blog.kurohicncr.top/Article/details/411737539508.shtml)
+- 2026-06-29 13:44 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/212834279360.shtml)
+- 2026-06-29 13:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/37409.shtml)
+- 2026-06-29 13:30 - [德国队前往比赛场地遭遇囧途](http://www.share.kurohicncr.top/Article/details/552409391.shtml)
+- 2026-06-29 13:38 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/710556511217.shtml)
+- 2026-06-29 13:25 - [袁隆平院士 不容诋毁！](https://www.share.kurohicncr.top/Article/details/420448998792.shtml)
+- 2026-06-29 13:19 - [民进党为什么拼命抹黑统战](http://www.blog.kurohicncr.top/Article/details/27308.shtml)
+- 2026-06-29 13:44 - [韩国极端网友对主教练发出死亡威胁](https://www.share.kurohicncr.top/Article/details/198465415984.shtml)
+- 2026-06-29 13:19 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/10129078149.shtml)
+- 2026-06-29 13:30 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/6549871665.shtml)
+- 2026-06-29 13:28 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/935774660760.shtml)

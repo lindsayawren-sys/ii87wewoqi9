@@ -1,51 +1,56 @@
-# 青海外贸优品展示推介暨援青之果发布系列活动在京举办
+# 跟风“网红”拼豆，健康隐患不容忽视
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月18日 23:01 来源：中国新闻网 6月18日，青海外贸优品展示推介暨援青之果发布系列活动在北京举办。活动以“援青结硕果 优品畅全球”为主题，通过“外贸优品”“青海好物”展示展销、“青海家宴”品鉴、援青成果发布等多元形式，全方位拓展青海特色优势产品国内外销售渠道，持续提升“青海好物”“青海家宴”品牌国际影响力。 活动发布第六批援青成果及《青海家宴2.
+跟风“网红”拼豆，健康隐患不容忽视 执法检查发现一些产品缺乏3C认证、熨斗电压超标、加热释放有害物质 近段时间，一款名为拼豆的DIY手作在玩具市场流行。它将彩色塑料颗粒在底板上有序排布，经通电设备高温熨烫定型，便能拼出各式各样的图案。操作简单、趣味性强……拼豆迅速出圈，掀起一波消费浪潮。 然而，拼豆玩具暗含风险。根据国家强制性产品认证目录(3C认证)相关规定，塑胶类儿童玩具必须
 
 ## 正文
 
-发布时间：2026年06月18日 23:01 来源：中国新闻网 6月18日，青海外贸优品展示推介暨援青之果发布系列活动在北京举办。
+跟风“网红”拼豆，健康隐患不容忽视 执法检查发现一些产品缺乏3C认证、熨斗电压超标、加热释放有害物质 近段时间，一款名为拼豆的DIY手作在玩具市场流行。
 
-活动以“援青结硕果 优品畅全球”为主题，通过“外贸优品”“青海好物”展示展销、“青海家宴”品鉴、援青成果发布等多元形式，全方位拓展青海特色优势产品国内外销售渠道，持续提升“青海好物”“青海家宴”品牌国际影响力。
+它将彩色塑料颗粒在底板上有序排布，经通电设备高温熨烫定型，便能拼出各式各样的图案。
 
-活动发布第六批援青成果及《青海家宴2.0版》，多家单位现场签约达成合作。
+操作简单、趣味性强……拼豆迅速出圈，掀起一波消费浪潮。
 
-同时依托主流融媒体渠道面向全球推介青海特色品牌，通过“青海家宴”菜品品鉴、全媒体推介等形式，全方位展现高原物产优势与援青协作成果，赋能青海高水平对外开放与高质量发展。
+然而，拼豆玩具暗含风险。
 
-(记者 范思忆 谢龙飞 赵雅敏) 责任编辑：【曲克】
+根据国家强制性产品认证目录(3C认证)相关规定，塑胶类儿童玩具必须依法取得3C认证，这是保障产品安全的基本前提。
+
+今天，北京市市场监管局公布的多起违规拼豆玩具案件显示，市场上售卖的部分拼豆产品存在缺乏3C认证、内含熨斗电压超标、劣质塑料加热会释放有害物质等问题。
+
+对此，中国消费者协会提醒广大消费者，跟风“网红”拼豆，健康隐患不容忽视。
+
+该协会也警示，保障儿童玩具使用安全，既需生产源头严把质量关，也离不开使用过程中的有效监护。
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
-- 2026-06-29 13:15 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
-- 2026-06-29 13:26 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 13:29 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 13:33 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 13:40 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
-- 2026-06-29 13:23 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-29 13:28 - [游戏数据竟被用于军事目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
-- 2026-06-29 13:26 - [普京称俄处于命运攸关之际](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 13:30 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duiman.md)
-- 2026-06-29 13:16 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 13:39 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 13:28 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-29 13:31 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 13:47 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 13:33 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
+- 2026-06-29 13:30 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 13:47 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 13:46 - [BW2026游览指南](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 13:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-29 13:31 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [AG冠军五人组轮换](https://www.share.minike.top/Article/details/128206329050.shtml)
-- 2026-06-29 13:26 - [三星与SK集团或将投资2000万亿韩元](http://www.share.kurohicncr.top/Article/details/0719066295.shtml)
-- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/4628976.shtml)
-- 2026-06-29 13:29 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/71833.shtml)
-- 2026-06-29 13:26 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/35008.shtml)
-- 2026-06-29 13:30 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/293247455060.shtml)
-- 2026-06-29 13:19 - [市民骑哈啰单车79分钟被收费30元](https://www.share.minike.top/Article/details/82440.shtml)
-- 2026-06-29 13:31 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/3865435871.shtml)
-- 2026-06-29 13:22 - [辽宁葫芦岛一居民楼突发爆炸](http://www.blog.minike.top/Article/details/280088225738.shtml)
-- 2026-06-29 13:26 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/8736652097.shtml)
-- 2026-06-29 13:35 - [志愿选择倒计时！浙大学生送祝福](https://www.share.kurohicncr.top/Article/details/81072.shtml)
-- 2026-06-29 13:24 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/819411.shtml)
-- 2026-06-29 13:25 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.kurohicncr.top/Article/details/62916270561.shtml)
-- 2026-06-29 13:40 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/16031022055.shtml)
-- 2026-06-29 13:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/4407449.shtml)
+- 2026-06-29 13:39 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/3760481119.shtml)
+- 2026-06-29 13:35 - [光与夜之恋](https://www.share.kurohicncr.top/Article/details/1298849.shtml)
+- 2026-06-29 13:39 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/363437309.shtml)
+- 2026-06-29 13:25 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/183183.shtml)
+- 2026-06-29 13:30 - [比亚迪为什么卖得越多市值越低](https://www.blog.kurohicncr.top/Article/details/42598.shtml)
+- 2026-06-29 13:45 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/6192268.shtml)
+- 2026-06-29 13:26 - [异世界一点都不好玩！](https://www.share.kurohicncr.top/Article/details/18920698120.shtml)
+- 2026-06-29 13:40 - [我把队友的7连跪剪成了艺术](http://www.blog.minike.top/Article/details/801354791236.shtml)
+- 2026-06-29 13:44 - [BW2026游览指南](https://www.blog.kurohicncr.top/Article/details/7401605964.shtml)
+- 2026-06-29 13:45 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/958576795975.shtml)
+- 2026-06-29 13:19 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/03657228045.shtml)
+- 2026-06-29 13:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.kurohicncr.top/Article/details/545125533.shtml)
+- 2026-06-29 13:47 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/299001888897.shtml)
+- 2026-06-29 13:39 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.minike.top/Article/details/87557455992.shtml)
+- 2026-06-29 13:43 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/9576993198.shtml)

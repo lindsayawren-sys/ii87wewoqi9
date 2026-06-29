@@ -1,58 +1,57 @@
-# 太子集团一名高管在日本被捕，外交部回应
+# 特朗普称他将调查联邦雇员在事件预测平台押注的问题
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-6月22日，外交部发言人郭嘉昆主持例行记者会。 路透社记者提问，日本媒体今日报道，东京警方逮捕男子“胡石”（音），其涉嫌与太子集团存在关联。太子集团被指控运营多处电信诈骗园区。请问中方是否已收到此次逮捕行动的相关通报？中方是否正在推进该涉案人员的遣返工作？ “你提到的具体问题建议向中方主管部门进行询问。”郭嘉昆强调，打击网赌电诈犯罪是国际社会的共同责任，我们希望周边国家与中方一
+美国总统特朗普表示，他将调查联邦雇员在事件预测平台下注的问题。在外界担心有人可能利用政府内部机密信息牟利之际，这番表态显示特朗普对预测市场的疑虑正在加深。 特朗普周四在回应一则有关一名士兵因押注事件而被捕的报道时作出上述表示。据ABC News援引知情人士报道，联邦当局逮捕了一名参与抓捕委内瑞拉总统马杜罗的特种部队士兵，这名士兵因成功押注马杜罗将被赶下台而获利40万美元。 “我
 
 ## 正文
 
-6月22日，外交部发言人郭嘉昆主持例行记者会。
+美国总统特朗普表示，他将调查联邦雇员在事件预测平台下注的问题。
 
-路透社记者提问，日本媒体今日报道，东京警方逮捕男子“胡石”（音），其涉嫌与太子集团存在关联。
+在外界担心有人可能利用政府内部机密信息牟利之际，这番表态显示特朗普对预测市场的疑虑正在加深。
 
-太子集团被指控运营多处电信诈骗园区。
+特朗普周四在回应一则有关一名士兵因押注事件而被捕的报道时作出上述表示。
 
-请问中方是否已收到此次逮捕行动的相关通报？
+据ABC News援引知情人士报道，联邦当局逮捕了一名参与抓捕委内瑞拉总统马杜罗的特种部队士兵，这名士兵因成功押注马杜罗将被赶下台而获利40万美元。
 
-中方是否正在推进该涉案人员的遣返工作？
+“我会调查这件事，”特朗普对记者说，并补充称，自己长期以来一直对事件押注平台存有疑虑。
 
-“你提到的具体问题建议向中方主管部门进行询问。
+“你知道，不幸的是，整个世界在某种程度上已经变成了一个赌场，”特朗普说。
 
-”郭嘉昆强调，打击网赌电诈犯罪是国际社会的共同责任，我们希望周边国家与中方一道加大执法合作力度，维护人民生命财产安全和地区国家交往合作秩序。
+“你看看全世界都在发生什么，在欧洲，在其他地方，到处都在搞这些押注的事情。
 
-来源：北京日报客户端 记者：周经纬责任编辑：刘万里 SF014
+我从来都不是很赞成。
 
 ## 相关推荐
 
-- 2026-06-29 13:35 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 13:17 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
-- 2026-06-29 13:24 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 13:34 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 13:18 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
-- 2026-06-29 13:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-29 13:34 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 13:39 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
-- 2026-06-29 13:21 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
-- 2026-06-29 13:19 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
-- 2026-06-29 13:21 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
-- 2026-06-29 13:35 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 13:23 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 13:24 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-29 13:27 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
+- 2026-06-29 13:22 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 13:40 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
+- 2026-06-29 13:43 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
+- 2026-06-29 13:44 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-29 13:33 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 13:27 - [加拿大92分钟绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhou.md)
+- 2026-06-29 13:43 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-29 13:18 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/20854814226.shtml)
-- 2026-06-29 13:21 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/51412259.shtml)
-- 2026-06-29 13:36 - [42岁郭碧婷纯素颜状态](https://www.share.minike.top/Article/details/1539394417.shtml)
-- 2026-06-29 13:13 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/2272897.shtml)
-- 2026-06-29 13:32 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/938988.shtml)
-- 2026-06-29 13:32 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/8552951153.shtml)
-- 2026-06-29 13:25 - [网友偶遇胡军和李乃文](https://www.share.kurohicncr.top/Article/details/568529.shtml)
-- 2026-06-29 13:37 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/88346865860.shtml)
-- 2026-06-29 13:24 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/97127.shtml)
-- 2026-06-29 13:16 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/29439.shtml)
-- 2026-06-29 13:37 - [青春环游记第三季](http://www.share.kurohicncr.top/Article/details/52368.shtml)
-- 2026-06-29 13:33 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/67685155.shtml)
-- 2026-06-29 13:28 - [唐艺昕女儿接唐艺昕回家](http://www.share.kurohicncr.top/Article/details/638674207.shtml)
-- 2026-06-29 13:31 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.share.kurohicncr.top/Article/details/21871966.shtml)
-- 2026-06-29 13:41 - [有哪些值得一提的生活窍门？](http://www.share.minike.top/Article/details/657486680471.shtml)
+- 2026-06-29 13:27 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](http://www.blog.minike.top/Article/details/68983.shtml)
+- 2026-06-29 13:19 - [法国紧急下单3万台空调](http://www.share.kurohicncr.top/Article/details/4284607684.shtml)
+- 2026-06-29 13:36 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/2007473211.shtml)
+- 2026-06-29 13:46 - [欧洲超1300例超额死亡与高温有关](http://www.share.minike.top/Article/details/71900260266.shtml)
+- 2026-06-29 13:43 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/900953.shtml)
+- 2026-06-29 13:23 - [【独家】牧神记 第89集 明心](http://www.blog.kurohicncr.top/Article/details/58260731.shtml)
+- 2026-06-29 13:26 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/1198983.shtml)
+- 2026-06-29 13:33 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/866236756204.shtml)
+- 2026-06-29 13:23 - [北极荒岛生存挑战](https://www.share.minike.top/Article/details/0199808.shtml)
+- 2026-06-29 13:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/72499.shtml)
+- 2026-06-29 13:46 - [法拉利被4个孩子当滑梯玩](http://www.share.minike.top/Article/details/450525292.shtml)
+- 2026-06-29 13:32 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.share.minike.top/Article/details/59971.shtml)
+- 2026-06-29 13:24 - [两个教官【皮影人行动4.0】](https://www.blog.minike.top/Article/details/81824941.shtml)
+- 2026-06-29 13:44 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/04517.shtml)
+- 2026-06-29 13:47 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/509932.shtml)

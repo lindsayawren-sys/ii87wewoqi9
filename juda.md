@@ -1,57 +1,56 @@
-# 王沪宁主持召开全国政协主席会议
+# 中国有望在2030年前成为世界第一大旅游经济体，外交部回应
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。中共中央政治局常委、全国政协主席王沪宁主持并讲话。 会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政
+4月23日，外交部发言人郭嘉昆主持例行记者会。 有记者提问，世界旅游及旅行理事会发布最新数据显示，中国旅游业经济产值去年增长9.9%，是全球增速的两倍多，并预测中国有望在2030年前成为世界第一大旅游经济体。我们注意到，越来越多来华外国游客正在改变旅行方式，从“观光打卡”升级为“深度沉浸”，从“体验中国”转向“融入中国”。请问发言人对此有何评论？ 郭嘉昆表示，这些年，“中国游”
 
 ## 正文
 
-新华社北京6月22日电 政协第十四届全国委员会第五十二次主席会议22日在京召开。
+4月23日，外交部发言人郭嘉昆主持例行记者会。
 
-中共中央政治局常委、全国政协主席王沪宁主持并讲话。
+有记者提问，世界旅游及旅行理事会发布最新数据显示，中国旅游业经济产值去年增长9.9%，是全球增速的两倍多，并预测中国有望在2030年前成为世界第一大旅游经济体。
 
-会议传达学习贯彻习近平总书记近期重要讲话和重要指示精神。
+我们注意到，越来越多来华外国游客正在改变旅行方式，从“观光打卡”升级为“深度沉浸”，从“体验中国”转向“融入中国”。
 
-王沪宁表示，习近平党建思想对强党强国具有重大现实意义和长远指导意义，在习近平新时代中国特色社会主义思想中有着特殊重要的地位，要持续推动学习贯彻习近平党建思想走深走实，把学习成效体现到坚持人民政协性质定位、充分发挥专门协商机构作用、聚焦党和国家中心任务履职尽责的实际行动和工作成效上。
+请问发言人对此有何评论？
 
-要深入学习贯彻习近平总书记对常态化做好东西部协作工作的重要指示精神，围绕促进区域协调发展、推进乡村全面振兴、推动全体人民共同富裕等积极建言献策。
+郭嘉昆表示，这些年，“中国游”话题热度不减，“买家秀”好评不断。
 
-要深入学习贯彻习近平总书记关于前瞻布局和发展未来产业的重要论述，引导经济界、科技界等相关界别政协委员通过视察考察调研、提案、社情民意信息等提出意见和建议。
+“一部手机游中国”的便利，在崇山峻岭中日行千里的快捷、放心游览夜景的安全，都给外国游客留下深刻记忆。
 
-要深入学习贯彻习近平总书记关于一体推进教育科技人才发展的重要论述，聚焦建立健全教育科技人才一体推进协调机制、加快建设国家战略人才力量等重点问题，深入调查研究、协商议政，助力推动科技自主创新和人才自主培养。
+最新数据显示，今年一季度免签入境外国人次再次上涨，同比增幅近30%． “真实的中国，远比想象中的更有魅力。
 
-会议审议通过政协第十四届全国委员会常务委员会第十八次会议议程(草案)和日程，决定8月下旬在北京召开全国政协十四届常委会第十八次会议。
+”郭嘉昆说，春夏旅游季已经开启，欢迎更多外国朋友用好免签便利，沉浸式感受一个既古老又现代的中国。
 
 ## 相关推荐
 
-- 2026-06-29 13:18 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
-- 2026-06-29 13:30 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
-- 2026-06-29 13:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
-- 2026-06-29 13:40 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
-- 2026-06-29 13:27 - [宜宾地震致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 13:33 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-29 13:15 - [2025年人口增长10强城市出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-29 13:26 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 13:30 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:24 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 13:21 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-29 13:21 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
+- 2026-06-29 13:35 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 13:33 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 13:25 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 13:18 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 13:33 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 13:35 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-29 13:42 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-29 13:37 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 13:35 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/620939.shtml)
-- 2026-06-29 13:28 - [逃狱兄弟](https://www.blog.minike.top/Article/details/1237852.shtml)
-- 2026-06-29 13:39 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/292988127.shtml)
-- 2026-06-29 13:32 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.kurohicncr.top/Article/details/90116598.shtml)
-- 2026-06-29 13:28 - [失明的我带老妈去了趟“火星”](http://www.share.kurohicncr.top/Article/details/1089129.shtml)
-- 2026-06-29 13:40 - [在自己家不穿衣服犯法吗](http://www.share.kurohicncr.top/Article/details/50221.shtml)
-- 2026-06-29 13:39 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/36520.shtml)
-- 2026-06-29 13:21 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.share.minike.top/Article/details/29428130780.shtml)
-- 2026-06-29 13:13 - [爱情有烟火你是知道我爱看什么的](https://www.share.minike.top/Article/details/5147952639.shtml)
-- 2026-06-29 13:15 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/0446651.shtml)
-- 2026-06-29 13:22 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/4656254.shtml)
-- 2026-06-29 13:16 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/4347428852.shtml)
-- 2026-06-29 13:17 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/8890153.shtml)
-- 2026-06-29 13:23 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/3293691458.shtml)
-- 2026-06-29 13:37 - [开电动汽车真的很省钱吗？](http://www.blog.minike.top/Article/details/76324.shtml)
+- 2026-06-29 13:26 - [哈基米歌王争霸赛](http://www.share.minike.top/Article/details/767435.shtml)
+- 2026-06-29 13:32 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/535340962890.shtml)
+- 2026-06-29 13:28 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.share.minike.top/Article/details/63869.shtml)
+- 2026-06-29 13:31 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/53329.shtml)
+- 2026-06-29 13:19 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/35324341.shtml)
+- 2026-06-29 13:47 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/03430479460.shtml)
+- 2026-06-29 13:34 - [韩国主帅辞职 念完稿双手插兜离场](http://www.blog.kurohicncr.top/Article/details/53861643.shtml)
+- 2026-06-29 13:33 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/87942618431.shtml)
+- 2026-06-29 13:27 - [这位天才台湾人第一次来大陆，开智了](https://www.blog.minike.top/Article/details/9246256678.shtml)
+- 2026-06-29 13:42 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/95075387.shtml)
+- 2026-06-29 13:28 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/665528.shtml)
+- 2026-06-29 13:41 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/02715536103.shtml)
+- 2026-06-29 13:23 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/435906.shtml)
+- 2026-06-29 13:28 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/58502093.shtml)
+- 2026-06-29 13:44 - [市民骑哈啰单车79分钟付30元](http://www.share.kurohicncr.top/Article/details/67344344061.shtml)

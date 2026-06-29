@@ -1,60 +1,55 @@
-# 中国驻哈萨克斯坦大使馆举办端午节侨界招待会
+# 市场监管总局：专项行动期间查办商标侵权、假冒专利案件8.1万件
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一
+记者从今天举行的国务院新闻办公室发布会上了解到，市场监管总局围绕重点产品、重点领域强化执法合力，开展为期两年的“守护知识产权”专项执法行动，突出“守护品牌”和“守护地理标志促进乡村振兴”两个重点领域，严厉打击商标、专利、地理标志侵权假冒违法行为。专项行动期间，共查办商标侵权、假冒专利案件8.1万件，涉案金额18.06亿元，移送司法机关案件2441件，重点领域假冒伪劣问题得到有力
 
 ## 正文
 
-五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+记者从今天举行的国务院新闻办公室发布会上了解到，市场监管总局围绕重点产品、重点领域强化执法合力，开展为期两年的“守护知识产权”专项执法行动，突出“守护品牌”和“守护地理标志促进乡村振兴”两个重点领域，严厉打击商标、专利、地理标志侵权假冒违法行为。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+专项行动期间，共查办商标侵权、假冒专利案件8.1万件，涉案金额18.06亿元，移送司法机关案件2441件，重点领域假冒伪劣问题得到有力遏制。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+为更加高效发现侵权违法线索、快速保护权利人知识产权，市场监管总局建立了“‘守护品牌’政企协作机制”，形成企业举报、部门调查、政企协同的快速保护机制。
 
-孔子为什么说“温故而知新”？
+首批政企协作企业涵盖了食品、服装、电器、日用品等重点行业，既有中资企业也有外资企业，知识产权平等保护、快速执法的机制更加高效。
 
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
-
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
-
-十届南博会，一叶清茶何以架起文明对话之桥？
-
-中国沙漠治理经验，如何与世界共享？
+(总台央视记者 李晶晶)
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 13:34 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 13:35 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:22 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
-- 2026-06-29 13:23 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 13:14 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-29 13:33 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-29 13:33 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 13:15 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-29 13:30 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 13:15 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 13:36 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
-- 2026-06-29 13:27 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
-- 2026-06-29 13:37 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-29 13:46 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 13:36 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baichun.md)
+- 2026-06-29 13:30 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrdyp.md)
+- 2026-06-29 13:33 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-29 13:27 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 13:21 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-29 13:40 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 13:21 - [薛之谦演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-29 13:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 13:41 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:32 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
+- 2026-06-29 13:35 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bukls.md)
+- 2026-06-29 13:36 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
+- 2026-06-29 13:18 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aorav.md)
+- 2026-06-29 13:20 - [日本主帅：对战胜巴西很有信心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/04289556964.shtml)
-- 2026-06-29 13:39 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/4996938.shtml)
-- 2026-06-29 13:31 - [功率半导体缺货涨价](http://www.share.kurohicncr.top/Article/details/99816262.shtml)
-- 2026-06-29 13:29 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/40579.shtml)
-- 2026-06-29 13:40 - [大疆7月15日起涨价？公司回应](https://www.blog.kurohicncr.top/Article/details/960608904970.shtml)
-- 2026-06-29 13:19 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/3562631158.shtml)
-- 2026-06-29 13:27 - [6月我国降水为何偏多](http://www.blog.minike.top/Article/details/59796138.shtml)
-- 2026-06-29 13:18 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/4847055.shtml)
-- 2026-06-29 13:27 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.kurohicncr.top/Article/details/98405.shtml)
-- 2026-06-29 13:21 - [行程万里不忘初心](https://www.blog.minike.top/Article/details/91134.shtml)
-- 2026-06-29 13:19 - [U17男篮世界杯：中国78-87不敌加拿大](https://www.blog.kurohicncr.top/Article/details/670425.shtml)
-- 2026-06-29 13:26 - [王楚钦 表演球擦网](https://www.share.minike.top/Article/details/247303556979.shtml)
-- 2026-06-29 13:28 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/07549733852.shtml)
-- 2026-06-29 13:30 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/368496224.shtml)
-- 2026-06-29 13:33 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/9934369.shtml)
+- 2026-06-29 13:41 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/31337087228.shtml)
+- 2026-06-29 13:18 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/68561137.shtml)
+- 2026-06-29 13:38 - [王佳佳江疏影13年前后同框对比](https://www.blog.minike.top/Article/details/525993617138.shtml)
+- 2026-06-29 13:18 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/72462.shtml)
+- 2026-06-29 13:20 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/05963704952.shtml)
+- 2026-06-29 13:31 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/6105216.shtml)
+- 2026-06-29 13:25 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/6604285.shtml)
+- 2026-06-29 13:29 - [千与千寻](http://www.share.minike.top/Article/details/7500880.shtml)
+- 2026-06-29 13:41 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/94238.shtml)
+- 2026-06-29 13:42 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/80227.shtml)
+- 2026-06-29 13:22 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/079437.shtml)
+- 2026-06-29 13:46 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/635664023710.shtml)
+- 2026-06-29 13:32 - [起风了](http://www.share.minike.top/Article/details/3400996702.shtml)
+- 2026-06-29 13:39 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/546030911.shtml)
+- 2026-06-29 13:24 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.kurohicncr.top/Article/details/28829.shtml)

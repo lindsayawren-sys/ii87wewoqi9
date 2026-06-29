@@ -1,53 +1,60 @@
-# A股收评：超2900只个股飘红，三大指数集体大涨，创业板指创新高
+# 在分期乐普惠的帮助下，70亩吴茱萸熬过丰收前夜
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-原标题：A股收评：超2900只个股飘红，三大指数集体大涨，创业板指创新高；大金融板块爆发，石油化工、基本金属大涨，日用化工、汽车零部件下跌 22日，A股三大指数高开高走集体收涨，创业板指创历史新高。截至收盘，沪指涨1.78%，深证成指涨2.13%，创业板指涨2.52%。 全市成交额3.76万亿，超2900只个股上涨。 板块方面，培育钻石概念爆发，券商、保险等大金融板块午后走强，
+微风之中，老吴站在成片的吴茱萸中间，这里位于湖北省黄石市阳新县，目之所及是他种下的70亩的吴茱萸。眼前这些苗株尚不及腰，但仅需熬过今年，明年吴茱萸就会开始结果，然后正式进入收获的丰产期。 就在几个月前，老吴还在为资金发愁。早期平整荒山的投入，外加后续买苗、栽种、除草、修枝、打药、施肥等人工成本，两年多的持续投入，几乎已经耗干了他手上的流动资金。还有一年就将迎来收获季，如何熬过这
 
 ## 正文
 
-原标题：A股收评：超2900只个股飘红，三大指数集体大涨，创业板指创新高；大金融板块爆发，石油化工、基本金属大涨，日用化工、汽车零部件下跌 22日，A股三大指数高开高走集体收涨，创业板指创历史新高。
+微风之中，老吴站在成片的吴茱萸中间，这里位于湖北省黄石市阳新县，目之所及是他种下的70亩的吴茱萸。
 
-截至收盘，沪指涨1.78%，深证成指涨2.13%，创业板指涨2.52%。
+眼前这些苗株尚不及腰，但仅需熬过今年，明年吴茱萸就会开始结果，然后正式进入收获的丰产期。
 
-全市成交额3.76万亿，超2900只个股上涨。
+就在几个月前，老吴还在为资金发愁。
 
-板块方面，培育钻石概念爆发，券商、保险等大金融板块午后走强，多股涨停；石油化工、基本金属大涨，电脑硬件、海运、化肥农药等涨幅居前；日用化工、汽车零部件、餐饮旅游、工业机械等下跌。
+早期平整荒山的投入，外加后续买苗、栽种、除草、修枝、打药、施肥等人工成本，两年多的持续投入，几乎已经耗干了他手上的流动资金。
 
-来源：“中新经纬”微信公众号
+还有一年就将迎来收获季，如何熬过这段艰难的时光，成了困扰老吴的难题。
+
+得益于分期乐普惠的及时支持，老吴如今有充裕的资金雇人给吴茱萸修条、施肥，安心等待丰产期的到来。
+
+这片吴茱萸差点断在资金上 黄石居于鄂赣皖三个中医药大省交汇点，中药材产业链基础较好，尤以阳新县的中药材得天独厚，吴茱萸就是其中一种。
+
+吴茱萸以其果实入药，立秋之后果实大规模成熟，形似花椒的果实中富含多种生物碱——如吴茱萸碱等，被认为在镇痛、抗炎及调节胃肠功能等方面具有一定功效。
 
 ## 相关推荐
 
-- 2026-06-29 13:22 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sfoft.md)
-- 2026-06-29 13:41 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 13:21 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-29 13:33 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-29 13:27 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 13:17 - [功率半导体缺货涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
-- 2026-06-29 13:26 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iyqon.md)
-- 2026-06-29 13:37 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-29 13:29 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
-- 2026-06-29 13:26 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 13:35 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-29 13:19 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
-- 2026-06-29 13:19 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
+- 2026-06-29 13:23 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 13:34 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/exrdf.md)
+- 2026-06-29 13:32 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
+- 2026-06-29 13:39 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 13:28 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 13:36 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heuxl.md)
+- 2026-06-29 13:37 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-29 13:44 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 13:38 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 13:29 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
+- 2026-06-29 13:28 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 13:32 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-29 13:19 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-29 13:44 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:37 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/82341267.shtml)
-- 2026-06-29 13:17 - [欧洲多国激辩“装不装空调”](http://www.blog.minike.top/Article/details/59608942691.shtml)
-- 2026-06-29 13:33 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/496575460.shtml)
-- 2026-06-29 13:14 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/013286197028.shtml)
-- 2026-06-29 13:18 - [杨紫下沉市场口碑](http://www.blog.minike.top/Article/details/0125351973.shtml)
-- 2026-06-29 13:24 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/088967.shtml)
-- 2026-06-29 13:27 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/2155551125.shtml)
-- 2026-06-29 13:20 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.minike.top/Article/details/41661.shtml)
-- 2026-06-29 13:39 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/196447000.shtml)
-- 2026-06-29 13:28 - [五哈和他们的朋友](https://www.blog.kurohicncr.top/Article/details/031279.shtml)
-- 2026-06-29 13:26 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/1607941409.shtml)
-- 2026-06-29 13:15 - [如何“亲菌子”又“远小人儿”](http://www.share.minike.top/Article/details/1589890018.shtml)
-- 2026-06-29 13:33 - [森保一：日本队要亲手改写历史](http://www.blog.kurohicncr.top/Article/details/7986076071.shtml)
-- 2026-06-29 13:39 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/893800.shtml)
-- 2026-06-29 13:20 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/97115325.shtml)
+- 2026-06-29 13:45 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/17700.shtml)
+- 2026-06-29 13:30 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/84534341.shtml)
+- 2026-06-29 13:40 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/528421629216.shtml)
+- 2026-06-29 13:46 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.blog.kurohicncr.top/Article/details/44684.shtml)
+- 2026-06-29 13:23 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/9300296671.shtml)
+- 2026-06-29 13:24 - [AG冠军五人组轮换](http://www.share.minike.top/Article/details/182122774.shtml)
+- 2026-06-29 13:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.minike.top/Article/details/3846483.shtml)
+- 2026-06-29 13:26 - [韩国队如何把94%出线概率打到0%](https://www.blog.minike.top/Article/details/9959019984.shtml)
+- 2026-06-29 13:19 - [【独家】牧神记 第89集 明心](http://www.blog.minike.top/Article/details/071454.shtml)
+- 2026-06-29 13:30 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/1442092139.shtml)
+- 2026-06-29 13:31 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.minike.top/Article/details/375882787.shtml)
+- 2026-06-29 13:43 - [一生一世](https://www.blog.kurohicncr.top/Article/details/719585831981.shtml)
+- 2026-06-29 13:26 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/095376770586.shtml)
+- 2026-06-29 13:24 - [白宇摘下白玉兰送给杨幂](https://www.share.kurohicncr.top/Article/details/48818.shtml)
+- 2026-06-29 13:24 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/36981034927.shtml)

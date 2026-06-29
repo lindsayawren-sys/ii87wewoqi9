@@ -1,52 +1,54 @@
-# 英特尔CEO：我们的目标是“5-10年10倍” 押注先进封装、玻璃基板和人工钻石
+# B. Riley的霍根表示，股市正在进行“平衡行为”
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-格隆汇6月19日｜英特尔CEO陈立武表示，他对英特尔的回报目标是"5至10年内实现10倍"，并正在围绕先进封装、新型半导体材料与下一代基板技术，系统性地重构英特尔的技术路线图。在近期一档播客节目中，陈立武详细阐述了其改造英特尔的路径：在稳固资产负债表、聚焦产品线之后，他正将投注重心转向先进封装技术EMIB、玻璃基板、以及氮化镓(GaN)、碳化硅(SiC)、磷化铟(InP)和人工
+B． Riley Wealth首席市场策略师阿特·霍根表示：“眼下美股市场正在进行的是一场平衡行为。在过去两周的大部分财报季中，市场焦点已经从对地缘政治的宏观担忧转向了逐家公司层面的微观业绩报告，这是一个积极信号。” 霍根说：“但对于冲突中的一些头条新闻，我们无法忽视太久。” “这其中可怕之处在于，一条恰到好处的社交媒体帖子就能相当迅速地改变市场情绪。所以，你并没有看到大幅下跌
 
 ## 正文
 
-格隆汇6月19日｜英特尔CEO陈立武表示，他对英特尔的回报目标是"5至10年内实现10倍"，并正在围绕先进封装、新型半导体材料与下一代基板技术，系统性地重构英特尔的技术路线图。
+B． Riley Wealth首席市场策略师阿特·霍根表示：“眼下美股市场正在进行的是一场平衡行为。
 
-在近期一档播客节目中，陈立武详细阐述了其改造英特尔的路径：在稳固资产负债表、聚焦产品线之后，他正将投注重心转向先进封装技术EMIB、玻璃基板、以及氮化镓(GaN)、碳化硅(SiC)、磷化铟(InP)和人工合成钻石等新材料领域，以应对传统工艺节点微缩趋近物理极限的挑战。
+在过去两周的大部分财报季中，市场焦点已经从对地缘政治的宏观担忧转向了逐家公司层面的微观业绩报告，这是一个积极信号。
 
-他同时透露，智能体AI和推理场景的爆发正在带动CPU需求强劲回升，数据中心服务器中CPU与GPU的配比已从过去的一比八向一比四乃至更低演变。
+” 霍根说：“但对于冲突中的一些头条新闻，我们无法忽视太久。
 
-陈立武表示，过去14个月已为英特尔股东创造了约6倍回报，但"这只是开始"。
+” “这其中可怕之处在于，一条恰到好处的社交媒体帖子就能相当迅速地改变市场情绪。
 
-他预计到2030至2032年，外界将开始真正认识到英特尔的潜力——不仅限于PC客户端的传统基本盘，更将延伸至边缘计算、物理AI与智能体AI等新兴市场。
+所以，你并没有看到大幅下跌，因为人们对这届政府选择用他们偏好的新闻传播渠道宣布可能对市场有利的消息时会发生什么，有着相当强烈的肌肉记忆。
 
-在他看来，英特尔的XPU、先进封装与代工能力若能有效整合，将为不同工作负载提供定制化芯片解决方案，这是他为公司锚定的长期战略方向。
+”责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
-- 2026-06-29 13:29 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-29 13:40 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
-- 2026-06-29 13:27 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 13:25 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
-- 2026-06-29 13:20 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-29 13:18 - [江苏财政厅原一级调研员谢功成被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 13:40 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
-- 2026-06-29 13:22 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-29 13:14 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 13:29 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 13:38 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
+- 2026-06-29 13:37 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 13:41 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 13:46 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-29 13:41 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 13:31 - [初心如磐 红色足迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
+- 2026-06-29 13:22 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-29 13:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-29 13:34 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 13:44 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhunqi.md)
+- 2026-06-29 13:19 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/panyao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [5万块的威力](https://www.blog.kurohicncr.top/Article/details/2902365.shtml)
-- 2026-06-29 13:18 - [普京称俄处于命运攸关之际](http://www.share.kurohicncr.top/Article/details/984263.shtml)
-- 2026-06-29 13:20 - [赵露思爸爸拍vlog“翻车”](https://www.blog.minike.top/Article/details/93822345337.shtml)
-- 2026-06-29 13:25 - [【独家】牧神记 第89集 明心](https://www.blog.minike.top/Article/details/262671.shtml)
-- 2026-06-29 13:36 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/9221760543.shtml)
-- 2026-06-29 13:35 - [中央气象台发布强对流天气蓝色预警](http://www.blog.minike.top/Article/details/05580.shtml)
-- 2026-06-29 13:12 - [中央气象台发布强对流天气蓝色预警](https://www.blog.kurohicncr.top/Article/details/648179138.shtml)
-- 2026-06-29 13:30 - [未来5年全国能源体系将呈现这些特征](https://www.blog.minike.top/Article/details/53969804.shtml)
-- 2026-06-29 13:34 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/790539.shtml)
-- 2026-06-29 13:12 - [北极荒岛生存挑战](http://www.share.minike.top/Article/details/6312620.shtml)
-- 2026-06-29 13:30 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/1523100.shtml)
-- 2026-06-29 13:22 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/05061647541.shtml)
-- 2026-06-29 13:12 - [第一批缉毒警已全体退休](https://www.blog.minike.top/Article/details/75209113.shtml)
-- 2026-06-29 13:28 - [委内瑞拉2400亿美元债务怎么还](http://www.share.kurohicncr.top/Article/details/6822131947.shtml)
-- 2026-06-29 13:31 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/882423882.shtml)
+- 2026-06-29 13:28 - [中方将20家日本实体列入出口管制名单](http://www.share.minike.top/Article/details/76191.shtml)
+- 2026-06-29 13:29 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/755761836762.shtml)
+- 2026-06-29 13:28 - [艾莎唱出了多少牛马的心声🥹](http://www.share.minike.top/Article/details/412938134.shtml)
+- 2026-06-29 13:24 - [领克900大型SUV值得购买吗?](http://www.blog.minike.top/Article/details/377912039108.shtml)
+- 2026-06-29 13:24 - [360万法拉利被多名孩童当滑梯玩耍](https://www.share.minike.top/Article/details/61269568393.shtml)
+- 2026-06-29 13:20 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.minike.top/Article/details/372447513.shtml)
+- 2026-06-29 13:40 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/4257405871.shtml)
+- 2026-06-29 13:19 - [教育部发布预警 事关高招录取](http://www.blog.kurohicncr.top/Article/details/04659251.shtml)
+- 2026-06-29 13:21 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/48391164985.shtml)
+- 2026-06-29 13:25 - [海清白玉兰奖运](http://www.blog.minike.top/Article/details/34461.shtml)
+- 2026-06-29 13:34 - [法国紧急下单3万台空调](https://www.share.minike.top/Article/details/493380194.shtml)
+- 2026-06-29 13:37 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/60862704533.shtml)
+- 2026-06-29 13:27 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/37617.shtml)
+- 2026-06-29 13:40 - [F1奥地利大奖赛正赛集锦](https://www.blog.minike.top/Article/details/56585980.shtml)
+- 2026-06-29 13:46 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/404162.shtml)

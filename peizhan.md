@@ -1,52 +1,58 @@
-# 2026端午游园会在澳大利亚悉尼举行
+# 华纳兄弟投资者批准以1100亿美元将公司出售给派拉蒙影业
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月21日 11:47 来源：中国新闻网 当地时间6月19日，2026端午游园会在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。本次活动由悉尼科技大学中国学联、悉尼大学中国学联联合举办。活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。(记者 薄雯雯 制作 侯诗蕊）
+这场多年来规模最大的媒体并购案正逐步接近收官。 华纳兄弟探索股东于周四投票批准派拉蒙天空之舞（Paramount Skydance）对该公司的收购。此次联姻将把好莱坞两家历史最悠久的电影制片厂归于同一集团旗下，并重塑美国娱乐行业格局。 在两家娱乐巨头董事会一致支持这笔1100亿美元重磅交易后，WBD股东投出赞成票在意料之中。 WBD首席执行官大卫·扎斯拉夫表示：“股东批准是完成
 
 ## 正文
 
-发布时间：2026年06月21日 11:47 来源：中国新闻网 当地时间6月19日，2026端午游园会在澳大利亚悉尼举行，吸引当地多所高校300余名学生参与。
+这场多年来规模最大的媒体并购案正逐步接近收官。
 
-本次活动由悉尼科技大学中国学联、悉尼大学中国学联联合举办。
+华纳兄弟探索股东于周四投票批准派拉蒙天空之舞（Paramount Skydance）对该公司的收购。
 
-活动现场，中外青年齐聚一堂，共同体验包粽子、香包及漆扇制作、诗词飞花令等项目，在互动交流中共度端午佳节，感受中华优秀传统文化的魅力。
+此次联姻将把好莱坞两家历史最悠久的电影制片厂归于同一集团旗下，并重塑美国娱乐行业格局。
 
-(记者 薄雯雯 制作 侯诗蕊） 责任编辑：【李季】
+在两家娱乐巨头董事会一致支持这笔1100亿美元重磅交易后，WBD股东投出赞成票在意料之中。
+
+WBD首席执行官大卫·扎斯拉夫表示：“股东批准是完成这一历史性交易的又一关键里程碑，这笔交易将为股东带来卓越价值。
+
+” 派拉蒙天空之舞的报价为每股31美元，对WBD的估值约770亿美元，收购标的包括华纳兄弟电影公司、HBO Max流媒体平台，以及CNN、TBS、TNT等一系列有线电视频道。
+
+合并后，两家公司将坐拥庞大的知识产权库，从派拉蒙的《教父》《海绵宝宝》，到WBD的《卡萨布兰卡》《哈利·波特》系列应有尽有。
+
+不过，该交易仍需获得美国司法部反垄断监管机构的批准。
 
 ## 相关推荐
 
-- 2026-06-29 13:41 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
-- 2026-06-29 13:15 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
-- 2026-06-29 13:38 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ervke.md)
-- 2026-06-29 13:29 - [高考志愿今起开始填报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 13:15 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
-- 2026-06-29 13:34 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 13:20 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 13:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-29 13:29 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
-- 2026-06-29 13:26 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
-- 2026-06-29 13:28 - [宜宾5.5级地震 成都震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 13:17 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sibang.md)
-- 2026-06-29 13:37 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ahtkn.md)
-- 2026-06-29 13:19 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 13:24 - [腾讯回应做独立支付APP](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-29 13:35 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 13:41 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 13:19 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-29 13:30 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
+- 2026-06-29 13:30 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 13:36 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltnqz.md)
+- 2026-06-29 13:34 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
+- 2026-06-29 13:25 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
+- 2026-06-29 13:41 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjdvf.md)
+- 2026-06-29 13:33 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 13:43 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:23 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/6203101264.shtml)
-- 2026-06-29 13:32 - [韩国队出局是因为内讧吗](http://www.blog.minike.top/Article/details/2053143.shtml)
-- 2026-06-29 13:25 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/3988710695.shtml)
-- 2026-06-29 13:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/6719556211.shtml)
-- 2026-06-29 13:27 - [毒液2](http://www.blog.kurohicncr.top/Article/details/2904219.shtml)
-- 2026-06-29 13:35 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/92898.shtml)
-- 2026-06-29 13:19 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/385240.shtml)
-- 2026-06-29 13:16 - [民进党为什么拼命抹黑统战](https://www.blog.minike.top/Article/details/685355.shtml)
-- 2026-06-29 13:24 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/06212262071.shtml)
-- 2026-06-29 13:18 - [日本主帅：对战胜巴西很有信心](http://www.share.kurohicncr.top/Article/details/774039364.shtml)
-- 2026-06-29 13:28 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/689279.shtml)
-- 2026-06-29 13:20 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/58749863932.shtml)
-- 2026-06-29 13:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.minike.top/Article/details/32660668.shtml)
-- 2026-06-29 13:15 - [天道](http://www.share.minike.top/Article/details/71542588.shtml)
-- 2026-06-29 13:24 - [王楚钦周启豪爆分](http://www.blog.minike.top/Article/details/11940590813.shtml)
+- 2026-06-29 13:28 - [日媒称韩国史诗级上上签终成噩梦](https://www.blog.kurohicncr.top/Article/details/2387787.shtml)
+- 2026-06-29 13:38 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/48665487.shtml)
+- 2026-06-29 13:36 - [逃狱兄弟](https://www.blog.minike.top/Article/details/12404.shtml)
+- 2026-06-29 13:44 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/76718033.shtml)
+- 2026-06-29 13:42 - [为什么欧洲人不装空调](https://www.blog.minike.top/Article/details/74370.shtml)
+- 2026-06-29 13:21 - [流金岁月](http://www.blog.minike.top/Article/details/1170458.shtml)
+- 2026-06-29 13:27 - [为什么香港的冲厕水是咸的？](https://www.share.minike.top/Article/details/77777989110.shtml)
+- 2026-06-29 13:31 - [3D打印不是工业革命，它是……](https://www.share.minike.top/Article/details/2433549.shtml)
+- 2026-06-29 13:44 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/581054152.shtml)
+- 2026-06-29 13:30 - [AG 钟意](https://www.blog.minike.top/Article/details/95628743886.shtml)
+- 2026-06-29 13:25 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/606332945456.shtml)
+- 2026-06-29 13:21 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/849793376836.shtml)
+- 2026-06-29 13:30 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/9955975194.shtml)
+- 2026-06-29 13:32 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/19945786507.shtml)
+- 2026-06-29 13:44 - [iPhone18系列预计将大幅涨价](https://www.share.minike.top/Article/details/843163.shtml)

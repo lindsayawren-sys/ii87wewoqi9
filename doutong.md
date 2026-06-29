@@ -1,61 +1,56 @@
-# 5位铁路行业工人代表与中外记者交流 当好铁路现代化的开路先锋（权威发布）
+# 伊朗战争或短期抑制石油需求，但长期可能推高需求
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-5位铁路行业工人代表与中外记者交流 当好铁路现代化的开路先锋（权威发布） 本报记者 李心萍《人民日报》（2026年06月19日 第 02 版） 6月18日，国务院新闻办举行“新征程上的奋斗者”中外记者见面会，邀请5位来自铁路行业的工人代表展开交流。 “我和同事深度参与多式联运‘一单制’产品打造，客户可实现‘一次委托、一单到底、一箱到底、一次结算’。”中铁集装箱运输有限责任公司多
+虽然随着霍尔木兹海峡持续关闭，石油需求每日都在遭受破坏，但伊朗战争的长期影响却可能出人意料地对石油有利。能源安全问题的加剧以及全球碎片化趋势，可能导致一个效率更低、但需求更旺盛的全球能源体系。 自2月28日冲突爆发以来，全球原油供应已减少了1300万桶/日，即12%。在此压力下，全球石油消费总量正在急剧下降。石油贸易商维多集团首席执行官表示，到目前为止，需求已减少约400万桶/
 
 ## 正文
 
-5位铁路行业工人代表与中外记者交流 当好铁路现代化的开路先锋（权威发布） 本报记者 李心萍《人民日报》（2026年06月19日 第 02 版） 6月18日，国务院新闻办举行“新征程上的奋斗者”中外记者见面会，邀请5位来自铁路行业的工人代表展开交流。
+虽然随着霍尔木兹海峡持续关闭，石油需求每日都在遭受破坏，但伊朗战争的长期影响却可能出人意料地对石油有利。
 
-“我和同事深度参与多式联运‘一单制’产品打造，客户可实现‘一次委托、一单到底、一箱到底、一次结算’。
+能源安全问题的加剧以及全球碎片化趋势，可能导致一个效率更低、但需求更旺盛的全球能源体系。
 
-”中铁集装箱运输有限责任公司多式联运事业部班列经营部负责人王昊说。
+自2月28日冲突爆发以来，全球原油供应已减少了1300万桶/日，即12%。
 
-以吉林到云南的北粮南运项目为例，原先全程运输需要35天至40天，还会有货物损耗，客户使用“一单制”产品后，全程物流时间可压缩5天，物流成本降低约10%，实现运输过程零货损。
+在此压力下，全球石油消费总量正在急剧下降。
 
-“目前多式联运‘一单制’产品常态化运营线路有270条，基本覆盖90余个沿海沿江主要港口。
+石油贸易商维多集团首席执行官表示，到目前为止，需求已减少约400万桶/日，约占全球消费量的4%。
 
-”王昊说。
+这一需求破坏估计值远高于国际能源署的评估（该机构估计4月份需求损失为230万桶/日），但即便如此，这仍是自2021年新冠疫情高峰以来最大的月度消费萎缩。
 
-“动车医生”马耀锋，是中国铁路武汉局集团有限公司武汉动车段的地勤机械师。
+国际能源署预计2026年全球石油需求将萎缩8万桶/日，这与战前预测的增长73万桶/日形成巨大反差。
 
-“参加工作16年来，我检修的动车组列车车型有10余种，数量达上千列。
+需求损失很大程度上反映了炼油商（尤其是亚洲炼油商）因中东供应枯竭而减产或停产。
 
 ## 相关推荐
 
-- 2026-06-29 13:21 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kurau.md)
-- 2026-06-29 13:14 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
-- 2026-06-29 13:38 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 13:15 - [中央气象台发布强对流天气蓝色预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 13:34 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 13:34 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
-- 2026-06-29 13:22 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
-- 2026-06-29 13:26 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
-- 2026-06-29 13:13 - [A股限售股解禁一览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 13:18 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-29 13:32 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
-- 2026-06-29 13:25 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-29 13:25 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-29 13:37 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-29 13:38 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-29 13:28 - [王祖蓝现场观看美加墨世界杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-29 13:33 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-29 13:44 - [47岁吴建豪再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvqwm.md)
+- 2026-06-29 13:34 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-29 13:45 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-29 13:25 - [五粮液回应宜宾地震影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
+- 2026-06-29 13:22 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
+- 2026-06-29 13:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-29 13:32 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
+- 2026-06-29 13:27 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:29 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/73291990.shtml)
-- 2026-06-29 13:18 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.blog.minike.top/Article/details/397569.shtml)
-- 2026-06-29 13:32 - [航空运输旅客服务质量国标将实施](https://www.share.minike.top/Article/details/06858015.shtml)
-- 2026-06-29 13:29 - [吴建豪宣布再婚](https://www.blog.kurohicncr.top/Article/details/989482202939.shtml)
-- 2026-06-29 13:39 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/57345.shtml)
-- 2026-06-29 13:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/115105339.shtml)
-- 2026-06-29 13:32 - [李连杰回应网传不管前妻俩女儿](http://www.blog.minike.top/Article/details/5379772.shtml)
-- 2026-06-29 13:37 - [这位猫咪，请你自重！](http://www.share.kurohicncr.top/Article/details/86481611.shtml)
-- 2026-06-29 13:33 - [杨紫《生命树》播放量破百亿](http://www.share.minike.top/Article/details/3785958591.shtml)
-- 2026-06-29 13:19 - [媒体评恋与深空争议](http://www.blog.minike.top/Article/details/50706814349.shtml)
-- 2026-06-29 13:40 - [布里奇斯被交易至太阳](https://www.blog.kurohicncr.top/Article/details/830270003990.shtml)
-- 2026-06-29 13:41 - [普京称考虑全面禁止柴油出口](http://www.share.minike.top/Article/details/49073.shtml)
-- 2026-06-29 13:18 - [人民日报评“AI脸看腻了”](https://www.share.minike.top/Article/details/29639877.shtml)
-- 2026-06-29 13:32 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/77184486766.shtml)
-- 2026-06-29 13:26 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.kurohicncr.top/Article/details/090998056.shtml)
+- 2026-06-29 13:29 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.kurohicncr.top/Article/details/5147062.shtml)
+- 2026-06-29 13:21 - [杨紫《生命树》播放量破百亿](https://www.blog.kurohicncr.top/Article/details/304655573.shtml)
+- 2026-06-29 13:44 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/828229001.shtml)
+- 2026-06-29 13:31 - [欧委会总部只给高层开空调](https://www.blog.kurohicncr.top/Article/details/2722049495.shtml)
+- 2026-06-29 13:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/966994782784.shtml)
+- 2026-06-29 13:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/9982170.shtml)
+- 2026-06-29 13:37 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/11639644.shtml)
+- 2026-06-29 13:35 - [全国第三艘万车级汽车运输船交付](https://www.blog.minike.top/Article/details/4813879.shtml)
+- 2026-06-29 13:22 - [世界杯打成了欧洲杯和美洲杯](https://www.share.kurohicncr.top/Article/details/594991881372.shtml)
+- 2026-06-29 13:32 - [海清白玉兰奖运](https://www.share.kurohicncr.top/Article/details/47991758.shtml)
+- 2026-06-29 13:29 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/270504328468.shtml)
+- 2026-06-29 13:20 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/834436.shtml)
+- 2026-06-29 13:40 - [加拿大92分钟绝杀南非](http://www.share.kurohicncr.top/Article/details/88674908679.shtml)
+- 2026-06-29 13:45 - [韩国政府将对世界杯出局追责](https://www.blog.minike.top/Article/details/20334056469.shtml)
+- 2026-06-29 13:41 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/8033884.shtml)

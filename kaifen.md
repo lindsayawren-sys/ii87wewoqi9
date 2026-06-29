@@ -1,58 +1,59 @@
-# 伊朗代表团暂停伊美谈判，抗议特朗普威胁言论
+# 新西兰华媒：旅游业持续回暖 新西兰看好中国市场
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网6月22日电 据英国《卫报》21日报道，正在瑞士进行伊美谈判的伊朗代表团突然暂停谈判，以抗议美国总统特朗普不断对伊朗发出的威胁言论。 报道称，特朗普在社交媒体上表示，伊朗必须立即停止在黎巴嫩的“代理人”行动，否则美国将再次对伊朗发起打击，“而且会更猛烈”。 伊朗议长、首席谈判代表卡利巴夫表示：“难道他们不认为，如果他们的威胁真的有效，他们就不会落到今天这种窘境吗？我们根本
+中新网4月23日电 据新西兰中华新闻通讯社报道，新西兰统计局最新发布的国际旅行数据显示，2026年新西兰入境旅游市场延续复苏态势，国际客流持续回升。 数据显示，2026年2月海外访客入境人数达40.81万人，同比增加5.37万人，增长趋势稳定。从年度数据来看，过去一年新西兰累计接待国际游客约358万人次，旅游业已进入稳步修复阶段。 据报道，在客源结构方面，中国市场表现尤为亮眼。
 
 ## 正文
 
-中新网6月22日电 据英国《卫报》21日报道，正在瑞士进行伊美谈判的伊朗代表团突然暂停谈判，以抗议美国总统特朗普不断对伊朗发出的威胁言论。
+中新网4月23日电 据新西兰中华新闻通讯社报道，新西兰统计局最新发布的国际旅行数据显示，2026年新西兰入境旅游市场延续复苏态势，国际客流持续回升。
 
-报道称，特朗普在社交媒体上表示，伊朗必须立即停止在黎巴嫩的“代理人”行动，否则美国将再次对伊朗发起打击，“而且会更猛烈”。
+数据显示，2026年2月海外访客入境人数达40.81万人，同比增加5.37万人，增长趋势稳定。
 
-伊朗议长、首席谈判代表卡利巴夫表示：“难道他们不认为，如果他们的威胁真的有效，他们就不会落到今天这种窘境吗？
+从年度数据来看，过去一年新西兰累计接待国际游客约358万人次，旅游业已进入稳步修复阶段。
 
-我们根本不把美国的威胁放在眼里。
+据报道，在客源结构方面，中国市场表现尤为亮眼。
 
-” 特朗普的强硬威胁与美国副总统万斯此前释放的缓和信号形成鲜明对比，万斯曾表示，总统要求他利用会谈与伊朗翻开新篇章。
+统计显示，2026年2月中国游客同比增长约214%，新增约4.17万人，成为当月增长最快、贡献最突出的客源市场之一。
 
-报道称，目前尚不清楚伊朗此次退场是永久性终止谈判还是象征性的抗议。
+业内普遍认为，中国游客的快速回归，不仅推动了客流规模提升，也在消费层面带来显著变化。
 
-但在离开位于比尔根山的会谈之前，伊朗与美国就如何豁免伊朗石油出口制裁达成了一项协议草案。
+报道援引华人国会议员陆楠的话称，中国游客正逐步成为推动新西兰旅游业从规模恢复向质量提升转型的重要力量。
 
-这是伊朗就其核问题展开谈判的关键前提条件之一。
+报道称，新西兰旅游业以往以观光为主的旅游模式，正在向深度体验与品质消费转变，而中国游客正是这一趋势的重要推动者。
 
 ## 相关推荐
 
-- 2026-06-29 13:25 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 13:29 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 13:20 - [王楚钦美国大满贯晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmojk.md)
-- 2026-06-29 13:33 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
-- 2026-06-29 13:12 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:26 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 13:31 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaikang.md)
-- 2026-06-29 13:25 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-29 13:38 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
-- 2026-06-29 13:14 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 13:37 - [BW2026游览指南](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smjzh.md)
-- 2026-06-29 13:33 - [斗破苍穹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 13:41 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
+- 2026-06-29 13:26 - [伊朗球员致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 13:31 - [这位天才台湾人第一次来大陆，开智了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
+- 2026-06-29 13:22 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuthm.md)
+- 2026-06-29 13:18 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 13:47 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kgqca.md)
+- 2026-06-29 13:23 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
+- 2026-06-29 13:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
+- 2026-06-29 13:39 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
+- 2026-06-29 13:26 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 13:24 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dnydl.md)
+- 2026-06-29 13:37 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
+- 2026-06-29 13:36 - [金刚川](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/61753518.shtml)
-- 2026-06-29 13:38 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/25898.shtml)
-- 2026-06-29 13:13 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/29825852.shtml)
-- 2026-06-29 13:14 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/7389989.shtml)
-- 2026-06-29 13:40 - [张一山回应与杨紫友情](https://www.blog.kurohicncr.top/Article/details/68471985.shtml)
-- 2026-06-29 13:26 - [委内瑞拉地震已致1450死3150伤](http://www.share.kurohicncr.top/Article/details/193303197191.shtml)
-- 2026-06-29 13:30 - [豆包收费了，你还会用吗？](https://www.share.kurohicncr.top/Article/details/893170.shtml)
-- 2026-06-29 13:17 - [宜宾发生5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/705388.shtml)
-- 2026-06-29 13:25 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/8414018659.shtml)
-- 2026-06-29 13:14 - [布里奇斯被交易至太阳](http://www.share.minike.top/Article/details/3453994633.shtml)
-- 2026-06-29 13:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/298364.shtml)
-- 2026-06-29 13:32 - [媒体评恋与深空争议](https://www.share.kurohicncr.top/Article/details/6417531.shtml)
-- 2026-06-29 13:23 - [沙特足协主席发布声明主动请辞](https://www.share.minike.top/Article/details/728161611077.shtml)
-- 2026-06-29 13:20 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/879974.shtml)
-- 2026-06-29 13:29 - [恋与深空底线不该被娱乐化](https://www.share.kurohicncr.top/Article/details/78314141.shtml)
+- 2026-06-29 13:31 - [王楚钦首轮赢下国乒德比](http://www.blog.minike.top/Article/details/749462.shtml)
+- 2026-06-29 13:46 - [王祖蓝现场观看美加墨世界杯](https://www.blog.kurohicncr.top/Article/details/8087105.shtml)
+- 2026-06-29 13:33 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/96237169.shtml)
+- 2026-06-29 13:24 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/963965818.shtml)
+- 2026-06-29 13:24 - [市民骑哈啰单车79分钟被收费30元](http://www.blog.kurohicncr.top/Article/details/6031754106.shtml)
+- 2026-06-29 13:22 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.share.kurohicncr.top/Article/details/21170356.shtml)
+- 2026-06-29 13:24 - [金刚川](https://www.blog.kurohicncr.top/Article/details/12117.shtml)
+- 2026-06-29 13:37 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/013011090809.shtml)
+- 2026-06-29 13:33 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/879231112784.shtml)
+- 2026-06-29 13:47 - [灿如繁星定档](http://www.share.minike.top/Article/details/6329302.shtml)
+- 2026-06-29 13:40 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/37217.shtml)
+- 2026-06-29 13:36 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/24590116810.shtml)
+- 2026-06-29 13:32 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/187771876.shtml)
+- 2026-06-29 13:23 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/09026.shtml)
+- 2026-06-29 13:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/543310.shtml)

@@ -1,56 +1,58 @@
-# 民盟江阴市委会召开2026年拟发展对象见面会
+# 任天堂Switch 2凭《Pokopia》登顶美国销量榜，开发商利润预期创新高
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-6月11日上午，民盟江阴市委会召开2026年拟发展对象见面会。市委会办公室、组织处及相关部门负责人，2026年度拟发展对象参加会议。 会议伊始，全体拟发展对象逐一进行自我介绍，围绕个人基本情况、专业背景、工作业绩及对民盟组织的认识作了交流发言。大家纷纷表示，能够成为民盟拟发展对象倍感光荣，希望通过深入学习实践，早日成为一名光荣的盟员，为江阴民盟事业发展贡献力量。 会上，组织处副
+任天堂Switch 2凭借3月5日发售的衍生大作《宝可梦 Pokopia》，在全球市场掀起强劲购买热潮，助推其在英美市场销量暴涨，确立了在本世代主机竞争中的统治地位。 《Pokopia》发售仅四天，全球销量便突破220万份，创下Switch 2独占游戏的首周销售纪录，其中日本本土销量贡献了约100万份。游戏在Metacritic上的媒体综合评分高达89分，为宝可梦系列历史最高，
 
 ## 正文
 
-6月11日上午，民盟江阴市委会召开2026年拟发展对象见面会。
+任天堂Switch 2凭借3月5日发售的衍生大作《宝可梦 Pokopia》，在全球市场掀起强劲购买热潮，助推其在英美市场销量暴涨，确立了在本世代主机竞争中的统治地位。
 
-市委会办公室、组织处及相关部门负责人，2026年度拟发展对象参加会议。
+《Pokopia》发售仅四天，全球销量便突破220万份，创下Switch 2独占游戏的首周销售纪录，其中日本本土销量贡献了约100万份。
 
-会议伊始，全体拟发展对象逐一进行自我介绍，围绕个人基本情况、专业背景、工作业绩及对民盟组织的认识作了交流发言。
+游戏在Metacritic上的媒体综合评分高达89分，为宝可梦系列历史最高，其融合建造、生活模拟与宝可梦互动的创新玩法广受赞誉。
 
-大家纷纷表示，能够成为民盟拟发展对象倍感光荣，希望通过深入学习实践，早日成为一名光荣的盟员，为江阴民盟事业发展贡献力量。
+《Pokopia》的巨大成功产生了显著的连锁商业效应。
 
-会上，组织处副处长赵双双作了民盟成立85年来的光荣历史专题介绍。
+联合开发商光荣特库摩宣布，由于该游戏销量远超预期，公司将上调其截至2026年3月财年的净利润预期，从270亿日元上调至415亿日元，这将创下公司净利润的历史新高。
 
-从1941年民盟在重庆秘密成立，到与中国共产党风雨同舟、肝胆相照的光辉历程，再到一代代民盟先贤“奔走国是、关注民生”的优良传统，生动的讲述让与会人员深刻感悟到民盟作为中国特色社会主义参政党的历史担当和时代使命。
+目前，Switch 2在经历首发缺货后，产能已稳步提升，欧美主要零售商库存趋于稳定。
 
-组织处副处长孙静娜围绕盟员发展程序、盟员享有的权利和应履行的义务、中国民主同盟纪律处分办法(试行)等内容进行了系统讲解，帮助拟发展对象进一步明确入盟后的责任与担当，增强组织观念和规矩意识。
+任天堂2026年的软件阵容呈现出“头部IP连发”的强劲态势，有望凭借硬件与软件的双重红利，进一步拉开与竞争对手的差距。
 
-信息办主任李蓓蕾就反映社情民意信息工作作了专题辅导，从社情民意信息的概念定位、选题方向、撰写方法、报送要求等方面进行了详细解读，强调参政议政是民主党派的基本职能，反映社情民意是盟员履职的重要途径，鼓励大家立足本职、关注民生，积极建言献策。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 13:30 - [这位猫咪，请你自重！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
-- 2026-06-29 13:36 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
-- 2026-06-29 13:15 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 13:28 - [爱情有烟火你是知道我爱看什么的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-29 13:37 - [各路“神仙”扎堆洛阳乘地铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
-- 2026-06-29 13:15 - [女子跑步4年不拉伸小腿肌肉硬如铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
-- 2026-06-29 13:26 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 13:25 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 13:40 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
-- 2026-06-29 13:13 - [恋与深空女玩家不该被冒犯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 13:40 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
+- 2026-06-29 13:26 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
+- 2026-06-29 13:34 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
+- 2026-06-29 13:41 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jnzol.md)
+- 2026-06-29 13:42 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
+- 2026-06-29 13:31 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-29 13:18 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwdif.md)
+- 2026-06-29 13:21 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
+- 2026-06-29 13:38 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 13:33 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 13:38 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 13:20 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [起风了](http://www.share.kurohicncr.top/Article/details/61584583.shtml)
-- 2026-06-29 13:41 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/87257.shtml)
-- 2026-06-29 13:26 - [多家银行收紧个人贵金属业务](http://www.blog.minike.top/Article/details/821180476.shtml)
-- 2026-06-29 13:19 - [这位猫咪，请你自重！](http://www.blog.kurohicncr.top/Article/details/30142138292.shtml)
-- 2026-06-29 13:40 - [初心如磐 红色足迹](https://www.share.kurohicncr.top/Article/details/46588.shtml)
-- 2026-06-29 13:37 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.blog.minike.top/Article/details/471065.shtml)
-- 2026-06-29 13:24 - [美国近12万名科技员工被解雇](https://www.share.kurohicncr.top/Article/details/47151800928.shtml)
-- 2026-06-29 13:32 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/398881.shtml)
-- 2026-06-29 13:32 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/212403724.shtml)
-- 2026-06-29 13:13 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/494378.shtml)
-- 2026-06-29 13:26 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/92548329.shtml)
-- 2026-06-29 13:16 - [美伊同意停止互袭](https://www.share.kurohicncr.top/Article/details/58589419.shtml)
-- 2026-06-29 13:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/57923101721.shtml)
-- 2026-06-29 13:22 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/844296427.shtml)
-- 2026-06-29 13:15 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/84172.shtml)
+- 2026-06-29 13:39 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/9712198.shtml)
+- 2026-06-29 13:24 - [TOP 无畏契约](https://www.share.minike.top/Article/details/897113.shtml)
+- 2026-06-29 13:31 - [这位天才台湾人第一次来大陆，开智了](https://www.share.minike.top/Article/details/967814810289.shtml)
+- 2026-06-29 13:25 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.share.minike.top/Article/details/02004031474.shtml)
+- 2026-06-29 13:43 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.share.minike.top/Article/details/33145914.shtml)
+- 2026-06-29 13:27 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/8594961581.shtml)
+- 2026-06-29 13:38 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.kurohicncr.top/Article/details/3994172.shtml)
+- 2026-06-29 13:35 - [亚洲成世界杯最大失意者联盟](https://www.share.minike.top/Article/details/04656616715.shtml)
+- 2026-06-29 13:23 - [拄拐少年高考663分：用行动回报社会](https://www.blog.kurohicncr.top/Article/details/76462122156.shtml)
+- 2026-06-29 13:38 - [媒体人：警惕日本再次成战争加害国](https://www.share.minike.top/Article/details/91521.shtml)
+- 2026-06-29 13:45 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/58939229.shtml)
+- 2026-06-29 13:43 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](http://www.blog.kurohicncr.top/Article/details/16291.shtml)
+- 2026-06-29 13:25 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/14758.shtml)
+- 2026-06-29 13:32 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/44362211869.shtml)
+- 2026-06-29 13:36 - [成都至北京将新增动卧](https://www.blog.kurohicncr.top/Article/details/2280092.shtml)

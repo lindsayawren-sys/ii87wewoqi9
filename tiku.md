@@ -1,53 +1,53 @@
-# 里昂：新奥能源维持“跑赢大市”评级 目标价降至58.5港元
+# 伊朗中央银行：首笔霍尔木兹海峡通行费以“现金外汇”形式入账
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-里昂发布研报称，新奥能源（02688）母公司新奥股份（600803.SH）撤回私有化提案，相关沽盘触发股价近期下跌。该行认为股价已跌至具吸引力水平，预测2026年股息率达7%，目标价由75港元下调至58.5港元，现估值相当于预测今年市盈率6.3倍具吸引力，维持“跑赢大市”评级。该行降新奥今明两年盈测分别5%及22%，里昂预计新奥能源2026年纯利将同比增长18%至约69亿元人民
+总台记者23日获悉，伊朗中央银行证实，首笔对通过霍尔木兹海峡船只收取的通行费已经以“现金外汇”形式入账。此前，有消息称，伊朗以“加密货币”的形式收取霍尔木兹海峡通行费。 当天早些时候，伊朗伊斯兰议会副议长哈吉·巴巴埃表示，伊朗已收到首笔霍尔木兹海峡通行费，并已存入中央银行账户。（总台记者 李健南 王寅）责任编辑：郭建
 
 ## 正文
 
-里昂发布研报称，新奥能源（02688）母公司新奥股份（600803.SH）撤回私有化提案，相关沽盘触发股价近期下跌。
+总台记者23日获悉，伊朗中央银行证实，首笔对通过霍尔木兹海峡船只收取的通行费已经以“现金外汇”形式入账。
 
-该行认为股价已跌至具吸引力水平，预测2026年股息率达7%，目标价由75港元下调至58.5港元，现估值相当于预测今年市盈率6.3倍具吸引力，维持“跑赢大市”评级。
+此前，有消息称，伊朗以“加密货币”的形式收取霍尔木兹海峡通行费。
 
-该行降新奥今明两年盈测分别5%及22%，里昂预计新奥能源2026年纯利将同比增长18%至约69亿元人民币，主要受惠于批发燃气毛利达14亿元人民币的贡献。
+当天早些时候，伊朗伊斯兰议会副议长哈吉·巴巴埃表示，伊朗已收到首笔霍尔木兹海峡通行费，并已存入中央银行账户。
 
-责任编辑：卢昱君
+（总台记者 李健南 王寅）责任编辑：郭建
 
 ## 相关推荐
 
-- 2026-06-29 13:24 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-29 13:39 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-29 13:12 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 13:22 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiyou.md)
-- 2026-06-29 13:23 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-29 13:13 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/crrss.md)
-- 2026-06-29 13:36 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 13:19 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:18 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
-- 2026-06-29 13:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 13:36 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:40 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 13:15 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-29 13:29 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
-- 2026-06-29 13:29 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-29 13:35 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-29 13:37 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-29 13:44 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
+- 2026-06-29 13:44 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:38 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
+- 2026-06-29 13:28 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 13:26 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 13:37 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/trefu.md)
+- 2026-06-29 13:33 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 13:25 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:29 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiawo.md)
+- 2026-06-29 13:22 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 13:45 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
+- 2026-06-29 13:27 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 13:40 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzave.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [吴建豪老婆](https://www.share.kurohicncr.top/Article/details/538686386057.shtml)
-- 2026-06-29 13:13 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/71088.shtml)
-- 2026-06-29 13:25 - [青春环游记第三季](http://www.share.minike.top/Article/details/83620879719.shtml)
-- 2026-06-29 13:22 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/213522.shtml)
-- 2026-06-29 13:25 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/63104531.shtml)
-- 2026-06-29 13:29 - [绘画区你赢了](http://www.blog.kurohicncr.top/Article/details/911037778.shtml)
-- 2026-06-29 13:16 - [中方回应对日本相关出口管制措施](http://www.blog.kurohicncr.top/Article/details/4393602.shtml)
-- 2026-06-29 13:41 - [普京：俄面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/182319531.shtml)
-- 2026-06-29 13:26 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/201543774052.shtml)
-- 2026-06-29 13:31 - [一生一世](http://www.blog.kurohicncr.top/Article/details/88274673.shtml)
-- 2026-06-29 13:19 - [比亚迪为什么卖得越多市值越低](http://www.share.minike.top/Article/details/4189547053.shtml)
-- 2026-06-29 13:13 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.kurohicncr.top/Article/details/24565.shtml)
-- 2026-06-29 13:29 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/11263921747.shtml)
-- 2026-06-29 13:40 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.minike.top/Article/details/856589.shtml)
-- 2026-06-29 13:25 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/51298.shtml)
+- 2026-06-29 13:35 - [亚洲成世界杯最大失意者联盟](https://www.share.kurohicncr.top/Article/details/6900747.shtml)
+- 2026-06-29 13:41 - [在委侨团负责人：家乡的帮助很及时](http://www.share.minike.top/Article/details/3320784265.shtml)
+- 2026-06-29 13:29 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/17205.shtml)
+- 2026-06-29 13:32 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/834276.shtml)
+- 2026-06-29 13:46 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/7286189524.shtml)
+- 2026-06-29 13:47 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/38466.shtml)
+- 2026-06-29 13:47 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/860915205891.shtml)
+- 2026-06-29 13:19 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/610403114035.shtml)
+- 2026-06-29 13:26 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/68123367.shtml)
+- 2026-06-29 13:37 - [杨紫飞奔拥抱胡歌](https://www.blog.kurohicncr.top/Article/details/7867181.shtml)
+- 2026-06-29 13:39 - [网友偶遇胡军和李乃文](http://www.share.kurohicncr.top/Article/details/805630835.shtml)
+- 2026-06-29 13:18 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/069751574658.shtml)
+- 2026-06-29 13:47 - [流金岁月](https://www.share.minike.top/Article/details/880381965.shtml)
+- 2026-06-29 13:27 - [为什么欧洲人不装空调](http://www.blog.kurohicncr.top/Article/details/148012470586.shtml)
+- 2026-06-29 13:35 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.blog.kurohicncr.top/Article/details/90408.shtml)

@@ -1,61 +1,60 @@
-# 河南中欧班列首发土库曼斯坦 境外直达站点增至29个
+# 欧元区私营部门商业活动意外萎缩 服务业大幅下滑
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-【中亚专线】河南中欧班列首发土库曼斯坦 境外直达站点增至29个 中新社郑州6月19日电 (陈贵洋)一列河南中欧班列(中亚方向)19日从郑州国际陆港经开片区驶出，经由霍尔果斯口岸出境，横跨哈萨克斯坦，驶向土库曼斯坦巴尔坎州阿加拉站。这是班列首次直达土库曼斯坦境内铁路站点，至此其境外直达站点总数增至29个。 阿加拉站紧邻跨里海国际运输走廊与中亚过境枢纽，具备向高加索等地区延伸的潜力
+欧元区商业活动2024年底以来首次意外萎缩，伊朗战争给消费者带来压力，导致服务业大幅下滑。 标普全球编制的综合采购经理人指数（PMI） 4月份降至48.6，跌破50的荣枯分界线。上月数据为50.7，分析师此前预测跌至50.1。 这一趋势与德国类似，该国工业保持稳定，而服务业则大幅下滑。法国制造业表现超出预期，创下2022年以来最佳，但服务业也下滑。整个地区的物价压力持续上升。
 
 ## 正文
 
-【中亚专线】河南中欧班列首发土库曼斯坦 境外直达站点增至29个 中新社郑州6月19日电 (陈贵洋)一列河南中欧班列(中亚方向)19日从郑州国际陆港经开片区驶出，经由霍尔果斯口岸出境，横跨哈萨克斯坦，驶向土库曼斯坦巴尔坎州阿加拉站。
+欧元区商业活动2024年底以来首次意外萎缩，伊朗战争给消费者带来压力，导致服务业大幅下滑。
 
-这是班列首次直达土库曼斯坦境内铁路站点，至此其境外直达站点总数增至29个。
+标普全球编制的综合采购经理人指数（PMI） 4月份降至48.6，跌破50的荣枯分界线。
 
-阿加拉站紧邻跨里海国际运输走廊与中亚过境枢纽，具备向高加索等地区延伸的潜力，为未来拓展西亚及南高加索市场预留了发展空间。
+上月数据为50.7，分析师此前预测跌至50.1。
 
-这一线路的开通，也使河南优质农资、机械设备等可借此高效直达中亚新兴市场，进一步拓宽出口渠道、降低运输成本。
+这一趋势与德国类似，该国工业保持稳定，而服务业则大幅下滑。
 
-“此前河南开行的中亚方向班列主要覆盖哈萨克斯坦和乌兹别克斯坦。
+法国制造业表现超出预期，创下2022年以来最佳，但服务业也下滑。
 
-”河南中豫国际港务集团有限公司相关负责人表示，阿加拉站开通后，将进一步打通中亚西部及南部腹地物流通道，与既有中吉乌铁公联运线路形成互补，织密河南在中亚地区的服务网络。
+整个地区的物价压力持续上升。
 
-今年以来，河南中欧班列先后打通德国杜伊斯堡、阿富汗海拉顿、土库曼斯坦阿加拉3个直达站点及吐尔尕特出入境口岸，已建成覆盖29个境外直达站点、10个出入境口岸的骨干物流网络，辐射欧亚40个国家140余座城市，形成多通道、多元化运行格局。
+“欧元区正面临中东战争带来的日益严重的经济困境，这给政策制定者带来了巨大难题，”S&P Global Market Intelligence首席商业经济学家Chris Williamson周四在一份声明中表示。
 
-(完)
+“与此同时，日益普遍的供应短缺可能会进一步抑制经济增长，并在未来几周内给价格带来更大的上行压力。
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 13:27 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-29 13:15 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-29 13:34 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 13:30 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 13:23 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 13:40 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-29 13:30 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-29 13:37 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 13:22 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 13:14 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
-- 2026-06-29 13:35 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:25 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-29 13:33 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzuan.md)
-- 2026-06-29 13:20 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyvlb.md)
+- 2026-06-29 13:47 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 13:40 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aocui.md)
+- 2026-06-29 13:42 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
+- 2026-06-29 13:37 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 13:22 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kyijz.md)
+- 2026-06-29 13:31 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
+- 2026-06-29 13:34 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunteng.md)
+- 2026-06-29 13:25 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-29 13:31 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lxpjz.md)
+- 2026-06-29 13:41 - [拄拐少年高考663分：用行动回报社会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cghkc.md)
+- 2026-06-29 13:37 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:34 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
+- 2026-06-29 13:38 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:46 - [BW2026游览指南](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [韩媒破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/0380716.shtml)
-- 2026-06-29 13:23 - [沙特足协主席发布声明主动请辞](https://www.blog.minike.top/Article/details/88727565315.shtml)
-- 2026-06-29 13:41 - [加拿大受伤球员单腿跳进球场拥抱队友](http://www.blog.minike.top/Article/details/977483137.shtml)
-- 2026-06-29 13:38 - [古力娜扎美出新高度](https://www.blog.kurohicncr.top/Article/details/07656.shtml)
-- 2026-06-29 13:15 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/001478578214.shtml)
-- 2026-06-29 13:32 - [吴磊爱上回收了](https://www.blog.kurohicncr.top/Article/details/025145898.shtml)
-- 2026-06-29 13:13 - [委内瑞拉地震已致1450死3150伤](https://www.blog.minike.top/Article/details/4243253664.shtml)
-- 2026-06-29 13:26 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/922311082479.shtml)
-- 2026-06-29 13:40 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/91293361.shtml)
-- 2026-06-29 13:31 - [中国邮政上海分公司总经理李柏平被查](https://www.share.kurohicncr.top/Article/details/921713374545.shtml)
-- 2026-06-29 13:15 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/158692.shtml)
-- 2026-06-29 13:21 - [DeepSeek联合北京大学发布论文](https://www.share.minike.top/Article/details/030393946677.shtml)
-- 2026-06-29 13:12 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/80523819255.shtml)
-- 2026-06-29 13:29 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.kurohicncr.top/Article/details/569203646.shtml)
-- 2026-06-29 13:21 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/7620380727.shtml)
+- 2026-06-29 13:47 - [5万块的威力](https://www.share.minike.top/Article/details/305413270.shtml)
+- 2026-06-29 13:42 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/57689209.shtml)
+- 2026-06-29 13:47 - [大范围炎热天气将至](http://www.blog.minike.top/Article/details/8785623.shtml)
+- 2026-06-29 13:44 - [ENC瓦中国香港负印度数据图](https://www.blog.minike.top/Article/details/780439.shtml)
+- 2026-06-29 13:29 - [T1 vs KC MSI](http://www.share.kurohicncr.top/Article/details/37567220693.shtml)
+- 2026-06-29 13:22 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.minike.top/Article/details/635463887675.shtml)
+- 2026-06-29 13:20 - [海军舰艇编队将赴香港](https://www.share.minike.top/Article/details/32752401373.shtml)
+- 2026-06-29 13:29 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.minike.top/Article/details/7647746957.shtml)
+- 2026-06-29 13:26 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/19537.shtml)
+- 2026-06-29 13:33 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/8620339865.shtml)
+- 2026-06-29 13:23 - [绿化带上演“蛇吞蛙”翻车现场](http://www.share.kurohicncr.top/Article/details/85280839362.shtml)
+- 2026-06-29 13:39 - [大疆7月15日起涨价？公司回应](https://www.blog.minike.top/Article/details/30496435.shtml)
+- 2026-06-29 13:20 - [三系杂交稻到底有多牛](https://www.blog.kurohicncr.top/Article/details/51865654430.shtml)
+- 2026-06-29 13:36 - [沉睡花园](http://www.share.minike.top/Article/details/607018148.shtml)
+- 2026-06-29 13:39 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/946343302837.shtml)

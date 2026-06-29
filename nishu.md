@@ -1,54 +1,50 @@
-# 美军在加勒比海打击“贩毒船”致2人死亡
+# 中新健康｜别大意！有这5类情况就是肺癌高危人群
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-美军南方司令部当地时间21日发表声明说，美军当天在加勒比海打击了一艘“贩毒船”，船上2人被打死。 声明说，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上2名男性，无美军人员伤亡。 自2025年9月初以来，美军在加勒比海和东太平洋对美方指称的所谓“贩毒船”进行多次打击，并于当年11月13日宣布发起
+发布时间：2026年04月23日 22:10 来源：中国新闻网 4月23日，国家卫生健康委举行“介绍肿瘤预防及早筛相关健康知识”新闻发布会。上海市胸科医院主任医师韩宝惠在会上表示，肺癌的发生风险会随年龄增长而升高，一般来说，年龄在50岁以上，且合并任意一项高危因素者，被定义为肺癌高危人群，建议定期进行低剂量螺旋CT筛查。高危因素主要有五项：一是长期吸烟，即每天吸烟20支、连续2
 
 ## 正文
 
-美军南方司令部当地时间21日发表声明说，美军当天在加勒比海打击了一艘“贩毒船”，船上2人被打死。
+发布时间：2026年04月23日 22:10 来源：中国新闻网 4月23日，国家卫生健康委举行“介绍肿瘤预防及早筛相关健康知识”新闻发布会。
 
-声明说，根据美军南方司令部司令弗朗西斯·多诺万的命令，美军“南方之矛”联合特遣部队对一艘由“被认定的恐怖组织”运营的船只实施打击，打死船上2名男性，无美军人员伤亡。
+上海市胸科医院主任医师韩宝惠在会上表示，肺癌的发生风险会随年龄增长而升高，一般来说，年龄在50岁以上，且合并任意一项高危因素者，被定义为肺癌高危人群，建议定期进行低剂量螺旋CT筛查。
 
-自2025年9月初以来，美军在加勒比海和东太平洋对美方指称的所谓“贩毒船”进行多次打击，并于当年11月13日宣布发起“南方之矛”军事行动。
+高危因素主要有五项：一是长期吸烟，即每天吸烟20支、连续20年以上；二是被动吸烟超20年；三是患有慢性阻塞性肺疾病、慢性肺间质纤维化等肺部疾病；四是工作中接触石棉、氡气等有害物质至少1年；五是亲属有恶性肿瘤史。
 
-然而，美国政府一直未公布任何可以证明其攻击目标涉毒的证据。
-
-(央视新闻客户端)
+(张静) 责任编辑：【宋宇晟】
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 13:20 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 13:23 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 13:23 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 13:19 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 13:40 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 13:32 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 13:39 - [张亚中：以中山精神为桥凝聚血脉认同](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-29 13:32 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 13:12 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-29 13:30 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-29 13:32 - [孙怡告别浪姐千字文](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knqmr.md)
-- 2026-06-29 13:17 - [BW2026游览指南](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/siduan.md)
-- 2026-06-29 13:24 - [美伊同意停止互袭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-29 13:46 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-29 13:47 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
+- 2026-06-29 13:28 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-29 13:22 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 13:29 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:40 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mfven.md)
+- 2026-06-29 13:20 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-29 13:41 - [2026年Mac能玩游戏了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 13:31 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-29 13:30 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 13:27 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 13:22 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/8257120699.shtml)
-- 2026-06-29 13:29 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/716613828699.shtml)
-- 2026-06-29 13:24 - [开电动汽车真的很省钱吗？](https://www.blog.minike.top/Article/details/7954971410.shtml)
-- 2026-06-29 13:17 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.minike.top/Article/details/65070.shtml)
-- 2026-06-29 13:33 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/7516032080.shtml)
-- 2026-06-29 13:15 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/4143753289.shtml)
-- 2026-06-29 13:27 - [东部机场集团新增釜山航线](https://www.share.minike.top/Article/details/184218.shtml)
-- 2026-06-29 13:38 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/87284.shtml)
-- 2026-06-29 13:38 - [委内瑞拉地震已致1450死3150伤](https://www.blog.kurohicncr.top/Article/details/1452611.shtml)
-- 2026-06-29 13:32 - [一生一世](https://www.blog.minike.top/Article/details/379522.shtml)
-- 2026-06-29 13:31 - [中方将20家日本实体列入关注名单](http://www.blog.kurohicncr.top/Article/details/5994486781.shtml)
-- 2026-06-29 13:25 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/57099147.shtml)
-- 2026-06-29 13:40 - [马杜罗社交媒体账号再发文](https://www.blog.kurohicncr.top/Article/details/911245333392.shtml)
-- 2026-06-29 13:28 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.kurohicncr.top/Article/details/793254544571.shtml)
-- 2026-06-29 13:34 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/05453.shtml)
+- 2026-06-29 13:36 - [高考志愿今起开始填报](https://www.blog.kurohicncr.top/Article/details/2889493432.shtml)
+- 2026-06-29 13:20 - [唐艺昕女儿接唐艺昕回家](https://www.blog.kurohicncr.top/Article/details/54430910585.shtml)
+- 2026-06-29 13:24 - [小娘惹](http://www.share.kurohicncr.top/Article/details/863692.shtml)
+- 2026-06-29 13:23 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/677174.shtml)
+- 2026-06-29 13:18 - [高市早苗口齿不清被质疑醉酒](http://www.blog.kurohicncr.top/Article/details/40149712237.shtml)
+- 2026-06-29 13:43 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/9327874211.shtml)
+- 2026-06-29 13:36 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/6381549879.shtml)
+- 2026-06-29 13:44 - [功率半导体缺货涨价](https://www.blog.kurohicncr.top/Article/details/310184488.shtml)
+- 2026-06-29 13:33 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/3587485.shtml)
+- 2026-06-29 13:44 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.blog.minike.top/Article/details/120530094.shtml)
+- 2026-06-29 13:46 - [成都至北京将新增动卧](http://www.share.kurohicncr.top/Article/details/1235991.shtml)
+- 2026-06-29 13:26 - [农发行总行专家委员会委员杜晓力被查](https://www.share.minike.top/Article/details/48540.shtml)
+- 2026-06-29 13:41 - [第一批缉毒警已全体退休](http://www.share.kurohicncr.top/Article/details/04338051.shtml)
+- 2026-06-29 13:40 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/054981.shtml)
+- 2026-06-29 13:38 - [海清白玉兰奖运](https://www.share.minike.top/Article/details/97930780474.shtml)

@@ -1,60 +1,61 @@
-# 映日荷花别样红 重庆园博园荷花绽放吸引游客打卡拍照
+# 东西问｜诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！孔子为什么说“温故而知新”？喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一
+中新网北京4月23日电 题：诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力 作者 贺劭清 李嘉茵 “波斯大地不因世间的苦难而悲伤，只要有神荫如你般笼罩其上。哦，主啊，请从风暴中守护这片土地——只要土地长存，风暴亦将永恒。” 4月21日，美伊两周停火来到了最后时刻。面对“摧毁一切”的威胁，伊朗总统佩泽希齐扬在社交平台分享了一段诗句——出自古波斯诗人萨迪之手。 波斯，有
 
 ## 正文
 
-五天三地，敏昂莱访华亮点受关注杨浣：多元共生间，端午习俗蕴藏着怎样的传承密码？
+中新网北京4月23日电 题：诗句挂在联合国，炸弹落在德黑兰：风暴中，诗歌最无力也最有力 作者 贺劭清 李嘉茵 “波斯大地不因世间的苦难而悲伤，只要有神荫如你般笼罩其上。
 
-高晓攀：算法时代，也要苦练曲艺基本功甜粽与咸粽，谁出现得更早？
+哦，主啊，请从风暴中守护这片土地——只要土地长存，风暴亦将永恒。
 
-评论：“张凌赫现象”凸显两岸同胞可以“双向奔赴”除了甜咸粽子，端午还有这些不一样！
+” 4月21日，美伊两周停火来到了最后时刻。
 
-孔子为什么说“温故而知新”？
+面对“摧毁一切”的威胁，伊朗总统佩泽希齐扬在社交平台分享了一段诗句——出自古波斯诗人萨迪之手。
 
-喧闹的笼斗之夜：当八角笼擂台被搬到白宫西方政要精英争相“被同化”？
+波斯，有诗国之名。
 
-特朗普宣告：我是老大；七国未能达成联合公报……一文速览G7峰会一半闽南味，一半潮汕风：解锁一头牛的N种吃法专家详解携程千万罚单背后：数据出境的合规漏洞出在哪？
+萨迪，是诗国最伟大的诗人之一。
 
-十届南博会，一叶清茶何以架起文明对话之桥？
+八个世纪前，半生颠沛流离的萨迪游历埃及、阿拉伯、印度等地，历经战乱与磨难，用一生的见闻与哲思为波斯文明写下了温柔一笔。
 
-中国沙漠治理经验，如何与世界共享？
+从十字军东征到美以伊战事，风暴在中东从未停歇，而萨迪的诗歌也在这片土地传唱至今。
 
 ## 相关推荐
 
-- 2026-06-29 13:26 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-29 13:39 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/toveq.md)
-- 2026-06-29 13:35 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 13:18 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjnme.md)
-- 2026-06-29 13:35 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
-- 2026-06-29 13:30 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 13:18 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 13:34 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 13:18 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
-- 2026-06-29 13:39 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-29 13:23 - [高考公平需要延伸到志愿填报这一环](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iwbcr.md)
-- 2026-06-29 13:12 - [F1奥地利大奖赛正赛集锦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 13:32 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-29 13:19 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
+- 2026-06-29 13:39 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 13:34 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-29 13:43 - [宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:25 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 13:18 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-29 13:22 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvfck.md)
+- 2026-06-29 13:32 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 13:23 - [DeepSeek联合北京大学发布论文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-29 13:48 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
+- 2026-06-29 13:24 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 13:29 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-29 13:28 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
+- 2026-06-29 13:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 13:47 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
+- 2026-06-29 13:26 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:26 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/9945202.shtml)
-- 2026-06-29 13:34 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/1405986.shtml)
-- 2026-06-29 13:26 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/9112610888.shtml)
-- 2026-06-29 13:29 - [汪东城回应45岁婚约](https://www.blog.minike.top/Article/details/03644831.shtml)
-- 2026-06-29 13:18 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/827238888.shtml)
-- 2026-06-29 13:26 - [2025年人口增长10强城市出炉](https://www.share.minike.top/Article/details/9396889504.shtml)
-- 2026-06-29 13:25 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/5533772.shtml)
-- 2026-06-29 13:38 - [吴建豪老婆](https://www.blog.kurohicncr.top/Article/details/979112542.shtml)
-- 2026-06-29 13:32 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/58172.shtml)
-- 2026-06-29 13:14 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/002754810653.shtml)
-- 2026-06-29 13:25 - [高考志愿今起开始填报](http://www.blog.minike.top/Article/details/48346.shtml)
-- 2026-06-29 13:41 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/66643630113.shtml)
-- 2026-06-29 13:37 - [中方将20家日本实体列入关注名单](https://www.blog.kurohicncr.top/Article/details/234352304.shtml)
-- 2026-06-29 13:16 - [我们注定是一撮县城葱姜蒜](https://www.blog.kurohicncr.top/Article/details/64556600314.shtml)
-- 2026-06-29 13:23 - [爱情有烟火你是知道我爱看什么的](https://www.blog.kurohicncr.top/Article/details/114738578145.shtml)
+- 2026-06-29 13:41 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/305696389427.shtml)
+- 2026-06-29 13:36 - [刘仲华院士愿当贺永辉导师](http://www.blog.kurohicncr.top/Article/details/441886634133.shtml)
+- 2026-06-29 13:34 - [女心理师](https://www.blog.kurohicncr.top/Article/details/115773606.shtml)
+- 2026-06-29 13:25 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/25889.shtml)
+- 2026-06-29 13:33 - [李连杰回应网传不管前妻俩女儿](https://www.blog.minike.top/Article/details/698459025.shtml)
+- 2026-06-29 13:42 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/9948349.shtml)
+- 2026-06-29 13:41 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/74042.shtml)
+- 2026-06-29 13:46 - [首届《哈基米歌王争霸赛》总决赛](https://www.share.minike.top/Article/details/515144193157.shtml)
+- 2026-06-29 13:38 - [伊朗球员致歉](http://www.blog.kurohicncr.top/Article/details/72981003.shtml)
+- 2026-06-29 13:46 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/189691.shtml)
+- 2026-06-29 13:20 - [毕业寄几百斤快递回家女生发声](http://www.blog.kurohicncr.top/Article/details/2371453909.shtml)
+- 2026-06-29 13:39 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/96153.shtml)
+- 2026-06-29 13:46 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/7472428.shtml)
+- 2026-06-29 13:36 - [小娘惹](http://www.share.kurohicncr.top/Article/details/10337.shtml)
+- 2026-06-29 13:45 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/24791849347.shtml)

@@ -1,61 +1,53 @@
-# 创新生态聚引力，外资行看多中国资产
+# 快手电商：全面助力新商成长，618将推出一系列中小商家激励计划
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社记者任军 多家外资行近期表示，中国经济韧性凸显，新质生产力加速形成，全球资本对中国市场的信心攀升，境外投资者增持中国资产的意愿持续增强。 “对外资而言，中国资产已从‘是否配置’转向‘如何配置’。”瑞银集团中国区总裁、瑞银证券董事长胡知鸷表示。 瑞银证券全球投资银行部联席主管谌戈介绍，从瑞银今年上半年参
+新浪科技讯 4月23日下午消息，在618商家大会上，快手电商系统呈现了平台最新发展成果。据介绍，2025年第四季度，平台入驻新商数环比增长24%，商家首销成功率70%，新商整体GMV环比增长85%，GMV超150万的新商数环比增长43%。 快手电商方面称，今年以来，平台围绕新商入驻、冷启、成长、跃迁等全周期，从惠商政策、运营产品、经营保障、营销活动等维度，全面助力新商成长。61
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+新浪科技讯 4月23日下午消息，在618商家大会上，快手电商系统呈现了平台最新发展成果。
 
-新华社记者任军 多家外资行近期表示，中国经济韧性凸显，新质生产力加速形成，全球资本对中国市场的信心攀升，境外投资者增持中国资产的意愿持续增强。
+据介绍，2025年第四季度，平台入驻新商数环比增长24%，商家首销成功率70%，新商整体GMV环比增长85%，GMV超150万的新商数环比增长43%。
 
-“对外资而言，中国资产已从‘是否配置’转向‘如何配置’。
+快手电商方面称，今年以来，平台围绕新商入驻、冷启、成长、跃迁等全周期，从惠商政策、运营产品、经营保障、营销活动等维度，全面助力新商成长。
 
-”瑞银集团中国区总裁、瑞银证券董事长胡知鸷表示。
+618大促期间，平台还将通过一系列流量和现金激励计划，助力中小商家大促破峰。
 
-瑞银证券全球投资银行部联席主管谌戈介绍，从瑞银今年上半年参与的IPO、定增、可转债项目来看，不论是摩根大通、富达投资等西方长线资金，还是卡塔尔投资局、阿布扎比投资局等中东主权基金，都在布局中国资产方面展现出活跃态度。
-
-不少机构都是首次参与港股的基石投资，这意味着它们要接受6个月锁定期限制，显示出对所投标的的信心。
-
-中国经济的稳定性、确定性及强大创新动能已成为配置中国资产的重要驱动力。
-
-“不论是AI大模型，还是AI基础设施的产业链投资，中国都有很好的投资标的。
+责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:37 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-29 13:14 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 13:20 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-29 13:28 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:26 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-29 13:25 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 13:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-29 13:32 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-29 13:36 - [青春环游记第三季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 13:36 - [赵今麦客串电影版开端](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-29 13:27 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 13:39 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 13:20 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-29 13:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 13:13 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 13:37 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 13:22 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-29 13:22 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
+- 2026-06-29 13:31 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 13:20 - [伊朗球员致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-29 13:45 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
+- 2026-06-29 13:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-29 13:36 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
+- 2026-06-29 13:21 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
+- 2026-06-29 13:42 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 13:39 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaozhuang.md)
+- 2026-06-29 13:35 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:37 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:12 - [欧洲超1300例超额死亡与高温有关](http://www.blog.minike.top/Article/details/48205.shtml)
-- 2026-06-29 13:32 - [如果你一直单身，你准备怎么养老？](http://www.share.kurohicncr.top/Article/details/765418.shtml)
-- 2026-06-29 13:35 - [刘烨16岁儿子诺一颜值](https://www.blog.kurohicncr.top/Article/details/56342498652.shtml)
-- 2026-06-29 13:13 - [双高胎](https://www.blog.minike.top/Article/details/659924269836.shtml)
-- 2026-06-29 13:28 - [谢霆锋演唱会变大型呲水现场](http://www.blog.kurohicncr.top/Article/details/715357553309.shtml)
-- 2026-06-29 13:40 - [在家赤身裸体是否绝对自由](https://www.blog.minike.top/Article/details/7946836.shtml)
-- 2026-06-29 13:20 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/7481948400.shtml)
-- 2026-06-29 13:20 - [女子遭家暴两次起诉离婚均被驳回](https://www.share.minike.top/Article/details/293186.shtml)
-- 2026-06-29 13:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/23075600443.shtml)
-- 2026-06-29 13:38 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.kurohicncr.top/Article/details/80829.shtml)
-- 2026-06-29 13:26 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/14152434.shtml)
-- 2026-06-29 13:17 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/17253310005.shtml)
-- 2026-06-29 13:32 - [普京：俄面临命运攸关时刻](http://www.blog.minike.top/Article/details/269173819.shtml)
-- 2026-06-29 13:29 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/768559829634.shtml)
-- 2026-06-29 13:30 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/226924588.shtml)
+- 2026-06-29 13:36 - [手机代码竟有测评博主名字！央视曝手机测评“作弊”乱象](https://www.share.minike.top/Article/details/434100469.shtml)
+- 2026-06-29 13:32 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://www.blog.kurohicncr.top/Article/details/19346578169.shtml)
+- 2026-06-29 13:47 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/7267606952.shtml)
+- 2026-06-29 13:47 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/29959864611.shtml)
+- 2026-06-29 13:42 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/93313846.shtml)
+- 2026-06-29 13:34 - [加拿大92分钟绝杀南非](https://www.share.kurohicncr.top/Article/details/49581787388.shtml)
+- 2026-06-29 13:21 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/70118797397.shtml)
+- 2026-06-29 13:25 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.share.kurohicncr.top/Article/details/050622.shtml)
+- 2026-06-29 13:22 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/72496269835.shtml)
+- 2026-06-29 13:39 - [小S在香港被偶遇](https://www.share.minike.top/Article/details/19569.shtml)
+- 2026-06-29 13:46 - [毕业寄几百斤快递回家女生发声](https://www.blog.minike.top/Article/details/54187437625.shtml)
+- 2026-06-29 13:22 - [葫芦岛居民楼爆炸致3失联8伤](http://www.blog.minike.top/Article/details/026117.shtml)
+- 2026-06-29 13:45 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/90418.shtml)
+- 2026-06-29 13:18 - [急先锋](http://www.share.kurohicncr.top/Article/details/2428991374.shtml)
+- 2026-06-29 13:36 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/05476123684.shtml)

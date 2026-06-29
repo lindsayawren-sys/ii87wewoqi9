@@ -1,60 +1,51 @@
-# 前Meta首席AI科学家杨立昆：马斯克的xAI已失败，只能靠出租算力来收回成本
+# 欧洲央行管委Kocher：现在预测下周的利率决策还为时过早
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-前Meta首席AI科学家、AMI Labs创始人杨立昆（Yann LeCun）最近在一次采访中表示，埃隆·马斯克的人工智能初创公司xAI是一个“失败”，无法在人工智能前沿领域展开竞争。他还阐述了自己对可能导致该行业“泡沫破裂”的看法。 杨立昆的言论再次引发了他与马斯克之间由来已久的争论，并令一些全球最大的人工智能公司的估值蒙受质疑。 过去几年里，杨立昆与马斯克在人工智能以及他所
+欧洲央行管理委员会成员Martin Kocher表示，由于围绕伊朗战争的不确定性，他目前还无法预测该行4月29日至30日在法兰克福的利率决策会议将做出什么决定。 他周三在维也纳对记者表示，鉴于中东局势的发展——局势每天都在变化，“尽管距离会议还有一周时间，但现在就说届时会作出什么决定，实际上还为时过早”。 “我们有一项明确的政策，即每次会议逐次作出决定，”他说。“这意味着下周将
 
 ## 正文
 
-前Meta首席AI科学家、AMI Labs创始人杨立昆（Yann LeCun）最近在一次采访中表示，埃隆·马斯克的人工智能初创公司xAI是一个“失败”，无法在人工智能前沿领域展开竞争。
+欧洲央行管理委员会成员Martin Kocher表示，由于围绕伊朗战争的不确定性，他目前还无法预测该行4月29日至30日在法兰克福的利率决策会议将做出什么决定。
 
-他还阐述了自己对可能导致该行业“泡沫破裂”的看法。
+他周三在维也纳对记者表示，鉴于中东局势的发展——局势每天都在变化，“尽管距离会议还有一周时间，但现在就说届时会作出什么决定，实际上还为时过早”。
 
-杨立昆的言论再次引发了他与马斯克之间由来已久的争论，并令一些全球最大的人工智能公司的估值蒙受质疑。
+“我们有一项明确的政策，即每次会议逐次作出决定，”他说。
 
-过去几年里，杨立昆与马斯克在人工智能以及他所称的特斯拉CEO在社交媒体上散布的“阴谋论”等诸多话题上都存在分歧。
+“这意味着下周将会作出决定，依据是到下周中可获得的数据。
 
-而马斯克则指责杨立昆“长期以来对人工智能一无所知”。
-
-杨立昆在最近的采访中表示：“坦白说，xAI在某种程度上算是失败了，因为创始团队已经解散了， “埃隆现在处境非常艰难，很难招到人工智能领域的顶尖人才，因为他对待之前的团队的方式不太好。
-
-” 过去一年，xAI 的几位联合创始人相继离开了公司。
-
-今年2月，马斯克将SpaceX与xAI合并，这笔巨额交易对xAI的估值高达1.25万亿美元。
+”责任编辑：江学思
 
 ## 相关推荐
 
-- 2026-06-29 13:38 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
-- 2026-06-29 13:15 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 13:30 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
-- 2026-06-29 13:29 - [向佑说向佐是一生依靠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 13:19 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-29 13:15 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 13:36 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
-- 2026-06-29 13:12 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
-- 2026-06-29 13:12 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
-- 2026-06-29 13:13 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 13:23 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-29 13:17 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 13:26 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 13:20 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-29 13:46 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
+- 2026-06-29 13:31 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 13:18 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 13:27 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggmey.md)
+- 2026-06-29 13:37 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-29 13:18 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-29 13:32 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 13:45 - [恋与深空需直面玩家6大疑问](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
+- 2026-06-29 13:30 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 13:18 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 13:46 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:14 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/246748922088.shtml)
-- 2026-06-29 13:37 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/764288.shtml)
-- 2026-06-29 13:31 - [DSpark论文深度解读](http://www.blog.kurohicncr.top/Article/details/292257584821.shtml)
-- 2026-06-29 13:13 - [第一批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/851177262.shtml)
-- 2026-06-29 13:34 - [日本和澳大利亚能代表亚洲足球走多远](http://www.share.minike.top/Article/details/0121096.shtml)
-- 2026-06-29 13:34 - [宜宾地震致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/22149.shtml)
-- 2026-06-29 13:34 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/0712390.shtml)
-- 2026-06-29 13:23 - [毕业寄几百斤快递回家女生发声](https://www.share.kurohicncr.top/Article/details/89372324.shtml)
-- 2026-06-29 13:30 - [【Doro】史前一万年 第一季30分钟超长修正版「但是小人国」](https://www.blog.kurohicncr.top/Article/details/218558.shtml)
-- 2026-06-29 13:38 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.share.minike.top/Article/details/273236360968.shtml)
-- 2026-06-29 13:41 - [东部机场集团新增釜山航线](http://www.blog.minike.top/Article/details/5998592048.shtml)
-- 2026-06-29 13:40 - [本周做什么都顺的星座](https://www.share.minike.top/Article/details/94975164097.shtml)
-- 2026-06-29 13:36 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/02637964860.shtml)
-- 2026-06-29 13:23 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/50165.shtml)
-- 2026-06-29 13:14 - [古力娜扎美出新高度](https://www.blog.minike.top/Article/details/49873331.shtml)
+- 2026-06-29 13:25 - [哈兰德这该死的胜负欲](https://www.blog.kurohicncr.top/Article/details/423907433105.shtml)
+- 2026-06-29 13:26 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.kurohicncr.top/Article/details/0662591894.shtml)
+- 2026-06-29 13:44 - [异世界一点都不好玩！](https://www.share.minike.top/Article/details/04279.shtml)
+- 2026-06-29 13:42 - [李连杰否认不管前妻两女儿](https://www.blog.kurohicncr.top/Article/details/39365.shtml)
+- 2026-06-29 13:38 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/42092323812.shtml)
+- 2026-06-29 13:23 - [双高胎](http://www.blog.minike.top/Article/details/0628802713.shtml)
+- 2026-06-29 13:45 - [多只A股发布股价异动公告](http://www.share.minike.top/Article/details/009378476.shtml)
+- 2026-06-29 13:39 - [尽量少用玻璃吸管](http://www.blog.kurohicncr.top/Article/details/947836.shtml)
+- 2026-06-29 13:35 - [陈靖可虞书欣领衔主演](http://www.share.minike.top/Article/details/100349.shtml)
+- 2026-06-29 13:47 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/882339.shtml)
+- 2026-06-29 13:33 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.blog.kurohicncr.top/Article/details/295373696511.shtml)
+- 2026-06-29 13:26 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.minike.top/Article/details/73005.shtml)
+- 2026-06-29 13:25 - [爱情有烟火你是知道我爱看什么的](http://www.share.minike.top/Article/details/06138799.shtml)
+- 2026-06-29 13:44 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/261076.shtml)
+- 2026-06-29 13:43 - [世界田联钻石联赛巴黎站严子怡夺冠](http://www.blog.minike.top/Article/details/3130075021.shtml)

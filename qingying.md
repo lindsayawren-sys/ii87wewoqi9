@@ -1,57 +1,46 @@
-# 2026年APEC工商领导人中国论坛在北京举行
+# T-Mobile因交易传闻上涨
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-2026年APEC工商领导人中国论坛昨天(21日)在北京举行。今年是APEC“中国年”，与会嘉宾表示，要坚定维护以世界贸易组织为核心的多边贸易体制，反对单边主义和保护主义，持续推进贸易和投资自由化便利化。 据介绍，今年在中方倡议和各方广泛支持下，APEC工商咨询理事会时隔8年恢复设立互联互通工作组，并发表了关于支持亚太自贸区和互联互通两份声明。 2026年APEC工商领导人峰会
+有报道称德国电信正评估通过新的控股公司架构进行全面合并，T-Mobile US股价随之走高。责任编辑：张俊 SF065
 
 ## 正文
 
-2026年APEC工商领导人中国论坛昨天(21日)在北京举行。
+有报道称德国电信正评估通过新的控股公司架构进行全面合并，T-Mobile US股价随之走高。
 
-今年是APEC“中国年”，与会嘉宾表示，要坚定维护以世界贸易组织为核心的多边贸易体制，反对单边主义和保护主义，持续推进贸易和投资自由化便利化。
-
-据介绍，今年在中方倡议和各方广泛支持下，APEC工商咨询理事会时隔8年恢复设立互联互通工作组，并发表了关于支持亚太自贸区和互联互通两份声明。
-
-2026年APEC工商领导人峰会主席、中国贸促会会长 任鸿斌：这充分表明各方对于加强各领域互联互通的共同期盼。
-
-我们要用足用好RCEP等各类区域自贸协定，推动制定升级版APEC互联互通蓝图，不断做实做细硬联通、软联通、心联通，助力人员、货物、资金、数据安全有序流动，构建起更加紧密的产业链、供应链。
-
-亚太地区作为世界经济重要增长极，占世界人口总量的1/3，占世界经济总量超六成，贸易总量近一半。
-
-亚太地区在供应链领域开展的每一项合作、作出的每一个抉择，都将对世界经济增长产生重大影响。
-
-论坛上，与会嘉宾围绕“区域经济一体化”“互联互通”“人工智能”等区域经贸合作热点议题，展开深入探讨，为推动构建开放包容、创新增长、互联互通、合作共赢的亚太命运共同体贡献工商界智慧。
+责任编辑：张俊 SF065
 
 ## 相关推荐
 
-- 2026-06-29 13:27 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 13:20 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 13:34 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 13:18 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-29 13:15 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 13:20 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-29 13:31 - [世界杯打成了欧洲杯和美洲杯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shouchuang.md)
-- 2026-06-29 13:39 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
-- 2026-06-29 13:30 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 13:16 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 13:30 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 13:33 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 13:18 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
+- 2026-06-29 13:27 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 13:20 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-29 13:28 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 13:33 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-29 13:45 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-29 13:28 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 13:28 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-29 13:19 - [巴基斯坦军方打死29名武装分子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-29 13:46 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
+- 2026-06-29 13:20 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:21 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/897053.shtml)
-- 2026-06-29 13:25 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/846181254950.shtml)
-- 2026-06-29 13:23 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/002193548.shtml)
-- 2026-06-29 13:24 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/490688.shtml)
-- 2026-06-29 13:26 - [吴海燕兰西雅漫步复兴岛](http://www.blog.kurohicncr.top/Article/details/629167.shtml)
-- 2026-06-29 13:25 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/20496694666.shtml)
-- 2026-06-29 13:26 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/264399700494.shtml)
-- 2026-06-29 13:20 - [吴海燕兰西雅漫步复兴岛](https://www.share.kurohicncr.top/Article/details/29908.shtml)
-- 2026-06-29 13:28 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/797301.shtml)
-- 2026-06-29 13:14 - [广州某高校辟谣禁止小米汽车入校](https://www.share.minike.top/Article/details/9627917.shtml)
-- 2026-06-29 13:20 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/0317225299.shtml)
-- 2026-06-29 13:18 - [内马尔能上场15分钟](https://www.blog.kurohicncr.top/Article/details/895545695489.shtml)
-- 2026-06-29 13:26 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/5200650.shtml)
-- 2026-06-29 13:24 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/6473594452.shtml)
-- 2026-06-29 13:41 - [加拿大92分钟绝杀南非](https://www.share.minike.top/Article/details/376395049429.shtml)
+- 2026-06-29 13:46 - [世界杯超牛补水广告出现了](https://www.blog.minike.top/Article/details/957445.shtml)
+- 2026-06-29 13:40 - [中方将20家日本实体列入关注名单](http://www.share.kurohicncr.top/Article/details/014070.shtml)
+- 2026-06-29 13:21 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.kurohicncr.top/Article/details/67514751.shtml)
+- 2026-06-29 13:24 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.blog.kurohicncr.top/Article/details/332456574.shtml)
+- 2026-06-29 13:25 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/366350713565.shtml)
+- 2026-06-29 13:44 - [女儿称是生父强奸所生拒付赡养费](https://www.blog.minike.top/Article/details/209879.shtml)
+- 2026-06-29 13:43 - [高考公平需要延伸到志愿填报这一环](https://www.share.kurohicncr.top/Article/details/659832738.shtml)
+- 2026-06-29 13:39 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/343688069591.shtml)
+- 2026-06-29 13:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/36976386281.shtml)
+- 2026-06-29 13:23 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.blog.minike.top/Article/details/24316066951.shtml)
+- 2026-06-29 13:19 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/861664029.shtml)
+- 2026-06-29 13:38 - [哈基米歌王争霸赛](http://www.blog.minike.top/Article/details/48226.shtml)
+- 2026-06-29 13:45 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/20794.shtml)
+- 2026-06-29 13:32 - [比亚迪为什么卖得越多市值越低](https://www.blog.minike.top/Article/details/409730.shtml)
+- 2026-06-29 13:25 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/103011078650.shtml)

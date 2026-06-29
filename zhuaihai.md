@@ -1,61 +1,59 @@
-# 溜溜梅盘中涨超19%创上市新高 较招股价已涨超270%
+# 从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈”
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-溜溜梅（06658）涨超19%，高见165港元，创上市新高，较招股价43.58港元已涨超2.7倍。截至发稿，股价上涨16.55%，现报160.60港元，成交额5725.90万港元。 据悉，溜溜梅是一家专注于青梅产品的果类零食公司。自2001年推出经典品牌“溜溜梅”以来，公司致力于深耕青梅产品行业技术，挖掘青梅酸味的美食潜力。根据弗若斯特沙利文的资料，于2024年，公司在中国果类
+中新网杭州4月23日电 题：从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈” 作者 林波 曹丹 孙琳茹 拿破仑的军事手谕、卢梭未发表的法律文书、莫奈的艺术札记……这些墨迹斑驳的纸页，不仅是历史的鲜活证物，更是阅读行为的生动见证。它们诞生于沉思、对话、抗争与创造之中，唯有通过深度阅读，才能重焕生机。 4月23日是世界阅读日，在浙江大学(下称“浙大”)图书馆主馆展厅，“法兰西
 
 ## 正文
 
-溜溜梅（06658）涨超19%，高见165港元，创上市新高，较招股价43.58港元已涨超2.7倍。
+中新网杭州4月23日电 题：从法国名家手稿展到MBTI荐书 浙大这样让阅读“破圈” 作者 林波 曹丹 孙琳茹 拿破仑的军事手谕、卢梭未发表的法律文书、莫奈的艺术札记……这些墨迹斑驳的纸页，不仅是历史的鲜活证物，更是阅读行为的生动见证。
 
-截至发稿，股价上涨16.55%，现报160.60港元，成交额5725.90万港元。
+它们诞生于沉思、对话、抗争与创造之中，唯有通过深度阅读，才能重焕生机。
 
-据悉，溜溜梅是一家专注于青梅产品的果类零食公司。
+4月23日是世界阅读日，在浙江大学(下称“浙大”)图书馆主馆展厅，“法兰西文心与阅读之光——法国名人名家手稿珍品展”正在举行，35件跨越三个世纪的珍贵手稿，将师生带入一场与历史对话、与思想对坐的文化盛宴。
 
-自2001年推出经典品牌“溜溜梅”以来，公司致力于深耕青梅产品行业技术，挖掘青梅酸味的美食潜力。
+据浙大图书馆党委书记兼副馆长王苑介绍，这场展览是2026年“书香浙大”阅读文化节“览见新知”板块的重要组成部分。
 
-根据弗若斯特沙利文的资料，于2024年，公司在中国果类零食行业的零售额排名第一，市场份额达4.9%。
+本届阅读文化节以“书香引航”“共读共振”“览见新知”三大板块为支撑，依托这座拥有12个分馆体系的高校图书馆，践行“时时、处处、人人皆可阅读”的理念，让阅读成为一种生活方式。
 
-公司的梅冻自2019年推出以来，迅速抓住了消费者群体的注意力。
+“我们鼓励学生走进历史深处，同时积极参与中外文化交流、中西文明互鉴。
 
-于2024年，公司在中国天然成分果冻行业（按零售额计）排名第一，市场份额为45.7%。
+”王苑介绍，展览还展示了包括浙大法国研究院首席专家许钧翻译《追忆似水年华》的手稿等研究成果。
 
-责任编辑：卢昱君
+“阅读更重要的是有所输出，把自己的感受通过文字表达出来，这样也有助于更好地深入思考。
 
 ## 相关推荐
 
-- 2026-06-29 13:39 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 13:20 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-29 13:14 - [普京称俄处于命运攸关之际](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
-- 2026-06-29 13:38 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 13:21 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
-- 2026-06-29 13:21 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-29 13:26 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-29 13:36 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 13:41 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
-- 2026-06-29 13:27 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/topzm.md)
-- 2026-06-29 13:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
-- 2026-06-29 13:41 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
-- 2026-06-29 13:26 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 13:13 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 13:18 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 13:19 - [广州某高校辟谣禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 13:38 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
+- 2026-06-29 13:25 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-29 13:40 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
+- 2026-06-29 13:40 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 13:43 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
+- 2026-06-29 13:18 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-29 13:18 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 13:23 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovswh.md)
+- 2026-06-29 13:20 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-29 13:21 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-29 13:24 - [向佑说向佐是一生依靠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
+- 2026-06-29 13:42 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:30 - [杨紫《生命树》播放量破百亿](https://www.blog.minike.top/Article/details/2705097.shtml)
-- 2026-06-29 13:16 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/349840649056.shtml)
-- 2026-06-29 13:34 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/6601438335.shtml)
-- 2026-06-29 13:27 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/46271.shtml)
-- 2026-06-29 13:16 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/049217103711.shtml)
-- 2026-06-29 13:13 - [美人鱼](http://www.blog.kurohicncr.top/Article/details/3965817890.shtml)
-- 2026-06-29 13:22 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](http://www.share.minike.top/Article/details/324101.shtml)
-- 2026-06-29 13:21 - [王祖蓝现场观看美加墨世界杯](http://www.blog.minike.top/Article/details/52816817.shtml)
-- 2026-06-29 13:33 - [世界杯看台惊现一群“哈兰德”](http://www.share.minike.top/Article/details/809259051.shtml)
-- 2026-06-29 13:22 - [宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/6521493786.shtml)
-- 2026-06-29 13:15 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/9311427.shtml)
-- 2026-06-29 13:34 - [赵露思爸爸拍vlog“翻车”](http://www.share.kurohicncr.top/Article/details/258288.shtml)
-- 2026-06-29 13:26 - [佛得角到底在哪个“角”](https://www.share.kurohicncr.top/Article/details/843545817.shtml)
-- 2026-06-29 13:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/44862679.shtml)
-- 2026-06-29 13:15 - [曾沛慈夺冠后人气](http://www.blog.minike.top/Article/details/224342223.shtml)
+- 2026-06-29 13:18 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/915959978.shtml)
+- 2026-06-29 13:18 - [记者暗访贵州和云南多个养老机构](https://www.share.minike.top/Article/details/276963771231.shtml)
+- 2026-06-29 13:34 - [AG冠军五人组轮换](http://www.share.kurohicncr.top/Article/details/179395534.shtml)
+- 2026-06-29 13:46 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/34729651.shtml)
+- 2026-06-29 13:43 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/7383011.shtml)
+- 2026-06-29 13:44 - [双高胎](https://www.share.minike.top/Article/details/133210270.shtml)
+- 2026-06-29 13:28 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/76313.shtml)
+- 2026-06-29 13:36 - [赵今麦客串电影版开端](http://www.blog.kurohicncr.top/Article/details/7279611.shtml)
+- 2026-06-29 13:21 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/8762056912.shtml)
+- 2026-06-29 13:25 - [加拿大92分钟绝杀成世界杯首个16强](https://www.share.kurohicncr.top/Article/details/796846.shtml)
+- 2026-06-29 13:33 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/9506006831.shtml)
+- 2026-06-29 13:43 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.kurohicncr.top/Article/details/203528.shtml)
+- 2026-06-29 13:45 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.kurohicncr.top/Article/details/873804901396.shtml)
+- 2026-06-29 13:22 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/669413813233.shtml)
+- 2026-06-29 13:33 - [恋与深空遭抵制后仍置顶敖尹](http://www.blog.kurohicncr.top/Article/details/375290482553.shtml)

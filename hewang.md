@@ -1,55 +1,44 @@
-# 装载8000万桶原油的超级油轮蓄势待发 准备穿越霍尔木兹海峡
+# 虽未谋面，深受其恩。山河无恙，忠烈回家！60秒回顾12位志愿军烈士遗骸归国
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-据彭博，载有近8000万桶石油的超级油轮正停泊在波斯湾，一旦交易商和船东发出指令，它们就能立即启程穿越霍尔木兹海峡。这些石油来自波斯湾产油国（不包括伊朗）的非制裁原油，目前装载在40艘超大型原油运输船（VLCC）上。若将较小型油轮计算在内，波斯湾内储存的原油总量可能还要更高。去年，该地区每天约有1500万桶原油运往亚洲市场。责任编辑：张恒星
+发布时间：2026年04月22日 19:14 来源：中国新闻网 责任编辑：【李太源】
 
 ## 正文
 
-据彭博，载有近8000万桶石油的超级油轮正停泊在波斯湾，一旦交易商和船东发出指令，它们就能立即启程穿越霍尔木兹海峡。
-
-这些石油来自波斯湾产油国（不包括伊朗）的非制裁原油，目前装载在40艘超大型原油运输船（VLCC）上。
-
-若将较小型油轮计算在内，波斯湾内储存的原油总量可能还要更高。
-
-去年，该地区每天约有1500万桶原油运往亚洲市场。
-
-责任编辑：张恒星
+发布时间：2026年04月22日 19:14 来源：中国新闻网 责任编辑：【李太源】
 
 ## 相关推荐
 
-- 2026-06-29 13:20 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qktme.md)
-- 2026-06-29 13:22 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 13:39 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 13:31 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
-- 2026-06-29 13:21 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 13:19 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
-- 2026-06-29 13:32 - [宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
-- 2026-06-29 13:16 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bjdax.md)
-- 2026-06-29 13:20 - [普京称考虑全面禁止柴油出口](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
-- 2026-06-29 13:23 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-29 13:34 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 13:39 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 13:29 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
-- 2026-06-29 13:32 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
-- 2026-06-29 13:15 - [中方将20家日本实体列入出口管制名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
+- 2026-06-29 13:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dudiao.md)
+- 2026-06-29 13:36 - [梅朗雄主张法国退出北约](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 13:30 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
+- 2026-06-29 13:23 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-29 13:43 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 13:43 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
+- 2026-06-29 13:45 - [韩国记者：解码“合肥模式”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 13:27 - [吴建豪宣布再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzdsb.md)
+- 2026-06-29 13:21 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
+- 2026-06-29 13:47 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/congguan.md)
+- 2026-06-29 13:20 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 13:40 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:32 - [极限挑战第一季](https://www.share.kurohicncr.top/Article/details/8144948641.shtml)
-- 2026-06-29 13:39 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/67636565386.shtml)
-- 2026-06-29 13:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/69093858.shtml)
-- 2026-06-29 13:16 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/48160855.shtml)
-- 2026-06-29 13:36 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.minike.top/Article/details/2310481914.shtml)
-- 2026-06-29 13:18 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.blog.minike.top/Article/details/4453054698.shtml)
-- 2026-06-29 13:21 - [巴基斯坦军方打死29名武装分子](https://www.share.minike.top/Article/details/33305971207.shtml)
-- 2026-06-29 13:36 - [曝歌手第七期帮唱阵容](http://www.share.kurohicncr.top/Article/details/43682.shtml)
-- 2026-06-29 13:25 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/390562547410.shtml)
-- 2026-06-29 13:27 - [欧洲极端高温东扩](http://www.blog.kurohicncr.top/Article/details/763996.shtml)
-- 2026-06-29 13:28 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/56833036259.shtml)
-- 2026-06-29 13:32 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/52976314594.shtml)
-- 2026-06-29 13:27 - [宜宾5.5级地震 成都震感明显](https://www.blog.kurohicncr.top/Article/details/2765526503.shtml)
-- 2026-06-29 13:38 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/778821281.shtml)
-- 2026-06-29 13:36 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/67058712.shtml)
+- 2026-06-29 13:20 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/419076799.shtml)
+- 2026-06-29 13:37 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/687341.shtml)
+- 2026-06-29 13:23 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.minike.top/Article/details/5972590766.shtml)
+- 2026-06-29 13:31 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/273550.shtml)
+- 2026-06-29 13:41 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.minike.top/Article/details/376710278.shtml)
+- 2026-06-29 13:22 - [美人鱼](http://www.share.kurohicncr.top/Article/details/817880401.shtml)
+- 2026-06-29 13:23 - [时光音乐会](http://www.blog.minike.top/Article/details/6023597089.shtml)
+- 2026-06-29 13:25 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.kurohicncr.top/Article/details/76812819652.shtml)
+- 2026-06-29 13:46 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/565079364.shtml)
+- 2026-06-29 13:18 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/6625064.shtml)
+- 2026-06-29 13:45 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/958904.shtml)
+- 2026-06-29 13:37 - [美人鱼](http://www.share.kurohicncr.top/Article/details/93252.shtml)
+- 2026-06-29 13:30 - [杨紫 你幸福的话我会比你先流泪](https://www.share.kurohicncr.top/Article/details/34134163.shtml)
+- 2026-06-29 13:39 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.kurohicncr.top/Article/details/83863.shtml)
+- 2026-06-29 13:27 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/51843167.shtml)

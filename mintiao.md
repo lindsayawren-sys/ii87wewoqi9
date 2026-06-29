@@ -1,59 +1,49 @@
-# “红绿金”闪耀浙西南 革命老区何以共富先行？
+# 蓝思科技遭小摩减持约85.95万股 每股作价约16.75港元
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网丽水6月18日电(傅飞扬)17日至18日，2026年浙西南革命老区发展论坛在丽水举行，搭建起政策对接、产业合作、人才汇聚的高能级平台，为探索革命老区共同富裕新路径汇聚合力。 丽水是浙西南革命老区所在地，是红军长征战略策应地，也是浙江唯一的全国革命老区重点城市。回首“十四五”，该市交出了一份厚重答卷：生产总值从1597.71亿元增至2301.4亿元；9个县(市、区)GDP全
+香港联交所最新数据显示，4月16日，小摩减持蓝思科技（06613）85.9452万股，每股作价16.7497港元，总金额约为1439.56万港元。减持后最新持股数目约为2089.43万股，最新持股比例为6.92%。责任编辑：卢昱君
 
 ## 正文
 
-中新网丽水6月18日电(傅飞扬)17日至18日，2026年浙西南革命老区发展论坛在丽水举行，搭建起政策对接、产业合作、人才汇聚的高能级平台，为探索革命老区共同富裕新路径汇聚合力。
+香港联交所最新数据显示，4月16日，小摩减持蓝思科技（06613）85.9452万股，每股作价16.7497港元，总金额约为1439.56万港元。
 
-丽水是浙西南革命老区所在地，是红军长征战略策应地，也是浙江唯一的全国革命老区重点城市。
+减持后最新持股数目约为2089.43万股，最新持股比例为6.92%。
 
-回首“十四五”，该市交出了一份厚重答卷：生产总值从1597.71亿元增至2301.4亿元；9个县(市、区)GDP全部跨上百亿元台阶；城乡居民收入稳居全国20个革命老区重点城市首位…… 2026年2月，新一轮《关于加快革命老区振兴发展的意见》印发，为全国革命老区迈向新征程锚定了方向。
-
-今年以来，丽水市委将“团结拼搏、坚韧不拔、实干图强、奋勇争先”凝练为新时代丽水人的价值追求。
-
-其与“忠诚使命、求是挺进、植根人民”的浙西南革命精神，共同构成激励丽水人民奋进新时代的精神力量。
-
-赓续“红色之光”：从精神高地到发展热土 丽水有533处革命遗址散落于群山之间，每一处都藏着一个关于信仰的故事。
-
-遂昌县大柘镇泉湖寺是浙西南第一个党组织诞生地。
-
-2003年起，管理员朱宗鹤在这里独自升旗。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 13:36 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 13:31 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-29 13:39 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
-- 2026-06-29 13:33 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
-- 2026-06-29 13:31 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 13:35 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-29 13:33 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 13:28 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-29 13:40 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
-- 2026-06-29 13:17 - [白玉兰最佳女主角提名片段](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-29 13:41 - [媒体人：警惕日本再次成战争加害国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 13:39 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
-- 2026-06-29 13:18 - [腾讯回应做独立支付APP](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 13:46 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-29 13:22 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 13:47 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-29 13:40 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjnme.md)
+- 2026-06-29 13:46 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
+- 2026-06-29 13:34 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 13:30 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 13:24 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 13:18 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtalx.md)
+- 2026-06-29 13:32 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 13:18 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-29 13:19 - [初心如磐 红色足迹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/byjup.md)
+- 2026-06-29 13:28 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:35 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/395983470.shtml)
-- 2026-06-29 13:28 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/02571864717.shtml)
-- 2026-06-29 13:18 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.minike.top/Article/details/8594795340.shtml)
-- 2026-06-29 13:22 - [曝歌手第七期帮唱阵容](http://www.blog.minike.top/Article/details/44236.shtml)
-- 2026-06-29 13:41 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.kurohicncr.top/Article/details/59716417.shtml)
-- 2026-06-29 13:26 - [如何“亲菌子”又“远小人儿”](http://www.blog.minike.top/Article/details/960138.shtml)
-- 2026-06-29 13:22 - [尹恩惠自曝14年没谈过恋爱](http://www.blog.kurohicncr.top/Article/details/5190564345.shtml)
-- 2026-06-29 13:27 - [DeepSeek联合北京大学发布论文](https://www.share.kurohicncr.top/Article/details/009819034204.shtml)
-- 2026-06-29 13:39 - [四川宜宾地震致13人受轻微伤](https://www.blog.minike.top/Article/details/05721640.shtml)
-- 2026-06-29 13:22 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/02189.shtml)
-- 2026-06-29 13:23 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/727502297.shtml)
-- 2026-06-29 13:24 - [本周做什么都顺的星座](http://www.share.kurohicncr.top/Article/details/5853761391.shtml)
-- 2026-06-29 13:25 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/96240.shtml)
-- 2026-06-29 13:38 - [民进党为什么拼命抹黑统战](https://www.blog.kurohicncr.top/Article/details/17478788.shtml)
-- 2026-06-29 13:27 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/773711.shtml)
+- 2026-06-29 13:45 - [普京说乌方打击无法迫使俄被动谈判](https://www.blog.minike.top/Article/details/248574392.shtml)
+- 2026-06-29 13:27 - [多只A股发布股价异动公告](https://www.share.kurohicncr.top/Article/details/663142959.shtml)
+- 2026-06-29 13:26 - [事关个税 明日截止请抓紧办理](http://www.share.kurohicncr.top/Article/details/90366683.shtml)
+- 2026-06-29 13:40 - [比亚迪市值为何蒸发8000亿](http://www.blog.minike.top/Article/details/00951.shtml)
+- 2026-06-29 13:18 - [佛得角到底在哪个“角”](https://www.blog.kurohicncr.top/Article/details/9099259087.shtml)
+- 2026-06-29 13:26 - [阿娇瘦了10斤](https://www.blog.minike.top/Article/details/69697.shtml)
+- 2026-06-29 13:37 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/052181348319.shtml)
+- 2026-06-29 13:36 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/1734805.shtml)
+- 2026-06-29 13:47 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.kurohicncr.top/Article/details/640392.shtml)
+- 2026-06-29 13:35 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](http://www.blog.kurohicncr.top/Article/details/903900091241.shtml)
+- 2026-06-29 13:29 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/524822.shtml)
+- 2026-06-29 13:31 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/5532969.shtml)
+- 2026-06-29 13:30 - [东部机场集团新增釜山航线](https://www.blog.minike.top/Article/details/2643070994.shtml)
+- 2026-06-29 13:32 - [行程万里不忘初心](https://www.share.minike.top/Article/details/68426940.shtml)
+- 2026-06-29 13:37 - [WTT美国大满贯王曼昱首秀告捷](http://www.blog.minike.top/Article/details/4989018.shtml)

@@ -1,57 +1,59 @@
-# “赫哲故里”同江：非遗邂逅端午 佳节“味”更浓
+# 雅居乐集团附属拟9500万元出售浙江祥雅房地产开发50%股权
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网佳木斯6月20日电(姜辉 赵鹏 李宗杰)19日，同江市“赫哲雅韵·粽享安康”端午非遗主题活动正式拉开帷幕。活动现场人潮涌动，笑声不断。本次主题活动以“端午趣闯关·欢乐集印章领礼品”为主线，设置了八大趣味关卡，游客和同江市民签到领卡，便可开启一段赫哲非遗与端午文化交织的体验之旅。 幸运转盘前，大家争相一试手气。套圈区里，大家瞄准香粽，一展身手。观演台前，赫哲族歌舞、伊玛堪说
+雅居乐集团（03383）发布公告，于2026年4月22日，卖方（公司的间接非全资附属公司南通雅信企业管理咨询有限公司）拟向买方（中国房地产开发集团南通有限公司）出售项目公司（浙江祥雅房地产开发有限公司）50%股权，代价为人民币9500万元。代价将由买方透过向卖方转让转让债务的方式结付。转让债务将透过向卖方转让目标物业的方式偿付。出售事项完成后，公司将不再持有项目公司的任何权益，
 
 ## 正文
 
-中新网佳木斯6月20日电(姜辉 赵鹏 李宗杰)19日，同江市“赫哲雅韵·粽享安康”端午非遗主题活动正式拉开帷幕。
+雅居乐集团（03383）发布公告，于2026年4月22日，卖方（公司的间接非全资附属公司南通雅信企业管理咨询有限公司）拟向买方（中国房地产开发集团南通有限公司）出售项目公司（浙江祥雅房地产开发有限公司）50%股权，代价为人民币9500万元。
 
-活动现场人潮涌动，笑声不断。
+代价将由买方透过向卖方转让转让债务的方式结付。
 
-本次主题活动以“端午趣闯关·欢乐集印章领礼品”为主线，设置了八大趣味关卡，游客和同江市民签到领卡，便可开启一段赫哲非遗与端午文化交织的体验之旅。
+转让债务将透过向卖方转让目标物业的方式偿付。
 
-幸运转盘前，大家争相一试手气。
+出售事项完成后，公司将不再持有项目公司的任何权益，且项目公司将不再为公司的附属公司。
 
-套圈区里，大家瞄准香粽，一展身手。
+目标物业为项目公司持有的部分未售物业。
 
-观演台前，赫哲族歌舞、伊玛堪说唱轮番上演，赢得掌声阵阵。
+项目公司为一家于中国成立的有限责任公司，从事房地产开发及经营。
 
-体育竞技场上，鱼王角力格外吸睛，两人背向而立，红绸布套于腰间，哨声一响，各自奋力前冲，围观群众呐喊声此起彼伏。
+项目公司由买方持有50%权益及由卖方持有50%权益。
 
-投壶区里，大家屏息瞄准，一掷一落，雅趣十足。
+项目公司的成立旨在共同开发湖州一号项目（Huzhou No． 1 Project），该项目为一个位于中国浙江省湖州市的商住项目。
 
 ## 相关推荐
 
-- 2026-06-29 13:34 - [如果你一直单身，你准备怎么养老？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 13:35 - [李连杰回应网传不管前妻俩女儿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
-- 2026-06-29 13:38 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jzrri.md)
-- 2026-06-29 13:18 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
-- 2026-06-29 13:13 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuvnf.md)
-- 2026-06-29 13:30 - [网友偶遇胡军和李乃文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 13:23 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 13:13 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
-- 2026-06-29 13:21 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 13:15 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 13:16 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 13:44 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
+- 2026-06-29 13:27 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-29 13:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 13:47 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
+- 2026-06-29 13:23 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
+- 2026-06-29 13:36 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
+- 2026-06-29 13:22 - [为什么欧洲人不装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hivqz.md)
+- 2026-06-29 13:22 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-29 13:20 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-29 13:42 - [开电动汽车真的很省钱吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 13:24 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gunkan.md)
+- 2026-06-29 13:18 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 13:39 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:19 - [赵露思爸爸拍vlog“翻车”](https://www.blog.kurohicncr.top/Article/details/900573481.shtml)
-- 2026-06-29 13:27 - [巴基斯坦军方打死29名武装分子](http://www.share.minike.top/Article/details/2974468205.shtml)
-- 2026-06-29 13:35 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/81647.shtml)
-- 2026-06-29 13:15 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.blog.minike.top/Article/details/630594996869.shtml)
-- 2026-06-29 13:40 - [韩剧编剧又升级了](https://www.share.minike.top/Article/details/84630854.shtml)
-- 2026-06-29 13:20 - [辽宁葫芦岛一居民楼突发爆炸](https://www.blog.minike.top/Article/details/2683827.shtml)
-- 2026-06-29 13:28 - [A股限售股解禁一览](http://www.blog.kurohicncr.top/Article/details/5089468.shtml)
-- 2026-06-29 13:22 - [记者暗访贵州和云南多个养老机构](https://www.share.kurohicncr.top/Article/details/799114161802.shtml)
-- 2026-06-29 13:28 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/25209381935.shtml)
-- 2026-06-29 13:38 - [直击宜宾地震：监控剧烈摇晃](http://www.share.kurohicncr.top/Article/details/764369243.shtml)
-- 2026-06-29 13:31 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/507357343.shtml)
-- 2026-06-29 13:39 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.minike.top/Article/details/916622416032.shtml)
-- 2026-06-29 13:29 - [王楚钦美国大满贯晋级32强](https://www.share.kurohicncr.top/Article/details/80064.shtml)
-- 2026-06-29 13:25 - [医药股集体爆发](https://www.share.minike.top/Article/details/94232618.shtml)
-- 2026-06-29 13:34 - [爱很美味](https://www.blog.minike.top/Article/details/863597485.shtml)
+- 2026-06-29 13:37 - [赵露思爸爸拍vlog“翻车”](http://www.blog.kurohicncr.top/Article/details/9695047315.shtml)
+- 2026-06-29 13:21 - [沙丘](http://www.blog.minike.top/Article/details/24133220.shtml)
+- 2026-06-29 13:28 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.share.minike.top/Article/details/044142242327.shtml)
+- 2026-06-29 13:25 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/65965334.shtml)
+- 2026-06-29 13:31 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/7032027907.shtml)
+- 2026-06-29 13:38 - [李在明称韩国足协任命了无能之人](http://www.blog.kurohicncr.top/Article/details/79640.shtml)
+- 2026-06-29 13:22 - [世界杯打成了欧洲杯和美洲杯](https://www.blog.kurohicncr.top/Article/details/18653771.shtml)
+- 2026-06-29 13:43 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/2854993.shtml)
+- 2026-06-29 13:32 - [Mrbeast的30天不吃饭挑战](https://www.share.minike.top/Article/details/40330.shtml)
+- 2026-06-29 13:31 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/99734941427.shtml)
+- 2026-06-29 13:19 - [市民骑哈啰单车79分钟付30元](https://www.blog.minike.top/Article/details/01227680.shtml)
+- 2026-06-29 13:20 - [欧委会总部只给高层开空调](http://www.blog.kurohicncr.top/Article/details/441012419.shtml)
+- 2026-06-29 13:18 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/644607.shtml)
+- 2026-06-29 13:22 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/8194938293.shtml)
+- 2026-06-29 13:18 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/82631695301.shtml)

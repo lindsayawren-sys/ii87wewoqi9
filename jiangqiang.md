@@ -1,55 +1,57 @@
-# 广东水利防汛Ⅳ级应急响应结束
+# 市场监管总局：全面推进互联网广告生态治理
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-中新网广州6月21日电 (记者 王坚)广东水利防汛Ⅳ级应急响应于6月21日18时结束。 广东省水利厅介绍，鉴于本轮强降雨过程已基本结束，全省雨情水情总体平稳，水利工情安全可控，根据《广东省水利厅水旱灾害防御工作规则》，广东省水利厅水旱灾害防御领导小组决定于6月21日18时结束水利防汛Ⅳ级应急响应。 当前全省仍处于“龙舟水”防御关键期，受前期持续性强降雨影响，江河湖库底水偏高，土
+中新网4月23日电 据“市说新语”微信公众号消息，近期，市场监管总局印发《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、重炒作等旧问题仍然存在，滥用人工智能、过度追求流
 
 ## 正文
 
-中新网广州6月21日电 (记者 王坚)广东水利防汛Ⅳ级应急响应于6月21日18时结束。
+中新网4月23日电 据“市说新语”微信公众号消息，近期，市场监管总局印发《关于深化互联网广告生态治理工作的通知》和《互联网广告市场秩序整治重点任务》，对深化互联网广告生态治理工作作出全面部署，同时决定开展为期半年的互联网广告市场秩序整治行动。
 
-广东省水利厅介绍，鉴于本轮强降雨过程已基本结束，全省雨情水情总体平稳，水利工情安全可控，根据《广东省水利厅水旱灾害防御工作规则》，广东省水利厅水旱灾害防御领导小组决定于6月21日18时结束水利防汛Ⅳ级应急响应。
+当前，我国互联网广告产业快速发展，已形成数据驱动、技术赋能的复杂生态，但互联网广告轻创意、重炒作等旧问题仍然存在，滥用人工智能、过度追求流量等新问题不断凸显，亟须从深化互联网广告生态治理的高度系统施治、全面治理。
 
-当前全省仍处于“龙舟水”防御关键期，受前期持续性强降雨影响，江河湖库底水偏高，土壤含水量趋于饱和。
+为此，市场监管总局制定印发《关于深化互联网广告生态治理工作的通知》，首次提出“互联网广告生态治理”的概念，部署健全互联网广告监管制度体系、压实互联网平台企业主体责任、加大重点领域和新业态的广告监管力度、加强监测技术和执法能力建设、强化广告宣传导向和价值引领等五方面治理任务，为推进互联网广告生态治理工作绘制总体蓝图。
 
-广东省水利厅要求，全省各级水利部门和有关单位务必克服麻痹松懈思想，继续关注天气变化，严格落实24小时值班值守制度，做好洪水退水阶段水利工程巡查工作，抓紧抢修水毁水利工程设施，持续落实落细各项防御措施，全力保障人民群众生命财产安全。
+互联网广告生态治理是一项系统性工程。
 
-同时，西江沿线各地要密切关注上游来水，落实落细洪水防御各项工作。
+市场监管总局按照管长远和立当下相结合的工作思路，决定将加强互联网广告市场秩序整治作为推进互联网广告生态治理的突破口，拟通过为期半年的整治行动，依法从严打击群众反映强烈的互联网广告违法行为，切实维护互联网广告市场秩序，为推进互联网广告生态治理其他方面的工作打牢基础，营造良好氛围。
 
-(完)
+为此，市场监管总局印发《互联网广告市场秩序整治重点任务》，围绕强化互联网广告导向监管、加强对直播电商中广告活动的监管、强化对人工智能生成式广告的监管、加大对互联网弹窗广告的规范力度、加大对“矩阵式”互联网广告投放行为的规范力度、进一步压实互联网平台的主体责任等六个方面，细化工作任务，聚焦突出问题精准发力，全力维护良好互联网广告市场秩序。
 
 ## 相关推荐
 
-- 2026-06-29 13:23 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 13:41 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnomj.md)
-- 2026-06-29 13:23 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-29 13:14 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:31 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
-- 2026-06-29 13:32 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-29 13:15 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-29 13:27 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-29 13:37 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 13:40 - [实习期把公司领导开除了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
-- 2026-06-29 13:22 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-29 13:38 - [为什么欧洲人不装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 13:15 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-29 13:40 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
+- 2026-06-29 13:32 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
+- 2026-06-29 13:39 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
+- 2026-06-29 13:34 - [韩剧编剧又升级了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xihai.md)
+- 2026-06-29 13:29 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-29 13:47 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-29 13:22 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
+- 2026-06-29 13:30 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
+- 2026-06-29 13:28 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-29 13:35 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 13:46 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
+- 2026-06-29 13:44 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-29 13:21 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 13:31 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 13:47 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gcrsr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:17 - [汪东城回应45岁婚约](https://www.share.kurohicncr.top/Article/details/113234550.shtml)
-- 2026-06-29 13:32 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/8207417.shtml)
-- 2026-06-29 13:15 - [这位天才台湾人第一次来大陆，开智了](http://www.blog.minike.top/Article/details/35139576.shtml)
-- 2026-06-29 13:37 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/253172398.shtml)
-- 2026-06-29 13:27 - [iPhone18系列预计将大幅涨价](http://www.share.minike.top/Article/details/03974241377.shtml)
-- 2026-06-29 13:35 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/30342270937.shtml)
-- 2026-06-29 13:32 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/0209350.shtml)
-- 2026-06-29 13:40 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/48308752.shtml)
-- 2026-06-29 13:28 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/076104078.shtml)
-- 2026-06-29 13:15 - [运20飞机列装空军十周年](https://www.share.kurohicncr.top/Article/details/1277388688.shtml)
-- 2026-06-29 13:40 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/95822800.shtml)
-- 2026-06-29 13:35 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/14201.shtml)
-- 2026-06-29 13:18 - [金牌调解](https://www.share.minike.top/Article/details/9292238659.shtml)
-- 2026-06-29 13:15 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/452852123776.shtml)
-- 2026-06-29 13:30 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/6518973.shtml)
+- 2026-06-29 13:31 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/0079569.shtml)
+- 2026-06-29 13:39 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/08831807.shtml)
+- 2026-06-29 13:36 - [一见倾心](https://www.share.kurohicncr.top/Article/details/854130235407.shtml)
+- 2026-06-29 13:37 - [Agent带来token消耗爆炸](http://www.share.minike.top/Article/details/735291425317.shtml)
+- 2026-06-29 13:43 - [曾沛慈夺冠后人气](https://www.share.kurohicncr.top/Article/details/060391299199.shtml)
+- 2026-06-29 13:42 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](http://www.blog.kurohicncr.top/Article/details/7617803293.shtml)
+- 2026-06-29 13:29 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.blog.kurohicncr.top/Article/details/395335.shtml)
+- 2026-06-29 13:46 - [吴海燕兰西雅漫步复兴岛](http://www.share.minike.top/Article/details/7110767920.shtml)
+- 2026-06-29 13:26 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/8725959.shtml)
+- 2026-06-29 13:27 - [宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/0283902631.shtml)
+- 2026-06-29 13:48 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/1059606.shtml)
+- 2026-06-29 13:37 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](http://www.blog.minike.top/Article/details/40651090735.shtml)
+- 2026-06-29 13:26 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.minike.top/Article/details/28642502.shtml)
+- 2026-06-29 13:24 - [腾讯回应做独立支付APP](https://www.share.minike.top/Article/details/111873.shtml)
+- 2026-06-29 13:47 - [A股](http://www.share.minike.top/Article/details/675719615.shtml)

@@ -1,61 +1,58 @@
-# 曹德旺定规矩王树国附和：福耀科技大学各院系要自负盈亏的背后
+# 美国参议院军事委员会主席呼吁重启对伊朗打击行动
 
-> 更新时间：2026-06-29 13:42:02 UTC+8
+> 更新时间：2026-06-29 13:48:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：纪中展讲决策 曹德旺给福耀科技大学定了一条规矩：各院系要逐步自负盈亏、自己养活自己；校长王树国接得也干脆，研究的是真问题、成果能落地，就不该养不活自己。 这句话一出来，舆论立刻分成两边：一边说终于有人敢让大学面对真实世界，一边说大学怎么能像企业一样算账。 站在总裁教练的立场，更想问的是：一个一号位说出
+美国参议院军事委员会主席今日要求终止与伊朗的谈判，并恢复军事打击。密西西比州共和党参议员罗杰・威克在社交平台 X 发文称：“与伊朗谈判的时代已经结束。” 威克表示：“哈梅内伊的继任者不会信守任何承诺与协议。我方三军统帅应指令资深军方将领，彻底摧毁伊朗常规军事力量，铲除其核计划全部残余设施。” 他称：“这是保障该地区长久稳定的唯一途径。”特朗普当日表示，伊朗正准备提交谈判方案。由
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+美国参议院军事委员会主席今日要求终止与伊朗的谈判，并恢复军事打击。
 
-来源：纪中展讲决策 曹德旺给福耀科技大学定了一条规矩：各院系要逐步自负盈亏、自己养活自己；校长王树国接得也干脆，研究的是真问题、成果能落地，就不该养不活自己。
+密西西比州共和党参议员罗杰・威克在社交平台 X 发文称：“与伊朗谈判的时代已经结束。
 
-这句话一出来，舆论立刻分成两边：一边说终于有人敢让大学面对真实世界，一边说大学怎么能像企业一样算账。
+” 威克表示：“哈梅内伊的继任者不会信守任何承诺与协议。
 
-站在总裁教练的立场，更想问的是：一个一号位说出“自己养活自己”这四个字时，他到底想唤醒什么？
+我方三军统帅应指令资深军方将领，彻底摧毁伊朗常规军事力量，铲除其核计划全部残余设施。
 
-“自负盈亏”听上去是钱，逼出来的是价值证明 这四个字之所以放进大学就刺耳，是因为它直接切进了一个最难说清的地方：价值到底怎么证明。
+” 他称：“这是保障该地区长久稳定的唯一途径。
 
-把它翻译一下：一个组织单元，凭什么值得被继续投入资源？
+”特朗普当日表示，伊朗正准备提交谈判方案。
 
-这句话谁都躲不开。
+由威特科夫与库什纳率领的美国代表团，预计明日抵达巴基斯坦伊斯兰堡。
 
-无论是一个学院、一个部门、一个高管，还是创始人自己，最终都要回答同一句追问，我占用了这些资源，换来了什么别人替代不了的东西？
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 13:19 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gaogao.md)
-- 2026-06-29 13:25 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rwemw.md)
-- 2026-06-29 13:18 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 13:33 - [海清白玉兰奖运](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-29 13:29 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-29 13:22 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/monin.md)
-- 2026-06-29 13:39 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 13:40 - [志愿选择倒计时！浙大学生送祝福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
-- 2026-06-29 13:27 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-29 13:40 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
-- 2026-06-29 13:12 - [200 万粉丝网红诋毁袁隆平成果引发中国食品报发声，反映了哪些问题？这种造谣者背后有怎样的利益链条？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 13:28 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 13:16 - [水利部部署南方地区暴雨洪水防御工作](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnahe.md)
-- 2026-06-29 13:41 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 13:25 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:27 - [DSpark论文深度解读](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 13:36 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
+- 2026-06-29 13:40 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjhx.md)
+- 2026-06-29 13:40 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
+- 2026-06-29 13:32 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
+- 2026-06-29 13:44 - [薛之谦演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kqpfw.md)
+- 2026-06-29 13:28 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-29 13:47 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 13:21 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:47 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-29 13:38 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 13:35 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nvtpn.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:24 - [专家建议城乡居民养老金增至每月千元](https://www.share.kurohicncr.top/Article/details/138648889.shtml)
-- 2026-06-29 13:28 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/449895583.shtml)
-- 2026-06-29 13:41 - [我和我的家乡](http://www.blog.minike.top/Article/details/658223406.shtml)
-- 2026-06-29 13:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.minike.top/Article/details/3266569056.shtml)
-- 2026-06-29 13:37 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.minike.top/Article/details/6853698151.shtml)
-- 2026-06-29 13:37 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/98497326786.shtml)
-- 2026-06-29 13:39 - [伊朗球员致歉](https://www.blog.kurohicncr.top/Article/details/231295886832.shtml)
-- 2026-06-29 13:30 - [航空运输旅客服务质量国标将实施](https://www.share.kurohicncr.top/Article/details/25274.shtml)
-- 2026-06-29 13:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/99793576221.shtml)
-- 2026-06-29 13:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/00747556.shtml)
-- 2026-06-29 13:33 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/359705479442.shtml)
-- 2026-06-29 13:24 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/2708301.shtml)
-- 2026-06-29 13:13 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/0049714.shtml)
-- 2026-06-29 13:14 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/15357393.shtml)
-- 2026-06-29 13:13 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/011735.shtml)
+- 2026-06-29 13:25 - [千与千寻](https://www.share.minike.top/Article/details/46967120644.shtml)
+- 2026-06-29 13:40 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/849521233933.shtml)
+- 2026-06-29 13:18 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/245692881452.shtml)
+- 2026-06-29 13:43 - [水利部部署南方地区暴雨洪水防御工作](http://www.share.kurohicncr.top/Article/details/8588101.shtml)
+- 2026-06-29 13:25 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/9806705.shtml)
+- 2026-06-29 13:23 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/87287052384.shtml)
+- 2026-06-29 13:47 - [美的空调 卡bug](http://www.blog.kurohicncr.top/Article/details/1460559.shtml)
+- 2026-06-29 13:22 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/945155.shtml)
+- 2026-06-29 13:19 - [陈靖可虞书欣领衔主演](http://www.blog.minike.top/Article/details/282177123278.shtml)
+- 2026-06-29 13:29 - [造谣县城满街都是小混混 男子被拘](http://www.blog.minike.top/Article/details/007802732458.shtml)
+- 2026-06-29 13:28 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/66048.shtml)
+- 2026-06-29 13:28 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/08022353.shtml)
+- 2026-06-29 13:37 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/3564483891.shtml)
+- 2026-06-29 13:36 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.kurohicncr.top/Article/details/318179508288.shtml)
+- 2026-06-29 13:18 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/9248935527.shtml)
