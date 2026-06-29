@@ -1,44 +1,44 @@
-# 美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行
+# 快讯：WTI原油失守93美元/桶，日内跌9.15%
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 10:23 来源：央视新闻客户端 责任编辑：【杜晓姣】
+北京时间5月6日下午，WTI原油失守93美元/桶，日内跌9.15%。 责任编辑：朱赫楠
 
 ## 正文
 
-发布时间：2026年04月21日 10:23 来源：央视新闻客户端 责任编辑：【杜晓姣】
+北京时间5月6日下午，WTI原油失守93美元/桶，日内跌9.15%。
+
+责任编辑：朱赫楠
 
 ## 相关推荐
 
-- 2026-06-29 12:36 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:50 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:44 - [追忆侨领张素久：从容面对挑战 坚韧不拔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:55 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:43 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:46 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:45 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:00 - [日本首相高市早苗向靖国神社献祭品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:50 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:37 - [美国能源部长：汽油价格可能在一周前已经见顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:57 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:49 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:51 - [韩国称将确保每年从加拿大进口至多3300万桶原油](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:45 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 12:46 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:49 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:55 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 13:05 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:42 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:55 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:04 - [年轻人假期热衷贵阳“寻咖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:00 - [富通科技公布于5月6日下午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](http://www.blog.kurohicncr.top/Article/details/720754.shtml)
-- 2026-06-29 12:50 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](http://www.share.kurohicncr.top/Article/details/264083.shtml)
-- 2026-06-29 12:39 - [日本首相高市早苗向靖国神社供奉“玉串料”](http://www.share.minike.top/Article/details/46664184997.shtml)
-- 2026-06-29 12:37 - [三位华人女数学家获2026突破奖](http://www.blog.minike.top/Article/details/08734579.shtml)
-- 2026-06-29 12:36 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](http://www.blog.minike.top/Article/details/5989692.shtml)
-- 2026-06-29 12:41 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](http://www.blog.minike.top/Article/details/49497863.shtml)
-- 2026-06-29 13:00 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](http://www.blog.minike.top/Article/details/8895775.shtml)
-- 2026-06-29 12:52 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [机械车位闲置，如何盘活改造？](http://www.share.kurohicncr.top/Article/details/638017.shtml)
-- 2026-06-29 12:39 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.share.kurohicncr.top/Article/details/8952519.shtml)
-- 2026-06-29 12:43 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.blog.minike.top/Article/details/57382243802.shtml)
+- 2026-06-29 12:51 - [美国陆军要求导弹制造商提升自家武器兼容性](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [以共赢促共富 民企精准帮扶常态化](http://www.blog.kurohicncr.top/Article/details/064447.shtml)
+- 2026-06-29 13:05 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](http://www.share.kurohicncr.top/Article/details/3454807705.shtml)
+- 2026-06-29 13:05 - [伊朗：尚未回应美国对伊方14点提议的看法](http://www.share.kurohicncr.top/Article/details/02619416285.shtml)
+- 2026-06-29 12:55 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](http://www.blog.minike.top/Article/details/864672803355.shtml)
+- 2026-06-29 13:04 - [生猪板块升温，期股共振释放什么信号？](http://www.share.kurohicncr.top/Article/details/0548287824.shtml)
+- 2026-06-29 13:02 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](http://www.share.minike.top/Article/details/90900500.shtml)
+- 2026-06-29 13:01 - [午盘：美股继续上扬 纳指创盘中新高](http://www.share.minike.top/Article/details/852900.shtml)
+- 2026-06-29 13:05 - [路易丝·阿伯将出任第31任加拿大总督](http://www.share.minike.top/Article/details/105083364.shtml)
+- 2026-06-29 12:57 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](http://www.share.minike.top/Article/details/3479678.shtml)
+- 2026-06-29 12:53 - [离境退税“即买即退”跨省互认进一步扩围](http://www.share.kurohicncr.top/Article/details/150125569416.shtml)
+- 2026-06-29 12:44 - [哈塞特：没有参与私募信贷的人不必担心](http://www.share.minike.top/Article/details/3622466.shtml)
+- 2026-06-29 13:11 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](http://www.blog.kurohicncr.top/Article/details/4993644.shtml)
+- 2026-06-29 13:02 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](http://www.blog.minike.top/Article/details/3188288947.shtml)

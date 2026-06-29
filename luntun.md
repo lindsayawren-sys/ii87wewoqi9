@@ -1,56 +1,61 @@
-# 四川累计外送电量突破2万亿千瓦时
+# 哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网成都4月21日电 (刘忠俊 高珩瑞)4月21日，四川电力交易中心发布的最新结算数据显示，四川累计外送电量已突破2万亿千瓦时，达20004.15亿千瓦时，这一规模相当于江苏、浙江、安徽三省2025年全社会用电量的总和。 作为中国重要的清洁能源基地，四川外送的2万亿千瓦时电量中，超99.98%为水电和新能源。这一清洁能源输送规模，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约
+白宫国家经济委员会主任凯文·哈塞特周三表示，白宫正研究一项行政令，拟为Anthropic的Mythos等新人工智能模型建立审查机制，以保护企业和政府网络免受AI相关网络安全风险。 “我们正在研究，可能通过一项行政令，为各方提供清晰路径，以及未来那些可能出现漏洞的AI应当遵循怎样的程序，确保它们在被证明安全后才能像经FDA批准的药物一样推出，”哈塞特对福克斯新闻说。 新举措酝酿之
 
 ## 正文
 
-中新网成都4月21日电 (刘忠俊 高珩瑞)4月21日，四川电力交易中心发布的最新结算数据显示，四川累计外送电量已突破2万亿千瓦时，达20004.15亿千瓦时，这一规模相当于江苏、浙江、安徽三省2025年全社会用电量的总和。
+白宫国家经济委员会主任凯文·哈塞特周三表示，白宫正研究一项行政令，拟为Anthropic的Mythos等新人工智能模型建立审查机制，以保护企业和政府网络免受AI相关网络安全风险。
 
-作为中国重要的清洁能源基地，四川外送的2万亿千瓦时电量中，超99.98%为水电和新能源。
+“我们正在研究，可能通过一项行政令，为各方提供清晰路径，以及未来那些可能出现漏洞的AI应当遵循怎样的程序，确保它们在被证明安全后才能像经FDA批准的药物一样推出，”哈塞特对福克斯新闻说。
 
-这一清洁能源输送规模，相当于替代燃煤消耗约6.5亿吨，减排二氧化碳约16亿吨，为我国“双碳”目标落地提供了坚实的能源支撑。
+新举措酝酿之际，Anthropic数周前披露其突破性模型Mythos擅长发现网络漏洞，并可能构成全球网络安全风险。
 
-作为“西电东送”战略的重要枢纽，四川持续加快特高压骨干网架建设，全力构建省内“三送三受”、跨区“多进多出”的立体枢纽电网。
+目前该模型仅向少数大型科技和金融公司开放，特朗普政府也在推动其向联邦机构开放以测试政府系统。
 
-目前，四川已建成7条特高压直流外送通道，跨区跨省外送能力超6260万千瓦，稳居全国首位。
+哈塞特周三对此予以确认。
 
-另据最新统计数据，四川电力总装机已突破1.6亿千瓦，其中水电装机超1亿千瓦，占比约三分之二；风电、光伏等新能源装机超3200万千瓦，占比约20%，历史性超过火电，成为四川电力第二大电源。
+他说：“我们已动员整个政府及私营部门协调合作，确保在该模型开放前经过全方位测试，确保不会对美国企业或美国政府造成任何伤害。
 
-当前，四川正加快推进金沙江上游、雅砻江、大渡河流域水风光一体化清洁能源基地规划建设，引导甘孜、阿坝、凉山等风光资源富集地区，推动新能源实现规模化、基地化、集约化发展。
+” 尚不清楚哈塞特描述的命令是否会要求对AI系统进行强制测试。
 
-据悉，“十五五”期间，四川预计将新增新能源装机5000万千瓦以上，进一步深化多能互补电源建设。
+如果属实，这将标志着美国总统唐纳德·特朗普在AI监管立场上的转变，他此前强调减少监管干预。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:52 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:38 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:54 - [《技术经理人执业能力评价白皮书》在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:39 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:38 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:59 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:39 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 13:01 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:55 - [中央气象台：江南华南有较强降水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:04 - [购房新政叠加“五一”假期 多地楼市升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:56 - [滴普科技午前大涨逾21% 机构看好其营收高增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:49 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 13:08 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 13:11 - [百亿明星私募被曝光“打新内幕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:00 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:47 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 13:04 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:46 - [情感赛道变形记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:54 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 13:01 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:09 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 13:09 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 12:48 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:53 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:03 - [巴基斯坦从沙特阿拉伯获得10亿美元资金](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [卫生间摊放茶青 浙江松阳及时处置：全部封存 未流入市场](http://www.blog.kurohicncr.top/Article/details/74550008.shtml)
-- 2026-06-29 12:43 - [丰田向宁德时代印尼工厂投资 120 亿日元，将在厂内建设专用产线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [用软件脚本“秒抢”医院专家号 上海警方抓获非法倒卖号源10人](http://www.share.kurohicncr.top/Article/details/129571712.shtml)
-- 2026-06-29 12:47 - [晋拓股份拟每10股派息0.77元](http://www.share.kurohicncr.top/Article/details/767818603.shtml)
-- 2026-06-29 13:00 - [下任美联储主席提名人选能否维护美联储“独立性”遭质疑](http://www.blog.minike.top/Article/details/463884.shtml)
-- 2026-06-29 12:45 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [西安中院公开庭审涉外商标侵权案件 筑牢知识产权司法保护防线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [奥克斯电气首份年报“变脸”：利润退回两年前、市值蒸发上百亿 “价格屠夫”靠涨价自救？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [日媒：日本通过内阁决议正式允许出口杀伤性武器](http://www.blog.minike.top/Article/details/6575095.shtml)
-- 2026-06-29 12:58 - [【理响中国】今天，如何培养青少年阅读习惯](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [竹篮打水一场空？单日百亿的“爆款基金”还剩下多少钱？](http://www.blog.kurohicncr.top/Article/details/206848356790.shtml)
-- 2026-06-29 13:03 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](http://www.share.kurohicncr.top/Article/details/64387681752.shtml)
-- 2026-06-29 12:46 - [第四届链博会印尼推介会成功举办](http://www.blog.minike.top/Article/details/6058544944.shtml)
-- 2026-06-29 12:50 - [陕西发现一座十六国时期大型墓葬 推测墓主为皇室成员](http://www.share.kurohicncr.top/Article/details/356444.shtml)
+- 2026-06-29 12:48 - [玉林师范学院原党委副书记、 院长王卓华被开除党籍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [司法部组织开展行政处罚公示信息集中清理工作](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [华宝基金科创人工智能ETF (589520)量价齐升！](http://www.blog.minike.top/Article/details/112222.shtml)
+- 2026-06-29 13:03 - [地缘紧张局势缓和 墨西哥比索与股市双双走高](http://www.share.minike.top/Article/details/524161.shtml)
+- 2026-06-29 12:52 - [日产全球大重组：欧洲裁员10%，桑德兰工厂合并生产线](http://www.blog.minike.top/Article/details/54513673.shtml)
+- 2026-06-29 13:04 - [花旗：中煤能源维持“买入”评级 目标价降至16.6港元](http://www.blog.minike.top/Article/details/1562122.shtml)
+- 2026-06-29 12:57 - [有线耳机翻红 意外逆袭带来什么启发？](http://www.blog.minike.top/Article/details/5148224909.shtml)
+- 2026-06-29 12:42 - [以旧换新政策，今年力度降了吗](http://www.blog.minike.top/Article/details/23286.shtml)
+- 2026-06-29 13:03 - [广发银行深耕科技金融 科技贷款余额超4000亿元](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [英飞凌展望超预期，AI热潮提振功率芯片业务](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [迪士尼超预期财报助推相关ETF，个股年内仍跌12%](http://www.blog.kurohicncr.top/Article/details/255714.shtml)
+- 2026-06-29 12:43 - [InflaRx完成1.5亿美元普通股发行定价](http://www.share.minike.top/Article/details/9512994726.shtml)
+- 2026-06-29 13:08 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.share.minike.top/Article/details/4032199.shtml)
+- 2026-06-29 13:05 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.share.kurohicncr.top/Article/details/02663240810.shtml)
+- 2026-06-29 12:46 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.blog.kurohicncr.top/Article/details/6584573932.shtml)

@@ -1,58 +1,56 @@
-# 厦门举办连横逝世九十周年纪念座谈会
+# 沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新社厦门4月21日电 (吴冠标)“纪念连横先生逝世九十周年座谈会”21日在厦门集美举办，连横曾孙连胜文一行赴会并参观集美“台商之家”。 台湾史学家连横祖籍福建省漳州府龙溪县马崎社，曾两度在厦门办报、居住，其穷十年之功著《台湾通史》，记述台湾与大陆的历史渊源，被誉为“台湾的太史公”和“台湾文化界第一人”。 连胜文分享了重读《台湾通史》的感悟。他表示，小时候能背诵序言却不太理解，
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！Wind数据显示，截至目前，沪市千亿市值的头部企业（以下简称“头部公司”）总量已达132家，其中沪市主板公司114家，科创板18家，合计市值46.14万亿元，占沪市公司总市值的59%。 沪市头部公司作为国民经济各领域的排头兵，已成为维护资本市场平稳运行的压舱石与稳定器。从2025年年报及近年来的经营数据看，
 
 ## 正文
 
-中新社厦门4月21日电 (吴冠标)“纪念连横先生逝世九十周年座谈会”21日在厦门集美举办，连横曾孙连胜文一行赴会并参观集美“台商之家”。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-台湾史学家连横祖籍福建省漳州府龙溪县马崎社，曾两度在厦门办报、居住，其穷十年之功著《台湾通史》，记述台湾与大陆的历史渊源，被誉为“台湾的太史公”和“台湾文化界第一人”。
+Wind数据显示，截至目前，沪市千亿市值的头部企业（以下简称“头部公司”）总量已达132家，其中沪市主板公司114家，科创板18家，合计市值46.14万亿元，占沪市公司总市值的59%。
 
-连胜文分享了重读《台湾通史》的感悟。
+沪市头部公司作为国民经济各领域的排头兵，已成为维护资本市场平稳运行的压舱石与稳定器。
 
-他表示，小时候能背诵序言却不太理解，随着年龄增大，对这部著作的感触愈深。
+从2025年年报及近年来的经营数据看，沪市头部公司呈现出“四大亮点”。
 
-“尤其是‘筚路蓝缕，以启山林’一句，它所展现的，是中华民族不怕苦、不怕难、脚踏实地的精神。
+从业绩来看，沪市头部公司的2025年营收、净利润占沪市全部公司的比重分别达58.6%、87.2%，体现了头部企业的规模优势与盈利主导地位。
 
-” 现场，厦门大学台湾研究院副院长刘奎、《台湾通史》译注本总统稿人邓孔昭等专家学者，围绕连横的史学思想、爱国精神及其当代价值展开研讨。
+沪市头部公司的结构升级，科创属性凸显。
 
-刘奎指出，《台湾通史》明确提出“台湾之人，中国之人也，而又闽粤之族也”，揭示台湾与祖国大陆在政治、经济、文化等方面的历史渊源，并以史讴歌台湾先民的开拓精神，歌颂台湾民众矢志不渝的爱国情怀，“今天我们纪念连横先生，正是要传承发扬他求真务实的治史精神。
+近年来，沪市头部公司的行业格局已经从以传统金融、能源、基建为主导，逐步转向新兴产业多元支撑。
 
-” 本次活动由福建省连横文化研究院与厦门大学台湾研究院共同主办。
+以高端制造、生物医药、新一代信息技术、新能源等为代表的战略性新兴产业龙头持续壮大，科创类千亿市值企业数量稳步扩容，市场结构优化成效显著。
 
 ## 相关推荐
 
-- 2026-06-29 12:54 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 12:56 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 13:03 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:45 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:44 - [美军称对一艘“涉伊朗”油轮登船检查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:39 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:54 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:39 - [别瞧不起格林基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-29 12:53 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:57 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:00 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:43 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:54 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:03 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 13:01 - [2026年全国残疾人足球公开赛在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:01 - [原油期货上涨 或因技术性反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 13:08 - [中东紧张局势冲击全球旅游业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:46 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 13:01 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:00 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:49 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:53 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:55 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](http://www.blog.minike.top/Article/details/6432130891.shtml)
-- 2026-06-29 12:49 - [在洪安边城寻找“翠翠”](http://www.share.kurohicncr.top/Article/details/125176.shtml)
-- 2026-06-29 12:55 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](http://www.blog.kurohicncr.top/Article/details/1762704.shtml)
-- 2026-06-29 12:48 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.blog.kurohicncr.top/Article/details/113601965139.shtml)
-- 2026-06-29 13:02 - [全线爆发！三大龙头，历史新高](http://www.share.minike.top/Article/details/0929782.shtml)
-- 2026-06-29 12:50 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](http://www.share.kurohicncr.top/Article/details/8639666.shtml)
-- 2026-06-29 13:05 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.kurohicncr.top/Article/details/098013852.shtml)
-- 2026-06-29 13:00 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](http://www.share.minike.top/Article/details/13196511.shtml)
-- 2026-06-29 12:40 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](http://www.share.kurohicncr.top/Article/details/985033160.shtml)
-- 2026-06-29 12:51 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](http://www.share.minike.top/Article/details/656733.shtml)
-- 2026-06-29 13:02 - [微视频丨山河迎忠魂](http://www.share.minike.top/Article/details/8450893224.shtml)
-- 2026-06-29 12:59 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [四川累计外送电量突破2万亿千瓦时](http://www.blog.minike.top/Article/details/7929812.shtml)
-- 2026-06-29 12:43 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](http://www.blog.kurohicncr.top/Article/details/9437896631.shtml)
+- 2026-06-29 12:58 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.blog.kurohicncr.top/Article/details/18943972.shtml)
+- 2026-06-29 12:47 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](http://www.share.minike.top/Article/details/8595325.shtml)
+- 2026-06-29 13:09 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.blog.kurohicncr.top/Article/details/35629726520.shtml)
+- 2026-06-29 12:57 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](http://www.blog.kurohicncr.top/Article/details/0138695652.shtml)
+- 2026-06-29 12:56 - [央行公告这一名单更新！哪些机构新进，哪些退出？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.share.kurohicncr.top/Article/details/152651230981.shtml)
+- 2026-06-29 12:55 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.blog.minike.top/Article/details/197425405.shtml)
+- 2026-06-29 13:08 - [平安人寿保险增持农业银行4747.4万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](http://www.blog.minike.top/Article/details/2171418992.shtml)
+- 2026-06-29 13:01 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [国资委：将组织开展新一轮数智化转型专项行动](http://www.blog.kurohicncr.top/Article/details/512028.shtml)
+- 2026-06-29 13:08 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](http://www.blog.kurohicncr.top/Article/details/3714469390.shtml)
+- 2026-06-29 13:08 - [“五一”假期盘点 假期接待游客总量超1800万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](http://www.share.kurohicncr.top/Article/details/1546501592.shtml)
+- 2026-06-29 13:03 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lisacumin64-arch)

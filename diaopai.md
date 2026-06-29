@@ -1,57 +1,56 @@
-# 《技术经理人执业能力评价白皮书》在穗发布
+# 酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网广州4月21日电 (记者 王坚)《技术经理人执业能力评价白皮书》20日在广州发布。该白皮书科学划分五大职业类别，创新构建PCTM五级阶梯式评价体系，并配套基于区块链的数字身份认证系统，实现“一次认证、全网通行”。 据介绍，《技术经理人执业能力评价白皮书》由广州市粤港澳大湾区技术经理人协会牵头发起，联合大湾区科技创新服务中心、全国高校区域技术转移转化中心(粤港澳大湾区)陆空
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月7日整体走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9939元，较昨日下跌13元，创下近5天以来最低。市场在连续三日回暖后出现温和回调，终端交投情绪有所降温，核心单品涨跌分化依然显著，部分腰部酒品的跌幅较重。 今日白酒市场1
 
 ## 正文
 
-中新网广州4月21日电 (记者 王坚)《技术经理人执业能力评价白皮书》20日在广州发布。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月7日整体走弱。
 
-该白皮书科学划分五大职业类别，创新构建PCTM五级阶梯式评价体系，并配套基于区块链的数字身份认证系统，实现“一次认证、全网通行”。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9939元，较昨日下跌13元，创下近5天以来最低。
 
-据介绍，《技术经理人执业能力评价白皮书》由广州市粤港澳大湾区技术经理人协会牵头发起，联合大湾区科技创新服务中心、全国高校区域技术转移转化中心(粤港澳大湾区)陆空一体化智能出行分中心(下称：智能出行分中心)、全国高校区域技术转移转化中心(粤港澳大湾区·广州)高端科学仪器分中心、全国高校区域技术转移转化中心(粤港澳大湾区)生物医药分中心、香港科技大学(广州)、西安电子科技大学广州研究院、广东省灵山论坛科学中心、广州工业智能研究院、中新国际联合研究院、广州工控科创集团有限公司共同发起。
+市场在连续三日回暖后出现温和回调，终端交投情绪有所降温，核心单品涨跌分化依然显著，部分腰部酒品的跌幅较重。
 
-据了解，该白皮书科学划分五大职业类别，创新构建PCTM五级阶梯式评价体系，并配套基于区块链的数字身份认证系统，实现“一次认证、全网通行”。
+今日白酒市场11大单品四涨六跌一平，输家略占上风。
 
-该评价体系的出台标志着技术转移转化行业正式进入中国化、标准化、职业化发展的新阶段。
+上涨方面，五粮液普五八代和水晶剑南春涨幅居前，上涨4元/瓶，前者逼近一个月来最高纪录，后者平近一个月最大涨幅，价格亦创下4月7日以来最高；精品茅台与国窖1573上涨3元/瓶。
 
-以该白皮书发布为契机，广州粤港澳大湾区技术经理人协会联合各发布单位同步启动技术经理人人才培育计划，通过创新构建“评价—派单—再评价”实战化闭环培育体系，锻造一批懂技术、通产业、善运营的复合型专业人才，以湾创技术经理人事务所为平台，为技术经理人提供就业、创业、职业发展全周期成长支持。
+下跌方面，青花郎跌幅居前，下跌9元/瓶，失守700元关口；古井贡古20与习酒君品均下跌7元/瓶；飞天茅台下跌2元/瓶；五粮液1618与青花汾20均下跌2元/瓶。
 
-“我们将发挥各自优势，由广州市粤港澳大湾区技术经理人协会牵头制定评价标准、大湾区科技创新服务中心提供产业实战与企业实训场景，智能出行分中心提供高校科研与实践支撑，联合开展人才培训、能力评价与资质互认。
+洋河梦之蓝M6+的价格环比保持不变。
 
-”智能出行分中心执行主任戴青云表示，该分中心已与大湾区科技创新服务中心、广州市粤港澳大湾区技术经理人协会达成三方合作，共建智能出行技术经理人协作平台；并通过派驻专职技术经理人、共享人才库等方式，以标准育人才、以场景练人才，构建专业化人才培育体系，为智能出行领域成果转化提供核心人才支撑。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [耀才证券金融盘中涨超9% 正式进入港股通名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
-- 2026-06-29 12:58 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:42 - [百利天恒4月21日大宗交易成交354.40万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 13:01 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:36 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 13:02 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:37 - [光大期货：4月21日能源化工日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:39 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:41 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:03 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:03 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:46 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:51 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 13:11 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:02 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:08 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 13:11 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 13:00 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:56 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:54 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 12:50 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.blog.kurohicncr.top/Article/details/460101415212.shtml)
-- 2026-06-29 12:57 - [竹篮打水一场空？单日百亿的“爆款基金”还剩下多少钱？](http://www.share.minike.top/Article/details/01148885805.shtml)
-- 2026-06-29 12:36 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](http://www.share.kurohicncr.top/Article/details/482660.shtml)
-- 2026-06-29 12:48 - [第四届链博会印尼推介会成功举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [陕西发现一座十六国时期大型墓葬 推测墓主为皇室成员](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [山东高校举办“本草花艺”中医药插花展 迎接世界读书日](http://www.share.minike.top/Article/details/17001644.shtml)
-- 2026-06-29 12:54 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.share.kurohicncr.top/Article/details/415643825729.shtml)
-- 2026-06-29 12:58 - [第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [湖南江永优质蔬菜热销粤港澳大湾区](http://www.share.minike.top/Article/details/151854.shtml)
-- 2026-06-29 12:42 - [奥林匹克文献研学中心在天津成立](http://www.share.minike.top/Article/details/65439429.shtml)
-- 2026-06-29 12:58 - [尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！](http://www.share.kurohicncr.top/Article/details/8615905994.shtml)
-- 2026-06-29 13:02 - [“中国航天日”临近 长春小朋友参观航天展](http://www.blog.minike.top/Article/details/61978446.shtml)
-- 2026-06-29 12:39 - [刘海星分别会见欧洲议会、莫桑比克客人](http://www.share.kurohicncr.top/Article/details/939782721996.shtml)
-- 2026-06-29 12:36 - [锚定长期主义，古井贡酒“三品工程”七届深耕，筑牢“发展之根”](http://www.share.minike.top/Article/details/8752792641.shtml)
+- 2026-06-29 13:01 - [迪士尼超预期财报助推相关ETF，个股年内仍跌12%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [InflaRx完成1.5亿美元普通股发行定价](http://www.blog.minike.top/Article/details/2329953691.shtml)
+- 2026-06-29 12:54 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.blog.minike.top/Article/details/9339319.shtml)
+- 2026-06-29 12:46 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.share.kurohicncr.top/Article/details/305042596.shtml)
+- 2026-06-29 12:51 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.blog.minike.top/Article/details/13744838737.shtml)
+- 2026-06-29 12:42 - [皇朝家居就清远市的生产厂房订立租赁协议](http://www.blog.minike.top/Article/details/566552.shtml)
+- 2026-06-29 13:09 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [书香伴假日 奋斗自芳华](http://www.blog.kurohicncr.top/Article/details/09812232.shtml)
+- 2026-06-29 12:47 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.blog.minike.top/Article/details/9799965.shtml)
+- 2026-06-29 13:05 - [广西开展专题调研——探寻八桂大地上的团结密码](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.share.kurohicncr.top/Article/details/07988.shtml)
+- 2026-06-29 13:05 - [中国车企“扫货”海外闲置产能](http://www.blog.kurohicncr.top/Article/details/4809177.shtml)
+- 2026-06-29 13:04 - [重组完成28个月后，中国奥园为何再陷境外债违约？](http://www.blog.kurohicncr.top/Article/details/67967.shtml)
+- 2026-06-29 13:01 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](http://www.share.minike.top/Article/details/47507736.shtml)
+- 2026-06-29 13:01 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](http://www.share.minike.top/Article/details/890776246048.shtml)

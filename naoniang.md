@@ -1,59 +1,58 @@
-# 七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压
+# 午盘：美股继续上扬 纳指创盘中新高
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-头部建筑央企业绩承压，是整个建筑行业发展的缩影。 建筑行业调整转型之际，大型建筑央企正集体面临盈利挑战。 近日，中国建筑（601668.SH）发布2025年业绩报告，显示其去年实现营业收入2.08万亿元，同比下降4.8%；实现归母净利润390.7亿元，同比下降15.4%，已连续两年出现下滑。 其余几家建筑龙头，同样面临业绩短期承压的局面。从核心指标归母净利润看，去年中国中冶（6
+北京时间5月6日凌晨，美股周二午盘继续上扬，纳指创盘中历史新高。道指上涨200点。交易员密切关注一系列强劲财报结果。原油价格全线回落，WTI原油下跌逾4%。 道指涨254.85点，涨幅为0.52%，报49196.75点；纳指涨237.13点，涨幅为0.95%，报25304.93点；标普500指数涨55.39点，涨幅为0.77%，报7256.14点。 周二早间，纳指最高上涨至25
 
 ## 正文
 
-头部建筑央企业绩承压，是整个建筑行业发展的缩影。
+北京时间5月6日凌晨，美股周二午盘继续上扬，纳指创盘中历史新高。
 
-建筑行业调整转型之际，大型建筑央企正集体面临盈利挑战。
+道指上涨200点。
 
-近日，中国建筑（601668.SH）发布2025年业绩报告，显示其去年实现营业收入2.08万亿元，同比下降4.8%；实现归母净利润390.7亿元，同比下降15.4%，已连续两年出现下滑。
+交易员密切关注一系列强劲财报结果。
 
-其余几家建筑龙头，同样面临业绩短期承压的局面。
+原油价格全线回落，WTI原油下跌逾4%。
 
-从核心指标归母净利润看，去年中国中冶（601618.SH）降幅超八成，中国交建（601800.SH）等归母净利润降幅超三成。
+道指涨254.85点，涨幅为0.52%，报49196.75点；纳指涨237.13点，涨幅为0.95%，报25304.93点；标普500指数涨55.39点，涨幅为0.77%，报7256.14点。
 
-“2025年，建筑央企整体面临收入与利润双承压的困境。
+周二早间，纳指最高上涨至25335.40点，创盘中历史新高。
 
-市场萎缩行业承压，叠加公司普遍出清风险压实资产质量，造成利润明显下滑。
+原油价格全线下跌，为股指提供了支撑。
 
-”长江证券表示。
+西得克萨斯中质原油期货下跌4.2%，跌破每桶102美元上方。
 
 ## 相关推荐
 
-- 2026-06-29 12:39 - [联合健康集团业绩超预期并上调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 12:58 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:43 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:40 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:01 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:39 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:45 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 13:05 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:52 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:55 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:40 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:40 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:43 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:43 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:44 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:07 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 13:00 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:57 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 12:56 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:47 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:06 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:59 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:04 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:44 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:59 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [中芯国际获南向资金连续3天净买入](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](http://www.blog.minike.top/Article/details/61457557.shtml)
-- 2026-06-29 12:45 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.share.kurohicncr.top/Article/details/598898316428.shtml)
-- 2026-06-29 13:04 - [金针菇概念股，净利润大增超7000%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [方邦股份4月21日龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/5912657036.shtml)
-- 2026-06-29 12:56 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.minike.top/Article/details/350683478557.shtml)
-- 2026-06-29 12:46 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](http://www.share.minike.top/Article/details/92796129630.shtml)
-- 2026-06-29 12:49 - [旷日持久的冲突或将对铜价构成压力](http://www.blog.kurohicncr.top/Article/details/508322103329.shtml)
-- 2026-06-29 12:49 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](http://www.share.kurohicncr.top/Article/details/18743178.shtml)
-- 2026-06-29 13:03 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.share.kurohicncr.top/Article/details/689242280.shtml)
-- 2026-06-29 12:50 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](http://www.blog.kurohicncr.top/Article/details/09765992350.shtml)
-- 2026-06-29 12:40 - [在洪安边城寻找“翠翠”](http://www.share.minike.top/Article/details/09977477.shtml)
-- 2026-06-29 12:52 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.share.minike.top/Article/details/41847552.shtml)
+- 2026-06-29 13:02 - [成都铁路迎“五一”假期客流返程高峰](http://www.blog.kurohicncr.top/Article/details/916652.shtml)
+- 2026-06-29 13:10 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.blog.kurohicncr.top/Article/details/2660202.shtml)
+- 2026-06-29 13:04 - [特朗普威胁伊朗不要向美国船开火](http://www.share.minike.top/Article/details/8068317496.shtml)
+- 2026-06-29 12:44 - [广东建成内地规模最大欧标充电服务网络](http://www.share.minike.top/Article/details/82710222958.shtml)
+- 2026-06-29 13:07 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.blog.kurohicncr.top/Article/details/602389203.shtml)
+- 2026-06-29 12:45 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.blog.kurohicncr.top/Article/details/682967517.shtml)
+- 2026-06-29 12:55 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:10 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.blog.kurohicncr.top/Article/details/660950.shtml)
+- 2026-06-29 13:08 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](http://www.share.minike.top/Article/details/58979.shtml)
+- 2026-06-29 13:10 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.blog.minike.top/Article/details/88245941.shtml)
+- 2026-06-29 12:58 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](http://www.blog.kurohicncr.top/Article/details/89985322.shtml)
+- 2026-06-29 12:56 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.blog.kurohicncr.top/Article/details/664113681.shtml)

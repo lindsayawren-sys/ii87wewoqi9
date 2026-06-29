@@ -1,58 +1,46 @@
-# 机械车位闲置，如何盘活改造？
+# 哈塞特：没有参与私募信贷的人不必担心
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-城市停车难是不少车主的烦心事。在城市用地紧张的环境下，机械车位凭借垂直设计，让单位土地面积的停车能力提升，有效缓解了车位供需矛盾，也有助于营造整洁、有序的城市环境。但记者在调研采访中了解到，一些机械车位并未发挥出应有作用，反而成为一堆看得见却用不上的“钢铁摆设”。机械车位因何闲置？盘活闲置资源存在哪些困难？有无可行的解决方案？部分车位闲置 “当初买机械车位时感觉还挺酷的。”家住
+白宫经济顾问凯文·哈塞特在接受福克斯商业频道采访时表示，私募信贷行业的当前状况尚未达到可能引发金融危机的程度。 他表示，私募信贷的架构设计时已对系统性风险保持了“敏锐的关注”，“因此，尽管有些人可能对回报感到失望，但我认为那些未参与私募信贷的人无需担心这种情况会蔓延至市场其他领域”。责任编辑：李安桐
 
 ## 正文
 
-城市停车难是不少车主的烦心事。
+白宫经济顾问凯文·哈塞特在接受福克斯商业频道采访时表示，私募信贷行业的当前状况尚未达到可能引发金融危机的程度。
 
-在城市用地紧张的环境下，机械车位凭借垂直设计，让单位土地面积的停车能力提升，有效缓解了车位供需矛盾，也有助于营造整洁、有序的城市环境。
+他表示，私募信贷的架构设计时已对系统性风险保持了“敏锐的关注”，“因此，尽管有些人可能对回报感到失望，但我认为那些未参与私募信贷的人无需担心这种情况会蔓延至市场其他领域”。
 
-但记者在调研采访中了解到，一些机械车位并未发挥出应有作用，反而成为一堆看得见却用不上的“钢铁摆设”。
-
-机械车位因何闲置？
-
-盘活闲置资源存在哪些困难？
-
-有无可行的解决方案？
-
-部分车位闲置 “当初买机械车位时感觉还挺酷的。
-
-”家住山东泰安的郭女士在3年前花8万元买下小区一个升降横移式机械车位，与另外两位业主共用一个三车一组的立体车库，但仅使用了半年就出现过刷卡失灵、链条异响、车位卡滞等故障。
+责任编辑：李安桐
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:46 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:53 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 13:05 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 13:01 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:56 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:43 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:43 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:55 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:41 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:53 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:49 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:48 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:49 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:46 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:47 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:52 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:50 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 13:00 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:49 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:09 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:03 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [方邦股份4月21日龙虎榜数据](http://www.blog.minike.top/Article/details/58151.shtml)
-- 2026-06-29 12:48 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.kurohicncr.top/Article/details/56421658.shtml)
-- 2026-06-29 12:50 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](http://www.share.kurohicncr.top/Article/details/572983.shtml)
-- 2026-06-29 12:43 - [旷日持久的冲突或将对铜价构成压力](http://www.blog.kurohicncr.top/Article/details/048193970485.shtml)
-- 2026-06-29 13:00 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](http://www.share.kurohicncr.top/Article/details/1276794.shtml)
-- 2026-06-29 12:39 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.blog.minike.top/Article/details/589637618989.shtml)
-- 2026-06-29 12:48 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](http://www.share.minike.top/Article/details/49041556978.shtml)
-- 2026-06-29 12:47 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [在洪安边城寻找“翠翠”](http://www.share.minike.top/Article/details/385083428.shtml)
-- 2026-06-29 13:02 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](http://www.blog.kurohicncr.top/Article/details/1813110.shtml)
-- 2026-06-29 12:54 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [全线爆发！三大龙头，历史新高](http://www.blog.minike.top/Article/details/469586654803.shtml)
-- 2026-06-29 12:46 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:06 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.minike.top/Article/details/514546757318.shtml)
+- 2026-06-29 12:52 - [广东建成内地规模最大欧标充电服务网络](http://www.share.minike.top/Article/details/67050.shtml)
+- 2026-06-29 13:00 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.share.minike.top/Article/details/509168070415.shtml)
+- 2026-06-29 12:50 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.share.kurohicncr.top/Article/details/976450419172.shtml)
+- 2026-06-29 12:49 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.kurohicncr.top/Article/details/3486584956.shtml)
+- 2026-06-29 12:46 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.blog.kurohicncr.top/Article/details/1605423519.shtml)
+- 2026-06-29 13:10 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](http://www.share.minike.top/Article/details/0045301.shtml)
+- 2026-06-29 12:50 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](http://www.share.minike.top/Article/details/8753672.shtml)
+- 2026-06-29 13:02 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.share.minike.top/Article/details/89043458178.shtml)
+- 2026-06-29 13:00 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](http://www.blog.minike.top/Article/details/037055241884.shtml)
+- 2026-06-29 12:47 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.share.kurohicncr.top/Article/details/120797850.shtml)
+- 2026-06-29 12:45 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](http://www.share.minike.top/Article/details/575917060.shtml)
+- 2026-06-29 13:07 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.share.minike.top/Article/details/179547.shtml)
+- 2026-06-29 12:49 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.share.minike.top/Article/details/06213589538.shtml)

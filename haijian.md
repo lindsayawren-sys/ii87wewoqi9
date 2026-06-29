@@ -1,58 +1,56 @@
-# 特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈
+# Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-据报道，特朗普政府官员表示，这位总统正通过其社交媒体上的言论阻碍与伊朗达成协议的努力。一些匿名官员在接受媒体采访时抨击特朗普的这种行为，并表示面对一位根本不听取他们建议的总统，他们能做的也仅限于此，无法减少其造成的损害。 例如，特朗普上周五在与记者的电话会议中讨论了谈判细节，称伊朗已同意“无限期”暂停其核计划，但伊朗外交部发言人伊斯梅尔·巴盖伊迅速在接受伊朗国家广播电视台IRI
+Alphabet Inc．发行其史上规模最大的欧元计价债券并吸引强劲需求，融资规模至少90亿欧元（105亿美元），以支持其人工智能发展计划。 据一位知情人士透露，此次分六个期限发行的债券已吸引超过252亿欧元的认购。该人士因信息未公开而要求匿名。这笔交易将成为Alphabet有史以来规模最大的欧元债发行，此前该公司几个月前刚发行了接近320亿美元的美元、英镑和瑞郎债券。 Alp
 
 ## 正文
 
-据报道，特朗普政府官员表示，这位总统正通过其社交媒体上的言论阻碍与伊朗达成协议的努力。
+Alphabet Inc．发行其史上规模最大的欧元计价债券并吸引强劲需求，融资规模至少90亿欧元（105亿美元），以支持其人工智能发展计划。
 
-一些匿名官员在接受媒体采访时抨击特朗普的这种行为，并表示面对一位根本不听取他们建议的总统，他们能做的也仅限于此，无法减少其造成的损害。
+据一位知情人士透露，此次分六个期限发行的债券已吸引超过252亿欧元的认购。
 
-例如，特朗普上周五在与记者的电话会议中讨论了谈判细节，称伊朗已同意“无限期”暂停其核计划，但伊朗外交部发言人伊斯梅尔·巴盖伊迅速在接受伊朗国家广播电视台IRIB采访时驳斥了这一说法。
+该人士因信息未公开而要求匿名。
 
-周一，特朗普在Truth Social上发布了多篇帖子，总字数超过900字，内容涵盖将伊朗冲突与美国以往战争进行比较、霍尔木兹海峡封锁对伊朗的经济打击，以及“午夜之锤行动”对伊朗核能力的影响。
+这笔交易将成为Alphabet有史以来规模最大的欧元债发行，此前该公司几个月前刚发行了接近320亿美元的美元、英镑和瑞郎债券。
 
-但特朗普政府的官员表示，这些帖子不利于正在进行的谈判，尤其考虑到谈判的敏感性以及伊朗对美国的不信任。
+Alphabet上周表示，今年资本支出计划最高可达1900亿美元，主要用于投资对其AI战略至关重要的数据中心。
 
-自伊朗冲突爆发以来，特朗普在社交媒体上发表了一系列言论，批评人士称这些言论破坏了外交努力，并可能越过了法律界限。
+知情人士称，周二此次发行（以及任何同步进行的发行）募集的资金将用于一般公司用途，可能包括偿还未偿债务。
 
-在同意为期两周的停火协议之前，特朗普曾威胁要摧毁伊朗的发电厂和桥梁，专家表示，这一威胁可能构成违反国际法的行为。
+标普在一份声明中表示，该公司还计划发行加元计价债券；并对拟发行的欧元和加元债券给予AA+评级。
 
-联合国发言人斯特凡·杜加里克指出：“即使某些特定的民用基础设施被认定为军事目标，国际人道主义法仍然禁止对其发动攻击。
+Alphabet最新的欧元债发行预计将于周二稍晚定价，此次交易由巴克莱、法国巴黎银行、德意志银行和汇丰控股负责安排。
 
 ## 相关推荐
 
-- 2026-06-29 12:54 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:39 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:57 - [光大期货：4月21日能源化工日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:48 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:43 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:46 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 13:03 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:59 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:42 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:43 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 13:00 - [这种清凉主食热量低，减肥可吃！但这几点要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:40 - [拍照识字、自动翻译 探索打开古籍的N种方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 13:04 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 13:09 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 13:07 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:46 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:43 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 13:01 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:43 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:42 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:53 - [93.59万人次“五一”打卡太原文博 门票收入破千万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
+- 2026-06-29 12:42 - [追光的你｜明天的中国，希望寄予青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:00 - [陕西发现一座十六国时期大型墓葬 推测墓主为皇室成员](http://www.blog.minike.top/Article/details/3891502503.shtml)
-- 2026-06-29 12:40 - [山东高校举办“本草花艺”中医药插花展 迎接世界读书日](http://www.blog.kurohicncr.top/Article/details/266918.shtml)
-- 2026-06-29 12:58 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.share.minike.top/Article/details/925152892.shtml)
-- 2026-06-29 13:02 - [第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.share.minike.top/Article/details/90006245232.shtml)
-- 2026-06-29 12:58 - [湖南江永优质蔬菜热销粤港澳大湾区](http://www.share.kurohicncr.top/Article/details/565378126.shtml)
-- 2026-06-29 13:00 - [奥林匹克文献研学中心在天津成立](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！](http://www.share.kurohicncr.top/Article/details/539941.shtml)
-- 2026-06-29 12:46 - [新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！](http://www.blog.kurohicncr.top/Article/details/63515380.shtml)
-- 2026-06-29 13:03 - [“中国航天日”临近 长春小朋友参观航天展](http://www.share.minike.top/Article/details/1649368025.shtml)
-- 2026-06-29 13:04 - [刘海星分别会见欧洲议会、莫桑比克客人](http://www.blog.minike.top/Article/details/1382515772.shtml)
-- 2026-06-29 12:52 - [锚定长期主义，古井贡酒“三品工程”七届深耕，筑牢“发展之根”](http://www.share.kurohicncr.top/Article/details/941475.shtml)
-- 2026-06-29 12:48 - [上期所镍期货及期权引入境外交易者参与交易](http://www.blog.minike.top/Article/details/4654362516.shtml)
-- 2026-06-29 13:04 - [国台办批驳赖清德“以和平包装统一”谬论](http://www.blog.kurohicncr.top/Article/details/29682.shtml)
-- 2026-06-29 12:45 - [别问，问就是来不及了！马上要去2026金融街智绘春光嘉年华了！](http://www.blog.minike.top/Article/details/2683305.shtml)
-- 2026-06-29 12:46 - [德国认为结束中东冲突出现“机会窗口”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.blog.minike.top/Article/details/66732821.shtml)
+- 2026-06-29 13:11 - [皇朝家居就清远市的生产厂房订立租赁协议](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:10 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](http://www.blog.kurohicncr.top/Article/details/2309167.shtml)
+- 2026-06-29 12:43 - [书香伴假日 奋斗自芳华](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.share.minike.top/Article/details/71855.shtml)
+- 2026-06-29 12:58 - [广西开展专题调研——探寻八桂大地上的团结密码](http://www.share.kurohicncr.top/Article/details/59745907.shtml)
+- 2026-06-29 12:44 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [中国车企“扫货”海外闲置产能](http://www.blog.minike.top/Article/details/56044373907.shtml)
+- 2026-06-29 13:03 - [重组完成28个月后，中国奥园为何再陷境外债违约？](http://www.blog.minike.top/Article/details/4449650.shtml)
+- 2026-06-29 12:49 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](http://www.share.minike.top/Article/details/5709244011.shtml)
+- 2026-06-29 13:09 - [惠誉将阿根廷信用评级上调至B- 展望稳定](http://www.share.minike.top/Article/details/71179289.shtml)
+- 2026-06-29 13:02 - [Coinbase裁员14% 转向“AI优先”运营模式](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [日本央行会议纪要：一位委员称政策利率仍远未达到中性水平](http://www.share.kurohicncr.top/Article/details/142221.shtml)
+- 2026-06-29 13:06 - [西藏自治区拉萨市委常委、常务副市长占堆被查](http://www.share.kurohicncr.top/Article/details/4512226052.shtml)

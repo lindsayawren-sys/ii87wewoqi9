@@ -1,59 +1,56 @@
-# 中国长安朱华荣：汽车产业已进入淘汰赛
+# 宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。 他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。单一企业很难独自
+中新网银川5月6日电(记者 于晶)5月5日，记者从宁夏回族自治区商务厅获悉，今年“五一”假期，宁夏消费市场活力迸发、热度高涨，呈现商旅文体农深度融合、政策与场景双轮驱动的火热态势。监测数据显示，宁夏重点监测的201家商贸企业累计实现零售总额6.83亿元，其中餐饮销售额5460.38万元，同比增长6.4%，消费市场运行平稳、亮点纷呈。假日期间，宁夏统筹常态化促消费与特色举措，创新
 
 ## 正文
 
-4月21日，“中国长安汽车集团全球战略发布会”举行，主题为：创新创业 智启长安。
+中新网银川5月6日电(记者 于晶)5月5日，记者从宁夏回族自治区商务厅获悉，今年“五一”假期，宁夏消费市场活力迸发、热度高涨，呈现商旅文体农深度融合、政策与场景双轮驱动的火热态势。
 
-中国长安汽车集团有限公司党委书记、董事长朱华荣谈到，中国长安现在这个多能源的这种企业，中国长安汽车在现阶段多能源技术路线上的优势非常明显，将有力助推中国品牌全球化发展。
+监测数据显示，宁夏重点监测的201家商贸企业累计实现零售总额6.83亿元，其中餐饮销售额5460.38万元，同比增长6.4%，消费市场运行平稳、亮点纷呈。
 
-他指出，当前汽车产业已经进入淘汰赛，马太效应空前加剧。
+假日期间，宁夏统筹常态化促消费与特色举措，创新推出“票根经济”，将交通票、赛事票等变为“消费通行证”，让游客一路游玩一路省钱。
 
-“我坚信，未来三到五年，全球汽车产业的竞争格局将会重新形成。
+来自福建的李先生一家落地银川后，上传机票票根即领取百元消费券，餐饮、住宿、购物均可抵扣。
 
-单一企业很难独自承担在智驾、芯片、能源等领域巨额的研发投入，汽车企业如果仅仅依靠造车、卖车这一持续了百年的传统模式，很难实现高质量发展。
+银川“银票有礼”、吴忠票根联动全链条、中卫525万元专项资金加持，通过小程序实现一站式领券核销，有效将过境客流转化为消费流量。
 
-” 因此，朱华荣认为，汽车产业必须打破边界，跨界融合，携手产业内外的科技合作伙伴，共同建设开放、共赢、可持续的合作生态，实现从“制造”向“生态”的跃迁。
+同步推进的以旧换新政策同样受到欢迎：智能家居享受15%补贴、最高1500元，适老化产品补贴20%、最高2000元，真金白银激活家居消费潜力。
 
-新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
+假期期间，成品油、食品、金银珠宝零售额分别达1.9亿元、6980.3万元、2609万元，同比分别增长3.2%、6.1%、10.4%，大宗商品消费稳步增长。
 
-责任编辑：李昂
+各大商业综合体瞄准假日需求，将亲子、文体、潮流等元素搬进商场。
 
 ## 相关推荐
 
-- 2026-06-29 12:37 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:59 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:50 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:51 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:00 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:48 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:42 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 12:52 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 13:04 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 12:49 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:01 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:59 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:04 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 13:10 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:50 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 13:05 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 12:44 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 13:11 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:51 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:59 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:53 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 12:51 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 13:03 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.blog.kurohicncr.top/Article/details/082553.shtml)
-- 2026-06-29 12:42 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](http://www.blog.kurohicncr.top/Article/details/2066544108.shtml)
-- 2026-06-29 13:01 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.blog.minike.top/Article/details/9858704061.shtml)
-- 2026-06-29 12:46 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.blog.minike.top/Article/details/6295115.shtml)
-- 2026-06-29 12:47 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.blog.kurohicncr.top/Article/details/94254625113.shtml)
-- 2026-06-29 12:45 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.minike.top/Article/details/77321.shtml)
-- 2026-06-29 12:54 - [另类师徒携手追凶 《黑夜告白》定档](http://www.share.minike.top/Article/details/358573929657.shtml)
-- 2026-06-29 12:55 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](http://www.blog.minike.top/Article/details/37152616.shtml)
-- 2026-06-29 12:46 - [人民币兑美元中间价报6.8594，上调54点](http://www.blog.minike.top/Article/details/422580619666.shtml)
-- 2026-06-29 12:38 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.blog.minike.top/Article/details/41669709561.shtml)
-- 2026-06-29 13:02 - [沃什如何推动美联储实现“政策范式转变”](http://www.blog.minike.top/Article/details/646024020.shtml)
-- 2026-06-29 12:59 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.share.minike.top/Article/details/71880960.shtml)
-- 2026-06-29 12:54 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:40 - [春播春管进行时——各地农业高质量发展一线观察](http://www.share.minike.top/Article/details/639472.shtml)
+- 2026-06-29 13:09 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.kurohicncr.top/Article/details/2387298801.shtml)
+- 2026-06-29 12:51 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.minike.top/Article/details/812883847.shtml)
+- 2026-06-29 12:44 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.kurohicncr.top/Article/details/67811076.shtml)
+- 2026-06-29 13:09 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.share.kurohicncr.top/Article/details/650720237.shtml)
+- 2026-06-29 12:53 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.blog.kurohicncr.top/Article/details/5916224483.shtml)
+- 2026-06-29 13:01 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](http://www.share.kurohicncr.top/Article/details/657237.shtml)
+- 2026-06-29 13:09 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](http://www.share.minike.top/Article/details/5918032.shtml)
+- 2026-06-29 13:05 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](http://www.share.minike.top/Article/details/21603.shtml)
+- 2026-06-29 13:03 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](http://www.blog.kurohicncr.top/Article/details/374971998825.shtml)
+- 2026-06-29 12:47 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](http://www.blog.minike.top/Article/details/9597429415.shtml)
+- 2026-06-29 13:07 - [南京银行：印建军担任业务总监的任职资格获监管核准](http://www.blog.minike.top/Article/details/78817.shtml)
+- 2026-06-29 13:08 - [房产租赁毛利率下滑，汇通能源经营遇考](http://www.share.minike.top/Article/details/2855736040.shtml)

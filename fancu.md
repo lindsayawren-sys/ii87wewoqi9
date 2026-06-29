@@ -1,57 +1,60 @@
-# 苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？
+# 成本压力持续传导 全球消费品企业竞相涨价
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-卓创资讯分析师 张晓翠 导语：进入2026年以来，苯乙烯-纯苯价差大致呈现“M”型走势，至4月中旬，二者价差降至年内最低水平，主要纯苯基本面格局要强于苯乙烯。后市来看，苯乙烯与纯苯基本面预期均偏强，但乙烯价格尚维持高位，苯乙烯利润处于亏损且港口预计下降至10万吨以内，综合来看，苯乙烯-纯苯价差或在目前水平下走扩的性价比或大于继续收窄。 纯苯格局逐步转强，压缩苯乙烯-纯苯价差 3
+伊朗战争带来的供应链中断与能源成本飙升，正迫使从快消品到零售业的全球企业选择提价。继联合利华、雀巢等巨头宣布涨价后，澳大利亚最大非食品零售商Wesfarmers周二也加入涨价行列，警告消费者将面临更广泛的价格冲击。 全球快消品巨头联合利华4月30日宣布，受供应链不畅和大宗商品价格飙升影响，预计全年总成本将上涨约7.5亿至9亿欧元。该公司首席财务官表示，若通胀压力持续，可能将产品
 
 ## 正文
 
-卓创资讯分析师 张晓翠 导语：进入2026年以来，苯乙烯-纯苯价差大致呈现“M”型走势，至4月中旬，二者价差降至年内最低水平，主要纯苯基本面格局要强于苯乙烯。
+伊朗战争带来的供应链中断与能源成本飙升，正迫使从快消品到零售业的全球企业选择提价。
 
-后市来看，苯乙烯与纯苯基本面预期均偏强，但乙烯价格尚维持高位，苯乙烯利润处于亏损且港口预计下降至10万吨以内，综合来看，苯乙烯-纯苯价差或在目前水平下走扩的性价比或大于继续收窄。
+继联合利华、雀巢等巨头宣布涨价后，澳大利亚最大非食品零售商Wesfarmers周二也加入涨价行列，警告消费者将面临更广泛的价格冲击。
 
-纯苯格局逐步转强，压缩苯乙烯-纯苯价差 3月初，地缘问题爆发，苯乙烯-纯苯价差快速走扩，一度涨至近五年来最高水平2100元/吨，后维持高位震荡。
+全球快消品巨头联合利华4月30日宣布，受供应链不畅和大宗商品价格飙升影响，预计全年总成本将上涨约7.5亿至9亿欧元。
 
-原油宽幅上涨以来，苯乙烯在出口超预期增加预期下，涨势偏强，而纯苯主港库存巨高不下，表现弱于苯乙烯，苯乙烯-纯苯价差快速走扩。
+该公司首席财务官表示，若通胀压力持续，可能将产品价格上调2%至3%，涨价主要集中在涉及原油衍生品的家庭日化产品，亚洲、非洲和拉美部分地区涨幅相对较大。
 
-进入4月份，纯苯去库力度开始加快，且检修预期增多、进口预期下降，基本面格局转强；而苯乙烯利好依然是出口超预期增加， 但库存尚未兑现出口增多去库的预期，库存下降力度不及预期，基本面格局较纯苯偏弱，二者价差快速收窄，甚至低于地缘问题爆发前的水平。
+与此同时，雀巢、宝洁等企业也表示正面临类似成本压力。
 
-截至4月17日，华东苯乙烯-纯苯价差收窄至1340元/吨。
+澳大利亚零售巨头Wesfarmers周二表示，因运费与燃料成本加剧，正调涨部分商品价格。
 
-乙烯价格高位，或限制苯乙烯-纯苯价差进一步收窄空间 近三年来，中国乙烯价格基本处于7500元/吨下方，2026年一季度更是跌至6000元/吨下方，较低的乙烯价格一定程度给苯乙烯利润提供空间。
+公司执行长指出，运输成本与燃料成本正对供应链形成压力，其中与石化原料相关的产品，尤其是PVC管材与其他建筑用品，将面临较明显的涨价压力。
 
-但3月地缘问题以来，乙烯价格受供应紧张影响，价格宽幅上涨，最高冲至万元以上，成为近五年来的最高水平，后价格虽有回落，但依然处于9000元/吨上方。
+他强调，尽管如此，公司仍尽力避免将全部成本一次性转嫁给消费者。
 
 ## 相关推荐
 
-- 2026-06-29 12:53 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:37 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:53 - [连跌10周，猪价反弹了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:44 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:48 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:53 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:43 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:40 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 13:02 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:46 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:40 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-29 13:04 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:53 - [燃油价格飙升，韩国4月通胀率创21个月新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:59 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:58 - [Coinbase首席执行官称公司将裁员约14%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 13:09 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:56 - [全国大部降水增多 冷空气将自北向南制造降温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:49 - [开盘：美股周二高开 油价回落与强劲财报提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:53 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:50 - [哮喘控制不好？快看看吸入剂你用对了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:58 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:53 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:48 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:44 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:46 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:01 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](http://www.share.minike.top/Article/details/574097049550.shtml)
-- 2026-06-29 12:41 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](http://www.blog.minike.top/Article/details/607013.shtml)
-- 2026-06-29 12:57 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](http://www.blog.minike.top/Article/details/77105574.shtml)
-- 2026-06-29 12:53 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](http://www.share.minike.top/Article/details/323691318217.shtml)
-- 2026-06-29 12:45 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [《技术经理人执业能力评价白皮书》在穗发布](http://www.blog.kurohicncr.top/Article/details/8039663.shtml)
-- 2026-06-29 12:43 - [自然资源部：已建成省级以上绿色矿山5500余家](http://www.blog.minike.top/Article/details/90854977.shtml)
-- 2026-06-29 13:02 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](http://www.blog.kurohicncr.top/Article/details/788361.shtml)
-- 2026-06-29 12:56 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](http://www.share.kurohicncr.top/Article/details/376497135.shtml)
-- 2026-06-29 12:56 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](http://www.blog.kurohicncr.top/Article/details/321387.shtml)
-- 2026-06-29 13:01 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](http://www.share.minike.top/Article/details/5145195822.shtml)
-- 2026-06-29 12:36 - [中央气象台：江南华南有较强降水](http://www.share.minike.top/Article/details/703287478562.shtml)
-- 2026-06-29 12:37 - [耀才证券金融盘中涨超9% 正式进入港股通名单](http://www.share.minike.top/Article/details/10269.shtml)
-- 2026-06-29 12:53 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.share.kurohicncr.top/Article/details/48738060.shtml)
-- 2026-06-29 12:52 - [百利天恒4月21日大宗交易成交354.40万元](http://www.share.kurohicncr.top/Article/details/82074.shtml)
+- 2026-06-29 13:06 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](http://www.share.kurohicncr.top/Article/details/90926325.shtml)
+- 2026-06-29 12:57 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](http://www.share.minike.top/Article/details/49738.shtml)
+- 2026-06-29 12:45 - [购房新政叠加“五一”假期 多地楼市升温](http://www.share.minike.top/Article/details/940025561069.shtml)
+- 2026-06-29 12:42 - [滴普科技午前大涨逾21% 机构看好其营收高增](http://www.share.minike.top/Article/details/414531387682.shtml)
+- 2026-06-29 13:10 - [韩股飙涨6.45%首次突破7300点，创历史新高](http://www.blog.minike.top/Article/details/832347754641.shtml)
+- 2026-06-29 12:56 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](http://www.blog.minike.top/Article/details/897988515.shtml)
+- 2026-06-29 12:54 - [百亿明星私募被曝光“打新内幕”](http://www.blog.minike.top/Article/details/22793666479.shtml)
+- 2026-06-29 12:44 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](http://www.blog.kurohicncr.top/Article/details/15064.shtml)
+- 2026-06-29 13:00 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](http://www.share.minike.top/Article/details/57640004.shtml)
+- 2026-06-29 12:51 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](http://www.share.kurohicncr.top/Article/details/0838674.shtml)
+- 2026-06-29 12:57 - [情感赛道变形记](http://www.share.minike.top/Article/details/72567968.shtml)
+- 2026-06-29 12:51 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](http://www.share.minike.top/Article/details/31291024.shtml)
+- 2026-06-29 13:11 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.blog.minike.top/Article/details/65340.shtml)
+- 2026-06-29 12:59 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](http://www.share.kurohicncr.top/Article/details/297492.shtml)

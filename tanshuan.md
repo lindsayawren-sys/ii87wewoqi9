@@ -1,47 +1,48 @@
-# 我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行
+# 心动公司于5月4日斥资761.31万港元回购12万股
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 09:32 来源：中国新闻网 责任编辑：【韦俊龙】
+心动公司（02400）发布公告，于2026年5月4日斥资761.31万港元回购12万股。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年04月22日 09:32 来源：中国新闻网 责任编辑：【韦俊龙】
+心动公司（02400）发布公告，于2026年5月4日斥资761.31万港元回购12万股。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
-- 2026-06-29 12:45 - [追忆侨领张素久：从容面对挑战 坚韧不拔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:41 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:45 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:47 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:51 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:01 - [日本首相高市早苗向靖国神社献祭品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:48 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:44 - [美国能源部长：汽油价格可能在一周前已经见顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:58 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:54 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:57 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:48 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
-- 2026-06-29 12:53 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:36 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 13:07 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:42 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:46 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:48 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:50 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:43 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
+- 2026-06-29 13:05 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:04 - [年轻人假期热衷贵阳“寻咖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:44 - [富通科技公布于5月6日下午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:44 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:43 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:54 - [追光的你｜青春的颜色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 13:01 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-29 13:02 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](http://www.share.minike.top/Article/details/31814.shtml)
-- 2026-06-29 12:36 - [日本首相高市早苗向靖国神社供奉“玉串料”](http://www.share.kurohicncr.top/Article/details/2962610782.shtml)
-- 2026-06-29 12:41 - [三位华人女数学家获2026突破奖](http://www.blog.minike.top/Article/details/82834.shtml)
-- 2026-06-29 12:39 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](http://www.share.minike.top/Article/details/70985351.shtml)
-- 2026-06-29 12:54 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.share.kurohicncr.top/Article/details/8880877.shtml)
-- 2026-06-29 12:51 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](http://www.share.minike.top/Article/details/817296007.shtml)
-- 2026-06-29 12:38 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](http://www.share.kurohicncr.top/Article/details/572203261609.shtml)
-- 2026-06-29 12:46 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [接迎英雄回家的运-20B专机进入我国领空](http://www.blog.minike.top/Article/details/90402272250.shtml)
-- 2026-06-29 12:58 - [特朗普过去24小时都忙了什么？（2026-04-21）](http://www.blog.minike.top/Article/details/72876.shtml)
-- 2026-06-29 12:38 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](http://www.blog.minike.top/Article/details/9904171.shtml)
-- 2026-06-29 12:44 - [机械车位闲置，如何盘活改造？](http://www.share.minike.top/Article/details/17886.shtml)
-- 2026-06-29 12:57 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.share.minike.top/Article/details/41444.shtml)
-- 2026-06-29 13:04 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [联合健康集团业绩超预期并上调展望](http://www.share.kurohicncr.top/Article/details/8907965.shtml)
+- 2026-06-29 13:00 - [以共赢促共富 民企精准帮扶常态化](http://www.blog.minike.top/Article/details/0860963839.shtml)
+- 2026-06-29 12:58 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](http://www.share.kurohicncr.top/Article/details/698641.shtml)
+- 2026-06-29 13:09 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](http://www.blog.kurohicncr.top/Article/details/700145759223.shtml)
+- 2026-06-29 12:44 - [伊朗：尚未回应美国对伊方14点提议的看法](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](http://www.share.kurohicncr.top/Article/details/919266.shtml)
+- 2026-06-29 13:08 - [生猪板块升温，期股共振释放什么信号？](http://www.share.kurohicncr.top/Article/details/53616.shtml)
+- 2026-06-29 13:01 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](http://www.blog.minike.top/Article/details/898135973.shtml)
+- 2026-06-29 12:49 - [午盘：美股继续上扬 纳指创盘中新高](http://www.share.minike.top/Article/details/67213028.shtml)
+- 2026-06-29 12:52 - [路易丝·阿伯将出任第31任加拿大总督](http://www.blog.kurohicncr.top/Article/details/3925047.shtml)
+- 2026-06-29 13:11 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](http://www.share.minike.top/Article/details/709141753570.shtml)
+- 2026-06-29 12:45 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lisacumin64-arch)

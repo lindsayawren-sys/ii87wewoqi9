@@ -1,56 +1,59 @@
-# 江苏省数标委“标准周”活动在扬州启幕
+# 美国宣布对伊军事行动结束，分析担忧战事远未终结
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网扬州4月21日电 (崔佳明 徐珊珊)4月21日，江苏省数据标准化技术委员会“标准周”全体会议在扬州举行。本次“标准周”活动以“凝聚标准共识，释放数智价值”为主题，汇聚政产学研用各界精英，共商数据标准化大计，共绘数字江苏发展蓝图。 “标准是数据的‘通用语言’，是释放数据要素价值的‘金钥匙’。”江苏省数据局局长、省政务办主任刘世虎在致辞中表示，本次“标准周”活动，多元视角交汇
+“行动已经结束。” 当地时间5月5日，美国国务卿鲁比奥在白宫简报会上宣布，代号“史诗怒火”的军事行动已经结束，美国已完成这一阶段任务，现已转向防御态势。 延宕67天的战火，就这么结束了？ 似乎过于乐观。 战事走向，并非美国一方说了算。 伊朗最高领袖外事顾问韦拉亚提随即表示，伊美仍处于战争状态，并将继续开展“抵抗”。 就在鲁比奥讲话之际，英国一家监测机构报告称，霍尔木兹海峡一艘货
 
 ## 正文
 
-中新网扬州4月21日电 (崔佳明 徐珊珊)4月21日，江苏省数据标准化技术委员会“标准周”全体会议在扬州举行。
+“行动已经结束。
 
-本次“标准周”活动以“凝聚标准共识，释放数智价值”为主题，汇聚政产学研用各界精英，共商数据标准化大计，共绘数字江苏发展蓝图。
+” 当地时间5月5日，美国国务卿鲁比奥在白宫简报会上宣布，代号“史诗怒火”的军事行动已经结束，美国已完成这一阶段任务，现已转向防御态势。
 
-“标准是数据的‘通用语言’，是释放数据要素价值的‘金钥匙’。
+延宕67天的战火，就这么结束了？
 
-”江苏省数据局局长、省政务办主任刘世虎在致辞中表示，本次“标准周”活动，多元视角交汇、多维智慧碰撞，必将为江苏数据标准化工作注入新理念、激发新动能、开辟新路径。
+似乎过于乐观。
 
-江苏省数据标准化技术委员会(简称“省数标委”)于2025年2月14日正式成立。
+战事走向，并非美国一方说了算。
 
-江苏省数标委成立一年来，标准研制扎实推进，已发布公共数据管理规范等35项地方标准、5项长三角区域标准，13项推荐标准列入2025年制修订计划。
+伊朗最高领袖外事顾问韦拉亚提随即表示，伊美仍处于战争状态，并将继续开展“抵抗”。
 
-同时，有序推进20余项已立项国际标准、国家标准和地方标准编制工作。
+就在鲁比奥讲话之际，英国一家监测机构报告称，霍尔木兹海峡一艘货轮遭到袭击，区域冲突仍在发酵。
 
-今年是“十五五”开局之年，是国家“数据要素价值释放年”，更是江苏推进国家数字经济创新发展试验区建设的关键之年。
+美方也从未真要结束冲突，就在几天前还在持续增兵。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:51 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:50 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:48 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:53 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:39 - [北京市欧美同学会赴北京中医药大学归国留学人员联谊会走访调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:39 - [民众集会 反对日本政府修改武器出口规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:36 - [特朗普称政府“或许”应救助陷入困境的精神航空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 12:42 - [特斯拉下一代Roadster终于要来了？马斯克称可能在月底发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:47 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:53 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:49 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 13:02 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 13:03 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:42 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 12:56 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:04 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:48 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:47 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 13:05 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:43 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:02 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:42 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:48 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.kurohicncr.top/Article/details/568248238832.shtml)
-- 2026-06-29 12:50 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](http://www.share.kurohicncr.top/Article/details/98125.shtml)
-- 2026-06-29 12:51 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.blog.minike.top/Article/details/3779370445.shtml)
-- 2026-06-29 12:57 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](http://www.blog.minike.top/Article/details/3823536.shtml)
-- 2026-06-29 12:53 - [挪威三月油气产量超预期](http://www.share.minike.top/Article/details/389722590.shtml)
-- 2026-06-29 12:52 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](http://www.blog.kurohicncr.top/Article/details/27813.shtml)
-- 2026-06-29 12:46 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.share.kurohicncr.top/Article/details/262426.shtml)
-- 2026-06-29 12:59 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.share.kurohicncr.top/Article/details/19198815471.shtml)
-- 2026-06-29 13:04 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](http://www.share.minike.top/Article/details/7044360.shtml)
-- 2026-06-29 13:05 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.blog.kurohicncr.top/Article/details/832958717114.shtml)
-- 2026-06-29 12:40 - [理财规模季末回落超万亿，全年增速或放缓](http://www.share.kurohicncr.top/Article/details/212224.shtml)
-- 2026-06-29 12:57 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](http://www.share.minike.top/Article/details/91937095742.shtml)
-- 2026-06-29 13:04 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.share.minike.top/Article/details/46077.shtml)
+- 2026-06-29 13:05 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.blog.kurohicncr.top/Article/details/8155839.shtml)
+- 2026-06-29 12:58 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.blog.minike.top/Article/details/840492.shtml)
+- 2026-06-29 13:05 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.share.kurohicncr.top/Article/details/095320830.shtml)
+- 2026-06-29 12:50 - [特朗普称将暂停自由计划“一小段时间”](http://www.share.kurohicncr.top/Article/details/398387.shtml)
+- 2026-06-29 12:49 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.blog.kurohicncr.top/Article/details/851891076.shtml)
+- 2026-06-29 12:42 - [青春之喻，奋斗之帆](http://www.share.kurohicncr.top/Article/details/8281513015.shtml)
+- 2026-06-29 13:04 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.share.kurohicncr.top/Article/details/8822674.shtml)
+- 2026-06-29 12:59 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.minike.top/Article/details/50867955201.shtml)
+- 2026-06-29 12:52 - [俄美外长通话讨论国际局势和双边关系](http://www.share.minike.top/Article/details/1766020.shtml)
+- 2026-06-29 12:44 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.minike.top/Article/details/189010597.shtml)
+- 2026-06-29 12:57 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.kurohicncr.top/Article/details/95972079197.shtml)
+- 2026-06-29 13:03 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.minike.top/Article/details/138629762062.shtml)
+- 2026-06-29 12:45 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.minike.top/Article/details/5354933421.shtml)
+- 2026-06-29 12:54 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.kurohicncr.top/Article/details/433402410.shtml)
+- 2026-06-29 12:43 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.share.minike.top/Article/details/354658.shtml)

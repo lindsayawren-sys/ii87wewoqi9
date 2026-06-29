@@ -1,61 +1,58 @@
-# 全线爆发！三大龙头，历史新高
+# 央行公告这一名单更新！哪些机构新进，哪些退出？
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今天，上证指数涨0.52%，重新站上4100点；深证成指涨1.3%，创业板指涨1.73%，科创综指上涨1.75%。 在算力权重股大涨带动下，创业板综指（399102）创历史新高，突破2015年6月3日的高点。A股市场成交额25788亿元，较上日放量1522亿元。 算力硬件方向全线爆发，东山精密、长光华芯涨停
+来源：金融时报 近日，根据公开市场业务一级交易商考评调整机制（公开市场业务公告\[2025\]第2号），中国人民银行对2025年度公开市场业务一级交易商及申请加入一级交易商的机构进行了综合评估，根据评估结果，确定了2026年度公开市场业务一级交易商。 2026年度公开市场业务一级交易商名单公布如下： 对比上一轮2025年公开市场业务一级交易商名单，机构总数没有发生变化，仍维持在51
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+来源：金融时报 近日，根据公开市场业务一级交易商考评调整机制（公开市场业务公告\[2025\]第2号），中国人民银行对2025年度公开市场业务一级交易商及申请加入一级交易商的机构进行了综合评估，根据评估结果，确定了2026年度公开市场业务一级交易商。
 
-今天，上证指数涨0.52%，重新站上4100点；深证成指涨1.3%，创业板指涨1.73%，科创综指上涨1.75%。
+2026年度公开市场业务一级交易商名单公布如下： 对比上一轮2025年公开市场业务一级交易商名单，机构总数没有发生变化，仍维持在51家，但值得关注的是，与以往年度不同，2026年名单采用了明确的分类公示方式，将入围机构划分为四大类：中资银行业金融机构（41家）、中资非银行业金融机构（4家）、外资金融机构（5家）以及特殊一级交易商（1家）。
 
-在算力权重股大涨带动下，创业板综指（399102）创历史新高，突破2015年6月3日的高点。
+具体来看，中资银行业金融机构从此前的43家下降至41家，郑州银行、西安银行，北京农商行、青岛农商行和广州农商行退出本次名单；而中原银行、汉口银行以及微众银行跻身新名单。
 
-A股市场成交额25788亿元，较上日放量1522亿元。
+券商阵营从2025年的2家扩充至4家，申万宏源证券和国泰海通证券首度上榜，与中信证券、中金公司共同占据四个席位；外资金融机构方面，美国银行上海分行取代花旗（中国）新晋入围；特殊一级交易商仍为中债信用增进投资股份有限公司。
 
-算力硬件方向全线爆发，东山精密、长光华芯涨停，创历史新高，工业富联盘中触及涨停，新易盛、中际旭创均创历史新高。
+中国人民银行于2004年建立了公开市场业务一级交易商年度考评调整机制，并在2018年对考评机制进行了调整，近年来为平稳开展公开市场操作提供了有力支撑。
 
-光纤概念反复活跃，永鼎股份涨停，续创历史新高，杭电股份封涨停；算力租赁概念持续走强，协创数据触及“20CM”涨停，宏景科技涨超15%，双双创历史新高；液冷服务器概念回暖，英维克打开跌停板，午后持续上扬，收盘下跌4.38%。
+此后，2025年，央行再度公开了新修订的公开市场业务一级交易商考评指标，主要考核机构货币市场传导、债券市场做市、研究和创新业务、合规稳健经营等内容。
 
-亚太股市走强。
+例如稳定融出、合理定价的交易范围，资金紧张时期稳市表现，做市成交、合理报价的债券数量，债市波动时期稳市表现，提供市场信息情况，参与创新工具情况，是否出现违法违规交易、操作事故、流动性安全问题等。
 
-日经225指数盘中创历史新高，收盘涨0.4%，报59585.86点，创收盘历史新高。
+央行在2025年的公告中称，为适应货币政策操作框架转型和金融市场发展，更加注重货币政策传导，中国人民银行进一步优化简并考评指标，明确对各类型机构分类实施考核，并加强与债券做市商考核的联动。
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [微视频丨山河迎忠魂](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:04 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:48 - [四川累计外送电量突破2万亿千瓦时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:48 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:37 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:51 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 12:49 - [多地楼市新政密集落地 市场积极信号加速释放](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 13:00 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:37 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 12:56 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:55 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 12:48 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:51 - [《技术经理人执业能力评价白皮书》在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 13:01 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:45 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:47 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:55 - [“五一”假期盘点 假期接待游客总量超1800万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:51 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:42 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:51 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:10 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:51 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:54 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 13:08 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:51 - [购房新政叠加“五一”假期 多地楼市升温](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 13:02 - [滴普科技午前大涨逾21% 机构看好其营收高增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:43 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.blog.kurohicncr.top/Article/details/700302006.shtml)
-- 2026-06-29 12:43 - [RYOEX:黄金中长期仍具坚实支撑](http://www.share.minike.top/Article/details/09536407.shtml)
-- 2026-06-29 12:46 - [民生调查局丨别被牙膏的“3D炫白”“医研”骗了，那只是商标](http://www.blog.kurohicncr.top/Article/details/696303.shtml)
-- 2026-06-29 12:42 - [中新报道有反馈丨国家医保局派工作组，赴湖南、河南调查连锁药店骗保](http://www.share.kurohicncr.top/Article/details/172021887224.shtml)
-- 2026-06-29 12:57 - [A股开盘：超3600只个股飘绿，三大指数集体低开](http://www.blog.minike.top/Article/details/81817524.shtml)
-- 2026-06-29 12:53 - [金岩高岭新材将于5月22日派发末期股息每10股2.27元](http://www.share.kurohicncr.top/Article/details/549909.shtml)
-- 2026-06-29 12:48 - [美退伍军人抗议 要求结束对伊朗军事行动](http://www.blog.minike.top/Article/details/711460351033.shtml)
-- 2026-06-29 12:51 - [宁德时代发布第三代神行超充电池，满电仅需6分钟](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [199元抢万元手机？反诈宣传如何跑赢直播间骗术？](http://www.blog.minike.top/Article/details/140619423.shtml)
-- 2026-06-29 12:50 - [巴基斯坦从沙特阿拉伯获得10亿美元资金](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [卫生间摊放茶青 浙江松阳及时处置：全部封存 未流入市场](http://www.share.kurohicncr.top/Article/details/170933.shtml)
-- 2026-06-29 12:53 - [丰田向宁德时代印尼工厂投资 120 亿日元，将在厂内建设专用产线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [用软件脚本“秒抢”医院专家号 上海警方抓获非法倒卖号源10人](http://www.share.kurohicncr.top/Article/details/66117249064.shtml)
-- 2026-06-29 12:52 - [晋拓股份拟每10股派息0.77元](http://www.share.minike.top/Article/details/145855695.shtml)
-- 2026-06-29 12:45 - [下任美联储主席提名人选能否维护美联储“独立性”遭质疑](http://www.share.minike.top/Article/details/306760181525.shtml)
+- 2026-06-29 13:08 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](http://www.blog.kurohicncr.top/Article/details/6763211.shtml)
+- 2026-06-29 13:05 - [西渝高铁樊哙隧道顺利贯通](http://www.share.kurohicncr.top/Article/details/859432.shtml)
+- 2026-06-29 13:10 - [国富氢能附属拟向九疆电力建设(陕西)提供300MW新能源耦合绿色电力项目的全套设备](http://www.blog.kurohicncr.top/Article/details/0894968230.shtml)
+- 2026-06-29 12:52 - [“美军随时准备好恢复对伊朗大规模作战，只待指令下达”](http://www.share.kurohicncr.top/Article/details/672005.shtml)
+- 2026-06-29 13:09 - [权威快报|税收发票数据显示：“五一”假期消费相关行业销售收入同比增长14.3%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [“五一”假期铁路运输结束 重庆火车站累计发送旅客246万人次](http://www.blog.kurohicncr.top/Article/details/8738061.shtml)
+- 2026-06-29 12:53 - [博物馆“镇馆之宝”排队热 文博游何以持续火热？](http://www.share.kurohicncr.top/Article/details/001943689112.shtml)
+- 2026-06-29 12:42 - [特朗普预计一周内可以解决伊朗问题](http://www.blog.kurohicncr.top/Article/details/4452117.shtml)
+- 2026-06-29 12:52 - [伊朗官方媒体IRIB：伊朗向霍尔木兹海峡的商船发布指引](http://www.share.kurohicncr.top/Article/details/911299474.shtml)
+- 2026-06-29 12:44 - [玉林师范学院原党委副书记、 院长王卓华被开除党籍](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [司法部组织开展行政处罚公示信息集中清理工作](http://www.share.minike.top/Article/details/00988957.shtml)
+- 2026-06-29 13:11 - [华宝基金科创人工智能ETF (589520)量价齐升！](http://www.blog.minike.top/Article/details/075703160511.shtml)
+- 2026-06-29 13:09 - [地缘紧张局势缓和 墨西哥比索与股市双双走高](http://www.share.minike.top/Article/details/163809157.shtml)
+- 2026-06-29 12:54 - [日产全球大重组：欧洲裁员10%，桑德兰工厂合并生产线](http://www.blog.minike.top/Article/details/87318.shtml)
+- 2026-06-29 12:46 - [花旗：中煤能源维持“买入”评级 目标价降至16.6港元](http://www.share.kurohicncr.top/Article/details/15306.shtml)

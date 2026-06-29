@@ -1,61 +1,61 @@
-# 探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画
+# 中国海外发展早盘涨超5% 花旗现予目标价14.20港元
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-国际油价“过山车” 国内油价迎年内首降专访崔东树：“反内卷”下，汽车产业正发生四个转向特朗普打错算盘“边城”秀山如何变西部陆海新通道节点城市为支点城市？机器人跑赢人类，留给我们的“赛道”又少一个？惠女石上“绣”芳华湖北通山护学警：一部“共享手机”暖护三千学子跨越千里的“医”靠中澳“乒乓外交”亲历者：一颗小球拉近彼此距离中国“西极村”的“旅游账”与“外贸经”一席沉浸式中国国风宴，
+中国海外发展（00688）早盘涨超5%，截至发稿，股价上涨5.15%，现报14.71港元，成交额5.55亿港元。 近日，中国海外发展发布2026年第一季度业绩，收入为人民币370.4亿元，经营溢利为人民币41.1亿元。期内，该集团连同其联营公司及合营公司实现合约物业销售额人民币515.2亿元，同比上升11%，相应销售面积为182万平方米。集团在中国内地两个城市和中国香港新增三幅
 
 ## 正文
 
-国际油价“过山车” 国内油价迎年内首降专访崔东树：“反内卷”下，汽车产业正发生四个转向特朗普打错算盘“边城”秀山如何变西部陆海新通道节点城市为支点城市？
+中国海外发展（00688）早盘涨超5%，截至发稿，股价上涨5.15%，现报14.71港元，成交额5.55亿港元。
 
-机器人跑赢人类，留给我们的“赛道”又少一个？
+近日，中国海外发展发布2026年第一季度业绩，收入为人民币370.4亿元，经营溢利为人民币41.1亿元。
 
-惠女石上“绣”芳华湖北通山护学警：一部“共享手机”暖护三千学子跨越千里的“医”靠中澳“乒乓外交”亲历者：一颗小球拉近彼此距离中国“西极村”的“旅游账”与“外贸经”一席沉浸式中国国风宴，凭啥让中外宾客为之着迷？
+期内，该集团连同其联营公司及合营公司实现合约物业销售额人民币515.2亿元，同比上升11%，相应销售面积为182万平方米。
 
-细节满满！
+集团在中国内地两个城市和中国香港新增三幅土地，新增土地储备权益建筑面积为13万平方米，权益地价为人民币21.3亿元。
 
-运-20B、歼-20用特殊呼号迎英雄回家阿尔卡拉斯、萨巴伦卡当选劳伦斯世界体育奖最佳运动员连锁药店骗保调查：“串药、改方、平账”连环套骗取医保基金遗毒未消，触目惊心：为什么说靖国神社“罪大恶极”？
+花旗发布研报称，对中国海外发展（00688）开启30日正面催化因素观察，因公司去年的土地收购金额为行业最高，在15个城市投入924亿元人民币。
 
-被新疆导游带火的天山隧道，到底有多牛？
+该行现予目标价14.2港元及“买入”评级。
 
-标注“0反式脂肪酸”的食品真的更健康吗？
+公司今年首季销售强劲，达511亿元人民币，同比增长11%。
 
-专家详解国家发改委主任：持续提升国家经济安全保障能力沈阳全城披红 迎第十三批志愿军烈士遗骸归国台胞过广西“三月三”：桂台相似的居然这么多贵州梵净山：夕阳映照落日如画抗美援朝老战士田光秀：我还活着 我还想给他们唱歌导游迪丽教你唱跳 网友：这就是新疆人的“出厂”设置吧！
+该行预期在3月强劲销售后，次季销售将持续强劲。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [大国重器一起护送英烈回家！歼-20运-20B空中对话让人泪目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 12:50 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:00 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:50 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:57 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:46 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:38 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 13:02 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:51 - [北京市欧美同学会赴北京中医药大学归国留学人员联谊会走访调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:39 - [民众集会 反对日本政府修改武器出口规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:37 - [特朗普称政府“或许”应救助陷入困境的精神航空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 12:47 - [特斯拉下一代Roadster终于要来了？马斯克称可能在月底发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 13:02 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-29 12:54 - [政府提前还债从省级延伸至地市，怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:41 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 12:45 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:46 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 13:03 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:01 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 12:49 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:51 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:47 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:51 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:54 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:43 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:05 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:05 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:42 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 13:07 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:54 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/89168752.shtml)
-- 2026-06-29 12:41 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](http://www.share.kurohicncr.top/Article/details/7118807.shtml)
-- 2026-06-29 12:49 - [国务院印发《关于推进服务业扩能提质的意见》](http://www.share.minike.top/Article/details/304208.shtml)
-- 2026-06-29 12:49 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.blog.minike.top/Article/details/50568356239.shtml)
-- 2026-06-29 12:37 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](http://www.share.minike.top/Article/details/69467743.shtml)
-- 2026-06-29 12:41 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.blog.minike.top/Article/details/67552522.shtml)
-- 2026-06-29 12:59 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [挪威三月油气产量超预期](http://www.share.kurohicncr.top/Article/details/9765807604.shtml)
-- 2026-06-29 12:46 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](http://www.blog.kurohicncr.top/Article/details/50509.shtml)
-- 2026-06-29 12:44 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.blog.minike.top/Article/details/151358.shtml)
-- 2026-06-29 12:40 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.share.kurohicncr.top/Article/details/191808994.shtml)
-- 2026-06-29 13:05 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](http://www.blog.kurohicncr.top/Article/details/36375455814.shtml)
-- 2026-06-29 12:59 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.blog.kurohicncr.top/Article/details/82327124659.shtml)
+- 2026-06-29 12:45 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](http://www.share.minike.top/Article/details/43272103.shtml)
+- 2026-06-29 12:50 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [追光的你｜青春的颜色](http://www.share.minike.top/Article/details/9501603.shtml)
+- 2026-06-29 13:00 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.blog.minike.top/Article/details/394946220769.shtml)
+- 2026-06-29 12:55 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.share.minike.top/Article/details/67299.shtml)
+- 2026-06-29 12:53 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.share.kurohicncr.top/Article/details/3673512.shtml)
+- 2026-06-29 13:10 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.blog.minike.top/Article/details/9025125590.shtml)
+- 2026-06-29 12:45 - [青春之喻，奋斗之帆](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.blog.minike.top/Article/details/9957455.shtml)
+- 2026-06-29 12:46 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.kurohicncr.top/Article/details/8362427947.shtml)
+- 2026-06-29 12:51 - [俄美外长通话讨论国际局势和双边关系](http://www.blog.minike.top/Article/details/597292369.shtml)
+- 2026-06-29 12:49 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.minike.top/Article/details/38785189.shtml)
+- 2026-06-29 12:59 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.minike.top/Article/details/948104933.shtml)
+- 2026-06-29 12:44 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.blog.kurohicncr.top/Article/details/435890148.shtml)

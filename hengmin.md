@@ -1,59 +1,47 @@
-# 黄金遭遇一个月来最大跌幅，多头式微但支撑犹在
+# 湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-撰文：嘉盛集团资深分析师Jerry Chen 特朗普在周二盘后时间单方面宣布，美国将无限期延长与伊朗的停火协议，引发周三早盘市场走势的反转。 特朗普在两周停火协议截止前几个小时发布上述消息的，但尚未得到伊朗和以色列的官方回应，目前也不确定是否会有第二轮美伊会谈。与此同时，特朗普还宣称继续对伊朗港口进行封锁，这在伊朗看来阻碍了谈判的进行，也是两国的核心分歧，因此地缘风险仍存在巨大
+发布时间：2026年05月05日 17:47 来源：中国新闻网 5月5日，湖南长沙召开新闻发布会，相关负责人通报浏阳烟花厂爆炸事故最新情况。截至目前，爆炸事故已致26人死亡，61人受伤。(记者 傅煜 唐小晴 杨华峰 徐志雄 制作 刘映含） 责任编辑：【卢岩】
 
 ## 正文
 
-撰文：嘉盛集团资深分析师Jerry Chen 特朗普在周二盘后时间单方面宣布，美国将无限期延长与伊朗的停火协议，引发周三早盘市场走势的反转。
+发布时间：2026年05月05日 17:47 来源：中国新闻网 5月5日，湖南长沙召开新闻发布会，相关负责人通报浏阳烟花厂爆炸事故最新情况。
 
-特朗普在两周停火协议截止前几个小时发布上述消息的，但尚未得到伊朗和以色列的官方回应，目前也不确定是否会有第二轮美伊会谈。
+截至目前，爆炸事故已致26人死亡，61人受伤。
 
-与此同时，特朗普还宣称继续对伊朗港口进行封锁，这在伊朗看来阻碍了谈判的进行，也是两国的核心分歧，因此地缘风险仍存在巨大不确定性。
-
-国际油价周二上涨3%左右，但周三早盘回落。
-
-供应方面，俄罗斯预计在4月削减30-40万桶/日的产能。
-
-美国的原油出口虽然有望在4月攀升至540万桶/日的历史高点，但仍难以弥补当前每天约1000万桶的缺口。
-
-值得注意的是，目前布伦特和WTI原油的6月合约差价再次扩大至8美元左右，但两个市场的价格曲线（远期贴水）都暗示价格将在未来数月呈现下降趋势，即战争不会持续太久。
-
-美国三大指数隔夜连续第二天高位回调，但盘后时间期货指数小幅上扬。
+(记者 傅煜 唐小晴 杨华峰 徐志雄 制作 刘映含） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:36 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 13:00 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:56 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:39 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 13:05 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 12:44 - [这种清凉主食热量低，减肥可吃！但这几点要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 13:03 - [拍照识字、自动翻译 探索打开古籍的N种方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:37 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:38 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:39 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 13:00 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:42 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:49 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:59 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:42 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:45 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 12:47 - [93.59万人次“五一”打卡太原文博 门票收入破千万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 13:01 - [追光的你｜明天的中国，希望寄予青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:47 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 12:55 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 12:45 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 12:58 - [著名文艺理论家王先霈因病逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:10 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:38 - [湖南江永优质蔬菜热销粤港澳大湾区](http://www.share.minike.top/Article/details/48728485462.shtml)
-- 2026-06-29 12:41 - [奥林匹克文献研学中心在天津成立](http://www.share.kurohicncr.top/Article/details/072951635.shtml)
-- 2026-06-29 12:36 - [尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！](http://www.share.minike.top/Article/details/58651.shtml)
-- 2026-06-29 12:41 - [新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！](http://www.share.minike.top/Article/details/6153383577.shtml)
-- 2026-06-29 12:37 - [“中国航天日”临近 长春小朋友参观航天展](http://www.blog.kurohicncr.top/Article/details/87962485.shtml)
-- 2026-06-29 12:58 - [刘海星分别会见欧洲议会、莫桑比克客人](http://www.blog.kurohicncr.top/Article/details/05288452166.shtml)
-- 2026-06-29 13:01 - [锚定长期主义，古井贡酒“三品工程”七届深耕，筑牢“发展之根”](http://www.blog.kurohicncr.top/Article/details/2658791.shtml)
-- 2026-06-29 12:59 - [上期所镍期货及期权引入境外交易者参与交易](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [国台办批驳赖清德“以和平包装统一”谬论](http://www.share.minike.top/Article/details/7111514.shtml)
-- 2026-06-29 12:56 - [别问，问就是来不及了！马上要去2026金融街智绘春光嘉年华了！](http://www.blog.kurohicncr.top/Article/details/044801675476.shtml)
-- 2026-06-29 13:04 - [德国认为结束中东冲突出现“机会窗口”](http://www.blog.minike.top/Article/details/590440808.shtml)
-- 2026-06-29 12:43 - [合力共为，守护购票公平](http://www.blog.kurohicncr.top/Article/details/058848446.shtml)
-- 2026-06-29 12:57 - [ETF日报：地缘冲突风险有所缓和，煤炭板块经历了较为充分的回调，关注煤炭ETF](http://www.share.kurohicncr.top/Article/details/8723488265.shtml)
-- 2026-06-29 12:46 - [成都诞生一波千万富豪](http://www.blog.kurohicncr.top/Article/details/2544440.shtml)
-- 2026-06-29 12:53 - [原创图像小说《雪鹿》入选2025年度“中国好书”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.share.minike.top/Article/details/61236895120.shtml)
+- 2026-06-29 13:11 - [广西开展专题调研——探寻八桂大地上的团结密码](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.blog.minike.top/Article/details/72090.shtml)
+- 2026-06-29 12:42 - [中国车企“扫货”海外闲置产能](http://www.blog.minike.top/Article/details/19471.shtml)
+- 2026-06-29 13:08 - [重组完成28个月后，中国奥园为何再陷境外债违约？](http://www.share.minike.top/Article/details/2221934.shtml)
+- 2026-06-29 12:57 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](http://www.share.minike.top/Article/details/469666.shtml)
+- 2026-06-29 12:50 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](http://www.blog.kurohicncr.top/Article/details/08124883.shtml)
+- 2026-06-29 13:05 - [惠誉将阿根廷信用评级上调至B- 展望稳定](http://www.blog.kurohicncr.top/Article/details/160172.shtml)
+- 2026-06-29 13:11 - [Coinbase裁员14% 转向“AI优先”运营模式](http://www.blog.kurohicncr.top/Article/details/8161399053.shtml)
+- 2026-06-29 12:56 - [日本央行会议纪要：一位委员称政策利率仍远未达到中性水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [西藏自治区拉萨市委常委、常务副市长占堆被查](http://www.blog.kurohicncr.top/Article/details/56259668825.shtml)
+- 2026-06-29 12:44 - [冠城钟表珠宝拟“3供1”基准供股](http://www.share.minike.top/Article/details/8856470.shtml)
+- 2026-06-29 12:59 - [电影《给阿嬷的情书》：书写中国人刻在骨血里的情义](http://www.blog.kurohicncr.top/Article/details/590403585.shtml)
+- 2026-06-29 12:46 - [中国男乒逆转取胜 晋级世乒赛男团八强](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [盘前：纳指期货涨1.3% 布伦特原油下跌6.1%](https://github.com/lisacumin64-arch)

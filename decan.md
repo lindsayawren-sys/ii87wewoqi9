@@ -1,46 +1,52 @@
-# 特朗普称最终将达成重大协议
+# 假期最后一天铁路迎返京高峰 受大风影响部分列车晚点
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！新华社华盛顿4月21日电美国总统特朗普21日称，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”，“封锁行动是成功的”，“没有那么多时间了”。（完）责任编辑：宋雅芳
+“五一”假期进入尾声，返程客流持续攀升。记者从国铁北京局了解到，今天国铁北京局预计发送旅客171万人次。其中，北京地区预计发送75.3万人次、到达93万人次。 另外，受东北地区大风天气影响，为确保旅客列车运行安全，铁路部门对京哈、沈佳、沈大、盘营、长珲等高铁线路采取限速运行措施。受此影响，途经限速区段的旅客列车不同程度晚点运行；京哈高铁、津秦高铁北京铁路管内部分终到、折返旅客列
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“五一”假期进入尾声，返程客流持续攀升。
 
-新华社华盛顿4月21日电美国总统特朗普21日称，美伊最终将达成重大协议，“我们处于强有力的谈判地位，与他们的交涉非常成功”，“封锁行动是成功的”，“没有那么多时间了”。
+记者从国铁北京局了解到，今天国铁北京局预计发送旅客171万人次。
 
-（完）责任编辑：宋雅芳
+其中，北京地区预计发送75.3万人次、到达93万人次。
+
+另外，受东北地区大风天气影响，为确保旅客列车运行安全，铁路部门对京哈、沈佳、沈大、盘营、长珲等高铁线路采取限速运行措施。
+
+受此影响，途经限速区段的旅客列车不同程度晚点运行；京哈高铁、津秦高铁北京铁路管内部分终到、折返旅客列车晚点运行。
+
+(总台央视记者 王善涛)
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:57 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:51 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:42 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:56 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 13:02 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:39 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:47 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:46 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 13:02 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 12:48 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:51 - [追光的你｜青春的颜色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 12:54 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:52 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:43 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:47 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 12:55 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:54 - [青春之喻，奋斗之帆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:54 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:00 - [伊朗查封并没收22名与美以有关联人员财产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:55 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](http://www.blog.kurohicncr.top/Article/details/4175978.shtml)
-- 2026-06-29 12:51 - [机械车位闲置，如何盘活改造？](http://www.blog.kurohicncr.top/Article/details/51986.shtml)
-- 2026-06-29 13:00 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.blog.kurohicncr.top/Article/details/120822992.shtml)
-- 2026-06-29 12:55 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.share.kurohicncr.top/Article/details/0097657.shtml)
-- 2026-06-29 12:44 - [联合健康集团业绩超预期并上调展望](http://www.blog.kurohicncr.top/Article/details/887525.shtml)
-- 2026-06-29 12:53 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.blog.kurohicncr.top/Article/details/998731.shtml)
-- 2026-06-29 12:49 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](http://www.blog.kurohicncr.top/Article/details/23688281551.shtml)
-- 2026-06-29 12:42 - [学习新语｜山河永念 英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](http://www.share.kurohicncr.top/Article/details/06979.shtml)
-- 2026-06-29 12:53 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](http://www.share.minike.top/Article/details/980632487.shtml)
-- 2026-06-29 12:51 - [国内油价，今年首次下调](http://www.blog.minike.top/Article/details/422265.shtml)
-- 2026-06-29 12:54 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/453153426554.shtml)
-- 2026-06-29 13:03 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.minike.top/Article/details/803808.shtml)
+- 2026-06-29 13:09 - [离境退税“即买即退”跨省互认进一步扩围](http://www.blog.minike.top/Article/details/6402871.shtml)
+- 2026-06-29 12:52 - [哈塞特：没有参与私募信贷的人不必担心](http://www.blog.minike.top/Article/details/81252.shtml)
+- 2026-06-29 13:11 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](http://www.blog.kurohicncr.top/Article/details/94175206396.shtml)
+- 2026-06-29 12:46 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](http://www.share.kurohicncr.top/Article/details/91607.shtml)
+- 2026-06-29 12:43 - [黄金突破4700美元，分析师警示风险犹存](http://www.blog.kurohicncr.top/Article/details/1559933.shtml)
+- 2026-06-29 12:45 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](http://www.blog.kurohicncr.top/Article/details/12824869.shtml)
+- 2026-06-29 12:48 - [“市场依然可为！”基金经理看好节后三大主线](http://www.blog.minike.top/Article/details/90671.shtml)
+- 2026-06-29 13:11 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](http://www.share.minike.top/Article/details/646476.shtml)
+- 2026-06-29 12:56 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](http://www.share.minike.top/Article/details/95462996911.shtml)
+- 2026-06-29 12:45 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.share.minike.top/Article/details/9519162062.shtml)
+- 2026-06-29 12:51 - [菲律宾失业率连续两个月回落](http://www.share.kurohicncr.top/Article/details/119077.shtml)
+- 2026-06-29 12:49 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.share.minike.top/Article/details/490668099583.shtml)
+- 2026-06-29 13:09 - [经纬线·青年习近平的“人生课堂”](http://www.share.minike.top/Article/details/075857.shtml)

@@ -1,59 +1,61 @@
-# 长江有色：22日铜价小涨 高价货源成交寥寥
+# 菲律宾失业率连续两个月回落
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-4月22日铜期货市场动态：今日沪期铜早盘窄幅震荡，午后强势拉升；主力月2606合约开盘价报102300元/吨，最高102810元/吨，最低102060元/吨，昨结102340元/吨，今日收盘价报102640元/吨，涨300元，涨幅0.29%。沪铜主力2606合约全天成交量82957手增加440手，持仓量204017手增加4701手。亚盘时段，伦铜偏强上扬，北京时间15：05最新
+中新社马尼拉5月6日电 (记者 张兴龙)菲律宾国家统计局6日公布数据显示，该国3月失业率降至5.0%，较2月回落0.1个百分点，为连续第二个月下降。 数据显示，今年1月菲律宾失业率一度升至5.8%，创下2022年7月以来最高水平，随后于2月回落至5.1%，3月进一步降至5.0%。菲3月失业人口为258万，较2月减少8万人。 数据还显示，服务业是菲律宾吸纳就业最多的产业，3月就业
 
 ## 正文
 
-4月22日铜期货市场动态：今日沪期铜早盘窄幅震荡，午后强势拉升；主力月2606合约开盘价报102300元/吨，最高102810元/吨，最低102060元/吨，昨结102340元/吨，今日收盘价报102640元/吨，涨300元，涨幅0.29%。
+中新社马尼拉5月6日电 (记者 张兴龙)菲律宾国家统计局6日公布数据显示，该国3月失业率降至5.0%，较2月回落0.1个百分点，为连续第二个月下降。
 
-沪铜主力2606合约全天成交量82957手增加440手，持仓量204017手增加4701手。
+数据显示，今年1月菲律宾失业率一度升至5.8%，创下2022年7月以来最高水平，随后于2月回落至5.1%，3月进一步降至5.0%。
 
-亚盘时段，伦铜偏强上扬，北京时间15：05最新报价13307美元/吨，涨152.5美元/吨，涨幅1.16%。
+菲3月失业人口为258万，较2月减少8万人。
 
-长江铜业网铜价格统计：今日国内现货铜价格小涨，长江现货1#铜价报102410元/吨，涨120元，升水160-升水200，持平；长江综合1#铜价报102400元/吨，涨125元，升水120-升水220，涨5元；广东现货1#铜价报102490元/吨，涨140元，升水160-升水360，涨20元；上海地区1#铜价报102300元/吨，涨110元，升水30-升水110，跌10元。
+数据还显示，服务业是菲律宾吸纳就业最多的产业，3月就业人数达3091万，占总就业人数的63.0%；农业和工业分别占19.1%和17.9%。
 
-长江铜市分析：宏观层面，中东局势仍是市场核心变量。
+从细分行业看，运输和仓储、行政和支持性服务活动等行业就业人数同比增长较为明显；环比来看，农林业、建筑业、教育以及信息和通讯等行业就业人数增加较为明显。
 
-特朗普虽宣布延长美伊停火期限，但伊朗明确拒绝22日赴巴基斯坦谈判，双方强硬表态暗示冲突风险未消。
+不过，菲律宾3月就业质量有所恶化。
 
-避险情绪支撑美元指数维持坚挺，而国内一季度原材料工业增加值同比增长4.6%，叠加工信部推进算力基础设施与算电协同建设，为铜的长期需求提供政策托底。
+数据显示，菲3月就业不足率为12.3%，较2月上升0.5个百分点。
 
-此外，美联储主席候选人沃什在听证会上阐述政策框架，主张以价格稳定与充分就业为核心，维护美联储货币政策独立性，严防越权扩权，倡导回归职责边界、强化制度约束，以提升货币政策效能与机构公信力，但未释放明确宽松信号，令风险资产承压。
+就业不足意味着就业者正在寻求更多工作时间或更好的工作机会。
 
 ## 相关推荐
 
-- 2026-06-29 13:03 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 13:01 - [美军称对一艘“涉伊朗”油轮登船检查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 13:03 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 13:05 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:42 - [别瞧不起格林基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:36 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 13:01 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:02 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:46 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:36 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-29 12:55 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:45 - [财政部今日在港发行155亿元人民币国债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:57 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 12:58 - [原油期货上涨 或因技术性反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:10 - [中东紧张局势冲击全球旅游业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:46 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:02 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:05 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 13:02 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 13:01 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 13:09 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 12:56 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-29 12:49 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 13:01 - [穿越百年航海史 “时光邮轮”驶入吉林长春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:11 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 12:43 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:47 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:58 - [转型金融破局：货币政策如何发力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [全线爆发！三大龙头，历史新高](http://www.blog.kurohicncr.top/Article/details/46846.shtml)
-- 2026-06-29 12:55 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](http://www.share.kurohicncr.top/Article/details/0674100.shtml)
-- 2026-06-29 12:55 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.minike.top/Article/details/103189.shtml)
-- 2026-06-29 12:55 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](http://www.blog.kurohicncr.top/Article/details/93396514907.shtml)
-- 2026-06-29 13:05 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](http://www.share.kurohicncr.top/Article/details/709332632.shtml)
-- 2026-06-29 12:38 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](http://www.share.kurohicncr.top/Article/details/331976.shtml)
-- 2026-06-29 12:46 - [微视频丨山河迎忠魂](http://www.blog.kurohicncr.top/Article/details/5228565493.shtml)
-- 2026-06-29 12:57 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [四川累计外送电量突破2万亿千瓦时](http://www.share.kurohicncr.top/Article/details/89016623.shtml)
-- 2026-06-29 13:03 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](http://www.blog.minike.top/Article/details/503146696.shtml)
-- 2026-06-29 12:51 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](http://www.blog.minike.top/Article/details/21154543.shtml)
-- 2026-06-29 12:59 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [多地楼市新政密集落地 市场积极信号加速释放](http://www.blog.kurohicncr.top/Article/details/061309.shtml)
+- 2026-06-29 13:05 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.blog.minike.top/Article/details/788991.shtml)
+- 2026-06-29 12:49 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.blog.kurohicncr.top/Article/details/194460.shtml)
+- 2026-06-29 12:45 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.blog.minike.top/Article/details/68209.shtml)
+- 2026-06-29 12:57 - [平安人寿保险增持农业银行4747.4万股](http://www.blog.kurohicncr.top/Article/details/49060.shtml)
+- 2026-06-29 13:09 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](http://www.blog.minike.top/Article/details/4722160.shtml)
+- 2026-06-29 13:01 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](http://www.blog.kurohicncr.top/Article/details/906501.shtml)
+- 2026-06-29 12:55 - [国资委：将组织开展新一轮数智化转型专项行动](http://www.blog.minike.top/Article/details/406757249.shtml)
+- 2026-06-29 12:46 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](http://www.share.minike.top/Article/details/91294278.shtml)
+- 2026-06-29 12:47 - [“五一”假期盘点 假期接待游客总量超1800万人次](http://www.share.kurohicncr.top/Article/details/17241.shtml)
+- 2026-06-29 12:53 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](http://www.blog.kurohicncr.top/Article/details/4544767.shtml)
+- 2026-06-29 13:00 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](http://www.share.minike.top/Article/details/15428.shtml)

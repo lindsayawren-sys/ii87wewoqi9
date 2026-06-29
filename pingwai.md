@@ -1,59 +1,50 @@
-# 阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进
+# 南京银行：印建军担任业务总监的任职资格获监管核准
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-新浪科技讯 4月22日下午消息，在阿维塔06T上市发布会后，阿维塔科技总裁陈卓、阿维塔科技副总裁雍军、阿维塔科技副总裁孙百功与媒体对话。 提到长安汽车董事长朱华荣此前宣布的阿维塔与深蓝汽车战略协同一事，阿维塔科技总裁陈卓表示，作为这个战略的重要组成方和关键承载部分，阿维塔打造高端新豪华品牌的战略不变，品牌经营、渠道运营模式、用户服务都不会变化。 双方协同的重点会放在中后台，放在
+5月6日金融一线消息，南京银行发布公告称，近日，公司收到国家金融监督管理总局江苏监管局下发的《江苏金融监管局关于印建军南京银行业务总监任职资格的批复》（苏金复〔2026〕125 号），核准印建军担任业务总监的任职资格。 印建军担任南京银行业务总监的任期自国家金融监督管理总局江苏监管局核准其任职资格之日起生效，至公司第十届董事会任期届满之日止。 责任编辑：秦艺
 
 ## 正文
 
-新浪科技讯 4月22日下午消息，在阿维塔06T上市发布会后，阿维塔科技总裁陈卓、阿维塔科技副总裁雍军、阿维塔科技副总裁孙百功与媒体对话。
+5月6日金融一线消息，南京银行发布公告称，近日，公司收到国家金融监督管理总局江苏监管局下发的《江苏金融监管局关于印建军南京银行业务总监任职资格的批复》（苏金复〔2026〕125 号），核准印建军担任业务总监的任职资格。
 
-提到长安汽车董事长朱华荣此前宣布的阿维塔与深蓝汽车战略协同一事，阿维塔科技总裁陈卓表示，作为这个战略的重要组成方和关键承载部分，阿维塔打造高端新豪华品牌的战略不变，品牌经营、渠道运营模式、用户服务都不会变化。
+印建军担任南京银行业务总监的任期自国家金融监督管理总局江苏监管局核准其任职资格之日起生效，至公司第十届董事会任期届满之日止。
 
-双方协同的重点会放在中后台，放在产品开发、打造系统以及供应链等领域。
-
-这样的协同呢会让整个规模更大，覆盖更广，效率更高。
-
-无论对两个品牌，还是员工，包括合作伙伴、股东都是重大利好。
-
-另外他表示，阿维塔科技赴港上市的计划不会受到影响，仍然会按照当前的节奏来推进，根据监管审批择机来完成上市。
-
-责任编辑：刘万里 SF014
+责任编辑：秦艺
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 12:55 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:57 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:43 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:38 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
-- 2026-06-29 12:50 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:48 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:50 - [机械车位闲置，如何盘活改造？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:58 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:42 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:40 - [联合健康集团业绩超预期并上调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 12:38 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 12:36 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
-- 2026-06-29 13:00 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:38 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:51 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:45 - [生猪板块升温，期股共振释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 12:53 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 13:05 - [午盘：美股继续上扬 纳指创盘中新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:50 - [路易丝·阿伯将出任第31任加拿大总督](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:10 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 13:07 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 13:08 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 12:42 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:03 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:47 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 13:01 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:52 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:04 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](http://www.blog.kurohicncr.top/Article/details/400742.shtml)
-- 2026-06-29 13:01 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](http://www.share.minike.top/Article/details/49017106.shtml)
-- 2026-06-29 12:36 - [连跌10周，猪价反弹了](http://www.blog.minike.top/Article/details/56372.shtml)
-- 2026-06-29 13:01 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](http://www.blog.minike.top/Article/details/995313249120.shtml)
-- 2026-06-29 12:49 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](http://www.blog.minike.top/Article/details/60437904161.shtml)
-- 2026-06-29 12:40 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.share.minike.top/Article/details/39700786.shtml)
-- 2026-06-29 13:00 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [中芯国际获南向资金连续3天净买入](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.blog.minike.top/Article/details/47388170105.shtml)
-- 2026-06-29 13:05 - [金针菇概念股，净利润大增超7000%](http://www.blog.kurohicncr.top/Article/details/328988340377.shtml)
-- 2026-06-29 12:39 - [方邦股份4月21日龙虎榜数据](http://www.blog.minike.top/Article/details/2090528408.shtml)
+- 2026-06-29 12:48 - [转型金融破局：货币政策如何发力？](http://www.blog.minike.top/Article/details/8807418.shtml)
+- 2026-06-29 13:12 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](http://www.blog.kurohicncr.top/Article/details/44304.shtml)
+- 2026-06-29 12:44 - [燃油价格飙升，韩国4月通胀率创21个月新高](http://www.share.kurohicncr.top/Article/details/78418886221.shtml)
+- 2026-06-29 12:56 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](http://www.share.kurohicncr.top/Article/details/821325626744.shtml)
+- 2026-06-29 13:06 - [Coinbase首席执行官称公司将裁员约14%](http://www.share.kurohicncr.top/Article/details/28509263858.shtml)
+- 2026-06-29 12:51 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](http://www.blog.minike.top/Article/details/79450860.shtml)
+- 2026-06-29 12:47 - [全国大部降水增多 冷空气将自北向南制造降温](http://www.share.minike.top/Article/details/64817.shtml)
+- 2026-06-29 12:55 - [开盘：美股周二高开 油价回落与强劲财报提振](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](http://www.blog.minike.top/Article/details/19414091.shtml)
+- 2026-06-29 12:53 - [哮喘控制不好？快看看吸入剂你用对了吗？](http://www.share.minike.top/Article/details/37119.shtml)
+- 2026-06-29 12:50 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.share.minike.top/Article/details/656886.shtml)
+- 2026-06-29 12:46 - [成都铁路迎“五一”假期客流返程高峰](http://www.blog.kurohicncr.top/Article/details/3465191736.shtml)
+- 2026-06-29 13:12 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.blog.kurohicncr.top/Article/details/19769689423.shtml)
+- 2026-06-29 13:11 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [广东建成内地规模最大欧标充电服务网络](http://www.share.minike.top/Article/details/6021151296.shtml)

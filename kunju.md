@@ -1,56 +1,52 @@
-# 现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行
+# 特朗普称将暂停自由计划“一小段时间”
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-卓创资讯分析师 孟庆炜 \[导语\]4月中上旬，由于地缘局势反复，原油市场波动较大，虽然本月中旬沥青理论生产利润出现改善，但沥青现货市场情绪仍然较为谨慎，炼厂生产沥青的积极性并未出现显著提升。截至4月中旬，沥青装置平均开工负荷率较3月份同期下降1.86个百分点。短期来看，由于沥青现货市场谨慎观望情绪浓厚，考虑到出货压力，沥青装置开工负荷率或将维持低位运行，给予沥青现货价格一定支撑。
+美国总统唐纳德·特朗普表示，他将暂停由美国主导的帮助受困船只离开霍尔木兹海峡的行动，以观察能否与伊朗达成结束战争的协议。 特朗普周二在社交媒体上发帖称：“‘自由计划’（即船只通过霍尔木兹海峡的行动）将暂停一小段时间，以观察协议能否最终敲定并签署。” 这位总统表示，他应巴基斯坦和其他国家的请求而采取了这一行动，但美国对进出伊朗港口的船只实施的封锁将“维持全面有效”。责任编辑：王永
 
 ## 正文
 
-卓创资讯分析师 孟庆炜 \[导语\]4月中上旬，由于地缘局势反复，原油市场波动较大，虽然本月中旬沥青理论生产利润出现改善，但沥青现货市场情绪仍然较为谨慎，炼厂生产沥青的积极性并未出现显著提升。
+美国总统唐纳德·特朗普表示，他将暂停由美国主导的帮助受困船只离开霍尔木兹海峡的行动，以观察能否与伊朗达成结束战争的协议。
 
-截至4月中旬，沥青装置平均开工负荷率较3月份同期下降1.86个百分点。
+特朗普周二在社交媒体上发帖称：“‘自由计划’（即船只通过霍尔木兹海峡的行动）将暂停一小段时间，以观察协议能否最终敲定并签署。
 
-短期来看，由于沥青现货市场谨慎观望情绪浓厚，考虑到出货压力，沥青装置开工负荷率或将维持低位运行，给予沥青现货价格一定支撑。
+” 这位总统表示，他应巴基斯坦和其他国家的请求而采取了这一行动，但美国对进出伊朗港口的船只实施的封锁将“维持全面有效”。
 
-沥青装置开工负荷率持续低位 4月中上旬沥青装置开工负荷率以下降为主。
-
-截至4月中旬，4月中上旬沥青装置平均开工负荷率为22.68%，环比下降1.86个百分点。
-
-从区域上看，尽管华东地区的新海石化、中油温州以及山东地区的东明石化本月上旬阶段性复产沥青。
-
-但因为岚桥石化、辽河石化等部分炼厂本月降低沥青生产负荷，加之西北以及华南地区的个别主营炼厂停产，此外，山东地区部分炼厂主产渣油，本月中上旬沥青装置开工负荷率延续下降趋势。
-
-综合来看，本月沥青装置开工负荷率下降一方面受到生产利润的影响，另一方面，沥青刚性需求持续低迷，现货市场情绪偏谨慎，也使得炼厂生产沥青的积极性下滑。
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 13:04 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:43 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 12:37 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
-- 2026-06-29 12:50 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:57 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:43 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 13:03 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
-- 2026-06-29 12:55 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:44 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:50 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 12:55 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:58 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:47 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:51 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:50 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:50 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:58 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 12:47 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 13:10 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:01 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:46 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:54 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:47 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.blog.kurohicncr.top/Article/details/88916574.shtml)
-- 2026-06-29 12:43 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.share.minike.top/Article/details/939842441476.shtml)
-- 2026-06-29 12:57 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.blog.minike.top/Article/details/11622808.shtml)
-- 2026-06-29 12:45 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.blog.kurohicncr.top/Article/details/74296205.shtml)
-- 2026-06-29 12:57 - [重回4100点！A股三大指数午后集体大涨](http://www.share.minike.top/Article/details/820453.shtml)
-- 2026-06-29 12:50 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.blog.kurohicncr.top/Article/details/8552416197.shtml)
-- 2026-06-29 12:49 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.kurohicncr.top/Article/details/0800516.shtml)
-- 2026-06-29 12:43 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.blog.kurohicncr.top/Article/details/09532.shtml)
-- 2026-06-29 12:47 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.share.minike.top/Article/details/49052.shtml)
-- 2026-06-29 13:05 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/5187911.shtml)
-- 2026-06-29 12:36 - [别瞧不起格林基金](http://www.share.kurohicncr.top/Article/details/71631.shtml)
-- 2026-06-29 12:38 - [UPS与联邦快递已开始申请部分关税退款](http://www.blog.kurohicncr.top/Article/details/6748268.shtml)
-- 2026-06-29 12:57 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.minike.top/Article/details/7805740.shtml)
-- 2026-06-29 13:01 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](http://www.blog.minike.top/Article/details/338708621.shtml)
+- 2026-06-29 13:00 - [菲律宾失业率连续两个月回落](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.blog.kurohicncr.top/Article/details/813679.shtml)
+- 2026-06-29 12:48 - [经纬线·青年习近平的“人生课堂”](http://www.blog.minike.top/Article/details/40128800.shtml)
+- 2026-06-29 12:52 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](http://www.share.kurohicncr.top/Article/details/484209.shtml)
+- 2026-06-29 13:06 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.share.kurohicncr.top/Article/details/43888.shtml)
+- 2026-06-29 13:11 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [2026年全国残疾人足球公开赛在京举行](http://www.blog.kurohicncr.top/Article/details/384629.shtml)
+- 2026-06-29 12:46 - [原油期货上涨 或因技术性反弹](http://www.blog.kurohicncr.top/Article/details/88347765600.shtml)
+- 2026-06-29 12:57 - [中东紧张局势冲击全球旅游业](http://www.blog.minike.top/Article/details/83872.shtml)
+- 2026-06-29 12:45 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.share.minike.top/Article/details/28099884.shtml)
+- 2026-06-29 12:42 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.share.kurohicncr.top/Article/details/968077.shtml)
+- 2026-06-29 12:52 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [山东省枣庄市青檀学校：榴乡厚土育同心](http://www.share.kurohicncr.top/Article/details/725659.shtml)
+- 2026-06-29 13:00 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.blog.minike.top/Article/details/9449043.shtml)
+- 2026-06-29 12:58 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](https://github.com/lisacumin64-arch)

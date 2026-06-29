@@ -1,56 +1,48 @@
-# 日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙
+# 东方古镇遇见西方质朴戏剧 跨文化交流如何发生？
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-海外网4月22日电 日本政府4月21日通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上允许杀伤性武器对外出口。《京都新闻》日前发表题为《杀伤性武器出口为介入战争铺路》的社论文章，表示日本正在重蹈历史覆辙，仅凭政府的意志强行为武器出口“松绑”。“日本制造的武器可能夺走他国人民的生命，这一情况正在成为现实。”文章认为，日本政府放宽武器出口限制，将从根本上改变日
+发布时间：2026年05月05日 13:31 来源：中国新闻网 “五一”假期期间在浙江嘉兴乌镇大剧院内，耶日·格洛托夫斯基的艺术传承者、戏剧大师汤姆斯·理查兹携戏无界剧团核心成员，与来自中国、美国、意大利的30余位戏剧爱好者朝夕相处，共同探讨戏剧创作，推动跨文化交流。据介绍，该项目是“乌镇艺术课堂”首个长期项目，也是继戏剧节小镇对话、工作坊和艺术塾之后，推出的更系统、沉浸的表演
 
 ## 正文
 
-海外网4月22日电 日本政府4月21日通过内阁决议，完成了对“防卫装备转移三原则”及其运用指南的修改，原则上允许杀伤性武器对外出口。
+发布时间：2026年05月05日 13:31 来源：中国新闻网 “五一”假期期间在浙江嘉兴乌镇大剧院内，耶日·格洛托夫斯基的艺术传承者、戏剧大师汤姆斯·理查兹携戏无界剧团核心成员，与来自中国、美国、意大利的30余位戏剧爱好者朝夕相处，共同探讨戏剧创作，推动跨文化交流。
 
-《京都新闻》日前发表题为《杀伤性武器出口为介入战争铺路》的社论文章，表示日本正在重蹈历史覆辙，仅凭政府的意志强行为武器出口“松绑”。
+据介绍，该项目是“乌镇艺术课堂”首个长期项目，也是继戏剧节小镇对话、工作坊和艺术塾之后，推出的更系统、沉浸的表演教学法项目。
 
-“日本制造的武器可能夺走他国人民的生命，这一情况正在成为现实。
-
-”文章认为，日本政府放宽武器出口限制，将从根本上改变日本作为和平国家的性质。
-
-日本现行宪法于1947年施行，其第九条规定日本“永远放弃以国权发动的战争、武力威胁或武力行使作为解决国际争端的手段”。
-
-日本政府此次以安保环境日益严峻作为说辞，但对于可能加剧军备竞赛、助长冲突的风险却闭口不谈。
-
-4月19日，数万名日本民众在日本国会周围举行大型抗议集会，对高市早苗政府解禁武器出口、修改和平宪法等扩军危险动向表示坚决反对和抗议。
-
-人们高呼“不要战争”“不要杀戮”。
+(曹丹 孙琳茹 浙江嘉兴报道） 责任编辑：【卢岩】
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:50 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:53 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:40 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:58 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 12:58 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:59 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:48 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:47 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:49 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:00 - [俄美外长通话讨论国际局势和双边关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:56 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 12:44 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 13:06 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 13:11 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 13:00 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:55 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 12:58 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 13:01 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 13:02 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:04 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:55 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [国内油价，今年首次下调](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.blog.minike.top/Article/details/57509639.shtml)
-- 2026-06-29 12:39 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.kurohicncr.top/Article/details/54287.shtml)
-- 2026-06-29 12:55 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.minike.top/Article/details/12544412927.shtml)
-- 2026-06-29 12:54 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.share.kurohicncr.top/Article/details/53640.shtml)
-- 2026-06-29 12:37 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.kurohicncr.top/Article/details/136522635225.shtml)
-- 2026-06-29 12:39 - [重回4100点！A股三大指数午后集体大涨](http://www.blog.minike.top/Article/details/97630618988.shtml)
-- 2026-06-29 13:02 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.kurohicncr.top/Article/details/137844099.shtml)
-- 2026-06-29 12:46 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.kurohicncr.top/Article/details/66956350590.shtml)
-- 2026-06-29 12:54 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.blog.minike.top/Article/details/40826566.shtml)
-- 2026-06-29 12:50 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/872455544.shtml)
-- 2026-06-29 12:45 - [别瞧不起格林基金](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [UPS与联邦快递已开始申请部分关税退款](http://www.blog.kurohicncr.top/Article/details/97108993.shtml)
+- 2026-06-29 12:50 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](http://www.blog.minike.top/Article/details/046184.shtml)
+- 2026-06-29 12:46 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.share.kurohicncr.top/Article/details/413386.shtml)
+- 2026-06-29 12:47 - [菲律宾失业率连续两个月回落](http://www.share.kurohicncr.top/Article/details/94393209.shtml)
+- 2026-06-29 13:11 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [经纬线·青年习近平的“人生课堂”](http://www.blog.minike.top/Article/details/8491295638.shtml)
+- 2026-06-29 13:09 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](http://www.blog.minike.top/Article/details/167742462588.shtml)
+- 2026-06-29 12:45 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.share.minike.top/Article/details/317781349.shtml)
+- 2026-06-29 13:08 - [2026年全国残疾人足球公开赛在京举行](http://www.blog.kurohicncr.top/Article/details/048714569200.shtml)
+- 2026-06-29 12:44 - [原油期货上涨 或因技术性反弹](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [中东紧张局势冲击全球旅游业](http://www.blog.kurohicncr.top/Article/details/46323189.shtml)
+- 2026-06-29 12:48 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.share.minike.top/Article/details/668196774103.shtml)
+- 2026-06-29 12:44 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.share.minike.top/Article/details/17056203.shtml)
+- 2026-06-29 12:47 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.blog.kurohicncr.top/Article/details/67478157391.shtml)
+- 2026-06-29 12:51 - [山东省枣庄市青檀学校：榴乡厚土育同心](http://www.blog.minike.top/Article/details/2708714975.shtml)

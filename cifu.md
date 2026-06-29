@@ -1,45 +1,56 @@
-# 联合健康集团业绩超预期并上调展望
+# 黄金突破4700美元，分析师警示风险犹存
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-联合健康（UNH）第一季度业绩超出预期，并将2026年每股收益指引上调至18.25美元以上，其医疗福利比率改善至83.9%，这反映了成本管理及Optum部门准备金的释放。责任编辑：张俊 SF065
+来源：汇通网 汇通财经APP讯——周三（5月6日）美盘时段，现货黄金价格盘中报4713美元/盎司，日内涨幅超3%；现货白银稳固站上77美元/盎司，日内涨幅达6.5%。 分析师表示，贵金属上涨受益于美元走弱——美国总统特朗普宣布，因“与伊朗代表达成全面最终协议取得重大进展”，暂停美军在霍尔木兹海峡的护航行动后，美元汇率跌至10周低位。 美元走弱的同时，中东局势缓和的利好消息也推动
 
 ## 正文
 
-联合健康（UNH）第一季度业绩超出预期，并将2026年每股收益指引上调至18.25美元以上，其医疗福利比率改善至83.9%，这反映了成本管理及Optum部门准备金的释放。
+来源：汇通网 汇通财经APP讯——周三（5月6日）美盘时段，现货黄金价格盘中报4713美元/盎司，日内涨幅超3%；现货白银稳固站上77美元/盎司，日内涨幅达6.5%。
 
-责任编辑：张俊 SF065
+分析师表示，贵金属上涨受益于美元走弱——美国总统特朗普宣布，因“与伊朗代表达成全面最终协议取得重大进展”，暂停美军在霍尔木兹海峡的护航行动后，美元汇率跌至10周低位。
+
+美元走弱的同时，中东局势缓和的利好消息也推动油价大幅下跌，通胀担忧随之缓解，而通胀压力曾迫使各国央行采取更鹰派的货币政策。
+
+Trade Nation高级市场分析师戴维·莫里森在周三的报告中称，尽管和平谈判仍存诸多疑问，但任何降低不确定性的消息，对金融市场而言都是利好。
+
+“协议具体内容尚不明确，尤其是霍尔木兹海峡重新开放相关条款。
+
+但投资者普遍认为，战争爆发十周后，敌对状态或迎来终结。
+
+”莫里森说。
+
+不过他同时指出，这场战争已对全球经济和通胀造成显著影响，意味着今年降息并非板上钉钉。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 13:05 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 12:39 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 13:04 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:43 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 13:04 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 13:01 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:45 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:48 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 13:04 - [美军称对一艘“涉伊朗”油轮登船检查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-29 12:50 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 12:46 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:05 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:54 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:07 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:47 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 12:52 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:51 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
+- 2026-06-29 13:04 - [2026年全国残疾人足球公开赛在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:58 - [原油期货上涨 或因技术性反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 12:48 - [中东紧张局势冲击全球旅游业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](http://www.share.minike.top/Article/details/263344867.shtml)
-- 2026-06-29 12:50 - [旷日持久的冲突或将对铜价构成压力](http://www.blog.kurohicncr.top/Article/details/709126476.shtml)
-- 2026-06-29 12:42 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](http://www.blog.kurohicncr.top/Article/details/10161247913.shtml)
-- 2026-06-29 12:54 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.blog.kurohicncr.top/Article/details/924809404745.shtml)
-- 2026-06-29 12:56 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](http://www.share.kurohicncr.top/Article/details/3593123.shtml)
-- 2026-06-29 12:49 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [在洪安边城寻找“翠翠”](http://www.share.kurohicncr.top/Article/details/783440.shtml)
-- 2026-06-29 12:52 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](http://www.share.kurohicncr.top/Article/details/065793554978.shtml)
-- 2026-06-29 12:58 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.blog.minike.top/Article/details/62843.shtml)
-- 2026-06-29 12:49 - [全线爆发！三大龙头，历史新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](http://www.blog.kurohicncr.top/Article/details/6820950540.shtml)
-- 2026-06-29 12:52 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.blog.minike.top/Article/details/6247448948.shtml)
-- 2026-06-29 12:53 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.share.minike.top/Article/details/942564.shtml)
-- 2026-06-29 12:58 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](http://www.share.minike.top/Article/details/11367.shtml)
-- 2026-06-29 12:44 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.minike.top/Article/details/958666.shtml)
+- 2026-06-29 12:48 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.share.kurohicncr.top/Article/details/430387019.shtml)
+- 2026-06-29 13:03 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](http://www.blog.minike.top/Article/details/654189198792.shtml)
+- 2026-06-29 13:02 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.share.minike.top/Article/details/482992075435.shtml)
+- 2026-06-29 13:08 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](http://www.blog.minike.top/Article/details/102083333.shtml)
+- 2026-06-29 12:48 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.blog.minike.top/Article/details/628259477830.shtml)
+- 2026-06-29 13:09 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](http://www.blog.minike.top/Article/details/00214.shtml)
+- 2026-06-29 13:11 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.blog.kurohicncr.top/Article/details/191363563238.shtml)
+- 2026-06-29 12:46 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.share.kurohicncr.top/Article/details/004612.shtml)
+- 2026-06-29 13:07 - [心动公司于5月6日斥资282.29万港元回购4.5万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [平安人寿保险增持农业银行4747.4万股](http://www.blog.minike.top/Article/details/59616.shtml)
+- 2026-06-29 13:05 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](http://www.blog.kurohicncr.top/Article/details/69995979880.shtml)
+- 2026-06-29 13:11 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](http://www.share.kurohicncr.top/Article/details/960878838950.shtml)

@@ -1,56 +1,61 @@
-# 日本首相高市早苗向靖国神社供奉“玉串料”
+# 际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新社东京4月22日电(记者 朱晨曦)据日本媒体报道，日本首相高市早苗22日向靖国神社供奉“玉串料”(祭祀费)。 日本靖国神社21日至23日举行例行春季大祭。22日上午，日本经济财政政策担当大臣城内实参拜供奉有二战甲级战犯的靖国神社，这是高市早苗内阁大臣首次参拜。 此外，126名来自日本跨党派国会议员联盟“大家一起参拜靖国神社”的成员当日集体参拜了靖国神社。 靖国神社位于东京千
+2026年4月30日晚，际华集团（601718）公告公司及相关当事人收到证监会下发的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，至此，际华集团虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。 许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的
 
 ## 正文
 
-中新社东京4月22日电(记者 朱晨曦)据日本媒体报道，日本首相高市早苗22日向靖国神社供奉“玉串料”(祭祀费)。
+2026年4月30日晚，际华集团（601718）公告公司及相关当事人收到证监会下发的《行政处罚事先告知书》，上海久诚律师事务所股票索赔律师许峰提示，至此，际华集团虚假陈述违法事实已基本清晰，如果投资者因此受损，目前还可发起索赔。
 
-日本靖国神社21日至23日举行例行春季大祭。
+许峰律师代理的际华集团投资者索赔案已多次向法院提交立案，目前正在等待法院的下一步安排，律师团队还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
 
-22日上午，日本经济财政政策担当大臣城内实参拜供奉有二战甲级战犯的靖国神社，这是高市早苗内阁大臣首次参拜。
+（许峰律师专栏） 上述行政处罚事先告知书公告信息显示，经查明，际华集团及相关人员违法事实如下： （一）际华集团跨期确认土地出售收入导致虚减利润际华集团全资子公司跨期确认襄阳土地出售收入，导致际华集团2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
 
-此外，126名来自日本跨党派国会议员联盟“大家一起参拜靖国神社”的成员当日集体参拜了靖国神社。
+（二）际华集团通过开展融资性贸易虚增营业收入、营业成本 2018年至2019年，际华集团子公司新兴际华国际贸易有限公司（以下简称际华国贸）与多家公司开展融资性贸易业务，并对此确认营业收入和营业成本，导致际华集团2018年、2019年分别虚增营业收入5，098，495，638.15元、2，997，624，845.12元，占各期对外披露营业收入的22.48%、14.17%，虚增营业成本5，078，563，183.57元、2，980，144，144.24元，占各期对外披露营业成本的22.29%、14.04%。
 
-靖国神社位于东京千代田区，神社内供奉有包括东条英机在内的14名二战甲级战犯。
+（三）际华集团通过开展代理业务虚增营业收入、营业成本。
 
-长期以来，日本部分政客、国会议员坚持参拜靖国神社，遭到日本国内众多爱好和平人士和国际社会的强烈反对。
+综上，际华集团2018年至2021年年度报告分别虚增营业收入5，098，495，638.15元、2，997，624，845.12元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业收入的22.48%、14.17%、3.68%、6.54%，虚增营业成本5，078，563，183.57元、2，980，144，144.24元、550，776，959.10元、1，013，129，465.60元，占各期对外披露营业成本的22.29%、14.04%、3.60%、6.51%。
 
-(完)
+同时，2020年年度报告虚减利润总额502，111，658.99元，占当期对外披露利润总额的60.26%。
+
+专门从事股票索赔法律事务的上海久诚律师事务所主任许峰律师认为，在2019年4月26日到2025年8月9日之间买入际华集团股票，并在2025年8月9日后卖出或继续持有股票的投资者，目前还可发起索赔。
 
 ## 相关推荐
 
-- 2026-06-29 12:41 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:51 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:03 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:42 - [机械车位闲置，如何盘活改造？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:47 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:48 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:56 - [联合健康集团业绩超预期并上调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 12:59 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 12:54 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:48 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
-- 2026-06-29 12:42 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:01 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:59 - [路易丝·阿伯将出任第31任加拿大总督](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:46 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:08 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 13:00 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:09 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 13:11 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:54 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:52 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 13:06 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:55 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:57 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 13:02 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:42 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:50 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 12:47 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:39 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](http://www.share.minike.top/Article/details/7215118404.shtml)
-- 2026-06-29 13:05 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](http://www.share.kurohicncr.top/Article/details/80803849269.shtml)
-- 2026-06-29 12:51 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.blog.minike.top/Article/details/32249431.shtml)
-- 2026-06-29 12:54 - [每一帧都很治愈，你读书的样子真好看！](http://www.blog.kurohicncr.top/Article/details/643984247.shtml)
-- 2026-06-29 12:58 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.blog.minike.top/Article/details/17077.shtml)
-- 2026-06-29 12:37 - [中芯国际获南向资金连续3天净买入](http://www.blog.kurohicncr.top/Article/details/3099737553.shtml)
-- 2026-06-29 12:52 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](http://www.blog.minike.top/Article/details/0552931.shtml)
-- 2026-06-29 12:43 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.share.kurohicncr.top/Article/details/310581846955.shtml)
-- 2026-06-29 12:39 - [金针菇概念股，净利润大增超7000%](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [方邦股份4月21日龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/25445180.shtml)
-- 2026-06-29 12:54 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](http://www.blog.minike.top/Article/details/124288.shtml)
-- 2026-06-29 12:55 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.minike.top/Article/details/0467703279.shtml)
-- 2026-06-29 12:49 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [旷日持久的冲突或将对铜价构成压力](http://www.share.minike.top/Article/details/409282.shtml)
+- 2026-06-29 13:02 - [Coinbase首席执行官称公司将裁员约14%](http://www.blog.minike.top/Article/details/2547670562.shtml)
+- 2026-06-29 13:05 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](http://www.share.kurohicncr.top/Article/details/32672617019.shtml)
+- 2026-06-29 13:08 - [全国大部降水增多 冷空气将自北向南制造降温](http://www.share.kurohicncr.top/Article/details/35092278593.shtml)
+- 2026-06-29 12:57 - [开盘：美股周二高开 油价回落与强劲财报提振](http://www.share.minike.top/Article/details/922995492.shtml)
+- 2026-06-29 12:46 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](http://www.share.kurohicncr.top/Article/details/85902293.shtml)
+- 2026-06-29 13:10 - [哮喘控制不好？快看看吸入剂你用对了吗？](http://www.blog.kurohicncr.top/Article/details/515049358788.shtml)
+- 2026-06-29 12:58 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.blog.minike.top/Article/details/0285358845.shtml)
+- 2026-06-29 12:57 - [成都铁路迎“五一”假期客流返程高峰](http://www.share.kurohicncr.top/Article/details/45485333.shtml)
+- 2026-06-29 12:51 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.share.minike.top/Article/details/55508.shtml)
+- 2026-06-29 13:11 - [特朗普威胁伊朗不要向美国船开火](http://www.share.kurohicncr.top/Article/details/835339518.shtml)
+- 2026-06-29 12:46 - [广东建成内地规模最大欧标充电服务网络](http://www.blog.minike.top/Article/details/43434.shtml)
+- 2026-06-29 12:48 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.blog.kurohicncr.top/Article/details/07815815.shtml)
+- 2026-06-29 12:49 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.share.minike.top/Article/details/33428289.shtml)
+- 2026-06-29 12:51 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.share.kurohicncr.top/Article/details/935098329.shtml)
+- 2026-06-29 13:08 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.minike.top/Article/details/08334444537.shtml)

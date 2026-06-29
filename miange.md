@@ -1,58 +1,56 @@
-# 方邦股份4月21日龙虎榜数据
+# 广东建成内地规模最大欧标充电服务网络
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-4月21日方邦股份(688020)收盘价112.25元，收盘涨停，全天换手率11.48%，振幅22.33%，成交额9.86亿元。科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交3.30亿元， 其中，买入成交额为1.86亿元，卖出成交额为1.43亿元，合计净买入4301.89万元。具体来看，今日上榜的前五大买入
+中新社佛山5月6日电 (王华 沈甸)佛山文华公园综合能源示范站6日正式投运，至此，南方电网广东电网电动汽车服务有限公司(下称：广东电动)运营广东省内欧标充电站正式突破200座，覆盖全省县区。这意味着广东建成内地规模最大的欧标充电服务网络。 6日投运的佛山文华公园综合能源示范站位于佛山市中心，周边网约车、物流车和私家车等车流密集，场站集合超充、欧标、V2G、光伏和储能等元素，能同
 
 ## 正文
 
-4月21日方邦股份(688020)收盘价112.25元，收盘涨停，全天换手率11.48%，振幅22.33%，成交额9.86亿元。
+中新社佛山5月6日电 (王华 沈甸)佛山文华公园综合能源示范站6日正式投运，至此，南方电网广东电网电动汽车服务有限公司(下称：广东电动)运营广东省内欧标充电站正式突破200座，覆盖全省县区。
 
-科创板交易公开信息显示，当日该股因日收盘价涨幅达15%等上榜。
+这意味着广东建成内地规模最大的欧标充电服务网络。
 
-证券时报·数据宝统计显示，上榜的前五大买卖营业部合计成交3.30亿元， 其中，买入成交额为1.86亿元，卖出成交额为1.43亿元，合计净买入4301.89万元。
+6日投运的佛山文华公园综合能源示范站位于佛山市中心，周边网约车、物流车和私家车等车流密集，场站集合超充、欧标、V2G、光伏和储能等元素，能同时为55辆新能源汽车充电，为车主提供“1秒1公里”的快速补能体验。
 
-具体来看，今日上榜的前五大买入营业部中，有1家机构专用席位现身，即买四，买入金额分别为3258.29万元，营业部合计买入1.54亿元。
+目前，广东电动建设运营的欧标充电站点已覆盖佛山五个行政区，打通佛山地区30分钟欧标充电服务网络，促进港澳居民赴佛山旅游、消费和投资，推动佛山成为港澳车北上枢纽。
 
-卖出营业部中，有1家机构专用席位现身，即卖二，卖出金额分别为3477.58万元，营业部合计卖出1.09亿元。
+广东持续拓宽港澳车北上充电服务半径，欧标充电服务网络向“广域覆盖”和“品质跃升”双发展。
 
-买卖金额相抵，机构专用席位今日净卖出该股219.29万元。
+广东积极打造港车北上“充电+”产业新生态，将推动“顺易充”平台与港车出行平台互联互通，实现优惠充电、线路规划一键搞定。
 
-资金流向方面，该股今日全天主力资金净流入4791.20万元。
+同时，为便利港澳车主畅享内地充电服务，广东在线下站点增设繁体字指引标识，线上平台上线繁体版欧标充电指南。
 
-（数据宝）方邦股份4月21日龙虎榜（文章来源：证券时报网）
+2025年4月至今，仅广东电动服务港澳车主车次同比提升400%。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-29 13:00 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:40 - [在洪安边城寻找“翠翠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:50 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:03 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:53 - [全线爆发！三大龙头，历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-29 12:54 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:38 - [人民海军成立77周年系列报道之：沧海·初心如磐](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
-- 2026-06-29 12:37 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 13:03 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 12:55 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:38 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 13:03 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:48 - [美伊停火暂时维持 华尔街股市强劲反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:50 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 13:10 - [英皇群星演唱会香港开唱勾起观众青春回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 13:01 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:48 - [央行公告这一名单更新！哪些机构新进，哪些退出？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:47 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:45 - [心动公司于5月6日斥资282.29万港元回购4.5万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:57 - [平安人寿保险增持农业银行4747.4万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:43 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](http://www.share.minike.top/Article/details/7641051.shtml)
-- 2026-06-29 12:56 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.share.minike.top/Article/details/7963080937.shtml)
-- 2026-06-29 12:44 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.kurohicncr.top/Article/details/882471729927.shtml)
-- 2026-06-29 13:00 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [这种清凉主食热量低，减肥可吃！但这几点要注意](http://www.share.minike.top/Article/details/844704.shtml)
-- 2026-06-29 12:50 - [拍照识字、自动翻译 探索打开古籍的N种方式](http://www.blog.kurohicncr.top/Article/details/866016929237.shtml)
-- 2026-06-29 13:01 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](http://www.share.minike.top/Article/details/45536.shtml)
-- 2026-06-29 12:49 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](http://www.share.kurohicncr.top/Article/details/31485.shtml)
-- 2026-06-29 12:41 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](http://www.blog.minike.top/Article/details/931962.shtml)
-- 2026-06-29 12:57 - [四川2025年高价值发明专利拥有量达7.79万件](http://www.share.minike.top/Article/details/65937163.shtml)
-- 2026-06-29 12:40 - [RYOEX:黄金中长期仍具坚实支撑](http://www.blog.minike.top/Article/details/87101525256.shtml)
-- 2026-06-29 12:43 - [民生调查局丨别被牙膏的“3D炫白”“医研”骗了，那只是商标](http://www.blog.kurohicncr.top/Article/details/7682903153.shtml)
+- 2026-06-29 12:45 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](http://www.blog.kurohicncr.top/Article/details/509660091.shtml)
+- 2026-06-29 12:59 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](http://www.share.kurohicncr.top/Article/details/389623916333.shtml)
+- 2026-06-29 13:04 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](http://www.share.minike.top/Article/details/18752.shtml)
+- 2026-06-29 13:04 - [93.59万人次“五一”打卡太原文博 门票收入破千万](http://www.share.kurohicncr.top/Article/details/9074017.shtml)
+- 2026-06-29 12:55 - [追光的你｜明天的中国，希望寄予青年](http://www.share.minike.top/Article/details/991377.shtml)
+- 2026-06-29 12:48 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](http://www.blog.minike.top/Article/details/485710674226.shtml)
+- 2026-06-29 12:44 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](http://www.blog.minike.top/Article/details/1147105.shtml)
+- 2026-06-29 12:49 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](http://www.share.minike.top/Article/details/99427.shtml)
+- 2026-06-29 13:09 - [著名文艺理论家王先霈因病逝世](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](http://www.blog.minike.top/Article/details/91216660696.shtml)
+- 2026-06-29 12:46 - [AMD飙涨近19%带飞AI芯片板块！规模最大港股通信息技术ETF华宝（159131）续涨2.55%冲击连阳](http://www.share.kurohicncr.top/Article/details/672113675529.shtml)
+- 2026-06-29 13:06 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](http://www.share.minike.top/Article/details/842176.shtml)
+- 2026-06-29 12:52 - [西渝高铁樊哙隧道顺利贯通](http://www.share.kurohicncr.top/Article/details/14017.shtml)
+- 2026-06-29 12:56 - [国富氢能附属拟向九疆电力建设(陕西)提供300MW新能源耦合绿色电力项目的全套设备](http://www.blog.minike.top/Article/details/57947.shtml)

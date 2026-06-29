@@ -1,54 +1,58 @@
-# 沃什如何推动美联储实现“政策范式转变”
+# 515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-沃什此前曾公开表示，他希望在美联储推动 “范式转变”。值得关注的是，他今日在参议员面前是否仍会使用这一表述，或是会缓和其希望推行的改革力度。 需要指出的是，沃什希望在美联储实施的诸多举措，均需获得其新任同僚的批准。 下调利率、缩减资产负债表以及达成财政部 — 美联储协议，均需得到联邦公开市场委员会的同意。而在银行业放松监管方面，沃什则需要获得美联储理事会的批准。责任编辑：郭明煜
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。《银华小小理财家》“公益+投教”财商课程活动参选“最佳投资者教育创新奖”类别。>>活动详情 据悉，为响应中国证券投资基金业协会“一司一省一高校”投资者教育专项号召，深入践行金融为民与普惠金融理念，银华基金创新打造“公益+投教”双融合财商教育模式，为乡
 
 ## 正文
 
-沃什此前曾公开表示，他希望在美联储推动 “范式转变”。
+专题：515投资者保护！
 
-值得关注的是，他今日在参议员面前是否仍会使用这一表述，或是会缓和其希望推行的改革力度。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-需要指出的是，沃什希望在美联储实施的诸多举措，均需获得其新任同僚的批准。
+《银华小小理财家》“公益+投教”财商课程活动参选“最佳投资者教育创新奖”类别。
 
-下调利率、缩减资产负债表以及达成财政部 — 美联储协议，均需得到联邦公开市场委员会的同意。
+>>活动详情 据悉，为响应中国证券投资基金业协会“一司一省一高校”投资者教育专项号召，深入践行金融为民与普惠金融理念，银华基金创新打造“公益+投教”双融合财商教育模式，为乡村学子带去生动有趣的《银华小小理财家》财商启蒙课，以金融温度赋能儿童成长，让财商教育的种子扎根校园沃土。
 
-而在银行业放松监管方面，沃什则需要获得美联储理事会的批准。
+财商教育是国民金融素养教育的核心组成，更是儿童素质教育的重要一课。
 
-责任编辑：郭明煜
+从小培育正确的财富观、消费观与理财意识，不仅能帮助孩子们树立理性规划的生活理念，更能为全民金融素养提升筑牢根基。
+
+《银华小小理财家》财商启蒙课程，通过案例讲解、互动分析、游戏实践等多种形式，帮助小朋友了解货币演变、财富来源、理性消费、储蓄意义及复利价值相关知识，引导小朋友树立正确的金钱观、消费观与理财意识，学会合理规划财富。
+
+财商启蒙课一共分为5个部分讲述： 第一部分：主题为“穿越金银岛”主要讲述金钱的演变以及不同国家的货币。
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [三位华人女数学家获2026突破奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:41 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:38 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:36 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:37 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 13:05 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-29 12:42 - [接迎英雄回家的运-20B专机进入我国领空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 12:57 - [特朗普过去24小时都忙了什么？（2026-04-21）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:58 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-29 12:38 - [机械车位闲置，如何盘活改造？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:41 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:39 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:55 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-29 12:47 - [伊朗：尚未回应美国对伊方14点提议的看法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:56 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:49 - [生猪板块升温，期股共振释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 12:48 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
+- 2026-06-29 13:03 - [午盘：美股继续上扬 纳指创盘中新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 13:07 - [路易丝·阿伯将出任第31任加拿大总督](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:55 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:49 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 12:46 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:46 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 13:08 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:54 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](http://www.share.kurohicncr.top/Article/details/41761.shtml)
-- 2026-06-29 13:04 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](http://www.share.kurohicncr.top/Article/details/387722541345.shtml)
-- 2026-06-29 13:01 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](http://www.share.kurohicncr.top/Article/details/092773161510.shtml)
-- 2026-06-29 12:47 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](http://www.share.kurohicncr.top/Article/details/15525620.shtml)
-- 2026-06-29 12:54 - [连跌10周，猪价反弹了](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](http://www.blog.minike.top/Article/details/6059906838.shtml)
-- 2026-06-29 12:44 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](http://www.blog.minike.top/Article/details/6133546.shtml)
-- 2026-06-29 12:48 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.blog.kurohicncr.top/Article/details/0634083.shtml)
-- 2026-06-29 12:47 - [每一帧都很治愈，你读书的样子真好看！](http://www.blog.minike.top/Article/details/279107318.shtml)
-- 2026-06-29 12:57 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.blog.kurohicncr.top/Article/details/143609147078.shtml)
-- 2026-06-29 12:38 - [中芯国际获南向资金连续3天净买入](http://www.share.kurohicncr.top/Article/details/310160325.shtml)
-- 2026-06-29 12:44 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](http://www.share.minike.top/Article/details/1380980.shtml)
-- 2026-06-29 12:49 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.share.kurohicncr.top/Article/details/62695206.shtml)
+- 2026-06-29 13:01 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](http://www.share.minike.top/Article/details/017977002.shtml)
+- 2026-06-29 12:55 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](http://www.share.kurohicncr.top/Article/details/211768885.shtml)
+- 2026-06-29 12:50 - [转型金融破局：货币政策如何发力？](http://www.blog.kurohicncr.top/Article/details/42693687264.shtml)
+- 2026-06-29 12:51 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](http://www.blog.kurohicncr.top/Article/details/90039.shtml)
+- 2026-06-29 12:56 - [燃油价格飙升，韩国4月通胀率创21个月新高](http://www.blog.kurohicncr.top/Article/details/229312848637.shtml)
+- 2026-06-29 12:56 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](http://www.blog.minike.top/Article/details/22837107007.shtml)
+- 2026-06-29 12:53 - [Coinbase首席执行官称公司将裁员约14%](http://www.share.minike.top/Article/details/8569746.shtml)
+- 2026-06-29 13:01 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](http://www.blog.kurohicncr.top/Article/details/5966700034.shtml)
+- 2026-06-29 12:56 - [全国大部降水增多 冷空气将自北向南制造降温](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [开盘：美股周二高开 油价回落与强劲财报提振](http://www.share.kurohicncr.top/Article/details/583006902903.shtml)
+- 2026-06-29 12:48 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [哮喘控制不好？快看看吸入剂你用对了吗？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.blog.kurohicncr.top/Article/details/14463003714.shtml)
+- 2026-06-29 12:52 - [成都铁路迎“五一”假期客流返程高峰](http://www.blog.kurohicncr.top/Article/details/44593233.shtml)
+- 2026-06-29 13:03 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.blog.minike.top/Article/details/546233.shtml)

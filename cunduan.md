@@ -1,57 +1,51 @@
-# 沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利
+# 伊朗：尚未回应美国对伊方14点提议的看法
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-马萨诸塞州参议员伊丽莎白・沃伦今日表态，尽管美联储素有不受政治干预的历史传统，但特朗普执意降息、刺激经济，本质是为在中期选举前为自身谋取政治利益。 身为参议院银行委员会民主党资深议员的沃伦，在凯文・沃什出任美联储主席的提名听证会上发言：“特朗普毫不掩饰自己想要独掌大权的野心，并且意图实现完全掌控。要知道，当一个人主动袒露自身意图与计划时，尤其是特朗普这类人物，我们应当信以为真。
+新华社德黑兰5月6日电 伊朗伊斯兰共和国广播电视台6日报道，伊朗外交部发言人巴加埃强调，针对美国对伊朗14点提议的看法，伊朗尚未向斡旋方巴基斯坦回复伊方意见。 巴加埃对部分媒体声称和猜测的相关内容予以驳斥。他表示，伊朗和美国经由巴基斯坦进行信息传递，目前正对已交换的文本进行审议。 巴加埃稍早时候接受伊朗学生通讯社采访时表示，伊朗正在审议美国提出的方案和提议，总结后将向巴基斯坦方
 
 ## 正文
 
-马萨诸塞州参议员伊丽莎白・沃伦今日表态，尽管美联储素有不受政治干预的历史传统，但特朗普执意降息、刺激经济，本质是为在中期选举前为自身谋取政治利益。
+新华社德黑兰5月6日电 伊朗伊斯兰共和国广播电视台6日报道，伊朗外交部发言人巴加埃强调，针对美国对伊朗14点提议的看法，伊朗尚未向斡旋方巴基斯坦回复伊方意见。
 
-身为参议院银行委员会民主党资深议员的沃伦，在凯文・沃什出任美联储主席的提名听证会上发言：“特朗普毫不掩饰自己想要独掌大权的野心，并且意图实现完全掌控。
+巴加埃对部分媒体声称和猜测的相关内容予以驳斥。
 
-要知道，当一个人主动袒露自身意图与计划时，尤其是特朗普这类人物，我们应当信以为真。
+他表示，伊朗和美国经由巴基斯坦进行信息传递，目前正对已交换的文本进行审议。
 
-” “他想要的美联储，不会为美国制定合理的货币政策…… 他希望美联储大肆向市场放水、推高通胀、抬升物价；但他赌的是，在通胀全面恶化前，民众会先感受到短期经济繁荣的假象，借此帮他拿下 11 月大选。
-
-” 沃伦还表示，公众也应当追问沃什与杰弗里・爱泼斯坦之间是否存在关联。
-
-她称：“共和党企图仓促通过此次提名，完全不开展独立背景调查。
-
-我认为这是极其严重的错误。
-
-” 针对特朗普放出的威胁 ——若沃什未能获得任命，将在 5 月 15 日后罢免美联储主席杰罗姆・鲍威尔，沃伦评论道：总统认为，掌控美联储、人为刺激经济是自己的制胜路径；因此他扬言要破坏美联储的独立性、不断制造混乱，不达目的绝不罢休。
+巴加埃稍早时候接受伊朗学生通讯社采访时表示，伊朗正在审议美国提出的方案和提议，总结后将向巴基斯坦方面转达伊朗的意见。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 13:02 - [机械车位闲置，如何盘活改造？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:46 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 12:44 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 12:40 - [联合健康集团业绩超预期并上调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:38 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 12:39 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
-- 2026-06-29 12:40 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:39 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:47 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:57 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 12:51 - [离境退税“即买即退”跨省互认进一步扩围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:56 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:52 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:49 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:46 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:53 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:53 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 12:54 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:07 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:44 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 12:55 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 13:04 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:47 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:05 - [外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知](http://www.blog.minike.top/Article/details/08909612277.shtml)
-- 2026-06-29 12:50 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [每一帧都很治愈，你读书的样子真好看！](http://www.blog.kurohicncr.top/Article/details/30663152224.shtml)
-- 2026-06-29 12:44 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.share.minike.top/Article/details/64884.shtml)
-- 2026-06-29 12:37 - [中芯国际获南向资金连续3天净买入](http://www.share.kurohicncr.top/Article/details/4692318.shtml)
-- 2026-06-29 12:44 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.blog.kurohicncr.top/Article/details/5383787.shtml)
-- 2026-06-29 12:51 - [金针菇概念股，净利润大增超7000%](http://www.blog.minike.top/Article/details/9907406717.shtml)
-- 2026-06-29 12:58 - [方邦股份4月21日龙虎榜数据](http://www.blog.kurohicncr.top/Article/details/9402903.shtml)
-- 2026-06-29 12:39 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](http://www.blog.kurohicncr.top/Article/details/4351683250.shtml)
-- 2026-06-29 12:49 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.blog.minike.top/Article/details/020085872309.shtml)
-- 2026-06-29 12:54 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](http://www.share.kurohicncr.top/Article/details/481086365.shtml)
-- 2026-06-29 12:50 - [旷日持久的冲突或将对铜价构成压力](http://www.share.kurohicncr.top/Article/details/54656462084.shtml)
-- 2026-06-29 12:51 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](http://www.share.kurohicncr.top/Article/details/3749436.shtml)
-- 2026-06-29 12:40 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.share.kurohicncr.top/Article/details/65767960465.shtml)
+- 2026-06-29 12:43 - [全国大部降水增多 冷空气将自北向南制造降温](http://www.blog.kurohicncr.top/Article/details/4573660.shtml)
+- 2026-06-29 13:11 - [开盘：美股周二高开 油价回落与强劲财报提振](http://www.share.minike.top/Article/details/113359511870.shtml)
+- 2026-06-29 12:44 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](http://www.share.kurohicncr.top/Article/details/80044037.shtml)
+- 2026-06-29 12:59 - [哮喘控制不好？快看看吸入剂你用对了吗？](http://www.blog.kurohicncr.top/Article/details/49394903.shtml)
+- 2026-06-29 12:43 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.share.kurohicncr.top/Article/details/01934201.shtml)
+- 2026-06-29 13:11 - [成都铁路迎“五一”假期客流返程高峰](http://www.blog.kurohicncr.top/Article/details/6996889.shtml)
+- 2026-06-29 12:57 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.blog.minike.top/Article/details/0035946.shtml)
+- 2026-06-29 12:47 - [特朗普威胁伊朗不要向美国船开火](http://www.share.kurohicncr.top/Article/details/75479457801.shtml)
+- 2026-06-29 12:52 - [广东建成内地规模最大欧标充电服务网络](http://www.share.minike.top/Article/details/18852478.shtml)
+- 2026-06-29 13:00 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.blog.kurohicncr.top/Article/details/531640226357.shtml)
+- 2026-06-29 13:02 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.share.kurohicncr.top/Article/details/76530557144.shtml)
+- 2026-06-29 12:55 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.share.kurohicncr.top/Article/details/740466.shtml)
+- 2026-06-29 13:01 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.minike.top/Article/details/49213070246.shtml)
+- 2026-06-29 12:57 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.blog.minike.top/Article/details/91036.shtml)
+- 2026-06-29 13:03 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lisacumin64-arch)

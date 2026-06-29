@@ -1,57 +1,55 @@
-# 国内油价，今年首次下调
+# 长沙磁浮快线载客运营十周年 总里程1033.63万列公里
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-据央视新闻报道，记者今天从国家发展改革委了解到，4月21日24时国内成品油调价窗口将开启。据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月7日24时——4月21日24时），国际油价震荡下降。 4月21日24时起，国内汽、柴油零售价格每吨分别下调555元、530元，全国平均来看：折合升价92号汽油、95号汽油、0号柴油分别下调0.44元、0.46元、0.45元。本轮调
+中新社长沙5月6日电 (付敬懿)中国首条完全拥有自主知识产权的中低速磁浮商业运营示范线——长沙磁浮快线6日迎来载客运营十周年。截至2026年5月5日，长沙磁浮快线累计开行超55.96万列次，运营总里程1033.63万列公里，客流总量2624.93万人次。这条连接高铁长沙南站与长沙黄花国际机场的18.55公里交通动脉，历经十年发展，构建了完善的“科研攻关—成果转化—标准输出”全链
 
 ## 正文
 
-据央视新闻报道，记者今天从国家发展改革委了解到，4月21日24时国内成品油调价窗口将开启。
+中新社长沙5月6日电 (付敬懿)中国首条完全拥有自主知识产权的中低速磁浮商业运营示范线——长沙磁浮快线6日迎来载客运营十周年。
 
-据国家发展改革委价格监测中心监测，本轮成品油调价周期内（4月7日24时——4月21日24时），国际油价震荡下降。
+截至2026年5月5日，长沙磁浮快线累计开行超55.96万列次，运营总里程1033.63万列公里，客流总量2624.93万人次。
 
-4月21日24时起，国内汽、柴油零售价格每吨分别下调555元、530元，全国平均来看：折合升价92号汽油、95号汽油、0号柴油分别下调0.44元、0.46元、0.45元。
+这条连接高铁长沙南站与长沙黄花国际机场的18.55公里交通动脉，历经十年发展，构建了完善的“科研攻关—成果转化—标准输出”全链条创新生态，成为自主创新、安全运营、服务民生、产业引领的标杆。
 
-本轮调价为年内第八次调价窗口，也是今年以来的首次下调。
+长沙磁浮快线聚焦核心技术突破，持续在线路桥梁优化、轨排工艺升级、道岔减振降噪、制动系统强化、车身轻量化等关键领域实现技术迭代，多项成果应用于全国磁浮项目建设；深耕专项技术研究，完成接触轨防冻、挡雪装置、智能运维等数十项技术攻关，形成覆盖全场景、全周期的技术储备。
 
-用92号汽油加满50升油箱将少花22元。
+长沙磁浮快线强化标准与知识产权建设，累计编制行业及地方标准十余项，获得专利超40项，出版多部专著与专业教材，深度参与国家、行业、地方标准编制，成为中低速磁浮领域技术规范与知识体系的重要输出者。
 
-目前，霍尔木兹海峡航运依然受阻，美国与伊朗第二轮谈判前景不明。
-
-“消息面不确定性较高，市场波动较大，后续需跟踪美伊言论及二次谈判进程，短期油价大概率维持宽幅震荡。
-
-目前国内原油变化率处于负值深位局面难以改变。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 12:38 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 12:38 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 13:00 - [美军称对一艘“涉伊朗”油轮登船检查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:44 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:40 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:46 - [别瞧不起格林基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:37 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:57 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:55 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:40 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 13:00 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:47 - [2026年全国残疾人足球公开赛在京举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 12:52 - [原油期货上涨 或因技术性反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:47 - [中东紧张局势冲击全球旅游业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 12:51 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:08 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:44 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 12:54 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:50 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 13:08 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:03 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-29 13:06 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-29 12:57 - [穿越百年航海史 “时光邮轮”驶入吉林长春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:11 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](http://www.share.minike.top/Article/details/40685.shtml)
-- 2026-06-29 12:38 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.share.minike.top/Article/details/5550256.shtml)
-- 2026-06-29 12:59 - [全线爆发！三大龙头，历史新高](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.share.minike.top/Article/details/6654229.shtml)
-- 2026-06-29 13:02 - [外国游客打卡西藏拉萨布达拉宫广场](http://www.blog.minike.top/Article/details/233304317238.shtml)
-- 2026-06-29 12:59 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](http://www.blog.minike.top/Article/details/50863695.shtml)
-- 2026-06-29 13:04 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](http://www.share.minike.top/Article/details/237060.shtml)
-- 2026-06-29 13:02 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](http://www.blog.kurohicncr.top/Article/details/397405.shtml)
-- 2026-06-29 12:48 - [微视频丨山河迎忠魂](http://www.blog.minike.top/Article/details/8805956239.shtml)
-- 2026-06-29 12:56 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [四川累计外送电量突破2万亿千瓦时](http://www.share.minike.top/Article/details/333357853.shtml)
-- 2026-06-29 12:51 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](http://www.blog.minike.top/Article/details/12398804852.shtml)
-- 2026-06-29 12:54 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](http://www.blog.kurohicncr.top/Article/details/8030673.shtml)
-- 2026-06-29 12:44 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.blog.minike.top/Article/details/41120801.shtml)
+- 2026-06-29 12:54 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.share.minike.top/Article/details/09697969493.shtml)
+- 2026-06-29 12:44 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [央行公告这一名单更新！哪些机构新进，哪些退出？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.share.kurohicncr.top/Article/details/309588252440.shtml)
+- 2026-06-29 13:05 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.blog.kurohicncr.top/Article/details/341282935.shtml)
+- 2026-06-29 13:04 - [平安人寿保险增持农业银行4747.4万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](http://www.share.minike.top/Article/details/355341563461.shtml)
+- 2026-06-29 12:42 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](http://www.share.minike.top/Article/details/16877980.shtml)
+- 2026-06-29 13:07 - [国资委：将组织开展新一轮数智化转型专项行动](http://www.share.minike.top/Article/details/271669065.shtml)
+- 2026-06-29 12:44 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](http://www.share.kurohicncr.top/Article/details/271928687603.shtml)
+- 2026-06-29 12:56 - [“五一”假期盘点 假期接待游客总量超1800万人次](http://www.share.minike.top/Article/details/62606680.shtml)
+- 2026-06-29 12:47 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](http://www.blog.minike.top/Article/details/144672592131.shtml)
+- 2026-06-29 12:48 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](http://www.blog.kurohicncr.top/Article/details/169198305954.shtml)
+- 2026-06-29 13:06 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](http://www.blog.minike.top/Article/details/7948646916.shtml)
+- 2026-06-29 13:06 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](http://www.share.minike.top/Article/details/9623004562.shtml)

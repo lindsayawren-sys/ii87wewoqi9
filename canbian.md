@@ -1,57 +1,57 @@
-# 海外旅行商甘肃掘金丝路游 便利支付迎全球客
+# 离境退税“即买即退”跨省互认进一步扩围
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新社兰州4月21日电 (记者 闫姣)“甘肃省是文旅潜力新高地，在东南亚市场属高品质小众目的地。”马来西亚华人旅游业公会总会长刘伟康21日在兰州说，未来将打造适合东南亚市场的丝路精品路线，让更多马来西亚游客了解、走进甘肃。2026甘肃入境游国际旅行商大会当日在兰州举行，邀请来自马来西亚、新加坡、韩国、日本、越南等15个国家和地区的180余名境外旅行商考察踩线。 近年来全球旅游业
+中新网广州5月6日电 (记者 郭军)记者6日从国家税务总局广东省税务局获悉，自5月1日起，境外旅客在广东(含深圳)、海南、广西任意一地办理离境退税“即买即退”并申领预付金后，可在三省区任一离境退税口岸离境。这意味着，境外旅客在华购物退税进一步打破购物地与离境口岸必须对应的地域限制，在华南地区实现更大范围的跨区域互认。 “五一”假期期间，这项新政策让正在参加第139届广交会的不少
 
 ## 正文
 
-中新社兰州4月21日电 (记者 闫姣)“甘肃省是文旅潜力新高地，在东南亚市场属高品质小众目的地。
+中新网广州5月6日电 (记者 郭军)记者6日从国家税务总局广东省税务局获悉，自5月1日起，境外旅客在广东(含深圳)、海南、广西任意一地办理离境退税“即买即退”并申领预付金后，可在三省区任一离境退税口岸离境。
 
-”马来西亚华人旅游业公会总会长刘伟康21日在兰州说，未来将打造适合东南亚市场的丝路精品路线，让更多马来西亚游客了解、走进甘肃。
+这意味着，境外旅客在华购物退税进一步打破购物地与离境口岸必须对应的地域限制，在华南地区实现更大范围的跨区域互认。
 
-2026甘肃入境游国际旅行商大会当日在兰州举行，邀请来自马来西亚、新加坡、韩国、日本、越南等15个国家和地区的180余名境外旅行商考察踩线。
+“五一”假期期间，这项新政策让正在参加第139届广交会的不少境外客商直呼“惊喜”。
 
-近年来全球旅游业稳步回暖。
+在广交会展馆离境退税专区，来自墨西哥的SALAZAR现场办理退税并领取现金后，得知回国时可以自由选择从深圳、广西或海南的离境口岸离开。
 
-世界旅游联盟副主席兼秘书长郑浩现场提供一组数据：2025年全球过夜国际游客约为15.2亿人次，较上年增加约6000万人次，增幅约4%；国际旅游收入达1.9万亿美元，同比增长约5%，“作为全球旅游市场的重要力量，中国持续释放免签政策红利、不断拓展国际航线网络、稳步提升支付便利化水平。
+她兴奋地说：“本来以为只能在广州办退税、从广州走，没想到现在能在好几个省区任选口岸离境，我可以放心地把周边省份也加入行程了。
 
-” “我们现已支持7大品牌的国际银行卡、13个国家和地区的30余种电子钱包在中国使用，覆盖百余个服务场景，方便中国千万商家轻松迎接全球客。
+” 为让跨区域互认运行更顺畅，税务部门在服务端同步升级。
 
-”蚂蚁国际旅行营销总监张也池说，同时，已在中国70多个入境游热门城市共建了上千个“入境消费友好型商圈”，实现对境外游客的精准服务。
+广交会退税专区首次引入离境退税“票单同开”智能服务，税务志愿者只需“一键扫描”境外旅客证件，系统便自动完成信息核验、发票生成和退税单打印，办理效率大幅提升。
 
-(完)
+与此同时，广东税务部门创新推行“3+X”集中退付模式，在广州天河路、北京路、万国广场等核心商圈设立集中退付点，实现“一次通办、全市通退”，并拓展“碰一下”“扫一下”等多元化便捷办理渠道，让境外旅客在商圈购物后即可就近完成退税申领。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:45 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:54 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:54 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:54 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
-- 2026-06-29 12:51 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 13:05 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:46 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:58 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 12:41 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 13:05 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:10 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:57 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 13:06 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
+- 2026-06-29 12:55 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 13:06 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
+- 2026-06-29 13:05 - [菲律宾失业率连续两个月回落](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:55 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:43 - [经纬线·青年习近平的“人生课堂”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 13:02 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:55 - [S佳通涉信息披露违法违规，受损投资者可维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:42 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [金针菇概念股，净利润大增超7000%](http://www.blog.kurohicncr.top/Article/details/17300.shtml)
-- 2026-06-29 13:05 - [方邦股份4月21日龙虎榜数据](http://www.share.kurohicncr.top/Article/details/9220880.shtml)
-- 2026-06-29 12:47 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](http://www.share.kurohicncr.top/Article/details/4841810130.shtml)
-- 2026-06-29 12:54 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [旷日持久的冲突或将对铜价构成压力](http://www.blog.kurohicncr.top/Article/details/11240636.shtml)
-- 2026-06-29 12:59 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.share.kurohicncr.top/Article/details/8940086029.shtml)
-- 2026-06-29 12:58 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](http://www.blog.kurohicncr.top/Article/details/1345235639.shtml)
-- 2026-06-29 12:41 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](http://www.blog.kurohicncr.top/Article/details/469005.shtml)
-- 2026-06-29 12:50 - [在洪安边城寻找“翠翠”](http://www.blog.minike.top/Article/details/4370356.shtml)
-- 2026-06-29 12:43 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](http://www.share.kurohicncr.top/Article/details/52637310.shtml)
-- 2026-06-29 12:51 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](http://www.blog.minike.top/Article/details/33927865845.shtml)
-- 2026-06-29 12:40 - [全线爆发！三大龙头，历史新高](http://www.share.kurohicncr.top/Article/details/509069605499.shtml)
-- 2026-06-29 12:55 - [乌克兰总统泽连斯基称石油输送可恢复 为欧盟贷款铺平道路](http://www.share.kurohicncr.top/Article/details/08148.shtml)
+- 2026-06-29 12:44 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.share.kurohicncr.top/Article/details/535269308022.shtml)
+- 2026-06-29 13:07 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.share.minike.top/Article/details/87801567.shtml)
+- 2026-06-29 12:42 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](http://www.blog.minike.top/Article/details/52405113.shtml)
+- 2026-06-29 12:47 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.share.minike.top/Article/details/075358576454.shtml)
+- 2026-06-29 13:07 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](http://www.share.minike.top/Article/details/6131364.shtml)
+- 2026-06-29 12:52 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](http://www.blog.kurohicncr.top/Article/details/5581056.shtml)
+- 2026-06-29 12:50 - [美伊停火暂时维持 华尔街股市强劲反弹](http://www.blog.minike.top/Article/details/846789044476.shtml)
+- 2026-06-29 13:00 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [英皇群星演唱会香港开唱勾起观众青春回忆](http://www.share.minike.top/Article/details/9105814720.shtml)
+- 2026-06-29 13:04 - [超级牛散调仓曝光：刘鑫押中200%牛股，章建平“卖飞”寒武纪少赚34亿，葛卫东减持兆易创新](http://www.blog.kurohicncr.top/Article/details/99342.shtml)
+- 2026-06-29 12:45 - [央行公告这一名单更新！哪些机构新进，哪些退出？](http://www.share.minike.top/Article/details/65903.shtml)
+- 2026-06-29 13:11 - [港交所行政总裁：伦敦金属交易所在香港的仓库接近饱和](http://www.share.kurohicncr.top/Article/details/39692181.shtml)

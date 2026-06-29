@@ -1,58 +1,56 @@
-# 三亚亚沙会开幕在即 主媒体中心迎接媒体记者
+# 滴普科技午前大涨逾21% 机构看好其营收高增
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网三亚4月21日电(记者 王子谦)2026年第六届亚洲沙滩运动会(简称三亚亚沙会)主媒体中心欢迎仪式21日举行，来自亚洲各国和地区的注册媒体记者在浓郁的海南风情中，开启本届亚沙会报道之旅，感受三亚的热情与活力。 三亚亚沙会主媒体中心创新采用“主新闻中心+国际广播中心+官方推荐酒店”三合一模式，设有新闻采编区、便捷保障服务区等多个功能区域，配备近百个标准工位、实时赛事大屏等设
+滴普科技（01384）盘中涨超21%，截至发稿，股价上涨20.79%，现报52.35港元，成交额5.81亿港元。 滴普科技2025年实现营收4.15亿元，同比增长70.8%。其中，于2023年底推出的FastAGI企业级人工智能解决方案，2025年实现收入2.54亿元，同比暴涨181.5%，营收占比从37.2%跃升至61.3%，正式成为第一大业务支柱。值得一提的是，公司近期宣布
 
 ## 正文
 
-中新网三亚4月21日电(记者 王子谦)2026年第六届亚洲沙滩运动会(简称三亚亚沙会)主媒体中心欢迎仪式21日举行，来自亚洲各国和地区的注册媒体记者在浓郁的海南风情中，开启本届亚沙会报道之旅，感受三亚的热情与活力。
+滴普科技（01384）盘中涨超21%，截至发稿，股价上涨20.79%，现报52.35港元，成交额5.81亿港元。
 
-三亚亚沙会主媒体中心创新采用“主新闻中心+国际广播中心+官方推荐酒店”三合一模式，设有新闻采编区、便捷保障服务区等多个功能区域，配备近百个标准工位、实时赛事大屏等设施，提供多语种服务、证件激活、采访预约等一站式保障。
+滴普科技2025年实现营收4.15亿元，同比增长70.8%。
 
-亚奥理事会媒体委员会主席法里斯·库赫吉在致辞中表示，希望媒体聚焦赛场精彩、聚焦城市风采，全方位宣传报道本届亚沙盛会，增进亚洲体育文化交流与友好往来。
+其中，于2023年底推出的FastAGI企业级人工智能解决方案，2025年实现收入2.54亿元，同比暴涨181.5%，营收占比从37.2%跃升至61.3%，正式成为第一大业务支柱。
 
-三亚市委宣传部副部长林辉欢迎注册媒体记者的到来。
+值得一提的是，公司近期宣布，其面向企业的AI员工智能体DeepClaw通过中国信通院可信AI智能助手（Claw）基准测试，此外，中关村丰台园与滴普科技合作，全国首个政务服务智能体员工——“丰小智”上岗。
 
-他表示，主媒体中心作为本届亚沙会媒体服务核心枢纽，已全面准备到位，将以优质便捷服务陪伴广大媒体朋友记录亚沙精彩、传播三亚魅力。
+国泰海通证券认为，公司在专注于为企业提供企业级大模型人工智能应用解决方案，核心业务包括 Deepexi 企业大模型，FastAGI 企业智能体平台，受益“开源基础模型具备成本效益 +行业场景对智能解决方案的需求”，营收驶入快车道。
 
-新华社摄影部体育组副主任徐子鉴代表媒体记者表示，将全力以赴记录亚沙会的精彩瞬间，向世界传递亚沙激情与海南开放魅力，让世界读懂三亚、读懂海南、读懂中国，感受体育的蓬勃活力与文明的多元魅力。
+该行指，公司提供DeepexiOSAI级企业操作系统，位居行业前列发展前景广阔；国家级技术突破与合规认证，产品丰富与客户拓展兼备；且以商业化落地为导向，增强研发实力丰富解决方案。
 
-三亚亚沙会将于4月22日至30日在海南省三亚市举行，目前已吸引境内外1000余名媒体记者注册报名，他们将深入赛场、走进三亚，向亚洲乃至世界讲述亚沙故事、展现海南自贸港风采。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:46 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:45 - [中央气象台：江南华南有较强降水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 13:05 - [耀才证券金融盘中涨超9% 正式进入港股通名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:43 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 13:00 - [百利天恒4月21日大宗交易成交354.40万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 13:01 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:44 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:48 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:59 - [光大期货：4月21日能源化工日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:46 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:58 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:58 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:51 - [情感赛道变形记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:54 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:07 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:54 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:52 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 13:03 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:58 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 13:00 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 13:11 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:58 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:50 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 12:51 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [奥克斯电气首份年报“变脸”：利润退回两年前、市值蒸发上百亿 “价格屠夫”靠涨价自救？](http://www.share.minike.top/Article/details/7140006.shtml)
-- 2026-06-29 12:43 - [日媒：日本通过内阁决议正式允许出口杀伤性武器](http://www.blog.minike.top/Article/details/542151286.shtml)
-- 2026-06-29 12:40 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.blog.kurohicncr.top/Article/details/82014.shtml)
-- 2026-06-29 12:51 - [竹篮打水一场空？单日百亿的“爆款基金”还剩下多少钱？](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](http://www.blog.kurohicncr.top/Article/details/7019556.shtml)
-- 2026-06-29 12:36 - [第四届链博会印尼推介会成功举办](http://www.blog.minike.top/Article/details/6120601.shtml)
-- 2026-06-29 12:53 - [陕西发现一座十六国时期大型墓葬 推测墓主为皇室成员](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [山东高校举办“本草花艺”中医药插花展 迎接世界读书日](http://www.share.minike.top/Article/details/85200.shtml)
-- 2026-06-29 12:46 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.share.minike.top/Article/details/142763368.shtml)
-- 2026-06-29 13:03 - [第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.blog.minike.top/Article/details/7250857.shtml)
-- 2026-06-29 12:40 - [湖南江永优质蔬菜热销粤港澳大湾区](http://www.share.kurohicncr.top/Article/details/09616243385.shtml)
-- 2026-06-29 12:54 - [奥林匹克文献研学中心在天津成立](http://www.blog.kurohicncr.top/Article/details/25136800842.shtml)
-- 2026-06-29 12:37 - [尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！](http://www.blog.minike.top/Article/details/38925411657.shtml)
-- 2026-06-29 12:57 - [新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [“中国航天日”临近 长春小朋友参观航天展](http://www.share.minike.top/Article/details/8884840.shtml)
+- 2026-06-29 13:10 - [广发银行深耕科技金融 科技贷款余额超4000亿元](http://www.blog.kurohicncr.top/Article/details/8295354229.shtml)
+- 2026-06-29 13:00 - [英飞凌展望超预期，AI热潮提振功率芯片业务](http://www.blog.kurohicncr.top/Article/details/29997833.shtml)
+- 2026-06-29 13:00 - [迪士尼超预期财报助推相关ETF，个股年内仍跌12%](http://www.blog.kurohicncr.top/Article/details/5256108729.shtml)
+- 2026-06-29 13:01 - [InflaRx完成1.5亿美元普通股发行定价](http://www.share.kurohicncr.top/Article/details/274987844518.shtml)
+- 2026-06-29 12:54 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.share.minike.top/Article/details/11278397.shtml)
+- 2026-06-29 12:56 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.share.minike.top/Article/details/803002.shtml)
+- 2026-06-29 12:55 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.share.kurohicncr.top/Article/details/48434.shtml)
+- 2026-06-29 12:52 - [皇朝家居就清远市的生产厂房订立租赁协议](http://www.share.minike.top/Article/details/164054379.shtml)
+- 2026-06-29 12:59 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](http://www.blog.kurohicncr.top/Article/details/138746093.shtml)
+- 2026-06-29 12:42 - [书香伴假日 奋斗自芳华](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.share.kurohicncr.top/Article/details/54205358071.shtml)
+- 2026-06-29 13:01 - [广西开展专题调研——探寻八桂大地上的团结密码](http://www.share.minike.top/Article/details/49882446483.shtml)
+- 2026-06-29 12:48 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.blog.minike.top/Article/details/23164.shtml)
+- 2026-06-29 13:00 - [中国车企“扫货”海外闲置产能](http://www.share.minike.top/Article/details/26852.shtml)
+- 2026-06-29 12:42 - [重组完成28个月后，中国奥园为何再陷境外债违约？](https://github.com/lisacumin64-arch)

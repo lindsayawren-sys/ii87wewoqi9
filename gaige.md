@@ -1,60 +1,59 @@
-# 连跌10周，猪价反弹了
+# 投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-专题：风险溢价回落 看好中国制造与科技出海 记者丨李莎 编辑丨张星 近期猪价仍在低位运行。记者4月21日在北京丰台区某超市走访时看到，带皮后尖售价7.99元/斤，鲜五花肉的价格为11.98元/斤，不少消费者直言，今年以来猪肉价格明显便宜。 农业农村部数据显示，2月第1周起猪价持续下跌，连跌10周，至4月第2周，全国生猪平均价格为10.03元/公斤，较2月初价格下降24.4%，部
+中新社香港5月5日电 (记者 魏华都)香港可再生燃料生产商怡斯莱5日在香港与广东东莞市政府签署投资意向书，将在东莞建立可持续航空燃料(即SAF)生产基地，助力粤港澳大湾区打造世界级产业链。 “这是香港对接国家‘十五五’规划、响应国家绿色发展战略具体行动的示范性项目。”香港特区行政长官李家超在签署仪式上致辞表示，全球能源变局为各地带来挑战，香港在“一国两制”下拥有“背靠祖国、联通
 
 ## 正文
 
-专题：风险溢价回落 看好中国制造与科技出海 记者丨李莎 编辑丨张星 近期猪价仍在低位运行。
+中新社香港5月5日电 (记者 魏华都)香港可再生燃料生产商怡斯莱5日在香港与广东东莞市政府签署投资意向书，将在东莞建立可持续航空燃料(即SAF)生产基地，助力粤港澳大湾区打造世界级产业链。
 
-记者4月21日在北京丰台区某超市走访时看到，带皮后尖售价7.99元/斤，鲜五花肉的价格为11.98元/斤，不少消费者直言，今年以来猪肉价格明显便宜。
+“这是香港对接国家‘十五五’规划、响应国家绿色发展战略具体行动的示范性项目。
 
-农业农村部数据显示，2月第1周起猪价持续下跌，连跌10周，至4月第2周，全国生猪平均价格为10.03元/公斤，较2月初价格下降24.4%，部分地区猪价跌破10元/公斤。
+”香港特区行政长官李家超在签署仪式上致辞表示，全球能源变局为各地带来挑战，香港在“一国两制”下拥有“背靠祖国、联通世界”的独特优势，正好把握绿色转型带来的新机遇，将香港的国际化技术与广东省的产业基础相结合，实现资源高效衔接。
 
-不过，近日猪价出现反弹，消费端价格亦有所回升。
+李家超说，此次合作是香港特区政府实践行政主导的示范性成果，亦是香港与东莞两地把有为政府和高效市场结合起来的示范性成果。
 
-4月21日，全国农产品批发市场猪肉平均价格为14.79元/公斤，较上周有所上升。
+香港特区政府未来将持续深化粤港合作，加强政策对接、产业共融，推动更多绿色项目落地，服务国家实现“双碳”目标，共创大湾区绿色新篇章。
 
-受访分析师认为，本轮猪价持续下跌，主要是供给端产能偏高、市场出栏惯性增加，叠加需求端春节后进入消费淡季，对猪价支撑明显弱化。
+香港中华煤气有限公司主席李家杰称，全球主要航空枢纽已进入SAF产业化竞速阶段。
 
-日前，农业农村部召开生猪产业发展座谈会，会议强调，要进一步完善生猪产能综合调控政策，将能繁母猪存栏量调整至合理水平，采取有力有效举措推动猪价合理回升。
+相信通过结合香港国际航空枢纽的独特优势，以及东莞坚实的工业基础和完善的产业配套，可在大湾区建设一条世界级的SAF产业链，实现内地收油、生产，香港研发、存储、掺混及加注，满足全球航空市场的需求。
 
-与会专家研判，随着产能去化效果逐步显现，猪价有望逐步企稳回升，全年有望呈现“前低后高、窄幅波动”特征。
+目前已是全球第二大SAF生产商的怡斯莱，由香港中华煤气有限公司孵化而成，2021年正式独立运营，专注于将回收的废弃食用油转化为清洁的航空燃料，实现“变废为宝”。
 
 ## 相关推荐
 
-- 2026-06-29 12:48 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 12:44 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:05 - [中天期货:螺纹区间反弹 焦煤继续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:55 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 13:05 - [方邦股份4月21日龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:54 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:00 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
-- 2026-06-29 13:00 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:55 - [旷日持久的冲突或将对铜价构成压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:51 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 12:51 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 12:54 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 13:02 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 12:49 - [在洪安边城寻找“翠翠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:50 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:03 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:47 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 13:00 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:55 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 13:10 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 12:49 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:04 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:51 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 12:43 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 13:07 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-29 13:03 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:52 - [美伊停火暂时维持 华尔街股市强劲反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:55 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](http://www.blog.minike.top/Article/details/89940897.shtml)
-- 2026-06-29 12:47 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](http://www.blog.minike.top/Article/details/7400554.shtml)
-- 2026-06-29 12:40 - [中央气象台：江南华南有较强降水](http://www.share.minike.top/Article/details/56803.shtml)
-- 2026-06-29 12:46 - [耀才证券金融盘中涨超9% 正式进入港股通名单](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.share.kurohicncr.top/Article/details/755434058345.shtml)
-- 2026-06-29 12:56 - [百利天恒4月21日大宗交易成交354.40万元](http://www.share.minike.top/Article/details/39446906519.shtml)
-- 2026-06-29 13:03 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](http://www.blog.minike.top/Article/details/45993019693.shtml)
-- 2026-06-29 12:48 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.blog.minike.top/Article/details/235601833.shtml)
-- 2026-06-29 12:51 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](http://www.share.kurohicncr.top/Article/details/329579.shtml)
-- 2026-06-29 12:58 - [光大期货：4月21日能源化工日报](http://www.share.kurohicncr.top/Article/details/27657173.shtml)
-- 2026-06-29 12:57 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](http://www.blog.minike.top/Article/details/21303.shtml)
-- 2026-06-29 12:50 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](http://www.share.kurohicncr.top/Article/details/0138989.shtml)
-- 2026-06-29 13:03 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](http://www.share.minike.top/Article/details/78337746.shtml)
-- 2026-06-29 12:50 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](http://www.share.minike.top/Article/details/5020255.shtml)
-- 2026-06-29 13:02 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.minike.top/Article/details/0343153909.shtml)
+- 2026-06-29 13:02 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](http://www.share.minike.top/Article/details/31383690980.shtml)
+- 2026-06-29 12:55 - [情感赛道变形记](http://www.blog.kurohicncr.top/Article/details/730200985.shtml)
+- 2026-06-29 12:57 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](http://www.share.minike.top/Article/details/404203581.shtml)
+- 2026-06-29 13:06 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](http://www.blog.kurohicncr.top/Article/details/307202369.shtml)
+- 2026-06-29 13:12 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.share.kurohicncr.top/Article/details/593341.shtml)
+- 2026-06-29 13:04 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:08 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.blog.kurohicncr.top/Article/details/287161.shtml)
+- 2026-06-29 12:51 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.share.minike.top/Article/details/811454427835.shtml)
+- 2026-06-29 13:11 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](http://www.share.kurohicncr.top/Article/details/123922.shtml)
+- 2026-06-29 12:55 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](http://www.share.kurohicncr.top/Article/details/71931.shtml)
+- 2026-06-29 13:02 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](http://www.share.kurohicncr.top/Article/details/13165.shtml)

@@ -1,57 +1,61 @@
-# 日本首相高市早苗向靖国神社献祭品
+# 一场爱心接力暖陕鄂 8000余斤苹果19小时售空
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新社东京4月21日电 (记者 朱晨曦)日本首相高市早苗21日以“内阁总理大臣”名义，向供奉二战甲级战犯的靖国神社供奉名为“真榊”的祭品。 靖国神社21日起举行为期三天的春季大祭。据日媒报道，除高市早苗以外，日本厚生劳动大臣上野贤一郎、日本国家公安委员长赤间二郎、日本成长战略担当大臣城内实等内阁阁僚，以及国会众议院议长森英介和参议院议长关口昌一也向靖国神社供奉了“真榊”。 靖国
+中新网陕西洋县5月7日电 (李一璠)近日，陕西省汉中市洋县人吉某在湖北省恩施州咸丰县售卖苹果期间，因突发急性脑梗在咸丰县中医医院接受救治，车上8000余斤苹果在19小时内被爱心市民抢购一空的暖心故事，感动不少民众。回溯事件经过，5月2日，吉某驾车载着8000余斤苹果从陕西赴湖北售卖。途中他突感身体不适，经检查被确诊为急性脑梗。经医护人员全力施救，吉某目前已脱离危险，但无法正常活
 
 ## 正文
 
-中新社东京4月21日电 (记者 朱晨曦)日本首相高市早苗21日以“内阁总理大臣”名义，向供奉二战甲级战犯的靖国神社供奉名为“真榊”的祭品。
+中新网陕西洋县5月7日电 (李一璠)近日，陕西省汉中市洋县人吉某在湖北省恩施州咸丰县售卖苹果期间，因突发急性脑梗在咸丰县中医医院接受救治，车上8000余斤苹果在19小时内被爱心市民抢购一空的暖心故事，感动不少民众。
 
-靖国神社21日起举行为期三天的春季大祭。
+回溯事件经过，5月2日，吉某驾车载着8000余斤苹果从陕西赴湖北售卖。
 
-据日媒报道，除高市早苗以外，日本厚生劳动大臣上野贤一郎、日本国家公安委员长赤间二郎、日本成长战略担当大臣城内实等内阁阁僚，以及国会众议院议长森英介和参议院议长关口昌一也向靖国神社供奉了“真榊”。
+途中他突感身体不适，经检查被确诊为急性脑梗。
 
-靖国神社位于东京千代田区，神社内供奉有包括东条英机在内的14名二战甲级战犯。
+经医护人员全力施救，吉某目前已脱离危险，但无法正常活动，需长期接受康复治疗。
 
-长期以来，日本部分政客、国会议员坚持参拜靖国神社，引发日本国内众多爱好和平人士及国际社会强烈反对。
+闻讯赶来的吉某妻子，寸步不离地守在病床前照料丈夫，可她并不会驾驶车辆，随车运来的苹果被“困”在了医院。
 
-(完)
+咸丰县中医医院得知吉某一家的窘境后，迅速伸出援手，医院宣传科第一时间向全院职工发出自愿购买苹果的倡议，希望能尽微薄之力，减少吉某家庭经济损失。
+
+爱心接力拉开序幕，医护人员带头购买，热心市民踊跃响应，外卖小哥、网络主播等各行业爱心人士纷纷伸出援手，用平凡善举化解异乡客商的燃眉之急，用满城温情守护一个家庭的希望。
+
+这份不图回报、跨越千里的善意，让事发突然、远在异乡的吉某感受到家一般的温暖，也让洋县民众深受感动、纷纷点赞。
 
 ## 相关推荐
 
-- 2026-06-29 12:58 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:45 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:59 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:59 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
-- 2026-06-29 12:44 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 12:54 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
-- 2026-06-29 13:03 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:43 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:44 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 12:51 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 12:53 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:56 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 13:04 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:40 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-29 12:54 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 12:51 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-29 12:56 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
+- 2026-06-29 13:08 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 12:44 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:08 - [青春之喻，奋斗之帆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 12:43 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:48 - [伊朗查封并没收22名与美以有关联人员财产](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:56 - [俄美外长通话讨论国际局势和双边关系](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
+- 2026-06-29 13:09 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:10 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-29 13:05 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 12:51 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 13:02 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:43 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 13:04 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:04 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](http://www.share.kurohicncr.top/Article/details/71988298145.shtml)
-- 2026-06-29 12:52 - [联合健康集团业绩超预期并上调展望](http://www.share.kurohicncr.top/Article/details/49945554.shtml)
-- 2026-06-29 12:37 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.blog.kurohicncr.top/Article/details/75538814953.shtml)
-- 2026-06-29 12:57 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [学习新语｜山河永念 英雄回家](http://www.blog.kurohicncr.top/Article/details/90871.shtml)
-- 2026-06-29 12:58 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](http://www.share.minike.top/Article/details/370180961416.shtml)
-- 2026-06-29 12:51 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](http://www.share.kurohicncr.top/Article/details/5251798.shtml)
-- 2026-06-29 12:51 - [国内油价，今年首次下调](http://www.share.minike.top/Article/details/14366823461.shtml)
-- 2026-06-29 13:02 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.share.kurohicncr.top/Article/details/353252.shtml)
-- 2026-06-29 12:44 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.share.minike.top/Article/details/980188.shtml)
-- 2026-06-29 12:37 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](http://www.share.minike.top/Article/details/6066467468.shtml)
-- 2026-06-29 12:57 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.share.kurohicncr.top/Article/details/581674.shtml)
-- 2026-06-29 13:02 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/482753556489.shtml)
+- 2026-06-29 12:58 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [黄金突破4700美元，分析师警示风险犹存](http://www.blog.kurohicncr.top/Article/details/774031791307.shtml)
+- 2026-06-29 13:04 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](http://www.share.minike.top/Article/details/515248.shtml)
+- 2026-06-29 13:04 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](http://www.share.minike.top/Article/details/8288055805.shtml)
+- 2026-06-29 12:54 - [“市场依然可为！”基金经理看好节后三大主线](http://www.share.kurohicncr.top/Article/details/105272688955.shtml)
+- 2026-06-29 13:11 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.share.minike.top/Article/details/017546494230.shtml)
+- 2026-06-29 12:56 - [菲律宾失业率连续两个月回落](http://www.share.kurohicncr.top/Article/details/98302.shtml)
+- 2026-06-29 13:08 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.blog.kurohicncr.top/Article/details/476219456.shtml)
+- 2026-06-29 12:54 - [经纬线·青年习近平的“人生课堂”](http://www.blog.minike.top/Article/details/356372448.shtml)
+- 2026-06-29 12:57 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](http://www.blog.kurohicncr.top/Article/details/45890995.shtml)
+- 2026-06-29 12:56 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.blog.kurohicncr.top/Article/details/49593500.shtml)
+- 2026-06-29 13:03 - [2026年“香港高考”收官 文凭试加速迈向国际化](https://github.com/lisacumin64-arch)

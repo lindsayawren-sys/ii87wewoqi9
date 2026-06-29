@@ -1,56 +1,54 @@
-# 云南华宁聚焦民族团结 加快构建互嵌式社会结构
+# 2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网玉溪4月21日电 (黄兴鸿)记者21日从云南省玉溪市华宁县召开的《华宁县国民经济和社会发展第十五个五年规划纲要》(下称：《纲要》)新闻发布会上获悉，该县把“加快构建互嵌式社会结构和社区环境”写入全县发展的核心蓝图，将通过空间共居、文化共融、经济共兴、社会共治，书写好各民族交往交流交融的生动答卷。 华宁县地处滇中，是抚仙湖、星云湖、杞麓湖“三湖”生态城市群的核心城市。202
+发布时间：2026年05月06日 15:28 来源：中国新闻网 持续近一个月的2026年香港中学文凭考试(简称“文凭试”)各科笔试，于5月5日正式结束。该考试是香港学生完成全日制高中课程后，可参加的大学入学公开考试，有“香港高考”之称。 据介绍，文凭试成绩不仅是本地大学联招的主要依据，也广受内地及海外高校认可。随着粤港澳大湾区融合发展持续深化，考评局于2024年首次在内地城市试
 
 ## 正文
 
-中新网玉溪4月21日电 (黄兴鸿)记者21日从云南省玉溪市华宁县召开的《华宁县国民经济和社会发展第十五个五年规划纲要》(下称：《纲要》)新闻发布会上获悉，该县把“加快构建互嵌式社会结构和社区环境”写入全县发展的核心蓝图，将通过空间共居、文化共融、经济共兴、社会共治，书写好各民族交往交流交融的生动答卷。
+发布时间：2026年05月06日 15:28 来源：中国新闻网 持续近一个月的2026年香港中学文凭考试(简称“文凭试”)各科笔试，于5月5日正式结束。
 
-华宁县地处滇中，是抚仙湖、星云湖、杞麓湖“三湖”生态城市群的核心城市。
+该考试是香港学生完成全日制高中课程后，可参加的大学入学公开考试，有“香港高考”之称。
 
-2023年，该县成功创建为云南省级民族团结进步示范县。
+据介绍，文凭试成绩不仅是本地大学联招的主要依据，也广受内地及海外高校认可。
 
-《纲要》共11章，不仅设定了地区生产总值年均增长5.5%，城镇、农村居民人均可支配收入年均分别增长3%、5%等经济指标，更将社会文明程度、民生福祉保障作为重中之重。
+随着粤港澳大湾区融合发展持续深化，考评局于2024年首次在内地城市试点举办文凭试，让符合资格的港澳籍学生无需跨境来港，即可参加考试。
 
-此外，将建设“民族团结进步示范区”写入《纲要》，明确提出要围绕推进中华民族共同体建设，加快构建互嵌式社会结构和社区环境，促进各民族广泛交往交流交融。
+近年来，文凭试已成为港生入读内地高校的重要通道，不少符合条件的内地学生，也能以自修生身份参加考试，借此拓宽国际视野。
 
-据悉，华宁县将优化城镇空间布局，提升城市功能品质。
+香港考试及评核局相关负责人表示，要充分发挥香港作为国际教育枢纽的优势，持续推广文凭试的国际认可，更好为国家输送高质量人才与教育资源。
 
-在老旧小区更新、棚户区改造及易地搬迁工作中，探索实施各族民众插花分配、混居安置模式，打破物理隔离，创造共居共学的生活空间。
-
-同时，依托盘溪化工园区等重点项目建设，吸引外来务工人员安居乐业，促进流动人口与本地居民在居住空间上的深度融合。
+记者 程宇 香港报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-29 13:05 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:39 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
-- 2026-06-29 12:41 - [北京市欧美同学会赴北京中医药大学归国留学人员联谊会走访调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 13:01 - [民众集会 反对日本政府修改武器出口规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-29 13:05 - [特朗普称政府“或许”应救助陷入困境的精神航空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:58 - [特斯拉下一代Roadster终于要来了？马斯克称可能在月底发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:53 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 13:02 - [政府提前还债从省级延伸至地市，怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:46 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 13:02 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:46 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-29 13:01 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:53 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:44 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 12:51 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:45 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:00 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:48 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 12:55 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 13:05 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:52 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.blog.kurohicncr.top/Article/details/42997.shtml)
-- 2026-06-29 12:40 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](http://www.share.minike.top/Article/details/765433425894.shtml)
-- 2026-06-29 12:40 - [挪威三月油气产量超预期](http://www.share.minike.top/Article/details/537061808641.shtml)
-- 2026-06-29 13:05 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](http://www.share.kurohicncr.top/Article/details/05055929817.shtml)
-- 2026-06-29 12:45 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.blog.kurohicncr.top/Article/details/87658208.shtml)
-- 2026-06-29 12:40 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](http://www.share.minike.top/Article/details/84152038.shtml)
-- 2026-06-29 12:53 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.share.kurohicncr.top/Article/details/5044480.shtml)
-- 2026-06-29 12:46 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](http://www.share.minike.top/Article/details/470816.shtml)
-- 2026-06-29 12:59 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.blog.minike.top/Article/details/005341552468.shtml)
-- 2026-06-29 12:49 - [理财规模季末回落超万亿，全年增速或放缓](http://www.blog.minike.top/Article/details/136619.shtml)
-- 2026-06-29 12:46 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.blog.minike.top/Article/details/61913281299.shtml)
-- 2026-06-29 12:49 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.share.minike.top/Article/details/515286.shtml)
-- 2026-06-29 13:05 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.share.kurohicncr.top/Article/details/082195459.shtml)
-- 2026-06-29 12:44 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.kurohicncr.top/Article/details/667614845.shtml)
+- 2026-06-29 13:01 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.minike.top/Article/details/052719.shtml)
+- 2026-06-29 12:52 - [青春之喻，奋斗之帆](http://www.share.kurohicncr.top/Article/details/0986862.shtml)
+- 2026-06-29 13:03 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.share.minike.top/Article/details/656510582199.shtml)
+- 2026-06-29 12:54 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.kurohicncr.top/Article/details/52893501894.shtml)
+- 2026-06-29 12:58 - [俄美外长通话讨论国际局势和双边关系](http://www.blog.kurohicncr.top/Article/details/4317556.shtml)
+- 2026-06-29 13:09 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.blog.kurohicncr.top/Article/details/64065583.shtml)
+- 2026-06-29 12:45 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.minike.top/Article/details/839886455.shtml)
+- 2026-06-29 12:59 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.blog.kurohicncr.top/Article/details/4346962042.shtml)
+- 2026-06-29 13:05 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:53 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.blog.kurohicncr.top/Article/details/284120229.shtml)
+- 2026-06-29 12:54 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [广东广州以“微改革”推动营商环境系统提升](http://www.share.minike.top/Article/details/4521470689.shtml)
+- 2026-06-29 12:53 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](http://www.blog.minike.top/Article/details/0959724247.shtml)

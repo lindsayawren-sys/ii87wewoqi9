@@ -1,53 +1,59 @@
-# 陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现
+# 银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月21日 22:10 来源：中国新闻网 4月21日，陕西省考古研究院对外公布，考古人员在陕西韩家村发现一座十六国时期最高等级墓葬，其土雕藻井系首次发现于十六国时期墓葬中，反映出当时多文化的交融现象。 据介绍，韩家村十六国墓位于洪渎原上，该墓葬开口以上文化层均被破坏，且盗扰极其严重，出土遗物较少，仅有17件(组)。但该墓葬目前保留部分南北水平总长85米，形
+专题：515投资者保护！新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。银华基金《图说基金》系列投教栏目参选“投教项目优秀实践奖”类别。>>活动详情 据悉，银华基金依托自有官方微信公众号等媒体矩阵，打造了聚焦基金知识科普专栏——《图说基金》。该专栏以“一图一主题、多图成体系”的形式，将专业、严谨的基金投资知识、宏观金融市
 
 ## 正文
 
-发布时间：2026年04月21日 22:10 来源：中国新闻网 4月21日，陕西省考古研究院对外公布，考古人员在陕西韩家村发现一座十六国时期最高等级墓葬，其土雕藻井系首次发现于十六国时期墓葬中，反映出当时多文化的交融现象。
+专题：515投资者保护！
 
-据介绍，韩家村十六国墓位于洪渎原上，该墓葬开口以上文化层均被破坏，且盗扰极其严重，出土遗物较少，仅有17件(组)。
+新浪财经2026年度投教案例评选展播 新浪财经“2026年度投教优秀案例评选”活动已于4月20日正式启动。
 
-但该墓葬目前保留部分南北水平总长85米，形制完整，结构特殊，是陕西关中地区极少见的大型十六国时期墓葬。
+银华基金《图说基金》系列投教栏目参选“投教项目优秀实践奖”类别。
 
-(记者 梅镱泷 阿琳娜) 责任编辑：【于晓】
+>>活动详情 据悉，银华基金依托自有官方微信公众号等媒体矩阵，打造了聚焦基金知识科普专栏——《图说基金》。
+
+该专栏以“一图一主题、多图成体系”的形式，将专业、严谨的基金投资知识、宏观金融市场、投资潜在风险等内容，通过数据化图表的形式呈现，旨在提升广大投资者的金融知识水平，推动投资者树立长期投资、理性投资意识。
+
+在选题策划上，专栏以公募基金投教科普、市场规律解析、投资工具普及为核心定位，聚焦基金产品、市场周期、行业逻辑、大类资产、前沿产业等核心投资场景，持续输出专业、严谨、易懂的投教内容。
+
+专栏选题紧密围绕基金投资（指数基金系列）、行业解读（如AI、有色金属、年度基金行业数据回顾）、市场热点（如浮动费率基金、债市波动）、宏观经济（如行业轮动、美元周期）等投资者高频关注的核心议题展开创作，跟随政策导向与产业趋势，为投资者解答其在产品选择、时机判断、组合配置、风险识别中的真实痛点。
+
+内容选题兼顾基础性、专业性、时效性与实用性，既系统拆解基金产品规则、指数编制逻辑、市场运行规律、产业链投资价值，又清晰呈现数据对比、历史复盘、趋势研判、配置思路，以结构化图表、精炼文字、权威数据降低专业知识理解门槛，全面平衡科普严谨性、表达直观性与阅读友好性，精准匹配个人投资者从入门到进阶的全周期学习需求，常态化开展基金知识普及与理性投资引导，持续帮助投资者看懂市场、读懂基金、树立长期投资、价值投资、理性配置的科学投资理念。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [【理响中国·经视图】以投资于物支撑投资于人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-29 12:46 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
-- 2026-06-29 12:41 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-29 12:36 - [理财规模季末回落超万亿，全年增速或放缓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:59 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:51 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 12:55 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 13:02 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:51 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souniu.md)
-- 2026-06-29 13:01 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 13:04 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:56 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:39 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:04 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 12:38 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:07 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:58 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:53 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 13:04 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 13:11 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 13:01 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:07 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 12:54 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 12:42 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 13:00 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:06 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 13:05 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 13:09 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [国内油价，今年首次下调](http://www.share.minike.top/Article/details/147470153.shtml)
-- 2026-06-29 12:42 - [长江有色：22日铜价小涨 高价货源成交寥寥](http://www.share.minike.top/Article/details/307593670281.shtml)
-- 2026-06-29 13:02 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](http://www.blog.minike.top/Article/details/110827.shtml)
-- 2026-06-29 12:46 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:57 - [鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池](http://www.share.kurohicncr.top/Article/details/31594506047.shtml)
-- 2026-06-29 13:00 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.minike.top/Article/details/239547051531.shtml)
-- 2026-06-29 13:01 - [重回4100点！A股三大指数午后集体大涨](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.blog.kurohicncr.top/Article/details/12450075666.shtml)
-- 2026-06-29 12:36 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.minike.top/Article/details/3348985.shtml)
-- 2026-06-29 12:43 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.kurohicncr.top/Article/details/3435754.shtml)
-- 2026-06-29 12:45 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.blog.minike.top/Article/details/490699.shtml)
-- 2026-06-29 12:50 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.share.minike.top/Article/details/0074062192.shtml)
-- 2026-06-29 12:36 - [别瞧不起格林基金](http://www.blog.kurohicncr.top/Article/details/1049734580.shtml)
-- 2026-06-29 12:55 - [UPS与联邦快递已开始申请部分关税退款](http://www.share.minike.top/Article/details/23407199925.shtml)
-- 2026-06-29 12:57 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:47 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](http://www.share.kurohicncr.top/Article/details/97679435164.shtml)
+- 2026-06-29 13:07 - [菲律宾失业率连续两个月回落](http://www.share.minike.top/Article/details/624380880139.shtml)
+- 2026-06-29 12:52 - [第139届广交会广州交易团收获东盟意向订单同比增23.3%](http://www.share.kurohicncr.top/Article/details/035957.shtml)
+- 2026-06-29 12:59 - [经纬线·青年习近平的“人生课堂”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:06 - [中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”](http://www.share.minike.top/Article/details/21729260509.shtml)
+- 2026-06-29 13:06 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.blog.kurohicncr.top/Article/details/679409155161.shtml)
+- 2026-06-29 12:56 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.share.kurohicncr.top/Article/details/37125943.shtml)
+- 2026-06-29 13:07 - [2026年全国残疾人足球公开赛在京举行](http://www.blog.kurohicncr.top/Article/details/4788198521.shtml)
+- 2026-06-29 12:52 - [原油期货上涨 或因技术性反弹](http://www.blog.kurohicncr.top/Article/details/217012854.shtml)
+- 2026-06-29 13:11 - [中东紧张局势冲击全球旅游业](http://www.share.kurohicncr.top/Article/details/576748338461.shtml)
+- 2026-06-29 12:51 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.blog.kurohicncr.top/Article/details/535332.shtml)
+- 2026-06-29 12:53 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.share.minike.top/Article/details/375996.shtml)
+- 2026-06-29 12:55 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.blog.minike.top/Article/details/456212524744.shtml)

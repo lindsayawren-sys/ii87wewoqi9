@@ -1,57 +1,59 @@
-# 多家A股公司上市后首亏，部分年报披露前业绩“变脸”
+# 消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！一些公司受行业调整影响，踩了周期的“雷”，另一些处于转型期，因收购整合影响利润。 随着年报披露步入收官阶段，绩差公司的名单持续拉长，多家上市公司出现首次年度亏损，其中不乏一些上市超20年的A股市场“老面孔”。 据和邦生物（603077.SH）最新披露，该公司2025年营收71.88亿元，同比下降15.91%
+据知情人士透露，OpenAI和Anthropic分别与私募股权公司成立的合资企业，正在洽谈收购那些帮助企业部署人工智能的服务公司。其中，OpenAI 的新合资企业已就三项交易进入后期阶段。 其中五人表示，这些 AI 公司希望纳入数百名工程师和顾问，以帮助其他企业将其 AI 模型投入实际应用。 这些收购将标志着两家公司在争夺 AI 市场份额的竞争中开辟一条新战线。虽然两家公司此前
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+据知情人士透露，OpenAI和Anthropic分别与私募股权公司成立的合资企业，正在洽谈收购那些帮助企业部署人工智能的服务公司。
 
-一些公司受行业调整影响，踩了周期的“雷”，另一些处于转型期，因收购整合影响利润。
+其中，OpenAI 的新合资企业已就三项交易进入后期阶段。
 
-随着年报披露步入收官阶段，绩差公司的名单持续拉长，多家上市公司出现首次年度亏损，其中不乏一些上市超20年的A股市场“老面孔”。
+其中五人表示，这些 AI 公司希望纳入数百名工程师和顾问，以帮助其他企业将其 AI 模型投入实际应用。
 
-据和邦生物（603077.SH）最新披露，该公司2025年营收71.88亿元，同比下降15.91%，净利润亏损5.36亿元，从而由盈转亏。
+这些收购将标志着两家公司在争夺 AI 市场份额的竞争中开辟一条新战线。
 
-这是该公司自2012年上市以来的首次年度亏损。
+虽然两家公司此前主要专注于构建更强大的 AI 模型，但要将这些模型大规模部署，需要另一种专业知识——而这正是它们现在希望通过收购获得的。
 
-该公司解释称，主要产品量价齐跌导致利润降幅较大。
+此前报道，OpenAI 正为其合资企业从包括 TPG、贝恩资本和布鲁克菲尔德资产管理公司在内的 19 家投资者那里筹集约 40 亿美元。
 
-包括和邦生物在内，第一财经据公告初步统计，目前还有十余家公司出现上市以来的首亏，包括万泰生物（603392.SH）、豫园股份（600655.SH）、润农节水（920964.BJ）等。
+其中一位人士称，该合资企业名为“部署公司”（The Deployment Company），将于本周晚些时候正式宣布。
 
-其中，豫园股份出现了上市近34年来的首次年度亏损，去年亏损近49亿元。
+据报道，Anthropic 也在进行类似的尝试，正从黑石集团、赫尔曼与弗里德曼以及高盛等投资者那里筹集 15 亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 12:51 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 13:04 - [《技术经理人执业能力评价白皮书》在穗发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 13:03 - [自然资源部：已建成省级以上绿色矿山5500余家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:38 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:47 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:52 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 13:03 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:43 - [中央气象台：江南华南有较强降水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:52 - [耀才证券金融盘中涨超9% 正式进入港股通名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
-- 2026-06-29 12:37 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:50 - [百利天恒4月21日大宗交易成交354.40万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zongrun.md)
+- 2026-06-29 13:01 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 13:03 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 12:48 - [百亿明星私募被曝光“打新内幕”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-29 12:58 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:00 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:42 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:48 - [情感赛道变形记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 12:49 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:46 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 13:10 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 12:44 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 13:09 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 12:51 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [丰田向宁德时代印尼工厂投资 120 亿日元，将在厂内建设专用产线](http://www.share.kurohicncr.top/Article/details/56609.shtml)
-- 2026-06-29 12:48 - [用软件脚本“秒抢”医院专家号 上海警方抓获非法倒卖号源10人](http://www.share.minike.top/Article/details/836810.shtml)
-- 2026-06-29 12:46 - [晋拓股份拟每10股派息0.77元](http://www.share.minike.top/Article/details/4456769896.shtml)
-- 2026-06-29 13:00 - [下任美联储主席提名人选能否维护美联储“独立性”遭质疑](http://www.blog.minike.top/Article/details/5894586.shtml)
-- 2026-06-29 12:45 - [摩根大通上调标普500指数目标位 之前在3月份刚刚下调](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [西安中院公开庭审涉外商标侵权案件 筑牢知识产权司法保护防线](http://www.share.kurohicncr.top/Article/details/957615338721.shtml)
-- 2026-06-29 12:55 - [奥克斯电气首份年报“变脸”：利润退回两年前、市值蒸发上百亿 “价格屠夫”靠涨价自救？](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:00 - [日媒：日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/85081827654.shtml)
-- 2026-06-29 12:37 - [【理响中国】今天，如何培养青少年阅读习惯](http://www.share.minike.top/Article/details/5421234.shtml)
-- 2026-06-29 13:00 - [竹篮打水一场空？单日百亿的“爆款基金”还剩下多少钱？](http://www.share.kurohicncr.top/Article/details/18602496.shtml)
-- 2026-06-29 12:55 - [聚焦临床科技成果加速验证转化 北京昌平打造脑机接口产业高地](http://www.share.kurohicncr.top/Article/details/013782311191.shtml)
-- 2026-06-29 12:54 - [第四届链博会印尼推介会成功举办](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [陕西发现一座十六国时期大型墓葬 推测墓主为皇室成员](http://www.blog.minike.top/Article/details/27591.shtml)
-- 2026-06-29 12:52 - [山东高校举办“本草花艺”中医药插花展 迎接世界读书日](http://www.blog.minike.top/Article/details/861224555.shtml)
-- 2026-06-29 13:02 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.blog.kurohicncr.top/Article/details/74933806738.shtml)
+- 2026-06-29 13:05 - [华宝基金科创人工智能ETF (589520)量价齐升！](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [地缘紧张局势缓和 墨西哥比索与股市双双走高](http://www.share.kurohicncr.top/Article/details/25615.shtml)
+- 2026-06-29 13:06 - [日产全球大重组：欧洲裁员10%，桑德兰工厂合并生产线](http://www.share.kurohicncr.top/Article/details/6731475915.shtml)
+- 2026-06-29 13:02 - [花旗：中煤能源维持“买入”评级 目标价降至16.6港元](http://www.blog.kurohicncr.top/Article/details/905643395.shtml)
+- 2026-06-29 13:00 - [有线耳机翻红 意外逆袭带来什么启发？](http://www.blog.kurohicncr.top/Article/details/2867906207.shtml)
+- 2026-06-29 13:04 - [以旧换新政策，今年力度降了吗](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [广发银行深耕科技金融 科技贷款余额超4000亿元](http://www.share.kurohicncr.top/Article/details/6011045.shtml)
+- 2026-06-29 12:53 - [英飞凌展望超预期，AI热潮提振功率芯片业务](http://www.share.kurohicncr.top/Article/details/236342654212.shtml)
+- 2026-06-29 12:58 - [迪士尼超预期财报助推相关ETF，个股年内仍跌12%](http://www.blog.kurohicncr.top/Article/details/751938163067.shtml)
+- 2026-06-29 12:57 - [InflaRx完成1.5亿美元普通股发行定价](http://www.share.kurohicncr.top/Article/details/7094931.shtml)
+- 2026-06-29 12:57 - [Alphabet发行欧元和加元债券 合计融资近170亿美元](http://www.share.minike.top/Article/details/760249.shtml)
+- 2026-06-29 12:57 - [美官员透露：美伊拟达成一页纸备忘录以结束战事](http://www.share.minike.top/Article/details/463889.shtml)
+- 2026-06-29 12:49 - [AMD营收及业绩指引均超预期，股价暴涨16%](http://www.blog.kurohicncr.top/Article/details/0169900.shtml)
+- 2026-06-29 12:45 - [皇朝家居就清远市的生产厂房订立租赁协议](http://www.share.kurohicncr.top/Article/details/002114485.shtml)
+- 2026-06-29 13:08 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](http://www.blog.minike.top/Article/details/740149893.shtml)

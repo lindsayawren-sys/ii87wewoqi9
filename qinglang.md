@@ -1,56 +1,61 @@
-# “水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛
+# 7个项目停6个？部分城市“智慧城市”项目为啥“投入即浪费”
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网北京4月21日电(记者 国璇) 2026世界泳联跳水世界杯总决赛(北京)将于5月1日至3日在国家游泳中心“水立方”举行。记者4月21日在赛前新闻发布会上获悉，届时将有来自全球17个国家和地区的90余名顶尖选手参赛，满额参赛的中国跳水队将派出以老带新的阵容。 世界泳联跳水世界杯原计划在2026年举行加拿大蒙特利尔站和墨西哥萨波潘站两场分站赛，由于公共安全风险，原定于3月初举
+半月谈记者近期在贵州某县调研得知，当地投资8000多万元的“智慧城市”项目，建成后不久便出现硬件失修、软件停运现象。梳理发现，类似情况并非个例。随着数字化转型加速，“智慧城市”建设在全国范围内快速推进，但与此同时，“重建设、轻实效”“重形式、轻应用”的问题开始显现，部分城市的“智慧城市”项目陷入“建成即闲置”“投入即浪费”的困境。业内人士认为，县级城市的“智慧城市”项目闲置率更
 
 ## 正文
 
-中新网北京4月21日电(记者 国璇) 2026世界泳联跳水世界杯总决赛(北京)将于5月1日至3日在国家游泳中心“水立方”举行。
+半月谈记者近期在贵州某县调研得知，当地投资8000多万元的“智慧城市”项目，建成后不久便出现硬件失修、软件停运现象。
 
-记者4月21日在赛前新闻发布会上获悉，届时将有来自全球17个国家和地区的90余名顶尖选手参赛，满额参赛的中国跳水队将派出以老带新的阵容。
+梳理发现，类似情况并非个例。
 
-世界泳联跳水世界杯原计划在2026年举行加拿大蒙特利尔站和墨西哥萨波潘站两场分站赛，由于公共安全风险，原定于3月初举行的墨西哥站被取消。
+随着数字化转型加速，“智慧城市”建设在全国范围内快速推进，但与此同时，“重建设、轻实效”“重形式、轻应用”的问题开始显现，部分城市的“智慧城市”项目陷入“建成即闲置”“投入即浪费”的困境。
 
-根据规则，在蒙特利尔站上获得单人项目前12名(每个协会最多2人)、双人及混合团体项目积分前8名的队伍，获得总决赛参赛资格。
+业内人士认为，县级城市的“智慧城市”项目闲置率更高，大量财政资金和社会资本投入后未能发挥应有效益，成为基层治理的突出问题。
 
-在2月底的蒙特利尔站中，中国队包揽全部9个项目的金牌，获得满额参赛席位。
+厘清债权债务关系，加强资产盘活，提升政府项目管理能力，防止资源浪费，成为当务之急。
 
-北京市体育竞赛管理和国际交流中心副主任金志伟介绍说，本届赛事共设男子、女子单人3米板，男子、女子双人3米板，男子、女子单人10米台，男子、女子双人10米台及混合团体9个项目。
+轰轰烈烈上马，悄无声息停摆 “智慧城市”项目是贵州某县于2016年打造的重点项目，包含智慧平安、智慧城管、智慧社区、精准扶贫系统、智慧旅游、公共信息共享服务平台、大数据体验厅、智慧农业8个子项目，其中智慧农业未开发，实际开发7个子项目。
 
-5月1日将决出4个双人项目及混合团体的5枚金牌；5月2日将决出男子3米板和女子10米台的金牌；5月3日将进行女子3米板和男子10米台的冠军争夺。
+半月谈记者近期在该县“智慧城市”大数据中心看到，挂有“运营管理中心”牌子的前台摆满杂物。
 
-赛制方面，双人及混合团体项目将沿用传统的计分规则，单人项目则继续采用2025年跳水世界杯总决赛引入的淘汰赛制，增强比赛的悬念与观赏性。
+一旁的“大数据展示厅”占地100多平方米，但是大门紧锁，内部已经清场，只剩墙上的显示器摆在空荡荡的大厅里。
 
 ## 相关推荐
 
-- 2026-06-29 12:39 - [上海浦东国际机场口岸单日入境外籍人员数创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:47 - [云南华宁聚焦民族团结 加快构建互嵌式社会结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 13:01 - [大国重器一起护送英烈回家！歼-20运-20B空中对话让人泪目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:38 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-29 12:41 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 13:05 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 12:45 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:44 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
-- 2026-06-29 12:44 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:51 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-29 13:06 - [锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:53 - [2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 12:54 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 12:48 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-29 13:00 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 13:02 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 13:05 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:42 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:55 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:07 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 13:06 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 12:59 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 13:03 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 13:04 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:55 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [美国能源部长：汽油价格可能在一周前已经见顶](http://www.share.kurohicncr.top/Article/details/732614310727.shtml)
-- 2026-06-29 12:53 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.kurohicncr.top/Article/details/77747.shtml)
-- 2026-06-29 12:45 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](http://www.share.kurohicncr.top/Article/details/04896132729.shtml)
-- 2026-06-29 12:49 - [国务院印发《关于推进服务业扩能提质的意见》](http://www.blog.kurohicncr.top/Article/details/172095428047.shtml)
-- 2026-06-29 12:45 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.kurohicncr.top/Article/details/641333007659.shtml)
-- 2026-06-29 12:47 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](http://www.blog.minike.top/Article/details/017861280428.shtml)
-- 2026-06-29 12:54 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](http://www.share.kurohicncr.top/Article/details/14167390529.shtml)
-- 2026-06-29 12:39 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.blog.kurohicncr.top/Article/details/13773352.shtml)
-- 2026-06-29 12:44 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](http://www.blog.minike.top/Article/details/38057723.shtml)
-- 2026-06-29 12:38 - [挪威三月油气产量超预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](http://www.blog.minike.top/Article/details/624065892.shtml)
-- 2026-06-29 12:43 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.blog.kurohicncr.top/Article/details/190401555690.shtml)
-- 2026-06-29 13:03 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](http://www.blog.kurohicncr.top/Article/details/5935306.shtml)
-- 2026-06-29 12:38 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.blog.minike.top/Article/details/643468781836.shtml)
+- 2026-06-29 13:05 - [年轻人假期热衷贵阳“寻咖”](http://www.share.kurohicncr.top/Article/details/018508255964.shtml)
+- 2026-06-29 13:11 - [富通科技公布于5月6日下午起复牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](http://www.share.minike.top/Article/details/2285141.shtml)
+- 2026-06-29 12:49 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](http://www.blog.minike.top/Article/details/37332353.shtml)
+- 2026-06-29 13:12 - [追光的你｜青春的颜色](http://www.blog.minike.top/Article/details/4042548341.shtml)
+- 2026-06-29 12:51 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.share.kurohicncr.top/Article/details/991469215337.shtml)
+- 2026-06-29 13:00 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.share.minike.top/Article/details/96220.shtml)
+- 2026-06-29 13:08 - [特朗普称将暂停自由计划“一小段时间”](http://www.blog.minike.top/Article/details/4622586.shtml)
+- 2026-06-29 13:05 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.kurohicncr.top/Article/details/751220754.shtml)
+- 2026-06-29 13:07 - [青春之喻，奋斗之帆](http://www.share.kurohicncr.top/Article/details/12658788394.shtml)
+- 2026-06-29 13:07 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.blog.kurohicncr.top/Article/details/53421.shtml)
+- 2026-06-29 13:07 - [伊朗查封并没收22名与美以有关联人员财产](http://www.share.minike.top/Article/details/97784.shtml)
+- 2026-06-29 12:54 - [俄美外长通话讨论国际局势和双边关系](http://www.blog.kurohicncr.top/Article/details/396740.shtml)
+- 2026-06-29 12:52 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.kurohicncr.top/Article/details/71874514968.shtml)

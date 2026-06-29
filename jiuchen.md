@@ -1,55 +1,53 @@
-# 上海浦东国际机场口岸单日入境外籍人员数创历史新高
+# 锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网上海4月21日电 (记者 陈静)上海边检总站上海机场边检站21日披露，上海边检总站上海机场边检站20日单日查验入境外籍人员数破2.5万人次，创下上海浦东国际机场口岸单日入境外籍人员数量历史新高。 据统计，今年迄今为止，上海机场边检站累计查验入境外籍人员已超181万人次，同比增长24.4%。近期，入境外籍来华人员以旅游观光、商务访问为主。随着免签政策不断扩容，中国单方面免签
+锦欣生殖（01951）公布，透过持续推行营运优化措施，该集团维持了强劲的增长动能。截至2026年4月30日止四个月，不孕症新患者就诊人次达 16，525人次，较2025年同期增长7.5%。截至2026年4月30日止四个月，取卵周期数为9，010次，较同期增长5.2%。 其中，大湾区不孕初诊数较去年同期增长17.7%，海外取卵周期数较去年同期增长37.3%，成都地区不孕初诊数及取
 
 ## 正文
 
-中新网上海4月21日电 (记者 陈静)上海边检总站上海机场边检站21日披露，上海边检总站上海机场边检站20日单日查验入境外籍人员数破2.5万人次，创下上海浦东国际机场口岸单日入境外籍人员数量历史新高。
+锦欣生殖（01951）公布，透过持续推行营运优化措施，该集团维持了强劲的增长动能。
 
-据统计，今年迄今为止，上海机场边检站累计查验入境外籍人员已超181万人次，同比增长24.4%。
+截至2026年4月30日止四个月，不孕症新患者就诊人次达 16，525人次，较2025年同期增长7.5%。
 
-近期，入境外籍来华人员以旅游观光、商务访问为主。
+截至2026年4月30日止四个月，取卵周期数为9，010次，较同期增长5.2%。
 
-随着免签政策不断扩容，中国单方面免签“朋友圈”已覆盖50国，互免签证国家达29国，240小时过境免签政策适用国家拓展至55国，免签政策极大提升了入境便利度，有力推动外籍人员入境量持续增长。
+其中，大湾区不孕初诊数较去年同期增长17.7%，海外取卵周期数较去年同期增长37.3%，成都地区不孕初诊数及取卵周期数均取得个位数下跌，昆明及武汉地区取卵周期数较2025年同期增长 15.5%，保持稳步增长。
 
-随着上海打造全球顶级赛事集聚地和提升国际会展之都能级的磁吸效应不断凸显，近期，多场国际性展会在沪举办，众多外籍参展商和参会人员进一步助推了口岸入境客流攀升。
-
-面对近期高位运行的外籍入境客流，上海机场边检站方面表示，将加强与机场集团、航空公司的联动，依托自主研发的“精准勤务辅助系统”实时监测航班与客流数据，在高峰时段动态调整警力部署，提前开足查验通道，最大限度压缩旅客候检时间，全面推广外国人入境卡网上填报，提升外籍人员通关速度等。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 12:56 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
-- 2026-06-29 12:47 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-29 12:51 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:48 - [北京市欧美同学会赴北京中医药大学归国留学人员联谊会走访调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 13:01 - [民众集会 反对日本政府修改武器出口规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:53 - [特朗普称政府“或许”应救助陷入困境的精神航空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 13:05 - [特斯拉下一代Roadster终于要来了？马斯克称可能在月底发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-29 12:44 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:36 - [政府提前还债从省级延伸至地市，怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:55 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 13:05 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 13:05 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 13:00 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:53 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:02 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 12:42 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 13:05 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:49 - [成本高企挤压利润，印度苏拉酒业Q4净利下滑34%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
+- 2026-06-29 13:00 - [烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-29 13:04 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
+- 2026-06-29 13:05 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:55 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 12:56 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-29 12:46 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:40 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](http://www.share.kurohicncr.top/Article/details/16490212.shtml)
-- 2026-06-29 13:04 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.share.minike.top/Article/details/18243597.shtml)
-- 2026-06-29 12:43 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [挪威三月油气产量超预期](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.blog.kurohicncr.top/Article/details/4113473445.shtml)
-- 2026-06-29 12:54 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](http://www.blog.minike.top/Article/details/18092327314.shtml)
-- 2026-06-29 12:49 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.share.minike.top/Article/details/1823740915.shtml)
-- 2026-06-29 12:48 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](http://www.blog.kurohicncr.top/Article/details/931095.shtml)
-- 2026-06-29 12:54 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](http://www.blog.kurohicncr.top/Article/details/2302303.shtml)
-- 2026-06-29 13:01 - [理财规模季末回落超万亿，全年增速或放缓](http://www.share.kurohicncr.top/Article/details/65849873535.shtml)
-- 2026-06-29 12:59 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](http://www.share.minike.top/Article/details/3236902892.shtml)
-- 2026-06-29 12:50 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.blog.kurohicncr.top/Article/details/8134446.shtml)
-- 2026-06-29 12:49 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.share.minike.top/Article/details/89714.shtml)
-- 2026-06-29 12:59 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.share.kurohicncr.top/Article/details/14109137137.shtml)
+- 2026-06-29 12:54 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.blog.minike.top/Article/details/168516532.shtml)
+- 2026-06-29 12:56 - [特朗普称将暂停自由计划“一小段时间”](http://www.blog.minike.top/Article/details/394492647136.shtml)
+- 2026-06-29 13:11 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.minike.top/Article/details/06880049375.shtml)
+- 2026-06-29 13:08 - [青春之喻，奋斗之帆](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.blog.kurohicncr.top/Article/details/758703918.shtml)
+- 2026-06-29 12:58 - [伊朗查封并没收22名与美以有关联人员财产](http://www.blog.kurohicncr.top/Article/details/511134560489.shtml)
+- 2026-06-29 12:48 - [俄美外长通话讨论国际局势和双边关系](http://www.blog.minike.top/Article/details/615154784.shtml)
+- 2026-06-29 12:47 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.minike.top/Article/details/70234277965.shtml)
+- 2026-06-29 12:45 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.share.kurohicncr.top/Article/details/3049603982.shtml)
+- 2026-06-29 12:47 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.minike.top/Article/details/22371.shtml)
+- 2026-06-29 12:56 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.kurohicncr.top/Article/details/2509257878.shtml)
+- 2026-06-29 13:10 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.share.kurohicncr.top/Article/details/666581393.shtml)
+- 2026-06-29 13:11 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.share.kurohicncr.top/Article/details/53660637.shtml)
+- 2026-06-29 12:52 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.share.minike.top/Article/details/702452174352.shtml)
+- 2026-06-29 13:01 - [广东广州以“微改革”推动营商环境系统提升](http://www.share.kurohicncr.top/Article/details/760635406.shtml)

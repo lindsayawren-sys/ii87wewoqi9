@@ -1,52 +1,59 @@
-# 鸿蒙智行五大核心技术矩阵亮相，含乾崑智驾、鸿蒙座舱、途灵平台、华为智擎与巨鲸电池
+# 中国舞蹈荷花奖未来十年落地陕西 西安将打造常态化“荷花展演季”
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-IT之家 4 月 22 日消息，在今天的鸿蒙智行春季新品发布会上，华为常务董事、产品投资评审委员会主任、终端 BG 董事长余承东正式发布了华为智擎（HUAWEI DriveONE）。鸿蒙智行五大核心技术矩阵也同步亮相，具体包括华为乾崑智驾、华为鸿蒙座舱、华为途灵平台、华为智擎与华为巨鲸电池平台。IT之家从发布会现场余承东的演讲获悉，其实鸿蒙智行还有第六大核心技术 —— 华为智能
+中新网西安5月6日电 (李一璠)“第十四届中国舞蹈荷花奖颁奖典礼计划于5月14日在陕西西安举行，届时将为第十四届中国舞蹈荷花奖的19个获奖作品颁发证书、奖杯。”中国舞蹈家协会分党组书记汤鸿卫6日表示。 当日，中国舞蹈荷花奖落地陕西工作组委会在西安举办新闻发布会，介绍中国舞蹈荷花奖即将在陕西开展的系列活动情况。 据悉，中国舞蹈荷花奖是由中国文学艺术界联合会、中国舞蹈家协会共同主办
 
 ## 正文
 
-IT之家 4 月 22 日消息，在今天的鸿蒙智行春季新品发布会上，华为常务董事、产品投资评审委员会主任、终端 BG 董事长余承东正式发布了华为智擎（HUAWEI DriveONE）。
+中新网西安5月6日电 (李一璠)“第十四届中国舞蹈荷花奖颁奖典礼计划于5月14日在陕西西安举行，届时将为第十四届中国舞蹈荷花奖的19个获奖作品颁发证书、奖杯。
 
-鸿蒙智行五大核心技术矩阵也同步亮相，具体包括华为乾崑智驾、华为鸿蒙座舱、华为途灵平台、华为智擎与华为巨鲸电池平台。
+”中国舞蹈家协会分党组书记汤鸿卫6日表示。
 
-IT之家从发布会现场余承东的演讲获悉，其实鸿蒙智行还有第六大核心技术 —— 华为智能网联，不过这次没有在 PPT 上展示出来。
+当日，中国舞蹈荷花奖落地陕西工作组委会在西安举办新闻发布会，介绍中国舞蹈荷花奖即将在陕西开展的系列活动情况。
 
-根据规划，鸿蒙智行 2026 年底将布局超 2459+ 家销售门店、1459+ 家服务门店，覆盖全国超 94%+ 城市，充电网络接入超 200+ 万充电枪。
+据悉，中国舞蹈荷花奖是由中国文学艺术界联合会、中国舞蹈家协会共同主办的全国性舞蹈艺术专业奖，被誉为中国舞蹈最具权威性的“专家奖”，评奖周期为两年一次。
+
+今年1月，中国文学艺术界联合会和陕西省人民政府在京签订《关于中国舞蹈荷花奖落地陕西举办及共同打造国家级舞蹈艺术中心的框架合作协议》，未来十年中国舞蹈荷花奖落地西安。
+
+中共陕西省委宣传部副部长、省文联党组书记张琳介绍，陕西的承办工作将以维护专业权威、共享文化成果、赋能产业发展三大目标为核心，确保荷花奖在三秦大地长久“盛开”。
+
+该省积极筹建“陕西舞蹈荷花奖文化产业投资基金”，组建“一带一路”舞蹈艺术及产业发展研究中心和中国舞蹈名家工作室，强化资金与人才的长久保障。
+
+“西安全域打造‘艺舞绽荷花·天下聚长安’文旅活动，将荷花奖经典舞蹈、精品节目植入大唐不夜城、西安城墙等城市文旅地标，打造常态化‘荷花展演季’，创新‘一景一舞’沉浸式特色演艺；联动景区、剧院、酒店、餐饮推出专属文旅套餐，以票根经济激活全域消费，让舞蹈艺术深度赋能旅游演艺、点亮城市烟火。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 13:00 - [别瞧不起格林基金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:50 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:47 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:37 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 13:05 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 12:53 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-29 12:46 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
-- 2026-06-29 12:40 - [财政部今日在港发行155亿元人民币国债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 13:02 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 12:58 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:02 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 12:44 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
-- 2026-06-29 12:47 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 13:02 - [国乒女团3比0瑞典 晋级世乒赛8强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:56 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 13:10 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:44 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:49 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:46 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 13:02 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 12:50 - [穿越百年航海史 “时光邮轮”驶入吉林长春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
+- 2026-06-29 12:44 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 12:55 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:59 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-29 13:05 - [转型金融破局：货币政策如何发力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:54 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [人民海军成立77周年系列报道之：沧海·初心如磐](http://www.blog.minike.top/Article/details/417445652938.shtml)
-- 2026-06-29 12:42 - [外国游客打卡西藏拉萨布达拉宫广场](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [欧洲央行Guindos：在利率问题上需要谨慎并保持冷静](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](http://www.blog.minike.top/Article/details/90212.shtml)
-- 2026-06-29 12:43 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](http://www.blog.minike.top/Article/details/289667644243.shtml)
-- 2026-06-29 13:01 - [微视频丨山河迎忠魂](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](http://www.share.kurohicncr.top/Article/details/4661602.shtml)
-- 2026-06-29 12:45 - [四川累计外送电量突破2万亿千瓦时](http://www.blog.minike.top/Article/details/5084431495.shtml)
-- 2026-06-29 12:50 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](http://www.blog.kurohicncr.top/Article/details/5197204977.shtml)
-- 2026-06-29 12:51 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.share.minike.top/Article/details/22410178774.shtml)
-- 2026-06-29 12:46 - [多地楼市新政密集落地 市场积极信号加速释放](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](http://www.share.kurohicncr.top/Article/details/4494403.shtml)
-- 2026-06-29 12:48 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](http://www.blog.minike.top/Article/details/500139572.shtml)
-- 2026-06-29 12:37 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](http://www.blog.minike.top/Article/details/5542284504.shtml)
+- 2026-06-29 13:10 - [心动公司于5月6日斥资282.29万港元回购4.5万股](http://www.blog.kurohicncr.top/Article/details/7992301755.shtml)
+- 2026-06-29 12:58 - [平安人寿保险增持农业银行4747.4万股](http://www.blog.kurohicncr.top/Article/details/78284964125.shtml)
+- 2026-06-29 13:03 - [巴西贝洛奥里藏特小型飞机撞楼事故致3人遇难](http://www.share.minike.top/Article/details/057024.shtml)
+- 2026-06-29 12:51 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](http://www.blog.kurohicncr.top/Article/details/23893056.shtml)
+- 2026-06-29 13:01 - [国资委：将组织开展新一轮数智化转型专项行动](http://www.blog.kurohicncr.top/Article/details/134471.shtml)
+- 2026-06-29 13:05 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](http://www.blog.minike.top/Article/details/315971276.shtml)
+- 2026-06-29 12:48 - [“五一”假期盘点 假期接待游客总量超1800万人次](http://www.blog.kurohicncr.top/Article/details/701025.shtml)
+- 2026-06-29 13:03 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](http://www.blog.minike.top/Article/details/203900605.shtml)
+- 2026-06-29 12:45 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](http://www.blog.minike.top/Article/details/9671217740.shtml)
+- 2026-06-29 12:50 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](http://www.blog.kurohicncr.top/Article/details/929917902033.shtml)
+- 2026-06-29 13:02 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](http://www.share.minike.top/Article/details/26399.shtml)
+- 2026-06-29 12:43 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](http://www.share.minike.top/Article/details/14525508.shtml)
+- 2026-06-29 13:05 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](http://www.share.minike.top/Article/details/6880862.shtml)
+- 2026-06-29 12:58 - [购房新政叠加“五一”假期 多地楼市升温](http://www.blog.minike.top/Article/details/93471597576.shtml)

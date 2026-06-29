@@ -1,59 +1,56 @@
-# 酒价内参4月21日价格发布：青花汾20保持不变
+# 霍尔木兹海峡激战升级，美军打击伊朗快艇，阿联酋遭袭
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月21日延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9905元，较昨日上涨7元，升至近十日最高位。市场在昨日明显反弹后延续修复，终端交投情绪整体保持平稳，但单品涨跌仍有分化。 今日白酒市场11大单品四涨五跌两平，涨跌结构
+随着美国正式启动名为“自由计划”的军事行动以强行打通霍尔木兹海峡，美伊之间的脆弱停火在周一宣告破裂。双方爆发了自4月初停火以来最激烈的冲突，美军在护送被困船只通过时与伊朗伊斯兰革命卫队海军直接交火，伊朗则首次将战火蔓延至阿联酋本土。 美军中央司令部证实，在护送两艘悬挂美国国旗的商船通过海峡时，遭到了伊朗无人机、导弹及大量快速攻击艇的围攻。作为回应，美军动用直升机摧毁了7艘伊朗快
 
 ## 正文
 
-新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月21日延续回升态势。
+随着美国正式启动名为“自由计划”的军事行动以强行打通霍尔木兹海峡，美伊之间的脆弱停火在周一宣告破裂。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9905元，较昨日上涨7元，升至近十日最高位。
+双方爆发了自4月初停火以来最激烈的冲突，美军在护送被困船只通过时与伊朗伊斯兰革命卫队海军直接交火，伊朗则首次将战火蔓延至阿联酋本土。
 
-市场在昨日明显反弹后延续修复，终端交投情绪整体保持平稳，但单品涨跌仍有分化。
+美军中央司令部证实，在护送两艘悬挂美国国旗的商船通过海峡时，遭到了伊朗无人机、导弹及大量快速攻击艇的围攻。
 
-今日白酒市场11大单品四涨五跌两平，涨跌结构较为均衡。
+作为回应，美军动用直升机摧毁了7艘伊朗快艇，并拦截了多枚来袭导弹。
 
-上涨方面，古井贡古20涨幅居前，上涨12元/瓶，创近一月以来最大单日涨幅，价格升至本月最高位，电商渠道价格走强功不可没；国窖1573上涨5元/瓶，亦创下近一个月最高；洋河梦之蓝M6+上涨2元/瓶；精品茅台小幅上涨1元/瓶。
+指挥官库珀称，“自由计划”已成功在霍尔木兹海峡开辟出一条无雷的安全通道。
 
-下跌方面，习酒君品与青花郎跌幅居前，均下跌4元/瓶；五粮液普五八代下跌3元/瓶；五粮液1618及水晶剑南春均小幅回落1元/瓶。
+伊朗方面否认有任何舰艇被美军击中，坚称美方关于击沉快艇的说法是“毫无根据的谎言”，并宣布已扩大其在霍尔木兹海峡的实际控制海域。
 
-飞天茅台及青花汾20的价格环比保持不变。
+与此同时，冲突范围急剧扩大——阿联酋防空系统当天拦截了约20枚从伊朗发射的弹道导弹、巡航导弹和无人机。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+但其东部富查伊拉港的石油工业区仍被一架无人机击中，引发大火并导致3名印度籍员工受伤。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:58 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 13:04 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:44 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
-- 2026-06-29 12:56 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:55 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:48 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 12:49 - [北京市欧美同学会赴北京中医药大学归国留学人员联谊会走访调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:44 - [民众集会 反对日本政府修改武器出口规则](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:44 - [特朗普称政府“或许”应救助陷入困境的精神航空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:46 - [特斯拉下一代Roadster终于要来了？马斯克称可能在月底发布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:55 - [成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:59 - [政府提前还债从省级延伸至地市，怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 12:44 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 12:48 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:50 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:49 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
+- 2026-06-29 13:11 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:57 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:59 - [宁夏“五一”消费市场“热辣滚烫” 多元发力点燃假日经济](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 12:46 - [黄金，又涨了！该抄底了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 13:04 - [20260507食品饮料ETF华宝（515710）估值仍处低位+供给加速出清，华宝基金食品饮料ETF（515710）震荡上行！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:55 - [伊朗军方否认近期袭击阿联酋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](http://www.share.kurohicncr.top/Article/details/853809.shtml)
-- 2026-06-29 12:36 - [国务院印发《关于推进服务业扩能提质的意见》](http://www.blog.kurohicncr.top/Article/details/9405224046.shtml)
-- 2026-06-29 12:56 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](http://www.share.kurohicncr.top/Article/details/433444076.shtml)
-- 2026-06-29 12:54 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.share.minike.top/Article/details/485082836.shtml)
-- 2026-06-29 12:37 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](http://www.share.minike.top/Article/details/6695835862.shtml)
-- 2026-06-29 12:42 - [挪威三月油气产量超预期](http://www.share.minike.top/Article/details/19212927.shtml)
-- 2026-06-29 12:40 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策](http://www.blog.minike.top/Article/details/111707063135.shtml)
-- 2026-06-29 12:54 - [衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围](http://www.blog.kurohicncr.top/Article/details/6207839.shtml)
-- 2026-06-29 12:41 - [【理响中国·经视图】以投资于物支撑投资于人](http://www.share.minike.top/Article/details/938048882908.shtml)
-- 2026-06-29 12:40 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [理财规模季末回落超万亿，全年增速或放缓](http://www.share.kurohicncr.top/Article/details/55353.shtml)
+- 2026-06-29 13:00 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:57 - [追光的你｜青春的颜色](http://www.share.minike.top/Article/details/81839615312.shtml)
+- 2026-06-29 12:56 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.blog.minike.top/Article/details/189820451.shtml)
+- 2026-06-29 13:04 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.blog.minike.top/Article/details/057626826001.shtml)
+- 2026-06-29 12:42 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.blog.kurohicncr.top/Article/details/417571291870.shtml)
+- 2026-06-29 12:42 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.kurohicncr.top/Article/details/720579.shtml)
+- 2026-06-29 12:54 - [青春之喻，奋斗之帆](http://www.blog.kurohicncr.top/Article/details/4373134.shtml)
+- 2026-06-29 12:48 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.share.minike.top/Article/details/9070017644.shtml)
+- 2026-06-29 13:10 - [伊朗查封并没收22名与美以有关联人员财产](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [俄美外长通话讨论国际局势和双边关系](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [陕西榆林：已形成规模化“风光”基地 绿电成为区域能源主力](http://www.share.kurohicncr.top/Article/details/264614274221.shtml)
+- 2026-06-29 12:48 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](http://www.blog.minike.top/Article/details/0450505449.shtml)
+- 2026-06-29 12:59 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](http://www.share.minike.top/Article/details/572721370.shtml)
+- 2026-06-29 13:09 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.kurohicncr.top/Article/details/830376438355.shtml)

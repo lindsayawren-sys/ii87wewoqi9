@@ -1,50 +1,60 @@
-# 中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示
+# 转型金融破局：货币政策如何发力？
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖创意传播、应用创新和新闻IP专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐2件创意传播、2件新闻IP作品参加第36届中国新闻奖专项初评，现予以公示。公示期为2026年4月21日至4月27日，共5个工作日。如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。联系电话
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：IMI财经观察 导读 十五五规划明确将“加快经济社会发展全面绿色转型”列为发展重点，并提出“丰富绿色金融产品和服务，有序推进碳金融产品和衍生工具创新”。2026年1月，中国人民银行将“节能改造、绿色升级、能源绿色低碳转型”等具有直接碳减排效应的项目正式纳入碳减排支持工具支持范围，标志着该工具从聚焦特定绿色产业延伸至覆盖全社
 
 ## 正文
 
-根据《关于开展第36届中国新闻奖评选工作的通知》《关于开展第36届中国新闻奖创意传播、应用创新和新闻IP专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐2件创意传播、2件新闻IP作品参加第36届中国新闻奖专项初评，现予以公示。
+登录新浪财经APP 搜索【信披】查看更多考评等级 来源：IMI财经观察 导读 十五五规划明确将“加快经济社会发展全面绿色转型”列为发展重点，并提出“丰富绿色金融产品和服务，有序推进碳金融产品和衍生工具创新”。
 
-公示期为2026年4月21日至4月27日，共5个工作日。
+2026年1月，中国人民银行将“节能改造、绿色升级、能源绿色低碳转型”等具有直接碳减排效应的项目正式纳入碳减排支持工具支持范围，标志着该工具从聚焦特定绿色产业延伸至覆盖全社会高碳行业转型活动。
 
-如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。
+我国绿色发展的融资路径正由以绿色产业为主的“绿色金融”阶段，迈向支持传统产业技术改造与结构调整的“转型金融”阶段。
 
-联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 中国新闻奖创意传播、应用创新和新闻IP推荐作品目录 1.《#直击阅兵现场 干了这杯解暑药！
+与此同时，全球地缘冲突引发的能源危机打破了传统能源供需平衡与供应链格局，倒逼各国将低碳转型与能源安全保障深度绑定。
 
-受阅官兵作最后准备》 作者：迟瀚宇、刘映含、方敏 编辑：齐彬、王玉平、赵安源 作品推荐材料 2.《报道全国两会时，我握住了一双“特别的手”》 作者：俞岚、吴庆才、邵燕飞、常新宇、张静 编辑：魏晞、王庆凯 作品推荐材料 3.“习言道”专栏 作者：集体(陈陆军、俞岚、吴庆才、袁秀月、徐洋、张舰元、任帅、孙静波、佟瑶、蒋豪文、林芳晴、高萌、李京统、邵萌、张钰惠、李雪瑶、倪雯冰、雷宇竺、李伊璐、司方) 编辑：周锐、马学玲、阚枫 作品推荐材料 4.“华人故事”专栏 作者：陈陆军、俞岚、马海燕、吴侃、徐文欣、刘洋、门睿 编辑：周锐、韩辉、金旭 作品推荐材料
+2026年，欧盟碳边境调节机制（CBAM）正式进入全面实施阶段。
+
+在此格局下，金融体系已不再仅是环境治理的配套部门，更成为推动经济结构调整和宏观稳定的的重要调控渠道。
+
+本文旨在梳理政策演进、核心机制与央行职能，结合最新数据与案例，分析央行如何助力低碳转型。
+
+01 中国转型金融发展的核心堵点与挑战 经合组织（OECD）在2019年提出“转型金融”（Transition Finance）概念，即指在经济主体向可持续发展目标转型的进程中，为它们提供融资以帮助其转型的金融活动。
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:59 - [每一帧都很治愈，你读书的样子真好看！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:38 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:59 - [中芯国际获南向资金连续3天净买入](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:50 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:50 - [中天期货:螺纹区间反弹 焦煤继续反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:50 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
-- 2026-06-29 13:05 - [方邦股份4月21日龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-29 13:02 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 12:51 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:44 - [开盘：美股周二高开 油价回落与强劲财报提振](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
+- 2026-06-29 13:00 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 13:09 - [哮喘控制不好？快看看吸入剂你用对了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-29 13:08 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:10 - [成都铁路迎“五一”假期客流返程高峰](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-29 12:58 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
+- 2026-06-29 13:09 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:08 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:55 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 13:00 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 12:53 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 12:53 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 13:01 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 12:42 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [自然资源部：已建成省级以上绿色矿山5500余家](http://www.share.kurohicncr.top/Article/details/302626890.shtml)
-- 2026-06-29 13:01 - [宁波男篮队史首次挺进CBA季后赛 续写篮球热土故事](http://www.blog.minike.top/Article/details/159064580241.shtml)
-- 2026-06-29 12:37 - [DJI Osmo Mobile 8P上手：分体遥控 一机三用](http://www.share.kurohicncr.top/Article/details/317943102053.shtml)
-- 2026-06-29 13:03 - [特朗普政府官员抱怨其社交媒体帖子阻碍与伊朗和谈](http://www.share.minike.top/Article/details/27802603978.shtml)
-- 2026-06-29 12:49 - [90岁志愿军老兵吹军号迎战友回家，“我的号声还叫你们听一听”](http://www.share.minike.top/Article/details/9433945540.shtml)
-- 2026-06-29 12:38 - [中央气象台：江南华南有较强降水](http://www.share.minike.top/Article/details/4382212103.shtml)
-- 2026-06-29 13:01 - [耀才证券金融盘中涨超9% 正式进入港股通名单](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:51 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.share.minike.top/Article/details/4504446369.shtml)
-- 2026-06-29 12:42 - [百利天恒4月21日大宗交易成交354.40万元](http://www.blog.kurohicncr.top/Article/details/07646.shtml)
-- 2026-06-29 12:46 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](http://www.share.kurohicncr.top/Article/details/437767.shtml)
-- 2026-06-29 12:44 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](http://www.blog.kurohicncr.top/Article/details/5311295418.shtml)
-- 2026-06-29 13:04 - [光大期货：4月21日能源化工日报](http://www.blog.kurohicncr.top/Article/details/857800.shtml)
-- 2026-06-29 13:00 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](http://www.share.kurohicncr.top/Article/details/749631022.shtml)
-- 2026-06-29 12:52 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](http://www.share.minike.top/Article/details/321684061.shtml)
+- 2026-06-29 12:59 - [百亿明星私募被曝光“打新内幕”](http://www.blog.kurohicncr.top/Article/details/43691.shtml)
+- 2026-06-29 13:09 - [被特朗普痛批后，美国食药局首次批准调味电子烟上市](http://www.blog.minike.top/Article/details/96202.shtml)
+- 2026-06-29 12:57 - [体验式消费、IP联名活动 “五一”假期消费市场持续上新](http://www.share.minike.top/Article/details/42592502298.shtml)
+- 2026-06-29 12:55 - [Alphabet将通过创纪录的欧元债券发行筹集至少90亿欧元](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:08 - [情感赛道变形记](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:49 - [特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](http://www.blog.minike.top/Article/details/707642.shtml)
+- 2026-06-29 12:57 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.share.kurohicncr.top/Article/details/388087.shtml)
+- 2026-06-29 12:56 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](http://www.share.kurohicncr.top/Article/details/626336974.shtml)
+- 2026-06-29 12:44 - [紫元元公布于5月7日上午起短暂停牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [今天全国铁路预计发送旅客2300万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.blog.minike.top/Article/details/40187719.shtml)
+- 2026-06-29 12:57 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.blog.minike.top/Article/details/169471718.shtml)
+- 2026-06-29 12:56 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](http://www.blog.minike.top/Article/details/44812.shtml)
+- 2026-06-29 13:12 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.blog.minike.top/Article/details/86401237605.shtml)

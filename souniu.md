@@ -1,48 +1,61 @@
-# 印度马恒达科技第四季度营收超预期
+# 化工ETF华宝（516020）化工板块突发跳水，华宝基金化工ETF（516020）跌超3%！新一轮化工配置行情或正在靠近
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 印度信息技术服务企业马恒达科技（Tech Mahindra）周三公布，受通信与制造业务板块强劲表现推动，公司第四季度营收超出分析师预期。 截至 3 月 31 日的季度内，公司合并销售额同比增长 12.6%，至 1507.6 亿卢比（合 16.1 亿美元）。根据伦敦证券交易所集团（LSEG）汇总数据，分析师平均预期该季度营收为 1478 亿卢
+化工板块今日（5月7日）深陷回调。反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速走弱，截至发稿，场内价格跌3.4%。 成份股方面，石化、氮肥等板块部分个股跌幅居前。截至发稿，恒逸石化暴跌超9%，卫星化学、华鲁恒升双双跌超7%，宝丰能源、荣盛石化、桐昆股份等亦跌幅居前，拖累板块走势。 消息面上，今年一季度，国内化工上市公司交出亮眼答卷，行业盈利得到修复。煤化工、氯
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 印度信息技术服务企业马恒达科技（Tech Mahindra）周三公布，受通信与制造业务板块强劲表现推动，公司第四季度营收超出分析师预期。
+化工板块今日（5月7日）深陷回调。
 
-截至 3 月 31 日的季度内，公司合并销售额同比增长 12.6%，至 1507.6 亿卢比（合 16.1 亿美元）。
+反映化工板块整体走势的化工ETF华宝（516020）开盘后迅速走弱，截至发稿，场内价格跌3.4%。
 
-根据伦敦证券交易所集团（LSEG）汇总数据，分析师平均预期该季度营收为 1478 亿卢比。
+成份股方面，石化、氮肥等板块部分个股跌幅居前。
 
-责任编辑：郭明煜
+截至发稿，恒逸石化暴跌超9%，卫星化学、华鲁恒升双双跌超7%，宝丰能源、荣盛石化、桐昆股份等亦跌幅居前，拖累板块走势。
+
+消息面上，今年一季度，国内化工上市公司交出亮眼答卷，行业盈利得到修复。
+
+煤化工、氯碱、纯碱、聚氨酯、氟化工及化纤等板块集体发力，部分企业毛利率、净利率显著回升。
+
+业内人士认为，这或标志着化工行业已走出周期底部，2026—2028年有望开启上行周期。
+
+中信建投指出，一段时间过去，霍尔木兹海峡依然关闭，受迫关闭的油井产能越来越多，并且时间拖得越久，复产难度越大，现实世界的问题越严重。
 
 ## 相关推荐
 
-- 2026-06-29 12:59 - [交易员：印度央行可能卖出美元以遏制卢比跌势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:55 - [“水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
-- 2026-06-29 12:50 - [建滔积层板午前涨超5% PCB价值量持续跃升公司近期发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 13:00 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:59 - [酒价内参4月21日价格发布：青花汾20保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:46 - [浙江杭叉控股获批持有温州民商银行9.9%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-29 12:41 - [江苏省数标委“标准周”活动在扬州启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:37 - [天银机电：公司与SpaceX及Strarlink均没有业务关系，没有直接或间接供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 12:46 - [上海浦东国际机场口岸单日入境外籍人员数创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:46 - [云南华宁聚焦民族团结 加快构建互嵌式社会结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:08 - [山城夜色引客来 重庆夜间经济点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
+- 2026-06-29 12:53 - [7个项目停6个？部分城市“智慧城市”项目为啥“投入即浪费”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanxing.md)
+- 2026-06-29 12:57 - [假日经济观察：流量变“留量” 浙江湖州千年农遗焕新记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-29 12:51 - [中国海外发展早盘涨超5% 花旗现予目标价14.20港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 13:07 - [霍尔木兹海峡激战升级，美军打击伊朗快艇，阿联酋遭袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:58 - [摩根大通牵头财团或因Qualtrics债务面临5亿美元损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:46 - [美国宣布对伊军事行动结束，分析担忧战事远未终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 13:01 - [万成集团股份复牌一度飙升91% 获执董钟国强折让约34.96%提全购要约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:55 - [锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
+- 2026-06-29 12:47 - [2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
+- 2026-06-29 12:51 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:01 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
+- 2026-06-29 13:03 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 13:10 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
+- 2026-06-29 12:56 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](http://www.blog.minike.top/Article/details/8497471.shtml)
-- 2026-06-29 13:05 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [追忆侨领张素久：从容面对挑战 坚韧不拔](http://www.blog.minike.top/Article/details/03633.shtml)
-- 2026-06-29 13:02 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.share.kurohicncr.top/Article/details/38908701.shtml)
-- 2026-06-29 12:58 - [特朗普称最终将达成重大协议](http://www.blog.minike.top/Article/details/798105807.shtml)
-- 2026-06-29 12:36 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](http://www.blog.minike.top/Article/details/5927627.shtml)
-- 2026-06-29 12:53 - [全民阅读活动周 各地举办多场活动](http://www.share.minike.top/Article/details/28426.shtml)
-- 2026-06-29 12:47 - [日本首相高市早苗向靖国神社献祭品](http://www.share.kurohicncr.top/Article/details/0611381465.shtml)
-- 2026-06-29 12:40 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](http://www.share.kurohicncr.top/Article/details/68339732.shtml)
-- 2026-06-29 12:45 - [美国能源部长：汽油价格可能在一周前已经见顶](http://www.blog.kurohicncr.top/Article/details/6127601099.shtml)
-- 2026-06-29 12:54 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.share.minike.top/Article/details/2357048.shtml)
-- 2026-06-29 12:45 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [国务院印发《关于推进服务业扩能提质的意见》](http://www.blog.minike.top/Article/details/121022100.shtml)
-- 2026-06-29 12:38 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.minike.top/Article/details/147964.shtml)
-- 2026-06-29 12:50 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](http://www.share.minike.top/Article/details/72411.shtml)
+- 2026-06-29 12:54 - [韩国称将确保每年从加拿大进口至多3300万桶原油](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](http://www.blog.minike.top/Article/details/58946323995.shtml)
+- 2026-06-29 12:44 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](http://www.blog.minike.top/Article/details/358260.shtml)
+- 2026-06-29 13:10 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](http://www.blog.kurohicncr.top/Article/details/0760345655.shtml)
+- 2026-06-29 12:57 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](http://www.blog.kurohicncr.top/Article/details/9940777027.shtml)
+- 2026-06-29 12:58 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](http://www.share.minike.top/Article/details/7016582.shtml)
+- 2026-06-29 12:54 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](http://www.blog.kurohicncr.top/Article/details/475000987.shtml)
+- 2026-06-29 12:55 - [年轻人假期热衷贵阳“寻咖”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [富通科技公布于5月6日下午起复牌](http://www.blog.minike.top/Article/details/577535.shtml)
+- 2026-06-29 12:48 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](http://www.blog.minike.top/Article/details/83252.shtml)
+- 2026-06-29 12:56 - [追光的你｜青春的颜色](http://www.share.minike.top/Article/details/5273790522.shtml)
+- 2026-06-29 12:57 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.share.kurohicncr.top/Article/details/35674.shtml)
+- 2026-06-29 12:57 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.blog.kurohicncr.top/Article/details/2497495.shtml)

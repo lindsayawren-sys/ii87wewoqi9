@@ -1,53 +1,60 @@
-# 耀才证券金融盘中涨超9% 正式进入港股通名单
+# 宝马一季度利润降25%，关税与中国竞争拖累业绩
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-耀才证券金融（01428）盘中涨超9%，截至发稿，股价上涨6.87%，现报12.75港元，成交额4.62亿港元。 华源证券此前指出，耀才证券在中国香港本地的客户资源与金融牌照，叠加技术与流量优势，有望形成“互联网科技+财富管理”的差异化竞争优势，中期来看或将推动整个财富管理行业的数字化转型和科技投入。值得注意的是，3月9日，耀才证券金融正式进入港股通名单。责任编辑：卢昱君
+BMWYY>宝马集团公布2026年第一季度财报，受中国市场竞争加剧及关税压力影响，当季税前利润同比下滑25%至23亿欧元，略高于市场预期的22亿欧元。营收为310亿欧元，同比下降8.1%。 财报显示，宝马核心汽车业务息税前利润率从去年同期的6.9%降至5.0%，但仍高于分析师预测的4.7%。集团全球交付量为56.58万辆，同比减少3.5%。其中中国市场表现尤为疲弱，当季交付量仅
 
 ## 正文
 
-耀才证券金融（01428）盘中涨超9%，截至发稿，股价上涨6.87%，现报12.75港元，成交额4.62亿港元。
+BMWYY>宝马集团公布2026年第一季度财报，受中国市场竞争加剧及关税压力影响，当季税前利润同比下滑25%至23亿欧元，略高于市场预期的22亿欧元。
 
-华源证券此前指出，耀才证券在中国香港本地的客户资源与金融牌照，叠加技术与流量优势，有望形成“互联网科技+财富管理”的差异化竞争优势，中期来看或将推动整个财富管理行业的数字化转型和科技投入。
+营收为310亿欧元，同比下降8.1%。
 
-值得注意的是，3月9日，耀才证券金融正式进入港股通名单。
+财报显示，宝马核心汽车业务息税前利润率从去年同期的6.9%降至5.0%，但仍高于分析师预测的4.7%。
 
-责任编辑：卢昱君
+集团全球交付量为56.58万辆，同比减少3.5%。
+
+其中中国市场表现尤为疲弱，当季交付量仅14.4万辆，同比下滑10%，主要受本土车企价格竞争及新能源车型冲击。
+
+关税因素对业绩构成显著拖累。
+
+宝马表示，美国现行15%整车进口关税及欧盟对中国产电动车额外征收的关税，合计对汽车业务利润率造成约1.25个百分点的负面影响。
+
+若特朗普政府将欧洲汽车关税进一步提高至25%，宝马全年业绩将面临更大压力。
 
 ## 相关推荐
 
-- 2026-06-29 13:04 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 13:01 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 12:58 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
-- 2026-06-29 12:50 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:38 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:54 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 13:05 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:05 - [这种清凉主食热量低，减肥可吃！但这几点要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:42 - [拍照识字、自动翻译 探索打开古籍的N种方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:59 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-29 12:46 - [钢铁动脉连山海 同心筑梦向未来——中老铁路助力区域发展观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:37 - [ST岭南陷多重麻烦，仍处立案调查索赔征集中](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:47 - [广州知识产权国际化布局加速 助力粤港澳三地协同创新](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 12:49 - [四川2025年高价值发明专利拥有量达7.79万件](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:52 - [RYOEX:黄金中长期仍具坚实支撑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-29 12:52 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 12:46 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 12:42 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:54 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 12:53 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:54 - [93.59万人次“五一”打卡太原文博 门票收入破千万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
+- 2026-06-29 13:09 - [追光的你｜明天的中国，希望寄予青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-29 12:50 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:50 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanqiang.md)
+- 2026-06-29 13:04 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
+- 2026-06-29 12:59 - [著名文艺理论家王先霈因病逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:56 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:56 - [AMD飙涨近19%带飞AI芯片板块！规模最大港股通信息技术ETF华宝（159131）续涨2.55%冲击连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:09 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:53 - [第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [湖南江永优质蔬菜热销粤港澳大湾区](http://www.blog.kurohicncr.top/Article/details/0562050.shtml)
-- 2026-06-29 12:39 - [奥林匹克文献研学中心在天津成立](http://www.blog.minike.top/Article/details/48721.shtml)
-- 2026-06-29 12:51 - [尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！](http://www.blog.kurohicncr.top/Article/details/2666149754.shtml)
-- 2026-06-29 13:02 - [新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！](http://www.blog.kurohicncr.top/Article/details/3554601.shtml)
-- 2026-06-29 12:36 - [“中国航天日”临近 长春小朋友参观航天展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:38 - [刘海星分别会见欧洲议会、莫桑比克客人](http://www.blog.kurohicncr.top/Article/details/6774149163.shtml)
-- 2026-06-29 13:00 - [锚定长期主义，古井贡酒“三品工程”七届深耕，筑牢“发展之根”](http://www.blog.kurohicncr.top/Article/details/761670904728.shtml)
-- 2026-06-29 12:46 - [上期所镍期货及期权引入境外交易者参与交易](http://www.share.minike.top/Article/details/60778913063.shtml)
-- 2026-06-29 12:46 - [国台办批驳赖清德“以和平包装统一”谬论](http://www.share.minike.top/Article/details/934951971.shtml)
-- 2026-06-29 13:05 - [别问，问就是来不及了！马上要去2026金融街智绘春光嘉年华了！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:44 - [德国认为结束中东冲突出现“机会窗口”](http://www.share.minike.top/Article/details/418110.shtml)
-- 2026-06-29 12:44 - [合力共为，守护购票公平](http://www.blog.kurohicncr.top/Article/details/995988.shtml)
-- 2026-06-29 12:38 - [ETF日报：地缘冲突风险有所缓和，煤炭板块经历了较为充分的回调，关注煤炭ETF](http://www.blog.minike.top/Article/details/330151.shtml)
-- 2026-06-29 13:03 - [成都诞生一波千万富豪](http://www.blog.minike.top/Article/details/8386248.shtml)
+- 2026-06-29 13:04 - [书香伴假日 奋斗自芳华](http://www.blog.kurohicncr.top/Article/details/2311438.shtml)
+- 2026-06-29 12:46 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.blog.minike.top/Article/details/19184.shtml)
+- 2026-06-29 12:48 - [广西开展专题调研——探寻八桂大地上的团结密码](http://www.blog.kurohicncr.top/Article/details/8386504238.shtml)
+- 2026-06-29 12:47 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.blog.minike.top/Article/details/30111389037.shtml)
+- 2026-06-29 12:58 - [中国车企“扫货”海外闲置产能](http://www.blog.kurohicncr.top/Article/details/76191923194.shtml)
+- 2026-06-29 12:49 - [重组完成28个月后，中国奥园为何再陷境外债违约？](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](http://www.blog.minike.top/Article/details/2381239.shtml)
+- 2026-06-29 12:54 - [惠誉将阿根廷信用评级上调至B- 展望稳定](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [Coinbase裁员14% 转向“AI优先”运营模式](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [日本央行会议纪要：一位委员称政策利率仍远未达到中性水平](http://www.blog.minike.top/Article/details/830729.shtml)
+- 2026-06-29 12:50 - [西藏自治区拉萨市委常委、常务副市长占堆被查](http://www.share.kurohicncr.top/Article/details/809848.shtml)
+- 2026-06-29 13:10 - [冠城钟表珠宝拟“3供1”基准供股](http://www.share.minike.top/Article/details/89506.shtml)
+- 2026-06-29 13:11 - [电影《给阿嬷的情书》：书写中国人刻在骨血里的情义](http://www.blog.kurohicncr.top/Article/details/91419459769.shtml)
+- 2026-06-29 13:09 - [中国男乒逆转取胜 晋级世乒赛男团八强](http://www.blog.minike.top/Article/details/435795299586.shtml)

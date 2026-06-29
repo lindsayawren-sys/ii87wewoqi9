@@ -1,54 +1,56 @@
-# 【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史
+# 2026年全国残疾人足球公开赛在京举行
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-发布时间：2026年04月22日 15:49 来源：中国新闻网 敦煌古藏文文献是现存已知最古老的纸质藏文文献之一，内容涵盖佛教经典、历史著作、政事文书、法律条文等，涉及吐蕃历史、政治、经济、文化等诸多领域，是研究吐蕃历史文化的珍贵史料。 由西北民族大学、上海古籍出版社分别与英国国家图书馆、法国国家图书馆合作编纂的《英国国家图书馆藏敦煌西域藏文文献》《法国国家图书馆藏敦煌藏文文献
+中新网北京5月6日电 5月6日，2026年全国残疾人足球公开赛在京开赛。中国残联党组成员、副理事长常征出席开赛仪式并宣布开赛。中国残联体育部、中国残疾人体育运动管理中心相关负责人及各参赛队出席开赛仪式，共同见证这一充满希望与力量的时刻。 2026年全国残疾人足球公开赛由中国残疾人联合会主办、中国残疾人体育运动管理中心承办，来自全国18个省(区、市)的29支代表队、230余名运动
 
 ## 正文
 
-发布时间：2026年04月22日 15:49 来源：中国新闻网 敦煌古藏文文献是现存已知最古老的纸质藏文文献之一，内容涵盖佛教经典、历史著作、政事文书、法律条文等，涉及吐蕃历史、政治、经济、文化等诸多领域，是研究吐蕃历史文化的珍贵史料。
+中新网北京5月6日电 5月6日，2026年全国残疾人足球公开赛在京开赛。
 
-由西北民族大学、上海古籍出版社分别与英国国家图书馆、法国国家图书馆合作编纂的《英国国家图书馆藏敦煌西域藏文文献》《法国国家图书馆藏敦煌藏文文献》，历经20年已全部整理出版发行，让流散海外的珍贵文献以高清图版形式回归故土。
+中国残联党组成员、副理事长常征出席开赛仪式并宣布开赛。
 
-其“回归”意义是什么？
+中国残联体育部、中国残疾人体育运动管理中心相关负责人及各参赛队出席开赛仪式，共同见证这一充满希望与力量的时刻。
 
-敦煌藏文文献包含哪些汉藏“三交”(交往交流交融)内容？
+2026年全国残疾人足球公开赛由中国残疾人联合会主办、中国残疾人体育运动管理中心承办，来自全国18个省(区、市)的29支代表队、230余名运动员齐聚赛场，在默契配合与冲锋角逐中奋勇拼搏、尽展风采，以昂扬姿态展现自强不息的精神风貌，生动诠释残疾人体育的独特魅力。
 
-近日，西北民族大学铸牢中华民族共同体意识研究院名誉院长、海外民族文献研究所所长才让教授接受中新社“东西问”专访作出解读。
+本次赛事设听力组、智力融合组、视力组等竞赛组别，为不同类别残疾人足球爱好者搭建了公平竞技、交流展示平台。
 
-(王牧雨 闫姣 甘肃兰州报道） 责任编辑：【于晓】
+开赛仪式后，首场比赛在天津队与河北队之间展开。
+
+赛场上，运动员们克服身体障碍，默契配合、奋勇争先，每一次抢断、传球、射门都赢得热烈掌声。
+
+接下来的5天内，各代表队将在绿茵场上展开激烈角逐，争夺各组别荣誉，更将收获友谊与成长。
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-29 12:50 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 13:05 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:59 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 13:03 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:57 - [财政部今日在港发行155亿元人民币国债](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:41 - [印尼工商会主席：印尼与中国经济融合愈发重要](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:50 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 13:03 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:58 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:54 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:47 - [连跌10周，猪价反弹了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-29 12:50 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-29 12:50 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:42 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:45 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 12:47 - [穿越百年航海史 “时光邮轮”驶入吉林长春](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 13:04 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 12:50 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
+- 2026-06-29 13:01 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 13:03 - [转型金融破局：货币政策如何发力？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:01 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:45 - [它出生时，地球还是个“宝宝”？河北这块36.7亿岁的石头，刷新认知！](http://www.blog.kurohicncr.top/Article/details/745845612839.shtml)
-- 2026-06-29 12:52 - [长安期货侯荃宇：纯碱期价探底回升 基本面弱势未改](http://www.blog.kurohicncr.top/Article/details/69298514.shtml)
-- 2026-06-29 12:49 - [微视频丨山河迎忠魂](http://www.share.kurohicncr.top/Article/details/288956332127.shtml)
-- 2026-06-29 12:53 - [江苏举办养老企业与金融机构对接会 推动金融资源与养老产业精准对接](http://www.share.minike.top/Article/details/001346372.shtml)
-- 2026-06-29 12:37 - [四川累计外送电量突破2万亿千瓦时](http://www.share.kurohicncr.top/Article/details/497923963553.shtml)
-- 2026-06-29 12:41 - [在韩志愿军烈士遗骸交接仪式举行 中国驻韩国大使为烈士棺椁覆盖国旗并鞠躬](http://www.share.minike.top/Article/details/17960900297.shtml)
-- 2026-06-29 12:52 - [多家A股公司上市后首亏，部分年报披露前业绩“变脸”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [4月22日外盘头条：特朗普延长对伊停火 Adobe将回购250亿美元股票 美联储主席候选人沃什对利率路径含糊其辞](http://www.blog.minike.top/Article/details/74779854455.shtml)
-- 2026-06-29 12:59 - [多地楼市新政密集落地 市场积极信号加速释放](http://www.blog.minike.top/Article/details/3601247.shtml)
-- 2026-06-29 12:49 - [多国央行预警！Anthropic最新模型让金融系统如临大敌](http://www.blog.minike.top/Article/details/660851.shtml)
-- 2026-06-29 12:41 - [赴亚沙之约 展开放风采——写在第六届亚洲沙滩运动会开幕之际](http://www.share.minike.top/Article/details/33389826515.shtml)
-- 2026-06-29 12:48 - [寸草不生的百年毒矿渣，居然能提炼出高科技手机芯片？](http://www.share.kurohicncr.top/Article/details/35011895.shtml)
-- 2026-06-29 12:47 - [三亚亚沙会开幕在即 主媒体中心迎接媒体记者](http://www.share.minike.top/Article/details/953458810.shtml)
-- 2026-06-29 12:59 - [华宝基金红利风向标 | 高股息板块再秀防御力，华宝红利家族全线飘红！](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [《技术经理人执业能力评价白皮书》在穗发布](http://www.share.kurohicncr.top/Article/details/691409.shtml)
+- 2026-06-29 13:03 - [涉疫邮轮将停靠西班牙 世卫组织称或出现人际传播](http://www.blog.minike.top/Article/details/00969.shtml)
+- 2026-06-29 13:02 - [国资委：将组织开展新一轮数智化转型专项行动](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [长沙市委市政府：极为痛心、无比自责！全市所有烟花爆竹生产企业，全面停产整顿！](http://www.blog.minike.top/Article/details/24721361464.shtml)
+- 2026-06-29 12:52 - [“五一”假期盘点 假期接待游客总量超1800万人次](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [哈塞特称白宫考虑设立AI模型审查机制 防范网络安全风险](http://www.share.minike.top/Article/details/213572483.shtml)
+- 2026-06-29 13:06 - [“五一”期间全国各口岸“热”力十足 中国游释放更大吸引力](http://www.blog.minike.top/Article/details/899670121.shtml)
+- 2026-06-29 13:06 - [消息人士：OpenAI与Anthropic的合资企业正洽谈收购AI服务公司](http://www.share.kurohicncr.top/Article/details/29459283.shtml)
+- 2026-06-29 12:49 - [宁夏“五一”网络零售额突破9亿元 服务消费领跑假日经济](http://www.blog.kurohicncr.top/Article/details/20158.shtml)
+- 2026-06-29 13:03 - [轰动一时的“臭氧层空洞”，正在自己悄悄长好，原因竟然是这个](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:11 - [云南各机场“五一”迎客超百万 民族风情圈粉八方来客](http://www.share.minike.top/Article/details/862437.shtml)
+- 2026-06-29 13:09 - [“五一”假期 重庆无人机灯光秀绘就夜空光影画卷](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [购房新政叠加“五一”假期 多地楼市升温](http://www.blog.minike.top/Article/details/55853.shtml)
+- 2026-06-29 12:57 - [滴普科技午前大涨逾21% 机构看好其营收高增](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [韩股飙涨6.45%首次突破7300点，创历史新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [酒价内参5月7日价格发布：青花郎领跌 总价创5天以来新低](http://www.blog.kurohicncr.top/Article/details/25080652.shtml)

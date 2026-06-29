@@ -1,61 +1,60 @@
-# 源达信息量化策略研究：重要股东增持单因子策略
+# 新场景里看活力 | 开江鱼，官参局，锅包肉，松花江上，流金淌银真“食”在
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！分析师：吴起涤 执业登记编号：A0190523020001 研究助理：王娜 执业登记编号：A0190125030006 重要股东增持因子的定义 本文中我们选用“重要股东二级市场交易区间增持市值变动占公司总市值的比例”做为因子搭建策略，计算公式如下：重要股东增持因子= 重要股东二级市场交易区间增持市值 / 公
+“来来来，免费品尝热乎的鱼汤咧，足足熬了好几个钟头，别提多鲜了！” 鲜鱼从湖里直送大灶台“铁锅炖”，细熬慢煮间，汤色熬得奶白浓稠。老师傅一边舀起滚烫的鱼汤，撒上一把翠绿香菜，一边热情招呼，鲜香瞬间扑面而来。记者接过一碗趁热入口，忍不住心生赞叹：真鲜！ “五一”假期，吉林市松花湖碧波荡漾，湖光山色交相辉映。松花湖地处松花江上游，由丰满大坝拦江蓄水而成。松花江蜿蜒穿吉林城而过。湖畔
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+“来来来，免费品尝热乎的鱼汤咧，足足熬了好几个钟头，别提多鲜了！
 
-分析师：吴起涤 执业登记编号：A0190523020001 研究助理：王娜 执业登记编号：A0190125030006 重要股东增持因子的定义 本文中我们选用“重要股东二级市场交易区间增持市值变动占公司总市值的比例”做为因子搭建策略，计算公式如下：重要股东增持因子= 重要股东二级市场交易区间增持市值 / 公司市值。
+” 鲜鱼从湖里直送大灶台“铁锅炖”，细熬慢煮间，汤色熬得奶白浓稠。
 
-其中，重要股东二级市场交易区间增持市值变动汇总的是交易所公告和上市公司披露的场内增持行为，具体涵盖以下交易类型：①竞价交易；②大宗交易；③盘后定价交易；④可转债转股。
+老师傅一边舀起滚烫的鱼汤，撒上一把翠绿香菜，一边热情招呼，鲜香瞬间扑面而来。
 
-重要股东增持因子的特点 ①重要股东增持因子在熊市中后期及中小盘风格占优的市场中最为有效。
+记者接过一碗趁热入口，忍不住心生赞叹：真鲜！
 
-如2016年价值修复期因子Rank IC高达0.1996。
+“五一”假期，吉林市松花湖碧波荡漾，湖光山色交相辉映。
 
-②重要股东增持因子在中小市值区间表现最优。
+松花湖地处松花江上游，由丰满大坝拦江蓄水而成。
 
-因子在市值约60亿至150亿区间Rank IC均值达0.05且正比例高达75%。
+松花江蜿蜒穿吉林城而过。
 
-③重要股东增持因子在农林牧渔、建筑装饰、电气设备等行业表现最强。
+湖畔歌舞相伴，美食棚依次排开，七八口大铁锅现场炖鱼。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [跨世纪的重逢！抗美援朝老战士用歌声迎战友回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 12:48 - [金宏气体：公司产品下游应用领域广泛，客户群体较为分散](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanmeng.md)
-- 2026-06-29 12:41 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:43 - [伊朗体育部长：若球员安全得到保障将参加美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 12:36 - [“荣归50”“红鹰”！运-20B、歼-20用特殊呼号唤英烈回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
-- 2026-06-29 12:47 - [首席记者谈首季经济丨“大码头”的经济密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
-- 2026-06-29 12:44 - [印度马恒达科技第四季度营收超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:52 - [外交部：所谓中国“窃取”知识产权完全是子虚乌有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 12:37 - [冷藏柜里的高温杀菌乳到底是不是“假牛奶”？记者调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 13:04 - [华能蒙电：一季度归母净利润6.94亿元，同比下滑24.63%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:54 - [香港教大与清华大学合办教育主题论坛 推动AI与教育创新深度融合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 13:05 - [中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:39 - [百事转单嘉士伯，Royal Unibrew股价暴跌逾26%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 12:59 - [交易员：印度央行可能卖出美元以遏制卢比跌势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nukun.md)
-- 2026-06-29 12:39 - [“水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
+- 2026-06-29 12:50 - [雅高中国：第一季度入境预订量增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 13:06 - [太平洋营收最少盈利逆势下滑 自营权益类、固收类资产占净资本比值皆最低|券商年报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:58 - [特朗普称伊朗战事“很有可能结束” 双方正接近达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 13:09 - [股指期货全线收涨，中小盘“更胜一筹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 13:05 - [浙江杭州杭钢工业遗存璀璨夜景吸引民众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 13:07 - [大国之大利天下——2026年春季中国元首外交纪事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 13:05 - [化工ETF华宝（516020）化工板块突发跳水，华宝基金化工ETF（516020）跌超3%！新一轮化工配置行情或正在靠近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:46 - [盘前：纳指期货涨0.8% 油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:46 - [原油：脆弱停火得以维持 油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:58 - [粤港湾控股午后涨幅扩大逾23% 公司受益AI产业高增长红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:48 - [NTSB与FAA联合调查美联航飞波音767碰撞事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 13:03 - [日本干预预期与日银鹰派立场支撑日元，美元兑日元受压徘徊156关口附近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
+- 2026-06-29 13:04 - [马斯克就推特持股披露案与SEC达成和解 支付150万美元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:49 - [山城夜色引客来 重庆夜间经济点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:43 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [哈萨克斯坦驻华大使点赞“China Travel”](http://www.blog.kurohicncr.top/Article/details/22484792661.shtml)
-- 2026-06-29 13:04 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](http://www.blog.kurohicncr.top/Article/details/79019080914.shtml)
-- 2026-06-29 12:40 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](http://www.share.kurohicncr.top/Article/details/2403864.shtml)
-- 2026-06-29 12:51 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](http://www.blog.kurohicncr.top/Article/details/7089679.shtml)
-- 2026-06-29 12:49 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](http://www.share.kurohicncr.top/Article/details/1053411.shtml)
-- 2026-06-29 12:56 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.share.kurohicncr.top/Article/details/05067623.shtml)
-- 2026-06-29 12:40 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](http://www.share.minike.top/Article/details/518620972.shtml)
-- 2026-06-29 12:53 - [大摩：长和给予增持评级 目标价61港元](http://www.share.minike.top/Article/details/105725977.shtml)
-- 2026-06-29 12:47 - [大众汽车集团被曝有意削减100万辆全球产能](http://www.share.kurohicncr.top/Article/details/03875905760.shtml)
-- 2026-06-29 12:52 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](http://www.blog.kurohicncr.top/Article/details/463321.shtml)
-- 2026-06-29 13:01 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](http://www.share.kurohicncr.top/Article/details/63300816160.shtml)
-- 2026-06-29 13:05 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](http://www.share.minike.top/Article/details/2116878.shtml)
-- 2026-06-29 12:57 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](http://www.blog.kurohicncr.top/Article/details/5756380503.shtml)
+- 2026-06-29 13:02 - [【新思想引领新征程】“五一”假期消费市场活力迸发](http://www.share.minike.top/Article/details/09724955.shtml)
+- 2026-06-29 12:56 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](http://www.share.minike.top/Article/details/96614.shtml)
+- 2026-06-29 13:04 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](http://www.blog.kurohicncr.top/Article/details/1405888868.shtml)
+- 2026-06-29 13:11 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [承诺“增高”构成欺诈 商家被判退一赔三](http://www.blog.kurohicncr.top/Article/details/6740494.shtml)
+- 2026-06-29 12:44 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](http://www.blog.kurohicncr.top/Article/details/0869848.shtml)
+- 2026-06-29 13:10 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](http://www.blog.kurohicncr.top/Article/details/51247937.shtml)
+- 2026-06-29 12:55 - [心动公司于5月4日斥资761.31万港元回购12万股](http://www.share.kurohicncr.top/Article/details/310400967731.shtml)
+- 2026-06-29 12:44 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](http://www.blog.kurohicncr.top/Article/details/78405.shtml)
+- 2026-06-29 12:59 - [中国市场缘何被喻为“健身房”](http://www.blog.kurohicncr.top/Article/details/255266860845.shtml)
+- 2026-06-29 12:51 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](http://www.blog.minike.top/Article/details/53160932.shtml)
+- 2026-06-29 13:00 - [空客计划2020年以来首次发债 应对供应链中断](http://www.share.kurohicncr.top/Article/details/807270.shtml)
+- 2026-06-29 13:03 - [韩国称将确保每年从加拿大进口至多3300万桶原油](http://www.share.minike.top/Article/details/0068692.shtml)
+- 2026-06-29 13:06 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](http://www.blog.kurohicncr.top/Article/details/0410981407.shtml)

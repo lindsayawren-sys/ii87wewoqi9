@@ -1,56 +1,54 @@
-# 韩国央行新行长承诺在中东危机期间实施谨慎灵活的货币政策
+# 伊朗查封并没收22名与美以有关联人员财产
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-韩国央行新任行长申铉松周二承诺，在中东危机持续带来的不确定性加剧的情况下，将继续奉行审慎稳健的货币政策。 申铉松在就职演说中发表了上述讲话，正式开启他为期四年的任期，接替即将卸任的行长李昌镛。 “中东战争后，全球油价上涨同时加剧了通胀上行压力和经济增长下行压力，金融市场波动加剧以及金融失衡风险持续存在，”申铉松表示。 “鉴于通胀和经济增长路径的不确定性，货币政策应谨慎灵活地实施
+总台记者当地时间5日获悉，根据伊朗司法机关指令，22名与美以有关联的人员，在该国塞姆南省的财产已被识别，并被扣押和没收。 据悉，上述人员的所有动产和不动产、银行账户及其他资产均已被查封，同时被禁止任何金融转账和交易。目前塞姆南省司法机关正在审理此案。 司法机关指出，此举依据维护公众权利及《加强间谍罪处罚法》执行，旨在打击与以色列政权合作、危害国家安全和利益的行为。（总台记者 李
 
 ## 正文
 
-韩国央行新任行长申铉松周二承诺，在中东危机持续带来的不确定性加剧的情况下，将继续奉行审慎稳健的货币政策。
+总台记者当地时间5日获悉，根据伊朗司法机关指令，22名与美以有关联的人员，在该国塞姆南省的财产已被识别，并被扣押和没收。
 
-申铉松在就职演说中发表了上述讲话，正式开启他为期四年的任期，接替即将卸任的行长李昌镛。
+据悉，上述人员的所有动产和不动产、银行账户及其他资产均已被查封，同时被禁止任何金融转账和交易。
 
-“中东战争后，全球油价上涨同时加剧了通胀上行压力和经济增长下行压力，金融市场波动加剧以及金融失衡风险持续存在，”申铉松表示。
+目前塞姆南省司法机关正在审理此案。
 
-“鉴于通胀和经济增长路径的不确定性，货币政策应谨慎灵活地实施，以确保物价和金融市场的稳定，”他补充道。
+司法机关指出，此举依据维护公众权利及《加强间谍罪处罚法》执行，旨在打击与以色列政权合作、危害国家安全和利益的行为。
 
-申铉松还承诺，将通过重新评估现有政策工具来提高货币政策的有效性，以缓解政策变量之间复杂的权衡取舍，并积极利用市场价格指标来“加强预警能力”。
-
-在本月初的最近一次利率会议上，韩国央行维持基准利率在2.5%不变。
-
-鉴于自2月底爆发的伊朗冲突已升级为更广泛的地区危机，并震动全球市场和经济，韩国央行采取了谨慎的立场。
-
-责任编辑：于健 SF069
+（总台记者 李健南 李霜溪） 责任编辑：刘万里 SF014
 
 ## 相关推荐
 
-- 2026-06-29 13:02 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 13:04 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:50 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 12:58 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:54 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:51 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-29 12:53 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
-- 2026-06-29 13:04 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 13:04 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:50 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:50 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 12:42 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-29 13:01 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 12:48 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-29 13:04 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
+- 2026-06-29 13:00 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 13:04 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
+- 2026-06-29 13:04 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
+- 2026-06-29 13:00 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
+- 2026-06-29 12:55 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 13:07 - [南京银行：印建军担任业务总监的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-29 13:02 - [房产租赁毛利率下滑，汇通能源经营遇考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:45 - [美国陆军要求导弹制造商提升自家武器兼容性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 13:06 - [以共赢促共富 民企精准帮扶常态化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:59 - [防范和打击非法金融活动部际联席会议：严防严处利用APP开展非法金融活动](http://www.share.kurohicncr.top/Article/details/72958.shtml)
-- 2026-06-29 12:59 - [重回4100点！A股三大指数午后集体大涨](http://www.share.kurohicncr.top/Article/details/54043.shtml)
-- 2026-06-29 12:36 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.blog.kurohicncr.top/Article/details/0899351.shtml)
-- 2026-06-29 13:02 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.kurohicncr.top/Article/details/4728107.shtml)
-- 2026-06-29 12:41 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.blog.minike.top/Article/details/087761.shtml)
-- 2026-06-29 12:59 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.blog.kurohicncr.top/Article/details/1407914396.shtml)
-- 2026-06-29 12:39 - [法国一知名药企遭遇“傍名牌”在豫成功维权](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [别瞧不起格林基金](http://www.blog.kurohicncr.top/Article/details/6047124.shtml)
-- 2026-06-29 12:39 - [UPS与联邦快递已开始申请部分关税退款](http://www.share.minike.top/Article/details/7747348935.shtml)
-- 2026-06-29 12:58 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.blog.minike.top/Article/details/17827329577.shtml)
-- 2026-06-29 12:47 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](http://www.share.minike.top/Article/details/317297437.shtml)
-- 2026-06-29 12:43 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](http://www.share.kurohicncr.top/Article/details/754871378024.shtml)
-- 2026-06-29 12:53 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.share.kurohicncr.top/Article/details/1910139.shtml)
-- 2026-06-29 12:55 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](http://www.share.minike.top/Article/details/98697.shtml)
-- 2026-06-29 12:43 - [财政部今日在港发行155亿元人民币国债](http://www.blog.minike.top/Article/details/231972.shtml)
+- 2026-06-29 12:57 - [S佳通涉信息披露违法违规，受损投资者可维权](http://www.blog.minike.top/Article/details/68693064.shtml)
+- 2026-06-29 13:02 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.share.kurohicncr.top/Article/details/61634607.shtml)
+- 2026-06-29 13:03 - [2026年全国残疾人足球公开赛在京举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [原油期货上涨 或因技术性反弹](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [中东紧张局势冲击全球旅游业](http://www.blog.minike.top/Article/details/64809.shtml)
+- 2026-06-29 12:42 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.blog.kurohicncr.top/Article/details/041096670.shtml)
+- 2026-06-29 13:00 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.blog.minike.top/Article/details/35947299549.shtml)
+- 2026-06-29 12:58 - [小摩：民生银行给予“中性”评级 目标价3.90港元](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [山东省枣庄市青檀学校：榴乡厚土育同心](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.blog.kurohicncr.top/Article/details/135759.shtml)
+- 2026-06-29 12:48 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](http://www.share.minike.top/Article/details/877429.shtml)
+- 2026-06-29 12:43 - [成本压力持续传导 全球消费品企业竞相涨价](http://www.share.kurohicncr.top/Article/details/98318004017.shtml)
+- 2026-06-29 13:07 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](http://www.blog.kurohicncr.top/Article/details/201666.shtml)
+- 2026-06-29 13:01 - [穿越百年航海史 “时光邮轮”驶入吉林长春](http://www.blog.kurohicncr.top/Article/details/419319468282.shtml)
+- 2026-06-29 13:05 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](http://www.share.minike.top/Article/details/748195411917.shtml)

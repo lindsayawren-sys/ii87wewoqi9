@@ -1,57 +1,61 @@
-# 中央气象台：江南华南有较强降水
+# 特斯拉召回美国近21.9万辆汽车 以解决图像显示延迟问题
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网4月22日电 据中央气象台网站消息，预计22日至23日，江南、华南等地仍有较强降雨，局地并伴有强对流天气，关注降雨对农业生产、交通运输等的影响，做好灾害防御工作；22日渤海、东海等部分海域风力较大，做好海上交通安全管理。 江南华南有较强降水 22日至23日，江南东部、华南等地部分地区有大到暴雨，其中湖南南部、广东北部等地局地大暴雨，并伴有强对流天气；内蒙古东北部、黑龙江北
+特斯拉正在美国召回近22万(218868)辆汽车，此前监管机构发现了一个可能导致驾驶员挂入倒挡时后视摄像头画面延迟的故障。 美国国家公路交通安全管理局表示，显示延迟可能会降低驾驶员的视野，增加碰撞风险。此次召回涉及部分Model 3、Model Y、Model S和Model X车型。 特斯拉表示，已推出空中软件更新来解决该问题。该修复程序可远程安装，因此大多数车主无需前往服务
 
 ## 正文
 
-中新网4月22日电 据中央气象台网站消息，预计22日至23日，江南、华南等地仍有较强降雨，局地并伴有强对流天气，关注降雨对农业生产、交通运输等的影响，做好灾害防御工作；22日渤海、东海等部分海域风力较大，做好海上交通安全管理。
+特斯拉正在美国召回近22万(218868)辆汽车，此前监管机构发现了一个可能导致驾驶员挂入倒挡时后视摄像头画面延迟的故障。
 
-江南华南有较强降水 22日至23日，江南东部、华南等地部分地区有大到暴雨，其中湖南南部、广东北部等地局地大暴雨，并伴有强对流天气；内蒙古东北部、黑龙江北部、新疆西部等地部分地区有小到中雨(雪)或雨夹雪，局地大雪或暴雪。
+美国国家公路交通安全管理局表示，显示延迟可能会降低驾驶员的视野，增加碰撞风险。
 
-预计，4月22日08时至23日08时，云南西北部、广西西部和东北部、广东北部、湖南南部、江西中南部和东北部、浙江南部、福建西部和北部等地部分地区有大到暴雨，其中，湖南南部、广东北部等地局地有大暴雨(100～130毫米)。
+此次召回涉及部分Model 3、Model Y、Model S和Model X车型。
 
-上述部分地区伴有短时强降水(最大小时降雨量20～40毫米，局地可超过50毫米)，局地有雷暴大风或冰雹等强对流天气。
+特斯拉表示，已推出空中软件更新来解决该问题。
 
-中央气象台4月22日06时发布暴雨蓝色预警。
+该修复程序可远程安装，因此大多数车主无需前往服务中心。
 
-国内未来三天具体预报 4月22日08时至23日08时，黑龙江中东部和西北部、新疆南疆西部山区、青海南部等地部分地区有小雪或雨夹雪。
+此次召回正值监管机构对特斯拉的车辆软件和驾驶员辅助系统进行严格审查之际。
 
-四川南部、云南西北部、西藏东南部、贵州西北部、江南东部和南部、华南北部和西部等地部分地区有中到大雨，其中，湖南南部、江西南部、广西西部和东北部、广东北部等地部分地区有暴雨或大暴雨(100～130毫米)。
+上个月，美国国家公路交通安全管理局结束了对近260万辆特斯拉汽车远程车辆移动技术的另一项调查，发现该技术仅与低速碰撞有关。
 
-内蒙古中部、黑龙江中部、辽宁东部、江苏北部等地部分地区有4～6级风，西藏北部部分地区有6～7级风；黄海东部海域有6～7级风。
+与特斯拉其他一些召回相比，此次新召回规模相对较小，但投资者正在关注软件相关问题可能如何损害监管监督和消费者信心。
 
 ## 相关推荐
 
-- 2026-06-29 12:50 - [光大期货：4月21日能源化工日报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:36 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 12:40 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 13:04 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 12:56 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-29 12:48 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
-- 2026-06-29 12:53 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-29 12:40 - [日本通过内阁决议正式允许出口杀伤性武器](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:48 - [这种清凉主食热量低，减肥可吃！但这几点要注意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:41 - [拍照识字、自动翻译 探索打开古籍的N种方式](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:48 - [特朗普：如果美国解除海上封锁 就永远不可能与伊朗达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xianrou.md)
+- 2026-06-29 12:49 - [“五一”假期浙江口岸出入境人员超10万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 13:03 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 12:51 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-29 12:55 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:51 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 13:08 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:51 - [93.59万人次“五一”打卡太原文博 门票收入破千万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 13:09 - [追光的你｜明天的中国，希望寄予青年](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-29 12:59 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 12:51 - [浙江温岭：民间资金建造“海鹰加科”号科考船下水](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-29 13:08 - [逆市下跌，港股医药现低吸机遇？520880、159137溢价飙升！创新药产业链普跌，后续仍有催化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:55 - [著名文艺理论家王先霈因病逝世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:54 - [精神航空为何倒闭？太多乘客对其飞行体验极度不满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 13:06 - [AMD飙涨近19%带飞AI芯片板块！规模最大港股通信息技术ETF华宝（159131）续涨2.55%冲击连阳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 13:05 - [芯成科技今早一度翻倍 两个交易日股价累计涨幅高达400%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [哈尔滨音乐学院原党委副书记、工会主席刘东兴被“双开”](http://www.blog.kurohicncr.top/Article/details/735555089104.shtml)
-- 2026-06-29 13:02 - [第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.blog.minike.top/Article/details/013448.shtml)
-- 2026-06-29 12:39 - [湖南江永优质蔬菜热销粤港澳大湾区](http://www.share.kurohicncr.top/Article/details/173332.shtml)
-- 2026-06-29 12:47 - [奥林匹克文献研学中心在天津成立](http://www.share.minike.top/Article/details/903393.shtml)
-- 2026-06-29 13:04 - [尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！](http://www.blog.kurohicncr.top/Article/details/965677529078.shtml)
-- 2026-06-29 13:05 - [新易盛再创新高，近1年飙涨超890%！重仓光模块龙头“易中天”的创业板人工智能ETF（159363）爆量新高！](http://www.share.minike.top/Article/details/3877091748.shtml)
-- 2026-06-29 13:02 - [“中国航天日”临近 长春小朋友参观航天展](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:41 - [刘海星分别会见欧洲议会、莫桑比克客人](http://www.blog.minike.top/Article/details/8409454201.shtml)
-- 2026-06-29 12:40 - [锚定长期主义，古井贡酒“三品工程”七届深耕，筑牢“发展之根”](http://www.share.kurohicncr.top/Article/details/415979.shtml)
-- 2026-06-29 12:57 - [上期所镍期货及期权引入境外交易者参与交易](http://www.share.minike.top/Article/details/3201983.shtml)
-- 2026-06-29 12:46 - [国台办批驳赖清德“以和平包装统一”谬论](http://www.blog.kurohicncr.top/Article/details/33072096949.shtml)
-- 2026-06-29 12:56 - [别问，问就是来不及了！马上要去2026金融街智绘春光嘉年华了！](http://www.share.minike.top/Article/details/8503724.shtml)
-- 2026-06-29 12:40 - [德国认为结束中东冲突出现“机会窗口”](http://www.blog.kurohicncr.top/Article/details/0360786.shtml)
-- 2026-06-29 12:49 - [合力共为，守护购票公平](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:58 - [ETF日报：地缘冲突风险有所缓和，煤炭板块经历了较为充分的回调，关注煤炭ETF](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [中信证券：银行板块投资风格仍将延续，全年绝对收益可期](http://www.share.kurohicncr.top/Article/details/4504165593.shtml)
+- 2026-06-29 13:04 - [书香伴假日 奋斗自芳华](http://www.share.kurohicncr.top/Article/details/08762009.shtml)
+- 2026-06-29 13:02 - [以色列自停火以来首次袭击贝鲁特 称旨在清除真主党精锐部队指挥官](http://www.share.minike.top/Article/details/32191858335.shtml)
+- 2026-06-29 12:49 - [广西开展专题调研——探寻八桂大地上的团结密码](http://www.blog.minike.top/Article/details/24058.shtml)
+- 2026-06-29 13:05 - [2026年“五一”假期宁夏刑事、治安警情同比“双下降”](http://www.share.kurohicncr.top/Article/details/8352860736.shtml)
+- 2026-06-29 12:57 - [中国车企“扫货”海外闲置产能](http://www.share.minike.top/Article/details/4324593.shtml)
+- 2026-06-29 12:53 - [重组完成28个月后，中国奥园为何再陷境外债违约？](http://www.share.minike.top/Article/details/7404892102.shtml)
+- 2026-06-29 12:44 - [越疆午前涨超5% 越疆创业板IPO申请获深交所受理](http://www.share.minike.top/Article/details/24682.shtml)
+- 2026-06-29 12:55 - [谨记骑乘电动车戴牢头盔 北京明日各主要路口路段将增设执勤警力](http://www.share.kurohicncr.top/Article/details/46734656.shtml)
+- 2026-06-29 13:02 - [惠誉将阿根廷信用评级上调至B- 展望稳定](http://www.share.kurohicncr.top/Article/details/307629003576.shtml)
+- 2026-06-29 13:00 - [Coinbase裁员14% 转向“AI优先”运营模式](http://www.share.kurohicncr.top/Article/details/0676337.shtml)
+- 2026-06-29 12:44 - [日本央行会议纪要：一位委员称政策利率仍远未达到中性水平](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [西藏自治区拉萨市委常委、常务副市长占堆被查](http://www.share.minike.top/Article/details/049282363.shtml)
+- 2026-06-29 12:42 - [冠城钟表珠宝拟“3供1”基准供股](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [电影《给阿嬷的情书》：书写中国人刻在骨血里的情义](https://github.com/lisacumin64-arch)

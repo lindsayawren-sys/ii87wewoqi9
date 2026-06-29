@@ -1,60 +1,59 @@
-# 大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号
+# 广州楼市新政发力 “五一”假期一二手住宅市场同步向好
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网大庆4月21日电 (董青媛 郭长城)21日，记者从大庆钻探工程有限公司(以下简称“大庆钻探”)获悉，大庆钻探地质录井分公司首台DQL3.0数智化综合录井仪正式投入生产。该仪器在超快色谱分析、正压防爆安全监测及“一拖N”工厂化录井等方面实现多项关键突破。 综合录井仪作为录井分析的“地下眼睛”，其性能优劣直接决定着油气层勘探的精准度与效率。大庆钻探此次投用的数智化综合录井仪能
+中新社广州5月6日电 (记者 许青青)4月30日起实施的广州市房地产新政(简称“穗八条”)红利在“五一”假期得到释放，广州房地产市场活跃度显著回升，一二手住宅市场同步向好，楼市回暖态势明朗。 本次新政提高住房公积金贷款额度，个人最高可贷100万元(人民币，下同)，两人及以上最高可贷200万元；育儿家庭购买好房子等还可叠加额度，最高可达360万元。同时放宽商业贷款转公积金贷款条件
 
 ## 正文
 
-中新网大庆4月21日电 (董青媛 郭长城)21日，记者从大庆钻探工程有限公司(以下简称“大庆钻探”)获悉，大庆钻探地质录井分公司首台DQL3.0数智化综合录井仪正式投入生产。
+中新社广州5月6日电 (记者 许青青)4月30日起实施的广州市房地产新政(简称“穗八条”)红利在“五一”假期得到释放，广州房地产市场活跃度显著回升，一二手住宅市场同步向好，楼市回暖态势明朗。
 
-该仪器在超快色谱分析、正压防爆安全监测及“一拖N”工厂化录井等方面实现多项关键突破。
+本次新政提高住房公积金贷款额度，个人最高可贷100万元(人民币，下同)，两人及以上最高可贷200万元；育儿家庭购买好房子等还可叠加额度，最高可达360万元。
 
-综合录井仪作为录井分析的“地下眼睛”，其性能优劣直接决定着油气层勘探的精准度与效率。
+同时放宽商业贷款转公积金贷款条件，允许转为组合贷款。
 
-大庆钻探此次投用的数智化综合录井仪能够精准捕捉油气信号，为油气勘探的高效开发提供了有力支撑。
+在促进卖旧买新方面，发放总额2亿元专项补贴等。
 
-“以前录井仪的常规色谱分析一个周期需要30秒，而现在我们的综合录井仪超快色谱仪仅需9秒，就能完成C1-C5烷烃7种组分的检测。
+新政叠加假期，广州市荔湾区、海珠区多地假期现看房热潮。
 
-”大庆钻探地质录井分公司专家姜亚辉介绍道。
+海珠区有楼盘销售人员对记者表示：“如果达到条件，公积金最高能做到300多万元的额度，对很多改善型客户吸引力非常高。
 
-这一突破意味着什么？
+” 据广州市住房和城乡建设局6日提供的数据，“五一”期间，广州一手住宅市场热度显著提升。
 
-姜亚辉形象地解释道：“现在PDC钻头钻进速度极快，可能几十秒就钻进1米。
+5月1日至5日，全市11区一手楼盘日均到访量8692组次，同比增长30.8%，日均认购量634套，同比增长50.1%。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 12:53 - [全民阅读活动周 各地举办多场活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 13:01 - [日本首相高市早苗向靖国神社献祭品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-29 12:51 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
-- 2026-06-29 13:03 - [美国能源部长：汽油价格可能在一周前已经见顶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:44 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 12:36 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 12:45 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:52 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
-- 2026-06-29 13:00 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:37 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:40 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
-- 2026-06-29 12:52 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 12:59 - [挪威三月油气产量超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 12:59 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:45 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
+- 2026-06-29 13:08 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 13:04 - [年轻人假期热衷贵阳“寻咖”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:47 - [富通科技公布于5月6日下午起复牌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 13:02 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 12:48 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:46 - [追光的你｜青春的颜色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 13:01 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 13:03 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 13:06 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-29 12:48 - [特朗普称将暂停自由计划“一小段时间”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 13:08 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [临夏有约：“蓝色黄河”岸畔寻龙迹](http://www.blog.minike.top/Article/details/00204574243.shtml)
-- 2026-06-29 13:04 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](http://www.blog.minike.top/Article/details/56951.shtml)
-- 2026-06-29 12:52 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](http://www.blog.minike.top/Article/details/31068367208.shtml)
-- 2026-06-29 12:45 - [七家建筑巨头业绩单曝光，现金流“回血”盈利却仍承压](http://www.blog.minike.top/Article/details/5138021676.shtml)
-- 2026-06-29 12:58 - [接迎英雄回家的运-20B专机进入我国领空](http://www.share.minike.top/Article/details/8500671.shtml)
-- 2026-06-29 12:58 - [特朗普过去24小时都忙了什么？（2026-04-21）](http://www.blog.minike.top/Article/details/46264119297.shtml)
-- 2026-06-29 12:50 - [海外旅行商甘肃掘金丝路游 便利支付迎全球客](http://www.blog.kurohicncr.top/Article/details/926018.shtml)
-- 2026-06-29 13:05 - [机械车位闲置，如何盘活改造？](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](http://www.blog.minike.top/Article/details/527521936.shtml)
-- 2026-06-29 12:36 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [联合健康集团业绩超预期并上调展望](http://www.share.minike.top/Article/details/98227626511.shtml)
-- 2026-06-29 13:04 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](http://www.share.kurohicncr.top/Article/details/94588199668.shtml)
-- 2026-06-29 12:36 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](http://www.blog.minike.top/Article/details/32165.shtml)
-- 2026-06-29 12:45 - [学习新语｜山河永念 英雄回家](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](http://www.share.minike.top/Article/details/7214856.shtml)
+- 2026-06-29 13:04 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](http://www.share.minike.top/Article/details/10520013108.shtml)
+- 2026-06-29 13:00 - [生猪板块升温，期股共振释放什么信号？](http://www.blog.kurohicncr.top/Article/details/29854451881.shtml)
+- 2026-06-29 12:58 - [美国股市：标普500指数续创新高 AMD大涨与中东和平预期提振市场](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [午盘：美股继续上扬 纳指创盘中新高](http://www.share.kurohicncr.top/Article/details/560428352.shtml)
+- 2026-06-29 13:06 - [路易丝·阿伯将出任第31任加拿大总督](http://www.blog.kurohicncr.top/Article/details/12108.shtml)
+- 2026-06-29 13:00 - [新业态催热浙江乡村“慢游” 游客“五一”乐享慢时光](http://www.share.minike.top/Article/details/903732952.shtml)
+- 2026-06-29 12:52 - [离境退税“即买即退”跨省互认进一步扩围](http://www.share.minike.top/Article/details/57716.shtml)
+- 2026-06-29 12:46 - [哈塞特：没有参与私募信贷的人不必担心](http://www.blog.minike.top/Article/details/30415.shtml)
+- 2026-06-29 12:58 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](http://www.blog.kurohicncr.top/Article/details/95976396.shtml)
+- 2026-06-29 13:01 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](http://www.share.minike.top/Article/details/7854210.shtml)
+- 2026-06-29 12:56 - [黄金突破4700美元，分析师警示风险犹存](http://www.blog.kurohicncr.top/Article/details/582329404073.shtml)
+- 2026-06-29 12:43 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](http://www.share.kurohicncr.top/Article/details/646989129537.shtml)
+- 2026-06-29 13:03 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](http://www.share.kurohicncr.top/Article/details/8258823.shtml)
+- 2026-06-29 13:10 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](http://www.blog.minike.top/Article/details/045324860.shtml)

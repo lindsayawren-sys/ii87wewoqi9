@@ -1,59 +1,58 @@
-# 外交部：日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知
+# 全国大部降水增多 冷空气将自北向南制造降温
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。 有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？ 郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。中
+中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。 南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。 随着
 
 ## 正文
 
-中新网北京4月22日电 (记者 张蔚然)中国外交部发言人郭嘉昆22日主持例行记者会。
+中国天气网讯 今天(5月6日)，南方新一轮降水过程来袭，部分地区有暴雨，同时北方降水范围也会扩大。
 
-有记者提问：据报道，继日本首相高市早苗向靖国神社供奉祭品后，今天高市再次向靖国神社供奉祭祀费，成长战略担当大臣城内实、自民党总务会长有村治子和多名国会议员前往参拜，请问中方对此有何评论？
+随着冷空气南下、降水增多，各地气温将自北向南逐渐下跌，东北、华北至江南多地最高气温累计降幅可达10℃左右。
 
-郭嘉昆：我们昨天已经阐明中方的严正立场，日本涉靖国神社一系列消极动向公然挑衅国际正义，粗暴践踏人类良知。
+南方新一轮降水过程上线 北方降水范围有所扩大 昨天，全国大部降水不多，强度普遍较弱，监测显示，云南西南部、广东东南部沿海、海南岛南部等地部分地区出现中到大雨，局地暴雨。
 
-中方对上述恶行十分愤慨，严厉谴责。
+随着暖湿气流加强北上、冷空气南下，今起三天，南方地区自西向东将有新一轮降水过程，部分地区有暴雨，并伴有短时强降水、雷暴大风等强对流天气。
 
-二战期间日本军国主义犯下罄竹难书的滔天罪行，给中国等亚洲国家和世界带来深重灾难。
+在北方，今天降水范围有所扩大，强度总体不强，明天起大部地区将回归晴朗。
 
-靖国神社是日本军国主义对外发动侵略战争的精神工具和象征，是事实上的“战犯神社”，供奉有对侵略战争负有直接罪责的二战甲级战犯，包括战争狂人、头号战犯东条英机，侵华贼首土肥原贤二，南京大屠杀元凶松井石根、偷袭珍珠港的下令者永野修身、杀害无数朝鲜半岛抗日民众的罪魁小矶国昭等。
+中央气象台预计，今天，西藏中西部、新疆南疆高海拔山区、青海东部和南部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；东北地区中东部、陕西中南部、河北南部、山东中北部、重庆东北部、江汉大部、贵州中东部、湖南中北部、广西北部、西藏东南部等地部分地区有中到大雨，其中，湖北中部、湖南西部和北部、贵州中部等地部分地区有暴雨。
 
-这些人均是对亚洲乃至世界人民犯下滔天罪行的重要战争责任者。
+明天，西藏中部、青海大部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；湖北东部、安徽南部、江南大部、广西中东部、广东中北部等地部分地区有中到大雨，其中，湖南南部、江西东北部、浙江西南部、福建西北部、广东中北部等地部分地区有暴雨。
 
-靖国神社问题的实质是日本能否正确认识和深刻反省军国主义侵略历史，能否汲取历史教训，避免重蹈历史覆辙。
+后天，西藏东北部、青海南部和东部、甘肃西南部、川西高原北部等地部分地区有小到中雪或雨夹雪，局地有大雪；福建东南部、广东南部、广西东南部、海南岛北部、台湾岛东部、云南南部等地部分地区有中到大雨，其中，广东西南部和东北部等地部分地区有暴雨。
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [金针菇概念股，净利润大增超7000%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
-- 2026-06-29 12:50 - [方邦股份4月21日龙虎榜数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:37 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
-- 2026-06-29 12:54 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 12:50 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 12:50 - [旷日持久的冲突或将对铜价构成压力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:56 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:51 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:39 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-29 12:55 - [强降雨致漓江排筏全线封航 桂林海事部门筑牢水上安全防线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:05 - [在洪安边城寻找“翠翠”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:51 - [滴滴成为香港引进办重点企业，两地乘客可顺畅使用同一个App](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:49 - [联合健康预警：Medicare肥胖药物项目面临“挑战”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:42 - [特朗普威胁伊朗不要向美国船开火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:55 - [广东建成内地规模最大欧标充电服务网络](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:49 - [AI、国防与气候：重塑全球增长格局的三大支柱](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:57 - [全球政府债券延续涨势 受美伊进展报道影响](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
+- 2026-06-29 12:54 - [重庆市酉阳县委书记杨通胜接受审查调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-29 12:46 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-29 13:01 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 12:46 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhimei.md)
+- 2026-06-29 12:51 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 13:09 - [美伊停火暂时维持 华尔街股市强劲反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 13:00 - [中东冲突致项目延迟 Aviat Networks股价暴跌逾33%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:53 - [英皇群星演唱会香港开唱勾起观众青春回忆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [耀才证券金融盘中涨超9% 正式进入港股通名单](http://www.share.minike.top/Article/details/8014065.shtml)
-- 2026-06-29 13:00 - [黄金遭遇一个月来最大跌幅，多头式微但支撑犹在](http://www.blog.minike.top/Article/details/923014.shtml)
-- 2026-06-29 12:49 - [百利天恒4月21日大宗交易成交354.40万元](http://www.share.kurohicncr.top/Article/details/3520438144.shtml)
-- 2026-06-29 12:38 - [贵阳银行：2025年实现营业收入129.99亿元，同比下降12.94%](http://www.share.kurohicncr.top/Article/details/8347345074.shtml)
-- 2026-06-29 13:00 - [韩正集体会见出席全球共享发展行动论坛第三届高级别会议外方代表](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:59 - [日本原则上将允许杀伤性武器对外出口，外交部：严重关切](http://www.blog.kurohicncr.top/Article/details/79112117867.shtml)
-- 2026-06-29 12:40 - [光大期货：4月21日能源化工日报](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [必和必拓第三财季铁矿石产量增长3%，维持全年产量预期不变](http://www.blog.kurohicncr.top/Article/details/37088989832.shtml)
-- 2026-06-29 12:48 - [沈阳都市圈汇聚创新力量 集中展示区域高价值专利成果](http://www.blog.kurohicncr.top/Article/details/050769.shtml)
-- 2026-06-29 12:37 - [长春都市圈打造农产品精深加工集群 锚定千亿元级](http://www.blog.kurohicncr.top/Article/details/1720754191.shtml)
-- 2026-06-29 12:58 - [在第57个世界地球日，“最美自然守护者”讲述绿色发展故事](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [【公告精选】600382，去年业绩大增超3200%！拟10派2.13元！](http://www.blog.minike.top/Article/details/495109937728.shtml)
-- 2026-06-29 12:46 - [检察机关依法分别对谢红心、王成兵、崔孝栓、黎敦满提起公诉](http://www.share.kurohicncr.top/Article/details/363746385.shtml)
-- 2026-06-29 12:48 - [日本通过内阁决议正式允许出口杀伤性武器](http://www.share.minike.top/Article/details/43820928.shtml)
-- 2026-06-29 13:03 - [这种清凉主食热量低，减肥可吃！但这几点要注意](http://www.share.minike.top/Article/details/50756648262.shtml)
+- 2026-06-29 12:47 - [宝马一季度利润降25%，关税与中国竞争拖累业绩](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [湖南浏阳烟花厂爆炸事故已致26人死亡 61人受伤](http://www.share.minike.top/Article/details/718186417.shtml)
+- 2026-06-29 13:03 - [世界杯：美国部分主办城市天价交通费引众怒，纽约至球场火车票价暴涨超10倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [紫元元公布于5月7日上午起短暂停牌](http://www.share.minike.top/Article/details/56438.shtml)
+- 2026-06-29 12:52 - [今天全国铁路预计发送旅客2300万人次](http://www.share.minike.top/Article/details/15491005309.shtml)
+- 2026-06-29 13:02 - [媒体：两艘美国驱逐舰避开伊朗密集袭击后穿越霍尔木兹海峡](http://www.share.minike.top/Article/details/1915407066.shtml)
+- 2026-06-29 12:53 - [“五一”假期浙江口岸出入境人员超10万人次](http://www.blog.minike.top/Article/details/819364.shtml)
+- 2026-06-29 12:50 - [可孚医疗明日上市：暗盘表现平淡 市值95亿港元 蓝思科技加持](http://www.share.minike.top/Article/details/08003.shtml)
+- 2026-06-29 13:10 - [美联储官员古尔斯比就通胀和消费者行为发出谨慎信号](http://www.share.kurohicncr.top/Article/details/13790444.shtml)
+- 2026-06-29 13:10 - [多家出版商起诉Meta指控其盗用版权作品训练人工智能](http://www.share.kurohicncr.top/Article/details/23571146.shtml)
+- 2026-06-29 12:46 - [金威医疗获Energy Minerals (H.K.) United Co. Limited增持约1.13亿股 每股作价0.086港元](http://www.share.minike.top/Article/details/85005960.shtml)
+- 2026-06-29 13:02 - [发动机巨头摇身一变AI新贵：康明斯发电业务成增长引擎](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:48 - [93.59万人次“五一”打卡太原文博 门票收入破千万](http://www.blog.kurohicncr.top/Article/details/352537990.shtml)
+- 2026-06-29 13:09 - [追光的你｜明天的中国，希望寄予青年](http://www.share.kurohicncr.top/Article/details/21134191.shtml)
+- 2026-06-29 12:55 - [阿根廷将在涉疫邮轮出发地开展啮齿动物捕捉与检测工作](http://www.share.kurohicncr.top/Article/details/7190719.shtml)

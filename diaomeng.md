@@ -1,55 +1,57 @@
-# 华沿机器人午前涨超20% 近日与卓世科技签署合作协议
+# 海通国际首席经济学家张忆东香江策论2026年夏季策略报告：夏日寒风 方显英雄本色
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-华沿机器人（01021）早盘涨超23%，高见23.92港元，股价创上市新高。截至发稿，股价上涨20.37%，现报23.34港元，成交额1.026亿港元。 近日，卓世科技与华沿机器人签署合作协议。双方将依托各自在具身智能技术研发、协作机器人硬件制造与场景落地领域的核心优势，围绕具身智能机器人的技术融合、产品研发、场景落地与市场推广开展深度合作，携手推动协作机器人产业向自主化、智能
+报告摘要 第一部分：海外流动性全景分析——美联储政策摇摆，温水煮青蛙；香港资金面偏松，解禁或扰动 ——美联储政策分歧和博弈加剧，短期激进降息派（特朗普派）的主导性不足，夏季市场波动加大。 ——下半年仍有可能超预期降息及背后的深层逻辑。从基本面角度，美联储下半年仍有望降息1-2次，实际降息空间要看油价和特朗普举措；从政治经济学角度，美国中期选举影响下，一旦美联储的鹰派导致美股夏季
 
 ## 正文
 
-华沿机器人（01021）早盘涨超23%，高见23.92港元，股价创上市新高。
+报告摘要 第一部分：海外流动性全景分析——美联储政策摇摆，温水煮青蛙；香港资金面偏松，解禁或扰动 ——美联储政策分歧和博弈加剧，短期激进降息派（特朗普派）的主导性不足，夏季市场波动加大。
 
-截至发稿，股价上涨20.37%，现报23.34港元，成交额1.026亿港元。
+——下半年仍有可能超预期降息及背后的深层逻辑。
 
-近日，卓世科技与华沿机器人签署合作协议。
+从基本面角度，美联储下半年仍有望降息1-2次，实际降息空间要看油价和特朗普举措；从政治经济学角度，美国中期选举影响下，一旦美联储的鹰派导致美股夏季出现大幅波动，那么，2026年三季度美联储的货币政策反而有望提前出现“预防式降息”。
 
-双方将依托各自在具身智能技术研发、协作机器人硬件制造与场景落地领域的核心优势，围绕具身智能机器人的技术融合、产品研发、场景落地与市场推广开展深度合作，携手推动协作机器人产业向自主化、智能化、柔性化升级，为智能制造行业发展注入全新动能。
+——美债：10年期美债收益率二季度大概率在4.0%以上高位震荡，不排除超预期向上，但是四季度仍有望向下突破4%。
 
-卓世科技作为国内行业大模型头部科技创新企业，拥有行业领先的大模型与具身智能核心技术。
+——美元：短期相对强势的波折与中期走弱的趋势。
 
-其自主研发的具身智能大脑Tri-Core构建了集成直觉、逻辑、共情的“三核协同”解决方案，在具身行业权威基准测试SimplerEnv和LIBERO中均取得SOTA水平，能够为机器人提供多模态感知理解、自主任务规划、自然语言交互、自适应决策推理等全栈AI能力，可有效赋能机器人实现复杂工业场景的智能感知、自主学习与柔性作业。
+二季度美元指数预计在98-102区间维持相对强势，主因美国经济相对强于欧洲与日本，中东油价高位支撑。
 
-责任编辑：卢昱君
+中期（6-12个月）美元走弱是大概率事件，人民币震荡升值趋势不变。
+
+——香港资金面：宏观资金面维持温和宽松，但微观资金面6-7月港股解禁高峰将带来流动性扰动。
 
 ## 相关推荐
 
-- 2026-06-29 12:43 - [“荣归50”“红鹰”！运-20B、歼-20用特殊呼号唤英烈回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:56 - [首席记者谈首季经济丨“大码头”的经济密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-29 12:37 - [印度马恒达科技第四季度营收超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 12:55 - [外交部：所谓中国“窃取”知识产权完全是子虚乌有](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 13:04 - [冷藏柜里的高温杀菌乳到底是不是“假牛奶”？记者调查](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 12:55 - [华能蒙电：一季度归母净利润6.94亿元，同比下滑24.63%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:41 - [香港教大与清华大学合办教育主题论坛 推动AI与教育创新深度融合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:52 - [中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 12:49 - [百事转单嘉士伯，Royal Unibrew股价暴跌逾26%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:54 - [交易员：印度央行可能卖出美元以遏制卢比跌势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
-- 2026-06-29 12:42 - [“水立方”再迎跳水世界杯总决赛 中国队以老带新、满额参赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 12:53 - [浙江杭州杭钢工业遗存璀璨夜景吸引民众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 12:44 - [大国之大利天下——2026年春季中国元首外交纪事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:55 - [化工ETF华宝（516020）化工板块突发跳水，华宝基金化工ETF（516020）跌超3%！新一轮化工配置行情或正在靠近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
+- 2026-06-29 12:47 - [盘前：纳指期货涨0.8% 油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
+- 2026-06-29 13:03 - [原油：脆弱停火得以维持 油价下跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-29 12:49 - [粤港湾控股午后涨幅扩大逾23% 公司受益AI产业高增长红利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
+- 2026-06-29 13:06 - [NTSB与FAA联合调查美联航飞波音767碰撞事故](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengmin.md)
+- 2026-06-29 12:55 - [日本干预预期与日银鹰派立场支撑日元，美元兑日元受压徘徊156关口附近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:57 - [马斯克就推特持股披露案与SEC达成和解 支付150万美元罚款](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-29 12:48 - [山城夜色引客来 重庆夜间经济点亮“五一”假期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
+- 2026-06-29 13:08 - [7个项目停6个？部分城市“智慧城市”项目为啥“投入即浪费”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:36 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](http://www.blog.kurohicncr.top/Article/details/39674303226.shtml)
-- 2026-06-29 13:00 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](http://www.blog.kurohicncr.top/Article/details/592934573.shtml)
-- 2026-06-29 12:56 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](http://www.share.kurohicncr.top/Article/details/636531658478.shtml)
-- 2026-06-29 13:02 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](http://www.share.kurohicncr.top/Article/details/5798172.shtml)
-- 2026-06-29 13:00 - [大摩：长和给予增持评级 目标价61港元](http://www.share.minike.top/Article/details/8835161.shtml)
-- 2026-06-29 12:47 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](http://www.share.minike.top/Article/details/188250.shtml)
-- 2026-06-29 12:42 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](http://www.share.minike.top/Article/details/249156403149.shtml)
-- 2026-06-29 13:05 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](http://www.blog.kurohicncr.top/Article/details/637344258.shtml)
-- 2026-06-29 12:56 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](http://www.share.kurohicncr.top/Article/details/85493259.shtml)
-- 2026-06-29 12:47 - [追忆侨领张素久：从容面对挑战 坚韧不拔](http://www.blog.kurohicncr.top/Article/details/25219804.shtml)
-- 2026-06-29 13:03 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.share.kurohicncr.top/Article/details/108126534651.shtml)
-- 2026-06-29 13:02 - [特朗普称最终将达成重大协议](http://www.share.minike.top/Article/details/212288.shtml)
-- 2026-06-29 13:04 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](http://www.share.kurohicncr.top/Article/details/3138151.shtml)
+- 2026-06-29 12:45 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:01 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:45 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](http://www.blog.minike.top/Article/details/641417830030.shtml)
+- 2026-06-29 13:05 - [心动公司于5月4日斥资761.31万港元回购12万股](http://www.blog.minike.top/Article/details/51918.shtml)
+- 2026-06-29 13:11 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](http://www.blog.kurohicncr.top/Article/details/29813985.shtml)
+- 2026-06-29 12:53 - [中国市场缘何被喻为“健身房”](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:43 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](http://www.blog.minike.top/Article/details/9134603038.shtml)
+- 2026-06-29 12:58 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](http://www.blog.minike.top/Article/details/24278787564.shtml)
+- 2026-06-29 12:43 - [空客计划2020年以来首次发债 应对供应链中断](http://www.share.kurohicncr.top/Article/details/01307273.shtml)
+- 2026-06-29 13:05 - [韩国称将确保每年从加拿大进口至多3300万桶原油](http://www.share.minike.top/Article/details/387223968.shtml)
+- 2026-06-29 13:07 - [营收成本攀升，Shopify下调第二季度盈利预期 股价大跌13.28%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](http://www.share.kurohicncr.top/Article/details/56522603.shtml)
+- 2026-06-29 12:48 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](http://www.blog.minike.top/Article/details/13289.shtml)
+- 2026-06-29 12:45 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](http://www.share.minike.top/Article/details/31395638.shtml)

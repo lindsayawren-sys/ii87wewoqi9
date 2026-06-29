@@ -1,61 +1,57 @@
-# 不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”
+# 智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新社北京4月22日电 (朱贺 黄欣欣)大陆发布十项促进两岸交流合作的政策措施，民进党当局要求大陆和所谓“台湾政府”展开协商。国务院台办发言人张晗22日在北京表示，民进党当局妄想在不承认“九二共识”的情况下恢复两岸协商对话，这“不可能得逞”。在22日举行的国台办例行新闻发布会上，张晗强调，这些惯用伎俩骗不了人，只会让他们越来越站在岛内主流民意的对立面。 近日，台湾商业总会邀集岛
+【今日头条】 国内token需求旺盛 算力供需缺口扩大 智通财经APP讯，东阳光（600673.SH）公告，近日，公司收到控股子公司东莞东阳光云智算科技有限公司与某企业A公司签署《算力服务采购框架合同》，合同预计总金额区间为人民币160亿元至190亿元（依据合同服务期限、服务器数量及每月服务价格等要素测算。含税，最终以实际结算为准）。 多家大厂和大模型厂商宣布涨价或者限购，算力
 
 ## 正文
 
-中新社北京4月22日电 (朱贺 黄欣欣)大陆发布十项促进两岸交流合作的政策措施，民进党当局要求大陆和所谓“台湾政府”展开协商。
+【今日头条】 国内token需求旺盛 算力供需缺口扩大 智通财经APP讯，东阳光（600673.SH）公告，近日，公司收到控股子公司东莞东阳光云智算科技有限公司与某企业A公司签署《算力服务采购框架合同》，合同预计总金额区间为人民币160亿元至190亿元（依据合同服务期限、服务器数量及每月服务价格等要素测算。
 
-国务院台办发言人张晗22日在北京表示，民进党当局妄想在不承认“九二共识”的情况下恢复两岸协商对话，这“不可能得逞”。
+含税，最终以实际结算为准）。
 
-在22日举行的国台办例行新闻发布会上，张晗强调，这些惯用伎俩骗不了人，只会让他们越来越站在岛内主流民意的对立面。
+多家大厂和大模型厂商宣布涨价或者限购，算力缺口较大。
 
-近日，台湾商业总会邀集岛内旅行、旅馆、食品等产业代表召开记者会，呼吁民进党当局不应将民生经济问题政治化。
+算力租赁和国产AI芯片将是主要供给方。
 
-张晗回应，台湾商总及相关产业界表达的心声，充分反映十项措施符合岛内产业复苏需求，有利于解决经济、民生痛点。
+算力租赁主要为客户提供优质高端算力。
 
-民进党当局还污蔑大陆发布十项措施是“企图以商逼政”。
+2026年Q1，算力租赁行业迎来了加单和涨价的“量变”；商业模式升级，token分成的“质变”。
 
-张晗进一步指，民进党当局对于大陆方面释出的善意诚意和出台的惠台利民政策措施，只会一味抹黑攻击，并借机进行政治操弄。
+算力租赁头部公司宏景科技、协创数据、盈峰环境和利通电子年报/一季报算力租赁业绩和订单已经体现。
 
-她呼吁，民进党当局应顺应民心所向和大势所趋，在促进两岸交流合作上转变态度。
+国海证券发布研报称，AI推理拐点已至，算力租赁进入量价齐升高景气周期，是当前AI产业链确定性较强的核心赛道，维持行业“推荐”评级。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
-- 2026-06-29 12:38 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:57 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:55 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
-- 2026-06-29 12:39 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 12:56 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 12:59 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 12:53 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
-- 2026-06-29 12:56 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaoliu.md)
-- 2026-06-29 13:03 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:46 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
-- 2026-06-29 12:59 - [日本首相高市早苗向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
-- 2026-06-29 12:45 - [三位华人女数学家获2026突破奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
-- 2026-06-29 12:53 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
-- 2026-06-29 12:42 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 13:05 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:51 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:07 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-29 13:03 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 12:55 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:47 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-29 13:06 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-29 12:50 - [南京银行：印建军担任业务总监的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:56 - [房产租赁毛利率下滑，汇通能源经营遇考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
+- 2026-06-29 12:56 - [美国陆军要求导弹制造商提升自家武器兼容性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-29 13:08 - [以共赢促共富 民企精准帮扶常态化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:47 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.blog.kurohicncr.top/Article/details/902390514.shtml)
-- 2026-06-29 12:59 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.share.minike.top/Article/details/521780708954.shtml)
-- 2026-06-29 12:45 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.blog.kurohicncr.top/Article/details/1212161.shtml)
-- 2026-06-29 13:04 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.blog.minike.top/Article/details/2450874056.shtml)
-- 2026-06-29 12:39 - [别瞧不起格林基金](http://www.blog.kurohicncr.top/Article/details/402803090964.shtml)
-- 2026-06-29 12:39 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:02 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.share.minike.top/Article/details/437235152.shtml)
-- 2026-06-29 12:42 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [全国首个全民阅读活动周！建行花样守护“城市书香”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](http://www.share.kurohicncr.top/Article/details/819005.shtml)
-- 2026-06-29 13:06 - [财政部今日在港发行155亿元人民币国债](http://www.share.minike.top/Article/details/6897898471.shtml)
-- 2026-06-29 12:44 - [印尼工商会主席：印尼与中国经济融合愈发重要](http://www.share.kurohicncr.top/Article/details/353964891.shtml)
-- 2026-06-29 12:59 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:05 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](http://www.blog.minike.top/Article/details/197582.shtml)
+- 2026-06-29 12:59 - [原油期货上涨 或因技术性反弹](http://www.blog.minike.top/Article/details/20993366304.shtml)
+- 2026-06-29 12:56 - [中东紧张局势冲击全球旅游业](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:02 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.share.kurohicncr.top/Article/details/6400437013.shtml)
+- 2026-06-29 12:56 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.blog.kurohicncr.top/Article/details/54269.shtml)
+- 2026-06-29 12:44 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.blog.minike.top/Article/details/7538034.shtml)
+- 2026-06-29 13:02 - [山东省枣庄市青檀学校：榴乡厚土育同心](http://www.blog.kurohicncr.top/Article/details/887110035673.shtml)
+- 2026-06-29 13:08 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.share.kurohicncr.top/Article/details/59470650412.shtml)
+- 2026-06-29 13:04 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](http://www.blog.kurohicncr.top/Article/details/441844.shtml)
+- 2026-06-29 13:11 - [成本压力持续传导 全球消费品企业竞相涨价](http://www.blog.kurohicncr.top/Article/details/20548.shtml)
+- 2026-06-29 13:04 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](http://www.share.kurohicncr.top/Article/details/5344629635.shtml)
+- 2026-06-29 13:06 - [穿越百年航海史 “时光邮轮”驶入吉林长春](http://www.blog.minike.top/Article/details/8614523185.shtml)
+- 2026-06-29 12:43 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](http://www.blog.kurohicncr.top/Article/details/435436525598.shtml)
+- 2026-06-29 12:52 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](http://www.blog.minike.top/Article/details/794782.shtml)
+- 2026-06-29 12:51 - [转型金融破局：货币政策如何发力？](http://www.blog.minike.top/Article/details/799621826.shtml)

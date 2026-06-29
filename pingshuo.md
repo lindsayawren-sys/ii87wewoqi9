@@ -1,57 +1,60 @@
-# 辽宁省开展第57个世界地球日主题宣传活动
+# 尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网大连4月22日电 (记者 杨毅)以“珍爱自然资源 守护美丽中国”为主题的辽宁省第57个世界地球日主题宣传活动，22日在大连金石滩国家旅游度假区正式启动。 本次活动由辽宁省自然资源厅主办，活动旨在全面提升全社会珍惜地球资源、保护生态环境、守护自然资源的责任意识。 仪式现场发布了辽宁省地球日活动周(4月20日至24日)重点活动清单，开启“1+N”全域联动体系。“1”即大连滨海
+中新社加德满都5月5日电 (记者 崔楠)尼泊尔媒体5日报道称，受进口商品最高零售价标注新规影响，尼泊尔南部比尔根杰海关清关工作已停滞约一周，超过1400辆货车滞留尼印边境附近。 尼政府近期要求进口商品在清关环节申报或标注最高零售价，并于4月28日起执行该规定。尼政府称，此举旨在规范进口商品价格、保护消费者权益，并遏制低报进口价格、入境后高价销售等行为。尼泊尔媒体称，该规定是尼新
 
 ## 正文
 
-中新网大连4月22日电 (记者 杨毅)以“珍爱自然资源 守护美丽中国”为主题的辽宁省第57个世界地球日主题宣传活动，22日在大连金石滩国家旅游度假区正式启动。
+中新社加德满都5月5日电 (记者 崔楠)尼泊尔媒体5日报道称，受进口商品最高零售价标注新规影响，尼泊尔南部比尔根杰海关清关工作已停滞约一周，超过1400辆货车滞留尼印边境附近。
 
-本次活动由辽宁省自然资源厅主办，活动旨在全面提升全社会珍惜地球资源、保护生态环境、守护自然资源的责任意识。
+尼政府近期要求进口商品在清关环节申报或标注最高零售价，并于4月28日起执行该规定。
 
-仪式现场发布了辽宁省地球日活动周(4月20日至24日)重点活动清单，开启“1+N”全域联动体系。
+尼政府称，此举旨在规范进口商品价格、保护消费者权益，并遏制低报进口价格、入境后高价销售等行为。
 
-“1”即大连滨海国家地质公园主会场启动仪式，“N”则涵盖全省多地、多场景的特色主题活动——从沈阳辽宁省古生物博物馆的专题科普，到阜新海州露天矿国家矿山公园的生态蝶变宣传；从东北大学矿物化石辨认挑战赛，到中国地质学会大连黄渤海岸海蚀地貌精品研学路线的实地探访；从大连市地质勘查院有限责任公司地质古生物陈列馆的对外开放，到“移动地质馆”校园巡展的科普浸润。
+尼泊尔媒体称，该规定是尼新政府近期推进治理改革、加强市场监管举措的一部分。
 
-启动仪式上，由辽宁省自然资源厅制作的《珍爱自然资源美丽辽宁》主题宣传片首次公开放映。
+该规定实施后，除石油产品、果蔬和工业原料外，多数进口商品清关受到影响。
 
-短片以震撼画面呈现辽宁省生态修复成果与全球生态现状，用朴实无华的话语引导市民游客从身边小事做起，珍爱自然资源、守护美丽中国，引发观众对环境保护的深刻思考。
+尼泊尔《共和报》报道称，部分进口商认为该规定“不切实际”。
 
-随后，辽宁省自然资源厅副厅长张达向全社会发出倡议，希望大家共同携手，将绿色发展理念根植辽沈大地，用心守护山河水土，为建设美丽辽宁、美丽中国作出更大贡献，并宣布辽宁省第57个世界地球日主题宣传活动正式启动。
+他们表示，一批货物往往包含数千件商品，逐一申报或贴标存在困难；部分散装货物也难以在边境口岸安全拆包贴标并重新包装。
 
-(完)
+比尔根杰海关办公室官员乌达亚·辛格·比斯塔(Udaya Singh Bista)表示，海关方面已准备办理清关手续，但由于进口商未配合完成相关申报程序，清关流程被迫暂停。
 
 ## 相关推荐
 
-- 2026-06-29 12:42 - [政府提前还债从省级延伸至地市，怎么看？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 12:44 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-29 12:40 - [上海着力打造首个“次元友好街区”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
-- 2026-06-29 12:38 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-29 12:53 - [两岸媒体赴桂林 “打卡”“广西三月三”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:04 - [哈萨克斯坦驻华大使点赞“China Travel”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 12:37 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:47 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailin.md)
-- 2026-06-29 12:56 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-29 12:41 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 13:01 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
+- 2026-06-29 13:09 - [金建希股价操纵案法官遗书内容公布](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-29 12:54 - [优步CEO谈Q1业绩：我们着眼于长期布局](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 12:52 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
+- 2026-06-29 12:42 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 12:49 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 12:58 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-29 13:03 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:45 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:44 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-29 12:55 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 12:42 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:47 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 13:08 - [中国市场缘何被喻为“健身房”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-29 12:55 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:49 - [不承认“九二共识”妄想恢复两岸协商？国台办：这“不可能得逞”](http://www.share.minike.top/Article/details/1442703.shtml)
-- 2026-06-29 12:51 - [货拉拉亮相第十六届交博会：以AI技术筑牢道路安全防线](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [理财规模季末回落超万亿，全年增速或放缓](http://www.blog.minike.top/Article/details/44640.shtml)
-- 2026-06-29 12:37 - [赣锋锂业遭Baillie Gifford & Co减持18.08万股 每股作价约82.62港元](http://www.blog.minike.top/Article/details/958809988.shtml)
-- 2026-06-29 12:38 - [科技视角解读瓷器文明 中国瓷器科技史特展长春启幕](http://www.share.kurohicncr.top/Article/details/8689801102.shtml)
-- 2026-06-29 12:39 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](http://www.share.minike.top/Article/details/724274891.shtml)
-- 2026-06-29 12:47 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.share.kurohicncr.top/Article/details/5242730973.shtml)
-- 2026-06-29 12:53 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.blog.kurohicncr.top/Article/details/4840505920.shtml)
-- 2026-06-29 12:58 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:43 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [人民币兑美元中间价报6.8594，上调54点](http://www.share.minike.top/Article/details/8606652.shtml)
-- 2026-06-29 13:03 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.share.kurohicncr.top/Article/details/4518767.shtml)
-- 2026-06-29 12:38 - [沃什如何推动美联储实现“政策范式转变”](http://www.share.kurohicncr.top/Article/details/9882264.shtml)
-- 2026-06-29 12:54 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](http://www.blog.minike.top/Article/details/58140827.shtml)
+- 2026-06-29 13:05 - [智通港股早知道 | 国内token需求旺盛缺口扩大 30年期美债冲破5%](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [酒价内参5月7日价格发布：古井贡古20下跌7元/瓶](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [返程路上需注意 切勿“脱眼脱手”过分依赖辅助驾驶](http://www.blog.minike.top/Article/details/81814190688.shtml)
+- 2026-06-29 12:51 - [“五一”假期核心城市楼市升温：京深二手房交易同比大增](http://www.blog.minike.top/Article/details/511950.shtml)
+- 2026-06-29 12:50 - [聚水潭于5月6日斥资303.14万港元回购19.35万股](http://www.blog.kurohicncr.top/Article/details/17760.shtml)
+- 2026-06-29 13:04 - [酒价内参5月6日价格发布：古井贡古20上涨2元](http://www.blog.kurohicncr.top/Article/details/201040.shtml)
+- 2026-06-29 12:44 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:08 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](http://www.blog.minike.top/Article/details/919332313.shtml)
+- 2026-06-29 12:45 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:04 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [CVS业绩亮眼 助力医保行业整体向好](http://www.share.minike.top/Article/details/4642582449.shtml)
+- 2026-06-29 12:50 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](http://www.blog.kurohicncr.top/Article/details/831549.shtml)
+- 2026-06-29 13:05 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](http://www.blog.minike.top/Article/details/761484783.shtml)
+- 2026-06-29 12:54 - [南京银行：印建军担任业务总监的任职资格获监管核准](http://www.share.kurohicncr.top/Article/details/207154197004.shtml)

@@ -1,58 +1,57 @@
-# 杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元
+# 酒价内参5月6日价格发布：古井贡古20上涨2元
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-杰夫·贝索斯正接近从其实验室的投资者那里完成一轮100亿美元的融资，该实验室估值达380亿美元。该实验室专注于能够理解物理世界并改变工程与制造业的人工智能。 据知情人士透露，这家代号为“普罗米修斯计划”（Project Prometheus）的公司，计划即将完成一轮融资，包括新资金在内的估值为380亿美元。 这些人士补充说，这笔交易将使该公司成为全球资金最充足的早期初创公司之一
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。 今日白酒市场11大单品六涨五跌，赢家略占上风。上
 
 ## 正文
 
-杰夫·贝索斯正接近从其实验室的投资者那里完成一轮100亿美元的融资，该实验室估值达380亿美元。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在5月6日整体温和回升。
 
-该实验室专注于能够理解物理世界并改变工程与制造业的人工智能。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9952元，较昨日上涨7元，升至近三天高位。
 
-据知情人士透露，这家代号为“普罗米修斯计划”（Project Prometheus）的公司，计划即将完成一轮融资，包括新资金在内的估值为380亿美元。
+市场在止跌后连续两日回暖，终端交投情绪小幅改善，核心单品涨跌分化依然显著。
 
-这些人士补充说，这笔交易将使该公司成为全球资金最充足的早期初创公司之一。
+今日白酒市场11大单品六涨五跌，赢家略占上风。
 
-该交易包括去年11月筹集的62亿美元首轮资金，但由于需求旺盛而进行了扩展。
+上涨方面，青花郎涨幅居前，上涨6元/瓶，价格创下20余日以来新高；习酒君品上涨5元/瓶；国窖1573上涨4元/瓶，重返900元大关以上；水晶剑南春上涨3元/瓶；古井贡古20上涨2元/瓶，逼近一个月来最高纪录；洋河梦之蓝M6+上涨1元/瓶。
 
-贝索斯是初始投资者之一。
+下跌方面，青花汾20与精品茅台均下跌5元/瓶；飞天茅台下跌2元/瓶；五粮液普五八代与五粮液1618均小幅下跌1元/瓶。
 
-这位亚马逊创始人的AI venture标志着自他2021年卸任这家电商巨头首席执行官以来，首次担任运营角色。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
-这轮新融资与Prometheus同时正在筹资数百亿美元的一家控股公司是分开的。
+随着元旦官方i茅台平台开售1499元/瓶的飞天茅台（3月31日上调至1539元/瓶），1月9日开售2299元/瓶的精品茅台，这一新渠道对两款产品终端零售均价的磁吸式影响力逐步显现。
 
 ## 相关推荐
 
-- 2026-06-29 12:44 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 12:47 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 12:47 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:53 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-29 12:48 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 13:02 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
-- 2026-06-29 12:54 - [日本首相高市早苗向靖国神社供奉“玉串料”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
-- 2026-06-29 12:39 - [三位华人女数学家获2026突破奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 13:03 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peijun.md)
-- 2026-06-29 12:55 - [临夏有约：“蓝色黄河”岸畔寻龙迹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
-- 2026-06-29 12:51 - [天弘基金高阳豪掷1771万入股，结构失衡下的利益捆绑疑云](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
-- 2026-06-29 12:50 - [封堵化肥管理漏洞，《肥料登记管理办法》加速修订](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-29 12:59 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:51 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 12:49 - [南京银行：印建军担任业务总监的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 13:03 - [房产租赁毛利率下滑，汇通能源经营遇考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/peizhan.md)
+- 2026-06-29 12:44 - [美国陆军要求导弹制造商提升自家武器兼容性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 12:50 - [以共赢促共富 民企精准帮扶常态化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 12:53 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 13:01 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-29 12:47 - [伊朗：尚未回应美国对伊方14点提议的看法](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 13:12 - [5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 13:00 - [生猪板块升温，期股共振释放什么信号？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:37 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:54 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:39 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](http://www.share.minike.top/Article/details/4842199467.shtml)
-- 2026-06-29 12:46 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](http://www.blog.kurohicncr.top/Article/details/77274106.shtml)
-- 2026-06-29 12:44 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.blog.minike.top/Article/details/188400.shtml)
-- 2026-06-29 12:44 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](http://www.blog.minike.top/Article/details/47842.shtml)
-- 2026-06-29 13:03 - [财政部今日在港发行155亿元人民币国债](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:56 - [印尼工商会主席：印尼与中国经济融合愈发重要](http://www.blog.kurohicncr.top/Article/details/69914381.shtml)
-- 2026-06-29 12:44 - [OpenAI正洽谈向一家私募股权合资企业最高投资15亿美元](http://www.blog.minike.top/Article/details/88137384610.shtml)
-- 2026-06-29 12:58 - [中国新闻社参评第36届中国新闻奖创意传播、新闻IP作品初评公示](http://www.blog.minike.top/Article/details/949221083047.shtml)
-- 2026-06-29 13:04 - [热血洒疆场忠魂归故乡 沈阳全城以最高礼遇迎接英雄回家](http://www.blog.minike.top/Article/details/2086895251.shtml)
-- 2026-06-29 13:01 - [感冒流感药品销售疲软 利洁时股价下跌5.9%](http://www.share.minike.top/Article/details/177221620.shtml)
-- 2026-06-29 12:43 - [连跌10周，猪价反弹了](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [华为正式发布智擎动力品牌！余承东：同样100度电 我们能比别人多跑50公里](http://www.share.minike.top/Article/details/8966294748.shtml)
-- 2026-06-29 12:53 - [财报季丨金融高管战略校准指南！利差筑底、结构重构，银行、保险趋势判断全景图](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:50 - [山东省枣庄市青檀学校：榴乡厚土育同心](http://www.blog.minike.top/Article/details/443049.shtml)
+- 2026-06-29 12:42 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.share.kurohicncr.top/Article/details/093183988209.shtml)
+- 2026-06-29 12:55 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](http://www.share.minike.top/Article/details/58737443436.shtml)
+- 2026-06-29 13:10 - [成本压力持续传导 全球消费品企业竞相涨价](http://www.blog.minike.top/Article/details/4404693.shtml)
+- 2026-06-29 12:45 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](http://www.share.kurohicncr.top/Article/details/52982345879.shtml)
+- 2026-06-29 13:00 - [穿越百年航海史 “时光邮轮”驶入吉林长春](http://www.share.minike.top/Article/details/87196466809.shtml)
+- 2026-06-29 12:50 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](http://www.blog.minike.top/Article/details/45689958691.shtml)
+- 2026-06-29 13:01 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](http://www.share.kurohicncr.top/Article/details/868959777629.shtml)
+- 2026-06-29 12:58 - [文旅观察：浙南海岛褪去“看海”标签 业态焕新引热潮](http://www.share.kurohicncr.top/Article/details/23231195596.shtml)
+- 2026-06-29 13:11 - [转型金融破局：货币政策如何发力？](http://www.blog.minike.top/Article/details/4478354706.shtml)
+- 2026-06-29 12:54 - [利好突袭，中概狂飙！港股互联网共振向上，百亿513770涨近2%，阿里巴巴涨超3%，机构：5月互联网赔率最高](http://www.share.kurohicncr.top/Article/details/708711217317.shtml)
+- 2026-06-29 12:48 - [燃油价格飙升，韩国4月通胀率创21个月新高](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:56 - [投资逾百亿港元 港莞共建大湾区可持续航空燃料产业链](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:46 - [Coinbase首席执行官称公司将裁员约14%](http://www.share.minike.top/Article/details/396451.shtml)
+- 2026-06-29 12:59 - [Anthropic“杀”进金融圈，联创称2028年底AI能自我进化](http://www.blog.minike.top/Article/details/66561.shtml)

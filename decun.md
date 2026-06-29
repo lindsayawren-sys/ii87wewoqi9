@@ -1,59 +1,57 @@
-# 中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明
+# 日本干预预期与日银鹰派立场支撑日元，美元兑日元受压徘徊156关口附近
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-新华社北京4月21日电中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明 （2026年4月21日，北京） 应中华人民共和国主席习近平邀请，莫桑比克共和国总统丹尼尔·弗朗西斯科·查波于2026年4月16日至22日对中华人民共和国进行国事访问。 访问期间，两国元首在亲切友好气氛中举行会谈，就新形势下中莫、中非关系以及共同关心的国际和地区问题深入交换意见。中华人民共
+汇通财经APP讯——美元兑日元（USD/JPY）周四亚洲早盘维持窄幅整理，汇价在前一交易日自155.00附近反弹后，目前交投于156.50附近，整体波动相对有限。 尽管美元兑日元此前一度自近期低点出现技术性反弹，但市场对于日本当局可能再次出手干预汇市的担忧，持续限制汇价上行空间，并推动日元维持相对强势。 日本财务省国际事务副大臣兼最高外汇事务官员三村淳再次释放口头干预信号，强调
 
 ## 正文
 
-新华社北京4月21日电中华人民共和国和莫桑比克共和国关于构建新时代中莫命运共同体的联合声明 （2026年4月21日，北京） 应中华人民共和国主席习近平邀请，莫桑比克共和国总统丹尼尔·弗朗西斯科·查波于2026年4月16日至22日对中华人民共和国进行国事访问。
+汇通财经APP讯——美元兑日元（USD/JPY）周四亚洲早盘维持窄幅整理，汇价在前一交易日自155.00附近反弹后，目前交投于156.50附近，整体波动相对有限。
 
-访问期间，两国元首在亲切友好气氛中举行会谈，就新形势下中莫、中非关系以及共同关心的国际和地区问题深入交换意见。
+尽管美元兑日元此前一度自近期低点出现技术性反弹，但市场对于日本当局可能再次出手干预汇市的担忧，持续限制汇价上行空间，并推动日元维持相对强势。
 
-中华人民共和国国务院总理李强、全国人民代表大会常务委员会委员长赵乐际分别同查波总统会见。
+日本财务省国际事务副大臣兼最高外汇事务官员三村淳再次释放口头干预信号，强调政府正在密切关注外汇市场走势。
 
-双方一致认为，中莫传统友谊深厚，历经国际风云变幻考验，历久弥坚。
+市场认为，日本官方对于日元快速贬值仍保持高度警惕。
 
-自1975年建交以来，特别是2016年两国建立全面战略合作伙伴关系以来，中莫政治互信持续巩固，务实合作成果丰硕，在国际事务中密切协调配合，成为中非友好和南南合作的典范。
+此前市场已有报道称，日本方面在美元兑日元突破160整数关口后，可能已经动用约5.48万亿日元（约350亿美元）入市买入日元，以稳定汇率波动。
 
-双方一致认为，世界百年变局加速演进，习近平主席提出的构建人类命运共同体、高质量共建“一带一路”、全球发展倡议、全球安全倡议、全球文明倡议和全球治理倡议等重大理念倡议正在显示出越来越强大的影响力、感召力。
+市场对于日本政府可能继续干预汇市的预期，正在成为支撑日元的重要因素。
 
-新形势下，中莫不断巩固和深化双边友好合作，符合两国人民共同期待，有助于推动国际秩序朝着更加公正合理的方向发展。
+与此同时，日本央行（BoJ）公布的3月18日至19日会议纪要也释放偏鹰派信号。
 
-为此，双方决定将双边关系提升为新时代中莫命运共同体。
+会议纪要显示，多位委员认为，如果经济与通胀前景符合预期，进一步加息仍然是合适的政策方向。
 
 ## 相关推荐
 
-- 2026-06-29 12:47 - [浙江杭叉控股获批持有温州民商银行9.9%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 13:04 - [江苏省数标委“标准周”活动在扬州启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
-- 2026-06-29 12:52 - [天银机电：公司与SpaceX及Strarlink均没有业务关系，没有直接或间接供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 12:39 - [上海浦东国际机场口岸单日入境外籍人员数创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:03 - [云南华宁聚焦民族团结 加快构建互嵌式社会结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:45 - [大国重器一起护送英烈回家！歼-20运-20B空中对话让人泪目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 13:03 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
-- 2026-06-29 12:40 - [直播海报：国新办就2026年一季度农业农村经济运行情况举行新闻发布会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 13:00 - [辽宁省委书记许昆林到大商所调研](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:53 - [民调：美国民众对经济悲观 认为国家正朝错误方向发展](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
-- 2026-06-29 12:56 - [远古植物如何挺过2.52亿年前大灭绝？中外科学家最新研究揭秘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 13:04 - [辽宁省开展第57个世界地球日主题宣传活动](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
-- 2026-06-29 12:49 - [中国长安朱华荣：汽车产业已进入淘汰赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-29 12:49 - [摩根大通牵头财团或因Qualtrics债务面临5亿美元损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-29 12:49 - [美国宣布对伊军事行动结束，分析担忧战事远未终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 12:54 - [万成集团股份复牌一度飙升91% 获执董钟国强折让约34.96%提全购要约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
+- 2026-06-29 12:51 - [锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
+- 2026-06-29 13:09 - [2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-29 12:44 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 12:44 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
+- 2026-06-29 12:44 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:07 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
+- 2026-06-29 12:59 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 12:57 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:41 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:52 - [全民阅读活动周 各地举办多场活动](http://www.share.kurohicncr.top/Article/details/438313041.shtml)
-- 2026-06-29 12:40 - [日本首相高市早苗向靖国神社献祭品](http://www.blog.minike.top/Article/details/141991925790.shtml)
-- 2026-06-29 13:01 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](http://www.blog.kurohicncr.top/Article/details/9855733607.shtml)
-- 2026-06-29 12:41 - [美国能源部长：汽油价格可能在一周前已经见顶](http://www.share.kurohicncr.top/Article/details/015501406.shtml)
-- 2026-06-29 12:36 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/901662816539.shtml)
-- 2026-06-29 12:42 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:36 - [国务院印发《关于推进服务业扩能提质的意见》](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:46 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.kurohicncr.top/Article/details/423427.shtml)
-- 2026-06-29 12:41 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:42 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:53 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.blog.kurohicncr.top/Article/details/642598930.shtml)
-- 2026-06-29 12:59 - [高市早苗连续“祭鬼”，80秒揭穿靖国神社真面目！丨真相](http://www.blog.kurohicncr.top/Article/details/0760377484.shtml)
-- 2026-06-29 12:40 - [挪威三月油气产量超预期](http://www.share.kurohicncr.top/Article/details/699597787.shtml)
-- 2026-06-29 12:37 - [博时市场点评4月21日：两市震荡反弹，创业板涨0.31%](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](http://www.share.kurohicncr.top/Article/details/002165633840.shtml)
+- 2026-06-29 12:54 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](http://www.share.minike.top/Article/details/0634606186.shtml)
+- 2026-06-29 12:58 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](http://www.share.kurohicncr.top/Article/details/015639634.shtml)
+- 2026-06-29 13:07 - [年轻人假期热衷贵阳“寻咖”](http://www.share.minike.top/Article/details/854654038.shtml)
+- 2026-06-29 12:46 - [富通科技公布于5月6日下午起复牌](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](http://www.blog.minike.top/Article/details/983889.shtml)
+- 2026-06-29 12:50 - [追光的你｜青春的颜色](http://www.share.minike.top/Article/details/8952108.shtml)
+- 2026-06-29 13:01 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](http://www.share.minike.top/Article/details/842134282.shtml)
+- 2026-06-29 12:47 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.blog.kurohicncr.top/Article/details/854641.shtml)
+- 2026-06-29 12:51 - [特朗普称将暂停自由计划“一小段时间”](http://www.share.minike.top/Article/details/700882471816.shtml)
+- 2026-06-29 12:55 - [黄金迎来战略性建仓良机？顶级策略师警告：别再观望，立即建立3%至8%的头寸](http://www.share.kurohicncr.top/Article/details/048942.shtml)
+- 2026-06-29 13:05 - [青春之喻，奋斗之帆](http://www.share.minike.top/Article/details/267817855.shtml)
+- 2026-06-29 12:48 - [首席记者谈首季经济｜从甘肃的“新”劲儿，感悟中国经济的“活”劲儿](http://www.blog.minike.top/Article/details/66714163.shtml)

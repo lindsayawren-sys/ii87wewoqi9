@@ -1,56 +1,61 @@
-# 冷藏柜里的高温杀菌乳到底是不是“假牛奶”？记者调查
+# 原油：脆弱停火得以维持 油价下跌
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-最近，“高温杀菌乳是不是鲜牛奶”这一话题引发关注。高温杀菌乳和鲜牛奶到底是什么关系？高温杀菌乳和巴氏杀菌乳又有什么区别？为了厘清这些概念，记者做了一番调查。 是否“鲜牛奶”，包装会注明 其实，“鲜奶”是一个很口语化的表述。很多消费者将冷藏存储的牛奶称为“鲜奶”，但在乳制品国家标准中，并没有“鲜奶”一词，只有“鲜牛乳(奶)”一词，专指巴氏杀菌乳。也就是说，“是否冷藏”不是判断产品
+由于中东停火得以维持，油价周二下跌。此前一天，霍尔木兹海峡发生冲突以及阿联酋遭到袭击引发油价跳涨。 布伦特原油下跌4%，收于每桶110美元下方，几乎抹去了周一的全部涨幅。随着不确定性和波动性加剧之际资金转向观望，作为全球基准的布伦特原油的未平仓合约降至8月份以来最低水平。 截至收盘 6月WTI原油下跌3.9%，结算价为每桶102.27美元 7月布伦特原油下跌4%，结算价每桶10
 
 ## 正文
 
-最近，“高温杀菌乳是不是鲜牛奶”这一话题引发关注。
+由于中东停火得以维持，油价周二下跌。
 
-高温杀菌乳和鲜牛奶到底是什么关系？
+此前一天，霍尔木兹海峡发生冲突以及阿联酋遭到袭击引发油价跳涨。
 
-高温杀菌乳和巴氏杀菌乳又有什么区别？
+布伦特原油下跌4%，收于每桶110美元下方，几乎抹去了周一的全部涨幅。
 
-为了厘清这些概念，记者做了一番调查。
+随着不确定性和波动性加剧之际资金转向观望，作为全球基准的布伦特原油的未平仓合约降至8月份以来最低水平。
 
-是否“鲜牛奶”，包装会注明 其实，“鲜奶”是一个很口语化的表述。
+截至收盘 6月WTI原油下跌3.9%，结算价为每桶102.27美元 7月布伦特原油下跌4%，结算价每桶109.87美元 油价下滑得益于美国淡化了与伊朗恢复全面战争的可能性。
 
-很多消费者将冷藏存储的牛奶称为“鲜奶”，但在乳制品国家标准中，并没有“鲜奶”一词，只有“鲜牛乳(奶)”一词，专指巴氏杀菌乳。
+此前，霍尔木兹海峡发生涉及船只的冲突，阿联酋也遭到袭击，包括富查伊拉港的一处石油码头遇袭。
 
-也就是说，“是否冷藏”不是判断产品是否为“鲜牛乳(奶)”的标准，“鲜牛乳(奶)”的依据是杀菌工艺和产品标注。
+美国参谋长联席会议主席丹·凯恩将军周二对记者表示，由于与伊朗的冲突，目前有超过1550艘商船和约2.2万名海员被困在波斯湾。
 
-据农业农村部食物与营养发展研究所相关文章介绍，市场常见的液态奶可分为鲜牛奶(巴氏杀菌乳)、高温杀菌乳、超高温灭菌奶、调制乳和酸奶。
+伊朗和美国对霍尔木兹海峡的封锁已导致史上最大规模供应中断，并推动油价飙升。
 
 ## 相关推荐
 
-- 2026-06-29 12:57 - [建滔积层板午前涨超5% PCB价值量持续跃升公司近期发布涨价函](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
-- 2026-06-29 12:46 - [探秘嘉峪关驼绒画：骆驼绒毛作画打造真材山水画](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
-- 2026-06-29 12:48 - [酒价内参4月21日价格发布：青花汾20保持不变](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 12:58 - [浙江杭叉控股获批持有温州民商银行9.9%股份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-29 12:39 - [江苏省数标委“标准周”活动在扬州启幕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 12:38 - [天银机电：公司与SpaceX及Strarlink均没有业务关系，没有直接或间接供货](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:02 - [上海浦东国际机场口岸单日入境外籍人员数创历史新高](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-29 12:52 - [云南华宁聚焦民族团结 加快构建互嵌式社会结构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-29 13:06 - [大国重器一起护送英烈回家！歼-20运-20B空中对话让人泪目](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-29 12:47 - [大陆发展快 台湾创意引过来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
+- 2026-06-29 12:51 - [假日经济观察：流量变“留量” 浙江湖州千年农遗焕新记](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-29 13:09 - [中国海外发展早盘涨超5% 花旗现予目标价14.20港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
+- 2026-06-29 13:09 - [霍尔木兹海峡激战升级，美军打击伊朗快艇，阿联酋遭袭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 12:49 - [摩根大通牵头财团或因Qualtrics债务面临5亿美元损失](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
+- 2026-06-29 12:59 - [美国宣布对伊军事行动结束，分析担忧战事远未终结](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guaxun.md)
+- 2026-06-29 12:59 - [万成集团股份复牌一度飙升91% 获执董钟国强折让约34.96%提全购要约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
+- 2026-06-29 12:48 - [锦欣生殖前4个月不孕初诊数同比增长7.5% 取卵周期数同比增长5.2%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 12:49 - [2026年“香港高考”收官：逾5.85万考生报考 内地试点考场持续优化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:49 - [苹果因Mac需求强劲面临供应压力 旺盛需求超出芯片供应能力](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
+- 2026-06-29 13:07 - [维格维口服减肥药销量大幅超预期，诺和诺德股价大涨7%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
+- 2026-06-29 13:00 - [AMD股价创新高，AI需求乐观情绪引爆全球芯片股涨势](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:49 - [外媒：伊朗已启动霍尔木兹海峡通行管理新机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-29 13:11 - [潍柴动力午后涨逾4%再创新高 小摩维持“增持”评级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buguan.md)
+- 2026-06-29 12:49 - [“五一”假期江苏接待国内游客3758.98万人次](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
+- 2026-06-29 13:06 - [尼泊尔重要陆路口岸清关停滞 超1400辆货车滞留](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:02 - [追忆侨领张素久：从容面对挑战 坚韧不拔](http://www.blog.kurohicncr.top/Article/details/67295355.shtml)
-- 2026-06-29 12:44 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](http://www.blog.kurohicncr.top/Article/details/2714645.shtml)
-- 2026-06-29 12:57 - [特朗普称最终将达成重大协议](http://www.share.kurohicncr.top/Article/details/056613.shtml)
-- 2026-06-29 13:02 - [向优、向新、向绿——江苏制造业企业高质量发展一线微观察](http://www.blog.minike.top/Article/details/2176757254.shtml)
-- 2026-06-29 12:53 - [全民阅读活动周 各地举办多场活动](http://www.share.minike.top/Article/details/658311375.shtml)
-- 2026-06-29 12:45 - [日本首相高市早苗向靖国神社献祭品](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:45 - [经济大省调研行｜消费新动能：看“体验经济”如何创造“沉浸式快乐”](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:47 - [美国能源部长：汽油价格可能在一周前已经见顶](http://www.share.minike.top/Article/details/06313982.shtml)
-- 2026-06-29 12:57 - [券商一季报密集预喜，资金借势抢跑，顶流券商ETF华宝（512000）连续5日吸金近2亿元](http://www.blog.minike.top/Article/details/694732.shtml)
-- 2026-06-29 12:49 - [粤乡绘新卷：让“美丽生态”激活“美丽经济”](http://www.share.minike.top/Article/details/047441454667.shtml)
-- 2026-06-29 12:46 - [国务院印发《关于推进服务业扩能提质的意见》](http://www.share.kurohicncr.top/Article/details/5036983520.shtml)
-- 2026-06-29 13:04 - [东西问丨才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](http://www.share.kurohicncr.top/Article/details/919143501179.shtml)
-- 2026-06-29 13:01 - [日媒批高市政府为武器出口“松绑”：一意孤行 正在重蹈历史覆辙](http://www.blog.kurohicncr.top/Article/details/6754870.shtml)
-- 2026-06-29 12:44 - [陕西发现一座十六国时期最高等级墓葬 其土雕藻井系首次发现](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [现货市场情绪趋于谨慎 沥青装置开工负荷率低位运行](http://www.share.minike.top/Article/details/56920212.shtml)
+- 2026-06-29 13:06 - [AMD CEO苏姿丰：智能体正引爆人工智能周期巨大需求](http://www.blog.kurohicncr.top/Article/details/723581983049.shtml)
+- 2026-06-29 12:57 - [唯一！连续19年不良率低于1%，宁波银行凭什么被大摩列为“中国核心资产”？](http://www.share.minike.top/Article/details/27526205365.shtml)
+- 2026-06-29 12:47 - [假期最后一天铁路迎返京高峰 受大风影响部分列车晚点](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:59 - [万豪国际：美国旅客选择自驾以避开不断上涨的机票价格](http://www.share.kurohicncr.top/Article/details/02308194746.shtml)
+- 2026-06-29 13:02 - [酒价内参5月7日价格发布：国窖1573上涨3元/瓶](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:05 - [一场爱心接力暖陕鄂 8000余斤苹果19小时售空](http://www.blog.kurohicncr.top/Article/details/34878911.shtml)
+- 2026-06-29 12:47 - [年轻人假期热衷贵阳“寻咖”](http://www.share.minike.top/Article/details/64651351132.shtml)
+- 2026-06-29 13:00 - [富通科技公布于5月6日下午起复牌](http://www.blog.minike.top/Article/details/163505784524.shtml)
+- 2026-06-29 12:52 - [环球华商俱乐部发盈喜 预计年度股东应占综合溢利同比增加约六至九倍](http://www.blog.kurohicncr.top/Article/details/031306703.shtml)
+- 2026-06-29 12:46 - [欧盟经济事务专员Dombrovskis：欧洲正面临滞胀冲击](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [追光的你｜青春的颜色](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:00 - [科蓝软件、S佳通遭证监会立案 投资者或可索赔](http://www.blog.minike.top/Article/details/3494381.shtml)
+- 2026-06-29 12:47 - [东方古镇遇见西方质朴戏剧 跨文化交流如何发生？](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:07 - [银华基金《图说基金》系列栏目：“一图一主题、多图成体系” 匹配个人投资者从入门到进阶全周期学习需求](http://www.share.minike.top/Article/details/737814241582.shtml)
+- 2026-06-29 13:08 - [特朗普称将暂停自由计划“一小段时间”](http://www.share.kurohicncr.top/Article/details/149417037.shtml)

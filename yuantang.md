@@ -1,56 +1,56 @@
-# 通用汽车据悉无限期推迟下一代电动皮卡项目
+# 汪阳：跨越大半个世纪，他们在故乡聚首长眠
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-据知情人士称，通用汽车无限期推迟了其下一代全尺寸电动皮卡项目，其中包括GMC Sierra和雪佛兰Silverado，该项目原定于 2028 年启动。 消息人士称，通用汽车原本计划推出成本更低的Sierra、Silverado、Escalade IQ和 Hummer SUV及皮卡的全新电动版本，但供应商最近被告知该计划已暂停，且尚未发布新的时间表。 通用汽车在底特律的零号工厂生
+中新网北京5月5日电 题：汪阳：跨越大半个世纪，他们在故乡聚首长眠 中新网记者 徐文欣 “我的祖父汪正坤，曾在中央陆军军官学校高等教育班学习，在湖南怀化解放时，他率部投诚。他的大儿子汪定炳，是新四军的敌工股长，在抗日战争中壮烈牺牲；他的女儿汪舜华和小儿子汪杰未成年便参加志愿军，雄赳赳，气昂昂，跨过鸭绿江……我的父亲汪定国是家中老二，因读书成绩优异，决定继续学业，他牢记大哥汪定炳
 
 ## 正文
 
-据知情人士称，通用汽车无限期推迟了其下一代全尺寸电动皮卡项目，其中包括GMC Sierra和雪佛兰Silverado，该项目原定于 2028 年启动。
+中新网北京5月5日电 题：汪阳：跨越大半个世纪，他们在故乡聚首长眠 中新网记者 徐文欣 “我的祖父汪正坤，曾在中央陆军军官学校高等教育班学习，在湖南怀化解放时，他率部投诚。
 
-消息人士称，通用汽车原本计划推出成本更低的Sierra、Silverado、Escalade IQ和 Hummer SUV及皮卡的全新电动版本，但供应商最近被告知该计划已暂停，且尚未发布新的时间表。
+他的大儿子汪定炳，是新四军的敌工股长，在抗日战争中壮烈牺牲；他的女儿汪舜华和小儿子汪杰未成年便参加志愿军，雄赳赳，气昂昂，跨过鸭绿江……我的父亲汪定国是家中老二，因读书成绩优异，决定继续学业，他牢记大哥汪定炳的嘱托，‘将来独立自由幸福的新中国是需要我们来建设的’，于是以‘学习学习再学习，努力努力再努力’自勉，从未辜负兄长的期望。
 
-通用汽车在底特律的零号工厂生产电动皮卡。
+”汪家后人汪阳日前接受“华人故事”栏目专访，讲述跨越三代的家国故事。
 
-由于电动汽车销量放缓，这家汽车制造商最近在该工厂临时裁员约一个月。
+30封烽火家书：大伯用生命写就“忠孝”答卷 1938年3月，17岁的汪定炳离开学校参加新四军。
 
-据报道，通用汽车预计将把Silverado和Sierra的插电式混合动力版本转移到密歇根州的另一家工厂，该工厂目前仍生产汽油动力卡车。
+在战事间隙与行军途中，汪定炳写下30封饱含深情的家书，这些如今静静躺在湖南抗日战争纪念馆的信笺，字里行间满是铁汉柔情。
 
-该公司目前在美国没有销售任何混合动力汽车，但此前曾表示会将这项动力系统技术引入美国市场。
+“母亲，寄上的信不知收到了吗……家里人都还好吧？
 
-据报道，通用汽车也在与供应商洽谈开发所谓的增程型电动汽车动力系统。
+我们的部队已开到敌人后方，打了不少胜仗，我们驻扎在很安全的地方，请您不要挂念……” “祖母大人，今年的诞生日您的孙儿已在遥远的地方皖南，而不是在祖母怀抱中，实在很羞惭不能给您老大人庆祝……我今天能在为民族解放，为造自由幸福的新中国的革命的部队里工作。
 
-一些汽车制造商正在推广这项技术，该技术利用小型内燃机作为发电机为电池充电，以此吸引更多消费者尝试电动汽车。
+这都是祖母及双亲的培养，我决不会忘记，很感谢对我的教育……为救千万同胞走上战场，想必是祖母乐意看见的。
 
 ## 相关推荐
 
-- 2026-06-29 12:55 - [华沿机器人午前涨超20% 近日与卓世科技签署合作协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
-- 2026-06-29 12:41 - [福建武夷山：春茶开山 仪式感满满](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:43 - [台青走进浙江宁波海岛“唱”宝岛文旅经](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:01 - [跨世纪的重逢！抗美援朝老战士用歌声迎战友回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 12:59 - [金宏气体：公司产品下游应用领域广泛，客户群体较为分散](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 13:04 - [新能源汽车电池从10%充到98%只要6分钟，背后是什么技术？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
-- 2026-06-29 12:37 - [伊朗体育部长：若球员安全得到保障将参加美加墨世界杯](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
-- 2026-06-29 12:43 - [“荣归50”“红鹰”！运-20B、歼-20用特殊呼号唤英烈回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:05 - [首席记者谈首季经济丨“大码头”的经济密码](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
-- 2026-06-29 12:39 - [印度马恒达科技第四季度营收超预期](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 12:55 - [海通国际首席经济学家张忆东香江策论2026年夏季策略报告：夏日寒风 方显英雄本色](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
+- 2026-06-29 12:43 - [美英财长因伊朗战事激烈争执](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanshao.md)
+- 2026-06-29 13:05 - [当“随时在线”成为常态 司法如何界定加班新形态](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:06 - [雅高中国：第一季度入境预订量增长25%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 12:52 - [太平洋营收最少盈利逆势下滑 自营权益类、固收类资产占净资本比值皆最低|券商年报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-29 13:02 - [特朗普称伊朗战事“很有可能结束” 双方正接近达成协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhajun.md)
+- 2026-06-29 12:46 - [股指期货全线收涨，中小盘“更胜一筹”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 12:57 - [浙江杭州杭钢工业遗存璀璨夜景吸引民众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 13:06 - [大国之大利天下——2026年春季中国元首外交纪事](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
+- 2026-06-29 13:02 - [化工ETF华宝（516020）化工板块突发跳水，华宝基金化工ETF（516020）跌超3%！新一轮化工配置行情或正在靠近](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:44 - [政府提前还债从省级延伸至地市，怎么看？](http://www.share.kurohicncr.top/Article/details/238199.shtml)
-- 2026-06-29 13:03 - [友邦保险提速科技转型 微众银行顾敏加盟董事会并挂帅科技委员会](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:01 - [上海着力打造首个“次元友好街区”](http://www.share.kurohicncr.top/Article/details/84463227.shtml)
-- 2026-06-29 12:57 - [欧洲央行管委卡扎克斯：欧洲央行不急着加息](http://www.share.minike.top/Article/details/3723906.shtml)
-- 2026-06-29 12:48 - [两岸媒体赴桂林 “打卡”“广西三月三”](http://www.share.minike.top/Article/details/15311218406.shtml)
-- 2026-06-29 12:51 - [哈萨克斯坦驻华大使点赞“China Travel”](http://www.share.minike.top/Article/details/8315307.shtml)
-- 2026-06-29 13:04 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](http://www.blog.minike.top/Article/details/47150.shtml)
-- 2026-06-29 12:41 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](http://www.blog.minike.top/Article/details/36664168869.shtml)
-- 2026-06-29 12:57 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](http://www.blog.minike.top/Article/details/6656807216.shtml)
-- 2026-06-29 13:02 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](http://www.share.kurohicncr.top/Article/details/0654394.shtml)
-- 2026-06-29 12:45 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:49 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:37 - [大摩：长和给予增持评级 目标价61港元](http://www.blog.minike.top/Article/details/446060.shtml)
-- 2026-06-29 12:40 - [大众汽车集团被曝有意削减100万辆全球产能](http://www.share.minike.top/Article/details/24063.shtml)
-- 2026-06-29 13:00 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](http://www.share.kurohicncr.top/Article/details/464378307.shtml)
+- 2026-06-29 13:09 - [金建希股价操纵案法官遗书内容公布](http://www.blog.kurohicncr.top/Article/details/718183833335.shtml)
+- 2026-06-29 13:03 - [优步CEO谈Q1业绩：我们着眼于长期布局](http://www.share.kurohicncr.top/Article/details/82166736184.shtml)
+- 2026-06-29 13:08 - [快讯：恒指高开1.21% 科指涨2.41% 科网股、黄金股普涨 芯片股延续涨势 百度涨超4%](http://www.blog.kurohicncr.top/Article/details/80917764969.shtml)
+- 2026-06-29 12:51 - [【新思想引领新征程】“五一”假期消费市场活力迸发](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:09 - [九方智投控股于5月5日斥资403.74万港元回购12.03万股](http://www.blog.kurohicncr.top/Article/details/050327135.shtml)
+- 2026-06-29 12:49 - [五一档总票房7.58亿元！它凭什么刷新今年最高分纪录？](http://www.share.kurohicncr.top/Article/details/97521168952.shtml)
+- 2026-06-29 13:02 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](http://www.share.minike.top/Article/details/0401567.shtml)
+- 2026-06-29 12:42 - [承诺“增高”构成欺诈 商家被判退一赔三](http://www.blog.minike.top/Article/details/13959.shtml)
+- 2026-06-29 13:09 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](http://www.share.minike.top/Article/details/75542865601.shtml)
+- 2026-06-29 13:09 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](http://www.share.kurohicncr.top/Article/details/2725630071.shtml)
+- 2026-06-29 13:02 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:52 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](http://www.share.minike.top/Article/details/32527.shtml)
+- 2026-06-29 12:50 - [中国市场缘何被喻为“健身房”](http://www.blog.kurohicncr.top/Article/details/90204.shtml)
+- 2026-06-29 13:04 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](http://www.blog.minike.top/Article/details/91538.shtml)
+- 2026-06-29 13:09 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](http://www.share.kurohicncr.top/Article/details/1273511.shtml)

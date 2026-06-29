@@ -1,53 +1,57 @@
-# 衡阳市医保局回应连锁药店骗保 计划将此纳入重点检查范围
+# 俄美外长通话讨论国际局势和双边关系
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网4月22日电 21日，中国新闻网“民生调查局”刊发报道《连锁药店骗保调查：“串药、改方、平账”连环套骗取医保基金》，记者在湖南、河南等地随机走访了30多家连锁药店，发现其中10余家存在违规套取医保基金的行为。对此，衡阳市医保局22日回应称，目前涉事4家药店已被中止医保服务协议，核查处置情况将及时公布。依据《医疗保障基金使用监督管理条例》及衡阳市医保定点服务协议管理规定，依
+中新社莫斯科5月5日电 俄罗斯外长拉夫罗夫5日与美国国务卿鲁比奥通电话，就当前国际局势及俄美关系交换意见。 据俄外交部网站消息，双方在通话中就当前国际局势和俄美关系交换了意见，并讨论了双边接触的日程安排。 消息称，双方通话内容“富有建设性且务实”。 4月29日，俄罗斯总统普京与美国总统特朗普通电话，双方讨论了伊朗局势、乌克兰问题等议题。双方同意继续保持联系，包括亲自会面以及通过
 
 ## 正文
 
-中新网4月22日电 21日，中国新闻网“民生调查局”刊发报道《连锁药店骗保调查：“串药、改方、平账”连环套骗取医保基金》，记者在湖南、河南等地随机走访了30多家连锁药店，发现其中10余家存在违规套取医保基金的行为。
+中新社莫斯科5月5日电 俄罗斯外长拉夫罗夫5日与美国国务卿鲁比奥通电话，就当前国际局势及俄美关系交换意见。
 
-对此，衡阳市医保局22日回应称，目前涉事4家药店已被中止医保服务协议，核查处置情况将及时公布。
+据俄外交部网站消息，双方在通话中就当前国际局势和俄美关系交换了意见，并讨论了双边接触的日程安排。
 
-依据《医疗保障基金使用监督管理条例》及衡阳市医保定点服务协议管理规定，依法依规对4家涉案药店作出如下处置：一是对老百姓大药房(衡阳)有限公司和御康堂大药房两家连锁店衡阳总负责人进行约谈，责令其对所有药店自查自纠，全面整改；二是中止4家药店的医保服务协议，追回违规支付的医保基金，并进一步核查处理依法依规严肃查处。
+消息称，双方通话内容“富有建设性且务实”。
 
-衡阳市医保局还计划将“药店使用个账套刷保健品、生活用品”等行为列为2026年度全市医保基金监管专项检查重点内容，采取市级交叉检查、区级专项检查、明查与暗访相结合的方式，加大对区级定点药店的抽查比例和频次。
+4月29日，俄罗斯总统普京与美国总统特朗普通电话，双方讨论了伊朗局势、乌克兰问题等议题。
+
+双方同意继续保持联系，包括亲自会面以及通过各自助手和代表展开沟通。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 13:01 - [杰夫·贝索斯的人工智能实验室在融资交易中估值接近380亿美元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
-- 2026-06-29 13:03 - [日本一自卫队演习场发生爆炸 致3死1重伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:49 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-29 13:03 - [另类师徒携手追凶 《黑夜告白》定档](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
-- 2026-06-29 12:42 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
-- 2026-06-29 12:39 - [人民币兑美元中间价报6.8594，上调54点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-29 12:52 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-29 13:02 - [沃什如何推动美联储实现“政策范式转变”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
-- 2026-06-29 12:50 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 12:57 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 12:48 - [春播春管进行时——各地农业高质量发展一线观察](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:43 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiaopai.md)
-- 2026-06-29 13:03 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
+- 2026-06-29 12:44 - [酒价内参5月6日价格发布：古井贡古20上涨2元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 13:00 - [广东广州以“微改革”推动营商环境系统提升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 13:04 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
+- 2026-06-29 12:42 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 13:10 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 12:59 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-29 12:59 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekuan.md)
+- 2026-06-29 12:56 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
+- 2026-06-29 12:53 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaoying.md)
+- 2026-06-29 13:11 - [南京银行：印建军担任业务总监的任职资格获监管核准](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
+- 2026-06-29 13:01 - [房产租赁毛利率下滑，汇通能源经营遇考](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 12:59 - [美国陆军要求导弹制造商提升自家武器兼容性](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuaihai.md)
+- 2026-06-29 12:47 - [以共赢促共富 民企精准帮扶常态化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 12:49 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-29 13:05 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:57 - [重回4100点！A股三大指数午后集体大涨](http://www.share.minike.top/Article/details/15330.shtml)
-- 2026-06-29 12:46 - [【东西问】才让：敦煌古藏文文献“回归”，见证汉藏交融千年史](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:55 - [他杀了自己7个孩子，揭开美国最不愿示人的伤疤丨真相](http://www.share.kurohicncr.top/Article/details/3824836017.shtml)
-- 2026-06-29 12:49 - [美军称对一艘“涉伊朗”油轮登船检查](http://www.blog.kurohicncr.top/Article/details/17883.shtml)
-- 2026-06-29 12:54 - [致敬！“过水门”礼遇 迎志愿军烈士回家！](http://www.blog.minike.top/Article/details/99988828741.shtml)
-- 2026-06-29 12:38 - [法国一知名药企遭遇“傍名牌”在豫成功维权](http://www.blog.kurohicncr.top/Article/details/80909927846.shtml)
-- 2026-06-29 12:36 - [别瞧不起格林基金](http://www.blog.minike.top/Article/details/92054428.shtml)
-- 2026-06-29 12:40 - [UPS与联邦快递已开始申请部分关税退款](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:04 - [蓝厅观察丨日本“再军事化”狂飙突进 暴露军事扩张野心](http://www.share.minike.top/Article/details/93473.shtml)
-- 2026-06-29 13:00 - [中国新闻社参评第36届中国新闻奖视听设计（新闻漫画、新闻版面）作品初评公示](http://www.blog.minike.top/Article/details/10032.shtml)
-- 2026-06-29 13:02 - [苯乙烯-纯苯价差收窄至年内最低水平，后市将如何表现？](http://www.blog.minike.top/Article/details/866648103477.shtml)
-- 2026-06-29 12:52 - [全国首个全民阅读活动周！建行花样守护“城市书香”](http://www.blog.minike.top/Article/details/6933180701.shtml)
-- 2026-06-29 12:56 - [何立峰会见美国通用电气医疗集团全球总裁兼首席执行官安杜尼](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:48 - [财政部今日在港发行155亿元人民币国债](http://www.share.kurohicncr.top/Article/details/81865430.shtml)
-- 2026-06-29 12:36 - [印尼工商会主席：印尼与中国经济融合愈发重要](http://www.blog.minike.top/Article/details/17966515527.shtml)
+- 2026-06-29 13:12 - [2026年“香港高考”收官 文凭试加速迈向国际化](http://www.blog.minike.top/Article/details/50757807.shtml)
+- 2026-06-29 13:00 - [2026年全国残疾人足球公开赛在京举行](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:54 - [原油期货上涨 或因技术性反弹](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:55 - [中东紧张局势冲击全球旅游业](http://www.blog.minike.top/Article/details/470264.shtml)
+- 2026-06-29 12:51 - [各执一词 美称“史诗怒火”军事行动已结束 伊称目前仍处战争状态](http://www.share.kurohicncr.top/Article/details/46926.shtml)
+- 2026-06-29 13:07 - [国乒女团3比0瑞典 晋级世乒赛8强](http://www.blog.minike.top/Article/details/55348724.shtml)
+- 2026-06-29 12:44 - [小摩：民生银行给予“中性”评级 目标价3.90港元](http://www.share.minike.top/Article/details/84334.shtml)
+- 2026-06-29 12:57 - [山东省枣庄市青檀学校：榴乡厚土育同心](http://www.share.minike.top/Article/details/754899010703.shtml)
+- 2026-06-29 12:51 - [业绩亏损超60%仍收取高昂管理费：东方基金、同泰基金等亟待降费](http://www.share.minike.top/Article/details/842029.shtml)
+- 2026-06-29 12:48 - [低开6.49%！五粮液“财务大洗澡”，花旗将评级从买入下调至卖出](http://www.share.kurohicncr.top/Article/details/1373626436.shtml)
+- 2026-06-29 12:50 - [成本压力持续传导 全球消费品企业竞相涨价](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [“五一”假期逾百万人次内地旅客访港 同比增近一成](http://www.blog.kurohicncr.top/Article/details/31406976435.shtml)
+- 2026-06-29 13:04 - [穿越百年航海史 “时光邮轮”驶入吉林长春](http://www.blog.minike.top/Article/details/293027.shtml)
+- 2026-06-29 13:03 - [康方生物早盘涨逾5% 机构仍看好ivonescimab击败Keytruda](http://www.share.kurohicncr.top/Article/details/927653.shtml)
+- 2026-06-29 12:44 - [大摩：中国软件国际降至“减持”评级 目标价大削至2.6港元](http://www.blog.kurohicncr.top/Article/details/0651586.shtml)

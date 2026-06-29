@@ -1,60 +1,43 @@
-# 临夏有约：“蓝色黄河”岸畔寻龙迹
+# 5月6日隔夜要闻：美股收高 原油下跌 鲁比奥称“史诗怒火”军事行动已结束 Anthropic推出金融服务AI智能体
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网兰州4月21日电 (马临州)黄河在甘肃临夏永靖拐出一道巨大“S弯”，浑浊河水骤然澄澈，造就闻名遐迩的“蓝色黄河”奇观。少有人知晓，这片碧波河岸的白垩纪岩层中，藏着亿年前恐龙的足迹。如今，这些沉睡的生命印记正以独特方式重新“苏醒”。 走进刘家峡恐龙国家地质公园，首先映入眼帘的是一面巨大的足印复刻墙。三趾型、四趾型、二趾型的足印清晰可见，分别对应着兽脚类、蜥脚类和恐爪龙类恐龙
+欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 5月6日收盘：油价全线下跌 纳指与标普指数再创新高 5月6日美股成交额前20：英特尔大涨约13%，多家机构上调其目标价 5月6日热门中概股涨跌不一 联电涨7.82%，蔚来跌2.47% 美国称对伊朗停火仍在延续，油价应声下跌 美伊停火得以维持 原油下跌 黄金和铝上涨 欧洲股市受企业盈利提振而反弹 汇丰下跌 宏观 特朗
 
 ## 正文
 
-中新网兰州4月21日电 (马临州)黄河在甘肃临夏永靖拐出一道巨大“S弯”，浑浊河水骤然澄澈，造就闻名遐迩的“蓝色黄河”奇观。
-
-少有人知晓，这片碧波河岸的白垩纪岩层中，藏着亿年前恐龙的足迹。
-
-如今，这些沉睡的生命印记正以独特方式重新“苏醒”。
-
-走进刘家峡恐龙国家地质公园，首先映入眼帘的是一面巨大的足印复刻墙。
-
-三趾型、四趾型、二趾型的足印清晰可见，分别对应着兽脚类、蜥脚类和恐爪龙类恐龙。
-
-“这些都是按照1:1的比例，从各个足印保护点复制过来的。
-
-”永靖县文化旅游产业发展中心副主任谢晓明日前在介绍墙上最大的一枚足印时说，“这就是我们最引以为傲的世界最大恐龙足印，它的后足长1.5米，宽1.2米，一个成年人完全可以躺在里面。
-
-” 事实上，这枚世界最大足印只是永靖恐龙足迹化石群的冰山一角。
+欲览更多环球财经资讯，请移步7×24小时实时财经新闻直播 市场 5月6日收盘：油价全线下跌 纳指与标普指数再创新高 5月6日美股成交额前20：英特尔大涨约13%，多家机构上调其目标价 5月6日热门中概股涨跌不一 联电涨7.82%，蔚来跌2.47% 美国称对伊朗停火仍在延续，油价应声下跌 美伊停火得以维持 原油下跌 黄金和铝上涨 欧洲股市受企业盈利提振而反弹 汇丰下跌 宏观 特朗普政府加强人工智能监管，将测试谷歌、微软与xAI模型 美国务卿确认对伊朗“史诗怒火”军事行动已结束 美国SEC新提案出炉 计划允许企业将财报披露频率改为每半年一次 美国试图寻求联合国支持 以打破伊朗对霍尔木兹海峡的控制 伊朗：阿联酋正与美国和以色列合作对抗德黑兰 七国集团拟设常设秘书处 统筹关键矿产供应链议程 欧盟向美国表示贸易协议应在7月最后期限前落实 伊朗军方否认近期袭击阿
 
 ## 相关推荐
 
-- 2026-06-29 12:40 - [机械车位闲置，如何盘活改造？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-29 12:41 - [加拿大总理批美贸易政策：加美关系“优势”变“劣势”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
-- 2026-06-29 12:56 - [中通快递盘中涨超4% 小摩此前上调公司目标价至225港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-29 12:50 - [联合健康集团业绩超预期并上调展望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
-- 2026-06-29 12:41 - [双重荣誉，光峰专显再度获奖，以专业实力书写光影价值](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-29 12:57 - [中国长安朱华荣：未来三到五年，全球汽车产业竞争格局将重新形成](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-29 13:01 - [学习新语｜山河永念 英雄回家](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 12:50 - [民进党当局称“大陆涉台措施是企图以商逼政” 国台办回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
-- 2026-06-29 12:49 - [厦门举办连横逝世九十周年纪念座谈会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-29 13:04 - [日本为武器出口“松绑” 允许杀伤性武器对外出口](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
-- 2026-06-29 12:42 - [国内油价，今年首次下调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 13:00 - [长江有色：22日铜价小涨 高价货源成交寥寥](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
-- 2026-06-29 12:39 - [长江有色：美股暴跌传导科技股领跌大宗商品资金流出 22日锡价或小跌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-29 12:55 - [直击演训场 海军：夜航单飞训练 提升飞行学员技能水平](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 13:01 - [哈塞特：没有参与私募信贷的人不必担心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 13:08 - [L&T Q4净利润微降但订单创新高 宣布每股38卢比创纪录股息](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 12:58 - [Anthropic CEO与摩根大通掌门人对话：AI将重塑而非消灭就业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
+- 2026-06-29 13:05 - [黄金突破4700美元，分析师警示风险犹存](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-29 13:06 - [“五一”假期湖南出入境人数创七年同期新高 港澳台增幅亮眼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-29 12:47 - [AI芯片“搬运工”中电港：营收破500亿，负债率82%，现金流失血51亿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
+- 2026-06-29 12:53 - [“市场依然可为！”基金经理看好节后三大主线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 12:52 - [裁判组团跳舞火出圈！中外裁判同台跳拉丁舞氛围感拉满 动作优雅又丝滑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 13:03 - [沪市头部公司呈现四大亮点！132家跻身“千亿市值俱乐部”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-29 12:46 - [算力、半导体全线爆发！创业板50ETF华安（159949）成交17.39亿领跑同类 机构：A股上行第三阶段开启](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-29 12:42 - [长沙磁浮快线载客运营十周年 总里程1033.63万列公里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:50 - [全年净利润不到6亿 甘肃银行豪掷17亿分红为哪般？](http://www.blog.kurohicncr.top/Article/details/764995518379.shtml)
-- 2026-06-29 13:05 - [每一帧都很治愈，你读书的样子真好看！](http://www.share.minike.top/Article/details/20366238412.shtml)
-- 2026-06-29 13:03 - [拉美网购后还要跑便利店付钱，中国电商出海如何过“支付坎”](http://www.share.minike.top/Article/details/9405229084.shtml)
-- 2026-06-29 12:44 - [中芯国际获南向资金连续3天净买入](http://www.blog.minike.top/Article/details/821703876.shtml)
-- 2026-06-29 13:04 - [中国卫星一季度营收增长37.89%至6.09亿元 归母净利润亏损4269.02万元](http://www.blog.kurohicncr.top/Article/details/28398544.shtml)
-- 2026-06-29 12:46 - [中天期货:螺纹区间反弹 焦煤继续反弹](http://www.blog.kurohicncr.top/Article/details/045844.shtml)
-- 2026-06-29 12:40 - [金针菇概念股，净利润大增超7000%](http://www.blog.minike.top/Article/details/683094708449.shtml)
-- 2026-06-29 13:00 - [方邦股份4月21日龙虎榜数据](https://github.com/lisacumin64-arch)
-- 2026-06-29 13:03 - [接迎第十三批在韩中国人民志愿军烈士遗骸回国的空军运-20B降落在沈阳桃仙国际机场](http://www.blog.minike.top/Article/details/75738097.shtml)
-- 2026-06-29 13:05 - [铁路三天拒出百万张票 三大航重罚OTA平台违规供货](https://github.com/lisacumin64-arch)
-- 2026-06-29 12:50 - [金宏气体：受国际局势和市场供需关系影响，氦气产品价格存在一定波动](http://www.blog.kurohicncr.top/Article/details/8141083.shtml)
-- 2026-06-29 12:57 - [旷日持久的冲突或将对铜价构成压力](http://www.blog.kurohicncr.top/Article/details/330455311.shtml)
-- 2026-06-29 12:38 - [“易中天”市值力压贵州茅台！创业板人工智能近1年飙涨202%持续跑赢！高“光”159363放量再创新高！](http://www.share.kurohicncr.top/Article/details/8715301658.shtml)
-- 2026-06-29 12:42 - [AI光模块市场年增57%！260亿美元机遇爆发！含光量超45%的创业板人工智能ETF华宝159363上探逾2%冲击前高！](http://www.share.kurohicncr.top/Article/details/84447778.shtml)
-- 2026-06-29 13:00 - [国泰海通：宏观与供需共振 金属板块呈现结构性机会（附股）](http://www.share.minike.top/Article/details/31388.shtml)
+- 2026-06-29 12:54 - [开盘：美股周二高开 油价回落与强劲财报提振](http://www.blog.kurohicncr.top/Article/details/70395873.shtml)
+- 2026-06-29 12:53 - [“恐发生人际传播”！大西洋涉疫游轮最新情况](http://www.share.minike.top/Article/details/430170774696.shtml)
+- 2026-06-29 13:06 - [哮喘控制不好？快看看吸入剂你用对了吗？](http://www.blog.kurohicncr.top/Article/details/5103219113.shtml)
+- 2026-06-29 12:42 - [基金降费“三步走”成效显著 以实际行动提高投资者获得感](http://www.blog.kurohicncr.top/Article/details/7503575656.shtml)
+- 2026-06-29 13:03 - [成都铁路迎“五一”假期客流返程高峰](http://www.share.minike.top/Article/details/9623774.shtml)
+- 2026-06-29 13:09 - [“五一”假期中缅边境瑞丽口岸跨境游火热 出入境客流超7万人次](http://www.share.minike.top/Article/details/92759631143.shtml)
+- 2026-06-29 13:02 - [特朗普威胁伊朗不要向美国船开火](http://www.share.minike.top/Article/details/45271.shtml)
+- 2026-06-29 12:52 - [广东建成内地规模最大欧标充电服务网络](http://www.share.minike.top/Article/details/712862277994.shtml)
+- 2026-06-29 12:59 - [AI、国防与气候：重塑全球增长格局的三大支柱](http://www.share.minike.top/Article/details/507456942.shtml)
+- 2026-06-29 12:47 - [全球政府债券延续涨势 受美伊进展报道影响](http://www.share.minike.top/Article/details/684638003.shtml)
+- 2026-06-29 12:50 - [重庆市酉阳县委书记杨通胜接受审查调查](http://www.blog.kurohicncr.top/Article/details/8722878.shtml)
+- 2026-06-29 13:01 - [增值率近500%！兴业银锡1.64亿元加码黄金主业，标的底层核心矿权尚处“探转采”阶段](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:42 - [川陕哲罗鲑子二代异地繁育突破 “水中老虎”添新生力量](http://www.share.kurohicncr.top/Article/details/79711.shtml)
+- 2026-06-29 12:55 - [（乡村行·看振兴）黄河入晋第一村“上新”：志愿服务队让老牛湾更有“温度”](http://www.share.minike.top/Article/details/78346.shtml)
+- 2026-06-29 12:44 - [伊朗议长：“敌人”施加经济压力 企图破坏国家团结](http://www.blog.kurohicncr.top/Article/details/760286.shtml)

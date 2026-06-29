@@ -1,57 +1,48 @@
-# 成都温江一交通事故致5人受伤 警方通报：肇事驾驶员已被控制
+# 烧烤摊主为救3岁宝宝停业10天，归来后生意“爆棚”！市委书记也穿着简装来“打卡”
 
-> 更新时间：2026-06-29 13:06:05 UTC+8
+> 更新时间：2026-06-29 13:12:05 UTC+8
 
 ## 摘要
 
-中新网成都4月21日电 (祝欢)20日晚，成都市公安局温江区分局发布警情通报称，2026年4月20日18时26分许，该区花土路发生一起交通事故，致5人受伤。伤者第一时间送医救治，目前均无生命危险。 肇事驾驶员郭某某(男，38岁)被民警当场控制。经检测，已初步排除其酒驾、毒驾嫌疑。 目前，事故原因还在进一步调查当中。(完)
+发布时间：2026年05月06日 13:50 来源：中国新闻网 5月5日晚，宿州市委书记王庆武看望造血干细胞捐献志愿者邵三虎，他自费品尝烧烤美食，并与现场就餐的市民群众互动交流。半个月前，刚刚开业不久的烧烤摊暂停营业，老板邵三虎去合肥捐献造血干细胞，挽救一个素不相识的3岁血液病患儿。烧烤店重新开业后，市民和各地网友纷纷前来就餐。 责任编辑：【李光伟】
 
 ## 正文
 
-中新网成都4月21日电 (祝欢)20日晚，成都市公安局温江区分局发布警情通报称，2026年4月20日18时26分许，该区花土路发生一起交通事故，致5人受伤。
+发布时间：2026年05月06日 13:50 来源：中国新闻网 5月5日晚，宿州市委书记王庆武看望造血干细胞捐献志愿者邵三虎，他自费品尝烧烤美食，并与现场就餐的市民群众互动交流。
 
-伤者第一时间送医救治，目前均无生命危险。
+半个月前，刚刚开业不久的烧烤摊暂停营业，老板邵三虎去合肥捐献造血干细胞，挽救一个素不相识的3岁血液病患儿。
 
-肇事驾驶员郭某某(男，38岁)被民警当场控制。
+烧烤店重新开业后，市民和各地网友纷纷前来就餐。
 
-经检测，已初步排除其酒驾、毒驾嫌疑。
-
-目前，事故原因还在进一步调查当中。
-
-(完)
+责任编辑：【李光伟】
 
 ## 相关推荐
 
-- 2026-06-29 12:45 - [捷蓝航空被指利用个人数据定价，两党议员联名质询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 12:56 - [大摩：中国移动给予“与大市同步”评级 目标价80港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-29 12:48 - [报道：Meta拟在美国员工电脑上安装追踪软件 以训练人工智能模型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
-- 2026-06-29 13:04 - [美伊海峡对峙持续：伊朗称将制定规程 确保海峡安全通行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-29 13:00 - [我们接您回家！第十三批在韩中国人民志愿军烈士遗骸交接仪式在韩国仁川国际机场举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-29 12:37 - [中方：反对在霍尔木兹海峡问题上的恶意关联和炒作](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
-- 2026-06-29 12:52 - [大摩：长和给予增持评级 目标价61港元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
-- 2026-06-29 12:40 - [大众汽车集团被曝有意削减100万辆全球产能](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feizun.md)
-- 2026-06-29 12:49 - [大庆钻探首台数智化综合录井仪投用 9秒精准捕捉油气信号](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-29 12:55 - [美国民主党众议员Cherfilus-McCormick辞职 被指控盗窃资金](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
-- 2026-06-29 12:41 - [工信部：有序引导算力基础设施建设 构建多层级算力架构](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-29 12:51 - [卢拉讽刺特朗普：不如直接给他颁诺贝尔奖](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
-- 2026-06-29 12:55 - [追忆侨领张素久：从容面对挑战 坚韧不拔](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
-- 2026-06-29 12:44 - [全球开口最大光热熔盐槽式集热器成套装备及工艺完成技术验证](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-29 12:36 - [特朗普称最终将达成重大协议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
+- 2026-06-29 12:52 - [在SpaceX上市前夕 贝索斯对蓝色起源的员工激励机制进行了调整](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 12:52 - [承诺“增高”构成欺诈 商家被判退一赔三](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
+- 2026-06-29 13:04 - [以色列停火期间突袭贝鲁特 或炸死真主党一指挥官](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-29 12:58 - [快讯：WTI原油失守93美元/桶，日内跌9.15%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
+- 2026-06-29 13:02 - [心动公司于5月4日斥资761.31万港元回购12万股](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-29 12:54 - [FCC委员：派拉蒙-华纳兄弟探索合并案需审查外国利益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-29 12:48 - [中国市场缘何被喻为“健身房”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-29 12:43 - [汉堡王母公司RBI季度业绩超预期，价值套餐需求推动增长](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
+- 2026-06-29 13:04 - [广州楼市新政发力 “五一”假期一二手住宅市场同步向好](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 12:56 - [空客计划2020年以来首次发债 应对供应链中断](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 12:46 - [日本一自卫队演习场发生爆炸 致3死1重伤](http://www.share.minike.top/Article/details/824553414055.shtml)
-- 2026-06-29 12:38 - [台安全部门称大陆对台新举措可能是“介选”行为 国台办回应](http://www.share.kurohicncr.top/Article/details/4480076.shtml)
-- 2026-06-29 12:57 - [另类师徒携手追凶 《黑夜告白》定档](http://www.blog.minike.top/Article/details/8169511.shtml)
-- 2026-06-29 13:01 - [年内已有超70家村镇银行获批解散，中小金融机构加速“减量提质”](http://www.share.kurohicncr.top/Article/details/223024.shtml)
-- 2026-06-29 12:49 - [人民币兑美元中间价报6.8594，上调54点](http://www.share.minike.top/Article/details/35736912583.shtml)
-- 2026-06-29 13:01 - [基石药业-B获大摩增持约795.92万股 每股作价约9.48港元](http://www.share.kurohicncr.top/Article/details/845723.shtml)
-- 2026-06-29 12:53 - [沃什如何推动美联储实现“政策范式转变”](http://www.share.kurohicncr.top/Article/details/1533140.shtml)
-- 2026-06-29 12:55 - [哈萨克斯坦警方在阿斯塔纳查获约4吨制毒前体化学品](http://www.blog.minike.top/Article/details/47360512646.shtml)
-- 2026-06-29 13:05 - [阿维塔总裁陈卓回应与深蓝汽车战略协同：不影响赴港上市计划，仍会按照当前节奏推进](http://www.blog.kurohicncr.top/Article/details/3073917598.shtml)
-- 2026-06-29 12:36 - [春播春管进行时——各地农业高质量发展一线观察](http://www.blog.kurohicncr.top/Article/details/30730122649.shtml)
-- 2026-06-29 12:59 - [两粕：美豆上涨提振内盘，低库存支撑菜粕价格](http://www.share.minike.top/Article/details/8080024139.shtml)
-- 2026-06-29 12:58 - [从“大V带货”到“基民买单”：德邦稳盈增长一季度亏21.57亿元，赎回183亿份](http://www.blog.minike.top/Article/details/4287877.shtml)
-- 2026-06-29 13:05 - [日本首相高市早苗向靖国神社供奉“玉串料”](http://www.blog.minike.top/Article/details/59329336382.shtml)
-- 2026-06-29 12:48 - [三位华人女数学家获2026突破奖](http://www.blog.kurohicncr.top/Article/details/689551.shtml)
-- 2026-06-29 12:59 - [沃伦：特朗普提名沃什出任美联储主席，意在短期刺激经济以谋取政治私利](http://www.blog.kurohicncr.top/Article/details/538371300.shtml)
+- 2026-06-29 13:09 - [广东广州以“微改革”推动营商环境系统提升](http://www.blog.minike.top/Article/details/127900.shtml)
+- 2026-06-29 12:46 - [飞利浦利润超预期 这家医疗科技企业扛住地缘冲突冲击](http://www.share.minike.top/Article/details/839476520.shtml)
+- 2026-06-29 13:08 - [视频 | 车主反映“开启零重力模式副驾座椅夹小孩”，鸿蒙智行：网传场景未达防夹功能触发阈值](http://www.blog.kurohicncr.top/Article/details/149195.shtml)
+- 2026-06-29 12:52 - [永康铸铁：千枝一本守匠心 铁火传薪焕新章](http://www.share.kurohicncr.top/Article/details/88282111.shtml)
+- 2026-06-29 12:54 - [华纳兄弟探索公司因派拉蒙交易和重组成本录得29亿美元净亏损](http://www.share.minike.top/Article/details/04791241.shtml)
+- 2026-06-29 13:03 - [CVS业绩亮眼 助力医保行业整体向好](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:44 - [515投资者保护|《银华小小理财家》“公益+投教”财商课程:以金融温度赋能儿童成长 培育正确的财富观](http://www.share.kurohicncr.top/Article/details/386837161.shtml)
+- 2026-06-29 13:04 - [达势股份获Good Taste Limited增持6.23万股 每股作价50.0612港元](http://www.share.kurohicncr.top/Article/details/69808140574.shtml)
+- 2026-06-29 12:58 - [南京银行：印建军担任业务总监的任职资格获监管核准](http://www.share.minike.top/Article/details/15343.shtml)
+- 2026-06-29 13:06 - [房产租赁毛利率下滑，汇通能源经营遇考](http://www.share.minike.top/Article/details/209534.shtml)
+- 2026-06-29 13:08 - [美国陆军要求导弹制造商提升自家武器兼容性](http://www.blog.kurohicncr.top/Article/details/294779495.shtml)
+- 2026-06-29 13:00 - [以共赢促共富 民企精准帮扶常态化](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:58 - [际华集团（601718）收到处罚事先告知书，投资者索赔多次提交立案](https://github.com/lisacumin64-arch)
+- 2026-06-29 13:03 - [福特秘密电动车部门浮出水面 市场放缓背景下仍看好全新电动皮卡](https://github.com/lisacumin64-arch)
+- 2026-06-29 12:51 - [伊朗：尚未回应美国对伊方14点提议的看法](http://www.share.kurohicncr.top/Article/details/03857238.shtml)
