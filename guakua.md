@@ -1,58 +1,59 @@
-# 没洗的空调可能把人“吹进”ICU 夏天开空调前这2个部件一定要洗
+# 《围坐时光》EP02完整版丨春妮对话测测任永亮——INTP把治愈人心当成一场实验
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-78 岁老人开空调一晚高烧 3 天！开空调前千万不要偷懒少做这件事 夏天到了，又到了要靠空调“续命”的季节。 不过经历了一个春天，很多人家里的空调可能已经“休息”了好几个月，在北方有集中供暖的地区，空调甚至可能“沉睡了”将近一年的时间。那么，再次打开空调之前，有没有必要先清洗一下呢？ 答案是：非常有必要！长时间不清洗的空调，其内部积聚的污染物和致病菌会对健康产生不良影响，严重的
+专题：《围坐时光》 为何 MBTI 和星座能成为社交货币？为何越优秀越独立的人，反而越需要情绪出口？为何测测最大的竞争对手不是同类平台，而是演唱会、音乐、追星等一切能提供情绪价值的事物？为何作为一个INTP理工男会认为情绪可以被逻辑解释？ 由@新浪财经、微博联合打造，@微博财经 #达芬奇live# 出品的对话栏目#围坐时光# 第二期对话心言集团 测测创始人兼CEO@心言任永亮
 
 ## 正文
 
-78 岁老人开空调一晚高烧 3 天！
+专题：《围坐时光》 为何 MBTI 和星座能成为社交货币？
 
-开空调前千万不要偷懒少做这件事 夏天到了，又到了要靠空调“续命”的季节。
+为何越优秀越独立的人，反而越需要情绪出口？
 
-不过经历了一个春天，很多人家里的空调可能已经“休息”了好几个月，在北方有集中供暖的地区，空调甚至可能“沉睡了”将近一年的时间。
+为何测测最大的竞争对手不是同类平台，而是演唱会、音乐、追星等一切能提供情绪价值的事物？
 
-那么，再次打开空调之前，有没有必要先清洗一下呢？
+为何作为一个INTP理工男会认为情绪可以被逻辑解释？
 
-答案是：非常有必要！
+由@新浪财经、微博联合打造，@微博财经 #达芬奇live# 出品的对话栏目#围坐时光# 第二期对话心言集团 测测创始人兼CEO@心言任永亮 ，和主持人@春妮 聊聊他是如何面对行业质疑与争议，以及商业与善意的平衡，又是为何选择自讨苦吃坚持做一个情感机器人。
 
-长时间不清洗的空调，其内部积聚的污染物和致病菌会对健康产生不良影响，严重的甚至会把人送进 ICU。
+新浪声明：所有会议实录均为现场速记整理，未经演讲者审阅，新浪网登载此文出于传递更多信息之目的，并不意味着赞同其观点或证实其描述。
 
-空调，其实真的“很脏”！
-
-虽然大部分人不会把空调和“脏”联系在一起，但在空调工作的时候，空气会不断流过空调的翅片以实现热量交换。
+责任编辑：李昂
 
 ## 相关推荐
 
-- 2026-06-29 14:10 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
-- 2026-06-29 14:07 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-29 14:02 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-29 14:22 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
-- 2026-06-29 14:20 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
-- 2026-06-29 14:17 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/peacj.md)
-- 2026-06-29 14:10 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-29 14:17 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-29 14:14 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-29 14:01 - [F1奥地利正赛战报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-29 14:06 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 14:00 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-29 14:00 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-29 14:07 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 14:21 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 14:16 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 14:17 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-29 14:12 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
+- 2026-06-29 14:14 - [严浩翔FIY断层第一](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
+- 2026-06-29 14:06 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mvllh.md)
+- 2026-06-29 14:16 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 14:10 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 14:12 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-29 14:08 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
+- 2026-06-29 14:27 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqgpj.md)
+- 2026-06-29 14:02 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 14:06 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/4089371229.shtml)
-- 2026-06-29 14:22 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/5726892003.shtml)
-- 2026-06-29 14:10 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/25545425936.shtml)
-- 2026-06-29 14:06 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.minike.top/Article/details/211267885.shtml)
-- 2026-06-29 14:05 - [巴西发布对阵日本宣传片](https://www.blog.kurohicncr.top/Article/details/05113261.shtml)
-- 2026-06-29 13:54 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.kurohicncr.top/Article/details/181887.shtml)
-- 2026-06-29 14:19 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/22366456093.shtml)
-- 2026-06-29 14:05 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/024194567.shtml)
-- 2026-06-29 14:01 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/12678301.shtml)
-- 2026-06-29 14:11 - [第一炉香](https://www.share.minike.top/Article/details/6760463342.shtml)
-- 2026-06-29 14:21 - [克洛普：加拿大主帅还能继续创造历史](http://www.share.kurohicncr.top/Article/details/87442.shtml)
-- 2026-06-29 14:04 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/87543.shtml)
-- 2026-06-29 13:57 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.kurohicncr.top/Article/details/99660552590.shtml)
-- 2026-06-29 14:23 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/08126.shtml)
-- 2026-06-29 14:11 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.minike.top/Article/details/7312359609.shtml)
+- 2026-06-29 14:21 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/559737934098.shtml)
+- 2026-06-29 14:07 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.share.kurohicncr.top/Article/details/54427665598.shtml)
+- 2026-06-29 14:25 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/50573.shtml)
+- 2026-06-29 14:15 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/20370.shtml)
+- 2026-06-29 14:03 - [成都至北京将新增动卧](http://www.blog.kurohicncr.top/Article/details/90760476.shtml)
+- 2026-06-29 14:12 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/8644126037.shtml)
+- 2026-06-29 14:08 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/4406825439.shtml)
+- 2026-06-29 14:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/95323570.shtml)
+- 2026-06-29 14:09 - [周锡玮：做堂堂正正的中国人](https://www.share.kurohicncr.top/Article/details/78771392.shtml)
+- 2026-06-29 14:27 - [男子造谣县城满街都是小混混被行拘](http://www.share.minike.top/Article/details/8326155794.shtml)
+- 2026-06-29 14:15 - [斛珠夫人](https://www.blog.minike.top/Article/details/04492022.shtml)
+- 2026-06-29 14:29 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/979638.shtml)
+- 2026-06-29 14:21 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.share.minike.top/Article/details/1232247808.shtml)
+- 2026-06-29 14:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.blog.minike.top/Article/details/463145156.shtml)
+- 2026-06-29 14:10 - [布里奇斯被交易至太阳](https://www.blog.minike.top/Article/details/31069.shtml)

@@ -1,59 +1,59 @@
-# 连涨3日！百亿银行ETF华宝（512800）再涨1%，单日超2亿资金加仓
+# 驱动“AI引擎” 广东首次举办人工智能应用对接大会
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-6月2日，银行板块延续强势，沪农商行涨超3%，中信银行涨超2%，招商银行、中国银行、建设银行等涨幅居前。百亿顶流银行ETF华宝（512800）场内价格涨逾1%。从日线走势看，自5月29日盘中下探阶段新低后，掉头向上连涨3日，接连收复5日、10日、20日线，逼近半年线，行情拐点或已出现。 近期板块轮动加速，行情波动加大，部分资金或存在高低切换需求。顶流银行ETF华宝（512800
+中新网深圳4月27日电 (记者 索有为)由广东省发展改革委、深圳市人民政府主办的广东省人工智能应用对接大会4月27日在深圳启幕，这是作为中国经济第一大省的广东首次举办人工智能应用对接大会。 本次以“智联千行、赋能百业”为主题，在深圳设现场对接会场，各地市设视频会场，并通过网络进行线上直播，并在当天下午同步举行5场专题对接会。大会设置政策宣介、案例分享、产品推介、平台发布等核心环
 
 ## 正文
 
-6月2日，银行板块延续强势，沪农商行涨超3%，中信银行涨超2%，招商银行、中国银行、建设银行等涨幅居前。
+中新网深圳4月27日电 (记者 索有为)由广东省发展改革委、深圳市人民政府主办的广东省人工智能应用对接大会4月27日在深圳启幕，这是作为中国经济第一大省的广东首次举办人工智能应用对接大会。
 
-百亿顶流银行ETF华宝（512800）场内价格涨逾1%。
+本次以“智联千行、赋能百业”为主题，在深圳设现场对接会场，各地市设视频会场，并通过网络进行线上直播，并在当天下午同步举行5场专题对接会。
 
-从日线走势看，自5月29日盘中下探阶段新低后，掉头向上连涨3日，接连收复5日、10日、20日线，逼近半年线，行情拐点或已出现。
+大会设置政策宣介、案例分享、产品推介、平台发布等核心环节，集中展现广东人工智能发展最新态势及创新举措，搭建人工智能应用场景对接交流机制，加速推动人工智能全域全时全行业高水平应用。
 
-近期板块轮动加速，行情波动加大，部分资金或存在高低切换需求。
+大会集中宣介广东省人工智能科技、人才、产业、金融等领域支持政策，让企业、机构精准掌握政策导向，推动政策红利快速落地，为人工智能产业发展注入持续动力。
 
-顶流银行ETF华宝（512800）资金面显著活跃，昨日单日大举吸金2.13亿元，近10日资金累计净流入逾3亿元。
+其间，能源、医疗、消费领域的广东省内三家国家人工智能应用中试基地现场介绍了相关建设成果。
 
-今年以来行情极致集中于科技成长等弹性板块，价值方向明显跑输。
+能源领域中试基地由南方电网公司牵头联合广东省交易控股集团、上海人工智能实验室等8家单位共建，基地落户广州市黄埔区。
 
-截至5月末，中证银行指数年内累计下跌6.87%，落后于大盘，42家上市银行全线“破净”，性价比凸显，高股息特性亦有望持续吸引长期资金配置。
+基地锚定五个“1”总体目标，打造电力人工智能中试共创平台，开放1000P国产化多元算力、95个高质量数据集等关键资源，聚焦基础研发、生态服务、检验检测三大板块，赋能源网荷储全产业链。
 
-银河证券指出，银行基本面拐点基本确立，2026年业绩进入改善通道。
+医疗领域中试基地由政府主导，广州实验室、广东省疾控中心等15家专业机构协同建设。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-29 14:08 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 14:14 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 14:07 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 14:01 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
-- 2026-06-29 14:17 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ssjfq.md)
-- 2026-06-29 14:07 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
-- 2026-06-29 14:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 13:58 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengwen.md)
-- 2026-06-29 14:06 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-29 14:17 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 14:23 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lqsst.md)
-- 2026-06-29 14:20 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-29 14:16 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-29 14:24 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
+- 2026-06-29 14:06 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
+- 2026-06-29 14:24 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiliang.md)
+- 2026-06-29 14:02 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-29 14:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lxpjz.md)
+- 2026-06-29 14:27 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
+- 2026-06-29 14:04 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-29 14:26 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 14:07 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 14:12 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 14:14 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pmuam.md)
+- 2026-06-29 14:00 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:15 - [宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/72530.shtml)
-- 2026-06-29 14:05 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/5449677.shtml)
-- 2026-06-29 14:08 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/628196406.shtml)
-- 2026-06-29 14:22 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/235518.shtml)
-- 2026-06-29 14:00 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/08233090877.shtml)
-- 2026-06-29 14:00 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/737488282.shtml)
-- 2026-06-29 13:56 - [袁隆平院士 不容诋毁！](https://www.blog.kurohicncr.top/Article/details/62981.shtml)
-- 2026-06-29 14:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/290229.shtml)
-- 2026-06-29 14:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/977817171811.shtml)
-- 2026-06-29 14:12 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/66727859.shtml)
-- 2026-06-29 14:18 - [海清白玉兰奖运](http://www.share.minike.top/Article/details/18641626332.shtml)
-- 2026-06-29 14:19 - [李在明称韩国足协任命了无能之人](http://www.blog.minike.top/Article/details/08496163.shtml)
-- 2026-06-29 14:08 - [高考公平需要延伸到志愿填报这一环](http://www.blog.minike.top/Article/details/48573.shtml)
-- 2026-06-29 14:05 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/169697.shtml)
-- 2026-06-29 14:12 - [毕业群都在出什么东西](http://www.share.kurohicncr.top/Article/details/92497.shtml)
+- 2026-06-29 14:22 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/638625353.shtml)
+- 2026-06-29 14:29 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.minike.top/Article/details/35655863907.shtml)
+- 2026-06-29 14:26 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/531834412113.shtml)
+- 2026-06-29 14:05 - [普京：俄面临命运攸关时刻](http://www.share.minike.top/Article/details/09415286844.shtml)
+- 2026-06-29 14:20 - [巴西德国15次闯进世界杯淘汰赛](http://www.blog.minike.top/Article/details/789454225397.shtml)
+- 2026-06-29 14:12 - [江语晨 好恨江语晨前夫](http://www.blog.minike.top/Article/details/969717059104.shtml)
+- 2026-06-29 14:16 - [美国近12万名科技员工被解雇](http://www.share.minike.top/Article/details/5733724299.shtml)
+- 2026-06-29 14:22 - [在委侨团负责人：家乡的帮助很及时](http://www.share.kurohicncr.top/Article/details/21929231595.shtml)
+- 2026-06-29 14:06 - [5万块的威力](http://www.blog.minike.top/Article/details/792583.shtml)
+- 2026-06-29 14:09 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.kurohicncr.top/Article/details/3437186442.shtml)
+- 2026-06-29 14:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/095238.shtml)
+- 2026-06-29 14:01 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/49937466.shtml)
+- 2026-06-29 14:24 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/83302.shtml)
+- 2026-06-29 14:10 - [加拿大绝杀南非晋级](https://www.blog.kurohicncr.top/Article/details/888982289.shtml)
+- 2026-06-29 14:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.kurohicncr.top/Article/details/7863325.shtml)

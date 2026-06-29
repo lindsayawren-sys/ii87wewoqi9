@@ -1,56 +1,57 @@
-# 法国巴黎银行：亚洲科技股超级周期远未见顶
+# “固收+”配置窗口仍在，景顺长城李训练：追求稳健的投资者或可关注中低波产品
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-法国巴黎银行表示，至少在短期内，在估值支撑下，科技股超级周期依然是亚洲市场中唯一具有高确定性的盈利增长故事。 “现在就断言科技股周期已经见顶还为时过早，可能最早也要等到2027年上半年才会出现这一担忧。”该行亚太区现货股票研究主管William Bratton在一份报告中写道。 法国巴黎银行表示，这预示着东北亚地区在2026年下半年将比印度更具优势。 在过去三个月中，未来12个
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！张坤、葛兰等最新布局出炉 随着公募基金2026年一季报披露收官，各类型基金规模数据也浮出水面，“固收+” 产品迎来爆发式增长。中金公司研报统计数据显示，截至2026年3月31日，全市场共有2381只“固收+”基金，存量规模达3.54万亿元，较去年同期增长74%。近日，景顺长城混合资产投资部基金经理李训练
 
 ## 正文
 
-法国巴黎银行表示，至少在短期内，在估值支撑下，科技股超级周期依然是亚洲市场中唯一具有高确定性的盈利增长故事。
+专题：2026基金一季报：电力、AI应用成共识，资金大进大出“网红基”遇冷！
 
-“现在就断言科技股周期已经见顶还为时过早，可能最早也要等到2027年上半年才会出现这一担忧。
+张坤、葛兰等最新布局出炉 随着公募基金2026年一季报披露收官，各类型基金规模数据也浮出水面，“固收+” 产品迎来爆发式增长。
 
-”该行亚太区现货股票研究主管William Bratton在一份报告中写道。
+中金公司研报统计数据显示，截至2026年3月31日，全市场共有2381只“固收+”基金，存量规模达3.54万亿元，较去年同期增长74%。
 
-法国巴黎银行表示，这预示着东北亚地区在2026年下半年将比印度更具优势。
+近日，景顺长城混合资产投资部基金经理李训练在媒体交流中表示，低利率环境与“存款搬家”浪潮正持续推动资金向“固收+”产品转移，展望未来，这一趋势或仍将持续。
 
-在过去三个月中，未来12个月盈利预期上调的约85%来自科技板块。
+流动性宽松仍将持续 权益关注趋势向上板块 近期，被称作“利率之锚”的10年期国债收益率跌破1.75%关口，创年内新低。
 
-其中，韩国是推动上调的主要驱动力。
+李训练认为，债券收益率持续走低的核心原因是流动性宽松。
 
-如果剔除科技和能源板块，过去一个季度亚洲市场的整体远期盈利预期仅提高了1%。
+目前整个融资利率略高于1%，这并非市场在交易衰退预期，而是地产、制造业等融资主体扩张偏弱，市场沉淀了大量闲置资金，央行在经济环境不确定的背景下，倾向于保持流动性合理充裕。
 
-中东冲突引发的能源价格上涨，正持续对内需导向型板块构成压力。
+在此背景下，债市收益率大幅下行，除超长债外，各期限债券收益率普遍下行至1.7%-1.8%。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
-- 2026-06-29 14:06 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-29 14:17 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
-- 2026-06-29 14:12 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 14:19 - [清华姚班UP主详解AI专业就业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
-- 2026-06-29 14:16 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
-- 2026-06-29 14:23 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 14:14 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 14:02 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
-- 2026-06-29 14:06 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
+- 2026-06-29 14:22 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 14:12 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edcal.md)
+- 2026-06-29 14:25 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 14:12 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 14:21 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 14:21 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 14:07 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 14:22 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
+- 2026-06-29 14:29 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 14:17 - [新一代影后杨紫](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 14:17 - [美人鱼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/13185.shtml)
-- 2026-06-29 13:56 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/80312669673.shtml)
-- 2026-06-29 14:12 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/31726.shtml)
-- 2026-06-29 14:13 - [中国战机大片上新](http://www.blog.minike.top/Article/details/558259.shtml)
-- 2026-06-29 13:57 - [韩国拟将部分刑责年龄降至13岁](https://www.share.minike.top/Article/details/126150.shtml)
-- 2026-06-29 14:17 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/936554514074.shtml)
-- 2026-06-29 13:55 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/39143580430.shtml)
-- 2026-06-29 13:59 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/1152055994.shtml)
-- 2026-06-29 13:54 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/351025025646.shtml)
-- 2026-06-29 14:02 - [女子遭家暴两次起诉离婚均被驳回](http://www.blog.minike.top/Article/details/80565.shtml)
-- 2026-06-29 14:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/09310.shtml)
-- 2026-06-29 14:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.minike.top/Article/details/689479231.shtml)
-- 2026-06-29 13:55 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.minike.top/Article/details/153467732333.shtml)
-- 2026-06-29 13:55 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/54160736.shtml)
-- 2026-06-29 13:59 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.share.kurohicncr.top/Article/details/5151075.shtml)
+- 2026-06-29 14:29 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/335850.shtml)
+- 2026-06-29 14:10 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/907658343729.shtml)
+- 2026-06-29 14:28 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/0610334378.shtml)
+- 2026-06-29 14:11 - [吴建豪老婆](https://www.blog.minike.top/Article/details/8205415.shtml)
+- 2026-06-29 14:28 - [四川宜宾5.5级地震已致13人轻微伤](https://www.blog.kurohicncr.top/Article/details/59688.shtml)
+- 2026-06-29 14:12 - [巴西发布对阵日本宣传片](https://www.share.minike.top/Article/details/85230305.shtml)
+- 2026-06-29 14:11 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/25060492432.shtml)
+- 2026-06-29 14:10 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.blog.minike.top/Article/details/9115279711.shtml)
+- 2026-06-29 14:23 - [媒体人：警惕日本再次成战争加害国](https://www.share.kurohicncr.top/Article/details/93841184694.shtml)
+- 2026-06-29 14:19 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/851451562951.shtml)
+- 2026-06-29 14:00 - [委内瑞拉地震已致1450死3150伤](http://www.share.minike.top/Article/details/247965.shtml)
+- 2026-06-29 14:19 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/289378930143.shtml)
+- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/057936.shtml)
+- 2026-06-29 14:29 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/9453099.shtml)
+- 2026-06-29 14:26 - [大 周 礼 时 代(4)](http://www.blog.minike.top/Article/details/34980013632.shtml)

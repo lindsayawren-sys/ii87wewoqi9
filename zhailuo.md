@@ -1,56 +1,61 @@
-# 小泉进次郎否认日本走向“新型军国主义”，外交部：有关说辞毫无根据
+# 东方甄选“初代主播天团”集体请辞，俞敏洪道歉有用吗？
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-6月1日，外交部发言人林剑主持例行记者会。 据报道，日本防卫大臣小泉进次郎在香格里拉对话会期间反驳有关日本走向“新型军国主义”的指控，称有一个国家拥有庞大的核武器库和战略轰炸机，为何日本两者皆无却被贴上“新型军国主义”标签，并称二战后日本一贯恪守包括《联合国宪章》在内的国际法，维护自由开放的国际秩序，将始终开放对话的大门，同包括中国在内的相关国家开展对话，以维护地区和世界和平稳
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源 | 野马财经 作者 | 方璐 虞灏 主力主播为何黯然离场 临近五一假期，原本是部分主播在屏幕前投入时间比平日更长的阶段，东方甄选（1797.HK）内部却来了一波人事“地震”——明明、天权、中灿、林林4位平均在公司待了3年的老主播集体同日辞职。 4月25日，4位主播提出辞职后，东方甄选人力资源部表示俞敏
 
 ## 正文
 
-6月1日，外交部发言人林剑主持例行记者会。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-据报道，日本防卫大臣小泉进次郎在香格里拉对话会期间反驳有关日本走向“新型军国主义”的指控，称有一个国家拥有庞大的核武器库和战略轰炸机，为何日本两者皆无却被贴上“新型军国主义”标签，并称二战后日本一贯恪守包括《联合国宪章》在内的国际法，维护自由开放的国际秩序，将始终开放对话的大门，同包括中国在内的相关国家开展对话，以维护地区和世界和平稳定。
+来源 | 野马财经 作者 | 方璐 虞灏 主力主播为何黯然离场 临近五一假期，原本是部分主播在屏幕前投入时间比平日更长的阶段，东方甄选（1797.HK）内部却来了一波人事“地震”——明明、天权、中灿、林林4位平均在公司待了3年的老主播集体同日辞职。
 
-会上，法新社记者提问，中方对此有何评论？
+4月25日，4位主播提出辞职后，东方甄选人力资源部表示俞敏洪曾做了“诚挚沟通和挽留”，最终尊重他们的选择。
 
-林剑表示，你提到的日本官员的有关说辞毫无根据，在一系列历史、法理和事实、数字面前苍白无力，根本无法取信于亚洲邻国和国际社会。
+关于他们的辞职，东方甄选如何看待，今后在留住人才方面会有哪些新调整？
 
-林剑指出，日本军国主义曾在二战期间犯下滔天罪行，给亚洲邻国和盟军造成深重灾难。
+针对这些疑问，东方甄选方面表示，“这两天外界对我们关注有点多，我们暂时不方便回应。
 
-为防止军国主义死灰复燃，《开罗宣言》《波茨坦公告》等具有国际法效力的文件明确规定，日本应完全解除武装，不得维持能使其重新武装的产业。
+” 盘古智库高级研究员江瀚认为，“东方甄选F4”核心成员集体辞职短期对该公司具有冲击，他们4位是平台“知识带货”标签的重要承载者，辞职必然导致部分基于个人IP认同的粉丝流失，引发品牌情感链接的断裂，或带来短期GMV下滑与用户活跃度下降。
 
-日本宪法对军力、交战权、战争权也作出严格限制，并确立了“专守防卫”等原则和一系列国内法的规制。
+江瀚进一步分析称，此事件是该公司“去头部化”战略推进过程中一次集中压力测试，虽暴露了转型阵痛，但却不会动摇其转向“线上山姆”模式的根本意图。
 
-然而我们看到的是，日本最新的防卫预算已突破9万亿日元，连续14年刷新战后历史的最高纪录，人均防卫费达到中国的3倍，防卫费占GDP的比重已飙升至2%，甚至还要进一步提升至3.5%。
+东方甄选近年来着力构建自营产品体系与供应链能力，正是为对冲此类单一人才流失风险。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 14:20 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-29 14:09 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-29 14:11 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alfzj.md)
-- 2026-06-29 14:05 - [迈巴赫提车第二天发现大灯起雾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
-- 2026-06-29 13:55 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
-- 2026-06-29 14:18 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pqlnh.md)
-- 2026-06-29 14:08 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 14:14 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
-- 2026-06-29 13:56 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 14:04 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
+- 2026-06-29 14:19 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
+- 2026-06-29 14:19 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
+- 2026-06-29 14:20 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 14:29 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 14:16 - [久坐小心“死臀综合征”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-29 14:23 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 14:28 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 14:19 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuzyi.md)
+- 2026-06-29 14:24 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
+- 2026-06-29 14:15 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/beizhuang.md)
+- 2026-06-29 14:24 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 14:01 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuokuan.md)
+- 2026-06-29 14:16 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoyao.md)
+- 2026-06-29 14:19 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [王楚钦美国大满贯晋级32强](http://www.blog.minike.top/Article/details/80608783.shtml)
-- 2026-06-29 14:01 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/79048524.shtml)
-- 2026-06-29 14:20 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.minike.top/Article/details/586618075623.shtml)
-- 2026-06-29 14:10 - [中国战机大片上新](https://www.share.minike.top/Article/details/6366798333.shtml)
-- 2026-06-29 14:19 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/2942683.shtml)
-- 2026-06-29 13:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/986750344503.shtml)
-- 2026-06-29 14:05 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/19256992.shtml)
-- 2026-06-29 14:22 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/730615.shtml)
-- 2026-06-29 14:08 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/79138370939.shtml)
-- 2026-06-29 14:01 - [美国近12万名科技员工被解雇](https://www.share.minike.top/Article/details/3734848.shtml)
-- 2026-06-29 14:02 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/77148.shtml)
-- 2026-06-29 14:14 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.minike.top/Article/details/727583066909.shtml)
-- 2026-06-29 14:05 - [吴磊爱上回收了](https://www.share.minike.top/Article/details/33062.shtml)
-- 2026-06-29 14:22 - [青春环游记第三季](http://www.blog.minike.top/Article/details/44759012.shtml)
-- 2026-06-29 13:55 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/3626451.shtml)
+- 2026-06-29 14:29 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/6424810.shtml)
+- 2026-06-29 14:10 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/298630.shtml)
+- 2026-06-29 14:27 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/42047131897.shtml)
+- 2026-06-29 14:04 - [急先锋](http://www.blog.minike.top/Article/details/3973646.shtml)
+- 2026-06-29 14:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/14341392326.shtml)
+- 2026-06-29 14:16 - [我国多领域发布亮眼“成绩单”](https://www.blog.kurohicncr.top/Article/details/86491485494.shtml)
+- 2026-06-29 14:25 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/83848919.shtml)
+- 2026-06-29 14:17 - [当我回母校教书](https://www.share.minike.top/Article/details/73492.shtml)
+- 2026-06-29 14:05 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/135097351.shtml)
+- 2026-06-29 14:17 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/469471042568.shtml)
+- 2026-06-29 14:27 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.kurohicncr.top/Article/details/7460468.shtml)
+- 2026-06-29 14:20 - [南部战区位南海海域进行例行巡航](http://www.blog.kurohicncr.top/Article/details/50429095.shtml)
+- 2026-06-29 14:27 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.kurohicncr.top/Article/details/7932178190.shtml)
+- 2026-06-29 14:28 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/83634.shtml)
+- 2026-06-29 14:25 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/9738206361.shtml)

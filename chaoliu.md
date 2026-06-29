@@ -1,59 +1,57 @@
-# 军工三连跌！华宝基金军工ETF（512810）失守年线！联创光电领跌，商业航天概念齐挫
+# 特斯拉注册与马斯克2018年薪酬方案相关的逾3亿股股票，价值近1150亿美元
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-6月2日早盘，军工板块迅速走低，军工核心资产——军工ETF华宝（512810）盘中跌逾3%创近3月新低，截至发稿跌1.62%失守年线，场内频现溢价，买盘资金依旧活跃，此前2个交易日逾3000万元资金逢跌净申购。 成份股普跌，联创光电领跌5%，商业航天概念继续调整，航天南湖、航天发展、航天电子集体重挫。 东方证券6月1日发布的军工行业周报表示，二季度以来，风险偏好从前期的中间往两
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：持股还是持币？机构看好A股“红五月”行情 当地时间4月24日，特斯拉向美国证券交易委员会（SEC）提交文件，登记注册了与马斯克2018年薪酬方案相关的约3.04亿股普通股。按特斯拉当前约378美元的股价计算，这批股票总价值近1150亿美元。 特斯拉股东于2012年投票决定授予这项备受争议的期权。2024年，特拉华州一名法官
 
 ## 正文
 
-6月2日早盘，军工板块迅速走低，军工核心资产——军工ETF华宝（512810）盘中跌逾3%创近3月新低，截至发稿跌1.62%失守年线，场内频现溢价，买盘资金依旧活跃，此前2个交易日逾3000万元资金逢跌净申购。
+登录新浪财经APP 搜索【信披】查看更多考评等级 专题：持股还是持币？
 
-成份股普跌，联创光电领跌5%，商业航天概念继续调整，航天南湖、航天发展、航天电子集体重挫。
+机构看好A股“红五月”行情 当地时间4月24日，特斯拉向美国证券交易委员会（SEC）提交文件，登记注册了与马斯克2018年薪酬方案相关的约3.04亿股普通股。
 
-东方证券6月1日发布的军工行业周报表示，二季度以来，风险偏好从前期的中间往两端扩散，军工板块受此影响较大，但是两机产业化共振、商业航天的中长期趋势不变，我们继续看好这两个板块，同时建议关注下半年内需军工的投资机会。
+按特斯拉当前约378美元的股价计算，这批股票总价值近1150亿美元。
 
-估值层面，军工ETF华宝（512810）标的指数市盈率（TTM）消化至近3年50%分位点，配置性价比凸显。
+特斯拉股东于2012年投票决定授予这项备受争议的期权。
 
-【投军工，选“八一”】代码有“八一”的军工ETF华宝（512810）（原国防军工ETF）汇聚“海陆空天”尖端军工科技，全面覆盖商业航天、军工AI、大飞机、低空经济等热门主题。
+2024年，特拉华州一名法官以股东信息披露不足为由，宣布该期权无效。
 
-同时是融资融券+互联互通标的，是一键投资军工核心资产的高效工具。
+同年，特斯拉股东再次批准了该期权，但法官并未改变判决。
 
-数据来源于沪深交易所、公开信息。
+最终，特拉华州最高法院于2025年支持特斯拉，维持了马斯克的股票期权。
 
-注：投资者在申购或赎回基金份额时，申购赎回代理机构可按照不超过0.5%的标准收取佣金，其中包含证券交易所、登记机构等收取的相关费用。
+为了获得该奖励，特斯拉的市值基本上必须达到6500亿美元。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ukpxk.md)
-- 2026-06-29 14:12 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-29 13:56 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 13:57 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
-- 2026-06-29 14:02 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 14:05 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 14:10 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 14:07 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
-- 2026-06-29 14:21 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rwemw.md)
-- 2026-06-29 13:56 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
-- 2026-06-29 14:15 - [王楚钦 表演球擦网](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-29 14:03 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 14:03 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 14:02 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinkuang.md)
+- 2026-06-29 14:04 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
+- 2026-06-29 14:20 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-29 14:23 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 14:08 - [和阿根廷球员家属一起看球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
+- 2026-06-29 14:00 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 14:29 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqca.md)
+- 2026-06-29 14:25 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
+- 2026-06-29 14:23 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzcnv.md)
+- 2026-06-29 14:29 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
+- 2026-06-29 14:17 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:57 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/3852255.shtml)
-- 2026-06-29 14:02 - [韩国记者：解码“合肥模式”](http://www.blog.minike.top/Article/details/64017.shtml)
-- 2026-06-29 14:02 - [Agent带来token消耗爆炸](https://www.share.kurohicncr.top/Article/details/25328841596.shtml)
-- 2026-06-29 14:14 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/462405652724.shtml)
-- 2026-06-29 14:19 - [去了一趟潮汕。](http://www.blog.kurohicncr.top/Article/details/0529896.shtml)
-- 2026-06-29 14:00 - [吴建豪老婆](http://www.blog.kurohicncr.top/Article/details/652577119941.shtml)
-- 2026-06-29 14:05 - [大疆7月15日起涨价？公司回应](http://www.share.kurohicncr.top/Article/details/09363433386.shtml)
-- 2026-06-29 14:19 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/69111602.shtml)
-- 2026-06-29 14:15 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/55164021875.shtml)
-- 2026-06-29 14:17 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/55979687.shtml)
-- 2026-06-29 14:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.share.minike.top/Article/details/498198.shtml)
-- 2026-06-29 13:59 - [退休化学教授帮医药研发人员制毒](http://www.blog.kurohicncr.top/Article/details/9687235476.shtml)
-- 2026-06-29 13:58 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/988658160.shtml)
-- 2026-06-29 13:54 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.share.kurohicncr.top/Article/details/287840273.shtml)
-- 2026-06-29 14:21 - [世界杯欧美八大豪强悉数出线](http://www.blog.kurohicncr.top/Article/details/68812.shtml)
+- 2026-06-29 14:29 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.blog.kurohicncr.top/Article/details/221168.shtml)
+- 2026-06-29 14:24 - [龟梨和也田中美奈实结婚](http://www.blog.minike.top/Article/details/061558560016.shtml)
+- 2026-06-29 14:07 - [艾莎唱出了多少牛马的心声🥹](https://www.share.minike.top/Article/details/28422933098.shtml)
+- 2026-06-29 14:22 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/648542573066.shtml)
+- 2026-06-29 14:05 - [强⁶](https://www.blog.minike.top/Article/details/767507.shtml)
+- 2026-06-29 14:00 - [2025年人口增长10强城市出炉](http://www.share.kurohicncr.top/Article/details/34829088925.shtml)
+- 2026-06-29 14:04 - [詹俊预测德国大胜巴拉圭](http://www.share.minike.top/Article/details/69898739357.shtml)
+- 2026-06-29 14:12 - [韩国媒体破防：被中国球迷当笑柄](http://www.blog.minike.top/Article/details/778622494.shtml)
+- 2026-06-29 14:09 - [2021江苏卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/70797471409.shtml)
+- 2026-06-29 14:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/76078.shtml)
+- 2026-06-29 14:29 - [开电动汽车真的很省钱吗？](https://www.share.kurohicncr.top/Article/details/438624977.shtml)
+- 2026-06-29 14:19 - [强⁶](https://www.share.minike.top/Article/details/44554070.shtml)
+- 2026-06-29 14:17 - [勇敢的心第二部](http://www.share.minike.top/Article/details/600173190.shtml)
+- 2026-06-29 14:01 - [给阿嬷的情书海外口碑](http://www.blog.kurohicncr.top/Article/details/4798072462.shtml)
+- 2026-06-29 14:18 - [84岁英国教授成中国网红](https://www.share.minike.top/Article/details/38112849478.shtml)

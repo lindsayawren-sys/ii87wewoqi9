@@ -1,61 +1,55 @@
-# 2026文学京彩季·大家小课首期开讲
+# 原油运输船“驭能蛟龙”轮在辽宁大连命名交付
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 高凯)由北京市文联主办、北京作家协会承办的“2026文学京彩季·大家小课”首期活动日前在北京市文联艺术工坊举行。活动特邀中国作协副主席、国际纳西学学会会长白庚胜以“文学创作的文化动力”为题授课。 白庚胜长期深耕民族文学、民间文化与文学创作研究，在中国少数民族文学与民间文化遗产保护领域成果丰硕，其作品被翻译为20余种语言在海外传播。 讲座中，白庚胜围
+中新网大连4月27日电 (记者 杨毅)由大连中远海运重工为中远海运能源建造的6.49万吨巴拿马型原油运输船“驭能蛟龙”轮，27日在大连命名交付。 “驭能蛟龙”轮总长224.9米、型宽38米、型深18米，满载吃水11.52米，设计吃水11.2米，设计航速14.0节，航行性能、操控品质等关键指标全面达标且多项优于设计标准。 据大连中远海运重工项目管理部经理陈雪飞介绍，该船可选用燃料
 
 ## 正文
 
-中新网北京6月1日电 (记者 高凯)由北京市文联主办、北京作家协会承办的“2026文学京彩季·大家小课”首期活动日前在北京市文联艺术工坊举行。
+中新网大连4月27日电 (记者 杨毅)由大连中远海运重工为中远海运能源建造的6.49万吨巴拿马型原油运输船“驭能蛟龙”轮，27日在大连命名交付。
 
-活动特邀中国作协副主席、国际纳西学学会会长白庚胜以“文学创作的文化动力”为题授课。
+“驭能蛟龙”轮总长224.9米、型宽38米、型深18米，满载吃水11.52米，设计吃水11.2米，设计航速14.0节，航行性能、操控品质等关键指标全面达标且多项优于设计标准。
 
-白庚胜长期深耕民族文学、民间文化与文学创作研究，在中国少数民族文学与民间文化遗产保护领域成果丰硕，其作品被翻译为20余种语言在海外传播。
+据大连中远海运重工项目管理部经理陈雪飞介绍，该船可选用燃料油、船用轻柴油及生物燃料，配备选择性催化还原系统(SCR)，排放满足国际海事组织氮氧化物TierⅢ排放标准；符合多项国际及行业要求，取得甲醇预留符号，能效处于行业领先。
 
-讲座中，白庚胜围绕“文化”与“文明”的关系展开论述，从中华文明的发展脉络切入，结合中国文字、民间文化、非物质文化遗产等内容，探讨文学创作与文化传承之间的关系。
+在船舶智能化方面，该船配备全套智能系统与设备，取得中国船级社网络安全符号，实现运营、监控、维护智能化升级，提升航行安全与运营效率。
 
-他认为，文学是文化的重要组成部分，也是提升文化素养和审美能力的重要途径。
+此外，该船适配海进江航线，具备浅吃水特点，可灵活穿梭近海与内河，为“海进江”能源运输通道提供有力支撑。
 
-从《诗经》、楚辞到唐诗宋词，中国文学为中华文明的发展提供了重要精神滋养。
+陈雪飞表示，“驭能蛟龙”轮的顺利交付，延续了首制船绿色智能理念，后续将为国家能源运输保供、航运业绿色低碳转型赋能。
 
-谈及新时代文学创作，白庚胜表示，文学工作者应坚持“深入生活、扎根人民”，真正走进基层、走近群众，在广阔社会生活中发现创作素材，感知时代脉搏。
-
-他认为，文学创作既要书写个人生活与真实情感，也应将个体经验放在时代发展和历史进程中加以观照，以普通人的视角反映更广阔的社会现实。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:56 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-29 13:58 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 14:16 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
-- 2026-06-29 14:19 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 14:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kulan.md)
-- 2026-06-29 14:22 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-29 14:00 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-29 14:07 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
-- 2026-06-29 13:56 - [42岁郭碧婷纯素颜状态](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkcbi.md)
-- 2026-06-29 14:14 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 14:05 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-29 14:19 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/evtvg.md)
-- 2026-06-29 14:05 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
-- 2026-06-29 14:19 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 14:00 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaiman.md)
+- 2026-06-29 14:06 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaochuan.md)
+- 2026-06-29 14:17 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-29 14:18 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-29 14:12 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 14:03 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 14:28 - [中餐厅南北饮食差异](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 14:05 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
+- 2026-06-29 14:29 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 14:08 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guanhui.md)
+- 2026-06-29 14:02 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-29 14:29 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/4262796986.shtml)
-- 2026-06-29 14:10 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/75204270457.shtml)
-- 2026-06-29 14:16 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/362597380.shtml)
-- 2026-06-29 14:00 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/393305511.shtml)
-- 2026-06-29 14:19 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.blog.kurohicncr.top/Article/details/05534602.shtml)
-- 2026-06-29 14:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/274921894927.shtml)
-- 2026-06-29 14:10 - [大疆7月15日起涨价？公司回应](http://www.blog.kurohicncr.top/Article/details/32700437.shtml)
-- 2026-06-29 14:00 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/10266878254.shtml)
-- 2026-06-29 13:59 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.share.kurohicncr.top/Article/details/3468835.shtml)
-- 2026-06-29 14:22 - [比亚迪市值为何蒸发8000亿](https://www.blog.minike.top/Article/details/8579121.shtml)
-- 2026-06-29 13:57 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/53839854881.shtml)
-- 2026-06-29 14:21 - [105年初心滚烫](http://www.share.minike.top/Article/details/61839870451.shtml)
-- 2026-06-29 14:12 - [美伊同意停止互袭 30日在多哈谈判](http://www.blog.minike.top/Article/details/60453771.shtml)
-- 2026-06-29 14:09 - [欧洲人驾车200公里抢购中国空调](http://www.blog.kurohicncr.top/Article/details/30809.shtml)
-- 2026-06-29 13:55 - [比亚迪市值为何蒸发8000亿](https://www.blog.kurohicncr.top/Article/details/73886.shtml)
+- 2026-06-29 14:07 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/62768662814.shtml)
+- 2026-06-29 14:23 - [毕业群都在出什么东西](http://www.blog.kurohicncr.top/Article/details/1480583933.shtml)
+- 2026-06-29 14:15 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/59677.shtml)
+- 2026-06-29 14:13 - [多家银行收紧个人贵金属业务](http://www.share.minike.top/Article/details/2364959.shtml)
+- 2026-06-29 14:04 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/404709302232.shtml)
+- 2026-06-29 14:18 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](http://www.blog.minike.top/Article/details/37978.shtml)
+- 2026-06-29 14:02 - [2026年Mac能玩游戏了吗](http://www.blog.minike.top/Article/details/745655639473.shtml)
+- 2026-06-29 14:29 - [中方将20家日本实体列入出口管制名单](https://www.blog.kurohicncr.top/Article/details/7479642102.shtml)
+- 2026-06-29 14:28 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/31435775438.shtml)
+- 2026-06-29 14:17 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/5722849734.shtml)
+- 2026-06-29 14:16 - [如何“亲菌子”又“远小人儿”](https://www.share.minike.top/Article/details/1279275.shtml)
+- 2026-06-29 14:23 - [在家赤身裸体是否绝对自由](http://www.blog.kurohicncr.top/Article/details/42653096331.shtml)
+- 2026-06-29 14:23 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/837041411.shtml)
+- 2026-06-29 14:24 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/67891717763.shtml)
+- 2026-06-29 14:10 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/465686901331.shtml)

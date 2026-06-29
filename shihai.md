@@ -1,57 +1,60 @@
-# 跨境支付巨头Wise涉嫌洗钱5亿欧元 遭到比利时检方调查
+# 第139届广交会二期闭幕
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-比利时检方针对跨境支付巨头Wise启动反洗钱调查，因后者涉嫌金额约5亿欧元（约合5.83亿美元）的可疑洗钱交易。 布鲁塞尔检察官办公室已确认于2025年对Wise欧洲子公司Wise Europe启动司法调查，目前调查已进入收尾阶段。检方指出，Wise账户被怀疑用于欺诈、腐败、毒品交易等犯罪活动的资金流转，公司可能存在客户身份识别等方面的反洗钱合规缺失。调查源于来自30多个欧洲国
+中新网广州4月27日电 (记者 程景伟)第139届广交会第二期27日闭幕。据广交会新闻中心通报，本届广交会自4月15日开幕以来，截至27日17时，共有来自219个国家和地区的24.5万名境外采购商到会，比上届同期(下同)增长2.2%。 同时，140家境外工商机构组团参会；468个采购团中，美国塔吉特、墨西哥利物浦、英国乐购、德国麦德龙等344家头部企业组团参会，增长4.9%。
 
 ## 正文
 
-比利时检方针对跨境支付巨头Wise启动反洗钱调查，因后者涉嫌金额约5亿欧元（约合5.83亿美元）的可疑洗钱交易。
+中新网广州4月27日电 (记者 程景伟)第139届广交会第二期27日闭幕。
 
-布鲁塞尔检察官办公室已确认于2025年对Wise欧洲子公司Wise Europe启动司法调查，目前调查已进入收尾阶段。
+据广交会新闻中心通报，本届广交会自4月15日开幕以来，截至27日17时，共有来自219个国家和地区的24.5万名境外采购商到会，比上届同期(下同)增长2.2%。
 
-检方指出，Wise账户被怀疑用于欺诈、腐败、毒品交易等犯罪活动的资金流转，公司可能存在客户身份识别等方面的反洗钱合规缺失。
+同时，140家境外工商机构组团参会；468个采购团中，美国塔吉特、墨西哥利物浦、英国乐购、德国麦德龙等344家头部企业组团参会，增长4.9%。
 
-调查源于来自30多个欧洲国家的数百份司法协助请求，这些请求均涉及Wise账户。
+本届广交会分三期在广州举办，展览总面积155万平方米，展位总数7.57万个，参展企业超3.2万家。
 
-Wise确认正配合布鲁塞尔检方调查，但强调调查仍在进行中，尚未收到任何具体调查结论。
+其中，第二期聚焦“品质家居”主题，展览面积51.5万平方米，展位2.5万个，包括家庭用品、礼品及装饰品、建材及家具三大板块，新设时尚饰品、竹木餐具、竹木家居用品、集成房屋及庭院设施4个专区。
 
-公司在声明中表示，来自执法机构的信息请求是正常运营的一部分，其本身并不代表公司违反了反洗钱要求或存在任何不当行为。
+本届广交会第二期共举办165场新品首发活动，重点围绕绿色建材、创意家居及餐厨好物等主题，全方位展示中国制造的向新、向绿、向智特色。
 
-但市场对此反应剧烈。
+据悉，本届广交会第三期将于5月1日至5日举行，展品涉及玩具及婴孕童、时尚、家用纺织品、文具、健康休闲等领域。
 
-这是Wise首次因合规问题遭遇大规模刑事调查，此前公司已有“前科”：2022年比利时央行曾要求其整改客户文件问题；2025年7月，其美国子公司因反洗钱漏洞被多家州监管机构罚款420万美元。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 14:04 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
-- 2026-06-29 14:15 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-29 13:59 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-29 13:58 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-29 14:22 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daury.md)
-- 2026-06-29 14:23 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
-- 2026-06-29 14:23 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
-- 2026-06-29 14:17 - [ENC瓦中国香港负印度数据图](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aorav.md)
-- 2026-06-29 14:04 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 14:17 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 14:11 - [美媒：空警-3000服役即成全球最强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 14:25 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:14 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-29 14:00 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-29 14:28 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-29 14:29 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zaoju.md)
+- 2026-06-29 14:13 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-29 14:27 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltnqz.md)
+- 2026-06-29 14:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
+- 2026-06-29 14:11 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 14:26 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-29 14:22 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fqcdk.md)
+- 2026-06-29 14:28 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duanhe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.kurohicncr.top/Article/details/64248324000.shtml)
-- 2026-06-29 14:22 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/684694020685.shtml)
-- 2026-06-29 14:06 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/03296046.shtml)
-- 2026-06-29 14:08 - [2025年人口增长10强城市出炉](http://www.blog.minike.top/Article/details/4561535809.shtml)
-- 2026-06-29 14:07 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/213686.shtml)
-- 2026-06-29 14:13 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/744511517218.shtml)
-- 2026-06-29 14:10 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/504099.shtml)
-- 2026-06-29 14:02 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.minike.top/Article/details/252181451.shtml)
-- 2026-06-29 14:08 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/384100.shtml)
-- 2026-06-29 14:21 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.minike.top/Article/details/457315389333.shtml)
-- 2026-06-29 13:58 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://www.share.kurohicncr.top/Article/details/043397201091.shtml)
-- 2026-06-29 14:16 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/98434383968.shtml)
-- 2026-06-29 14:17 - [刘烨16岁儿子诺一颜值](http://www.blog.kurohicncr.top/Article/details/0459160.shtml)
-- 2026-06-29 14:00 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/95202759.shtml)
-- 2026-06-29 14:11 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.kurohicncr.top/Article/details/206154.shtml)
+- 2026-06-29 14:25 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/65336898.shtml)
+- 2026-06-29 14:25 - [日本主帅：目标是冠军](https://www.share.minike.top/Article/details/5164306.shtml)
+- 2026-06-29 14:22 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/10243.shtml)
+- 2026-06-29 14:14 - [亚洲成世界杯最大失意者联盟](https://www.share.minike.top/Article/details/41565252.shtml)
+- 2026-06-29 14:12 - [DSpark论文深度解读](https://www.blog.minike.top/Article/details/617304277391.shtml)
+- 2026-06-29 14:14 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.kurohicncr.top/Article/details/992270.shtml)
+- 2026-06-29 14:02 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.kurohicncr.top/Article/details/4401079.shtml)
+- 2026-06-29 14:21 - [韩剧编剧又升级了](https://www.blog.kurohicncr.top/Article/details/014797659.shtml)
+- 2026-06-29 14:00 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/23004852880.shtml)
+- 2026-06-29 14:14 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.kurohicncr.top/Article/details/1939505.shtml)
+- 2026-06-29 14:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/395037150.shtml)
+- 2026-06-29 14:13 - [韩国记者：解码“合肥模式”](http://www.share.minike.top/Article/details/676311844.shtml)
+- 2026-06-29 14:15 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/85142.shtml)
+- 2026-06-29 14:02 - [T1零封KC MSI](https://www.share.kurohicncr.top/Article/details/03464.shtml)
+- 2026-06-29 14:05 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/32870.shtml)

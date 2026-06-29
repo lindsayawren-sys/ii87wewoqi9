@@ -1,57 +1,54 @@
-# 内蒙古启动2026年困境儿童关爱主题活动
+# 一季度石家庄海关签发RCEP原产地证书2532份
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网呼和浩特6月1日电 (记者 奥蓝)6月1日，“润心伴成长同心护未来”内蒙古自治区困境儿童关爱服务主题活动(以下简称主题活动)启动仪式在呼和浩特市举办。 启动仪式由内蒙古民政厅、教育厅、卫生健康委、司法厅、广电局、团委、妇儿工委办、妇联等共同组织开展。 按照计划，主题活动将以广大儿童的精神素养培育、关爱帮扶服务、安全防线守护、时代风采展示为重点，计划在这个夏天集中开展爱国主
+中新网石家庄4月28日电 (赵丹媚 谌诗雨 张诚)石家庄海关28日消息，今年一季度，石家庄海关为河北省出口企业签发《区域全面经济伙伴关系协定》(RCEP)原产地证书2532份，签证金额11.8亿元，享受进口国关税减免约1776万元，同比分别增长18.4%、64.2%和64.2%。“今年以来，我们公司在海关办理了93份RCEP原产地证书，凭借这些证书，可以享受到140多万元的关税
 
 ## 正文
 
-中新网呼和浩特6月1日电 (记者 奥蓝)6月1日，“润心伴成长同心护未来”内蒙古自治区困境儿童关爱服务主题活动(以下简称主题活动)启动仪式在呼和浩特市举办。
+中新网石家庄4月28日电 (赵丹媚 谌诗雨 张诚)石家庄海关28日消息，今年一季度，石家庄海关为河北省出口企业签发《区域全面经济伙伴关系协定》(RCEP)原产地证书2532份，签证金额11.8亿元，享受进口国关税减免约1776万元，同比分别增长18.4%、64.2%和64.2%。
 
-启动仪式由内蒙古民政厅、教育厅、卫生健康委、司法厅、广电局、团委、妇儿工委办、妇联等共同组织开展。
+“今年以来，我们公司在海关办理了93份RCEP原产地证书，凭借这些证书，可以享受到140多万元的关税减免。
 
-按照计划，主题活动将以广大儿童的精神素养培育、关爱帮扶服务、安全防线守护、时代风采展示为重点，计划在这个夏天集中开展爱国主义教育、实地参观见学、心理健康关爱、家庭监护提升、文艺汇演等多形式、多渠道、多层次的“点亮”活动。
+”河北沧州某塑料薄膜出口企业经理刘明说，海关动态跟踪企业出口情况，建立专属服务机制，匹配最优关税减让方案，为他们进一步开拓海外市场提供了保障。
 
-“进一步提升内蒙古困境儿童福利保障工作质量和水平，护航困境儿童愉快生活、健康成长、全面发展，真正把青少年培养成为拥有‘四个自信’的孩子。
+据悉，为让原产地政策加快转化为企业出海红利，石家庄海关还持续推行“线上申请+智能审签+自助打印”签证模式，指导企业规范填报，压缩审核时限，实现原产地证书即报即审即领。
 
-”谈及主题活动目的，内蒙古民政厅副厅长朝克如是介绍。
-
-同时，朝克还表示，内蒙古正在逐步形成民政牵头、部门协作、家庭尽责、社会参与，服务主体多元、服务方式多样、转介衔接顺畅、干预帮扶精准的新时代困境儿童关爱服务工作格局。
-
-为此，他发出倡议：内蒙古民政厅要牵头，不断健全完善困境儿童关爱服务部门协同联动机制、常态化关爱服务机制、专业资源投入机制、社会力量参与机制等，构建起困境儿童心理健康全链条守护体系；各相关部门要将困境儿童心理健康关爱服务纳入各部门业务培训内容，不断提升基层儿童工作队伍的专业素养和实操技能；还要积极倡导、支持企事业单位、社会组织和社会各界爱心人士积极参与到困境儿童关爱服务行动中来。
+石家庄海关关税处副处长薛茜表示，下一步，将特别加强对中小微企业和新兴业态的辅导，通过大数据分析报关数据，建立政策适配企业清单，助力更多外贸企业用好原产地优惠政策拓展国际市场。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 13:57 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-29 14:22 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
-- 2026-06-29 14:09 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 14:17 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-29 14:19 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-29 14:22 - [王楚钦美国大满贯晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-29 14:16 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
-- 2026-06-29 14:05 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 14:08 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
-- 2026-06-29 14:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 14:05 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
+- 2026-06-29 14:08 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-29 14:25 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 14:12 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
+- 2026-06-29 14:20 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-29 14:24 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 14:20 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 14:30 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-29 14:08 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
+- 2026-06-29 14:11 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
+- 2026-06-29 14:16 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanjiong.md)
+- 2026-06-29 14:09 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
+- 2026-06-29 14:11 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:03 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.minike.top/Article/details/602789492647.shtml)
-- 2026-06-29 14:03 - [女子遭家暴逃跑致丈夫身亡二审判决](https://www.blog.kurohicncr.top/Article/details/118538.shtml)
-- 2026-06-29 14:12 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/728013319479.shtml)
-- 2026-06-29 14:11 - [德国连续三天刷新本国最高气温纪录](https://www.blog.kurohicncr.top/Article/details/70215103291.shtml)
-- 2026-06-29 14:01 - [四川宜宾地震致13人受轻微伤](https://www.share.minike.top/Article/details/066497715635.shtml)
-- 2026-06-29 14:07 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/53849198.shtml)
-- 2026-06-29 14:11 - [利率一再降 “存款搬家”搬去哪](https://www.share.minike.top/Article/details/15161005260.shtml)
-- 2026-06-29 14:19 - [薛之谦演唱会](http://www.blog.minike.top/Article/details/5331731.shtml)
-- 2026-06-29 14:03 - [时光音乐会](https://www.blog.minike.top/Article/details/029116.shtml)
-- 2026-06-29 14:19 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/006349584831.shtml)
-- 2026-06-29 14:17 - [中方回应对日本相关出口管制措施](http://www.blog.minike.top/Article/details/208662.shtml)
-- 2026-06-29 13:55 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/93454.shtml)
-- 2026-06-29 13:59 - [拆快递不再“里三层外三层”](http://www.share.minike.top/Article/details/766739534.shtml)
-- 2026-06-29 14:16 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/8938275916.shtml)
-- 2026-06-29 14:02 - [三星与SK集团或将投资2000万亿韩元](https://www.share.kurohicncr.top/Article/details/27704505938.shtml)
+- 2026-06-29 14:27 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/45568881944.shtml)
+- 2026-06-29 14:16 - [周生如故](https://www.share.minike.top/Article/details/487195193333.shtml)
+- 2026-06-29 14:24 - [白宇摘下白玉兰送给杨幂](https://www.share.minike.top/Article/details/8187445663.shtml)
+- 2026-06-29 14:05 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/015459.shtml)
+- 2026-06-29 14:04 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/599870.shtml)
+- 2026-06-29 14:26 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/34927028268.shtml)
+- 2026-06-29 14:00 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/08711.shtml)
+- 2026-06-29 14:03 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/056820560138.shtml)
+- 2026-06-29 14:20 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/59058862.shtml)
+- 2026-06-29 14:09 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/9447591940.shtml)
+- 2026-06-29 14:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/04247879.shtml)
+- 2026-06-29 14:02 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.kurohicncr.top/Article/details/44375637.shtml)
+- 2026-06-29 14:17 - [韩体育部长回应李在明痛批](https://www.blog.kurohicncr.top/Article/details/11953543.shtml)
+- 2026-06-29 14:16 - [杨紫飞奔拥抱胡歌](http://www.share.minike.top/Article/details/85872749021.shtml)
+- 2026-06-29 14:22 - [乔家的儿女](https://www.blog.minike.top/Article/details/059710354.shtml)

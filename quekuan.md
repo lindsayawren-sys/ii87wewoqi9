@@ -1,59 +1,58 @@
-# 传承红色基因 共筑强国梦想——2026年“我和祖国一起成长”六一主题演出活动侧记
+# 蒋某某故意杀人、强奸案一审宣判
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 题：传承红色基因 共筑强国梦想——2026年“我和祖国一起成长”六一主题演出活动侧记 中新网记者 徐雪莹 董泽宇 幕启，书卷轻展。竹简沉蕴、青花淡雅、脸谱流彩，伴随童声清越吟诵《诗经》，中华文脉在光影间静静流淌。 这是2026年“我和祖国一起成长”六一主题演出现场。5月31日至6月1日，千余名来自全国各地(含港澳台地区)的青少年儿童汇聚北京国家大剧院，以歌
+中新网4月28日电 据云南省曲靖市中级人民法院官方微信消息，4月28日，云南省曲靖市中级人民法院一审公开宣判被告人蒋某某故意杀人、强奸一案，以故意杀人罪、强奸罪判处蒋某某无期徒刑，剥夺政治权利终身。 经审理查明，被告人蒋某某(时年14岁)与被害人方某某(殁年15岁)系同学。2025年7月6日晚至7日凌晨，蒋某某采用暴力手段企图对方某某实施奸淫，后恐罪行败露用双手掐住方某某颈部致
 
 ## 正文
 
-中新网北京6月1日电 题：传承红色基因 共筑强国梦想——2026年“我和祖国一起成长”六一主题演出活动侧记 中新网记者 徐雪莹 董泽宇 幕启，书卷轻展。
+中新网4月28日电 据云南省曲靖市中级人民法院官方微信消息，4月28日，云南省曲靖市中级人民法院一审公开宣判被告人蒋某某故意杀人、强奸一案，以故意杀人罪、强奸罪判处蒋某某无期徒刑，剥夺政治权利终身。
 
-竹简沉蕴、青花淡雅、脸谱流彩，伴随童声清越吟诵《诗经》，中华文脉在光影间静静流淌。
+经审理查明，被告人蒋某某(时年14岁)与被害人方某某(殁年15岁)系同学。
 
-这是2026年“我和祖国一起成长”六一主题演出现场。
+2025年7月6日晚至7日凌晨，蒋某某采用暴力手段企图对方某某实施奸淫，后恐罪行败露用双手掐住方某某颈部致其死亡。
 
-5月31日至6月1日，千余名来自全国各地(含港澳台地区)的青少年儿童汇聚北京国家大剧院，以歌舞与情景演绎，讲述他们与祖国共同成长的故事。
+曲靖市中级人民法院认为，被告人蒋某某的行为分别构成强奸罪、故意杀人罪，依法应数罪并罚。
 
-演出由中国宋庆龄基金会、中国福利会、国家大剧院共同主办，分为“古韵里的中华情”“红旗下的少年志”“阳光下的同心圆”“星辰大海中国梦”四个篇章。
+蒋某某犯罪情节特别恶劣，后果严重，应依法严惩。
 
-“以前在学校过六一，都是搬着板凳坐在台下。
+蒋某某犯罪时不满十八周岁，依法不适用死刑。
 
-这次自己登台，既紧张又兴奋。
+根据其犯罪事实、性质、情节和对社会的危害程度，遂作出上述判决。
 
-”贵州省黔东南苗族侗族自治州凯里市舟溪小学学生潘紫怡开演前告诉记者。
+被害人家属，部分人大代表、政协委员，新闻媒体记者旁听了宣判。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
-- 2026-06-29 14:13 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-29 14:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 14:19 - [韩国记者：解码“合肥模式”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-29 14:19 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
-- 2026-06-29 14:21 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 13:55 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rsmhb.md)
-- 2026-06-29 14:05 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 14:08 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-29 14:19 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ombcx.md)
-- 2026-06-29 14:13 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
-- 2026-06-29 13:55 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
-- 2026-06-29 14:03 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunseng.md)
+- 2026-06-29 14:18 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
+- 2026-06-29 14:13 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 14:10 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 14:19 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-29 14:08 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-29 14:22 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 14:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
+- 2026-06-29 14:06 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-29 14:04 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 14:22 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 14:09 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-29 14:06 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/961630876.shtml)
-- 2026-06-29 14:05 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/54447613146.shtml)
-- 2026-06-29 14:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.kurohicncr.top/Article/details/50827446.shtml)
-- 2026-06-29 14:21 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.minike.top/Article/details/9444894206.shtml)
-- 2026-06-29 14:11 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/0782016337.shtml)
-- 2026-06-29 14:22 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/27001966346.shtml)
-- 2026-06-29 14:20 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/283351176448.shtml)
-- 2026-06-29 14:15 - [起风了](https://www.blog.kurohicncr.top/Article/details/180733.shtml)
-- 2026-06-29 14:18 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/856775078.shtml)
-- 2026-06-29 13:54 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/958704.shtml)
-- 2026-06-29 13:58 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.minike.top/Article/details/14216331.shtml)
-- 2026-06-29 14:06 - [王楚钦美国大满贯晋级32强](http://www.share.kurohicncr.top/Article/details/42836.shtml)
-- 2026-06-29 14:17 - [F1奥地利正赛战报](http://www.blog.minike.top/Article/details/15890299.shtml)
-- 2026-06-29 14:11 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/254093.shtml)
-- 2026-06-29 14:16 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/190241125.shtml)
+- 2026-06-29 14:25 - [6月我国降水为何偏多](https://www.blog.minike.top/Article/details/6319134.shtml)
+- 2026-06-29 14:02 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/1630168486.shtml)
+- 2026-06-29 14:07 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/14557.shtml)
+- 2026-06-29 14:05 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/2826327197.shtml)
+- 2026-06-29 14:17 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/2696548837.shtml)
+- 2026-06-29 14:19 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/91363.shtml)
+- 2026-06-29 14:25 - [女心理师](https://www.blog.minike.top/Article/details/35918345.shtml)
+- 2026-06-29 14:25 - [成都至北京将新增动卧](https://www.share.minike.top/Article/details/2138540.shtml)
+- 2026-06-29 14:04 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.minike.top/Article/details/302196.shtml)
+- 2026-06-29 14:23 - [加拿大女球迷玩人浪把手机甩飞](https://www.share.kurohicncr.top/Article/details/9824051.shtml)
+- 2026-06-29 14:10 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.kurohicncr.top/Article/details/338568303.shtml)
+- 2026-06-29 14:09 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](http://www.share.kurohicncr.top/Article/details/3767895.shtml)
+- 2026-06-29 14:03 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.kurohicncr.top/Article/details/765999605770.shtml)
+- 2026-06-29 14:24 - [沙丘](https://www.share.kurohicncr.top/Article/details/76765.shtml)
+- 2026-06-29 14:27 - [辽宁葫芦岛一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/936584331.shtml)

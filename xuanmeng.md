@@ -1,56 +1,42 @@
-# 合规为王！这款软件可以查看基金实时估值，来了解下？
+# 法学大先生·张晋藩
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-2026年伊始，一场席卷基金销售行业的合规风暴悄然来袭。证监会证券基金机构监管司发布《机构监管情况通报》，明确要求基金销售机构及第三方网络平台按期下架“基金实时估值”“加仓榜”“实盘榜”等功能，禁止通过“净值参考”“板块涨跌”等形式变相提供估值服务。蚂蚁财富、同花顺基金、京东金融等多家主流代销渠道迅速响应，于1月30日前完成功能调整。一时间，“无估值可看”成为众多基民共同的焦虑
+发布时间：2026年04月27日 14:07 来源：法治日报-法治网 责任编辑：【杨彦宇】
 
 ## 正文
 
-2026年伊始，一场席卷基金销售行业的合规风暴悄然来袭。
-
-证监会证券基金机构监管司发布《机构监管情况通报》，明确要求基金销售机构及第三方网络平台按期下架“基金实时估值”“加仓榜”“实盘榜”等功能，禁止通过“净值参考”“板块涨跌”等形式变相提供估值服务。
-
-蚂蚁财富、同花顺基金、京东金融等多家主流代销渠道迅速响应，于1月30日前完成功能调整。
-
-一时间，“无估值可看”成为众多基民共同的焦虑来源。
-
-合规风暴背后的深层逻辑 这并非监管的临时起意。
-
-长期以来，基金实时估值功能始终存在一个根本性困境：它基于基金季报披露的历史持仓进行估算，无法反映基金经理的实时调仓，与实际净值经常存在偏差。
-
-更关键的是，这一功能极大地助长了投资者的短线交易冲动——看到估值跌了就恐慌赎回，估值涨了就追涨买入，把基金当成了股票来炒。
-
-监管此次坚决出手，核心目标正是“斩断短期炒作诱导、纠偏投资理念、规范基金销售生态”。
+发布时间：2026年04月27日 14:07 来源：法治日报-法治网 责任编辑：【杨彦宇】
 
 ## 相关推荐
 
-- 2026-06-29 14:06 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-29 13:58 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-29 14:20 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
-- 2026-06-29 13:54 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ciskl.md)
-- 2026-06-29 14:04 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 14:15 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
-- 2026-06-29 13:57 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/scixj.md)
-- 2026-06-29 13:54 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 14:06 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lycou.md)
-- 2026-06-29 14:02 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-29 14:03 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 14:11 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 14:22 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbevz.md)
+- 2026-06-29 14:10 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-29 14:15 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 14:20 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
+- 2026-06-29 14:23 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rboaf.md)
+- 2026-06-29 14:05 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 14:11 - [事关个税 明日截止请抓紧办理](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 14:21 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/76402.shtml)
-- 2026-06-29 14:13 - [发反科学内容为何会有200万粉丝](http://www.share.kurohicncr.top/Article/details/660666507404.shtml)
-- 2026-06-29 13:59 - [一生一世](https://www.blog.minike.top/Article/details/77016.shtml)
-- 2026-06-29 14:18 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/180247217061.shtml)
-- 2026-06-29 14:01 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/0103600816.shtml)
-- 2026-06-29 14:06 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/2933321.shtml)
-- 2026-06-29 14:02 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/61685297746.shtml)
-- 2026-06-29 14:15 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/60383010484.shtml)
-- 2026-06-29 14:12 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/24822.shtml)
-- 2026-06-29 14:06 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/12548147182.shtml)
-- 2026-06-29 14:06 - [内马尔世界杯期间豪购百万美元腕表](http://www.blog.minike.top/Article/details/09915.shtml)
-- 2026-06-29 14:03 - [欧委会总部只给高层开空调](http://www.blog.minike.top/Article/details/2012428472.shtml)
-- 2026-06-29 14:07 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://www.blog.minike.top/Article/details/523822.shtml)
-- 2026-06-29 14:19 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/1473025240.shtml)
-- 2026-06-29 14:07 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/0127107.shtml)
+- 2026-06-29 14:19 - [周杰伦演唱会真的好多人啊](http://www.blog.kurohicncr.top/Article/details/978931.shtml)
+- 2026-06-29 14:10 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/53551629285.shtml)
+- 2026-06-29 14:20 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/276862078422.shtml)
+- 2026-06-29 14:02 - [【Reaction】女生最少的5款游戏](http://www.share.minike.top/Article/details/2128877.shtml)
+- 2026-06-29 14:02 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.kurohicncr.top/Article/details/7569347.shtml)
+- 2026-06-29 14:09 - [异世界一点都不好玩！](https://www.blog.minike.top/Article/details/49332.shtml)
+- 2026-06-29 14:27 - [《昨夜将至》为何是悬疑黑马](http://www.blog.kurohicncr.top/Article/details/91418.shtml)
+- 2026-06-29 14:22 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.kurohicncr.top/Article/details/0835974927.shtml)
+- 2026-06-29 14:17 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/9326341.shtml)
+- 2026-06-29 14:17 - [内马尔能上场15分钟](http://www.blog.minike.top/Article/details/454595291.shtml)
+- 2026-06-29 14:04 - [7月1日起一批新规即将落地](https://www.share.minike.top/Article/details/0379847.shtml)
+- 2026-06-29 14:06 - [周杰伦演唱会真的好多人啊](https://www.blog.kurohicncr.top/Article/details/654381336743.shtml)
+- 2026-06-29 14:24 - [斛珠夫人](http://www.share.minike.top/Article/details/736131941.shtml)
+- 2026-06-29 14:00 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/91102.shtml)
+- 2026-06-29 14:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/5037911816.shtml)

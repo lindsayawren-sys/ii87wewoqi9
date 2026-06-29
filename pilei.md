@@ -1,47 +1,56 @@
-# 微视频｜殷殷嘱托 暖暖牵挂
+# 翼菲科技冲刺港股，3年营收从2.01亿做到3.87亿，机器人本体收入占比升至31.9% | 长三角资本局
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-少年儿童是祖国的未来，是中华民族的希望。 党的十八大以来，习近平总书记关心关爱少年儿童成长成才，深情期许，滋润心田。 统筹：杨咏、李畅 编导：欧阳建嘉 新华社音视频部制作
+文|新浪财经上海站 十里 翼菲科技通过港交所聆讯，轻工业机器人赛道又要迎来一家上市公司。 4月20日，浙江翼菲智能科技股份有限公司披露通过聆讯后的资料集，农银国际担任独家保荐人。这家成立于2012年的工业机器人企业，已经走到港股IPO前夜。如果上市顺利，翼菲科技将成为“轻工业全品类机器人第一股”。 翼菲科技的故事并不复杂。它不是单押某一款机器人，而是围绕轻工业场景做了一套产品矩
 
 ## 正文
 
-少年儿童是祖国的未来，是中华民族的希望。
+文|新浪财经上海站 十里 翼菲科技通过港交所聆讯，轻工业机器人赛道又要迎来一家上市公司。
 
-党的十八大以来，习近平总书记关心关爱少年儿童成长成才，深情期许，滋润心田。
+4月20日，浙江翼菲智能科技股份有限公司披露通过聆讯后的资料集，农银国际担任独家保荐人。
 
-统筹：杨咏、李畅 编导：欧阳建嘉 新华社音视频部制作
+这家成立于2012年的工业机器人企业，已经走到港股IPO前夜。
+
+如果上市顺利，翼菲科技将成为“轻工业全品类机器人第一股”。
+
+翼菲科技的故事并不复杂。
+
+它不是单押某一款机器人，而是围绕轻工业场景做了一套产品矩阵，包括并联机器人、AGV/AMR移动机器人、SCARA机器人、晶圆搬运机器人和六轴工业机器人，并配套自研控制及视觉系统。
+
+公司把这套体系拆成“脑、眼、手、足”：控制系统负责决策和协同，视觉系统负责识别和跟踪，本体结构负责执行，移动平台负责自主导航和避障。
+
+这也是翼菲科技冲刺IPO时最想讲清楚的一点：它卖的不只是机器人本体，而是面向轻工业场景的综合机器人解决方案。
 
 ## 相关推荐
 
-- 2026-06-29 14:00 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 14:11 - [欧洲超1300例超额死亡与高温有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 14:20 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 14:15 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 14:24 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
-- 2026-06-29 14:09 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 13:59 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 14:01 - [男子月薪五千卖房借贷给女友转账百万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 13:54 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rwemw.md)
-- 2026-06-29 13:54 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-29 14:14 - [下飞机后，我做了个很蠢的决定......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingdun.md)
+- 2026-06-29 14:07 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-29 14:27 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 14:14 - [灿如繁星定档](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 14:11 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-29 14:23 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sutan.md)
+- 2026-06-29 14:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
+- 2026-06-29 14:01 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
+- 2026-06-29 14:08 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 14:16 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-29 14:19 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:09 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/765972010.shtml)
-- 2026-06-29 14:22 - [王楚钦美国大满贯晋级32强](http://www.share.minike.top/Article/details/5410435645.shtml)
-- 2026-06-29 14:21 - [克洛普：加拿大主帅还能继续创造历史](https://www.blog.minike.top/Article/details/4228043211.shtml)
-- 2026-06-29 14:06 - [德国队前往比赛场地遭遇囧途](https://www.share.kurohicncr.top/Article/details/958589758929.shtml)
-- 2026-06-29 14:05 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/094990128.shtml)
-- 2026-06-29 14:00 - [爱很美味](https://www.share.kurohicncr.top/Article/details/732385168398.shtml)
-- 2026-06-29 14:10 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/43327183.shtml)
-- 2026-06-29 13:54 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/040719197211.shtml)
-- 2026-06-29 14:05 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.minike.top/Article/details/63295597.shtml)
-- 2026-06-29 14:02 - [女孩遭霸凌网上认文身大哥求庇护](http://www.blog.minike.top/Article/details/9886826.shtml)
-- 2026-06-29 14:05 - [沙丘](http://www.blog.kurohicncr.top/Article/details/36363617.shtml)
-- 2026-06-29 14:03 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/796457732.shtml)
-- 2026-06-29 14:08 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.blog.minike.top/Article/details/4769988.shtml)
-- 2026-06-29 14:14 - [韩国主帅辞职5分钟念完双手插兜离场](https://www.share.minike.top/Article/details/927983.shtml)
-- 2026-06-29 13:59 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/80472098.shtml)
+- 2026-06-29 14:15 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.kurohicncr.top/Article/details/81974078.shtml)
+- 2026-06-29 14:27 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.kurohicncr.top/Article/details/98416.shtml)
+- 2026-06-29 14:17 - [韩剧编剧又升级了](http://www.blog.minike.top/Article/details/13101119.shtml)
+- 2026-06-29 14:22 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.minike.top/Article/details/432304.shtml)
+- 2026-06-29 14:20 - [王祖蓝现场观看美加墨世界杯](http://www.share.minike.top/Article/details/7451582.shtml)
+- 2026-06-29 14:04 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/6075685.shtml)
+- 2026-06-29 14:12 - [链博会上的机器人太全能了](https://www.blog.kurohicncr.top/Article/details/721364.shtml)
+- 2026-06-29 14:01 - [张一山回应与杨紫友情](https://www.blog.minike.top/Article/details/3856862.shtml)
+- 2026-06-29 14:11 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/91296243.shtml)
+- 2026-06-29 14:07 - [韩国队出局是因为内讧吗](http://www.blog.kurohicncr.top/Article/details/213415214.shtml)
+- 2026-06-29 14:09 - [5万块的威力](http://www.blog.kurohicncr.top/Article/details/15493029554.shtml)
+- 2026-06-29 14:08 - [中国邮政上海分公司总经理李柏平被查](http://www.blog.minike.top/Article/details/0681831.shtml)
+- 2026-06-29 14:08 - [自然资源部派专家赴宜宾地震影响区](https://www.share.kurohicncr.top/Article/details/93761129642.shtml)
+- 2026-06-29 14:14 - [肖战深夜到达青岛赴十日终焉片场](http://www.share.kurohicncr.top/Article/details/523140.shtml)
+- 2026-06-29 14:14 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/902974355.shtml)

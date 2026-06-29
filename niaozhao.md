@@ -1,58 +1,57 @@
-# 中金：当下A股市场“稳”好于“快”
+# MH迈汇:原油高位震荡关注谈判
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中金点睛 摘要 2026下半年A股市场展望：稳进致远 2026上半年：乘势笃行。我们在去年年底发布的2026年A股展望《乘势笃行》中认为，今年市场有望延续“924”以来的震荡上行趋势，节奏可能“前升后稳”、“防范波动”，配置上“谋新延续”且“温差收敛”。年初至今A股总体稳中有升，期间海外地缘冲突虽一度带来短
+4月28日，近期国际原油市场持续维持高位运行，WTI原油期货突破每桶96美元，布伦特原油盘中最高触及108美元附近，霍尔木兹海峡持续封闭所带来的供应冲击继续主导市场走势。MH迈汇表示，此轮冲突已延续逾九周，3月份全球产量受阻规模日均高达750万桶，美国能源信息署（EIA）4月短期能源展望预计4月峰值将进一步升至910万桶/日，全球原油供应结构性偏紧的格局正日益凸显。 从市场数据
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+4月28日，近期国际原油市场持续维持高位运行，WTI原油期货突破每桶96美元，布伦特原油盘中最高触及108美元附近，霍尔木兹海峡持续封闭所带来的供应冲击继续主导市场走势。
 
-中金点睛 摘要 2026下半年A股市场展望：稳进致远 2026上半年：乘势笃行。
+MH迈汇表示，此轮冲突已延续逾九周，3月份全球产量受阻规模日均高达750万桶，美国能源信息署（EIA）4月短期能源展望预计4月峰值将进一步升至910万桶/日，全球原油供应结构性偏紧的格局正日益凸显。
 
-我们在去年年底发布的2026年A股展望《乘势笃行》中认为，今年市场有望延续“924”以来的震荡上行趋势，节奏可能“前升后稳”、“防范波动”，配置上“谋新延续”且“温差收敛”。
+从市场数据来看，布伦特与WTI的价差在3月份扩大至平均每桶12美元，直接体现了霍尔木兹航线受阻对国际基准油价的非对称冲击。
 
-年初至今A股总体稳中有升，期间海外地缘冲突虽一度带来短期扰动，但景气产业尤其科技板块引领市场走强，全A指数在近期创下历史新高。
+MH迈汇认为，全球约20%的石油供应历史上途经这一战略咽喉，在航道持续受阻的情况下，这一价差预计将长期维持高位。
 
-结构方面，AI代表的成长风格领涨，部分周期行业也有较好表现。
+与此同时，伊朗向美方提交新一轮方案，建议延长停火并将核谈重启与解除海峡封锁相挂钩，消息传出后布伦特从108美元高位小幅回落至106美元区间，但回调力度有限，市场对外交前景仍持观望立场。
 
-上半年A股市场总体表现及风格大致符合我们前期的展望判断。
+外交动向依然是影响油价走势的最大变量。
 
-A股下半年展望：积极配置进行时，当下市场“稳”好于“快”。
+尽管伊朗新提案带来短暂乐观情绪，但美方迄今维持暂停正式谈判的立场，市场情绪在地缘风险溢价与停火预期之间反复博弈。
 
-展望下半年，我们延续年度展望中对A股市场总体看法，国际秩序重构与我国产业创新趋势共振是推动本轮市场上行、中国资产重估的核心驱动力，这两大条件未发生动摇，当下市场较以往更加具备长期、稳进条件。
+能源交易员普遍将布伦特-WTI价差作为观察霍尔木兹航线供应压力的实时窗口——若价差出现明显收窄，将预示着市场开始更积极地定价海峡重开的可能性。
 
 ## 相关推荐
 
-- 2026-06-29 14:12 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/baidang.md)
-- 2026-06-29 14:10 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gyduc.md)
-- 2026-06-29 14:11 - [吴昕要助理买的药6年前已停产](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 14:02 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-29 13:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-29 13:55 - [王楚钦3比0周启豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duanpeng.md)
-- 2026-06-29 14:20 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 14:13 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-29 13:59 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
-- 2026-06-29 14:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
-- 2026-06-29 14:01 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pubye.md)
-- 2026-06-29 14:16 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 14:13 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jueque.md)
+- 2026-06-29 14:08 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbpgs.md)
+- 2026-06-29 14:12 - [T1对战KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
+- 2026-06-29 14:02 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
+- 2026-06-29 14:24 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
+- 2026-06-29 14:11 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
+- 2026-06-29 14:21 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 14:01 - [多家银行收紧个人贵金属业务](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 14:13 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 14:28 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-29 14:00 - [斛珠夫人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.share.minike.top/Article/details/261253477063.shtml)
-- 2026-06-29 14:01 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/104255646.shtml)
-- 2026-06-29 14:07 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/14588.shtml)
-- 2026-06-29 14:03 - [北极荒岛生存挑战](https://www.blog.minike.top/Article/details/11635397293.shtml)
-- 2026-06-29 14:07 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.minike.top/Article/details/27350966.shtml)
-- 2026-06-29 13:58 - [美的空调 卡bug](http://www.share.minike.top/Article/details/16074265391.shtml)
-- 2026-06-29 14:00 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/36888614.shtml)
-- 2026-06-29 14:19 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/42854477021.shtml)
-- 2026-06-29 14:07 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.kurohicncr.top/Article/details/362058.shtml)
-- 2026-06-29 14:20 - [大疆7月15日起涨价？公司回应](https://www.share.kurohicncr.top/Article/details/869395.shtml)
-- 2026-06-29 14:19 - [胡光宇一审获刑13年](https://www.share.minike.top/Article/details/077961361.shtml)
-- 2026-06-29 14:05 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/306743106.shtml)
-- 2026-06-29 14:01 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/1005650.shtml)
-- 2026-06-29 14:04 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/044813715845.shtml)
-- 2026-06-29 13:54 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.minike.top/Article/details/817300.shtml)
+- 2026-06-29 14:14 - [“养路费”谁来交 油电车主大吵](https://www.blog.kurohicncr.top/Article/details/511333212.shtml)
+- 2026-06-29 14:14 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.blog.minike.top/Article/details/3012214.shtml)
+- 2026-06-29 14:02 - [吴昕要助理买的药6年前已停产](http://www.blog.minike.top/Article/details/0742660214.shtml)
+- 2026-06-29 14:09 - [国足前主帅：亚洲仅两队晋级不意外](https://www.blog.kurohicncr.top/Article/details/9704959.shtml)
+- 2026-06-29 14:10 - [『涤墨作战』望单人 705 天堑并非无法跨越](http://www.blog.kurohicncr.top/Article/details/758473854.shtml)
+- 2026-06-29 14:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/61467253778.shtml)
+- 2026-06-29 14:05 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.minike.top/Article/details/94786095890.shtml)
+- 2026-06-29 14:24 - [第一批缉毒警已全体退休](http://www.blog.minike.top/Article/details/82985392.shtml)
+- 2026-06-29 14:25 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/36783062.shtml)
+- 2026-06-29 14:00 - [血糖高的人能吃西瓜吗](http://www.blog.kurohicncr.top/Article/details/977344286827.shtml)
+- 2026-06-29 14:27 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/16705133518.shtml)
+- 2026-06-29 14:01 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/93987971.shtml)
+- 2026-06-29 14:22 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/660865.shtml)
+- 2026-06-29 14:24 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/718143073812.shtml)
+- 2026-06-29 14:01 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/45390.shtml)

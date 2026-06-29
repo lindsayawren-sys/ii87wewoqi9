@@ -1,60 +1,52 @@
-# 黄海冰谈AI影视发展：人类演员核心价值仍不可替代
+# 中新健康｜如何远离肺癌？医生给出5条预防忠告
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月2日电(记者 王诗尧)随着人工智能技术快速发展，AI正加速融入影视产业，从特效制作到虚拟演员应用，相关话题持续引发行业关注。 近日，演员黄海冰参加“潮起厦门 e鹭向新”2026年网络全媒体厦门行活动。会后，他在接受中新网记者专访时，就“AI演员能否取代人类演员”“真正的表演艺术能否被算法复制？”等热点问题，分享了自己的看法。 AI已替代部分基础表演 黄海冰表示，2
+发布时间：2026年04月27日 20:01 来源：中国新闻网 北京大学首钢医院肿瘤中心主任医师汤传昊在接受中新健康采访时指出，肺癌治愈的关键在于早筛、早诊、早治。45岁以上有家族史、慢性肺病或接触油烟尾气等高风险人群需警惕。预防牢记：①远离烟草；②规律饮食、控制体重；③坚持运动；④多亲近自然；⑤避免内耗，相信科学，主动管理。(赵方园、武思涵） 责任编辑：【程春雨】
 
 ## 正文
 
-中新网北京6月2日电(记者 王诗尧)随着人工智能技术快速发展，AI正加速融入影视产业，从特效制作到虚拟演员应用，相关话题持续引发行业关注。
+发布时间：2026年04月27日 20:01 来源：中国新闻网 北京大学首钢医院肿瘤中心主任医师汤传昊在接受中新健康采访时指出，肺癌治愈的关键在于早筛、早诊、早治。
 
-近日，演员黄海冰参加“潮起厦门 e鹭向新”2026年网络全媒体厦门行活动。
+45岁以上有家族史、慢性肺病或接触油烟尾气等高风险人群需警惕。
 
-会后，他在接受中新网记者专访时，就“AI演员能否取代人类演员”“真正的表演艺术能否被算法复制？
+预防牢记：①远离烟草；②规律饮食、控制体重；③坚持运动；④多亲近自然；⑤避免内耗，相信科学，主动管理。
 
-”等热点问题，分享了自己的看法。
-
-AI已替代部分基础表演 黄海冰表示，2026年以来，AI技术在影视尤其是短剧领域发展迅速，大幅提升了制作效率。
-
-无论是宏大的战争场面、复杂的视觉奇观，还是高风险动作镜头，AI都能够发挥重要作用，为创作者提供更多可能性。
-
-“过去拍摄千军万马的大场面，需要大量群众演员和复杂的后期制作，而如今AI能够帮助完成许多过去难以实现的画面效果。
-
-”黄海冰说，科技进步不仅降低了制作成本，也让影视创作拥有了更广阔的想象空间。
+(赵方园、武思涵） 责任编辑：【程春雨】
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
-- 2026-06-29 13:54 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
-- 2026-06-29 14:05 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 14:09 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiantai.md)
-- 2026-06-29 14:09 - [欧洲多国激辩“装不装空调”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daoxiang.md)
-- 2026-06-29 14:22 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
-- 2026-06-29 14:14 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-29 14:09 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quniang.md)
-- 2026-06-29 14:11 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 14:14 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
-- 2026-06-29 13:57 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 14:00 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-29 14:14 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 14:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
+- 2026-06-29 14:12 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
+- 2026-06-29 14:15 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:19 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-29 14:08 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 14:15 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiusuo.md)
+- 2026-06-29 14:03 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 14:19 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-29 14:05 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
+- 2026-06-29 14:06 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-29 14:06 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 14:18 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 14:15 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
+- 2026-06-29 14:27 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjoyq.md)
+- 2026-06-29 14:08 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [一生一世](https://www.share.kurohicncr.top/Article/details/254674032.shtml)
-- 2026-06-29 13:55 - [直击宜宾地震：监控剧烈摇晃](https://www.share.minike.top/Article/details/0386057.shtml)
-- 2026-06-29 14:07 - [拆快递不再“里三层外三层”](https://www.blog.kurohicncr.top/Article/details/5671887.shtml)
-- 2026-06-29 13:57 - [绘画区你赢了](http://www.share.minike.top/Article/details/534647379.shtml)
-- 2026-06-29 14:23 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.kurohicncr.top/Article/details/458314996335.shtml)
-- 2026-06-29 14:15 - [媒体：高考后消费应量力而行适度有度](https://www.blog.minike.top/Article/details/69291915140.shtml)
-- 2026-06-29 14:10 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/34861.shtml)
-- 2026-06-29 13:56 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/86219829.shtml)
-- 2026-06-29 13:58 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/06663218323.shtml)
-- 2026-06-29 14:09 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/002446.shtml)
-- 2026-06-29 14:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/607923281318.shtml)
-- 2026-06-29 14:11 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.kurohicncr.top/Article/details/59147654206.shtml)
-- 2026-06-29 14:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.kurohicncr.top/Article/details/0270524.shtml)
-- 2026-06-29 14:03 - [美伊同意停止互袭](http://www.share.kurohicncr.top/Article/details/5093070668.shtml)
-- 2026-06-29 14:12 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/51263233289.shtml)
+- 2026-06-29 14:22 - [凌晨地震母亲飞奔护住熟睡孩子](https://www.blog.minike.top/Article/details/82082.shtml)
+- 2026-06-29 14:01 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/29410538336.shtml)
+- 2026-06-29 14:22 - [新一代影后杨紫](https://www.blog.minike.top/Article/details/627963376215.shtml)
+- 2026-06-29 14:12 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.share.kurohicncr.top/Article/details/08427204726.shtml)
+- 2026-06-29 14:15 - [Agent带来token消耗爆炸](https://www.blog.kurohicncr.top/Article/details/61718.shtml)
+- 2026-06-29 14:00 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/0985132.shtml)
+- 2026-06-29 14:20 - [俄称继续推进 乌称打击俄军设施](https://www.blog.minike.top/Article/details/381095.shtml)
+- 2026-06-29 14:14 - [妹妹的正确用法！](http://www.share.minike.top/Article/details/0824938434.shtml)
+- 2026-06-29 14:18 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/73665212462.shtml)
+- 2026-06-29 14:28 - [明星大侦探第四季](https://www.share.minike.top/Article/details/368057.shtml)
+- 2026-06-29 14:27 - [计算机专业曾经有哪些方向非常火后来却凉了？](http://www.share.kurohicncr.top/Article/details/112280.shtml)
+- 2026-06-29 14:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://www.share.minike.top/Article/details/450563088447.shtml)
+- 2026-06-29 14:16 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/74547100.shtml)
+- 2026-06-29 14:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/9195473195.shtml)
+- 2026-06-29 14:00 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/8130846.shtml)

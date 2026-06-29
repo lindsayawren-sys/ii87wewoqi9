@@ -1,48 +1,54 @@
-# 澳大利亚竞争监管机构向亚马逊等企业发出下架通知，要求下架某些玩具
+# 三大利好齐发！科创50ETF富国（588940）盘中涨3%
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-澳大利亚竞争监管机构周二表示，作为调查的一部分，已向亚马逊、eBay、Kogan和Fruugo发出下架通知，要求其下架含有可能致命的小磁铁的玩具和游戏。责任编辑：王永生
+4月27日，科创50ETF富国（588940）在多重利好共振下，盘中一度涨幅达3%，截至发稿涨幅达2.93%。标的指数成分股中，中控技术上涨11%，生益电子上涨6.32%，澜起科技上涨8.91%，科创龙头强势领涨。 消息面上，周末三大利好集中释放：一是顶层会议定调加强原创性、引领性科技攻关，政策信号直接提振科创板；二是海外科技巨头强势走高，打消市场对AI资本开支回报不足的疑虑，
 
 ## 正文
 
-澳大利亚竞争监管机构周二表示，作为调查的一部分，已向亚马逊、eBay、Kogan和Fruugo发出下架通知，要求其下架含有可能致命的小磁铁的玩具和游戏。
+4月27日，科创50ETF富国（588940）在多重利好共振下，盘中一度涨幅达3%，截至发稿涨幅达2.93%。
 
-责任编辑：王永生
+标的指数成分股中，中控技术上涨11%，生益电子上涨6.32%，澜起科技上涨8.91%，科创龙头强势领涨。
+
+消息面上，周末三大利好集中释放：一是顶层会议定调加强原创性、引领性科技攻关，政策信号直接提振科创板；二是海外科技巨头强势走高，打消市场对AI资本开支回报不足的疑虑，全球AI产业正式迈入业绩兑现阶段；三是国产AI产业生态打通关键闭环。
+
+研究机构指出，AI基建扩张、先进制造国产化、新材料突破等多因素共振持续为硬科技产业提供上行动能。
+
+科创50ETF富国（588940）汇聚科创板市值最大、流动性最好的50只硬科技龙头，覆盖AI芯片、半导体设备、材料等产业链核心环节。
+
+场外投资者可通过（A类023055/C类023056）便捷布局。
+
+责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
-- 2026-06-29 13:54 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-29 14:10 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmojk.md)
-- 2026-06-29 14:24 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hunsong.md)
-- 2026-06-29 14:08 - [吴磊爱上回收了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfulb.md)
-- 2026-06-29 14:02 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qocyh.md)
-- 2026-06-29 14:18 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 14:12 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-29 13:57 - [2026年Mac能玩游戏了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-29 14:03 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
-- 2026-06-29 14:05 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-29 13:57 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-29 14:09 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-29 14:07 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-29 14:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianzhao.md)
+- 2026-06-29 14:23 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 14:10 - [多只A股发布股价异动公告](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
+- 2026-06-29 14:22 - [异世界一点都不好玩！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-29 14:27 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-29 14:15 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
+- 2026-06-29 14:23 - [美伊同意停止互袭 30日在多哈谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
+- 2026-06-29 14:25 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
+- 2026-06-29 14:17 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 14:09 - [毕业群都在出什么东西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [王祖蓝现场观看美加墨世界杯](https://www.blog.minike.top/Article/details/054408.shtml)
-- 2026-06-29 14:23 - [中国战机大片上新](https://www.share.minike.top/Article/details/513353073076.shtml)
-- 2026-06-29 14:11 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.kurohicncr.top/Article/details/7922869.shtml)
-- 2026-06-29 14:22 - [日本前锋言论激怒巴西](http://www.share.kurohicncr.top/Article/details/95051263773.shtml)
-- 2026-06-29 14:11 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/8608587.shtml)
-- 2026-06-29 13:56 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/8366981.shtml)
-- 2026-06-29 14:00 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/5023752.shtml)
-- 2026-06-29 14:12 - [金牌调解](http://www.share.minike.top/Article/details/6525922.shtml)
-- 2026-06-29 14:04 - [一见倾心](http://www.share.kurohicncr.top/Article/details/6482434051.shtml)
-- 2026-06-29 14:12 - [多家银行收紧个人贵金属业务](https://www.blog.minike.top/Article/details/8566279.shtml)
-- 2026-06-29 14:10 - [本周做什么都顺的星座](http://www.share.minike.top/Article/details/4397392.shtml)
-- 2026-06-29 14:18 - [多只A股发布股价异动公告](http://www.share.minike.top/Article/details/424323925454.shtml)
-- 2026-06-29 14:11 - [日本主帅：目标是冠军](http://www.blog.kurohicncr.top/Article/details/0449033.shtml)
-- 2026-06-29 14:12 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/737440.shtml)
-- 2026-06-29 14:08 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://www.blog.kurohicncr.top/Article/details/99769.shtml)
+- 2026-06-29 14:17 - [链博会上的机器人太全能了](http://www.blog.minike.top/Article/details/35239.shtml)
+- 2026-06-29 14:20 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/52011254154.shtml)
+- 2026-06-29 14:02 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.kurohicncr.top/Article/details/34699614639.shtml)
+- 2026-06-29 14:04 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/43506.shtml)
+- 2026-06-29 14:28 - [小S在香港被偶遇](https://www.blog.minike.top/Article/details/81788.shtml)
+- 2026-06-29 14:22 - [请回答王牌2019](https://www.share.minike.top/Article/details/3082974.shtml)
+- 2026-06-29 14:15 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.kurohicncr.top/Article/details/55984485195.shtml)
+- 2026-06-29 14:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.kurohicncr.top/Article/details/110470.shtml)
+- 2026-06-29 14:29 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.blog.minike.top/Article/details/740264175225.shtml)
+- 2026-06-29 14:01 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.minike.top/Article/details/0011611936.shtml)
+- 2026-06-29 14:01 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/935013067705.shtml)
+- 2026-06-29 14:11 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/66485.shtml)
+- 2026-06-29 14:06 - [双高胎](http://www.blog.kurohicncr.top/Article/details/68876539.shtml)
+- 2026-06-29 14:03 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/16682031418.shtml)
+- 2026-06-29 14:06 - [中餐厅南北饮食差异](https://www.blog.kurohicncr.top/Article/details/155507436003.shtml)

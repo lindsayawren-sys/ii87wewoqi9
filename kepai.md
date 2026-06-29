@@ -1,61 +1,58 @@
-# 73天！宇树科技，过会！
+# 光大期货0428热点追踪：玻璃弱势下行，供需压力仍存
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月1日，上交所官网显示，宇树科技科创板IPO申请已通过上交所上市委审议。 距离叩开资本市场的大门、成为A股“具身智能第一股”，宇树科技只差“临门一脚”。这家于2016年起步的企业，将在成立十周年之际，迎来创始人王兴兴口中那场至关重要的“高考”。 宇树科技此次IPO，亦是年内最受业内外关注的项目之一，几乎从
+今日玻璃盘面跌幅较为明显，按收盘价计算，截至撰稿主力合约跌幅约3%，盘中一度创出阶段性新低。 玻璃供应端整体持稳，目前行业在产日熔量维持在14.49万吨左右。值得注意的是，沙河地区周末新点火一条1800吨/日产线，后期玻璃产能将小幅回升，供给压力边际增加。需求端表现依旧偏弱，五一假期临近，下游并未出现集中补库迹象，备货情绪较为谨慎，昨日主产区现货产销率多数集中在90%至110%
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+今日玻璃盘面跌幅较为明显，按收盘价计算，截至撰稿主力合约跌幅约3%，盘中一度创出阶段性新低。
 
-6月1日，上交所官网显示，宇树科技科创板IPO申请已通过上交所上市委审议。
+玻璃供应端整体持稳，目前行业在产日熔量维持在14.49万吨左右。
 
-距离叩开资本市场的大门、成为A股“具身智能第一股”，宇树科技只差“临门一脚”。
+值得注意的是，沙河地区周末新点火一条1800吨/日产线，后期玻璃产能将小幅回升，供给压力边际增加。
 
-这家于2016年起步的企业，将在成立十周年之际，迎来创始人王兴兴口中那场至关重要的“高考”。
+需求端表现依旧偏弱，五一假期临近，下游并未出现集中补库迹象，备货情绪较为谨慎，昨日主产区现货产销率多数集中在90%至110%区间，但湖北地区产销率不足70%，当地中游库存压力较为突出，后续库存消化仍将对现货及近月合约形成压制。
 
-宇树科技此次IPO，亦是年内最受业内外关注的项目之一，几乎从一开始就自带“聚光灯”。
+总体来看，玻璃短期面临“供给小幅回升、需求跟进不足、中上游高库存”的多重压力，近月合约承压较为明显。
 
-其一，它是一二级市场共同“护航”的硬科技明星项目。
+相比之下，远月合约受成本支撑、加工制品出口边际改善以及终端需求缓慢修复等预期影响，走势相对抗跌。
 
-宇树科技先后获得了美团、红杉、腾讯、阿里等一众知名创投和产业资本的押注；同时也是科创板发行上市预先审阅机制实施后的第2家申报企业，从受理到过会仅73天，体现科创板对优质硬科技企业的精准支持力度。
+当前玻璃期价处于低估值磨底阶段，但市场缺乏明确的上行驱动，短期仍以弱势震荡为主，后续建议关注玻璃产能变动、区域产销节奏以及中游库存去化情况。
 
-它的上市，既为科创板增色，也让硬科技企业真切感受到：专注核心技术，终将迎来资本市场的正向回馈。
+信息来源：光大期货研究所 撰稿：姚涛 从业资格：F3082336 交易咨询资格：Z0018553 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
 
 ## 相关推荐
 
-- 2026-06-29 14:01 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-29 13:58 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 14:19 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jinte.md)
-- 2026-06-29 14:05 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-29 14:14 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-29 13:56 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/daqu.md)
-- 2026-06-29 14:05 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 13:54 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
-- 2026-06-29 14:07 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-29 14:12 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 14:18 - [血糖高的人能吃西瓜吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gezang.md)
-- 2026-06-29 14:08 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
-- 2026-06-29 14:19 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-29 13:56 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-29 14:11 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
+- 2026-06-29 14:29 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanxin.md)
+- 2026-06-29 14:01 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
+- 2026-06-29 14:20 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 14:14 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 14:24 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-29 14:06 - [唐艺昕女儿接唐艺昕回家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 14:02 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 14:25 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-29 14:05 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
+- 2026-06-29 14:21 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-29 14:15 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-29 14:07 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/78510940.shtml)
-- 2026-06-29 14:09 - [起风了](https://www.blog.minike.top/Article/details/397584187627.shtml)
-- 2026-06-29 14:11 - [发反科学内容为何会有200万粉丝](http://www.blog.kurohicncr.top/Article/details/876212242.shtml)
-- 2026-06-29 14:05 - [韩国政府将对世界杯出局追责](http://www.blog.minike.top/Article/details/1913892.shtml)
-- 2026-06-29 14:14 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/14232.shtml)
-- 2026-06-29 14:11 - [三都主：淘汰赛我会支持日本](https://www.share.kurohicncr.top/Article/details/527374.shtml)
-- 2026-06-29 13:57 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://www.share.minike.top/Article/details/845630831372.shtml)
-- 2026-06-29 14:09 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/046944117.shtml)
-- 2026-06-29 14:06 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.kurohicncr.top/Article/details/2901236.shtml)
-- 2026-06-29 14:10 - [广州一高校通报网传禁止小米汽车入校](https://www.share.kurohicncr.top/Article/details/8604335.shtml)
-- 2026-06-29 14:19 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/00570035430.shtml)
-- 2026-06-29 13:58 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.minike.top/Article/details/812463202.shtml)
-- 2026-06-29 14:00 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/7115137585.shtml)
-- 2026-06-29 14:00 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/798438125.shtml)
-- 2026-06-29 13:56 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://www.share.kurohicncr.top/Article/details/54760433026.shtml)
+- 2026-06-29 14:21 - [扬名立万](https://www.blog.minike.top/Article/details/505680394237.shtml)
+- 2026-06-29 14:26 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/35271071941.shtml)
+- 2026-06-29 14:23 - [A股](https://www.blog.kurohicncr.top/Article/details/909246.shtml)
+- 2026-06-29 14:00 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/8793902234.shtml)
+- 2026-06-29 14:06 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/8868218796.shtml)
+- 2026-06-29 14:00 - [美媒：空警-3000服役即成全球最强](https://www.blog.kurohicncr.top/Article/details/728469276.shtml)
+- 2026-06-29 14:24 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.minike.top/Article/details/22673799660.shtml)
+- 2026-06-29 14:01 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/50654161070.shtml)
+- 2026-06-29 14:20 - [请回答王牌2019](https://www.blog.kurohicncr.top/Article/details/70164343.shtml)
+- 2026-06-29 14:27 - [105年初心滚烫](https://www.share.minike.top/Article/details/59100032349.shtml)
+- 2026-06-29 14:02 - [宜宾地震瞬间鱼群乱跳](https://www.blog.kurohicncr.top/Article/details/4240381.shtml)
+- 2026-06-29 14:27 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/984636363740.shtml)
+- 2026-06-29 14:24 - [papi酱自曝曾因尝试21天减肥法患病](https://www.blog.minike.top/Article/details/48454932856.shtml)
+- 2026-06-29 14:29 - [青春环游记第三季](http://www.blog.minike.top/Article/details/91421737034.shtml)
+- 2026-06-29 14:03 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.kurohicncr.top/Article/details/2544736.shtml)

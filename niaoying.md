@@ -1,54 +1,60 @@
-# 乌克兰首都基辅响起剧烈爆炸声
+# 人工智能法案将严打深度伪造传播、保护举报人
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网6月2日电 综合乌克兰媒体2日报道，乌克兰首都基辅传出剧烈爆炸声，俄军正用导弹袭击乌克兰首都，防空系统已启动。基辅市军事管理局局特卡琴科证实了这一消息。 “防空部队正在行动！请躲进掩体！”基辅市长克利奇科也在一则帖文中写道。
+核心要点 一项全新人工智能法案出炉（由 CNBC 率先报道），旨在严打深度伪造影像及未经许可影像的传播，同时降低举报门槛，方便举报人上报各类人工智能相关风险与违规问题。 该法案由加州民主党众议员特德・刘牵头起草，他与加州共和党众议员杰伊・奥伯恩诺尔特共同领导众议院两党人工智能特别工作组，法案内容基于该工作组的调研报告建议制定。 特德・刘在接受 CNBC 采访时表示，这项法案是行
 
 ## 正文
 
-中新网6月2日电 综合乌克兰媒体2日报道，乌克兰首都基辅传出剧烈爆炸声，俄军正用导弹袭击乌克兰首都，防空系统已启动。
+核心要点 一项全新人工智能法案出炉（由 CNBC 率先报道），旨在严打深度伪造影像及未经许可影像的传播，同时降低举报门槛，方便举报人上报各类人工智能相关风险与违规问题。
 
-基辅市军事管理局局特卡琴科证实了这一消息。
+该法案由加州民主党众议员特德・刘牵头起草，他与加州共和党众议员杰伊・奥伯恩诺尔特共同领导众议院两党人工智能特别工作组，法案内容基于该工作组的调研报告建议制定。
 
-“防空部队正在行动！
+特德・刘在接受 CNBC 采访时表示，这项法案是行业监管的重要进展。
 
-请躲进掩体！
+他称：“法案无意制造争议，条文参考了其他议员提出的两党法案，以及众议院人工智能两党工作组的共识建议。
 
-”基辅市长克利奇科也在一则帖文中写道。
+我们希望在本届国会任期内推动该法案落地生效。
+
+” 该法案刻意避开人工智能领域诸多棘手争议议题，例如：是否设立联邦统一标准以优先于各州 AI 监管法规、关键基础设施及教育领域的 AI 系统是否需要强制安全测试等。
+
+法案覆盖范围广泛，关键条款包括： 尽管奥伯恩诺尔特已表态支持特德・刘的法案，这名共和党议员也在独立拟定一套人工智能综合法案，预计于今年晚些时候公布。
+
+两份法案均以两党工作组的研究成果为基础框架。
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-29 14:02 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 14:08 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
-- 2026-06-29 14:17 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
-- 2026-06-29 14:22 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 14:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
-- 2026-06-29 14:16 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ivevt.md)
-- 2026-06-29 14:00 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-29 13:56 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 13:57 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
-- 2026-06-29 14:01 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 13:56 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
-- 2026-06-29 14:21 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shenxuan.md)
-- 2026-06-29 14:01 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 14:14 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 14:05 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 14:06 - [北极荒岛生存挑战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
+- 2026-06-29 14:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 14:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 14:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 14:01 - [毕业群都在出什么东西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pixpe.md)
+- 2026-06-29 14:09 - [C罗关心罗德里戈伤情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kgqcj.md)
+- 2026-06-29 14:23 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqlyu.md)
+- 2026-06-29 14:03 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 14:16 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 14:17 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
+- 2026-06-29 14:08 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-29 14:04 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:08 - [FIFA回应佛得角队长被指控强奸](https://www.blog.kurohicncr.top/Article/details/579504429513.shtml)
-- 2026-06-29 14:15 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/51121984.shtml)
-- 2026-06-29 14:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/862923736771.shtml)
-- 2026-06-29 14:05 - [智界V9成为高端圈层共同选择](http://www.blog.minike.top/Article/details/64925917.shtml)
-- 2026-06-29 14:15 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](http://www.share.kurohicncr.top/Article/details/463563487508.shtml)
-- 2026-06-29 14:00 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/91158.shtml)
-- 2026-06-29 14:11 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/8963317401.shtml)
-- 2026-06-29 14:21 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/266873.shtml)
-- 2026-06-29 14:15 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/9344728.shtml)
-- 2026-06-29 14:22 - [王楚钦美国大满贯晋级32强](http://www.blog.kurohicncr.top/Article/details/24032664805.shtml)
-- 2026-06-29 14:00 - [曝歌手第七期帮唱阵容](http://www.share.minike.top/Article/details/825792.shtml)
-- 2026-06-29 13:55 - [钻石联赛巴黎站韦罗夺女子800米冠军](http://www.share.minike.top/Article/details/711558029601.shtml)
-- 2026-06-29 14:10 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/872414.shtml)
-- 2026-06-29 14:06 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/17461.shtml)
-- 2026-06-29 13:57 - [金牌调解](http://www.share.minike.top/Article/details/83125.shtml)
+- 2026-06-29 14:18 - [唐艺昕女儿接唐艺昕回家](http://www.share.minike.top/Article/details/981384952236.shtml)
+- 2026-06-29 14:12 - [扫黑风暴](http://www.blog.minike.top/Article/details/404404061.shtml)
+- 2026-06-29 14:25 - [农发行总行专家委员会委员杜晓力被查](https://www.share.kurohicncr.top/Article/details/681810.shtml)
+- 2026-06-29 14:20 - [急先锋](https://www.blog.minike.top/Article/details/3045734851.shtml)
+- 2026-06-29 14:12 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/594741711.shtml)
+- 2026-06-29 14:09 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/18853751358.shtml)
+- 2026-06-29 14:04 - [欧洲超1300例超额死亡与高温有关](https://www.blog.minike.top/Article/details/84972524797.shtml)
+- 2026-06-29 14:22 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.minike.top/Article/details/926984907727.shtml)
+- 2026-06-29 14:28 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/72186.shtml)
+- 2026-06-29 14:06 - [扫黑风暴](http://www.share.minike.top/Article/details/342205575.shtml)
+- 2026-06-29 14:14 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.minike.top/Article/details/990857018748.shtml)
+- 2026-06-29 14:15 - [行程万里不忘初心](http://www.share.kurohicncr.top/Article/details/239847710.shtml)
+- 2026-06-29 14:21 - [刘烨16岁儿子诺一颜值](http://www.blog.minike.top/Article/details/931265394908.shtml)
+- 2026-06-29 14:18 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/4447078.shtml)
+- 2026-06-29 14:24 - [沙丘](https://www.blog.minike.top/Article/details/5258142.shtml)

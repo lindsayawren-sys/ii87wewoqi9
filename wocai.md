@@ -1,52 +1,53 @@
-# 从大山到全球：贵州抹茶以生态硬实力赋能茶产新未来
+# 施行近17年的企业国有资产法迎来首次修订
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 18:19 来源：中国新闻网 5月31日至6月1日，以“一抹相承，聚势拓新；梵净抹茶，香溢天下”为主题的2026抹茶大会在贵州省铜仁市江口县举办。中国是全球最大的抹茶生产国，年产量达1.2万吨，占全球总产量的70%。贵州铜仁、浙江余杭、湖北孝感、四川宜宾等多地抹茶产业蓬勃发展，产业布局多点开花，集群发展态势凸显。如今抹茶已成为我国茶产业延链补链
+企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。 草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持分类管理原则、健全国有资本收益管理制度等。 企业国有资产法规定了我国企业
 
 ## 正文
 
-发布时间：2026年06月02日 18:19 来源：中国新闻网 5月31日至6月1日，以“一抹相承，聚势拓新；梵净抹茶，香溢天下”为主题的2026抹茶大会在贵州省铜仁市江口县举办。
+企业国有资产法修订草案4月27日提请十四届全国人大常委会第二十二次会议首次审议。
 
-中国是全球最大的抹茶生产国，年产量达1.2万吨，占全球总产量的70%。
+企业国有资产法修改坚持党的领导，坚持问题导向，坚持统筹发展和安全，坚持稳中求进。
 
-贵州铜仁、浙江余杭、湖北孝感、四川宜宾等多地抹茶产业蓬勃发展，产业布局多点开花，集群发展态势凸显。
+草案修改71条、新增32条，共九章109条，对现行法作了全面修改，主要修改内容包括完善中国特色现代企业制度、完善企业国有资产管理监督体制、明确坚持分类管理原则、健全国有资本收益管理制度等。
 
-如今抹茶已成为我国茶产业延链补链、提质增值的核心赛道，也成为打造农业新质生产力、推动茶产业现代化发展的重要抓手。
+企业国有资产法规定了我国企业国有资产管理监督的基础制度，自2009年5月1日施行以来，为国资国企改革发展提供了有力法治保障。
 
-(曾琪男 袁超 铜仁报道） 责任编辑：【叶攀】
+“十五五”时期我国发展环境面临深刻复杂变化，修改完善企业国有资产法，以立法引领和保障国资国企改革发展，加强国有资产管理监督法治建设，对于保障国有经济持续健康发展意义重大。
+
+记者：王希 海报制作：王希 新华社国内部出品
 
 ## 相关推荐
 
-- 2026-06-29 14:22 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 14:18 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
-- 2026-06-29 14:14 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
-- 2026-06-29 14:03 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-29 14:23 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ohppe.md)
-- 2026-06-29 14:17 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuhong.md)
-- 2026-06-29 14:13 - [中方回应对日本相关出口管制措施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 13:54 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 13:57 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 14:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sveuy.md)
-- 2026-06-29 14:07 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
-- 2026-06-29 13:56 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-29 14:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 14:09 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-29 14:08 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gvige.md)
+- 2026-06-29 14:04 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 14:04 - [德国队前往比赛场地遭遇囧途](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-29 14:29 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
+- 2026-06-29 14:23 - [金刚川](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 14:27 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:16 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-29 14:03 - [事关个税 明日截止请抓紧办理](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 14:28 - [美伊同意停止互袭](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:54 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/828713065.shtml)
-- 2026-06-29 13:58 - [王楚钦 表演球擦网](http://www.blog.minike.top/Article/details/33374556.shtml)
-- 2026-06-29 14:09 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/5800949.shtml)
-- 2026-06-29 14:14 - [链博会上的机器人太全能了](https://www.share.kurohicncr.top/Article/details/1707398.shtml)
-- 2026-06-29 14:05 - [U17男篮世界杯：中国78-87不敌加拿大](http://www.blog.minike.top/Article/details/75727709.shtml)
-- 2026-06-29 14:18 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/1779452.shtml)
-- 2026-06-29 14:04 - [周杰伦演唱会真的好多人啊](https://www.blog.minike.top/Article/details/46276.shtml)
-- 2026-06-29 14:22 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.share.minike.top/Article/details/87580.shtml)
-- 2026-06-29 14:13 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.minike.top/Article/details/56288412878.shtml)
-- 2026-06-29 14:17 - [人民日报评“AI脸看腻了”](https://www.share.kurohicncr.top/Article/details/22184.shtml)
-- 2026-06-29 14:15 - [金价银价下跌 油价上涨](http://www.blog.minike.top/Article/details/40208056169.shtml)
-- 2026-06-29 13:54 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/309123.shtml)
-- 2026-06-29 14:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/289056.shtml)
-- 2026-06-29 14:11 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/694332086.shtml)
-- 2026-06-29 14:21 - [委内瑞拉地震已致1450死3150伤](https://www.share.kurohicncr.top/Article/details/24074781.shtml)
+- 2026-06-29 14:01 - [毒液2](http://www.share.minike.top/Article/details/4592093.shtml)
+- 2026-06-29 14:04 - [永远保持对人民的赤子之心](https://www.share.minike.top/Article/details/683199233.shtml)
+- 2026-06-29 14:21 - [周锡玮：做堂堂正正的中国人](https://www.blog.kurohicncr.top/Article/details/8081087.shtml)
+- 2026-06-29 14:14 - [日本前锋言论激怒巴西](http://www.share.minike.top/Article/details/0248970.shtml)
+- 2026-06-29 14:15 - [王楚钦 表演球擦网](https://www.blog.kurohicncr.top/Article/details/192788.shtml)
+- 2026-06-29 14:15 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.minike.top/Article/details/9956120.shtml)
+- 2026-06-29 14:05 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/30539.shtml)
+- 2026-06-29 14:20 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/981869834.shtml)
+- 2026-06-29 14:26 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.minike.top/Article/details/0443681383.shtml)
+- 2026-06-29 14:16 - [清华姚班UP主详解AI专业就业](http://www.share.minike.top/Article/details/8010347.shtml)
+- 2026-06-29 14:22 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/007970975443.shtml)
+- 2026-06-29 14:28 - [世界杯看到肖战了](http://www.blog.minike.top/Article/details/155756116450.shtml)
+- 2026-06-29 14:19 - [失明的我带老妈去了趟“火星”](https://www.blog.minike.top/Article/details/94851.shtml)
+- 2026-06-29 14:15 - [爱很美味](https://www.blog.minike.top/Article/details/071509626.shtml)
+- 2026-06-29 14:23 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/637548865400.shtml)

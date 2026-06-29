@@ -1,55 +1,45 @@
-# 美国FDA驳回Cingulate公司多动症新药上市申请
+# RIMBACO公布于4月27日上午起复牌
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-Cingulate公司周二公告，美国食品药品监督管理局（FDA）未批准其用于治疗注意缺陷多动障碍（ADHD）的新药上市。 公司表示，FDA 下发了完全回复函（CRL），要求企业补充生产工艺与质量管控相关资料，但未对该药的安全性、有效性提出质疑。 这款代号CTx-1301的药物适应症为注意缺陷多动障碍（多动症）；患病者长期注意力涣散、多动、行为冲动，病症多发于儿童且常会延续至成年
+RIMBACO（01953）发布公告，公司股份将于2026年4月27日上午九时正起恢复买卖。责任编辑：卢昱君
 
 ## 正文
 
-Cingulate公司周二公告，美国食品药品监督管理局（FDA）未批准其用于治疗注意缺陷多动障碍（ADHD）的新药上市。
+RIMBACO（01953）发布公告，公司股份将于2026年4月27日上午九时正起恢复买卖。
 
-公司表示，FDA 下发了完全回复函（CRL），要求企业补充生产工艺与质量管控相关资料，但未对该药的安全性、有效性提出质疑。
-
-这款代号CTx-1301的药物适应症为注意缺陷多动障碍（多动症）；患病者长期注意力涣散、多动、行为冲动，病症多发于儿童且常会延续至成年。
-
-该药品为右哌甲酯每日一次口服片剂，右哌甲酯是多款已上市多动症药物的有效成分，用于改善多动症患者专注力、减少冲动与焦躁好动症状。
-
-责任编辑：郭明煜
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [薛之谦演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-29 14:15 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 13:54 - [海清白玉兰奖运](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dourao.md)
-- 2026-06-29 14:18 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
-- 2026-06-29 14:09 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
-- 2026-06-29 14:23 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 13:58 - [王楚钦3-0周启豪 晋级32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
-- 2026-06-29 14:09 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-29 14:17 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
-- 2026-06-29 14:05 - [记者暗访贵州和云南多个养老机构](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-29 14:03 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-29 14:02 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hanping.md)
-- 2026-06-29 14:05 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
-- 2026-06-29 13:55 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 14:08 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 14:24 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-29 14:06 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-29 14:29 - [新一代影后杨紫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
+- 2026-06-29 14:25 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 14:01 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/meici.md)
+- 2026-06-29 14:26 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 14:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
+- 2026-06-29 14:11 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-29 14:14 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rougeng.md)
+- 2026-06-29 14:23 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
+- 2026-06-29 14:20 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:08 - [女子遭殴打驾车致丈夫身亡维持原判](http://www.share.minike.top/Article/details/71127335.shtml)
-- 2026-06-29 13:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/40340.shtml)
-- 2026-06-29 13:56 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/4331152899.shtml)
-- 2026-06-29 14:00 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/977548.shtml)
-- 2026-06-29 13:59 - [严浩翔FIY断层第一](https://www.blog.kurohicncr.top/Article/details/148696100.shtml)
-- 2026-06-29 14:22 - [欧委会总部只给高层开空调](https://www.share.minike.top/Article/details/44621561.shtml)
-- 2026-06-29 14:18 - [海清白玉兰奖运](http://www.blog.kurohicncr.top/Article/details/01480999487.shtml)
-- 2026-06-29 13:57 - [马斯克也站到了光里](http://www.blog.minike.top/Article/details/60519.shtml)
-- 2026-06-29 13:59 - [博主：比亚迪赢了销量却输给资本](http://www.blog.kurohicncr.top/Article/details/9904765.shtml)
-- 2026-06-29 14:13 - [金刚川](https://www.blog.minike.top/Article/details/79837011287.shtml)
-- 2026-06-29 13:58 - [360万法拉利被多名孩童当滑梯玩耍](http://www.share.kurohicncr.top/Article/details/2867925510.shtml)
-- 2026-06-29 14:22 - [孙颖莎将迎来本届美国大满贯首秀](http://www.share.minike.top/Article/details/602093234702.shtml)
-- 2026-06-29 14:11 - [韩国主帅辞职5分钟念完双手插兜离场](http://www.blog.kurohicncr.top/Article/details/040749274.shtml)
-- 2026-06-29 13:56 - [中央气象台发布强对流天气蓝色预警](http://www.share.minike.top/Article/details/29033338567.shtml)
-- 2026-06-29 14:10 - [英博后卫宋岳：还得慢慢找回竞技状态](https://www.blog.minike.top/Article/details/34733311.shtml)
+- 2026-06-29 14:23 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.minike.top/Article/details/1268289720.shtml)
+- 2026-06-29 14:05 - [1954年以来闯进世界杯淘汰赛次数排行](http://www.blog.minike.top/Article/details/17925391929.shtml)
+- 2026-06-29 14:27 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/873312365.shtml)
+- 2026-06-29 14:10 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/3786620.shtml)
+- 2026-06-29 14:23 - [47岁吴建豪再婚](http://www.share.minike.top/Article/details/60261675.shtml)
+- 2026-06-29 14:04 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.kurohicncr.top/Article/details/86565317509.shtml)
+- 2026-06-29 14:12 - [爱很美味](https://www.share.minike.top/Article/details/070316706.shtml)
+- 2026-06-29 14:27 - [韩国队差旅费亏麻了](http://www.blog.kurohicncr.top/Article/details/36401.shtml)
+- 2026-06-29 14:12 - [Mrbeast的30天不吃饭挑战](http://www.share.minike.top/Article/details/88361.shtml)
+- 2026-06-29 14:02 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/276432364.shtml)
+- 2026-06-29 14:04 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/83622161598.shtml)
+- 2026-06-29 14:03 - [ENC瓦中国香港负印度数据图](https://www.share.kurohicncr.top/Article/details/8746475397.shtml)
+- 2026-06-29 14:26 - [李连杰否认不管前妻两女儿](http://www.share.kurohicncr.top/Article/details/22576347.shtml)
+- 2026-06-29 14:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/30526380.shtml)
+- 2026-06-29 14:00 - [实习期把公司领导开除了](http://www.share.kurohicncr.top/Article/details/03493452138.shtml)

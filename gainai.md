@@ -1,58 +1,56 @@
-# 中东战火纷飞，这些孩子没有儿童节
+# 报告：美以伊冲突对中国经济的影响可控
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。 联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。 同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。 令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。 今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难
+中新社北京4月27日电 (陶思阅)中国金融四十人论坛(CF40)27日在北京举行2026年第一季度宏观政策报告发布会。报告指出，尽管美以伊冲突导致的能源供给问题或对全球产生一定负面冲击，但对中国经济的影响可控。上述报告称，美以伊冲突造成的负面影响主要体现在以下几个方面：一是能源和原材料进口成本明显抬升，沿产业链向制造业上下游传导；二是全球滞胀风险上升，外部需求放缓，对中国出口形
 
 ## 正文
 
-中新网6月1日电(记者 刁炜)今天，本该是属于所有孩子们的节日，但在中东，许多儿童却连活着都需要运气。
+中新社北京4月27日电 (陶思阅)中国金融四十人论坛(CF40)27日在北京举行2026年第一季度宏观政策报告发布会。
 
-联合国儿童基金会近日称，加沙冲突对当地儿童伤害巨大，已致超6.4万名孩子死去或伤残。
+报告指出，尽管美以伊冲突导致的能源供给问题或对全球产生一定负面冲击，但对中国经济的影响可控。
 
-同时期，约旦河西岸暴力活动升级，造成200多名巴勒斯坦儿童丧生。
+上述报告称，美以伊冲突造成的负面影响主要体现在以下几个方面：一是能源和原材料进口成本明显抬升，沿产业链向制造业上下游传导；二是全球滞胀风险上升，外部需求放缓，对中国出口形成一定拖累；三是金融市场避险情绪扰动企业投资意愿和民众消费信心。
 
-令人心痛的是，战火非但没有熄灭，反而扩散波及到更多国家和地区。
+根据一季度经济数据，报告判断，得益于中国经济韧性和产业链纵深，中国出口企业展现出较强的适应能力。
 
-今年早些时候，局势升级蔓延至伊朗，该国约180名儿童遭袭遇难，其中大多是正上课的小学生。
+加之太阳能装机量的扩张、新能源汽车渗透率的提升以及煤炭产能的灵活补位，中国经济对油价冲击具有一定“免疫力”。
 
-而在黎巴嫩和叙利亚，激烈冲突让几十万孩子流离失所，数以千计的无辜儿童饱受磨难。
+“我们判断美以伊冲突对中国经济的影响总体可控。
 
-这些劫后余生的孩子，不该只剩恐惧和饥饿，国际社会亟待采取行动，让和平的曙光早日来临。
+”CF40资深研究员、中国社科院世界经济与政治研究所副所长张斌表示，与发达国家相比，中国通胀水平偏低，有更充裕的逆周期政策空间对冲油价带来的负面影响。
 
 (完)
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/necvw.md)
-- 2026-06-29 13:56 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 14:06 - [A股限售股解禁一览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-29 14:20 - [巴黎两家殡仪馆爆满](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-29 14:07 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 14:16 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
-- 2026-06-29 14:14 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-29 13:55 - [锐评浪姐7总决赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-29 14:13 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 14:15 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
-- 2026-06-29 14:00 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
-- 2026-06-29 14:22 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
+- 2026-06-29 14:13 - [AG 钟意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lwmzl.md)
+- 2026-06-29 14:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jnzol.md)
+- 2026-06-29 14:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 14:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-29 14:04 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
+- 2026-06-29 14:21 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lrntj.md)
+- 2026-06-29 14:12 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-29 14:03 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 14:25 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
+- 2026-06-29 14:04 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/336887.shtml)
-- 2026-06-29 13:59 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/8707637064.shtml)
-- 2026-06-29 14:06 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/68930.shtml)
-- 2026-06-29 14:18 - [韩国队如何把94%出线概率打到0%](https://www.share.kurohicncr.top/Article/details/9577598664.shtml)
-- 2026-06-29 14:07 - [沙丘](http://www.share.minike.top/Article/details/4439890.shtml)
-- 2026-06-29 13:58 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.share.minike.top/Article/details/07119744.shtml)
-- 2026-06-29 14:00 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.blog.minike.top/Article/details/893127.shtml)
-- 2026-06-29 14:05 - [张真源解读相思锁](https://www.blog.kurohicncr.top/Article/details/6254999.shtml)
-- 2026-06-29 13:59 - [天道](http://www.share.minike.top/Article/details/565382.shtml)
-- 2026-06-29 14:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/77299.shtml)
-- 2026-06-29 14:00 - [肖战深夜到达青岛赴十日终焉片场](http://www.blog.minike.top/Article/details/406530740332.shtml)
-- 2026-06-29 14:10 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/90429880.shtml)
-- 2026-06-29 14:02 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/9406546.shtml)
-- 2026-06-29 14:07 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/7733032388.shtml)
-- 2026-06-29 14:09 - [亚洲成世界杯最大失意者联盟](https://www.share.minike.top/Article/details/989374.shtml)
+- 2026-06-29 14:24 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/699404.shtml)
+- 2026-06-29 14:08 - [加拿大92分钟绝杀成世界杯首个16强](https://www.blog.minike.top/Article/details/07756904.shtml)
+- 2026-06-29 14:28 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/04617249036.shtml)
+- 2026-06-29 14:19 - [航空运输旅客服务质量国标将实施](https://www.blog.kurohicncr.top/Article/details/188418.shtml)
+- 2026-06-29 14:26 - [王楚钦3比0周启豪](https://www.share.kurohicncr.top/Article/details/651721148709.shtml)
+- 2026-06-29 14:02 - [赵露思爸爸拍vlog“翻车”](https://www.share.kurohicncr.top/Article/details/579270630364.shtml)
+- 2026-06-29 14:06 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.minike.top/Article/details/22836170.shtml)
+- 2026-06-29 14:23 - [医药股集体爆发](http://www.share.kurohicncr.top/Article/details/01716674.shtml)
+- 2026-06-29 14:25 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/2760440.shtml)
+- 2026-06-29 14:27 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/36387.shtml)
+- 2026-06-29 14:23 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/6405743766.shtml)
+- 2026-06-29 14:03 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.blog.kurohicncr.top/Article/details/17867.shtml)
+- 2026-06-29 14:01 - [袁隆平院士 不容诋毁！](http://www.blog.kurohicncr.top/Article/details/62189754406.shtml)
+- 2026-06-29 14:20 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/61490.shtml)
+- 2026-06-29 14:22 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/686034604.shtml)

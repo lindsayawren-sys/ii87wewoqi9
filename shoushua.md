@@ -1,54 +1,57 @@
-# 蔚来-SW午前涨超4% 乐道L90/L80旗舰双子星交付破万
+# 智谱入选《时代》杂志“2026年最具影响力的10家人工智能公司”
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-蔚来-SW（09866）早盘涨超4%，截至发稿，股价上涨4.06%，现报47.18港元，成交额1.65亿港元。 蔚来公布5月交付量为37，705台，同比增长62.3%。今年前五个月，蔚来公司共交付新车150，526台，同比增长68.7%。 5月是蔚来公司新产品的密集发布和交付期，科技行政旗舰SUV蔚来ES9已于5月27日正式上市并交付；乐道L80上市仅15天交付5，949台，刷
+《时代》杂志今日公布“2026年最具影响力的10家人工智能公司”名单，这10家公司分别为字节跳动、亚马逊、智谱、OpenAI、Alphabet、Meta、Anthropic、阿里巴巴、Mistral和Hugging Face。 国内公司占据其中三席，分别为字节跳动、智谱、阿里巴巴。 《时代》认为，字节跳动如今它已转型为一家以人工智能为先的科技公司，产品涵盖聊天机器人、图像与视频
 
 ## 正文
 
-蔚来-SW（09866）早盘涨超4%，截至发稿，股价上涨4.06%，现报47.18港元，成交额1.65亿港元。
+《时代》杂志今日公布“2026年最具影响力的10家人工智能公司”名单，这10家公司分别为字节跳动、亚马逊、智谱、OpenAI、Alphabet、Meta、Anthropic、阿里巴巴、Mistral和Hugging Face。
 
-蔚来公布5月交付量为37，705台，同比增长62.3%。
+国内公司占据其中三席，分别为字节跳动、智谱、阿里巴巴。
 
-今年前五个月，蔚来公司共交付新车150，526台，同比增长68.7%。
+《时代》认为，字节跳动如今它已转型为一家以人工智能为先的科技公司，产品涵盖聊天机器人、图像与视频生成以及云基础设施。
 
-5月是蔚来公司新产品的密集发布和交付期，科技行政旗舰SUV蔚来ES9已于5月27日正式上市并交付；乐道L80上市仅15天交付5，949台，刷新纯电大五座SUV交付速度纪录，与2026款乐道L90携手达成双车交付破万，引领大型SUV加速进入纯电时代。
+最能预示字节跳动未来方向的，是其AI助手豆包，该应用已积累了超过1.55亿周活跃用户，并在今年2月的农历新年假期期间日活用户突破1亿，使中国成为全球首批大规模应用AI助手的国家之一。
 
-新乐道L60于5月29日在第三十届粤港澳大湾区车展上正式亮相并开启预售，目前展车已陆续抵达全国门店，将于6月11日正式上市。
+谈及智谱，《时代》评价称，二月，智谱发布了GLM-5，这是一个拥有7440亿参数的模型，完全在华为处理器上训练而成。
 
-责任编辑：卢昱君
+该模型以开源许可发布，在某些基准测试中已超越谷歌的Gemini 3 Pro等竞争对手，并在编码和智能体任务方面接近Claude Opus 4.5和OpenAI的GPT-5.2。
+
+智谱的模型已经为全球218个国家和地区超过400万企业用户和开发者提供支持。
+
+《时代》称阿里巴巴已成为开源AI领域的主导力量，其通义千问（Qwen）系列模型的累计下载量已突破10亿次，并衍生出超过20万个模型，成为全球最受欢迎的开源模型家族，影响力远不止于中国。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 14:06 - [TOP 无畏契约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-29 14:24 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
-- 2026-06-29 14:14 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 13:57 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
-- 2026-06-29 13:55 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bikuo.md)
-- 2026-06-29 14:14 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 14:03 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 13:54 - [和阿根廷球员家属一起看球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pwlin.md)
-- 2026-06-29 14:13 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-29 14:22 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-29 14:06 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-29 14:23 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 14:23 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuangpang.md)
+- 2026-06-29 14:00 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:04 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 14:09 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-29 14:14 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
+- 2026-06-29 14:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-29 14:18 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
+- 2026-06-29 14:17 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-29 14:23 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-29 14:24 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [沙特足协主席发布声明主动请辞](http://www.blog.kurohicncr.top/Article/details/04929748125.shtml)
-- 2026-06-29 13:58 - [吴建豪老婆](http://www.share.kurohicncr.top/Article/details/711655.shtml)
-- 2026-06-29 13:58 - [巴西发布对阵日本宣传片](http://www.share.minike.top/Article/details/667141899.shtml)
-- 2026-06-29 14:19 - [血糖高的人能吃西瓜吗](https://www.blog.kurohicncr.top/Article/details/54025293.shtml)
-- 2026-06-29 14:14 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/61736163.shtml)
-- 2026-06-29 13:54 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/11786126.shtml)
-- 2026-06-29 14:01 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/112147260835.shtml)
-- 2026-06-29 14:21 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/9049204.shtml)
-- 2026-06-29 14:23 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/6510337509.shtml)
-- 2026-06-29 14:03 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/9019010887.shtml)
-- 2026-06-29 14:05 - [刘仲华院士愿当贺永辉导师](http://www.share.kurohicncr.top/Article/details/25858930.shtml)
-- 2026-06-29 14:22 - [NBA交易](https://www.share.minike.top/Article/details/867905.shtml)
-- 2026-06-29 14:19 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/815122616.shtml)
-- 2026-06-29 14:06 - [沉睡花园](https://www.share.minike.top/Article/details/94430339774.shtml)
-- 2026-06-29 14:02 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/1480775.shtml)
+- 2026-06-29 14:18 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/869897253129.shtml)
+- 2026-06-29 14:26 - [给阿嬷的情书海外口碑](http://www.share.kurohicncr.top/Article/details/59133.shtml)
+- 2026-06-29 14:20 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/585143941.shtml)
+- 2026-06-29 14:12 - [恋与深空底线不该被娱乐化](https://www.blog.kurohicncr.top/Article/details/7774514511.shtml)
+- 2026-06-29 14:26 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.kurohicncr.top/Article/details/94097.shtml)
+- 2026-06-29 14:02 - [民进党为什么拼命抹黑统战](https://www.share.kurohicncr.top/Article/details/577546629.shtml)
+- 2026-06-29 14:02 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/948676873.shtml)
+- 2026-06-29 14:08 - [7月1日起一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/7701691.shtml)
+- 2026-06-29 14:20 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/066596403026.shtml)
+- 2026-06-29 14:16 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/85950.shtml)
+- 2026-06-29 14:09 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/003997766.shtml)
+- 2026-06-29 14:05 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.minike.top/Article/details/5295494899.shtml)
+- 2026-06-29 14:12 - [普京称考虑全面禁止柴油出口](https://www.blog.minike.top/Article/details/755394266.shtml)
+- 2026-06-29 14:27 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.minike.top/Article/details/95544899630.shtml)
+- 2026-06-29 14:23 - [巴西国脚说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/2077025.shtml)

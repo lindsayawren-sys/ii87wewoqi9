@@ -1,44 +1,59 @@
-# 以军空袭加沙城海边人群 致2死多伤
+# 关于白宫记者晚宴枪击案嫌疑人科尔・艾伦的全部已知信息
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月01日 10:45 来源：央视新闻 责任编辑：【王祎】
+核心要点 周六晚，一年一度的白宫记者协会晚宴现场突发混乱：武装男子科尔・艾伦涉嫌冲过安检关卡，并与执法人员交火，导致活动彻底中断。 嫌疑人被当场抓获，预计将于周一接受传讯。事件中，一名执法人员中弹但伤势不重；特朗普政府官员及国会议员均已安全疏散，晚宴现场无人员伤亡报告光明网。 事发时，特朗普总统正出席其就任后的首次白宫记者协会晚宴。事后，他要求重新安排活动时间。晚宴最初计划继续
 
 ## 正文
 
-发布时间：2026年06月01日 10:45 来源：央视新闻 责任编辑：【王祎】
+核心要点 周六晚，一年一度的白宫记者协会晚宴现场突发混乱：武装男子科尔・艾伦涉嫌冲过安检关卡，并与执法人员交火，导致活动彻底中断。
+
+嫌疑人被当场抓获，预计将于周一接受传讯。
+
+事件中，一名执法人员中弹但伤势不重；特朗普政府官员及国会议员均已安全疏散，晚宴现场无人员伤亡报告光明网。
+
+事发时，特朗普总统正出席其就任后的首次白宫记者协会晚宴。
+
+事后，他要求重新安排活动时间。
+
+晚宴最初计划继续举办，但执法部门将现场认定为 active 犯罪现场，活动最终取消。
+
+嫌疑人科尔・艾伦已知信息汇总 目标直指特朗普政府 代理司法部长托德・布朗什表示，调查显示嫌疑人的目标是政府官员。
+
+“显然，嫌疑人将政府官员作为袭击目标。
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 14:03 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 14:05 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-29 14:06 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtxhh.md)
-- 2026-06-29 13:54 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-29 14:12 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 14:20 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
-- 2026-06-29 14:22 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
-- 2026-06-29 14:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwkjq.md)
-- 2026-06-29 14:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
-- 2026-06-29 14:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pevhq.md)
-- 2026-06-29 14:10 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
+- 2026-06-29 14:08 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-29 14:18 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 14:15 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-29 14:18 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-29 14:04 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
+- 2026-06-29 14:01 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 14:06 - [沙特足协主席发布声明主动请辞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-29 14:27 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
+- 2026-06-29 14:21 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/remen.md)
+- 2026-06-29 14:07 - [日本主帅：目标是冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-29 14:06 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 14:06 - [王佳佳江疏影13年前后同框对比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nqarq.md)
+- 2026-06-29 14:29 - [英博后卫宋岳：还得慢慢找回竞技状态](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/7249934581.shtml)
-- 2026-06-29 14:04 - [A股](http://www.blog.kurohicncr.top/Article/details/05828391.shtml)
-- 2026-06-29 14:05 - [市民骑哈啰单车79分钟付30元](https://www.share.kurohicncr.top/Article/details/4829512513.shtml)
-- 2026-06-29 14:17 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/299935897602.shtml)
-- 2026-06-29 14:14 - [宜宾5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/9377477144.shtml)
-- 2026-06-29 14:12 - [我们看到的星星是不是有些已经不存在了？](http://www.blog.minike.top/Article/details/218980780452.shtml)
-- 2026-06-29 14:00 - [这一刀 会很帅](https://www.share.minike.top/Article/details/518557014793.shtml)
-- 2026-06-29 14:04 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/7237655.shtml)
-- 2026-06-29 14:22 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/88850141.shtml)
-- 2026-06-29 14:11 - [韩国队出局引发意大利球迷全网狂欢](https://www.share.kurohicncr.top/Article/details/654997.shtml)
-- 2026-06-29 14:00 - [未来5年全国能源体系将呈现这些特征](http://www.share.kurohicncr.top/Article/details/225650.shtml)
-- 2026-06-29 14:23 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/32049342.shtml)
-- 2026-06-29 14:13 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.blog.minike.top/Article/details/3317889.shtml)
-- 2026-06-29 14:03 - [日本前锋言论激怒巴西](https://www.share.minike.top/Article/details/178280584139.shtml)
-- 2026-06-29 14:14 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.kurohicncr.top/Article/details/87400129.shtml)
+- 2026-06-29 14:09 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/50543209897.shtml)
+- 2026-06-29 14:26 - [失母小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/08644.shtml)
+- 2026-06-29 14:11 - [吴建豪老婆](http://www.share.minike.top/Article/details/04450.shtml)
+- 2026-06-29 14:00 - [王楚钦3-0周启豪 晋级32强](https://www.share.minike.top/Article/details/9500092.shtml)
+- 2026-06-29 14:18 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/748725893.shtml)
+- 2026-06-29 14:13 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/22710.shtml)
+- 2026-06-29 14:00 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/95967085367.shtml)
+- 2026-06-29 14:09 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/0460251.shtml)
+- 2026-06-29 14:00 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/852255963233.shtml)
+- 2026-06-29 14:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.minike.top/Article/details/6009577982.shtml)
+- 2026-06-29 14:08 - [两个教官【皮影人行动4.0】](http://www.blog.minike.top/Article/details/20305120.shtml)
+- 2026-06-29 14:08 - [市民骑哈啰单车79分钟付30元](http://www.blog.kurohicncr.top/Article/details/53994742.shtml)
+- 2026-06-29 14:19 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](http://www.blog.kurohicncr.top/Article/details/9223323.shtml)
+- 2026-06-29 14:29 - [媒体：这一次合肥芜湖在伯仲之间](https://www.blog.minike.top/Article/details/19835.shtml)
+- 2026-06-29 14:07 - [母亲去世80万赔偿款弟弟拿走74万](https://www.share.kurohicncr.top/Article/details/935506.shtml)

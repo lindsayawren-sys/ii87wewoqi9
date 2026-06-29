@@ -1,61 +1,58 @@
-# 英伟达今日揭晓AI“突破性技术进展”！深度回调窗口关注“先进封装”含量高的科创半导体设备ETF华泰柏瑞
+# 从恐龙成为常州“特产”，来看江苏文旅产业发展的流量密码
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-上周五，此前表现活跃的科创半导体板块出现明显回调。不过，在多重利好不断积蓄的背景下，此次调整或为中长期布局提供了较好窗口，相关ETF交投热度不减。其中，科创半导体设备ETF华泰柏瑞（588710）上周五成交额达6.01亿元，较前一交易日增长18%，交投端保持活跃；资金面上，当日逆势获得资金净流入，或一定程度反映出市场对该赛道长期价值的认可。截至上周五，产品最新规模达22.98亿
+现代快报讯(记者 宋体佳 文/摄)在江苏，一座高速发展的工业城市怎么把文旅故事“讲”得活色生香？4月24日晚上，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动调研团来到常州中华恐龙园。在这里，从“角角”到“酱板龙”，因“苏超”走红的恐龙“明星”，都被捧上台前与游客互动，成了“快乐经济”新的增长点。这也是江苏文旅产业蓬勃发展的生动注脚。“那个恐龙是真的吗？好可爱啊！”在恐龙
 
 ## 正文
 
-上周五，此前表现活跃的科创半导体板块出现明显回调。
+现代快报讯(记者 宋体佳 文/摄)在江苏，一座高速发展的工业城市怎么把文旅故事“讲”得活色生香？
 
-不过，在多重利好不断积蓄的背景下，此次调整或为中长期布局提供了较好窗口，相关ETF交投热度不减。
+4月24日晚上，“开局之年看中国·遇见不一样的江苏”网络主题宣传活动调研团来到常州中华恐龙园。
 
-其中，科创半导体设备ETF华泰柏瑞（588710）上周五成交额达6.01亿元，较前一交易日增长18%，交投端保持活跃；资金面上，当日逆势获得资金净流入，或一定程度反映出市场对该赛道长期价值的认可。
+在这里，从“角角”到“酱板龙”，因“苏超”走红的恐龙“明星”，都被捧上台前与游客互动，成了“快乐经济”新的增长点。
 
-截至上周五，产品最新规模达22.98亿元，流动性优势较突出。
+这也是江苏文旅产业蓬勃发展的生动注脚。
 
-全球AI与半导体产业链近期催化密集，行业新一轮技术迭代与需求升级窗口开启。
+“那个恐龙是真的吗？
 
-今日，英伟达CEO将发表主题演讲，对外公布赋能新一代人工智能的前沿技术成果。
+好可爱啊！
 
-据悉，英伟达计划在6月初推出面向个人电脑的系统级芯片（SoC），同时亮相多款搭载该芯片的笔记本产品。
+”在恐龙园，一位少年指着正在表演的机器恐龙“角角”问身边的家长。
 
-在此之前，英伟达、微软与ARM已于5月30日在社交平台联合发声，预告PC产业即将迈入全新发展阶段，一系列新品落地也将进一步带动全球半导体产业链需求。
+此时，身披“苏超”常州队球服的“角角”恰好将一粒足球踢进球门，引来围观游客一阵欢笑。
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [ENC瓦中国香港负印度数据图](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-29 14:21 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-29 14:16 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
-- 2026-06-29 14:18 - [袁隆平院士 不容诋毁！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 13:55 - [TOP 无畏契约](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 13:57 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 14:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 14:19 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-29 14:19 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
-- 2026-06-29 14:07 - [中国避暑神器在欧洲卖爆了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
-- 2026-06-29 13:57 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 14:12 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkkpl.md)
-- 2026-06-29 14:09 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 14:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuangxuan.md)
-- 2026-06-29 13:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 14:05 - [韩媒破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangcu.md)
+- 2026-06-29 14:13 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
+- 2026-06-29 14:24 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 14:04 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
+- 2026-06-29 14:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 14:22 - [东部机场集团新增釜山航线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
+- 2026-06-29 14:00 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 14:02 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 14:18 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 14:04 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
+- 2026-06-29 14:22 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yangtuo.md)
+- 2026-06-29 14:25 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/5996579731.shtml)
-- 2026-06-29 14:20 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/0666566.shtml)
-- 2026-06-29 14:03 - [边洗边甩干？游客玩大摆锤遇暴雨](http://www.share.minike.top/Article/details/376501899958.shtml)
-- 2026-06-29 14:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.kurohicncr.top/Article/details/54237.shtml)
-- 2026-06-29 14:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/409975.shtml)
-- 2026-06-29 13:58 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/56507.shtml)
-- 2026-06-29 13:54 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/736704607551.shtml)
-- 2026-06-29 14:12 - [女心理师](http://www.blog.kurohicncr.top/Article/details/4692595.shtml)
-- 2026-06-29 14:18 - [韩体育部长回应李在明痛批](http://www.share.kurohicncr.top/Article/details/65770.shtml)
-- 2026-06-29 13:56 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/6748956844.shtml)
-- 2026-06-29 14:20 - [我设置了全宇宙最安全的密码](https://www.share.kurohicncr.top/Article/details/50699.shtml)
-- 2026-06-29 14:00 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/8209970948.shtml)
-- 2026-06-29 14:23 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/73421385.shtml)
-- 2026-06-29 14:03 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/18220249304.shtml)
-- 2026-06-29 14:07 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/524054974830.shtml)
+- 2026-06-29 14:11 - [三都主：淘汰赛我会支持日本](http://www.blog.kurohicncr.top/Article/details/3690897089.shtml)
+- 2026-06-29 14:12 - [人民日报评“AI脸看腻了”](http://www.share.minike.top/Article/details/79755468618.shtml)
+- 2026-06-29 14:19 - [东部机场集团新增釜山航线](https://www.share.kurohicncr.top/Article/details/165412100255.shtml)
+- 2026-06-29 14:14 - [委内瑞拉2400亿美元债务怎么还](http://www.share.minike.top/Article/details/814593521.shtml)
+- 2026-06-29 14:28 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.kurohicncr.top/Article/details/39541427.shtml)
+- 2026-06-29 14:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/887999.shtml)
+- 2026-06-29 14:27 - [四川宜宾地震](http://www.blog.minike.top/Article/details/898946177044.shtml)
+- 2026-06-29 14:12 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.minike.top/Article/details/150171150550.shtml)
+- 2026-06-29 14:27 - [共享单车“价格刺客”79分钟30元](http://www.blog.kurohicncr.top/Article/details/0375494731.shtml)
+- 2026-06-29 14:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.minike.top/Article/details/605780386298.shtml)
+- 2026-06-29 14:16 - [曝歌手第七期帮唱阵容](https://www.blog.kurohicncr.top/Article/details/2684652472.shtml)
+- 2026-06-29 14:24 - [我和我的家乡](https://www.share.kurohicncr.top/Article/details/87599.shtml)
+- 2026-06-29 14:07 - [日本主帅：目标是冠军](http://www.share.minike.top/Article/details/610867.shtml)
+- 2026-06-29 14:07 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/80448728.shtml)
+- 2026-06-29 14:15 - [AG 钟意](http://www.blog.minike.top/Article/details/7648169.shtml)

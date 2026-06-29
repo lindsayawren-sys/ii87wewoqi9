@@ -1,60 +1,57 @@
-# 美光股价上涨，Raymond James上调目标价至1100美元
+# 光大期货：4月28日能源化工日报
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。 Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。该股在过去12个月中飙升超过800%，市值已突破1万亿美元。此轮上调紧随一波分析师调高目标价的浪潮——瑞银
+原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上移，其中WTI 6月合约收盘上涨1.97美元至96.37美元/桶，涨幅2.09%。布伦特6月合约收盘上涨2.9美元至108.23美元/桶，涨幅2.75%。SC2606以654.5元/桶收盘，上涨7.1元/桶，涨幅1.1%。当前来看，地缘因素的计价正在弱化，美伊谈判进入僵局，公布的航
 
 ## 正文
 
-美光科技股价周一延续涨势，此前Raymond James将该股目标价从530美元大幅上调至1100美元，维持“跑赢大盘”评级，理由是AI驱动的强劲内存需求及持续紧张的供应格局。
+原油： （钟美燕，从业资格号：F3045334；交易咨询资格号：Z0002410） 周一油价重心上移，其中WTI 6月合约收盘上涨1.97美元至96.37美元/桶，涨幅2.09%。
 
-Raymond James的新目标价意味着较美光5月29日收盘价971美元约有13%的上涨空间。
+布伦特6月合约收盘上涨2.9美元至108.23美元/桶，涨幅2.75%。
 
-该股在过去12个月中飙升超过800%，市值已突破1万亿美元。
+SC2606以654.5元/桶收盘，上涨7.1元/桶，涨幅1.1%。
 
-此轮上调紧随一波分析师调高目标价的浪潮——瑞银给出了华尔街最高目标价1625美元，Susquehanna将目标价从600美元上调至1750美元，DA Davidson上调至1500美元，瑞穗证券也将其目标价上调至1150美元。
+当前来看，地缘因素的计价正在弱化，美伊谈判进入僵局，公布的航运数据显示，过去24小时内至少有七艘船只，主要是干散货船，穿越了霍尔木兹海峡，这与近日的低迷活动态势一致。
 
-分析师指出，AI基础设施支出正推动对高带宽内存和先进DRAM的结构性需求。
+在中东其他地区，以色列与黎巴嫩之间的停火协议也岌岌可危。
 
-美光已售罄2026年全部HBM4供应，客户长期协议的兴趣日益浓厚。
+如今已步入第九周的伊朗战争推高了能源价格，导致诸多关键产品出现短缺，例如印度面临液化石油气的供应不足。
 
-瑞穗分析师Vijay Rakesh在与美光高管会面后重申，AI驱动的强劲内存需求是推动2026至2027年市场供应紧张的核心因素。
+国际能源署称这场冲突正在造成历史上最大规模的供应干扰。
 
-美光第二财季营收达240亿美元，同比近乎增长两倍，调整后净利润飙升至140亿美元。
+欧洲央行将于周四召开会议，美伊停火缓解了其立即加息的压力。
 
 ## 相关推荐
 
-- 2026-06-29 13:58 - [AG 钟意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangchen.md)
-- 2026-06-29 13:54 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 14:11 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-29 14:01 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbcny.md)
-- 2026-06-29 13:59 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
-- 2026-06-29 14:11 - [新一代影后杨紫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
-- 2026-06-29 14:13 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 14:14 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
-- 2026-06-29 14:13 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
-- 2026-06-29 14:10 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-29 14:02 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-29 14:07 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
-- 2026-06-29 14:02 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-29 14:16 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-29 14:27 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-29 14:07 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
+- 2026-06-29 14:03 - [叶一茜森碟一起回北京了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-29 14:18 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-29 14:18 - [佛得角到底在哪个“角”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 14:17 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-29 14:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-29 14:00 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wanzhao.md)
+- 2026-06-29 14:13 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-29 14:28 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flqid.md)
+- 2026-06-29 14:29 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuthm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [105年初心滚烫](http://www.share.minike.top/Article/details/95001.shtml)
-- 2026-06-29 13:55 - [急先锋](https://www.share.kurohicncr.top/Article/details/653404465.shtml)
-- 2026-06-29 14:17 - [张真源解读相思锁](https://www.share.minike.top/Article/details/827522050.shtml)
-- 2026-06-29 14:02 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/651965750862.shtml)
-- 2026-06-29 14:12 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/959782570.shtml)
-- 2026-06-29 14:22 - [吴海燕兰西雅漫步复兴岛](https://www.blog.kurohicncr.top/Article/details/5637528928.shtml)
-- 2026-06-29 13:54 - [农发行总行专家委员会委员杜晓力被查](https://www.blog.minike.top/Article/details/18693325232.shtml)
-- 2026-06-29 13:58 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/837501508065.shtml)
-- 2026-06-29 13:58 - [迈巴赫提车第二天发现大灯起雾](https://www.share.minike.top/Article/details/06692826945.shtml)
-- 2026-06-29 14:23 - [委内瑞拉地震已致1450死3150伤](http://www.blog.kurohicncr.top/Article/details/232202.shtml)
-- 2026-06-29 14:12 - [手游300亿数据或被军事化运用](https://www.blog.kurohicncr.top/Article/details/40169.shtml)
-- 2026-06-29 14:04 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/183173.shtml)
-- 2026-06-29 14:00 - [爱很美味](https://www.share.minike.top/Article/details/94179042474.shtml)
-- 2026-06-29 14:12 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.minike.top/Article/details/67663.shtml)
-- 2026-06-29 14:15 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/05658728273.shtml)
+- 2026-06-29 14:12 - [一生一世](https://www.blog.minike.top/Article/details/1484936143.shtml)
+- 2026-06-29 14:09 - [链博会上的机器人太全能了](http://www.share.kurohicncr.top/Article/details/33427520.shtml)
+- 2026-06-29 14:25 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/665815076.shtml)
+- 2026-06-29 14:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.minike.top/Article/details/4664870.shtml)
+- 2026-06-29 14:16 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/978298918886.shtml)
+- 2026-06-29 14:20 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/5669359176.shtml)
+- 2026-06-29 14:16 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/6561894.shtml)
+- 2026-06-29 14:23 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/91156.shtml)
+- 2026-06-29 14:28 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/5606053.shtml)
+- 2026-06-29 14:15 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/250067224.shtml)
+- 2026-06-29 14:00 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.minike.top/Article/details/69854986190.shtml)
+- 2026-06-29 14:14 - [周深双眼皮贴又掉了](https://www.share.minike.top/Article/details/928216453.shtml)
+- 2026-06-29 14:17 - [两个教官【皮影人行动4.0】](https://www.share.minike.top/Article/details/811017.shtml)
+- 2026-06-29 14:13 - [龟梨和也田中美奈实结婚](https://www.blog.minike.top/Article/details/0511595.shtml)
+- 2026-06-29 14:27 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/8570950.shtml)

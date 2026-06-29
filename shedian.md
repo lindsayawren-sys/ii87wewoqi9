@@ -1,56 +1,58 @@
-# 2026，新手炒股都选择新浪财经APP，股票开户避坑指南来了！
+# 丰田3月全球销量同比下降7.3%，中国销量下降8%
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-2026年A股市场持续升温，越来越多的新手投资者涌入资本市场。上交所数据显示，2026年3月A股新开户达460.14万户，环比增长82.38%，同比增长50.10%，一季度累计新开1204.02万户，同比增长61.15%。开户热潮来袭，但很多人不知道的是，开户这一步如果走错了，意味着未来每次交易都在“亏钱”。 默认佣金陷阱，你可能一直在交“隐形税” 新手最常见的操作是直接下载某
+丰田汽车周一表示，由于中东地区销量大幅下滑以及旗下热门RAV4运动型多功能车的车型换代，3月份全球汽车销量连续第二个月下降。 丰田3月份全球销量同比下降7.3%，至897871辆，其中海外销量下降7.2%，日本市场销量下降7.8%。丰田的销量数据包含其豪华品牌雷克萨斯。 按地区划分，3月份中东地区的销量暴跌近三分之一，美国和中国市场的销量分别下降8.5%和8.0%。 中东市场对
 
 ## 正文
 
-2026年A股市场持续升温，越来越多的新手投资者涌入资本市场。
+丰田汽车周一表示，由于中东地区销量大幅下滑以及旗下热门RAV4运动型多功能车的车型换代，3月份全球汽车销量连续第二个月下降。
 
-上交所数据显示，2026年3月A股新开户达460.14万户，环比增长82.38%，同比增长50.10%，一季度累计新开1204.02万户，同比增长61.15%。
+丰田3月份全球销量同比下降7.3%，至897871辆，其中海外销量下降7.2%，日本市场销量下降7.8%。
 
-开户热潮来袭，但很多人不知道的是，开户这一步如果走错了，意味着未来每次交易都在“亏钱”。
+丰田的销量数据包含其豪华品牌雷克萨斯。
 
-默认佣金陷阱，你可能一直在交“隐形税” 新手最常见的操作是直接下载某家券商的APP自助开户，殊不知这背后藏着一个巨大的“坑”——默认佣金。
+按地区划分，3月份中东地区的销量暴跌近三分之一，美国和中国市场的销量分别下降8.5%和8.0%。
 
-目前主流券商自助开户的默认佣金普遍在万2.5至万3之间，且设有5元最低收费。
+中东市场对丰田而言规模相对较小，3月份在该地区销量接近3.4万辆。
 
-而2025年证券行业平均净佣金率已降至万分之1.78，万分之一、万分之二的费率成为常态。
+丰田并未解释该地区销量大幅下滑的原因。
 
-2026年4月，上海地区A股平均佣金率更已首次跌破万分之1.8，降至约万分之1.79。
+其他汽车制造商表示，由于伊朗冲突扰乱了霍尔木兹海峡的运输，以及更广泛的经济活动，中东地区的汽车需求有所减弱。
 
-这意味着，在券商APP上自助开户的新手，实际支付的佣金可能是市场平均水平的近两倍。
+丰田表示，总体而言，潜在需求保持稳定，但由于将生产线从老款RAV4转移到新款RAV4（RAV4是丰田全球最畅销的车型之一），销量受到了影响。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bppnt.md)
-- 2026-06-29 14:01 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:21 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 14:04 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
-- 2026-06-29 13:54 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
-- 2026-06-29 14:17 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
-- 2026-06-29 14:18 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lsgxz.md)
-- 2026-06-29 13:59 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-29 14:11 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
-- 2026-06-29 14:08 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-29 14:19 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-29 14:09 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-29 14:11 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 14:20 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
+- 2026-06-29 14:23 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
+- 2026-06-29 14:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fapang.md)
+- 2026-06-29 14:12 - [欧委会总部只给高层开空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 14:17 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-29 14:27 - [去了一趟潮汕。](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 14:00 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-29 14:29 - [105年初心滚烫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-29 14:16 - [王祖蓝现场观看美加墨世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [俄军新型无人机战力如何](http://www.blog.minike.top/Article/details/09172.shtml)
-- 2026-06-29 14:04 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/1747948758.shtml)
-- 2026-06-29 14:10 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/833593935689.shtml)
-- 2026-06-29 14:15 - [韩国政府将对世界杯出局追责](http://www.blog.kurohicncr.top/Article/details/9582715.shtml)
-- 2026-06-29 14:02 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.minike.top/Article/details/1210155437.shtml)
-- 2026-06-29 13:59 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/506555443812.shtml)
-- 2026-06-29 13:57 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/914750.shtml)
-- 2026-06-29 14:22 - [男子月薪五千卖房借贷给女友转账百万](https://www.share.minike.top/Article/details/692859534.shtml)
-- 2026-06-29 14:13 - [尹恩惠自曝14年没谈过恋爱](https://www.share.minike.top/Article/details/2020408.shtml)
-- 2026-06-29 14:05 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.minike.top/Article/details/84176588361.shtml)
-- 2026-06-29 13:54 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/05100230.shtml)
-- 2026-06-29 14:15 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/487768806325.shtml)
-- 2026-06-29 13:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/28216000234.shtml)
-- 2026-06-29 14:21 - [金价银价下跌 油价上涨](https://www.share.kurohicncr.top/Article/details/7268235866.shtml)
-- 2026-06-29 14:06 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/20842497429.shtml)
+- 2026-06-29 14:03 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/38952.shtml)
+- 2026-06-29 14:12 - [T1对战KC](https://www.blog.kurohicncr.top/Article/details/9459083.shtml)
+- 2026-06-29 14:00 - [撒旦的腋窝是什么比喻](http://www.share.minike.top/Article/details/62819566.shtml)
+- 2026-06-29 14:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.blog.kurohicncr.top/Article/details/980094015.shtml)
+- 2026-06-29 14:05 - [世界杯用球成部分门将噩梦](https://www.blog.minike.top/Article/details/830950568.shtml)
+- 2026-06-29 14:23 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/96267541.shtml)
+- 2026-06-29 14:18 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/136241447947.shtml)
+- 2026-06-29 14:19 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/54360847.shtml)
+- 2026-06-29 14:02 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/42681493218.shtml)
+- 2026-06-29 14:13 - [多家银行收紧个人贵金属业务](https://www.blog.kurohicncr.top/Article/details/530910819035.shtml)
+- 2026-06-29 14:14 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/25785.shtml)
+- 2026-06-29 14:23 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/39449443963.shtml)
+- 2026-06-29 14:08 - [爸爸当家](https://www.share.minike.top/Article/details/395055715.shtml)
+- 2026-06-29 14:00 - [韩体育部长回应李在明痛批](http://www.blog.minike.top/Article/details/13733946.shtml)
+- 2026-06-29 14:14 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/6044547658.shtml)

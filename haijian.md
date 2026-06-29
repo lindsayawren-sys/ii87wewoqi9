@@ -1,60 +1,60 @@
-# 五矿证券：广道数字案余波未了，员工入股被罚、审计停牌、利润腰斩
+# 2026江西网球公开赛正赛开拍
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 五矿证券：广道数字案余波未了，员工入股被罚、审计停牌、利润腰斩 卷入广道数字造假案，审计机构中审华被“没一罚五”暂停业务半年；保荐机构五矿证券2025年净利润腰斩，营业外支出暴增26倍。更有两名投行员工因违规入股这单项目被监管罚没近300万。 而面对媒体的合规质疑，这家央企背景券商选择的回应
+中新社江西九江4月27日电 (记者 吴鹏泉)2026江西(九江)网球公开赛27日在九江开启正赛比拼。加拿大选手亚历克西·加拉尔诺(Alexis GALARNEAU)、爱沙尼亚选手马意·拉盟(Mark LAJAL)、塞尔维亚选手奥格年·米利奇(Ognjen MILIC)分别战胜对手晋级。本届赛事首次实现ATP男子职业网球挑战赛与WTA女子职业网球系列赛同步举办，吸引了20多个国家
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新社江西九江4月27日电 (记者 吴鹏泉)2026江西(九江)网球公开赛27日在九江开启正赛比拼。
 
-来源：行家券业 五矿证券：广道数字案余波未了，员工入股被罚、审计停牌、利润腰斩 卷入广道数字造假案，审计机构中审华被“没一罚五”暂停业务半年；保荐机构五矿证券2025年净利润腰斩，营业外支出暴增26倍。
+加拿大选手亚历克西·加拉尔诺(Alexis GALARNEAU)、爱沙尼亚选手马意·拉盟(Mark LAJAL)、塞尔维亚选手奥格年·米利奇(Ognjen MILIC)分别战胜对手晋级。
 
-更有两名投行员工因违规入股这单项目被监管罚没近300万。
+本届赛事首次实现ATP男子职业网球挑战赛与WTA女子职业网球系列赛同步举办，吸引了20多个国家和地区的近130名职业球员参赛。
 
-而面对媒体的合规质疑，这家央企背景券商选择的回应方式，同样耐人寻味。
+正赛首日，亚历克西·加拉尔诺对阵澳大利亚选手戴恩·斯威尼(Dane SWEENY)。
 
-没一罚五，谁在给造假放行？
+首盘斯威尼凭借稳定发挥以6比4先声夺人；次盘加拉尔诺及时调整状态，以6比3扳回一城；决胜盘双方陷入体能拉锯战，多局上演关键分鏖战，加拉尔诺顶住压力以6比4拿下决胜盘，闯入16强。
 
-北交所首家强制退市股广道数字，又牵出了中介机构。
+赛会8号种子马意·拉盟对阵从资格赛突围的日本选手阿基拉·桑提兰(Akira SANTILLAN)。
 
-5月28日，深圳证监局对中审华会计师事务所（简称：中审华）开出重磅罚单。
+整场比赛拉盟占据明显优势，首盘率先确立领先，次盘更是乘胜追击，最后成功晋级。
 
-作为广道数字2018年‑2023年的审计机构，中审华面对这家公司每年虚增营收比例动辄85%以上、最高“造假比例”达99.39%的荒唐数据，连续出具了六份“标准无保留意见”。
+奥格年·米利奇与日本选手德田廉大(Renta TOKUDA)展开对决。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-29 14:14 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 13:59 - [世界杯看台惊现一群“哈兰德”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 14:04 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 14:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
-- 2026-06-29 13:56 - [多只A股发布股价异动公告](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuichang.md)
-- 2026-06-29 14:10 - [东部机场集团新增釜山航线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beikan.md)
-- 2026-06-29 14:08 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-29 13:57 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-29 13:55 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzlov.md)
-- 2026-06-29 14:09 - [巴西前锋说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-29 13:56 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 13:58 - [拄拐少年高考663分：用行动回报社会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
-- 2026-06-29 13:54 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 14:19 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-29 14:25 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
+- 2026-06-29 14:10 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-29 14:29 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
+- 2026-06-29 14:20 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 14:01 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
+- 2026-06-29 14:06 - [唐艺昕女儿接唐艺昕回家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 14:15 - [记者率先试乘西十高铁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
+- 2026-06-29 14:02 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-29 14:03 - [比亚迪市值为何蒸发8000亿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
+- 2026-06-29 14:12 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 14:19 - [王楚钦 表演球擦网](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-29 14:01 - [印度移民在全球范围内的负面讨论增多，其背后原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/btdec.md)
+- 2026-06-29 14:14 - [葫芦岛居民楼爆炸致3失联8伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alxxe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/38333.shtml)
-- 2026-06-29 14:21 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.share.minike.top/Article/details/80374654.shtml)
-- 2026-06-29 14:09 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/83753768975.shtml)
-- 2026-06-29 14:04 - [绘画区你赢了](https://www.blog.minike.top/Article/details/23643.shtml)
-- 2026-06-29 14:16 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/873771213949.shtml)
-- 2026-06-29 14:23 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/24176.shtml)
-- 2026-06-29 14:12 - [急先锋](http://www.share.kurohicncr.top/Article/details/25127175.shtml)
-- 2026-06-29 14:20 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/150558076.shtml)
-- 2026-06-29 14:03 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/73233815362.shtml)
-- 2026-06-29 14:19 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/6498254.shtml)
-- 2026-06-29 14:16 - [一生一世](https://www.blog.minike.top/Article/details/73570344647.shtml)
-- 2026-06-29 14:19 - [马斯克也站到了光里](https://www.blog.minike.top/Article/details/770836719.shtml)
-- 2026-06-29 14:04 - [张一山回应与杨紫友情](http://www.share.kurohicncr.top/Article/details/091583909860.shtml)
-- 2026-06-29 14:13 - [俄方：欧洲人热死是因拒绝俄能源](http://www.blog.minike.top/Article/details/5822715876.shtml)
-- 2026-06-29 14:01 - [明星大侦探第一季](http://www.share.minike.top/Article/details/093254067.shtml)
+- 2026-06-29 14:04 - [啊啊啊](https://www.blog.minike.top/Article/details/7412334.shtml)
+- 2026-06-29 14:02 - [一生一世](https://www.blog.kurohicncr.top/Article/details/0882491.shtml)
+- 2026-06-29 14:02 - [戴军否认1993年月入过万](https://www.blog.minike.top/Article/details/39261917.shtml)
+- 2026-06-29 14:10 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/11482.shtml)
+- 2026-06-29 14:20 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/747119.shtml)
+- 2026-06-29 14:09 - [外网预言中国举办世界杯时间](https://www.share.minike.top/Article/details/42188.shtml)
+- 2026-06-29 14:16 - [原来大雷哥给杨紫准备了三件祖海高定](https://www.blog.minike.top/Article/details/874036.shtml)
+- 2026-06-29 14:23 - [永远保持对人民的赤子之心](http://www.blog.minike.top/Article/details/22257.shtml)
+- 2026-06-29 14:00 - [扬名立万](http://www.blog.minike.top/Article/details/23532423403.shtml)
+- 2026-06-29 14:29 - [德国队前往比赛场地遭遇囧途](https://www.blog.minike.top/Article/details/552623629.shtml)
+- 2026-06-29 14:16 - [链博会上的机器人太全能了](http://www.share.minike.top/Article/details/4135121.shtml)
+- 2026-06-29 14:17 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.kurohicncr.top/Article/details/212973900.shtml)
+- 2026-06-29 14:11 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/591985.shtml)
+- 2026-06-29 14:19 - [韩体育部长回应李在明痛批](http://www.share.minike.top/Article/details/684165.shtml)
+- 2026-06-29 14:25 - [杨紫 你幸福的话我会比你先流泪](http://www.blog.kurohicncr.top/Article/details/3269584535.shtml)

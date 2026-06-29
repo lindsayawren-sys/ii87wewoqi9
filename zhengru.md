@@ -1,58 +1,56 @@
-# 陈存友入主一年后，超达装备把机器人推到台前：南通汽车模具公司寻找第二增长曲线 | 长三角资本局
+# 英国4月零售销售量创40余年最大跌幅
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-文|新浪财经上海站 十里 5月29日，一场在上海举行的投资者交流会，把超达装备这家南通汽车模具公司重新推到聚光灯下。 交流会上，超达装备董事长陈存友将智能机器人业务放在了更靠前的位置。他表示，公司争取将智能机器人打造为“第二增长曲线”。这句话背后，是一家传统汽车模具企业在新实控人入主后，对资本市场讲出的新故事：原本服务于汽车内外饰模具、检具和自动化工装的制造公司，开始试图借助机
+中新网伦敦4月28日电 (欧阳开宇 卢映荷)英国工业联合会(CBI)28日发布调查显示，受中东局势推升通胀担忧影响，英国4月零售销售量同比跌幅创1983年有记录以来最大，行业前景进一步黯淡。 数据显示，CBI月度零售销售量指数从3月的-52骤降至4月的-68，为该系列1983年启动以来最低水平。其中77%零售商报告销售额同比下滑，仅9%实现增长，消费者信心疲软成为主要拖累。 从
 
 ## 正文
 
-文|新浪财经上海站 十里 5月29日，一场在上海举行的投资者交流会，把超达装备这家南通汽车模具公司重新推到聚光灯下。
+中新网伦敦4月28日电 (欧阳开宇 卢映荷)英国工业联合会(CBI)28日发布调查显示，受中东局势推升通胀担忧影响，英国4月零售销售量同比跌幅创1983年有记录以来最大，行业前景进一步黯淡。
 
-交流会上，超达装备董事长陈存友将智能机器人业务放在了更靠前的位置。
+数据显示，CBI月度零售销售量指数从3月的-52骤降至4月的-68，为该系列1983年启动以来最低水平。
 
-他表示，公司争取将智能机器人打造为“第二增长曲线”。
+其中77%零售商报告销售额同比下滑，仅9%实现增长，消费者信心疲软成为主要拖累。
 
-这句话背后，是一家传统汽车模具企业在新实控人入主后，对资本市场讲出的新故事：原本服务于汽车内外饰模具、检具和自动化工装的制造公司，开始试图借助机器人业务完成估值重估。
+从季节性表现看，4月零售销售远逊于常年水平，指数为-32，较3月的-23进一步走弱，为2025年6月以来最差。
 
-超达装备的主业并不复杂。
+展望5月，零售商预期更为悲观，销售预期指数从-49降至-60，为2021年3月新冠疫情以来最低。
 
-公司长期深耕汽车内外饰模具、汽车检具、自动化工装设备等领域，客户主要来自汽车产业链。
+CBI首席经济学家马丁·萨托里乌斯指出，中东局势的经济影响逐步显现，企业期待政府通过降低经营成本缓解生活压力，呼吁暂缓新增雇员权利立法以避免增加雇主负担，并推动房产税下调与电费减免。
 
-2025年，公司实现营业收入7.92亿元，同比增长9.94%；归母净利润1.32亿元，同比增长37.14%；扣非净利润1.28亿元，同比增长36.68%。
+本次调查覆盖3月26日至4月14日61家零售连锁企业。
 
-从年报看，传统业务仍能贡献利润，但进入2026年一季度后，公司出现了收入增长、利润下滑的情况。
+数据显示，线上零售销售同比降幅扩大至-51，为2024年1月以来最快；批发销售同比下滑至-32，整体分销销售同比收缩至-39，行业普遍承压。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-29 14:05 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
-- 2026-06-29 13:59 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-29 14:22 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 13:59 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-29 14:15 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-29 14:06 - [韩媒破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
-- 2026-06-29 14:20 - [加拿大92分钟绝杀成世界杯首个16强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 14:05 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-29 14:00 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-29 14:22 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-29 13:59 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 14:16 - [绘画区你赢了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-29 14:26 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 14:03 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 14:16 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-29 14:28 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-29 14:26 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 14:25 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
+- 2026-06-29 14:17 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
+- 2026-06-29 14:02 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-29 14:04 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:13 - [宜宾5.5级地震 成都震感明显](http://www.share.minike.top/Article/details/41786.shtml)
-- 2026-06-29 14:18 - [海军舰艇编队将赴香港](https://www.blog.kurohicncr.top/Article/details/896962426.shtml)
-- 2026-06-29 14:11 - [A股限售股解禁一览](https://www.share.minike.top/Article/details/1821728.shtml)
-- 2026-06-29 14:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/094968271550.shtml)
-- 2026-06-29 14:19 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.minike.top/Article/details/546716966.shtml)
-- 2026-06-29 13:54 - [巴西国脚说不出日本球员全场哄笑](http://www.blog.kurohicncr.top/Article/details/2928523474.shtml)
-- 2026-06-29 14:05 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/304393537.shtml)
-- 2026-06-29 14:09 - [江语晨 好恨江语晨前夫](http://www.blog.kurohicncr.top/Article/details/34896896.shtml)
-- 2026-06-29 14:21 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/3568912.shtml)
-- 2026-06-29 14:01 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/69549.shtml)
-- 2026-06-29 13:56 - [王楚钦 表演球擦网](http://www.share.kurohicncr.top/Article/details/4059240209.shtml)
-- 2026-06-29 14:23 - [剧宣天才虞书欣发力了](http://www.blog.kurohicncr.top/Article/details/75000848.shtml)
-- 2026-06-29 13:59 - [亚洲成世界杯最大失意者联盟](http://www.blog.minike.top/Article/details/309167100231.shtml)
-- 2026-06-29 14:11 - [2021江苏卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/27574.shtml)
-- 2026-06-29 14:14 - [普京：俄罗斯面临命运攸关时刻](https://www.share.kurohicncr.top/Article/details/16628479.shtml)
+- 2026-06-29 14:15 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://www.blog.minike.top/Article/details/641071566911.shtml)
+- 2026-06-29 14:24 - [明星大侦探第四季](http://www.share.minike.top/Article/details/2372724.shtml)
+- 2026-06-29 14:29 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/909488542.shtml)
+- 2026-06-29 14:03 - [张真源解读相思锁](http://www.share.kurohicncr.top/Article/details/4880117286.shtml)
+- 2026-06-29 14:19 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/57316402.shtml)
+- 2026-06-29 14:10 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/7824108280.shtml)
+- 2026-06-29 14:06 - [媒体：高考后消费应量力而行适度有度](http://www.blog.kurohicncr.top/Article/details/09563886776.shtml)
+- 2026-06-29 14:19 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/16851.shtml)
+- 2026-06-29 14:12 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/409636379.shtml)
+- 2026-06-29 14:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.kurohicncr.top/Article/details/9157387156.shtml)
+- 2026-06-29 14:02 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/45189.shtml)
+- 2026-06-29 14:05 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/94755.shtml)
+- 2026-06-29 14:26 - [2025年人口增长10强城市出炉](https://www.blog.minike.top/Article/details/89716704.shtml)
+- 2026-06-29 14:21 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.kurohicncr.top/Article/details/49625.shtml)
+- 2026-06-29 14:07 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/4103862.shtml)

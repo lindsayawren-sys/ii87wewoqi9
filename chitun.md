@@ -1,57 +1,43 @@
-# A股超3700只个股上涨，AI应用端爆发
+# 跟着国学悟投资 | 踏青播种 修心正当时
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：国际金融报 6月1日，A股三大指数集体下跌。截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。 盘面上，全市场超3700只个股上涨，其中170只个股涨停。 板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、
+责任编辑：郭栩彤
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-来源：国际金融报 6月1日，A股三大指数集体下跌。
-
-截至收盘，上证指数跌0.27%，深证成指跌1.51%，创业板指跌2.15%，北证50涨0.45%，科创50指数跌5%。
-
-盘面上，全市场超3700只个股上涨，其中170只个股涨停。
-
-板块上，AI应用端爆发，天地在线3连板，掌阅科技4天2板，视觉中国、税友股份、久其软件涨停。
-
-AI PC概念表现活跃，春秋电子2连板，胜利精密、英力股份、雷神科技涨停。
-
-消息面上，6月1日，在GTC Taipei2026大会上，全球AI芯片巨头英伟达正式宣布进军个人电脑处理器市场，发力电脑通用计算芯片市场。
-
-英伟达CEO黄仁勋还重点介绍了Vera Rubin架构、DRIVE Hyperion自动驾驶出租车平台等多个新品。
+责任编辑：郭栩彤
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
-- 2026-06-29 14:09 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-29 13:56 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvqwm.md)
-- 2026-06-29 13:57 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
-- 2026-06-29 14:12 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ckpph.md)
-- 2026-06-29 14:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-29 14:05 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
-- 2026-06-29 13:56 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
-- 2026-06-29 14:22 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
-- 2026-06-29 13:58 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-29 14:03 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 14:16 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suibu.md)
+- 2026-06-29 14:23 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 14:06 - [A股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-29 14:25 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 14:05 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-29 14:20 - [韩国队出局是因为内讧吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-29 14:29 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzdsb.md)
+- 2026-06-29 14:15 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-29 14:24 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-29 14:02 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rhfth.md)
+- 2026-06-29 14:15 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:21 - [巴西德国15次闯进世界杯淘汰赛](https://www.share.kurohicncr.top/Article/details/811809262399.shtml)
-- 2026-06-29 13:57 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/27471.shtml)
-- 2026-06-29 14:15 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/06013813.shtml)
-- 2026-06-29 14:23 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.share.kurohicncr.top/Article/details/6800354746.shtml)
-- 2026-06-29 14:22 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](https://www.blog.minike.top/Article/details/603880.shtml)
-- 2026-06-29 14:08 - [韩国政府将对世界杯出局追责](https://www.share.minike.top/Article/details/7572075.shtml)
-- 2026-06-29 14:22 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/671550911.shtml)
-- 2026-06-29 13:56 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/793131571.shtml)
-- 2026-06-29 14:21 - [网约车司机转账15000元后被乘客拉黑](https://www.blog.kurohicncr.top/Article/details/26854.shtml)
-- 2026-06-29 14:19 - [2021湖南卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/2461422230.shtml)
-- 2026-06-29 14:14 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://www.blog.minike.top/Article/details/6880337796.shtml)
-- 2026-06-29 14:15 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/403575286.shtml)
-- 2026-06-29 14:02 - [以前不让妆女二可以艳压女主](https://www.share.minike.top/Article/details/9338886365.shtml)
-- 2026-06-29 14:11 - [克洛普：加拿大主帅还能继续创造历史](https://www.share.minike.top/Article/details/161166728297.shtml)
-- 2026-06-29 14:08 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/4378712.shtml)
+- 2026-06-29 14:13 - [中国邮政上海分公司总经理李柏平被查](https://www.blog.kurohicncr.top/Article/details/718594435166.shtml)
+- 2026-06-29 14:18 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/84638272772.shtml)
+- 2026-06-29 14:12 - [我和我的家乡](http://www.share.minike.top/Article/details/71160463828.shtml)
+- 2026-06-29 14:22 - [林昀儒止步美国大满贯首轮](http://www.blog.minike.top/Article/details/0600424.shtml)
+- 2026-06-29 14:09 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/733663100901.shtml)
+- 2026-06-29 14:26 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/987361.shtml)
+- 2026-06-29 14:00 - [叶一茜森碟一起回北京了](http://www.share.kurohicncr.top/Article/details/241155354.shtml)
+- 2026-06-29 14:11 - [对最近的回应与澄清](https://www.blog.kurohicncr.top/Article/details/5992365663.shtml)
+- 2026-06-29 14:18 - [周杰伦演唱会真的好多人啊](https://www.share.kurohicncr.top/Article/details/564218983.shtml)
+- 2026-06-29 14:17 - [王楚钦3比0周启豪](http://www.share.kurohicncr.top/Article/details/9274034.shtml)
+- 2026-06-29 14:01 - [TLAW vs DCG MSI](http://www.share.minike.top/Article/details/355405068715.shtml)
+- 2026-06-29 14:16 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/48815199.shtml)
+- 2026-06-29 14:26 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.minike.top/Article/details/21568.shtml)
+- 2026-06-29 14:04 - [法拉利被4个孩子当滑梯玩](https://www.blog.kurohicncr.top/Article/details/081715.shtml)
+- 2026-06-29 14:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.kurohicncr.top/Article/details/060794.shtml)

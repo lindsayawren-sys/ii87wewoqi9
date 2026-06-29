@@ -1,59 +1,55 @@
-# “酱香险企”华贵人寿“将帅”齐调整
+# 摩根大通称投资者可利用股市疲软机会增加配置
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-来源：北京商报 “酱香险企”再次迎来人事变动。6月2日，北京商报记者注意到，华贵人寿保险股份有限公司（以下简称“华贵人寿”）近期公告，罗振华因年龄原因辞去公司总经理职务。而在近期，华贵人寿董事长刘刚也因组织人事调动辞去董事及董事长职务，由副董事长杨丽代行董事长职责。 近一个月来，华贵人寿董事长、总经理已经先后离任。这家备受市场关注的“茅台系”险企正式进入了“将帅”齐换的人事换挡
+摩根大通策略师表示，投资者可利用股市走弱之时增加股票配置，尽管地缘政治风险消息频出，但军事、政治和经济方面的制约因素意味着局势不太可能长期升级。 Mislav Matejka等策略师表示，即便经历了V形反弹，他们仍对全球股市持建设性看法，理由包括企业盈利动能依然具有韧性，以及流动性和利率环境可能出现改善。 与去年由少数几家超大型公司推动的狭窄上涨行情不同，今年的市场领头羊股票可
 
 ## 正文
 
-来源：北京商报 “酱香险企”再次迎来人事变动。
+摩根大通策略师表示，投资者可利用股市走弱之时增加股票配置，尽管地缘政治风险消息频出，但军事、政治和经济方面的制约因素意味着局势不太可能长期升级。
 
-6月2日，北京商报记者注意到，华贵人寿保险股份有限公司（以下简称“华贵人寿”）近期公告，罗振华因年龄原因辞去公司总经理职务。
+Mislav Matejka等策略师表示，即便经历了V形反弹，他们仍对全球股市持建设性看法，理由包括企业盈利动能依然具有韧性，以及流动性和利率环境可能出现改善。
 
-而在近期，华贵人寿董事长刘刚也因组织人事调动辞去董事及董事长职务，由副董事长杨丽代行董事长职责。
+与去年由少数几家超大型公司推动的狭窄上涨行情不同，今年的市场领头羊股票可能会更加多元。
 
-近一个月来，华贵人寿董事长、总经理已经先后离任。
+近期大幅下跌后尽管策略师对“人工智能风险股”持谨慎态度，但认为这些股票短期内可能出现战术性反弹，不过最终会在12-18个月利用反弹机会卖出。
 
-这家备受市场关注的“茅台系”险企正式进入了“将帅”齐换的人事换挡期。
+从区域层面来看，他们预计随着美元指数和收益率走低以及市场参与度扩大，国际股市将恢复优异表现。
 
-“帅将”一个月内先后离任 华贵人寿近日公告，罗振华因年龄原因辞去公司总经理职务，经董事会决议，自2026年5月15日起不再聘任罗振华为公司总经理。
+仍高配新兴市场而非发达市场，并且对矿业板块保持乐观。
 
-从罗振华的履历来看，其出生于1965年，今年已经61周岁。
-
-罗振华于2020年10月起出任华贵人寿总经理，兼任该公司党委副书记。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 14:04 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
-- 2026-06-29 14:02 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
-- 2026-06-29 14:01 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-29 14:11 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 14:09 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fojdv.md)
-- 2026-06-29 13:56 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppalk.md)
-- 2026-06-29 14:10 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iyqon.md)
-- 2026-06-29 14:20 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 13:55 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-29 14:04 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liandi.md)
-- 2026-06-29 13:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
-- 2026-06-29 14:15 - [王楚钦周启豪爆分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanpai.md)
+- 2026-06-29 14:20 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
+- 2026-06-29 14:07 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 14:11 - [如果你一直单身，你准备怎么养老？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 14:17 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-29 14:05 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tezan.md)
+- 2026-06-29 14:02 - [剧宣天才虞书欣发力了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-29 14:15 - [张一山回应与杨紫友情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
+- 2026-06-29 14:29 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 14:25 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 14:20 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 14:07 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:01 - [TOP 无畏契约](http://www.blog.kurohicncr.top/Article/details/504196101.shtml)
-- 2026-06-29 14:19 - [千与千寻](https://www.share.minike.top/Article/details/42906916503.shtml)
-- 2026-06-29 13:56 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/54143092645.shtml)
-- 2026-06-29 14:07 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/420582208747.shtml)
-- 2026-06-29 14:17 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/9565293.shtml)
-- 2026-06-29 14:22 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/00872314921.shtml)
-- 2026-06-29 14:05 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/08544093548.shtml)
-- 2026-06-29 14:16 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/74746.shtml)
-- 2026-06-29 14:12 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/17141.shtml)
-- 2026-06-29 14:17 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.share.kurohicncr.top/Article/details/05798.shtml)
-- 2026-06-29 14:18 - [中方回应对日本相关出口管制措施](https://www.share.minike.top/Article/details/54755420.shtml)
-- 2026-06-29 14:02 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/20672598.shtml)
-- 2026-06-29 14:10 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/7781115864.shtml)
-- 2026-06-29 14:17 - [papi酱回应毕业4年零收入](https://www.share.minike.top/Article/details/09854.shtml)
-- 2026-06-29 14:16 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/24690052.shtml)
+- 2026-06-29 14:09 - [市民骑哈啰单车79分钟付30元](http://www.share.minike.top/Article/details/894231914046.shtml)
+- 2026-06-29 14:23 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/84942063705.shtml)
+- 2026-06-29 14:10 - [利率一再降 “存款搬家”搬去哪](https://www.share.kurohicncr.top/Article/details/574777058.shtml)
+- 2026-06-29 14:00 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/6999830.shtml)
+- 2026-06-29 14:27 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/47218946.shtml)
+- 2026-06-29 14:14 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/470829.shtml)
+- 2026-06-29 14:00 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/572054648617.shtml)
+- 2026-06-29 14:20 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.minike.top/Article/details/522326232195.shtml)
+- 2026-06-29 14:24 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/163478092442.shtml)
+- 2026-06-29 14:26 - [3D打印不是工业革命，它是……](http://www.blog.minike.top/Article/details/448479.shtml)
+- 2026-06-29 14:17 - [布里奇斯被交易至太阳](https://www.share.kurohicncr.top/Article/details/90961542.shtml)
+- 2026-06-29 14:27 - [未来5年全国能源体系将呈现这些特征](http://www.share.minike.top/Article/details/404367005543.shtml)
+- 2026-06-29 14:24 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/619471513642.shtml)
+- 2026-06-29 14:00 - [张一山回应与杨紫友情](http://www.blog.minike.top/Article/details/3614975.shtml)
+- 2026-06-29 14:29 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/98354430.shtml)

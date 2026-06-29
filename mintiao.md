@@ -1,57 +1,57 @@
-# 2026中国环塔国际拉力赛收车 外籍车手：希望更多人来中国参赛
+# 澳大利亚外长黄英贤将访华 中方介绍此访背景和期待
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。多位选手表示这是20年来难度最高的一届环塔。赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也
+中新网北京4月27日电 (记者 张素)4月27日，中国外交部发言人宣布：应中共中央政治局委员、外交部长王毅邀请，澳大利亚外长黄英贤将于4月28日至30日访华。 当日例行记者会上，中国外交部发言人林剑在应询时介绍此访背景和中方期待。 林剑：在两国领导人战略引领下，中澳全面战略伙伴关系保持向好发展势头。黄英贤外长访华期间，王毅外长将同她共同主持第八轮中澳外交与战略对话，就中澳关系及
 
 ## 正文
 
-发布时间：2026年06月02日 13:45 来源：中国新闻网 6月1日，2026中国环塔国际拉力赛在新疆阿克苏市闭幕。
+中新网北京4月27日电 (记者 张素)4月27日，中国外交部发言人宣布：应中共中央政治局委员、外交部长王毅邀请，澳大利亚外长黄英贤将于4月28日至30日访华。
 
-本届赛事历时17天，总赛程约7500公里，吸引了中国、俄罗斯、西班牙、墨西哥等多个国家和地区的车手参赛。
+当日例行记者会上，中国外交部发言人林剑在应询时介绍此访背景和中方期待。
 
-多位选手表示这是20年来难度最高的一届环塔。
+林剑：在两国领导人战略引领下，中澳全面战略伙伴关系保持向好发展势头。
 
-赛事跨越多样地貌，13个赛段单日里程可达七八百公里，松软沙漠、坑洼赛道对车手体能与赛车性能都提出极高要求，车队也需要全天候待命修整车辆。
+黄英贤外长访华期间，王毅外长将同她共同主持第八轮中澳外交与战略对话，就中澳关系及双方共同关心的国际、地区问题深入交换意见。
 
-海内外车手均表示，环塔不仅是突破自我极限的赛场，更是连接各国友谊的桥梁，在这里既领略了新疆风光与中国文化，也收获了真挚情谊，不少车手已经定下明年参赛的目标，期待再赴极限之约。
+中方期待通过此访推进落实两国领导人达成的重要共识，增进政治互信，深化互利合作，推动中澳关系稳定、健康、可持续发展，更好造福两国人民。
 
-(贾志鹏 新疆报道） 责任编辑：【罗攀】
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [金价银价下跌 油价上涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
-- 2026-06-29 14:02 - [尽量少用玻璃吸管](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
-- 2026-06-29 14:00 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-29 14:21 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
-- 2026-06-29 14:13 - [链博会上的机器人太全能了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 14:07 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 14:18 - [马斯克也站到了光里](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
-- 2026-06-29 14:04 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-29 13:58 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-29 14:02 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 13:55 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
-- 2026-06-29 14:06 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
-- 2026-06-29 14:15 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
-- 2026-06-29 14:05 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-29 14:14 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
+- 2026-06-29 14:24 - [急先锋](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
+- 2026-06-29 14:01 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-29 14:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-29 14:15 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 14:10 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanggang.md)
+- 2026-06-29 14:11 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanlia.md)
+- 2026-06-29 14:02 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 14:28 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suanzha.md)
+- 2026-06-29 14:27 - [民进党为什么拼命抹黑统战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ebuxd.md)
+- 2026-06-29 14:16 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 14:24 - [未来5年全国能源体系将呈现这些特征](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-29 14:15 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 14:23 - [宜宾发生5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingshuan.md)
+- 2026-06-29 14:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 14:09 - [女子遭家暴逃跑致丈夫身亡二审判决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:59 - [央视曝光高价回收老物件骗局](http://www.share.minike.top/Article/details/88639.shtml)
-- 2026-06-29 14:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.share.kurohicncr.top/Article/details/772579.shtml)
-- 2026-06-29 14:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/788332817.shtml)
-- 2026-06-29 14:19 - [刘仲华院士愿当贺永辉导师](https://www.blog.kurohicncr.top/Article/details/8783629.shtml)
-- 2026-06-29 14:11 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/6675141.shtml)
-- 2026-06-29 14:14 - [A股](http://www.blog.kurohicncr.top/Article/details/813400039793.shtml)
-- 2026-06-29 14:12 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/283288909164.shtml)
-- 2026-06-29 14:00 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/85552.shtml)
-- 2026-06-29 13:56 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/900515928.shtml)
-- 2026-06-29 14:16 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.kurohicncr.top/Article/details/014889054.shtml)
-- 2026-06-29 14:00 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/90318.shtml)
-- 2026-06-29 14:08 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/523810744019.shtml)
-- 2026-06-29 14:11 - [哈基米歌王争霸赛](https://www.share.minike.top/Article/details/824890.shtml)
-- 2026-06-29 13:56 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/6649454.shtml)
-- 2026-06-29 14:13 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/32509076.shtml)
+- 2026-06-29 14:25 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/8603279789.shtml)
+- 2026-06-29 14:13 - [TLAW vs DCG MSI](http://www.blog.kurohicncr.top/Article/details/40815884.shtml)
+- 2026-06-29 14:01 - [T1零封KC MSI](https://www.share.minike.top/Article/details/5158312.shtml)
+- 2026-06-29 14:06 - [下飞机后，我做了个很蠢的决定......](http://www.blog.minike.top/Article/details/449969.shtml)
+- 2026-06-29 14:08 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/5808650301.shtml)
+- 2026-06-29 14:02 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/091390.shtml)
+- 2026-06-29 14:15 - [曾沛慈夺冠后人气](http://www.blog.kurohicncr.top/Article/details/145595978.shtml)
+- 2026-06-29 14:17 - [高考公平需要延伸到志愿填报这一环](https://www.blog.kurohicncr.top/Article/details/149376.shtml)
+- 2026-06-29 14:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/92609246.shtml)
+- 2026-06-29 14:02 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/110746311.shtml)
+- 2026-06-29 14:12 - [两个教官【皮影人行动4.0】](http://www.share.minike.top/Article/details/533485.shtml)
+- 2026-06-29 14:18 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/259577153070.shtml)
+- 2026-06-29 14:05 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/6274080108.shtml)
+- 2026-06-29 14:23 - [俄军新型无人机战力如何](https://www.share.kurohicncr.top/Article/details/01560.shtml)
+- 2026-06-29 14:05 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.minike.top/Article/details/672545861066.shtml)

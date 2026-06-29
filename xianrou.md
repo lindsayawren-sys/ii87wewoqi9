@@ -1,58 +1,59 @@
-# 江、浙两省农商行“一哥”股权结构将调整 均已筹备IPO多年
+# 日本数千民众举行集会 抗议高市政府强推修宪扩军
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-每经记者|李玉雯 近日，江苏、浙江两省资产规模最大的农商行将迎股权结构调整。其中，江南农商行1.91亿股股权被常州当地国资企业江苏武进经济发展集团有限公司（以下简称武进经发集团）以4.42亿元竞买而得，后者将成为该行第九大股东。 杭州联合农村商业银行（以下简称杭州联合银行）第六大股东浙江东方控股集团拟斥资9.29亿元，向其控股股东浙江省国际贸易集团收购杭州联合银行4%股份。此次
+中新网4月27日电 据日本《赤旗报》及俄罗斯卫星网报道，当地时间26日，数千名日本民众在大阪市中心举行集会，对高市早苗政府解禁武器出口、推动修改和平宪法等扩军危险动向表示坚决反对和抗议。 据报道，本次抗议集会共有2500人参加，人们高呼“反对战争”“维护宪法”“高市下台”“武器不能创造和平”等，对高市政府强推修宪扩军表示强烈抗议。 报道称，日本共产党委员长田村智子和日本社会民主
 
 ## 正文
 
-每经记者|李玉雯 近日，江苏、浙江两省资产规模最大的农商行将迎股权结构调整。
+中新网4月27日电 据日本《赤旗报》及俄罗斯卫星网报道，当地时间26日，数千名日本民众在大阪市中心举行集会，对高市早苗政府解禁武器出口、推动修改和平宪法等扩军危险动向表示坚决反对和抗议。
 
-其中，江南农商行1.91亿股股权被常州当地国资企业江苏武进经济发展集团有限公司（以下简称武进经发集团）以4.42亿元竞买而得，后者将成为该行第九大股东。
+据报道，本次抗议集会共有2500人参加，人们高呼“反对战争”“维护宪法”“高市下台”“武器不能创造和平”等，对高市政府强推修宪扩军表示强烈抗议。
 
-杭州联合农村商业银行（以下简称杭州联合银行）第六大股东浙江东方控股集团拟斥资9.29亿元，向其控股股东浙江省国际贸易集团收购杭州联合银行4%股份。
+报道称，日本共产党委员长田村智子和日本社会民主党党首福岛瑞穗也参与集会。
 
-此次交易完成后，浙江东方持股比例将由3.94%提升至7.94%，跻身杭州联合银行第三大股东席位。
+田村智子批评日本首相高市早苗以“威慑力”为名，在日本全国范围内强行部署远程导弹的做法。
 
-《每日经济新闻》记者注意到，杭州联合银行和江南农商行均已筹备IPO（首次公开募股）多年。
+福岛瑞穗表示将捍卫宪法第九条。
 
-据常州产权交易所网站披露，11笔江南农商行股权转让的交易在近日完成，受让方均为武进经发集团。
+田村智子指出，“日方不敢要求美国政府停止肆意发动战争，反而以强化军事同盟为由推进导弹部署，没有比这更危险的事。
 
-这11笔股权中最大的一笔约1.905亿股，另有9笔10万股和1笔4.6万股，11笔股权合计约1.91亿股，成交价合计约4.42亿元，折合每股2.31元。
+”她强调，“美国政府正遭到国际社会孤立，一味盲从追随，日本终将一同被世界孤立。
 
-据武进经发集团官网介绍，其成立于2007年7月，是常州市武进区人民政府出资设立的国有独资企业。
+” 田村智子表示反对修改宪法第九条，并批评称“高市政府正在践踏民众反对战争的愿望”，“为此，我们必须携手改变当下的政治格局”。
 
 ## 相关推荐
 
-- 2026-06-29 14:18 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kcoyo.md)
-- 2026-06-29 14:20 - [发反科学内容为何会有200万粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 13:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 14:09 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
-- 2026-06-29 14:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkqix.md)
-- 2026-06-29 14:06 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 14:03 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
-- 2026-06-29 14:02 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/skgsf.md)
-- 2026-06-29 14:07 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cegbu.md)
-- 2026-06-29 14:07 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
-- 2026-06-29 14:05 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
-- 2026-06-29 13:57 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-29 14:22 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-29 14:07 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dacxi.md)
+- 2026-06-29 14:29 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jempv.md)
+- 2026-06-29 14:11 - [马斯克也站到了光里](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 14:08 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
+- 2026-06-29 14:18 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 14:15 - [世界杯超牛补水广告出现了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbevz.md)
+- 2026-06-29 14:04 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
+- 2026-06-29 14:25 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 14:05 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
+- 2026-06-29 14:27 - [女孩遭霸凌网上认文身大哥求庇护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 14:16 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
+- 2026-06-29 14:04 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaikun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/38846.shtml)
-- 2026-06-29 14:21 - [女子遭家暴两次起诉离婚均被驳回](https://www.blog.kurohicncr.top/Article/details/075489.shtml)
-- 2026-06-29 14:17 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/9757168615.shtml)
-- 2026-06-29 14:17 - [在自己家不穿衣服犯法吗](http://www.blog.kurohicncr.top/Article/details/90359461121.shtml)
-- 2026-06-29 14:00 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/27093183.shtml)
-- 2026-06-29 14:07 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/8235732384.shtml)
-- 2026-06-29 14:14 - [流金岁月](https://www.share.kurohicncr.top/Article/details/406539.shtml)
-- 2026-06-29 14:20 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/749494249.shtml)
-- 2026-06-29 14:20 - [多家银行收紧个人贵金属业务](http://www.share.kurohicncr.top/Article/details/41837.shtml)
-- 2026-06-29 14:14 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.share.kurohicncr.top/Article/details/08306.shtml)
-- 2026-06-29 14:16 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/80298956181.shtml)
-- 2026-06-29 14:23 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.kurohicncr.top/Article/details/91555059665.shtml)
-- 2026-06-29 14:12 - [中国邮政上海分公司总经理李柏平被查](http://www.share.minike.top/Article/details/31108.shtml)
-- 2026-06-29 14:17 - [在委侨团负责人：家乡的帮助很及时](http://www.blog.kurohicncr.top/Article/details/2487068405.shtml)
-- 2026-06-29 14:15 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.kurohicncr.top/Article/details/969175501.shtml)
+- 2026-06-29 14:29 - [新一代影后杨紫](http://www.blog.minike.top/Article/details/307731112352.shtml)
+- 2026-06-29 14:20 - [德国连续三天刷新本国最高气温纪录](https://www.share.kurohicncr.top/Article/details/97575476.shtml)
+- 2026-06-29 14:07 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/6218776.shtml)
+- 2026-06-29 14:10 - [河南考699分女生已接到清华大学电话](http://www.share.kurohicncr.top/Article/details/6983343243.shtml)
+- 2026-06-29 14:18 - [毒液2](https://www.blog.kurohicncr.top/Article/details/092502870943.shtml)
+- 2026-06-29 14:14 - [中国战机大片上新](http://www.share.kurohicncr.top/Article/details/94177212658.shtml)
+- 2026-06-29 14:09 - [比亚迪市值为何蒸发8000亿](http://www.blog.kurohicncr.top/Article/details/34306263836.shtml)
+- 2026-06-29 14:12 - [为什么香港的冲厕水是咸的？](http://www.share.kurohicncr.top/Article/details/78207377.shtml)
+- 2026-06-29 14:06 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.minike.top/Article/details/9905744.shtml)
+- 2026-06-29 14:12 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.blog.kurohicncr.top/Article/details/943548210.shtml)
+- 2026-06-29 14:13 - [下飞机后，我做了个很蠢的决定......](https://www.share.kurohicncr.top/Article/details/735829.shtml)
+- 2026-06-29 14:11 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/6041868.shtml)
+- 2026-06-29 14:10 - [王楚钦欢迎晚宴上打台球](http://www.blog.minike.top/Article/details/377726540.shtml)
+- 2026-06-29 14:10 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/688999107830.shtml)
+- 2026-06-29 14:22 - [吴海燕兰西雅漫步复兴岛](https://www.share.minike.top/Article/details/21114.shtml)

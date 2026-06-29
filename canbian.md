@@ -1,58 +1,58 @@
-# ATFX汇市前瞻:非农来袭叠加褐皮书 黄金美元迎大波动
+# 特朗普谈枪击事件：“我们活在一个疯狂的世界”
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 6月1日，5月非农就业报告与ADP数据 ▲ATFX图 本周五20点30分，美国公布五月非农就业报告，其中新增非农就业人口数据最受关注。市场预期值8.5万人，低于前值11.5万人，预期偏悲观。目前驱动美国就业市场变化的核心因素是AI岗位替代和特朗普的移民政策，这两项因素在五月份都没有出现明显变化。我们预期，数据公布值不会偏离11.5万人的前值过大。 本
+上周六，白宫记者协会晚宴场外出现疑似枪手。美国总统特朗普表示，不知道自己是否是枪手的直接目标。事发时，他和多位政府官员均在晚宴现场。当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？”“我不知道，”特朗普回答道。特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。官员们称，这些文字显示，嫌疑枪手的目
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 6月1日，5月非农就业报告与ADP数据 ▲ATFX图 本周五20点30分，美国公布五月非农就业报告，其中新增非农就业人口数据最受关注。
+上周六，白宫记者协会晚宴场外出现疑似枪手。
 
-市场预期值8.5万人，低于前值11.5万人，预期偏悲观。
+美国总统特朗普表示，不知道自己是否是枪手的直接目标。
 
-目前驱动美国就业市场变化的核心因素是AI岗位替代和特朗普的移民政策，这两项因素在五月份都没有出现明显变化。
+事发时，他和多位政府官员均在晚宴现场。
 
-我们预期，数据公布值不会偏离11.5万人的前值过大。
+当地时间周日，哥伦比亚广播公司（CBS）主持人在采访中问道：“总统先生，您知道自己是否是枪手的目标吗？
 
-本周三20点15分，美国将公布小非农ADP数据。
+”“我不知道，”特朗普回答道。
 
-市场预期值11万人，略高于前值10.9万人。
+特朗普表示，他已经审阅了执法部门发现的与上周六宴会厅外开枪嫌疑人有关的文字材料。
 
-小非农预期变化不大，意味着周五的非农出现超预期数据的概率较低，黄金和美元的波动可能相对温和。
+官员们称，这些文字显示，嫌疑枪手的目标是特朗普政府官员，还写道面对本届政府的所作所为，他再也无法袖手旁观。
 
-美联储褐皮书 ▲ATFX图 本周四凌晨两点，美联储将公布年内第四份褐皮书。
+被问及上周六当时有多担心会出现伤亡，特朗普停顿了一下。
 
 ## 相关推荐
 
-- 2026-06-29 14:23 - [为什么6月以来北方频繁降雨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oowpo.md)
-- 2026-06-29 14:03 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-29 14:15 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 14:15 - [委内瑞拉地震死亡人数升至1450人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
-- 2026-06-29 14:11 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sercn.md)
-- 2026-06-29 13:57 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-29 14:11 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiongxian.md)
-- 2026-06-29 14:11 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 14:23 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-29 14:10 - [欧洲超1300例超额死亡与高温有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-29 14:18 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tiku.md)
-- 2026-06-29 14:02 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
+- 2026-06-29 14:27 - [Agent带来token消耗爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 14:10 - [欧委会总部只给高层开空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-29 14:14 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-29 14:06 - [三系杂交稻到底有多牛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chuzhe.md)
+- 2026-06-29 14:29 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
+- 2026-06-29 14:09 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 14:13 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaisui.md)
+- 2026-06-29 14:27 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 14:20 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 14:08 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 14:25 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
+- 2026-06-29 14:20 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:58 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/65297268471.shtml)
-- 2026-06-29 13:57 - [江苏财政厅原一级调研员谢功成被查](https://www.share.kurohicncr.top/Article/details/245506578630.shtml)
-- 2026-06-29 14:18 - [永远保持对人民的赤子之心](http://www.share.kurohicncr.top/Article/details/898904971.shtml)
-- 2026-06-29 14:14 - [42岁郭碧婷纯素颜状态](https://www.share.kurohicncr.top/Article/details/76160618.shtml)
-- 2026-06-29 14:16 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/956698760065.shtml)
-- 2026-06-29 14:06 - [王楚钦3比0周启豪](http://www.blog.kurohicncr.top/Article/details/52401.shtml)
-- 2026-06-29 13:58 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.minike.top/Article/details/817145507.shtml)
-- 2026-06-29 14:16 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/6470859412.shtml)
-- 2026-06-29 13:59 - [中方回应对日本相关出口管制措施](http://www.share.kurohicncr.top/Article/details/58182.shtml)
-- 2026-06-29 14:23 - [中方将20家日本实体列入关注名单](https://www.share.minike.top/Article/details/08618367.shtml)
-- 2026-06-29 14:20 - [央视起底直播诈骗连环套](https://www.share.kurohicncr.top/Article/details/8493135.shtml)
-- 2026-06-29 14:20 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/66795547889.shtml)
-- 2026-06-29 13:56 - [2021湖南卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/500859038.shtml)
-- 2026-06-29 14:17 - [欧洲超1300例超额死亡与高温有关](http://www.blog.kurohicncr.top/Article/details/021820.shtml)
-- 2026-06-29 14:13 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/04051.shtml)
+- 2026-06-29 14:26 - [手游300亿数据或被军事化运用](https://www.blog.minike.top/Article/details/240444626558.shtml)
+- 2026-06-29 14:18 - [职业选手禁止参赛！](https://www.blog.minike.top/Article/details/2039762862.shtml)
+- 2026-06-29 14:24 - [韩国队差旅费亏麻了](http://www.share.minike.top/Article/details/01256456.shtml)
+- 2026-06-29 14:28 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/830288621.shtml)
+- 2026-06-29 14:01 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/9746780565.shtml)
+- 2026-06-29 14:29 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/57194579703.shtml)
+- 2026-06-29 14:26 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/323137.shtml)
+- 2026-06-29 14:16 - [薛之谦演唱会](https://www.share.kurohicncr.top/Article/details/269452328.shtml)
+- 2026-06-29 14:29 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/609789344799.shtml)
+- 2026-06-29 14:24 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/13724554845.shtml)
+- 2026-06-29 14:27 - [张一山回应与杨紫友情](https://www.share.minike.top/Article/details/5706466.shtml)
+- 2026-06-29 14:16 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](http://www.blog.kurohicncr.top/Article/details/53921675567.shtml)
+- 2026-06-29 14:01 - [王楚钦欢迎晚宴上打台球](https://www.blog.minike.top/Article/details/61263937286.shtml)
+- 2026-06-29 14:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/5152831.shtml)
+- 2026-06-29 14:00 - [普京：俄面临命运攸关时刻](https://www.share.minike.top/Article/details/098392.shtml)

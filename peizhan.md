@@ -1,60 +1,49 @@
-# 广西研学旅游交流活动在贺州举行 近百家企业达成合作意向
+# 清华大学老校友任丽翰：我最不赞成被叫“学霸”
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网贺州6月2日电(张广权)近日，以“跟着徐霞客游广西”为主题的2026年广西研学旅游交流活动在广西贺州市举办。活动由广西壮族自治区文化和旅游厅主办，贺州市文化广电和旅游局、广西旅游协会研学旅游分会协办。 活动融合产品展销、合作洽谈、经验分享、实地考察等多种形式，旨在搭建优质行业交流平台，丰富研学旅游产品，提高行业服务水平，提升广西研学旅游产品集聚度和外销率，并借暑期旅游旺季
+发布时间：2026年04月26日 23:01 来源：中国新闻网 4月26日下午，清华大学115周年校庆活动举行。清华大学上海校友会艺术团副团长任丽翰在接受记者采访时说，中国知识分子最优秀的就是爱国，她最不赞成被叫“学霸”，因为他们有责任为社会多做工作。她谈到，自己特别喜欢马兰基地的口号，“要做隐姓埋名的人，要干惊天动地的事”。(刘子衿 唐梅芳 制作 王嘉怡) 责任编辑：【张令旗
 
 ## 正文
 
-中新网贺州6月2日电(张广权)近日，以“跟着徐霞客游广西”为主题的2026年广西研学旅游交流活动在广西贺州市举办。
+发布时间：2026年04月26日 23:01 来源：中国新闻网 4月26日下午，清华大学115周年校庆活动举行。
 
-活动由广西壮族自治区文化和旅游厅主办，贺州市文化广电和旅游局、广西旅游协会研学旅游分会协办。
+清华大学上海校友会艺术团副团长任丽翰在接受记者采访时说，中国知识分子最优秀的就是爱国，她最不赞成被叫“学霸”，因为他们有责任为社会多做工作。
 
-活动融合产品展销、合作洽谈、经验分享、实地考察等多种形式，旨在搭建优质行业交流平台，丰富研学旅游产品，提高行业服务水平，提升广西研学旅游产品集聚度和外销率，并借暑期旅游旺季引客入桂。
+她谈到，自己特别喜欢马兰基地的口号，“要做隐姓埋名的人，要干惊天动地的事”。
 
-在主会场现场，广西14个设区市的研学旅游服务商集中展示200余件精品研学旅游产品，涵盖无人机与VR技术体验、城市探索、自然人文、非遗技艺、红色文化及生态实践等类别，展现出广西研学旅游差异化、特色化的发展优势。
-
-在产品展示区旁，特设合作洽谈专区。
-
-本次活动通过提前摸底，做好咨询解答、商务磋商等各项配套服务，有效推动“一对一”需求对接。
-
-现场近百家企业完成专项结对洽谈，初步敲定合作意向。
-
-此外，活动结合2026年“5·19中国旅游日”广西发布的“跟着徐霞客游广西”夏季旅游精品线路——“夏趣边关·亲子研学游”，以及“一键研学”应用、贺州精品研学旅游线路进行分享。
+(刘子衿 唐梅芳 制作 王嘉怡) 责任编辑：【张令旗】
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
-- 2026-06-29 14:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-29 14:02 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-29 14:19 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrtlb.md)
-- 2026-06-29 14:01 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ghedm.md)
-- 2026-06-29 14:05 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 13:55 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-29 14:10 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-29 13:59 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
-- 2026-06-29 13:55 - [AG 钟意](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
-- 2026-06-29 14:16 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 14:22 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/issfy.md)
-- 2026-06-29 14:18 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
-- 2026-06-29 14:22 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 14:13 - [下飞机后，我做了个很蠢的决定......](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huazai.md)
+- 2026-06-29 14:16 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tcqkf.md)
+- 2026-06-29 14:03 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenglian.md)
+- 2026-06-29 14:11 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fvidn.md)
+- 2026-06-29 14:04 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-29 14:28 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-29 14:10 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 14:29 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-29 14:19 - [森保一：日本队要亲手改写历史](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanzan.md)
+- 2026-06-29 14:16 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uprxr.md)
+- 2026-06-29 14:02 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/15728.shtml)
-- 2026-06-29 14:12 - [男子造谣县城满街都是小混混被行拘](http://www.blog.minike.top/Article/details/315134159009.shtml)
-- 2026-06-29 14:15 - [河南考699分女生已接到清华大学电话](https://www.share.kurohicncr.top/Article/details/07140.shtml)
-- 2026-06-29 14:20 - [美伊同意停止互袭 30日在多哈谈判](http://www.share.minike.top/Article/details/782497518175.shtml)
-- 2026-06-29 14:20 - [毕业群都在出什么东西](http://www.share.minike.top/Article/details/71984.shtml)
-- 2026-06-29 14:01 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.kurohicncr.top/Article/details/3027134747.shtml)
-- 2026-06-29 13:54 - [韩国媒体破防：被中国球迷当笑柄](https://www.share.minike.top/Article/details/88886.shtml)
-- 2026-06-29 14:19 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/957247826.shtml)
-- 2026-06-29 14:00 - [papi酱回应毕业4年零收入](https://www.share.kurohicncr.top/Article/details/820733843.shtml)
-- 2026-06-29 14:05 - [终于把好哥们处成了情侣!](http://www.share.minike.top/Article/details/968289073.shtml)
-- 2026-06-29 14:15 - [日本主帅：对战胜巴西很有信心](https://www.blog.kurohicncr.top/Article/details/852593605738.shtml)
-- 2026-06-29 13:59 - [白宇摘下白玉兰送给杨幂](http://www.blog.minike.top/Article/details/864989174027.shtml)
-- 2026-06-29 14:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/2363342326.shtml)
-- 2026-06-29 14:14 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/1620170758.shtml)
-- 2026-06-29 14:09 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/046941851412.shtml)
+- 2026-06-29 14:25 - [逆天祖国人](http://www.blog.kurohicncr.top/Article/details/66433.shtml)
+- 2026-06-29 14:24 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/92814012.shtml)
+- 2026-06-29 14:15 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.minike.top/Article/details/87034207.shtml)
+- 2026-06-29 14:24 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/75058.shtml)
+- 2026-06-29 14:10 - [亚洲成世界杯最大失意者联盟](http://www.blog.kurohicncr.top/Article/details/782300122465.shtml)
+- 2026-06-29 14:13 - [詹俊预测德国大胜巴拉圭](http://www.blog.kurohicncr.top/Article/details/33530.shtml)
+- 2026-06-29 14:22 - [勇敢的心第二部](http://www.share.minike.top/Article/details/49473913738.shtml)
+- 2026-06-29 14:07 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/2836147506.shtml)
+- 2026-06-29 14:16 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/65458658.shtml)
+- 2026-06-29 14:01 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.kurohicncr.top/Article/details/026492562.shtml)
+- 2026-06-29 14:11 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/2212410916.shtml)
+- 2026-06-29 14:29 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/81676.shtml)
+- 2026-06-29 14:21 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/093938718.shtml)
+- 2026-06-29 14:06 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.kurohicncr.top/Article/details/78537.shtml)
+- 2026-06-29 14:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/04203065.shtml)

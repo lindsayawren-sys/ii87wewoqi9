@@ -1,46 +1,56 @@
-# 伊朗：要求满足前不会举行任何谈判
+# 南京苏州两巨头抢滩无人驾驶：T3出行招股书提及78次，曹操出行计划2027年量产
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-新华社德黑兰6月1日电 据伊朗塔斯尼姆通讯社6月1日报道，伊朗官员表示，以色列必须立即停止在黎巴嫩和加沙地带的军事行动，并从黎巴嫩撤出。在此要求得到满足前，伊朗不会举行任何谈判。(完)
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。 4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集
 
 ## 正文
 
-新华社德黑兰6月1日电 据伊朗塔斯尼姆通讯社6月1日报道，伊朗官员表示，以色列必须立即停止在黎巴嫩和加沙地带的军事行动，并从黎巴嫩撤出。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-在此要求得到满足前，伊朗不会举行任何谈判。
+来源：鱼禾财经 4月下旬，来自江苏两大网约车巨头，接连在Robotaxi（无人驾驶出租车）赛道投下重磅消息。
 
-(完)
+4月24日，在2026北京国际汽车展览会上，苏州曹操出行深度参与定义研发的中国首款原生开发Robotaxi原型车——Eva Cab正式亮相。
+
+就在两天前，南京T3出行向港交所递交招股书，宣布IPO募集资金将优先用于建设全栈Robotaxi能力。
+
+“吉利Robotaxi最重要商业化载体” 曹操出行发布首款原生开发无人驾驶出租车 从硬件上看，曹操出行Eva Cab最抢眼的特征是没有方向盘，这正折射出其与市面上多数Robotaxi在开发逻辑上的不同。
+
+图源：曹操出行 目前市面上的多数Robotaxi，都采用“后装改制”模式，即采购现成的量产车，通过追加自动驾驶设备，实现测试运营能力。
+
+而Eva Cab从设计之初，就以L4级自动驾驶场景为参考，将智驾系统、感知硬件等内嵌到造车环节。
+
+据曹操出行披露，这款定制化车型计划于2027年实现量产，长远目标是到2030年累计投放10万辆，逐步推进规模化运营。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
-- 2026-06-29 14:18 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 14:17 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 13:57 - [辽宁葫芦岛市一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-29 14:13 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-29 13:59 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
-- 2026-06-29 14:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 14:13 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqhuk.md)
-- 2026-06-29 13:59 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
-- 2026-06-29 13:57 - [李连杰回应网传不管前妻俩女儿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 14:26 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
+- 2026-06-29 14:06 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-29 14:23 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiumou.md)
+- 2026-06-29 14:19 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 14:24 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 14:13 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-29 14:11 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-29 14:05 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
+- 2026-06-29 14:26 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tohgc.md)
+- 2026-06-29 14:28 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://www.blog.kurohicncr.top/Article/details/510267339.shtml)
-- 2026-06-29 14:03 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/9257805639.shtml)
-- 2026-06-29 13:58 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](https://www.blog.kurohicncr.top/Article/details/968715583458.shtml)
-- 2026-06-29 14:22 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/06958000653.shtml)
-- 2026-06-29 13:58 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](http://www.blog.minike.top/Article/details/84551546.shtml)
-- 2026-06-29 14:13 - [王楚钦 表演球擦网](http://www.share.minike.top/Article/details/63452887896.shtml)
-- 2026-06-29 14:12 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.blog.kurohicncr.top/Article/details/26757256379.shtml)
-- 2026-06-29 14:14 - [周深双眼皮贴又掉了](http://www.share.kurohicncr.top/Article/details/53646829.shtml)
-- 2026-06-29 14:09 - [papi酱自曝曾因尝试21天减肥法患病](http://www.share.minike.top/Article/details/1348281.shtml)
-- 2026-06-29 13:58 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.share.minike.top/Article/details/3760789589.shtml)
-- 2026-06-29 14:08 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/41993661896.shtml)
-- 2026-06-29 14:06 - [扫黑风暴](http://www.share.minike.top/Article/details/608450925.shtml)
-- 2026-06-29 14:16 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/523536.shtml)
-- 2026-06-29 14:19 - [法拉利被4个孩子当滑梯玩](http://www.blog.kurohicncr.top/Article/details/06001410.shtml)
-- 2026-06-29 14:23 - [海清白玉兰奖运](https://www.blog.minike.top/Article/details/76765250.shtml)
+- 2026-06-29 14:16 - [央视起底直播诈骗连环套](https://www.share.minike.top/Article/details/2053542.shtml)
+- 2026-06-29 14:08 - [斗破苍穹](http://www.share.minike.top/Article/details/53855.shtml)
+- 2026-06-29 14:09 - [灿如繁星定档](https://www.share.minike.top/Article/details/584716619.shtml)
+- 2026-06-29 14:08 - [巴基斯坦军方打死29名武装分子](http://www.blog.minike.top/Article/details/15535907.shtml)
+- 2026-06-29 14:08 - [杨紫 你幸福的话我会比你先流泪](http://www.share.kurohicncr.top/Article/details/277721459.shtml)
+- 2026-06-29 14:10 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/79083649497.shtml)
+- 2026-06-29 14:20 - [布里奇斯被交易至太阳](http://www.share.kurohicncr.top/Article/details/6162864691.shtml)
+- 2026-06-29 14:27 - [李连杰回应网传不管前妻俩女儿](https://www.blog.kurohicncr.top/Article/details/93517.shtml)
+- 2026-06-29 14:17 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.kurohicncr.top/Article/details/4551623.shtml)
+- 2026-06-29 14:04 - [拄拐少年高考663分：用行动回报社会](https://www.blog.minike.top/Article/details/969968775922.shtml)
+- 2026-06-29 14:13 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/48850.shtml)
+- 2026-06-29 14:16 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/449777.shtml)
+- 2026-06-29 14:13 - [一见倾心](https://www.blog.minike.top/Article/details/6803666503.shtml)
+- 2026-06-29 14:20 - [血糖高的人能吃西瓜吗](https://www.share.minike.top/Article/details/909478.shtml)
+- 2026-06-29 14:19 - [给阿嬷的情书海外口碑](http://www.blog.minike.top/Article/details/563986689656.shtml)

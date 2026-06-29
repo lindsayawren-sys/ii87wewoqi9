@@ -1,60 +1,59 @@
-# 小米新车型刷新纽北SUV圈速纪录
+# 刘国中强调 扎实有力推进常态化帮扶 持续巩固拓展脱贫攻坚成果
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-近期，世界互联网大会高级会员单位小米公司在北京举行人车家全生态新品发布会，正式发布全新小米YU7家族，新增小米YU7 GT、YU7标准版两大车型。同场发布的还有小米17 Max、耳夹式耳机、手环10 Pro及多款科技家电新品。公开信息显示，位于德国的纽博格林北环赛道（简称“纽北”）被业内认为是全球顶级车企的试金石，路面有着大量起伏颠簸，如高速飞坡、连续抛跳等。跑纽北，可以验证车
+新华社北京4月27日电 中共中央政治局委员、国务院副总理刘国中27日在京出席推进常态化帮扶持续巩固拓展脱贫攻坚成果工作会议。他强调，要深入学习贯彻习近平总书记重要讲话和重要指示批示精神，贯彻落实党中央、国务院部署，扎实推进常态化帮扶，持续巩固拓展脱贫攻坚成果，长久守牢不发生规模性返贫致贫底线。 刘国中强调，今年是开展常态化帮扶第一年，要持续压实责任，坚持并不断强化精准方略，进一
 
 ## 正文
 
-近期，世界互联网大会高级会员单位小米公司在北京举行人车家全生态新品发布会，正式发布全新小米YU7家族，新增小米YU7 GT、YU7标准版两大车型。
+新华社北京4月27日电 中共中央政治局委员、国务院副总理刘国中27日在京出席推进常态化帮扶持续巩固拓展脱贫攻坚成果工作会议。
 
-同场发布的还有小米17 Max、耳夹式耳机、手环10 Pro及多款科技家电新品。
+他强调，要深入学习贯彻习近平总书记重要讲话和重要指示批示精神，贯彻落实党中央、国务院部署，扎实推进常态化帮扶，持续巩固拓展脱贫攻坚成果，长久守牢不发生规模性返贫致贫底线。
 
-公开信息显示，位于德国的纽博格林北环赛道（简称“纽北”）被业内认为是全球顶级车企的试金石，路面有着大量起伏颠簸，如高速飞坡、连续抛跳等。
+刘国中强调，今年是开展常态化帮扶第一年，要持续压实责任，坚持并不断强化精准方略，进一步提高帮扶工作质效。
 
-跑纽北，可以验证车辆在各种极端环境中的稳定性，打磨各种弯道性能。
+要扎实做好常态化监测，提高帮扶精准性时效性，稳妥有序推进帮扶对象动态管理。
 
-选配赛道专业套装的YU7 GT以7分22秒755刷新纽北SUV圈速纪录，较原纪录提升14秒。
+要坚持把开发式帮扶作为重中之重，分类推进产业提质升级，多渠道做好就业帮扶，加强易地搬迁后续扶持，支持欠发达地区加快发展。
 
-据介绍，YU7 GT取得的成绩，源于背后的动力、底盘和制动系统。
+要健全社会保障体系，兜牢民生底线。
 
-动力方面，该车搭载小米新一代超级电机V8s EVO，最高转速达28000rpm，峰值功率450kW，搭配前电机V6s Plus前驱版，双电机系统综合最大功率达738kW，换算为1003匹马力，零百加速仅需2.92秒，最高时速可达300km。
+要提高东西部协作和中央单位定点帮扶实效，持续发挥驻村干部等帮扶作用。
 
-底盘方面，YU7 GT搭载小米蛟龙底盘大师版，由小米汽车欧洲研发中心技术专家深度参与调校。
+要优化完善常态化帮扶考核，加强考核结果运用，以问题整改促进工作提升。
 
 ## 相关推荐
 
-- 2026-06-29 14:02 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 14:14 - [新一代影后杨紫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsmpz.md)
-- 2026-06-29 13:59 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flgfe.md)
-- 2026-06-29 14:11 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
-- 2026-06-29 14:10 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpdrm.md)
-- 2026-06-29 14:05 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 13:57 - [未来5年全国能源体系将呈现这些特征](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 14:00 - [普京称考虑全面禁止柴油出口](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
-- 2026-06-29 14:22 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
-- 2026-06-29 14:00 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
-- 2026-06-29 14:04 - [哈兰德之歌火到国外](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-29 13:59 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
-- 2026-06-29 14:07 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 14:13 - [T1 vs KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
+- 2026-06-29 14:14 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-29 14:21 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 14:12 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-29 14:05 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-29 14:18 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-29 14:16 - [47岁吴建豪再婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
+- 2026-06-29 14:08 - [这开放世界游戏，竟然允许玩家屠城？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
+- 2026-06-29 14:16 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanhou.md)
+- 2026-06-29 14:25 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-29 14:05 - [记者率先试乘西十高铁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 14:08 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
+- 2026-06-29 14:04 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-29 14:01 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:11 - [实习期把公司领导开除了](http://www.blog.minike.top/Article/details/67162810058.shtml)
-- 2026-06-29 13:57 - [海军舰艇编队将赴香港](https://www.blog.minike.top/Article/details/587563.shtml)
-- 2026-06-29 14:09 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/407171062.shtml)
-- 2026-06-29 14:11 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.minike.top/Article/details/05078.shtml)
-- 2026-06-29 14:02 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/57310057.shtml)
-- 2026-06-29 13:59 - [龟梨和也田中美奈实结婚](http://www.blog.kurohicncr.top/Article/details/180401.shtml)
-- 2026-06-29 13:58 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/28790696950.shtml)
-- 2026-06-29 14:06 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/75811856336.shtml)
-- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/28652.shtml)
-- 2026-06-29 14:05 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/23837128.shtml)
-- 2026-06-29 14:08 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/13746747.shtml)
-- 2026-06-29 14:19 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/304871.shtml)
-- 2026-06-29 14:10 - [【Reaction】女生最少的5款游戏](http://www.share.kurohicncr.top/Article/details/24318851.shtml)
-- 2026-06-29 14:01 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/37482.shtml)
-- 2026-06-29 14:10 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/88158586.shtml)
+- 2026-06-29 14:12 - [德国队前往比赛场地遭遇囧途](https://www.share.minike.top/Article/details/788962408699.shtml)
+- 2026-06-29 14:16 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/72656230226.shtml)
+- 2026-06-29 14:15 - [时光音乐会](http://www.blog.minike.top/Article/details/83127531976.shtml)
+- 2026-06-29 14:22 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.minike.top/Article/details/240899375.shtml)
+- 2026-06-29 14:15 - [志愿选择倒计时！浙大学生送祝福](http://www.share.kurohicncr.top/Article/details/797137772.shtml)
+- 2026-06-29 14:13 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/9447071.shtml)
+- 2026-06-29 14:12 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/544179638.shtml)
+- 2026-06-29 14:04 - [沙特足协主席发布声明主动请辞](http://www.share.kurohicncr.top/Article/details/6545409006.shtml)
+- 2026-06-29 14:24 - [恋与深空底线不该被娱乐化](http://www.share.minike.top/Article/details/27672176.shtml)
+- 2026-06-29 14:08 - [韩国记者：解码“合肥模式”](http://www.blog.kurohicncr.top/Article/details/32124695.shtml)
+- 2026-06-29 14:01 - [“养路费”谁来交 油电车主大吵](http://www.blog.kurohicncr.top/Article/details/13716.shtml)
+- 2026-06-29 14:21 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/5918718915.shtml)
+- 2026-06-29 14:20 - [市民骑哈啰单车79分钟付30元](https://www.share.minike.top/Article/details/726990822618.shtml)
+- 2026-06-29 14:27 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/00881221.shtml)
+- 2026-06-29 14:07 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/812559164.shtml)

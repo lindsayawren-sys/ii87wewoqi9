@@ -1,59 +1,61 @@
-# 宇树科技IPO，提交注册
+# 俞敏洪，再次“灭火”
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-6月2日，上交所官网显示，宇树科技科创板IPO提交注册，正式启动注册程序，距离登陆A股更近一步。 按此节奏，宇树科技将成为A股“具身智能第一股”。公司拟公开发行新股不低于4044.64万股，募集资金42.02亿元，募资投向聚焦核心技术攻坚与长期战略布局，重点布局智能机器人大模型研发领域。 在业内看来，在科创板的加持下，宇树科技凭借全栈自研的核心技术体系、规模化商业能力，有望为硬
+新京报贝壳财经记者 丁爽 编辑 王进雨 校对 穆祥桐 俞敏洪，再一次因主播出走紧急灭火。 4月25日，东方甄选主播明明、天权、中灿、林林陆续在个人社交平台发长文宣布，离开东方甄选。 在当日的直播中，东方甄选董事长俞敏洪谈道，公司充分尊重主播的个人职业规划与选择，同时将针对此次事件全面复盘内部管理问题。他坦言，管理层调整后，公司管理方式出现偏差，过度侧重制度管控，忽视团队人文关怀
 
 ## 正文
 
-6月2日，上交所官网显示，宇树科技科创板IPO提交注册，正式启动注册程序，距离登陆A股更近一步。
+新京报贝壳财经记者 丁爽 编辑 王进雨 校对 穆祥桐 俞敏洪，再一次因主播出走紧急灭火。
 
-按此节奏，宇树科技将成为A股“具身智能第一股”。
+4月25日，东方甄选主播明明、天权、中灿、林林陆续在个人社交平台发长文宣布，离开东方甄选。
 
-公司拟公开发行新股不低于4044.64万股，募集资金42.02亿元，募资投向聚焦核心技术攻坚与长期战略布局，重点布局智能机器人大模型研发领域。
+在当日的直播中，东方甄选董事长俞敏洪谈道，公司充分尊重主播的个人职业规划与选择，同时将针对此次事件全面复盘内部管理问题。
 
-在业内看来，在科创板的加持下，宇树科技凭借全栈自研的核心技术体系、规模化商业能力，有望为硬科技版图再添核心力量，进一步凸显科创板服务国家战略、赋能未来产业的核心价值，并为通用机器人产业创新升级注入新动能。
+他坦言，管理层调整后，公司管理方式出现偏差，过度侧重制度管控，忽视团队人文关怀，导致团队氛围出现问题。
 
-2025年度，宇树科技人形机器人出货量已超5500台（纯人形，不含轮式双臂机器人）。
+后续东方甄选将优化管理模式，平衡制度化运营与人文关怀，整改僵化、高压的管理问题。
 
-宇树科技称，结合第三方发布的2025年全球范围其他行业企业人形机器人出货量数据，公司2025年人形机器人出货量为全球行业第一。
+这一幕似曾相识。
 
-产品布局上，宇树科技已有矩阵较为丰富，覆盖了人形机器人的全尺寸（H1、H2）与中型及中小型（G1、R1）两大领域，以及四足机器人的行业级（B1、B2及A2）与消费级（Go1、Go2）两大方向。
+2024年7月，董宇辉离职、“与辉同行”剥离时，东方甄选遭遇了前所未有的危机。
 
-业绩方面，宇树科技是国内少有的已盈利具身智能企业。
+这一轮波澜，更像是“去头部化”战略留下的长期余震。
 
 ## 相关推荐
 
-- 2026-06-29 13:54 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-29 14:14 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/neiliang.md)
-- 2026-06-29 13:58 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
-- 2026-06-29 14:20 - [【独家】牧神记 第89集 明心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egpxz.md)
-- 2026-06-29 14:18 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzxgu.md)
-- 2026-06-29 14:19 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-29 14:03 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcakj.md)
-- 2026-06-29 13:57 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angtou.md)
-- 2026-06-29 14:21 - [杨紫下沉市场口碑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
-- 2026-06-29 14:02 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-29 14:18 - [航空运输旅客服务质量国标将实施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqiiz.md)
-- 2026-06-29 14:03 - [久坐小心“死臀综合征”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-29 14:04 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juanzen.md)
+- 2026-06-29 14:10 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-29 14:04 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 14:24 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
+- 2026-06-29 14:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 14:26 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
+- 2026-06-29 14:18 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 14:28 - [普京：俄面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
+- 2026-06-29 14:12 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 14:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
+- 2026-06-29 14:22 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-29 14:19 - [吴海燕兰西雅漫步复兴岛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
+- 2026-06-29 14:24 - [原来大雷哥给杨紫准备了三件祖海高定](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 14:12 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
+- 2026-06-29 14:04 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kbqry.md)
+- 2026-06-29 14:21 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/panhun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/57045897.shtml)
-- 2026-06-29 13:57 - [小娘惹](https://www.share.kurohicncr.top/Article/details/93108019.shtml)
-- 2026-06-29 14:06 - [森保一：日本队要亲手改写历史](https://www.share.minike.top/Article/details/1901256.shtml)
-- 2026-06-29 14:20 - [拄拐少年高考663分：用行动回报社会](http://www.blog.minike.top/Article/details/925954022.shtml)
-- 2026-06-29 14:08 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/66802511.shtml)
-- 2026-06-29 14:17 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/098242062498.shtml)
-- 2026-06-29 14:11 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.kurohicncr.top/Article/details/83035540273.shtml)
-- 2026-06-29 14:22 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/8262298.shtml)
-- 2026-06-29 13:55 - [男子造谣县城满街都是小混混被行拘](https://www.share.minike.top/Article/details/26589546906.shtml)
-- 2026-06-29 14:06 - [AG 钟意](https://www.share.kurohicncr.top/Article/details/929820193389.shtml)
-- 2026-06-29 14:18 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.blog.minike.top/Article/details/097216.shtml)
-- 2026-06-29 13:59 - [评论员：高温撕开欧洲“遮羞布”](https://www.share.kurohicncr.top/Article/details/15066847.shtml)
-- 2026-06-29 14:06 - [袁隆平院士 不容诋毁！](https://www.blog.minike.top/Article/details/80271857277.shtml)
-- 2026-06-29 14:09 - [一见倾心](https://www.share.kurohicncr.top/Article/details/3960605682.shtml)
-- 2026-06-29 14:14 - [papi酱回应毕业4年零收入](https://www.blog.minike.top/Article/details/37642.shtml)
+- 2026-06-29 14:18 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/7408265649.shtml)
+- 2026-06-29 14:25 - [韩国极端网友对主教练发出死亡威胁](https://www.blog.minike.top/Article/details/0013882.shtml)
+- 2026-06-29 14:14 - [韩国主帅辞职 念完稿双手插兜离场](http://www.share.minike.top/Article/details/0282331.shtml)
+- 2026-06-29 14:19 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/623041.shtml)
+- 2026-06-29 14:00 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.blog.kurohicncr.top/Article/details/9472385936.shtml)
+- 2026-06-29 14:06 - [运20飞机列装空军十周年](https://www.share.minike.top/Article/details/840720551947.shtml)
+- 2026-06-29 14:19 - [三系杂交稻到底有多牛](https://www.share.minike.top/Article/details/46637691739.shtml)
+- 2026-06-29 14:17 - [美人鱼](https://www.share.minike.top/Article/details/761863.shtml)
+- 2026-06-29 14:01 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/1912997.shtml)
+- 2026-06-29 14:07 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/98844996.shtml)
+- 2026-06-29 14:11 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/481017072133.shtml)
+- 2026-06-29 14:26 - [韩国记者：解码“合肥模式”](http://www.share.kurohicncr.top/Article/details/776102.shtml)
+- 2026-06-29 14:14 - [运20飞机列装空军十周年](http://www.share.kurohicncr.top/Article/details/91718113.shtml)
+- 2026-06-29 14:28 - [和阿根廷球员家属一起看球](https://www.blog.minike.top/Article/details/0115040.shtml)
+- 2026-06-29 14:13 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/28826178175.shtml)

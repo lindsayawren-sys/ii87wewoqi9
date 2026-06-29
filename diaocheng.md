@@ -1,60 +1,60 @@
-# 国联民生证券孔蓉：韩股牛市由存储驱动，恒科背离源于权重股“AI叙事”欠佳，港股结构性机会仍存
+# 上海银行副行长胡德斌：客户体验是银行数字化转型的试金石
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-2026年以来，全球科技股走势分化。针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，党委委员、副行长兼首席信息官胡德斌表示，在银行数字化转型进入深水期的今天，客户体验工作不仅是对客户服务的转变提升，更是衡量一家银行数字化转型的试金石。 胡德斌介绍，上海银行2025年年底成立了数字化转型和客户体验部。他强调这不仅是简单的职能调整，更是战略底层逻辑的转变。该部门的核心价值在于打破数
 
 ## 正文
 
-2026年以来，全球科技股走势分化。
+4月27日金融一线消息，上海银行今日召开2025年度暨2026年第一季度业绩说明会，党委委员、副行长兼首席信息官胡德斌表示，在银行数字化转型进入深水期的今天，客户体验工作不仅是对客户服务的转变提升，更是衡量一家银行数字化转型的试金石。
 
-针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。
+胡德斌介绍，上海银行2025年年底成立了数字化转型和客户体验部。
 
-视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重股迎来“谷歌时刻”，恒科修复空间可观。
+他强调这不仅是简单的职能调整，更是战略底层逻辑的转变。
 
-针对韩国股市的史诗级上涨，孔蓉认为其内核与全球科技主线高度一致，即AI与硬件的共振。
+该部门的核心价值在于打破数据孤岛和系统烟囱，将数字化转型与客户体验融为一体，确保技术研发和流程设计始终以客户感知为唯一标准；同时构建体验驱动的管理闭环，赋予其对全行流程进行检视和评价的权力，标志着上海银行从功能驱动向客户体验驱动的根本性转变。
 
-一方面，韩国新一届政府上台后对资本市场给予了政策支持，这与A股近年来政策呵护科技板块的逻辑相似；但更关键的驱动力来自于存储产业。
+胡德斌指出，在这一机制引领下，上海银行通过三个面向持续优化流程和服务。
 
-她表示，“三星和SK海力士带动了整个韩国市场的股价表现”，而存储板块的机会能否延续，将直接决定韩股后续走势。
+面向市场方面，以数据和AI为底座抢占体验高点，主动利用大模型技术构建客户体验新方法，将客户反馈、流程细节和经营指标深度融合。
 
-孔蓉判断，只要AI驱动的存储超级周期没有结束，韩国市场依然会受到全球资金的关注，其中存储领域是吸引力和关注度最高的环节。
+其中应用大模型技术构建的智能知识库，自动回答准确率已超96%，不仅提升了服务效率，更通过对客户咨询问题的分析，让决策更准确、服务更科学。
 
-然而，与韩股、美股科技的火热形成鲜明反差，恒生科技指数5月表现承压。
+面向客户方面，以客户旅程为主线拉近服务与客户距离，致力于打造简洁、高效、流畅的一体化体验，将优化细节精细到每一次交互过程。
 
 ## 相关推荐
 
-- 2026-06-29 14:03 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-29 14:09 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
-- 2026-06-29 14:23 - [钻石联赛巴黎站韦罗夺女子800米冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-29 14:23 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
-- 2026-06-29 13:54 - [iPhone18系列预计将大幅涨价](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 13:59 - [1954年以来闯进世界杯淘汰赛次数排行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/baoshuang.md)
-- 2026-06-29 14:01 - [中餐厅南北饮食差异](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuanda.md)
-- 2026-06-29 14:08 - [李在明称韩国足协任命了无能之人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjhx.md)
-- 2026-06-29 14:04 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiugen.md)
-- 2026-06-29 14:12 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-29 14:07 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 13:55 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
-- 2026-06-29 13:54 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
-- 2026-06-29 13:55 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-29 14:18 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
+- 2026-06-29 14:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jhifm.md)
+- 2026-06-29 14:22 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quxaf.md)
+- 2026-06-29 14:20 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
+- 2026-06-29 14:16 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 14:29 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-29 14:08 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 14:03 - [刘仲华院士愿当贺永辉导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
+- 2026-06-29 14:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 14:11 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-29 14:24 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aoreng.md)
+- 2026-06-29 14:00 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntngg.md)
+- 2026-06-29 14:18 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 14:11 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:08 - [拆快递不再“里三层外三层”](http://www.blog.minike.top/Article/details/19640560.shtml)
-- 2026-06-29 14:09 - [记者暗访贵州和云南多个养老机构](http://www.share.minike.top/Article/details/3364714355.shtml)
-- 2026-06-29 14:12 - [世界杯超牛补水广告出现了](https://www.share.kurohicncr.top/Article/details/0213158893.shtml)
-- 2026-06-29 14:24 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/2832024534.shtml)
-- 2026-06-29 13:55 - [李连杰否认不管前妻两女儿](http://www.share.minike.top/Article/details/4756066720.shtml)
-- 2026-06-29 14:18 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/185109091.shtml)
-- 2026-06-29 14:01 - [美伊同意停止互袭 30日在多哈谈判](https://www.share.kurohicncr.top/Article/details/61479618353.shtml)
-- 2026-06-29 14:02 - [锐评浪姐7总决赛](https://www.share.kurohicncr.top/Article/details/162006224.shtml)
-- 2026-06-29 14:01 - [中国邮政上海分公司总经理李柏平被查](http://www.share.kurohicncr.top/Article/details/615668006256.shtml)
-- 2026-06-29 14:15 - [詹俊预测德国大胜巴拉圭](https://www.share.kurohicncr.top/Article/details/42015675858.shtml)
-- 2026-06-29 13:56 - [《贺子珍》](http://www.blog.minike.top/Article/details/6208847.shtml)
-- 2026-06-29 14:00 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/463541237943.shtml)
-- 2026-06-29 14:12 - [日媒称韩国史诗级上上签终成噩梦](https://www.share.kurohicncr.top/Article/details/40275267.shtml)
-- 2026-06-29 14:12 - [配音演员于小华病逝 享年78岁](https://www.share.minike.top/Article/details/457469.shtml)
-- 2026-06-29 14:13 - [美伊同意停止互袭](https://www.share.minike.top/Article/details/948337.shtml)
+- 2026-06-29 14:16 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/58288.shtml)
+- 2026-06-29 14:20 - [《虎吹最难绷の一集》](http://www.share.kurohicncr.top/Article/details/181818321.shtml)
+- 2026-06-29 14:27 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/5858434.shtml)
+- 2026-06-29 14:03 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/7548323970.shtml)
+- 2026-06-29 14:27 - [《昨夜将至》为何是悬疑黑马](https://www.share.kurohicncr.top/Article/details/769522330112.shtml)
+- 2026-06-29 14:23 - [哈兰德之歌火到国外](http://www.share.kurohicncr.top/Article/details/37088.shtml)
+- 2026-06-29 14:07 - [法国紧急下单3万台空调](http://www.blog.kurohicncr.top/Article/details/800500234.shtml)
+- 2026-06-29 14:20 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/875140733015.shtml)
+- 2026-06-29 14:27 - [和阿根廷球员家属一起看球](http://www.blog.kurohicncr.top/Article/details/214550532.shtml)
+- 2026-06-29 14:15 - [森保一：日本队要亲手改写历史](http://www.share.minike.top/Article/details/0894186.shtml)
+- 2026-06-29 14:20 - [中俄联合巡航阵容强大 日本慌了？](https://www.blog.kurohicncr.top/Article/details/088027.shtml)
+- 2026-06-29 14:11 - [曝歌手第七期帮唱阵容](http://www.blog.kurohicncr.top/Article/details/221133.shtml)
+- 2026-06-29 14:26 - [李在明称韩国足协任命了无能之人](https://www.blog.kurohicncr.top/Article/details/19577.shtml)
+- 2026-06-29 14:06 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.minike.top/Article/details/1407822.shtml)
+- 2026-06-29 14:19 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/93642249.shtml)

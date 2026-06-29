@@ -1,50 +1,55 @@
-# 中国海警位中国台湾岛以东海域开展执法巡查
+# 日本北海道发生6.1级地震，交通部分停运
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中国海警局新闻发言人姜略表示，6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查。这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。我们敦促日菲立即停止一切侵害中国主权权益的非法行动。中国海警将持续加强有关海域管控，以实际行动坚决维护国家领土主权和海洋权益。
+来源：国是直通车 新华社消息，据日本气象厅消息，日本北海道十胜地区南部27日发生6.1级地震，本次地震无海啸风险。 日本气象厅说，地震发生于当地时间27日5时24分（北京时间4时24分）左右，震中位于北纬42.6度、东经143.1度，震源深度约80公里。 据日本共同社报道，暂无人员伤亡报告。北海道泊核电站未报告异常。受地震影响，部分公路和轨道交通暂停运行。 来源：新华社责任编辑
 
 ## 正文
 
-中国海警局新闻发言人姜略表示，6月1日，中国海警岱山舰编队位中国台湾岛以东海域依法开展执法巡查。
+来源：国是直通车 新华社消息，据日本气象厅消息，日本北海道十胜地区南部27日发生6.1级地震，本次地震无海啸风险。
 
-这是针对日本和菲律宾单方面宣布启动中国台湾岛以东海域划界谈判、严重侵犯中国领土主权和海洋权益采取的必要行动。
+日本气象厅说，地震发生于当地时间27日5时24分（北京时间4时24分）左右，震中位于北纬42.6度、东经143.1度，震源深度约80公里。
 
-我们敦促日菲立即停止一切侵害中国主权权益的非法行动。
+据日本共同社报道，暂无人员伤亡报告。
 
-中国海警将持续加强有关海域管控，以实际行动坚决维护国家领土主权和海洋权益。
+北海道泊核电站未报告异常。
+
+受地震影响，部分公路和轨道交通暂停运行。
+
+来源：新华社责任编辑：石秀珍 SF183
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-29 14:18 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
-- 2026-06-29 14:16 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
-- 2026-06-29 14:20 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 13:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 13:57 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-29 14:18 - [俄军新型无人机战力如何](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-29 13:58 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
-- 2026-06-29 14:18 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knqmr.md)
-- 2026-06-29 14:05 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
-- 2026-06-29 14:23 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
-- 2026-06-29 14:10 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 14:18 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-29 14:08 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
+- 2026-06-29 14:12 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 14:18 - [DSpark论文深度解读](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
+- 2026-06-29 14:02 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
+- 2026-06-29 14:29 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 14:28 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-29 14:11 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mtkdu.md)
+- 2026-06-29 14:21 - [吴建豪老婆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lzalb.md)
+- 2026-06-29 14:27 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
+- 2026-06-29 14:08 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-29 14:26 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-29 14:24 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/393837.shtml)
-- 2026-06-29 13:57 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/8225254435.shtml)
-- 2026-06-29 14:08 - [男子造谣县城满街都是小混混被行拘](https://www.blog.minike.top/Article/details/59605837454.shtml)
-- 2026-06-29 14:00 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/9115533.shtml)
-- 2026-06-29 14:14 - [吴昕要助理买的药6年前已停产](https://www.share.kurohicncr.top/Article/details/90679355.shtml)
-- 2026-06-29 14:12 - [航空运输旅客服务质量国标将实施](https://www.blog.minike.top/Article/details/939133944.shtml)
-- 2026-06-29 14:09 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/535140669.shtml)
-- 2026-06-29 14:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.kurohicncr.top/Article/details/426859642.shtml)
-- 2026-06-29 14:03 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/21686901060.shtml)
-- 2026-06-29 13:54 - [斛珠夫人](http://www.share.minike.top/Article/details/60608.shtml)
-- 2026-06-29 14:16 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/396234907823.shtml)
-- 2026-06-29 14:23 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.minike.top/Article/details/761249496.shtml)
-- 2026-06-29 14:20 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.blog.minike.top/Article/details/5932141.shtml)
-- 2026-06-29 14:21 - [加拿大女球迷玩人浪把手机甩飞](http://www.blog.kurohicncr.top/Article/details/61696737030.shtml)
-- 2026-06-29 14:03 - [11岁小孩哥汽修工龄4年](https://www.share.kurohicncr.top/Article/details/981730.shtml)
+- 2026-06-29 14:27 - [周锡玮：做堂堂正正的中国人](http://www.blog.kurohicncr.top/Article/details/413707.shtml)
+- 2026-06-29 14:18 - [韩国队出局引发意大利球迷全网狂欢](http://www.share.minike.top/Article/details/82998.shtml)
+- 2026-06-29 14:04 - [巴基斯坦军方打死29名武装分子](https://www.share.kurohicncr.top/Article/details/980969873.shtml)
+- 2026-06-29 14:28 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.blog.kurohicncr.top/Article/details/913495372086.shtml)
+- 2026-06-29 14:06 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/990693051.shtml)
+- 2026-06-29 14:18 - [明星大侦探第一季](http://www.share.minike.top/Article/details/304179.shtml)
+- 2026-06-29 14:07 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.share.kurohicncr.top/Article/details/881831026046.shtml)
+- 2026-06-29 14:05 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/911100255.shtml)
+- 2026-06-29 14:05 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.kurohicncr.top/Article/details/2886432.shtml)
+- 2026-06-29 14:01 - [金牌调解](https://www.blog.minike.top/Article/details/850666750.shtml)
+- 2026-06-29 14:26 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/0702146.shtml)
+- 2026-06-29 14:21 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/11352362.shtml)
+- 2026-06-29 14:00 - [民进党为什么拼命抹黑统战](http://www.share.kurohicncr.top/Article/details/528794.shtml)
+- 2026-06-29 14:26 - [广东一地发现极危植物新物种](http://www.blog.kurohicncr.top/Article/details/297610.shtml)
+- 2026-06-29 14:22 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.minike.top/Article/details/9597053.shtml)

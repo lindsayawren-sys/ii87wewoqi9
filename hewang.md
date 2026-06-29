@@ -1,52 +1,57 @@
-# 马来西亚实施新规限制未成年人使用社媒
+# 酒价内参4月27日价格发布：五粮液普五八代上涨2元
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-6月1日起，马来西亚正式实施《风险缓解准则》和《儿童保护准则》两项网络安全新规。《风险缓解准则》要求相关平台降低有害内容传播风险，包括开展内容管理和审核、儿童用户在线安全、服务的安全设计等。《儿童保护准则》则要求平台建立用户年龄验证机制，禁止16岁以下未成年人注册账号。这两项新规适用于在马来西亚用户数量不少于800万的社交媒体平台。相关平台违规将被处以最高1000万林吉特(约合
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月27日整体温和走高。如果主要单品各取一瓶整体打包售卖，今日总售价为9971元，较昨日上涨12元，创下4月3日以来新高。市场在前一日回调后重拾涨势，终端交投情绪保持平稳，核心单品涨跌分化依然显著。 今日白酒市场11大单品七涨三跌一平，赢家明显占优。上涨方面，古井贡古20涨幅居前，上涨6元/瓶
 
 ## 正文
 
-6月1日起，马来西亚正式实施《风险缓解准则》和《儿童保护准则》两项网络安全新规。
+新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价在4月27日整体温和走高。
 
-《风险缓解准则》要求相关平台降低有害内容传播风险，包括开展内容管理和审核、儿童用户在线安全、服务的安全设计等。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9971元，较昨日上涨12元，创下4月3日以来新高。
 
-《儿童保护准则》则要求平台建立用户年龄验证机制，禁止16岁以下未成年人注册账号。
+市场在前一日回调后重拾涨势，终端交投情绪保持平稳，核心单品涨跌分化依然显著。
 
-这两项新规适用于在马来西亚用户数量不少于800万的社交媒体平台。
+今日白酒市场11大单品七涨三跌一平，赢家明显占优。
 
-相关平台违规将被处以最高1000万林吉特(约合1706万元人民币)罚款。
+上涨方面，古井贡古20涨幅居前，上涨6元/瓶，收获三连涨迭创一个月来新高；精品茅台上涨5元/瓶；价盘一向稳重的水晶剑南春显著上涨3元/瓶；五粮液普五八代、洋河梦之蓝M6+及习酒君品均上涨2元/瓶；国窖1573小幅上涨1元/瓶。
 
-(央视新闻客户端)
+下跌方面，青花汾20跌幅居前，下跌4元/瓶；飞天茅台下跌3元/瓶；青花郎小幅回落2元/瓶。
+
+五粮液1618的价格环比保持不变。
+
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 14:19 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 14:02 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-29 14:14 - [韩国政府将对世界杯出局追责](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-29 14:22 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 13:59 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
-- 2026-06-29 14:06 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-29 14:10 - [韩国队被淘汰痛失11亿韩元巨奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
-- 2026-06-29 14:17 - [2025年人口增长10强城市出炉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ltmvb.md)
-- 2026-06-29 14:03 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/icyek.md)
-- 2026-06-29 14:03 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sralw.md)
+- 2026-06-29 14:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-29 14:22 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ekwhl.md)
+- 2026-06-29 14:13 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-29 14:13 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qjdvf.md)
+- 2026-06-29 14:24 - [NBA交易](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
+- 2026-06-29 14:04 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdubb.md)
+- 2026-06-29 14:12 - [C罗关心罗德里戈伤情](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnzvz.md)
+- 2026-06-29 14:10 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
+- 2026-06-29 14:22 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiechuang.md)
+- 2026-06-29 14:11 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 14:17 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpipl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:02 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/6410926796.shtml)
-- 2026-06-29 14:00 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.kurohicncr.top/Article/details/6299442628.shtml)
-- 2026-06-29 14:06 - [发反科学内容为何会有200万粉丝](http://www.share.minike.top/Article/details/9900989.shtml)
-- 2026-06-29 13:59 - [韩国政府将对世界杯出局追责](https://www.share.kurohicncr.top/Article/details/317272374937.shtml)
-- 2026-06-29 14:02 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/52421538406.shtml)
-- 2026-06-29 14:19 - [一生一世](https://www.share.minike.top/Article/details/150565997510.shtml)
-- 2026-06-29 14:23 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/82115444344.shtml)
-- 2026-06-29 14:12 - [宜宾发生5.5级地震 成都震感明显](http://www.blog.kurohicncr.top/Article/details/44506333845.shtml)
-- 2026-06-29 14:02 - [《虎吹最难绷の一集》](http://www.blog.kurohicncr.top/Article/details/657152065.shtml)
-- 2026-06-29 13:58 - [海清白玉兰奖运](http://www.blog.kurohicncr.top/Article/details/10066805.shtml)
-- 2026-06-29 13:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/019357.shtml)
-- 2026-06-29 14:01 - [日本前锋言论激怒巴西](https://www.blog.minike.top/Article/details/172791135.shtml)
-- 2026-06-29 14:16 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/80439313.shtml)
-- 2026-06-29 14:05 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/34260838.shtml)
-- 2026-06-29 14:00 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/0146997.shtml)
+- 2026-06-29 14:03 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/538835457.shtml)
+- 2026-06-29 14:16 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/2890105.shtml)
+- 2026-06-29 14:15 - [边洗边甩干？游客玩大摆锤遇暴雨](https://www.share.minike.top/Article/details/053928.shtml)
+- 2026-06-29 14:22 - [手底下人带不动怎么办？](http://www.share.kurohicncr.top/Article/details/000969381.shtml)
+- 2026-06-29 14:18 - [小孩曾卓君夺第八个EVO冠军](https://www.share.kurohicncr.top/Article/details/642358779.shtml)
+- 2026-06-29 14:11 - [造谣东鹏创始人不喝东鹏男子被刑拘](http://www.share.minike.top/Article/details/8973550.shtml)
+- 2026-06-29 14:08 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/44460.shtml)
+- 2026-06-29 14:13 - [网约车司机转账15000元后被乘客拉黑](https://www.share.kurohicncr.top/Article/details/30593.shtml)
+- 2026-06-29 14:09 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/1956369426.shtml)
+- 2026-06-29 14:18 - [Mrbeast的30天不吃饭挑战](http://www.share.kurohicncr.top/Article/details/96619072.shtml)
+- 2026-06-29 14:12 - [2025年人口增长10强城市出炉](http://www.share.kurohicncr.top/Article/details/94231486.shtml)
+- 2026-06-29 14:04 - [韩国主帅洪明甫辞职](http://www.share.kurohicncr.top/Article/details/69789.shtml)
+- 2026-06-29 14:12 - [恋与深空评分暴跌至1.8](https://www.share.kurohicncr.top/Article/details/02670601757.shtml)
+- 2026-06-29 14:08 - [实习期把公司领导开除了](http://www.blog.kurohicncr.top/Article/details/444685290396.shtml)
+- 2026-06-29 14:12 - [欧洲人驾车200公里抢购中国空调](http://www.share.minike.top/Article/details/11054.shtml)

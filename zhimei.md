@@ -1,58 +1,61 @@
-# “猪王”牧原股份换帅
+# 茅台一季度营收增长6.5%，投资者们却在撤退
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！“猪王”牧原股份（002714.SZ）迎来重要的管理层更迭。6月1日，牧原股份公告称，公司董事长秦英林因到退休年龄辞任，同时辞去总裁等职务；曹治年辞任副董事长等职务。董事会选举曹治年为第五届董事会董事长，并聘任秦英林为终身荣誉董事长，其将担任牧原养猪研究院院长。 此外，高曈被聘任为公司总裁、财务负责人，并被
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月24日晚，贵州茅台披露，一季度收入同比增长6.54%，归母净利润同比增长1.47%，保持营收、盈利正增长。然而奇怪的是，投资者们却在撤退。 刘彦春管理的景顺长城新兴成长混合，一季度减持贵州茅台超过20万股。朱少醒管理的富国天惠成长混合，一季度大幅减持贵州茅台52万股，这部分股权当前市值接近7.6亿元。张
 
 ## 正文
 
 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-“猪王”牧原股份（002714.SZ）迎来重要的管理层更迭。
+4月24日晚，贵州茅台披露，一季度收入同比增长6.54%，归母净利润同比增长1.47%，保持营收、盈利正增长。
 
-6月1日，牧原股份公告称，公司董事长秦英林因到退休年龄辞任，同时辞去总裁等职务；曹治年辞任副董事长等职务。
+然而奇怪的是，投资者们却在撤退。
 
-董事会选举曹治年为第五届董事会董事长，并聘任秦英林为终身荣誉董事长，其将担任牧原养猪研究院院长。
+刘彦春管理的景顺长城新兴成长混合，一季度减持贵州茅台超过20万股。
 
-此外，高曈被聘任为公司总裁、财务负责人，并被提名为非独立董事候选人。
+朱少醒管理的富国天惠成长混合，一季度大幅减持贵州茅台52万股，这部分股权当前市值接近7.6亿元。
 
-公司拟将董事会成员增至9名，新增1名非独立董事。
+张坤管理的易方达蓝筹精选混合、易方达优质精选混合，一季度更是对贵州茅台减持约20%。
 
-上述变更自董事会审议通过之日起生效，部分事项需待股东会审议。
+这些明星基金并非不看好白酒，而是因为基金投资者持续赎回，导致了管理人不得不被动卖出。
 
-出生于1965年的秦英林是牧原股份创始人，他最初从一名肉联厂的职工辞职下海养猪，从22头猪创业起步，一步步建成年出栏超7000万头的全产业链猪肉食品企业。
+基金经理们纷纷感叹，当前白酒等消费股的问题不在于业绩本身，而是投资者对消费板块前景过于悲观。
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-29 14:09 - [俄称继续推进 乌称打击俄军设施](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quzang.md)
-- 2026-06-29 14:09 - [人民日报评“AI脸看腻了”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 14:20 - [南部战区位南海海域进行例行巡航](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 14:14 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 14:07 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-29 14:20 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-29 14:06 - [詹俊预测德国大胜巴拉圭](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
-- 2026-06-29 13:54 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 14:23 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
-- 2026-06-29 13:58 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yezeng.md)
-- 2026-06-29 14:17 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-29 14:14 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-29 14:17 - [美的空调 卡bug](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 14:22 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 14:02 - [王楚钦首轮赢下国乒德比](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
+- 2026-06-29 14:02 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
+- 2026-06-29 14:04 - [加拿大女球迷玩人浪把手机甩飞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
+- 2026-06-29 14:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 14:25 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 14:11 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-29 14:10 - [终于把好哥们处成了情侣!](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
+- 2026-06-29 14:29 - [Agent带来token消耗爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-29 14:11 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doyct.md)
+- 2026-06-29 14:19 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
+- 2026-06-29 14:01 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
+- 2026-06-29 14:10 - [游戏数据被用于军事目的 国安部提醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuazhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [五粮液回应宜宾地震影响](https://www.share.minike.top/Article/details/900490.shtml)
-- 2026-06-29 14:01 - [网约车司机转账15000元后被乘客拉黑](http://www.blog.kurohicncr.top/Article/details/428017235105.shtml)
-- 2026-06-29 14:01 - [曾沛慈夺冠后人气](http://www.share.kurohicncr.top/Article/details/70908628.shtml)
-- 2026-06-29 14:09 - [王楚钦3比0周启豪](https://www.blog.kurohicncr.top/Article/details/074657351778.shtml)
-- 2026-06-29 14:17 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/95586.shtml)
-- 2026-06-29 14:06 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/089668653619.shtml)
-- 2026-06-29 14:23 - [上周末 多领域成果密集“上新”](https://www.share.kurohicncr.top/Article/details/378454473247.shtml)
-- 2026-06-29 14:11 - [农发行总行专家委员会委员杜晓力被查](http://www.blog.kurohicncr.top/Article/details/3937959.shtml)
-- 2026-06-29 14:09 - [金刚川](http://www.share.kurohicncr.top/Article/details/05158.shtml)
-- 2026-06-29 14:05 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.share.kurohicncr.top/Article/details/958692113705.shtml)
-- 2026-06-29 14:06 - [【独家】牧神记 第89集 明心](http://www.share.kurohicncr.top/Article/details/844540.shtml)
-- 2026-06-29 14:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](http://www.blog.kurohicncr.top/Article/details/709564891.shtml)
-- 2026-06-29 14:05 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/19135873.shtml)
-- 2026-06-29 14:23 - [第一批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/4754413.shtml)
-- 2026-06-29 14:18 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/242527460093.shtml)
+- 2026-06-29 14:02 - [T1对战KC](http://www.share.kurohicncr.top/Article/details/628383731703.shtml)
+- 2026-06-29 14:17 - [内马尔能上场15分钟](http://www.blog.kurohicncr.top/Article/details/136944.shtml)
+- 2026-06-29 14:28 - [王祖蓝现场观看美加墨世界杯](http://www.share.kurohicncr.top/Article/details/0756620805.shtml)
+- 2026-06-29 14:10 - [为什么6月以来北方频繁降雨](https://www.share.kurohicncr.top/Article/details/857332257.shtml)
+- 2026-06-29 14:07 - [王佳佳江疏影13年前后同框对比](http://www.share.kurohicncr.top/Article/details/55452.shtml)
+- 2026-06-29 14:27 - [中国避暑神器在欧洲卖爆了](https://www.blog.minike.top/Article/details/9328453.shtml)
+- 2026-06-29 14:04 - [以前不让妆女二可以艳压女主](https://www.blog.minike.top/Article/details/9724534792.shtml)
+- 2026-06-29 14:14 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.kurohicncr.top/Article/details/473201.shtml)
+- 2026-06-29 14:19 - [吴海燕兰西雅漫步复兴岛](https://www.blog.minike.top/Article/details/116090.shtml)
+- 2026-06-29 14:10 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.kurohicncr.top/Article/details/20854200.shtml)
+- 2026-06-29 14:13 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://www.blog.kurohicncr.top/Article/details/22653417839.shtml)
+- 2026-06-29 14:28 - [多只A股发布股价异动公告](https://www.blog.minike.top/Article/details/941229234.shtml)
+- 2026-06-29 14:06 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/1233011517.shtml)
+- 2026-06-29 14:09 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/84315.shtml)
+- 2026-06-29 14:09 - [记者率先试乘西十高铁](http://www.share.kurohicncr.top/Article/details/691451.shtml)

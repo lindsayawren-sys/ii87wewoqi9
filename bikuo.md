@@ -1,51 +1,58 @@
-# 中国平安：将于6月10日实施2025年年度权益分派 每股派发1.75元
+# 卖文创、造场景，高速服务区正成撬动地方消费的新引擎！自驾别错过→
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。除息日为2026年6月10日。 责
+最近不少高速服务区火出了圈，变成网红打卡地、文旅目的地，甚至成为带动一方经济的新引擎。 作为G318国道与雅康高速的交汇点，四川这个服务区是进藏前的最后一个补给站，也是无数自驾者进入“最美路线”的起点。 走进服务区，看到的不是传统印象中“上厕所、买泡面”的临时歇脚点，而是人头攒动、需要排队打卡的旅游目的地。数据显示，这里日均断面流量突破一万，节假日入区率高达50%。 服务区内的
 
 ## 正文
 
-6月1日金融一线消息，中国平安今日发布2025年年度权益分派实施公告称，本次利润分配以方案实施前的公司总股本18107641995股为基数，每股派发现金红利1.75元（含税），共计派发现金红利人民币31688373491.25元。
+最近不少高速服务区火出了圈，变成网红打卡地、文旅目的地，甚至成为带动一方经济的新引擎。
 
-其中，公司 A 股股本为10660065083 股，A 股共计派发现金红利人民币 18655113895.25 元。
+作为G318国道与雅康高速的交汇点，四川这个服务区是进藏前的最后一个补给站，也是无数自驾者进入“最美路线”的起点。
 
-除息日为2026年6月10日。
+走进服务区，看到的不是传统印象中“上厕所、买泡面”的临时歇脚点，而是人头攒动、需要排队打卡的旅游目的地。
 
-责任编辑：曹睿潼
+数据显示，这里日均断面流量突破一万，节假日入区率高达50%。
+
+服务区内的文创店被叫作318文创实验室。
+
+店内常备60多个单品，除了传统的车贴、卫衣，甚至氧气瓶都在成为新爆款，年营收额能达到三四百万元。
+
+2019年底，服务区改造后，经营面积从3600平方米扩建到5700平方米，还增加了消费业态，和旅客打卡点。
+
+消费者在服务区的平均停留时长和营业额都翻倍增长。
 
 ## 相关推荐
 
-- 2026-06-29 14:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mjhgr.md)
-- 2026-06-29 14:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doupei.md)
-- 2026-06-29 14:04 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
-- 2026-06-29 13:59 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-29 14:21 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fhwsc.md)
-- 2026-06-29 14:00 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnvwk.md)
-- 2026-06-29 14:19 - [6月我国降水为何偏多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 14:18 - [韩体育部长回应李在明痛批](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
-- 2026-06-29 13:59 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
-- 2026-06-29 14:03 - [为什么6月以来北方频繁降雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
-- 2026-06-29 13:57 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-29 13:54 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buqiong.md)
-- 2026-06-29 14:23 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 14:26 - [委内瑞拉地震已致1450死3150伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 14:25 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liuquan.md)
+- 2026-06-29 14:12 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuipiao.md)
+- 2026-06-29 14:28 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
+- 2026-06-29 14:29 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 14:10 - [媒体人：警惕日本再次成战争加害国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-29 14:22 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-29 14:13 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-29 14:21 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
+- 2026-06-29 14:01 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
+- 2026-06-29 14:16 - [女子遭殴打驾车致丈夫身亡维持原判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 14:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 13:56 - [105年初心滚烫](http://www.share.minike.top/Article/details/6960160.shtml)
-- 2026-06-29 14:00 - [清华姚班UP主详解AI专业就业](http://www.blog.kurohicncr.top/Article/details/9364533.shtml)
-- 2026-06-29 14:15 - [锐评浪姐7总决赛](http://www.blog.minike.top/Article/details/551080610032.shtml)
-- 2026-06-29 14:21 - [法拉利被当滑梯玩 出现多处划痕](http://www.share.kurohicncr.top/Article/details/9673440.shtml)
-- 2026-06-29 14:16 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.kurohicncr.top/Article/details/20046111.shtml)
-- 2026-06-29 14:01 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.kurohicncr.top/Article/details/89181049975.shtml)
-- 2026-06-29 14:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/988432428.shtml)
-- 2026-06-29 14:00 - [陈靖可虞书欣领衔主演](http://www.blog.kurohicncr.top/Article/details/307754906.shtml)
-- 2026-06-29 14:02 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.share.minike.top/Article/details/90076.shtml)
-- 2026-06-29 13:56 - [以前不让妆女二可以艳压女主](https://www.share.kurohicncr.top/Article/details/1852697.shtml)
-- 2026-06-29 14:05 - [中方将20家日本实体列入关注名单](https://www.blog.minike.top/Article/details/21292496842.shtml)
-- 2026-06-29 14:18 - [森保一：日本队要亲手改写历史](https://www.blog.minike.top/Article/details/39618667.shtml)
-- 2026-06-29 14:16 - [加拿大绝杀南非晋级](http://www.share.kurohicncr.top/Article/details/7431311.shtml)
-- 2026-06-29 14:07 - [中餐厅南北饮食差异](http://www.blog.minike.top/Article/details/180574594297.shtml)
-- 2026-06-29 13:59 - [AG 钟意](http://www.share.minike.top/Article/details/69795294914.shtml)
+- 2026-06-29 14:16 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/8747055.shtml)
+- 2026-06-29 14:25 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/621575128.shtml)
+- 2026-06-29 14:29 - [天道](https://www.share.kurohicncr.top/Article/details/2606655.shtml)
+- 2026-06-29 14:07 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.minike.top/Article/details/0315099.shtml)
+- 2026-06-29 14:20 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/177218363.shtml)
+- 2026-06-29 14:12 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.minike.top/Article/details/71899609.shtml)
+- 2026-06-29 14:09 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/929404194429.shtml)
+- 2026-06-29 14:22 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/8828559082.shtml)
+- 2026-06-29 14:00 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/903018293117.shtml)
+- 2026-06-29 14:13 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://www.blog.kurohicncr.top/Article/details/83053.shtml)
+- 2026-06-29 14:02 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.share.kurohicncr.top/Article/details/958110504570.shtml)
+- 2026-06-29 14:29 - [金价银价下跌 油价上涨](http://www.blog.kurohicncr.top/Article/details/280017.shtml)
+- 2026-06-29 14:00 - [T1 vs KC MSI](https://www.blog.kurohicncr.top/Article/details/23627.shtml)
+- 2026-06-29 14:27 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/73372689288.shtml)
+- 2026-06-29 14:01 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/138025.shtml)

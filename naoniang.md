@@ -1,54 +1,47 @@
-# Alphabet将通过股权融资筹集800亿美元 用于人工智能支出
+# 天津市城市管理委员会原党组成员翟家常接受审查调查
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-谷歌母公司Alphabet Inc．正通过股权融资筹集800亿美元资金，其中包括与伯克希尔达成的一项投资交易，以支持其雄心勃勃的人工智能支出计划。 Alphabet周一在声明中称，这项融资安排包括300亿美元承销公开发行，以及400亿美元按市价发行（ATM）。作为此次融资安排的一部分，伯克希尔将通过私募配售方式购买100亿美元股票。 “人工智能正推动Alphabet迎来一个扩张
+中新网4月27日电 据天津市纪委监委消息，天津市城市管理委员会原党组成员，原天津市城市公用事业管理局党组书记、局长翟家常涉嫌严重违纪违法，目前正接受天津市纪委监委纪律审查和监察调查。
 
 ## 正文
 
-谷歌母公司Alphabet Inc．正通过股权融资筹集800亿美元资金，其中包括与伯克希尔达成的一项投资交易，以支持其雄心勃勃的人工智能支出计划。
-
-Alphabet周一在声明中称，这项融资安排包括300亿美元承销公开发行，以及400亿美元按市价发行（ATM）。
-
-作为此次融资安排的一部分，伯克希尔将通过私募配售方式购买100亿美元股票。
-
-“人工智能正推动Alphabet迎来一个扩张性时刻，”该公司在声明中称，“通过扩大投资规模，公司拟扩展其基础性基础设施，以支持未来的重大增长机遇。
-
-” Alphabet表示，高盛集团、摩根大通和摩根士丹利将担任承销发行的联席账簿管理人。
-
-责任编辑：丁文武
+中新网4月27日电 据天津市纪委监委消息，天津市城市管理委员会原党组成员，原天津市城市公用事业管理局党组书记、局长翟家常涉嫌严重违纪违法，目前正接受天津市纪委监委纪律审查和监察调查。
 
 ## 相关推荐
 
-- 2026-06-29 14:21 - [异世界一点都不好玩！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
-- 2026-06-29 14:16 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 14:17 - [日本前锋言论激怒巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 14:16 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-29 14:00 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zenxuan.md)
-- 2026-06-29 14:01 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 14:13 - [海军舰艇编队将赴香港](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 13:58 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jici.md)
-- 2026-06-29 13:56 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdcvn.md)
-- 2026-06-29 14:04 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 14:09 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pandeng.md)
-- 2026-06-29 14:00 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
+- 2026-06-29 14:15 - [曾沛慈夺冠后人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-29 14:16 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 14:19 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-29 14:13 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/abzmc.md)
+- 2026-06-29 14:26 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wankou.md)
+- 2026-06-29 14:00 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-29 14:07 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-29 14:01 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 14:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-29 14:07 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-29 14:07 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
+- 2026-06-29 14:06 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/spooc.md)
+- 2026-06-29 14:08 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
+- 2026-06-29 14:01 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/howin.md)
+- 2026-06-29 14:18 - [媒体：高考后消费应量力而行适度有度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/6678370.shtml)
-- 2026-06-29 13:56 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/56478.shtml)
-- 2026-06-29 14:14 - [如果你一直单身，你准备怎么养老？](http://www.share.minike.top/Article/details/98562316594.shtml)
-- 2026-06-29 14:11 - [世界杯用球成部分门将噩梦](https://www.share.minike.top/Article/details/943491304.shtml)
-- 2026-06-29 14:16 - [高市早苗口齿不清被质疑醉酒](http://www.share.kurohicncr.top/Article/details/359737175.shtml)
-- 2026-06-29 13:55 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/791846574.shtml)
-- 2026-06-29 14:14 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://www.blog.minike.top/Article/details/530691.shtml)
-- 2026-06-29 14:16 - [加拿大92分钟绝杀成世界杯首个16强](http://www.blog.minike.top/Article/details/875493118137.shtml)
-- 2026-06-29 14:20 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/645429.shtml)
-- 2026-06-29 14:06 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/81860995.shtml)
-- 2026-06-29 13:58 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.kurohicncr.top/Article/details/72293914936.shtml)
-- 2026-06-29 13:59 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.kurohicncr.top/Article/details/0960692953.shtml)
-- 2026-06-29 14:13 - [吴建豪宣布再婚](http://www.share.minike.top/Article/details/49398929.shtml)
-- 2026-06-29 14:02 - [王楚钦欢迎晚宴上打台球](https://www.share.minike.top/Article/details/346504847673.shtml)
-- 2026-06-29 14:04 - [韩国政府将对世界杯出局追责](https://www.blog.minike.top/Article/details/91805005.shtml)
+- 2026-06-29 14:21 - [我国多领域发布亮眼“成绩单”](http://www.share.kurohicncr.top/Article/details/410784991769.shtml)
+- 2026-06-29 14:08 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.blog.kurohicncr.top/Article/details/696631.shtml)
+- 2026-06-29 14:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.blog.kurohicncr.top/Article/details/7045511.shtml)
+- 2026-06-29 14:02 - [中方将20家日本实体列入出口管制名单](https://www.share.kurohicncr.top/Article/details/23055451503.shtml)
+- 2026-06-29 14:21 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/5280739932.shtml)
+- 2026-06-29 14:25 - [新一代影后杨紫](https://www.share.minike.top/Article/details/7409570.shtml)
+- 2026-06-29 14:01 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.minike.top/Article/details/811460.shtml)
+- 2026-06-29 14:20 - [TOP 无畏契约](http://www.blog.minike.top/Article/details/047964095849.shtml)
+- 2026-06-29 14:17 - [DSpark论文深度解读](https://www.share.kurohicncr.top/Article/details/5311691008.shtml)
+- 2026-06-29 14:23 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/97410.shtml)
+- 2026-06-29 14:18 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/764363.shtml)
+- 2026-06-29 14:09 - [女孩遭霸凌网上认文身大哥求庇护](http://www.share.kurohicncr.top/Article/details/1408258.shtml)
+- 2026-06-29 14:22 - [高考志愿今起开始填报](https://www.blog.minike.top/Article/details/10823267385.shtml)
+- 2026-06-29 14:23 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/27229088578.shtml)
+- 2026-06-29 14:20 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/81351995.shtml)

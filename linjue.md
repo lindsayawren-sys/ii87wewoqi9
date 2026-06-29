@@ -1,56 +1,58 @@
-# （走进中国乡村）广西小镇深山温泉成湾区“心头好”
+# 水法迎修订 拟严格规范涉河建设项目和河道采砂
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新社广西贺州6月1日电 题：广西小镇深山温泉成湾区“心头好” 作者 张广权 “以前温泉水就是用来洗衣洗菜，哪想到如今成了‘金泉水’。”站在自家改造一新的民宿门前，广西贺州市八步区南乡镇西溪寨村民韦素琴说。 几年前，韦素琴还是广东一家工厂的流水线工人。如今，她返乡创业，年收入达数十万元人民币。改变她生活的，正是当地汩汩流淌了千百年的温泉。 南乡镇地处贺州市东部，与广东接壤，是典
+中新网北京4月27日电(记者 郭超凯 李京泽)中华人民共和国水法修订草案27日提请十四届全国人大常委会审议。修订草案专设“江河、湖泊管理与保护”一章，拟严格规范涉河建设项目和河道采砂。 修订草案规定，建设涉河建设项目不得威胁堤防安全、影响河势稳定、擅自改变水域和滩地用途、降低行洪和调蓄能力、缩小水域面积；明确禁止运输、收购、销售未依法取得河道采砂许可的单位、个人开采的河道砂石土
 
 ## 正文
 
-中新社广西贺州6月1日电 题：广西小镇深山温泉成湾区“心头好” 作者 张广权 “以前温泉水就是用来洗衣洗菜，哪想到如今成了‘金泉水’。
+中新网北京4月27日电(记者 郭超凯 李京泽)中华人民共和国水法修订草案27日提请十四届全国人大常委会审议。
 
-”站在自家改造一新的民宿门前，广西贺州市八步区南乡镇西溪寨村民韦素琴说。
+修订草案专设“江河、湖泊管理与保护”一章，拟严格规范涉河建设项目和河道采砂。
 
-几年前，韦素琴还是广东一家工厂的流水线工人。
+修订草案规定，建设涉河建设项目不得威胁堤防安全、影响河势稳定、擅自改变水域和滩地用途、降低行洪和调蓄能力、缩小水域面积；明确禁止运输、收购、销售未依法取得河道采砂许可的单位、个人开采的河道砂石土。
 
-如今，她返乡创业，年收入达数十万元人民币。
+修订草案明确，国家实行水资源刚性约束制度，加强对水资源的保护，鼓励合理开发、利用水资源，厉行节约用水，建立健全水资源安全战略储备体系。
 
-改变她生活的，正是当地汩汩流淌了千百年的温泉。
+修订草案强化江河、湖泊生态用水保障，规定合理确定江河、湖泊生态流量管控指标和水工程生态流量泄放指标，建设水工程应当满足生态流量泄放要求；加强饮用水水源地管理和保护，规定制定饮用水水源地名录，定期组织开展饮用水水源地安全评估。
 
-南乡镇地处贺州市东部，与广东接壤，是典型的山区乡镇。
+修订草案还增加“保障农业农村优先发展用水需求”的表述，将保障粮食安全放在优先位置，着眼于提升农业综合生产能力和质量效益，充实关于农田水利、灌排水体系建设、调动农民兴办水利积极性等内容，打通农田灌溉“最后一公里”。
 
-这里分布着五处主要温泉，每日可开采量超过5000立方米，水温常年保持在50摄氏度以上，却长期“藏在深山人未识”。
-
-村民们世代用温泉水洗衣、洗菜，从未想过这些“热水”能改变生活。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quxaf.md)
-- 2026-06-29 14:18 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngums.md)
-- 2026-06-29 13:58 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heoen.md)
-- 2026-06-29 13:56 - [U17男篮世界杯：中国78-87不敌加拿大](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 14:14 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqagb.md)
-- 2026-06-29 13:55 - [双高胎](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nongzhan.md)
-- 2026-06-29 14:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 14:05 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-29 14:20 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 14:06 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 14:04 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-29 14:00 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 14:03 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-29 14:04 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-29 14:07 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-29 14:11 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foqiang.md)
+- 2026-06-29 14:12 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
+- 2026-06-29 14:09 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 14:04 - [Mrbeast的30天不吃饭挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-29 14:11 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 14:23 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-29 14:06 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-29 14:29 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
+- 2026-06-29 14:08 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [央视起底直播诈骗连环套](http://www.blog.minike.top/Article/details/594678.shtml)
-- 2026-06-29 14:21 - [女生雨天开车发现雨刮条被掰走](https://www.blog.kurohicncr.top/Article/details/915787264146.shtml)
-- 2026-06-29 14:21 - [T1 vs KC MSI](http://www.share.minike.top/Article/details/3085851584.shtml)
-- 2026-06-29 13:55 - [游戏数据被用于军事目的 国安部提醒](http://www.share.kurohicncr.top/Article/details/754824866.shtml)
-- 2026-06-29 14:16 - [多只A股发布股价异动公告](https://www.blog.kurohicncr.top/Article/details/611490918.shtml)
-- 2026-06-29 13:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/0081501.shtml)
-- 2026-06-29 14:19 - [韩国队启程回国众将回避镜头](https://www.blog.kurohicncr.top/Article/details/430494.shtml)
-- 2026-06-29 14:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/641702524810.shtml)
-- 2026-06-29 13:56 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/82273.shtml)
-- 2026-06-29 13:57 - [委内瑞拉地震死亡人数升至1450人](http://www.blog.minike.top/Article/details/88090.shtml)
-- 2026-06-29 14:21 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/63541705783.shtml)
-- 2026-06-29 14:00 - [恋与深空失控领地](http://www.blog.minike.top/Article/details/707935872993.shtml)
-- 2026-06-29 14:14 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.kurohicncr.top/Article/details/3475660.shtml)
-- 2026-06-29 14:08 - [锐评浪姐7总决赛](http://www.share.kurohicncr.top/Article/details/5741208.shtml)
-- 2026-06-29 13:57 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/08348.shtml)
+- 2026-06-29 14:24 - [韩国队被淘汰痛失11亿韩元巨奖](https://www.share.minike.top/Article/details/5648575.shtml)
+- 2026-06-29 14:10 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/018775.shtml)
+- 2026-06-29 14:22 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/49592408.shtml)
+- 2026-06-29 14:16 - [金牌调解](http://www.share.kurohicncr.top/Article/details/2727646933.shtml)
+- 2026-06-29 14:22 - [北极荒岛生存挑战](http://www.blog.kurohicncr.top/Article/details/13219498.shtml)
+- 2026-06-29 14:19 - [王楚钦 表演球擦网](https://www.share.kurohicncr.top/Article/details/36290140.shtml)
+- 2026-06-29 14:19 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/4408276.shtml)
+- 2026-06-29 14:26 - [四川宜宾地震](http://www.blog.minike.top/Article/details/532942853221.shtml)
+- 2026-06-29 14:19 - [灿如繁星定档](http://www.share.minike.top/Article/details/200818123.shtml)
+- 2026-06-29 14:23 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/556469638699.shtml)
+- 2026-06-29 14:20 - [外网预言中国举办世界杯时间](https://www.blog.minike.top/Article/details/25588.shtml)
+- 2026-06-29 14:01 - [拄拐少年高考663分：用行动回报社会](https://www.share.minike.top/Article/details/989362.shtml)
+- 2026-06-29 14:05 - [小娘惹](http://www.share.kurohicncr.top/Article/details/47029207458.shtml)
+- 2026-06-29 14:12 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.share.kurohicncr.top/Article/details/22686209534.shtml)
+- 2026-06-29 14:25 - [恋与深空评分暴跌至1.8](http://www.blog.minike.top/Article/details/590762162.shtml)

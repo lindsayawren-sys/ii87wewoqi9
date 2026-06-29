@@ -1,56 +1,59 @@
-# 中国起诉性侵害未成年人犯罪近五年首次下降
+# 阿联酋向巴基斯坦追讨35亿美元 分析认为巴基斯坦调解身份“惹恼”阿联酋
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新社北京6月1日电 (记者 张素)中国最高人民检察院6月1日发布《未成年人检察工作白皮书(2025)》(下称“白皮书”)。其中显示，2025年全国检察机关起诉强奸、猥亵儿童等性侵害未成年人犯罪42873人，同比下降5.5%，系近五年首次下降。白皮书称，最高人民检察院密切关注犯罪态势变化，对2020年以来检察机关办理的性侵害未成年人犯罪案件情况进行专题调研，会同最高人民法院、教
+在资金紧张的巴基斯坦试图调解结束美国-以色列对伊朗的战争之际，阿联酋向其长期盟友提出了一项令人震惊的要求——立即偿还35亿美元。 阿布扎比本月提出的这一要求，可能会消耗巴基斯坦央行五分之一的外汇储备，并危及2024年达成的70亿美元国际货币基金组织（IMF）纾困计划。去年与伊斯兰堡签署了共同防御协议的沙特阿拉伯出手救援，提供了30亿美元的新央行存款，并将现有的50亿美元存款展期
 
 ## 正文
 
-中新社北京6月1日电 (记者 张素)中国最高人民检察院6月1日发布《未成年人检察工作白皮书(2025)》(下称“白皮书”)。
+在资金紧张的巴基斯坦试图调解结束美国-以色列对伊朗的战争之际，阿联酋向其长期盟友提出了一项令人震惊的要求——立即偿还35亿美元。
 
-其中显示，2025年全国检察机关起诉强奸、猥亵儿童等性侵害未成年人犯罪42873人，同比下降5.5%，系近五年首次下降。
+阿布扎比本月提出的这一要求，可能会消耗巴基斯坦央行五分之一的外汇储备，并危及2024年达成的70亿美元国际货币基金组织（IMF）纾困计划。
 
-白皮书称，最高人民检察院密切关注犯罪态势变化，对2020年以来检察机关办理的性侵害未成年人犯罪案件情况进行专题调研，会同最高人民法院、教育部、公安部等16部门出台《关于依法从严惩处和防范性侵害未成年人违法犯罪的意见》，指导各地一体推进线索发现、从严惩处、保护救助、综合治理和预防教育等工作。
+去年与伊斯兰堡签署了共同防御协议的沙特阿拉伯出手救援，提供了30亿美元的新央行存款，并将现有的50亿美元存款展期超过一年。
 
-白皮书提到，对奸淫幼女、教师性侵未成年学生等案件，检察机关坚决依法严惩。
+分析人士表示，阿布扎比的决定反映出其对伊斯兰堡日益不满。
 
-最高人民检察院调卷审查湖南刘某某强奸案，认为原生效判决量刑不当，依法督促监督纠正，法院启动再审，刘某某从有期徒刑六年被改判有期徒刑八年。
+查塔姆研究所副研究员Neil Quilliam表示，巴基斯坦在美国对伊朗战争中扮演调解者的角色也惹恼了这个海湾国家，因为阿联酋“目前看待事物是非黑即白的”。
 
-各地检察机关抗诉改判性侵害未成年人犯罪案件260余件。
+“（从阿联酋的角度看）这里面没有中立可言，没有中间立场。
 
-白皮书还称，对组织、强迫、引诱、容留、介绍未成年人卖淫，组织未成年人有偿陪侍犯罪，持续加大打击力度。
+如果你在调解，那你恰好就处于中间立场，”他说。
 
-6月1日发布的《北京未成年人检察工作实践与探索(2021—2025)》称，北京检察机关依法从严惩治侵害未成年人犯罪，特别是强奸、猥亵，组织、强迫、引诱、容留、介绍卖淫等性侵害未成年人犯罪，100%提前介入侦查引导取证，准确把握性侵害未成年人案件的证据审查判断和证明标准，严厉打击组织未成年人进行有偿陪侍等活动，依法提出从业禁止、禁止令等建议。
+其背后是去年9月与伊斯兰堡签署防务协议的沙特阿拉伯与阿联酋之间日益紧张的局势。
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [一见倾心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 14:04 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 14:11 - [papi酱自曝曾因尝试21天减肥法患病](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-29 14:07 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
-- 2026-06-29 14:10 - [亚洲成世界杯最大失意者联盟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunkou.md)
-- 2026-06-29 14:07 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egpxz.md)
-- 2026-06-29 14:17 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
-- 2026-06-29 14:23 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sslys.md)
-- 2026-06-29 14:10 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 14:11 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 14:08 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
+- 2026-06-29 14:15 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
+- 2026-06-29 14:27 - [光与夜之恋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
+- 2026-06-29 14:16 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-29 14:20 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-29 14:19 - [papi酱回应毕业4年零收入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 14:15 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
+- 2026-06-29 14:25 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbphc.md)
+- 2026-06-29 14:05 - [韩国队出局是因为内讧吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/vctwx.md)
+- 2026-06-29 14:16 - [中国避暑神器在欧洲卖爆了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
+- 2026-06-29 14:25 - [袁隆平院士 不容诋毁！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-29 14:23 - [张一山回应与杨紫友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-29 14:22 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [巴基斯坦军方打死29名武装分子](https://www.blog.minike.top/Article/details/4116263.shtml)
-- 2026-06-29 14:17 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/10629.shtml)
-- 2026-06-29 14:11 - [海军舰艇编队将赴香港](http://www.share.kurohicncr.top/Article/details/58529512.shtml)
-- 2026-06-29 14:05 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/923977599.shtml)
-- 2026-06-29 13:59 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/55414242.shtml)
-- 2026-06-29 13:54 - [这开放世界游戏，竟然允许玩家屠城？](https://www.share.kurohicncr.top/Article/details/85002.shtml)
-- 2026-06-29 14:06 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/86856047.shtml)
-- 2026-06-29 14:18 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.kurohicncr.top/Article/details/7202256.shtml)
-- 2026-06-29 14:13 - [加拿大92分钟绝杀成世界杯首个16强](http://www.share.minike.top/Article/details/7172021.shtml)
-- 2026-06-29 14:02 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/32420155866.shtml)
-- 2026-06-29 14:04 - [周生如故](http://www.share.kurohicncr.top/Article/details/484626279.shtml)
-- 2026-06-29 13:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/3956999528.shtml)
-- 2026-06-29 14:23 - [美国近12万名科技员工被解雇](http://www.share.kurohicncr.top/Article/details/22019596.shtml)
-- 2026-06-29 14:16 - [曾沛慈夺冠后和姐妹齐聚庆功宴](http://www.blog.minike.top/Article/details/39676695.shtml)
-- 2026-06-29 13:54 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/919323026.shtml)
+- 2026-06-29 14:16 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/07376743342.shtml)
+- 2026-06-29 14:27 - [披荆斩棘的哥哥](https://www.blog.minike.top/Article/details/360971.shtml)
+- 2026-06-29 14:21 - [流金岁月](http://www.share.minike.top/Article/details/7909983265.shtml)
+- 2026-06-29 14:05 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](http://www.share.minike.top/Article/details/462444.shtml)
+- 2026-06-29 14:04 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/189691267462.shtml)
+- 2026-06-29 14:23 - [周生如故](http://www.share.kurohicncr.top/Article/details/460236457.shtml)
+- 2026-06-29 14:09 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.minike.top/Article/details/7834747.shtml)
+- 2026-06-29 14:07 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/17081037517.shtml)
+- 2026-06-29 14:15 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.blog.kurohicncr.top/Article/details/23550980930.shtml)
+- 2026-06-29 14:06 - [吴建豪老婆](http://www.share.minike.top/Article/details/109252574.shtml)
+- 2026-06-29 14:06 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/8016908861.shtml)
+- 2026-06-29 14:29 - [女生雨天开车发现雨刮条被掰走](https://www.blog.minike.top/Article/details/226996339.shtml)
+- 2026-06-29 14:28 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/404962831.shtml)
+- 2026-06-29 14:28 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://www.share.kurohicncr.top/Article/details/12108921700.shtml)
+- 2026-06-29 14:08 - [千与千寻](http://www.share.minike.top/Article/details/196976068.shtml)

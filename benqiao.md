@@ -1,57 +1,59 @@
-# 实力网文作家携全新长篇《剑烛大荒》回归 讲述后《山海经》故事
+# 高盛：中国市场值得“稳定溢价”
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 应妮)四川省作家协会副主席袁野(网名“爱潜水的乌贼”)携全新长篇力作回归，新书《剑烛大荒》日前正式登陆平台，凭借超高人气成为今年网络文学市场最受瞩目的作品之一。 作为阅文集团白金作家，袁野推出的全新作品拥有扎实的创作积淀与世界观设定。小说以经典神话《山海经》为核心世界观骨架，依托上古颛顼“绝地天通”的神话典故，构建出独一无二的“后山海”武侠江湖设定
+华尔街见闻 高盛认为，在全球宏观不确定性持续高企的当下，中国资产的低波动、政策可预期性以及结构性转型红利，正在构成一种可量化的“稳定溢价”。对于寻求组合避险属性的投资者，中国国债与人民币资产的防御价值值得重新审视；而出口链中的新能源“新三样”，以及受益于产业升级的制造业和生产性服务业，则是结构性受益方向。 当全球市场在中东冲突与能源价格飙升的双重压力下剧烈震荡之际，中国资产却展
 
 ## 正文
 
-中新网北京6月1日电 (记者 应妮)四川省作家协会副主席袁野(网名“爱潜水的乌贼”)携全新长篇力作回归，新书《剑烛大荒》日前正式登陆平台，凭借超高人气成为今年网络文学市场最受瞩目的作品之一。
+华尔街见闻 高盛认为，在全球宏观不确定性持续高企的当下，中国资产的低波动、政策可预期性以及结构性转型红利，正在构成一种可量化的“稳定溢价”。
 
-作为阅文集团白金作家，袁野推出的全新作品拥有扎实的创作积淀与世界观设定。
+对于寻求组合避险属性的投资者，中国国债与人民币资产的防御价值值得重新审视；而出口链中的新能源“新三样”，以及受益于产业升级的制造业和生产性服务业，则是结构性受益方向。
 
-小说以经典神话《山海经》为核心世界观骨架，依托上古颛顼“绝地天通”的神话典故，构建出独一无二的“后山海”武侠江湖设定。
+当全球市场在中东冲突与能源价格飙升的双重压力下剧烈震荡之际，中国资产却展现出令人瞩目的稳定性——高盛认为，这种稳定性本身正在成为一种值得定价的溢价。
 
-作品将古帝传承、异兽血脉、巫祝玄学三条核心脉络交织并行，搭建起层次丰富、风格苍茫的全新江湖体系。
+在4月24日发布的报告中，高盛将中国的稳定归纳成三个“稳定”：稳定的增长、稳定的市场、稳定的政策。
 
-谈及新书灵感缘起，作家透露，后《山海经》的核心设定在心中已沉淀多年，经过长期打磨与反复构思，逐步优化完善整体设定体系，最终打磨出这部《剑烛大荒》。
+在全球宏观不确定性持续高企的当下，中国资产的低波动、政策可预期性以及结构性转型红利，正在构成一种可量化的“稳定溢价”。
 
-“以往作品穿越主角大多是年轻人，这次是个打拼多年的中年人。
+对于寻求组合避险属性的投资者，中国国债与人民币资产的防御价值值得重新审视；而出口链中的新能源“新三样”，以及受益于产业升级的制造业和生产性服务业，则是结构性受益方向。
 
-他穿越之后不再执着于闯荡立业、追逐功名，更向往松弛的修行生活，心态相对佛系淡然。
+人民币与利率的“异类”表现 中国金融市场在外部冲击中展示的韧性引人侧目。
 
-”袁野表示，这一人物设定更贴合当下众多读者的心境和生活状态，许多人在历经得失之后，愈发渴望沉淀自我、找回本心，这也是他塑造该角色的初衷。
+自2月底以来，当多数亚欧石油进口新兴市场货币因贸易条件恶化而大幅贬值之际，人民币不仅对美元升值，对贸易加权汇率的表现甚至超越美元本身。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [日本主帅：对战胜巴西很有信心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qunrun.md)
-- 2026-06-29 14:16 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enqam.md)
-- 2026-06-29 14:00 - [周杰伦演唱会真的好多人啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-29 14:02 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 13:59 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
-- 2026-06-29 14:17 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 14:10 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-29 13:59 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 14:02 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chvnj.md)
-- 2026-06-29 14:12 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khfgs.md)
-- 2026-06-29 14:17 - [金价银价下跌 油价上涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 14:03 - [普京：俄面临命运攸关时刻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 14:06 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-29 14:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
+- 2026-06-29 14:21 - [昆仑芯拟在港上市 目标估值500亿美元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
+- 2026-06-29 14:26 - [曾沛慈夺冠后和姐妹齐聚庆功宴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 14:09 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengmang.md)
+- 2026-06-29 14:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-29 14:00 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
+- 2026-06-29 14:20 - [直击宜宾地震：监控剧烈摇晃](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-29 14:26 - [韩国拟将部分刑责年龄降至13岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 14:23 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/angshan.md)
+- 2026-06-29 14:16 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 14:13 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://www.share.minike.top/Article/details/22966074.shtml)
-- 2026-06-29 13:58 - [运20飞机列装空军十周年](https://www.blog.kurohicncr.top/Article/details/351723.shtml)
-- 2026-06-29 14:03 - [中国避暑神器在欧洲卖爆了](http://www.share.minike.top/Article/details/44054965.shtml)
-- 2026-06-29 13:56 - [金牌调解](https://www.blog.minike.top/Article/details/00134906590.shtml)
-- 2026-06-29 14:21 - [内马尔世界杯期间豪购百万美元腕表](https://www.blog.kurohicncr.top/Article/details/4409857.shtml)
-- 2026-06-29 14:20 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/684391884.shtml)
-- 2026-06-29 14:07 - [陈靖可虞书欣领衔主演](http://www.share.kurohicncr.top/Article/details/89037.shtml)
-- 2026-06-29 14:03 - [在委侨团负责人：家乡的帮助很及时](http://www.share.kurohicncr.top/Article/details/4089888.shtml)
-- 2026-06-29 14:08 - [这一刀 会很帅](http://www.share.minike.top/Article/details/57927347.shtml)
-- 2026-06-29 14:18 - [王楚钦3-0周启豪 晋级32强](http://www.share.minike.top/Article/details/708378216.shtml)
-- 2026-06-29 13:58 - [五哈和他们的朋友](http://www.share.kurohicncr.top/Article/details/465664.shtml)
-- 2026-06-29 14:17 - [日本主帅：目标是冠军](http://www.blog.minike.top/Article/details/308804792810.shtml)
-- 2026-06-29 14:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.kurohicncr.top/Article/details/040568.shtml)
-- 2026-06-29 14:18 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/655461949.shtml)
-- 2026-06-29 14:06 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/08092.shtml)
+- 2026-06-29 14:25 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/656597.shtml)
+- 2026-06-29 14:04 - [俄军新型无人机战力如何](https://www.blog.kurohicncr.top/Article/details/6212362.shtml)
+- 2026-06-29 14:29 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](https://www.blog.minike.top/Article/details/291513.shtml)
+- 2026-06-29 14:01 - [巴西德国15次闯进世界杯淘汰赛](http://www.share.minike.top/Article/details/605274.shtml)
+- 2026-06-29 14:03 - [韩国队启程回国众将回避镜头](https://www.blog.minike.top/Article/details/0247901546.shtml)
+- 2026-06-29 14:01 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/5309418.shtml)
+- 2026-06-29 14:16 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/4057241731.shtml)
+- 2026-06-29 14:26 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/991502409.shtml)
+- 2026-06-29 14:11 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/430896141.shtml)
+- 2026-06-29 14:16 - [吴磊爱上回收了](https://www.share.kurohicncr.top/Article/details/1419882710.shtml)
+- 2026-06-29 14:22 - [女孩遭霸凌网上认文身大哥求庇护](https://www.share.minike.top/Article/details/575045.shtml)
+- 2026-06-29 14:01 - [韩国国脚每人获35.5万奖金](https://www.share.minike.top/Article/details/09020402837.shtml)
+- 2026-06-29 14:27 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/724103305.shtml)
+- 2026-06-29 14:23 - [加拿大女球迷玩人浪把手机甩飞](https://www.blog.kurohicncr.top/Article/details/140260292.shtml)
+- 2026-06-29 14:01 - [2025年人口增长10强城市出炉](http://www.share.minike.top/Article/details/1230999001.shtml)

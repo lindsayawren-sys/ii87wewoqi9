@@ -1,59 +1,57 @@
-# 外资一致看好A股，沪深300ETF华泰柏瑞（510300） 低费率布局A股核心资产
+# 广西北海聚力打造产业集群 向海经济多点突破
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。 作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。Wind与交易所最新数据显示，截至2026年5月28日，该产
+中新网北海4月28日电 题：广西北海聚力打造产业集群 向海经济多点突破 作者 翟李强 4月的北部湾畔，春潮涌动。走进广西北海铁山港区广西蓝水海洋能源装备制造项目生产基地，工人们正在生产车间拼板焊接区开展切割、焊接作业；码头上一个个数十米高的海上风电导管架整齐排列，静待装船，将被运往广东的一个海上风电场。 坐拥得天独厚的海洋岸线资源、优质临港产业区位双重禀赋，北海市近年来主要在铁
 
 ## 正文
 
-在全球资金重新寻找确定性资产的背景下，高盛、瑞银、摩根士丹利、摩根大通等多家外资机构近期同步上调对中国资产的预期，认为A股仍具备进一步上行空间。
+中新网北海4月28日电 题：广西北海聚力打造产业集群 向海经济多点突破 作者 翟李强 4月的北部湾畔，春潮涌动。
 
-中国经济展现韧性、企业盈利持续修复、人民币资产吸引力提升，共同推动全球资金回流中国。
+走进广西北海铁山港区广西蓝水海洋能源装备制造项目生产基地，工人们正在生产车间拼板焊接区开展切割、焊接作业；码头上一个个数十米高的海上风电导管架整齐排列，静待装船，将被运往广东的一个海上风电场。
 
-作为A股市场规模居首的ETF产品，沪深300ETF华泰柏瑞（510300） 交投尤为活跃。
+坐拥得天独厚的海洋岸线资源、优质临港产业区位双重禀赋，北海市近年来主要在铁山港布局海工装备产业，产业集群规模持续扩容。
 
-Wind与交易所最新数据显示，截至2026年5月28日，该产品基金规模达1380.49亿元，单日资金净流入3.53亿元，5月以来日均成交额高达58.90亿元，流动性优势突出。
+计划总投资210亿元的北海三峡海上风电国际产业园，规划建设涵盖科技研发平台、高端装备制造、运维服务、产业配套等全产业链体系。
 
-外资机构明确看多，沪深300指数目标空间可观。
+广西蓝水海洋能源装备制造项目是北海三峡海上风电国际产业园首个落地项目，主要建设大型石油和天然气海洋开采平台装备、LNG模块、海上风电升压站、换流站、漂浮式基础、导管架、海洋牧场等海洋工程高端装备，与金风科技、东方电缆等一批企业在北海共同构筑起日益完整的产业链，本地配套率超80%。
 
-在5月策略报告中，高盛继续维持对中国股市的“超配”评级，并将沪深300指数未来12个月目标位上调至5300点，同时将A股2026年盈利增速预测上调至20%。
+在这样的产业布局下，广西蓝水海洋能源装备制造项目基地配置了2400吨级门式发运起重机，以及2万吨级一站式发运港池，从装备制造到开发运维，一条完整的海上风电产业链正在铁山港加速成型。
 
-沪深300指数是A股市场的核心风向标之一。
+目前全球单机容量最大的漂浮式海上风电平台近日已从铁山港运出，在广东阳江青洲海上风电场水域安装。
 
-其成分股构建了“科技+金融+能源+消费”的均衡框架，兼具多条景气主线，既是海内外机构长期持有的底仓配置工具，也是震荡行情中攻守兼备的优质资产。
+“我们计划今年再新增一台3600吨级门式发运起重机，以后我们生产的产品会越来越大、越来越重。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-29 14:03 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnitj.md)
-- 2026-06-29 14:23 - [7月1日起一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-29 14:19 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 13:55 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
-- 2026-06-29 14:06 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liqtx.md)
-- 2026-06-29 14:18 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
-- 2026-06-29 14:15 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-29 13:54 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
-- 2026-06-29 14:03 - [农发行总行专家委员会委员杜晓力被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 14:03 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaoba.md)
-- 2026-06-29 14:13 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-29 14:22 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-29 14:13 - [陈靖可虞书欣领衔主演](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 14:05 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 14:06 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
+- 2026-06-29 14:21 - [恋与深空失控领地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qsdsw.md)
+- 2026-06-29 14:07 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duiduan.md)
+- 2026-06-29 14:19 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 14:24 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
+- 2026-06-29 14:15 - [恋与深空底线不该被娱乐化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
+- 2026-06-29 14:02 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-29 14:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
+- 2026-06-29 14:00 - [吴海燕兰西雅漫步复兴岛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [周杰伦演唱会真的好多人啊](http://www.share.kurohicncr.top/Article/details/15215960259.shtml)
-- 2026-06-29 13:57 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/906857213.shtml)
-- 2026-06-29 13:57 - [韩国国脚每人获35.5万奖金](http://www.share.minike.top/Article/details/831160.shtml)
-- 2026-06-29 14:06 - [papi酱自曝曾因尝试21天减肥法患病](http://www.blog.kurohicncr.top/Article/details/869488913213.shtml)
-- 2026-06-29 14:22 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/37560.shtml)
-- 2026-06-29 14:17 - [吴磊爱上回收了](http://www.share.minike.top/Article/details/60947735.shtml)
-- 2026-06-29 13:58 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/62386157.shtml)
-- 2026-06-29 14:08 - [专家建议城乡居民养老金增至每月千元](https://www.blog.minike.top/Article/details/5138446024.shtml)
-- 2026-06-29 14:12 - [87克大金链到老庙黄金维修少了11克](https://www.share.minike.top/Article/details/468760.shtml)
-- 2026-06-29 14:07 - [如何“亲菌子”又“远小人儿”](https://www.blog.kurohicncr.top/Article/details/174497.shtml)
-- 2026-06-29 14:19 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.blog.kurohicncr.top/Article/details/4596353016.shtml)
-- 2026-06-29 14:04 - [杨紫下沉市场口碑](https://www.blog.kurohicncr.top/Article/details/75522.shtml)
-- 2026-06-29 14:03 - [复盘曾沛慈浪姐夺冠之路](https://www.blog.kurohicncr.top/Article/details/030579749878.shtml)
-- 2026-06-29 14:23 - [赵露思爸爸拍vlog“翻车”](http://www.share.minike.top/Article/details/105572106.shtml)
-- 2026-06-29 14:07 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.kurohicncr.top/Article/details/272439.shtml)
+- 2026-06-29 14:24 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/334538061.shtml)
+- 2026-06-29 14:18 - [沙丘](http://www.share.minike.top/Article/details/0969929646.shtml)
+- 2026-06-29 14:04 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/208090729.shtml)
+- 2026-06-29 14:16 - [金刚川](https://www.share.kurohicncr.top/Article/details/5950503543.shtml)
+- 2026-06-29 14:28 - [林昀儒止步美国大满贯首轮](https://www.share.minike.top/Article/details/853373486090.shtml)
+- 2026-06-29 14:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.blog.kurohicncr.top/Article/details/3409727996.shtml)
+- 2026-06-29 14:28 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/275502.shtml)
+- 2026-06-29 14:02 - [我国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/30584768691.shtml)
+- 2026-06-29 14:25 - [在自己家不穿衣服犯法吗](http://www.blog.minike.top/Article/details/7079638.shtml)
+- 2026-06-29 14:15 - [为什么6月以来北方频繁降雨](http://www.share.kurohicncr.top/Article/details/1659534.shtml)
+- 2026-06-29 14:19 - [四川宜宾5.5级地震已致13人轻微伤](https://www.share.kurohicncr.top/Article/details/593588972.shtml)
+- 2026-06-29 14:29 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/86046.shtml)
+- 2026-06-29 14:01 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/54925658247.shtml)
+- 2026-06-29 14:06 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.kurohicncr.top/Article/details/76744415197.shtml)
+- 2026-06-29 14:19 - [昆仑芯拟在港上市 目标估值500亿美元](https://www.blog.kurohicncr.top/Article/details/51322.shtml)

@@ -1,56 +1,52 @@
-# 英伟达CEO将与韩国企业高管会面，三星、LG股价大涨
+# 日本广岛县一制药厂发生爆炸致5人受伤
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-受英伟达首席执行官黄仁勋即将与韩国企业高管会晤消息提振，市场对双方在人工智能、机器人领域展开合作预期升温，三星电子、LG 电子等韩国科技股周一集体走高。 受人工智能产业热潮推动，韩国 5 月半导体出口额创下历史新高，也带动该国整体出口创下四十余年来最大增幅，这一数据同样利好芯片巨头三星电子。 据知情人士透露，黄仁勋将于本周晚些时候到访韩国，会见 LG 集团会长具光谟及其他韩国企
+中新网东京4月28日电 据日本媒体报道，日本广岛县三次市一家制药厂的储罐28日发生爆炸，造成5人受伤。 日本共同社报道说，当地时间28日11时35分左右，日本有关部门接到储罐爆炸事故的报警电话。5人在事故中受伤送医，其中2人伤势较重。 据广岛电视台报道，事故发生后，当地出动消防车8辆、救护车5辆前往现场，爆炸发生约3小时后，火势被扑灭。(完)
 
 ## 正文
 
-受英伟达首席执行官黄仁勋即将与韩国企业高管会晤消息提振，市场对双方在人工智能、机器人领域展开合作预期升温，三星电子、LG 电子等韩国科技股周一集体走高。
+中新网东京4月28日电 据日本媒体报道，日本广岛县三次市一家制药厂的储罐28日发生爆炸，造成5人受伤。
 
-受人工智能产业热潮推动，韩国 5 月半导体出口额创下历史新高，也带动该国整体出口创下四十余年来最大增幅，这一数据同样利好芯片巨头三星电子。
+日本共同社报道说，当地时间28日11时35分左右，日本有关部门接到储罐爆炸事故的报警电话。
 
-据知情人士透露，黄仁勋将于本周晚些时候到访韩国，会见 LG 集团会长具光谟及其他韩国企业高管。
+5人在事故中受伤送医，其中2人伤势较重。
 
-周一，英伟达还将在台北国际电脑展期间举办 “韩国合作伙伴之夜” 活动，黄仁勋将出席，三星、SK 海力士等芯片企业及其他多家韩国公司高管也将到场。
+据广岛电视台报道，事故发生后，当地出动消防车8辆、救护车5辆前往现场，爆炸发生约3小时后，火势被扑灭。
 
-三星电子股价收涨 10.1%，创下收盘历史新高；LG 电子连续第二个交易日触及 29.9% 单日涨停限制，股价刷新历史纪录。
-
-韩国互联网企业 NAVER 高管本周五也将与黄仁勋会面，其股价大涨 16%。
-
-韩国 KB 证券分析师金杰夫表示：“黄仁勋此次访韩意义重大，英伟达离不开韩国市场。
-
-” 英伟达去年宣布，将向韩国政府及三星电子、现代汽车集团等韩国头部企业供应超 26 万颗旗下顶级人工智能芯片。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 14:20 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
-- 2026-06-29 13:55 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
-- 2026-06-29 14:03 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kloae.md)
-- 2026-06-29 14:17 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-29 13:54 - [韩国主帅洪明甫辞职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
-- 2026-06-29 14:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuokan.md)
-- 2026-06-29 14:01 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/letian.md)
-- 2026-06-29 14:12 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-29 14:02 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
-- 2026-06-29 14:04 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrqkc.md)
+- 2026-06-29 14:10 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-29 14:08 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhanshan.md)
+- 2026-06-29 14:05 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkixu.md)
+- 2026-06-29 14:05 - [美国近12万名科技员工被解雇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqqft.md)
+- 2026-06-29 14:01 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
+- 2026-06-29 14:23 - [运20飞机列装空军十周年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 14:08 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-29 14:04 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuachao.md)
+- 2026-06-29 14:29 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jianghui.md)
+- 2026-06-29 14:26 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 14:08 - [海军舰艇编队将赴香港](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-29 14:09 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:23 - [委内瑞拉地震已致1450死3150伤](https://www.blog.minike.top/Article/details/48195150784.shtml)
-- 2026-06-29 13:55 - [毒液2](https://www.share.kurohicncr.top/Article/details/4362123.shtml)
-- 2026-06-29 14:13 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/4090969907.shtml)
-- 2026-06-29 14:08 - [亚洲成世界杯最大失意者联盟](http://www.share.minike.top/Article/details/42099344.shtml)
-- 2026-06-29 14:08 - [法拉利被当滑梯玩 出现多处划痕](https://www.share.minike.top/Article/details/581781086935.shtml)
-- 2026-06-29 14:00 - [世界杯超牛补水广告出现了](http://www.blog.minike.top/Article/details/822100.shtml)
-- 2026-06-29 13:56 - [美的空调 卡bug](https://www.blog.kurohicncr.top/Article/details/057832360.shtml)
-- 2026-06-29 14:03 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/75510452.shtml)
-- 2026-06-29 14:00 - [2026年Mac能玩游戏了吗](http://www.share.minike.top/Article/details/03388931822.shtml)
-- 2026-06-29 14:06 - [在委侨团负责人：家乡的帮助很及时](https://www.blog.kurohicncr.top/Article/details/510631.shtml)
-- 2026-06-29 14:12 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/9540684.shtml)
-- 2026-06-29 13:59 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/9118295919.shtml)
-- 2026-06-29 13:57 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/487241886.shtml)
-- 2026-06-29 14:00 - [C罗关心罗德里戈伤情](https://www.blog.minike.top/Article/details/841111796185.shtml)
-- 2026-06-29 13:54 - [德国队前往比赛场地遭遇囧途](http://www.blog.minike.top/Article/details/042890735.shtml)
+- 2026-06-29 14:12 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/12995006019.shtml)
+- 2026-06-29 14:05 - [去了一趟潮汕。](https://www.share.minike.top/Article/details/938959.shtml)
+- 2026-06-29 14:23 - [俄称继续推进 乌称打击俄军设施](https://www.blog.minike.top/Article/details/70321.shtml)
+- 2026-06-29 14:28 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.blog.kurohicncr.top/Article/details/558220401.shtml)
+- 2026-06-29 14:16 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/08153.shtml)
+- 2026-06-29 14:02 - [拄拐少年高考663分：用行动回报社会](http://www.share.minike.top/Article/details/35381904777.shtml)
+- 2026-06-29 14:04 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/2451173445.shtml)
+- 2026-06-29 14:19 - [Mrbeast的30天不吃饭挑战](https://www.blog.minike.top/Article/details/5045114.shtml)
+- 2026-06-29 14:23 - [永远保持对人民的赤子之心](https://www.share.kurohicncr.top/Article/details/80891887.shtml)
+- 2026-06-29 14:02 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/08900844.shtml)
+- 2026-06-29 14:11 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/733787258.shtml)
+- 2026-06-29 14:20 - [周深双眼皮贴又掉了](https://www.blog.minike.top/Article/details/02688763444.shtml)
+- 2026-06-29 14:28 - [世界杯：日本将与巴西争夺16强席位](https://www.share.minike.top/Article/details/829216.shtml)
+- 2026-06-29 14:08 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/3060525.shtml)
+- 2026-06-29 14:13 - [王楚钦首轮赢下国乒德比](https://www.blog.minike.top/Article/details/4269828665.shtml)

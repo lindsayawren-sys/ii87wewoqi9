@@ -1,58 +1,61 @@
-# 新一代商业大火箭首飞成功！航空航天ETF华泰柏瑞、通用航空ETF华泰柏瑞助力低位布局商业航天赛道长期机遇
+# 亚马逊与Meta联手扩展AI基础设施，大规模芯片协议落地
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-近期全球商业航天板块情绪整体偏弱，受海外火箭发射事故、市场流传SpaceX估值下调等负面消息影响，行业板块出现阶段性调整。但从产业基本面来看，随着海外利空传闻落地澄清、国内技术成果集中落地、低空经济监管体系持续完善，赛道中长期配置价值仍然受到资金关注。 人气产品——航空航天ETF华泰柏瑞（563380）、通用航空ETF华泰柏瑞（563320）在近期震荡行情中仍吸引资金关注，5月
+亚马逊与Meta达成了一项重磅协议，展现了双方规模化扩展AI基础设施的决心。根据协议，Meta计划部署数千万颗亚马逊自研的Graviton芯片，为其日益庞大的AI系统提供算力支撑。 这些并非普通芯片。最新的Graviton5专为实时推理、搜索及处理复杂多步骤任务等重负载而设计，而这些正成为当前AI应用的核心。随着AI工作负载从训练更多转向部署，CPU正在AI计算中扮演更关键的角
 
 ## 正文
 
-近期全球商业航天板块情绪整体偏弱，受海外火箭发射事故、市场流传SpaceX估值下调等负面消息影响，行业板块出现阶段性调整。
+亚马逊与Meta达成了一项重磅协议，展现了双方规模化扩展AI基础设施的决心。
 
-但从产业基本面来看，随着海外利空传闻落地澄清、国内技术成果集中落地、低空经济监管体系持续完善，赛道中长期配置价值仍然受到资金关注。
+根据协议，Meta计划部署数千万颗亚马逊自研的Graviton芯片，为其日益庞大的AI系统提供算力支撑。
 
-人气产品——航空航天ETF华泰柏瑞（563380）、通用航空ETF华泰柏瑞（563320）在近期震荡行情中仍吸引资金关注，5月以来的19个工作日中分别有16日、14日获资金增持，助推最新基金规模分别达9.13亿元、2.18亿元，流动性优势较突出。
+这些并非普通芯片。
 
-海外航天资本市场情绪已迎来明显修复。
+最新的Graviton5专为实时推理、搜索及处理复杂多步骤任务等重负载而设计，而这些正成为当前AI应用的核心。
 
-针对此前市场热议的SpaceX下调IPO目标估值传闻，马斯克已正式予以否认，有效打消了市场疑虑，行业对这家全球商业航天龙头的上市预期有望再度回归乐观。
+随着AI工作负载从训练更多转向部署，CPU正在AI计算中扮演更关键的角色。
 
-作为史上体量顶级的航天IPO标的，SpaceX万亿级估值预期持续为全球商业航天赛道重塑价值体系，也有望为国内相关产业链带来情绪与估值层面的提振。
+此外，该协议还使Meta的计算资源来源更加多元化，降低了对单一芯片供应商的依赖。
 
-与之形成呼应的是，国内商业航天硬核技术实现新突破，产业商业化、规模化进程提速。
+此举反映了科技巨头们的一个共同趋势：不再仅依赖英伟达GPU，而是积极部署Arm架构的自研CPU，以优化成本与性能。
 
-6月1日，长征十二号乙新型商业运载火箭首飞成功，将千帆星座组网卫星送入预定轨道，全面验证了技术方案与工程可靠性，标志着该型号火箭正式具备商用发射能力。
+深层次看，亚马逊正将自研芯片作为其云服务战略的核心组件。
 
 ## 相关推荐
 
-- 2026-06-29 14:12 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
-- 2026-06-29 14:22 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-29 14:02 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 13:54 - [爱情有烟火你是知道我爱看什么的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
-- 2026-06-29 14:10 - [如何评价韩国主教练洪明甫因韩国队淘汰辞职？你认为换教练能解决韩国队当下的问题吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsxaw.md)
-- 2026-06-29 13:58 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
-- 2026-06-29 14:00 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
-- 2026-06-29 14:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 14:11 - [航空运输旅客服务质量国标将实施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 14:03 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flcth.md)
-- 2026-06-29 14:06 - [灿如繁星定档](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djrhm.md)
-- 2026-06-29 14:08 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
+- 2026-06-29 14:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbphc.md)
+- 2026-06-29 14:05 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 14:19 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-29 14:02 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
+- 2026-06-29 14:06 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-29 14:24 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-29 14:27 - [森保一：日本队要亲手改写历史](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
+- 2026-06-29 14:17 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lrntj.md)
+- 2026-06-29 14:27 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qogdr.md)
+- 2026-06-29 14:16 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
+- 2026-06-29 14:07 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 14:13 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 14:13 - [医药股集体爆发](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edspl.md)
+- 2026-06-29 14:28 - [3D打印不是工业革命，它是……](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiechuan.md)
+- 2026-06-29 14:27 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iuezt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:16 - [汪东城回应45岁婚约](https://www.blog.kurohicncr.top/Article/details/27110.shtml)
-- 2026-06-29 13:57 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/94783966.shtml)
-- 2026-06-29 14:13 - [三轮车过马路 车上木材砸中路边男子](https://www.blog.kurohicncr.top/Article/details/7347295.shtml)
-- 2026-06-29 14:00 - [王楚钦3比0周启豪](http://www.blog.minike.top/Article/details/59748041183.shtml)
-- 2026-06-29 14:08 - [加拿大绝杀南非晋级](https://www.share.minike.top/Article/details/96584436.shtml)
-- 2026-06-29 14:03 - [艾莎唱出了多少牛马的心声🥹](https://www.blog.minike.top/Article/details/98148865953.shtml)
-- 2026-06-29 13:59 - [刘仲华院士愿当贺永辉导师](https://www.share.minike.top/Article/details/4339468.shtml)
-- 2026-06-29 14:19 - [媒体：高考后消费应量力而行适度有度](https://www.share.minike.top/Article/details/19128.shtml)
-- 2026-06-29 14:04 - [11岁小孩哥汽修工龄4年](https://www.blog.kurohicncr.top/Article/details/980378282484.shtml)
-- 2026-06-29 14:07 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/457765.shtml)
-- 2026-06-29 13:58 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/14189178094.shtml)
-- 2026-06-29 14:06 - [啊啊啊](http://www.share.minike.top/Article/details/366422454.shtml)
-- 2026-06-29 14:22 - [小娘惹](https://www.share.kurohicncr.top/Article/details/150326792.shtml)
-- 2026-06-29 14:10 - [造谣县城满街都是小混混 男子被拘](http://www.blog.kurohicncr.top/Article/details/7963210223.shtml)
-- 2026-06-29 14:21 - [薛之谦演唱会](https://www.blog.minike.top/Article/details/781944647.shtml)
+- 2026-06-29 14:21 - [杨紫 你幸福的话我会比你先流泪](http://www.share.minike.top/Article/details/43021.shtml)
+- 2026-06-29 14:08 - [马斯克也站到了光里](http://www.blog.kurohicncr.top/Article/details/28565661.shtml)
+- 2026-06-29 14:10 - [双高胎](http://www.blog.minike.top/Article/details/8134401.shtml)
+- 2026-06-29 14:27 - [在巴西能拍到什么？](http://www.share.minike.top/Article/details/28594181.shtml)
+- 2026-06-29 14:03 - [【独家】牧神记 第89集 明心](https://www.share.minike.top/Article/details/444450.shtml)
+- 2026-06-29 14:05 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/57264242235.shtml)
+- 2026-06-29 14:12 - [亚洲成世界杯最大失意者联盟](http://www.share.kurohicncr.top/Article/details/90336095612.shtml)
+- 2026-06-29 14:03 - [2026年Mac能玩游戏了吗](http://www.blog.kurohicncr.top/Article/details/680806896132.shtml)
+- 2026-06-29 14:23 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/362520301.shtml)
+- 2026-06-29 14:08 - [下飞机后，我做了个很蠢的决定......](http://www.share.kurohicncr.top/Article/details/940564.shtml)
+- 2026-06-29 14:22 - [84岁英国教授成中国网红](https://www.blog.minike.top/Article/details/283663.shtml)
+- 2026-06-29 14:05 - [三都主：淘汰赛我会支持日本](https://www.share.minike.top/Article/details/527659459.shtml)
+- 2026-06-29 14:26 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.share.kurohicncr.top/Article/details/72037397143.shtml)
+- 2026-06-29 14:23 - [俄方：欧洲人热死是因拒绝俄能源](http://www.share.kurohicncr.top/Article/details/2071878.shtml)
+- 2026-06-29 14:06 - [媒体人：警惕日本再次成战争加害国](http://www.blog.minike.top/Article/details/8203611.shtml)

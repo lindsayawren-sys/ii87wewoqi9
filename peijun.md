@@ -1,59 +1,60 @@
-# 宇树IPO过会背后的隐形金主
+# 中国驻美大使馆原商务公使朱洪：中国始终坚持对外开放，为企业来华投资兴业提供广阔空间和便利条件
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨林汉垚 编辑丨杨希 肖嘉 视频丨许婷婷 420亿估值的人形机器人龙头、万亿估值的存储芯片巨头……科创IPO迎来狂欢。 一周内，宇树科技股份有限公司（以下简称“宇树科技”）与长鑫科技集团股份有限公司（以下简称“长鑫科技”）过会的消息相继传来。 事实上，在这两家公司的股东名册中，保险资金均占据了关键位置。
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。中国驻美国大使馆原商务公使朱洪表示，贸易合作是中美关系的重要支柱。过去几十年，中美贸易合作实现了互利共赢，不仅推动了双方经济的发展，也为全球贸易增长作出了重要贡献。当前中美贸易合作的韧性依然存在，合作的潜力依然巨大。 他指出，中美双方应坚持平等互利、相互尊重
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+专题：第十二届中国与全球化研讨会 4月26日，第十二届中国与全球化研讨会在北京举办，主题为“创新全球化：新动力与新挑战”。
 
-记者丨林汉垚 编辑丨杨希 肖嘉 视频丨许婷婷 420亿估值的人形机器人龙头、万亿估值的存储芯片巨头……科创IPO迎来狂欢。
+中国驻美国大使馆原商务公使朱洪表示，贸易合作是中美关系的重要支柱。
 
-一周内，宇树科技股份有限公司（以下简称“宇树科技”）与长鑫科技集团股份有限公司（以下简称“长鑫科技”）过会的消息相继传来。
+过去几十年，中美贸易合作实现了互利共赢，不仅推动了双方经济的发展，也为全球贸易增长作出了重要贡献。
 
-事实上，在这两家公司的股东名册中，保险资金均占据了关键位置。
+当前中美贸易合作的韧性依然存在，合作的潜力依然巨大。
 
-长鑫科技有和谐健康、国寿投资等6家险资直投，宇树科技则有中邮人寿、友邦人寿、瑞众人寿、新华保险等20余家险资通过LP通道“潜伏”。
+他指出，中美双方应坚持平等互利、相互尊重的原则，通过对话协商解决贸易领域的分歧，取消不合理的贸易关税和壁垒，重启双边经贸磋商，推动贸易合作健康发展。
 
-曾经偏爱高铁、基建和不动产的“耐心资本”，正在成为硬科技IPO背后最活跃的捕手之一。
+他强调，“中国始终坚持对外开放的基本国策，不断优化营商环境，为美国企业来华投资兴业提供了广阔的空间和便利的条件。
 
-宇树科技豪华股东阵容曝光！
+希望美国企业能抓住机遇，积极参与中国市场，实现互利共赢。
 
-除了腾讯、美团、阿里、蚂蚁，还有20余家险资间接投资 6月1日，宇树科技科创板IPO通过上交所上市委会议审议，拟募资42.02亿元，计划用于智能机器人模型研发、机器人本体研发、新型智能机器人产品开发及智能机器人制造基地建设等项目。
+” 此外，朱洪还提到，中美在商务领域的合作不仅限于贸易，还包括投资、服务、技术交流等多个方面，双方应加强在这些领域的合作，拓展合作空间，提升合作水平。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [叶一茜森碟一起回北京了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
-- 2026-06-29 14:05 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
-- 2026-06-29 14:08 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-29 14:11 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 13:58 - [钻石联赛巴黎站：杜普兰蒂斯夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
-- 2026-06-29 13:56 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qsdsw.md)
-- 2026-06-29 14:03 - [宜宾5.5级地震 成都震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
-- 2026-06-29 14:15 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
-- 2026-06-29 13:56 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-29 14:20 - [发反科学内容为何会有200万粉丝](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
-- 2026-06-29 14:02 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
-- 2026-06-29 14:18 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
-- 2026-06-29 13:57 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-29 14:15 - [戴军否认1993年月入过万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 14:23 - [韩剧编剧又升级了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
+- 2026-06-29 14:15 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-29 14:18 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piwei.md)
+- 2026-06-29 14:07 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 14:13 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-29 14:01 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
+- 2026-06-29 14:11 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
+- 2026-06-29 14:01 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-29 14:28 - [【短的发布会】车圈世界杯？一汽丰田bZ5+MomentaR6强化学习大模型轻松应对复杂路况](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-29 14:07 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
+- 2026-06-29 14:01 - [韩国队启程回国众将回避镜头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-29 14:03 - [凌晨地震母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 14:27 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/33729813052.shtml)
-- 2026-06-29 14:01 - [德国队前往比赛场地遭遇囧途](https://www.share.minike.top/Article/details/10284252.shtml)
-- 2026-06-29 14:14 - [欧洲人驾车200公里抢购中国空调](https://www.blog.minike.top/Article/details/431332.shtml)
-- 2026-06-29 14:20 - [金圣叹为什么对水浒传中的武松评价这么高？](http://www.blog.minike.top/Article/details/96522.shtml)
-- 2026-06-29 14:13 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/8237889.shtml)
-- 2026-06-29 14:15 - [大范围炎热天气将至](https://www.share.minike.top/Article/details/1638730067.shtml)
-- 2026-06-29 14:05 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/762863229.shtml)
-- 2026-06-29 14:15 - [媒体评恋与深空争议](https://www.share.minike.top/Article/details/00110336637.shtml)
-- 2026-06-29 14:09 - [高考公平需要延伸到志愿填报这一环](http://www.blog.kurohicncr.top/Article/details/647915.shtml)
-- 2026-06-29 14:15 - [去了一趟潮汕。](http://www.share.minike.top/Article/details/7283015.shtml)
-- 2026-06-29 13:58 - [上周末 多领域成果密集“上新”](http://www.share.minike.top/Article/details/702698.shtml)
-- 2026-06-29 14:15 - [加拿大绝杀南非晋级](https://www.share.kurohicncr.top/Article/details/00314078372.shtml)
-- 2026-06-29 13:55 - [严浩翔FIY断层第一](http://www.share.minike.top/Article/details/917897142.shtml)
-- 2026-06-29 14:20 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/674178634477.shtml)
-- 2026-06-29 14:19 - [唐国强打卡贵阳孔学堂](https://www.blog.kurohicncr.top/Article/details/9025589.shtml)
+- 2026-06-29 14:16 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.minike.top/Article/details/9480298.shtml)
+- 2026-06-29 14:16 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.kurohicncr.top/Article/details/298964218694.shtml)
+- 2026-06-29 14:13 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/0567211.shtml)
+- 2026-06-29 14:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.minike.top/Article/details/43821397116.shtml)
+- 2026-06-29 14:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/3595829339.shtml)
+- 2026-06-29 14:21 - [NBA交易](https://www.blog.minike.top/Article/details/75463608739.shtml)
+- 2026-06-29 14:12 - [20年前的周杰伦](https://www.blog.kurohicncr.top/Article/details/34862.shtml)
+- 2026-06-29 14:04 - [五粮液回应宜宾地震影响](http://www.share.minike.top/Article/details/724312.shtml)
+- 2026-06-29 14:10 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.blog.minike.top/Article/details/869773.shtml)
+- 2026-06-29 14:27 - [美伊同意停止互袭](https://www.blog.minike.top/Article/details/1620560.shtml)
+- 2026-06-29 14:19 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/2626018618.shtml)
+- 2026-06-29 14:02 - [世界杯：日本将与巴西争夺16强席位](http://www.share.kurohicncr.top/Article/details/15438172048.shtml)
+- 2026-06-29 14:27 - [中国战机大片上新](https://www.blog.kurohicncr.top/Article/details/43244129802.shtml)
+- 2026-06-29 14:14 - [一见倾心](http://www.blog.minike.top/Article/details/62918.shtml)
+- 2026-06-29 14:15 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/827823.shtml)

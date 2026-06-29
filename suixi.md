@@ -1,47 +1,58 @@
-# 国际油价6月1日大幅上涨 国际金价6月1日下跌
+# “鸟中大熊猫”彩鹮首次现身云南云县
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 10:45 来源：央视新闻 责任编辑：【王祎】
+中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。 彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。 此次发现地爱华镇芦蒿箐，水系充沛
 
 ## 正文
 
-发布时间：2026年06月02日 10:45 来源：央视新闻 责任编辑：【王祎】
+中新网云南临沧4月27日电 (沈仕春 鲁维荟)近日，云南省临沧市云县摄影爱好者在爱华镇芦蒿箐意外发现并成功抓拍到两只国家一级重点保护野生动物——彩鹮，这是该物种首次在该县县域内被清晰记录。
+
+彩鹮是典型的湿地鸟类，因数量稀少、野外罕见，被称为“鸟中大熊猫”。
+
+其体长约50至60厘米，羽毛在光线下可折射出铜绿、紫蓝等金属光泽，标志性的长喙细长而下弯。
+
+此次发现地爱华镇芦蒿箐，水系充沛、植被完好，湿地生境优越，为彩鹮提供了理想的觅食与栖息环境。
+
+拍摄画面显示，两只彩鹮与白鹭、牛背鹭友好相处，时而在浅水中缓步踱步，时而低头用长喙探觅水生昆虫、小鱼及软体动物，姿态从容警觉。
+
+近年来，云县持续推进湿地修复与生态保护，先后吸引钳嘴鹳、褐翅鸦鹃等多种珍稀鸟类栖息。
+
+彩鹮的现身，是对当地生态环境质量的高度认可。
+
+目前，云县林草部门已加强对芦蒿箐区域的巡护监测，并将加大宣传力度，引导公众共同守护珍稀物种的栖息家园。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [杨紫 你幸福的话我会比你先流泪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrgmh.md)
-- 2026-06-29 14:22 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
-- 2026-06-29 14:14 - [中俄联合巡航阵容强大 日本慌了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
-- 2026-06-29 13:57 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-29 13:55 - [辽宁葫芦岛坍塌居民楼有人员失联](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
-- 2026-06-29 14:09 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
-- 2026-06-29 14:02 - [北极荒岛生存挑战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiusao.md)
-- 2026-06-29 13:55 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
-- 2026-06-29 14:21 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
-- 2026-06-29 14:03 - [中国战机大片上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
-- 2026-06-29 14:15 - [韩国政府将对世界杯出局追责](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
-- 2026-06-29 13:57 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-29 13:58 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 14:06 - [行程万里不忘初心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzhu.md)
-- 2026-06-29 14:09 - [市民骑哈啰单车79分钟付30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
+- 2026-06-29 14:05 - [20年前的周杰伦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-29 14:13 - [巴基斯坦军方打死29名武装分子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-29 14:12 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngums.md)
+- 2026-06-29 14:12 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 14:00 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-29 14:27 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
+- 2026-06-29 14:19 - [刘仲华院士愿当“8个鸡蛋”少年导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-29 14:19 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
+- 2026-06-29 14:25 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-29 14:10 - [詹俊：巴西能凭借两大优势战胜日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 14:26 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 14:11 - [全国第三艘万车级汽车运输船交付](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:19 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/64672657777.shtml)
-- 2026-06-29 14:18 - [韩国队启程回国众将回避镜头](https://www.share.minike.top/Article/details/011121423367.shtml)
-- 2026-06-29 13:58 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.kurohicncr.top/Article/details/39674.shtml)
-- 2026-06-29 14:23 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/521904091192.shtml)
-- 2026-06-29 14:16 - [哈兰德之歌火到国外](https://www.blog.kurohicncr.top/Article/details/8029904706.shtml)
-- 2026-06-29 14:13 - [马斯克也站到了光里](https://www.share.kurohicncr.top/Article/details/98354.shtml)
-- 2026-06-29 14:02 - [凌晨地震母亲飞奔护住熟睡孩子](http://www.share.minike.top/Article/details/799043595356.shtml)
-- 2026-06-29 14:20 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/05964693523.shtml)
-- 2026-06-29 14:07 - [张一山回应与杨紫友情](http://www.blog.kurohicncr.top/Article/details/6606025.shtml)
-- 2026-06-29 14:08 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/05657535565.shtml)
-- 2026-06-29 14:13 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/06675358472.shtml)
-- 2026-06-29 14:05 - [Agent带来token消耗爆炸](http://www.blog.kurohicncr.top/Article/details/92530.shtml)
-- 2026-06-29 14:11 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/39363326423.shtml)
-- 2026-06-29 14:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/49699590.shtml)
-- 2026-06-29 14:23 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/28022177.shtml)
+- 2026-06-29 14:17 - [中方将20家日本实体列入出口管制名单](http://www.share.kurohicncr.top/Article/details/98322907.shtml)
+- 2026-06-29 14:07 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.kurohicncr.top/Article/details/0766619204.shtml)
+- 2026-06-29 14:26 - [“养路费”谁来交 油电车主大吵](https://www.share.kurohicncr.top/Article/details/384185.shtml)
+- 2026-06-29 14:06 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/226487260.shtml)
+- 2026-06-29 14:08 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/66918477837.shtml)
+- 2026-06-29 14:07 - [市民骑哈啰单车79分钟被收费30元](https://www.blog.kurohicncr.top/Article/details/387249523.shtml)
+- 2026-06-29 14:25 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/83128121873.shtml)
+- 2026-06-29 14:02 - [灿如繁星定档](http://www.blog.kurohicncr.top/Article/details/5253598.shtml)
+- 2026-06-29 14:23 - [大疆7月15日起涨价？公司回应](http://www.blog.minike.top/Article/details/6867454317.shtml)
+- 2026-06-29 14:03 - [7月1日起一批新规即将落地](http://www.blog.kurohicncr.top/Article/details/23534.shtml)
+- 2026-06-29 14:22 - [记者率先试乘西十高铁](http://www.blog.minike.top/Article/details/9346048422.shtml)
+- 2026-06-29 14:09 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/38797949968.shtml)
+- 2026-06-29 14:09 - [德云色预测世界杯16强](http://www.blog.kurohicncr.top/Article/details/6418448891.shtml)
+- 2026-06-29 14:03 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/00002006.shtml)
+- 2026-06-29 14:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.blog.kurohicncr.top/Article/details/17515.shtml)

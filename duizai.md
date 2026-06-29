@@ -1,58 +1,57 @@
-# SpaceX预留5% IPO股份，目标估值1.8万亿美元
+# 上海一季度金融数据出炉：社融规模增加4743亿元，同比多增138亿元
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-SpaceX在周一提交的修订版IPO申报文件中首次明确，将在即将进行的首次公开募股中预留最多5%的A类普通股，供部分员工及高管亲友认购。该公司目标估值至少为1.8万亿美元。 这份周一提交的修订文件首次明确了为定向股份计划预留的A类股票数量。虽然定向配售计划在IPO中较为常见，但参与者通常会受到锁定期约束，无法立即出售股份。然而，SpaceX此前已披露，其所谓“亲友名单”中的参与
+财联社4月28日讯 （记者 曹韵仪）今日，人民银行上海总部召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。2026年一季度上海市社会融资规模同比多增，直接融资比重上升。从信贷业务来看，信息技术业、科研服务业和普惠小微贷款余额同比均两位数增长。 社会融资规模同比多增，直接融资比重上升 数据显示，一季度上海社会融资规模增加4743亿元，同比多增138亿元，较好满足
 
 ## 正文
 
-SpaceX在周一提交的修订版IPO申报文件中首次明确，将在即将进行的首次公开募股中预留最多5%的A类普通股，供部分员工及高管亲友认购。
+财联社4月28日讯 （记者 曹韵仪）今日，人民银行上海总部召开2026年第二季度新闻发布会，介绍今年一季度上海金融运行情况。
 
-该公司目标估值至少为1.8万亿美元。
+2026年一季度上海市社会融资规模同比多增，直接融资比重上升。
 
-这份周一提交的修订文件首次明确了为定向股份计划预留的A类股票数量。
+从信贷业务来看，信息技术业、科研服务业和普惠小微贷款余额同比均两位数增长。
 
-虽然定向配售计划在IPO中较为常见，但参与者通常会受到锁定期约束，无法立即出售股份。
+社会融资规模同比多增，直接融资比重上升 数据显示，一季度上海社会融资规模增加4743亿元，同比多增138亿元，较好满足了实体经济的融资需求。
 
-然而，SpaceX此前已披露，其所谓“亲友名单”中的参与者将不受锁定期限制。
+从融资结构看，对实体经济发放的人民币贷款增加3495亿元。
 
-与此同时，超过60%的IPO前已发行股份将受到366天的延长锁定期约束，包括创始人兼首席执行官埃隆·马斯克持有的股份。
+直接融资增加1550亿元，占社融增量的32.7%，同比上升17.7个百分点。
 
-修订后的招股文件还披露了SpaceX与人工智能开发商Anthropic达成的重要算力协议。
+其中，各类主体债券净融资1441亿元，同比多增781亿元；非金融企业股票净融资108亿元，同比多增79亿元。
 
-根据协议，SpaceX将提供基于约32.5万块英伟达芯片的AI计算能力。
+委托贷款、信托贷款和未贴现银行承兑汇票等表外净融资减少533亿元，同比多减559亿元。
 
 ## 相关推荐
 
-- 2026-06-29 14:05 - [中国邮政上海分公司总经理李柏平被查](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-29 14:08 - [女子遭家暴两次起诉离婚均被驳回](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
-- 2026-06-29 13:57 - [韩国队启程回国众将回避镜头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbahb.md)
-- 2026-06-29 14:20 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 14:13 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
-- 2026-06-29 13:55 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-29 13:57 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-29 14:13 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-29 14:09 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kunju.md)
-- 2026-06-29 13:55 - [安帅：内马尔淘汰赛或获更多出场时间](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pfbzi.md)
-- 2026-06-29 14:09 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 13:56 - [比亚迪为什么卖得越多市值越低](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-29 14:08 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tukni.md)
+- 2026-06-29 14:19 - [强⁶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiuque.md)
+- 2026-06-29 14:18 - [高考公平需要延伸到志愿填报这一环](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-29 14:23 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
+- 2026-06-29 14:03 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 14:04 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hongyan.md)
+- 2026-06-29 14:19 - [网约车司机转账1.5万后被乘客拉黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 14:18 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
+- 2026-06-29 14:04 - [职业选手禁止参赛！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
+- 2026-06-29 14:16 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
+- 2026-06-29 14:03 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [F1奥地利正赛战报](https://www.blog.kurohicncr.top/Article/details/63464406.shtml)
-- 2026-06-29 14:19 - [《明日方舟》× 《小马宝莉》「魔法与友谊」合作宣传PV](https://www.share.kurohicncr.top/Article/details/42775.shtml)
-- 2026-06-29 13:58 - [6月我国降水为何偏多](https://www.share.minike.top/Article/details/84367.shtml)
-- 2026-06-29 13:59 - [袁隆平院士 不容诋毁！](http://www.blog.minike.top/Article/details/318751679.shtml)
-- 2026-06-29 14:00 - [英博后卫宋岳：还得慢慢找回竞技状态](http://www.share.minike.top/Article/details/9513146.shtml)
-- 2026-06-29 14:02 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/602732144.shtml)
-- 2026-06-29 14:06 - [涂鸦躲猫猫：想要躲得好，抽象少不了！](http://www.share.minike.top/Article/details/61295892.shtml)
-- 2026-06-29 14:21 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/3201284.shtml)
-- 2026-06-29 14:16 - [安帅：内马尔淘汰赛或获更多出场时间](https://www.share.kurohicncr.top/Article/details/925286766014.shtml)
-- 2026-06-29 14:00 - [利率一再降 “存款搬家”搬去哪](http://www.blog.kurohicncr.top/Article/details/49153.shtml)
-- 2026-06-29 14:00 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/98070825135.shtml)
-- 2026-06-29 14:06 - [中方将20家日本实体列入管控名单](https://www.blog.minike.top/Article/details/71182157.shtml)
-- 2026-06-29 14:08 - [《昨夜将至》为何是悬疑黑马](http://www.blog.minike.top/Article/details/09439.shtml)
-- 2026-06-29 14:17 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/74012.shtml)
-- 2026-06-29 14:15 - [记者率先试乘西十高铁](https://www.blog.kurohicncr.top/Article/details/019805741.shtml)
+- 2026-06-29 14:12 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.kurohicncr.top/Article/details/249002.shtml)
+- 2026-06-29 14:21 - [韩国国脚每人获35.5万奖金](http://www.blog.kurohicncr.top/Article/details/546949613.shtml)
+- 2026-06-29 14:17 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/043517838693.shtml)
+- 2026-06-29 14:13 - [利率一再降 “存款搬家”搬去哪](http://www.share.kurohicncr.top/Article/details/59513176251.shtml)
+- 2026-06-29 14:12 - [周锡玮：做堂堂正正的中国人](https://www.share.minike.top/Article/details/8587581.shtml)
+- 2026-06-29 14:26 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/060162087.shtml)
+- 2026-06-29 14:15 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/88229938.shtml)
+- 2026-06-29 14:27 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.blog.kurohicncr.top/Article/details/1094534161.shtml)
+- 2026-06-29 14:01 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.minike.top/Article/details/0248985016.shtml)
+- 2026-06-29 14:26 - [韩国主帅洪明甫辞职](http://www.blog.minike.top/Article/details/40973.shtml)
+- 2026-06-29 14:04 - [高考公平需要延伸到志愿填报这一环](http://www.share.kurohicncr.top/Article/details/7599934.shtml)
+- 2026-06-29 14:17 - [韩体育部长回应李在明痛批](https://www.share.minike.top/Article/details/90554230.shtml)
+- 2026-06-29 14:20 - [日本主教练回应迎战巴西](https://www.blog.minike.top/Article/details/9093367044.shtml)
+- 2026-06-29 14:13 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/4408468549.shtml)
+- 2026-06-29 14:04 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/12487.shtml)

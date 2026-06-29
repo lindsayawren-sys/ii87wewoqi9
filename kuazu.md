@@ -1,48 +1,56 @@
-# 长征十二号乙运载火箭首飞成功
+# “披星”后，000609收获3连板
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (马帅莎 王晨宇)北京时间6月1日16时40分，长征十二号乙遥一运载火箭在东风商业航天创新试验区发射升空，将搭载的千帆极轨08组卫星顺利送入预定轨道，飞行试验任务取得圆满成功。 此次任务是长征十二号乙运载火箭的首次飞行，长征系列运载火箭的第647次飞行。(完)
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月27日开盘，*ST中迪（维权）后再次“一字板”涨停。至此，该股在4月22日因“披星”停牌后已收获三连板，并在10个交易日内收获7个涨停板。 据上海证券报记者此前报道，*ST中迪主要从事房地产业务，正处在退市边缘，但已经显示出转型信号。就在近日，公司无偿获赠估值2.29亿元资产（详见此前报道无偿获赠超2亿
 
 ## 正文
 
-中新网北京6月1日电 (马帅莎 王晨宇)北京时间6月1日16时40分，长征十二号乙遥一运载火箭在东风商业航天创新试验区发射升空，将搭载的千帆极轨08组卫星顺利送入预定轨道，飞行试验任务取得圆满成功。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-此次任务是长征十二号乙运载火箭的首次飞行，长征系列运载火箭的第647次飞行。
+4月27日开盘，*ST中迪（维权）后再次“一字板”涨停。
 
-(完)
+至此，该股在4月22日因“披星”停牌后已收获三连板，并在10个交易日内收获7个涨停板。
+
+据上海证券报记者此前报道，*ST中迪主要从事房地产业务，正处在退市边缘，但已经显示出转型信号。
+
+就在近日，公司无偿获赠估值2.29亿元资产（详见此前报道无偿获赠超2亿元资产，000609“一字”涨停）。
+
+公司已换实控人 *ST中迪已换实控人，这也是其再次受到资本关注的起点。
+
+回顾过往，2025年10月17日，*ST中迪7114.48万股股票的司法拍卖在阿里平台上完成。
+
+拍卖起拍价为2.55亿元，评估价为3.19亿元。
 
 ## 相关推荐
 
-- 2026-06-29 14:09 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
-- 2026-06-29 14:14 - [世界田联钻石联赛巴黎站严子怡夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 14:11 - [俄军新型无人机战力如何](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-29 14:23 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 13:56 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
-- 2026-06-29 14:13 - [永远保持对人民的赤子之心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
-- 2026-06-29 14:21 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
-- 2026-06-29 14:01 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/raogh.md)
-- 2026-06-29 13:59 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 14:11 - [灿如繁星定档](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
-- 2026-06-29 14:03 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 14:11 - [在自己家不穿衣服犯法吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 14:09 - [王佳佳江疏影13年前后同框对比](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 14:10 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-29 14:23 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 14:24 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-29 14:24 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 14:14 - [恋与深空失控领地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-29 14:12 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-29 14:22 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 14:19 - [三都主：淘汰赛我会支持日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 14:23 - [上班主打一个薪尽自然凉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:05 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/37215814703.shtml)
-- 2026-06-29 13:56 - [韩国队被淘汰痛失11亿韩元巨奖](http://www.share.kurohicncr.top/Article/details/243896959.shtml)
-- 2026-06-29 14:21 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/89762583.shtml)
-- 2026-06-29 14:00 - [日本前锋言论激怒巴西](http://www.blog.kurohicncr.top/Article/details/62649933253.shtml)
-- 2026-06-29 13:57 - [DSpark论文深度解读](https://www.share.minike.top/Article/details/772624049.shtml)
-- 2026-06-29 14:17 - [《昨夜将至》为何是悬疑黑马](https://www.blog.kurohicncr.top/Article/details/165148561.shtml)
-- 2026-06-29 14:07 - [中国避暑神器在欧洲卖爆了](https://www.blog.kurohicncr.top/Article/details/044534148374.shtml)
-- 2026-06-29 14:07 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.share.minike.top/Article/details/06049.shtml)
-- 2026-06-29 14:23 - [6月我国降水为何偏多](https://www.blog.minike.top/Article/details/8523082496.shtml)
-- 2026-06-29 14:02 - [古力娜扎美出新高度](https://www.share.minike.top/Article/details/9061855.shtml)
-- 2026-06-29 14:00 - [女子遭殴打驾车致丈夫身亡维持原判](https://www.share.minike.top/Article/details/66006586040.shtml)
-- 2026-06-29 14:12 - [辽宁葫芦岛一居民楼突发爆炸](https://www.share.minike.top/Article/details/26766539364.shtml)
-- 2026-06-29 14:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/86190.shtml)
-- 2026-06-29 13:59 - [手游300亿数据或被军事化运用](http://www.share.minike.top/Article/details/59498140.shtml)
-- 2026-06-29 14:03 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/906872674.shtml)
+- 2026-06-29 14:07 - [第一炉香](https://www.share.minike.top/Article/details/718337616398.shtml)
+- 2026-06-29 14:28 - [记者暗访贵州和云南多个养老机构](https://www.blog.kurohicncr.top/Article/details/1246739631.shtml)
+- 2026-06-29 14:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.minike.top/Article/details/80507696.shtml)
+- 2026-06-29 14:26 - [有哪些烂大街的 Vibe Coding 作品类型让你一看到就想马上划走？](http://www.blog.kurohicncr.top/Article/details/05090.shtml)
+- 2026-06-29 14:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.minike.top/Article/details/82234.shtml)
+- 2026-06-29 14:15 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/2724683112.shtml)
+- 2026-06-29 14:04 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.kurohicncr.top/Article/details/543103812.shtml)
+- 2026-06-29 14:20 - [TLAW vs DCG MSI](https://www.blog.minike.top/Article/details/366622192372.shtml)
+- 2026-06-29 14:07 - [大范围炎热天气将至](http://www.share.minike.top/Article/details/41199587515.shtml)
+- 2026-06-29 14:23 - [德国连续三天刷新本国最高气温纪录](http://www.blog.minike.top/Article/details/7122195.shtml)
+- 2026-06-29 14:26 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/6171995.shtml)
+- 2026-06-29 14:08 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.minike.top/Article/details/283588545.shtml)
+- 2026-06-29 14:11 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.kurohicncr.top/Article/details/157293.shtml)
+- 2026-06-29 14:04 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.share.kurohicncr.top/Article/details/59064898000.shtml)
+- 2026-06-29 14:07 - [女心理师](https://www.blog.minike.top/Article/details/11396581.shtml)

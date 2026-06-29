@@ -1,59 +1,57 @@
-# 光大期货：6月2日有色金属日报
+# 黄金交易提醒：美伊和谈陷入僵局，金价再度承压，美联储决议将引爆“超级周”？
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜进口窗口关闭。宏观方面，美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。地缘政治方面，为抗议以军扩大在黎行动，据伊媒称伊朗将暂停与美国通过中间人沟通
+汇通财经APP讯——周一（4月27日）盘初现货黄金小幅走弱，一度下跌0.65%至4677.60美元/盎司，因美伊和谈陷入僵局，周一油价跳涨逾2%，通胀担忧再度升温，美联储年内加息预期小幅回升，美元指数小幅上涨，对金价形成压制。市场一方面继续关注中东局势的进一步消息，但更低目光开始转向本周的美联储利率决议，此前，本周还将迎来欧洲央行、英国央行、日本央行等央行的利率决议，另外，本周
 
 ## 正文
 
-铜： （展大鹏，从业资格号：F3013795；交易咨询资格号：Z0013582） 隔夜内外铜价震荡偏强，国内精炼铜进口窗口关闭。
+汇通财经APP讯——周一（4月27日）盘初现货黄金小幅走弱，一度下跌0.65%至4677.60美元/盎司，因美伊和谈陷入僵局，周一油价跳涨逾2%，通胀担忧再度升温，美联储年内加息预期小幅回升，美元指数小幅上涨，对金价形成压制。
 
-宏观方面，美国5月ISM制造业新订单指数56.8，大幅高于预期 54.8和前值 54.1，连续五个月扩张，其中新订单增速加速至四个月高位，就业指数有所改善，但通胀压力仍然存在。
+市场一方面继续关注中东局势的进一步消息，但更低目光开始转向本周的美联储利率决议，此前，本周还将迎来欧洲央行、英国央行、日本央行等央行的利率决议，另外，本周还将出炉美国第一季度GDP数据和美国3月份PCE等重磅数据。
 
-地缘政治方面，为抗议以军扩大在黎行动，据伊媒称伊朗将暂停与美国通过中间人沟通，计划彻底封锁霍尔木兹海峡；但特朗普则称美伊或于一周内达成协议，延长停火并重开霍尔木兹海峡。
+一、和谈“空转”：没完没了的拉锯战耗尽市场耐心 原本在上周末被市场寄予厚望的美伊第二轮谈判，最终以一场彻底的“虚空对话”告终。
 
-库存方面来看，LME库存下降3375吨至386050吨；Comex库存增加1739吨至吨至582507吨；SHFE铜仓单增加5047吨至99543吨，BC铜仓单下降795吨至11583吨。
+伊朗外长阿拉格齐带着他的“三阶段方案”匆匆抵达巴基斯坦，却又两手空空地离开。
 
-需求方面，高铜价抑制部分采购节奏。
+这套方案的构想看似很宏伟：第一阶段先彻底结束战争并获取安全保障，第二阶段专门研究霍尔木兹海峡的管理，第三阶段才涉及敏感的核问题讨论。
 
-美伊冲突再次出现反复性，但从昨晚铜价表现来看有所脱敏，并未与黄金共振。
+然而，特朗普对此的反应直接而粗暴，他在社交媒体上直言不讳地表示伊朗内部存在“严重的内斗和混乱”，甚至喊话：“如果他们想谈，只需打个电话就行了！
 
-笔者认为，一是霍尔木兹海峡通航问题受阻下，海外硫磺短缺问题或再次走向台前；二是美铜因关税预期相比LME铜再次出现高溢价，海外铜再次转移至美铜进行套利，在一定程度上缓解了LME累库预期引起的反噬。
+” 特朗普不仅口头施压，更以实际行动击碎了和平幻想。
 
-不过地缘冲突依然会对全球经济形成扰动，市场也在取舍。
+他直接取消了特使威特科夫和女婿库什纳原定对伊斯兰堡的访问，理由竟是嫌“差旅和开支过多”，且伊朗方案“仍不够充分”。
 
 ## 相关推荐
 
-- 2026-06-29 14:16 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaomeng.md)
-- 2026-06-29 14:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-29 14:04 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
-- 2026-06-29 14:17 - [复盘曾沛慈浪姐夺冠之路](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
-- 2026-06-29 14:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-29 14:19 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 14:17 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 14:09 - [赵露思爸爸拍vlog翻车了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cnuhk.md)
-- 2026-06-29 14:06 - [德国队前往比赛场地遭遇囧途](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
-- 2026-06-29 14:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 14:03 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongrang.md)
-- 2026-06-29 14:09 - [流金岁月](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 14:22 - [日本主帅：目标是冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jinjin.md)
+- 2026-06-29 14:28 - [造谣东鹏创始人不喝东鹏男子被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-29 14:23 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kmdlw.md)
+- 2026-06-29 14:06 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
+- 2026-06-29 14:08 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 14:13 - [亚洲成世界杯最大失意者联盟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 14:24 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
+- 2026-06-29 14:17 - [辽宁葫芦岛一居民楼突发爆炸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naycq.md)
+- 2026-06-29 14:16 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
+- 2026-06-29 14:26 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 14:20 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 14:03 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:17 - [巴基斯坦军方打死29名武装分子](http://www.share.kurohicncr.top/Article/details/21055.shtml)
-- 2026-06-29 14:03 - [四川宜宾地震已致13人受轻微伤](https://www.share.minike.top/Article/details/1010263698.shtml)
-- 2026-06-29 14:13 - [小娘惹](https://www.share.minike.top/Article/details/753188791252.shtml)
-- 2026-06-29 14:16 - [王楚钦美国大满贯晋级32强](https://www.blog.minike.top/Article/details/7412960560.shtml)
-- 2026-06-29 14:01 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.share.kurohicncr.top/Article/details/9009181529.shtml)
-- 2026-06-29 14:08 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.minike.top/Article/details/45198784.shtml)
-- 2026-06-29 14:11 - [宜宾5.5级地震 成都震感明显](https://www.share.minike.top/Article/details/746085.shtml)
-- 2026-06-29 14:22 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/7224656866.shtml)
-- 2026-06-29 14:13 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/92704870.shtml)
-- 2026-06-29 14:22 - [韩国极端网友对主教练发出死亡威胁](http://www.share.minike.top/Article/details/029749420.shtml)
-- 2026-06-29 13:58 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://www.share.minike.top/Article/details/7732856.shtml)
-- 2026-06-29 14:00 - [胡光宇一审获刑13年](http://www.share.minike.top/Article/details/601236974.shtml)
-- 2026-06-29 14:16 - [上周末 多领域成果密集“上新”](http://www.blog.minike.top/Article/details/2130228469.shtml)
-- 2026-06-29 14:03 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/09870.shtml)
-- 2026-06-29 14:03 - [加拿大受伤球员单腿跳进球场拥抱队友](https://www.share.kurohicncr.top/Article/details/69214.shtml)
+- 2026-06-29 14:07 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/76951093244.shtml)
+- 2026-06-29 14:20 - [流金岁月](https://www.blog.minike.top/Article/details/547605.shtml)
+- 2026-06-29 14:08 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/954181404.shtml)
+- 2026-06-29 14:05 - [专家建议城乡居民养老金增至每月千元](http://www.blog.minike.top/Article/details/52389098.shtml)
+- 2026-06-29 14:08 - [世界杯淘汰赛1/16决赛，加拿大 1-0 绝杀南非，首次闯入 16强，如何评价本场比赛？](https://www.blog.minike.top/Article/details/4901122.shtml)
+- 2026-06-29 14:05 - [第一炉香](http://www.share.kurohicncr.top/Article/details/06367074077.shtml)
+- 2026-06-29 14:07 - [古力娜扎美出新高度](http://www.share.kurohicncr.top/Article/details/530030021397.shtml)
+- 2026-06-29 14:08 - [妹妹的正确用法！](https://www.blog.kurohicncr.top/Article/details/845697355881.shtml)
+- 2026-06-29 14:26 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/538508901.shtml)
+- 2026-06-29 14:22 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/13518.shtml)
+- 2026-06-29 14:19 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/65015370.shtml)
+- 2026-06-29 14:09 - [湖北钟祥市委书记张勇拟任新职](http://www.blog.minike.top/Article/details/4889060.shtml)
+- 2026-06-29 14:29 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/287681702.shtml)
+- 2026-06-29 14:21 - [蜘蛛侠:英雄归来](http://www.blog.kurohicncr.top/Article/details/2881772.shtml)
+- 2026-06-29 14:23 - [A股](https://www.blog.minike.top/Article/details/37099151.shtml)

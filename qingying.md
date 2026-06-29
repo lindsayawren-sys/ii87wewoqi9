@@ -1,56 +1,58 @@
-# Adobe将于2026年6月11日发布第二财季财报，市场聚焦AI战略与增长动能
+# 立讯精密预计后天披露一季报，主力资金提前布局！华宝基金电子ETF（515260）强势拉升3%，续创历史新高！
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。 根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。公司此前给出的官方指引为：营收64.3亿至64.8亿美元
+今日（4月27日）电子板块领涨两市，半导体、消费电子、PCB（印制电路板）等细分方向携手上攻，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅盘中猛拉3.34%，现涨2.81%，续创历史新高！ 成分股方面，半导体龙头澜起科技、果链龙头立讯精密领涨超8%，PCB（印制电路板）龙头深南电路涨逾7%，卓胜微、海光信息、鹏鼎控股等个股跟涨。 资金面上，截至发稿，电子板块获主
 
 ## 正文
 
-Adobe今日宣布，将于2026年6月11日美股盘后发布2026财年第二季度财务业绩。
+今日（4月27日）电子板块领涨两市，半导体、消费电子、PCB（印制电路板）等细分方向携手上攻，荟聚电子板块核心龙头的电子ETF华宝（515260）场内涨幅盘中猛拉3.34%，现涨2.81%，续创历史新高！
 
-财报发布后，公司管理层将于美国东部时间下午5：00举行网络直播电话会议，讨论业绩表现并回答分析师提问。
+成分股方面，半导体龙头澜起科技、果链龙头立讯精密领涨超8%，PCB（印制电路板）龙头深南电路涨逾7%，卓胜微、海光信息、鹏鼎控股等个股跟涨。
 
-根据FactSet的共识预期，分析师预计Adobe第二季度非GAAP每股收益为5.01美元，营收预计在64.3亿至64.8亿美元之间。
+资金面上，截至发稿，电子板块获主力资金净流入超181亿元，拉长时间来看，近5日、近20日分别吸金444亿元和2215亿元，板块吸金额持续高居31个申万一级行业首位！
 
-公司此前给出的官方指引为：营收64.3亿至64.8亿美元，非GAAP每股收益5.80至5.85美元，GAAP每股收益4.35至4.40美元。
+电子ETF华宝（515260）权重股立讯精密获主力资金净流入超17亿元，霸居A股吸金榜第一位。
 
-第一季度，Adobe实现营收64亿美元，同比增长12%，非GAAP每股收益6.06美元，双双超出市场预期。
+焦点个股方面，立讯精密一季报预计于后天（4月29日）发布，此前该公司披露的2026年一季度业绩预告显示，公司预计一季度归母净利润36.52亿元至37.13亿元，同比增长20%至22%。
 
-投资者将密切关注几个核心指标：数字媒体业务的年度经常性收入增长、Firefly等AI产品的商业化进展，以及创意云和专业消费者业务的订阅增长势头。
+据悉，立讯精密三大业务板块（消费电子、通讯及数据中心、汽车电子）全部实现同比增长，预计创造一季度新的业绩纪录。
 
-第一季度总ARR达260.6亿美元，同比增长10.9%，AI优先应用的ARR同比增长超过两倍。
+产业链方面，4月24日上午，DeepSeek官宣V4预览版发布，官网、App、API三端同步上线，同步开源，直接引爆A股国产算力板块。
 
-过去一年，Adobe正经历从传统软件许可模式向AI驱动的订阅服务的深度转型。
+V4到底有多强？
 
 ## 相关推荐
 
-- 2026-06-29 14:14 - [恋与深空底线不该被娱乐化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
-- 2026-06-29 13:56 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 14:16 - [刘仲华院士愿当贺永辉导师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-29 14:11 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
-- 2026-06-29 14:05 - [在委侨团负责人：家乡的帮助很及时](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-29 14:16 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xingzun.md)
-- 2026-06-29 14:15 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
-- 2026-06-29 14:11 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-29 14:06 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
-- 2026-06-29 14:23 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-29 14:02 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdutj.md)
+- 2026-06-29 14:04 - [吴昕要助理买的药6年前已停产](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 14:01 - [严浩翔FIY断层第一](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
+- 2026-06-29 14:17 - [美国近12万名科技员工被解雇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-29 14:01 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/buao.md)
+- 2026-06-29 14:14 - [3D打印不是工业革命，它是……](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbti.md)
+- 2026-06-29 14:02 - [市民骑哈啰单车79分钟被收费30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-29 14:12 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lfrik.md)
+- 2026-06-29 14:25 - [世界杯看到肖战了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 14:12 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 14:26 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-29 14:01 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:12 - [东鹏饮料创始人不喝东鹏？造谣者被拘](http://www.blog.kurohicncr.top/Article/details/187003695.shtml)
-- 2026-06-29 14:17 - [日媒称韩国史诗级上上签终成噩梦](http://www.blog.minike.top/Article/details/9780495.shtml)
-- 2026-06-29 14:16 - [一生一世](https://www.blog.kurohicncr.top/Article/details/73028104967.shtml)
-- 2026-06-29 13:58 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/861814108760.shtml)
-- 2026-06-29 13:56 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/19102385809.shtml)
-- 2026-06-29 13:59 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/0632096.shtml)
-- 2026-06-29 14:10 - [智界V9成为高端圈层共同选择](https://www.blog.kurohicncr.top/Article/details/322271724363.shtml)
-- 2026-06-29 14:15 - [辽宁葫芦岛市一居民楼突发爆炸](http://www.share.kurohicncr.top/Article/details/637742528631.shtml)
-- 2026-06-29 14:01 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](http://www.blog.minike.top/Article/details/0281162.shtml)
-- 2026-06-29 14:16 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.minike.top/Article/details/8052109175.shtml)
-- 2026-06-29 14:21 - [广州一高校通报网传禁止小米汽车入校](https://www.share.minike.top/Article/details/62631937.shtml)
-- 2026-06-29 13:55 - [一生一世](https://www.blog.kurohicncr.top/Article/details/3953566.shtml)
-- 2026-06-29 14:06 - [吴昕要助理买的药6年前已停产](http://www.share.kurohicncr.top/Article/details/16968544.shtml)
-- 2026-06-29 14:00 - [航空运输旅客服务质量国标将实施](http://www.share.kurohicncr.top/Article/details/9138691.shtml)
-- 2026-06-29 14:06 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/724462614.shtml)
+- 2026-06-29 14:05 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/61279411.shtml)
+- 2026-06-29 14:25 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](http://www.blog.minike.top/Article/details/072612.shtml)
+- 2026-06-29 14:01 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/46880762.shtml)
+- 2026-06-29 14:20 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/94356285234.shtml)
+- 2026-06-29 14:15 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/8870382.shtml)
+- 2026-06-29 14:10 - [国足前主帅：亚洲仅两队晋级不意外](https://www.share.kurohicncr.top/Article/details/91836154.shtml)
+- 2026-06-29 14:18 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/006102026.shtml)
+- 2026-06-29 14:19 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/933029.shtml)
+- 2026-06-29 14:18 - [韩国队出局引发意大利球迷全网狂欢](http://www.blog.minike.top/Article/details/868031.shtml)
+- 2026-06-29 14:13 - [47岁吴建豪再婚](https://www.share.minike.top/Article/details/699356451969.shtml)
+- 2026-06-29 14:17 - [中央气象台发布强对流天气蓝色预警](http://www.share.kurohicncr.top/Article/details/3301789.shtml)
+- 2026-06-29 14:05 - [3D打印不是工业革命，它是……](http://www.blog.kurohicncr.top/Article/details/53326671.shtml)
+- 2026-06-29 14:07 - [詹俊：巴西能凭借两大优势战胜日本](http://www.blog.kurohicncr.top/Article/details/48349.shtml)
+- 2026-06-29 14:00 - [安帅：内马尔淘汰赛或获更多出场时间](http://www.share.kurohicncr.top/Article/details/9228623.shtml)
+- 2026-06-29 14:01 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/700162.shtml)

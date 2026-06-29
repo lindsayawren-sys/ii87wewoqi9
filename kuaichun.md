@@ -1,56 +1,59 @@
-# 英国学生来华游学：电动车随处可见，最想坐一次高铁
+# 四名老将集体离职，东方甄选的平台梦容不下大主播
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月02日 17:30 来源：中国新闻网 6月2日，“中英游学领航计划”开班仪式在北京举行。来自英国东安格利亚大学、纽卡斯尔大学、格林威治大学等4所高校的110余名师生，与对外经济贸易大学、北京邮电大学等中方院校代表共同出席。 “我特别喜欢中国的面条！”一位英国学生兴奋地表示，“我们打算尽可能多地在各地探索，了解风土人情，这里景色很美。”而最令英国学生们惊
+界面新闻记者 | 宋佳楠 当明明、天权、中灿、林林四位东方甄选初代核心主播在48小时内离职，东方甄选内部的管理矛盾以及转型阵痛再一次集中爆发。 在4月25日的直播中，俞敏洪表示，已与四位主播进行深度、诚挚的沟通挽留，同时对接管理团队开展双向沟通，尽力留存核心人才。对于此次人事变动给用户、粉丝及团队带来的困扰，俞敏洪公开致歉，并表示四位主播均为陪伴平台成长的优秀员工，他们的离开是
 
 ## 正文
 
-发布时间：2026年06月02日 17:30 来源：中国新闻网 6月2日，“中英游学领航计划”开班仪式在北京举行。
+界面新闻记者 | 宋佳楠 当明明、天权、中灿、林林四位东方甄选初代核心主播在48小时内离职，东方甄选内部的管理矛盾以及转型阵痛再一次集中爆发。
 
-来自英国东安格利亚大学、纽卡斯尔大学、格林威治大学等4所高校的110余名师生，与对外经济贸易大学、北京邮电大学等中方院校代表共同出席。
+在4月25日的直播中，俞敏洪表示，已与四位主播进行深度、诚挚的沟通挽留，同时对接管理团队开展双向沟通，尽力留存核心人才。
 
-“我特别喜欢中国的面条！
+对于此次人事变动给用户、粉丝及团队带来的困扰，俞敏洪公开致歉，并表示四位主播均为陪伴平台成长的优秀员工，他们的离开是平台的损失。
 
-”一位英国学生兴奋地表示，“我们打算尽可能多地在各地探索，了解风土人情，这里景色很美。
+这场离职潮的导火索，直指2025年底上任的新管理层。
 
-”而最令英国学生们惊叹的，是中国的智能化生活与先进基础设施。
+四位主播在告别信中不约而同地提到，难以适应公司近几个月来的变化。
 
-有学生感慨：“英国没有高铁，我特别想坐一次。
+明明形容自己陷入了一种“安静的隔离”，感受到了管理层的“不友好”；天权则称，公司的理念、直播风格乃至办公氛围都变了，自己的“理想主义”显得不合时宜；林林甚至因过度焦虑而遵医嘱，需要远离“让自己陷入创伤的环境”。
 
-路上电动汽车发展得真好，我见到了不少从没见过的车型。
+直播间里俞敏洪的致歉与挽留，并未能掩盖一个本质问题：这家从教培转型而来的直播电商，始终在“明星主播”与“标准化直播平台”的十字路口徘徊，而此次人事震荡不过是新东方旧有基因与新商业逻辑碰撞的必然结果。
 
-这次项目还会学习清洁能源知识。
+2024年董宇辉出走后，俞敏洪就明确表态，公司不会再出现某个主播独立成立平台。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [市民骑哈啰单车79分钟付30元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-29 14:15 - [退休化学教授帮医药研发人员制毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-29 14:11 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-29 14:04 - [张真源解读相思锁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
-- 2026-06-29 13:59 - [加拿大绝杀南非晋级](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-29 13:58 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuishen.md)
-- 2026-06-29 14:03 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-29 13:56 - [媒体：这一次合肥芜湖在伯仲之间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
-- 2026-06-29 14:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
-- 2026-06-29 14:01 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gerwk.md)
+- 2026-06-29 14:29 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opafs.md)
+- 2026-06-29 14:24 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 14:16 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 14:10 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
+- 2026-06-29 14:21 - [以前不让妆女二可以艳压女主](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 14:23 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psmqs.md)
+- 2026-06-29 14:27 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
+- 2026-06-29 14:25 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 14:03 - [『涤墨作战』望单人 705 天堑并非无法跨越](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 14:22 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-29 14:22 - [Canna纳尔8-0对位单杀Doran](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 14:19 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-29 14:02 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:10 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.kurohicncr.top/Article/details/2924106826.shtml)
-- 2026-06-29 14:19 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://www.blog.minike.top/Article/details/29140.shtml)
-- 2026-06-29 14:03 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/109080.shtml)
-- 2026-06-29 14:10 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/274266093.shtml)
-- 2026-06-29 14:16 - [爱情有烟火你是知道我爱看什么的](http://www.share.kurohicncr.top/Article/details/86059862.shtml)
-- 2026-06-29 13:55 - [Canna纳尔8-0对位单杀Doran](http://www.share.minike.top/Article/details/80308.shtml)
-- 2026-06-29 13:56 - [血糖高的人能吃西瓜吗](https://www.share.kurohicncr.top/Article/details/512654.shtml)
-- 2026-06-29 14:12 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.kurohicncr.top/Article/details/475205.shtml)
-- 2026-06-29 14:04 - [千与千寻](https://www.share.kurohicncr.top/Article/details/216198365.shtml)
-- 2026-06-29 14:17 - [巴西国脚说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/185968396.shtml)
-- 2026-06-29 14:03 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/787375.shtml)
-- 2026-06-29 14:01 - [医药股集体爆发](https://www.blog.kurohicncr.top/Article/details/53551718.shtml)
-- 2026-06-29 14:09 - [日本主帅：目标是冠军](https://www.share.kurohicncr.top/Article/details/41151571.shtml)
-- 2026-06-29 14:23 - [105年初心滚烫](https://www.blog.kurohicncr.top/Article/details/54315980.shtml)
-- 2026-06-29 14:15 - [女子遭家暴逃跑致丈夫身亡二审判决](http://www.share.kurohicncr.top/Article/details/7714053.shtml)
+- 2026-06-29 14:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.blog.minike.top/Article/details/025120964889.shtml)
+- 2026-06-29 14:14 - [爱很美味](http://www.blog.minike.top/Article/details/02577773092.shtml)
+- 2026-06-29 14:01 - [韩国极端网友对主教练发出死亡威胁](https://www.share.minike.top/Article/details/7693931.shtml)
+- 2026-06-29 14:07 - [开电动汽车真的很省钱吗？](https://www.blog.kurohicncr.top/Article/details/14321862.shtml)
+- 2026-06-29 14:12 - [鸭子洪水中摆渡救鸡 课文照进现实](http://www.blog.kurohicncr.top/Article/details/49625.shtml)
+- 2026-06-29 14:28 - [小孩曾卓君夺第八个EVO冠军](http://www.blog.minike.top/Article/details/271379047.shtml)
+- 2026-06-29 14:04 - [航空运输旅客服务质量国标将实施](http://www.blog.minike.top/Article/details/29178521207.shtml)
+- 2026-06-29 14:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/8030130210.shtml)
+- 2026-06-29 14:26 - [韩国队出局是因为内讧吗](https://www.share.kurohicncr.top/Article/details/02043749858.shtml)
+- 2026-06-29 14:06 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/40961.shtml)
+- 2026-06-29 14:29 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/215649.shtml)
+- 2026-06-29 14:26 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/5584368612.shtml)
+- 2026-06-29 14:16 - [欧洲多国激辩“装不装空调”](http://www.blog.kurohicncr.top/Article/details/48351283.shtml)
+- 2026-06-29 14:22 - [天道](http://www.blog.kurohicncr.top/Article/details/14969549.shtml)
+- 2026-06-29 14:01 - [陈靖可虞书欣领衔主演](https://www.blog.kurohicncr.top/Article/details/74230.shtml)

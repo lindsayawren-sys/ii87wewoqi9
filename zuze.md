@@ -1,61 +1,52 @@
-# 2026年服贸会将打造“会展+”融合业态
+# 2026年度中国青年五四奖章暨新时代青年先锋奖评选结果揭晓
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网北京6月1日电 (记者 吕少威)2026年中国国际服务贸易交易会(下称“服贸会”)将于9月9日至9月13日在北京首钢园区举办。本届服贸会将打破传统会展场馆的物理边界，把工业遗存更新地标、产业创新成果展示和“吃住行游购娱”有机结合，推出多条会展小镇“游览线路”和服贸会专属促消费活动，打造“会展+”融合业态。 首钢集团有限公司党委常委、副总经理姜楠在6月1日举行的新闻发布会上
+中新网北京4月27日电 (记者 余湛奕)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重
 
 ## 正文
 
-中新网北京6月1日电 (记者 吕少威)2026年中国国际服务贸易交易会(下称“服贸会”)将于9月9日至9月13日在北京首钢园区举办。
+中新网北京4月27日电 (记者 余湛奕)为表彰先进、树立典型，集中展示新时代中国青年的精神品格和价值追求，共青团中央、全国青联决定，授予支德源等29名同志中国青年五四奖章，授予上海“模速空间”大模型创新生态社区青年团队等30个青年集体中国青年五四奖章集体，授予刁新宇等749名同志新时代青年先锋。
 
-本届服贸会将打破传统会展场馆的物理边界，把工业遗存更新地标、产业创新成果展示和“吃住行游购娱”有机结合，推出多条会展小镇“游览线路”和服贸会专属促消费活动，打造“会展+”融合业态。
+荣获2026年度中国青年五四奖章的分别是：首都医科大学附属北京友谊医院医务处处长、重症医学科主任医师支德源，新疆生产建设兵团第三师图木舒克市叶城二牧场三连党支部副书记古再丽努尔·阿布拉(女)，江西中发天信航空发动机科技有限公司首席技术专家刘臣，天津市公安局治安管理总队攻坚狙击支队战力支援大队副大队长刘琳(女)，武警部队湖南省总队训练基地教研室孙江涛，中国科学院深海科学与工程研究所研究员杜梦然(女)，河北省唐山市乐亭县庞各庄乡阚田各庄村党支部书记兼村委会主任李瑶，山东农业大学园艺科学与工程学院教授李宏博，云南出入境边防检查总站清水河出入境边防检查站勐捧分站执勤一队副队长李金精，沈阳飞机工业(集团)有限公司钳工杨国心，江铃汽车股份有限公司智能装备中心工程车间工程1组班组长杨准正，一汽解放汽车有限公司商用车开发院数控机床特级技能师时敬龙，中国地质大学(北京
 
-首钢集团有限公司党委常委、副总经理姜楠在6月1日举行的新闻发布会上提到上述内容。
+荣获2026年度中国青年五四奖章集体的分别是：上海“模速空间”大模型创新生态社区青年团队，75220部队42分队，中国铁路西安局集团有限公司西安铁路物流中心国际港营业部“丝路青锋”青年团队，北京首都机场航空安保有限公司综合安检部特检科青年先锋队，极地考察站青年突击队，中国农业银行西藏分行“格桑花”金融服务队，中船江南造船福建舰建造管理青年团队，国家税务总局平潭综合实验区税务局第一税务所(办税服务厅)青年集体，中国载人航天工程长征二号F运载火箭应急发射任务攻关团队，中国科学院天津工业生物技术研究所糖生物合成与绿色制造攻关团队，河北省沧州市消防救援支队浮阳北大道特勤站，北方农牧交错区保护性农业创新团队，特高压套管国产化应用青年集体，吉林碳谷“中国质量”35K碳纤维核心技术攻关青年团队，哈尔滨工业大学超精密仪器技术创新团队，“川藏青光明行”眼健康志愿服务队
 
-姜楠表示，今年是服贸会与首钢园携手同行的第六年。
+共青团中央、全国青联号召广大团员青年向模范学习、向先进看齐，深刻领悟“两个确立”的决定性意义，增强“四个意识”、坚定“四个自信”、做到“两个维护”，更加紧密地团结在以习近平同志为核心的党中央周围，坚定不移听党话、跟党走，锚定“十五五”目标任务坚定信心、乘势而上，以昂扬向上的精神风貌和强国有我的责任担当，践行“请党放心、强国有我”的青春誓言，为全面推进强国建设、民族复兴伟业奋力书写新的青春篇章。
 
-六年来，首钢园充分发挥资源禀赋优势，持续更新升级场馆硬件和服务保障，形成以工业风、花园式、聚落式为特色的现代会展新模式。
-
-今年，首钢园将以“会展小镇”的全新姿态呈现，聚焦北京西部最大的活力片区，建设“两园一河”水岸客厅，在生态共建、文旅互动、产业共赢等方面呈现新变化、新特点，为服贸会带来更多精彩。
-
-姜楠提到，首钢集团紧抓“两园一河”和服贸会永久会址建设重大机遇，高标准打造首钢园国际会展小镇，尊重“山水、工业”与“历史、未来”的交融对话，将中央轴线叠加广场街道形成“一环六轴”小镇空间结构。
-
-在整体风貌上，首钢园将展现“山水入园、工业为景”的独特游览体验。
+(完)
 
 ## 相关推荐
 
-- 2026-06-29 13:59 - [德国连续三天刷新本国最高气温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
-- 2026-06-29 14:15 - [84岁英国教授成中国网红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanqia.md)
-- 2026-06-29 14:08 - [三都主：淘汰赛我会支持日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
-- 2026-06-29 14:13 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/foge.md)
-- 2026-06-29 14:08 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
-- 2026-06-29 14:11 - [汪东城回应45岁婚约](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aorav.md)
-- 2026-06-29 14:20 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
-- 2026-06-29 14:05 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 14:13 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jprma.md)
-- 2026-06-29 14:13 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-29 14:08 - [蛋仔岛有救了！神圣蛋小黄出世，我，必将嘎油世界！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
-- 2026-06-29 14:06 - [张真源解读相思锁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 14:08 - [《昨夜将至》为何是悬疑黑马](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
-- 2026-06-29 13:59 - [医药股集体爆发](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nxhuo.md)
-- 2026-06-29 14:07 - [行程万里不忘初心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
+- 2026-06-29 14:02 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
+- 2026-06-29 14:06 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfftd.md)
+- 2026-06-29 14:16 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 14:29 - [宜宾地震瞬间母亲飞奔护住熟睡孩子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
+- 2026-06-29 14:02 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 14:20 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qidvh.md)
+- 2026-06-29 14:29 - [退休化学教授帮医药研发人员制毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzdgf.md)
+- 2026-06-29 14:22 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iufzm.md)
+- 2026-06-29 14:24 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lcrwi.md)
+- 2026-06-29 14:17 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
+- 2026-06-29 14:12 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 14:23 - [加拿大受伤球员单腿跳进球场拥抱队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:13 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/36294086.shtml)
-- 2026-06-29 14:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/0639782506.shtml)
-- 2026-06-29 14:07 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/73500.shtml)
-- 2026-06-29 13:59 - [周深双眼皮贴又掉了](http://www.blog.kurohicncr.top/Article/details/964103.shtml)
-- 2026-06-29 14:18 - [世界田联钻石联赛巴黎站严子怡夺冠](https://www.share.minike.top/Article/details/30284720.shtml)
-- 2026-06-29 14:00 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/73263.shtml)
-- 2026-06-29 14:23 - [超级没格局，拉踩所有人凸显自己；水爆白玉兰，下坡路根本走不完！](http://www.blog.kurohicncr.top/Article/details/89019659271.shtml)
-- 2026-06-29 14:12 - [智界V9成为高端圈层共同选择](https://www.share.kurohicncr.top/Article/details/5355146.shtml)
-- 2026-06-29 14:12 - [东部机场集团新增釜山航线](http://www.share.minike.top/Article/details/70350208.shtml)
-- 2026-06-29 13:57 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.blog.minike.top/Article/details/719209321592.shtml)
-- 2026-06-29 14:02 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/015314.shtml)
-- 2026-06-29 13:59 - [张真源解读相思锁](http://www.share.minike.top/Article/details/73767.shtml)
-- 2026-06-29 14:02 - [宜宾发生5.5级地震 成都震感明显](http://www.share.kurohicncr.top/Article/details/164666.shtml)
-- 2026-06-29 13:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.minike.top/Article/details/85030261697.shtml)
-- 2026-06-29 13:57 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/4764925185.shtml)
+- 2026-06-29 14:16 - [世界杯用球成部分门将噩梦](https://www.share.kurohicncr.top/Article/details/39962802.shtml)
+- 2026-06-29 14:01 - [辽宁葫芦岛市一居民楼突发爆炸](https://www.blog.minike.top/Article/details/018874235287.shtml)
+- 2026-06-29 14:25 - [开电动汽车真的很省钱吗？](http://www.share.minike.top/Article/details/199432999125.shtml)
+- 2026-06-29 14:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.minike.top/Article/details/0551450402.shtml)
+- 2026-06-29 14:19 - [血糖高的人能吃西瓜吗](http://www.share.kurohicncr.top/Article/details/17041014.shtml)
+- 2026-06-29 14:19 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.blog.minike.top/Article/details/3340720482.shtml)
+- 2026-06-29 14:25 - [Canna纳尔8-0对位单杀Doran](http://www.share.kurohicncr.top/Article/details/6895220909.shtml)
+- 2026-06-29 14:15 - [造谣县城满街都是小混混 男子被拘](https://www.share.kurohicncr.top/Article/details/6081122236.shtml)
+- 2026-06-29 14:06 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/6819590.shtml)
+- 2026-06-29 14:24 - [唐艺昕女儿接唐艺昕回家](http://www.blog.kurohicncr.top/Article/details/333713.shtml)
+- 2026-06-29 14:20 - [中国避暑神器在欧洲卖爆了](https://www.share.kurohicncr.top/Article/details/9205098.shtml)
+- 2026-06-29 14:27 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/38021.shtml)
+- 2026-06-29 14:08 - [行程万里不忘初心](https://www.share.kurohicncr.top/Article/details/99461.shtml)
+- 2026-06-29 14:12 - [前国足主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/188217526732.shtml)
+- 2026-06-29 14:01 - [蜘蛛侠:平行宇宙](http://www.share.minike.top/Article/details/60748902.shtml)

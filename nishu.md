@@ -1,61 +1,57 @@
-# Castlelake拟收购易捷航空，估值至少41.2亿美元
+# 新疆伊犁：充电服务提质效 新能源汽车惠民生
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-总部位于明尼阿波利斯的Castlelake需在 6 月 26 日前提交正式收购要约 易捷航空周一表示，受中东局势影响，公司股价短期走低，Castlelake此时披露相关意向，时机带有明显投机色彩。该航空公司强调，目前既未收到对方的收购方案，双方也没有进行任何洽谈。 欧洲早盘交易时段，易捷航空股价大涨 9.52%，报 439.60 便士，收复了年内部分跌幅。 近几周，中东冲突持续
+2026年第一季度，伊犁哈萨克自治州紧扣国家政策部署，在延续2025年良好态势基础上，进一步深挖消费潜力，汽车消费市场热度持续攀升，家用充电桩报装服务高效落地，政策红利与民生便利双向赋能。与此同时，伊犁州聚焦民生出行配套，持续优化新能源汽车充电基础设施建设。当地居民赵文溪接受采访时表示：“我家申请办理家用充电桩，在办理用电报装过程中，供电公司工作人员服务热情，办事高效，真正做到
 
 ## 正文
 
-总部位于明尼阿波利斯的Castlelake需在 6 月 26 日前提交正式收购要约 易捷航空周一表示，受中东局势影响，公司股价短期走低，Castlelake此时披露相关意向，时机带有明显投机色彩。
+2026年第一季度，伊犁哈萨克自治州紧扣国家政策部署，在延续2025年良好态势基础上，进一步深挖消费潜力，汽车消费市场热度持续攀升，家用充电桩报装服务高效落地，政策红利与民生便利双向赋能。
 
-该航空公司强调，目前既未收到对方的收购方案，双方也没有进行任何洽谈。
+与此同时，伊犁州聚焦民生出行配套，持续优化新能源汽车充电基础设施建设。
 
-欧洲早盘交易时段，易捷航空股价大涨 9.52%，报 439.60 便士，收复了年内部分跌幅。
+当地居民赵文溪接受采访时表示：“我家申请办理家用充电桩，在办理用电报装过程中，供电公司工作人员服务热情，办事高效，真正做到了急事快办，便民利民。
 
-近几周，中东冲突持续拖累航空板块走势：地缘政治风险加剧抑制出行需求、推高燃油价格，航线受阻也进一步增加了运营成本。
+” 据统计，2025年底伊犁州电动汽车保有量达50995辆，新能源汽车普及应用规模稳步扩大，市场发展基础坚实有力。
 
-截至上周五收盘，易捷航空股价年内累计下跌 22%。
+与此同时，紧跟新能源汽车技术升级趋势，各大汽车品牌全新重磅推出闪充新能源车型，彻底打消用户里程焦虑、补能不便等问题，全方位提升群众绿色购车、便捷用车体验，助力全州绿色交通体系高质量建设发展。
 
-受中东战事等因素导致燃油成本攀升影响，公司曾在 4 月发布盈利预警；5 月公布的财报显示，其上半财年税前亏损进一步扩大，同时称全年业绩前景存在不确定性。
+比亚迪王朝伊犁金昌店客户经理马斌介绍到：“截至4月份，我们已经销售出去了1000多台新能源车。
 
-易捷航空表示，若收购交易推进，还需攻克监管、资金及落地执行等诸多难题。
+现在购买新能源车能享受到国补、厂补以及我们店端的现金优惠，至高能达到3万多。
 
-公司重申中期目标：实现 10 亿英镑税前利润，并称董事会对现有发展战略抱有信心。
+现在厂家新出的闪充车型，充满一次电只需要9分钟，买闪充车型的用户，还能享受厂家的一年免费充电权益。
 
 ## 相关推荐
 
-- 2026-06-29 14:17 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
-- 2026-06-29 14:21 - [克洛普：加拿大主帅还能继续创造历史](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 14:09 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-29 14:20 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/heipin.md)
-- 2026-06-29 14:07 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-29 13:58 - [前国足主帅：亚洲仅两队晋级不意外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
-- 2026-06-29 14:18 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-29 14:05 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 14:09 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dianliang.md)
-- 2026-06-29 14:21 - [边洗边甩干？游客玩大摆锤遇暴雨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-29 14:07 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 14:05 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hanzang.md)
-- 2026-06-29 14:10 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
-- 2026-06-29 14:14 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gunxue.md)
-- 2026-06-29 13:58 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
+- 2026-06-29 14:19 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
+- 2026-06-29 14:23 - [T1对战KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 14:27 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 14:09 - [陈靖可虞书欣领衔主演](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozave.md)
+- 2026-06-29 14:02 - [在家赤身裸体是否绝对自由](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 14:21 - [中方回应对日本相关出口管制措施](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 14:22 - [日媒称韩国史诗级上上签终成噩梦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-29 14:15 - [央视起底直播诈骗连环套](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 14:27 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
+- 2026-06-29 14:20 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
+- 2026-06-29 14:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:14 - [灿如繁星定档](https://www.blog.minike.top/Article/details/259338135528.shtml)
-- 2026-06-29 13:56 - [王楚钦欢迎晚宴上打台球](http://www.blog.kurohicncr.top/Article/details/89629338275.shtml)
-- 2026-06-29 14:08 - [迈巴赫提车第二天发现大灯起雾](http://www.blog.minike.top/Article/details/47052626.shtml)
-- 2026-06-29 14:22 - [久坐小心“死臀综合征”](http://www.blog.kurohicncr.top/Article/details/71110245.shtml)
-- 2026-06-29 14:09 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/159653916.shtml)
-- 2026-06-29 14:13 - [papi酱自曝曾因尝试21天减肥法患病](https://www.share.kurohicncr.top/Article/details/2283595.shtml)
-- 2026-06-29 13:54 - [扬名立万](https://www.share.kurohicncr.top/Article/details/09577.shtml)
-- 2026-06-29 14:10 - [清华姚班UP主详解AI专业就业](http://www.blog.minike.top/Article/details/907703812.shtml)
-- 2026-06-29 14:16 - [F1奥地利正赛战报](https://www.blog.minike.top/Article/details/3576522.shtml)
-- 2026-06-29 14:19 - [迈巴赫提车第二天发现大灯起雾](https://www.blog.minike.top/Article/details/7612704.shtml)
-- 2026-06-29 14:22 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/64389.shtml)
-- 2026-06-29 13:58 - [金价银价下跌 油价上涨](https://www.share.minike.top/Article/details/27563747460.shtml)
-- 2026-06-29 14:14 - [杨紫飞奔拥抱胡歌](http://www.share.kurohicncr.top/Article/details/5773339.shtml)
-- 2026-06-29 14:09 - [孙颖莎将迎来本届美国大满贯首秀](https://www.share.minike.top/Article/details/87479054.shtml)
-- 2026-06-29 14:15 - [84岁英国教授成中国网红](http://www.blog.kurohicncr.top/Article/details/5161460.shtml)
+- 2026-06-29 14:24 - [勇敢的心第二部](https://www.share.kurohicncr.top/Article/details/3477544.shtml)
+- 2026-06-29 14:20 - [辽宁葫芦岛坍塌居民楼有人员失联](http://www.blog.kurohicncr.top/Article/details/49489047386.shtml)
+- 2026-06-29 14:03 - [Canna纳尔8-0对位单杀Doran](https://www.share.kurohicncr.top/Article/details/860157742541.shtml)
+- 2026-06-29 14:25 - [我和我的家乡](https://www.blog.minike.top/Article/details/667222447.shtml)
+- 2026-06-29 14:28 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/042982505.shtml)
+- 2026-06-29 14:28 - [5万块的威力](http://www.share.minike.top/Article/details/509469257.shtml)
+- 2026-06-29 14:13 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](http://www.share.minike.top/Article/details/18428881.shtml)
+- 2026-06-29 14:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.kurohicncr.top/Article/details/90177.shtml)
+- 2026-06-29 14:04 - [Canna纳尔8-0对位单杀Doran](https://www.blog.minike.top/Article/details/8978019161.shtml)
+- 2026-06-29 14:08 - [人民日报评“AI脸看腻了”](http://www.blog.minike.top/Article/details/682801107.shtml)
+- 2026-06-29 14:00 - [网约车司机转账1.5万后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/69855.shtml)
+- 2026-06-29 14:16 - [林昀儒不敌17岁小将止步首轮](http://www.share.kurohicncr.top/Article/details/532527190709.shtml)
+- 2026-06-29 14:15 - [千与千寻](http://www.blog.minike.top/Article/details/3444979178.shtml)
+- 2026-06-29 14:14 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/11078211.shtml)
+- 2026-06-29 14:00 - [欧委会总部只给高层开空调](https://www.blog.minike.top/Article/details/1580989.shtml)

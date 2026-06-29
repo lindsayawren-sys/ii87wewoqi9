@@ -1,57 +1,57 @@
-# 别迷信“名师押题”！教育部发布2026年高考预警
+# 日本自民党保守派参拜靖国神社，外交部：强烈愤慨，严厉谴责
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网6月2日电 据教育部网站消息，2026年高考即将到来，广大考生已经进入最后冲刺阶段，一些不法分子受利益驱使也在伺机而动，散布高考相关虚假信息，制造贩卖焦虑，组织实施诈骗，甚至诱导考生作弊，严重损害考生和家长切身利益，严重扰乱考试招生秩序。教育部梳理汇总了近年来典型的高考诈骗案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，确保考试
+4月28日，外交部发言人林剑主持例行记者会。 有记者提问，28日，日本自民党保守派团体保守团结会成员及参政党的166名国会地方议员参拜靖国神社，中方对此有何评论？ 林剑指出，所谓靖国神社是日本军国主义发动侵略战争的精神工具和象征，是事实上的“战犯神社”，日方涉所谓靖国神社一系列的消极动向，公然严重践踏历史正义和人类良知，挑战二战胜利成果与战后国际秩序。中方对此强烈愤慨，严厉谴责
 
 ## 正文
 
-中新网6月2日电 据教育部网站消息，2026年高考即将到来，广大考生已经进入最后冲刺阶段，一些不法分子受利益驱使也在伺机而动，散布高考相关虚假信息，制造贩卖焦虑，组织实施诈骗，甚至诱导考生作弊，严重损害考生和家长切身利益，严重扰乱考试招生秩序。
+4月28日，外交部发言人林剑主持例行记者会。
 
-教育部梳理汇总了近年来典型的高考诈骗案例与谣言，提醒广大考生及家长提高警惕，明辨真伪，诚信参加考试，严守法律底线，谨防上当受骗，确保考试安全与个人权益。
+有记者提问，28日，日本自民党保守派团体保守团结会成员及参政党的166名国会地方议员参拜靖国神社，中方对此有何评论？
 
-一、高考组织作弊，必受法律严惩 【案例】 2020年高考期间，陈某邀约谢某共谋组织高考考试作弊，陈某负责统筹安排，联系考生及家长、收取费用、承担开支、提供试题等，谢某负责联系在读大学生为作弊传递消息、试题答案等。
+林剑指出，所谓靖国神社是日本军国主义发动侵略战争的精神工具和象征，是事实上的“战犯神社”，日方涉所谓靖国神社一系列的消极动向，公然严重践踏历史正义和人类良知，挑战二战胜利成果与战后国际秩序。
 
-谢某等人在酒店房间答题时被公安机关当场抓获，陈某自动投案。
+中方对此强烈愤慨，严厉谴责。
 
-【提醒】 《中华人民共和国刑法》明确规定，在法律规定的国家考试中，“组织作弊的”“向考生提供试题、答案的”，都属于违法行为，参与者将面临有期徒刑、罚金等处罚。
+林剑表示，今年是东京审判开庭80周年，几天后的5月3日是审判开庭的纪念日。
 
-近年来，公安机关与相关部门密切协同，对考试违法犯罪行为始终保持高压严打态势。
+80年前国际社会以如山的铁证对日本侵略罪行盖棺定论，依法裁决日本甲级战犯，捍卫了世界反法西斯战争胜利成果和国际公义。
 
-广大考生要严守法律法规底线，切勿一时糊涂，触碰法律红线。
+80年后的今天，日方的某些政客和右翼势力不仅不思悔改，反而变本加厉，频频参拜供有甲级战犯的靖国神社，妄图为侵略历史翻案，为战争罪行洗白，为军国主义招魂。
 
-二、替考代价太大，莫让自己触线 【案例】 2024年5月，曹某、王某在互联网平台发布高考有偿替考相关网络信息，引发网民关注，造成恶劣社会影响。
+“中国人民、当年遭受日本侵略的各国人民、世界上一切爱好和平的正义力量，对此绝不答应。
 
 ## 相关推荐
 
-- 2026-06-29 14:12 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 13:57 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
-- 2026-06-29 14:16 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bsrnp.md)
-- 2026-06-29 13:56 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
-- 2026-06-29 14:05 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-29 14:14 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-29 13:59 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 14:14 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
-- 2026-06-29 13:59 - [周杰伦演唱会真的好多人啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-29 14:21 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvebg.md)
-- 2026-06-29 14:15 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqhuk.md)
+- 2026-06-29 14:29 - [辽宁葫芦岛居民楼爆炸 多层楼被炸毁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-29 14:01 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 14:10 - [手游300亿数据或被军事化运用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 14:10 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 14:25 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gpbst.md)
+- 2026-06-29 14:28 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-29 14:05 - [委内瑞拉地震已致1450死3150伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 14:15 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
+- 2026-06-29 14:17 - [肖战深夜到达青岛赴十日终焉片场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-29 14:00 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 14:02 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:20 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/071398.shtml)
-- 2026-06-29 14:02 - [青春环游记第三季](https://www.blog.minike.top/Article/details/56549663368.shtml)
-- 2026-06-29 13:59 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/42088406.shtml)
-- 2026-06-29 13:59 - [法拉利被4个孩子当滑梯玩](http://www.blog.minike.top/Article/details/032518878139.shtml)
-- 2026-06-29 13:54 - [男子造谣县城满街都是小混混被行拘](https://www.share.kurohicncr.top/Article/details/33766596139.shtml)
-- 2026-06-29 13:56 - [法拉利被4个孩子当滑梯玩](https://www.share.kurohicncr.top/Article/details/9992829209.shtml)
-- 2026-06-29 14:03 - [赵露思爸爸拍vlog翻车了](http://www.blog.minike.top/Article/details/22204749832.shtml)
-- 2026-06-29 14:12 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/12704419.shtml)
-- 2026-06-29 13:56 - [7月1日起一批新规即将落地](https://www.blog.minike.top/Article/details/3070727.shtml)
-- 2026-06-29 13:56 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/0685103.shtml)
-- 2026-06-29 14:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/47020072.shtml)
-- 2026-06-29 14:23 - [詹俊：巴西能凭借两大优势战胜日本](http://www.share.minike.top/Article/details/4384021555.shtml)
-- 2026-06-29 14:02 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/8138181.shtml)
-- 2026-06-29 14:15 - [尹恩惠自曝14年没谈过恋爱](http://www.share.kurohicncr.top/Article/details/17087628.shtml)
-- 2026-06-29 14:23 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/493423.shtml)
+- 2026-06-29 14:27 - [四川宜宾地震致13人受轻微伤](http://www.blog.kurohicncr.top/Article/details/09389.shtml)
+- 2026-06-29 14:20 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/377914719516.shtml)
+- 2026-06-29 14:04 - [多只A股发布股价异动公告](http://www.blog.kurohicncr.top/Article/details/594570693764.shtml)
+- 2026-06-29 14:02 - [中方回应对日本相关出口管制措施](https://www.blog.minike.top/Article/details/696637051.shtml)
+- 2026-06-29 14:17 - [世界杯超牛补水广告出现了](https://www.share.minike.top/Article/details/73287428.shtml)
+- 2026-06-29 14:05 - [被丈夫抛土崖女子尸检证明是摔死的](https://www.share.kurohicncr.top/Article/details/4075048.shtml)
+- 2026-06-29 14:18 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://www.blog.minike.top/Article/details/88897.shtml)
+- 2026-06-29 14:20 - [吴磊爱上回收了](http://www.blog.kurohicncr.top/Article/details/37415951.shtml)
+- 2026-06-29 14:03 - [林昀儒止步美国大满贯首轮](http://www.share.kurohicncr.top/Article/details/38444746.shtml)
+- 2026-06-29 14:21 - [C罗关心罗德里戈伤情](https://www.blog.kurohicncr.top/Article/details/273751.shtml)
+- 2026-06-29 14:20 - [游戏数据被用于军事目的 国安部提醒](http://www.blog.kurohicncr.top/Article/details/22955.shtml)
+- 2026-06-29 14:25 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/625260035344.shtml)
+- 2026-06-29 14:00 - [共享单车“价格刺客”79分钟30元](http://www.share.kurohicncr.top/Article/details/29754073426.shtml)
+- 2026-06-29 14:25 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/57490614.shtml)
+- 2026-06-29 14:18 - [王楚钦首轮赢下国乒德比](http://www.share.kurohicncr.top/Article/details/962569.shtml)

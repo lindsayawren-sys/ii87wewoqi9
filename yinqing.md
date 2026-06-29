@@ -1,56 +1,57 @@
-# 2026年西江干流首次生态敏感期水量调度开展
+# 黑芝麻（000716）被立案，股民索赔可期
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中新网广州6月1日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)1日消息，近日，受持续性强降雨影响，西江干流及支流柳江出现明显涨水过程。该委抢抓主汛期前窗口期，统筹开展2026年西江干流首次生态敏感期水量调度，科学实施洪水塑造，调度成效显著。珠江委介绍，该委在确保流域防洪安全的前提下，会同相关电网、流域有关省(自治区)水利部门，科学调度大藤峡水利枢纽，同步联合运用龙
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月25日，南方黑芝麻（维权）集团股份有限公司（简称：黑芝麻，代码：000716）发布《关于公司及相关当事人收到立案告知书的公告》，称因公司及公司时任董事长韦清文先生涉嫌信息披露违法违规等行为，根据《中华人民共和国证券法》的有关规定，中国证券监督管理委员会决定对公司立案调查。 根据《民法典》、《证券法》及最高人民法院的
 
 ## 正文
 
-中新网广州6月1日电 (记者 王坚)据水利部珠江水利委员会(下称“珠江委”)1日消息，近日，受持续性强降雨影响，西江干流及支流柳江出现明显涨水过程。
+登录新浪财经APP 搜索【信披】查看更多考评等级 2026年4月25日，南方黑芝麻（维权）集团股份有限公司（简称：黑芝麻，代码：000716）发布《关于公司及相关当事人收到立案告知书的公告》，称因公司及公司时任董事长韦清文先生涉嫌信息披露违法违规等行为，根据《中华人民共和国证券法》的有关规定，中国证券监督管理委员会决定对公司立案调查。
 
-该委抢抓主汛期前窗口期，统筹开展2026年西江干流首次生态敏感期水量调度，科学实施洪水塑造，调度成效显著。
+根据《民法典》、《证券法》及最高人民法院的关于虚假陈述民事赔偿司法解释的规定，上市公司、控股股东、实际控制人、董监高人员及其中介机构等因虚假陈述等的证券欺诈行为导致证券投资者权益受损的，应承担民事赔偿责任，赔偿范围包括：投资差额、佣金、印花税等。
 
-珠江委介绍，该委在确保流域防洪安全的前提下，会同相关电网、流域有关省(自治区)水利部门，科学调度大藤峡水利枢纽，同步联合运用龙滩、岩滩等其他水库，优化各水库下泄流量与时机，使控制断面大湟江口站实现连续4天涨水、日均涨幅达到1000立方米每秒以上的调度目标，成功塑造与目标产卵场代表性鱼类产卵繁殖需求精准匹配的可控涨水过程。
+权益受损的证券投资者可以向有管辖权的法院提起民事赔偿诉讼。
 
-珠江委水文局生态监测结果显示，调度期间，西江干流中下游河段鱼类卵苗径流量增幅显著。
+由于黑芝麻涉嫌信息披露违法违规，被中国证监会立案调查，为维护证券投资者合法权益，上海汉联律师事务所宋一欣律师向曾经购买过黑芝麻的证券投资者展开诉讼代理征集，代理投资者索赔诉讼，权益受损的证券投资者可以向前述律师进行索赔登记。
 
-5月18日至22日，桂平监测断面日均鱼类卵苗径流量为调度前的近10倍；其中5月21日单日鱼卵径流量达到调度前的266倍。
+（宋一欣律师专栏） 宋一欣律师认为，黑芝麻案的索赔条件为：2026年4月25日前买入黑芝麻股票或债券等证券市场公开发行产品，并在2026年4月25日及之后卖出或继续持有的受损投资者，可以办理索赔登记。
 
-本次洪水塑造为西江中下游河段鱼类繁殖注入有力的“生态脉冲”，有效激发亲鱼聚集与产卵活动，推动繁殖规模实现数量级跃升。
+（黑芝麻维权入口） ★（律师对本案的提示与说明） 1．上述提示的索赔条件仅供参考，不涉及投资者任何证券投资决策和证券买卖建议。
 
-珠江委表示，下一步，该委将及时总结评估本次调度成效与经验，持续加强雨水情滚动预测，不断探索洪水塑造技术方法和实践路径，为西江流域生物多样性保护和河流生命健康提供坚实保障。
+索赔的最终条件将根据中国证监会行政处罚的结论进一步调整，并以相关法院最终生效的判决所认定的法律时点、赔付对象、赔付范围、赔付标准、会计计算方式为准。
 
-(完)
+2．以行政处罚决定为特征的前置条件取消后，投资者虽然可以直接诉讼，但由于调查手段有限，以立案调查通知或行政监管措施决定作为直接诉讼的依据起诉存在败诉的风险，所以，我作为专业律师提示投资者：行政处罚决定仍然应当作为提起诉讼的必要前提之一。
 
 ## 相关推荐
 
-- 2026-06-29 14:08 - [双高胎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 14:20 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-29 14:10 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
-- 2026-06-29 14:02 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
-- 2026-06-29 14:04 - [世界杯用球成部分门将噩梦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 14:16 - [赵露思爸爸拍vlog翻车了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/luntun.md)
-- 2026-06-29 14:21 - [多家银行收紧个人贵金属业务](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
-- 2026-06-29 14:23 - [媒体评恋与深空争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-29 14:18 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peirang.md)
-- 2026-06-29 14:17 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/egrik.md)
+- 2026-06-29 14:12 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dofay.md)
+- 2026-06-29 14:22 - [《昨夜将至》为何是悬疑黑马](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxhuo.md)
+- 2026-06-29 14:20 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
+- 2026-06-29 14:01 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-29 14:14 - [那些裸辞搞OPC一人公司的人，现在怎么样了？AI时代三大“骗局”：一人公司、openclaw、AI培训](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
+- 2026-06-29 14:20 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-29 14:28 - [赵露思爸爸拍vlog“翻车”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-29 14:16 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/murfy.md)
+- 2026-06-29 14:22 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruipu.md)
+- 2026-06-29 14:28 - [行程万里不忘初心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
+- 2026-06-29 14:17 - [周深双眼皮贴又掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:04 - [薛之谦演唱会](http://www.share.kurohicncr.top/Article/details/58888.shtml)
-- 2026-06-29 14:22 - [NBA交易](https://www.blog.kurohicncr.top/Article/details/167365638.shtml)
-- 2026-06-29 14:09 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.share.kurohicncr.top/Article/details/132984080880.shtml)
-- 2026-06-29 14:23 - [中方回应对日本相关出口管制措施](https://www.share.kurohicncr.top/Article/details/473785.shtml)
-- 2026-06-29 14:00 - [恋与深空底线不该被娱乐化](https://www.blog.minike.top/Article/details/69018575599.shtml)
-- 2026-06-29 14:12 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.minike.top/Article/details/594213846.shtml)
-- 2026-06-29 13:58 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/658679736783.shtml)
-- 2026-06-29 14:21 - [马斯克也站到了光里](https://www.blog.kurohicncr.top/Article/details/27167763.shtml)
-- 2026-06-29 14:03 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/59568665726.shtml)
-- 2026-06-29 14:04 - [明星大侦探第四季](http://www.share.minike.top/Article/details/236602558131.shtml)
-- 2026-06-29 14:18 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/21158976.shtml)
-- 2026-06-29 14:17 - [行程万里不忘初心](https://www.share.minike.top/Article/details/876343031.shtml)
-- 2026-06-29 14:11 - [日媒称韩国史诗级上上签终成噩梦](http://www.share.kurohicncr.top/Article/details/4754698.shtml)
-- 2026-06-29 14:02 - [84岁英国教授成中国网红](https://www.blog.kurohicncr.top/Article/details/4389507818.shtml)
-- 2026-06-29 13:56 - [配音演员于小华病逝 享年78岁](https://www.share.kurohicncr.top/Article/details/8452651.shtml)
+- 2026-06-29 14:01 - [恋与深空底线不该被娱乐化](http://www.blog.kurohicncr.top/Article/details/928255.shtml)
+- 2026-06-29 14:00 - [美伊同意停止互袭](http://www.blog.minike.top/Article/details/66577.shtml)
+- 2026-06-29 14:25 - [共享单车“价格刺客”79分钟30元](http://www.share.minike.top/Article/details/921718738.shtml)
+- 2026-06-29 14:07 - [计算机专业曾经有哪些方向非常火后来却凉了？](https://www.share.minike.top/Article/details/26628.shtml)
+- 2026-06-29 14:01 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/66769035358.shtml)
+- 2026-06-29 14:13 - [美伊同意停止互袭 30日在多哈谈判](https://www.blog.kurohicncr.top/Article/details/2562635171.shtml)
+- 2026-06-29 14:27 - [张一山回应与杨紫友情](http://www.share.minike.top/Article/details/12613669886.shtml)
+- 2026-06-29 14:17 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/0239118.shtml)
+- 2026-06-29 14:06 - [亚洲成世界杯最大失意者联盟](https://www.blog.kurohicncr.top/Article/details/31776.shtml)
+- 2026-06-29 14:23 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/1365507000.shtml)
+- 2026-06-29 14:07 - [ENC瓦中国香港负印度数据图](http://www.share.kurohicncr.top/Article/details/645098.shtml)
+- 2026-06-29 14:02 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.kurohicncr.top/Article/details/619318258.shtml)
+- 2026-06-29 14:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/29564390219.shtml)
+- 2026-06-29 14:24 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/292407.shtml)
+- 2026-06-29 14:25 - [AG 钟意](http://www.blog.minike.top/Article/details/9145613.shtml)

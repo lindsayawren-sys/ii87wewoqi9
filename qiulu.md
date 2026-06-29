@@ -1,60 +1,60 @@
-# 卡利巴夫的“新角色”
+# 6年骗22家险企780万！车险骗保竟有内鬼配合？
 
-> 更新时间：2026-06-29 14:24:03 UTC+8
+> 更新时间：2026-06-29 14:30:03 UTC+8
 
 ## 摘要
 
-中国新闻周刊记者：陈佳琳 发于总第1237期《中国新闻周刊》杂志 过去一周，美国与伊朗的停火协议“基本谈成”的消息，引发了共和党鹰派的恐慌。他们罕见地公开批评特朗普，认为他急于结束战争，对伊朗作出太多让步。 在万里之外的德黑兰，针对伊朗对美首席谈判代表、伊斯兰议会议长卡利巴夫的政治攻击也在加剧。据半官方性质的伊朗劳工通讯社(ILNA)报道，伊朗议会投票选举新一届主席团前，出现了
+来源：险联社 最近，央视连续曝光两起横跨5-6年的特大车险诈骗案。 辽宁沈阳团伙6年制造2400余起假车祸，骗取22家保险公司780余万元；山西阳泉团伙以“免费修车”为诱饵，5年伪造300余起事故。 两案均因行业漏洞长期潜伏，最终38名涉案人员落网，28人已被依法判刑。案件揭开车险行业“数据孤岛”、“审核宽松”等深层问题，全体车主或成最终买单者。 第一案：沈阳：黑衣头目遥控24
 
 ## 正文
 
-中国新闻周刊记者：陈佳琳 发于总第1237期《中国新闻周刊》杂志 过去一周，美国与伊朗的停火协议“基本谈成”的消息，引发了共和党鹰派的恐慌。
+来源：险联社 最近，央视连续曝光两起横跨5-6年的特大车险诈骗案。
 
-他们罕见地公开批评特朗普，认为他急于结束战争，对伊朗作出太多让步。
+辽宁沈阳团伙6年制造2400余起假车祸，骗取22家保险公司780余万元；山西阳泉团伙以“免费修车”为诱饵，5年伪造300余起事故。
 
-在万里之外的德黑兰，针对伊朗对美首席谈判代表、伊斯兰议会议长卡利巴夫的政治攻击也在加剧。
+两案均因行业漏洞长期潜伏，最终38名涉案人员落网，28人已被依法判刑。
 
-据半官方性质的伊朗劳工通讯社(ILNA)报道，伊朗议会投票选举新一届主席团前，出现了针对卡利巴夫的“有组织诋毁”。
+案件揭开车险行业“数据孤岛”、“审核宽松”等深层问题，全体车主或成最终买单者。
 
-部分反对谈判的激进派，通过媒体和短信攻势向议员施压，试图阻止卡利巴夫继续领导议会。
+第一案：沈阳：黑衣头目遥控2400起假车祸，6年骗保780万 据央视《今日说法》2026年4月9日节目《六年骗保现形记》报道，辽宁新民市法院于2026年3月18日作出一审判决：以出租车司机信某为首的28名被告人，因犯保险诈骗罪分别被判处六年六个月至九个月有期徒刑，并处罚金，另有10名涉案人员案件正在进一步审理中。
 
-美伊再次爆发有限冲突的5月25日，卡利巴夫以决定性优势战胜极端强硬派支持的挑战者，成功连任，任期再延长一年。
+这起案件的侦破源于2025年初某保险公司的大数据预警。
 
-同一天，他与外长阿拉格齐、央行行长赫马蒂奔赴卡塔尔，在为期一天的行程中重点讨论伊朗被冻结资产的解冻问题。
+系统显示，多名人员短期内出险频次异常，且事故多为轻微剐蹭，却集中申报“软组织挫伤”相关的医疗费、误工费理赔，部分人员半个月内互换驾驶员、伤者身份交叉出险。
 
-面对内部纷争，伊朗最高国家安全委员会秘书佐勒加德尔罕见公开发声，称此时伊朗更需要保持团结，唯其如此，才有可能获得“最终胜利”。
+保险公司追溯2019年以来数据发现，同类异常事故达上千起，随即向沈阳公安经侦部门报案。
 
 ## 相关推荐
 
-- 2026-06-29 14:18 - [四川宜宾地震致13人受轻微伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shuicui.md)
-- 2026-06-29 14:07 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
-- 2026-06-29 14:06 - [美媒：空警-3000服役即成全球最强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leijuan.md)
-- 2026-06-29 14:02 - [民进党为什么拼命抹黑统战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-29 14:12 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
-- 2026-06-29 14:05 - [韩国队出局引发意大利球迷全网狂欢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
-- 2026-06-29 14:09 - [张真源解读相思锁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
-- 2026-06-29 14:23 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
-- 2026-06-29 14:16 - [巴西德国15次闯进世界杯淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-29 14:02 - [鸭子洪水中摆渡救鸡 课文照进现实](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
-- 2026-06-29 14:13 - [世界杯看到肖战了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pevhq.md)
-- 2026-06-29 14:16 - [7月1日起一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/caigao.md)
-- 2026-06-29 14:22 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
-- 2026-06-29 14:20 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
+- 2026-06-29 14:04 - [T1零封KC MSI](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-29 14:29 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 14:15 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunpi.md)
+- 2026-06-29 14:09 - [锐评浪姐7总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
+- 2026-06-29 14:19 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
+- 2026-06-29 14:15 - [F1奥地利正赛战报](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 14:29 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-29 14:07 - [84岁英国教授成中国网红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-29 14:29 - [实习期把公司领导开除了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
+- 2026-06-29 14:04 - [唐国强打卡贵阳孔学堂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 14:07 - [王楚钦3比0周启豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jegcb.md)
+- 2026-06-29 14:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianrou.md)
+- 2026-06-29 14:12 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-29 14:13 - [俄称继续推进 乌称打击俄军设施](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 14:07 - [刘仲华院士愿当“8个鸡蛋”少年导师](http://www.blog.minike.top/Article/details/233500.shtml)
-- 2026-06-29 14:05 - [德国队前往比赛场地遭遇囧途](http://www.share.minike.top/Article/details/753720043195.shtml)
-- 2026-06-29 14:22 - [张真源解读相思锁](https://www.blog.minike.top/Article/details/199787460.shtml)
-- 2026-06-29 14:07 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/099456.shtml)
-- 2026-06-29 14:06 - [全国第三艘万车级汽车运输船交付](http://www.blog.kurohicncr.top/Article/details/2532164.shtml)
-- 2026-06-29 14:16 - [2021江苏卫视跨年演唱会](https://www.blog.minike.top/Article/details/36822.shtml)
-- 2026-06-29 13:56 - [昆仑芯拟在港上市 目标估值500亿美元](http://www.share.minike.top/Article/details/405057.shtml)
-- 2026-06-29 14:12 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/6979361.shtml)
-- 2026-06-29 14:12 - [迈巴赫提车第二天发现大灯起雾](http://www.share.minike.top/Article/details/05777588308.shtml)
-- 2026-06-29 13:58 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/784411.shtml)
-- 2026-06-29 13:58 - [李连杰回应网传不管前妻俩女儿](https://www.share.minike.top/Article/details/210913438791.shtml)
-- 2026-06-29 14:16 - [高考公平需要延伸到志愿填报这一环](https://www.blog.minike.top/Article/details/8722052006.shtml)
-- 2026-06-29 14:22 - [普京：俄面临命运攸关时刻](http://www.blog.kurohicncr.top/Article/details/39273479.shtml)
-- 2026-06-29 14:21 - [金价银价下跌 油价上涨](https://www.blog.kurohicncr.top/Article/details/752531.shtml)
-- 2026-06-29 13:58 - [梅朗雄主张法国退出北约](http://www.blog.kurohicncr.top/Article/details/47507947721.shtml)
+- 2026-06-29 14:01 - [斗破苍穹](http://www.blog.minike.top/Article/details/104196632.shtml)
+- 2026-06-29 14:24 - [啊啊啊](https://www.share.kurohicncr.top/Article/details/53358088069.shtml)
+- 2026-06-29 14:18 - [2026年Mac能玩游戏了吗](https://www.blog.kurohicncr.top/Article/details/7581471538.shtml)
+- 2026-06-29 14:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/8070809.shtml)
+- 2026-06-29 14:20 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/219315.shtml)
+- 2026-06-29 14:04 - [全网首发！万人见证！18关空气墙迷宫突破成功！「三角洲S10赛季」](http://www.share.minike.top/Article/details/275193.shtml)
+- 2026-06-29 14:26 - [世界杯看台惊现一群“哈兰德”](https://www.blog.kurohicncr.top/Article/details/43777540.shtml)
+- 2026-06-29 14:14 - [欧洲超1300例超额死亡与高温有关](http://www.share.kurohicncr.top/Article/details/711019303.shtml)
+- 2026-06-29 14:24 - [乔家的儿女](https://www.share.minike.top/Article/details/8958624.shtml)
+- 2026-06-29 14:22 - [博主：比亚迪赢了销量却输给资本](https://www.blog.minike.top/Article/details/80139904.shtml)
+- 2026-06-29 14:13 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/91206992632.shtml)
+- 2026-06-29 14:28 - [李在明称韩国足协任命了无能之人](http://www.share.kurohicncr.top/Article/details/915063944538.shtml)
+- 2026-06-29 14:24 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.kurohicncr.top/Article/details/39733036547.shtml)
+- 2026-06-29 14:29 - [欧洲人驾车200公里抢购中国空调](http://www.share.kurohicncr.top/Article/details/898483913.shtml)
+- 2026-06-29 14:20 - [运20飞机列装空军十周年](https://www.blog.minike.top/Article/details/5683857.shtml)
