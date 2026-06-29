@@ -1,56 +1,60 @@
-# 在鲁班工坊，看哈萨克斯坦学生上手“智能制造”
+# 淡季出奇迹！PCB产业链公司业绩大增
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新社阿斯塔纳5月22日电 题：在鲁班工坊，看哈萨克斯坦学生上手“智能制造” 中新社记者 单璐 “我们的研究项目是利用机器视觉，识别植物幼苗在不同生长阶段的健康状态。”在位于阿斯塔纳的哈萨克斯坦国立欧亚大学鲁班工坊里，人工智能技术专业二年级学生叶拉瑟尔正娴熟地操作机械臂，沿着传送带对样本进行精准抓取和分类。随着围观人群越聚越多，他接过话筒，向来宾介绍自己的学习内容。 22日，哈
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！最近一周，一批PCB（印制电路板）产业链公司披露了2026年一季度业绩大增的公告。这折射出，在AI需求强劲增长的背景下，该产业链上下游的景气度正由PCB制造环节向上游材料、关键设备等领域扩散。 “真是供不应求。”有PCB龙头企业说。多家接受上海证券报记者采访的行业高管认为，从一季度订单、价格及产能变化可预见
 
 ## 正文
 
-中新社阿斯塔纳5月22日电 题：在鲁班工坊，看哈萨克斯坦学生上手“智能制造” 中新社记者 单璐 “我们的研究项目是利用机器视觉，识别植物幼苗在不同生长阶段的健康状态。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”在位于阿斯塔纳的哈萨克斯坦国立欧亚大学鲁班工坊里，人工智能技术专业二年级学生叶拉瑟尔正娴熟地操作机械臂，沿着传送带对样本进行精准抓取和分类。
+最近一周，一批PCB（印制电路板）产业链公司披露了2026年一季度业绩大增的公告。
 
-随着围观人群越聚越多，他接过话筒，向来宾介绍自己的学习内容。
+这折射出，在AI需求强劲增长的背景下，该产业链上下游的景气度正由PCB制造环节向上游材料、关键设备等领域扩散。
 
-22日，哈萨克斯坦国立欧亚大学迎来建校30周年庆典活动，该校鲁班工坊也于当天首次向公众开放。
+“真是供不应求。
 
-这是哈萨克斯坦第二家鲁班工坊，由天津职业大学与哈萨克斯坦国立欧亚大学共同建设，聚焦人工智能方向人才培养与技能培训，设有智能协作机器人、智能模拟生产线、机器视觉、大型无人机四个实训区域。
+”有PCB龙头企业说。
 
-“有了鲁班工坊，现在我们能直接操作自动化设备，参与项目测试和实践。
+多家接受上海证券报记者采访的行业高管认为，从一季度订单、价格及产能变化可预见，这股火爆劲有望一直延续到年底，甚至明年。
 
-”人工智能技术专业学生然萨娅说。
+同时，企业的扩产步伐也在加快。
 
-“现在哈萨克斯坦数字化和自动化发展越来越快，未来会需要更多这方面的人才，相信等我毕业后能找到一份不错的工作。
+“但越到后面，行业就会分化。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rstuz.md)
-- 2026-06-29 16:22 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 16:10 - [T1 3-0 KC赛后数据](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
-- 2026-06-29 16:12 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-29 16:35 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 16:21 - [TLAW零封DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jzrri.md)
-- 2026-06-29 16:28 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 16:09 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 16:09 - [上周末 多领域成果密集“上新”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-29 16:09 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-29 16:25 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-29 16:26 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
+- 2026-06-29 16:18 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
+- 2026-06-29 16:22 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/isqto.md)
+- 2026-06-29 16:17 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 16:13 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 16:30 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
+- 2026-06-29 16:28 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-29 16:14 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-29 16:25 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-29 16:29 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-29 16:32 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhisuan.md)
+- 2026-06-29 16:23 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjdho.md)
+- 2026-06-29 16:22 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [1个视频看懂2026志愿填报新专业](https://www.blog.kurohicncr.top/Article/details/836170957.shtml)
-- 2026-06-29 16:25 - [A股涨指数不涨个股的日子要结束了吗](https://www.blog.minike.top/Article/details/102699826325.shtml)
-- 2026-06-29 16:22 - [韩国队如何把94%出线概率打到0%](http://www.share.kurohicncr.top/Article/details/63016.shtml)
-- 2026-06-29 16:32 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/38153.shtml)
-- 2026-06-29 16:18 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/410706944.shtml)
-- 2026-06-29 16:20 - [恋与深空道歉就够了吗](http://www.share.kurohicncr.top/Article/details/1667155767.shtml)
-- 2026-06-29 16:22 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.share.kurohicncr.top/Article/details/53068.shtml)
-- 2026-06-29 16:21 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/49320113156.shtml)
-- 2026-06-29 16:27 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/953474931.shtml)
-- 2026-06-29 16:18 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/03600.shtml)
-- 2026-06-29 16:14 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.blog.minike.top/Article/details/019770.shtml)
-- 2026-06-29 16:13 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/872703.shtml)
-- 2026-06-29 16:10 - [央视起底直播诈骗连环套](http://www.share.minike.top/Article/details/676542055449.shtml)
-- 2026-06-29 16:12 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/827322.shtml)
-- 2026-06-29 16:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.kurohicncr.top/Article/details/99770.shtml)
+- 2026-06-29 16:30 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/26846320.shtml)
+- 2026-06-29 16:34 - [葫芦岛居民楼爆炸致3失联8伤](https://www.blog.kurohicncr.top/Article/details/380834807844.shtml)
+- 2026-06-29 16:30 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/86578.shtml)
+- 2026-06-29 16:32 - [NBA交易](http://www.blog.kurohicncr.top/Article/details/2617200246.shtml)
+- 2026-06-29 16:21 - [张雪机车杀向海外](https://www.share.minike.top/Article/details/21111353725.shtml)
+- 2026-06-29 16:34 - [唐国强打卡贵阳孔学堂](http://www.blog.minike.top/Article/details/259027786235.shtml)
+- 2026-06-29 16:31 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/486235273.shtml)
+- 2026-06-29 16:38 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/314402420.shtml)
+- 2026-06-29 16:13 - [斛珠夫人](https://www.blog.minike.top/Article/details/504024.shtml)
+- 2026-06-29 16:25 - [青春环游记第三季](http://www.share.minike.top/Article/details/09808600081.shtml)
+- 2026-06-29 16:30 - [拍到真的赛博朋克边缘行者了！](http://www.share.kurohicncr.top/Article/details/6354029250.shtml)
+- 2026-06-29 16:21 - [巴西球员：日本队有点傲慢了](https://www.share.minike.top/Article/details/96381722549.shtml)
+- 2026-06-29 16:41 - [内马尔打日本前先买百万美元豪表](https://www.share.minike.top/Article/details/93460.shtml)
+- 2026-06-29 16:38 - [叠纸](http://www.blog.kurohicncr.top/Article/details/67581482828.shtml)
+- 2026-06-29 16:18 - [唐国强打卡贵阳孔学堂](http://www.share.kurohicncr.top/Article/details/07146.shtml)

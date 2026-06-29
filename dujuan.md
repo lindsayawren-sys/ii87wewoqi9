@@ -1,61 +1,61 @@
-# 黑龙江中西部迎降雨大风冰雹 局地或有龙卷风
+# 押注趣店带来业绩骤降，国盛证券暴雷警示“自营驱动”模式隐忧
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月22日电 (记者 姜辉)预计22日夜间至23日，黑龙江省中西部大部有小到中雨，局地中到大雨，降水同时多雷暴大风、冰雹天气，平均风力5级至6级，阵风8级至9级，局地可达10级。23日14时至20时，黑河南部、大庆、绥化、哈尔滨西部局地可能有龙卷风发生。 22日，黑龙江省气象台发布大风预报，预计22日夜至23日，大兴安岭、黑河、齐齐哈尔、大庆、绥化、哈尔滨西部、鸡西
+专题：国盛证券被HTT拖垮，一季度净利暴跌近九成 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！更为致命的是，2025年年报显示，国盛证券的“金融资产投资”一项中，仅有趣店这一只股票，其余为债券、信托产品、资管计划产品等。这进一步放大了趣店股价波动对国盛证券的冲击。 近年来，自营业务作为券商营收“压舱石”的地位日益凸显。然而2026年一季度，两家上市券
 
 ## 正文
 
-中新网哈尔滨5月22日电 (记者 姜辉)预计22日夜间至23日，黑龙江省中西部大部有小到中雨，局地中到大雨，降水同时多雷暴大风、冰雹天气，平均风力5级至6级，阵风8级至9级，局地可达10级。
+专题：国盛证券被HTT拖垮，一季度净利暴跌近九成 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-23日14时至20时，黑河南部、大庆、绥化、哈尔滨西部局地可能有龙卷风发生。
+更为致命的是，2025年年报显示，国盛证券的“金融资产投资”一项中，仅有趣店这一只股票，其余为债券、信托产品、资管计划产品等。
 
-22日，黑龙江省气象台发布大风预报，预计22日夜至23日，大兴安岭、黑河、齐齐哈尔、大庆、绥化、哈尔滨西部、鸡西、牡丹江有6级至7级阵风，其中，大兴安岭南部、黑河、齐齐哈尔南部、大庆南部、绥化北部局地阵风8级至9级。
+这进一步放大了趣店股价波动对国盛证券的冲击。
 
-黑龙江省气象台发布的天气预报信息显示，22日夜间，大兴安岭、黑河、伊春、齐齐哈尔、大庆、绥化、哈尔滨有阵雨或雷阵雨。
+近年来，自营业务作为券商营收“压舱石”的地位日益凸显。
 
-大兴安岭、黑河、伊春、齐齐哈尔、大庆、绥化、哈尔滨西部有雷暴大风，阵风8级至9级。
+然而2026年一季度，两家上市券商同时因自营业务投资失利出现业绩骤降。
 
-23日白天，黑河西部、伊春南部、绥化北部、哈尔滨北部有中雨，大兴安岭、黑河东部、伊春北部、齐齐哈尔、大庆、绥化南部、哈尔滨南部、鹤岗、佳木斯西部、七台河、牡丹江西部有阵雨或雷阵雨。
+4月20日晚，国盛证券（002670.SZ）披露的一季度业绩快报显示，该公司2026年一季度归母净利润仅146.87万元，同比骤降97.91%。
 
-黑河南部、齐齐哈尔、大庆、绥化、哈尔滨西部有雷暴大风，部分地区伴有冰雹，阵风8级至9级，局地可达10级。
+同时其营业总收入同比下降28.82%，至2.96亿元。
 
-23日夜间，伊春南部有中雨，黑河东部、伊春北部、哈尔滨、鹤岗、佳木斯西部、双鸭山西部、七台河、牡丹江北部有阵雨或雷阵雨。
+国盛证券解释称，主要原因系其子公司本期持有的HTT（High Templar Tech Limited，下称趣店）股票受市值波动影响大幅减少公司利润总额及净利润因素所致。
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
-- 2026-06-29 16:09 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
-- 2026-06-29 16:21 - [曝斯塔默有意竞逐下任北约秘书长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 16:19 - [一家三口吃溪石斑鱼中毒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiybe.md)
-- 2026-06-29 16:10 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongzhui.md)
-- 2026-06-29 16:24 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/crrss.md)
-- 2026-06-29 16:07 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
-- 2026-06-29 16:23 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-29 16:19 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-29 16:13 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-29 16:11 - [白宇摘下白玉兰送给杨幂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
-- 2026-06-29 16:14 - [德国VS巴拉圭前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 16:12 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-29 16:18 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkzwu.md)
-- 2026-06-29 16:25 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 16:37 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-29 16:28 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-29 16:40 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
+- 2026-06-29 16:15 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 16:23 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
+- 2026-06-29 16:39 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiaoze.md)
+- 2026-06-29 16:41 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 16:18 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-29 16:28 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 16:14 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-29 16:38 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
+- 2026-06-29 16:19 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-29 16:31 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-29 16:26 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdkrh.md)
+- 2026-06-29 16:16 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/301496750.shtml)
-- 2026-06-29 16:19 - [第一批缉毒警已全体退休](http://www.blog.kurohicncr.top/Article/details/34078225.shtml)
-- 2026-06-29 16:33 - [给阿嬷的情书海外口碑](https://www.share.kurohicncr.top/Article/details/195984976.shtml)
-- 2026-06-29 16:08 - [在家赤身裸体是否绝对自由](http://www.share.minike.top/Article/details/12720.shtml)
-- 2026-06-29 16:17 - [普京：俄罗斯面临命运攸关时刻](https://www.blog.minike.top/Article/details/092131450.shtml)
-- 2026-06-29 16:25 - [小说《无悔追踪》翻红](https://www.blog.minike.top/Article/details/8695595.shtml)
-- 2026-06-29 16:11 - [加拿大绝杀南非晋级](http://www.blog.minike.top/Article/details/8651068.shtml)
-- 2026-06-29 16:27 - [石洵瑶挺进WTT美国大满贯女单32强](https://www.share.minike.top/Article/details/1230251.shtml)
-- 2026-06-29 16:28 - [我国多领域成果密集上新](http://www.share.kurohicncr.top/Article/details/1576254286.shtml)
-- 2026-06-29 16:28 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.minike.top/Article/details/126661208917.shtml)
-- 2026-06-29 16:14 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/26265234993.shtml)
-- 2026-06-29 16:21 - [老板回应员工光脚清洗土豆](http://www.share.minike.top/Article/details/781142648.shtml)
-- 2026-06-29 16:09 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/20279.shtml)
-- 2026-06-29 16:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/5414150086.shtml)
-- 2026-06-29 16:24 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/3136321.shtml)
+- 2026-06-29 16:36 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/086827610.shtml)
+- 2026-06-29 16:33 - [速度与激情9](https://www.share.kurohicncr.top/Article/details/156704194.shtml)
+- 2026-06-29 16:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/998541862269.shtml)
+- 2026-06-29 16:16 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.kurohicncr.top/Article/details/99956550.shtml)
+- 2026-06-29 16:27 - [宜宾珙县部分地区因地震停电 正抢修](http://www.blog.minike.top/Article/details/09313999354.shtml)
+- 2026-06-29 16:31 - [央视起底直播诈骗连环套](http://www.blog.kurohicncr.top/Article/details/73712947711.shtml)
+- 2026-06-29 16:13 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/91570684.shtml)
+- 2026-06-29 16:37 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/34229582095.shtml)
+- 2026-06-29 16:38 - [有人见过武则天的画像吗，非常好奇？](http://www.share.kurohicncr.top/Article/details/80091816.shtml)
+- 2026-06-29 16:37 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.kurohicncr.top/Article/details/29477838223.shtml)
+- 2026-06-29 16:35 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/505338164.shtml)
+- 2026-06-29 16:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.kurohicncr.top/Article/details/868706.shtml)
+- 2026-06-29 16:35 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/836623.shtml)
+- 2026-06-29 16:19 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/59479.shtml)
+- 2026-06-29 16:19 - [吴建豪老婆](http://www.blog.minike.top/Article/details/6845081633.shtml)

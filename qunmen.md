@@ -1,59 +1,54 @@
-# 俄罗斯眼科医生坐诊重庆 点亮患者“睛”彩人生
+# 伊朗宣布重新封锁霍尔木兹海峡后 该海峡通航量骤降
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网重庆5月22日电 题：俄罗斯眼科医生坐诊重庆 点亮患者“睛”彩人生 作者 梁钦卿 左手轻扶设备，右手微调旋钮……在眼科门诊室里，来自俄罗斯的眼科医生欧蕾莎正专注地为患者进行眼部检查。自从2022年到中国从事眼科医疗工作以来，这位资深眼科医师已成功为上万名患者改善视力。 “每一台眼科手术都是精密的‘手工活’。”在眼科领域已工作15年的欧蕾莎，21日在重庆接受中新网专访表示，
+船舶航行数据显示，伊朗上周末宣布再次封锁全球最重要的石油咽喉要道后，霍尔木兹海峡的通航量显著减少。 据海洋交通网站（MarineTraffic）数据，过去六小时内仅有六艘船只穿越了该海峡，其中五艘通过了阿巴斯港外由伊朗批准的航线，另外一艘为悬挂伊朗国旗的货轮。 伊朗军事官员在周六宣布，对该海峡的管控已“恢复至常态”。此前一天，伊朗方面曾称已完全开放了这一水域。 海洋交通网站的数
 
 ## 正文
 
-中新网重庆5月22日电 题：俄罗斯眼科医生坐诊重庆 点亮患者“睛”彩人生 作者 梁钦卿 左手轻扶设备，右手微调旋钮……在眼科门诊室里，来自俄罗斯的眼科医生欧蕾莎正专注地为患者进行眼部检查。
+船舶航行数据显示，伊朗上周末宣布再次封锁全球最重要的石油咽喉要道后，霍尔木兹海峡的通航量显著减少。
 
-自从2022年到中国从事眼科医疗工作以来，这位资深眼科医师已成功为上万名患者改善视力。
+据海洋交通网站（MarineTraffic）数据，过去六小时内仅有六艘船只穿越了该海峡，其中五艘通过了阿巴斯港外由伊朗批准的航线，另外一艘为悬挂伊朗国旗的货轮。
 
-“每一台眼科手术都是精密的‘手工活’。
+伊朗军事官员在周六宣布，对该海峡的管控已“恢复至常态”。
 
-”在眼科领域已工作15年的欧蕾莎，21日在重庆接受中新网专访表示，能够帮助人们更清晰地看世界，是她工作中最大的收获。
+此前一天，伊朗方面曾称已完全开放了这一水域。
 
-在治疗过程中，欧蕾莎特别重视医患沟通。
+海洋交通网站的数据显示，在该水域临时开放的期间，从周五到周六大约有30艘船只通过了这里。
 
-虽然语言障碍曾是她初到中国时面临的挑战，但她坚持学习基础中文。
-
-“患者若无法与医生顺畅沟通，难免会产生顾虑，顺畅的交流对医疗至关重要。
-
-”她说。
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/runnai.md)
-- 2026-06-29 16:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 16:18 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
-- 2026-06-29 16:06 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-29 16:06 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
-- 2026-06-29 16:20 - [东方风云榜红毯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
-- 2026-06-29 16:19 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-29 16:32 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiusai.md)
-- 2026-06-29 16:13 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 16:08 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
-- 2026-06-29 16:16 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
-- 2026-06-29 16:26 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-29 16:13 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-29 16:38 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
+- 2026-06-29 16:31 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
+- 2026-06-29 16:22 - [清华姚班UP主详解AI专业就业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-29 16:22 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
+- 2026-06-29 16:26 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
+- 2026-06-29 16:30 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnzqy.md)
+- 2026-06-29 16:33 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-29 16:37 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-29 16:38 - [布里奇斯被交易至太阳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
+- 2026-06-29 16:19 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuangning.md)
+- 2026-06-29 16:35 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
+- 2026-06-29 16:35 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:26 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/597463009151.shtml)
-- 2026-06-29 16:29 - [谢霆锋王菲十指紧扣一起走](https://www.share.minike.top/Article/details/987603748569.shtml)
-- 2026-06-29 16:26 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/950973.shtml)
-- 2026-06-29 16:08 - [斗破苍穹](https://www.share.minike.top/Article/details/5023568593.shtml)
-- 2026-06-29 16:11 - [小孩曾卓君夺冠之路](http://www.blog.minike.top/Article/details/61305.shtml)
-- 2026-06-29 16:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/436660.shtml)
-- 2026-06-29 16:28 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/34862848.shtml)
-- 2026-06-29 16:17 - [乔家的儿女](https://www.blog.minike.top/Article/details/37214829.shtml)
-- 2026-06-29 16:26 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/18206704191.shtml)
-- 2026-06-29 16:25 - [发反科学内容为何会有200万粉丝](https://www.share.kurohicncr.top/Article/details/6767670835.shtml)
-- 2026-06-29 16:08 - [李连杰否认不管前妻两女儿](http://www.blog.kurohicncr.top/Article/details/905379753.shtml)
-- 2026-06-29 16:34 - [明星大侦探第一季](http://www.share.minike.top/Article/details/003024440.shtml)
-- 2026-06-29 16:33 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/22510.shtml)
-- 2026-06-29 16:18 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/705960942.shtml)
-- 2026-06-29 16:32 - [普京介绍前线战事](http://www.blog.minike.top/Article/details/4623985300.shtml)
+- 2026-06-29 16:23 - [媒体：网络测评不能只剩“生意”](https://www.blog.kurohicncr.top/Article/details/60096.shtml)
+- 2026-06-29 16:25 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/4090464.shtml)
+- 2026-06-29 16:18 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/709154215653.shtml)
+- 2026-06-29 16:41 - [韩国国脚每人获35.5万奖金](https://www.blog.minike.top/Article/details/6575976828.shtml)
+- 2026-06-29 16:23 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.share.kurohicncr.top/Article/details/3079187.shtml)
+- 2026-06-29 16:30 - [小西蒙尼：我实现参加世界杯的梦想](https://www.blog.kurohicncr.top/Article/details/9103603.shtml)
+- 2026-06-29 16:24 - [韩国队启程回国 全员羞愧低头](https://www.blog.kurohicncr.top/Article/details/016087538739.shtml)
+- 2026-06-29 16:21 - [小S在香港被偶遇](https://www.blog.kurohicncr.top/Article/details/54263.shtml)
+- 2026-06-29 16:27 - [青春环游记第三季](https://www.share.minike.top/Article/details/885136.shtml)
+- 2026-06-29 16:26 - [五粮液回应宜宾地震影响](https://www.blog.minike.top/Article/details/52862.shtml)
+- 2026-06-29 16:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/64996114596.shtml)
+- 2026-06-29 16:20 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.kurohicncr.top/Article/details/05743482.shtml)
+- 2026-06-29 16:25 - [南部战区位南海海域进行例行巡航](http://www.share.kurohicncr.top/Article/details/117936373.shtml)
+- 2026-06-29 16:41 - [杨紫视后第一场线下活动](http://www.share.minike.top/Article/details/91937360762.shtml)
+- 2026-06-29 16:21 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](https://www.blog.kurohicncr.top/Article/details/3660930.shtml)

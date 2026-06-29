@@ -1,61 +1,57 @@
-# 2026年上海科技节开幕
+# 外资转向加仓中国资产
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新社上海5月23日电 (记者 郑莹莹)为期一周的2026年上海科技节23日开幕，延续“科技让生活更美好”主题，以全民参与的科技嘉年华形式，搭建前沿科技与城市生活深度交融的互动平台，共设置开幕式、专题会议、科普开放、科普赛事、科普文旅融合、媒体科普、闭幕活动七大板块，全方位展现上海科创活力，让科学走近大众。 科技节期间，外滩FTC、西岸、上海科技馆等六大城市地标全新推出6家科技
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！记者丨易妍君 编辑丨张星 伴随市场风险偏好改善，海外资金对中国权益资产的兴趣逐步提升。 上周（4月13日—17日），中国大盘股ETF-iShares（FXI）、沪深300中国A股ETF-德银嘉实（ASHR）等多只在境外上市的中国股票ETF获得资金净流入。另据EPFR口径，4月8日—15日，被动外资呈现出加速
 
 ## 正文
 
-中新社上海5月23日电 (记者 郑莹莹)为期一周的2026年上海科技节23日开幕，延续“科技让生活更美好”主题，以全民参与的科技嘉年华形式，搭建前沿科技与城市生活深度交融的互动平台，共设置开幕式、专题会议、科普开放、科普赛事、科普文旅融合、媒体科普、闭幕活动七大板块，全方位展现上海科创活力，让科学走近大众。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-科技节期间，外滩FTC、西岸、上海科技馆等六大城市地标全新推出6家科技主题快闪咖啡馆，构建面向大众的科学互动社区。
+记者丨易妍君 编辑丨张星 伴随市场风险偏好改善，海外资金对中国权益资产的兴趣逐步提升。
 
-中国科学院院士、中国科学院上海技术物理研究所研究员褚君浩在受访时鼓励中国青少年融入人工智能发展。
+上周（4月13日—17日），中国大盘股ETF-iShares（FXI）、沪深300中国A股ETF-德银嘉实（ASHR）等多只在境外上市的中国股票ETF获得资金净流入。
 
-他表示：“青少年要打好学科基础，理解人工智能，长大后发展人工智能。
+另据EPFR口径，4月8日—15日，被动外资呈现出加速流入A股和港股市场的态势。
 
-” 世界科技传播学会主席法比安·梅德维基(Fabien Medvecky)表示，在中国，人们对人工智能的态度非常积极，这里的人工智能发展速度极快。
+着眼长期，全球资本增配中国资产已是大势所趋。
 
-法比安·梅德维基告诉中新社记者，中国在人工智能领域的成果非常卓越，“我有时候也会用DeepSeek，为什么不呢？
+摩根士丹利中国首席经济学家邢自强近日在“全球金融机构走进中国金融市场”银行间市场专场活动上表示，在当前全球经济格局下，全球投资者正逐步降低对单一美元资产的依赖，中国资产有望在再配置过程中持续获得资金流入。
 
-” 自1991年创办以来，上海科技节历经30多年的发展，已成为上海市民走近科学、体验创新的重要平台。
+被动外资持续流入 上周，A股市场活跃度进一步回升，四大指数悉数上涨；港股市场亦有所反弹。
 
-(完)
+市场升温过程中，部分海外资金借道ETF流入中国市场。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-29 16:16 - [恋与深空遭抵制后仍置顶敖尹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
-- 2026-06-29 16:32 - [南昌市委书记调整](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-29 16:21 - [东方风云榜红毯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
-- 2026-06-29 16:17 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adgfx.md)
-- 2026-06-29 16:14 - [T1 3-0 KC赛后数据](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
-- 2026-06-29 16:10 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
-- 2026-06-29 16:12 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-29 16:09 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
-- 2026-06-29 16:09 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 16:20 - [流金岁月](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-29 16:21 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 16:11 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-29 16:23 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
-- 2026-06-29 16:07 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 16:12 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-29 16:33 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-29 16:33 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 16:29 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-29 16:27 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wocai.md)
+- 2026-06-29 16:26 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-29 16:12 - [王楚钦3-0周启豪 晋级32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
+- 2026-06-29 16:31 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 16:28 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-29 16:13 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
+- 2026-06-29 16:19 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/39971676230.shtml)
-- 2026-06-29 16:13 - [上班主打一个薪尽自然凉](http://www.share.minike.top/Article/details/18373594.shtml)
-- 2026-06-29 16:15 - [请回答王牌2019](http://www.blog.minike.top/Article/details/65652.shtml)
-- 2026-06-29 16:30 - [吴建豪宣布再婚](http://www.blog.kurohicncr.top/Article/details/30144777141.shtml)
-- 2026-06-29 16:20 - [速度与激情9](https://www.share.minike.top/Article/details/926336.shtml)
-- 2026-06-29 16:31 - [高考结束，该不该外出打工体验？](http://www.share.kurohicncr.top/Article/details/29440901.shtml)
-- 2026-06-29 16:24 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/198218.shtml)
-- 2026-06-29 16:23 - [男子网购乖乖水迷晕女子后猥亵](https://www.blog.minike.top/Article/details/6569725.shtml)
-- 2026-06-29 16:23 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/673704574.shtml)
-- 2026-06-29 16:10 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.share.minike.top/Article/details/5541743880.shtml)
-- 2026-06-29 16:14 - [20年前的周杰伦](http://www.blog.minike.top/Article/details/8091838126.shtml)
-- 2026-06-29 16:32 - [欧盟为什么越来越倾向贸易保护](http://www.blog.kurohicncr.top/Article/details/25033.shtml)
-- 2026-06-29 16:26 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/71979.shtml)
-- 2026-06-29 16:22 - [空调两年没洗 男子吹了三天双肺全白](https://www.blog.kurohicncr.top/Article/details/25531255.shtml)
-- 2026-06-29 16:34 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/13517070.shtml)
+- 2026-06-29 16:22 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.minike.top/Article/details/98593.shtml)
+- 2026-06-29 16:20 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.minike.top/Article/details/81308664163.shtml)
+- 2026-06-29 16:17 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.blog.minike.top/Article/details/3831534100.shtml)
+- 2026-06-29 16:22 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/19395099.shtml)
+- 2026-06-29 16:28 - [内马尔能上场15分钟](http://www.share.kurohicncr.top/Article/details/8710120.shtml)
+- 2026-06-29 16:38 - [央视曝光高价回收老物件骗局](https://www.blog.minike.top/Article/details/465397067063.shtml)
+- 2026-06-29 16:14 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/451992625738.shtml)
+- 2026-06-29 16:20 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.share.kurohicncr.top/Article/details/49746.shtml)
+- 2026-06-29 16:15 - [普京说乌方打击无法迫使俄被动谈判](https://www.share.kurohicncr.top/Article/details/088027815534.shtml)
+- 2026-06-29 16:13 - [金牌调解](http://www.share.kurohicncr.top/Article/details/66269784173.shtml)
+- 2026-06-29 16:18 - [疑似吴建豪老婆正脸照](https://www.share.kurohicncr.top/Article/details/386861231.shtml)
+- 2026-06-29 16:14 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/25882456877.shtml)
+- 2026-06-29 16:37 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/1185967.shtml)
+- 2026-06-29 16:26 - [蔚来回应高压水枪洗车掉漆](https://www.blog.minike.top/Article/details/677627.shtml)
+- 2026-06-29 16:31 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/8503496090.shtml)

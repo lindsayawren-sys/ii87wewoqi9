@@ -1,56 +1,57 @@
-# 中小学基本办学条件底线要求有哪些？教育部详解
+# 劲方医药-B午前涨超4% 公司公布泛RAS抑制剂GFH276临床前研究数据
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-近日，教育部、国家发展改革委、财政部、住房城乡建设部四部门办公厅联合印发《中小学基本办学条件底线要求》(以下简称《底线要求》)。教育部基础教育司负责人就《底线要求》有关问题回答了记者提问，跟教育小微一起来看——《底线要求》修订的背景是什么？ 习近平总书记在全国教育大会上强调，加强义务教育学校标准化建设，逐步缩小城乡、区域、校际、群体差距。当前我国学龄人口规模与分布呈现梯次变动、
+劲方医药-B（02595）盘中涨近6%，截至发稿，股价上涨4.41%，现报45.94港元，成交额2121.73万港元。 劲方医药宣布，公司自主开发的口服Pan RAS（ON）抑制剂GFH276临床前研究数据，于当地时间4月21日登陆美国癌症研究协会（AACR）年会壁报展示。壁报显示GFH276在多种RAS突变的动物模型中，以低至1/3剂量即可达到或超越RMC-6236的抑瘤效果
 
 ## 正文
 
-近日，教育部、国家发展改革委、财政部、住房城乡建设部四部门办公厅联合印发《中小学基本办学条件底线要求》(以下简称《底线要求》)。
+劲方医药-B（02595）盘中涨近6%，截至发稿，股价上涨4.41%，现报45.94港元，成交额2121.73万港元。
 
-教育部基础教育司负责人就《底线要求》有关问题回答了记者提问，跟教育小微一起来看——《底线要求》修订的背景是什么？
+劲方医药宣布，公司自主开发的口服Pan RAS（ON）抑制剂GFH276临床前研究数据，于当地时间4月21日登陆美国癌症研究协会（AACR）年会壁报展示。
 
-习近平总书记在全国教育大会上强调，加强义务教育学校标准化建设，逐步缩小城乡、区域、校际、群体差距。
+壁报显示GFH276在多种RAS突变的动物模型中，以低至1/3剂量即可达到或超越RMC-6236的抑瘤效果。
 
-当前我国学龄人口规模与分布呈现梯次变动、区域分化新特征，适应学龄人口变化、优化教育资源配置成为教育高质量发展的紧迫任务。
+此外，GFH276与西妥昔单抗、化疗药物或PD-1单抗分别联用的动物实验中，可展现显著的抑瘤增效及无瘤生存期延长。
 
-近年来，中央层面先后印发《关于进一步保障和改善民生 着力解决群众急难愁盼的意见》《关于构建优质均衡的基本公共教育服务体系的意见》等文件，紧扣改善民生、促进教育公平主线，明确提出推动义务教育优质均衡发展和城乡一体化，实施义务教育学校标准化建设工程，完善义务教育学校办学具体标准。
+据悉，GFH276为全球第三款进入临床试验的Pan RAS抑制剂，并在临床早期数据中显示契合临床前疗效及安全性的初步结果。
 
-面向2035年建成教育强国目标，必须主动适配学龄人口发展新形势，全面改善办学条件，优化教育资源配置，为教育高质量发展提供坚实的基础保障。
-
-《底线要求》修订的目的与思路是什么？
-
-适应城镇化发展和学龄人口变化，需要对学校布局调整，打通教育资源使用，满足新形势下教学、生活、安全等需求，推动各地加强学校标准化建设，保障学校办学条件达到基本要求，办好更加公平更高质量的基础教育。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hengqun.md)
-- 2026-06-29 16:20 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
-- 2026-06-29 16:09 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
-- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
-- 2026-06-29 16:26 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbtm.md)
-- 2026-06-29 16:09 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-29 16:10 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
-- 2026-06-29 16:14 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nujiao.md)
-- 2026-06-29 16:18 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-29 16:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giogi.md)
+- 2026-06-29 16:16 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lqsst.md)
+- 2026-06-29 16:39 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
+- 2026-06-29 16:22 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/itbbb.md)
+- 2026-06-29 16:40 - [胡光宇一审获刑13年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
+- 2026-06-29 16:37 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tmnnq.md)
+- 2026-06-29 16:18 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxmyr.md)
+- 2026-06-29 16:27 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 16:19 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
+- 2026-06-29 16:22 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-29 16:33 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
+- 2026-06-29 16:39 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rstuz.md)
+- 2026-06-29 16:13 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
+- 2026-06-29 16:33 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 16:23 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-29 16:28 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zeweng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/73747.shtml)
-- 2026-06-29 16:11 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/9123484514.shtml)
-- 2026-06-29 16:29 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/916248136937.shtml)
-- 2026-06-29 16:26 - [领克900大型SUV值得购买吗?](http://www.share.minike.top/Article/details/68949976.shtml)
-- 2026-06-29 16:10 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.kurohicncr.top/Article/details/864508427.shtml)
-- 2026-06-29 16:32 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/360203632904.shtml)
-- 2026-06-29 16:16 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.share.kurohicncr.top/Article/details/7894675.shtml)
-- 2026-06-29 16:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.blog.minike.top/Article/details/8200079871.shtml)
-- 2026-06-29 16:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/842065741.shtml)
-- 2026-06-29 16:28 - [速度与激情9](https://www.blog.minike.top/Article/details/562353.shtml)
-- 2026-06-29 16:30 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/37165892.shtml)
-- 2026-06-29 16:09 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/71254.shtml)
-- 2026-06-29 16:25 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/843859475484.shtml)
-- 2026-06-29 16:27 - [美人鱼](http://www.share.minike.top/Article/details/448804.shtml)
-- 2026-06-29 16:24 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/894936048077.shtml)
+- 2026-06-29 16:24 - [森保一坚信日本能赢巴西](http://www.blog.minike.top/Article/details/808941967.shtml)
+- 2026-06-29 16:39 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/7363320.shtml)
+- 2026-06-29 16:41 - [巴黎两家殡仪馆爆满](http://www.share.kurohicncr.top/Article/details/932062.shtml)
+- 2026-06-29 16:34 - [安切洛蒂称像对待决赛一样备战日本](http://www.share.minike.top/Article/details/487736.shtml)
+- 2026-06-29 16:31 - [男子网购乖乖水迷晕女子后猥亵](http://www.blog.minike.top/Article/details/720695944237.shtml)
+- 2026-06-29 16:12 - [欧洲人驾车200公里抢购中国空调](https://www.share.kurohicncr.top/Article/details/395763619068.shtml)
+- 2026-06-29 16:25 - [沉睡花园](https://www.blog.kurohicncr.top/Article/details/674575.shtml)
+- 2026-06-29 16:27 - [王冰冰向全网安利哈兰德](https://www.share.minike.top/Article/details/231735.shtml)
+- 2026-06-29 16:31 - [失明的我带老妈去了趟“火星”](https://www.share.kurohicncr.top/Article/details/19540853.shtml)
+- 2026-06-29 16:39 - [自然资源部派专家赴宜宾地震影响区](http://www.share.minike.top/Article/details/8619192.shtml)
+- 2026-06-29 16:27 - [欧洲多国激辩“装不装空调”](https://www.share.minike.top/Article/details/96439615.shtml)
+- 2026-06-29 16:20 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/30496581039.shtml)
+- 2026-06-29 16:31 - [明天睁眼按时来取代我](https://www.share.minike.top/Article/details/6718163.shtml)
+- 2026-06-29 16:25 - [王楚钦3-0周启豪 晋级32强](https://www.share.kurohicncr.top/Article/details/4486400463.shtml)
+- 2026-06-29 16:34 - [博主：全球股市进入“AI极端共振”](http://www.share.kurohicncr.top/Article/details/02406121547.shtml)

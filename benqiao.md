@@ -1,47 +1,51 @@
-# 海普瑞将于7月22日派发末期股息每10股1.6604港元
+# 当外国朋友接上“宫廷玉液酒” 中文可能已经难不倒他们了
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-海普瑞（09989）发布公告，将于2026年7月22日派发截至2025年12月31日止年度的末期股息每10股1.6604港元。责任编辑：卢昱君
+发布时间：2026年04月20日 21:33 来源：中国新闻网 4月20日，2026年“国际中文日”暨“诗约四海”全球中文诗友会启动仪式在北京邮电大学举行。多国驻华使节、国际语言文化机构代表、在京高校及留学生代表等700余名中外嘉宾齐聚一堂，以中文为桥、以诗词为媒，传递真挚友谊、深化文明互鉴。 活动现场，不同高校的国际青年带着一口流利的中文而来，他们千里迢迢来到中国学习中文，学
 
 ## 正文
 
-海普瑞（09989）发布公告，将于2026年7月22日派发截至2025年12月31日止年度的末期股息每10股1.6604港元。
+发布时间：2026年04月20日 21:33 来源：中国新闻网 4月20日，2026年“国际中文日”暨“诗约四海”全球中文诗友会启动仪式在北京邮电大学举行。
 
-责任编辑：卢昱君
+多国驻华使节、国际语言文化机构代表、在京高校及留学生代表等700余名中外嘉宾齐聚一堂，以中文为桥、以诗词为媒，传递真挚友谊、深化文明互鉴。
+
+活动现场，不同高校的国际青年带着一口流利的中文而来，他们千里迢迢来到中国学习中文，学习效果怎么样？
+
+走，跟着小新的镜头，一起去考考他们。
+
+记者 谢龙飞 曾玥 实习生 唐梅芳 责任编辑：【于晓】
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-29 16:11 - [中国创新药股价要反攻了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-29 16:09 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-29 16:15 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
-- 2026-06-29 16:34 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jegcb.md)
-- 2026-06-29 16:11 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
-- 2026-06-29 16:29 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qktme.md)
-- 2026-06-29 16:14 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fsknm.md)
-- 2026-06-29 16:21 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
-- 2026-06-29 16:25 - [我国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
-- 2026-06-29 16:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-29 16:09 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-29 16:23 - [撒旦的腋窝是什么比喻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
+- 2026-06-29 16:15 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-29 16:16 - [中方将20家日本实体列入关注名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
+- 2026-06-29 16:16 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-29 16:20 - [47天女婴被月嫂摔伤致颅内出血](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 16:26 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaolai.md)
+- 2026-06-29 16:32 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
+- 2026-06-29 16:38 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-29 16:35 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taukk.md)
+- 2026-06-29 16:32 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zheming.md)
+- 2026-06-29 16:15 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yongtou.md)
+- 2026-06-29 16:29 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [我和我的家乡](http://www.blog.minike.top/Article/details/395222426518.shtml)
-- 2026-06-29 16:13 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.share.kurohicncr.top/Article/details/704927805.shtml)
-- 2026-06-29 16:13 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/611335.shtml)
-- 2026-06-29 16:22 - [机器人学校开学了](https://www.share.kurohicncr.top/Article/details/782955019.shtml)
-- 2026-06-29 16:12 - [笔记本电脑一年涨价近一倍](https://www.share.minike.top/Article/details/41833.shtml)
-- 2026-06-29 16:21 - [杨紫视后第一场线下活动](http://www.blog.minike.top/Article/details/5927835003.shtml)
-- 2026-06-29 16:23 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/689542705549.shtml)
-- 2026-06-29 16:24 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/66075.shtml)
-- 2026-06-29 16:08 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/056014940.shtml)
-- 2026-06-29 16:32 - [日本主教练回应迎战巴西](http://www.blog.minike.top/Article/details/2836736489.shtml)
-- 2026-06-29 16:31 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/467156.shtml)
-- 2026-06-29 16:17 - [王楚钦首轮赢下国乒德比](https://www.blog.kurohicncr.top/Article/details/44381565.shtml)
-- 2026-06-29 16:14 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.minike.top/Article/details/085337593448.shtml)
-- 2026-06-29 16:09 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.blog.kurohicncr.top/Article/details/404708679096.shtml)
-- 2026-06-29 16:33 - [如何“亲菌子”又“远小人儿”](https://www.share.kurohicncr.top/Article/details/3687766522.shtml)
+- 2026-06-29 16:33 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/4143337.shtml)
+- 2026-06-29 16:33 - [韩国队启程回国 全员羞愧低头](https://www.share.minike.top/Article/details/67988.shtml)
+- 2026-06-29 16:19 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.minike.top/Article/details/77905852252.shtml)
+- 2026-06-29 16:34 - [有什么好的高中网课推荐吗？](http://www.blog.minike.top/Article/details/70429098.shtml)
+- 2026-06-29 16:39 - [男子路过修车店瞬间被喷得一脸黑](http://www.blog.kurohicncr.top/Article/details/917899.shtml)
+- 2026-06-29 16:33 - [三星与SK集团或将投资2000万亿韩元](http://www.blog.kurohicncr.top/Article/details/63639.shtml)
+- 2026-06-29 16:40 - [撒旦的腋窝是什么比喻](https://www.blog.kurohicncr.top/Article/details/17717.shtml)
+- 2026-06-29 16:26 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/147797.shtml)
+- 2026-06-29 16:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/6688103.shtml)
+- 2026-06-29 16:33 - [大六座SUV进入黄金时代](https://www.blog.kurohicncr.top/Article/details/676613605037.shtml)
+- 2026-06-29 16:25 - [拆快递不再“里三层外三层”](https://www.share.kurohicncr.top/Article/details/88560.shtml)
+- 2026-06-29 16:35 - [端午节加班工资应该怎么算](http://www.blog.minike.top/Article/details/896750060.shtml)
+- 2026-06-29 16:24 - [爸爸当家](http://www.blog.kurohicncr.top/Article/details/1627912448.shtml)
+- 2026-06-29 16:27 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/1096345.shtml)
+- 2026-06-29 16:20 - [小众羞耻点是吃麻辣烫](http://www.share.kurohicncr.top/Article/details/6550628986.shtml)

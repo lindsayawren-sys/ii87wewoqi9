@@ -1,59 +1,58 @@
-# 回归后首次！香港全体立法会议员将于7月赴京研修
+# 在洪安边城寻找“翠翠”
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新网5月22日电 综合香港媒体报道，21日，香港立法会主席李慧琼在社交网页发文表示，立法会全体议员将于今年7月19日至25日，到北京参加国家事务研修考察。这将是香港自回归祖国以来，首次全体议员到北京研修，历史意义重大。 李慧琼表示，根据初步安排，研修考察行程相当丰富紧凑，包括拜访中央港澳办等；参与多个专题讲座并与专家交流，内容涵盖国家指导思想、国家五年规划制定、国际地缘政治格
+中新网重庆4月21日电 (张旭)4月21日，位于秀山县洪安镇的洪安边城下起了雨，“拉拉渡”暂停运营，游人依旧不少。街面上，导游们挥动着导游旗，引导八方来客。 秀山是沈从文小说《边城》的原型地，洪安边城则是该县“边城”元素最集中的地方。这里位于渝湘黔三省(市)交界，可“一脚踏三省(市)”。“拉拉渡”则还原了《边城》里翠翠和爷爷的渡船，它不靠划桨，仅凭一根钢索即可横渡重庆与湖南。
 
 ## 正文
 
-中新网5月22日电 综合香港媒体报道，21日，香港立法会主席李慧琼在社交网页发文表示，立法会全体议员将于今年7月19日至25日，到北京参加国家事务研修考察。
+中新网重庆4月21日电 (张旭)4月21日，位于秀山县洪安镇的洪安边城下起了雨，“拉拉渡”暂停运营，游人依旧不少。
 
-这将是香港自回归祖国以来，首次全体议员到北京研修，历史意义重大。
+街面上，导游们挥动着导游旗，引导八方来客。
 
-李慧琼表示，根据初步安排，研修考察行程相当丰富紧凑，包括拜访中央港澳办等；参与多个专题讲座并与专家交流，内容涵盖国家指导思想、国家五年规划制定、国际地缘政治格局、国家安全、数字中国建设等。
+秀山是沈从文小说《边城》的原型地，洪安边城则是该县“边城”元素最集中的地方。
 
-议员亦会走访不同机关及企业，实地考察多个新质生产力产业的最新发展情况，包括航天航空、信息技术应用、传统工业绿色转型、新能源交通、人工智能等。
+这里位于渝湘黔三省(市)交界，可“一脚踏三省(市)”。
 
-李慧琼指出，议员作为香港特区立法机关及管治团队的一员，也会借此机会了解全国人大的立法过程和执法监督工作，以及中国共产党奋斗历程、基层治理经验等。
+“拉拉渡”则还原了《边城》里翠翠和爷爷的渡船，它不靠划桨，仅凭一根钢索即可横渡重庆与湖南。
 
-香港立法会秘书处提交文件指，本次活动旨在让议员更好掌握中央的治国理念和发展战略，并更了解国家五年规划制定、多个重要领域的最新发展情况和当前国际地缘政治格局。
+“《边城》我看过无数遍，那条渡船摆渡的情形，心中念过无数次。
 
-此外，通过走访不同机关和企业、实地调研，议员可借鉴经验，加强推动香港经济高质量发展，更有效主动对接国家“十五五”规划，更好融入并服务国家发展大局。
+”尼日利亚《西非统一商报》副社长王淑华告诉中新网，走到洪安边城，她心里再次出现《边城》的结尾那句话——“这个人也许永远不回来了，也许明天回来。
 
-全国港澳研究会港澳问题专家李晓兵表示，此次考察行程丰富多样，包括国家五年规划制定及国际地缘政治格局等方面。
+” “我知道你会来，所以我等。
 
 ## 相关推荐
 
-- 2026-06-29 16:13 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smjzh.md)
-- 2026-06-29 16:08 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
-- 2026-06-29 16:20 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
-- 2026-06-29 16:27 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-29 16:21 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-29 16:15 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
-- 2026-06-29 16:29 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
-- 2026-06-29 16:20 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 16:07 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizan.md)
-- 2026-06-29 16:34 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 16:13 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-29 16:28 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lqsst.md)
-- 2026-06-29 16:18 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huangkua.md)
+- 2026-06-29 16:17 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-29 16:29 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtysl.md)
+- 2026-06-29 16:19 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-29 16:38 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 16:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkluu.md)
+- 2026-06-29 16:32 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huahuan.md)
+- 2026-06-29 16:22 - [AG冠军五人组轮换](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fende.md)
+- 2026-06-29 16:24 - [在家赤身裸体是否绝对自由](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-29 16:24 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-29 16:37 - [把古诗里的动作换成加班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chazan.md)
+- 2026-06-29 16:35 - [造谣县城满街都是小混混 男子被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
+- 2026-06-29 16:37 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pgjyy.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [首届《哈基米歌王争霸赛》总决赛](http://www.blog.minike.top/Article/details/55050614453.shtml)
-- 2026-06-29 16:10 - [张雪机车杀向海外](https://www.blog.minike.top/Article/details/4426893898.shtml)
-- 2026-06-29 16:19 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/5277520.shtml)
-- 2026-06-29 16:12 - [中国战机大片上新](https://www.share.minike.top/Article/details/729318.shtml)
-- 2026-06-29 16:10 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/61937.shtml)
-- 2026-06-29 16:08 - [世界杯超牛补水广告出现了](https://www.blog.kurohicncr.top/Article/details/3638788.shtml)
-- 2026-06-29 16:31 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/403059.shtml)
-- 2026-06-29 16:29 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/85658001.shtml)
-- 2026-06-29 16:19 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/67152389.shtml)
-- 2026-06-29 16:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.share.kurohicncr.top/Article/details/1171097.shtml)
-- 2026-06-29 16:10 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/882188528.shtml)
-- 2026-06-29 16:23 - [清华姚班UP主详解AI专业就业](https://www.blog.minike.top/Article/details/78547302.shtml)
-- 2026-06-29 16:08 - [恋与深空道歉就够了吗](https://www.share.minike.top/Article/details/98006.shtml)
-- 2026-06-29 16:25 - [大 周 礼 时 代(4)](https://www.blog.minike.top/Article/details/8420326639.shtml)
-- 2026-06-29 16:16 - [江苏财政厅原一级调研员谢功成被查](https://www.blog.minike.top/Article/details/95047012709.shtml)
+- 2026-06-29 16:31 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/862050.shtml)
+- 2026-06-29 16:18 - [韩国国脚每人获35.5万奖金](http://www.share.kurohicncr.top/Article/details/89114491432.shtml)
+- 2026-06-29 16:33 - [内马尔打日本前先买百万美元豪表](http://www.share.kurohicncr.top/Article/details/90989.shtml)
+- 2026-06-29 16:27 - [医院大厅放钢琴是形式主义吗](http://www.share.kurohicncr.top/Article/details/8650911.shtml)
+- 2026-06-29 16:28 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/32122.shtml)
+- 2026-06-29 16:20 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.share.kurohicncr.top/Article/details/4834256908.shtml)
+- 2026-06-29 16:30 - [江语晨 好恨江语晨前夫](https://www.blog.kurohicncr.top/Article/details/9494192451.shtml)
+- 2026-06-29 16:25 - [滚石要求万豪就屠颖去世事件道歉](http://www.share.minike.top/Article/details/62366.shtml)
+- 2026-06-29 16:33 - [一见倾心](https://www.blog.kurohicncr.top/Article/details/34824955.shtml)
+- 2026-06-29 16:19 - [上周末 多领域成果密集“上新”](http://www.blog.kurohicncr.top/Article/details/848426.shtml)
+- 2026-06-29 16:20 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/02198240.shtml)
+- 2026-06-29 16:30 - [艾莎唱出了多少牛马的心声🥹](http://www.blog.minike.top/Article/details/392592481896.shtml)
+- 2026-06-29 16:23 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/3350629.shtml)
+- 2026-06-29 16:24 - [流金岁月](https://www.blog.minike.top/Article/details/589272948.shtml)
+- 2026-06-29 16:34 - [中国战机大片上新](https://www.blog.minike.top/Article/details/4706605.shtml)

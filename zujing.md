@@ -1,61 +1,61 @@
-# 营收连年加速净利增速却滞后，西安银行“高增长”成色几何？
+# 沃什听证会高能：被骂“提线木偶”、怒批美联储迷失、否认向特朗普承诺降息
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-来源：东西财经 “西安银行营收连续三年实现提速增长，而净利润增幅则明显滞后于营收表现。” 日前，该行披露2025年年报及2026年一季报显示，2025年全年该行营业收入同比增长21.68%至99.66亿元。尤其是在2026年一季度，营收同比更是飙升41.54%，在上市银行中位列第一。 然而，利润增长远未跟上营收的步伐。2025年全年，该行归母净利润26.50亿元，甚至低于六年前
+来源：金十 特朗普挑选的美联储主席人选凯文·沃什（Kevin Warsh）周二在其确认听证会上接受了提问，内容涉及他对独立货币政策的承诺、他在获提名前提出的“人工智能驱动的生产率增长将为央行降息提供空间”这一论点，以及他计划剥离超过1亿美元金融资产——这些资产他迄今拒绝完全披露。 《华尔街日报》记者、素有“美联储传声筒”之称的Nick Timiraos撰文称，以下是参议院银行委
 
 ## 正文
 
-来源：东西财经 “西安银行营收连续三年实现提速增长，而净利润增幅则明显滞后于营收表现。
+来源：金十 特朗普挑选的美联储主席人选凯文·沃什（Kevin Warsh）周二在其确认听证会上接受了提问，内容涉及他对独立货币政策的承诺、他在获提名前提出的“人工智能驱动的生产率增长将为央行降息提供空间”这一论点，以及他计划剥离超过1亿美元金融资产——这些资产他迄今拒绝完全披露。
 
-” 日前，该行披露2025年年报及2026年一季报显示，2025年全年该行营业收入同比增长21.68%至99.66亿元。
+《华尔街日报》记者、素有“美联储传声筒”之称的Nick Timiraos撰文称，以下是参议院银行委员会听证会上几个引人注目的时刻。
 
-尤其是在2026年一季度，营收同比更是飙升41.54%，在上市银行中位列第一。
+与沃伦的激烈交锋 马萨诸塞州民主党参议员伊丽莎白·沃伦（Elizabeth Warren）在开场陈述中，将沃什同时定性为特朗普的“提线木偶”和机会主义者——称其对利率的立场追随的是美联储主席职位的可得性，而非经济状况。
 
-然而，利润增长远未跟上营收的步伐。
+轮到提问时，她试图迫使沃什证明她是错的，而沃什基本上拒绝接招。
 
-2025年全年，该行归母净利润26.50亿元，甚至低于六年前2019年的26.75亿元。
+“独立性需要勇气。
 
-2026年一季度归母净利润同比增长6.16%，与41.54%的营收增速相差超过35个百分点。
+让我们来检验一下你的独立性和勇气，”她说道，随后问沃什特朗普是否输掉了2020年大选。
 
-资产质量方面，2025年末该行不良贷款率为1.65%，2026年一季末微降至1.64%，在上市城商行中处于尾部；其中关注类贷款占比从2025年末的1.63%飙升至2026年一季度的2.94%。
+沃什没有直接回答。
 
-资本充足率方面，2025年末核心一级资本充足率由2024年末的10.07%下降至9.15%，2026年一季末微增至9.21%。
+“我只是在问你一个事实问题，”她说。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guopeng.md)
-- 2026-06-29 16:09 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 16:32 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gnzqy.md)
-- 2026-06-29 16:10 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-29 16:33 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-29 16:13 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-29 16:13 - [深圳一无人驾驶汽车压实线加塞变道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-29 16:28 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhengbi.md)
-- 2026-06-29 16:07 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-29 16:09 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
-- 2026-06-29 16:28 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
-- 2026-06-29 16:13 - [恋与深空失控领地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gyduc.md)
-- 2026-06-29 16:25 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanqin.md)
-- 2026-06-29 16:24 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-29 16:11 - [新能源车能当外接空调用吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
+- 2026-06-29 16:32 - [欧盟为什么越来越倾向贸易保护](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
+- 2026-06-29 16:27 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 16:31 - [法拉利被4个孩子当滑梯玩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwbib.md)
+- 2026-06-29 16:22 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-29 16:18 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ciskl.md)
+- 2026-06-29 16:34 - [韩国主帅洪明甫辞职](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaoyang.md)
+- 2026-06-29 16:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
+- 2026-06-29 16:39 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
+- 2026-06-29 16:35 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 16:34 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-29 16:22 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cugjm.md)
+- 2026-06-29 16:32 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
+- 2026-06-29 16:33 - [丘成桐大学生数学竞赛颁奖典礼举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-29 16:13 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpdim.md)
+- 2026-06-29 16:20 - [崔韩率还以为韩娱来新人了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/llaao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:25 - [普京：建议乌俄停止打击对方纵深目标](http://www.share.kurohicncr.top/Article/details/48955.shtml)
-- 2026-06-29 16:06 - [拍到真的赛博朋克边缘行者了！](https://www.blog.minike.top/Article/details/72715.shtml)
-- 2026-06-29 16:10 - [警方回应东鹏饮料董事长不喝东鹏](http://www.share.kurohicncr.top/Article/details/15280194.shtml)
-- 2026-06-29 16:09 - [BB大王横店拍戏](https://www.blog.minike.top/Article/details/07574770.shtml)
-- 2026-06-29 16:10 - [王俊凯命名方式](https://www.share.minike.top/Article/details/39771.shtml)
-- 2026-06-29 16:29 - [配音演员于小华病逝 享年78岁](https://www.blog.kurohicncr.top/Article/details/726883714259.shtml)
-- 2026-06-29 16:30 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.kurohicncr.top/Article/details/432330892080.shtml)
-- 2026-06-29 16:25 - [男子造谣县城满街都是小混混被行拘](https://www.blog.kurohicncr.top/Article/details/6369555548.shtml)
-- 2026-06-29 16:17 - [李小璐回应无戏可拍](http://www.share.minike.top/Article/details/5830146663.shtml)
-- 2026-06-29 16:25 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://www.share.minike.top/Article/details/84186458.shtml)
-- 2026-06-29 16:13 - [杨紫下沉市场口碑](https://www.share.kurohicncr.top/Article/details/70185.shtml)
-- 2026-06-29 16:07 - [AG 宫斗](http://www.share.minike.top/Article/details/83744093.shtml)
-- 2026-06-29 16:13 - [四川宜宾地震已致13人受轻微伤](https://www.blog.minike.top/Article/details/30856145.shtml)
-- 2026-06-29 16:26 - [T1 KC](https://www.blog.kurohicncr.top/Article/details/436654.shtml)
-- 2026-06-29 16:19 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/281984886398.shtml)
+- 2026-06-29 16:35 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/930815133.shtml)
+- 2026-06-29 16:35 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/51892967348.shtml)
+- 2026-06-29 16:16 - [剧宣天才虞书欣发力了](https://www.share.minike.top/Article/details/130379263.shtml)
+- 2026-06-29 16:25 - [小鹏MONAL03预售定档7月2日](https://www.share.minike.top/Article/details/632935451.shtml)
+- 2026-06-29 16:39 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.blog.kurohicncr.top/Article/details/7269043298.shtml)
+- 2026-06-29 16:29 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.minike.top/Article/details/29478551.shtml)
+- 2026-06-29 16:29 - [葫芦岛居民楼爆炸致3失联8伤](http://www.share.minike.top/Article/details/08666011.shtml)
+- 2026-06-29 16:34 - [王俊凯命名方式](https://www.share.kurohicncr.top/Article/details/73003.shtml)
+- 2026-06-29 16:27 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/299001249.shtml)
+- 2026-06-29 16:16 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/91548658927.shtml)
+- 2026-06-29 16:26 - [内马尔世界杯期间豪购百万美元腕表](http://www.share.kurohicncr.top/Article/details/87614.shtml)
+- 2026-06-29 16:27 - [盛秋平任南昌市委书记](https://www.share.minike.top/Article/details/305430.shtml)
+- 2026-06-29 16:32 - [抓特务票房破亿](https://www.share.minike.top/Article/details/820455429100.shtml)
+- 2026-06-29 16:27 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/43730277349.shtml)
+- 2026-06-29 16:32 - [老板回应员工光脚清洗土豆](http://www.blog.kurohicncr.top/Article/details/30013018.shtml)

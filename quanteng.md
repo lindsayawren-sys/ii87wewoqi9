@@ -1,59 +1,59 @@
-# 优步董事会讨论提高对Delivery Hero收购报价
+# “白大褂”直播带货？警惕保健品营销陷阱
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-据知情人士称，优步董事会于周六召开会议，讨论提高对德国外卖公司Delivery Hero的收购报价。此前，Delivery Hero的一位主要股东拒绝了优步提出的超过115亿欧元（约合133.9亿美元）的收购要约。 消息人士称，优步董事会召开会议，讨论了收购要约的最新进展。 Delivery Hero周六证实，已收到竞争对手优步的收购要约，对公司的估值为每股33欧元。据报道，优
+近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。对此，国家卫生健康委发出四点提示。 国家卫生健康委新闻发言人胡强强介绍，一些推销保健产品的营销号上，有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年
 
 ## 正文
 
-据知情人士称，优步董事会于周六召开会议，讨论提高对德国外卖公司Delivery Hero的收购报价。
+近期，一些私域直播、社群营销打着“健康讲座”“专家直播”等旗号，专门针对老年人进行保健产品等推销。
 
-此前，Delivery Hero的一位主要股东拒绝了优步提出的超过115亿欧元（约合133.9亿美元）的收购要约。
+对此，国家卫生健康委发出四点提示。
 
-消息人士称，优步董事会召开会议，讨论了收购要约的最新进展。
+国家卫生健康委新闻发言人胡强强介绍，一些推销保健产品的营销号上，有的由“演员”假扮成“医学专家”按稿宣讲，有的夸大、篡改保健产品的功效从而高价销售，还有的通过送礼品、听课领福利等方式引流，再以“健康焦虑”“情感陪伴”等话术层层诱导消费者，侵害老年人的健康权益和财产安全。
 
-Delivery Hero周六证实，已收到竞争对手优步的收购要约，对公司的估值为每股33欧元。
+国家卫生健康委提醒大家：第一，凡是打着“专家讲座”“白大褂推荐”等旗号销售相关产品的，都要提高警惕，更不要因所谓专家的“头衔包装”和虚假的“案例见证”而盲目下单。
 
-据报道，优步首席执行官Dara Khosrowshahi本周飞往奥斯陆，会见了Delivery Hero监事会主席Kristin Skogen Lund，并提出了每股33欧元的收购要约。
+所谓“专家”标榜的“头衔”越多越大，往往欺诈可能性越高。
 
-据报道，优步近日曾向Delivery Hero的一位大股东提出每股38欧元的收购要约，但遭到拒绝。
+第二，警惕“送礼品、领红包、听课领福利”等引流手段。
 
-该报价较Delivery Hero上周五的收盘价溢价约15.3%。
+此类私域营销往往先以小恩小惠的形式获取信任，再通过反复宣讲、情感拉近、焦虑渲染等方式推销。
 
-消息人士称，优步目前正在考虑是否再次提高收购报价。
+家属要多关注老年人的入群、听课、下单等情况。
 
 ## 相关推荐
 
-- 2026-06-29 16:29 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
-- 2026-06-29 16:34 - [南非老帅布罗斯的梦没能做完](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 16:34 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-29 16:31 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-29 16:19 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzkih.md)
-- 2026-06-29 16:29 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpzdl.md)
-- 2026-06-29 16:32 - [唐国强打卡贵阳孔学堂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-29 16:22 - [博主：全球股市进入“AI极端共振”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ervke.md)
-- 2026-06-29 16:09 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-29 16:06 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/botang.md)
-- 2026-06-29 16:13 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnzqy.md)
-- 2026-06-29 16:15 - [每代父母都困在自己的时代里](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
-- 2026-06-29 16:20 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-29 16:12 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-29 16:15 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-29 16:22 - [人形机器人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 16:26 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-29 16:29 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cdejs.md)
+- 2026-06-29 16:39 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
+- 2026-06-29 16:29 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
+- 2026-06-29 16:16 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-29 16:19 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
+- 2026-06-29 16:39 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-29 16:27 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 16:37 - [金牌调解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bajdk.md)
+- 2026-06-29 16:35 - [智界V9成为高端圈层共同选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [小西蒙尼：我实现参加世界杯的梦想](http://www.blog.kurohicncr.top/Article/details/426390792.shtml)
-- 2026-06-29 16:25 - [美国队踢世界杯 美政客烧钱打广告忙](http://www.blog.kurohicncr.top/Article/details/17957.shtml)
-- 2026-06-29 16:26 - [天道](http://www.share.minike.top/Article/details/92441932890.shtml)
-- 2026-06-29 16:18 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/68560396075.shtml)
-- 2026-06-29 16:22 - [习近平会见白俄罗斯总统卢卡申科](http://www.share.minike.top/Article/details/6204715.shtml)
-- 2026-06-29 16:35 - [明天睁眼按时来取代我](https://www.share.kurohicncr.top/Article/details/35956356.shtml)
-- 2026-06-29 16:30 - [恋与深空道歉就够了吗](http://www.blog.kurohicncr.top/Article/details/86976003556.shtml)
-- 2026-06-29 16:22 - [中方将20家日本实体列入管控名单](http://www.blog.kurohicncr.top/Article/details/87330442112.shtml)
-- 2026-06-29 16:07 - [永远有话聊的原因](http://www.blog.minike.top/Article/details/926556599.shtml)
-- 2026-06-29 16:18 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/01184.shtml)
-- 2026-06-29 16:34 - [BB大王横店拍戏](http://www.share.minike.top/Article/details/9495998.shtml)
-- 2026-06-29 16:34 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/3583775.shtml)
-- 2026-06-29 16:31 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.kurohicncr.top/Article/details/883817449860.shtml)
-- 2026-06-29 16:29 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/9984876.shtml)
-- 2026-06-29 16:21 - [赵今麦娇兰全球总裁LV太子妃合照](http://www.share.minike.top/Article/details/50353468.shtml)
+- 2026-06-29 16:33 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/738703.shtml)
+- 2026-06-29 16:30 - [清华姚班UP主详解AI专业就业](https://www.blog.kurohicncr.top/Article/details/90379984.shtml)
+- 2026-06-29 16:40 - [中方在台湾岛以东海域活动合理合法](http://www.blog.kurohicncr.top/Article/details/922077236492.shtml)
+- 2026-06-29 16:33 - [超级计算机预测阿根廷和法国会师决赛](https://www.blog.minike.top/Article/details/33348.shtml)
+- 2026-06-29 16:28 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/7069174.shtml)
+- 2026-06-29 16:18 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/241271948.shtml)
+- 2026-06-29 16:34 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/70204896.shtml)
+- 2026-06-29 16:21 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/7691157.shtml)
+- 2026-06-29 16:26 - [刘世锦：建议划拨20万亿国资充实社保](http://www.share.kurohicncr.top/Article/details/01608568907.shtml)
+- 2026-06-29 16:38 - [未成年少女长期吸毒导致卧床不起](https://www.blog.minike.top/Article/details/20163952.shtml)
+- 2026-06-29 16:14 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/1228881741.shtml)
+- 2026-06-29 16:26 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/111066051.shtml)
+- 2026-06-29 16:25 - [爸爸当家](https://www.share.minike.top/Article/details/98766821.shtml)
+- 2026-06-29 16:17 - [业内：全球市场迎来结构性投资窗口](http://www.share.minike.top/Article/details/8718459556.shtml)
+- 2026-06-29 16:18 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/894495600442.shtml)

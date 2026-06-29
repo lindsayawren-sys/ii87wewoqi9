@@ -1,51 +1,61 @@
-# 初夏限定浪漫 四川成都二环高架桥的绿色幻梦长廊
+# 消息人士：Anthropic计划很快向欧洲的银行开放Mythos使用权限
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月22日 17:33 来源：中国新闻网 5月22日，初夏时节，成都二环高架桥迎来颜值巅峰。繁茂的爬山虎如绿色瀑布，肆意爬满桥墩与桥身，层层叠叠的枝叶交织成天然拱廊，绵延数百米。阳光透过叶隙洒落，斑驳光影随风摇曳，晕染出朦胧幻境，宛如闯入童话世界里的“绿野仙踪”。清幽静谧的隧道隔绝都市喧嚣，满是治愈野趣，引得市民游客纷至沓来，定格这份触手可及的梦幻绿意。(
+据三位知情人士透露，Anthropic计划很快向欧洲的银行开放其Mythos人工智能（AI）模型的使用权限。在美国大型银行已率先获得该模型的初步使用权限后，全球各大银行正争相测试这项技术。 网络安全专家认为，Mythos给银行业及其传统技术系统带来了重大挑战，这促使上周在华盛顿举行的国际货币基金组织（IMF）春季会议上监管机构和决策者们发出了一系列警告。目前，美国已有多家银行获
 
 ## 正文
 
-发布时间：2026年05月22日 17:33 来源：中国新闻网 5月22日，初夏时节，成都二环高架桥迎来颜值巅峰。
+据三位知情人士透露，Anthropic计划很快向欧洲的银行开放其Mythos人工智能（AI）模型的使用权限。
 
-繁茂的爬山虎如绿色瀑布，肆意爬满桥墩与桥身，层层叠叠的枝叶交织成天然拱廊，绵延数百米。
+在美国大型银行已率先获得该模型的初步使用权限后，全球各大银行正争相测试这项技术。
 
-阳光透过叶隙洒落，斑驳光影随风摇曳，晕染出朦胧幻境，宛如闯入童话世界里的“绿野仙踪”。
+网络安全专家认为，Mythos给银行业及其传统技术系统带来了重大挑战，这促使上周在华盛顿举行的国际货币基金组织（IMF）春季会议上监管机构和决策者们发出了一系列警告。
 
-清幽静谧的隧道隔绝都市喧嚣，满是治愈野趣，引得市民游客纷至沓来，定格这份触手可及的梦幻绿意。
+目前，美国已有多家银行获得了Mythos的使用权限。
 
-(记者 吕杨） 责任编辑：【李季】
+一位知情人士向路透透露，Anthropic计划将Mythos AI的接入范围扩展至欧洲和英国的银行及其他机构。
+
+该消息人士匿名表示，这一过程包括一系列审查，以确保推广以安全方式进行。
+
+另一位知情消息人士表示，欧洲的银行可能在数日内获得接入权限，而第一位知情人士则称，推广过程可能需要数天或数周时间。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:25 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 16:18 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qazkl.md)
-- 2026-06-29 16:12 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
-- 2026-06-29 16:07 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-29 16:09 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangjiu.md)
-- 2026-06-29 16:13 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 16:23 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-29 16:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
-- 2026-06-29 16:19 - [12所大学更正招生目录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 16:10 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
-- 2026-06-29 16:18 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
+- 2026-06-29 16:31 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-29 16:16 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bjdax.md)
+- 2026-06-29 16:32 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
+- 2026-06-29 16:38 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liaogeng.md)
+- 2026-06-29 16:41 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/omrtk.md)
+- 2026-06-29 16:36 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dtqcy.md)
+- 2026-06-29 16:25 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menhe.md)
+- 2026-06-29 16:29 - [三系杂交稻到底有多牛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
+- 2026-06-29 16:30 - [世界杯欧美八大豪强悉数出线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
+- 2026-06-29 16:37 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
+- 2026-06-29 16:34 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-29 16:21 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 16:31 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiaolei.md)
+- 2026-06-29 16:15 - [杨紫飞奔拥抱胡歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-29 16:31 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/7198979.shtml)
-- 2026-06-29 16:23 - [盛秋平任南昌市委书记](https://www.blog.minike.top/Article/details/69396848.shtml)
-- 2026-06-29 16:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.minike.top/Article/details/634006624639.shtml)
-- 2026-06-29 16:27 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/2975619.shtml)
-- 2026-06-29 16:14 - [王楚钦欢迎晚宴上打台球](https://www.blog.kurohicncr.top/Article/details/080790522256.shtml)
-- 2026-06-29 16:16 - [把毒品藏在哪里，60秒内不会被发现？](https://www.share.minike.top/Article/details/657219817.shtml)
-- 2026-06-29 16:30 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/330211129800.shtml)
-- 2026-06-29 16:26 - [教育部发布预警 事关高招录取](http://www.blog.minike.top/Article/details/3740280.shtml)
-- 2026-06-29 16:17 - [河南四位大妈景区跳舞爆火](https://www.share.kurohicncr.top/Article/details/07218.shtml)
-- 2026-06-29 16:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/4749068417.shtml)
-- 2026-06-29 16:31 - [胡光宇一审获刑13年](http://www.blog.kurohicncr.top/Article/details/643219.shtml)
-- 2026-06-29 16:06 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/7327310.shtml)
-- 2026-06-29 16:13 - [四川宜宾地震瞬间鱼群乱跳](https://www.share.minike.top/Article/details/698403.shtml)
-- 2026-06-29 16:32 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/34093412.shtml)
-- 2026-06-29 16:06 - [爸爸当家](http://www.blog.minike.top/Article/details/85250.shtml)
+- 2026-06-29 16:26 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/392199791840.shtml)
+- 2026-06-29 16:19 - [港股蓝筹股的落寞才刚刚开始吗](http://www.share.kurohicncr.top/Article/details/717057128755.shtml)
+- 2026-06-29 16:13 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/86832.shtml)
+- 2026-06-29 16:30 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/1008171461.shtml)
+- 2026-06-29 16:26 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://www.share.kurohicncr.top/Article/details/689553892.shtml)
+- 2026-06-29 16:23 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/0781145.shtml)
+- 2026-06-29 16:29 - [韩国主帅洪明甫辞职](https://www.share.kurohicncr.top/Article/details/045049691.shtml)
+- 2026-06-29 16:31 - [夏天被这些虫子咬了可能致命](http://www.share.kurohicncr.top/Article/details/76815.shtml)
+- 2026-06-29 16:14 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.minike.top/Article/details/498457.shtml)
+- 2026-06-29 16:39 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.kurohicncr.top/Article/details/386332.shtml)
+- 2026-06-29 16:20 - [恋与深空发放补偿未得到玩家认可](https://www.share.minike.top/Article/details/715816557.shtml)
+- 2026-06-29 16:15 - [央视起底直播诈骗连环套](https://www.blog.kurohicncr.top/Article/details/06235823221.shtml)
+- 2026-06-29 16:27 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.blog.kurohicncr.top/Article/details/46956042.shtml)
+- 2026-06-29 16:38 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/6938664.shtml)
+- 2026-06-29 16:36 - [永远保持对人民的赤子之心](https://www.blog.kurohicncr.top/Article/details/31585.shtml)

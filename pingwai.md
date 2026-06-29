@@ -1,61 +1,60 @@
-# “广东礼物”品牌在文博会发布 公布遴选标准
+# 方正证券净利润市占率增速位列第三 自营业务规模复苏但收益率仍有待提升
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月23日电 (记者 程景伟)“广东礼物”品牌23日于深圳举行的第二十二届文博会上发布，现场公布“广东礼物”的遴选标准、2025年入选产品及2026年首推的“匠心培育系列”首批产品。 首批产品涵盖香云纱、广绣、陶瓷、化橘红等多个领域。这不仅标志着广东文旅文创产业在品牌化、标准化道路上迈出坚实一步，更通过一系列非遗与现代工艺深度融合的创新产品，向市场展示岭南文化“活态传
+时间进入4月，各家券商纷纷交出2025年业绩单。 这一份份财报并不只是证券业2025年末的格局快照，更是对过去五年的阶段性总结。据SAC数据，全行业150家证券公司2025年度实现营业收入5411.71亿元，较2020年增长20.67%，全行业实现净利润2194.39亿元，较2020年增长39.30%，券商业整体取得丰硕成果。 而观察其中各家券商，则是有人欢喜有人忧。 截至4月
 
 ## 正文
 
-中新网深圳5月23日电 (记者 程景伟)“广东礼物”品牌23日于深圳举行的第二十二届文博会上发布，现场公布“广东礼物”的遴选标准、2025年入选产品及2026年首推的“匠心培育系列”首批产品。
+时间进入4月，各家券商纷纷交出2025年业绩单。
 
-首批产品涵盖香云纱、广绣、陶瓷、化橘红等多个领域。
+这一份份财报并不只是证券业2025年末的格局快照，更是对过去五年的阶段性总结。
 
-这不仅标志着广东文旅文创产业在品牌化、标准化道路上迈出坚实一步，更通过一系列非遗与现代工艺深度融合的创新产品，向市场展示岭南文化“活态传承”的无限潜力。
+据SAC数据，全行业150家证券公司2025年度实现营业收入5411.71亿元，较2020年增长20.67%，全行业实现净利润2194.39亿元，较2020年增长39.30%，券商业整体取得丰硕成果。
 
-“广东礼物”不仅仅是一个品牌，更是一个整合全产业链资源的平台。
+而观察其中各家券商，则是有人欢喜有人忧。
 
-发布会上，作为“广东礼物”品牌运营方，南方文化产权交易所总经理娜迪娅发布“广东礼物·匠心培育系列”的“平、靓、正”标准体系以及溯源体系，旨在通过严格的品控和数字化溯源，为湾区文创产品贴上“品质身份证”，解决传统文创产品同质化、品质参差不齐的痛点。
+截至4月21日，已有29家券商发布年报，若按照近五年净利润市占率变化情况进行排序，则正数前三名分别为国泰海通（存在合并因素）、中信证券、方正证券，倒数前三名分别为兴业证券、中金公司、中信建投。
 
-活动现场，南方文化产权交易所与广美文创平台、中华版权服务有限公司、广东省景区行业协会、化橘红中药文化省级代表性传承人李锋等十余个伙伴达成战略合作签约。
+（注：由于财政部2025年7月8日发布标准仓单交易相关会计处理实施问答，该规则实施后相关业务不再确认为收入，2025年营收市占率变化存在扭曲，故在此不作为排序指标） 其中，排名靠前的券商要么是头部券商（中信证券、广发证券），要么是存在期内并表因素（国泰海通、国联民生），而排名第三的方正证券是唯一一家不存在并表因素的中型券商，比较引人注目。
 
-这一举措将有望打通从创意设计、版权保护、生产制造到渠道销售的全链路，释放市场潜力。
+方正证券市占率增速靠前主要由两个原因： 一是存在低基数效应，2021年恰在方正证券的自营业绩低点。
 
-娜迪娅表示，希望首批香云纱系列、养生系列、盲盒系列、陶瓷系列产品的发布，可以带动更多“平、靓、正”文创产品进入“广东礼物”品牌体系中，让“广东礼物”真正成为世界了解广东、读懂湾区的一扇窗口。
+由于彼时原控股股东方正集团的破产重整事件，方正证券的负债端受到影响，连续多年偿还债务导致筹资活动现金流持续为负，公司重资产业务被迫收缩。
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanliu.md)
-- 2026-06-29 16:31 - [巴西发布对阵日本宣传片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 16:19 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-29 16:19 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 16:18 - [新能源车能当外接空调用吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-29 16:18 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
-- 2026-06-29 16:13 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 16:07 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-29 16:31 - [两个教官【皮影人行动4.0】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
-- 2026-06-29 16:25 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanjia.md)
-- 2026-06-29 16:24 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/htbfb.md)
-- 2026-06-29 16:29 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
-- 2026-06-29 16:10 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-29 16:13 - [撒旦的腋窝是什么比喻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-29 16:12 - [夏天被这些虫子咬了可能致命](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caizuan.md)
+- 2026-06-29 16:21 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-29 16:40 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
+- 2026-06-29 16:17 - [永远有话聊的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-29 16:34 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 16:40 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
+- 2026-06-29 16:33 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-29 16:37 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dofay.md)
+- 2026-06-29 16:30 - [端午节加班工资应该怎么算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
+- 2026-06-29 16:20 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gangbang.md)
+- 2026-06-29 16:32 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
+- 2026-06-29 16:21 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 16:12 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huanzai.md)
+- 2026-06-29 16:35 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-29 16:22 - [落魄王爷：报童嗓子喊哑了，他拿旧怀炉焖热卤鸡爪【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/169082.shtml)
-- 2026-06-29 16:34 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.minike.top/Article/details/8595098551.shtml)
-- 2026-06-29 16:19 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/501704504.shtml)
-- 2026-06-29 16:17 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/15214044.shtml)
-- 2026-06-29 16:22 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/011410.shtml)
-- 2026-06-29 16:29 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.minike.top/Article/details/2856742.shtml)
-- 2026-06-29 16:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.minike.top/Article/details/537090772404.shtml)
-- 2026-06-29 16:29 - [崔韩率还以为韩娱来新人了](http://www.blog.minike.top/Article/details/244504339583.shtml)
-- 2026-06-29 16:30 - [工作靠AI算不算职场作弊](https://www.blog.minike.top/Article/details/80619897807.shtml)
-- 2026-06-29 16:11 - [黄金也扛不住了](http://www.blog.minike.top/Article/details/64369010.shtml)
-- 2026-06-29 16:09 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/96374396.shtml)
-- 2026-06-29 16:33 - [三轮车过马路 车上木材砸中路边男子](http://www.blog.minike.top/Article/details/3882179.shtml)
-- 2026-06-29 16:11 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.kurohicncr.top/Article/details/571302444.shtml)
-- 2026-06-29 16:15 - [拍到真的赛博朋克边缘行者了！](https://www.share.kurohicncr.top/Article/details/422514634352.shtml)
-- 2026-06-29 16:35 - [巴西前锋说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/249227862958.shtml)
+- 2026-06-29 16:38 - [杨紫下沉市场口碑](http://www.share.kurohicncr.top/Article/details/462064.shtml)
+- 2026-06-29 16:28 - [滾石唱片要求万豪酒店道歉](https://www.share.minike.top/Article/details/1727126362.shtml)
+- 2026-06-29 16:38 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/554888737763.shtml)
+- 2026-06-29 16:27 - [《虎吹最难绷の一集》](https://www.share.minike.top/Article/details/8062311794.shtml)
+- 2026-06-29 16:30 - [职业选手禁止参赛！](https://www.blog.kurohicncr.top/Article/details/183115104728.shtml)
+- 2026-06-29 16:41 - [世界杯上那些封神的门将](https://www.share.kurohicncr.top/Article/details/9736498.shtml)
+- 2026-06-29 16:25 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/98697488950.shtml)
+- 2026-06-29 16:29 - [东方风云榜](https://www.share.kurohicncr.top/Article/details/4780457.shtml)
+- 2026-06-29 16:33 - [啊啊啊](http://www.blog.minike.top/Article/details/1916175.shtml)
+- 2026-06-29 16:35 - [四川宜宾地震](http://www.share.minike.top/Article/details/911762.shtml)
+- 2026-06-29 16:41 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/894807445.shtml)
+- 2026-06-29 16:12 - [南昌市委书记调整](https://www.share.kurohicncr.top/Article/details/135410054.shtml)
+- 2026-06-29 16:35 - [papi酱回应毕业4年零收入](http://www.blog.minike.top/Article/details/75245838.shtml)
+- 2026-06-29 16:27 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://www.share.minike.top/Article/details/600560948520.shtml)
+- 2026-06-29 16:21 - [流金岁月](https://www.blog.minike.top/Article/details/956389.shtml)

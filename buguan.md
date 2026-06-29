@@ -1,61 +1,56 @@
-# 职业闭店行为导致消费者预付款难追回 专家：从严监管完善机制
+# 酒价内参4月21日价格发布：青花汾20保持不变
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-职业闭店行为导致消费者预付款难追回 专家建议 从严监管完善机制守护消费者权益 上海一家健身房，刚换了经营者，不到5个月时间就关门了。而新“上任”的法定代表人，长期在外地务农，从未到过上海，与该机构毫无关联。 近日，上海市虹口区人民检察院公布了一起“职业闭店人”案件：被告人陶某在1年时间内，接手4家濒临倒闭的健身机构，收取75万余元会费后卷款跑路，造成数百名消费者权益受损。202
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月21日延续回升态势。如果主要单品各取一瓶整体打包售卖，今日总售价为9905元，较昨日上涨7元，升至近十日最高位。市场在昨日明显反弹后延续修复，终端交投情绪整体保持平稳，但单品涨跌仍有分化。 今日白酒市场11大单品四涨五跌两平，涨跌结构
 
 ## 正文
 
-职业闭店行为导致消费者预付款难追回 专家建议 从严监管完善机制守护消费者权益 上海一家健身房，刚换了经营者，不到5个月时间就关门了。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要单品的终端零售均价在4月21日延续回升态势。
 
-而新“上任”的法定代表人，长期在外地务农，从未到过上海，与该机构毫无关联。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9905元，较昨日上涨7元，升至近十日最高位。
 
-近日，上海市虹口区人民检察院公布了一起“职业闭店人”案件：被告人陶某在1年时间内，接手4家濒临倒闭的健身机构，收取75万余元会费后卷款跑路，造成数百名消费者权益受损。
+市场在昨日明显反弹后延续修复，终端交投情绪整体保持平稳，但单品涨跌仍有分化。
 
-2025年8月，检察机关对陶某依法提起公诉。
+今日白酒市场11大单品四涨五跌两平，涨跌结构较为均衡。
 
-今年1月，虹口区人民法院以合同诈骗罪判处陶某有期徒刑5年，并处罚金10万元。
+上涨方面，古井贡古20涨幅居前，上涨12元/瓶，创近一月以来最大单日涨幅，价格升至本月最高位，电商渠道价格走强功不可没；国窖1573上涨5元/瓶，亦创下近一个月最高；洋河梦之蓝M6+上涨2元/瓶；精品茅台小幅上涨1元/瓶。
 
-目前，该判决已生效。
+下跌方面，习酒君品与青花郎跌幅居前，均下跌4元/瓶；五粮液普五八代下跌3元/瓶；五粮液1618及水晶剑南春均小幅回落1元/瓶。
 
-据悉，这是上海首例进入刑事诉讼的“职业闭店人”案件。
+飞天茅台及青花汾20的价格环比保持不变。
 
-《法治日报》记者查阅公开报道发现，近年来，健身、理发、艺术培训等预付式消费模式较为集中的行业，常见门店经营暴雷、突然停业跑路等现象。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [小鹏MONAL03预售定档7月2日](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
-- 2026-06-29 16:28 - [小说《无悔追踪》翻红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
-- 2026-06-29 16:31 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiannan.md)
-- 2026-06-29 16:18 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxmum.md)
-- 2026-06-29 16:18 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smjzh.md)
-- 2026-06-29 16:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-29 16:20 - [豆包收费了，你还会用吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkcwn.md)
-- 2026-06-29 16:29 - [端午节加班工资应该怎么算](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-29 16:31 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
-- 2026-06-29 16:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhcun.md)
-- 2026-06-29 16:29 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfuia.md)
-- 2026-06-29 16:14 - [加拿大绝杀南非：淘汰赛残酷开幕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-29 16:27 - [欧洲多国激辩“装不装空调”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gjgdj.md)
-- 2026-06-29 16:09 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-29 16:15 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvdos.md)
+- 2026-06-29 16:28 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhexun.md)
+- 2026-06-29 16:14 - [张雪机车杀向海外](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 16:12 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-29 16:18 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-29 16:41 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiewei.md)
+- 2026-06-29 16:33 - [明天睁眼按时来取代我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-29 16:28 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
+- 2026-06-29 16:37 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 16:29 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
+- 2026-06-29 16:17 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/89030024.shtml)
-- 2026-06-29 16:18 - [恋与深空评分暴跌至1.8](https://www.blog.minike.top/Article/details/59715364536.shtml)
-- 2026-06-29 16:22 - [业内：全球市场迎来结构性投资窗口](http://www.blog.kurohicncr.top/Article/details/268464109705.shtml)
-- 2026-06-29 16:24 - [江语晨 好恨江语晨前夫](https://www.blog.minike.top/Article/details/8780250279.shtml)
-- 2026-06-29 16:19 - [韩国主帅洪明甫辞职](https://www.blog.minike.top/Article/details/7040966685.shtml)
-- 2026-06-29 16:18 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/4268579452.shtml)
-- 2026-06-29 16:34 - [男孩复读一年减重20斤涨分111分](https://www.share.minike.top/Article/details/38064330675.shtml)
-- 2026-06-29 16:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.blog.minike.top/Article/details/082926377.shtml)
-- 2026-06-29 16:16 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/6908235.shtml)
-- 2026-06-29 16:12 - [千与千寻](https://www.blog.minike.top/Article/details/88575106.shtml)
-- 2026-06-29 16:11 - [三轮车过马路 车上木材砸中路边男子](https://www.share.kurohicncr.top/Article/details/02672.shtml)
-- 2026-06-29 16:32 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/76345230915.shtml)
-- 2026-06-29 16:06 - [2026世界杯谁能一黑到底](http://www.share.minike.top/Article/details/35907757172.shtml)
-- 2026-06-29 16:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.kurohicncr.top/Article/details/476176883582.shtml)
-- 2026-06-29 16:25 - [世界杯十大帅哥必吃榜](https://www.share.kurohicncr.top/Article/details/9285741392.shtml)
+- 2026-06-29 16:31 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/800541384.shtml)
+- 2026-06-29 16:14 - [石洵瑶挺进WTT美国大满贯女单32强](http://www.blog.kurohicncr.top/Article/details/63286756404.shtml)
+- 2026-06-29 16:22 - [配音演员于小华病逝 享年78岁](http://www.blog.kurohicncr.top/Article/details/371481679.shtml)
+- 2026-06-29 16:17 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/06635477.shtml)
+- 2026-06-29 16:38 - [世界杯看台惊现一群“哈兰德”](https://www.blog.minike.top/Article/details/96472.shtml)
+- 2026-06-29 16:26 - [T1 3-0 KC赛后数据](https://www.blog.minike.top/Article/details/73442291.shtml)
+- 2026-06-29 16:30 - [草根德比站上亚洲顶级魔鬼主场](https://www.blog.kurohicncr.top/Article/details/48214646.shtml)
+- 2026-06-29 16:22 - [港股爆发 美团百度阿里等集体大涨](https://www.blog.minike.top/Article/details/15682.shtml)
+- 2026-06-29 16:28 - [网友飞机上偶遇肖战](http://www.share.minike.top/Article/details/61883361967.shtml)
+- 2026-06-29 16:13 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/915948336.shtml)
+- 2026-06-29 16:24 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/6480505.shtml)
+- 2026-06-29 16:25 - [王楚钦开门红](http://www.blog.minike.top/Article/details/103833.shtml)
+- 2026-06-29 16:23 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/559120951.shtml)
+- 2026-06-29 16:22 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/4340617795.shtml)
+- 2026-06-29 16:17 - [105年初心滚烫](http://www.share.kurohicncr.top/Article/details/4114038.shtml)

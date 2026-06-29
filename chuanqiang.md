@@ -1,45 +1,52 @@
-# 力勤资源将于6月18日派发末期股息每股0.6元
+# 巴基斯坦从沙特阿拉伯获得10亿美元资金
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-力勤资源（02245）发布公告，该公司将于2026年6月18日派发末期股息每股0.6元人民币。责任编辑：卢昱君
+巴基斯坦国家银行（巴基斯坦央行）发布声明称，已于4月20日的起息日收到沙特阿拉伯提供的10亿美元。本次到账资金为沙特此前承诺的30亿美元存款援助中的第二批款项。首批20亿美元资金已于4月15日到账。责任编辑：王永生
 
 ## 正文
 
-力勤资源（02245）发布公告，该公司将于2026年6月18日派发末期股息每股0.6元人民币。
+巴基斯坦国家银行（巴基斯坦央行）发布声明称，已于4月20日的起息日收到沙特阿拉伯提供的10亿美元。
 
-责任编辑：卢昱君
+本次到账资金为沙特此前承诺的30亿美元存款援助中的第二批款项。
+
+首批20亿美元资金已于4月15日到账。
+
+责任编辑：王永生
 
 ## 相关推荐
 
-- 2026-06-29 16:23 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 16:28 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:30 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiadw.md)
-- 2026-06-29 16:29 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gnivt.md)
-- 2026-06-29 16:15 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-29 16:35 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
-- 2026-06-29 16:14 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-29 16:27 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvebg.md)
-- 2026-06-29 16:18 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
-- 2026-06-29 16:15 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
-- 2026-06-29 16:35 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
+- 2026-06-29 16:35 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-29 16:14 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-29 16:19 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
+- 2026-06-29 16:27 - [央视曝光高价回收老物件骗局](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-29 16:19 - [老板回应员工光脚清洗土豆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 16:33 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 16:30 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 16:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
+- 2026-06-29 16:17 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 16:38 - [苹果ultra2阔折叠已开模测试](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
+- 2026-06-29 16:31 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnuhk.md)
+- 2026-06-29 16:16 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/albgx.md)
+- 2026-06-29 16:39 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
+- 2026-06-29 16:31 - [龟梨和也田中美奈实结婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/107165635397.shtml)
-- 2026-06-29 16:12 - [急先锋](http://www.blog.minike.top/Article/details/0890118132.shtml)
-- 2026-06-29 16:24 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/09525284472.shtml)
-- 2026-06-29 16:29 - [范志毅看好日本淘汰巴西](http://www.blog.kurohicncr.top/Article/details/267960.shtml)
-- 2026-06-29 16:34 - [中国代表在联合国点名日本所犯罪行](https://www.blog.minike.top/Article/details/220381741367.shtml)
-- 2026-06-29 16:22 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](http://www.blog.kurohicncr.top/Article/details/559151930.shtml)
-- 2026-06-29 16:10 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/43155085497.shtml)
-- 2026-06-29 16:21 - [美人鱼](https://www.share.minike.top/Article/details/69388215472.shtml)
-- 2026-06-29 16:23 - [梅朗雄主张法国退出北约](http://www.blog.minike.top/Article/details/612493.shtml)
-- 2026-06-29 16:12 - [专家建议城乡居民养老金增至每月千元](http://www.share.minike.top/Article/details/7359367.shtml)
-- 2026-06-29 16:28 - [拍到真的赛博朋克边缘行者了！](http://www.blog.kurohicncr.top/Article/details/54987271733.shtml)
-- 2026-06-29 16:29 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](http://www.share.kurohicncr.top/Article/details/688589.shtml)
-- 2026-06-29 16:29 - [尽量少用玻璃吸管](http://www.share.minike.top/Article/details/37273.shtml)
-- 2026-06-29 16:19 - [福建仙游一峡谷发生意外5人身亡](http://www.share.kurohicncr.top/Article/details/51729672265.shtml)
-- 2026-06-29 16:20 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/8623895772.shtml)
+- 2026-06-29 16:15 - [存储三巨头被告了](https://www.share.minike.top/Article/details/7176723799.shtml)
+- 2026-06-29 16:26 - [欧洲多国高温突破40摄氏度](http://www.blog.minike.top/Article/details/024926940230.shtml)
+- 2026-06-29 16:25 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/26886641.shtml)
+- 2026-06-29 16:23 - [周生如故](https://www.blog.minike.top/Article/details/0750396172.shtml)
+- 2026-06-29 16:38 - [四川宜宾5.5级地震已致13人轻微伤](http://www.blog.minike.top/Article/details/383951953721.shtml)
+- 2026-06-29 16:29 - [韩国队出局是因为内讧吗](https://www.share.minike.top/Article/details/4293614022.shtml)
+- 2026-06-29 16:16 - [三轮车过马路 车上木材砸中路边男子](https://www.share.minike.top/Article/details/372541.shtml)
+- 2026-06-29 16:30 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/2449580.shtml)
+- 2026-06-29 16:34 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/72697.shtml)
+- 2026-06-29 16:20 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](http://www.blog.minike.top/Article/details/375829782.shtml)
+- 2026-06-29 16:38 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/20163815.shtml)
+- 2026-06-29 16:30 - [周生如故](http://www.share.kurohicncr.top/Article/details/5657625.shtml)
+- 2026-06-29 16:37 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.share.kurohicncr.top/Article/details/053527184672.shtml)
+- 2026-06-29 16:12 - [小S在香港被偶遇](https://www.share.kurohicncr.top/Article/details/28850.shtml)
+- 2026-06-29 16:28 - [三系杂交稻到底有多牛](https://www.share.kurohicncr.top/Article/details/7832527.shtml)

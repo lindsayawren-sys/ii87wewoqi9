@@ -1,56 +1,59 @@
-# 中国载人飞船首次完成3.5小时径向交会对接
+# 谁在力挺英维克？东吴证券预测失准，跌停日仍喊买入
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新社甘肃酒泉5月25日电 (记者 马帅莎)5月25日2时45分，神舟二十三号载人飞船成功与中国空间站完成径向交会对接，整个交会对接过程平稳有序、精准高效。这是中国载人飞船首次执行3.5小时径向交会对接任务，中国空间交会对接技术实现又一突破。空间交会对接被誉为“太空万里穿针”，是世界航天领域内公认的最复杂、最难攻关的技术之一。制导、导航与控制(GNC)系统作为驾驶神舟飞船的“舵
+凭借AI液冷概念的加持，英维克过去一年股价最大涨幅接近6倍，成为A股炙手可热的大牛股。然而，4月20日一季报披露后，市场骤然降温，净利润同比骤降逾80%，股价连续跌停后勉强撬板。 在这轮过山车行情中，东吴证券分析师周尔双、钱尧天团队的态度格外引人注目：就在股价一字跌停的4月21日，该团队依然发布研报，维持“买入”评级，将业绩下滑解释为“短期承压”。 回溯东吴证券对英维克的预测轨
 
 ## 正文
 
-中新社甘肃酒泉5月25日电 (记者 马帅莎)5月25日2时45分，神舟二十三号载人飞船成功与中国空间站完成径向交会对接，整个交会对接过程平稳有序、精准高效。
+凭借AI液冷概念的加持，英维克过去一年股价最大涨幅接近6倍，成为A股炙手可热的大牛股。
 
-这是中国载人飞船首次执行3.5小时径向交会对接任务，中国空间交会对接技术实现又一突破。
+然而，4月20日一季报披露后，市场骤然降温，净利润同比骤降逾80%，股价连续跌停后勉强撬板。
 
-空间交会对接被誉为“太空万里穿针”，是世界航天领域内公认的最复杂、最难攻关的技术之一。
+在这轮过山车行情中，东吴证券分析师周尔双、钱尧天团队的态度格外引人注目：就在股价一字跌停的4月21日，该团队依然发布研报，维持“买入”评级，将业绩下滑解释为“短期承压”。
 
-制导、导航与控制(GNC)系统作为驾驶神舟飞船的“舵手”，是完成交会对接任务的关键所在。
+回溯东吴证券对英维克的预测轨迹。
 
-该系统承担着飞船从发射入轨、姿态与轨道控制，到与目标飞行器全自主交会对接，再到撤离返回的全过程控制任务，其性能直接决定了交会对接的安全性与精准度。
+2025年12月16日，东吴证券发布首次覆盖研报，给予“买入”评级。
 
-经过数十年的技术积累与迭代，神舟飞船GNC系统已实现从可用到好用的跨越式发展。
+彼时，该团队给出了极为乐观的盈利预测：预计2025年至2027年归母净利润分别为6.5亿元、10.0亿元和14.2亿元。
 
-神舟十三号和神舟十四号任务已验证径向交会对接技术，但均为6.5小时交会对接模式；神舟二十一号和神舟二十二号任务采用3.5小时快速交会对接模式，但都是与空间站前向交会对接。
+这一预测建立在AI算力液冷需求爆发、公司海外业务快速放量的核心假设之上。
 
-专家称，从GNC系统来看，径向交会对接与前向、后向交会对接存在显著差异，其技术难度远超后者，对GNC系统的精准控制能力提出更高要求。
+然而，4月20日晚披露的2025年年报显示，英维克实际实现归母净利润5.22亿元，同比增长15.30%。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
-- 2026-06-29 16:08 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lycou.md)
-- 2026-06-29 16:11 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 16:32 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuichuan.md)
-- 2026-06-29 16:13 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnzvz.md)
-- 2026-06-29 16:11 - [拍到真的赛博朋克边缘行者了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
-- 2026-06-29 16:17 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
-- 2026-06-29 16:20 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
-- 2026-06-29 16:33 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adiwz.md)
-- 2026-06-29 16:22 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mbcoo.md)
+- 2026-06-29 16:28 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leimeng.md)
+- 2026-06-29 16:22 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
+- 2026-06-29 16:16 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-29 16:16 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-29 16:40 - [央视曝光涉黄App诈骗陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kbqry.md)
+- 2026-06-29 16:30 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-29 16:41 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 16:26 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 16:12 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-29 16:29 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 16:25 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deirp.md)
+- 2026-06-29 16:14 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 16:39 - [王曼昱被突如其来的话筒逗笑了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [东方风云榜](http://www.blog.kurohicncr.top/Article/details/12724.shtml)
-- 2026-06-29 16:26 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/1924547840.shtml)
-- 2026-06-29 16:07 - [法拉利被4个孩子当滑梯玩](https://www.share.minike.top/Article/details/14937.shtml)
-- 2026-06-29 16:22 - [教育部发布预警 事关高招录取](https://www.blog.kurohicncr.top/Article/details/76177.shtml)
-- 2026-06-29 16:32 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.minike.top/Article/details/38897.shtml)
-- 2026-06-29 16:22 - [湖北钟祥市委书记张勇拟任新职](https://www.blog.minike.top/Article/details/798082.shtml)
-- 2026-06-29 16:12 - [CORTIS登机迟到致航班延误](http://www.share.minike.top/Article/details/788042422.shtml)
-- 2026-06-29 16:28 - [人类对空调和其他家电有多双标](https://www.share.kurohicncr.top/Article/details/94197849391.shtml)
-- 2026-06-29 16:09 - [巴西国脚说不出日本球员全场哄笑](https://www.blog.minike.top/Article/details/22495336.shtml)
-- 2026-06-29 16:15 - [港股爆发 美团百度阿里等集体大涨](https://www.share.minike.top/Article/details/855569726.shtml)
-- 2026-06-29 16:10 - [高市早苗口齿不清被质疑醉酒](https://www.share.kurohicncr.top/Article/details/98218.shtml)
-- 2026-06-29 16:19 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.blog.kurohicncr.top/Article/details/69462207910.shtml)
-- 2026-06-29 16:20 - [NBA交易](http://www.share.minike.top/Article/details/995727929805.shtml)
-- 2026-06-29 16:10 - [12所大学更正招生目录](http://www.share.minike.top/Article/details/35545.shtml)
-- 2026-06-29 16:21 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/8159796708.shtml)
+- 2026-06-29 16:38 - [美人鱼](https://www.share.kurohicncr.top/Article/details/329348251.shtml)
+- 2026-06-29 16:36 - [披荆斩棘的哥哥](http://www.blog.minike.top/Article/details/555435603.shtml)
+- 2026-06-29 16:13 - [逃狱兄弟](https://www.blog.minike.top/Article/details/64035.shtml)
+- 2026-06-29 16:23 - [三星与SK集团或将投资2000万亿韩元](https://www.share.minike.top/Article/details/18561144.shtml)
+- 2026-06-29 16:35 - [舒行钢任湖南省交通运输厅厅长](https://www.share.minike.top/Article/details/285780055288.shtml)
+- 2026-06-29 16:19 - [专家建议城乡居民养老金增至每月千元](http://www.share.kurohicncr.top/Article/details/5364724.shtml)
+- 2026-06-29 16:16 - [戴军否认1993年月入过万](http://www.share.minike.top/Article/details/09991347.shtml)
+- 2026-06-29 16:37 - [美的空调 卡bug](https://www.blog.minike.top/Article/details/32787067.shtml)
+- 2026-06-29 16:13 - [加拿大绝杀南非晋级](http://www.blog.kurohicncr.top/Article/details/604089804.shtml)
+- 2026-06-29 16:31 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/08577.shtml)
+- 2026-06-29 16:12 - [豆包收费了，你还会用吗？](https://www.blog.minike.top/Article/details/8385017693.shtml)
+- 2026-06-29 16:17 - [papi酱父亲再婚妻子仅比她大几岁](https://www.blog.minike.top/Article/details/8612903.shtml)
+- 2026-06-29 16:41 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/7648548.shtml)
+- 2026-06-29 16:36 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/013341.shtml)
+- 2026-06-29 16:31 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/965050152.shtml)

@@ -1,54 +1,59 @@
-# 印尼一季度国际收支逆差91亿美元 外储仍处高位
+# 2026年一季度中国快递业务量同比增5.8%
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新网雅加达5月22日电 印度尼西亚央行22日公布数据显示，2026年第一季度印尼国际收支录得91亿美元逆差，但整体表现仍保持稳健，外汇储备维持高位。 数据显示，截至3月底，印尼外汇储备为1482亿美元，相当于5.8个月进口额及政府外债偿付需求，高于国际通行安全标准。 印尼央行表示，在全球经济放缓及金融市场不确定性上升背景下，今年第一季度印尼经常账户逆差扩大至40亿美元，占国内
+中新社北京4月22日电 (记者 王梦瑶)中国国家邮政局22日公布的数据显示，今年1-3月，中国邮政行业寄递业务量累计完成519.0亿件，同比增长4.5%。其中，快递业务量累计完成477.3亿件，同比增长5.8%。 当日，国家邮政局公布2026年1-3月邮政行业运行情况。3月份，邮政行业寄递业务量累计完成187.6亿件，同比增长2.7%。其中，快递业务量累计完成172.4亿件，同
 
 ## 正文
 
-中新网雅加达5月22日电 印度尼西亚央行22日公布数据显示，2026年第一季度印尼国际收支录得91亿美元逆差，但整体表现仍保持稳健，外汇储备维持高位。
+中新社北京4月22日电 (记者 王梦瑶)中国国家邮政局22日公布的数据显示，今年1-3月，中国邮政行业寄递业务量累计完成519.0亿件，同比增长4.5%。
 
-数据显示，截至3月底，印尼外汇储备为1482亿美元，相当于5.8个月进口额及政府外债偿付需求，高于国际通行安全标准。
+其中，快递业务量累计完成477.3亿件，同比增长5.8%。
 
-印尼央行表示，在全球经济放缓及金融市场不确定性上升背景下，今年第一季度印尼经常账户逆差扩大至40亿美元，占国内生产总值(GDP)的1.1%；资本和金融账户则由上一季度顺差转为49亿美元逆差。
+当日，国家邮政局公布2026年1-3月邮政行业运行情况。
 
-不过，外国直接投资和证券投资仍保持净流入，显示国际投资者对印尼经济和投资环境仍具信心。
+3月份，邮政行业寄递业务量累计完成187.6亿件，同比增长2.7%。
 
-印尼央行预计，2026年印尼经常账户逆差仍将维持在GDP的0.5%至1.3%区间，国际收支整体表现将继续保持稳定。
+其中，快递业务量累计完成172.4亿件，同比增长3.5%。
 
-(完)
+从业务类型看，1-3月，同城快递业务量累计完成33.5亿件，同比下降7.3%；异地快递业务量累计完成433.4亿件，同比增长7.0%；国际/港澳台快递业务量累计完成10.4亿件，同比增长1.7%。
+
+1-3月，同城、异地、国际/港澳台快递业务量分别占全部快递业务量的7.0%、90.8%和2.2%。
+
+与去年同期相比，同城快递业务量的比重下降1.0个百分点，异地快递业务量的比重上升1.1个百分点，国际/港澳台业务量的比重下降0.1个百分点。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-29 16:32 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-29 16:10 - [空调两年没洗 男子吹了三天双肺全白](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-29 16:32 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuoji.md)
-- 2026-06-29 16:26 - [小S在香港被偶遇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
-- 2026-06-29 16:33 - [美的空调 卡bug](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-29 16:25 - [大六座SUV进入黄金时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 16:32 - [日本在南鸟岛部署岸舰导弹发射装置](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
-- 2026-06-29 16:22 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fzkgk.md)
-- 2026-06-29 16:23 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 16:22 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-29 16:17 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-29 16:21 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tinghao.md)
+- 2026-06-29 16:17 - [港股爆发 美团百度阿里等集体大涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
+- 2026-06-29 16:21 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
+- 2026-06-29 16:31 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beipiao.md)
+- 2026-06-29 16:32 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
+- 2026-06-29 16:23 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-29 16:36 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
+- 2026-06-29 16:14 - [《明日方舟：终末地》过场动画 - 血色已至](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 16:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-29 16:38 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flqid.md)
+- 2026-06-29 16:34 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-29 16:26 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
+- 2026-06-29 16:34 - [内马尔能上场15分钟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:33 - [iPhone18系列预计将大幅涨价](http://www.blog.kurohicncr.top/Article/details/47614.shtml)
-- 2026-06-29 16:13 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/8136451319.shtml)
-- 2026-06-29 16:11 - [智界V9成为高端圈层共同选择](http://www.share.minike.top/Article/details/62647979.shtml)
-- 2026-06-29 16:35 - [韩国主帅洪明甫辞职](http://www.share.minike.top/Article/details/0550333.shtml)
-- 2026-06-29 16:07 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/044170970401.shtml)
-- 2026-06-29 16:11 - [老板回应员工光脚清洗土豆](https://www.blog.kurohicncr.top/Article/details/93120.shtml)
-- 2026-06-29 16:25 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/48224264197.shtml)
-- 2026-06-29 16:16 - [韩国极端网友对主教练发出死亡威胁](http://www.blog.minike.top/Article/details/9137318204.shtml)
-- 2026-06-29 16:21 - [47岁吴建豪再婚](https://www.blog.minike.top/Article/details/228866.shtml)
-- 2026-06-29 16:20 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/6693574731.shtml)
-- 2026-06-29 16:30 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.kurohicncr.top/Article/details/839829030771.shtml)
-- 2026-06-29 16:26 - [papi酱在救赎窦文涛](https://www.share.kurohicncr.top/Article/details/9200519877.shtml)
-- 2026-06-29 16:24 - [第一炉香](http://www.blog.kurohicncr.top/Article/details/228529193955.shtml)
-- 2026-06-29 16:24 - [爸爸当家](http://www.blog.minike.top/Article/details/8445662.shtml)
-- 2026-06-29 16:20 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/8957488.shtml)
+- 2026-06-29 16:22 - [妹妹的正确用法！](https://www.share.kurohicncr.top/Article/details/6679742.shtml)
+- 2026-06-29 16:16 - [中方将20家日本实体列入管控名单](https://www.share.minike.top/Article/details/997711.shtml)
+- 2026-06-29 16:19 - [男子造谣县城满街都是小混混被行拘](http://www.blog.kurohicncr.top/Article/details/14106190111.shtml)
+- 2026-06-29 16:24 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.minike.top/Article/details/70568609.shtml)
+- 2026-06-29 16:15 - [我国多领域成果密集上新](https://www.blog.minike.top/Article/details/13169283236.shtml)
+- 2026-06-29 16:21 - [42岁郭碧婷纯素颜状态](http://www.share.kurohicncr.top/Article/details/97864514.shtml)
+- 2026-06-29 16:41 - [上海一小区水池内出现一条鳄鱼](https://www.blog.minike.top/Article/details/5597298.shtml)
+- 2026-06-29 16:14 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/60955047.shtml)
+- 2026-06-29 16:15 - [普京：建议乌俄停止打击对方纵深目标](http://www.blog.kurohicncr.top/Article/details/9976343242.shtml)
+- 2026-06-29 16:17 - [流金岁月](https://www.blog.minike.top/Article/details/085679324.shtml)
+- 2026-06-29 16:41 - [深圳一无人驾驶汽车压实线加塞变道](https://www.share.kurohicncr.top/Article/details/03253341045.shtml)
+- 2026-06-29 16:13 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/5897761.shtml)
+- 2026-06-29 16:40 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/128040.shtml)
+- 2026-06-29 16:16 - [深圳一无人驾驶汽车压实线加塞变道](http://www.share.kurohicncr.top/Article/details/65448.shtml)
+- 2026-06-29 16:36 - [草根德比站上亚洲顶级魔鬼主场](http://www.blog.minike.top/Article/details/212005268.shtml)

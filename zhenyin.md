@@ -1,60 +1,59 @@
-# 政企社深度共建结新果，“远洋庄里聚场”正式揭牌亮相
+# Keurig与雀巢续签协议，延续星巴克咖啡分销合作
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-5月18日，八里庄街道2026年党建工作协调委员会工作会暨高质量发展大会在北京远洋国际中心A座“远洋庄里聚场”举行。会上，由八里庄街道工委与远洋集团党委携手共建的“远洋庄里聚场”正式揭牌亮相。 外交部欧洲司公使衔参赞刘波，朝阳区政府党组成员、副区长陈黛，区委社会工作部部长、两新工委书记徐宏桢，区委宣传部副部长、文明办主任段成钢，八里庄街道工委书记李伟，远洋集团党委副书记、纪委书
+Keurig Dr Pepper与雀巢美国公司宣布，双方已续签并扩大战略合作伙伴关系，继续在美国和加拿大市场负责星巴克品牌K-Cup咖啡胶囊的生产与分销。此次协议是在2020年首次达成合作的基础上进行的续约，新协议引入了旨在扩大星巴克产品在Keurig冲泡系统内分销与创新的新计划。 根据协议，Keurig将继续利用其单杯咖啡平台，生产星巴克品牌的K-Cup胶囊，而雀巢则依托其2
 
 ## 正文
 
-5月18日，八里庄街道2026年党建工作协调委员会工作会暨高质量发展大会在北京远洋国际中心A座“远洋庄里聚场”举行。
+Keurig Dr Pepper与雀巢美国公司宣布，双方已续签并扩大战略合作伙伴关系，继续在美国和加拿大市场负责星巴克品牌K-Cup咖啡胶囊的生产与分销。
 
-会上，由八里庄街道工委与远洋集团党委携手共建的“远洋庄里聚场”正式揭牌亮相。
+此次协议是在2020年首次达成合作的基础上进行的续约，新协议引入了旨在扩大星巴克产品在Keurig冲泡系统内分销与创新的新计划。
 
-外交部欧洲司公使衔参赞刘波，朝阳区政府党组成员、副区长陈黛，区委社会工作部部长、两新工委书记徐宏桢，区委宣传部副部长、文明办主任段成钢，八里庄街道工委书记李伟，远洋集团党委副书记、纪委书记、执行总裁柴娟出席活动。
+根据协议，Keurig将继续利用其单杯咖啡平台，生产星巴克品牌的K-Cup胶囊，而雀巢则依托其2018年获得的星巴克全球消费品授权，负责将这些产品通过零售渠道推向市场。
 
-政企社深度共建，多方协同赋能空间价值 “远洋庄里聚场”位于北京远洋国际中心A座，由远洋集团联合远洋不动产、远洋服务等单位共同推进，实现空间向区域服务平台转化。
+所有咖啡豆仍由星巴克负责采购和烘焙。
 
-作为远洋深耕八里庄20余年的又一项属地共建成果，“远洋庄里聚场”不是单一会展空间，而是集党建服务、公益活动、文化共享、职工服务、社区治理、商圈交流等功能于一体的复合型公共平台。
+Keurig Dr Pepper美国咖啡业务总裁表示，期待深化与雀巢的关系，以建立在与星巴克长期合作的基础上，而雀巢美国咖啡与饮料部门总裁也指出，Keurig系统是其星巴克家用咖啡产品组合的重要平台。
 
-空间以远洋的“远”字进行内核规划 ，融合红色引领、历史文脉、公益实践与现代艺术 ，设置“远瞩、远望、远航”等功能区。
+受此消息影响，Keurig Dr Pepper股价在周二早盘小幅上涨，延续了其近期的市场表现。
 
-该空间的建成，也进一步填补了远洋商圈党建服务与企业交流空间的空白，为后续链接商圈资源、服务属地企业、承接公益与社区活动提供了重要载体。
+此前，Keurig已于去年宣布以180亿美元收购咖啡同行JDE Peet‘s，进一步巩固了其在全球咖啡市场的地位。
 
-获评“空间赋能代表企业”，属地贡献再获认可 本次会议八里庄街道发布了贯彻落实朝阳区“十五五”规划实施方案、“益企庄”服务品牌及2026年党建工作协调委员会“一会五委”共建项目，向对地区高质量发展做出突出贡献的单位颁发致谢信。
+此次与雀巢的续约被视为Keurig在完成重大并购后，持续优化其品牌组合与渠道战略的重要举措。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 16:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rutgy.md)
-- 2026-06-29 16:24 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kqpfw.md)
-- 2026-06-29 16:27 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 16:16 - [湖北钟祥市委书记张勇拟任新职](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-29 16:16 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
-- 2026-06-29 16:10 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizha.md)
-- 2026-06-29 16:14 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xushua.md)
-- 2026-06-29 16:25 - [勇敢的心第二部](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
-- 2026-06-29 16:24 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
-- 2026-06-29 16:15 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-29 16:11 - [博主：全球股市进入“AI极端共振”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 16:18 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
-- 2026-06-29 16:08 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-29 16:33 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
+- 2026-06-29 16:17 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
+- 2026-06-29 16:21 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 16:17 - [森保一坚信日本能赢巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weishao.md)
+- 2026-06-29 16:12 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/mintiao.md)
+- 2026-06-29 16:35 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-29 16:20 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-29 16:25 - [艾莎唱出了多少牛马的心声🥹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
+- 2026-06-29 16:25 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-29 16:28 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-29 16:18 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gengpiao.md)
+- 2026-06-29 16:13 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-29 16:15 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oqlcr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.kurohicncr.top/Article/details/2928245.shtml)
-- 2026-06-29 16:19 - [海口塔吊事故处罚结果公布](https://www.blog.kurohicncr.top/Article/details/53288986.shtml)
-- 2026-06-29 16:13 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/308319.shtml)
-- 2026-06-29 16:14 - [沙丘](http://www.share.kurohicncr.top/Article/details/823380.shtml)
-- 2026-06-29 16:27 - [电影《抓特务》总票房破亿](http://www.blog.minike.top/Article/details/946270492.shtml)
-- 2026-06-29 16:25 - [业内：全球市场迎来结构性投资窗口](http://www.blog.minike.top/Article/details/68258.shtml)
-- 2026-06-29 16:33 - [赵今麦娇兰全球总裁LV太子妃合照](https://www.share.minike.top/Article/details/662381719835.shtml)
-- 2026-06-29 16:11 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/442333230.shtml)
-- 2026-06-29 16:33 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](http://www.blog.minike.top/Article/details/10528225.shtml)
-- 2026-06-29 16:18 - [机器人学校开学了](https://www.blog.minike.top/Article/details/45336711549.shtml)
-- 2026-06-29 16:15 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/72965.shtml)
-- 2026-06-29 16:21 - [徐昕暂不参加NBA夏季联赛](https://www.share.kurohicncr.top/Article/details/11405992399.shtml)
-- 2026-06-29 16:28 - [空调两年没洗 男子吹了三天双肺全白](http://www.blog.kurohicncr.top/Article/details/492603.shtml)
-- 2026-06-29 16:20 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/322542243105.shtml)
-- 2026-06-29 16:26 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/1416741.shtml)
+- 2026-06-29 16:32 - [哈基米歌王争霸赛](https://www.share.kurohicncr.top/Article/details/210034694868.shtml)
+- 2026-06-29 16:19 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.minike.top/Article/details/18460.shtml)
+- 2026-06-29 16:39 - [杨紫飞奔拥抱胡歌](https://www.share.kurohicncr.top/Article/details/1349245027.shtml)
+- 2026-06-29 16:25 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/6197435.shtml)
+- 2026-06-29 16:28 - [森保一坚信日本能赢巴西](https://www.blog.kurohicncr.top/Article/details/094937.shtml)
+- 2026-06-29 16:18 - [看看赶海都能遇到啥](https://www.share.minike.top/Article/details/127978698471.shtml)
+- 2026-06-29 16:19 - [波兰创该国高温纪录](http://www.share.kurohicncr.top/Article/details/99981898.shtml)
+- 2026-06-29 16:23 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/4991408.shtml)
+- 2026-06-29 16:31 - [小娘惹](http://www.share.kurohicncr.top/Article/details/7469895567.shtml)
+- 2026-06-29 16:40 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.share.minike.top/Article/details/02091911.shtml)
+- 2026-06-29 16:15 - [网警提醒4类“高考查分陷阱”](https://www.blog.kurohicncr.top/Article/details/33947068.shtml)
+- 2026-06-29 16:27 - [领克900大型SUV值得购买吗?](https://www.blog.kurohicncr.top/Article/details/7211771856.shtml)
+- 2026-06-29 16:15 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.minike.top/Article/details/9859223.shtml)
+- 2026-06-29 16:37 - [加拿大绝杀南非晋级](http://www.share.minike.top/Article/details/8478881.shtml)
+- 2026-06-29 16:33 - [恐怖世界 第三集 埃温霍姆村](https://www.share.minike.top/Article/details/02618.shtml)

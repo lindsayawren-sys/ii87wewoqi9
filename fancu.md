@@ -1,61 +1,58 @@
-# 广州南沙加快打造数据枢纽 推动数据领域国际合作
+# 无证、劣质、高危 北京公布多起违规拼豆玩具案
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-广州南沙加快打造数据枢纽 首个数据领域国际合作专题活动推出 广州日报讯 (全媒体记者耿旭静 通讯员南宣)昨日，“数联湾区 智通全球——数据领域国际合作(广州·南沙)”专题活动在白云国际会议中心举行。广州聚焦南沙，推出首个数据领域国际合作专题活动，以政策定调、平台搭台、项目落地、场景赋能、清单对接、政策释利六大实招集中发力，瞄准数据国际合作、补齐湾区协同短板、树立数实融合标杆的重
+拼豆作为当下备受青睐的新潮益智儿童玩具，市场热度持续走高，但产品质量与安全隐患问题亦随之凸显。近日，北京市市场监督管理局执法人员通过线上线下一体化排查模式，聚焦全市主要玩具批发集散市场，开展突击执法检查，严厉整治儿童玩具市场违法违规行为，成功查处多起无3C认证拼豆儿童玩具典型案件。根据国家强制性产品认证目录(3C认证)相关规定，塑胶类儿童玩具必须依法取得3C认证，这是保障产品安
 
 ## 正文
 
-广州南沙加快打造数据枢纽 首个数据领域国际合作专题活动推出 广州日报讯 (全媒体记者耿旭静 通讯员南宣)昨日，“数联湾区 智通全球——数据领域国际合作(广州·南沙)”专题活动在白云国际会议中心举行。
+拼豆作为当下备受青睐的新潮益智儿童玩具，市场热度持续走高，但产品质量与安全隐患问题亦随之凸显。
 
-广州聚焦南沙，推出首个数据领域国际合作专题活动，以政策定调、平台搭台、项目落地、场景赋能、清单对接、政策释利六大实招集中发力，瞄准数据国际合作、补齐湾区协同短板、树立数实融合标杆的重磅行动正式拉开序幕。
+近日，北京市市场监督管理局执法人员通过线上线下一体化排查模式，聚焦全市主要玩具批发集散市场，开展突击执法检查，严厉整治儿童玩具市场违法违规行为，成功查处多起无3C认证拼豆儿童玩具典型案件。
 
-当前，数字经济已是粤港澳大湾区高质量发展的核心动力，而跨境数据互联互通与国际规则对接，正是激活湾区数字活力、联通全球发展的关键密钥。
+根据国家强制性产品认证目录(3C认证)相关规定，塑胶类儿童玩具必须依法取得3C认证，这是保障产品安全的基本前提。
 
-广州凭借国际通信枢纽、千亿数据产业体量、超2.2万家数据企业集聚的完整生态底盘，正全力争创数据领域国际合作试点示范，树立广州范式、湾区标杆。
+此次执法行动中，执法人员查处的三类违规拼豆玩具案件，暴露出市场上部分产品存在的严重安全漏洞。
 
-跨境贸易可信数据空间及联合实验室、标准化跨境数据流通平台、空间智能AI大模型数字文创中心、跨境车网协同等四大高能级数字产业项目集中签约，精准覆盖跨境基建、数据流通、AI文创、智能网联四大赛道，从底层底座到应用终端全面补齐湾区跨境数据基础设施短板，为粤港澳数据国际合作打造可复制、可推广的产业样板。
+案例一：“三无”拼豆伪装自用 劣质材料存健康风险 执法人员在某商贸中心一家儿童玩具批发零售门店检查时发现，店内货架上堆放多款无厂名厂址、无3C认证的拼豆玩具，且标注适用年龄为3岁以上。
 
-四大项目业态互补、串链成网，与国际数港、试验区平台深度联动，形成项目落地+平台承载+生态集聚叠加效应，为湾区数实融合输出南沙实践范本。
+面对检查，店主辩称相关产品为“自家小孩自用，非卖品”。
 
-活动同步发布南沙数字化应用场景、跨境人工智能、跨境贸易产业生态、环港科大创新区招商四张需求清单。
+经执法人员细致核查进销存电脑系统、经营票据及顾客订单等材料，证实所谓“自用玩具”存在完整的进货、销售记录，且现场仍有部分剩余库存，当事人最终对销售行为供认不讳。
 
-其中，南沙数字化应用场景清单重点推出自然资源数字化治理、减污降碳协同、医疗跨境试点等10大重点建设项目；全球数源中心重磅发布跨境数据合规经营、AI全要素产业2大赋能平台需求；跨境贸易产业集聚区面向全社会招募外贸、物流、金融等生态合作伙伴；环港科大创新区推出13.8万平方米产业载体招商，精准对接企业落地、园区运营、生态合作实际刚需，一边释放城市海量数字化场景资源，一边开放产业载体、合作赛道、招商空间，打破信息壁垒，让全球技术、人才、资本精准落地南沙，实现本土资源对接全球、全球要素赋能湾区。
+执法人员明确指出，来源不明的拼豆玩具未通过国家强制性3C认证，部分生产厂家为控制成本，采用低成本劣质塑胶材料制作。
 
 ## 相关推荐
 
-- 2026-06-29 16:22 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-29 16:07 - [87克大金链到老庙黄金维修少了11克](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-29 16:29 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-29 16:16 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbtup.md)
-- 2026-06-29 16:13 - [韩国队启程回国 全员羞愧低头](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eitec.md)
-- 2026-06-29 16:06 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orcsz.md)
-- 2026-06-29 16:30 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-29 16:34 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 16:26 - [博主：比亚迪赢了销量却输给资本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-29 16:15 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 16:09 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jsadr.md)
-- 2026-06-29 16:34 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ohppe.md)
-- 2026-06-29 16:17 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 16:34 - [南昌市委书记调整](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clqap.md)
-- 2026-06-29 16:33 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgyn.md)
+- 2026-06-29 16:21 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
+- 2026-06-29 16:18 - [20年前的周杰伦](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-29 16:41 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diaodi.md)
+- 2026-06-29 16:35 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-29 16:20 - [美的“卡bug”空调在欧洲卖爆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
+- 2026-06-29 16:16 - [首尔商铺禁止洪明甫入内](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 16:18 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
+- 2026-06-29 16:18 - [豆包收费了，你还会用吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
+- 2026-06-29 16:33 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/spooc.md)
+- 2026-06-29 16:17 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
+- 2026-06-29 16:39 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
+- 2026-06-29 16:40 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [87克大金链到老庙黄金维修少了11克](https://www.blog.minike.top/Article/details/432957.shtml)
-- 2026-06-29 16:08 - [急先锋](http://www.blog.minike.top/Article/details/523389075677.shtml)
-- 2026-06-29 16:30 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/03034683909.shtml)
-- 2026-06-29 16:29 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](http://www.share.kurohicncr.top/Article/details/97612144.shtml)
-- 2026-06-29 16:22 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/78859632774.shtml)
-- 2026-06-29 16:11 - [福建仙游一峡谷发生意外 5游客身亡](https://www.share.minike.top/Article/details/692464681372.shtml)
-- 2026-06-29 16:09 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/222704.shtml)
-- 2026-06-29 16:12 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/98958677028.shtml)
-- 2026-06-29 16:26 - [张雪机车杀向海外](http://www.share.kurohicncr.top/Article/details/73424321035.shtml)
-- 2026-06-29 16:27 - [A股涨指数不涨个股的日子要结束了吗](https://www.share.kurohicncr.top/Article/details/75574052814.shtml)
-- 2026-06-29 16:07 - [12所大学更正招生目录](http://www.share.kurohicncr.top/Article/details/976261.shtml)
-- 2026-06-29 16:25 - [巴西国脚说不出日本球员全场哄笑](https://www.share.minike.top/Article/details/7036109.shtml)
-- 2026-06-29 16:29 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/33854.shtml)
-- 2026-06-29 16:26 - [德云色预测世界杯16强](http://www.blog.minike.top/Article/details/335490664.shtml)
-- 2026-06-29 16:16 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/859031.shtml)
+- 2026-06-29 16:41 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.minike.top/Article/details/99356394.shtml)
+- 2026-06-29 16:26 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/443754.shtml)
+- 2026-06-29 16:14 - [巴西球员：日本队有点傲慢了](http://www.share.kurohicncr.top/Article/details/562296.shtml)
+- 2026-06-29 16:38 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/609561914.shtml)
+- 2026-06-29 16:17 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.kurohicncr.top/Article/details/807553028.shtml)
+- 2026-06-29 16:25 - [日本在南鸟岛部署岸舰导弹发射装置](http://www.blog.minike.top/Article/details/61542.shtml)
+- 2026-06-29 16:19 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.minike.top/Article/details/591100.shtml)
+- 2026-06-29 16:25 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.minike.top/Article/details/770842613709.shtml)
+- 2026-06-29 16:32 - [当地回应林区违规放羊遭豹啃食](https://www.share.minike.top/Article/details/185441208.shtml)
+- 2026-06-29 16:24 - [巴西前锋说不出日本球员全场哄笑](http://www.share.minike.top/Article/details/9164319935.shtml)
+- 2026-06-29 16:22 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/147959585627.shtml)
+- 2026-06-29 16:35 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.minike.top/Article/details/83969.shtml)
+- 2026-06-29 16:32 - [加拿大绝杀南非：淘汰赛残酷开幕](https://www.share.kurohicncr.top/Article/details/272190532671.shtml)
+- 2026-06-29 16:33 - [大六座SUV进入黄金时代](http://www.share.kurohicncr.top/Article/details/81482675.shtml)
+- 2026-06-29 16:18 - [蜘蛛侠:英雄归来](https://www.share.kurohicncr.top/Article/details/99345.shtml)

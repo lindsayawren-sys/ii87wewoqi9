@@ -1,60 +1,46 @@
-# APEC贸易部长会议达成五方面成果共识
+# 教育部：严格高考试题试卷全流程管理
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新社苏州5月23日电 (记者 尹倩芸)2026年亚太经合组织(APEC)贸易部长会议于5月22日至23日在江苏苏州举行。中国商务部部长王文涛23日在新闻发布会上表示，本次会议主要达成五方面相关成果和共识。 一是重申对亚太自贸区的长期愿景的坚定支持。王文涛称，当前全球和区域经济发展面临的不确定不稳定因素增多，在此背景下，各方再次将目光投向亚太自贸区，承诺通过亚太自贸区议程继续推
+教育部21日会同国家教育统一考试工作部际联席会议成员单位，召开2026年全国普通高校招生考试安全工作视频会议，要求严格试题试卷全流程管理，强化听力考试安全保障，防范打击高科技作弊，平稳推进相关改革落地。会议提出，要牢牢把握高考的正确导向，在命题原则、考查内容等方面，进一步强化思想教育和价值引领；牢牢把握高考的公平底线，把公平融入高考招生全过程各方面，加强资源前瞻调配，严防特权侵
 
 ## 正文
 
-中新社苏州5月23日电 (记者 尹倩芸)2026年亚太经合组织(APEC)贸易部长会议于5月22日至23日在江苏苏州举行。
+教育部21日会同国家教育统一考试工作部际联席会议成员单位，召开2026年全国普通高校招生考试安全工作视频会议，要求严格试题试卷全流程管理，强化听力考试安全保障，防范打击高科技作弊，平稳推进相关改革落地。
 
-中国商务部部长王文涛23日在新闻发布会上表示，本次会议主要达成五方面相关成果和共识。
+会议提出，要牢牢把握高考的正确导向，在命题原则、考查内容等方面，进一步强化思想教育和价值引领；牢牢把握高考的公平底线，把公平融入高考招生全过程各方面，加强资源前瞻调配，严防特权侵蚀教育公平；牢牢把握高考的选拔标准，聚焦科技发展、国家战略需求创新选拔方式，有效引导高校调整学科专业布局、丰富学科专业内涵，牵引教育科技人才一体发展。
 
-一是重申对亚太自贸区的长期愿景的坚定支持。
-
-王文涛称，当前全球和区域经济发展面临的不确定不稳定因素增多，在此背景下，各方再次将目光投向亚太自贸区，承诺通过亚太自贸区议程继续推进区域经济一体化，呼吁在能力建设、经验分享、技术合作等方面加大投入，朝着既定的目标继续前进。
-
-二是发出携手推进世贸组织改革的共同声音。
-
-本次会议，各方一致同意，世贸组织规则是促进全球贸易发展的关键。
-
-各方也承诺，充分发挥APEC的思想“孵化器”作用，携手推进世贸组织改革，完善其功能和规则，提升世贸组织在应对全球贸易挑战、回应成员诉求方面的有效性相关性。
-
-各方一致支持电子传输暂免关税，确保数字市场开放和可预期。
+会议要求，要全面排查、整改招考工作的风险点、薄弱环节，加强事前事中事后监管，持续整肃招生宣传工作，切实扭转功利化、短视化倾向；加强治安、出行、食宿、卫生防疫等方面综合服务保障，加强志愿填报指导公共服务，营造“高考季”良好舆论环境。
 
 ## 相关推荐
 
-- 2026-06-29 16:34 - [法国紧急下单3万台空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 16:13 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oylqa.md)
-- 2026-06-29 16:16 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rsmhb.md)
-- 2026-06-29 16:28 - [我国多领域成果密集上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
-- 2026-06-29 16:13 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
-- 2026-06-29 16:27 - [马来西亚同意延长马航370残骸搜寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fcbrd.md)
-- 2026-06-29 16:25 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuicui.md)
-- 2026-06-29 16:30 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruansuo.md)
-- 2026-06-29 16:33 - [世界杯十大帅哥必吃榜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
-- 2026-06-29 16:25 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mianyou.md)
-- 2026-06-29 16:18 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-29 16:29 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
-- 2026-06-29 16:10 - [速度与激情9](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/manzui.md)
-- 2026-06-29 16:24 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pivau.md)
+- 2026-06-29 16:13 - [TFING全员黑西装](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qduho.md)
+- 2026-06-29 16:25 - [李连杰否认不管前妻两女儿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-29 16:30 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuwei.md)
+- 2026-06-29 16:40 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-29 16:30 - [AG 宫斗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingrong.md)
+- 2026-06-29 16:25 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjnme.md)
+- 2026-06-29 16:40 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
+- 2026-06-29 16:24 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-29 16:15 - [东方风云榜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-29 16:25 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/799379324103.shtml)
-- 2026-06-29 16:33 - [有哪些值得一提的生活窍门？](http://www.share.kurohicncr.top/Article/details/2263354.shtml)
-- 2026-06-29 16:11 - [新一代影后杨紫](http://www.blog.kurohicncr.top/Article/details/350843586715.shtml)
-- 2026-06-29 16:09 - [巴黎两家殡仪馆爆满](https://www.share.minike.top/Article/details/57243762455.shtml)
-- 2026-06-29 16:21 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/702541889679.shtml)
-- 2026-06-29 16:31 - [习近平会见白俄罗斯总统卢卡申科](http://www.blog.kurohicncr.top/Article/details/1716877.shtml)
-- 2026-06-29 16:22 - [恋与深空发放补偿未得到玩家认可](http://www.share.kurohicncr.top/Article/details/82290441.shtml)
-- 2026-06-29 16:07 - [内马尔能上场15分钟](https://www.share.kurohicncr.top/Article/details/56615.shtml)
-- 2026-06-29 16:34 - [深圳一无人驾驶汽车压实线加塞变道](https://www.blog.kurohicncr.top/Article/details/91581534671.shtml)
-- 2026-06-29 16:24 - [黄金也扛不住了](https://www.blog.kurohicncr.top/Article/details/2213219915.shtml)
-- 2026-06-29 16:20 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/918104449.shtml)
-- 2026-06-29 16:27 - [俄罗斯或全面禁止柴油出口有何影响](http://www.blog.minike.top/Article/details/35195.shtml)
-- 2026-06-29 16:14 - [送你一朵小红花](http://www.blog.minike.top/Article/details/5404643.shtml)
-- 2026-06-29 16:25 - [博主：黄金和原油回落不等于风险消失](https://www.blog.kurohicncr.top/Article/details/58669534.shtml)
-- 2026-06-29 16:11 - [董卿母亲癌症去世](http://www.share.kurohicncr.top/Article/details/76261.shtml)
+- 2026-06-29 16:18 - [刘烨16岁儿子诺一颜值](http://www.share.kurohicncr.top/Article/details/66022882.shtml)
+- 2026-06-29 16:38 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://www.share.kurohicncr.top/Article/details/97380522.shtml)
+- 2026-06-29 16:21 - [孙怡告别浪姐千字文](http://www.blog.minike.top/Article/details/663602.shtml)
+- 2026-06-29 16:15 - [金牌调解](https://www.share.minike.top/Article/details/65540430562.shtml)
+- 2026-06-29 16:36 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/8220949.shtml)
+- 2026-06-29 16:34 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/6652879.shtml)
+- 2026-06-29 16:18 - [我用3千多根木棍做了张分压点阵床](http://www.share.minike.top/Article/details/50795157315.shtml)
+- 2026-06-29 16:28 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/30984766349.shtml)
+- 2026-06-29 16:16 - [吴建豪宣布再婚](http://www.share.kurohicncr.top/Article/details/4935717.shtml)
+- 2026-06-29 16:35 - [小S在香港被偶遇](http://www.share.minike.top/Article/details/719357338635.shtml)
+- 2026-06-29 16:26 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/2691606.shtml)
+- 2026-06-29 16:25 - [105年初心滚烫](https://www.share.kurohicncr.top/Article/details/68577.shtml)
+- 2026-06-29 16:26 - [教育部发布高考志愿填报预警](http://www.blog.kurohicncr.top/Article/details/977986485.shtml)
+- 2026-06-29 16:35 - [韩国媒体给主教练洪明甫打马赛克](http://www.blog.kurohicncr.top/Article/details/852650.shtml)
+- 2026-06-29 16:14 - [女儿称是生父强奸所生拒付赡养费](http://www.share.minike.top/Article/details/5814548.shtml)

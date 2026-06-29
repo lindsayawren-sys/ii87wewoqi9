@@ -1,55 +1,61 @@
-# 新疆兵团亮相第二十二届中国（深圳）国际文化产业博览交易会
+# 文件显示通用汽车为新产品主管提供4000万美元薪酬方案
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新网乌鲁木齐5月24日电 (史玉江)记者23日从新疆生产建设兵团(下称“兵团”)文化体育广电和旅游局获悉，兵团308种展品亮相于5月21日至25日举行的第二十二届中国(深圳)国际文化产业博览交易会，全方位展示兵团文化旅游产业高质量发展的新形象、新成果。 据悉，今年是兵团连续10年独立设展，以“兵团红+素雅白”为主色调，200平方米开放式空间，分设宣传展示、特色产品展销及旅行计
+周一公布的一份监管文件显示，通用汽车为去年聘请的新产品主管斯特林·安德森（Sterling Anderson）提供的薪酬总额高达4000万美元。 通用汽车去年从自动驾驶卡车公司Aurora挖来了安德森，他是Aurora的联合创始人兼首席产品官。这位前特斯拉高管已被委以重任，负责通用汽车的诸多业务，包括新型电动和汽油动力汽车的研发以及软件开发。 为了将他招入通用汽车，这家汽车制造
 
 ## 正文
 
-中新网乌鲁木齐5月24日电 (史玉江)记者23日从新疆生产建设兵团(下称“兵团”)文化体育广电和旅游局获悉，兵团308种展品亮相于5月21日至25日举行的第二十二届中国(深圳)国际文化产业博览交易会，全方位展示兵团文化旅游产业高质量发展的新形象、新成果。
+周一公布的一份监管文件显示，通用汽车为去年聘请的新产品主管斯特林·安德森（Sterling Anderson）提供的薪酬总额高达4000万美元。
 
-据悉，今年是兵团连续10年独立设展，以“兵团红+素雅白”为主色调，200平方米开放式空间，分设宣传展示、特色产品展销及旅行计划体验三区，构筑“实物+虚拟、特色+精品、展示+展销”的多元立体场景。
+通用汽车去年从自动驾驶卡车公司Aurora挖来了安德森，他是Aurora的联合创始人兼首席产品官。
 
-在兵团展厅宣传展示区，主入口高清LED弧形大屏循环播放兵团形象宣传片，非遗互动区让观众近距离感受非遗魅力。
+这位前特斯拉高管已被委以重任，负责通用汽车的诸多业务，包括新型电动和汽油动力汽车的研发以及软件开发。
 
-展区中心的“军垦第一犁”雕塑，是兵团精神的生动象征。
+为了将他招入通用汽车，这家汽车制造商制定了一项新的薪酬结构，并“认为这是必要且合适的，以便将他从他之前的公司招入通用汽车，他在之前的公司担任有影响力的领导角色并拥有大量股权”。
 
-环绕雕塑的“人”字形展台，一侧陈列文创精品，一侧展销特色好物，实现“线下沉浸式展示+线上即时性售卖”双线联动，让兵团好物走向全国。
+通用汽车的代理声明显示，安德森去年获得了 1600 万美元的薪酬，如果他继续留在公司并达到某些绩效目标，他有可能在今年和 2027 年获得总计 2400 万美元的奖励。
 
-(完)
+业内人士认为安德森是通用汽车CEO玛丽·巴拉的潜在继任者，巴拉自2014年初以来一直担任该职位。
+
+通用汽车发言人表示，“董事会在日常业务中会对管理层继任计划进行审查。
+
+” 巴拉2025年的薪酬方案总额可能高达2990万美元，其中包括未来股票奖励和奖金。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-29 16:32 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
-- 2026-06-29 16:20 - [上海一小区水池内出现一条鳄鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-29 16:15 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-29 16:17 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
-- 2026-06-29 16:20 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
-- 2026-06-29 16:18 - [日本主教练回应迎战巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-29 16:06 - [河南考699分女生已接到清华大学电话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-29 16:15 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giogi.md)
-- 2026-06-29 16:11 - [第一批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 16:12 - [和周杰伦在演唱会合唱了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
-- 2026-06-29 16:35 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-29 16:22 - [中央气象台发布强对流天气蓝色预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-29 16:23 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-29 16:33 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
+- 2026-06-29 16:29 - [韩国国脚每人获35.5万奖金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 16:33 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
+- 2026-06-29 16:40 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 16:28 - [天道](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 16:29 - [辽宁居民楼爆炸致3人失联8人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
+- 2026-06-29 16:21 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
+- 2026-06-29 16:15 - [周生如故](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
+- 2026-06-29 16:13 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-29 16:26 - [刘扬任湖南省副省长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jkykb.md)
+- 2026-06-29 16:38 - [iPhone18系列预计将大幅涨价](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 16:22 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
+- 2026-06-29 16:28 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 16:19 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/26999.shtml)
-- 2026-06-29 16:08 - [女生雨天开车发现雨刮条被掰走](http://www.share.minike.top/Article/details/25919965.shtml)
-- 2026-06-29 16:07 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.kurohicncr.top/Article/details/775799274338.shtml)
-- 2026-06-29 16:08 - [黄金也扛不住了](https://www.share.kurohicncr.top/Article/details/556485249508.shtml)
-- 2026-06-29 16:20 - [未成年少女长期吸毒导致卧床不起](http://www.blog.kurohicncr.top/Article/details/549713.shtml)
-- 2026-06-29 16:20 - [为何说今日日本似战前日本](http://www.blog.minike.top/Article/details/15094699996.shtml)
-- 2026-06-29 16:10 - [普京说乌方打击无法迫使俄被动谈判](http://www.blog.minike.top/Article/details/3671644.shtml)
-- 2026-06-29 16:17 - [如何“亲菌子”又“远小人儿”](https://www.blog.minike.top/Article/details/7658319437.shtml)
-- 2026-06-29 16:06 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/458320.shtml)
-- 2026-06-29 16:21 - [杨紫飞奔拥抱胡歌](http://www.blog.minike.top/Article/details/61510131.shtml)
-- 2026-06-29 16:10 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/705239394.shtml)
-- 2026-06-29 16:09 - [发反科学内容为何会有200万粉丝](https://www.blog.minike.top/Article/details/190136949913.shtml)
-- 2026-06-29 16:26 - [《虎吹最难绷の一集》](http://www.share.minike.top/Article/details/46213784.shtml)
-- 2026-06-29 16:20 - [委内瑞拉2400亿美元债务怎么还](http://www.blog.kurohicncr.top/Article/details/566192417681.shtml)
-- 2026-06-29 16:34 - [一生一世](http://www.blog.kurohicncr.top/Article/details/6456355.shtml)
+- 2026-06-29 16:20 - [葛军谈AI时代理科生出路](https://www.share.kurohicncr.top/Article/details/96438.shtml)
+- 2026-06-29 16:26 - [辽宁居民楼爆炸致3人失联8人轻微伤](http://www.blog.minike.top/Article/details/05828993458.shtml)
+- 2026-06-29 16:12 - [全国第三艘万车级汽车运输船交付](http://www.share.minike.top/Article/details/019788152.shtml)
+- 2026-06-29 16:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/945425748.shtml)
+- 2026-06-29 16:32 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/219632.shtml)
+- 2026-06-29 16:27 - [葛军谈AI时代理科生出路](http://www.blog.minike.top/Article/details/2302976704.shtml)
+- 2026-06-29 16:27 - [A股涨指数不涨个股的日子要结束了吗](http://www.share.kurohicncr.top/Article/details/90241940452.shtml)
+- 2026-06-29 16:30 - [12所大学更正招生目录](http://www.blog.minike.top/Article/details/349871848650.shtml)
+- 2026-06-29 16:21 - [差点没看懂白鹿丞磊这段意识流](https://www.blog.minike.top/Article/details/8550145.shtml)
+- 2026-06-29 16:25 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/4556003.shtml)
+- 2026-06-29 16:15 - [妹妹的正确用法！](http://www.share.kurohicncr.top/Article/details/62110.shtml)
+- 2026-06-29 16:12 - [每代父母都困在自己的时代里](https://www.blog.kurohicncr.top/Article/details/971586033.shtml)
+- 2026-06-29 16:25 - [中央气象台发布强对流天气蓝色预警](https://www.blog.minike.top/Article/details/1648484.shtml)
+- 2026-06-29 16:32 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/263614.shtml)
+- 2026-06-29 16:34 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/5644086.shtml)

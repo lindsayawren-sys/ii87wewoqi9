@@ -1,57 +1,56 @@
-# 2025年全国1%人口抽样调查主要数据公报
+# 四大证券报头版头条内容精华摘要_2026年4月22日_财经新闻
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-2025年全国1%人口抽样调查主要数据公报\[1\] 国家统计局 2026年5月22日 全国1%人口抽样调查是一项重大国情国力调查。根据《全国人口普查条例》规定和《国务院办公厅关于开展2025年全国1%人口抽样调查的通知》(国办函〔2024〕71号)要求，我国进行了2025年全国1%人口抽样调查，调查的标准时点为2025年11月1日零时。按照党中央和国务院部署，在各地区、各部门、各
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！4月22日（星期三），今日报刊头条主要内容精华如下： 上海证券报 锚定100万亿元目标 国务院发文推进服务业扩能提质 国务院日前印发的《关于推进服务业扩能提质的意见》（下称《意见》）提出，到2030年，服务业总规模迈上100万亿元台阶，质量更高、结构更优、品质更佳、活力更足的发展格局基
 
 ## 正文
 
-2025年全国1%人口抽样调查主要数据公报\[1\] 国家统计局 2026年5月22日 全国1%人口抽样调查是一项重大国情国力调查。
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-根据《全国人口普查条例》规定和《国务院办公厅关于开展2025年全国1%人口抽样调查的通知》(国办函〔2024〕71号)要求，我国进行了2025年全国1%人口抽样调查，调查的标准时点为2025年11月1日零时。
+4月22日（星期三），今日报刊头条主要内容精华如下： 上海证券报 锚定100万亿元目标 国务院发文推进服务业扩能提质 国务院日前印发的《关于推进服务业扩能提质的意见》（下称《意见》）提出，到2030年，服务业总规模迈上100万亿元台阶，质量更高、结构更优、品质更佳、活力更足的发展格局基本形成，培育更多“中国服务”品牌。
 
-按照党中央和国务院部署，在各地区、各部门、各级调查机构的共同努力下，经过广大调查人员的艰辛努力以及调查对象的积极配合，2025年全国1%人口抽样调查已完成现场登记和主要数据汇总测算等工作。
+工业和信息化部多措并举提升工业经济运行质效 推动未来产业从“实验室”走向“大市场” 研究发布重点行业人工智能赋能应用指南，加快出台《关于推动工业互联网高质量发展的实施意见》，针对未来产业各细分赛道出台专项支持政策……工业和信息化部相关负责人4月21日在国新办新闻发布会上介绍了提升工业经济运行质效的具体政策。
 
-现将根据这次调查推算的人口主要数据公布如下：一、全国人口\[2\]\[3\] 全国人口为140545万人，其中男性人口为71722万人，占51.03%；女性人口为68823万人，占48.97%，总人口性别比(以女性为100，男性对女性的比例)为104.21。
+“上海价格”国际化迈出关键一步 上期所镍期货及期权正式引入境外交易者 20号胶期权、国际铜期权同日挂牌交易 4月22日（自4月21日晚连续交易时段起），上海期货交易所镍期货及期权正式引入境外交易者参与交易，同步向合格境外投资者（QFI）开放。
 
-二、家庭户人口 全国共有家庭户\[4\]51465万户，家庭户人口为129685万人。
+同时，上期所子公司上海国际能源交易中心上市20号胶和国际铜期权，并引入境外交易者参与交易，同步向合格境外投资者开放。
 
-平均每个家庭户人口为2.52人。
+国际能源署：光伏发电“领跑”去年全球能源供应增长 国际能源署20日发布的报告显示，去年全球太阳能光伏发电量新增600太瓦时，在全球能源供应增量中占比超过25%，这是有记录以来现代可再生能源首次引领全球能源供应增长。
 
-三、年龄构成 全国人口中，0—14岁人口为21436万人，占15.25%；15—59岁人口为86987万人，占61.89%；60岁及以上人口为32122万人，占22.86%，其中65岁及以上人口为22309万人，占15.87%。
+证券时报 服务业扩能提质“路线图”出炉：2030年规模迈上100万亿元台阶 在上海，“蝴蝶食坊”社区食堂中午11点刚过就排起长队，周边老人消费十几元就能吃上一顿热乎饭；在杭州，不少婴幼儿成长驿站，让宝妈们解放精力轻松重返职场；在苏州，企业足不出户就能搞定计量、标准、检测、认证“一站式”服务，检测报告在多个国家和地区通用……这些鲜活的场景，是我国服务业从“有”到“优”的真实缩影。
 
-\[5\] 四、各种受教育程度人口 全国人口中，具有大学(指大专及以上)文化程度的人口为27233万人；具有高中(含中专)文化程度的人口为24272万人；具有初中文化程度的人口为45283万人；具有小学文化程度的人口为33122万人。
+一季度我国规上工业增加值增长6.1% 算电协同与6G加速推进 4月21日，国务院新闻办公室举行新闻发布会，介绍2026年一季度工业和信息化发展情况。
 
 ## 相关推荐
 
-- 2026-06-29 16:20 - [哈兰德这该死的胜负欲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
-- 2026-06-29 16:10 - [博主：美航母沦为毒品集散窝点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-29 16:09 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pavvb.md)
-- 2026-06-29 16:20 - [TI2026参赛战队出炉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
-- 2026-06-29 16:24 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-29 16:32 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-29 16:24 - [海口塔吊事故处罚结果公布](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-29 16:17 - [四川宜宾5.5级地震已致13人轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 16:29 - [内马尔能上场15分钟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-29 16:20 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-29 16:12 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-29 16:37 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhongzen.md)
+- 2026-06-29 16:38 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-29 16:30 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-29 16:25 - [存储三巨头被告了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangxun.md)
+- 2026-06-29 16:25 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-29 16:32 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
+- 2026-06-29 16:18 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/efeqf.md)
+- 2026-06-29 16:41 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-29 16:13 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmuam.md)
+- 2026-06-29 16:37 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/9318657323.shtml)
-- 2026-06-29 16:16 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/41843810300.shtml)
-- 2026-06-29 16:17 - [世界杯看到肖战了](https://www.blog.kurohicncr.top/Article/details/7367625449.shtml)
-- 2026-06-29 16:18 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/2400880.shtml)
-- 2026-06-29 16:30 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.minike.top/Article/details/0672904253.shtml)
-- 2026-06-29 16:13 - [第一炉香](http://www.blog.minike.top/Article/details/02272117344.shtml)
-- 2026-06-29 16:06 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/6371724.shtml)
-- 2026-06-29 16:33 - [职业选手禁止参赛！](https://www.share.minike.top/Article/details/007148.shtml)
-- 2026-06-29 16:30 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/673031103.shtml)
-- 2026-06-29 16:20 - [四川宜宾地震已致13人受轻微伤](https://www.blog.kurohicncr.top/Article/details/57482.shtml)
-- 2026-06-29 16:15 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/436733289.shtml)
-- 2026-06-29 16:23 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.blog.minike.top/Article/details/27867719.shtml)
-- 2026-06-29 16:26 - [致敬！中国首批缉毒警已全体退休](https://www.blog.kurohicncr.top/Article/details/44498192.shtml)
-- 2026-06-29 16:17 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/74413175521.shtml)
-- 2026-06-29 16:07 - [福建仙游一峡谷发生意外5人身亡](https://www.blog.minike.top/Article/details/2068181696.shtml)
+- 2026-06-29 16:35 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/726586496.shtml)
+- 2026-06-29 16:26 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/182588851945.shtml)
+- 2026-06-29 16:41 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/79456697953.shtml)
+- 2026-06-29 16:23 - [一人一句祝党生日快乐](http://www.share.kurohicncr.top/Article/details/4852218.shtml)
+- 2026-06-29 16:33 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/897784672.shtml)
+- 2026-06-29 16:16 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/43957.shtml)
+- 2026-06-29 16:26 - [差点没看懂白鹿丞磊这段意识流](https://www.share.minike.top/Article/details/939334835925.shtml)
+- 2026-06-29 16:17 - [AG 宫斗](https://www.blog.minike.top/Article/details/9618404.shtml)
+- 2026-06-29 16:35 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/552413.shtml)
+- 2026-06-29 16:30 - [教育部发布预警 事关高招录取](http://www.share.kurohicncr.top/Article/details/713590716818.shtml)
+- 2026-06-29 16:34 - [欧洲人驾车200公里抢购中国空调](https://www.blog.kurohicncr.top/Article/details/762177657522.shtml)
+- 2026-06-29 16:40 - [中国战机大片上新](http://www.blog.minike.top/Article/details/839359736.shtml)
+- 2026-06-29 16:20 - [斗破苍穹](http://www.blog.minike.top/Article/details/53322128.shtml)
+- 2026-06-29 16:34 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.minike.top/Article/details/32770751378.shtml)
+- 2026-06-29 16:30 - [哈兰德这该死的胜负欲](https://www.blog.minike.top/Article/details/547349.shtml)

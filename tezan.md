@@ -1,57 +1,56 @@
-# 英媒：中国工厂正在成为全球电动汽车制造基地
+# 广东一季度GDP为34950.34亿元，同比增长4.6%
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-全球媒体聚焦︱英媒：中国工厂正在成为全球电动汽车制造基地 5月22日，英国《金融时报》刊文称，在成本高昂的电动车转型浪潮中苦苦挣扎求存的国际汽车制造商，正纷纷将技术先进、成本更低的中国工厂作为自身全球业务的生产基地。 文章介绍说，欧洲一家知名汽车制造集团正与中国的一家车企进行合作，计划为中国、中东和东南亚的消费者打造一款全新的电动轻型多功能汽车。文章认为，这次合作是重塑全球汽车
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！蓝天下的广州城市CBD珠江新城。视觉中国 资料图 4月21日，“广东统计”微信公众号发布2026年一季度广东经济运行数据。 根据地区生产总值统一核算结果，一季度，广东实现地区生产总值34950.34亿元，按不变价格计算，同比增长4.6%。其中，第一产业增加值941.66亿元，增长3.9%；第二产业增加值12
 
 ## 正文
 
-全球媒体聚焦︱英媒：中国工厂正在成为全球电动汽车制造基地 5月22日，英国《金融时报》刊文称，在成本高昂的电动车转型浪潮中苦苦挣扎求存的国际汽车制造商，正纷纷将技术先进、成本更低的中国工厂作为自身全球业务的生产基地。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-文章介绍说，欧洲一家知名汽车制造集团正与中国的一家车企进行合作，计划为中国、中东和东南亚的消费者打造一款全新的电动轻型多功能汽车。
+蓝天下的广州城市CBD珠江新城。
 
-文章认为，这次合作是重塑全球汽车行业趋势的最新例证。
+视觉中国 资料图 4月21日，“广东统计”微信公众号发布2026年一季度广东经济运行数据。
 
-汇丰银行资深中国汽车分析师表示，这样的合作趋势反映出“全球生产基地的重新调整”。
+根据地区生产总值统一核算结果，一季度，广东实现地区生产总值34950.34亿元，按不变价格计算，同比增长4.6%。
 
-她补充说：“中国正扮演着越来越重要的角色，不仅仅是一个具有成本优势的生产中心，更重要的是具有技术领先地位和庞大的供应链优势。
+其中，第一产业增加值941.66亿元，增长3.9%；第二产业增加值12410.95亿元，增长4.7%；第三产业增加值21597.72亿元，增长4.5%。
 
-” 文章以欧洲市场为例，根据美国咨询公司荣鼎集团的介绍，如果将与中国合资的企业也算在内，外国车企已经占到中国对欧洲汽车出口的五分之二左右。
+一季度，全省规模以上工业增加值同比增长5.4%，增速比上年全年提高2.4个百分点。
 
-文章说，包括欧洲最大的汽车制造商大众汽车在内，众多的汽车制造商都在积极应对，计划向欧洲大陆出口在中国制造的汽车。
+分门类看，采矿业增加值（18.8%）实现两位数增长，增速比上年全年提高15.8个百分点；制造业，电力、热力、燃气及水生产和供应业分别增长5.0%、5.2%，增速提高1.8个、4.9个百分点。
 
-西方汽车行业的高管们认为，利用全球最大的汽车市场作为出口基地，能降低成本和采用更先进的技术，使自身的业务受益，并帮助传统汽车制造商提高竞争力并赢回消费者。
+分行业看，计算机、通信和其他电子设备制造业，电气机械和器材制造业，电力、热力生产和供应业，专用设备制造业分别增长13.4%、4.9%、9.4%、9.1%，增速比上年全年提高6.3个、0.9个、9.3个、1.5个百分点；化学原料和化学制品制造业增长5.9%，石油、煤炭及其他燃料加工业增长7.6%。
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
-- 2026-06-29 16:09 - [徐昕暂不参加NBA夏季联赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
-- 2026-06-29 16:25 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
-- 2026-06-29 16:15 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-29 16:20 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
-- 2026-06-29 16:14 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/idkrf.md)
-- 2026-06-29 16:13 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
-- 2026-06-29 16:13 - [女生雨天开车发现雨刮条被掰走](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lyqms.md)
-- 2026-06-29 16:13 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 16:17 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chongping.md)
-- 2026-06-29 16:20 - [李小璐回应无戏可拍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 16:25 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/usxpb.md)
+- 2026-06-29 16:26 - [布里奇斯被交易至太阳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 16:23 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
+- 2026-06-29 16:31 - [42岁郭碧婷纯素颜状态](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
+- 2026-06-29 16:12 - [美议员呼吁断供以色列政府](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-29 16:36 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 16:29 - [三轮车过马路 车上木材砸中路边男子](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-29 16:32 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-29 16:38 - [T1零封KC MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
+- 2026-06-29 16:25 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:19 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.share.minike.top/Article/details/38717446.shtml)
-- 2026-06-29 16:17 - [全国第三艘万车级汽车运输船交付](https://www.share.minike.top/Article/details/1422483737.shtml)
-- 2026-06-29 16:30 - [女心理师](http://www.blog.kurohicncr.top/Article/details/56629569.shtml)
-- 2026-06-29 16:17 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.kurohicncr.top/Article/details/489579142.shtml)
-- 2026-06-29 16:19 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/16070245896.shtml)
-- 2026-06-29 16:24 - [父亲患病母亲残疾女儿接到清华电话](http://www.blog.minike.top/Article/details/37485677.shtml)
-- 2026-06-29 16:19 - [47天女婴被月嫂摔伤致颅内出血](http://www.blog.kurohicncr.top/Article/details/131939094855.shtml)
-- 2026-06-29 16:16 - [papi酱父亲再婚妻子仅比她大几岁](http://www.share.kurohicncr.top/Article/details/08398873.shtml)
-- 2026-06-29 16:32 - [自然资源部派专家赴宜宾地震影响区](https://www.share.minike.top/Article/details/8410662.shtml)
-- 2026-06-29 16:31 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/9654365387.shtml)
-- 2026-06-29 16:24 - [欧洲多国激辩“装不装空调”](https://www.share.kurohicncr.top/Article/details/77498412.shtml)
-- 2026-06-29 16:16 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/21535326420.shtml)
-- 2026-06-29 16:35 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.share.kurohicncr.top/Article/details/647443543993.shtml)
-- 2026-06-29 16:35 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/35954013201.shtml)
-- 2026-06-29 16:08 - [机器人学校开学了](https://www.share.minike.top/Article/details/41311739.shtml)
+- 2026-06-29 16:30 - [李小璐回应无戏可拍](https://www.blog.kurohicncr.top/Article/details/42009673.shtml)
+- 2026-06-29 16:30 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.blog.kurohicncr.top/Article/details/57347817969.shtml)
+- 2026-06-29 16:33 - [大 周 礼 时 代(4)](http://www.share.kurohicncr.top/Article/details/55069.shtml)
+- 2026-06-29 16:13 - [河南考699分女生已接到清华大学电话](http://www.blog.kurohicncr.top/Article/details/3636327740.shtml)
+- 2026-06-29 16:23 - [博主：美航母沦为毒品集散窝点](https://www.blog.minike.top/Article/details/332951503.shtml)
+- 2026-06-29 16:20 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.share.kurohicncr.top/Article/details/965666349107.shtml)
+- 2026-06-29 16:31 - [撒旦的腋窝是什么比喻](http://www.blog.minike.top/Article/details/498243315747.shtml)
+- 2026-06-29 16:18 - [男子路过修车店瞬间被喷得一脸黑](http://www.share.kurohicncr.top/Article/details/313087.shtml)
+- 2026-06-29 16:17 - [逆天祖国人](https://www.share.kurohicncr.top/Article/details/025327701618.shtml)
+- 2026-06-29 16:17 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/9366506.shtml)
+- 2026-06-29 16:30 - [深圳一无人驾驶汽车压实线加塞变道](http://www.blog.minike.top/Article/details/597665090.shtml)
+- 2026-06-29 16:35 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/4673193.shtml)
+- 2026-06-29 16:38 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/6603257.shtml)
+- 2026-06-29 16:39 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/155922.shtml)
+- 2026-06-29 16:12 - [刘烨16岁儿子诺一颜值](https://www.share.minike.top/Article/details/72833701445.shtml)

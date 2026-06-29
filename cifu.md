@@ -1,59 +1,57 @@
-# ST三木：9000万元债务逾期，主要账户冻结被叠加实施其他风险警示
+# Moneta Markets外汇:贵金属短期承压仍具潜力
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-5月22日晚间，老牌上市国企ST三木（000632.SZ）发布风险警示公告，因公司主要银行账号被冻结，触及深交所上市规则相关条款，公司股票自2026年5月25日起叠加实施其他风险警示。 本次风险叠加后，公司股票简称维持“ST三木”不变，证券代码、5%涨跌幅限制均无调整，股票无需停牌。 据公告披露，此次风险警示触发依据为《深圳证券交易所股票上市规则》相关规定，公司核心银行账户被司
+4月21日，周一美国午盘交易中，黄金和白银价格整体承压，但在日内低点附近出现回升。Moneta Markets外汇认为，尽管短期市场受供应链和经济数据预期影响波动加大，黄金和白银的中长期价值仍不可忽视。6月黄金期货下跌62美元，报每盎司4817.60美元，5月白银期货下跌2.007美元，报每盎司79.835美元。流动性改善及机构资金的潜在流入可能在一定程度上缓解价格下行压力，为
 
 ## 正文
 
-5月22日晚间，老牌上市国企ST三木（000632.SZ）发布风险警示公告，因公司主要银行账号被冻结，触及深交所上市规则相关条款，公司股票自2026年5月25日起叠加实施其他风险警示。
+4月21日，周一美国午盘交易中，黄金和白银价格整体承压，但在日内低点附近出现回升。
 
-本次风险叠加后，公司股票简称维持“ST三木”不变，证券代码、5%涨跌幅限制均无调整，股票无需停牌。
+Moneta Markets外汇认为，尽管短期市场受供应链和经济数据预期影响波动加大，黄金和白银的中长期价值仍不可忽视。
 
-据公告披露，此次风险警示触发依据为《深圳证券交易所股票上市规则》相关规定，公司核心银行账户被司法冻结，直接影响企业资金流转与正常经营结算，符合其他风险警示实施条件。
+6月黄金期货下跌62美元，报每盎司4817.60美元，5月白银期货下跌2.007美元，报每盎司79.835美元。
 
-溯源风险起因，本次银行账户冻结系公司多笔债务逾期、合同纠纷引发司法保全所致。
+流动性改善及机构资金的潜在流入可能在一定程度上缓解价格下行压力，为市场提供支撑。
 
-公告称，ST三木与东山开投集团旗下两家企业存在多笔购销合同违约，未付款项合计4908.35万元，债权方已发起诉讼并申请财产保全，直接导致公司主要银行账户被冻结。
+在宏观经济方面，Moneta Markets外汇表示，贵金属价格受到实际收益率、美元指数和原油价格波动的综合影响。
 
-此外，公司与福建云霄圣城经济发展有限责任公司的3笔购销合同也出现履约违约，涉及合同总金额 4106.59万元。
+随着WTI原油价格维持在每桶约89美元，美元指数略有走强，投资者对贵金属的需求在短期内呈现分化。
 
-综上，ST三木本次逾期债务总额达9014.94万元，占公司2025年末经审计净资产比例74.72%。
+IMF下调全球经济增长预期至3.1%，同时上调通胀预期，这种滞胀环境仍为黄金提供了避险逻辑，但短期内经济指标的波动增加了价格不确定性。
 
-公告披露，公司共32个银行账号被冻结。
+投资者需关注美国零售销售数据及欧元区PMI的变化，以判断贵金属的市场情绪。
 
 ## 相关推荐
 
-- 2026-06-29 16:25 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuipin.md)
-- 2026-06-29 16:20 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-29 16:28 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-29 16:30 - [河南四位大妈景区跳舞爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-29 16:27 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
-- 2026-06-29 16:22 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
-- 2026-06-29 16:34 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fdoly.md)
-- 2026-06-29 16:13 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqmkt.md)
-- 2026-06-29 16:19 - [哈兰德这该死的胜负欲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
-- 2026-06-29 16:23 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-29 16:14 - [小孩曾卓君夺第八个EVO冠军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/penyd.md)
-- 2026-06-29 16:26 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-29 16:08 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-29 16:32 - [男子造谣县城满街都是小混混被行拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-29 16:30 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/songshai.md)
+- 2026-06-29 16:38 - [工作靠AI算不算职场作弊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qnrbv.md)
+- 2026-06-29 16:28 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-29 16:36 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-29 16:15 - [沙丘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
+- 2026-06-29 16:32 - [T1零封KC MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
+- 2026-06-29 16:24 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 16:24 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
+- 2026-06-29 16:14 - [造谣县城满街都是小混混 男子被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-29 16:33 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [杨紫下沉市场口碑](http://www.blog.kurohicncr.top/Article/details/17071284662.shtml)
-- 2026-06-29 16:18 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/08980488.shtml)
-- 2026-06-29 16:33 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.minike.top/Article/details/749050.shtml)
-- 2026-06-29 16:16 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.share.minike.top/Article/details/7391679307.shtml)
-- 2026-06-29 16:08 - [普京介绍前线战事](http://www.share.minike.top/Article/details/9179806101.shtml)
-- 2026-06-29 16:06 - [如何看待 2026 年 6 月 26 日《给阿嬷的情书》马来西亚首周票房超 1338 万人民币夺冠？](http://www.blog.kurohicncr.top/Article/details/021024978297.shtml)
-- 2026-06-29 16:15 - [孙怡告别浪姐千字文](http://www.blog.kurohicncr.top/Article/details/217913751709.shtml)
-- 2026-06-29 16:10 - [A股涨指数不涨个股的日子要结束了吗](http://www.blog.kurohicncr.top/Article/details/971301.shtml)
-- 2026-06-29 16:06 - [河南四位大妈景区跳舞爆火](http://www.share.minike.top/Article/details/218386343.shtml)
-- 2026-06-29 16:17 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/1585191181.shtml)
-- 2026-06-29 16:12 - [南非老帅布罗斯的梦没能做完](https://www.share.kurohicncr.top/Article/details/151811372224.shtml)
-- 2026-06-29 16:26 - [恋与深空道歉就够了吗](http://www.share.minike.top/Article/details/84614.shtml)
-- 2026-06-29 16:26 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/890558517.shtml)
-- 2026-06-29 16:20 - [法拉利被4个孩子当滑梯玩](https://www.blog.minike.top/Article/details/462205.shtml)
-- 2026-06-29 16:16 - [TI2026参赛战队出炉](https://www.share.kurohicncr.top/Article/details/231328.shtml)
+- 2026-06-29 16:28 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/66108940.shtml)
+- 2026-06-29 16:18 - [莆田仙游一峡谷发生事故5人身亡](http://www.share.minike.top/Article/details/520218979.shtml)
+- 2026-06-29 16:12 - [千亿存储巨头悄悄在深圳蛰伏](http://www.share.kurohicncr.top/Article/details/71055.shtml)
+- 2026-06-29 16:38 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.minike.top/Article/details/088341.shtml)
+- 2026-06-29 16:23 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.blog.kurohicncr.top/Article/details/8330018.shtml)
+- 2026-06-29 16:20 - [存储三巨头被告了](http://www.share.kurohicncr.top/Article/details/2826167715.shtml)
+- 2026-06-29 16:32 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/2905944.shtml)
+- 2026-06-29 16:23 - [韩剧编剧又升级了](http://www.share.kurohicncr.top/Article/details/952338660124.shtml)
+- 2026-06-29 16:14 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/88308645585.shtml)
+- 2026-06-29 16:38 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/304900428594.shtml)
+- 2026-06-29 16:14 - [FIFA回应佛得角队长被指控强奸](http://www.blog.minike.top/Article/details/0728115008.shtml)
+- 2026-06-29 16:39 - [47天女婴被月嫂摔伤致颅内出血](https://www.share.kurohicncr.top/Article/details/2205483.shtml)
+- 2026-06-29 16:28 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.kurohicncr.top/Article/details/9653106004.shtml)
+- 2026-06-29 16:31 - [美国大满贯首日国乒主力均取胜](https://www.share.kurohicncr.top/Article/details/30644477645.shtml)
+- 2026-06-29 16:39 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/46317466.shtml)

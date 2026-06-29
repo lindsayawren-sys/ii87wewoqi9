@@ -1,61 +1,61 @@
-# 美联储理事沃勒支持移除“宽松倾向”措辞 称降息与加息概率相当
+# AI艺人库商业逻辑不变？观众能否接受AI演员？爱奇艺高管最新回应
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-随着伊朗战争引发的能源冲击推高价格，美联储理事沃勒表示，他支持明确表明美联储下一步加息与降息可能性相当。 沃勒表示，他目前的立场是耐心维持利率不变，直到战争的影响更加明朗。但他周五警告称，如果通胀没有很快开始放缓，他不排除未来加息的可能性。 “通胀并未朝着正确方向发展，”他在法兰克福的会议上发表题为“政策风险已经改变”的演讲时表示。“我支持在我们的政策声明中移除‘宽松倾向’措辞
+4月20日至21日，2026年爱奇艺世界·大会在北京举行。大会期间，爱奇艺高级副总裁刘文峰与爱奇艺副总裁、首席AI科学家谢丹铭与新浪科技等对话。 在会上，爱奇艺宣布，已有超100位深度合作艺人同意入驻旗下AI智能体平台纳豆Pro艺人库。但其后，由于张若昀、于和伟、王楚然、李一桐等多位并未入驻的艺人接连发文“未签署AI授权”，掀起巨大舆论争议。 在对话中，刘文峰也谈及AI艺人库的
 
 ## 正文
 
-随着伊朗战争引发的能源冲击推高价格，美联储理事沃勒表示，他支持明确表明美联储下一步加息与降息可能性相当。
+4月20日至21日，2026年爱奇艺世界·大会在北京举行。
 
-沃勒表示，他目前的立场是耐心维持利率不变，直到战争的影响更加明朗。
+大会期间，爱奇艺高级副总裁刘文峰与爱奇艺副总裁、首席AI科学家谢丹铭与新浪科技等对话。
 
-但他周五警告称，如果通胀没有很快开始放缓，他不排除未来加息的可能性。
+在会上，爱奇艺宣布，已有超100位深度合作艺人同意入驻旗下AI智能体平台纳豆Pro艺人库。
 
-“通胀并未朝着正确方向发展，”他在法兰克福的会议上发表题为“政策风险已经改变”的演讲时表示。
+但其后，由于张若昀、于和伟、王楚然、李一桐等多位并未入驻的艺人接连发文“未签署AI授权”，掀起巨大舆论争议。
 
-“我支持在我们的政策声明中移除‘宽松倾向’措辞，以明确表明未来降息的可能性并不高于加息。
+在对话中，刘文峰也谈及AI艺人库的问题。
 
-” 沃勒表示，油价冲击可能很快消退，但他补充称：“如果通胀不能尽快缓解，我将不再排除往后会加息的可能性。
+他强调，演员的商业逻辑并未改变，仍由经纪公司对接项目。
 
-” 联邦公开市场委员会在4月政策会议上决定将联邦基金利率目标区间维持在3.5%-3.75%不变。
+“唯一的变化是，艺人签下一个项目后，可能不用亲自到现场拍每一场戏，而是拍其中一部分，另一部分由AI生成并经过演员确认，本质上还是演员自己在演。
 
-不过，该决定遭到三位政策制定者反对，他们不满会后声明中所谓“宽松倾向”的措辞，认为这暗示美联储最终将恢复降息。
+” 刘文峰表示，短期内，AI作品中加入大众熟悉的真人演员面孔，可以提升作品受欢迎程度，爱奇艺将发挥撮合作用，满足演员、创作者与项目的需求。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-29 16:18 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 16:18 - [央视曝光涉黄App诈骗陷阱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rpfdt.md)
-- 2026-06-29 16:07 - [林昀儒不敌17岁小将止步首轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-29 16:24 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/benqiao.md)
-- 2026-06-29 16:12 - [存储三巨头被告了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cunduan.md)
-- 2026-06-29 16:10 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bbtqm.md)
-- 2026-06-29 16:33 - [TI2026参赛战队出炉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
-- 2026-06-29 16:35 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-29 16:09 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-29 16:24 - [外网预言中国举办世界杯时间](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jwkss.md)
-- 2026-06-29 16:27 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
-- 2026-06-29 16:29 - [杨紫下沉市场口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-29 16:25 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tknvr.md)
-- 2026-06-29 16:33 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkjci.md)
+- 2026-06-29 16:32 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuecui.md)
+- 2026-06-29 16:39 - [CORTIS登机迟到致航班延误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
+- 2026-06-29 16:24 - [范志毅看好日本淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gaique.md)
+- 2026-06-29 16:39 - [失明的我带老妈去了趟“火星”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jysjd.md)
+- 2026-06-29 16:16 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
+- 2026-06-29 16:13 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-29 16:33 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-29 16:14 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rici.md)
+- 2026-06-29 16:15 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-29 16:41 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
+- 2026-06-29 16:13 - [和周杰伦在演唱会合唱了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
+- 2026-06-29 16:31 - [做完数学题 韩国队回家了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpoce.md)
+- 2026-06-29 16:18 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yaochen.md)
+- 2026-06-29 16:36 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 16:35 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [20年前的周杰伦](https://www.share.minike.top/Article/details/791233.shtml)
-- 2026-06-29 16:10 - [FIFA回应佛得角队长被指控强奸](http://www.blog.kurohicncr.top/Article/details/9741247735.shtml)
-- 2026-06-29 16:28 - [河南四位大妈景区跳舞爆火](https://www.blog.minike.top/Article/details/182830751.shtml)
-- 2026-06-29 16:18 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://www.blog.minike.top/Article/details/72179.shtml)
-- 2026-06-29 16:34 - [中方将20家日本实体列入管控名单](http://www.share.kurohicncr.top/Article/details/256137255.shtml)
-- 2026-06-29 16:25 - [广东一地发现极危植物新物种](http://www.share.kurohicncr.top/Article/details/601552098339.shtml)
-- 2026-06-29 16:28 - [李在镕：计划将光州作为芯片生产基地](http://www.blog.kurohicncr.top/Article/details/507911.shtml)
-- 2026-06-29 16:33 - [5万块的威力](http://www.share.kurohicncr.top/Article/details/109500843.shtml)
-- 2026-06-29 16:16 - [TLAW零封DCG MSI](https://www.blog.kurohicncr.top/Article/details/144437723.shtml)
-- 2026-06-29 16:26 - [送你一朵小红花](http://www.share.kurohicncr.top/Article/details/15389159.shtml)
-- 2026-06-29 16:32 - [做完数学题 韩国队回家了](https://www.blog.kurohicncr.top/Article/details/607242777003.shtml)
-- 2026-06-29 16:12 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/57899.shtml)
-- 2026-06-29 16:09 - [巴黎两家殡仪馆爆满](http://www.blog.minike.top/Article/details/5721429840.shtml)
-- 2026-06-29 16:06 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/333780.shtml)
-- 2026-06-29 16:30 - [日本主教练回应迎战巴西](http://www.share.kurohicncr.top/Article/details/4250069955.shtml)
+- 2026-06-29 16:20 - [小孩曾卓君夺冠之路](https://www.blog.kurohicncr.top/Article/details/953813520.shtml)
+- 2026-06-29 16:24 - [人形机器人](https://www.blog.kurohicncr.top/Article/details/63980598.shtml)
+- 2026-06-29 16:15 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.blog.minike.top/Article/details/9075839.shtml)
+- 2026-06-29 16:41 - [共享单车“价格刺客”79分钟30元](https://www.blog.minike.top/Article/details/75484.shtml)
+- 2026-06-29 16:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](http://www.blog.minike.top/Article/details/157242.shtml)
+- 2026-06-29 16:29 - [德国VS巴拉圭前瞻](https://www.share.kurohicncr.top/Article/details/489523.shtml)
+- 2026-06-29 16:21 - [毒液2](http://www.share.minike.top/Article/details/585297.shtml)
+- 2026-06-29 16:35 - [WTT美国大满贯王曼昱首秀告捷](http://www.share.kurohicncr.top/Article/details/9984845.shtml)
+- 2026-06-29 16:19 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/3414199.shtml)
+- 2026-06-29 16:20 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/7746400.shtml)
+- 2026-06-29 16:39 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.minike.top/Article/details/1293505.shtml)
+- 2026-06-29 16:14 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.minike.top/Article/details/327762.shtml)
+- 2026-06-29 16:31 - [名记：勇士想先交易浓眉再签詹姆斯](https://www.blog.kurohicncr.top/Article/details/7821059067.shtml)
+- 2026-06-29 16:20 - [紫雅妈妈抱着女儿衣物崩溃](https://www.share.minike.top/Article/details/401097767622.shtml)
+- 2026-06-29 16:18 - [医院大厅放钢琴是形式主义吗](https://www.blog.minike.top/Article/details/2828846593.shtml)

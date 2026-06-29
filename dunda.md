@@ -1,57 +1,50 @@
-# Guzman y Gomez快餐宣布退出美国市场，股价一度大涨20%
+# 权威数读｜31个省份全部正增长！工业和信息化发展实现良好开局
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-核心要点 这家墨西哥风味快餐连锁企业宣布退出美国市场、重心回归本土澳洲后，股价周五盘中最高飙升 20.58%。 公司联合创始人兼联席首席执行官史蒂文・马克斯表示：“经过三个月实地运营考察，我们发现开拓美国市场所需耗费的时间与资金，远超最初预期。” 他称美国业务当前盈利表现不佳，继续投入股东资金已不具备合理性。 公司同时表示，撤出美国市场并不会动摇董事会对品牌全球吸引力的信心，未
+国务院新闻办21日举行新闻发布会，介绍2026年一季度工业和信息化发展情况。数据显示，我国工业和信息化发展实现良好开局：一季度，规模以上工业增加值同比增长6.1%，31个省份全部正增长，工业对经济增长贡献率近四成；高技术制造业增势亮眼，规上增加值同比增长12.5%；电信业务总量同比增长8.3%。尽管外部环境不确定性上升，但我国产业体系全、产业韧性强、市场规模大，工业经济平稳向好
 
 ## 正文
 
-核心要点 这家墨西哥风味快餐连锁企业宣布退出美国市场、重心回归本土澳洲后，股价周五盘中最高飙升 20.58%。
+国务院新闻办21日举行新闻发布会，介绍2026年一季度工业和信息化发展情况。
 
-公司联合创始人兼联席首席执行官史蒂文・马克斯表示：“经过三个月实地运营考察，我们发现开拓美国市场所需耗费的时间与资金，远超最初预期。
+数据显示，我国工业和信息化发展实现良好开局：一季度，规模以上工业增加值同比增长6.1%，31个省份全部正增长，工业对经济增长贡献率近四成；高技术制造业增势亮眼，规上增加值同比增长12.5%；电信业务总量同比增长8.3%。
 
-” 他称美国业务当前盈利表现不佳，继续投入股东资金已不具备合理性。
+尽管外部环境不确定性上升，但我国产业体系全、产业韧性强、市场规模大，工业经济平稳向好的基本面不会改变。
 
-公司同时表示，撤出美国市场并不会动摇董事会对品牌全球吸引力的信心，未来仍会稳健有序地开拓海外新区域市场。
-
-企业将立即停止芝加哥所有门店运营，并以尊重坦诚的态度协助美国员工完成岗位过渡。
-
-花旗分析师对此决策表示认可，其此前一直不看好品牌在美国的发展前景。
-
-分析师认为，该品牌与同行 Chipotle 同质化严重，叠加芝加哥本地经营环境难题，在美国长期站稳脚跟的概率偏低。
-
-机构指出，退出美国市场后，联席 CEO 有望回归澳洲统筹本土业务。
+策划：令伟家 统筹：陈知春 制作：缪异星
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
-- 2026-06-29 16:20 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-29 16:07 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuayao.md)
-- 2026-06-29 16:27 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqyzo.md)
-- 2026-06-29 16:11 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-29 16:08 - [滚石要求万豪就屠颖去世事件道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/blcbt.md)
-- 2026-06-29 16:17 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jlszu.md)
-- 2026-06-29 16:10 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qekxc.md)
-- 2026-06-29 16:31 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
-- 2026-06-29 16:22 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-29 16:15 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-29 16:38 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-29 16:34 - [扬名立万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-29 16:40 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binting.md)
+- 2026-06-29 16:25 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
+- 2026-06-29 16:39 - [哈基米歌王争霸赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-29 16:20 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-29 16:20 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
+- 2026-06-29 16:28 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninen.md)
+- 2026-06-29 16:21 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-29 16:15 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-29 16:36 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdhaf.md)
+- 2026-06-29 16:37 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tijws.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [唐国强打卡贵阳孔学堂](http://www.share.minike.top/Article/details/98867.shtml)
-- 2026-06-29 16:18 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/517816537970.shtml)
-- 2026-06-29 16:29 - [47天女婴被月嫂摔伤致颅内出血](http://www.share.kurohicncr.top/Article/details/21773108.shtml)
-- 2026-06-29 16:34 - [7款商保创新药“转道”](http://www.blog.minike.top/Article/details/16391518.shtml)
-- 2026-06-29 16:16 - [滾石唱片要求万豪酒店道歉](https://www.blog.minike.top/Article/details/091720677.shtml)
-- 2026-06-29 16:35 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.blog.minike.top/Article/details/58781263640.shtml)
-- 2026-06-29 16:23 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](https://www.share.minike.top/Article/details/1883348631.shtml)
-- 2026-06-29 16:23 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/8510424.shtml)
-- 2026-06-29 16:25 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.minike.top/Article/details/95238910.shtml)
-- 2026-06-29 16:24 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.share.kurohicncr.top/Article/details/5013836.shtml)
-- 2026-06-29 16:29 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/648044707851.shtml)
-- 2026-06-29 16:24 - [TLAW零封DCG MSI](http://www.share.kurohicncr.top/Article/details/3304659.shtml)
-- 2026-06-29 16:13 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/95893345.shtml)
-- 2026-06-29 16:32 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/0786903.shtml)
-- 2026-06-29 16:12 - [世界杯淘汰赛首轮五场焦点对决](https://www.blog.kurohicncr.top/Article/details/08222797634.shtml)
+- 2026-06-29 16:36 - [巴西国脚说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/152980.shtml)
+- 2026-06-29 16:21 - [教育部发布预警 事关高招录取](https://www.blog.minike.top/Article/details/546779.shtml)
+- 2026-06-29 16:32 - [中方将20家日本实体列入管控名单](https://www.share.kurohicncr.top/Article/details/90828.shtml)
+- 2026-06-29 16:17 - [日本主教练回应迎战巴西](https://www.blog.kurohicncr.top/Article/details/319269565768.shtml)
+- 2026-06-29 16:29 - [7款商保创新药“转道”](https://www.share.minike.top/Article/details/386717850.shtml)
+- 2026-06-29 16:33 - [港股爆发 美团百度阿里等集体大涨](https://www.share.kurohicncr.top/Article/details/7651969355.shtml)
+- 2026-06-29 16:28 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/95280373614.shtml)
+- 2026-06-29 16:20 - [伊朗队员在酒店看球从狂喜到绝望](https://www.blog.minike.top/Article/details/34148728.shtml)
+- 2026-06-29 16:37 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/3931342421.shtml)
+- 2026-06-29 16:41 - [逆天祖国人](http://www.blog.minike.top/Article/details/1646643.shtml)
+- 2026-06-29 16:20 - [法拉利被当滑梯玩 出现多处划痕](http://www.blog.kurohicncr.top/Article/details/283952.shtml)
+- 2026-06-29 16:41 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/780702235.shtml)
+- 2026-06-29 16:31 - [42岁郭碧婷纯素颜状态](http://www.blog.minike.top/Article/details/50597.shtml)
+- 2026-06-29 16:23 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/624603.shtml)
+- 2026-06-29 16:35 - [蜘蛛侠:平行宇宙](https://www.blog.minike.top/Article/details/9039552.shtml)

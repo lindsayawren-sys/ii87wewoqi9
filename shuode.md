@@ -1,58 +1,57 @@
-# 辽宁省首个集成电路产业创新中心落地运营
+# 尾盘突发！002342，收盘前4分钟垂直涨停！商业航天，集体爆发！
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新网沈阳5月22日电 (李晛)记者22日自沈阳市国资委获悉，辽宁省首个集成电路产业创新中心日前正式落地运营。 该中心是产投集团在沈阳市政府国资委大力支持下，历经四年跟进对接、系统谋划，与国内集成电路龙头企业拓荆科技共同牵头，遴选11家薄膜设备、零部件供应商及合作伙伴投资设立。 该中心定位于实体化运作的产学研用协同平台，紧扣薄膜设备核心赛道，重点围绕应用于先进制程领域的高端集成
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今日（4月21日），A股小幅震荡，主要股指涨跌互现，上证指数、深证成指、创业板指等微幅飘红，科创综指、北证50等微幅飘绿。下跌个股远多于上涨个股，成交小幅萎缩至2.43万亿元。 盘面上，元器件、工业气体、环境监测、航天装备等板块涨幅居前，通信工程、电子商务、人工智能、数字货币等板块跌幅居前。 Wind实时监
 
 ## 正文
 
-中新网沈阳5月22日电 (李晛)记者22日自沈阳市国资委获悉，辽宁省首个集成电路产业创新中心日前正式落地运营。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-该中心是产投集团在沈阳市政府国资委大力支持下，历经四年跟进对接、系统谋划，与国内集成电路龙头企业拓荆科技共同牵头，遴选11家薄膜设备、零部件供应商及合作伙伴投资设立。
+今日（4月21日），A股小幅震荡，主要股指涨跌互现，上证指数、深证成指、创业板指等微幅飘红，科创综指、北证50等微幅飘绿。
 
-该中心定位于实体化运作的产学研用协同平台，紧扣薄膜设备核心赛道，重点围绕应用于先进制程领域的高端集成电路装备新产品、新技术的需求，开展关键零部件的核心技术开发、验证与应用，并搭建设备及零部件研发、测试平台，孵化相关技术实现产业化。
+下跌个股远多于上涨个股，成交小幅萎缩至2.43万亿元。
 
-依托各股东方的产业链资源，中心将构建“研发—中试—产业化”的完整闭环，打造集技术供给、人才汇聚、关键零部件孵化与验证于一体的产业核心引擎，为全省集成电路产业高质量发展提供坚实支撑。
+盘面上，元器件、工业气体、环境监测、航天装备等板块涨幅居前，通信工程、电子商务、人工智能、数字货币等板块跌幅居前。
 
-为确保创新中心的实体化运作与市场化生命力，产投集团以“长期资本护航、耐心资本赋能”的理念，携手拓荆科技共同推进中心组建。
+Wind实时监测数据显示，电子行业获得逾53亿元主力资金净流入，基础化工获得逾49亿元净流入，电力设备、机械设备、轻工制造均获得超30亿元净流入，公用事业、建筑装饰也都获得超20亿元净流入，汽车则连续11日获得净流入。
 
-通过“以企引企、以资引资”模式，精准引入9家来自江苏、上海等长三角地区的优质零部件企业。
+计算机行业遭主力资金净流出逾80亿元，医药生物净流出逾40亿元，通信、非银金融均净流出超20亿元。
 
-着眼于产业链的长期培育，集团通过股权纽带将各股东方结为利益共同体，有效打破地域壁垒，将原本松散的供需关系转化为紧密的战略合作关系，以资本的温度陪伴入辽企业从孵化走向成熟，也为产业链的自主可控提供稳定可靠的资本支撑。
+个股方面，顺灏股份获得逾23亿元主力资金净流入，兆易创新、东山精密、神剑股份、天齐锂业等9股获得超10亿元净流入。
 
-下一步，创新中心将持续整合优质资源、夯实创新实力，全力冲刺申报国家级。
+市场热点方面，元器件股午后放量走强，板块指数大涨逾2%，创历史新高，近12个交易日11日上涨。
 
 ## 相关推荐
 
-- 2026-06-29 16:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-29 16:09 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opcpo.md)
-- 2026-06-29 16:16 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaote.md)
-- 2026-06-29 16:22 - [电影《抓特务》总票房破亿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qdngw.md)
-- 2026-06-29 16:15 - [2026世界杯谁能一黑到底](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-29 16:25 - [普京介绍前线战事](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-29 16:23 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
-- 2026-06-29 16:20 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uprxr.md)
-- 2026-06-29 16:08 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
-- 2026-06-29 16:27 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruhei.md)
-- 2026-06-29 16:12 - [王安宇尊重田曦薇的一切选择](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
-- 2026-06-29 16:09 - [韩国媒体破防：被中国球迷当笑柄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-29 16:23 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuanxuan.md)
+- 2026-06-29 16:33 - [王楚钦欢迎晚宴上打台球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yaopu.md)
+- 2026-06-29 16:36 - [中方在台湾岛以东海域活动合理合法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-29 16:34 - [恋与深空发放补偿未得到玩家认可](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-29 16:25 - [配音演员于小华病逝 享年78岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qxzox.md)
+- 2026-06-29 16:23 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkcwn.md)
+- 2026-06-29 16:14 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
+- 2026-06-29 16:38 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
+- 2026-06-29 16:27 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-29 16:41 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-29 16:22 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/07247763.shtml)
-- 2026-06-29 16:18 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/73726596779.shtml)
-- 2026-06-29 16:13 - [12所大学更正招生目录](https://www.share.minike.top/Article/details/00473.shtml)
-- 2026-06-29 16:06 - [巴西发布对阵日本宣传片](http://www.share.kurohicncr.top/Article/details/209065519.shtml)
-- 2026-06-29 16:14 - [网友飞机上偶遇肖战](https://www.blog.kurohicncr.top/Article/details/036438007920.shtml)
-- 2026-06-29 16:27 - [杨紫视后第一场线下活动](https://www.share.minike.top/Article/details/78769.shtml)
-- 2026-06-29 16:33 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/056274117598.shtml)
-- 2026-06-29 16:26 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/6857131935.shtml)
-- 2026-06-29 16:13 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/87740.shtml)
-- 2026-06-29 16:28 - [人形机器人](https://www.share.minike.top/Article/details/890838195.shtml)
-- 2026-06-29 16:17 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/10254.shtml)
-- 2026-06-29 16:09 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.share.kurohicncr.top/Article/details/188147146988.shtml)
-- 2026-06-29 16:21 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/77603996.shtml)
-- 2026-06-29 16:16 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/252046851.shtml)
-- 2026-06-29 16:23 - [上班主打一个薪尽自然凉](https://www.share.kurohicncr.top/Article/details/26457.shtml)
+- 2026-06-29 16:23 - [杨紫下沉市场口碑](https://www.blog.minike.top/Article/details/6453226.shtml)
+- 2026-06-29 16:25 - [天道](http://www.blog.minike.top/Article/details/95758565.shtml)
+- 2026-06-29 16:35 - [绿化带上演“蛇吞蛙”翻车现场](https://www.blog.kurohicncr.top/Article/details/7386988049.shtml)
+- 2026-06-29 16:27 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.share.minike.top/Article/details/49033.shtml)
+- 2026-06-29 16:25 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.blog.kurohicncr.top/Article/details/138050571.shtml)
+- 2026-06-29 16:16 - [一见倾心](https://www.share.minike.top/Article/details/5747277.shtml)
+- 2026-06-29 16:16 - [小孩曾卓君夺第八个EVO冠军](https://www.blog.minike.top/Article/details/661391730952.shtml)
+- 2026-06-29 16:28 - [47天女婴被月嫂摔伤致颅内出血](https://www.blog.kurohicncr.top/Article/details/492529.shtml)
+- 2026-06-29 16:35 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/696729235.shtml)
+- 2026-06-29 16:20 - [驻日美军航母沦为“毒窝”](http://www.blog.minike.top/Article/details/415825848.shtml)
+- 2026-06-29 16:33 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/49133543706.shtml)
+- 2026-06-29 16:30 - [BB大王横店拍戏](https://www.share.kurohicncr.top/Article/details/1825760.shtml)
+- 2026-06-29 16:36 - [小说《无悔追踪》翻红](https://www.share.minike.top/Article/details/52776918758.shtml)
+- 2026-06-29 16:19 - [全国第三艘万车级汽车运输船交付](http://www.blog.minike.top/Article/details/711298446.shtml)
+- 2026-06-29 16:37 - [叠纸](http://www.blog.kurohicncr.top/Article/details/78847552.shtml)

@@ -1,56 +1,56 @@
-# 蓝图绘就龙江新篇 黑龙江明晰“十五五”振兴发展路线图
+# “十四五”时期 青海知识产权量质齐升
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月22日电 (记者 史轶夫 王妮娜)21日，黑龙江省政府新闻办公室举行“开局起步‘十五五’”专题新闻发布会。黑龙江省委副书记、省长梁惠玲全景解读《黑龙江省国民经济和社会发展第十五个五年规划纲要》(以下简称“《纲要》”)，清晰铺展未来五年龙江高质量振兴、现代化强省建设施工图与任务书。 发布会现场，一份承载龙江长远发展的五年蓝图徐徐展开。梁惠玲表示，“十五五”是黑龙江
+中新网西宁4月20日电 (记者 孙睿)记者从青海省政府新闻办公室20日召开的青海省知识产权工作专题新闻发布会上获悉，“十四五”时期，该省知识产权量质齐升，全省累计授权专利4.37万件，较“十三五”末增长127.4%；每万人口高价值发明专利达2.23件。 统计显示，“十四五”时期，青海省持续加大特色优势产业的专利布局，产业“四地”有效专利达8848件，占全省45.8%。全省累计注
 
 ## 正文
 
-中新网哈尔滨5月22日电 (记者 史轶夫 王妮娜)21日，黑龙江省政府新闻办公室举行“开局起步‘十五五’”专题新闻发布会。
+中新网西宁4月20日电 (记者 孙睿)记者从青海省政府新闻办公室20日召开的青海省知识产权工作专题新闻发布会上获悉，“十四五”时期，该省知识产权量质齐升，全省累计授权专利4.37万件，较“十三五”末增长127.4%；每万人口高价值发明专利达2.23件。
 
-黑龙江省委副书记、省长梁惠玲全景解读《黑龙江省国民经济和社会发展第十五个五年规划纲要》(以下简称“《纲要》”)，清晰铺展未来五年龙江高质量振兴、现代化强省建设施工图与任务书。
+统计显示，“十四五”时期，青海省持续加大特色优势产业的专利布局，产业“四地”有效专利达8848件，占全省45.8%。
 
-发布会现场，一份承载龙江长远发展的五年蓝图徐徐展开。
+全省累计注册商标9.06万件，地理标志培育累计达106个，柴达木枸杞、湟中燕麦入选中欧地理标志互认互保名录，“青字号”品牌影响力持续扩大。
 
-梁惠玲表示，“十五五”是黑龙江重振雄风、再创佳绩的关键窗口期，黑龙江将牢牢锚定国家五大安全战略定位，接续“十四五”粮食高产、航天科创、冰雪出圈扎实成果，立足承前启后历史方位，坚守民生为本初心，把国家顶层设计转化为龙江实干举措。
+青海省市场监督管理局党组成员、援青办主任卢学红介绍，青海省以产业“四地”建设为主攻方向，积极构建高效的运用体系，在清洁能源、盐湖化工、有机农畜等多个领域取得了显著进展。
 
-《纲要》围绕现代化强省建设，黑龙江设定26项核心发展指标，以研发投入、数字经济、生态保护等关键数据，锚定创新驱动、产业升级、绿色低碳发展方向。
+还建成全球首个盐湖专利数据平台，实施专利导航28个，培育氯化钾、碳酸锂等国家专利密集型产品，盐湖相关案例入选全国典型。
 
-从广袤黑土粮仓到寒地科创高地，从沿边开放口岸到全域生态屏障，龙江发展路径清晰聚焦五转变一迈进。
+知识产权质押融资15.27亿元，有效缓解中小微企业融资难题。
 
-从资源驱动转向创新引领，依托81所高校、百余家科研院所，黑龙江聚力哈大齐自创区建设，加速科研成果就地转化；从初级产业迈向中高端制造，深耕装备制造、航空航天、生物经济，擦亮“龙江制造”金字招牌；从通道开放转向多元经贸，做强沿边口岸与自贸平台，筑牢向北开放新高地；从局部联动走向全域协同，做强哈尔滨都市圈，统筹城乡、区域均衡发展；从生态本底转化发展动能，深耕冰天雪地、绿水青山价值变现；更持续深耕民生福祉，让共同富裕落地百姓日常。
+同时，保护力度同步加大。
 
-蓝图落地靠实干抓手。
+新修订《青海省专利促进与保护条例》将于今年5月实施，全省办理知识产权案件1130件，公安办理案件的涉案金额2.38亿元，司法系统审结知产案件2573件，知识产权保护社会满意度连续保持80分以上。
 
 ## 相关推荐
 
-- 2026-06-29 16:26 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningxia.md)
-- 2026-06-29 16:09 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnknw.md)
-- 2026-06-29 16:15 - [五粮液回应宜宾地震影响](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 16:29 - [世界杯欧美八大豪强悉数出线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 16:12 - [中国妇女评网游娱乐化女性安全](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-29 16:29 - [AG冠军五人组轮换](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-29 16:14 - [巴西国脚说不出日本球员全场哄笑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
-- 2026-06-29 16:17 - [刘烨16岁儿子诺一颜值](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/revjs.md)
-- 2026-06-29 16:09 - [上周末 多领域成果密集“上新”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxmyr.md)
-- 2026-06-29 16:25 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-29 16:22 - [加拿大绝杀南非晋级](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-29 16:18 - [一见倾心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-29 16:23 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mepbl.md)
+- 2026-06-29 16:28 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqnhs.md)
+- 2026-06-29 16:15 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
+- 2026-06-29 16:12 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 16:19 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyykk.md)
+- 2026-06-29 16:16 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vbkvk.md)
+- 2026-06-29 16:20 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
+- 2026-06-29 16:38 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:13 - [周生如故](https://www.share.kurohicncr.top/Article/details/6589658.shtml)
-- 2026-06-29 16:09 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/075515.shtml)
-- 2026-06-29 16:20 - [光与夜之恋](http://www.share.kurohicncr.top/Article/details/2270794.shtml)
-- 2026-06-29 16:30 - [省市招考专家解读山西高考志愿政策](http://www.share.kurohicncr.top/Article/details/4355335193.shtml)
-- 2026-06-29 16:33 - [妹妹的正确用法！](http://www.blog.minike.top/Article/details/90604.shtml)
-- 2026-06-29 16:25 - [上海一小区水池内出现一条鳄鱼](https://www.share.minike.top/Article/details/9817744740.shtml)
-- 2026-06-29 16:20 - [网约车司机转账15000元后被乘客拉黑](http://www.share.kurohicncr.top/Article/details/407245481185.shtml)
-- 2026-06-29 16:24 - [王安宇尊重田曦薇的一切选择](https://www.share.kurohicncr.top/Article/details/023699788.shtml)
-- 2026-06-29 16:33 - [东方风云榜](http://www.share.minike.top/Article/details/668685740.shtml)
-- 2026-06-29 16:28 - [王冰冰向全网安利哈兰德](https://www.blog.minike.top/Article/details/721854.shtml)
-- 2026-06-29 16:26 - [三只羊大课堂回应大杨哥改卖课传闻](http://www.share.kurohicncr.top/Article/details/62025126982.shtml)
-- 2026-06-29 16:18 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/88188367697.shtml)
-- 2026-06-29 16:35 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.kurohicncr.top/Article/details/818490292.shtml)
-- 2026-06-29 16:27 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/179338422.shtml)
-- 2026-06-29 16:25 - [父亲患病母亲残疾女儿接到清华电话](https://www.share.minike.top/Article/details/887685452.shtml)
+- 2026-06-29 16:31 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/51074100.shtml)
+- 2026-06-29 16:27 - [唐国强打卡贵阳孔学堂](http://www.blog.kurohicncr.top/Article/details/137604260481.shtml)
+- 2026-06-29 16:23 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/18794.shtml)
+- 2026-06-29 16:18 - [造谣县城满街都是小混混 男子被拘](http://www.share.kurohicncr.top/Article/details/3580737.shtml)
+- 2026-06-29 16:24 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/766345.shtml)
+- 2026-06-29 16:21 - [韩国主帅辞职 念完稿双手插兜离场](https://www.blog.minike.top/Article/details/033144292.shtml)
+- 2026-06-29 16:25 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/644582.shtml)
+- 2026-06-29 16:31 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/7720283.shtml)
+- 2026-06-29 16:12 - [电影《抓特务》总票房破亿](https://www.share.kurohicncr.top/Article/details/0715863.shtml)
+- 2026-06-29 16:38 - [德国VS巴拉圭前瞻](http://www.blog.kurohicncr.top/Article/details/82786322.shtml)
+- 2026-06-29 16:14 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/94076769.shtml)
+- 2026-06-29 16:15 - [勇敢的心第二部](http://www.share.minike.top/Article/details/244001501433.shtml)
+- 2026-06-29 16:32 - [伊朗队员在酒店看球从狂喜到绝望](https://www.share.minike.top/Article/details/39340.shtml)
+- 2026-06-29 16:17 - [林昀儒不敌17岁小将止步首轮](https://www.share.kurohicncr.top/Article/details/07887358321.shtml)
+- 2026-06-29 16:18 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.minike.top/Article/details/208163436.shtml)

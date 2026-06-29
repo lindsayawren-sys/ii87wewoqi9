@@ -1,58 +1,60 @@
-# 龙韵股份“ST”真相：收入跨期调节虚增1.27亿，受损投资者索赔征集
+# 德国汉莎航空遭遇罢工，三月已有10万名旅客受影响
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-公司是一家以数据科技驱动市场营销与文化创新的科技创新企业，业务涵盖全域大数据的价值挖掘与开发应用、传统及社交电商运营、数字化市场营销、影视综艺及短视频内容制作与发行等。 根据申万行业分类（2021），ST龙韵（维权）属于传媒-广告营销-营销代理。 2026年4月28日，公司披露了《关于 2025 年度会计差错更正的公告》：公司在开展财务自查及后续财务核算复核工作中，发现前期已披
+德国汉莎航空公司在法兰克福精心举办了一场庆典，以此进入其成立100周年的纪念周，但更广泛的背景是，随着集团内部劳资紧张局势加剧，运营压力正在不断累积。首席执行官卡斯滕·施波尔与德国总理弗里德里希·默茨一同出席活动，而与此同时，罢工的飞行员和乘务员在附近聚集，导致航班取消，打乱了数千人的旅行计划，其中也包括前来参加庆典的宾客。董事长卡尔-路德维希·克莱直接承认了这一反差，并敦促政
 
 ## 正文
 
-公司是一家以数据科技驱动市场营销与文化创新的科技创新企业，业务涵盖全域大数据的价值挖掘与开发应用、传统及社交电商运营、数字化市场营销、影视综艺及短视频内容制作与发行等。
+德国汉莎航空公司在法兰克福精心举办了一场庆典，以此进入其成立100周年的纪念周，但更广泛的背景是，随着集团内部劳资紧张局势加剧，运营压力正在不断累积。
 
-根据申万行业分类（2021），ST龙韵（维权）属于传媒-广告营销-营销代理。
+首席执行官卡斯滕·施波尔与德国总理弗里德里希·默茨一同出席活动，而与此同时，罢工的飞行员和乘务员在附近聚集，导致航班取消，打乱了数千人的旅行计划，其中也包括前来参加庆典的宾客。
 
-2026年4月28日，公司披露了《关于 2025 年度会计差错更正的公告》：公司在开展财务自查及后续财务核算复核工作中，发现前期已披露的中期财务报告（2025 年第一季度报告、2025 年半年度报告、2025 年第三季度报告）存在会计处理差错，包括收入确认方法核算偏差和费用确认会计处理不当。
+董事长卡尔-路德维希·克莱直接承认了这一反差，并敦促政策制定者考虑改革罢工法规，因为反复的罢工行动可能正在削弱公司的竞争地位。
 
-公告明确披露：因本次会计差错更正，公司股票自2026年4月29日起被实施其他风险警示，股票简称由“龙韵股份”变更为“ST龙韵”。
+庆典结束后不久，局势进一步升级。
 
-本次差错更正的核心是“前期收入确认跨期调整”，具体表现为： 这种跨期调节收入的行为，属于典型的财务造假手段，目的是粉饰报表、虚增利润。
+汉莎航空采取行动，实质上关闭了其区域子公司CityLine。
 
-更正后，股票的表现如下： 索赔条件：2024年4月19日至2026年4月28日之间买入，且2026年4月29日及以后卖出或继续持有的投资者，包括个人投资者和机构投资者。
+这一决定虽早有计划，但罢工以及与伊朗战争相关的燃油成本上涨的累积影响，似乎加速了其进程。
 
-（ST龙韵维权入口） （本文由万商天勤（上海）律师事务所刘彦梅律师供稿，不代表新浪财经的观点。
+今年3月，法兰克福机场的中断影响了超过10万名乘客，而随着更多罢工日的增加，本月受影响人数可能超过这一数字。
 
-刘彦梅律师，中国证券业协会讲师，辽宁大学法律硕士，主要从事金融诉讼、公司诉讼。
+争议的核心是飞行员要求提高养老金，而管理层表示无法满足这一要求。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [T1零封KC MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-29 16:28 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
-- 2026-06-29 16:09 - [媒体：高考后消费应量力而行适度有度](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qkmrm.md)
-- 2026-06-29 16:34 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
-- 2026-06-29 16:18 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxmum.md)
-- 2026-06-29 16:15 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
-- 2026-06-29 16:33 - [德国连续三天刷新本国最高气温纪录](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xueyi.md)
-- 2026-06-29 16:33 - [网警提醒警惕高考查分陷阱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-29 16:23 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-29 16:31 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-29 16:16 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
-- 2026-06-29 16:31 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhinu.md)
+- 2026-06-29 16:21 - [巴西发布对阵日本宣传片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-29 16:12 - [永远保持对人民的赤子之心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-29 16:36 - [我国文化产业营收规模突破20万亿元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
+- 2026-06-29 16:29 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpdrm.md)
+- 2026-06-29 16:14 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
+- 2026-06-29 16:27 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
+- 2026-06-29 16:26 - [恋与深空道歉就够了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-29 16:36 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
+- 2026-06-29 16:16 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
+- 2026-06-29 16:41 - [美国大满贯首日国乒主力均取胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 16:37 - [刘烨16岁儿子诺一颜值](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iskwk.md)
+- 2026-06-29 16:15 - [极限挑战第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
+- 2026-06-29 16:39 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 16:19 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:12 - [世界杯欧美八大豪强悉数出线](https://www.blog.minike.top/Article/details/271983128.shtml)
-- 2026-06-29 16:19 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/18558.shtml)
-- 2026-06-29 16:30 - [绿化带上演“蛇吞蛙”翻车现场](http://www.blog.minike.top/Article/details/03688135.shtml)
-- 2026-06-29 16:07 - [有什么好的高中网课推荐吗？](https://www.share.minike.top/Article/details/64277189.shtml)
-- 2026-06-29 16:20 - [欧洲多国激辩“装不装空调”](http://www.share.minike.top/Article/details/603142810.shtml)
-- 2026-06-29 16:06 - [林昀儒不敌17岁小将止步首轮](http://www.blog.minike.top/Article/details/81540714651.shtml)
-- 2026-06-29 16:28 - [世界杯看台惊现一群“哈兰德”](http://www.blog.minike.top/Article/details/564814803483.shtml)
-- 2026-06-29 16:08 - [宜宾地震猫被吓得乱窜 家猪全惊醒](http://www.share.kurohicncr.top/Article/details/00075.shtml)
-- 2026-06-29 16:35 - [戒掉咖啡后我的身体变化](https://www.blog.minike.top/Article/details/700554.shtml)
-- 2026-06-29 16:13 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.kurohicncr.top/Article/details/8107143.shtml)
-- 2026-06-29 16:26 - [曾卓君夺得美国EVO 2026饿狼传说冠军](https://www.blog.minike.top/Article/details/0664180459.shtml)
-- 2026-06-29 16:14 - [世界杯看台惊现一群“哈兰德”](http://www.share.kurohicncr.top/Article/details/155145436.shtml)
-- 2026-06-29 16:08 - [依法管制阻遏日方军事化危险动向](https://www.blog.minike.top/Article/details/2648453626.shtml)
-- 2026-06-29 16:06 - [孙怡告别浪姐千字文](https://www.blog.minike.top/Article/details/458915.shtml)
-- 2026-06-29 16:06 - [小鹏MONAL03预售定档7月2日](http://www.blog.minike.top/Article/details/073872578.shtml)
+- 2026-06-29 16:41 - [成都至北京将新增动卧](http://www.share.minike.top/Article/details/3547092.shtml)
+- 2026-06-29 16:32 - [王安宇尊重田曦薇的一切选择](https://www.share.minike.top/Article/details/3014876287.shtml)
+- 2026-06-29 16:19 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/063181755068.shtml)
+- 2026-06-29 16:40 - [TLAW零封DCG MSI](https://www.share.kurohicncr.top/Article/details/606467.shtml)
+- 2026-06-29 16:27 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/9458500.shtml)
+- 2026-06-29 16:36 - [媒体：中国田径压力与期待并存](http://www.share.minike.top/Article/details/59761.shtml)
+- 2026-06-29 16:32 - [千亿存储巨头悄悄在深圳蛰伏](http://www.blog.minike.top/Article/details/5300706.shtml)
+- 2026-06-29 16:15 - [世界杯：日本将与巴西争夺16强席位](http://www.blog.minike.top/Article/details/78235.shtml)
+- 2026-06-29 16:37 - [金圣叹为什么对水浒传中的武松评价这么高？](https://www.blog.minike.top/Article/details/41003275135.shtml)
+- 2026-06-29 16:30 - [天价门票抬高美加墨世界杯观赛门槛](https://www.blog.kurohicncr.top/Article/details/4342846560.shtml)
+- 2026-06-29 16:19 - [林昀儒不敌17岁小将止步首轮](https://www.blog.minike.top/Article/details/9432412.shtml)
+- 2026-06-29 16:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.blog.kurohicncr.top/Article/details/371720719964.shtml)
+- 2026-06-29 16:19 - [韩国队差旅费亏麻了](http://www.share.kurohicncr.top/Article/details/57022283774.shtml)
+- 2026-06-29 16:26 - [《贺子珍》](https://www.blog.minike.top/Article/details/218441.shtml)
+- 2026-06-29 16:17 - [龟梨和也田中美奈实结婚](https://www.share.kurohicncr.top/Article/details/477778852223.shtml)

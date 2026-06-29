@@ -1,56 +1,56 @@
-# “十五五”时期 黑龙江将推动特色文旅全域全季可持续发展
+# 法国检察官等待马斯克就X平台调查出庭，尚不清楚其是否会配合
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新网哈尔滨5月22日电(记者 王妮娜)在21日举行的“开局起步‘十五五’”黑龙江省专题新闻发布会上，黑龙江省委副书记、省长梁惠玲表示，“十五五”时期，黑龙江将坚持市场化运营、标准化建设、规范化管理、智慧化赋能，持续深化冬季冰雪旅游和夏季避暑旅游“百日行动”，推动特色文旅全域全季可持续高质量发展，加快建设世界级冰雪旅游和夏季避暑旅游胜地。 近年来，黑龙江冰雪旅游火爆“出圈”，并
+法国检察官正等待科技亿万富翁埃隆・马斯克，看他是否会回应周一的出庭传唤，接受有关 X 平台及其 AI 聊天机器人 Grok 的调查，该调查涉及欺诈性数据提取。 目前尚不清楚马斯克是否会出席听证会，巴黎主要法院也未见其身影。此次传唤日期于今年 2 月确定，当时巴黎检察官办公室网络犯罪部门突击搜查了马斯克旗下社交媒体平台 X 的法国办事处。 这项调查本已加剧美欧在大型科技与言论自由
 
 ## 正文
 
-中新网哈尔滨5月22日电(记者 王妮娜)在21日举行的“开局起步‘十五五’”黑龙江省专题新闻发布会上，黑龙江省委副书记、省长梁惠玲表示，“十五五”时期，黑龙江将坚持市场化运营、标准化建设、规范化管理、智慧化赋能，持续深化冬季冰雪旅游和夏季避暑旅游“百日行动”，推动特色文旅全域全季可持续高质量发展，加快建设世界级冰雪旅游和夏季避暑旅游胜地。
+法国检察官正等待科技亿万富翁埃隆・马斯克，看他是否会回应周一的出庭传唤，接受有关 X 平台及其 AI 聊天机器人 Grok 的调查，该调查涉及欺诈性数据提取。
 
-近年来，黑龙江冰雪旅游火爆“出圈”，并呈现出从“一季红”到“四季火”的良好态势。
+目前尚不清楚马斯克是否会出席听证会，巴黎主要法院也未见其身影。
 
-梁惠玲表示，“十五五”时期，黑龙江将从三方面着力，延续热度，推动特色文化旅游全域全季可持续发展。
+此次传唤日期于今年 2 月确定，当时巴黎检察官办公室网络犯罪部门突击搜查了马斯克旗下社交媒体平台 X 的法国办事处。
 
-一是完善全域全季旅游新格局。
+这项调查本已加剧美欧在大型科技与言论自由问题上的紧张关系，随后调查范围还扩大至涉嫌纵容儿童色情内容传播、以及 Grok 生成色情深度伪造内容的相关行为。
 
-黑龙江将强化顶层设计，编制冰雪经济、文化旅游“十五五”专项规划，着力构建冰雪旅游、草原森林旅游、湿地生态休闲三个核心圈和沿江沿湖、边境开放两个旅游带。
+尽管周一的听证会属强制出席，但现阶段当局无法强迫这位世界首富出庭。
 
-通过增开国际航线、加密省内航班，加开特色文旅铁路专列，优化“快进慢游”旅游交通体系。
+路透社在传唤前未能联系到马斯克的代表。
 
-加快形成以哈尔滨为枢纽、特色旅游城市为支撑的发展格局，把精品线路和重点景区串珠成链，推动特色文旅向全域全季拓展。
+去年 7 月，马斯克曾否认最初指控，并称法国检察官启动的是一项 “带有政治动机的刑事调查”。
 
-二是创新特色文旅产品服务供给。
+巴黎检察官办公室拒绝置评。
 
 ## 相关推荐
 
-- 2026-06-29 16:27 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 16:21 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiqiong.md)
-- 2026-06-29 16:07 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
-- 2026-06-29 16:28 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
-- 2026-06-29 16:31 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-29 16:08 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
-- 2026-06-29 16:31 - [1个视频看懂2026志愿填报新专业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cdejs.md)
-- 2026-06-29 16:23 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
-- 2026-06-29 16:13 - [古力娜扎美出新高度](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvie.md)
-- 2026-06-29 16:20 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/regen.md)
+- 2026-06-29 16:39 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-29 16:25 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-29 16:29 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvebg.md)
+- 2026-06-29 16:20 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-29 16:41 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/waileng.md)
+- 2026-06-29 16:13 - [王楚钦首轮赢下国乒德比](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
+- 2026-06-29 16:37 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 16:21 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-29 16:37 - [光与夜之恋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 16:32 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:17 - [时光音乐会](https://www.blog.minike.top/Article/details/577179810.shtml)
-- 2026-06-29 16:11 - [李在镕：计划将光州作为芯片生产基地](http://www.share.minike.top/Article/details/318661842907.shtml)
-- 2026-06-29 16:15 - [老板回应员工光脚清洗土豆](https://www.blog.minike.top/Article/details/20198.shtml)
-- 2026-06-29 16:22 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/847205.shtml)
-- 2026-06-29 16:32 - [领克900大型SUV值得购买吗?](https://www.share.minike.top/Article/details/513187.shtml)
-- 2026-06-29 16:34 - [抓特务票房破亿](https://www.blog.kurohicncr.top/Article/details/118977.shtml)
-- 2026-06-29 16:34 - [世界杯欧美八大豪强悉数出线](https://www.share.kurohicncr.top/Article/details/244863122411.shtml)
-- 2026-06-29 16:20 - [一生一世](http://www.blog.minike.top/Article/details/80378421656.shtml)
-- 2026-06-29 16:13 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.minike.top/Article/details/27962887.shtml)
-- 2026-06-29 16:29 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/320234602.shtml)
-- 2026-06-29 16:27 - [小马驹盯着冰柜里的牛奶寸步不离](http://www.share.kurohicncr.top/Article/details/274578562.shtml)
-- 2026-06-29 16:35 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.blog.minike.top/Article/details/584688.shtml)
-- 2026-06-29 16:09 - [法国紧急下单3万台空调](http://www.blog.minike.top/Article/details/83589218712.shtml)
-- 2026-06-29 16:28 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/76144142.shtml)
-- 2026-06-29 16:12 - [A股收评：科创50指数大涨4.61%](https://www.share.kurohicncr.top/Article/details/264101.shtml)
+- 2026-06-29 16:32 - [绿化带上演“蛇吞蛙”翻车现场](https://www.share.kurohicncr.top/Article/details/19694.shtml)
+- 2026-06-29 16:14 - [沙丘](http://www.share.kurohicncr.top/Article/details/155708.shtml)
+- 2026-06-29 16:16 - [五粮液回应宜宾地震影响](http://www.blog.kurohicncr.top/Article/details/609260.shtml)
+- 2026-06-29 16:26 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.blog.minike.top/Article/details/910745.shtml)
+- 2026-06-29 16:35 - [韩国主帅辞职 念完稿双手插兜离场](https://www.share.kurohicncr.top/Article/details/985769.shtml)
+- 2026-06-29 16:30 - [42岁郭碧婷纯素颜状态](http://www.share.minike.top/Article/details/21695.shtml)
+- 2026-06-29 16:37 - [扫黑风暴](http://www.blog.minike.top/Article/details/100852149.shtml)
+- 2026-06-29 16:15 - [王冰冰向全网安利哈兰德](https://www.blog.kurohicncr.top/Article/details/88867.shtml)
+- 2026-06-29 16:13 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/4052860.shtml)
+- 2026-06-29 16:13 - [马来西亚同意延长马航370残骸搜寻](https://www.share.kurohicncr.top/Article/details/138249.shtml)
+- 2026-06-29 16:29 - [夏天被这些虫子咬了可能致命](https://www.share.kurohicncr.top/Article/details/888083365356.shtml)
+- 2026-06-29 16:29 - [韩国主帅洪明甫辞职](https://www.blog.kurohicncr.top/Article/details/90649.shtml)
+- 2026-06-29 16:32 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.minike.top/Article/details/050071852901.shtml)
+- 2026-06-29 16:27 - [流金岁月](http://www.share.minike.top/Article/details/92114796.shtml)
+- 2026-06-29 16:29 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/770770319026.shtml)

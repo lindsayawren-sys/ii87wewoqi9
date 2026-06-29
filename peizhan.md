@@ -1,57 +1,60 @@
-# 聚焦古建非遗技艺 茅盾新人奖得主新作《厝味》实体书签约
+# 盛趣游戏发布《十年维权案例精选（2015—2025）》：从个案救济到规则治理
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月23日电 网络文学作家、茅盾新人奖得主飘荡墨尔本的最新力作《厝味》日前在深圳正式签署实体书出版协议。 《厝味》目前正在火热连载中。作品以“一间古厝，一抹乡愁”为核心意象，聚焦“官式古建筑营造技艺”和“中国木拱桥传统营造技艺”，讲述了一个关于非遗传承、文化寻根的动人故事。 该作品以群像叙事的方式，聚焦代代传承的古建非遗技艺，通过男主人公丁加一从贫寒少年成长为国家级非
+在“4.26世界知识产权日”前夕，世纪华通（维权）旗下盛趣游戏正式发布《十年维权案例精选（2015—2025）》，系统梳理过去十年间围绕《传奇》《龙之谷》《冒险岛》《庆余年》等标志性IP展开的15起代表性诉讼。与传统的"战报式"维权总结不同，这份精选并未停留在胜诉数量或赔偿金额的罗列，而是将视角聚焦于“治理经验”与“裁判规则”。盛趣游戏以一系列标志性判例，清晰勾勒出中国游戏知识
 
 ## 正文
 
-中新网深圳5月23日电 网络文学作家、茅盾新人奖得主飘荡墨尔本的最新力作《厝味》日前在深圳正式签署实体书出版协议。
+在“4.26世界知识产权日”前夕，世纪华通（维权）旗下盛趣游戏正式发布《十年维权案例精选（2015—2025）》，系统梳理过去十年间围绕《传奇》《龙之谷》《冒险岛》《庆余年》等标志性IP展开的15起代表性诉讼。
 
-《厝味》目前正在火热连载中。
+与传统的"战报式"维权总结不同，这份精选并未停留在胜诉数量或赔偿金额的罗列，而是将视角聚焦于“治理经验”与“裁判规则”。
 
-作品以“一间古厝，一抹乡愁”为核心意象，聚焦“官式古建筑营造技艺”和“中国木拱桥传统营造技艺”，讲述了一个关于非遗传承、文化寻根的动人故事。
+盛趣游戏以一系列标志性判例，清晰勾勒出中国游戏知识产权司法保护从“个案救济”迈向“规则治理”的进化路径，也为数字文娱产业划定清晰、可预期的权利边界，提供了一套可复制的合规与治理范本。
 
-该作品以群像叙事的方式，聚焦代代传承的古建非遗技艺，通过男主人公丁加一从贫寒少年成长为国家级非遗代表性传承人的奋斗历程，以及女主人公建桥桥从剑桥学霸到非遗申遗大使的人生选择，展现了传统文化在当代中国的生命力。
+私服治理从“打点”到“断链”私服侵权长期困扰游戏行业，维权实践中常陷入“打掉一个、再生一片”的困境。
 
-《厝味》被认为是网络文学与传统文化深度融合的作品。
+盛趣游戏此次披露的案例显示，司法实践已突破“仅追究私服开发运营者”的传统模式。
 
-《厝味》实体书出版协议的签署，标志着这部作品将从线上走向线下，以纸质书的形式与读者见面。
+以“传奇私服发布站”案为例，法院明确将发布站、引流平台、技术支持、客服、推广乃至代充人员全部纳入刑事共犯评价体系。
 
-飘荡墨尔本分享《厝味》的创作历程称，在城市化进程不断加速的今天，每个人的心底深处都有一份对故乡、对传统文化的深深眷恋，而“错位”的人生轨迹，最终会在爱和传承里找到归宿。
+这意味着，私服治理不再局限于单点清除，而是升级为全链断网的生态清剿。
 
-(完)
+对行业而言，全链条追责大幅抬高了黑产各环节的违法成本，有效切断侵权游戏的资金流、技术流与流量入口；对社会公众而言，则有助于遏制私服常见的资金风险、信息泄露、恶意程序等衍生隐患，为净化数字文化消费市场提供可复制的治理路径。
 
 ## 相关推荐
 
-- 2026-06-29 16:06 - [草根德比站上亚洲顶级魔鬼主场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 16:20 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
-- 2026-06-29 16:23 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-29 16:26 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/phehp.md)
-- 2026-06-29 16:14 - [崔韩率还以为韩娱来新人了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 16:26 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-29 16:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuazhong.md)
-- 2026-06-29 16:28 - [做完数学题 韩国队回家了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 16:09 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfxit.md)
-- 2026-06-29 16:10 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-29 16:34 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-29 16:23 - [恋与深空失控领地](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kepai.md)
+- 2026-06-29 16:25 - [人类对空调和其他家电有多双标](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cknrh.md)
+- 2026-06-29 16:24 - [欧洲极端高温 美的“卡bug”空调卖爆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-29 16:33 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 16:16 - [如何看待最近盛行的定型文「假如你是一个韩国人……」、「韩国黄金时代」?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
+- 2026-06-29 16:12 - [11岁小孩哥汽修工龄4年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 16:17 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
+- 2026-06-29 16:22 - [西十高铁让“朝秦暮楚”之地活了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 16:16 - [T1 KC](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/idkrf.md)
+- 2026-06-29 16:13 - [拍到真的赛博朋克边缘行者了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkqzb.md)
+- 2026-06-29 16:15 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-29 16:28 - [给阿嬷的情书海外口碑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaotong.md)
+- 2026-06-29 16:12 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-29 16:21 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sniyz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:28 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.minike.top/Article/details/09331743.shtml)
-- 2026-06-29 16:30 - [法国紧急下单3万台空调](http://www.share.minike.top/Article/details/200533300766.shtml)
-- 2026-06-29 16:25 - [宜宾珙县部分地区因地震停电 正抢修](https://www.share.minike.top/Article/details/17543172.shtml)
-- 2026-06-29 16:31 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://www.blog.kurohicncr.top/Article/details/839882.shtml)
-- 2026-06-29 16:16 - [南昌市委书记调整](https://www.blog.minike.top/Article/details/736768210878.shtml)
-- 2026-06-29 16:21 - [杨紫飞奔拥抱胡歌](https://www.share.minike.top/Article/details/247632.shtml)
-- 2026-06-29 16:25 - [范志毅看好日本淘汰巴西](https://www.blog.kurohicncr.top/Article/details/418456.shtml)
-- 2026-06-29 16:19 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/530460552107.shtml)
-- 2026-06-29 16:26 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/766575.shtml)
-- 2026-06-29 16:28 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](http://www.share.kurohicncr.top/Article/details/33772.shtml)
-- 2026-06-29 16:12 - [委内瑞拉2400亿美元债务怎么还](https://www.share.kurohicncr.top/Article/details/860580224727.shtml)
-- 2026-06-29 16:15 - [女儿称是生父强奸所生拒付赡养费](http://www.share.kurohicncr.top/Article/details/282386974.shtml)
-- 2026-06-29 16:10 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/84800033660.shtml)
-- 2026-06-29 16:23 - [男孩复读一年减重20斤涨分111分](https://www.blog.minike.top/Article/details/65971.shtml)
-- 2026-06-29 16:11 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/1313373.shtml)
+- 2026-06-29 16:20 - [俄罗斯或全面禁止柴油出口有何影响](https://www.share.minike.top/Article/details/13216512872.shtml)
+- 2026-06-29 16:23 - [中方将20家日本实体列入管控名单](https://www.blog.kurohicncr.top/Article/details/87411490405.shtml)
+- 2026-06-29 16:35 - [省市招考专家解读山西高考志愿政策](https://www.blog.kurohicncr.top/Article/details/228554542.shtml)
+- 2026-06-29 16:39 - [超级计算机预测阿根廷和法国会师决赛](http://www.blog.kurohicncr.top/Article/details/7456111282.shtml)
+- 2026-06-29 16:36 - [德云色预测世界杯16强](http://www.share.minike.top/Article/details/39667413.shtml)
+- 2026-06-29 16:14 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/39649221330.shtml)
+- 2026-06-29 16:21 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/7429713373.shtml)
+- 2026-06-29 16:16 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/0950702.shtml)
+- 2026-06-29 16:29 - [李小璐回应无戏可拍](http://www.blog.minike.top/Article/details/382039959820.shtml)
+- 2026-06-29 16:33 - [广东一地发现极危植物新物种](https://www.share.minike.top/Article/details/522451865.shtml)
+- 2026-06-29 16:28 - [中国空间站为什么要升级扩容](http://www.share.minike.top/Article/details/07581232.shtml)
+- 2026-06-29 16:29 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.blog.kurohicncr.top/Article/details/253855762277.shtml)
+- 2026-06-29 16:37 - [李在镕：计划将光州作为芯片生产基地](https://www.blog.minike.top/Article/details/24463395.shtml)
+- 2026-06-29 16:20 - [这一刀 会很帅](http://www.share.kurohicncr.top/Article/details/72735243912.shtml)
+- 2026-06-29 16:14 - [网警提醒4类高考查分陷阱考生速看](https://www.blog.minike.top/Article/details/81239048357.shtml)

@@ -1,58 +1,60 @@
-# 葫芦娃信披违法预处罚落地 受损投资者可预登记索赔
+# 圈粉海外市场，中国新茶饮成海外“排队王”
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，海南葫芦娃药业集团股份有限公司（以下简称“葫芦娃”）因信披违法违规，收到海南证监局下发的行政处罚事先告知书，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年8月29日—2025年4月22日期间买入且有持仓，无论在2025年4月23日及之后是否卖出的投资者，可通过“新浪
+这个春天，中国新茶饮品牌加速“出海”。1月30日，奈雪的茶美国西部首店落户硅谷；2月16日，喜茶加拿大首家先锋概念店亮相多伦多；4月11日，蜜雪冰城南美首店在巴西圣保罗开业…… 新茶饮“出海”，将茶文化“装”进全球年轻人喜爱的时尚饮品之中。根据中国连锁经营协会团体标准《新茶饮术语和分类》，新茶饮是指以原叶茶和(或)茶汤、水果、现榨果蔬汁、原榨果汁、果汁、蔬菜汁、蔬菜、乳制品中一
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 根据最新消息，海南葫芦娃药业集团股份有限公司（以下简称“葫芦娃”）因信披违法违规，收到海南证监局下发的行政处罚事先告知书，上海市信本律师事务所赵敬国律师（执业证号：13101200410820485）提示，于2024年8月29日—2025年4月22日期间买入且有持仓，无论在2025年4月23日及之后是否卖出的投资者，可通过“新浪股民维权平台”自愿预登记索赔。
+这个春天，中国新茶饮品牌加速“出海”。
 
-（赵敬国律师专栏） 回顾本案，2025年12月26日葫芦娃收到中国证监会下发的《立案告知书》，因公司及董事长刘景萍女士涉嫌信息披露违法违规，中国证监会决定对其立案。
+1月30日，奈雪的茶美国西部首店落户硅谷；2月16日，喜茶加拿大首家先锋概念店亮相多伦多；4月11日，蜜雪冰城南美首店在巴西圣保罗开业…… 新茶饮“出海”，将茶文化“装”进全球年轻人喜爱的时尚饮品之中。
 
-2026年5月20日，葫芦娃及相关人员收到海南证监局下发的《行政处罚事先告知书》。
+根据中国连锁经营协会团体标准《新茶饮术语和分类》，新茶饮是指以原叶茶和(或)茶汤、水果、现榨果蔬汁、原榨果汁、果汁、蔬菜汁、蔬菜、乳制品中一种或多种为原料，添加或不添加其他食品，不添加固体饮料，经现场加工制成的液体或固液混合物。
 
-告知书显示：经查明，ST葫芦娃（维权）2023年年度报告、2024年半年度报告及《募集说明书》存在虚假记载。
+今年4月，中国连锁经营协会发布了“2026中国餐饮/新茶饮出海品牌50榜单”。
 
-信本股民索赔团队提醒，葫芦娃预处罚落地，因此受损投资者可通过“新浪股民维权平台”自愿预登记索赔。
+榜单显示，蜜雪冰城海外门店数量超过4000家，霸王茶姬海外门店超过200家，喜茶、茶百道、奈雪的茶、茶话弄、茉莉奶白等品牌也开设了若干海外门店。
 
-索赔条件： 葫芦娃：于2024年8月29日—2025年4月22日期间买入且有持仓，无论在2025年4月23日及之后是否卖出（具体赔付范围由法院确定）（葫芦娃维权入口） （本文由上海市信本律师事务所合伙人赵敬国律师供稿，不代表新浪财经的观点。
+许多消费者在这些海外门店前排队数小时，只为一品“东方味道”，中国新茶饮已成为名副其实的“排队王”。
 
-赵敬国律师，于1999年取得律师资格，法学理论知识扎实，曾在高校任教。
+圈粉海外市场中国新茶饮，在海外有多受欢迎？
 
-2004年起开始律师执业，承办过千余起各类诉讼案件，积累了十分丰富的争议处理经验，尤其擅长处理证券纠纷、金融、不良资产等方面的业务。
+1月30日，奈雪的茶在美国硅谷开业当天，店外排起长长的队伍——队伍从门店入口延伸至广场主街道，顾客最长等待时间超3小时。
 
 ## 相关推荐
 
-- 2026-06-29 16:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
-- 2026-06-29 16:08 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 16:33 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-29 16:12 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-29 16:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-29 16:33 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
-- 2026-06-29 16:15 - [智界V9成为高端圈层共同选择](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-29 16:08 - [TLAW vs DCG MSI](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mnelz.md)
-- 2026-06-29 16:25 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-29 16:20 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
-- 2026-06-29 16:10 - [白宇摘下白玉兰送给杨幂](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-29 16:22 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zeqia.md)
+- 2026-06-29 16:21 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
+- 2026-06-29 16:35 - [媒体：中国田径压力与期待并存](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-29 16:14 - [TLAW vs DCG MSI](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-29 16:25 - [东方风云榜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-29 16:41 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-29 16:29 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kkcbi.md)
+- 2026-06-29 16:23 - [把古诗里的动作换成加班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzqhr.md)
+- 2026-06-29 16:27 - [央视曝光高价回收老物件骗局](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-29 16:37 - [曹格把擦腋下的毛巾扔给粉丝](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-29 16:34 - [韩国队如何把94%出线概率打到0%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niesuan.md)
+- 2026-06-29 16:24 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liaole.md)
+- 2026-06-29 16:34 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clqap.md)
+- 2026-06-29 16:41 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
+- 2026-06-29 16:29 - [德国VS巴拉圭前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rmjqe.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [日本主帅：对战胜巴西很有信心](http://www.blog.minike.top/Article/details/666986369.shtml)
-- 2026-06-29 16:23 - [当我回母校教书](https://www.share.minike.top/Article/details/702264976.shtml)
-- 2026-06-29 16:21 - [巴西发布对阵日本宣传片](http://www.blog.kurohicncr.top/Article/details/17636.shtml)
-- 2026-06-29 16:20 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/0233711849.shtml)
-- 2026-06-29 16:34 - [国家体育总局政策法规司原副司长获刑](http://www.blog.minike.top/Article/details/92895912.shtml)
-- 2026-06-29 16:25 - [CORTIS登机迟到致航班延误](http://www.blog.kurohicncr.top/Article/details/83969795951.shtml)
-- 2026-06-29 16:33 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/21282752.shtml)
-- 2026-06-29 16:21 - [87克大金链到老庙黄金维修少了11克](http://www.share.minike.top/Article/details/1935136.shtml)
-- 2026-06-29 16:20 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/7596742.shtml)
-- 2026-06-29 16:12 - [曝斯塔默有意竞逐下任北约秘书长](https://www.blog.minike.top/Article/details/867141586106.shtml)
-- 2026-06-29 16:08 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.share.minike.top/Article/details/6191964437.shtml)
-- 2026-06-29 16:15 - [CORTIS登机迟到致航班延误](https://www.share.kurohicncr.top/Article/details/898134763470.shtml)
-- 2026-06-29 16:24 - [小孩曾卓君夺第八个EVO冠军](https://www.share.minike.top/Article/details/0241552886.shtml)
-- 2026-06-29 16:27 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.kurohicncr.top/Article/details/36193780.shtml)
-- 2026-06-29 16:22 - [AG 宫斗](https://www.blog.minike.top/Article/details/072464.shtml)
+- 2026-06-29 16:29 - [千亿存储巨头悄悄在深圳蛰伏](https://www.share.minike.top/Article/details/32766679.shtml)
+- 2026-06-29 16:32 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/851029308918.shtml)
+- 2026-06-29 16:27 - [于小华病逝 曾给小龙女和冯程程配音](https://www.blog.kurohicncr.top/Article/details/234174.shtml)
+- 2026-06-29 16:28 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.blog.minike.top/Article/details/781641323.shtml)
+- 2026-06-29 16:18 - [爱很美味](https://www.share.minike.top/Article/details/19185.shtml)
+- 2026-06-29 16:39 - [苹果回应恋与深空低分](http://www.blog.kurohicncr.top/Article/details/38294928948.shtml)
+- 2026-06-29 16:35 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.kurohicncr.top/Article/details/039657470676.shtml)
+- 2026-06-29 16:28 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/9095539.shtml)
+- 2026-06-29 16:38 - [请回答王牌2019](http://www.share.kurohicncr.top/Article/details/319525263.shtml)
+- 2026-06-29 16:36 - [疑似吴建豪老婆正脸照](https://www.blog.kurohicncr.top/Article/details/82306580.shtml)
+- 2026-06-29 16:13 - [业内：全球市场迎来结构性投资窗口](https://www.share.kurohicncr.top/Article/details/848471632.shtml)
+- 2026-06-29 16:35 - [沙丘](http://www.blog.minike.top/Article/details/1651891.shtml)
+- 2026-06-29 16:41 - [于小华病逝 曾给小龙女和冯程程配音](http://www.blog.minike.top/Article/details/645894029.shtml)
+- 2026-06-29 16:33 - [青春环游记第三季](https://www.share.minike.top/Article/details/36104455.shtml)
+- 2026-06-29 16:17 - [运20飞机列装空军十周年](http://www.blog.minike.top/Article/details/9991583.shtml)

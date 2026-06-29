@@ -1,56 +1,57 @@
-# ATFX走进菲律宾圣拉萨尔大学:举办风险轮盘专题讲座
+# 广西交易团“智”造出海出圈 广交会斩获颇丰
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-专题：ATFX外汇专栏投稿 5月22日，ATFX动态：变幻莫测的市场中，风险从何而来，又从何而去一直都是不少新人投资者所考虑的核心问题。菲律宾巴科洛德的圣拉萨尔大学（niversity of St． La Salle）中坐着一群对金融市场渴望了解的管理会计专业的大学生。而对于还未出社会的大学生来说，“金融投资”四个字，大概率停留在新闻标题里——要么是“某人一夜暴富”的传奇，要么
+中新网南宁4月22日电 (王以照)广西壮族自治区商务厅4月21日介绍，第139届广交会一期举办期间，广西交易团紧扣“先进制造”主题，组织企业亮相新能源汽车、工程机械、电子消费品等核心展区，并同步开展多场经贸活动，成果丰硕。 在新能源汽车及智慧出行领域，东风柳州汽车有限公司首次以“商用车+乘用车”双展位展出四款海外车型，开展首日收获采购商有效留资超100批，与东南亚、中东、南美、
 
 ## 正文
 
-专题：ATFX外汇专栏投稿 5月22日，ATFX动态：变幻莫测的市场中，风险从何而来，又从何而去一直都是不少新人投资者所考虑的核心问题。
+中新网南宁4月22日电 (王以照)广西壮族自治区商务厅4月21日介绍，第139届广交会一期举办期间，广西交易团紧扣“先进制造”主题，组织企业亮相新能源汽车、工程机械、电子消费品等核心展区，并同步开展多场经贸活动，成果丰硕。
 
-菲律宾巴科洛德的圣拉萨尔大学（niversity of St． La Salle）中坐着一群对金融市场渴望了解的管理会计专业的大学生。
+在新能源汽车及智慧出行领域，东风柳州汽车有限公司首次以“商用车+乘用车”双展位展出四款海外车型，开展首日收获采购商有效留资超100批，与东南亚、中东、南美、非洲等地采购商现场签订谅解备忘录，覆盖右舵新能源乘用车、露营车、商用车等品类。
 
-而对于还未出社会的大学生来说，“金融投资”四个字，大概率停留在新闻标题里——要么是“某人一夜暴富”的传奇，要么是“又有人错了”的警示。
+广西汽车集团携旗下五菱工业、五菱新能源亮相展会，集中展示了集团在新能源整车、非道路车、定制客车等领域的创新成果，现场吸引了多国客商洽谈。
 
-至于金融市场是什么、风险到底怎么管理，多数人说不上来，也没人认真跟他们讲过。
+在工程机械领域，广西玉柴装备科技有限公司全球首发Y90-2PB工程机械设备，斩获东欧、南美、非洲批量订单，首批意向订单超300台。
 
-ATFX图▲ 直到ATFX的到来，我们把一场名为“风险轮盘：聪明交易，从理解风险开始”的专题讲座，搬进了这所大学的教室。
+广西徐沃工程机械设备有限公司首展新型碎木机及全自动伐木机，精准对接巴西、葡萄牙、英国、爱尔兰等专业采购商，已敲定多位高意向客户工厂考察行程。
 
-本次讲座由ATFX市场分析师Gab Santos担任主讲嘉宾，课程内容涵盖包括金融市场基础介绍与运作机制、市场的核心概念与交易逻辑、风险管理意识的重要性与实际应用，以及行业的职业发展路径与机会。
+在加工机械设备领域，广西瑞杰炉渣装备制造有限公司首次参展，展示炉渣资源化处理成套装备，吸引18个国家和地区采购商超120批次，11家明确合作意向，意向订单金额预计超680万元。
 
-ATFX图▲ 一场不教“怎么收益”的研讨会 ATFX市场分析师Gab Santos并没有上来就讲K线、讲指标、讲策略，而是抛出问题：“你们觉得，做投资最难的是什么？
+展会期间，广西交易团举办多场供应商采购商对接活动。
 
-” 坐下的与会者的回答众说纷纭，有人认为是选择，也有人说是方向的判断，还有人半开玩笑的说到可能是运气的问题。
+东风柳州汽车有限公司在第139届广交会粤港澳大湾区产供链对接会(中国香港专场)上成功与采购商达成新能源计程车意向合作订单。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [有什么好的高中网课推荐吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvfck.md)
-- 2026-06-29 16:28 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elcqb.md)
-- 2026-06-29 16:22 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
-- 2026-06-29 16:08 - [一切尽在掌握！败者组归来拿下第八个EVO冠军！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pivau.md)
-- 2026-06-29 16:11 - [波兰创该国高温纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-29 16:08 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-29 16:19 - [南非老帅布罗斯的梦没能做完](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-29 16:13 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
-- 2026-06-29 16:21 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chaowu.md)
-- 2026-06-29 16:23 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waimi.md)
+- 2026-06-29 16:22 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tsdyg.md)
+- 2026-06-29 16:27 - [林昀儒止步美国大满贯首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
+- 2026-06-29 16:25 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
+- 2026-06-29 16:39 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qielu.md)
+- 2026-06-29 16:26 - [安切洛蒂称像对待决赛一样备战日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-29 16:38 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
+- 2026-06-29 16:39 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dprco.md)
+- 2026-06-29 16:35 - [伊朗队员在酒店看球从狂喜到绝望](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-29 16:20 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pbgis.md)
+- 2026-06-29 16:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-29 16:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:07 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/88327814772.shtml)
-- 2026-06-29 16:22 - [博主：比亚迪赢了销量却输给资本](https://www.share.minike.top/Article/details/3756166.shtml)
-- 2026-06-29 16:21 - [电影《抓特务》总票房破亿](https://www.blog.minike.top/Article/details/90435824713.shtml)
-- 2026-06-29 16:23 - [端午节加班工资应该怎么算](http://www.share.minike.top/Article/details/01732080232.shtml)
-- 2026-06-29 16:23 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.share.minike.top/Article/details/45754239982.shtml)
-- 2026-06-29 16:35 - [美的“卡bug”空调在欧洲卖爆](http://www.blog.kurohicncr.top/Article/details/460350928.shtml)
-- 2026-06-29 16:10 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/13775470264.shtml)
-- 2026-06-29 16:32 - [工作靠AI算不算职场作弊](https://www.share.kurohicncr.top/Article/details/50876447.shtml)
-- 2026-06-29 16:34 - [东方风云榜红毯](https://www.blog.minike.top/Article/details/986574179062.shtml)
-- 2026-06-29 16:30 - [把古诗里的动作换成加班](https://www.share.kurohicncr.top/Article/details/4465774.shtml)
-- 2026-06-29 16:27 - [蜘蛛侠:平行宇宙](http://www.blog.kurohicncr.top/Article/details/29951490.shtml)
-- 2026-06-29 16:09 - [宜宾珙县部分地区因地震停电 正抢修](http://www.share.minike.top/Article/details/34129312.shtml)
-- 2026-06-29 16:16 - [孙颖莎将迎来本届美国大满贯首秀](http://www.blog.kurohicncr.top/Article/details/3702172244.shtml)
-- 2026-06-29 16:11 - [斗破苍穹](http://www.share.minike.top/Article/details/0442638438.shtml)
-- 2026-06-29 16:14 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/07478707234.shtml)
+- 2026-06-29 16:14 - [毒液2](http://www.blog.minike.top/Article/details/706205.shtml)
+- 2026-06-29 16:18 - [中央气象台发布强对流天气蓝色预警](https://www.share.minike.top/Article/details/314151839.shtml)
+- 2026-06-29 16:31 - [利率一再降 “存款搬家”搬去哪](http://www.share.minike.top/Article/details/327419785.shtml)
+- 2026-06-29 16:23 - [紫雅妈妈抱着女儿衣物崩溃](http://www.share.kurohicncr.top/Article/details/558328.shtml)
+- 2026-06-29 16:13 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/373849.shtml)
+- 2026-06-29 16:33 - [中方在台湾岛以东海域活动合理合法](http://www.share.kurohicncr.top/Article/details/6796908.shtml)
+- 2026-06-29 16:16 - [小鹏MONAL03预售定档7月2日](http://www.blog.kurohicncr.top/Article/details/44907.shtml)
+- 2026-06-29 16:34 - [日本主教练回应迎战巴西](http://www.share.minike.top/Article/details/056256.shtml)
+- 2026-06-29 16:13 - [7月1日起一批新规即将落地](https://www.share.kurohicncr.top/Article/details/0915282.shtml)
+- 2026-06-29 16:29 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/4951594069.shtml)
+- 2026-06-29 16:35 - [疑似吴建豪老婆正脸照](https://www.share.minike.top/Article/details/0761639.shtml)
+- 2026-06-29 16:29 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/34023.shtml)
+- 2026-06-29 16:35 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/807756.shtml)
+- 2026-06-29 16:33 - [曝歌手第七期帮唱阵容](https://www.share.kurohicncr.top/Article/details/97476984.shtml)
+- 2026-06-29 16:14 - [欧洲多国激辩“装不装空调”](http://www.share.kurohicncr.top/Article/details/23735022065.shtml)

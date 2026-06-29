@@ -1,57 +1,57 @@
-# 中国首个区域性城市足球联赛“东北超”开赛
+# 博时宏观观点：短期A股有望围绕业绩进行交易
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新社沈阳5月23日电 (韩宏 杨茜茜)2026年东北地区城市足球联赛(以下简称“东北超”)23日晚在沈阳、长春、哈尔滨、呼和浩特打响揭幕战。作为全国首个区域性城市足球联赛，该赛事旨在以草根足球为纽带，激活东北三省一区文旅体商融合新动能。 “东北超”由辽宁、吉林、黑龙江、内蒙古联合主办，八个城市协同联动，共设34场比赛。当晚，沈阳赛区由沈阳队对阵鸡西队，四个城市现场观赛人数超过
+债市已经有了相当修复，后续需要看通胀预期和风险偏好的变化；A股近期交易有望围绕年报和一季报进行；港股行情可能偏成长。 海外方面，美伊双方在第三方斡旋下保持外交沟通，临时停火，氛围边际回暖，但暂未达成实质性共识，霍尔木兹海峡通航量仍未恢复至正常水平。受美国通胀数据温和、地缘能源压力缓和影响，全球央行激进紧缩预期持续降温，全球风险情绪回暖。 国内方面，国内一季度实际GDP同比增长较
 
 ## 正文
 
-中新社沈阳5月23日电 (韩宏 杨茜茜)2026年东北地区城市足球联赛(以下简称“东北超”)23日晚在沈阳、长春、哈尔滨、呼和浩特打响揭幕战。
+债市已经有了相当修复，后续需要看通胀预期和风险偏好的变化；A股近期交易有望围绕年报和一季报进行；港股行情可能偏成长。
 
-作为全国首个区域性城市足球联赛，该赛事旨在以草根足球为纽带，激活东北三省一区文旅体商融合新动能。
+海外方面，美伊双方在第三方斡旋下保持外交沟通，临时停火，氛围边际回暖，但暂未达成实质性共识，霍尔木兹海峡通航量仍未恢复至正常水平。
 
-“东北超”由辽宁、吉林、黑龙江、内蒙古联合主办，八个城市协同联动，共设34场比赛。
+受美国通胀数据温和、地缘能源压力缓和影响，全球央行激进紧缩预期持续降温，全球风险情绪回暖。
 
-当晚，沈阳赛区由沈阳队对阵鸡西队，四个城市现场观赛人数超过10万人次。
+国内方面，国内一季度实际GDP同比增长较去年4季度回升0.5个百分点至5%，而名义GDP同比增长跳升1个百分点至4.9%，GDP平减指数接近转正，通胀指标温和修复，内需贡献上升。
 
-本届赛事树立“为城市而战”理念，从各城市数万名报名者中选拔出390名参赛球员，包括学生、快递员、企业职工等各行各业。
+春节偏晚使得3月工业生产、出口及投资等指标有所回落，但仍具备一定韧性。
 
-常规赛每轮各个省区都有一个主场，票价不超过20元(人民币，下同)。
+市场策略方面，债券方面，上周宽松资金面提供支撑，特别国债发行预期反复波动，债市各期限均走强。
 
-同时，全部赛事均启用视频助理裁判系统(VAR)，超70%比赛监督具备职业联赛从业资质，超60%裁判员为国家级裁判。
+近期市场对地缘风险冲击有所钝化，美伊谈判窗口期消息面边际平静，基本面和信贷表现偏弱以及资金价格持续低位利好债市。
 
-赛场外，四省区联合打造“超游东北”文化IP，辽宁百余家知名旅游景区推出免票优惠，吉林打造精品文旅线路，黑龙江计划开展500场以上促消费活动，内蒙古推出299元文旅一卡通。
+政策温和背景下，二季度经济和信贷数据或难见改善，银行配债力量有望强化、利好债市，但需关注美伊冲突持续演化下通胀预期和风险偏好的变化。
 
 ## 相关推荐
 
-- 2026-06-29 16:11 - [中国空间站为什么要升级扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jnzol.md)
-- 2026-06-29 16:32 - [利率一再降 “存款搬家”搬去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
-- 2026-06-29 16:27 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-29 16:14 - [恋与深空发放补偿未得到玩家认可](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cgbee.md)
-- 2026-06-29 16:22 - [恋与深空 731](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
-- 2026-06-29 16:28 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuling.md)
-- 2026-06-29 16:33 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-29 16:12 - [众星恭喜吴建豪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lemjh.md)
-- 2026-06-29 16:08 - [爸爸当家](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-29 16:26 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
-- 2026-06-29 16:19 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaishao.md)
+- 2026-06-29 16:29 - [我国文化产业营收规模突破20万亿元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
+- 2026-06-29 16:15 - [妹妹的正确用法！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
+- 2026-06-29 16:24 - [评论员：高温撕开欧洲“遮羞布”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cdejs.md)
+- 2026-06-29 16:25 - [小西蒙尼：我实现参加世界杯的梦想](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
+- 2026-06-29 16:19 - [韩国主帅辞职5分钟念完双手插兜离场](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-29 16:33 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 16:13 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzpwf.md)
+- 2026-06-29 16:26 - [三只羊大课堂回应大杨哥改卖课传闻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qogdr.md)
+- 2026-06-29 16:41 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
+- 2026-06-29 16:13 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuangzhao.md)
+- 2026-06-29 16:15 - [360万法拉利被多名孩童当滑梯玩耍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:09 - [法拉利被4个孩子当滑梯玩](http://www.share.kurohicncr.top/Article/details/327028.shtml)
-- 2026-06-29 16:31 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/49922.shtml)
-- 2026-06-29 16:20 - [疑似吴建豪老婆正脸照](https://www.blog.minike.top/Article/details/2284757864.shtml)
-- 2026-06-29 16:18 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.share.minike.top/Article/details/267931.shtml)
-- 2026-06-29 16:18 - [网警提醒4类高考查分陷阱考生速看](https://www.share.kurohicncr.top/Article/details/95658.shtml)
-- 2026-06-29 16:22 - [韩国队差旅费亏麻了](http://www.blog.minike.top/Article/details/229692.shtml)
-- 2026-06-29 16:10 - [青春环游记第三季](https://www.share.minike.top/Article/details/8528963163.shtml)
-- 2026-06-29 16:14 - [我国多领域发布亮眼“成绩单”](http://www.blog.kurohicncr.top/Article/details/71223.shtml)
-- 2026-06-29 16:28 - [在巴西能拍到什么？](http://www.blog.kurohicncr.top/Article/details/2846860087.shtml)
-- 2026-06-29 16:08 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/710956698.shtml)
-- 2026-06-29 16:07 - [两个教官【皮影人行动4.0】](http://www.blog.kurohicncr.top/Article/details/26304.shtml)
-- 2026-06-29 16:06 - [戴军否认1993年月入过万](https://www.share.minike.top/Article/details/2087410624.shtml)
-- 2026-06-29 16:35 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](https://www.blog.minike.top/Article/details/64186323.shtml)
-- 2026-06-29 16:12 - [A股收评：科创50指数大涨4.61%](http://www.share.minike.top/Article/details/819545.shtml)
-- 2026-06-29 16:24 - [普京为何喊话俄乌都别打对方纵深](http://www.blog.minike.top/Article/details/997219369.shtml)
+- 2026-06-29 16:24 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/64267.shtml)
+- 2026-06-29 16:36 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://www.blog.kurohicncr.top/Article/details/3580329482.shtml)
+- 2026-06-29 16:22 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.blog.minike.top/Article/details/888164462.shtml)
+- 2026-06-29 16:13 - [南部战区位南海海域进行例行巡航](http://www.share.minike.top/Article/details/70325966.shtml)
+- 2026-06-29 16:23 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.share.kurohicncr.top/Article/details/8837181384.shtml)
+- 2026-06-29 16:14 - [业内：全球市场迎来结构性投资窗口](https://www.share.minike.top/Article/details/94631.shtml)
+- 2026-06-29 16:14 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/19734233733.shtml)
+- 2026-06-29 16:29 - [世界杯淘汰赛首轮五场焦点对决](http://www.share.kurohicncr.top/Article/details/89647924862.shtml)
+- 2026-06-29 16:13 - [谢霆锋王菲十指紧扣一起走](https://www.share.kurohicncr.top/Article/details/69676572.shtml)
+- 2026-06-29 16:24 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.kurohicncr.top/Article/details/5077627029.shtml)
+- 2026-06-29 16:40 - [五粮液回应宜宾地震影响](https://www.share.kurohicncr.top/Article/details/48179.shtml)
+- 2026-06-29 16:20 - [永远有话聊的原因](https://www.blog.kurohicncr.top/Article/details/7560629582.shtml)
+- 2026-06-29 16:19 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/811819051197.shtml)
+- 2026-06-29 16:15 - [龟梨和也田中美奈实结婚](http://www.share.minike.top/Article/details/446106313368.shtml)
+- 2026-06-29 16:27 - [苹果回应恋与深空低分](http://www.blog.minike.top/Article/details/3674784.shtml)

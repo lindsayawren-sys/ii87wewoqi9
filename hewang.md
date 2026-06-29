@@ -1,54 +1,61 @@
-# “科技馆体系协同开展区域性科学教育中心建设项目”进行总结交流
+# 美股半导体全线上涨，纳微半导体狂飙20%，热门中概股普跌，爱奇艺跌超5%
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。 “科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，
+记者|黎雨桐 见习记者林芊蔚 编辑|张楠 北京时间4月21日晚，美股三大指数小幅高开，截至22点，纳指涨0.33%，道指涨0.73%，标普500指数涨0.31%。 大型科技股涨跌不一，苹果跌约0.8%，微软涨超1%。亚马逊涨近2%，据财联社，亚马逊将向Anthropic投资至多250亿美元，而 Anthropic则承诺未来十年将在AWS技术方面投入超过1000亿美元，旨在快速扩
 
 ## 正文
 
-中新网北京5月22日电 (记者 孙自法)中国科技馆5月22日向媒体通报说，“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动5月21日至22日在郑州科技馆举办，郑州、包头、绍兴、武威、滨州、日照、合肥、泉州、遵义、曲靖等10家科技馆分别汇报项目完成情况和取得成效。
+记者|黎雨桐 见习记者林芊蔚 编辑|张楠 北京时间4月21日晚，美股三大指数小幅高开，截至22点，纳指涨0.33%，道指涨0.73%，标普500指数涨0.31%。
 
-“科技馆体系协同开展区域性科学教育中心建设项目”自2024年启动以来，中国科技馆联动10所地市级科技馆，充分发挥区域性枢纽作用，聚焦机制模式探索、资源研发供给、科学教师研修、专家库资源库共建共享、科学教育研究实践五大核心任务，立足区域特色、深耕实践创新，在体制机制上破局、在资源供给上提质、在师资培养上赋能、在平台共建上聚力、在研究实践上深耕。
+大型科技股涨跌不一，苹果跌约0.8%，微软涨超1%。
 
-目前，该项目不仅形成一批可复制、可推广的建设成果与典型经验，丰富了科技馆行业智库资源，而且有效开拓了科技馆联合教育部门、大中小学及社会资源单位协同开展科学教育的新路径，初步形成家校社创新合作与多元协同育人的新局面。
+亚马逊涨近2%，据财联社，亚马逊将向Anthropic投资至多250亿美元，而 Anthropic则承诺未来十年将在AWS技术方面投入超过1000亿美元，旨在快速扩充算力。
 
-“科技馆体系协同开展区域性科学教育中心建设项目”总结交流活动现场，还举行建设成果展示和优质科普活动展演，10所地市级科技馆分别展示项目周期内开发的优质科教资源，涵盖科学课资源包、活动教具、活动手册等，不仅内容丰富、形式多样，而且地域特色鲜明。
+美股半导体股多数走强，费城半导体指数涨逾1%。
 
-在科普展演环节，各馆则带来科学与文化融合的科普课程。
+纳微半导体劲升逾20%，月内已累升约80%；迈威尔科技升逾3%，月内已累升逾50%；英特尔、蓝博士半导体涨超2%，闪迪、美光科技、ARM涨超1%。
 
-中国科技馆称，下一步将继续发挥示范引领作用，加强经验总结与顶层谋划，持续强化体系协同，通过区域联动筑牢教育强国建设根基，开创“十五五”科学教育发展新局面。
+光通信概念股延续涨势，Lumentum涨2.5%，康宁、Coherent涨超2%。
 
-(完)
+中概科技龙头集体下挫，阿里巴巴、腾讯、百度、京东均跌超1%，比亚迪、网易跌近2%，拼多多跌超2%。
+
+纳斯达克中国金龙指数跌1%，联掌门户跌超13%，化工股德克森跌10%，爱奇艺跌超5%，再鼎医药、世纪互联跌超4%，哔哩哔哩跌超3%。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 16:09 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rteyp.md)
-- 2026-06-29 16:34 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-29 16:31 - [小娘惹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
-- 2026-06-29 16:13 - [北约升级对俄军事打击，将如何影响全球战略格局的走向？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-29 16:33 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-29 16:23 - [【深度科普】为什么AI越聪明，你反而越不会工作了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-29 16:15 - [刘扬任湖南省副省长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
-- 2026-06-29 16:30 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 16:17 - [南部战区位南海海域进行例行巡航](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpmkg.md)
+- 2026-06-29 16:31 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-29 16:34 - [博主：比亚迪赢了销量却输给资本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-29 16:27 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-29 16:26 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-29 16:37 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dingguai.md)
+- 2026-06-29 16:31 - [医院大厅放钢琴是形式主义吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-29 16:35 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-29 16:40 - [葛军谈AI时代理科生出路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaonong.md)
+- 2026-06-29 16:15 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dacxi.md)
+- 2026-06-29 16:33 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cfemm.md)
+- 2026-06-29 16:40 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-29 16:26 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvhzp.md)
+- 2026-06-29 16:18 - [吴建豪老婆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
+- 2026-06-29 16:35 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niaopen.md)
+- 2026-06-29 16:22 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:08 - [青春环游记第三季](http://www.blog.minike.top/Article/details/854393453.shtml)
-- 2026-06-29 16:11 - [央视曝光涉黄App诈骗陷阱](http://www.blog.kurohicncr.top/Article/details/169669948.shtml)
-- 2026-06-29 16:10 - [上海一小区水池内出现一条鳄鱼](http://www.blog.minike.top/Article/details/568979165191.shtml)
-- 2026-06-29 16:32 - [普京承认俄出现燃料危机](http://www.blog.kurohicncr.top/Article/details/2906156.shtml)
-- 2026-06-29 16:18 - [于北辰210%拦截率登大陆考卷遭狠嘲](http://www.share.kurohicncr.top/Article/details/77735810946.shtml)
-- 2026-06-29 16:29 - [WTT美国大满贯王曼昱首秀告捷](https://www.blog.minike.top/Article/details/357354615565.shtml)
-- 2026-06-29 16:23 - [挪威王储妃长子2次强奸被判4年](http://www.share.kurohicncr.top/Article/details/16488.shtml)
-- 2026-06-29 16:16 - [普京：建议乌俄停止打击对方纵深目标](https://www.share.kurohicncr.top/Article/details/60856155278.shtml)
-- 2026-06-29 16:18 - [德国VS巴拉圭前瞻](https://www.blog.kurohicncr.top/Article/details/001067.shtml)
-- 2026-06-29 16:29 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/57433493706.shtml)
-- 2026-06-29 16:29 - [自然资源部派专家赴宜宾地震影响区](https://www.blog.kurohicncr.top/Article/details/06232365741.shtml)
-- 2026-06-29 16:22 - [巴黎两家殡仪馆爆满](http://www.share.minike.top/Article/details/2279368.shtml)
-- 2026-06-29 16:09 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/695775465.shtml)
-- 2026-06-29 16:11 - [超级计算机预测阿根廷和法国会师决赛](http://www.share.minike.top/Article/details/52894272111.shtml)
-- 2026-06-29 16:22 - [人形机器人](https://www.blog.minike.top/Article/details/281209087589.shtml)
+- 2026-06-29 16:34 - [配音演员于小华病逝 享年78岁](http://www.blog.minike.top/Article/details/3080117981.shtml)
+- 2026-06-29 16:25 - [央视曝光高价回收老物件骗局](https://www.blog.kurohicncr.top/Article/details/940887878348.shtml)
+- 2026-06-29 16:26 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/932897.shtml)
+- 2026-06-29 16:14 - [男子网购乖乖水迷晕女子后猥亵](http://www.share.kurohicncr.top/Article/details/630440258.shtml)
+- 2026-06-29 16:21 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/1802994648.shtml)
+- 2026-06-29 16:25 - [中国妇女评网游娱乐化女性安全](http://www.share.minike.top/Article/details/276523.shtml)
+- 2026-06-29 16:35 - [评论员：高温撕开欧洲“遮羞布”](https://www.blog.minike.top/Article/details/57415.shtml)
+- 2026-06-29 16:36 - [我用3千多根木棍做了张分压点阵床](http://www.share.kurohicncr.top/Article/details/91066.shtml)
+- 2026-06-29 16:31 - [妹妹的正确用法！](https://www.blog.minike.top/Article/details/15921192784.shtml)
+- 2026-06-29 16:15 - [苹果ultra2阔折叠已开模测试](https://www.blog.kurohicncr.top/Article/details/1827267.shtml)
+- 2026-06-29 16:17 - [加拿大绝杀南非：淘汰赛残酷开幕](http://www.blog.kurohicncr.top/Article/details/398138967.shtml)
+- 2026-06-29 16:12 - [俄罗斯或全面禁止柴油出口有何影响](http://www.share.kurohicncr.top/Article/details/45385196.shtml)
+- 2026-06-29 16:37 - [莆田仙游一峡谷发生事故5人身亡](https://www.share.kurohicncr.top/Article/details/0686431.shtml)
+- 2026-06-29 16:20 - [国足前主帅：亚洲仅两队晋级不意外](http://www.blog.kurohicncr.top/Article/details/8700984.shtml)
+- 2026-06-29 16:40 - [AG 宫斗](http://www.blog.minike.top/Article/details/93179.shtml)

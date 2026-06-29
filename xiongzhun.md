@@ -1,58 +1,50 @@
-# 乡村消费活力，如何在“体验”中生发？
+# 光线传媒拟使用不超35亿闲置自有资金购买理财产品
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-农民日报全媒体记者钟欣祖爽李盎 乡村休闲旅游早已告别“拍照即走”的浅层观光，取而代之的是沉浸式、参与式、互动式的深度体验。村民在家门口就业、在田园里创业，钱包鼓了，心气足了。一幅“宜居、宜业、宜游”的新画卷，正因每一份真实的体验而徐徐展开，生生不息。 滇池东南岸，福安山静卧如眠。距云南省昆明市三十公里处，福安村这座自明代走来的古村，正以最温柔的姿态，迎接一日之初的天光。“叮叮叮
+4月21日晚间，光线传媒（300251.SZ）发布公告称，公司于2026年4月21日召开第六届董事会第十五次会议，审议通过了《关于使用闲置自有资金购买理财产品的议案》。为最大限度发挥公司闲置资金的作用，提高资金使用效率，实现收益最大化，在不影响公司正常经营及确保资金安全的前提下，公司（含子公司）拟在不超过35亿元额度内使用闲置自有资金择机购买理财产品。授权期限自董事会审议通过之
 
 ## 正文
 
-农民日报全媒体记者钟欣祖爽李盎 乡村休闲旅游早已告别“拍照即走”的浅层观光，取而代之的是沉浸式、参与式、互动式的深度体验。
+4月21日晚间，光线传媒（300251.SZ）发布公告称，公司于2026年4月21日召开第六届董事会第十五次会议，审议通过了《关于使用闲置自有资金购买理财产品的议案》。
 
-村民在家门口就业、在田园里创业，钱包鼓了，心气足了。
+为最大限度发挥公司闲置资金的作用，提高资金使用效率，实现收益最大化，在不影响公司正常经营及确保资金安全的前提下，公司（含子公司）拟在不超过35亿元额度内使用闲置自有资金择机购买理财产品。
 
-一幅“宜居、宜业、宜游”的新画卷，正因每一份真实的体验而徐徐展开，生生不息。
+授权期限自董事会审议通过之日起一年内有效，在上述额度及期限内，资金可滚动使用。
 
-滇池东南岸，福安山静卧如眠。
-
-距云南省昆明市三十公里处，福安村这座自明代走来的古村，正以最温柔的姿态，迎接一日之初的天光。
-
-“叮叮叮……”一阵小锤敲打的声音从村里的福珍坊传出，乌铜走银制作技艺代表性传承人李志明正敲打着薄薄的铜片，如今像他这样入驻非遗工坊的传承人在福安村还有很多。
-
-“五一”长假刚刚过去，这是他难得的清闲时光。
-
-“我们村推出的‘乡遇非遗’趣享手作活动让游客亲手体验乌铜走银、汉绣与香道，晚间还有热闹的‘福安村晚’，我每天都要接待、指导前来体验的游客！
+（央广财经）（文章来源：央广财经）
 
 ## 相关推荐
 
-- 2026-06-29 16:07 - [李在镕：计划将光州作为芯片生产基地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
-- 2026-06-29 16:24 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnvwk.md)
-- 2026-06-29 16:11 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 16:21 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-29 16:29 - [赵今麦瘦好多](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-29 16:27 - [警方回应东鹏饮料董事长不喝东鹏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
-- 2026-06-29 16:23 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongneng.md)
-- 2026-06-29 16:25 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzalw.md)
-- 2026-06-29 16:35 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
-- 2026-06-29 16:15 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 16:29 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
-- 2026-06-29 16:25 - [恋与深空评分暴跌至1.8](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhaoyan.md)
+- 2026-06-29 16:34 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-29 16:19 - [尹恩惠自曝14年没谈过恋爱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-29 16:39 - [女儿称是生父强奸所生拒付赡养费](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
+- 2026-06-29 16:24 - [杨紫视后第一场线下活动](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hafsm.md)
+- 2026-06-29 16:33 - [王楚钦开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanan.md)
+- 2026-06-29 16:39 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-29 16:17 - [A股割裂行情有变化了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roogq.md)
+- 2026-06-29 16:21 - [第一炉香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-29 16:35 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
+- 2026-06-29 16:30 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-29 16:35 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-29 16:38 - [驻日美军航母沦为“毒窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/62518705.shtml)
-- 2026-06-29 16:34 - [巴西球员：日本队有点傲慢了](https://www.blog.minike.top/Article/details/45950403154.shtml)
-- 2026-06-29 16:13 - [流金岁月](http://www.share.minike.top/Article/details/0303550078.shtml)
-- 2026-06-29 16:33 - [韩国队启程回国 全员羞愧低头](https://www.share.kurohicncr.top/Article/details/581164.shtml)
-- 2026-06-29 16:27 - [小西蒙尼：我实现参加世界杯的梦想](http://www.share.minike.top/Article/details/5665462188.shtml)
-- 2026-06-29 16:26 - [高市早苗口齿不清被质疑醉酒](http://www.blog.minike.top/Article/details/8736385.shtml)
-- 2026-06-29 16:06 - [赵今麦瘦好多](https://www.share.kurohicncr.top/Article/details/42176236.shtml)
-- 2026-06-29 16:25 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/44803965597.shtml)
-- 2026-06-29 16:33 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.kurohicncr.top/Article/details/982523.shtml)
-- 2026-06-29 16:13 - [评论员：日菲勾连各有盘算](http://www.share.kurohicncr.top/Article/details/1337700.shtml)
-- 2026-06-29 16:30 - [世界杯欧美八大豪强悉数出线](https://www.blog.kurohicncr.top/Article/details/54787331.shtml)
-- 2026-06-29 16:11 - [戴军否认1993年月入过万](http://www.share.kurohicncr.top/Article/details/984302206666.shtml)
-- 2026-06-29 16:25 - [上海一小区水池内出现一条鳄鱼](http://www.share.kurohicncr.top/Article/details/5244511.shtml)
-- 2026-06-29 16:18 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/9637417.shtml)
-- 2026-06-29 16:19 - [国内英语专业的教授、博导、博士……的英语水准，究竟比英美街头小混混、小流氓的英语溜多少？](http://www.blog.kurohicncr.top/Article/details/87703765508.shtml)
+- 2026-06-29 16:25 - [空调两年没洗 男子吹了三天双肺全白](https://www.share.minike.top/Article/details/36039.shtml)
+- 2026-06-29 16:41 - [福建仙游一峡谷发生意外 5游客身亡](http://www.blog.kurohicncr.top/Article/details/15779071686.shtml)
+- 2026-06-29 16:41 - [天道](http://www.blog.kurohicncr.top/Article/details/059690.shtml)
+- 2026-06-29 16:37 - [古力娜扎美出新高度](http://www.blog.kurohicncr.top/Article/details/312045425.shtml)
+- 2026-06-29 16:25 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/3828795.shtml)
+- 2026-06-29 16:30 - [四川宜宾地震](https://www.blog.kurohicncr.top/Article/details/64081.shtml)
+- 2026-06-29 16:23 - [世界杯：巴西vs日本](http://www.share.kurohicncr.top/Article/details/02153354.shtml)
+- 2026-06-29 16:41 - [安切洛蒂称像对待决赛一样备战日本](http://www.blog.kurohicncr.top/Article/details/59837536630.shtml)
+- 2026-06-29 16:23 - [恋与深空发放补偿未得到玩家认可](https://www.share.kurohicncr.top/Article/details/18781939.shtml)
+- 2026-06-29 16:18 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/7271359.shtml)
+- 2026-06-29 16:31 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/56849842637.shtml)
+- 2026-06-29 16:23 - [周生如故](https://www.blog.minike.top/Article/details/78718225648.shtml)
+- 2026-06-29 16:37 - [韩国队如何把94%出线概率打到0%](http://www.share.minike.top/Article/details/3287836.shtml)
+- 2026-06-29 16:18 - [大疆7月15日起涨价？公司回应](https://www.share.minike.top/Article/details/9801724610.shtml)
+- 2026-06-29 16:34 - [小众羞耻点是吃麻辣烫](https://www.blog.kurohicncr.top/Article/details/208254563.shtml)

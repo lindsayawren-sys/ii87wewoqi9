@@ -1,56 +1,58 @@
-# 国家级人工智能（关键应用）产业知识产权运营中心在杭州揭牌
+# 网达软件业绩预告更正 受损股民可索赔
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月23日电(记者 王逸飞)23日，由中国人工智能学会主办的2026全球人工智能技术大会在位于杭州市余杭区的未来科技城开幕。当日的开幕式上，国家级人工智能(关键应用)产业知识产权运营中心揭牌。 据了解，该中心由杭州余杭未来科技城建设。自2021年获批启动建设以来，中心积极落实国家大力推动专利产业化的核心部署，举办各类知识产权专题培训、成果转化对接活动114场，辐射服务
+2026年4月16日晚，上海网达软件（维权）股份有限公司（简称：网达软件，代码：603189）发布《2025 年年度业绩预告更正公告》。 曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据业绩更正公告，该公司涉嫌证券虚假陈述，受损投资者可依法索赔。（厉健律师专栏） 公告显示，更正前的业绩预告情况：预计2025年年度实现利润总额为1，080.00万元至
 
 ## 正文
 
-中新网杭州5月23日电(记者 王逸飞)23日，由中国人工智能学会主办的2026全球人工智能技术大会在位于杭州市余杭区的未来科技城开幕。
+2026年4月16日晚，上海网达软件（维权）股份有限公司（简称：网达软件，代码：603189）发布《2025 年年度业绩预告更正公告》。
 
-当日的开幕式上，国家级人工智能(关键应用)产业知识产权运营中心揭牌。
+曾代理投资者告赢130余家上市公司并获赔的浙江裕丰律师事务所厉健律师表示，根据业绩更正公告，该公司涉嫌证券虚假陈述，受损投资者可依法索赔。
 
-据了解，该中心由杭州余杭未来科技城建设。
+（厉健律师专栏） 公告显示，更正前的业绩预告情况：预计2025年年度实现利润总额为1，080.00万元至1，600.00 万元。
 
-自2021年获批启动建设以来，中心积极落实国家大力推动专利产业化的核心部署，举办各类知识产权专题培训、成果转化对接活动114场，辐射服务浙江省金种子企业1.7万家，促成专利转让许可收入2641万元，发行知识产权证券化产品18单，融资规模近20亿元。
+预计2025年年度实现归属于母公司所有者的净利润为1，050.00 万元至1，550.00 万元。
 
-目前，该中心已通过国家知识产权局审定认定，成为全国首批聚焦人工智能产业，以知识产权全链条运营为目标的国家级产业运营中心，也是余杭首个知识产权领域的国家级产业平台。
+预计2025年年度实现归属于母公司所有者的扣除非经常性损益后的净利润360.00万元至600.00万元。
 
-其正式揭牌将推动人工智能关键应用领域的知识产权创造、保护与转化迈向更高能级。
+预计2025年年度实现营业收入25，000.00万元至33，000.00万元；更正后的业绩预告情况：预计2025年年度实现归属于母公司所有者的利润总额为100.00万元至300.00万元。
 
-为期两天的本次大会，是全球人工智能技术大会连续7年在余杭举办。
+预计2025年年度实现归属于母公司所有者的净利润为350.00万元至600.00万元。
 
-作为“浙江经济第一区”，余杭2025年人工智能核心产业营收已突破1180亿元。
+预计2025年年度实现归属于母公司所有者的扣除非经常性损益后的净利润-250.00万元至-100.00万元。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [共享单车“价格刺客”79分钟30元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lrntj.md)
-- 2026-06-29 16:28 - [乔家的儿女](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
-- 2026-06-29 16:27 - [普京：建议乌俄停止打击对方纵深目标](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjmds.md)
-- 2026-06-29 16:11 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 16:32 - [中国创新药股价要反攻了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
-- 2026-06-29 16:19 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
-- 2026-06-29 16:24 - [当地回应林区违规放羊遭豹啃食](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hualu.md)
-- 2026-06-29 16:21 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-29 16:32 - [评论员：日菲勾连各有盘算](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-29 16:28 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-29 16:30 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rundian.md)
+- 2026-06-29 16:16 - [BB大王横店拍戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-29 16:28 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-29 16:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuomai.md)
+- 2026-06-29 16:25 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caican.md)
+- 2026-06-29 16:23 - [2026世界杯谁能一黑到底](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/longao.md)
+- 2026-06-29 16:41 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
+- 2026-06-29 16:20 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-29 16:20 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-29 16:37 - [CORTIS登机迟到致航班延误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
+- 2026-06-29 16:12 - [人类对空调和其他家电有多双标](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
+- 2026-06-29 16:21 - [国足前主帅：亚洲仅两队晋级不意外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:18 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/098082495.shtml)
-- 2026-06-29 16:07 - [T1 3-0 KC赛后数据](http://www.share.minike.top/Article/details/969784949422.shtml)
-- 2026-06-29 16:33 - [勇敢的心第二部](https://www.share.minike.top/Article/details/60813323.shtml)
-- 2026-06-29 16:29 - [未成年少女长期吸毒导致卧床不起](https://www.share.minike.top/Article/details/43330899583.shtml)
-- 2026-06-29 16:29 - [南部战区位南海海域进行例行巡航](https://www.share.kurohicncr.top/Article/details/737941280064.shtml)
-- 2026-06-29 16:35 - [俄罗斯或全面禁止柴油出口有何影响](https://www.blog.kurohicncr.top/Article/details/54428110288.shtml)
-- 2026-06-29 16:31 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](http://www.blog.minike.top/Article/details/337859392591.shtml)
-- 2026-06-29 16:06 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.blog.minike.top/Article/details/48917.shtml)
-- 2026-06-29 16:28 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/290937113288.shtml)
-- 2026-06-29 16:32 - [湖北钟祥市委书记张勇拟任新职](https://www.share.kurohicncr.top/Article/details/61538.shtml)
-- 2026-06-29 16:14 - [巴西发布对阵日本宣传片](https://www.blog.minike.top/Article/details/9987185.shtml)
-- 2026-06-29 16:24 - [终于把好哥们处成了情侣!](http://www.share.kurohicncr.top/Article/details/030569.shtml)
-- 2026-06-29 16:17 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/9525201476.shtml)
-- 2026-06-29 16:24 - [本届世界杯已有5名球员卷入性侵风波](https://www.blog.kurohicncr.top/Article/details/40810.shtml)
-- 2026-06-29 16:18 - [我设置了全宇宙最安全的密码](https://www.share.minike.top/Article/details/9986350779.shtml)
+- 2026-06-29 16:32 - [波兰创该国高温纪录](https://www.blog.kurohicncr.top/Article/details/38865.shtml)
+- 2026-06-29 16:24 - [1个视频看懂2026志愿填报新专业](https://www.share.kurohicncr.top/Article/details/29304565952.shtml)
+- 2026-06-29 16:32 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://www.share.kurohicncr.top/Article/details/93011.shtml)
+- 2026-06-29 16:20 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/7294406602.shtml)
+- 2026-06-29 16:33 - [美国大满贯首日国乒主力均取胜](http://www.share.minike.top/Article/details/51420471685.shtml)
+- 2026-06-29 16:23 - [有什么好的高中网课推荐吗？](http://www.share.minike.top/Article/details/807878660.shtml)
+- 2026-06-29 16:16 - [恋与深空失控领地](https://www.blog.kurohicncr.top/Article/details/8223200108.shtml)
+- 2026-06-29 16:21 - [李小璐回应无戏可拍](http://www.blog.kurohicncr.top/Article/details/97255.shtml)
+- 2026-06-29 16:39 - [广东一地发现极危植物新物种](http://www.blog.minike.top/Article/details/92407228.shtml)
+- 2026-06-29 16:31 - [大 周 礼 时 代(4)](https://www.share.kurohicncr.top/Article/details/36667272.shtml)
+- 2026-06-29 16:35 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/00734.shtml)
+- 2026-06-29 16:25 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.blog.kurohicncr.top/Article/details/557315893.shtml)
+- 2026-06-29 16:27 - [媒体：中国田径压力与期待并存](http://www.blog.kurohicncr.top/Article/details/839496971.shtml)
+- 2026-06-29 16:21 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.minike.top/Article/details/287820.shtml)
+- 2026-06-29 16:13 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](https://www.blog.minike.top/Article/details/57898.shtml)

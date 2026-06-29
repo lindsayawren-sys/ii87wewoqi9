@@ -1,59 +1,58 @@
-# 传苹果、索尼、Netflix是IMAX最可能买家，分析师称PE可避平台冲突
+# 美联储候任主席沃什出席国会提名听证会
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-IMAX股价5月22日大涨约15%，此前有报道称这家巨幕影院技术公司正在探索出售，并已接触娱乐行业巨头作为潜在买家。Wedbush分析师Alicia Reese在5月22日报告中指出，苹果、索尼和Netflix是最符合逻辑的买家。 Wedbush认为，最可能的买家包括苹果、索尼、Netflix或私募股权公司。其中PE的优势在于可完全避免平台冲突问题，PE没有自己的内容发行，不会
+中新社华盛顿4月21日电 (记者 沙晗汀)美国联邦储备委员会候任主席、前理事凯文·沃什当地时间21日出席国会参议院银行、住房和城市事务委员会提名听证会。 沃什出生于1970年，2006年至2011年担任美联储理事，目前是斯坦福大学访问学者。美国总统特朗普1月30日提名沃什出任美联储主席。 在当天的提名听证会上，沃什强调，特朗普未要求其承诺对利率采取“特定决定”。沃什还说，即使特
 
 ## 正文
 
-IMAX股价5月22日大涨约15%，此前有报道称这家巨幕影院技术公司正在探索出售，并已接触娱乐行业巨头作为潜在买家。
+中新社华盛顿4月21日电 (记者 沙晗汀)美国联邦储备委员会候任主席、前理事凯文·沃什当地时间21日出席国会参议院银行、住房和城市事务委员会提名听证会。
 
-Wedbush分析师Alicia Reese在5月22日报告中指出，苹果、索尼和Netflix是最符合逻辑的买家。
+沃什出生于1970年，2006年至2011年担任美联储理事，目前是斯坦福大学访问学者。
 
-Wedbush认为，最可能的买家包括苹果、索尼、Netflix或私募股权公司。
+美国总统特朗普1月30日提名沃什出任美联储主席。
 
-其中PE的优势在于可完全避免平台冲突问题，PE没有自己的内容发行，不会与好莱坞制片厂形成竞争。
+在当天的提名听证会上，沃什强调，特朗普未要求其承诺对利率采取“特定决定”。
 
-Netflix的内容档期相对较薄，收购IMAX也不会阻碍其他制片厂使用该格式。
+沃什还说，即使特朗普有要求，他也不会同意，“如果出任美联储主席，我将保持独立性”。
 
-而对于苹果而言，收购IMAX对其资产负债表而言是一个可以忽略不计的数字，但可为Apple TV+高端内容提供重要的展示平台。
+沃什表示，美联储的独立性“至关重要”，总统、参议员、众议员对于利率的观点不应对美联储造成影响。
 
-但分析师普遍对好莱坞制片厂收购IMAX持保留态度。
+沃什还说，保证物价稳定是美联储的责任，抗击通胀将是他最重要的任务之一。
 
-Texas Capital Securities分析师Eric Wold指出，大型制片厂收购IMAX将直接引发档期和票房分成的利益冲突。
+特朗普当天接受媒体采访时表示，如果沃什上任后不降息，他会感到失望。
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [papi酱父亲再婚妻子仅比她大几岁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
-- 2026-06-29 16:32 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-29 16:29 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
-- 2026-06-29 16:27 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
-- 2026-06-29 16:35 - [2026赛季F1奥地利站正赛，拉塞尔杆位夺冠，维斯塔潘和安东内利分列2-3位，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hehai.md)
-- 2026-06-29 16:07 - [高考结束，该不该外出打工体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/leichen.md)
-- 2026-06-29 16:29 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
-- 2026-06-29 16:21 - [中国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
-- 2026-06-29 16:34 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbti.md)
-- 2026-06-29 16:32 - [四川宜宾地震](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eemnr.md)
-- 2026-06-29 16:32 - [韩国媒体给主教练洪明甫打马赛克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-29 16:13 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/baixiu.md)
-- 2026-06-29 16:23 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-29 16:25 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtkdu.md)
+- 2026-06-29 16:21 - [河南考699分女生已接到清华大学电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knfmc.md)
+- 2026-06-29 16:15 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-29 16:38 - [河南四位大妈景区跳舞爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-29 16:14 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kmdlw.md)
+- 2026-06-29 16:37 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
+- 2026-06-29 16:37 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
+- 2026-06-29 16:16 - [曝歌手第七期帮唱阵容](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bcodq.md)
+- 2026-06-29 16:22 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 16:34 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orcsz.md)
+- 2026-06-29 16:34 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 16:27 - [BB大王横店拍戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tzrpz.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [南昌市委书记调整](http://www.blog.minike.top/Article/details/0754988390.shtml)
-- 2026-06-29 16:29 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/43338.shtml)
-- 2026-06-29 16:24 - [巴西前锋说不出日本球员全场哄笑](http://www.share.kurohicncr.top/Article/details/92866.shtml)
-- 2026-06-29 16:13 - [葛军谈AI时代理科生出路](https://www.share.minike.top/Article/details/91090340268.shtml)
-- 2026-06-29 16:23 - [唐艺昕告别浪姐千字长文](https://www.share.minike.top/Article/details/4387131.shtml)
-- 2026-06-29 16:30 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.blog.kurohicncr.top/Article/details/22209.shtml)
-- 2026-06-29 16:16 - [中国多领域发布亮眼“成绩单”](https://www.blog.minike.top/Article/details/23050532569.shtml)
-- 2026-06-29 16:24 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/64172777.shtml)
-- 2026-06-29 16:32 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/93796394.shtml)
-- 2026-06-29 16:06 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.blog.minike.top/Article/details/95693957246.shtml)
-- 2026-06-29 16:07 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.blog.minike.top/Article/details/62151091.shtml)
-- 2026-06-29 16:29 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://www.blog.kurohicncr.top/Article/details/4744644.shtml)
-- 2026-06-29 16:21 - [小S在香港被偶遇](http://www.blog.kurohicncr.top/Article/details/046508460.shtml)
-- 2026-06-29 16:09 - [iPhone18系列预计将大幅涨价](http://www.share.kurohicncr.top/Article/details/27372.shtml)
-- 2026-06-29 16:31 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/54118169408.shtml)
+- 2026-06-29 16:37 - [7款商保创新药“转道”](https://www.share.kurohicncr.top/Article/details/3297761.shtml)
+- 2026-06-29 16:29 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/854176.shtml)
+- 2026-06-29 16:21 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://www.blog.minike.top/Article/details/85177.shtml)
+- 2026-06-29 16:18 - [和周杰伦在演唱会合唱了](https://www.blog.kurohicncr.top/Article/details/286210051.shtml)
+- 2026-06-29 16:18 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](http://www.blog.kurohicncr.top/Article/details/634075507737.shtml)
+- 2026-06-29 16:38 - [曾卓君夺得美国EVO 2026饿狼传说冠军](http://www.blog.kurohicncr.top/Article/details/3847980.shtml)
+- 2026-06-29 16:19 - [普京：俄罗斯面临命运攸关时刻](http://www.share.minike.top/Article/details/057449609.shtml)
+- 2026-06-29 16:28 - [中方将20家日本实体列入管控名单](http://www.blog.minike.top/Article/details/64831.shtml)
+- 2026-06-29 16:31 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.share.minike.top/Article/details/00734210969.shtml)
+- 2026-06-29 16:12 - [工作靠AI算不算职场作弊](http://www.blog.kurohicncr.top/Article/details/077391358.shtml)
+- 2026-06-29 16:33 - [马来西亚同意延长马航370残骸搜寻](http://www.share.minike.top/Article/details/99903793252.shtml)
+- 2026-06-29 16:30 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/41387.shtml)
+- 2026-06-29 16:19 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.kurohicncr.top/Article/details/8242188070.shtml)
+- 2026-06-29 16:37 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.blog.kurohicncr.top/Article/details/1852173399.shtml)
+- 2026-06-29 16:18 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/81953315981.shtml)

@@ -1,55 +1,59 @@
-# 国家卫健委：调派专家会同当地组成联合救治工作组 “一人一策”加强伤员救治
+# 中信证券：坚定看好商业航天产业长期发展 为投资端应更聚焦核心资产
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-2026年5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。 国家卫生健康委全力支持山西省做好伤员医疗救治和心理疏导等工作，迅速派出委分管负责同志和有关司局同志赶至现场指导应急救治调度；第一时间组织北京大学人民医院(国家创伤医学中心)和中日友好医院(国家呼吸医学中心)重症、呼吸、创伤专业专家，对收治伤员进行多学科远程会诊；调派北京
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：中信证券研究 亚马逊收购Globalstar有望落地，SpaceX加码布局太空算力，全球商业航天竞争正迎提速，国内可回收火箭也有望迎来突破。商业航天具备“政策强支持+中美强共振+产业强趋势”，年内国内可回收火箭或将迎来突破，产业发展料将进一步加速。我们坚定看好产业长期发展，认为投资端应更聚焦核心资产，
 
 ## 正文
 
-2026年5月22日，山西长治市沁源县山西通洲集团留神峪煤业有限公司井下发生瓦斯爆炸事故，造成重大人员伤亡。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-国家卫生健康委全力支持山西省做好伤员医疗救治和心理疏导等工作，迅速派出委分管负责同志和有关司局同志赶至现场指导应急救治调度；第一时间组织北京大学人民医院(国家创伤医学中心)和中日友好医院(国家呼吸医学中心)重症、呼吸、创伤专业专家，对收治伤员进行多学科远程会诊；调派北京协和医院、北京积水潭医院(国家骨科医学中心)呼吸重症、创伤、烧伤专业专家赶至伤员收治医院，会同当地组成联合救治工作组，“一人一策”全力加强伤员救治；指导山西省选派省、市心理专家，对伤员及家属开展心理疏导支持。
+来源：中信证券研究 亚马逊收购Globalstar有望落地，SpaceX加码布局太空算力，全球商业航天竞争正迎提速，国内可回收火箭也有望迎来突破。
 
-国家卫生健康委将持续支持山西省做好伤员医疗救治等工作，根据需要随时调派国家级医疗力量，最大程度保障伤员生命安全。
+商业航天具备“政策强支持+中美强共振+产业强趋势”，年内国内可回收火箭或将迎来突破，产业发展料将进一步加速。
 
-同时，做好卫生健康领域安全生产风险隐患排查整治，加强值班值守，努力统筹发展和安全。
+我们坚定看好产业长期发展，认为投资端应更聚焦核心资产，寻找“通胀环节”及“边际新增”方向。
 
-(总台央视记者 文永毅 史迎春)
+▍亚马逊收购Globalstar有望落地，加速布局低轨通信业务。
+
+据证券时报，亚马逊4月14日宣布将以每股90美元的价格收购卫星运营商Globalstar，交易总价值约为115.7亿美元。
+
+据财联社，亚马逊与Globalstar的交易将提交给美国联邦通信委员会审查，其对亚马逊-Globalstar的交易持非常开放态度。
+
+根据证券时报，Globalstar当前运营24颗在轨卫星，拥有苹果支持下的54颗卫星扩展计划，同时持有L/S波段、Band 53/N53和C波段的全球频谱使用权，其中N53频谱为手机等设备与卫星进行D2D（直连设备）的核心频谱，已获得多国许可，具备较高战略价值。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csnfd.md)
-- 2026-06-29 16:21 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzrpz.md)
-- 2026-06-29 16:11 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingmang.md)
-- 2026-06-29 16:06 - [滾石唱片要求万豪酒店道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rqgpj.md)
-- 2026-06-29 16:20 - [当地回应林区违规放羊遭豹啃食](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
-- 2026-06-29 16:11 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-29 16:25 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
-- 2026-06-29 16:33 - [江语晨 好恨江语晨前夫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guazhen.md)
-- 2026-06-29 16:24 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gimww.md)
-- 2026-06-29 16:20 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umbuc.md)
-- 2026-06-29 16:18 - [媒体：中国田径压力与期待并存](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzfng.md)
-- 2026-06-29 16:31 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 16:20 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
-- 2026-06-29 16:21 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shipang.md)
-- 2026-06-29 16:12 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-29 16:27 - [105年初心滚烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 16:16 - [张雪机车杀向海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-29 16:40 - [领克900大型SUV值得购买吗?](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
+- 2026-06-29 16:37 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-29 16:13 - [福建仙游一峡谷发生意外5人身亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
+- 2026-06-29 16:25 - [利率一再降 “存款搬家”搬去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
+- 2026-06-29 16:41 - [戒掉咖啡后我的身体变化](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niyun.md)
+- 2026-06-29 16:24 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
+- 2026-06-29 16:41 - [唐艺昕告别浪姐千字长文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uyaux.md)
+- 2026-06-29 16:19 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
+- 2026-06-29 16:40 - [苹果回应恋与深空低分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-29 16:32 - [刘世锦：建议划拨20万亿国资充实社保](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mianse.md)
+- 2026-06-29 16:24 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaozhuai.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:10 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/1665837.shtml)
-- 2026-06-29 16:21 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.minike.top/Article/details/9502592877.shtml)
-- 2026-06-29 16:23 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.minike.top/Article/details/348304656933.shtml)
-- 2026-06-29 16:14 - [中国创新药股价要反攻了吗](https://www.share.minike.top/Article/details/08970.shtml)
-- 2026-06-29 16:33 - [外网预言中国举办世界杯时间](https://www.blog.kurohicncr.top/Article/details/456818.shtml)
-- 2026-06-29 16:12 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/3686383.shtml)
-- 2026-06-29 16:14 - [逃狱兄弟](http://www.blog.kurohicncr.top/Article/details/43037702.shtml)
-- 2026-06-29 16:22 - [TFING全员黑西装](http://www.blog.kurohicncr.top/Article/details/9316638.shtml)
-- 2026-06-29 16:14 - [唐国强打卡贵阳孔学堂](https://www.blog.minike.top/Article/details/4085416970.shtml)
-- 2026-06-29 16:10 - [欧盟为什么越来越倾向贸易保护](http://www.share.minike.top/Article/details/22197324215.shtml)
-- 2026-06-29 16:06 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/3984746.shtml)
-- 2026-06-29 16:25 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](http://www.share.minike.top/Article/details/456775705039.shtml)
-- 2026-06-29 16:34 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/2441404818.shtml)
-- 2026-06-29 16:16 - [一人一句祝党生日快乐](https://www.blog.kurohicncr.top/Article/details/138902.shtml)
-- 2026-06-29 16:14 - [南昌市委书记调整](http://www.share.minike.top/Article/details/816068575539.shtml)
+- 2026-06-29 16:31 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/113254.shtml)
+- 2026-06-29 16:25 - [WTT美国大满贯王曼昱首秀告捷](https://www.share.kurohicncr.top/Article/details/1599978.shtml)
+- 2026-06-29 16:32 - [第一炉香](http://www.share.kurohicncr.top/Article/details/27194069497.shtml)
+- 2026-06-29 16:18 - [委内瑞拉2400亿美元债务怎么还](https://www.blog.minike.top/Article/details/338634889623.shtml)
+- 2026-06-29 16:18 - [母亲去世80万赔偿款弟弟拿走74万](http://www.blog.minike.top/Article/details/86950.shtml)
+- 2026-06-29 16:36 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.blog.minike.top/Article/details/294746771.shtml)
+- 2026-06-29 16:26 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://www.blog.kurohicncr.top/Article/details/235174.shtml)
+- 2026-06-29 16:29 - [小孩曾卓君夺冠之路](https://www.share.minike.top/Article/details/7843307.shtml)
+- 2026-06-29 16:12 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://www.share.kurohicncr.top/Article/details/418992565.shtml)
+- 2026-06-29 16:37 - [爸爸当家](https://www.share.kurohicncr.top/Article/details/97074.shtml)
+- 2026-06-29 16:35 - [德国VS巴拉圭前瞻](http://www.share.minike.top/Article/details/2082582.shtml)
+- 2026-06-29 16:33 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/1780201452.shtml)
+- 2026-06-29 16:12 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/4846487.shtml)
+- 2026-06-29 16:18 - [德国连续三天刷新本国最高气温纪录](https://www.blog.minike.top/Article/details/9012190839.shtml)
+- 2026-06-29 16:17 - [差点没看懂白鹿丞磊这段意识流](http://www.share.kurohicncr.top/Article/details/15170702468.shtml)

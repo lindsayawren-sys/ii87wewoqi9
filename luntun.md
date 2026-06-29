@@ -1,58 +1,49 @@
-# 东西问｜彭裕超：文学这座“桥”如何让中塞两国走近彼此？
+# 习言道｜共建新时代全天候中非命运共同体
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新社北京5月24日电 题：文学这座“桥”如何让中塞两国走近彼此？ 作者 李百加 杨程晨 谈及“桥”这一意象，北京外国语大学塞尔维亚语言文学学者、副教授彭裕超谈兴颇浓。“‘桥’成为塞尔维亚极具代表性的文化名片，‘桥’的内涵在中塞交往中持续积淀。” 他说，巴尔干扼守黑海—地中海咽喉，当地特色文化符号是“桥”。前南斯拉夫作家伊沃·安德里奇(Ivo Andrić)斩获诺贝尔文学奖的著
+4月21日，国家主席习近平在北京人民大会堂同来华进行国事访问的莫桑比克总统查波举行会谈。习近平指出——
 
 ## 正文
 
-中新社北京5月24日电 题：文学这座“桥”如何让中塞两国走近彼此？
+4月21日，国家主席习近平在北京人民大会堂同来华进行国事访问的莫桑比克总统查波举行会谈。
 
-作者 李百加 杨程晨 谈及“桥”这一意象，北京外国语大学塞尔维亚语言文学学者、副教授彭裕超谈兴颇浓。
-
-“‘桥’成为塞尔维亚极具代表性的文化名片，‘桥’的内涵在中塞交往中持续积淀。
-
-” 他说，巴尔干扼守黑海—地中海咽喉，当地特色文化符号是“桥”。
-
-前南斯拉夫作家伊沃·安德里奇(Ivo Andrić)斩获诺贝尔文学奖的著作是《德里纳河上的桥》。
-
-1977年风靡中国的东欧电影是《桥》。
-
-2014年中塞共建“一带一路”首个基建项目，也是一座横跨多瑙河的大桥。
-
-塞尔维亚总统武契奇(Aleksandar Vučić)5月24日至28日对中国进行国事访问，近年来两国关系高水平运行。
+习近平指出——
 
 ## 相关推荐
 
-- 2026-06-29 16:16 - [国家体育总局政策法规司原副司长获刑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piaohuai.md)
-- 2026-06-29 16:10 - [周锡玮：做堂堂正正的中国人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/swdut.md)
-- 2026-06-29 16:14 - [如何看待疑似小米资深员工6月26号在东方财富发表的《置身米内2.0》？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zimo.md)
-- 2026-06-29 16:27 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 16:28 - [TLAW零封DCG MSI](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dujuan.md)
-- 2026-06-29 16:15 - [女生雨天开车发现雨刮条被掰走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dzcnl.md)
-- 2026-06-29 16:30 - [有什么好的高中网课推荐吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-29 16:22 - [三星与SK集团或将投资2000万亿韩元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuoshuai.md)
-- 2026-06-29 16:10 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbahb.md)
-- 2026-06-29 16:22 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haizhang.md)
-- 2026-06-29 16:20 - [紫雅妈妈抱着女儿衣物崩溃](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/egrik.md)
-- 2026-06-29 16:24 - [papi酱回应毕业4年零收入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-29 16:18 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-29 16:24 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
+- 2026-06-29 16:19 - [笔记本电脑一年涨价近一倍](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nbvjw.md)
+- 2026-06-29 16:29 - [电影《抓特务》总票房破亿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-29 16:33 - [王安宇尊重田曦薇的一切选择](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zantiao.md)
+- 2026-06-29 16:31 - [高市早苗口齿不清被质疑醉酒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
+- 2026-06-29 16:41 - [小娘惹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-29 16:17 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csnfd.md)
+- 2026-06-29 16:38 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-29 16:24 - [失明的我带老妈去了趟“火星”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-29 16:14 - [差点没看懂白鹿丞磊这段意识流](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
+- 2026-06-29 16:24 - [男子网购乖乖水迷晕女子后猥亵](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
+- 2026-06-29 16:13 - [教育部发布高考志愿填报预警](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-29 16:39 - [龟梨和也田中美奈实结婚](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
+- 2026-06-29 16:21 - [恋与深空 731](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:11 - [海口塔吊事故处罚结果公布](https://www.share.kurohicncr.top/Article/details/9388920623.shtml)
-- 2026-06-29 16:27 - [葛军谈AI时代理科生出路](http://www.share.kurohicncr.top/Article/details/93515107.shtml)
-- 2026-06-29 16:19 - [女生雨天开车发现雨刮条被掰走](http://www.share.kurohicncr.top/Article/details/6201377353.shtml)
-- 2026-06-29 16:32 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/3189879831.shtml)
-- 2026-06-29 16:10 - [大 周 礼 时 代(4)](https://www.share.minike.top/Article/details/90690.shtml)
-- 2026-06-29 16:18 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.blog.kurohicncr.top/Article/details/4592726.shtml)
-- 2026-06-29 16:30 - [西十高铁让“朝秦暮楚”之地活了](https://www.blog.kurohicncr.top/Article/details/130868.shtml)
-- 2026-06-29 16:08 - [专家建议城乡居民养老金增至每月千元](https://www.blog.kurohicncr.top/Article/details/0035703725.shtml)
-- 2026-06-29 16:18 - [20年前的周杰伦](https://www.share.kurohicncr.top/Article/details/3401699.shtml)
-- 2026-06-29 16:07 - [丘成桐大学生数学竞赛颁奖典礼举行](http://www.share.minike.top/Article/details/274062626392.shtml)
-- 2026-06-29 16:17 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](http://www.blog.kurohicncr.top/Article/details/75163878781.shtml)
-- 2026-06-29 16:09 - [速度与激情9](http://www.share.minike.top/Article/details/12942326984.shtml)
-- 2026-06-29 16:33 - [存储三巨头被告了](http://www.share.minike.top/Article/details/629506793.shtml)
-- 2026-06-29 16:08 - [李小璐回应无戏可拍](https://www.share.kurohicncr.top/Article/details/246146265837.shtml)
-- 2026-06-29 16:13 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/534074801469.shtml)
+- 2026-06-29 16:19 - [布里奇斯被交易至太阳](http://www.blog.minike.top/Article/details/61895229912.shtml)
+- 2026-06-29 16:31 - [教育部发布高考志愿填报预警](https://www.share.minike.top/Article/details/9905931.shtml)
+- 2026-06-29 16:28 - [抓特务票房破亿](https://www.share.minike.top/Article/details/5260294770.shtml)
+- 2026-06-29 16:24 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/34182067811.shtml)
+- 2026-06-29 16:34 - [撒旦的腋窝是什么比喻](http://www.blog.kurohicncr.top/Article/details/23509650.shtml)
+- 2026-06-29 16:21 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/11183633282.shtml)
+- 2026-06-29 16:40 - [戴军否认1993年月入过万](http://www.blog.kurohicncr.top/Article/details/372720513.shtml)
+- 2026-06-29 16:13 - [A股收评：科创50指数大涨4.61%](https://www.blog.kurohicncr.top/Article/details/5866942933.shtml)
+- 2026-06-29 16:27 - [在自己家不穿衣服犯法吗](http://www.share.minike.top/Article/details/971196476304.shtml)
+- 2026-06-29 16:38 - [“养路费”谁来交 油电车主大吵](https://www.share.minike.top/Article/details/64190575223.shtml)
+- 2026-06-29 16:36 - [小鹏MONAL03预售定档7月2日](http://www.share.minike.top/Article/details/01760706.shtml)
+- 2026-06-29 16:12 - [加拿大绝杀南非晋级](https://www.blog.minike.top/Article/details/4146052666.shtml)
+- 2026-06-29 16:23 - [千与千寻](https://www.share.kurohicncr.top/Article/details/83281892449.shtml)
+- 2026-06-29 16:39 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/08180.shtml)
+- 2026-06-29 16:13 - [究极反常识的概率问题：不生男孩不罢休，会导致男女比例失衡吗？](http://www.share.kurohicncr.top/Article/details/1751458564.shtml)

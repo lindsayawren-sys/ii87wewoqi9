@@ -1,60 +1,58 @@
-# 渣打行政总裁就“低价值人力资本”言论道歉
+# 伊朗战争冲击油价时间线：从150美元暴跌到结构性溢价
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-就本周早些时候发表有关人工智能将如何影响“低价值人力资本”的言论，渣打行政总裁温拓思为此道歉，此番言论之前引发了公众强烈反应。 温拓思周五在LinkedIn上写道，他意识到自己的“措辞”已经“引起了一些同事的不满”。他补充道，“对此我很抱歉。” 温拓思发布上述帖子的几个小时前，他试图在LinkedIn的另一则帖子中坚定自己的言论。他写道，多年来，该银行一直致力于帮助那些因自动化
+第一阶段：战争爆发与霍尔木兹海峡封锁 2026年2月28日，美国与以色列对伊朗发动军事打击，伊朗随即关闭霍尔木兹海峡作为报复。这条海峡承载着全球约20%的石油运输量，日均通过约1500万桶原油及成品油。封锁导致全球原油供应出现二战以来最严重的单次冲击，约1100万桶日产量被迫下线，同时炼厂需求再减少约300万桶每日。 油价开始直线飙升。西德克萨斯中质原油从冲突前约70美元的水平
 
 ## 正文
 
-就本周早些时候发表有关人工智能将如何影响“低价值人力资本”的言论，渣打行政总裁温拓思为此道歉，此番言论之前引发了公众强烈反应。
+第一阶段：战争爆发与霍尔木兹海峡封锁 2026年2月28日，美国与以色列对伊朗发动军事打击，伊朗随即关闭霍尔木兹海峡作为报复。
 
-温拓思周五在LinkedIn上写道，他意识到自己的“措辞”已经“引起了一些同事的不满”。
+这条海峡承载着全球约20%的石油运输量，日均通过约1500万桶原油及成品油。
 
-他补充道，“对此我很抱歉。
+封锁导致全球原油供应出现二战以来最严重的单次冲击，约1100万桶日产量被迫下线，同时炼厂需求再减少约300万桶每日。
 
-” 温拓思发布上述帖子的几个小时前，他试图在LinkedIn的另一则帖子中坚定自己的言论。
+油价开始直线飙升。
 
-他写道，多年来，该银行一直致力于帮助那些因自动化而工作岗位发生颠覆性变化的员工。
+西德克萨斯中质原油从冲突前约70美元的水平急速上涨，在短短五周内涨幅超过100%。
 
-“在这种背景下，我说了低价值岗位更容易被自动化取代，我们有责任帮助同事们转型到更高价值的岗位上，”他写道。
+到4月初，印度原油篮子一度短暂突破每桶150美元关口，全球通胀压力骤然升温。
 
-“我们将继续坦诚地讨论技术变革的影响，并将继续以负责任的态度帮助员工适应并取得成功。
+第二阶段：停火预期与海峡重开 4月11日，美国总统特朗普宣布促成美伊双方达成为期两周的临时停火协议，并要求伊朗开放霍尔木兹海峡。
 
-” 本周早些时候，温拓思发表了一些引发争议的言论，他当时谈到在该银行裁减数千个职位的计划中人工智能将产生影响。
+4月16日，伊朗外长宣布，在剩余停火期内海峡对所有商业船只“完全开放”。
 
 ## 相关推荐
 
-- 2026-06-29 16:33 - [拆快递不再“里三层外三层”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qukgy.md)
-- 2026-06-29 16:17 - [恋与深空道歉就够了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdwhw.md)
-- 2026-06-29 16:13 - [1个视频看懂2026志愿填报新专业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 16:08 - [哈基米歌王争霸赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
-- 2026-06-29 16:11 - [戒掉咖啡后我的身体变化](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-29 16:15 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
-- 2026-06-29 16:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-29 16:08 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-29 16:21 - [疑似吴建豪老婆正脸照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-29 16:32 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-29 16:20 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usror.md)
-- 2026-06-29 16:12 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-29 16:33 - [黄金也扛不住了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhewen.md)
-- 2026-06-29 16:25 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-29 16:27 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
+- 2026-06-29 16:33 - [专家建议城乡居民养老金增至每月千元](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-29 16:20 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maygo.md)
+- 2026-06-29 16:20 - [内马尔打日本前先买百万美元豪表](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
+- 2026-06-29 16:32 - [博主：美航母沦为毒品集散窝点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muzhuai.md)
+- 2026-06-29 16:20 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuoteng.md)
+- 2026-06-29 16:15 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
+- 2026-06-29 16:30 - [老板回应员工光脚清洗土豆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggiqd.md)
+- 2026-06-29 16:28 - [小众羞耻点是吃麻辣烫](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/peacj.md)
+- 2026-06-29 16:29 - [20年前的周杰伦](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-29 16:31 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clpyt.md)
+- 2026-06-29 16:35 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ukpxk.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [在家赤身裸体是否绝对自由](http://www.blog.minike.top/Article/details/3304333647.shtml)
-- 2026-06-29 16:26 - [省市招考专家解读山西高考志愿政策](https://www.blog.minike.top/Article/details/87190.shtml)
-- 2026-06-29 16:11 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/78435.shtml)
-- 2026-06-29 16:18 - [德云色预测世界杯16强](https://www.blog.kurohicncr.top/Article/details/055811.shtml)
-- 2026-06-29 16:27 - [高市早苗口齿不清被质疑醉酒](https://www.blog.minike.top/Article/details/642409306700.shtml)
-- 2026-06-29 16:31 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.minike.top/Article/details/4244569.shtml)
-- 2026-06-29 16:14 - [宜宾地震食客避难后折返 无人逃单](https://www.share.kurohicncr.top/Article/details/09449.shtml)
-- 2026-06-29 16:12 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/925374459.shtml)
-- 2026-06-29 16:27 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/993139.shtml)
-- 2026-06-29 16:11 - [曝斯塔默有意竞逐下任北约秘书长](http://www.share.minike.top/Article/details/714463820.shtml)
-- 2026-06-29 16:23 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/27968749161.shtml)
-- 2026-06-29 16:14 - [小鹏MONAL03预售定档7月2日](https://www.blog.minike.top/Article/details/926992661697.shtml)
-- 2026-06-29 16:09 - [男子路过修车店瞬间被喷得一脸黑](https://www.blog.minike.top/Article/details/203137.shtml)
-- 2026-06-29 16:19 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](http://www.blog.minike.top/Article/details/440220019259.shtml)
-- 2026-06-29 16:10 - [小S在香港被偶遇](http://www.share.kurohicncr.top/Article/details/4961989.shtml)
+- 2026-06-29 16:33 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/47103.shtml)
+- 2026-06-29 16:12 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.blog.minike.top/Article/details/49852.shtml)
+- 2026-06-29 16:16 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](https://www.blog.kurohicncr.top/Article/details/721825.shtml)
+- 2026-06-29 16:36 - [哈兰德这该死的胜负欲](https://www.share.minike.top/Article/details/850114553210.shtml)
+- 2026-06-29 16:36 - [造谣县城满街都是小混混 男子被拘](https://www.share.minike.top/Article/details/65541420829.shtml)
+- 2026-06-29 16:26 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/1175796.shtml)
+- 2026-06-29 16:17 - [普京承认俄出现燃料危机](http://www.share.minike.top/Article/details/63333899697.shtml)
+- 2026-06-29 16:40 - [世界杯看台惊现一群“哈兰德”](https://www.share.minike.top/Article/details/795790.shtml)
+- 2026-06-29 16:40 - [王冰冰亲身解读我们为什么如此热爱足球 | 《冰纷美加墨》世界杯特别节目EP01](http://www.share.kurohicncr.top/Article/details/11653598886.shtml)
+- 2026-06-29 16:12 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/475709019761.shtml)
+- 2026-06-29 16:21 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/23356.shtml)
+- 2026-06-29 16:42 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/962516.shtml)
+- 2026-06-29 16:26 - [papi酱回应毕业4年零收入](http://www.share.kurohicncr.top/Article/details/6111597.shtml)
+- 2026-06-29 16:14 - [美议员呼吁断供以色列政府](https://www.share.kurohicncr.top/Article/details/8315480103.shtml)
+- 2026-06-29 16:34 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/345836745597.shtml)

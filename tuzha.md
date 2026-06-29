@@ -1,59 +1,59 @@
-# 美联储理事沃勒：通胀风险意味着美联储不应再释放降息信号
+# 欧洲央行高级政策制定者称：欧洲央行有“奢侈”空间等待加息
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-美联储理事克里斯托弗·沃勒（Christopher Waller）周五表示，鉴于通胀风险日益增长，美联储根本不应再将进一步降息作为默认计划。而就在今年1月，沃勒还曾支持降息。 沃勒在法兰克福发表演讲时表示，随着中东冲突的持续，石油和其他大宗商品成本的上涨越来越有可能在经济中引发更广泛的持续性通胀。他称，因此，美联储是时候停止释放下一次行动最可能是再次降息的信号了。 沃勒表示，在
+欧洲央行一位高级政策制定者表示，欧洲央行拥有不必急于加息的“奢侈”空间。下周欧洲央行将召开一次关键的货币政策会议。 拉脱维亚银行行长、欧洲央行管理委员会委员马丁斯·卡扎克斯（Mārtiņš Kazāks） 认为，尽管由于中东局势，“不确定性仍然非常高”，但“我们目前看到的数据”并未造成将利率从2%上调的紧迫性。 他表示，目前通胀预期得到控制，迄今为止能源价格上涨对经济其他领域的
 
 ## 正文
 
-美联储理事克里斯托弗·沃勒（Christopher Waller）周五表示，鉴于通胀风险日益增长，美联储根本不应再将进一步降息作为默认计划。
+欧洲央行一位高级政策制定者表示，欧洲央行拥有不必急于加息的“奢侈”空间。
 
-而就在今年1月，沃勒还曾支持降息。
+下周欧洲央行将召开一次关键的货币政策会议。
 
-沃勒在法兰克福发表演讲时表示，随着中东冲突的持续，石油和其他大宗商品成本的上涨越来越有可能在经济中引发更广泛的持续性通胀。
+拉脱维亚银行行长、欧洲央行管理委员会委员马丁斯·卡扎克斯（Mārtiņš Kazāks） 认为，尽管由于中东局势，“不确定性仍然非常高”，但“我们目前看到的数据”并未造成将利率从2%上调的紧迫性。
 
-他称，因此，美联储是时候停止释放下一次行动最可能是再次降息的信号了。
+他表示，目前通胀预期得到控制，迄今为止能源价格上涨对经济其他领域的连锁影响有限。
 
-沃勒表示，在可预见的未来，将利率稳定在目前3.5%至3.75%的区间很可能是正确的做法。
+他指出，油价也已从伊朗战争后的峰值回落，欧洲天然气价格远低于2022年的水平。
 
-他补充说：“如果通胀不能很快减弱，我不能再排除未来加息的可能性。
+“我们不着急，”卡扎克斯说。
 
-” 沃勒提出的这一既可能进一步降息也可能转向加息的前景，使他加入了越来越多认为美联储政策立场正处于一个拐点的官员行列。
+“我们仍然有很大的奢侈空间来收集数据并形成我们的观点，”他辩称。
 
-随着通胀从疫情后的高点回落，美联储从2024年底开始间歇性降息，大多数官员在进入今年时的计划都是至少会采取一些进一步的宽松措施。
+这一立场也得益于“我们过去为应对欧洲2022年上一次大通胀冲击而做出的艰难决定”，尽管他强调“如果我们认为有必要，我们当然会采取行动”。
 
 ## 相关推荐
 
-- 2026-06-29 16:24 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
-- 2026-06-29 16:06 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
-- 2026-06-29 16:28 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
-- 2026-06-29 16:27 - [四川宜宾地震已致13人受轻微伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-29 16:12 - [教育部发布预警 事关高招录取](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpsqm.md)
-- 2026-06-29 16:22 - [中国战机大片上新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zourao.md)
-- 2026-06-29 16:34 - [王冰冰向全网安利哈兰德](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrgmh.md)
-- 2026-06-29 16:25 - [母亲获赔80万弟弟拿74万姐姐3万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxxri.md)
-- 2026-06-29 16:25 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-29 16:24 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
-- 2026-06-29 16:10 - [超级计算机预测阿根廷和法国会师决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdozn.md)
-- 2026-06-29 16:29 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/onqid.md)
-- 2026-06-29 16:06 - [啊啊啊](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-29 16:17 - [谢霆锋王菲十指紧扣一起走](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-29 16:30 - [WTT美国大满贯王曼昱首秀告捷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dbjrz.md)
+- 2026-06-29 16:23 - [一人一句祝党生日快乐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
+- 2026-06-29 16:23 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-29 16:35 - [重度抑郁女孩没钱去做心理咨询](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
+- 2026-06-29 16:21 - [父亲患病母亲残疾女儿接到清华电话](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saicun.md)
+- 2026-06-29 16:41 - [5万块的威力](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-29 16:13 - [新三国up锐评楚汉传奇05：没有什么仇怨是一顿酒解决不了的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taaze.md)
+- 2026-06-29 16:18 - [四川宜宾地震已致13人受轻微伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pqlnh.md)
+- 2026-06-29 16:24 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
+- 2026-06-29 16:26 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaoding.md)
+- 2026-06-29 16:25 - [杨紫飞奔拥抱胡歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/erglp.md)
+- 2026-06-29 16:13 - [四川宜宾地震](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [大范围炎热天气将至](http://www.blog.kurohicncr.top/Article/details/98756.shtml)
-- 2026-06-29 16:29 - [360万法拉利被多名孩童当滑梯玩耍](https://www.blog.kurohicncr.top/Article/details/0108430410.shtml)
-- 2026-06-29 16:19 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.minike.top/Article/details/4018256480.shtml)
-- 2026-06-29 16:24 - [德国连续三天刷新本国最高气温纪录](http://www.share.kurohicncr.top/Article/details/44923276565.shtml)
-- 2026-06-29 16:06 - [世界杯上那些封神的门将](http://www.blog.minike.top/Article/details/441795.shtml)
-- 2026-06-29 16:16 - [尽量少用玻璃吸管](http://www.blog.minike.top/Article/details/07754.shtml)
-- 2026-06-29 16:16 - [恋与深空失控领地](https://www.share.kurohicncr.top/Article/details/16871830.shtml)
-- 2026-06-29 16:28 - [媒体：高考后消费应量力而行适度有度](http://www.share.kurohicncr.top/Article/details/84207341699.shtml)
-- 2026-06-29 16:24 - [20年前的周杰伦](http://www.blog.kurohicncr.top/Article/details/071918942.shtml)
-- 2026-06-29 16:06 - [扬名立万](https://www.blog.minike.top/Article/details/881529.shtml)
-- 2026-06-29 16:12 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/759274259104.shtml)
-- 2026-06-29 16:08 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.minike.top/Article/details/2563220.shtml)
-- 2026-06-29 16:30 - [中方将20家日本实体列入出口管制名单](https://www.blog.minike.top/Article/details/776770707.shtml)
-- 2026-06-29 16:06 - [三只羊大课堂回应大杨哥改卖课传闻](https://www.share.kurohicncr.top/Article/details/365576.shtml)
-- 2026-06-29 16:25 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/11956.shtml)
+- 2026-06-29 16:23 - [剧宣天才虞书欣发力了](http://www.share.minike.top/Article/details/57604.shtml)
+- 2026-06-29 16:41 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/92326425230.shtml)
+- 2026-06-29 16:34 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/1790136.shtml)
+- 2026-06-29 16:40 - [TFING全员黑西装](https://www.blog.kurohicncr.top/Article/details/77756.shtml)
+- 2026-06-29 16:26 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/49931.shtml)
+- 2026-06-29 16:32 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/763896.shtml)
+- 2026-06-29 16:41 - [叠纸](http://www.share.minike.top/Article/details/28419915812.shtml)
+- 2026-06-29 16:38 - [我国多领域成果密集上新](https://www.blog.kurohicncr.top/Article/details/57234216886.shtml)
+- 2026-06-29 16:33 - [存储三巨头被告了](http://www.share.minike.top/Article/details/130305146.shtml)
+- 2026-06-29 16:40 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://www.blog.minike.top/Article/details/73741.shtml)
+- 2026-06-29 16:19 - [女生雨天开车发现雨刮条被掰走](http://www.blog.kurohicncr.top/Article/details/45259.shtml)
+- 2026-06-29 16:41 - [尹恩惠自曝14年没谈过恋爱](https://www.share.kurohicncr.top/Article/details/5580580193.shtml)
+- 2026-06-29 16:31 - [安切洛蒂称像对待决赛一样备战日本](https://www.share.minike.top/Article/details/04453.shtml)
+- 2026-06-29 16:41 - [河南考699分女生已接到清华大学电话](https://www.blog.minike.top/Article/details/22832370853.shtml)
+- 2026-06-29 16:12 - [【Reaction】女生最少的5款游戏](https://www.blog.kurohicncr.top/Article/details/8640264904.shtml)

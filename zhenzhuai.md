@@ -1,59 +1,52 @@
-# 印尼副贸易部长称政府将很快发布大宗商品出口新规的更多细节
+# 中国新闻社参评第36届中国新闻奖国际传播初评作品公示
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-据印尼贸易部一位官员称，随着印尼政府着手制定新的集中出口机构的法律和结构，全球市场和主要贸易伙伴有望在几周内看到有关印尼商品出口新政策的最新消息。 贸易部副部长Dyah Roro Esti Widya Putri表示，这个名为“Danantara Sumberdaya Indonesia”的新政府实体正从概念阶段迈向执行阶段。她在周六于苏州举行的亚太经合组织会议间隙接受媒体采访
+根据《关于开展第36届中国新闻奖国际传播作品专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐6件新闻作品参加中国新闻奖国际传播作品的初评，现予以公示。公示期为2026年4月21日至4月27日，共5个工作日。如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。联系电话：010-68316636 邮箱：zbs@chinanews.com.cn
 
 ## 正文
 
-据印尼贸易部一位官员称，随着印尼政府着手制定新的集中出口机构的法律和结构，全球市场和主要贸易伙伴有望在几周内看到有关印尼商品出口新政策的最新消息。
+根据《关于开展第36届中国新闻奖国际传播作品专项初评工作的通知》的规定，经民主推荐及评委会评议，中国新闻社拟推荐6件新闻作品参加中国新闻奖国际传播作品的初评，现予以公示。
 
-贸易部副部长Dyah Roro Esti Widya Putri表示，这个名为“Danantara Sumberdaya Indonesia”的新政府实体正从概念阶段迈向执行阶段。
+公示期为2026年4月21日至4月27日，共5个工作日。
 
-她在周六于苏州举行的亚太经合组织会议间隙接受媒体采访时做出此番表态。
+如有异议，可以通过书面、电话方式，于2026年4月27日17时前反映。
 
-Roro表示，“这是个全新的计划，在立法和实体设立方面仍在推进中。
-
-我们将密切关注未来几周的进展。
-
-” 印尼总统普拉博沃上周宣布，政府将直接控制部分印尼最重要商品的出口。
-
-官员此前表示，Danantara Sumberdaya将首先接管棕榈油、动力煤和部分镍产品的出口管理，印尼在这些商品市场中占据主导地位。
-
-虽然关键细节仍在商讨中，但初步的过渡期将从6月1日起开始，过渡期内出口商需要向Danantara Sumberdaya报告这些战略商品的销售情况。
+联系电话：010-68316636 邮箱：zbs@chinanews.com.cn 国际传播初评报送作品目录 1、通讯 《(抗战胜利80周年)从北京到台北，一首传唱两岸八十载》 作者(主创人员)：杨程晨、朱贺、张杨彬 编辑：集体(路梅、谈笑、贾靖峰、魏群、陈小愿、董子畅、苏碧滢) 2、通讯 《“故宫博物院建院一百周年”专题报道》 作者(主创人员)：集体(孔任远、聂芝芯、曾静宁、招嘉虹、李嘉薇、王莹、刘远、李若晗) 编辑：张量、邓敏、甄雪原 3、深度报道 《西藏新生(系列报道)》 作者(主创人员)：杜国东、王妍、徐明、吴瑾 编辑：郑忠海、李佳、张丹 4、专题 《新格局·新动能(New Paradigm,New Momentum)》系列专题片 作者(主创人员)：集体(俞岚、吴庆才、周锐、王庆凯、李雨昕、陈庆洋、林芳晴、林勐男) 编辑：集体(程春雨、黄蕾、
 
 ## 相关推荐
 
-- 2026-06-29 16:19 - [成都至北京将新增动卧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heuxl.md)
-- 2026-06-29 16:28 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-29 16:35 - [名记：勇士想先交易浓眉再签詹姆斯](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-29 16:09 - [葛军谈AI时代理科生出路](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhailuo.md)
-- 2026-06-29 16:29 - [曝歌手第七期帮唱阵容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
-- 2026-06-29 16:11 - [我国多领域成果密集上新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-29 16:29 - [广东一地发现极危植物新物种](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-29 16:08 - [“养路费”谁来交 油电车主大吵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
-- 2026-06-29 16:07 - [大范围炎热天气将至](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
-- 2026-06-29 16:26 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
-- 2026-06-29 16:07 - [依法管制阻遏日方军事化危险动向](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengzhi.md)
-- 2026-06-29 16:17 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
-- 2026-06-29 16:33 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
+- 2026-06-29 16:20 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 16:32 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dahang.md)
+- 2026-06-29 16:34 - [乔家的儿女](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
+- 2026-06-29 16:23 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kankui.md)
+- 2026-06-29 16:32 - [爸爸当家](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-29 16:26 - [逆天祖国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-29 16:32 - [内马尔世界杯期间豪购百万美元腕表](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-29 16:23 - [森保一坚信日本能赢巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaguai.md)
+- 2026-06-29 16:21 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbrmy.md)
+- 2026-06-29 16:32 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
+- 2026-06-29 16:24 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
+- 2026-06-29 16:28 - [戴军否认1993年月入过万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-29 16:40 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-29 16:26 - [派出所集体去KTV招异性陪侍被纪委抓现行，事发两年未通报，涉事人员免职但均保留公职，暴露出哪些问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:21 - [你有像江语晨恨前夫一样恨过一个人吗](https://www.share.kurohicncr.top/Article/details/006339621513.shtml)
-- 2026-06-29 16:26 - [47岁吴建豪再婚](http://www.blog.kurohicncr.top/Article/details/232202.shtml)
-- 2026-06-29 16:07 - [AG冠军五人组轮换](https://www.share.kurohicncr.top/Article/details/850544.shtml)
-- 2026-06-29 16:09 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.share.minike.top/Article/details/7471145527.shtml)
-- 2026-06-29 16:16 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.share.minike.top/Article/details/5257362223.shtml)
-- 2026-06-29 16:29 - [iPhone18系列预计将大幅涨价](https://www.blog.minike.top/Article/details/37909.shtml)
-- 2026-06-29 16:25 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/484764901762.shtml)
-- 2026-06-29 16:19 - [BB大王横店拍戏](http://www.blog.minike.top/Article/details/9930155016.shtml)
-- 2026-06-29 16:15 - [欧洲极端高温 美的“卡bug”空调卖爆](http://www.share.kurohicncr.top/Article/details/50890.shtml)
-- 2026-06-29 16:21 - [光与夜之恋](http://www.blog.minike.top/Article/details/7418077544.shtml)
-- 2026-06-29 16:18 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/50813.shtml)
-- 2026-06-29 16:14 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/1266528567.shtml)
-- 2026-06-29 16:14 - [“断骨增高”灰产链：拉1人提成1.5万](https://www.blog.minike.top/Article/details/287820.shtml)
-- 2026-06-29 16:17 - [智界V9成为高端圈层共同选择](http://www.blog.kurohicncr.top/Article/details/09278538905.shtml)
-- 2026-06-29 16:17 - [广州一高校被曝禁止小米汽车进入，校方回应「车辆管理一视同仁，涉事保安言论不实正调查」，如何看待此事？](https://www.blog.kurohicncr.top/Article/details/44876504801.shtml)
+- 2026-06-29 16:26 - [网传2026 年新高考数学全国 1 卷仅一人满分，是真的吗？数学一卷真的这么难吗？](http://www.share.kurohicncr.top/Article/details/943608.shtml)
+- 2026-06-29 16:24 - [广州一高校通报网传禁止小米汽车入校](https://www.blog.minike.top/Article/details/0680247.shtml)
+- 2026-06-29 16:28 - [普京说乌方打击无法迫使俄被动谈判](http://www.share.minike.top/Article/details/77338.shtml)
+- 2026-06-29 16:32 - [美的空调 卡bug](http://www.share.kurohicncr.top/Article/details/7001875.shtml)
+- 2026-06-29 16:33 - [小马驹盯着冰柜里的牛奶寸步不离](https://www.blog.kurohicncr.top/Article/details/222226986.shtml)
+- 2026-06-29 16:33 - [大六座SUV进入黄金时代](https://www.share.kurohicncr.top/Article/details/463278663263.shtml)
+- 2026-06-29 16:30 - [恋与深空遭抵制后仍置顶敖尹](https://www.blog.kurohicncr.top/Article/details/36264.shtml)
+- 2026-06-29 16:23 - [我国多领域发布亮眼“成绩单”](http://www.blog.minike.top/Article/details/4517150.shtml)
+- 2026-06-29 16:31 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/670919196748.shtml)
+- 2026-06-29 16:24 - [韩国队差旅费亏麻了](https://www.share.minike.top/Article/details/88783594.shtml)
+- 2026-06-29 16:32 - [巴西前锋说不出日本球员全场哄笑](https://www.share.kurohicncr.top/Article/details/29463185.shtml)
+- 2026-06-29 16:33 - [警方回应东鹏饮料董事长不喝东鹏](http://www.blog.kurohicncr.top/Article/details/66456.shtml)
+- 2026-06-29 16:29 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/767235.shtml)
+- 2026-06-29 16:22 - [媒体：中国田径压力与期待并存](http://www.blog.minike.top/Article/details/8125041.shtml)
+- 2026-06-29 16:35 - [金牌调解](http://www.share.kurohicncr.top/Article/details/487332566775.shtml)

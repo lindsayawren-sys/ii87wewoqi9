@@ -1,56 +1,60 @@
-# 中国空间站将首次实现水稻的“二次播种”
+# “万张绿证”助力三亚亚沙会实现“零碳”
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月23日 21:00 来源：中国新闻网 神舟二十三号载人飞船计划于5月24日发射。据悉，中国载人航天工程空间应用系统通过神舟二十三号载人飞船上行了9项科学实验，上行样品及装置总重量54.1千克，水稻种子、纳米酶、放线菌、钙钛矿电池等实验材料将被用于开展太空实验。 在空间生命科学领域，科研团队将利用未经过空间飞行实验的水稻种子在轨获得子代。这将是中国空间站
+中新网三亚4月21日电 (张月和)中国华电“万张绿证”护航亚沙会捐赠仪式21日在三亚举行。中国华电集团海南有限公司(简称“华电海南公司”)向第六届亚洲沙滩运动会(简称“三亚亚沙会”)组委会捐赠10000张绿色电力证书，专项用于抵消赛事期间产生的碳排放，助力本届亚沙会成为海南自贸港封关运作后首场“零碳”洲际体育盛会。“此次捐赠的1万张绿色电力证书，对应1000万度绿色电力，为三亚
 
 ## 正文
 
-发布时间：2026年05月23日 21:00 来源：中国新闻网 神舟二十三号载人飞船计划于5月24日发射。
+中新网三亚4月21日电 (张月和)中国华电“万张绿证”护航亚沙会捐赠仪式21日在三亚举行。
 
-据悉，中国载人航天工程空间应用系统通过神舟二十三号载人飞船上行了9项科学实验，上行样品及装置总重量54.1千克，水稻种子、纳米酶、放线菌、钙钛矿电池等实验材料将被用于开展太空实验。
+中国华电集团海南有限公司(简称“华电海南公司”)向第六届亚洲沙滩运动会(简称“三亚亚沙会”)组委会捐赠10000张绿色电力证书，专项用于抵消赛事期间产生的碳排放，助力本届亚沙会成为海南自贸港封关运作后首场“零碳”洲际体育盛会。
 
-在空间生命科学领域，科研团队将利用未经过空间飞行实验的水稻种子在轨获得子代。
+“此次捐赠的1万张绿色电力证书，对应1000万度绿色电力，为三亚亚沙会零碳目标提供了有力支撑。
 
-这将是中国空间站首次在轨连续培养两代水稻，旨在解析长期空间微重力对水稻遗传稳定性的影响。
+”三亚亚沙会组委会副秘书长、执委会副主任兼秘书长，三亚市副市长张长丰说，三亚正以亚沙会为契机，深化生态保护与赛事发展融合，让绿色成为海南自贸港建设最鲜明的底色。
 
-这项研究还将挖掘有重大应用价值的新基因。
+华电海南公司执行董事伊建伟表示，作为驻琼央企，华电海南公司主动融入海南“清洁能源岛”建设，先后参与海南省首笔绿电交易、保障博鳌亚洲论坛绿电供应，持续拓展绿色电力应用场景。
 
-(李佳悦 马帅莎) 【同期】中国科学院空间应用工程与技术中心研究员 仓怀兴 (空间应用系统)计划通过神舟二十三号载人飞船上行9项科学实验的物资，上行实验样品及装置的总重量有54.1千克，水稻种子、纳米酶、放线菌、钙钛矿电池等实验材料开展空间实验。
+此次捐赠绿证护航亚沙会，是公司履行社会责任、服务地方发展、助力“零碳”赛事的又一务实举措。
 
-空间生命科学研究，水稻将在太空进行“二次播种”。
+未来将继续发挥能源央企优势，为海南自贸港绿色低碳高质量发展贡献力量。
 
-项目一，“空间水稻多代遗传稳定性与环境适应性调控的分子机理研究”。
+张长丰表示，希望以本次捐赠为起点，吸引更多社会力量参与三亚亚沙会绿色行动，共同构建绿色低碳治理格局。
 
 ## 相关推荐
 
-- 2026-06-29 16:21 - [papi酱在救赎窦文涛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ombcx.md)
-- 2026-06-29 16:23 - [赵今麦娇兰全球总裁LV太子妃合照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qinzhuan.md)
-- 2026-06-29 16:21 - [广东一地发现极危植物新物种](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-29 16:35 - [韩国队启程回国 全员羞愧低头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-29 16:10 - [美的空调 卡bug](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
-- 2026-06-29 16:11 - [宜宾地震猫被吓得乱窜 家猪全惊醒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-29 16:31 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
-- 2026-06-29 16:12 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aocan.md)
-- 2026-06-29 16:24 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhepz.md)
-- 2026-06-29 16:21 - [普京承认俄出现燃料危机](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-29 16:41 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 16:18 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
+- 2026-06-29 16:18 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-29 16:21 - [博主：黄金和原油回落不等于风险消失](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-29 16:29 - [法拉利被当滑梯玩 出现多处划痕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-29 16:14 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/arijx.md)
+- 2026-06-29 16:18 - [巴西球员：日本队有点傲慢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-29 16:29 - [专家建议城乡居民养老金增至每月千元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huigong.md)
+- 2026-06-29 16:40 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-29 16:12 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 16:15 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
+- 2026-06-29 16:36 - [吴建豪宣布再婚](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-29 16:19 - [大 周 礼 时 代(4)](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-29 16:38 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bixpx.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:27 - [德国连续三天刷新本国最高气温纪录](http://www.blog.kurohicncr.top/Article/details/94979571194.shtml)
-- 2026-06-29 16:23 - [福建仙游一峡谷发生意外 5游客身亡](http://www.share.minike.top/Article/details/204110156837.shtml)
-- 2026-06-29 16:13 - [母亲获赔80万弟弟拿74万姐姐3万](http://www.blog.kurohicncr.top/Article/details/65651435066.shtml)
-- 2026-06-29 16:25 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/22610285.shtml)
-- 2026-06-29 16:24 - [TLAW vs DCG MSI](https://www.share.kurohicncr.top/Article/details/86189679.shtml)
-- 2026-06-29 16:11 - [法拉利被当滑梯玩 出现多处划痕](https://www.blog.kurohicncr.top/Article/details/774450021432.shtml)
-- 2026-06-29 16:25 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/207835446.shtml)
-- 2026-06-29 16:18 - [国内最大沙漠发洪水意味着什么](http://www.blog.minike.top/Article/details/33818534108.shtml)
-- 2026-06-29 16:28 - [中国猪圈装空调让欧洲网友破防](https://www.blog.minike.top/Article/details/842011894.shtml)
-- 2026-06-29 16:08 - [中国创新药股价要反攻了吗](https://www.share.kurohicncr.top/Article/details/783862692.shtml)
-- 2026-06-29 16:34 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/615121546972.shtml)
-- 2026-06-29 16:26 - [凌晨四川宜宾发生 5.5 级地震，有当地人能讲讲震感有多明显吗？当时是怎样避险的？](https://www.share.minike.top/Article/details/219676.shtml)
-- 2026-06-29 16:21 - [滚石要求万豪就屠颖去世事件道歉](https://www.share.kurohicncr.top/Article/details/9955015.shtml)
-- 2026-06-29 16:11 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/47565.shtml)
-- 2026-06-29 16:13 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/03685.shtml)
+- 2026-06-29 16:36 - [雷军斥资近 5 亿连续 7 天增持金山软件至 26.18%，这一举动背后有哪些商业考量？](https://www.share.kurohicncr.top/Article/details/25301133567.shtml)
+- 2026-06-29 16:31 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/883608662.shtml)
+- 2026-06-29 16:22 - [首届《哈基米歌王争霸赛》总决赛](https://www.blog.kurohicncr.top/Article/details/8627354.shtml)
+- 2026-06-29 16:13 - [周锡玮：做堂堂正正的中国人](http://www.share.minike.top/Article/details/73009490.shtml)
+- 2026-06-29 16:41 - [大范围炎热天气将至](https://www.share.kurohicncr.top/Article/details/614464.shtml)
+- 2026-06-29 16:21 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/1379090929.shtml)
+- 2026-06-29 16:36 - [A股收评：科创50指数大涨4.61%](http://www.blog.kurohicncr.top/Article/details/325054.shtml)
+- 2026-06-29 16:25 - [请回答王牌2019](https://www.blog.minike.top/Article/details/9284856630.shtml)
+- 2026-06-29 16:17 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/270743.shtml)
+- 2026-06-29 16:24 - [普京为何喊话俄乌都别打对方纵深](http://www.share.kurohicncr.top/Article/details/4285173286.shtml)
+- 2026-06-29 16:33 - [杨紫下沉市场口碑](http://www.share.minike.top/Article/details/4989179582.shtml)
+- 2026-06-29 16:26 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/90057802731.shtml)
+- 2026-06-29 16:30 - [众星恭喜吴建豪](http://www.blog.kurohicncr.top/Article/details/8050592.shtml)
+- 2026-06-29 16:34 - [首尔商铺禁止洪明甫入内](https://www.blog.kurohicncr.top/Article/details/054334305273.shtml)
+- 2026-06-29 16:25 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.minike.top/Article/details/277008693735.shtml)

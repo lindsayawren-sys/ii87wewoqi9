@@ -1,47 +1,61 @@
-# 05月22日硫酸钾4073.33元/吨 90天上涨9.60%
+# 政在回应② | 耕地保护和国土绿化空间专项规划是个什么规划？
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-硫酸钾05月22日最新价格4073.33元/吨，最近90天上涨9.60%。相关生产商有：山东海化(000822)鲁西化工(000830)宏达股份(600331)盐湖股份(000792)六国化工(600470)ST司\]特(002538)新洋丰(000902)三孚股份(603938)等。
+当前，各省都在编制耕地保护和国土绿化空间专项规划。这到底是个什么规划，能解决哪些问题？ ——读者点题 专项规划，是“五级三类”国土空间规划体系中的三类规划之一，是国土空间总体规划在特定领域的延伸和细化。 耕地保护和国土绿化空间专项规划就是在国土空间总体规划划定的“三区三线”格局下，以2024年度国土变更调查和林草湿荒普查结果为基础底图，在同一张底图上和统一规则下，统筹划定耕地空
 
 ## 正文
 
-硫酸钾05月22日最新价格4073.33元/吨，最近90天上涨9.60%。
+当前，各省都在编制耕地保护和国土绿化空间专项规划。
 
-相关生产商有：山东海化(000822)鲁西化工(000830)宏达股份(600331)盐湖股份(000792)六国化工(600470)ST司\]特(002538)新洋丰(000902)三孚股份(603938)等。
+这到底是个什么规划，能解决哪些问题？
+
+——读者点题 专项规划，是“五级三类”国土空间规划体系中的三类规划之一，是国土空间总体规划在特定领域的延伸和细化。
+
+耕地保护和国土绿化空间专项规划就是在国土空间总体规划划定的“三区三线”格局下，以2024年度国土变更调查和林草湿荒普查结果为基础底图，在同一张底图上和统一规则下，统筹划定耕地空间、耕地补充空间、林草空间、林草补充空间这“四大空间”，让耕林草管理边界清晰、不再“打架”。
+
+往小处来讲，这个专项规划可以有效化解耕地和林地、草地空间矛盾、解决过去耕林草分散管理导致的空间冲突，进一步优化农用地空间布局，实现“宜耕则耕、宜林则林、宜草则草”，提升农用地利用效率和生态功能。
+
+往大处来说，可以从空间优化层面引领更高质量的耕地保护和国土绿化工作，统筹保障国家粮食安全和生态安全，乃至提升国土空间协同治理水平，助力乡村产业高质量发展。
+
+那么，这个专项规划具体怎么编制呢？
+
+从层级上来看，耕地保护和国土绿化空间专项规划分为国家级和省级2个规划层级。
 
 ## 相关推荐
 
-- 2026-06-29 16:09 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-29 16:20 - [日本前锋言论激怒巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-29 16:29 - [韩国极端网友对主教练发出死亡威胁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ovbka.md)
-- 2026-06-29 16:34 - [11岁小孩哥汽修工龄4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-29 16:34 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-29 16:25 - [母亲去世80万赔偿款弟弟拿走74万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-29 16:08 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-29 16:24 - [港股蓝筹股的落寞才刚刚开始吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
-- 2026-06-29 16:10 - [舒行钢任湖南省交通运输厅厅长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fsmpz.md)
-- 2026-06-29 16:11 - [广州一高校通报网传禁止小米汽车入校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-29 16:33 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanmang.md)
-- 2026-06-29 16:34 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
-- 2026-06-29 16:11 - [在自己家不穿衣服犯法吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
+- 2026-06-29 16:18 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-29 16:34 - [教育部发布高考志愿填报预警](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jgnqj.md)
+- 2026-06-29 16:35 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-29 16:17 - [职业选手禁止参赛！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
+- 2026-06-29 16:16 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-29 16:19 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rihun.md)
+- 2026-06-29 16:41 - [普京介绍前线战事](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laitu.md)
+- 2026-06-29 16:21 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-29 16:25 - [韩国主帅辞职 念完稿双手插兜离场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-29 16:37 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-29 16:40 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-29 16:13 - [盛秋平任南昌市委书记](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-29 16:33 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nqarq.md)
+- 2026-06-29 16:23 - [挪威王储妃长子2次强奸被判4年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-29 16:25 - [7款商保创新药“转道”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:30 - [小孩曾卓君夺第八个EVO冠军](http://www.share.minike.top/Article/details/72767022.shtml)
-- 2026-06-29 16:25 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.blog.minike.top/Article/details/72693.shtml)
-- 2026-06-29 16:12 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://www.share.kurohicncr.top/Article/details/56828.shtml)
-- 2026-06-29 16:14 - [王楚钦3-0周启豪 晋级32强](http://www.share.kurohicncr.top/Article/details/80792788.shtml)
-- 2026-06-29 16:26 - [360万法拉利被多名孩童当滑梯玩耍](http://www.blog.minike.top/Article/details/39886659.shtml)
-- 2026-06-29 16:25 - [金刚川](http://www.share.minike.top/Article/details/6417449505.shtml)
-- 2026-06-29 16:09 - [T1 3-0 KC赛后数据](http://www.blog.kurohicncr.top/Article/details/63645.shtml)
-- 2026-06-29 16:19 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/889163042067.shtml)
-- 2026-06-29 16:34 - [日本主帅：对战胜巴西很有信心](https://www.blog.minike.top/Article/details/5780120966.shtml)
-- 2026-06-29 16:12 - [《明日方舟：终末地》过场动画 - 血色已至](https://www.share.minike.top/Article/details/41493955.shtml)
-- 2026-06-29 16:33 - [驻日美军航母沦为“毒窝”](https://www.share.kurohicncr.top/Article/details/440647219879.shtml)
-- 2026-06-29 16:25 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.kurohicncr.top/Article/details/70351842514.shtml)
-- 2026-06-29 16:07 - [沙丘](http://www.share.minike.top/Article/details/478594239214.shtml)
-- 2026-06-29 16:34 - [评论员：日菲勾连各有盘算](https://www.share.minike.top/Article/details/359814623485.shtml)
-- 2026-06-29 16:28 - [【Reaction】女生最少的5款游戏](https://www.share.kurohicncr.top/Article/details/820866.shtml)
+- 2026-06-29 16:14 - [欧洲多国高温突破40摄氏度](https://www.share.kurohicncr.top/Article/details/374984182765.shtml)
+- 2026-06-29 16:37 - [巴西发布对阵日本宣传片](https://www.share.kurohicncr.top/Article/details/0099520.shtml)
+- 2026-06-29 16:21 - [一眼沦陷！这片木偶海的画风，绝对是国产游戏的一股清流！](https://www.blog.kurohicncr.top/Article/details/5236421.shtml)
+- 2026-06-29 16:20 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/1779212710.shtml)
+- 2026-06-29 16:28 - [首尔商铺禁止洪明甫入内](https://www.share.minike.top/Article/details/1165769416.shtml)
+- 2026-06-29 16:35 - [博主：比亚迪赢了销量却输给资本](https://www.blog.kurohicncr.top/Article/details/5648660165.shtml)
+- 2026-06-29 16:41 - [恋与深空 731](https://www.blog.minike.top/Article/details/992177723.shtml)
+- 2026-06-29 16:28 - [逃狱兄弟](http://www.share.kurohicncr.top/Article/details/5127119.shtml)
+- 2026-06-29 16:12 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/24611235.shtml)
+- 2026-06-29 16:38 - [孙怡告别浪姐千字文](https://www.blog.kurohicncr.top/Article/details/4044573615.shtml)
+- 2026-06-29 16:18 - [BB大王横店拍戏](https://www.share.minike.top/Article/details/099229751.shtml)
+- 2026-06-29 16:36 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/95279.shtml)
+- 2026-06-29 16:31 - [盛秋平任南昌市委书记](http://www.blog.minike.top/Article/details/694789625156.shtml)
+- 2026-06-29 16:22 - [李连杰否认不管前妻两女儿](https://www.share.kurohicncr.top/Article/details/469852527836.shtml)
+- 2026-06-29 16:23 - [吴建豪宣布再婚](https://www.share.minike.top/Article/details/446656144.shtml)

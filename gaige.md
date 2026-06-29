@@ -1,50 +1,60 @@
-# 广西财政国库再向柳州调度抗震救灾资金3000万元
+# 欧洲央行官员：伊朗战争造成的经济损失尚未显现
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-记者从广西壮族自治区财政厅获悉，5月21日，国家防灾减灾救灾委员会针对柳州市柳南区连续发生5.2级地震启动国家四级救灾应急响应。广西壮族自治区财政国库再次向柳州市紧急调度应急救灾资金3000万元，累计专项调度资金5000万元，支持柳州市统筹做好转移安置受灾人员、排危除险等应急处置工作，开展次生灾害隐患排查、倒损民房修复和受灾群众救助等工作，全力保障人民群众生命财产安全。 (总台
+欧洲央行管理委员会成员Alvaro Santos Pereira表示，目前评估伊朗战争对欧元区经济的全面影响为时尚早。 这位葡萄牙官员在接受采访时称，因此欧洲央行应聚焦即将公布的数据，准备好在价格出现失控迹象时作出回应。他表示，尽管经济增速仅约1%，但在危机爆发前仍表现出“韧性”。 “这场冲突时日不长 —— 我们需要观察未来几周局势的演变，”Pereira在华盛顿表示，“这类负
 
 ## 正文
 
-记者从广西壮族自治区财政厅获悉，5月21日，国家防灾减灾救灾委员会针对柳州市柳南区连续发生5.2级地震启动国家四级救灾应急响应。
+欧洲央行管理委员会成员Alvaro Santos Pereira表示，目前评估伊朗战争对欧元区经济的全面影响为时尚早。
 
-广西壮族自治区财政国库再次向柳州市紧急调度应急救灾资金3000万元，累计专项调度资金5000万元，支持柳州市统筹做好转移安置受灾人员、排危除险等应急处置工作，开展次生灾害隐患排查、倒损民房修复和受灾群众救助等工作，全力保障人民群众生命财产安全。
+这位葡萄牙官员在接受采访时称，因此欧洲央行应聚焦即将公布的数据，准备好在价格出现失控迹象时作出回应。
 
-(总台记者 李健飞 孔祥新)
+他表示，尽管经济增速仅约1%，但在危机爆发前仍表现出“韧性”。
+
+“这场冲突时日不长 —— 我们需要观察未来几周局势的演变，”Pereira在华盛顿表示，“这类负面供给冲击通常会导致增长放缓、通胀上升。
+
+而两种情况都不太妙”。
+
+政策制定者正在评估中东冲突以及能源要道霍尔木兹海峡封锁对欧洲的影响。
+
+距离下一次政策决议还有不到两周时间，欧洲央行目前似乎倾向于暂时按兵不动。
+
+“避免出现第二轮效应将极为重要，”Pereira表示，“如果数据显示价格大幅上涨、通胀预期上升，我们就需要采取行动。
 
 ## 相关推荐
 
-- 2026-06-29 16:14 - [剧宣天才虞书欣发力了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-29 16:34 - [爸爸当家](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liedang.md)
-- 2026-06-29 16:10 - [美国队踢世界杯 美政客烧钱打广告忙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rkeir.md)
-- 2026-06-29 16:27 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mseeu.md)
-- 2026-06-29 16:11 - [拆快递不再“里三层外三层”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-29 16:29 - [大疆7月15日起涨价？公司回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
-- 2026-06-29 16:22 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gkipt.md)
-- 2026-06-29 16:20 - [光与夜之恋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingwai.md)
-- 2026-06-29 16:09 - [中国多领域发布亮眼“成绩单”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-29 16:19 - [省市招考专家解读山西高考志愿政策](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tckzj.md)
-- 2026-06-29 16:33 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfzex.md)
-- 2026-06-29 16:26 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
-- 2026-06-29 16:23 - [网约车司机转账15000元后被乘客拉黑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 16:25 - [中方将20家日本实体列入管控名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
+- 2026-06-29 16:35 - [世界杯：日本将与巴西争夺16强席位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txqhc.md)
+- 2026-06-29 16:26 - [网警提醒4类高考查分陷阱考生速看](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-29 16:13 - [如何“亲菌子”又“远小人儿”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
+- 2026-06-29 16:40 - [FIFA回应佛得角队长被指控强奸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-29 16:13 - [机器人学校开学了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
+- 2026-06-29 16:29 - [世界杯上那些封神的门将](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-29 16:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-29 16:41 - [两个教官【皮影人行动4.0】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
+- 2026-06-29 16:35 - [我国多领域发布亮眼“成绩单”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-29 16:32 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oubdp.md)
+- 2026-06-29 16:26 - [韩国国脚每人获35.5万奖金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
+- 2026-06-29 16:28 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
+- 2026-06-29 16:32 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
+- 2026-06-29 16:34 - [外交部回应中日经贸问题](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sfoft.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:16 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](http://www.blog.minike.top/Article/details/40019554560.shtml)
-- 2026-06-29 16:21 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/500644991.shtml)
-- 2026-06-29 16:19 - [古力娜扎美出新高度](http://www.blog.minike.top/Article/details/9359273.shtml)
-- 2026-06-29 16:07 - [FIFA回应佛得角队长被指控强奸](http://www.share.kurohicncr.top/Article/details/830836359522.shtml)
-- 2026-06-29 16:16 - [龟梨和也田中美奈实结婚](https://www.share.minike.top/Article/details/131003.shtml)
-- 2026-06-29 16:09 - [工作靠AI算不算职场作弊](http://www.share.kurohicncr.top/Article/details/359373870206.shtml)
-- 2026-06-29 16:08 - [手底下人带不动怎么办？](https://www.blog.minike.top/Article/details/6996825.shtml)
-- 2026-06-29 16:21 - [紫雅妈妈抱着女儿衣物崩溃](http://www.blog.kurohicncr.top/Article/details/77835.shtml)
-- 2026-06-29 16:33 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/55991458826.shtml)
-- 2026-06-29 16:30 - [普京：俄军距斯拉维扬斯克仅8公里](http://www.share.kurohicncr.top/Article/details/6993351308.shtml)
-- 2026-06-29 16:15 - [韩国媒体给主教练洪明甫打马赛克](https://www.share.minike.top/Article/details/87623298372.shtml)
-- 2026-06-29 16:18 - [豆包收费了，你还会用吗？](http://www.share.minike.top/Article/details/60148.shtml)
-- 2026-06-29 16:06 - [如何“亲菌子”又“远小人儿”](http://www.blog.kurohicncr.top/Article/details/07602181741.shtml)
-- 2026-06-29 16:15 - [挪威王储妃长子2次强奸被判4年](http://www.blog.minike.top/Article/details/445441.shtml)
-- 2026-06-29 16:24 - [AG冠军五人组轮换](http://www.blog.minike.top/Article/details/185860341808.shtml)
+- 2026-06-29 16:39 - [恋与深空评分暴跌至1.8](https://www.share.minike.top/Article/details/568614.shtml)
+- 2026-06-29 16:26 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/031960409632.shtml)
+- 2026-06-29 16:17 - [众星恭喜吴建豪](http://www.share.minike.top/Article/details/1108147311.shtml)
+- 2026-06-29 16:38 - [papi酱父亲再婚妻子仅比她大几岁](http://www.blog.minike.top/Article/details/930907224460.shtml)
+- 2026-06-29 16:33 - [白宇摘下白玉兰送给杨幂](http://www.share.minike.top/Article/details/450471775.shtml)
+- 2026-06-29 16:13 - [外网预言中国举办世界杯时间](https://www.share.kurohicncr.top/Article/details/2954171.shtml)
+- 2026-06-29 16:38 - [于北辰210%拦截率登大陆考卷遭狠嘲](https://www.share.kurohicncr.top/Article/details/6519267072.shtml)
+- 2026-06-29 16:20 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/453542300.shtml)
+- 2026-06-29 16:33 - [想买一台既能接待客户又能全家出游的全尺寸 SUV，哪些配置是必不可少的？](http://www.share.kurohicncr.top/Article/details/34984829.shtml)
+- 2026-06-29 16:19 - [恋与深空评分暴跌至1.8](http://www.share.kurohicncr.top/Article/details/2606562.shtml)
+- 2026-06-29 16:25 - [德国VS巴拉圭前瞻](https://www.blog.minike.top/Article/details/04028.shtml)
+- 2026-06-29 16:24 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/158801.shtml)
+- 2026-06-29 16:23 - [母亲获赔80万弟弟拿74万姐姐3万](https://www.blog.kurohicncr.top/Article/details/56392083.shtml)
+- 2026-06-29 16:37 - [TLAW vs DCG MSI](http://www.share.kurohicncr.top/Article/details/9791152267.shtml)
+- 2026-06-29 16:12 - [当我回母校教书](http://www.blog.kurohicncr.top/Article/details/15975258.shtml)

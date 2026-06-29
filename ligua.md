@@ -1,58 +1,58 @@
-# 3万亿时代：量化私募由竞速进入淘汰赛
+# 工信部最新发声！事关算电协同！电力ETF华宝（159146）悄然吸金超3亿元！基金经理火线解读！
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-量化私募的规模已经越过一个关键节点。测算显示，2025年末量化基金规模达到3.22万亿元，在私募证券投资基金中的占比超过43%；2020年这一规模还只有0.76万亿元。扩张最快的，是权益量化：指数增强、股票中性、量化选股合计占比超过80%。 浙商证券金融工程团队陈奥林等在5月21日的报告中指出：“行至3万亿规模，当下已由竞速赛转为淘汰赛，策略超额稳定性或是管理人核心竞争力。”这
+周二（4月21日），电力板块表现活跃，中证全指电力公用事业指数收涨逾1%。成份股大面积飘红，浙江新能、宝新能源、粤电力A、广安爱众等4股涨停封板，晋控电力、陕西能源、乐山电力、江苏新能等多股涨超5%。 热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内收涨1.49%站上所有均线，放量成交近4000万元！全天溢价交易，买盘资金尤为活跃，单日获净申购105
 
 ## 正文
 
-量化私募的规模已经越过一个关键节点。
+周二（4月21日），电力板块表现活跃，中证全指电力公用事业指数收涨逾1%。
 
-测算显示，2025年末量化基金规模达到3.22万亿元，在私募证券投资基金中的占比超过43%；2020年这一规模还只有0.76万亿元。
+成份股大面积飘红，浙江新能、宝新能源、粤电力A、广安爱众等4股涨停封板，晋控电力、陕西能源、乐山电力、江苏新能等多股涨超5%。
 
-扩张最快的，是权益量化：指数增强、股票中性、量化选股合计占比超过80%。
+热门ETF方面，“风光水火核”全能源布局的电力ETF华宝（159146）场内收涨1.49%站上所有均线，放量成交近4000万元！
 
-浙商证券金融工程团队陈奥林等在5月21日的报告中指出：“行至3万亿规模，当下已由竞速赛转为淘汰赛，策略超额稳定性或是管理人核心竞争力。
+全天溢价交易，买盘资金尤为活跃，单日获净申购1050万份，此前已悄然吸金超3亿元。
 
-”这句话的重点不在规模本身，而在规模之后的变化：超额收益不再容易获得，管理人之间的差距被迅速拉开。
+消息面上，证券时报报道称，4月21日，国新办举行新闻发布会介绍2026年一季度工业和信息化发展情况，工信部副部长张云明表示，近年来，算力基础设施已成为驱动人工智能发展的关键底座。
 
-最刺眼的数据来自分化。
+目前工信部正在开展算电协同政策研究和标准制定。
 
-2026年上半年估算口径下，私募500指增产品90%分位与10%分位管理人的超额收益差距扩大到约20%；70%分位与30%分位的差距也接近8%。
+电力ETF华宝（159146）基金经理曹旭辰指出，电力板块近期表现较强主要受“算电协同”政策预期驱动，当前行情仍以短线资金博弈为主，但未来算电协同方向的政策催化有望持续增多。
 
-更关键的是，中位数落在0附近，意味着相当一部分产品并没有跑赢价格指数。
+此外，电力板块后市真正的机会或在于基本面逻辑的切换。
 
 ## 相关推荐
 
-- 2026-06-29 16:17 - [中方将20家日本实体列入关注名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-29 16:32 - [世界杯看台惊现一群“哈兰德”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-29 16:18 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
-- 2026-06-29 16:22 - [美国大满贯首日国乒主力均取胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjdvf.md)
-- 2026-06-29 16:21 - [孙怡告别浪姐千字文](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-29 16:09 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
-- 2026-06-29 16:35 - [金圣叹为什么对水浒传中的武松评价这么高？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hkzwu.md)
-- 2026-06-29 16:17 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oktav.md)
-- 2026-06-29 16:09 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-29 16:10 - [为何说今日日本似战前日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
-- 2026-06-29 16:23 - [欧盟为什么越来越倾向贸易保护](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozave.md)
-- 2026-06-29 16:16 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-29 16:25 - [莆田仙游一峡谷发生事故5人身亡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evsft.md)
+- 2026-06-29 16:21 - [全网首个单三GTI超人！三角洲最难成就！贱徐三角洲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-29 16:35 - [韩国队差旅费亏麻了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
+- 2026-06-29 16:36 - [依法管制阻遏日方军事化危险动向](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-29 16:18 - [全国第三艘万车级汽车运输船交付](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
+- 2026-06-29 16:21 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-29 16:41 - [中方在台湾岛以东海域活动合理合法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
+- 2026-06-29 16:18 - [一家三口吃溪石斑鱼中毒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
+- 2026-06-29 16:34 - [本届世界杯已有5名球员卷入性侵风波](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jtjex.md)
+- 2026-06-29 16:14 - [逆天祖国人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-29 16:30 - [当我回母校教书](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ailao.md)
+- 2026-06-29 16:26 - [业内：全球市场迎来结构性投资窗口](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:14 - [湖南一学校当众砸毁上百部手机，称没收多年无人认领，目的是警示学生，如何看待这一做法？能起到警示作用吗？](http://www.blog.kurohicncr.top/Article/details/40342073159.shtml)
-- 2026-06-29 16:15 - [沙丘](http://www.share.kurohicncr.top/Article/details/82832454.shtml)
-- 2026-06-29 16:13 - [差点没看懂白鹿丞磊这段意识流](http://www.share.minike.top/Article/details/67561.shtml)
-- 2026-06-29 16:36 - [明星大侦探第一季](https://www.share.minike.top/Article/details/53642572211.shtml)
-- 2026-06-29 16:35 - [papi酱回应毕业4年零收入](http://www.share.minike.top/Article/details/78362.shtml)
-- 2026-06-29 16:20 - [毒液2](https://www.blog.minike.top/Article/details/4677822886.shtml)
-- 2026-06-29 16:13 - [“断骨增高”灰产链：拉1人提成1.5万](http://www.blog.kurohicncr.top/Article/details/78817.shtml)
-- 2026-06-29 16:25 - [丘成桐大学生数学竞赛颁奖典礼举行](https://www.share.minike.top/Article/details/76082.shtml)
-- 2026-06-29 16:28 - [把古诗里的动作换成加班](http://www.share.minike.top/Article/details/1502942.shtml)
-- 2026-06-29 16:12 - [王俊凯命名方式](http://www.share.minike.top/Article/details/5922094.shtml)
-- 2026-06-29 16:11 - [《明日方舟：终末地》过场动画 - 血色已至](http://www.share.kurohicncr.top/Article/details/320406192.shtml)
-- 2026-06-29 16:19 - [中国多领域发布亮眼“成绩单”](https://www.share.kurohicncr.top/Article/details/037563578.shtml)
-- 2026-06-29 16:32 - [尹恩惠自曝14年没谈过恋爱](https://www.blog.kurohicncr.top/Article/details/8385013904.shtml)
-- 2026-06-29 16:11 - [105年初心滚烫](http://www.blog.minike.top/Article/details/8055213922.shtml)
-- 2026-06-29 16:29 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/0171872467.shtml)
+- 2026-06-29 16:19 - [广东一地发现极危植物新物种](http://www.share.minike.top/Article/details/63774520290.shtml)
+- 2026-06-29 16:40 - [TLAW vs DCG MSI](http://www.blog.minike.top/Article/details/15053102876.shtml)
+- 2026-06-29 16:14 - [为何说今日日本似战前日本](https://www.share.minike.top/Article/details/662774321.shtml)
+- 2026-06-29 16:14 - [巴西发布对阵日本宣传片](http://www.blog.minike.top/Article/details/765803834.shtml)
+- 2026-06-29 16:14 - [在自己家不穿衣服犯法吗](https://www.blog.kurohicncr.top/Article/details/54606.shtml)
+- 2026-06-29 16:19 - [美国队踢世界杯 美政客烧钱打广告忙](https://www.share.minike.top/Article/details/437129093.shtml)
+- 2026-06-29 16:28 - [周生如故](https://www.share.minike.top/Article/details/80565.shtml)
+- 2026-06-29 16:27 - [舒行钢任湖南省交通运输厅厅长](http://www.blog.minike.top/Article/details/983107786381.shtml)
+- 2026-06-29 16:39 - [王楚钦开门红](http://www.blog.kurohicncr.top/Article/details/6972897908.shtml)
+- 2026-06-29 16:17 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/16152729.shtml)
+- 2026-06-29 16:41 - [重度抑郁女孩没钱去做心理咨询](https://www.share.minike.top/Article/details/923965.shtml)
+- 2026-06-29 16:15 - [披荆斩棘的哥哥](https://www.share.minike.top/Article/details/91914031.shtml)
+- 2026-06-29 16:40 - [12所大学更正招生目录](http://www.blog.kurohicncr.top/Article/details/5116581.shtml)
+- 2026-06-29 16:15 - [AG 宫斗](http://www.blog.minike.top/Article/details/7239138926.shtml)
+- 2026-06-29 16:31 - [亲妈因家庭矛盾虐待3岁女儿获刑](https://www.blog.kurohicncr.top/Article/details/49095.shtml)

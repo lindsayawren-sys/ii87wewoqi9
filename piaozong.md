@@ -1,55 +1,61 @@
-# 两名巴基斯坦航天员已进入中国航天员科研训练中心 参加任务训练
+# 温暖的回响｜延安革命旧址是一本永远读不完的书
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-今天(5月23日)上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。 发言人介绍，两名巴基斯坦航天员目前整体训练进度，核心训练科目包含的内容以及日常训练与在轨协作是否需要掌握中文的情况。 今年航天日，两名巴基斯坦航天员已进入中国航天员科研训练中心，与中国航天员一同参加任务训练。按计划，1名巴基斯坦航天员将作为载荷专家执行短期飞行任务，正在按照训练方案进行基础训练和
+在延安时期形成和发扬的光荣传统和优良作风，培育形成的以坚定正确的政治方向、解放思想实事求是的思想路线、全心全意为人民服务的根本宗旨、自力更生艰苦奋斗的创业精神为主要内容的延安精神，是党的宝贵精神财富，要代代传承下去。——习近平 视频：温暖的回响｜延安革命旧址是一本永远读不完的书来源：群众新闻客户端 春到延安，松柏滴翠。 4月11日，杨家岭革命旧址，中央大礼堂的青砖灰瓦静默如初。
 
 ## 正文
 
-今天(5月23日)上午，神舟二十三号载人飞行任务新闻发布会在酒泉卫星发射中心召开。
+在延安时期形成和发扬的光荣传统和优良作风，培育形成的以坚定正确的政治方向、解放思想实事求是的思想路线、全心全意为人民服务的根本宗旨、自力更生艰苦奋斗的创业精神为主要内容的延安精神，是党的宝贵精神财富，要代代传承下去。
 
-发言人介绍，两名巴基斯坦航天员目前整体训练进度，核心训练科目包含的内容以及日常训练与在轨协作是否需要掌握中文的情况。
+——习近平 视频：温暖的回响｜延安革命旧址是一本永远读不完的书来源：群众新闻客户端 春到延安，松柏滴翠。
 
-今年航天日，两名巴基斯坦航天员已进入中国航天员科研训练中心，与中国航天员一同参加任务训练。
+4月11日，杨家岭革命旧址，中央大礼堂的青砖灰瓦静默如初。
 
-按计划，1名巴基斯坦航天员将作为载荷专家执行短期飞行任务，正在按照训练方案进行基础训练和航天专业技术训练，重点开展实际操作能力训练，确保巴基斯坦航天员具备完成飞行任务的能力，目前各项工作进展顺利。
+一群“红领巾”用稚嫩而坚定的声音，向游客讲述八十多年前那场“团结的大会、胜利的大会”。
 
-关于中文学习，入队初期，会集中开展汉语授课，强化中文学习，掌握汉语基本知识和执行飞行任务所需的相关口令词汇。
+几公里外的延安革命纪念馆，年轻父母俯身对孩子说：“看，这就是毛主席当年用过的小炕桌。
 
-(央视新闻客户端 总台央视记者 王刚 李昊)
+”序厅红墙上，“胜利的出发点”几个大字，在灯光下熠熠生辉。
+
+七十多年前，中国共产党从延安出发，走出窑洞、登上天安门城楼，开启了改天换地的伟大征程。
+
+2022年10月27日，党的二十大闭幕不到一周，习近平总书记带领二十届中央政治局常委来到延安。
 
 ## 相关推荐
 
-- 2026-06-29 16:28 - [配音演员于小华病逝 享年78岁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/durlg.md)
-- 2026-06-29 16:18 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-29 16:33 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuijue.md)
-- 2026-06-29 16:21 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/deirp.md)
-- 2026-06-29 16:17 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgyn.md)
-- 2026-06-29 16:28 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
-- 2026-06-29 16:24 - [男子造谣县城满街都是小混混被行拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-29 16:13 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
-- 2026-06-29 16:07 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
-- 2026-06-29 16:20 - [周锡玮：做堂堂正正的中国人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fnipv.md)
-- 2026-06-29 16:10 - [看看赶海都能遇到啥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shylq.md)
-- 2026-06-29 16:10 - [孙颖莎将迎来本届美国大满贯首秀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-29 16:21 - [恋与深空评分暴跌至1.8](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-29 16:16 - [天道](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-29 16:30 - [自然资源部派专家赴宜宾地震影响区](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aepgx.md)
+- 2026-06-29 16:13 - [永远有话聊的原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiebu.md)
+- 2026-06-29 16:31 - [中方将20家日本实体列入管控名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-29 16:29 - [男子路过修车店瞬间被喷得一脸黑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lowsx.md)
+- 2026-06-29 16:39 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
+- 2026-06-29 16:28 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-29 16:38 - [小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-29 16:21 - [四川宜宾地震](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
+- 2026-06-29 16:38 - [成都至北京将新增动卧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-29 16:13 - [美的空调 卡bug](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
+- 2026-06-29 16:28 - [习近平会见白俄罗斯总统卢卡申科](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuqian.md)
+- 2026-06-29 16:19 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-29 16:39 - [央视起底直播诈骗连环套](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-29 16:17 - [古力娜扎美出新高度](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:29 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/292422.shtml)
-- 2026-06-29 16:15 - [FIFA回应佛得角队长被指控强奸](http://www.share.minike.top/Article/details/2533260232.shtml)
-- 2026-06-29 16:10 - [滾石唱片要求万豪酒店道歉](https://www.blog.kurohicncr.top/Article/details/510063772.shtml)
-- 2026-06-29 16:27 - [上周末 多领域成果密集“上新”](https://www.blog.minike.top/Article/details/122442051833.shtml)
-- 2026-06-29 16:35 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/0670584.shtml)
-- 2026-06-29 16:13 - [披荆斩棘的哥哥](http://www.share.kurohicncr.top/Article/details/1092239068.shtml)
-- 2026-06-29 16:27 - [江语晨 好恨江语晨前夫](https://www.share.kurohicncr.top/Article/details/166267910.shtml)
-- 2026-06-29 16:24 - [我国文化产业营收规模突破20万亿元](https://www.blog.minike.top/Article/details/761807.shtml)
-- 2026-06-29 16:07 - [戴军否认1993年月入过万](https://www.blog.kurohicncr.top/Article/details/3759284444.shtml)
-- 2026-06-29 16:34 - [韩国国脚无缘上亿韩元奖金](https://www.share.minike.top/Article/details/06147.shtml)
-- 2026-06-29 16:23 - [滚石要求万豪就屠颖去世事件道歉](http://www.blog.minike.top/Article/details/090093110009.shtml)
-- 2026-06-29 16:33 - [四川宜宾地震已致13人受轻微伤](http://www.share.minike.top/Article/details/552312443522.shtml)
-- 2026-06-29 16:06 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/241812.shtml)
-- 2026-06-29 16:12 - [全国第三艘万车级汽车运输船交付](http://www.share.kurohicncr.top/Article/details/470978057100.shtml)
-- 2026-06-29 16:15 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/71995481.shtml)
+- 2026-06-29 16:39 - [美议员呼吁断供以色列政府](https://www.blog.kurohicncr.top/Article/details/824648.shtml)
+- 2026-06-29 16:12 - [美国大满贯首日国乒主力均取胜](https://www.share.minike.top/Article/details/51997.shtml)
+- 2026-06-29 16:16 - [博主：全球股市进入“AI极端共振”](https://www.share.kurohicncr.top/Article/details/2147797.shtml)
+- 2026-06-29 16:18 - [《步步惊心》播出 15 年后女主角若曦人设「塌房」，被指双标、恋爱脑，为何现代观众评价与以往大相径庭？](https://www.share.minike.top/Article/details/1900464.shtml)
+- 2026-06-29 16:13 - [流金岁月](https://www.share.minike.top/Article/details/388845672722.shtml)
+- 2026-06-29 16:40 - [每代父母都困在自己的时代里](https://www.share.kurohicncr.top/Article/details/742948.shtml)
+- 2026-06-29 16:39 - [韩国媒体给主教练洪明甫打马赛克](http://www.share.kurohicncr.top/Article/details/140844877065.shtml)
+- 2026-06-29 16:22 - [韩国队如何把94%出线概率打到0%](http://www.blog.minike.top/Article/details/76760.shtml)
+- 2026-06-29 16:29 - [四川宜宾5.5级地震已致13人轻微伤](http://www.share.kurohicncr.top/Article/details/0905773234.shtml)
+- 2026-06-29 16:31 - [被丈夫抛土崖女子尸检证明是摔死的](http://www.share.minike.top/Article/details/91808398611.shtml)
+- 2026-06-29 16:27 - [明星大侦探第四季](https://www.share.kurohicncr.top/Article/details/5007823454.shtml)
+- 2026-06-29 16:16 - [如何评价《崩坏：星穹铁道》即兴巡演PV：「欢愉之死」？](http://www.blog.minike.top/Article/details/55989643.shtml)
+- 2026-06-29 16:35 - [父亲患病母亲残疾女儿接到清华电话](http://www.share.kurohicncr.top/Article/details/46648975580.shtml)
+- 2026-06-29 16:23 - [世界杯看到肖战了](https://www.share.minike.top/Article/details/05914.shtml)
+- 2026-06-29 16:16 - [世界杯看到肖战了](http://www.share.minike.top/Article/details/98465609779.shtml)

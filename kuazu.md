@@ -1,56 +1,57 @@
-# 推动中国抹茶产业全球化布局 2026抹茶产业高质量发展大会举办
+# 专家评舞剧《大染坊》：构建起独有的舞蹈语言表达体系
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-中新网杭州5月23日电 (记者 陈溯)23日，2026抹茶产业高质量发展大会在浙江杭州举办，同期举行中国食品土畜进出口商会抹茶专业委员会成立仪式。大会紧扣“三茶”统筹发展要求，以“链通全球，抹创未来”为主题，汇聚全国抹茶主产区政府、科研机构、龙头企业、国际客商及新茶饮品牌代表，推动中国抹茶产业高质量发展与全球化布局。大会期间，抹茶专委会正式成立，会议明确专委会将以服务产业、规范
+中新网北京4月20日电 (记者 应妮)山东歌舞剧院创排的舞剧《大染坊》刚刚在国家大剧院完成首轮演出。该剧依托同名长篇小说与经典电视剧改编，铺展出民族企业家陈寿亭从街头乞儿到印染巨擘的一生，将亲友温情、商战博弈与家国大义熔铸于色彩流转之间。 日前在京举行的舞剧《大染坊》“北舞剧评”活动上，与会专家一致认为，该剧成功实现经典IP的舞台转化，以小人物命运折射大时代风云，以实业精神抒写
 
 ## 正文
 
-中新网杭州5月23日电 (记者 陈溯)23日，2026抹茶产业高质量发展大会在浙江杭州举办，同期举行中国食品土畜进出口商会抹茶专业委员会成立仪式。
+中新网北京4月20日电 (记者 应妮)山东歌舞剧院创排的舞剧《大染坊》刚刚在国家大剧院完成首轮演出。
 
-大会紧扣“三茶”统筹发展要求，以“链通全球，抹创未来”为主题，汇聚全国抹茶主产区政府、科研机构、龙头企业、国际客商及新茶饮品牌代表，推动中国抹茶产业高质量发展与全球化布局。
+该剧依托同名长篇小说与经典电视剧改编，铺展出民族企业家陈寿亭从街头乞儿到印染巨擘的一生，将亲友温情、商战博弈与家国大义熔铸于色彩流转之间。
 
-大会期间，抹茶专委会正式成立，会议明确专委会将以服务产业、规范行业、推动出口、强化合作为核心使命，重点推进抹茶出口标准建设、通关便利化、数字化服务平台搭建、国际商务交流、贸易风险预警、行业自律体系构建等工作，为中国抹茶健康有序发展提供机制保障与组织支撑。
+日前在京举行的舞剧《大染坊》“北舞剧评”活动上，与会专家一致认为，该剧成功实现经典IP的舞台转化，以小人物命运折射大时代风云，以实业精神抒写家国大义，兼具艺术品质与时代价值。
 
-中国食品土畜进出口商会副会长于露表示，抹茶专委会要立足产业、服务企业、对接国际，全力推动中国抹茶在全球市场形成更强竞争力。
+作品在叙事结构、舞蹈语言、跨界融合等方面亮点鲜明，既坚守艺术本体，又彰显齐鲁风骨与民族精神，为当代舞剧创作提供了高质量范本。
 
-同时，大会聚焦产业升级与全球开拓展开深度研讨。
+该剧独创的白、蓝、黑、灰、黄、红六色结构，实现了经典IP从文学到舞台的诗意转译。
 
-主旨演讲汇聚茶学科研、质量认证、产业运营、品牌管理等领域权威嘉宾，从科技创新、品质管控、国际认证、消费趋势、跨境贸易等多个维度，分享前沿理念与成功实践，为企业转型升级、拓展海外提供务实方案。
+中国人民大学艺术学院副院长、教授顾亚奇评价，色彩不仅是全剧的核心叙事符号，更承担着人物命运转场、精神意象升华的重要功能；布匹的物理形态被赋予生命，色彩的更迭与飘展，成为人物情感、时代命运与民族精神直观的外化表达。
 
-互动沙龙环节，与会嘉宾围绕两大核心议题深入交流。
+舞剧之难，很大一部分难在叙事。
 
-“聚势协同，夯实发展根基”聚焦产区共建、标准共制、资源共享，推动政产学研深度融合，筑牢产业发展基座。
+《当代舞蹈艺术研究》主编、上海戏剧学院舞蹈学院副院长张素琴表示，该剧剧本作为一剧之领，实现了“事项、情项、舞项”三者有机统一，摆脱对文学文本的依赖，以舞蹈符号完成独立叙事，让观众真正读懂舞剧。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [东鹏饮料创始人不喝东鹏？造谣者被拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
-- 2026-06-29 16:29 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
-- 2026-06-29 16:12 - [梅朗雄主张法国退出北约](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
-- 2026-06-29 16:24 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-29 16:25 - [林昀儒不敌17岁小将止步首轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
-- 2026-06-29 16:27 - [韩国队如何把94%出线概率打到0%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
-- 2026-06-29 16:27 - [俄罗斯或全面禁止柴油出口有何影响](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hangbiao.md)
-- 2026-06-29 16:29 - [绿化带上演“蛇吞蛙”翻车现场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-29 16:15 - [日本主教练回应迎战巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
-- 2026-06-29 16:33 - [媒体：网络测评不能只剩“生意”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
+- 2026-06-29 16:32 - [欧洲人驾车200公里抢购中国空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-29 16:27 - [俄方：欧洲人热死是因拒绝俄能源](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-29 16:17 - [20年前的周杰伦](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
+- 2026-06-29 16:22 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-29 16:26 - [中国有巨大贸易顺差，人民币国际化又需要开放人民币，这两者如何调和？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrbei.md)
+- 2026-06-29 16:33 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-29 16:32 - [小众羞耻点是吃麻辣烫](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhepz.md)
+- 2026-06-29 16:27 - [福建仙游一峡谷发生意外 5游客身亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-29 16:34 - [王楚钦欢迎晚宴上打台球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-29 16:33 - [第一批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
+- 2026-06-29 16:33 - [12所大学更正招生目录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:32 - [三星电子和 SK 海力士将发布大规模投资计划，规模预超 2000 万亿韩元，这一行动释放了哪些信号？](http://www.blog.kurohicncr.top/Article/details/359300.shtml)
-- 2026-06-29 16:14 - [欧洲多国激辩“装不装空调”](https://www.blog.minike.top/Article/details/34405.shtml)
-- 2026-06-29 16:34 - [刘世锦：建议划拨20万亿国资充实社保](https://www.share.minike.top/Article/details/1168564485.shtml)
-- 2026-06-29 16:31 - [韩国国脚无缘上亿韩元奖金](http://www.share.minike.top/Article/details/8555484312.shtml)
-- 2026-06-29 16:16 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/3592342284.shtml)
-- 2026-06-29 16:21 - [韩国媒体给主教练洪明甫打马赛克](https://www.blog.minike.top/Article/details/009737614936.shtml)
-- 2026-06-29 16:12 - [恋与深空 731](http://www.blog.kurohicncr.top/Article/details/41752921.shtml)
-- 2026-06-29 16:24 - [全国第三艘万车级汽车运输船交付](https://www.blog.kurohicncr.top/Article/details/45461447.shtml)
-- 2026-06-29 16:20 - [中国妇女评网游娱乐化女性安全](https://www.share.kurohicncr.top/Article/details/48193230473.shtml)
-- 2026-06-29 16:09 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/094544.shtml)
-- 2026-06-29 16:17 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](http://www.share.kurohicncr.top/Article/details/565282943164.shtml)
-- 2026-06-29 16:16 - [日本在南鸟岛部署岸舰导弹发射装置](https://www.share.kurohicncr.top/Article/details/139214635.shtml)
-- 2026-06-29 16:12 - [中国空间站为什么要升级扩容](http://www.blog.minike.top/Article/details/0797453.shtml)
-- 2026-06-29 16:16 - [湖北钟祥市委书记张勇拟任新职](https://www.share.minike.top/Article/details/21039812025.shtml)
-- 2026-06-29 16:25 - [南部战区位南海海域进行例行巡航](https://www.blog.kurohicncr.top/Article/details/823710194.shtml)
+- 2026-06-29 16:12 - [如何看待韩国总统李在明怒批韩国队表现，世界杯出局令公众极为失望，这一结果显然是组织和人员方面的失误？](http://www.share.kurohicncr.top/Article/details/63461344.shtml)
+- 2026-06-29 16:35 - [内马尔打日本前先买百万美元豪表](https://www.share.kurohicncr.top/Article/details/245236.shtml)
+- 2026-06-29 16:25 - [巴黎两家殡仪馆爆满](https://www.share.kurohicncr.top/Article/details/3323777.shtml)
+- 2026-06-29 16:30 - [小西蒙尼：我实现参加世界杯的梦想](https://www.share.minike.top/Article/details/016048604.shtml)
+- 2026-06-29 16:31 - [明星大侦探第一季](http://www.share.minike.top/Article/details/4061159147.shtml)
+- 2026-06-29 16:18 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.kurohicncr.top/Article/details/118668143174.shtml)
+- 2026-06-29 16:22 - [普京：俄军距斯拉维扬斯克仅8公里](https://www.blog.minike.top/Article/details/844024424.shtml)
+- 2026-06-29 16:21 - [终于把好哥们处成了情侣!](https://www.blog.minike.top/Article/details/673490537996.shtml)
+- 2026-06-29 16:34 - [欧洲极端高温 美的“卡bug”空调卖爆](https://www.blog.minike.top/Article/details/352480.shtml)
+- 2026-06-29 16:24 - [全国第三艘万车级汽车运输船交付](https://www.share.kurohicncr.top/Article/details/07495706.shtml)
+- 2026-06-29 16:24 - [AG冠军五人组轮换](http://www.blog.kurohicncr.top/Article/details/405448059679.shtml)
+- 2026-06-29 16:21 - [河南考699分女生已接到清华大学电话](http://www.share.minike.top/Article/details/00193588087.shtml)
+- 2026-06-29 16:23 - [11岁小孩哥汽修工龄4年](https://www.share.minike.top/Article/details/5832875832.shtml)
+- 2026-06-29 16:38 - [港股爆发 美团百度阿里等集体大涨](http://www.blog.kurohicncr.top/Article/details/7750815394.shtml)
+- 2026-06-29 16:24 - [2026 年美加墨世界杯阿根廷和葡萄牙两队，你认为谁能走的更远？](https://www.share.minike.top/Article/details/342663791492.shtml)

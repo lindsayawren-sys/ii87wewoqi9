@@ -1,59 +1,59 @@
-# 阔别半世纪 全球首例野化放归雪豹后代现身内蒙古
+# 特朗普：如未能达成协议 极不可能延长停火期限
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:03 UTC+8
 
 ## 摘要
 
-中新网阿拉善5月22日电 题：阔别半世纪 全球首例野化放归雪豹后代现身内蒙古 作者 陈峰 徐晓玲 王禹 近日，在内蒙古贺兰山国家级自然保护区，红外相机清晰捕捉到野化放归的雌性雪豹携1岁幼崽嬉戏、觅食的珍贵影像。这一发现，意味着阔别半个世纪的贺兰山雪豹实现野外自我繁衍，标志着贺兰山雪豹重引入项目迎来重大进展。 经保护区工作人员卫星定位及影像比对核实，此次现身的雪豹幼崽母本为202
+中新网4月21日电 据彭博社20日报道，美国总统特朗普称，他不太可能延长与伊朗达成的为期两周的停火协议。报道指出，这加大了谈判代表尽快达成协议、结束冲突的紧迫性。 特朗普在20日的一次电话采访中表示，他于7日宣布的停火协议将于“华盛顿时间22日晚间”到期。但他同时也表示，如果届时未能达成协议，他“极不可能延长停火期限”。 “我不会仓促达成一项糟糕的协议。我们有的是时间。”特朗普
 
 ## 正文
 
-中新网阿拉善5月22日电 题：阔别半世纪 全球首例野化放归雪豹后代现身内蒙古 作者 陈峰 徐晓玲 王禹 近日，在内蒙古贺兰山国家级自然保护区，红外相机清晰捕捉到野化放归的雌性雪豹携1岁幼崽嬉戏、觅食的珍贵影像。
+中新网4月21日电 据彭博社20日报道，美国总统特朗普称，他不太可能延长与伊朗达成的为期两周的停火协议。
 
-这一发现，意味着阔别半个世纪的贺兰山雪豹实现野外自我繁衍，标志着贺兰山雪豹重引入项目迎来重大进展。
+报道指出，这加大了谈判代表尽快达成协议、结束冲突的紧迫性。
 
-经保护区工作人员卫星定位及影像比对核实，此次现身的雪豹幼崽母本为2024年放归的雌豹“F2”，父本为2021年放归的雄豹“四王子M1”，是两只野化放归雪豹自然配对、野外繁育的后代。
+特朗普在20日的一次电话采访中表示，他于7日宣布的停火协议将于“华盛顿时间22日晚间”到期。
 
-北京林业大学野生动物研究所原所长时坤表示，经科技查新及国际雪豹保护网络检索，该案例是全球雪豹重引入项目中，首次完整实现“野放定植—自然配对—野外产崽—成功育幼”的成功案例。
+但他同时也表示，如果届时未能达成协议，他“极不可能延长停火期限”。
 
-“此举打破了雪豹重引入难以野外繁殖的困局，为雪豹迁地保护与历史分布区种群重建，提供了科学范式与实践范例。
+“我不会仓促达成一项糟糕的协议。
 
-” 雪豹作为高山生态系统旗舰物种，是贺兰山原生物种。
+我们有的是时间。
 
-20世纪50年代，因栖息地破坏、人类活动持续干扰，雪豹在贺兰山区域绝迹。
+”特朗普补充说。
 
-多年来，当地持续推进生态保护与修复工作，区域植被盖度稳步提升，岩羊等有蹄类猎物种群持续复苏，生态承载力显著增强。
+他还称，协议达成前，不会停止对伊朗的海上封锁。
 
 ## 相关推荐
 
-- 2026-06-29 16:08 - [被丈夫抛土崖女子尸检证明是摔死的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giuoe.md)
-- 2026-06-29 16:19 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiangniang.md)
-- 2026-06-29 16:14 - [国家体育总局政策法规司原副司长获刑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-29 16:25 - [5万块的威力](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
-- 2026-06-29 16:07 - [众星恭喜吴建豪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qyxtv.md)
-- 2026-06-29 16:12 - [德云色预测世界杯16强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
-- 2026-06-29 16:18 - [FIFA回应佛得角队长被指控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
-- 2026-06-29 16:23 - [“断骨增高”灰产链：拉1人提成1.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-29 16:29 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
-- 2026-06-29 16:12 - [人形机器人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-29 16:08 - [余承东官宣尊界 V800 定位「超高端 MPV」，其市场竞争力如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
-- 2026-06-29 16:25 - [上海小区惊现鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
-- 2026-06-29 16:14 - [内马尔打日本前先买百万美元豪表](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvoie.md)
+- 2026-06-29 16:36 - [巴黎两家殡仪馆爆满](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
+- 2026-06-29 16:37 - [上海一小区水池内出现一条鳄鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-29 16:30 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pexlf.md)
+- 2026-06-29 16:19 - [【蛋仔派对生日会】共赴蛋仔四周年生日庆典](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umbuc.md)
+- 2026-06-29 16:28 - [普京：俄军距斯拉维扬斯克仅8公里](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
+- 2026-06-29 16:25 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
+- 2026-06-29 16:28 - [王俊凯命名方式](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
+- 2026-06-29 16:30 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ffgyw.md)
+- 2026-06-29 16:14 - [失母小马驹盯着冰柜里的牛奶寸步不离](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-29 16:27 - [徐昕暂不参加NBA夏季联赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlcqj.md)
+- 2026-06-29 16:18 - [千亿存储巨头悄悄在深圳蛰伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dacxi.md)
+- 2026-06-29 16:34 - [尽量少用玻璃吸管](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
+- 2026-06-29 16:19 - [大范围炎热天气将至](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:31 - [王楚钦欢迎晚宴上打台球](http://www.share.minike.top/Article/details/756092674871.shtml)
-- 2026-06-29 16:08 - [上海小区惊现鳄鱼](http://www.share.minike.top/Article/details/20762095965.shtml)
-- 2026-06-29 16:15 - [葛军谈AI时代理科生出路](https://www.blog.kurohicncr.top/Article/details/956848446.shtml)
-- 2026-06-29 16:20 - [TFING全员黑西装](https://www.blog.minike.top/Article/details/36490903.shtml)
-- 2026-06-29 16:26 - [韩国主帅洪明甫辞职](https://www.share.minike.top/Article/details/721977179.shtml)
-- 2026-06-29 16:27 - [光与夜之恋](https://www.blog.kurohicncr.top/Article/details/49993183.shtml)
-- 2026-06-29 16:34 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/2681611540.shtml)
-- 2026-06-29 16:24 - [梅朗雄主张法国退出北约](http://www.share.minike.top/Article/details/043208970229.shtml)
-- 2026-06-29 16:19 - [周锡玮：做堂堂正正的中国人](http://www.blog.minike.top/Article/details/230797116425.shtml)
-- 2026-06-29 16:15 - [曹格把擦腋下的毛巾扔给粉丝](https://www.share.minike.top/Article/details/25848.shtml)
-- 2026-06-29 16:35 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.share.kurohicncr.top/Article/details/2303181.shtml)
-- 2026-06-29 16:31 - [papi酱回应毕业4年零收入](https://www.blog.kurohicncr.top/Article/details/07629.shtml)
-- 2026-06-29 16:25 - [T1零封KC MSI](https://www.blog.minike.top/Article/details/150190649488.shtml)
-- 2026-06-29 16:32 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/3325370.shtml)
-- 2026-06-29 16:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/418612295.shtml)
+- 2026-06-29 16:37 - [三轮车过马路 车上木材砸中路边男子](http://www.share.minike.top/Article/details/41235360.shtml)
+- 2026-06-29 16:21 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/5888847.shtml)
+- 2026-06-29 16:36 - [《贺子珍》](https://www.share.minike.top/Article/details/27364663.shtml)
+- 2026-06-29 16:40 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/3664645287.shtml)
+- 2026-06-29 16:38 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/7440052924.shtml)
+- 2026-06-29 16:25 - [王曼昱被突如其来的话筒逗笑了](https://www.blog.minike.top/Article/details/43736.shtml)
+- 2026-06-29 16:30 - [韩国队差旅费亏麻了](https://www.blog.kurohicncr.top/Article/details/42722292259.shtml)
+- 2026-06-29 16:21 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/06097.shtml)
+- 2026-06-29 16:26 - [沉睡花园](https://www.blog.minike.top/Article/details/4714703377.shtml)
+- 2026-06-29 16:26 - [沉睡花园](https://www.share.minike.top/Article/details/455516.shtml)
+- 2026-06-29 16:29 - [杨紫视后第一场线下活动](http://www.blog.kurohicncr.top/Article/details/14906063264.shtml)
+- 2026-06-29 16:12 - [德云色预测世界杯16强](https://www.share.minike.top/Article/details/35274280059.shtml)
+- 2026-06-29 16:33 - [外交部回应中日经贸问题](https://www.share.kurohicncr.top/Article/details/5052807.shtml)
+- 2026-06-29 16:22 - [西十高铁让“朝秦暮楚”之地活了](https://www.share.minike.top/Article/details/0019953.shtml)
+- 2026-06-29 16:12 - [滾石唱片要求万豪酒店道歉](http://www.blog.kurohicncr.top/Article/details/78992.shtml)

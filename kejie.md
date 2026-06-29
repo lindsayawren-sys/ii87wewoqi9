@@ -1,58 +1,61 @@
-# 老虎、富途、长桥将被罚 2年集中整治如何影响跨境炒股投资者
+# 总台记者连线丨日本社会强烈反对杀伤性武器出口
 
-> 更新时间：2026-06-29 16:36:02 UTC+8
+> 更新时间：2026-06-29 16:42:02 UTC+8
 
 ## 摘要
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 中国证监会5月22日宣布，Tiger Brokers（NZ）Limited、富途证券国际（香港）有限公司、长桥证券（香港）有限公司的非法跨境展业行为，违反了我国证券基金期货法律法规，破坏了市场秩序，必须坚决予以打击。依据相关规定，证监会拟决定没收老虎、富途、长桥境内外相关主体全部违法所得，并依法严厉处罚。 记者5月22日从中国证
+日本政府21日上午在内阁会议及国家安全保障会议上正式修改了“防卫装备转移三原则”及其运用指南。消息一出，遭到日本社会各界的强烈反对。 视频：日本通过内阁决议正式允许出口杀伤性武器 日本社会强烈反对杀伤性武器出口来源：央视新闻客户端 总台记者 李卫兵：21日上午日本政府在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。规则修改后，日本将取消此前
 
 ## 正文
 
-专题：证监会严肃查处老虎富途长桥非法跨境展业案件 中国证监会5月22日宣布，Tiger Brokers（NZ）Limited、富途证券国际（香港）有限公司、长桥证券（香港）有限公司的非法跨境展业行为，违反了我国证券基金期货法律法规，破坏了市场秩序，必须坚决予以打击。
+日本政府21日上午在内阁会议及国家安全保障会议上正式修改了“防卫装备转移三原则”及其运用指南。
 
-依据相关规定，证监会拟决定没收老虎、富途、长桥境内外相关主体全部违法所得，并依法严厉处罚。
+消息一出，遭到日本社会各界的强烈反对。
 
-记者5月22日从中国证监会获悉，近日，经国务院同意，中国证监会等8部门联合印发《综合整治非法跨境证券期货基金经营活动实施方案》，明确经过2年集中整治全面取缔境外证券期货基金经营机构非法跨境经营活动。
+视频：日本通过内阁决议正式允许出口杀伤性武器 日本社会强烈反对杀伤性武器出口来源：央视新闻客户端 总台记者 李卫兵：21日上午日本政府在内阁会议上正式修改了“防卫装备转移三原则”及其运用指南，原则上将允许出口杀伤性武器。
 
-根据方案，设置2年集中整治期清理非法存量业务，集中整治期内，禁止境外机构为存量投资者在境内非法提供买入交易、转入资金等服务，只允许单向卖出交易并转出资金。
+规则修改后，日本将取消此前将武器出口限定在5类非战斗用途范围内的限制，原则上允许包括杀伤性武器在内的成品武器出口；在特定情况下，也将允许向处于冲突中的国家出口武器。
 
-集中整治期满后，境外机构要全面关停境内网站、交易软件及配套服务器，禁止为存量投资者在境内非法提供交易等服务。
+此外，根据新规则，日本武器出口将由首相、内阁官房长官、外务大臣和防卫大臣审批，获批后再通报国会。
 
-前些年，一些境外证券期货基金经营机构未经批准，利用境内关联或合作主体在境内招揽客户，并通过网站、App向境内投资者提供境外股票等开户、交易服务，严重扰乱我国金融市场秩序。
+此外，今天上午还有一则消息引人注目，日本首相高市早苗向靖国神社供奉了名为“真榊”的祭品。
 
-实际上，2022年12月30日，中国证监会就曾明确此类活动的非法性，依法开展对富途证券、老虎证券等境外券商非法跨境经营的整治工作，取缔增量非法业务活动，禁止其招揽境内投资者及发展境内新客户、开立新账户。
+这两件事发生在同一天，是巧合还是另有深意，不得不让人深思。
 
-对于本次整治，各方十分关注存量投资者合法权益如何保护。
+日本方面：此举加剧外界对地区紧张局势的担忧 总台记者 李卫兵：自高市早苗政权意欲修改武器出口三原则的动向被披露之后，其在日本国内持续引发舆论的反对和民众的抗议之声。
 
 ## 相关推荐
 
-- 2026-06-29 16:32 - [TFING全员黑西装](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksnic.md)
-- 2026-06-29 16:31 - [决战武神女王，获得天堂制造的仙界装备【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-29 16:10 - [A股涨指数不涨个股的日子要结束了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uvkgt.md)
-- 2026-06-29 16:13 - [石洵瑶挺进WTT美国大满贯女单32强](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-29 16:31 - [委内瑞拉2400亿美元债务怎么还](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
-- 2026-06-29 16:21 - [大疆7月15日起涨价？公司回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ghedm.md)
-- 2026-06-29 16:19 - [谢霆锋王菲十指紧扣一起走](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-29 16:24 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuansang.md)
-- 2026-06-29 16:11 - [欧洲人驾车200公里抢购中国空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rengbin.md)
-- 2026-06-29 16:25 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
-- 2026-06-29 16:11 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-29 16:07 - [高市早苗口齿不清被质疑醉酒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-29 16:39 - [阿娇瘦了10斤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongxin.md)
+- 2026-06-29 16:25 - [巴西球员：日本队有点傲慢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mnelz.md)
+- 2026-06-29 16:14 - [胡光宇一审获刑13年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
+- 2026-06-29 16:29 - [A股收评：科创50指数大涨4.61%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdxxu.md)
+- 2026-06-29 16:22 - [法国4：1挪威，登贝莱半场戴帽，对此你的看法是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuniao.md)
+- 2026-06-29 16:32 - [运20飞机列装空军十周年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fojdv.md)
+- 2026-06-29 16:32 - [普京：俄罗斯面临命运攸关时刻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/smxcv.md)
+- 2026-06-29 16:15 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-29 16:35 - [普京为何喊话俄乌都别打对方纵深](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huiwei.md)
+- 2026-06-29 16:29 - [男孩复读一年减重20斤涨分111分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mengxing.md)
+- 2026-06-29 16:19 - [吴建豪老婆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
+- 2026-06-29 16:30 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knfmc.md)
+- 2026-06-29 16:30 - [赵露思爸爸拍vlog“翻车”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuojuan.md)
+- 2026-06-29 16:30 - [普京说乌方打击无法迫使俄被动谈判](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-29 16:25 - [韩国队差旅费亏麻了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-29 16:35 - [戴军否认1993年月入过万](http://www.blog.minike.top/Article/details/0032949681.shtml)
-- 2026-06-29 16:10 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/94598.shtml)
-- 2026-06-29 16:07 - [世界杯：日本将与巴西争夺16强席位](https://www.blog.kurohicncr.top/Article/details/913727.shtml)
-- 2026-06-29 16:19 - [李白都已经那么接近皇帝了，为什么不找个机会跟皇帝深谈能否被重用啊？](http://www.blog.minike.top/Article/details/6359349619.shtml)
-- 2026-06-29 16:35 - [叠纸](https://www.blog.kurohicncr.top/Article/details/1387665922.shtml)
-- 2026-06-29 16:30 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/3415133829.shtml)
-- 2026-06-29 16:15 - [老板回应员工光脚清洗土豆](http://www.blog.minike.top/Article/details/53834.shtml)
-- 2026-06-29 16:23 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/8384250.shtml)
-- 2026-06-29 16:08 - [AG 宫斗](https://www.blog.kurohicncr.top/Article/details/57883116537.shtml)
-- 2026-06-29 16:18 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.kurohicncr.top/Article/details/8508768.shtml)
-- 2026-06-29 16:14 - [世界杯淘汰赛首轮五场焦点对决](http://www.blog.minike.top/Article/details/740305075166.shtml)
-- 2026-06-29 16:30 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/8440834.shtml)
-- 2026-06-29 16:11 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.kurohicncr.top/Article/details/926820888391.shtml)
-- 2026-06-29 16:18 - [电影《抓特务》总票房破亿](http://www.blog.kurohicncr.top/Article/details/2932569222.shtml)
-- 2026-06-29 16:34 - [滾石唱片要求万豪酒店道歉](http://www.share.minike.top/Article/details/42493.shtml)
+- 2026-06-29 16:37 - [乔家的儿女](http://www.share.kurohicncr.top/Article/details/509961.shtml)
+- 2026-06-29 16:40 - [第一批缉毒警已全体退休](https://www.share.minike.top/Article/details/35750023073.shtml)
+- 2026-06-29 16:36 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.blog.kurohicncr.top/Article/details/410188019.shtml)
+- 2026-06-29 16:27 - [美国大满贯首日国乒主力均取胜](http://www.blog.kurohicncr.top/Article/details/453766.shtml)
+- 2026-06-29 16:30 - [高市早苗口齿不清被质疑醉酒](http://www.share.minike.top/Article/details/416975851.shtml)
+- 2026-06-29 16:38 - [恋与深空遭抵制后仍置顶敖尹](https://www.share.minike.top/Article/details/000056958.shtml)
+- 2026-06-29 16:19 - [欧洲人驾车200公里抢购中国空调](http://www.blog.minike.top/Article/details/75880216586.shtml)
+- 2026-06-29 16:17 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/093244759963.shtml)
+- 2026-06-29 16:36 - [葫芦岛居民楼爆炸致3人失联8人轻微伤](https://www.blog.minike.top/Article/details/8857067945.shtml)
+- 2026-06-29 16:23 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/837132359.shtml)
+- 2026-06-29 16:40 - [给阿嬷的情书海外口碑](https://www.blog.minike.top/Article/details/0734406653.shtml)
+- 2026-06-29 16:23 - [哈兰德这该死的胜负欲](http://www.blog.kurohicncr.top/Article/details/25676735971.shtml)
+- 2026-06-29 16:21 - [三系杂交稻到底有多牛](http://www.blog.minike.top/Article/details/642412099266.shtml)
+- 2026-06-29 16:23 - [送你一朵小红花](http://www.share.minike.top/Article/details/978594639.shtml)
+- 2026-06-29 16:27 - [三星与SK集团或将投资2000万亿韩元](https://www.blog.kurohicncr.top/Article/details/31230693.shtml)
