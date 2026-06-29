@@ -1,53 +1,59 @@
-# 印度汽柴油价格一周内第二次上涨
+# 以黎将就停火问题举行会谈 真主党：毫无意义
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据印度报业托拉斯报道，5月19日，印度汽油和柴油价格再次上调，每升上涨约90派士(印度货币单位)，这是国有石油公司结束近四年价格冻结后，一周内第二次提高燃油价格。 据行业消息人士称，此次调价后，新德里汽油价格从每升97.77卢比升至98.64卢比，柴油价格则从90.67卢比升至91.58卢比。 5月15日，印度汽油和柴油价格已每升上调3卢比，为四年多来首次上
+中新网4月14日电 据法新社报道，黎巴嫩和以色列代表计划于当地时间4月14日在华盛顿举行由美国斡旋的会谈，讨论如何结束冲突，但达成协议的前景似乎十分渺茫。黎巴嫩真主党领导人卡西姆甚至在会谈开始前就呼吁取消此次会谈，并称其“毫无意义”。3月2日，真主党袭击以色列后，黎巴嫩卷入美以伊战事中。此后，以色列持续空袭黎巴嫩，已造成2000多人死亡、100多万人流离失所。尽管国际社会不断呼
 
 ## 正文
 
-中新网5月19日电 据印度报业托拉斯报道，5月19日，印度汽油和柴油价格再次上调，每升上涨约90派士(印度货币单位)，这是国有石油公司结束近四年价格冻结后，一周内第二次提高燃油价格。
+中新网4月14日电 据法新社报道，黎巴嫩和以色列代表计划于当地时间4月14日在华盛顿举行由美国斡旋的会谈，讨论如何结束冲突，但达成协议的前景似乎十分渺茫。
 
-据行业消息人士称，此次调价后，新德里汽油价格从每升97.77卢比升至98.64卢比，柴油价格则从90.67卢比升至91.58卢比。
+黎巴嫩真主党领导人卡西姆甚至在会谈开始前就呼吁取消此次会谈，并称其“毫无意义”。
 
-5月15日，印度汽油和柴油价格已每升上调3卢比，为四年多来首次上涨。
+3月2日，真主党袭击以色列后，黎巴嫩卷入美以伊战事中。
 
-由于伊朗战事导致国际原油价格飙升，国有燃油零售商在经历数月维持价格稳定、配合关键地方选举后，被迫将不断增加的部分亏损转嫁给消费者。
+此后，以色列持续空袭黎巴嫩，已造成2000多人死亡、100多万人流离失所。
+
+尽管国际社会不断呼吁停火，以军地面部队仍已进入黎巴嫩南部。
+
+这场会谈由美国国务卿鲁比奥出面斡旋，参加者包括以色列和黎巴嫩驻美大使，以及美国驻贝鲁特大使。
+
+一名不愿具名的美国国务院官员表示，以色列和黎巴嫩政府正展开公开、直接、高层级的外交会谈，这是自1993年以来首次由美国促成的此类会谈。
+
+该官员称，此次对话将为持续中的讨论划定范围，重点是如何确保以色列北部边境的长期安全，并支持黎巴嫩政府恢复对其全部领土的完整主权。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shihai.md)
-- 2026-06-30 02:48 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
-- 2026-06-30 03:05 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
-- 2026-06-30 02:57 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 03:04 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mersm.md)
-- 2026-06-30 02:58 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/langzhun.md)
-- 2026-06-30 03:03 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 03:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 02:45 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 02:54 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chongxiu.md)
-- 2026-06-30 03:03 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
-- 2026-06-30 02:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 03:02 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
-- 2026-06-30 02:48 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bppnt.md)
-- 2026-06-30 03:01 - [汪苏泷年度歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
+- 2026-06-30 02:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 02:51 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntbqf.md)
+- 2026-06-30 02:51 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bppnt.md)
+- 2026-06-30 02:49 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgwek.md)
+- 2026-06-30 02:55 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 02:50 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 02:50 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
+- 2026-06-30 03:11 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
+- 2026-06-30 03:04 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 03:00 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuoqin.md)
+- 2026-06-30 02:45 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wopan.md)
+- 2026-06-30 02:48 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
+- 2026-06-30 02:54 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/642703.shtml)
-- 2026-06-30 02:36 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/881884.shtml)
-- 2026-06-30 02:49 - [女子螺蛳粉摊吃出蛇](https://www.share.kurohicncr.top/Article/details/761963.shtml)
-- 2026-06-30 02:56 - [王源近几年没有路演了](http://www.blog.minike.top/Article/details/19318568.shtml)
-- 2026-06-30 03:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.kurohicncr.top/Article/details/5286855.shtml)
-- 2026-06-30 02:38 - [勇敢的心第二部](https://www.share.minike.top/Article/details/3168938475.shtml)
-- 2026-06-30 02:38 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/451147629.shtml)
-- 2026-06-30 02:54 - [王欣瑜温网开门红](http://www.share.kurohicncr.top/Article/details/86368844.shtml)
-- 2026-06-30 02:54 - [赛博朋克边缘行者2预告片](http://www.blog.minike.top/Article/details/913443682.shtml)
-- 2026-06-30 02:52 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/287680076845.shtml)
-- 2026-06-30 02:37 - [詹姆斯 勇士](https://www.blog.minike.top/Article/details/475983.shtml)
-- 2026-06-30 02:59 - [运20服役十周年宣传片有哪些亮点](http://www.share.minike.top/Article/details/38315747183.shtml)
-- 2026-06-30 02:59 - [第一炉香](http://www.share.minike.top/Article/details/664438.shtml)
-- 2026-06-30 02:51 - [小孩曾卓君夺冠之路](https://www.share.kurohicncr.top/Article/details/9424463314.shtml)
-- 2026-06-30 02:44 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/848719.shtml)
+- 2026-06-30 03:03 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/4348859812.shtml)
+- 2026-06-30 03:05 - [穆祉丞躺TFING身上](http://www.share.minike.top/Article/details/558085920.shtml)
+- 2026-06-30 02:57 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/97190135.shtml)
+- 2026-06-30 03:09 - [男子非洲务工死亡20多天遗体仍在海外](http://www.blog.kurohicncr.top/Article/details/48588343.shtml)
+- 2026-06-30 02:47 - [这辈子过得最痛苦的生日...](https://www.blog.kurohicncr.top/Article/details/2281009173.shtml)
+- 2026-06-30 02:42 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/7618448008.shtml)
+- 2026-06-30 03:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.share.minike.top/Article/details/427011.shtml)
+- 2026-06-30 03:07 - [斛珠夫人](http://www.share.minike.top/Article/details/77804644718.shtml)
+- 2026-06-30 02:51 - [足球小将的剧本成真了](http://www.share.kurohicncr.top/Article/details/981041722074.shtml)
+- 2026-06-30 03:03 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/498735.shtml)
+- 2026-06-30 02:56 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/85191.shtml)
+- 2026-06-30 02:49 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/18166999701.shtml)
+- 2026-06-30 02:50 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/379860480993.shtml)
+- 2026-06-30 02:53 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/543056443363.shtml)
+- 2026-06-30 02:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.share.minike.top/Article/details/2617227.shtml)

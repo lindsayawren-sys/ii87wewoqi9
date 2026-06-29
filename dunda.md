@@ -1,60 +1,59 @@
-# 酒价内参5月20日价格发布：精品茅台下跌3元，终结六连阳
+# 觅瑞上市首份年报“难产”市值已腰斩 多个新项目在半年内集中取消 1480万美元预付款逾六成被退回
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月20日整体明显走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9985元，较昨日下跌27元，跌破万元整数关口。市场在连续两日高位运行后出现较大幅度回调，终端交投情绪降温，核心单品涨跌分化依然显著。 今日白酒市场11大单品三涨八跌，输家占据绝对优势。上涨方面，青花郎涨幅居前，上涨5元/瓶，
+2026年4月1日上午9时，上市尚不满一年的肿瘤早筛明星公司觅瑞集团（02629.HK）因未能如期刊发2025年度经审核年报，被港交所正式停牌。停牌前一日，公司总市值约37亿港元，较上市初期逾80亿港元缩水过半，已跌破港股通准入门槛。 次日，觅瑞披露了停牌背后更令市场忧心的细节——核数师毕马威在年报审核中发现14笔、总额约1480万美元的预付款事项，其中高达约950万美元已被相
 
 ## 正文
 
-新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价5月20日整体明显走弱。
+2026年4月1日上午9时，上市尚不满一年的肿瘤早筛明星公司觅瑞集团（02629.HK）因未能如期刊发2025年度经审核年报，被港交所正式停牌。
 
-如果主要单品各取一瓶整体打包售卖，今日总售价为9985元，较昨日下跌27元，跌破万元整数关口。
+停牌前一日，公司总市值约37亿港元，较上市初期逾80亿港元缩水过半，已跌破港股通准入门槛。
 
-市场在连续两日高位运行后出现较大幅度回调，终端交投情绪降温，核心单品涨跌分化依然显著。
+次日，觅瑞披露了停牌背后更令市场忧心的细节——核数师毕马威在年报审核中发现14笔、总额约1480万美元的预付款事项，其中高达约950万美元已被相关服务方退还，占比超过64%。
 
-今日白酒市场11大单品三涨八跌，输家占据绝对优势。
+这一金额几乎相当于公司近四年预付款项总和的两倍（2022年至2024年，觅瑞预付款项及按金分别为396.86万、378.55万、349.49万美元），上市后预付款规模出现急剧膨胀。
 
-上涨方面，青花郎涨幅居前，上涨5元/瓶，收复昨日全部失地，重返710元，平月内最高价纪录。
+事件经过：1480万美元预付款“快进快出”引审计关注 2026年3月31日是港股上市公司刊发年报的法定截止日。
 
-该酒品近期虽宽幅震荡，但重心呈逐步上移态势；洋河梦之蓝M6+上涨2元/瓶，再次站上600元关口，近一月价格重心亦稳步上行；五粮液普五八代小幅上涨1元/瓶。
+当天，觅瑞公告称核数师毕马威需要更多时间评估公司向服务提供商及供应商支付的部分预付款，无法按期完成2025年度业绩审核。
 
-下跌方面，古井贡古20跌幅居前，下跌10元/瓶，创近一月最大跌幅，价格快速下探至530元/瓶；习酒君品下跌9元/瓶，价格回落至月内次低位；国窖1573下跌5元/瓶，回吐前两日全部涨幅；飞天茅台、精品茅台与青花汾20均下跌3元/瓶，其中精品茅台终结六连阳，连续上涨后技术性回调，青花汾20则创近一月新低；五粮液1618与水晶剑南春均下跌1元/瓶。
+根据港交所上市规则，未按期刊发经审核年报即强制停牌，若停牌持续超过18个月，将面临摘牌风险。
 
-“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
+次日披露的细节令市场哗然：14笔预付款大多发生于2025年下半年，即觅瑞上市后不久，总价值约1480万美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 02:48 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 02:49 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaopai.md)
-- 2026-06-30 02:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ciskl.md)
-- 2026-06-30 02:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 02:59 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 02:40 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shvmz.md)
-- 2026-06-30 02:54 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jivfs.md)
-- 2026-06-30 02:43 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 03:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/trefu.md)
-- 2026-06-30 03:03 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
-- 2026-06-30 02:55 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
-- 2026-06-30 02:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
-- 2026-06-30 02:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/honghong.md)
+- 2026-06-30 03:07 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/daury.md)
+- 2026-06-30 03:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fiasy.md)
+- 2026-06-30 03:06 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
+- 2026-06-30 02:44 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozxki.md)
+- 2026-06-30 02:51 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiunin.md)
+- 2026-06-30 02:48 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 02:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cifu.md)
+- 2026-06-30 02:54 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdutj.md)
+- 2026-06-30 03:05 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shourang.md)
+- 2026-06-30 03:05 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duotang.md)
+- 2026-06-30 03:11 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/saiseng.md)
+- 2026-06-30 03:00 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
+- 2026-06-30 02:59 - [青春环游记第三季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhouni.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:46 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/91239.shtml)
-- 2026-06-30 02:54 - [找到了10年前跪舔b站的视频](http://www.blog.kurohicncr.top/Article/details/794551.shtml)
-- 2026-06-30 02:36 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/0818105354.shtml)
-- 2026-06-30 02:56 - [猛龙快船交易或将达成](http://www.blog.minike.top/Article/details/15667.shtml)
-- 2026-06-30 02:47 - [速度与激情9](https://www.blog.minike.top/Article/details/326630531.shtml)
-- 2026-06-30 02:45 - [明星大侦探第四季](http://www.share.minike.top/Article/details/29190345.shtml)
-- 2026-06-30 03:00 - [牺牲民警倒下前还在保护群众](https://www.blog.kurohicncr.top/Article/details/57537.shtml)
-- 2026-06-30 02:40 - [月亮](https://www.share.minike.top/Article/details/481108381021.shtml)
-- 2026-06-30 02:38 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/8320449491.shtml)
-- 2026-06-30 02:49 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/725445.shtml)
-- 2026-06-30 02:54 - [国务院：稳步推进研究生考试招生改革](http://www.share.minike.top/Article/details/432333.shtml)
-- 2026-06-30 02:51 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/22715.shtml)
-- 2026-06-30 03:02 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/23737219.shtml)
-- 2026-06-30 02:36 - [手底下人带不动怎么办？](http://www.share.minike.top/Article/details/7671851.shtml)
-- 2026-06-30 02:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.minike.top/Article/details/6102722981.shtml)
+- 2026-06-30 02:50 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/265066789.shtml)
+- 2026-06-30 03:10 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/18441248.shtml)
+- 2026-06-30 03:04 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/73011094671.shtml)
+- 2026-06-30 02:49 - [世界杯](http://www.share.kurohicncr.top/Article/details/99831360.shtml)
+- 2026-06-30 02:55 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/7608935332.shtml)
+- 2026-06-30 03:00 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/04348409578.shtml)
+- 2026-06-30 02:50 - [美股三大指数高开 西部数据涨超2%](http://www.share.kurohicncr.top/Article/details/6819069.shtml)
+- 2026-06-30 02:45 - [董卿父亲发文悼念亡妻](https://www.blog.kurohicncr.top/Article/details/581071.shtml)
+- 2026-06-30 02:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/30225.shtml)
+- 2026-06-30 03:02 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/39983995.shtml)
+- 2026-06-30 02:42 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/802480969445.shtml)
+- 2026-06-30 02:45 - [陈小云又好好的养了自己一年](http://www.blog.minike.top/Article/details/84949177.shtml)
+- 2026-06-30 02:50 - [媒体评哈兰德之歌火了](http://www.share.minike.top/Article/details/568274912.shtml)
+- 2026-06-30 02:50 - [电影后室值得看吗](http://www.blog.kurohicncr.top/Article/details/35241712.shtml)
+- 2026-06-30 02:54 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/4450013.shtml)

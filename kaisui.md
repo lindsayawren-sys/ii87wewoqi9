@@ -1,55 +1,46 @@
-# 俄罗斯无人机击中中国货船？中方证实：相关船只系马绍尔群岛籍
+# 中国人寿财险江门中心支公司被罚50万元：给予投保人保险合同约定以外利益、财务数据不真实
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。 有记者提问：乌克兰方面18日表示，一架俄罗斯无人机在黑海击中了一艘中国货船。请问外交部对此有何评论？ 郭嘉昆：根据目前掌握的情况，相关船只系马绍尔群岛籍，船上有中国籍船员。中国驻乌克兰使馆已与中国船员取得联系，确认无人员伤亡。 关于乌克兰危机，中方的立场是一贯的、明确的，对话谈判是解决乌克兰危
+4月15日金融一线消息，国家金融监督管理总局江门监管分局行政处罚信息公示列表显示，中国人寿财产保险股份有限公司江门中心支公司因给予投保人保险合同约定以外利益、财务数据不真实，被合计罚款50万元。相关责任人员曾凯飞被给予警告，并合计罚款11万元。 责任编辑：王馨茹
 
 ## 正文
 
-中新网北京5月19日电 (记者 李京泽)中国外交部发言人郭嘉昆19日主持例行记者会。
+4月15日金融一线消息，国家金融监督管理总局江门监管分局行政处罚信息公示列表显示，中国人寿财产保险股份有限公司江门中心支公司因给予投保人保险合同约定以外利益、财务数据不真实，被合计罚款50万元。
 
-有记者提问：乌克兰方面18日表示，一架俄罗斯无人机在黑海击中了一艘中国货船。
+相关责任人员曾凯飞被给予警告，并合计罚款11万元。
 
-请问外交部对此有何评论？
-
-郭嘉昆：根据目前掌握的情况，相关船只系马绍尔群岛籍，船上有中国籍船员。
-
-中国驻乌克兰使馆已与中国船员取得联系，确认无人员伤亡。
-
-关于乌克兰危机，中方的立场是一贯的、明确的，对话谈判是解决乌克兰危机的唯一出路。
-
-(完)
+责任编辑：王馨茹
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
-- 2026-06-30 03:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
-- 2026-06-30 02:52 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
-- 2026-06-30 02:49 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 03:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
-- 2026-06-30 02:46 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 02:48 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 02:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
-- 2026-06-30 02:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenglong.md)
-- 2026-06-30 02:36 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
-- 2026-06-30 02:47 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 02:46 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
+- 2026-06-30 03:03 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 03:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 02:59 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
+- 2026-06-30 02:47 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 02:50 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
+- 2026-06-30 03:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:48 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
+- 2026-06-30 03:11 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 02:49 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fnahe.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [流金岁月](http://www.blog.kurohicncr.top/Article/details/44454.shtml)
-- 2026-06-30 02:39 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/186753.shtml)
-- 2026-06-30 03:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.kurohicncr.top/Article/details/79821646.shtml)
-- 2026-06-30 02:58 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/76359379.shtml)
-- 2026-06-30 02:51 - [巴西扳平比分](http://www.blog.minike.top/Article/details/53043249402.shtml)
-- 2026-06-30 02:56 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.minike.top/Article/details/513295.shtml)
-- 2026-06-30 02:53 - [这辈子过得最痛苦的生日...](https://www.share.kurohicncr.top/Article/details/726230.shtml)
-- 2026-06-30 02:58 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/2698515.shtml)
-- 2026-06-30 02:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.kurohicncr.top/Article/details/259901.shtml)
-- 2026-06-30 02:40 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.kurohicncr.top/Article/details/73111139.shtml)
-- 2026-06-30 02:50 - [张凌赫 客串](https://www.share.minike.top/Article/details/83274608.shtml)
-- 2026-06-30 03:01 - [歌剧老师锐评歌手第6期](https://www.blog.kurohicncr.top/Article/details/706964576034.shtml)
-- 2026-06-30 02:57 - [对最近的回应与澄清](https://www.blog.minike.top/Article/details/7021450935.shtml)
-- 2026-06-30 02:57 - [宋亚轩有啥话不憋心里全都说出来](https://www.blog.kurohicncr.top/Article/details/28964.shtml)
-- 2026-06-30 03:00 - [美股](http://www.blog.minike.top/Article/details/68934.shtml)
+- 2026-06-30 02:55 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/4634615.shtml)
+- 2026-06-30 02:55 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/19106107.shtml)
+- 2026-06-30 03:03 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/39605.shtml)
+- 2026-06-30 02:56 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/48601.shtml)
+- 2026-06-30 03:04 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/1787494726.shtml)
+- 2026-06-30 02:54 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.blog.minike.top/Article/details/222755.shtml)
+- 2026-06-30 02:59 - [荷兰VS摩洛哥你看好谁](https://www.blog.kurohicncr.top/Article/details/153035321.shtml)
+- 2026-06-30 03:03 - [孙兴慜发长文致歉](https://www.share.minike.top/Article/details/8362278.shtml)
+- 2026-06-30 03:00 - [AI接过张雪峰志愿填报衣钵](http://www.share.minike.top/Article/details/089552430.shtml)
+- 2026-06-30 03:00 - [AI接过张雪峰志愿填报衣钵](http://www.blog.kurohicncr.top/Article/details/455183359108.shtml)
+- 2026-06-30 02:58 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/52859.shtml)
+- 2026-06-30 02:48 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/53728.shtml)
+- 2026-06-30 02:43 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/13770620.shtml)
+- 2026-06-30 02:45 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/00216551161.shtml)
+- 2026-06-30 03:05 - [董卿母亲癌症去世](http://www.blog.minike.top/Article/details/858190594150.shtml)

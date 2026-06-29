@@ -1,57 +1,58 @@
-# 日化护肤年报|营收利润双承压 珀莱雅、敷尔佳、福瑞达、科思股份业绩双降
+# 阿斯麦上调全年销售预期 AI热潮推高先进设备需求
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！出品：新浪财经公司研究院 作者：新消费主张/cici 截至2026年4月30日，绝大多数日化护肤上市公司已完成2025年财报的披露，对此我们挑选了13家具有代表性的上市公司进行业绩比对分析。在我们选取的13家日化护肤公司中。在行业整体增速放缓、流量红利见顶的背景下，水羊股份、青松股份、上海家化三家实现营收与
+阿斯麦控股上调全年销售预期，全球人工智能支出激增推动半导体生产，提振了对该公司先进芯片制造设备的需求。 阿斯麦周三在公告中表示，今年净销售额预计将在360亿欧元（424亿美元）至400亿欧元之间。此前的预期范围为340亿欧元至390亿欧元。 “我们实际上预计在可预见的未来，供给将无法满足需求，”阿斯麦首席执行官Christophe Fouquet在随财报发布的视频中表示，并称“
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+阿斯麦控股上调全年销售预期，全球人工智能支出激增推动半导体生产，提振了对该公司先进芯片制造设备的需求。
 
-出品：新浪财经公司研究院 作者：新消费主张/cici 截至2026年4月30日，绝大多数日化护肤上市公司已完成2025年财报的披露，对此我们挑选了13家具有代表性的上市公司进行业绩比对分析。
+阿斯麦周三在公告中表示，今年净销售额预计将在360亿欧元（424亿美元）至400亿欧元之间。
 
-在我们选取的13家日化护肤公司中。
+此前的预期范围为340亿欧元至390亿欧元。
 
-在行业整体增速放缓、流量红利见顶的背景下，水羊股份、青松股份、上海家化三家实现营收与净利润双增，成为少数逆势突围的赢家。
+“我们实际上预计在可预见的未来，供给将无法满足需求，”阿斯麦首席执行官Christophe Fouquet在随财报发布的视频中表示，并称“这将严重制约从人工智能到移动设备和个人电脑等终端市场。
 
-其中，青松股份凭借ODM龙头诺斯贝尔受益于行业复苏，净利润暴增180.21%；上海家化结束了连续四年的下滑，扭亏为盈并实现经营性现金流近五年最佳；水羊股份则依托自有品牌高端化转型，利润增长近35%。
+” 尽管整体前景改善，但第二季度销售指引低于预期。
 
-与此同时，珀莱雅、敷尔佳、福瑞达、科思股份等昔日明星公司却陷入营收净利润双双下滑的窘境——珀莱雅百亿规模微跌已属“受伤最轻”，科思股份净利暴跌超80%遭遇断崖式下跌，敷尔佳净利率被严重压缩，福瑞达转型阵痛持续。
+阿斯麦预计第二季度净销售额为84亿欧元至90亿欧元。
 
-双增与双降并存，折射出行业从“普涨时代”进入“存量博弈时代”的残酷现实。
+数据显示，分析师此前预期为90.7亿欧元。
 
-更值得警惕的是，丸美生物、锦波生物、创尔生物集体陷入“增收不增利”的陷阱，而贝泰妮则出现上市以来首次营收负增长、利润几乎原地踏步。
+今年以来，阿斯麦股价已上涨39%。
 
 ## 相关推荐
 
-- 2026-06-30 02:36 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
-- 2026-06-30 02:41 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 02:39 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuizen.md)
-- 2026-06-30 02:57 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 02:36 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 02:40 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jysjd.md)
-- 2026-06-30 03:03 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 03:03 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 02:47 - [原来周杰伦的龙拳是广告歌](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 02:39 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
-- 2026-06-30 02:53 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
+- 2026-06-30 02:46 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hwxhm.md)
+- 2026-06-30 03:10 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 02:59 - [檀健次王楚然吻戏看热了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 02:53 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/roupian.md)
+- 2026-06-30 02:52 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 02:53 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
+- 2026-06-30 02:42 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
+- 2026-06-30 03:08 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
+- 2026-06-30 03:00 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
+- 2026-06-30 03:06 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 03:06 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
+- 2026-06-30 02:56 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/22316.shtml)
-- 2026-06-30 02:46 - [医药暴涨5.91%背后](http://www.blog.kurohicncr.top/Article/details/7101076.shtml)
-- 2026-06-30 02:42 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.minike.top/Article/details/73835272.shtml)
-- 2026-06-30 02:49 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.minike.top/Article/details/2348672.shtml)
-- 2026-06-30 02:45 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/191104.shtml)
-- 2026-06-30 02:58 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.minike.top/Article/details/760600980.shtml)
-- 2026-06-30 03:01 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/516043151092.shtml)
-- 2026-06-30 02:45 - [古代时期普通老百姓能喝上酒吗？](http://www.blog.kurohicncr.top/Article/details/051408275264.shtml)
-- 2026-06-30 02:47 - [UP主复刻百万英镑牛排套餐](https://www.share.minike.top/Article/details/647343.shtml)
-- 2026-06-30 02:36 - [这种关系可能正在悄悄“催老”你](http://www.blog.kurohicncr.top/Article/details/9851967.shtml)
-- 2026-06-30 02:38 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/151623497.shtml)
-- 2026-06-30 02:51 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/48607068691.shtml)
-- 2026-06-30 02:56 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/1469691.shtml)
-- 2026-06-30 02:54 - [王欣瑜：今年经历了一些起伏](http://www.blog.kurohicncr.top/Article/details/465117133071.shtml)
-- 2026-06-30 03:03 - [孙兴慜道歉](https://www.share.minike.top/Article/details/764325912166.shtml)
+- 2026-06-30 03:00 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/0010233.shtml)
+- 2026-06-30 02:47 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/55880.shtml)
+- 2026-06-30 02:55 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/86255500.shtml)
+- 2026-06-30 02:50 - [千与千寻](http://www.blog.kurohicncr.top/Article/details/890780524736.shtml)
+- 2026-06-30 03:02 - [张帅时隔四年晋级温网第二轮](https://www.share.minike.top/Article/details/904255.shtml)
+- 2026-06-30 02:48 - [英语考了145的人竟然教数学](http://www.blog.minike.top/Article/details/984403121.shtml)
+- 2026-06-30 02:50 - [日本16强魔咒](https://www.blog.kurohicncr.top/Article/details/8436907.shtml)
+- 2026-06-30 02:58 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/859927522933.shtml)
+- 2026-06-30 02:54 - [急先锋](https://www.share.kurohicncr.top/Article/details/14756891323.shtml)
+- 2026-06-30 03:10 - [巴西vs日本](http://www.share.kurohicncr.top/Article/details/243614502.shtml)
+- 2026-06-30 02:49 - [DRG官宣选手Akeman离队](http://www.share.kurohicncr.top/Article/details/49571969.shtml)
+- 2026-06-30 02:47 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/885545540921.shtml)
+- 2026-06-30 02:43 - [本西奇成本届温网女单首位晋级球员](http://www.share.minike.top/Article/details/7532019.shtml)
+- 2026-06-30 03:10 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/55890.shtml)
+- 2026-06-30 02:53 - [张帅时隔四年再取温网正赛胜利](http://www.share.kurohicncr.top/Article/details/98538437.shtml)

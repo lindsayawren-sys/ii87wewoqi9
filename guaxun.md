@@ -1,56 +1,56 @@
-# 一文读懂前4月财政数据：税收收入为何提速？
+# “年度优秀书籍设计榜”入选图书展呈现当代阅读的审美变迁
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-今年前4个月全国税收收入同比增长3.9% “真金白银”的全国财政数据折射中国经济总体平稳。 5月20日，财政部披露今年前4个月财政收支情况。1—4月，全国一般公共预算收入83404亿元，同比增长3.5%。其中，全国税收收入68097亿元，同比增长3.9%。 税收被称为经济“晴雨表”。今年前4个月全国税收增速呈现恢复性增长：今年前两个月全国税收收入增速为0.1%，3月份这一增速提
+中新网北京4月15日电 (记者 应妮)“春阅·艺境——第31个‘世界读书日’中国艺术研究院《中国艺术年鉴》系列活动”日前在京举行，“年度优秀书籍设计榜”入选图书展在现场开幕。 中国艺术研究院所属的《中国艺术年鉴》编辑部作为全国唯一的全门类艺术年鉴机构，编纂的《中国艺术年鉴》《中国艺术学年鉴》《中国艺术发展研究报告》是见证艺术繁荣和学科建设的重要窗口。为进一步客观记录当代阅读的审
 
 ## 正文
 
-今年前4个月全国税收收入同比增长3.9% “真金白银”的全国财政数据折射中国经济总体平稳。
+中新网北京4月15日电 (记者 应妮)“春阅·艺境——第31个‘世界读书日’中国艺术研究院《中国艺术年鉴》系列活动”日前在京举行，“年度优秀书籍设计榜”入选图书展在现场开幕。
 
-5月20日，财政部披露今年前4个月财政收支情况。
+中国艺术研究院所属的《中国艺术年鉴》编辑部作为全国唯一的全门类艺术年鉴机构，编纂的《中国艺术年鉴》《中国艺术学年鉴》《中国艺术发展研究报告》是见证艺术繁荣和学科建设的重要窗口。
 
-1—4月，全国一般公共预算收入83404亿元，同比增长3.5%。
+为进一步客观记录当代阅读的审美变迁，《中国艺术年鉴2025》“艺术设计”分卷设置了“年度优秀书籍设计榜”栏目。
 
-其中，全国税收收入68097亿元，同比增长3.9%。
+此次展出的42部(套)图书，是从面向全国众多重点出版社与核心出版机构广泛征集的优秀图书作品中遴选出来的，涵盖整体设计、版式设计、插图设计、字体运用、封面设计五大类别。
 
-税收被称为经济“晴雨表”。
+评选以艺术性、创新性、功能性、文化性为标准，兼顾传统工艺传承与现代设计探索，摒弃过度装帧，回归阅读与内容本身，让书籍既是知识载体，也是可赏可藏的艺术作品。
 
-今年前4个月全国税收增速呈现恢复性增长：今年前两个月全国税收收入增速为0.1%，3月份这一增速提高至9.1%，4月份这一增速仍维持8.2%的高位。
+该展将在中国园林博物馆持续展出至5月31日。
 
-这也使得今年前4个月全国税收收入增速（3.9%）明显高于去年同期（-2.1%）和去年全年水平（0.8%），折射了今年以来中国经济总体稳定增长。
+在“深化全民阅读”主题沙龙环节，原国家新闻出版总署署长柳斌杰指出，2026年是全民阅读发展史上的重要节点：“全民阅读”发起满20年、连续13次写入政府工作报告、《全民阅读促进条例》正式施行，阅读事业全面进入法治轨道。
 
-受地缘政治冲突影响，全球能源市场高位波动，近期国家统计局披露的4月份主要经济指标中，部分指标增速有所回落。
+从一份倡议到全民共识，从行业推动到国家立法，当年的“书香中国”愿景，如今已成为千万家庭的生活日常，阅读成为全社会最动人的文化风尚。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 02:39 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 02:52 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hxsar.md)
-- 2026-06-30 02:37 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
-- 2026-06-30 03:04 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
-- 2026-06-30 02:54 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 02:57 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 02:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
-- 2026-06-30 02:38 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzlfm.md)
-- 2026-06-30 02:42 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 02:53 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
+- 2026-06-30 02:49 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 02:51 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 02:53 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlnoj.md)
+- 2026-06-30 02:44 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 03:02 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwjva.md)
+- 2026-06-30 03:02 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 03:06 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 03:11 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntngg.md)
+- 2026-06-30 02:55 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nengheng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.minike.top/Article/details/9176524.shtml)
-- 2026-06-30 02:40 - [曝詹姆斯即将与勇士会面](http://www.share.minike.top/Article/details/9596739570.shtml)
-- 2026-06-30 02:55 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/92253.shtml)
-- 2026-06-30 02:57 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/4257196349.shtml)
-- 2026-06-30 02:59 - [7月1日起 一批新规即将落地](https://www.blog.minike.top/Article/details/956523646.shtml)
-- 2026-06-30 02:45 - [我想说 其实你很好！](http://www.share.kurohicncr.top/Article/details/811692836545.shtml)
-- 2026-06-30 02:48 - [韩文体部宣布对韩足协开展审计](http://www.blog.minike.top/Article/details/153508835887.shtml)
-- 2026-06-30 02:51 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/69184.shtml)
-- 2026-06-30 02:55 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/62837630935.shtml)
-- 2026-06-30 02:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.minike.top/Article/details/5434534.shtml)
-- 2026-06-30 02:56 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/789988057747.shtml)
-- 2026-06-30 02:44 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/072270.shtml)
-- 2026-06-30 02:36 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.share.minike.top/Article/details/15611866.shtml)
-- 2026-06-30 02:41 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/79373.shtml)
-- 2026-06-30 02:59 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/75024248199.shtml)
+- 2026-06-30 03:01 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/8525801973.shtml)
+- 2026-06-30 03:05 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/536520379120.shtml)
+- 2026-06-30 03:02 - [上半年全国特种设备安全形势总体平稳](https://www.share.minike.top/Article/details/121397.shtml)
+- 2026-06-30 03:10 - [当我知道豆包有后台审核人员](https://www.share.minike.top/Article/details/110804.shtml)
+- 2026-06-30 02:59 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/112906950298.shtml)
+- 2026-06-30 02:49 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/48948623.shtml)
+- 2026-06-30 02:57 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/019555623.shtml)
+- 2026-06-30 03:03 - [荷兰vs摩洛哥前瞻](http://www.blog.minike.top/Article/details/12468511547.shtml)
+- 2026-06-30 02:55 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.minike.top/Article/details/305311141.shtml)
+- 2026-06-30 02:58 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/6563453765.shtml)
+- 2026-06-30 03:10 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/435216536713.shtml)
+- 2026-06-30 03:07 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/626670330357.shtml)
+- 2026-06-30 03:04 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/2113637285.shtml)
+- 2026-06-30 02:47 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/5925571139.shtml)
+- 2026-06-30 02:55 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/5199102.shtml)

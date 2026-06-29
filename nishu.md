@@ -1,59 +1,61 @@
-# 江西公开通报3起整治形式主义为基层减负典型问题
+# Moneta Markets亿汇:金银多因素驱动走强
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据“廉洁江西”微信公众号消息，日前，江西省委整治形式主义为基层减负专项工作机制办公室会同江西省纪委办公厅对3起整治形式主义为基层减负典型问题进行通报。具体如下： 1.南昌市红谷滩区有的部门征求意见流于形式，过多过频、对象泛化，基层疲于应付。2025年，南昌市红谷滩区3个乡镇(街道)分别收到有关部门征求意见函369件、373件、393件，有的部门征求意见内容多
+4月15日，黄金与白银价格在周二午盘时段走高，主要受到美元指数走弱的推动，其一度跌至近六周低位。与此同时，市场风险偏好回升在一定程度上反而利好避险金属，背后逻辑在于消费与商业需求预期改善，以及通胀压力可能缓解。Moneta Markets亿汇认为，在多重宏观因素交织的背景下，贵金属不仅受避险情绪驱动，也逐渐体现出对经济预期变化的敏感性。数据显示，6月黄金期货上涨约63美元至48
 
 ## 正文
 
-中新网5月19日电 据“廉洁江西”微信公众号消息，日前，江西省委整治形式主义为基层减负专项工作机制办公室会同江西省纪委办公厅对3起整治形式主义为基层减负典型问题进行通报。
+4月15日，黄金与白银价格在周二午盘时段走高，主要受到美元指数走弱的推动，其一度跌至近六周低位。
 
-具体如下： 1.南昌市红谷滩区有的部门征求意见流于形式，过多过频、对象泛化，基层疲于应付。
+与此同时，市场风险偏好回升在一定程度上反而利好避险金属，背后逻辑在于消费与商业需求预期改善，以及通胀压力可能缓解。
 
-2025年，南昌市红谷滩区3个乡镇(街道)分别收到有关部门征求意见函369件、373件、393件，有的部门征求意见内容多但设定的反馈时间短，基层来不及调研梳理，只能仓促应付；有的征求意见不加区分、对象泛化，对与政策无关或关联度不高的乡镇，广泛“群发”征求意见函，导致基层无法提供有价值的意见。
+Moneta Markets亿汇认为，在多重宏观因素交织的背景下，贵金属不仅受避险情绪驱动，也逐渐体现出对经济预期变化的敏感性。
 
-据统计，征求意见复函中，90%以上均为“无意见”。
+数据显示，6月黄金期货上涨约63美元至4830美元附近，5月白银上涨约3.5美元至79美元上方。
 
-征求意见随意草率或无实际内容反馈，无益于问题解决和工作改进，助长了形式主义、官僚主义，耗费基层的时间精力。
+最新公布的生产者价格指数显示，3月环比增长0.5%，与前值持平，但低于市场预期的约1.0%。
 
-2.宜春市教育体育局盲目建设政务服务系统，造成资源浪费。
+能源成本上涨约8.0%，主要受到地缘冲突影响；同比来看，生产者价格上涨约4.0%，虽为阶段高位，但仍低于预期水平。
 
-2022年3月，宜春市教体局推动建设智慧教育体育云平台。
+Moneta Markets亿汇表示，核心PPI环比仅增长约0.2%，同比约3.6%，反映出通胀压力边际缓解。
 
-在建设过程中，对系统架构未科学研究论证和严格把关，一些功能设计脱离实际需求，造成资源浪费，违背了厉行节约过紧日子的要求。
+整体来看，该数据对贵金属价格影响相对有限，但为市场提供了关于通胀趋势的重要参考。
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
-- 2026-06-30 02:52 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/moikb.md)
-- 2026-06-30 02:59 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 02:53 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mfven.md)
-- 2026-06-30 02:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lmmmp.md)
-- 2026-06-30 02:44 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gqlyu.md)
-- 2026-06-30 03:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangdai.md)
-- 2026-06-30 03:01 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 02:48 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nlthz.md)
-- 2026-06-30 02:41 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 02:41 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
-- 2026-06-30 02:58 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
-- 2026-06-30 02:56 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
+- 2026-06-30 02:47 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
+- 2026-06-30 02:44 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 02:53 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 03:08 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kpjjq.md)
+- 2026-06-30 02:43 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
+- 2026-06-30 03:01 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 02:54 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongjian.md)
+- 2026-06-30 03:01 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juesha.md)
+- 2026-06-30 03:06 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixzuz.md)
+- 2026-06-30 02:55 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rqbja.md)
+- 2026-06-30 02:59 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 02:52 - [武汉西安站在了3小时临界线门槛上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
+- 2026-06-30 02:47 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 03:07 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fdoly.md)
+- 2026-06-30 02:44 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [起风了](https://www.share.kurohicncr.top/Article/details/95200994.shtml)
-- 2026-06-30 03:04 - [贺峻霖拎着爱马仕回国了](https://www.share.kurohicncr.top/Article/details/74580495651.shtml)
-- 2026-06-30 02:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/175371.shtml)
-- 2026-06-30 02:42 - [新官上任三把火](http://www.blog.minike.top/Article/details/862593727.shtml)
-- 2026-06-30 02:56 - [我和我的家乡](http://www.share.minike.top/Article/details/72325740345.shtml)
-- 2026-06-30 02:55 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/9984781.shtml)
-- 2026-06-30 03:00 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](http://www.blog.minike.top/Article/details/031653.shtml)
-- 2026-06-30 02:39 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/9458694892.shtml)
-- 2026-06-30 02:56 - [又一美国科技巨头转向中国大模型](http://www.share.kurohicncr.top/Article/details/342361899791.shtml)
-- 2026-06-30 02:45 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/133549647.shtml)
-- 2026-06-30 03:02 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/730577786136.shtml)
-- 2026-06-30 02:58 - [收受1.98亿余元 周家斌被判无期](https://www.blog.minike.top/Article/details/50609.shtml)
-- 2026-06-30 03:02 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/40765065.shtml)
-- 2026-06-30 03:01 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/10684549004.shtml)
-- 2026-06-30 02:39 - [田曦薇没招了](http://www.blog.minike.top/Article/details/826400043636.shtml)
+- 2026-06-30 03:09 - [运20服役十周年宣传片有哪些亮点](https://www.blog.minike.top/Article/details/845182378375.shtml)
+- 2026-06-30 02:51 - [恋与深空需正视价值观偏差](http://www.blog.minike.top/Article/details/3922129698.shtml)
+- 2026-06-30 02:53 - [女子健身不当 居然“脑子漏水”了](http://www.share.minike.top/Article/details/023301580.shtml)
+- 2026-06-30 02:56 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.minike.top/Article/details/493122.shtml)
+- 2026-06-30 02:44 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/733439305063.shtml)
+- 2026-06-30 02:49 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.minike.top/Article/details/1743952460.shtml)
+- 2026-06-30 02:54 - [韩国人为什么这么在乎输赢](https://www.share.minike.top/Article/details/685031651498.shtml)
+- 2026-06-30 02:56 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/813908.shtml)
+- 2026-06-30 03:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/1274080.shtml)
+- 2026-06-30 02:59 - [博世们还在犹豫 美的们已经卖断货](http://www.blog.minike.top/Article/details/12271649143.shtml)
+- 2026-06-30 02:50 - [19岁男孩快220斤被查出营养不良](https://www.blog.kurohicncr.top/Article/details/791591.shtml)
+- 2026-06-30 02:51 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/7135774871.shtml)
+- 2026-06-30 03:05 - [曝娱乐圈大部分明星失业](https://www.share.kurohicncr.top/Article/details/965894006401.shtml)
+- 2026-06-30 02:43 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/750982.shtml)
+- 2026-06-30 02:43 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.blog.kurohicncr.top/Article/details/0245578286.shtml)

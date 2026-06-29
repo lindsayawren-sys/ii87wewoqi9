@@ -1,59 +1,50 @@
-# 科创板“一哥”即将易主！合肥赢麻了
+# 绿色能源科技集团获余小玉增持140.6万股 每股作价0.4175港元
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：投行圈子 2026年5月17日深夜，一份招股书让整个中国资本市场炸了锅。 国产DRAM芯片龙头长鑫科技正在加速冲刺科创板。5月17日，长鑫科技更新招股书，审核状态从“中止”恢复为“已问询”，距离上市又近了一步。 这家DRAM（动态随机存取存储器）领域的国产独苗，用一份炸裂的业绩宣告了自己的存在，今年一
+香港联交所最新数据显示，2月28日，余小玉增持绿色能源科技集团（00979）140.6万股，每股作价0.4175港元，总金额为58.7005万港元。增持后最新持股数目为6964万股，最新持股比例为5.13%。责任编辑：卢昱君
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+香港联交所最新数据显示，2月28日，余小玉增持绿色能源科技集团（00979）140.6万股，每股作价0.4175港元，总金额为58.7005万港元。
 
-来源：投行圈子 2026年5月17日深夜，一份招股书让整个中国资本市场炸了锅。
+增持后最新持股数目为6964万股，最新持股比例为5.13%。
 
-国产DRAM芯片龙头长鑫科技正在加速冲刺科创板。
-
-5月17日，长鑫科技更新招股书，审核状态从“中止”恢复为“已问询”，距离上市又近了一步。
-
-这家DRAM（动态随机存取存储器）领域的国产独苗，用一份炸裂的业绩宣告了自己的存在，今年一季度营收508亿元，同比增长719%；归母净利润247.6亿元。
-
-科创板所有已经上市的600多家公司，一季度加在一起净利润只有216.4亿元。
-
-长鑫一家利润，超过整个科创板总和。
-
-上市后，妥妥的科创板一哥。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 02:39 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 02:57 - [中国小将严子怡再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 02:56 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 02:41 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 02:49 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 02:40 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pcnhe.md)
-- 2026-06-30 02:48 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
-- 2026-06-30 02:51 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpzdl.md)
-- 2026-06-30 02:36 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quekua.md)
-- 2026-06-30 03:04 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 02:39 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bizao.md)
-- 2026-06-30 02:46 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunmen.md)
+- 2026-06-30 02:45 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 03:09 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwbib.md)
+- 2026-06-30 03:00 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pmnbq.md)
+- 2026-06-30 02:43 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hzryh.md)
+- 2026-06-30 03:09 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 03:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 03:01 - [审核了不止十年的低创鬼畜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dongnu.md)
+- 2026-06-30 03:06 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hilfn.md)
+- 2026-06-30 02:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 02:43 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
+- 2026-06-30 02:44 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ganchao.md)
+- 2026-06-30 02:54 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
+- 2026-06-30 02:57 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lzalb.md)
+- 2026-06-30 03:07 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:57 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/16922.shtml)
-- 2026-06-30 02:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/56809.shtml)
-- 2026-06-30 02:47 - [老人喝隔夜排骨汤喝进医院](http://www.share.kurohicncr.top/Article/details/566011777463.shtml)
-- 2026-06-30 02:37 - [国内最大沙漠发洪水意味着什么](https://www.blog.kurohicncr.top/Article/details/23416285291.shtml)
-- 2026-06-30 02:43 - [欧洲空调安装费用为何如此高昂](https://www.share.minike.top/Article/details/431646277466.shtml)
-- 2026-06-30 02:58 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/25652882383.shtml)
-- 2026-06-30 02:51 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/95210.shtml)
-- 2026-06-30 02:49 - [我们的少年时代2](http://www.share.minike.top/Article/details/584228799.shtml)
-- 2026-06-30 02:50 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/8723479.shtml)
-- 2026-06-30 02:48 - [严浩翔张峻豪师兄弟同台](http://www.share.minike.top/Article/details/491228566.shtml)
-- 2026-06-30 02:41 - [小娘惹](https://www.blog.minike.top/Article/details/644449961.shtml)
-- 2026-06-30 02:39 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/2571007912.shtml)
-- 2026-06-30 02:54 - [演员都来上音综的原因](https://www.share.minike.top/Article/details/451337852655.shtml)
-- 2026-06-30 02:58 - [问心2神一集鬼三集](https://www.share.minike.top/Article/details/8312386607.shtml)
-- 2026-06-30 02:56 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/46797853.shtml)
+- 2026-06-30 02:54 - [我们看到的星星是不是有些已经不存在了？](http://www.share.minike.top/Article/details/35522.shtml)
+- 2026-06-30 03:10 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/24702.shtml)
+- 2026-06-30 02:46 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/9756390.shtml)
+- 2026-06-30 02:47 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/45907.shtml)
+- 2026-06-30 03:01 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/0982063148.shtml)
+- 2026-06-30 02:52 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.minike.top/Article/details/177480618881.shtml)
+- 2026-06-30 02:44 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/52823520.shtml)
+- 2026-06-30 03:11 - [【哈基米】极境升华！超级刀盾狗！](https://www.share.kurohicncr.top/Article/details/8787472.shtml)
+- 2026-06-30 02:45 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/25085644047.shtml)
+- 2026-06-30 03:08 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/8567338.shtml)
+- 2026-06-30 02:43 - [【哈基米】极境升华！超级刀盾狗！](http://www.blog.kurohicncr.top/Article/details/05072634.shtml)
+- 2026-06-30 03:01 - [“草莓月亮”浪漫现身](https://www.blog.kurohicncr.top/Article/details/289473523444.shtml)
+- 2026-06-30 03:10 - [世界杯：巴西vs日本](http://www.share.minike.top/Article/details/227155062659.shtml)
+- 2026-06-30 03:04 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.share.minike.top/Article/details/964889.shtml)
+- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](https://www.share.minike.top/Article/details/7447292.shtml)

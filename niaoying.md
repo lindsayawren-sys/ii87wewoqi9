@@ -1,58 +1,59 @@
-# 詹姆斯·默多克将收购Vox Media旗下三大业务部门
+# 算力紧缺之下，Anthropic调整定价模式：按企业AI使用量计费
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-数字媒体平台Vox Media周三表示，詹姆斯·默多克正在收购该公司旗下三个主要业务部门，其中包括《纽约杂志》和播客网络，这些业务合计覆盖 数千万受众。 该交易由默多克旗下的投资公司Lupa Systems负责执行，这使他在 数字出版商纷纷寻求新增长途径之际，掌握了这一最具知名度的杂志品牌之一以及规模可观的播客业务。 交易还包括Vox新闻平台，该平台制作多种格式的内容，包括视频
+核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。 软件授权协议咨询公司 Redress Compliance 联合创始人弗
 
 ## 正文
 
-数字媒体平台Vox Media周三表示，詹姆斯·默多克正在收购该公司旗下三个主要业务部门，其中包括《纽约杂志》和播客网络，这些业务合计覆盖 数千万受众。
+核心摘要 Anthropic 发言人证实，随着此次定价调整，Claude 企业版用户在每月 20 美元 / 用户固定费用之外，还需按使用软件时消耗的算力容量付费。
 
-该交易由默多克旗下的投资公司Lupa Systems负责执行，这使他在 数字出版商纷纷寻求新增长途径之际，掌握了这一最具知名度的杂志品牌之一以及规模可观的播客业务。
+Claude 企业版是面向大型企业推出的已上线两年的产品套餐，目前包含代码工具 Claude Code 与办公助手 Claude Cowork。
 
-交易还包括Vox新闻平台，该平台制作多种格式的内容，包括视频、文字以及《今日解析》（Today， Explained）和《真实的美国》（America， Actually）等播客节目。
+软件授权协议咨询公司 Redress Compliance 联合创始人弗雷德里克・菲利普森表示，此前客户按每个授权用户每月最高 200 美元付费，订阅可获得固定额度的折扣代币使用量。
 
-“此次收购既体现了我们对文化前沿的关注，也彰显了我们对有抱负的新闻事业的坚定承诺，”媒体大亨鲁珀特·默多克的次子詹姆斯·默多克表示。
+他估算，对部分高频用户而言，此次 Claude 企业版定价调整将使其成本翻倍甚至增至三倍。
 
-詹姆斯将Lupa Systems打造为一家独立于保守派媒体帝国的媒体科技公司——该帝国旗下拥有福克斯新闻和新闻集团，长期由其父鲁珀特领导，现由其兄拉克兰掌控。
+多家为 Claude 付费企业的 IT 高管表示，他们已获悉近几周生效的定价调整，公司正在追踪此次变动是否会导致 Anthropic 账单大幅上涨。
 
-一位接近交易的消息人士透露，此次收购Vox的交易价值超过3亿美元。
+（部分 Claude 企业版用户需等到续约时才会看到新定价。
 
-《纽约时报》周三率先报道了这笔交易。
+） 发言人表示，此次定价调整不影响用户数少于 150 人的企业，例如面向小型公司的团队版订阅用户，该套餐费用为每位用户每月最高 100 美元。
 
-Vox Media首席执行官吉姆·班科夫在致公司员工的一封信中表示，他将加入Lupa Systems，并继续领导Vox Media旗下的品牌，同时补充称该交易预计将在四到六周内完成。
+今年以来，其 AI 代码智能体 Claude Code 以及可跨应用自动化办公任务的 AI 工具 Claude Cowork 使用量激增，Anthropic 随即推出了新定价政策。
 
 ## 相关推荐
 
-- 2026-06-30 02:38 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwbib.md)
-- 2026-06-30 03:02 - [王源近几年没有路演了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
-- 2026-06-30 02:42 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 03:05 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 02:53 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/haifu.md)
-- 2026-06-30 02:52 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chihua.md)
-- 2026-06-30 02:46 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangbei.md)
-- 2026-06-30 03:04 - [南北多地暴雨和强对流天气持续](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 02:47 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
-- 2026-06-30 02:58 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 03:03 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqyzo.md)
-- 2026-06-30 02:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 03:06 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 02:54 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
+- 2026-06-30 02:45 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 03:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
+- 2026-06-30 02:54 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bajdk.md)
+- 2026-06-30 03:02 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
+- 2026-06-30 02:59 - [长沙菜农公交的人间烟火气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 02:59 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 03:01 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
+- 2026-06-30 02:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
+- 2026-06-30 02:42 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
+- 2026-06-30 02:56 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 03:04 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yanzun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/139890806.shtml)
-- 2026-06-30 03:00 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/660621241.shtml)
-- 2026-06-30 02:40 - [宜宾地震造成15人受轻伤](http://www.blog.kurohicncr.top/Article/details/21052.shtml)
-- 2026-06-30 02:43 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/003102.shtml)
-- 2026-06-30 03:04 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/19132.shtml)
-- 2026-06-30 02:39 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/305757730782.shtml)
-- 2026-06-30 02:40 - [韩文体部宣布对韩足协开展审计](http://www.share.minike.top/Article/details/30077790023.shtml)
-- 2026-06-30 03:04 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/23408.shtml)
-- 2026-06-30 02:42 - [女心理师](https://www.blog.minike.top/Article/details/67693383.shtml)
-- 2026-06-30 02:45 - [恐怖世界 第三集 埃温霍姆村](http://www.blog.kurohicncr.top/Article/details/446787408.shtml)
-- 2026-06-30 02:49 - [韩文体部宣布对韩足协开展审计](https://www.share.kurohicncr.top/Article/details/66872218.shtml)
-- 2026-06-30 03:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.minike.top/Article/details/40104.shtml)
-- 2026-06-30 02:37 - [这一刀 会很帅](https://www.share.minike.top/Article/details/82731504.shtml)
-- 2026-06-30 02:38 - [詹姆斯 勇士](https://www.share.kurohicncr.top/Article/details/51337304.shtml)
-- 2026-06-30 02:44 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/675016998.shtml)
+- 2026-06-30 03:11 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/3301994.shtml)
+- 2026-06-30 02:52 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/0961055.shtml)
+- 2026-06-30 02:48 - [辛纳vs凯茨玛诺维奇](http://www.blog.minike.top/Article/details/45785451210.shtml)
+- 2026-06-30 02:58 - [蜘蛛侠:英雄归来](https://www.share.minike.top/Article/details/553009551.shtml)
+- 2026-06-30 02:52 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/1482640444.shtml)
+- 2026-06-30 02:57 - [国务院：稳步推进研究生考试招生改革](http://www.blog.kurohicncr.top/Article/details/166447215472.shtml)
+- 2026-06-30 02:45 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/8782965.shtml)
+- 2026-06-30 02:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.blog.minike.top/Article/details/83202.shtml)
+- 2026-06-30 02:50 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/07445242.shtml)
+- 2026-06-30 03:05 - [琉球·冲绳学术问题国际研讨会举行](http://www.share.minike.top/Article/details/713840494.shtml)
+- 2026-06-30 02:51 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.minike.top/Article/details/796294.shtml)
+- 2026-06-30 03:01 - [斗破苍穹](https://www.share.minike.top/Article/details/0714861854.shtml)
+- 2026-06-30 03:07 - [极限挑战第一季](https://www.share.minike.top/Article/details/65060.shtml)
+- 2026-06-30 03:04 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/02902287143.shtml)
+- 2026-06-30 03:01 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/51996408083.shtml)

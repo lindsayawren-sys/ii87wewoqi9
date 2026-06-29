@@ -1,56 +1,58 @@
-# 铁矿石走势趋于平淡 静待铁水与需求指引
+# 高温天气波及海南广西等7省区 今年高温季来得早吗？
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-（来源：宏源期货） 研报正文 【夜盘复盘】 期货：期货铁矿i2609收于800.5元/吨，期货铁矿i2701收781.5元/吨，铁矿9-1价差19元；现货：青岛港PB粉价格772（-5）元/吨，折标准品（厂库）803元；最优交割品pb粉，折仓单（厂库）803元。 【重要资讯】 1． 5月19日，全国主港铁矿石成交81.70万吨，环比增49.9%；237家主流贸易商建筑钢材成交9
+中国天气网讯 盛夏未至，暑热来袭。进入4月以来，南方不少地方接连出现高温天气，尤其是海南、广西等地部分地区热到破纪录，海口、澄迈不但高温耐力持久，强度也具有一定极端性。今年高温季来得早吗？为何这波高温来势汹汹？未来还要持续多久？中国天气网一一为你解读。 南方高温波及7省区 海南多地热到破纪录 4月以来，南方多地出现高温天气。中国天气网气象分析师林楠介绍，这波高温覆盖范围广泛，波
 
 ## 正文
 
-（来源：宏源期货） 研报正文 【夜盘复盘】 期货：期货铁矿i2609收于800.5元/吨，期货铁矿i2701收781.5元/吨，铁矿9-1价差19元；现货：青岛港PB粉价格772（-5）元/吨，折标准品（厂库）803元；最优交割品pb粉，折仓单（厂库）803元。
+中国天气网讯 盛夏未至，暑热来袭。
 
-【重要资讯】 1． 5月19日，全国主港铁矿石成交81.70万吨，环比增49.9%；237家主流贸易商建筑钢材成交9.64万吨，环比增4.8%。
+进入4月以来，南方不少地方接连出现高温天气，尤其是海南、广西等地部分地区热到破纪录，海口、澄迈不但高温耐力持久，强度也具有一定极端性。
 
-2． 5月11日-17日期间，澳大利亚、巴西七个主要港口铁矿石库存总量1379.7万吨，环比增加73.6万吨，库存延续上行态势。
+今年高温季来得早吗？
 
-目前库存水平略高于二季度以来的平均值。
+为何这波高温来势汹汹？
 
-3． 5月19日，76家独立电弧炉建筑钢材钢厂平均成本为3352元/吨，日环比减少5元/吨，平均利润为4元/吨，谷电利润为104元/吨，日环比减少11元/ 吨。
+未来还要持续多久？
 
-4． 美国钢铁协会（AISI）5月18日数据显示，截至5月16日当周，美国钢厂产能利用率升至82.2%，较前一周的81.4%进一步提高，去年同期美国钢厂产能利用率仅为76.6%，粗钢产量为172万吨；今年同期产量同比增长10.3%。
+中国天气网一一为你解读。
 
-5． 工信部就业促进工作领导小组2026年全体会议强调，要落实落细新一轮十大重点行业稳增长工作方案，深入实施制造业重点产业链高质量发展行动、“人工智能+制造”专项行动。
+南方高温波及7省区 海南多地热到破纪录 4月以来，南方多地出现高温天气。
 
-【多空逻辑】 昨日现货市场成交环比回升，现货价格下跌，跌幅在4-5元不等。
+中国天气网气象分析师林楠介绍，这波高温覆盖范围广泛，波及海南、广西、广东、贵州、四川、云南、湖南等7省区。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gddqq.md)
-- 2026-06-30 02:59 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
-- 2026-06-30 03:01 - [一见倾心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qidvh.md)
-- 2026-06-30 02:37 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 03:05 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shanglun.md)
-- 2026-06-30 02:58 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkmrm.md)
-- 2026-06-30 02:43 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 02:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuoqin.md)
-- 2026-06-30 02:36 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nstld.md)
-- 2026-06-30 02:41 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
+- 2026-06-30 02:54 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
+- 2026-06-30 02:50 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guangxiang.md)
+- 2026-06-30 02:51 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsaub.md)
+- 2026-06-30 02:54 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiryb.md)
+- 2026-06-30 02:55 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkchn.md)
+- 2026-06-30 02:43 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bsrnp.md)
+- 2026-06-30 02:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nmubd.md)
+- 2026-06-30 03:06 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 02:49 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/deren.md)
+- 2026-06-30 02:44 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hkqix.md)
+- 2026-06-30 02:43 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqyzo.md)
+- 2026-06-30 03:00 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naipo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/40523.shtml)
-- 2026-06-30 02:54 - [千香](https://www.blog.kurohicncr.top/Article/details/7371635.shtml)
-- 2026-06-30 02:55 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/50587.shtml)
-- 2026-06-30 03:01 - [毒液2](http://www.share.minike.top/Article/details/362029.shtml)
-- 2026-06-30 02:50 - [南北多地暴雨和强对流天气持续](https://www.blog.kurohicncr.top/Article/details/28400985425.shtml)
-- 2026-06-30 02:50 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/9164588670.shtml)
-- 2026-06-30 02:50 - [世界杯](http://www.blog.kurohicncr.top/Article/details/846009286.shtml)
-- 2026-06-30 02:45 - [极限挑战第一季](http://www.share.kurohicncr.top/Article/details/2877843.shtml)
-- 2026-06-30 03:02 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/7385492.shtml)
-- 2026-06-30 02:43 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/2792888.shtml)
-- 2026-06-30 02:55 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/70098.shtml)
-- 2026-06-30 03:01 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/95784.shtml)
-- 2026-06-30 02:37 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.minike.top/Article/details/5404448692.shtml)
-- 2026-06-30 02:59 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/1036646.shtml)
-- 2026-06-30 02:57 - [大范围高温会带来哪些经济影响](https://www.share.minike.top/Article/details/704951.shtml)
+- 2026-06-30 03:05 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/301979.shtml)
+- 2026-06-30 03:01 - [一直以为方便面汤是要倒掉的](http://www.blog.minike.top/Article/details/7082262622.shtml)
+- 2026-06-30 03:03 - [孙兴慜发长文致歉](http://www.share.kurohicncr.top/Article/details/112810.shtml)
+- 2026-06-30 02:55 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/2041479.shtml)
+- 2026-06-30 03:00 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/2792402.shtml)
+- 2026-06-30 02:52 - [徐亮怒斥世界杯踢假球](https://www.share.minike.top/Article/details/4013798.shtml)
+- 2026-06-30 02:43 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/23843444.shtml)
+- 2026-06-30 03:11 - [王欣瑜：今年经历了一些起伏](https://www.share.kurohicncr.top/Article/details/3311939.shtml)
+- 2026-06-30 02:42 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/06951.shtml)
+- 2026-06-30 02:47 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/5540200260.shtml)
+- 2026-06-30 02:59 - [日本半场1比0领先巴西](http://www.share.kurohicncr.top/Article/details/9955569.shtml)
+- 2026-06-30 02:59 - [外国游客开始涌入中国农村](http://www.share.minike.top/Article/details/573409865.shtml)
+- 2026-06-30 02:44 - [女心理师](http://www.share.minike.top/Article/details/095701.shtml)
+- 2026-06-30 02:51 - [巴西绝杀](https://www.blog.minike.top/Article/details/2036352.shtml)
+- 2026-06-30 02:48 - [中国猪圈装空调让欧洲网友破防](https://www.blog.kurohicncr.top/Article/details/855551378.shtml)

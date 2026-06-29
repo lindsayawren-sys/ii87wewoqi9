@@ -1,61 +1,54 @@
-# 中华人民共和国和俄罗斯联邦关于倡导世界多极化和新型国际关系的联合声明
+# 光环新网：2024年底公司进一步拓展数据中心业务半径
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电 中华人民共和国和俄罗斯联邦关于倡导世界多极化和新型国际关系的联合声明 中华人民共和国和俄罗斯联邦都拥有悠久历史文明，是联合国创始会员国和安理会常任理事国，均是多极世界中的重要力量，在维护全球力量平衡和完善国际关系体系中发挥建设性作用。遵循中俄1997年4月23日《中华人民共和国和俄罗斯联邦关于世界多极化和建立国际新秩序的联合声明》、2005年7月1日《中
+证券日报网讯4月14日，光环新网在互动平台回答投资者提问时表示，2024年底，公司进一步拓展数据中心业务半径，在内蒙古地区拟投资建设和林格尔智算中心项目和呼和浩特算力基地。其中和林格尔智算中心项目拟投资总额约12.35亿元，呼和浩特算力基地拟投资总额约人民币22.95亿元。两个项目可实现同城双中心互为备份，更好地满足客户需求。目前两个项目均已经取得项目用地，正处于项目前期审批筹
 
 ## 正文
 
-新华社北京5月20日电 中华人民共和国和俄罗斯联邦关于倡导世界多极化和新型国际关系的联合声明 中华人民共和国和俄罗斯联邦都拥有悠久历史文明，是联合国创始会员国和安理会常任理事国，均是多极世界中的重要力量，在维护全球力量平衡和完善国际关系体系中发挥建设性作用。
+证券日报网讯4月14日，光环新网在互动平台回答投资者提问时表示，2024年底，公司进一步拓展数据中心业务半径，在内蒙古地区拟投资建设和林格尔智算中心项目和呼和浩特算力基地。
 
-遵循中俄1997年4月23日《中华人民共和国和俄罗斯联邦关于世界多极化和建立国际新秩序的联合声明》、2005年7月1日《中华人民共和国和俄罗斯联邦关于21世纪国际秩序的联合声明》、2017年7月4日《中华人民共和国和俄罗斯联邦关于当前世界形势和重大国际问题的联合声明》，以及2022年2月4日《中华人民共和国和俄罗斯联邦关于新时代国际关系和全球可持续发展的联合声明》精神，双方声明如下： 一、第二次世界大战结束以来，国际格局和力量对比加速演变。
+其中和林格尔智算中心项目拟投资总额约12.35亿元，呼和浩特算力基地拟投资总额约人民币22.95亿元。
 
-一方面，非殖民化浪潮及冷战结束使全球主权国家数量大幅增加，国际社会更具多样性和复杂性，亚洲、非洲、中东、拉美和加勒比地区国家发展水平及国际影响力跃升，区域性和跨区域性组织数量激增，涵盖国际政治、安全、经济和人文合作等各领域，且在全球事务中发挥的作用持续提升。
+两个项目可实现同城双中心互为备份，更好地满足客户需求。
 
-世界范围内的互联互通和相互依存达到人类历史上前所未有的水平。
+目前两个项目均已经取得项目用地，正处于项目前期审批筹划阶段。
 
-某些国家肆意操控国际事务，以殖民时代思维将自身利益强加于全世界，限制其他主权国家发展的做法已彻底失败。
-
-21世纪的国际关系体系正经历深刻变革，向多极化和新型国际关系逐渐演变。
-
-多数国家根据自身历史经验，已深刻认识到新时代的到来，反对将世界划分为相互对抗的地区和阵营，强调必须建设更为团结的国际社会，并尊重彼此根本利益，平等相待，互利合作。
-
-另一方面，国际形势愈加复杂，单边胁迫、霸权主义、阵营对抗及新殖民主义逆流涌动，国际法和国际关系基本准则不断遭到践踏，诸多全球治理机构在协调国家间行动和调解国际争端时更加困难，难以有效运转。
+公司将以市场为导向，根据客户需求采取分期建设的方式进行。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qfxdb.md)
-- 2026-06-30 02:39 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gnivt.md)
-- 2026-06-30 02:55 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tlrju.md)
-- 2026-06-30 02:47 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
-- 2026-06-30 02:39 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heoen.md)
-- 2026-06-30 02:45 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 02:39 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
-- 2026-06-30 02:36 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ftmbu.md)
-- 2026-06-30 03:01 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntofj.md)
-- 2026-06-30 02:37 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xuanlian.md)
-- 2026-06-30 02:57 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkkpl.md)
-- 2026-06-30 02:50 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tqtmm.md)
-- 2026-06-30 02:54 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
-- 2026-06-30 02:41 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
-- 2026-06-30 02:50 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 02:42 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 03:03 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 03:06 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 03:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 02:46 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 03:02 - [恋与深空 日服](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemoj.md)
+- 2026-06-30 03:04 - [TOP Prada](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 03:05 - [歌剧老师锐评歌手第6期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 02:59 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
+- 2026-06-30 03:06 - [田曦薇没招了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/reapz.md)
+- 2026-06-30 02:53 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
+- 2026-06-30 02:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuetuan.md)
+- 2026-06-30 02:42 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qkmrm.md)
+- 2026-06-30 02:47 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [中国气象局启动气象灾害四级应急响应](https://www.share.kurohicncr.top/Article/details/3059696.shtml)
-- 2026-06-30 03:05 - [扫黑风暴](https://www.share.minike.top/Article/details/35405824.shtml)
-- 2026-06-30 02:38 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/116002060419.shtml)
-- 2026-06-30 02:55 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.kurohicncr.top/Article/details/179074773.shtml)
-- 2026-06-30 02:44 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/6929859.shtml)
-- 2026-06-30 02:41 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/2929823.shtml)
-- 2026-06-30 02:51 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/512901283223.shtml)
-- 2026-06-30 02:53 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/547767955.shtml)
-- 2026-06-30 02:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/2802107769.shtml)
-- 2026-06-30 02:47 - [詹姆斯下赛季去哪](https://www.share.kurohicncr.top/Article/details/2820250643.shtml)
-- 2026-06-30 02:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/172168001.shtml)
-- 2026-06-30 02:49 - [李准基参加文彩元婚礼](https://www.share.minike.top/Article/details/0343579109.shtml)
-- 2026-06-30 02:52 - [如何评价杨紫白玉兰获奖](https://www.blog.minike.top/Article/details/69881.shtml)
-- 2026-06-30 02:38 - [啊啊啊](https://www.blog.minike.top/Article/details/61558978.shtml)
-- 2026-06-30 02:36 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/6717089.shtml)
+- 2026-06-30 03:08 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/1627741205.shtml)
+- 2026-06-30 02:51 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.minike.top/Article/details/731286435.shtml)
+- 2026-06-30 02:59 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.kurohicncr.top/Article/details/179546867637.shtml)
+- 2026-06-30 03:02 - [女儿从清华毕业爸爸晒出17年对比照](http://www.share.minike.top/Article/details/6302809.shtml)
+- 2026-06-30 02:59 - [女子螺蛳粉摊吃出蛇](https://www.blog.kurohicncr.top/Article/details/302258212.shtml)
+- 2026-06-30 02:50 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.minike.top/Article/details/5272337856.shtml)
+- 2026-06-30 03:09 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.kurohicncr.top/Article/details/07707790.shtml)
+- 2026-06-30 03:05 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/060177991544.shtml)
+- 2026-06-30 03:05 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/716427.shtml)
+- 2026-06-30 02:48 - [恋与深空 日服](https://www.blog.minike.top/Article/details/1166981106.shtml)
+- 2026-06-30 03:10 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://www.share.kurohicncr.top/Article/details/20678725.shtml)
+- 2026-06-30 02:42 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.share.kurohicncr.top/Article/details/865884115.shtml)
+- 2026-06-30 03:06 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/29703679361.shtml)
+- 2026-06-30 02:59 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/94232748153.shtml)
+- 2026-06-30 03:00 - [酒店推行“24小时退房”引热议](https://www.share.minike.top/Article/details/36131820.shtml)

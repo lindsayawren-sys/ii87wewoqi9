@@ -1,58 +1,59 @@
-# 早盘：美股继续下滑 纳指下跌0.6%
+# 中国（东莞）—吉尔吉斯斯坦建筑行业商务对接会举行
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-北京时间5月19日晚，美股周二早盘继续下跌，纳指下跌0.6%。引领AI牛市的芯片股继续遭到抛售。美国国债收益率攀升令股指承压。交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。 道指跌108.11点，跌幅为0.22%，报49578.01点；纳指跌166.70点，跌幅为0.64%，报25924.04点；标普500指数跌26.53点，跌幅为0.36%，报7376.52点。
+中新网东莞4月14日电 (记者 许青青)中国(东莞)—吉尔吉斯斯坦建筑行业商务对接会13日在东莞举办。本次活动是东莞市贸促会“我为企业找订单”系列活动之一，旨在搭建两地建材行业高效对接平台，推动东莞优质建材产品“走出去”。 对接会由东莞市贸促会、吉尔吉斯共和国驻广州总领事馆、中亚广东总商会联合主办。现场活动中，东莞市贸促会与吉尔吉斯共和国工商会签署合作备忘录，为两地经贸往来搭建
 
 ## 正文
 
-北京时间5月19日晚，美股周二早盘继续下跌，纳指下跌0.6%。
+中新网东莞4月14日电 (记者 许青青)中国(东莞)—吉尔吉斯斯坦建筑行业商务对接会13日在东莞举办。
 
-引领AI牛市的芯片股继续遭到抛售。
+本次活动是东莞市贸促会“我为企业找订单”系列活动之一，旨在搭建两地建材行业高效对接平台，推动东莞优质建材产品“走出去”。
 
-美国国债收益率攀升令股指承压。
+对接会由东莞市贸促会、吉尔吉斯共和国驻广州总领事馆、中亚广东总商会联合主办。
 
-交易员还关注美国总统特朗普取消对伊朗打击计划后的石油市场。
+现场活动中，东莞市贸促会与吉尔吉斯共和国工商会签署合作备忘录，为两地经贸往来搭建起长效合作机制。
 
-道指跌108.11点，跌幅为0.22%，报49578.01点；纳指跌166.70点，跌幅为0.64%，报25924.04点；标普500指数跌26.53点，跌幅为0.36%，报7376.52点。
+采购对接洽谈环节，现场按瓷砖、暖通空调、电梯设备等细分领域划分对接区域，吉尔吉斯斯坦采购团成员与东莞企业代表展开了面对面的精准洽谈，现场氛围热烈。
 
-债券市场给牛市增添了新的变数，美国10年期和30年期国债收益率在周一交易中触及2025年初以来的最高水平之后继续攀升。
+吉尔吉斯共和国工商会主席萨里耶夫·捷米尔介绍，当前吉国建筑业发展迅速，基础设施及公共设施需求持续提升，中方企业技术先进、经验丰富，是吉方值得信赖的优质合作伙伴。
 
-随着投资者对通胀加速的担忧加剧，引发全球债券市场抛售，最长期限的美国国债收益率升至近二十年来最高水平。
+吉尔吉斯斯坦工商会愿全力为中国企业提供支持，希望以此次建设发展热潮为契机，携手开启两地长期务实合作的崭新篇章。
 
-30年期美国国债收益率周二上涨5个基点，至5.18%。
+吉尔吉斯共和国驻广州总领事扎曼库洛夫·耶尔尼斯特表示，吉尔吉斯斯坦高度重视与东莞的经贸合作，期待通过本次对接会，进一步深化双方建材领域合作，拓宽合作渠道，推动更多东莞优质建材进入吉尔吉斯斯坦市场，助力吉方基础设施建设升级。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 02:53 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ebuxd.md)
-- 2026-06-30 02:44 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 02:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ragyg.md)
-- 2026-06-30 02:43 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqmkt.md)
-- 2026-06-30 02:44 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
-- 2026-06-30 03:01 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
-- 2026-06-30 02:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/npqjl.md)
-- 2026-06-30 02:55 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 02:51 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 02:37 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 02:51 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 02:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 02:49 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
+- 2026-06-30 02:45 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 02:49 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mtcrv.md)
+- 2026-06-30 02:58 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
+- 2026-06-30 03:10 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
+- 2026-06-30 03:11 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/meikuai.md)
+- 2026-06-30 02:48 - [千与千寻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pgjyy.md)
+- 2026-06-30 02:45 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bianrou.md)
+- 2026-06-30 03:06 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuzhuang.md)
+- 2026-06-30 02:52 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 02:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 03:05 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/5681377570.shtml)
-- 2026-06-30 02:54 - [点菜也要教吗](http://www.blog.minike.top/Article/details/607383074.shtml)
-- 2026-06-30 02:47 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.minike.top/Article/details/6495113949.shtml)
-- 2026-06-30 02:49 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/9177099.shtml)
-- 2026-06-30 02:49 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/19484.shtml)
-- 2026-06-30 02:54 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/582608586736.shtml)
-- 2026-06-30 02:39 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/6004017788.shtml)
-- 2026-06-30 02:39 - [美人鱼](https://www.share.minike.top/Article/details/7547667.shtml)
-- 2026-06-30 02:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.share.minike.top/Article/details/757189.shtml)
-- 2026-06-30 02:45 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](http://www.share.minike.top/Article/details/097411298473.shtml)
-- 2026-06-30 02:46 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/548242.shtml)
-- 2026-06-30 02:37 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/61560349.shtml)
-- 2026-06-30 02:41 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/285106715823.shtml)
-- 2026-06-30 02:41 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/65546.shtml)
-- 2026-06-30 02:48 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/203656985.shtml)
+- 2026-06-30 02:44 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/52874.shtml)
+- 2026-06-30 02:42 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/663085744.shtml)
+- 2026-06-30 03:07 - [花少8要去世界杯举办国](http://www.blog.minike.top/Article/details/9677681.shtml)
+- 2026-06-30 02:47 - [主人解开狗绳2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/460982.shtml)
+- 2026-06-30 02:49 - [未来五年，教育强国这样建设](http://www.blog.minike.top/Article/details/804646793.shtml)
+- 2026-06-30 03:01 - [国内最大沙漠发洪水意味着什么](https://www.share.minike.top/Article/details/458972076.shtml)
+- 2026-06-30 03:08 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/120270618857.shtml)
+- 2026-06-30 03:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/9980573.shtml)
+- 2026-06-30 03:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/4278047907.shtml)
+- 2026-06-30 03:10 - [沪指深V回升站稳4000点](https://www.blog.minike.top/Article/details/9760638384.shtml)
+- 2026-06-30 02:57 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/2750306.shtml)
+- 2026-06-30 03:03 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/6034935518.shtml)
+- 2026-06-30 02:45 - [法国部长说装空调没用](http://www.share.kurohicncr.top/Article/details/649693172551.shtml)
+- 2026-06-30 02:57 - [一生一世](http://www.blog.minike.top/Article/details/124182424858.shtml)
+- 2026-06-30 02:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.blog.minike.top/Article/details/585568564002.shtml)

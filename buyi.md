@@ -1,56 +1,61 @@
-# 伊朗股市恢复交易
+# SpaceX的数据揭示了什么，又隐瞒了什么
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 德黑兰消息：伊朗德黑兰证券交易所19日恢复股票交易。 伊朗股市于3月1日起暂停交易，截至5月18日，已停市逾两个半月。 据外媒报道，19日和20日，股票、股票基金及股票挂钩衍生品将恢复交易，随后进入休市(伊朗股市周五至周六休市，周日至周四为交易日)。在交易日，交易时间将延长1小时。 伊朗证券交易组织16日曾预告称，该国股市19日将重开。该组织官员表示，受
+作者：马丁・皮尔斯 SpaceX 的神秘面纱已被揭开。我的同事科里・温伯格在四天内推出了第二篇深度报道，揭开了埃隆・马斯克这家太空公司的财务面纱 —— 该公司计划在几个月后进行首次公开募股（IPO）。想了解 SpaceX 的真实情况，无需等待正式的 IPO 招股书。 核心结论是，SpaceX 整体上是个 “吞金兽”，尽管其旗下有一项业务并非如此。星链（Starlink）卫星互联
 
 ## 正文
 
-中新社北京5月19日电 德黑兰消息：伊朗德黑兰证券交易所19日恢复股票交易。
+作者：马丁・皮尔斯 SpaceX 的神秘面纱已被揭开。
 
-伊朗股市于3月1日起暂停交易，截至5月18日，已停市逾两个半月。
+我的同事科里・温伯格在四天内推出了第二篇深度报道，揭开了埃隆・马斯克这家太空公司的财务面纱 —— 该公司计划在几个月后进行首次公开募股（IPO）。
 
-据外媒报道，19日和20日，股票、股票基金及股票挂钩衍生品将恢复交易，随后进入休市(伊朗股市周五至周六休市，周日至周四为交易日)。
+想了解 SpaceX 的真实情况，无需等待正式的 IPO 招股书。
 
-在交易日，交易时间将延长1小时。
+核心结论是，SpaceX 整体上是个 “吞金兽”，尽管其旗下有一项业务并非如此。
 
-伊朗证券交易组织16日曾预告称，该国股市19日将重开。
+星链（Starlink）卫星互联网业务表现强劲 —— 去年实现息税折旧摊销前利润（EBITDA）72 亿美元。
 
-该组织官员表示，受战争影响暂停股市交易，主要目的是保护投资者资产、避免市场出现非理性波动，为市场在更加透明的信息环境下恢复运行创造条件。
+但火箭发射业务和 SpaceX 旗下的 xAI 均未实现现金盈利。
 
-随着股市恢复交易，伊朗资本市场各领域运行将基本恢复完整。
+其中 AI 业务是最大的亏损源，不过考虑到 AI 开发的高昂成本，这也在意料之中。
 
-外媒19日报道称，暂时关闭股市阻止了“恐慌性抛售”的同时，也给焦虑的投资者增加了压力。
+对于考虑投资 SpaceX IPO 的投资者而言，这些或许都不重要。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
-- 2026-06-30 02:46 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 02:36 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
-- 2026-06-30 02:55 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ngvvt.md)
-- 2026-06-30 02:41 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 02:48 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gongtui.md)
-- 2026-06-30 02:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nincheng.md)
-- 2026-06-30 03:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 03:05 - [扫黑风暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 03:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhinu.md)
+- 2026-06-30 02:49 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/banal.md)
+- 2026-06-30 02:52 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 02:49 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 02:56 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/abzmc.md)
+- 2026-06-30 03:08 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 02:44 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kzknr.md)
+- 2026-06-30 03:01 - [金刚川](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzqan.md)
+- 2026-06-30 03:12 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 03:01 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppsar.md)
+- 2026-06-30 02:55 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 03:02 - [沪指深V回升站稳4000点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 03:00 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phuek.md)
+- 2026-06-30 02:49 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lunre.md)
+- 2026-06-30 02:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 02:50 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [中国小将严子怡再现一投夺冠](http://www.blog.minike.top/Article/details/784775146.shtml)
-- 2026-06-30 02:55 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/742666674506.shtml)
-- 2026-06-30 02:49 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/904231144212.shtml)
-- 2026-06-30 02:50 - [世界杯巴西vs日本前瞻](http://www.blog.kurohicncr.top/Article/details/871733927.shtml)
-- 2026-06-30 02:44 - [古代人对纳妾的态度是什么样的？](https://www.blog.minike.top/Article/details/26455326941.shtml)
-- 2026-06-30 02:48 - [数据前瞻巴西VS日本](https://www.blog.minike.top/Article/details/622501962645.shtml)
-- 2026-06-30 02:40 - [女心理师](http://www.blog.minike.top/Article/details/926695874.shtml)
-- 2026-06-30 03:00 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/53433062780.shtml)
-- 2026-06-30 02:47 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/478850034.shtml)
-- 2026-06-30 02:49 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/85176.shtml)
-- 2026-06-30 02:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.kurohicncr.top/Article/details/56772552.shtml)
-- 2026-06-30 02:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/826596894.shtml)
-- 2026-06-30 02:43 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/926142.shtml)
-- 2026-06-30 02:54 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/95715406660.shtml)
-- 2026-06-30 02:52 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.share.minike.top/Article/details/140297.shtml)
+- 2026-06-30 03:07 - [如何评价《龙之家族》第三季第二集？](http://www.share.minike.top/Article/details/0786297004.shtml)
+- 2026-06-30 03:08 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/414204.shtml)
+- 2026-06-30 02:56 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/15120136638.shtml)
+- 2026-06-30 02:46 - [《我落泪情绪零碎》](http://www.blog.kurohicncr.top/Article/details/68236165.shtml)
+- 2026-06-30 02:50 - [斗破苍穹](http://www.blog.minike.top/Article/details/740318.shtml)
+- 2026-06-30 02:52 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/635452767026.shtml)
+- 2026-06-30 02:58 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/3775199210.shtml)
+- 2026-06-30 02:49 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/985424.shtml)
+- 2026-06-30 02:48 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/37652861.shtml)
+- 2026-06-30 03:04 - [本西奇成本届温网女单首位晋级球员](http://www.share.kurohicncr.top/Article/details/548470156.shtml)
+- 2026-06-30 02:55 - [看看赶海都能遇到啥](https://www.blog.minike.top/Article/details/158470.shtml)
+- 2026-06-30 02:49 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/652312580.shtml)
+- 2026-06-30 02:46 - [王欣瑜温网开门红](http://www.share.minike.top/Article/details/97067798759.shtml)
+- 2026-06-30 03:06 - [明星大侦探第四季](http://www.blog.kurohicncr.top/Article/details/00088063161.shtml)
+- 2026-06-30 03:05 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/18879754669.shtml)

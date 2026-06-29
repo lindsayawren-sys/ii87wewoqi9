@@ -1,60 +1,59 @@
-# 广东发布高等教育提升计划：打造具有全球竞争力的高峰学科群
+# 中亚首台套AEM电解水制氢设备成功投运
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网广州5月19日电 (记者 许青青)广东省人民政府办公厅近日发布的高等教育“冲一流、补短板、强特色”提升计划实施方案明确提出，到2030年，广东理工农医类学科专业学生数占比要达到55%以上，综合应用型高校研究生培养规模实现倍增。该方案包含三大计划。其中，高水平研究型大学建设计划以建设世界一流研究型大学为目标，大力发展基础学科、新兴学科、交叉学科，打造具有全球竞争力的高峰学科
+当地时间4月9日，中亚地区首台套AEM电解水制氢科研设备投运仪式在哈萨克斯坦首都阿斯塔纳举行，标志着中哈两国在绿色氢能关键技术联合研发与应用示范方面取得实质性突破。哈萨克斯坦能源部部长叶尔兰·阿肯热诺夫，科学和高等教育部部长萨亚萨特·努尔别克，上海市委副书记、市长龚正，上海交通大学副校长曾小勤，中国能建国际集团党委常委、副总经理，海投公司党委书记、董事长林晓丹出席活动并致辞。中
 
 ## 正文
 
-中新网广州5月19日电 (记者 许青青)广东省人民政府办公厅近日发布的高等教育“冲一流、补短板、强特色”提升计划实施方案明确提出，到2030年，广东理工农医类学科专业学生数占比要达到55%以上，综合应用型高校研究生培养规模实现倍增。
+当地时间4月9日，中亚地区首台套AEM电解水制氢科研设备投运仪式在哈萨克斯坦首都阿斯塔纳举行，标志着中哈两国在绿色氢能关键技术联合研发与应用示范方面取得实质性突破。
 
-该方案包含三大计划。
+哈萨克斯坦能源部部长叶尔兰·阿肯热诺夫，科学和高等教育部部长萨亚萨特·努尔别克，上海市委副书记、市长龚正，上海交通大学副校长曾小勤，中国能建国际集团党委常委、副总经理，海投公司党委书记、董事长林晓丹出席活动并致辞。
 
-其中，高水平研究型大学建设计划以建设世界一流研究型大学为目标，大力发展基础学科、新兴学科、交叉学科，打造具有全球竞争力的高峰学科群。
+中国驻哈萨克斯坦大使韩春霖参加上述活动。
 
-综合应用型高校建设计划以建设支撑区域发展应用型高校为目标，立足所在地市产业发展和民生需求。
+该设备由海投公司与上海交通大学联合研发，并由海投公司统筹推进项目投入及应用场景建设，是校企协同推进氢能前沿技术攻关的重要成果。
 
-特色应用型高校建设计划以建设行业领军应用型高校为目标，支持高校围绕文化强省、体育强省、海洋强省、绿美广东、法治广东、平安广东等重大建设任务，锚定特色行业细分领域差异化发展特色学科专业。
+项目依托先进AEM电解水制氢技术，在提升制氢效率、降低系统成本等方面具有良好应用前景，为中亚地区探索绿色制氢路径提供了示范样本。
 
-方案围绕优化高等教育结构布局、提高人才自主培养能力与水平、提升科研创新能力、增强服务经济社会发展能力、强化高素质教师队伍建设、推进高等教育高水平对外开放等6方面提出了12项重点任务。
+叶尔兰·阿肯热诺夫在致辞中表示，氢能是哈萨克斯坦能源结构优化和实现低碳转型的重要方向。
 
-优化高等教育结构布局方面，按照研究型、应用型等基本办学定位，区分综合性、特色化基本方向，明确各类高校发展定位，支持理工农医、人文社科、艺术体育、教育师范等高校差异化发展。
+此次引进国际先进的AEM电解水制氢技术，对于培育绿色经济新动能、提升能源体系韧性具有重要意义。
 
-建立以科技发展、国家战略和区域经济社会发展需求为牵引的学科专业设置调整机制和人才培养模式。
+希望以此为契机，进一步深化与中国能建在新能源领域的务实合作，打造更多具有示范效应的绿色能源项目。
 
 ## 相关推荐
 
-- 2026-06-30 03:00 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 03:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diandian.md)
-- 2026-06-30 02:37 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhongshuai.md)
-- 2026-06-30 02:41 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 02:46 - [极限挑战第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quanzao.md)
-- 2026-06-30 02:41 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 02:56 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/azcpu.md)
-- 2026-06-30 03:03 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/inmpq.md)
-- 2026-06-30 02:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
-- 2026-06-30 02:48 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/piddr.md)
-- 2026-06-30 02:46 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ikxpx.md)
-- 2026-06-30 02:38 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 02:59 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 02:46 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 03:09 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 03:05 - [王楚钦孙颖莎混双对手产生](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiasai.md)
+- 2026-06-30 03:10 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
+- 2026-06-30 02:49 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feizuo.md)
+- 2026-06-30 03:06 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
+- 2026-06-30 02:42 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kfgkf.md)
+- 2026-06-30 03:06 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuazu.md)
+- 2026-06-30 03:04 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuizhao.md)
+- 2026-06-30 02:46 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 02:49 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ungls.md)
+- 2026-06-30 02:59 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 02:49 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 02:44 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/6417046264.shtml)
-- 2026-06-30 03:05 - [DeepSeek启动成立来最大规模招聘](http://www.share.minike.top/Article/details/56133812825.shtml)
-- 2026-06-30 02:50 - [巴西VS日本前瞻](http://www.blog.minike.top/Article/details/345026786.shtml)
-- 2026-06-30 02:45 - [2021湖南卫视跨年演唱会](https://www.blog.minike.top/Article/details/6306675585.shtml)
-- 2026-06-30 02:36 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/837896.shtml)
-- 2026-06-30 02:48 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.kurohicncr.top/Article/details/4102852168.shtml)
-- 2026-06-30 02:54 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/516293365779.shtml)
-- 2026-06-30 02:59 - [女子在酒吧被陌生人投放“伟哥”](https://www.blog.kurohicncr.top/Article/details/972765.shtml)
-- 2026-06-30 02:46 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/23255291621.shtml)
-- 2026-06-30 02:59 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/399628.shtml)
-- 2026-06-30 02:58 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/420828171708.shtml)
-- 2026-06-30 02:55 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.kurohicncr.top/Article/details/2522657.shtml)
-- 2026-06-30 02:45 - [女子发现孩子非现任亲生起诉前任](http://www.blog.kurohicncr.top/Article/details/181371759.shtml)
-- 2026-06-30 02:45 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://www.blog.minike.top/Article/details/52484.shtml)
-- 2026-06-30 02:39 - [牺牲民警倒下前还在保护群众](http://www.share.minike.top/Article/details/157324.shtml)
+- 2026-06-30 03:07 - [AI手机进入Agent时代](https://www.blog.minike.top/Article/details/6092409899.shtml)
+- 2026-06-30 02:59 - [一见倾心](http://www.blog.kurohicncr.top/Article/details/13402459.shtml)
+- 2026-06-30 03:10 - [数据前瞻巴西VS日本](http://www.blog.kurohicncr.top/Article/details/553392.shtml)
+- 2026-06-30 02:42 - [女子常喝饮料提神 满口长“可乐牙”](http://www.share.kurohicncr.top/Article/details/343412.shtml)
+- 2026-06-30 02:53 - [辛纳vs凯茨玛诺维奇](https://www.share.kurohicncr.top/Article/details/34615080.shtml)
+- 2026-06-30 02:51 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.blog.kurohicncr.top/Article/details/76252341.shtml)
+- 2026-06-30 02:55 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.minike.top/Article/details/84226521.shtml)
+- 2026-06-30 03:02 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](http://www.share.minike.top/Article/details/6008603.shtml)
+- 2026-06-30 03:04 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/46876.shtml)
+- 2026-06-30 03:10 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/11207884.shtml)
+- 2026-06-30 02:56 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/46653.shtml)
+- 2026-06-30 02:52 - [电影后室值得看吗](http://www.share.minike.top/Article/details/7711755.shtml)
+- 2026-06-30 02:48 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/48071.shtml)
+- 2026-06-30 02:58 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/12408256063.shtml)
+- 2026-06-30 02:54 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.minike.top/Article/details/4255252.shtml)

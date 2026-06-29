@@ -1,58 +1,56 @@
-# 贝利称英国央行有时间评估伊朗战争对通胀的影响
+# 习近平同苏林共同会见中越青年代表
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-英国央行行长安德鲁·贝利周三表示，该行没有下调关键利率，此举已实质上收紧了货币政策，因此有时间在决定下一步行动前评估中东冲突的经济影响。 4月下旬，英国央行将其关键利率维持在3.75%不变。贝利在向议员发表讲话时称，今年年初时，预计会有一两次降息是“合理的“。 但由于伴随冲突而来的能源价格飙升，降息已不再可能。 贝利说：“如果以此为出发点，那么我们通过打消降息预期，实际上已经收
+中新社北京4月15日电 4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林共同会见参加“红色研学之旅”的中越青年代表。 习近平发表讲话，表示去年我和苏林总书记一道启动“红色研学之旅”项目，一年来，两国青年共同探寻中越友好的红色基因，感受中国式现代化的万千气象，在中国各地留下许多互学互鉴、相知相亲的生动故事。不久前，我收到越
 
 ## 正文
 
-英国央行行长安德鲁·贝利周三表示，该行没有下调关键利率，此举已实质上收紧了货币政策，因此有时间在决定下一步行动前评估中东冲突的经济影响。
+中新社北京4月15日电 4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林共同会见参加“红色研学之旅”的中越青年代表。
 
-4月下旬，英国央行将其关键利率维持在3.75%不变。
+习近平发表讲话，表示去年我和苏林总书记一道启动“红色研学之旅”项目，一年来，两国青年共同探寻中越友好的红色基因，感受中国式现代化的万千气象，在中国各地留下许多互学互鉴、相知相亲的生动故事。
 
-贝利在向议员发表讲话时称，今年年初时，预计会有一两次降息是“合理的“。
+不久前，我收到越南河内国家大学外语附中等学校的同学们用中文写来的信，分享了参加“红色研学之旅”的深刻感悟，立志做中越友谊的传承者和传播者，我感到很欣慰。
 
-但由于伴随冲突而来的能源价格飙升，降息已不再可能。
+习近平强调，青年是推动社会发展进步的有生力量，也是中越两党两国事业薪火相传的接棒人。
 
-贝利说：“如果以此为出发点，那么我们通过打消降息预期，实际上已经收紧了政策。
+我对大家提出三点希望：一是希望你们守望相助，让中越“同志加兄弟”的深厚情谊焕发青春光彩；二是希望你们挺膺担当，用青春的活力和创造力激荡起创新、开放、合作、共赢的澎湃春潮；三是希望你们胸怀天下，争做构建人类命运共同体的先锋队，为人类进步事业贡献青春力量。
 
-这种收紧为我们赢得了一些评估时间。
+苏林表示，“红色研学之旅”启动一年来，上千名越南青年沿着老一辈领导人足迹参访在中国的红色遗址，体悟两国的革命传统和深厚友谊。
 
-” 贝利的言论表明，他不大可能在货币政策委员会6月份的会议上支持上调关键利率。
+青年是越中两党两国关系的重要桥梁，希望两国青年进一步坚定理想信念，提高政治本领，掌握科学知识，深化对越中关系的认识，为各自国家发展和两国友好发挥重要作用。
 
-投资者对英国央行利率路径预期的改变已导致英国国债收益率大幅上升。
+参加“红色研学之旅”活动的越方200多名青年代表和中方100多名青年代表出席此次活动。
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
-- 2026-06-30 03:05 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
-- 2026-06-30 02:49 - [扫黑风暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tchiv.md)
-- 2026-06-30 02:36 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shaihang.md)
-- 2026-06-30 02:51 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
-- 2026-06-30 02:56 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlnoj.md)
-- 2026-06-30 02:39 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 02:59 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 02:53 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 02:44 - [王健林甩卖超80座万达广场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mjhgr.md)
-- 2026-06-30 02:57 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 02:43 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
+- 2026-06-30 02:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksnic.md)
+- 2026-06-30 02:48 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/teshua.md)
+- 2026-06-30 03:06 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hafsm.md)
+- 2026-06-30 02:44 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/blcbt.md)
+- 2026-06-30 02:55 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bfulb.md)
+- 2026-06-30 02:48 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
+- 2026-06-30 02:57 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiecui.md)
+- 2026-06-30 02:56 - [恋与深空 巧合](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/munhv.md)
+- 2026-06-30 02:55 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hanglun.md)
+- 2026-06-30 03:09 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [新官上任三把火](https://www.share.kurohicncr.top/Article/details/94836922876.shtml)
-- 2026-06-30 02:57 - [鉴定师的失败救赎](http://www.share.kurohicncr.top/Article/details/8267457921.shtml)
-- 2026-06-30 02:51 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/8904538.shtml)
-- 2026-06-30 02:49 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.kurohicncr.top/Article/details/81518598690.shtml)
-- 2026-06-30 02:52 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.minike.top/Article/details/2487436.shtml)
-- 2026-06-30 02:56 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/69785.shtml)
-- 2026-06-30 03:03 - [古代时期普通老百姓能喝上酒吗？](https://www.blog.minike.top/Article/details/6483121303.shtml)
-- 2026-06-30 02:43 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/4519291.shtml)
-- 2026-06-30 03:00 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/829813.shtml)
-- 2026-06-30 02:50 - [张元英是故意的还是不小心的](https://www.share.minike.top/Article/details/38384118170.shtml)
-- 2026-06-30 02:44 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/965095262465.shtml)
-- 2026-06-30 02:57 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/837371.shtml)
-- 2026-06-30 02:54 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/775839187.shtml)
-- 2026-06-30 03:03 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.share.kurohicncr.top/Article/details/1679518287.shtml)
-- 2026-06-30 03:05 - [任素汐舞台上唱《王招君》](http://www.share.kurohicncr.top/Article/details/9142576332.shtml)
+- 2026-06-30 03:06 - [“蓄热”住宅令英法民众难耐酷暑](https://www.share.kurohicncr.top/Article/details/2782485.shtml)
+- 2026-06-30 03:08 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/838915.shtml)
+- 2026-06-30 03:00 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/9793394063.shtml)
+- 2026-06-30 02:46 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.kurohicncr.top/Article/details/85305309.shtml)
+- 2026-06-30 03:09 - [锐评T1零封KC](https://www.blog.kurohicncr.top/Article/details/68236539.shtml)
+- 2026-06-30 02:51 - [浙江队将获百万元世界杯补偿](http://www.blog.kurohicncr.top/Article/details/27464081.shtml)
+- 2026-06-30 02:47 - [牺牲民警倒下前还在保护群众](https://www.share.kurohicncr.top/Article/details/79668407341.shtml)
+- 2026-06-30 03:06 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/450171.shtml)
+- 2026-06-30 02:47 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/117036208.shtml)
+- 2026-06-30 03:08 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/59743.shtml)
+- 2026-06-30 03:08 - [歌剧老师锐评歌手第6期](http://www.share.kurohicncr.top/Article/details/07288588500.shtml)
+- 2026-06-30 03:07 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/36180.shtml)
+- 2026-06-30 03:03 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.minike.top/Article/details/68202013.shtml)
+- 2026-06-30 02:56 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/2270991.shtml)
+- 2026-06-30 02:58 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/74862023853.shtml)

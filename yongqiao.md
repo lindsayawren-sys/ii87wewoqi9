@@ -1,61 +1,59 @@
-# 民主党在《美墨加协定》复审前向美国贸易代表提出多项要求
+# 国台办：习近平总书记重要讲话为两岸关系发展进一步指明方向
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-核心要点 民主党参议员团体将在今年夏季《美墨加协定》（USMCA）法定联合复审前，向美国贸易代表詹米森・格里尔提出一系列要求。 由威斯康星州民主党参议员塔米・鲍德温牵头、共 15 名民主党人联名的信件，在周三晚些时候正式递交前已独家交由 CNBC 披露。信中要求格里尔 “必须确保：任何修订后的协定，都要为美国工人带来实质性、可量化的收益”。 特朗普第一任期内签署的《美墨加协定》
+中新社北京4月15日电 (记者 刘大炜 张晓曦)4月10日，中共中央总书记习近平在北京会见中国国民党主席郑丽文率领的访问团，并就推进两党关系、两岸关系发表重要讲话。国务院台办新闻发言人陈斌华15日在北京举行的例行新闻发布会上表示，习近平总书记的重要讲话为两岸关系发展进一步指明了方向，是做好新时代对台工作的根本遵循和行动指南。 陈斌华指出，习近平总书记在讲话中就两岸关系发展提出了
 
 ## 正文
 
-核心要点 民主党参议员团体将在今年夏季《美墨加协定》（USMCA）法定联合复审前，向美国贸易代表詹米森・格里尔提出一系列要求。
+中新社北京4月15日电 (记者 刘大炜 张晓曦)4月10日，中共中央总书记习近平在北京会见中国国民党主席郑丽文率领的访问团，并就推进两党关系、两岸关系发表重要讲话。
 
-由威斯康星州民主党参议员塔米・鲍德温牵头、共 15 名民主党人联名的信件，在周三晚些时候正式递交前已独家交由 CNBC 披露。
+国务院台办新闻发言人陈斌华15日在北京举行的例行新闻发布会上表示，习近平总书记的重要讲话为两岸关系发展进一步指明了方向，是做好新时代对台工作的根本遵循和行动指南。
 
-信中要求格里尔 “必须确保：任何修订后的协定，都要为美国工人带来实质性、可量化的收益”。
+陈斌华指出，习近平总书记在讲话中就两岸关系发展提出了4点意见，深刻阐明新形势下推动两岸关系和平发展、推进祖国统一大业的大政方针，揭示两岸同胞同属中华民族、都是中国人，传承弘扬中华文化，强化正确认同，促进同胞心灵契合的重大意义；揭示两岸同属一个中国，坚决反对“台独”分裂和外来干涉，推动两岸关系和平发展，守护中华民族共同家园的坚定决心；展现我们继续秉持两岸一家亲理念，推动两岸交流融合，增进同胞民生福祉的诚意善意；激励两岸同胞团结奋斗，携手共创祖国统一、民族复兴的美好未来。
 
-特朗普第一任期内签署的《美墨加协定》，将于7 月 1 日启动首次联合复审。
+陈斌华续指，习近平总书记的重要讲话贯通历史、现在、未来，彰显世界级领袖的格局胸襟气度，体现了为两岸谋和平、为同胞谋福祉、为民族谋复兴的使命情怀和历史担当，饱含着对台湾同胞的关心关爱和深情厚意，引发海内外中华儿女强烈共鸣和国际社会热烈反响，必将对两岸关系发展产生重大深远影响。
 
-特朗普最初称其为 “我们签署过最公平、最平衡、最有利的贸易协定”，但第二任期内态度明显转向，甚至对墨、加两国加征关祱。
+“我们将深入贯彻落实习近平总书记重要讲话精神，坚持‘九二共识’，广泛团结台湾同胞，深化两岸交流合作、融合发展，坚决反对‘台独’分裂和外来干涉，推动两岸关系和平发展，推进祖国统一、民族复兴伟业。
 
-格里尔本人在去年 12 月国会听证会上也表示：“对协定简单盖章通过，不符合美国国家利益”。
+”陈斌华表示，希望广大台湾同胞顺应历史大势，坚守民族大义，与我们一道坚定守护中华民族共同家园，共创中华民族绵长福祉，共享祖国统一、民族复兴伟大荣光。
 
-这意味着：要么对协定进行重大修改后再批准，要么不予批准、进入逐年复审的循环。
-
-民主党要求在协定中新增劳工条款相关内容，呼吁格里尔借此次复审之机，“确保加拿大与墨西哥全面履行劳工承诺，实现各方共赢”。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [武汉西安站在了3小时临界线门槛上](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pnxaz.md)
-- 2026-06-30 02:54 - [TFing最具影响力音乐厂牌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lgnbc.md)
-- 2026-06-30 03:01 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/longhuo.md)
-- 2026-06-30 02:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saosun.md)
-- 2026-06-30 02:55 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
-- 2026-06-30 02:36 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/prafc.md)
-- 2026-06-30 02:40 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuvnf.md)
-- 2026-06-30 02:54 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/umekz.md)
-- 2026-06-30 02:43 - [“手机痴呆症”盯上中青年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
-- 2026-06-30 02:59 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 02:59 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 03:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
-- 2026-06-30 02:55 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 03:00 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
-- 2026-06-30 02:41 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 03:10 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkluu.md)
+- 2026-06-30 03:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
+- 2026-06-30 02:47 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
+- 2026-06-30 02:58 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
+- 2026-06-30 03:04 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taiyin.md)
+- 2026-06-30 03:00 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 02:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 02:54 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 02:55 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pdiev.md)
+- 2026-06-30 02:52 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 03:03 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mseeu.md)
+- 2026-06-30 02:48 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
+- 2026-06-30 03:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pfbzi.md)
+- 2026-06-30 02:42 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 03:10 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sralw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [81岁老人被男子买光菜回家车祸去世](http://www.share.kurohicncr.top/Article/details/86957.shtml)
-- 2026-06-30 02:36 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.blog.kurohicncr.top/Article/details/95070.shtml)
-- 2026-06-30 02:58 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/79307.shtml)
-- 2026-06-30 02:44 - [佐野海舟远射破门](http://www.share.minike.top/Article/details/17645.shtml)
-- 2026-06-30 02:39 - [徐良演唱会伴舞把鞋子跳掉了](http://www.blog.minike.top/Article/details/867781033.shtml)
-- 2026-06-30 02:36 - [天道](https://www.share.kurohicncr.top/Article/details/4767961585.shtml)
-- 2026-06-30 02:40 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/10529.shtml)
-- 2026-06-30 02:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.minike.top/Article/details/93826976303.shtml)
-- 2026-06-30 03:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/52684522600.shtml)
-- 2026-06-30 02:40 - [张凌赫 客串](http://www.share.minike.top/Article/details/87754378.shtml)
-- 2026-06-30 02:59 - [请回答王牌2019](https://www.blog.minike.top/Article/details/030675000.shtml)
-- 2026-06-30 02:40 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/755543450523.shtml)
-- 2026-06-30 02:59 - [如何评价《龙之家族》第三季第二集？](http://www.blog.minike.top/Article/details/03629309.shtml)
-- 2026-06-30 02:55 - [老人卖菜获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/26454483596.shtml)
-- 2026-06-30 02:49 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/99518854.shtml)
+- 2026-06-30 02:53 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/9004694.shtml)
+- 2026-06-30 02:57 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/05848548351.shtml)
+- 2026-06-30 02:43 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/35349.shtml)
+- 2026-06-30 02:47 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/630285665809.shtml)
+- 2026-06-30 03:09 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.kurohicncr.top/Article/details/16762656761.shtml)
+- 2026-06-30 02:58 - [曾沛慈和老公一起回台湾](https://www.blog.minike.top/Article/details/62402268.shtml)
+- 2026-06-30 03:04 - [拆解FIFA和世界杯的暗面](https://www.share.minike.top/Article/details/847883990623.shtml)
+- 2026-06-30 03:09 - [女子螺蛳粉摊吃出蛇](https://www.share.minike.top/Article/details/5420090888.shtml)
+- 2026-06-30 03:00 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.share.kurohicncr.top/Article/details/33218197.shtml)
+- 2026-06-30 03:10 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/74738162.shtml)
+- 2026-06-30 03:11 - [世界杯连开三场决战](https://www.share.kurohicncr.top/Article/details/5976889956.shtml)
+- 2026-06-30 03:08 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/0041794711.shtml)
+- 2026-06-30 02:50 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/320213391720.shtml)
+- 2026-06-30 02:59 - [詹姆斯 勇士](http://www.share.minike.top/Article/details/1759393.shtml)
+- 2026-06-30 02:49 - [马航MH370传来最新消息](https://www.blog.minike.top/Article/details/5572291177.shtml)

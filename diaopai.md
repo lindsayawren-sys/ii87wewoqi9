@@ -1,53 +1,56 @@
-# 伏季休渔期间，广东海警局严查非法捕捞
+# 香港与联合国工发组织签署联合文告 共同推动工业合作与数字转型
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 16:52 来源：中国新闻网 自5月1日12时起，南海进入为期三个半月的伏季休渔期。广东海警局深入推进“粤海亮剑2026”专项执法行动，加密海上巡查频次，强化精准管控。休渔仅半月，已累计在粤东、粤西及珠三角海域查处多起非法捕捞案，抓获涉案人员64名，查扣涉案船舶17艘、各类网具400余张(个)，查扣渔获物总量超24吨。(作者：邓榕烜 周培跃 倪
+中新社香港4月14日电 香港特区政府创新科技及工业局(简称“创科局”)与联合国工业发展组织(简称“工发组织”)14日在香港签署有关推动工业发展、创新及数字转型合作的联合文告。香港特区行政长官李家超于当日与联合国工发组织总干事格尔德·穆勒(Gerd Müller)会面，双方就加强工业发展合作交换意见，并共同见证联合文告签署。 此次签署的联合文告将建立合作框架，通过加强合作、资讯共
 
 ## 正文
 
-发布时间：2026年05月19日 16:52 来源：中国新闻网 自5月1日12时起，南海进入为期三个半月的伏季休渔期。
+中新社香港4月14日电 香港特区政府创新科技及工业局(简称“创科局”)与联合国工业发展组织(简称“工发组织”)14日在香港签署有关推动工业发展、创新及数字转型合作的联合文告。
 
-广东海警局深入推进“粤海亮剑2026”专项执法行动，加密海上巡查频次，强化精准管控。
+香港特区行政长官李家超于当日与联合国工发组织总干事格尔德·穆勒(Gerd Müller)会面，双方就加强工业发展合作交换意见，并共同见证联合文告签署。
 
-休渔仅半月，已累计在粤东、粤西及珠三角海域查处多起非法捕捞案，抓获涉案人员64名，查扣涉案船舶17艘、各类网具400余张(个)，查扣渔获物总量超24吨。
+此次签署的联合文告将建立合作框架，通过加强合作、资讯共享及做法交流，推动工业创新、技术转移及能力发展，包括探索在香港共同打造全球先进制造业与人工智能的卓越中心等。
 
-(作者：邓榕烜 周培跃 倪成博 冯阳) 责任编辑：【魏聪聪】
+李家超表示，随着联合文告的签署，特区政府与联合国工发组织将加强合作，共同推动产业创新和技术转移等发展，在新一轮科技革命中把握机遇，加速产业高质量发展和转型，并进一步发挥香港作为“超级联系人”和“超级增值人”的角色，吸引海内外企业落户，推动新型工业化，培育壮大新质生产力。
+
+香港特区政府创科局局长孙东表示，香港期待在联合文告框架下，与联合国工发组织分享先进制造、人工智能应用及数字转型的实践经验，推动双方就技术趋势与经验展开对话，并探索在创新、知识转移及技能发展方面的合作途径。
+
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:01 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
-- 2026-06-30 03:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decan.md)
-- 2026-06-30 02:59 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
-- 2026-06-30 02:37 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 02:36 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 02:57 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nanbian.md)
-- 2026-06-30 02:55 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
-- 2026-06-30 02:47 - [小娘惹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eitec.md)
-- 2026-06-30 02:47 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 03:05 - [日本16强魔咒](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fangquan.md)
-- 2026-06-30 02:39 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhepz.md)
-- 2026-06-30 02:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opcpo.md)
-- 2026-06-30 03:05 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
-- 2026-06-30 02:57 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svxhw.md)
-- 2026-06-30 02:37 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 02:59 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gkipt.md)
+- 2026-06-30 02:48 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
+- 2026-06-30 02:43 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
+- 2026-06-30 02:47 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 02:54 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 03:04 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jqxcl.md)
+- 2026-06-30 03:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
+- 2026-06-30 03:08 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 02:56 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 03:00 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 03:10 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 03:03 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jureng.md)
+- 2026-06-30 02:53 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 03:09 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nzlkn.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:56 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/80674193.shtml)
-- 2026-06-30 02:47 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/4117601.shtml)
-- 2026-06-30 02:53 - [猛龙快船交易或将达成](https://www.share.minike.top/Article/details/313341.shtml)
-- 2026-06-30 02:42 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/257021980072.shtml)
-- 2026-06-30 02:38 - [李准基参加文彩元婚礼](http://www.blog.kurohicncr.top/Article/details/099363511049.shtml)
-- 2026-06-30 02:54 - [荷兰VS摩洛哥你看好谁](http://www.blog.minike.top/Article/details/690381100271.shtml)
-- 2026-06-30 02:45 - [姜妍走过来这段刘梅下班了](https://www.share.minike.top/Article/details/5939732.shtml)
-- 2026-06-30 02:39 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/71011862.shtml)
-- 2026-06-30 02:46 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/038824681.shtml)
-- 2026-06-30 02:39 - [欧洲人高温天为啥用不了空调](https://www.blog.kurohicncr.top/Article/details/99287518.shtml)
-- 2026-06-30 02:55 - [刘宇宁胸肌腹肌全给看了](https://www.share.minike.top/Article/details/790000154483.shtml)
-- 2026-06-30 02:53 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/41019509.shtml)
-- 2026-06-30 02:49 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/395092.shtml)
-- 2026-06-30 02:47 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/373714.shtml)
-- 2026-06-30 02:47 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/076691697991.shtml)
+- 2026-06-30 02:47 - [李在明向韩国两大财阀90度鞠躬](http://www.blog.minike.top/Article/details/0749611.shtml)
+- 2026-06-30 02:54 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/951377703.shtml)
+- 2026-06-30 03:08 - [赵今麦瘦好多](http://www.blog.minike.top/Article/details/35569.shtml)
+- 2026-06-30 02:58 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/70896003.shtml)
+- 2026-06-30 03:10 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/9991044125.shtml)
+- 2026-06-30 03:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/206163141513.shtml)
+- 2026-06-30 02:47 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/81759278.shtml)
+- 2026-06-30 02:46 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/8637423.shtml)
+- 2026-06-30 02:51 - [85花告别古偶](https://www.blog.minike.top/Article/details/155117.shtml)
+- 2026-06-30 03:09 - [中国小将严子怡再现一投夺冠](https://www.blog.kurohicncr.top/Article/details/698256.shtml)
+- 2026-06-30 03:04 - [运20服役十周年宣传片有哪些亮点](https://www.share.kurohicncr.top/Article/details/16699.shtml)
+- 2026-06-30 02:43 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/359957.shtml)
+- 2026-06-30 02:59 - [张碧晨一开口梦回逐玉](https://www.share.kurohicncr.top/Article/details/474761752463.shtml)
+- 2026-06-30 02:45 - [中方绝不允许日菲侵害中方海洋权益](http://www.share.minike.top/Article/details/137481.shtml)
+- 2026-06-30 02:44 - [我把队友的7连跪剪成了艺术](https://www.blog.kurohicncr.top/Article/details/4317120.shtml)

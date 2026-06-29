@@ -1,56 +1,57 @@
-# 江西萍乡赴大湾区推介增材制造产业 共谋行业发展
+# 混动车型需求增加推动 3月份韩国汽车出口额超过60亿美元
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网深圳5月19日电 (记者 吴鹏泉)作为2026年江西—粤港澳大湾区经贸活动周专题活动之一，萍乡市未来产业(增材制造)推介会暨产业应用交流会19日下午在广东深圳举行。来自增材制造领域的业界翘楚、行业精英相聚一堂，共话产业新机遇，共绘发展新蓝图。 广东省增材制造协会会长、华南理工大学教授杨永强表示，增材制造作为技术引导型产业，融合新材料、自动化、激光、软件、人工智能等前沿技术
+【TechWeb】4月15日消息，据外媒报道，3月份开始在高位运行的国际石油价格，不只是推升了对电动汽车的需求，对混合动力汽车的需求也有增加。有外媒在最新的报道中就提到，混合动汽车汽车需求增加，就推升了韩国汽车的出口额。外媒援引韩国贸易、工业和能源部的数据报道称，在混合动气车需求强劲的推动下，3月份韩国韩国汽车的出口额达到了63.7亿美元，同比增长2.2%，是有统计数据以来出口
 
 ## 正文
 
-中新网深圳5月19日电 (记者 吴鹏泉)作为2026年江西—粤港澳大湾区经贸活动周专题活动之一，萍乡市未来产业(增材制造)推介会暨产业应用交流会19日下午在广东深圳举行。
+【TechWeb】4月15日消息，据外媒报道，3月份开始在高位运行的国际石油价格，不只是推升了对电动汽车的需求，对混合动力汽车的需求也有增加。
 
-来自增材制造领域的业界翘楚、行业精英相聚一堂，共话产业新机遇，共绘发展新蓝图。
+有外媒在最新的报道中就提到，混合动汽车汽车需求增加，就推升了韩国汽车的出口额。
 
-广东省增材制造协会会长、华南理工大学教授杨永强表示，增材制造作为技术引导型产业，融合新材料、自动化、激光、软件、人工智能等前沿技术，市场规模近年迎来高速增长，未来将在金融投资、新产品开发、规模化应用等方面迎来更大突破，为企业、科研与应用单位带来重要发展机遇。
+外媒援引韩国贸易、工业和能源部的数据报道称，在混合动气车需求强劲的推动下，3月份韩国韩国汽车的出口额达到了63.7亿美元，同比增长2.2%，是有统计数据以来出口额第2高的3月份。
 
-江西省商务厅二级巡视员陈志民表示，增材制造作为高端智造与新材料应用的核心领域，与江西未来产业布局高度契合，是该省盘活资源优势、激活科创动能、推动产业提质增效的关键抓手，正迎来前所未有的发展窗口期，发展前景广阔可期。
+具体到混合动力汽车，韩国方面的数据是显示出口额同比大增79%，是推升他们汽车出口额的重要因素。
 
-在江西未来产业发展的浪潮中，萍乡市凭借深厚的百年工业底蕴，表现亮眼。
+具体到市场，3月份韩国汽车向欧盟的出口额同比增长了33%，向亚太的出口同比下滑38.4%，向中东的出口额同比下滑40.8%。
 
-该市将增材制造产业作为重点培育的核心赛道，持续深耕布局，成为江西增材制造产业发展的重要增长极。
+而韩国方面的数据还显示，在今年前3个月，他们汽车的出口额为172亿美元，略低于去年同期，同比下滑0.2%。
 
-“当前的萍乡，正向更新赛道进军、向更高价值攀登。
-
-”萍乡市委书记余正琨表示，该市将增材制造产业作为四大未来产业之首重点培育，在“建园促链”、技术研发、场景应用等方面给予一系列政策支持。
+（海蓝）
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 02:46 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
-- 2026-06-30 02:38 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuishao.md)
-- 2026-06-30 02:51 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iufzm.md)
-- 2026-06-30 02:41 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjhx.md)
-- 2026-06-30 02:36 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
-- 2026-06-30 02:52 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 02:44 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 02:57 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiuhun.md)
-- 2026-06-30 02:52 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqcdk.md)
+- 2026-06-30 03:07 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/helbe.md)
+- 2026-06-30 02:51 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
+- 2026-06-30 02:59 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
+- 2026-06-30 03:02 - [大范围高温会带来哪些经济影响](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 03:06 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jempv.md)
+- 2026-06-30 02:51 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nnkxn.md)
+- 2026-06-30 02:56 - [刘念回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 02:50 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzxya.md)
+- 2026-06-30 02:47 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qokqn.md)
+- 2026-06-30 02:59 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qxzox.md)
+- 2026-06-30 02:49 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 02:43 - [这一刀 会很帅](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 03:09 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/103241757.shtml)
-- 2026-06-30 02:52 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/96415245191.shtml)
-- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/1825188090.shtml)
-- 2026-06-30 02:59 - [新官上任三把火](https://www.blog.kurohicncr.top/Article/details/86728.shtml)
-- 2026-06-30 02:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.minike.top/Article/details/150767.shtml)
-- 2026-06-30 02:38 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.blog.minike.top/Article/details/8460131964.shtml)
-- 2026-06-30 02:40 - [运20服役十周年宣传片有哪些亮点](http://www.blog.kurohicncr.top/Article/details/703148.shtml)
-- 2026-06-30 02:42 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/519492.shtml)
-- 2026-06-30 02:48 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/089566110.shtml)
-- 2026-06-30 02:49 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/229218.shtml)
-- 2026-06-30 03:01 - [贺峻霖拎着爱马仕回国了](http://www.share.kurohicncr.top/Article/details/727077325.shtml)
-- 2026-06-30 02:52 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/625177634576.shtml)
-- 2026-06-30 02:38 - [荷兰VS摩洛哥你看好谁](https://www.blog.minike.top/Article/details/751485034.shtml)
-- 2026-06-30 03:00 - [李在明向韩国两大财阀90度鞠躬](http://www.share.kurohicncr.top/Article/details/486278.shtml)
-- 2026-06-30 02:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/35560825.shtml)
+- 2026-06-30 02:57 - [马杜罗账号在纽约发文致谢各国援助](https://www.share.minike.top/Article/details/90033616.shtml)
+- 2026-06-30 03:02 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/3697089.shtml)
+- 2026-06-30 03:05 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/86262.shtml)
+- 2026-06-30 02:48 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/3100451.shtml)
+- 2026-06-30 02:48 - [巴西补时绝杀日本](http://www.blog.kurohicncr.top/Article/details/89080901.shtml)
+- 2026-06-30 02:44 - [世界杯](http://www.blog.kurohicncr.top/Article/details/0853429.shtml)
+- 2026-06-30 02:48 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/520038250.shtml)
+- 2026-06-30 02:52 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://www.blog.minike.top/Article/details/021924309.shtml)
+- 2026-06-30 02:53 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/4408721.shtml)
+- 2026-06-30 02:53 - [青春环游记第三季](http://www.blog.kurohicncr.top/Article/details/85281288060.shtml)
+- 2026-06-30 02:49 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/1245309.shtml)
+- 2026-06-30 02:56 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/53256594576.shtml)
+- 2026-06-30 02:46 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/9153599.shtml)
+- 2026-06-30 02:42 - [中国气象局启动气象灾害四级应急响应](http://www.share.kurohicncr.top/Article/details/3260873534.shtml)
+- 2026-06-30 02:50 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/72050318255.shtml)

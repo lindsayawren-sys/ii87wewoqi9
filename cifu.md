@@ -1,56 +1,60 @@
-# 印度证交所CEO：国内投资者拯救市场免于“直线坠落”
+# 中国人民银行缩量续做 6个月期买断式逆回购
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-孟买证券交易所董事总经理兼首席执行官桑达拉拉曼·拉马穆蒂周二表示：“印度正在增长，还有大量人口尚未进入资本市场。”他补充称，过去一年已有3500万印度投资者通过BSE注册。 这位首席执行官表示，外国参与者在印度股市的持股比例曾高于国内机构，但“如今情况已经逆转”。他称，去年印度国内机构投资者在股市净投入910亿美元，而外国投资者净撤出350亿美元。 拉马穆蒂在新加坡举行的Mot
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！本报记者 刘 琪 4月14日，中国人民银行发布公开市场买断式逆回购招标公告。公告显示，为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天）。 本月6个月期买断式逆回购到期规模为6000亿元，开展上述操作
 
 ## 正文
 
-孟买证券交易所董事总经理兼首席执行官桑达拉拉曼·拉马穆蒂周二表示：“印度正在增长，还有大量人口尚未进入资本市场。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-”他补充称，过去一年已有3500万印度投资者通过BSE注册。
+本报记者 刘 琪 4月14日，中国人民银行发布公开市场买断式逆回购招标公告。
 
-这位首席执行官表示，外国参与者在印度股市的持股比例曾高于国内机构，但“如今情况已经逆转”。
+公告显示，为保持银行体系流动性充裕，2026年4月15日，中国人民银行将以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为6个月（183天）。
 
-他称，去年印度国内机构投资者在股市净投入910亿美元，而外国投资者净撤出350亿美元。
+本月6个月期买断式逆回购到期规模为6000亿元，开展上述操作后，6个月期买断式逆回购实现净回笼1000亿元。
 
-拉马穆蒂在新加坡举行的Motilal Oswal印度企业日期间表示：“这不仅抵消了（外资）流出，还在很大程度上稳定了Sensex指数，使其免于直线坠落。
+此外，中国人民银行在4月7日已开展了8000亿元3个月期买断式逆回购操作，对冲到期的11000亿元3个月期买断式逆回购后实现净回笼3000亿元。
 
-” 由于盈利疲软以及中东冲突导致全球油价上涨对经济造成的不利影响不断加剧，外国投资者对印度市场仍持看空态度。
+招联首席经济学家董希淼在接受《证券日报》记者采访时表示，本月买断式逆回购缩量续做，主要是由于市场流动性充裕。
 
-尽管印度是全球信息技术领导者，但该国缺乏大型人工智能生态系统公司，这进一步打压了外国投资者的情绪。
+近期DR001（银行间市场隔夜质押式回购加权平均利率）持续在1.2%至1.25%低位运行，远低于政策利率，反映出当前市场流动性处于充裕状态。
 
-汇丰研究在周二的一份报告中指出，印度没有清晰的“人工智能驱动叙事”，其市场以美元计算已下跌约10%。
+“缩量操作的核心目的是引导主要市场利率从过度偏低水平逐步回归政策利率附近，避免市场形成过度宽松的单边预期。
 
 ## 相关推荐
 
-- 2026-06-30 02:49 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 02:59 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
-- 2026-06-30 02:44 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
-- 2026-06-30 03:03 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
-- 2026-06-30 02:36 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fnipv.md)
-- 2026-06-30 02:52 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
-- 2026-06-30 02:41 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhmcn.md)
-- 2026-06-30 03:03 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
-- 2026-06-30 03:04 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
-- 2026-06-30 02:44 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 02:57 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gkipt.md)
+- 2026-06-30 03:02 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umekz.md)
+- 2026-06-30 02:58 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 02:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
+- 2026-06-30 03:09 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
+- 2026-06-30 02:51 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djmat.md)
+- 2026-06-30 02:46 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
+- 2026-06-30 03:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 03:11 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
+- 2026-06-30 03:01 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
+- 2026-06-30 03:06 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/owtvb.md)
+- 2026-06-30 02:57 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dltar.md)
+- 2026-06-30 03:06 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
+- 2026-06-30 03:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [点菜也要教吗](http://www.blog.minike.top/Article/details/064016.shtml)
-- 2026-06-30 02:41 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/0593751810.shtml)
-- 2026-06-30 02:45 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.kurohicncr.top/Article/details/985065.shtml)
-- 2026-06-30 02:44 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/13420574882.shtml)
-- 2026-06-30 03:05 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/38609086.shtml)
-- 2026-06-30 02:42 - [荷兰VS摩洛哥你看好谁](http://www.share.kurohicncr.top/Article/details/78394.shtml)
-- 2026-06-30 03:02 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/36112.shtml)
-- 2026-06-30 02:47 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.blog.minike.top/Article/details/0284460994.shtml)
-- 2026-06-30 02:43 - [刘念回应](https://www.share.kurohicncr.top/Article/details/5166188.shtml)
-- 2026-06-30 03:01 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/4144669.shtml)
-- 2026-06-30 02:49 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/2488372.shtml)
-- 2026-06-30 02:37 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/57944.shtml)
-- 2026-06-30 02:41 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.kurohicncr.top/Article/details/154074970.shtml)
-- 2026-06-30 03:01 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/2759963475.shtml)
-- 2026-06-30 02:49 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.minike.top/Article/details/3724496995.shtml)
+- 2026-06-30 03:09 - [本届世界杯已有5名球员被控强奸](https://www.share.kurohicncr.top/Article/details/185476.shtml)
+- 2026-06-30 02:47 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/446223019.shtml)
+- 2026-06-30 02:46 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/664478463.shtml)
+- 2026-06-30 02:47 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.minike.top/Article/details/048015596404.shtml)
+- 2026-06-30 02:47 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/46852422976.shtml)
+- 2026-06-30 03:03 - [这些7月新规影响你我](https://www.share.kurohicncr.top/Article/details/5157103.shtml)
+- 2026-06-30 02:55 - [点菜也要教吗](http://www.blog.kurohicncr.top/Article/details/90903476.shtml)
+- 2026-06-30 02:49 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/60924.shtml)
+- 2026-06-30 03:06 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/6144460540.shtml)
+- 2026-06-30 03:06 - [国务院：探索延长义务教育年限](http://www.share.minike.top/Article/details/5755141.shtml)
+- 2026-06-30 02:45 - [DRG官宣选手Akeman离队](http://www.share.minike.top/Article/details/683228.shtml)
+- 2026-06-30 02:43 - [上半年全国特种设备安全形势总体平稳](http://www.share.kurohicncr.top/Article/details/7736165108.shtml)
+- 2026-06-30 02:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/8689593.shtml)
+- 2026-06-30 03:03 - [董卿父亲发文悼念亡妻](http://www.share.minike.top/Article/details/84862405.shtml)
+- 2026-06-30 03:00 - [对最近的回应与澄清](http://www.share.kurohicncr.top/Article/details/050466.shtml)

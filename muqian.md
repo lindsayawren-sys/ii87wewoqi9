@@ -1,61 +1,56 @@
-# 三星电子劳资谈判破裂后 韩国总统李在明称工会行动须有适当限度
+# 2026年全国城市联合招聘西部地区青年人才交流会在西安举办
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-韩国总统李在明在内阁会议上呼吁，对集体劳工行动设定“适当的界限”，此时正值政府斡旋的三星电子与工会谈判破裂，导致罢工风险上升。 李在明虽未点名三星，但就在他发言前不久，这家全球芯片巨头的工会领导人表示，由于谈判再次陷入僵局，原定于周四开始的为期18天停工将如期进行。三星方面则指责工会提出“过高”要求。 根据内阁会议直播画面，李在明表示：“部分工会通过行使权利来维护自身利益是可以
+中新网西安4月15日电 (李一璠)15日，由人力资源和社会保障部全国人才流动中心、陕西省人力资源和社会保障厅联合主办的2026年全国城市联合招聘西部地区青年人才交流会暨“乐业陕西‘就’在三秦”春招进校园活动在西安理工大学举办。 作为“职引未来·全国城市联合招聘”系列活动中的重要专场活动，该活动聚焦西部地区高校毕业生等青年群体求职需求，联动政校企多方力量搭建精准高效供需对接平台。
 
 ## 正文
 
-韩国总统李在明在内阁会议上呼吁，对集体劳工行动设定“适当的界限”，此时正值政府斡旋的三星电子与工会谈判破裂，导致罢工风险上升。
+中新网西安4月15日电 (李一璠)15日，由人力资源和社会保障部全国人才流动中心、陕西省人力资源和社会保障厅联合主办的2026年全国城市联合招聘西部地区青年人才交流会暨“乐业陕西‘就’在三秦”春招进校园活动在西安理工大学举办。
 
-李在明虽未点名三星，但就在他发言前不久，这家全球芯片巨头的工会领导人表示，由于谈判再次陷入僵局，原定于周四开始的为期18天停工将如期进行。
+作为“职引未来·全国城市联合招聘”系列活动中的重要专场活动，该活动聚焦西部地区高校毕业生等青年群体求职需求，联动政校企多方力量搭建精准高效供需对接平台。
 
-三星方面则指责工会提出“过高”要求。
+活动现场汇聚600余家优质用人单位，设置央企、国企事业单位领航专区、跨省引才对接专区、三秦名企汇聚专区等特色招聘展区，覆盖制造业、信息技术、文化教育、金融等重点领域，提供优质就业岗位1.7万余个，涵盖技术研发、生产管理、市场营销、综合职能等类型，满足不同专业、不同层次毕业生求职需求。
 
-根据内阁会议直播画面，李在明表示：“部分工会通过行使权利来维护自身利益是可以理解的，但同时也必须有一个适当的限制。
+除精准岗位供给外，现场还构建一站式多元化就业服务体系，开设政策宣传、职业指导、求职助力等服务专区，提供就业创业政策解读、“一对一”简历优化、职业生涯规划、免费证件照拍摄等暖心服务；同步推出AI模拟面试、AI简历智能点评等数字化智慧服务，以科技赋能提升求职竞争力。
 
-” 此次争议的核心在于薪酬分配机制。
+此外，当日还举办了2026年陕西省高校毕业生政策宣讲暨“平凡岗位 精彩人生”经验分享活动和用人单位现场宣介会。
 
-三星工会要求取消现行奖金上限、将公司15%的营业利润提拨作为员工奖金，并将相关条款正式纳入劳动合约中。
+陕西省人社部门表示，将以此次活动为契机，做优做强“乐业陕西‘就’在三秦”就业服务品牌，持续聚焦高校毕业生等青年重点群体就业工作，不断创新就业服务模式，用心用情搭建更广阔的人才对接平台。
 
-三星曾提议将营业利润的10%用于发放奖金，外加一笔高于业界标准的特别一次性补偿方案。
-
-公司高层则认为，工会的要求难以长期维持。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
-- 2026-06-30 02:36 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgart.md)
-- 2026-06-30 03:03 - [【Reaction】女生最少的5款游戏](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
-- 2026-06-30 02:40 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyykk.md)
-- 2026-06-30 02:40 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wanghan.md)
-- 2026-06-30 02:36 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 02:59 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ozaoe.md)
-- 2026-06-30 02:43 - [新官上任三把火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
-- 2026-06-30 02:55 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
-- 2026-06-30 03:05 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
-- 2026-06-30 02:37 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
-- 2026-06-30 02:51 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
-- 2026-06-30 02:38 - [足球“出口导向”造就佛得角奇迹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lemjh.md)
-- 2026-06-30 02:37 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hxsar.md)
-- 2026-06-30 02:55 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tengtuo.md)
+- 2026-06-30 02:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 02:54 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zelie.md)
+- 2026-06-30 03:08 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 03:09 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/brzzg.md)
+- 2026-06-30 03:05 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 02:42 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 02:46 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjoyq.md)
+- 2026-06-30 03:03 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
+- 2026-06-30 02:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kurau.md)
+- 2026-06-30 03:08 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 02:57 - [速度与激情9](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iqhuk.md)
+- 2026-06-30 02:48 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:03 - [四川宜宾地震为何震感明显](https://www.blog.kurohicncr.top/Article/details/39477247.shtml)
-- 2026-06-30 02:59 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/86216070625.shtml)
-- 2026-06-30 02:58 - [当我知道豆包有后台审核人员](http://www.share.kurohicncr.top/Article/details/2653866.shtml)
-- 2026-06-30 02:42 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/7113310.shtml)
-- 2026-06-30 02:49 - [美股](https://www.share.kurohicncr.top/Article/details/968097425.shtml)
-- 2026-06-30 03:05 - [德约科维奇向温网对手放狠话](http://www.share.minike.top/Article/details/85143.shtml)
-- 2026-06-30 02:56 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.share.kurohicncr.top/Article/details/7810310206.shtml)
-- 2026-06-30 02:50 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/929939.shtml)
-- 2026-06-30 03:01 - [王欣瑜：今年经历了一些起伏](https://www.share.minike.top/Article/details/16593803097.shtml)
-- 2026-06-30 02:48 - [博世们还在犹豫 美的们已经卖断货](http://www.share.minike.top/Article/details/5190980044.shtml)
-- 2026-06-30 02:49 - [毒液2](http://www.share.kurohicncr.top/Article/details/953893856.shtml)
-- 2026-06-30 02:39 - [足球“出口导向”造就佛得角奇迹](https://www.share.minike.top/Article/details/75158941978.shtml)
-- 2026-06-30 02:49 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/3670930170.shtml)
-- 2026-06-30 02:48 - [模仿老妈打牌赢了和输了的区别！](https://www.share.minike.top/Article/details/1394945601.shtml)
-- 2026-06-30 02:43 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/0832425.shtml)
+- 2026-06-30 02:57 - [韩乔生吐槽世界杯扩军](http://www.blog.kurohicncr.top/Article/details/39391.shtml)
+- 2026-06-30 02:59 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.kurohicncr.top/Article/details/524267.shtml)
+- 2026-06-30 02:56 - [警犬“多多”助民警寻回失联老人](https://www.blog.kurohicncr.top/Article/details/9079968853.shtml)
+- 2026-06-30 02:52 - [又一美国科技巨头转向中国大模型](https://www.blog.kurohicncr.top/Article/details/7720262217.shtml)
+- 2026-06-30 02:57 - [【哈基米】极境升华！超级刀盾狗！](https://www.blog.minike.top/Article/details/04560966413.shtml)
+- 2026-06-30 03:04 - [【全网首杀】涤墨作战7人870分](http://www.blog.kurohicncr.top/Article/details/025100.shtml)
+- 2026-06-30 02:49 - [蔚来车主罚站](http://www.blog.kurohicncr.top/Article/details/8137500.shtml)
+- 2026-06-30 02:44 - [“十五五”优质本科扩容](https://www.blog.minike.top/Article/details/175951463427.shtml)
+- 2026-06-30 02:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/71399823579.shtml)
+- 2026-06-30 02:52 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.minike.top/Article/details/154668.shtml)
+- 2026-06-30 02:44 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/2486670136.shtml)
+- 2026-06-30 02:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.minike.top/Article/details/93701263203.shtml)
+- 2026-06-30 02:43 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/373060569.shtml)
+- 2026-06-30 02:43 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.share.minike.top/Article/details/8515768.shtml)
+- 2026-06-30 02:49 - [金刚川](http://www.share.minike.top/Article/details/0097559707.shtml)

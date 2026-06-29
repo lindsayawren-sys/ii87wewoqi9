@@ -1,60 +1,59 @@
-# Perion Network Q1 2026财报前瞻：AI驱动下的业绩复苏预期
+# 美国再次威胁或在伊朗问题结束后处理古巴 中方回应
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-数字广告技术公司Perion Network将于周三（5月20日）盘前发布2026年第一季度财报。市场普遍关注公司在新任CEO领导下的战略转型成果，以及AI技术对广告业务的赋能效果。 财务预期存在分歧 数据显示，分析师对Q1业绩的预测存在较大差异。营收方面，市场预期介于9100万美元至1.49亿美元之间，其中BMO Capital预测为1.455亿美元。每股收益预期同样分化，有
+中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。 有记者提问：近日，古巴国家主席迪亚斯-卡内尔在接受美国媒体采访时表示，古巴始终愿在尊重、平等和不设条件前提下同美开展对话，坚决拒绝美国要求其辞职等政治要价。古巴不对美国构成威胁，美国没有任何理由诉诸军事侵略。13日，美国再次对古巴发出威胁，称美可能在伊朗问题结束后处理古巴。中方对此有评论
 
 ## 正文
 
-数字广告技术公司Perion Network将于周三（5月20日）盘前发布2026年第一季度财报。
+中新网北京4月15日电 (记者 黄钰钦 曾玥)中国外交部发言人郭嘉昆15日主持例行记者会。
 
-市场普遍关注公司在新任CEO领导下的战略转型成果，以及AI技术对广告业务的赋能效果。
+有记者提问：近日，古巴国家主席迪亚斯-卡内尔在接受美国媒体采访时表示，古巴始终愿在尊重、平等和不设条件前提下同美开展对话，坚决拒绝美国要求其辞职等政治要价。
 
-财务预期存在分歧 数据显示，分析师对Q1业绩的预测存在较大差异。
+古巴不对美国构成威胁，美国没有任何理由诉诸军事侵略。
 
-营收方面，市场预期介于9100万美元至1.49亿美元之间，其中BMO Capital预测为1.455亿美元。
+13日，美国再次对古巴发出威胁，称美可能在伊朗问题结束后处理古巴。
 
-每股收益预期同样分化，有分析给出0.24美元的乐观预测，而FINVIZ显示EPS预估仅为0.07美元，GAAP EPS预期为亏损0.24美元。
+中方对此有评论？
 
-AI工具成增长催化剂 公司在今年3月推出了一款新的AI驱动广告优化工具，旨在提升实时竞价效率和广告投放效果。
+郭嘉昆：中方坚决反对胁迫外交，将坚定支持古巴维护国家主权、反对外来干涉。
 
-该工具已与多家测试客户合作，取得积极反馈。
-
-此外，Perion还宣布与欧洲主要广告技术平台达成战略合作，以拓展欧洲市场份额。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
-- 2026-06-30 03:03 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
-- 2026-06-30 02:56 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
-- 2026-06-30 02:43 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zezhua.md)
-- 2026-06-30 02:48 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
-- 2026-06-30 02:39 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rhfth.md)
-- 2026-06-30 02:37 - [问心2金世佳追妻火葬场](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 03:05 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 03:00 - [2021湖南卫视跨年演唱会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 03:00 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
-- 2026-06-30 03:03 - [送你一朵小红花](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
-- 2026-06-30 02:36 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 02:53 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piddr.md)
-- 2026-06-30 03:04 - [新官上任三把火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 03:03 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 03:07 - [TOP Prada](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enjyc.md)
+- 2026-06-30 03:05 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 03:08 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanyong.md)
+- 2026-06-30 02:50 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuicha.md)
+- 2026-06-30 03:11 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fayao.md)
+- 2026-06-30 02:43 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 02:53 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 03:07 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbpgs.md)
+- 2026-06-30 03:08 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
+- 2026-06-30 02:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 02:57 - [赛博朋克边缘行者2预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 03:03 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hankang.md)
+- 2026-06-30 02:46 - [网友分享整套中医手术刀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 03:01 - [巴西补时绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/547122158011.shtml)
-- 2026-06-30 02:43 - [詹姆斯 勇士](http://www.blog.kurohicncr.top/Article/details/286375266.shtml)
-- 2026-06-30 02:53 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/00015471280.shtml)
-- 2026-06-30 02:58 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/414715211894.shtml)
-- 2026-06-30 03:04 - [千香](http://www.share.kurohicncr.top/Article/details/4734939882.shtml)
-- 2026-06-30 02:52 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/75709.shtml)
-- 2026-06-30 02:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/992249129.shtml)
-- 2026-06-30 03:03 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/93716875.shtml)
-- 2026-06-30 02:53 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/13336.shtml)
-- 2026-06-30 02:50 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/203043601.shtml)
-- 2026-06-30 02:57 - [赵今麦电影开端客串路透](http://www.share.minike.top/Article/details/504866887926.shtml)
-- 2026-06-30 02:36 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.kurohicncr.top/Article/details/34963447.shtml)
-- 2026-06-30 02:42 - [建议不要突然完全停止喝咖啡](http://www.share.minike.top/Article/details/834161669478.shtml)
-- 2026-06-30 02:53 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/486515.shtml)
-- 2026-06-30 02:41 - [世界杯连开三场决战](http://www.share.kurohicncr.top/Article/details/59663612163.shtml)
+- 2026-06-30 02:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.blog.minike.top/Article/details/07555.shtml)
+- 2026-06-30 02:50 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/6204160.shtml)
+- 2026-06-30 03:03 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/41818.shtml)
+- 2026-06-30 03:09 - [青春环游记第三季](https://www.blog.kurohicncr.top/Article/details/286791252409.shtml)
+- 2026-06-30 02:44 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.kurohicncr.top/Article/details/789435770.shtml)
+- 2026-06-30 02:43 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/160829693096.shtml)
+- 2026-06-30 03:00 - [勇敢的心第二部](https://www.blog.kurohicncr.top/Article/details/892873.shtml)
+- 2026-06-30 02:56 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/2908862977.shtml)
+- 2026-06-30 03:00 - [穆祉丞躺TFING身上](http://www.blog.kurohicncr.top/Article/details/7132005.shtml)
+- 2026-06-30 02:51 - [爱很美味](http://www.blog.kurohicncr.top/Article/details/4498091840.shtml)
+- 2026-06-30 03:08 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.minike.top/Article/details/81532797571.shtml)
+- 2026-06-30 02:44 - [《贺子珍》](http://www.blog.kurohicncr.top/Article/details/15510137.shtml)
+- 2026-06-30 03:09 - [强制戒网瘾起诉父亲](https://www.share.kurohicncr.top/Article/details/059996245668.shtml)
+- 2026-06-30 03:07 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/290130539815.shtml)
+- 2026-06-30 02:52 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/02152843304.shtml)

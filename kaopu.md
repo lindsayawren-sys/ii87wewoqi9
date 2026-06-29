@@ -1,53 +1,49 @@
-# 夏季出汗排毒养颜？ 养生说法正确吗
+# 贝森特称私募信贷领域不存在系统性风险 并提及戴蒙
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 20:37 来源：中国新闻网 5月19日，国家卫生健康委举行新闻发布会介绍时令节气与健康有关情况。会上，中国中医科学院西苑医院主任医师刘征堂介绍，出汗不是“排毒养颜”的捷径。中医认为，适度运动、微微出汗，对身体有好处。但刻意追求暴汗，比如长时间蒸桑拿、穿暴汗服运动、在高温下剧烈锻炼，并不能把所谓“毒素”排出去，反而容易导致脱水、头晕、心慌，严重
+美国财政部长斯科特·贝森特表示，财政部的工作均未显示私募信贷行业将出现系统性问题。 “就连杰米·戴蒙 —— 我记得他几个月前曾表示私募信贷领域可能存在‘蟑螂’ —— 昨天也公开表示，‘让我们看看数据吧，规模不足以构成系统性风险’，”贝森特说道。责任编辑：刘明亮
 
 ## 正文
 
-发布时间：2026年05月19日 20:37 来源：中国新闻网 5月19日，国家卫生健康委举行新闻发布会介绍时令节气与健康有关情况。
+美国财政部长斯科特·贝森特表示，财政部的工作均未显示私募信贷行业将出现系统性问题。
 
-会上，中国中医科学院西苑医院主任医师刘征堂介绍，出汗不是“排毒养颜”的捷径。
+“就连杰米·戴蒙 —— 我记得他几个月前曾表示私募信贷领域可能存在‘蟑螂’ —— 昨天也公开表示，‘让我们看看数据吧，规模不足以构成系统性风险’，”贝森特说道。
 
-中医认为，适度运动、微微出汗，对身体有好处。
-
-但刻意追求暴汗，比如长时间蒸桑拿、穿暴汗服运动、在高温下剧烈锻炼，并不能把所谓“毒素”排出去，反而容易导致脱水、头晕、心慌，严重时还可能中暑。
-
-皮肤状态好不好，更多与睡眠、饮食、清洁、防晒和情绪有关，不是靠大汗“排”出来的。
-
-(记者 李佳悦 制作 王嘉怡） 责任编辑：【李季】
+责任编辑：刘明亮
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jihuo.md)
-- 2026-06-30 02:54 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 02:49 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aihang.md)
-- 2026-06-30 02:55 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lhmcn.md)
-- 2026-06-30 02:40 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tclib.md)
-- 2026-06-30 03:00 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
-- 2026-06-30 02:47 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
-- 2026-06-30 02:59 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/itbbb.md)
-- 2026-06-30 02:38 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
-- 2026-06-30 02:39 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
-- 2026-06-30 03:04 - [Prada在内娱首度签下偶像团体](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 03:01 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 02:57 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
+- 2026-06-30 02:43 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/roogq.md)
+- 2026-06-30 02:46 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuapin.md)
+- 2026-06-30 02:57 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tejit.md)
+- 2026-06-30 03:03 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
+- 2026-06-30 03:09 - [我和我的家乡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
+- 2026-06-30 03:11 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/erglp.md)
+- 2026-06-30 02:53 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxbav.md)
+- 2026-06-30 02:58 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 02:51 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/enjyc.md)
+- 2026-06-30 02:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 03:10 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/91899135.shtml)
-- 2026-06-30 02:46 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/9633815.shtml)
-- 2026-06-30 02:45 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/8386976248.shtml)
-- 2026-06-30 02:37 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/9215212.shtml)
-- 2026-06-30 02:39 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/50687451989.shtml)
-- 2026-06-30 02:47 - [如何评价杨紫白玉兰获奖](http://www.share.minike.top/Article/details/0220132.shtml)
-- 2026-06-30 02:50 - [张帅时隔四年晋级温网第二轮](https://www.blog.kurohicncr.top/Article/details/0228448.shtml)
-- 2026-06-30 02:54 - [美股](http://www.share.kurohicncr.top/Article/details/173140.shtml)
-- 2026-06-30 02:44 - [速度与激情9](http://www.blog.minike.top/Article/details/365504015726.shtml)
-- 2026-06-30 03:04 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/87135.shtml)
-- 2026-06-30 03:01 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/14128976.shtml)
-- 2026-06-30 02:50 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/681146371.shtml)
-- 2026-06-30 02:42 - [韩国队输球后连呼吸都是错的吗](http://www.blog.kurohicncr.top/Article/details/608354379943.shtml)
-- 2026-06-30 02:36 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/254819104.shtml)
-- 2026-06-30 02:54 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.kurohicncr.top/Article/details/296392730665.shtml)
+- 2026-06-30 02:53 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.minike.top/Article/details/480712769177.shtml)
+- 2026-06-30 03:07 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/5271852027.shtml)
+- 2026-06-30 03:00 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.minike.top/Article/details/921524250.shtml)
+- 2026-06-30 03:08 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/3006578837.shtml)
+- 2026-06-30 02:50 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/21361717745.shtml)
+- 2026-06-30 02:53 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.kurohicncr.top/Article/details/8624187.shtml)
+- 2026-06-30 02:54 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.minike.top/Article/details/52666065.shtml)
+- 2026-06-30 03:10 - [张月感谢了每一公的队友](http://www.share.minike.top/Article/details/21672513.shtml)
+- 2026-06-30 02:56 - [牺牲民警倒下前还在保护群众](http://www.share.kurohicncr.top/Article/details/2622141148.shtml)
+- 2026-06-30 03:11 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/83173287075.shtml)
+- 2026-06-30 02:44 - [李准基参加文彩元婚礼](https://www.share.kurohicncr.top/Article/details/7455461.shtml)
+- 2026-06-30 03:01 - [恋与深空需正视价值观偏差](http://www.share.minike.top/Article/details/8705731.shtml)
+- 2026-06-30 02:47 - [科技牛市下的最大考验是什么](https://www.share.minike.top/Article/details/20403502.shtml)
+- 2026-06-30 02:47 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/640333135.shtml)
+- 2026-06-30 03:03 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/472116357479.shtml)

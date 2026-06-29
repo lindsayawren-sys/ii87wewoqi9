@@ -1,61 +1,45 @@
-# 四家券商现身长鑫股东名单，数百亿浮盈带动座次洗牌，再造一个半“招商证券”
+# 以色列称没有收到与黎巴嫩停火有关的决定或请求
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-专题：业绩炸裂！长鑫存储概念引爆，多股“一字板” 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！财联社5月20日讯（记者 王晨）一份业绩惊人的科创板招股说明书，同时揭开了一场潜伏数年的资本盛宴。 长鑫科技最新的招股说明书中，四家券商的身影浮出水面，招商证券、华安证券、中信建投以及中金公司，通过旗下子公司或参股基金，早已在数年前便悄然布局。 根据最新估值
+总台记者当地时间15日获悉，一名以色列官员表示，目前以色列没有收到与黎巴嫩停火有关的决定或请求。(总台记者 赵兵 江浩宇)
 
 ## 正文
 
-专题：业绩炸裂！
+总台记者当地时间15日获悉，一名以色列官员表示，目前以色列没有收到与黎巴嫩停火有关的决定或请求。
 
-长鑫存储概念引爆，多股“一字板” 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
-
-财联社5月20日讯（记者 王晨）一份业绩惊人的科创板招股说明书，同时揭开了一场潜伏数年的资本盛宴。
-
-长鑫科技最新的招股说明书中，四家券商的身影浮出水面，招商证券、华安证券、中信建投以及中金公司，通过旗下子公司或参股基金，早已在数年前便悄然布局。
-
-根据最新估值测算，若长鑫科技在今年内完成IPO，这四家券商合计持有的股权账面价值（扣除流动性折扣后）将高达327亿元，这一数字相当于多家中小券商全年的净利润。
-
-其中，招商证券天使轮即入局，合计持股约5.05亿股，浮盈或逼近200亿元，有望直接将其2026年净利润推升至行业前三；而华安证券则穿透后间接持股约2.64亿股，对应账面价值超百亿元，是公司2025年净利润的近五倍，2026年净利润排名或将从二十名开外一跃冲进前十。
-
-据记者了解，招商证券前几年加大在生物医药和芯片产业链的布局投资，长鑫科技就是大举收获的一个项目。
-
-这场一级市场股权投资驱动的券商业绩“核爆”，或将重新书写券商行业的利润座次表。
+(总台记者 赵兵 江浩宇)
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ivevt.md)
-- 2026-06-30 02:48 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
-- 2026-06-30 02:58 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunhui.md)
-- 2026-06-30 02:41 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 02:42 - [田曦薇没招了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxste.md)
-- 2026-06-30 02:56 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaige.md)
-- 2026-06-30 02:40 - [巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bwkfo.md)
-- 2026-06-30 02:44 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 02:55 - [多功能求生吊坠 第四轮迭代汇报](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
-- 2026-06-30 03:02 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sangzi.md)
-- 2026-06-30 02:55 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iaajh.md)
-- 2026-06-30 02:50 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
-- 2026-06-30 02:56 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/doulong.md)
-- 2026-06-30 02:51 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gvige.md)
-- 2026-06-30 02:51 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/neohz.md)
+- 2026-06-30 02:58 - [多人在马路中间打羽毛球 交警回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mbcoo.md)
+- 2026-06-30 03:10 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psfmu.md)
+- 2026-06-30 03:10 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dunjia.md)
+- 2026-06-30 02:49 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
+- 2026-06-30 02:45 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 02:59 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaopai.md)
+- 2026-06-30 03:03 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaobang.md)
+- 2026-06-30 02:46 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bbtqm.md)
+- 2026-06-30 03:11 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiaoming.md)
+- 2026-06-30 02:55 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 03:08 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [急先锋](http://www.blog.kurohicncr.top/Article/details/847395471094.shtml)
-- 2026-06-30 02:38 - [汪苏泷年度歌手](http://www.blog.minike.top/Article/details/16340642.shtml)
-- 2026-06-30 02:58 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/558973.shtml)
-- 2026-06-30 02:50 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/411859.shtml)
-- 2026-06-30 03:03 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/995207.shtml)
-- 2026-06-30 02:57 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/20969775.shtml)
-- 2026-06-30 03:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/852101420217.shtml)
-- 2026-06-30 03:03 - [未来五年，教育强国这样建设](http://www.blog.kurohicncr.top/Article/details/19698.shtml)
-- 2026-06-30 02:51 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/2102163.shtml)
-- 2026-06-30 02:38 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/558576.shtml)
-- 2026-06-30 02:55 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.kurohicncr.top/Article/details/64947.shtml)
-- 2026-06-30 03:02 - [王楚钦孙颖莎混双对手产生](https://www.blog.minike.top/Article/details/08217.shtml)
-- 2026-06-30 02:54 - [中方追加1亿元物资援助委内瑞拉](http://www.share.kurohicncr.top/Article/details/38126689071.shtml)
-- 2026-06-30 02:50 - [恋与深空需正视价值观偏差](https://www.blog.kurohicncr.top/Article/details/693683040.shtml)
-- 2026-06-30 03:01 - [乔家的儿女](http://www.share.minike.top/Article/details/749761230770.shtml)
+- 2026-06-30 02:43 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/47951.shtml)
+- 2026-06-30 03:06 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/5385325473.shtml)
+- 2026-06-30 02:48 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/084742274738.shtml)
+- 2026-06-30 02:52 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/037368.shtml)
+- 2026-06-30 03:02 - [沉睡花园](http://www.share.minike.top/Article/details/146853108065.shtml)
+- 2026-06-30 03:00 - [流金岁月](https://www.blog.minike.top/Article/details/4669533046.shtml)
+- 2026-06-30 03:06 - [两老人多次到洗车店泼粪 警方已介入](http://www.blog.minike.top/Article/details/00084.shtml)
+- 2026-06-30 02:42 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/733723982.shtml)
+- 2026-06-30 03:04 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/6907496811.shtml)
+- 2026-06-30 03:11 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/06673360089.shtml)
+- 2026-06-30 02:56 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.kurohicncr.top/Article/details/722690658.shtml)
+- 2026-06-30 02:53 - [曝詹姆斯即将与勇士会面](http://www.blog.kurohicncr.top/Article/details/747173.shtml)
+- 2026-06-30 02:45 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/9191979.shtml)
+- 2026-06-30 02:46 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/541265242321.shtml)
+- 2026-06-30 03:06 - [扬名立万](http://www.blog.minike.top/Article/details/32064554.shtml)

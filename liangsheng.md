@@ -1,56 +1,51 @@
-# 工信部修订印发《钢铁行业产能置换实施办法》
+# 国台办：奉劝民进党当局多倾听岛内民意 多做促进两岸交流合作的事
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网5月19日电 据“工信微报”微信公众号消息，为贯彻落实《国务院关于钢铁行业化解过剩产能实现脱困发展的意见》有关要求，促进钢铁行业减量提质，工业和信息化部近日印发修订后的《钢铁行业产能置换实施办法》，自印发之日起施行，适用于中华人民共和国境内各类所有制企业新建、改建(含大修)、扩建的炼铁、炼钢冶炼设备项目。《置换办法》进一步加严了产能置换要求，更加突出差异化政策引导，强化了
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。有记者问，对于大陆发布十项促进两岸交流合作政策措施，民进党当局却抹黑污蔑，请问对此有何评论？ 发言人陈斌华表示，每当大陆出台惠及台湾同胞的举措，民进党当局都通通抹黑；凡是有利于增进台湾同胞利益福祉的事，他们就极力反对。这种做法被台湾媒体讥讽为“膝跳式反应”条件反射，遭到岛内社会各界普遍批评和反对。奉劝民进党当局多倾听
 
 ## 正文
 
-中新网5月19日电 据“工信微报”微信公众号消息，为贯彻落实《国务院关于钢铁行业化解过剩产能实现脱困发展的意见》有关要求，促进钢铁行业减量提质，工业和信息化部近日印发修订后的《钢铁行业产能置换实施办法》，自印发之日起施行，适用于中华人民共和国境内各类所有制企业新建、改建(含大修)、扩建的炼铁、炼钢冶炼设备项目。
+中新网4月15日电 4月15日，国务院台办举行例行新闻发布会。
 
-《置换办法》进一步加严了产能置换要求，更加突出差异化政策引导，强化了监督管理要求，从七个方面进行了修订： 一是提高置换比例。
+有记者问，对于大陆发布十项促进两岸交流合作政策措施，民进党当局却抹黑污蔑，请问对此有何评论？
 
-全国炼铁、炼钢产能置换比例均不低于1.5:1，兼并重组置换比例提高至不低于1.25:1。
+发言人陈斌华表示，每当大陆出台惠及台湾同胞的举措，民进党当局都通通抹黑；凡是有利于增进台湾同胞利益福祉的事，他们就极力反对。
 
-二是逐步取消不同企业间产能置换。
+这种做法被台湾媒体讥讽为“膝跳式反应”条件反射，遭到岛内社会各界普遍批评和反对。
 
-对不同企业间实施产能置换设置2年过渡期；过渡期后，仅可通过实质性兼并重组实现产能转移。
-
-三是设置有效期。
-
-明确方案有效期为24个月。
-
-四是规范不锈钢企业设备建设。
+奉劝民进党当局多倾听岛内民意，多做促进两岸交流合作的事，而不是与民众为敌，挡民众获利。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkqix.md)
-- 2026-06-30 03:03 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/albgx.md)
-- 2026-06-30 02:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
-- 2026-06-30 02:55 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiebu.md)
-- 2026-06-30 02:50 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 02:38 - [恋与深空需正视价值观偏差](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 02:48 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tohgc.md)
-- 2026-06-30 02:40 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 02:41 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tizhuo.md)
-- 2026-06-30 02:51 - [中国小将严子怡再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
+- 2026-06-30 02:57 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 03:03 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duicheng.md)
+- 2026-06-30 02:59 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xikua.md)
+- 2026-06-30 03:06 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dakhr.md)
+- 2026-06-30 02:44 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppalk.md)
+- 2026-06-30 02:59 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 03:11 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 03:11 - [小孩曾卓君夺冠之路](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fpwlu.md)
+- 2026-06-30 02:57 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/inmpq.md)
+- 2026-06-30 02:45 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rutgy.md)
+- 2026-06-30 02:51 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenbu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [中国网友锐评韩国队外网爆火](http://www.blog.kurohicncr.top/Article/details/90522.shtml)
-- 2026-06-30 02:46 - [月亮](https://www.blog.kurohicncr.top/Article/details/2497357357.shtml)
-- 2026-06-30 02:40 - [孙兴慜发长文致歉](http://www.blog.kurohicncr.top/Article/details/441633634305.shtml)
-- 2026-06-30 02:41 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/0214700.shtml)
-- 2026-06-30 02:47 - [挪威国家队紧急从本土订购大批海鲜](https://www.share.kurohicncr.top/Article/details/2052546.shtml)
-- 2026-06-30 02:51 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/35751490899.shtml)
-- 2026-06-30 02:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/90356220.shtml)
-- 2026-06-30 02:55 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/452316717.shtml)
-- 2026-06-30 02:57 - [杨紫获白玉兰视后争议不止](http://www.blog.minike.top/Article/details/30040076989.shtml)
-- 2026-06-30 02:56 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.share.kurohicncr.top/Article/details/34993.shtml)
-- 2026-06-30 02:51 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/605655267007.shtml)
-- 2026-06-30 02:50 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/2044889735.shtml)
-- 2026-06-30 03:02 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/7264342330.shtml)
-- 2026-06-30 03:00 - [世界杯](https://www.share.minike.top/Article/details/342768404.shtml)
-- 2026-06-30 02:46 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/2208660.shtml)
+- 2026-06-30 02:42 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/888692294252.shtml)
+- 2026-06-30 02:49 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/731548640.shtml)
+- 2026-06-30 02:57 - [乔家的儿女](https://www.share.minike.top/Article/details/6336872726.shtml)
+- 2026-06-30 02:45 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/98161.shtml)
+- 2026-06-30 03:00 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/297640.shtml)
+- 2026-06-30 03:01 - [王楚钦谈表演球](https://www.blog.kurohicncr.top/Article/details/375308199.shtml)
+- 2026-06-30 03:01 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/59930722790.shtml)
+- 2026-06-30 02:53 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/080308028304.shtml)
+- 2026-06-30 03:11 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/59765428906.shtml)
+- 2026-06-30 02:43 - [手底下人带不动怎么办？](http://www.blog.minike.top/Article/details/81018468.shtml)
+- 2026-06-30 02:46 - [巴西vs日本](https://www.blog.minike.top/Article/details/6210469.shtml)
+- 2026-06-30 02:53 - [我想说 其实你很好！](http://www.blog.kurohicncr.top/Article/details/78227126.shtml)
+- 2026-06-30 03:03 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.minike.top/Article/details/29434844020.shtml)
+- 2026-06-30 02:59 - [官方：建立健全学龄人口预测预警机制](https://www.blog.minike.top/Article/details/3592349147.shtml)
+- 2026-06-30 02:42 - [小娘惹](http://www.blog.minike.top/Article/details/0382258930.shtml)

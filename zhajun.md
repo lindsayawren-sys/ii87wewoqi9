@@ -1,54 +1,59 @@
-# 洋媳妇开拖拉机、刨地、种玉米圈粉500万
+# 邮储银行，一家“不慌”的银行
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月19日 16:32 来源：中国新闻网 意大利姑娘美纳斯和中国丈夫卡农一起回到广西生活后，做过模特的她学会了开拖拉机、刨地、种玉米……夫妻俩把这些生活记录发到网上，在多个平台收获了500万粉丝。一个外国人，为什么选择扎根中国农村？19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，美纳斯表示：这里有我爱的人，有真实的生活，更有包容多元的文化
+息差收窄让多数银行焦虑不已，邮储银行却以一种特有的从容，交出了一份稳中有进的答卷。2025年年报显示，截至2025年末，该行资产总额达18.68万亿元，较上年末增长9.35%。2025年实现营业收入3557.28亿元，同比增长1.99%；净利润876.23亿元，同比增长1.05%；净息差1.66%，继续保持国有大行最优水平；不良贷款率0.95%，主要风险指标保持国有大行领先。数
 
 ## 正文
 
-发布时间：2026年05月19日 16:32 来源：中国新闻网 意大利姑娘美纳斯和中国丈夫卡农一起回到广西生活后，做过模特的她学会了开拖拉机、刨地、种玉米……夫妻俩把这些生活记录发到网上，在多个平台收获了500万粉丝。
+息差收窄让多数银行焦虑不已，邮储银行却以一种特有的从容，交出了一份稳中有进的答卷。
 
-一个外国人，为什么选择扎根中国农村？
+2025年年报显示，截至2025年末，该行资产总额达18.68万亿元，较上年末增长9.35%。
 
-19日，在2026年中国网络文明大会网络文明国际交流互鉴分论坛上，美纳斯表示：这里有我爱的人，有真实的生活，更有包容多元的文化。
+2025年实现营业收入3557.28亿元，同比增长1.99%；净利润876.23亿元，同比增长1.05%；净息差1.66%，继续保持国有大行最优水平；不良贷款率0.95%，主要风险指标保持国有大行领先。
 
-我喜欢南宁这座温暖包容的城市，胸怀山海气度，兼具市井温情，接纳远道而来的初心，也珍藏平凡生活的美好。
+数字背后，是一种难得的“不慌”定力。
 
-责任编辑：【王祎】
+这份定力，首先来自坚实的底盘，近4万个网点、6.8亿客群、超18万亿资产，以及穿越周期的风控能力；也来自多方驱动的曲线向上，零售守正、公司业务补短、同业争先，从“单腿走路”迈向均衡增长；更来自创新驱动的未来价值重构，从产品到生态、从规模到价值，邮储银行正在悄然改变人们对它的传统印象。
+
+这份“不慌”，源于百年邮政积淀与十年上市历练形成的战略定力。
+
+它来自独一无二的资源禀赋、清晰的转型路径，以及对长期主义的坚定信仰。
+
+规模、客群与风控打造的坚实底盘邮储银行的“稳”，首先源于其深厚的家底。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nibu.md)
-- 2026-06-30 02:42 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gtysl.md)
-- 2026-06-30 02:40 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
-- 2026-06-30 02:38 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbzws.md)
-- 2026-06-30 02:45 - [法媒点赞分享中国小区降温方案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
-- 2026-06-30 02:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pingqin.md)
-- 2026-06-30 02:43 - [小孩曾卓君夺冠之路](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 02:50 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ejiga.md)
-- 2026-06-30 03:00 - [领克汽车官宣正式进军拉力赛](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niechang.md)
-- 2026-06-30 02:37 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/henxuan.md)
-- 2026-06-30 02:51 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zumian.md)
-- 2026-06-30 02:58 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sqrie.md)
-- 2026-06-30 02:56 - [张凌赫 客串](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
-- 2026-06-30 02:41 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biukt.md)
+- 2026-06-30 02:53 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 02:48 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 02:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rongao.md)
+- 2026-06-30 03:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanbu.md)
+- 2026-06-30 02:55 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 03:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 02:45 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shoushua.md)
+- 2026-06-30 02:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
+- 2026-06-30 02:53 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 03:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningmai.md)
+- 2026-06-30 02:52 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
+- 2026-06-30 02:59 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbiaf.md)
+- 2026-06-30 03:07 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/73713717.shtml)
-- 2026-06-30 02:51 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/73325062.shtml)
-- 2026-06-30 02:37 - [爱直接对嘴喝饮料的人天塌了](https://www.share.kurohicncr.top/Article/details/081316915408.shtml)
-- 2026-06-30 02:40 - [徐良演唱会伴舞把鞋子跳掉了](https://www.blog.minike.top/Article/details/489532123273.shtml)
-- 2026-06-30 02:39 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/421995537.shtml)
-- 2026-06-30 03:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/27559799382.shtml)
-- 2026-06-30 02:56 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/32398711368.shtml)
-- 2026-06-30 02:58 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/51745.shtml)
-- 2026-06-30 02:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/259699450.shtml)
-- 2026-06-30 02:36 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/273869938.shtml)
-- 2026-06-30 02:57 - [中国代表在联合国点名日本所犯罪行](https://www.share.minike.top/Article/details/15967261.shtml)
-- 2026-06-30 02:42 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/874638823359.shtml)
-- 2026-06-30 02:55 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://www.blog.kurohicncr.top/Article/details/67092844689.shtml)
-- 2026-06-30 02:51 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.kurohicncr.top/Article/details/855328855819.shtml)
-- 2026-06-30 02:38 - [大范围高温会带来哪些经济影响](http://www.blog.kurohicncr.top/Article/details/4117039.shtml)
+- 2026-06-30 02:57 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/378119877.shtml)
+- 2026-06-30 02:48 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.kurohicncr.top/Article/details/185275594.shtml)
+- 2026-06-30 02:44 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.kurohicncr.top/Article/details/6978520198.shtml)
+- 2026-06-30 02:50 - [我们的少年时代2](https://www.share.minike.top/Article/details/120954386.shtml)
+- 2026-06-30 03:00 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.kurohicncr.top/Article/details/27456021735.shtml)
+- 2026-06-30 02:50 - [我用3千多根木棍做了张分压点阵床](http://www.blog.kurohicncr.top/Article/details/46510153.shtml)
+- 2026-06-30 02:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.minike.top/Article/details/48895282.shtml)
+- 2026-06-30 03:10 - [花6万多相亲对象竟是50元请来的](https://www.blog.minike.top/Article/details/86093.shtml)
+- 2026-06-30 03:00 - [中国18岁小将再现一投夺冠](https://www.blog.minike.top/Article/details/86972470651.shtml)
+- 2026-06-30 03:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/73102.shtml)
+- 2026-06-30 02:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/687072487.shtml)
+- 2026-06-30 02:59 - [猛龙快船交易或将达成](https://www.share.kurohicncr.top/Article/details/33589397485.shtml)
+- 2026-06-30 02:46 - [金刚川](https://www.blog.kurohicncr.top/Article/details/198390243606.shtml)
+- 2026-06-30 03:11 - [穆祉丞年度人气艺人](https://www.share.kurohicncr.top/Article/details/753289639473.shtml)
+- 2026-06-30 02:57 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/1021663.shtml)

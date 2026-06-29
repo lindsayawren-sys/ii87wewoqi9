@@ -1,57 +1,58 @@
-# YieldMax S&P 500 0DTE备兑看涨ETF宣布每周派息0.2095美元
+# 美封锁伊朗海上交通 专家：风险高、难度大
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-YieldMax S&P 500 0DTE备兑看涨ETF于5月19日宣布，将向股东派发每股0.2095美元的每周股息。该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。 独特的0DTE策略 SDTY是一只主动管理型ETF，旨在通过卖出标普500指数价外虚值、当日到期的看涨期权来捕捉期权溢价，以每周为单位分配收益。“0DTE”代表“零天到期”，意味着该基金管理的
+针对美国对所有进出伊朗港口船只实施封锁，美国方面13日援引军事专家的分析观点称，美方相关举措执行风险高，操作落实方面存在非常大的难度。 首先，美国方面援引多名分析人士的话称，美军并不存在海上优势，伊朗仍具备海上反击能力，可能使用水雷、武装导弹快艇、水面无人艇、无人机、陆基巡航导弹等武器对执行封锁的美军发起反击。有军事专家指出，鉴于伊朗有这些反击选项，封锁行动“风险很高”。 美军
 
 ## 正文
 
-YieldMax S&P 500 0DTE备兑看涨ETF于5月19日宣布，将向股东派发每股0.2095美元的每周股息。
+针对美国对所有进出伊朗港口船只实施封锁，美国方面13日援引军事专家的分析观点称，美方相关举措执行风险高，操作落实方面存在非常大的难度。
 
-该股息将于5月21日发放，股权登记日为5月20日，同日为除息交易日。
+首先，美国方面援引多名分析人士的话称，美军并不存在海上优势，伊朗仍具备海上反击能力，可能使用水雷、武装导弹快艇、水面无人艇、无人机、陆基巡航导弹等武器对执行封锁的美军发起反击。
 
-独特的0DTE策略 SDTY是一只主动管理型ETF，旨在通过卖出标普500指数价外虚值、当日到期的看涨期权来捕捉期权溢价，以每周为单位分配收益。
+有军事专家指出，鉴于伊朗有这些反击选项，封锁行动“风险很高”。
 
-“0DTE”代表“零天到期”，意味着该基金管理的期权合约在交易当日即到期，这种高频策略旨在从日内波动中反复获取权利金收入。
+美军封锁行动操作层面难度大 分析还援引美国退役海军上将詹姆斯·斯塔夫里迪斯的观点称，如果要从两侧封锁霍尔木兹海峡，五角大楼可能需要两个航母打击群和大约十几艘在波斯湾外的水面舰艇展开巡逻。
 
-该策略在提供标普500指数价格回报的同时，也限制了指数的上行参与空间。
+同时，在波斯湾内，也至少需要六艘美国驱逐舰，以及阿联酋、沙特等盟国海军协助。
 
-高派息率吸引收入型投资者 此次每周派息0.2095美元，按年化计算的派息率约为25.72%。
+美国前海军上校卡尔・舒斯特分析称，六艘美国驱逐舰中，两艘将用于执行登船检查，另外四艘在附近待命，以应对伊朗阻止这些行动。
 
-该基金自2025年2月5日成立以来，截至2026年4月30日，市场价格累计回报约14.55%，资产规模约为2241万美元。
+舒斯特说，这两艘驱逐舰每艘每天可扣留约六艘船只。
 
-值得一提的是，此次派息构成中100%来自资本返还，体现了备兑看涨期权策略的典型收益特征。
+而在美国和以色列对伊朗发动军事行动之前，每天约有130艘船只通过霍尔木兹海峡。
 
 ## 相关推荐
 
-- 2026-06-30 03:05 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 02:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qbfga.md)
-- 2026-06-30 02:49 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
-- 2026-06-30 02:40 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qxzox.md)
-- 2026-06-30 03:00 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuiqiong.md)
-- 2026-06-30 02:45 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
-- 2026-06-30 02:59 - [女子用家人生日买彩票中1032万](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
-- 2026-06-30 03:02 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 02:39 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tushu.md)
-- 2026-06-30 02:44 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
-- 2026-06-30 02:36 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rushang.md)
+- 2026-06-30 02:58 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ujkpp.md)
+- 2026-06-30 02:58 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/linqi.md)
+- 2026-06-30 03:01 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
+- 2026-06-30 03:12 - [日本半场1比0领先巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 02:54 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 02:55 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhke.md)
+- 2026-06-30 02:50 - [我想说 其实你很好！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixvrw.md)
+- 2026-06-30 02:47 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jssoa.md)
+- 2026-06-30 03:10 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chvnj.md)
+- 2026-06-30 02:44 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ooemt.md)
+- 2026-06-30 02:55 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
+- 2026-06-30 02:57 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:04 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.kurohicncr.top/Article/details/74403.shtml)
-- 2026-06-30 02:51 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/28614.shtml)
-- 2026-06-30 03:01 - [田曦薇没招了](http://www.share.minike.top/Article/details/411619547.shtml)
-- 2026-06-30 02:46 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.kurohicncr.top/Article/details/86557207.shtml)
-- 2026-06-30 02:57 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.minike.top/Article/details/61749576082.shtml)
-- 2026-06-30 02:42 - [大范围高温会带来哪些经济影响](http://www.share.minike.top/Article/details/47159600108.shtml)
-- 2026-06-30 02:38 - [长沙菜农公交的人间烟火气](https://www.blog.minike.top/Article/details/599629891447.shtml)
-- 2026-06-30 02:49 - [赛博朋克边缘行者2预告片](https://www.share.kurohicncr.top/Article/details/01003368753.shtml)
-- 2026-06-30 02:37 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/450027.shtml)
-- 2026-06-30 02:48 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/52076.shtml)
-- 2026-06-30 02:44 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/12517879.shtml)
-- 2026-06-30 03:04 - [有酒店推行24小时退房制](http://www.blog.kurohicncr.top/Article/details/874567339629.shtml)
-- 2026-06-30 02:48 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.minike.top/Article/details/9968100.shtml)
-- 2026-06-30 02:47 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.blog.minike.top/Article/details/6010919.shtml)
-- 2026-06-30 02:40 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/19708288.shtml)
+- 2026-06-30 03:03 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/61722.shtml)
+- 2026-06-30 03:06 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/543262500328.shtml)
+- 2026-06-30 02:44 - [刘宇宁东方风云榜人气](http://www.blog.minike.top/Article/details/636956138455.shtml)
+- 2026-06-30 02:50 - [【全网首杀】涤墨作战7人870分](https://www.blog.kurohicncr.top/Article/details/337293156.shtml)
+- 2026-06-30 02:45 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/7263100.shtml)
+- 2026-06-30 03:12 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/84652406729.shtml)
+- 2026-06-30 03:11 - [81岁老人被男子买光菜回家车祸去世](http://www.share.minike.top/Article/details/6499894.shtml)
+- 2026-06-30 03:09 - [运20服役十周年宣传片有哪些亮点](http://www.blog.minike.top/Article/details/956135710.shtml)
+- 2026-06-30 02:52 - [一切民族英雄都是中华民族的脊梁](http://www.share.minike.top/Article/details/384647859.shtml)
+- 2026-06-30 03:07 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/399658879280.shtml)
+- 2026-06-30 02:44 - [张月感谢了每一公的队友](https://www.blog.minike.top/Article/details/4916571093.shtml)
+- 2026-06-30 02:57 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/809707598.shtml)
+- 2026-06-30 02:46 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/721956.shtml)
+- 2026-06-30 02:45 - [青春环游记第三季](https://www.blog.minike.top/Article/details/018360096.shtml)
+- 2026-06-30 02:42 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/315355.shtml)

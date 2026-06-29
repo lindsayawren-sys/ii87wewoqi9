@@ -1,57 +1,46 @@
-# 花旗：预计受霍尔木兹海峡风险影响，油价将反弹至每桶120美元
+# 04月15日丙二醇11466.67元/吨 10天上涨8.86%
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-花旗周二表示，预计布兰特原油价格短期内将升至每桶120美元，并指出油市低估了长期供应中断以及更广泛尾部风险。 该行表示，其看涨情景是布兰特原油价格将达到每桶150美元，前提是霍尔木兹海峡将在第三季度逐步重新开放。 周二，副总统万斯表示美国与伊朗在谈判中取得进展，双方均不希望看到军事行动重启，受此消息影响，油价收低。 周二，7月布兰特原油期货收于每桶111.28美元。 该机构表示
+丙二醇04月15日最新价格11466.67元/吨，最近10天上涨8.86%，20天上涨23.74%，30天上涨57.80%，60天上涨92.72%。相关生产商有：石大胜华(603026)海科新源(301292)维远股份(600955)万华化学(600309)等。
 
 ## 正文
 
-花旗周二表示，预计布兰特原油价格短期内将升至每桶120美元，并指出油市低估了长期供应中断以及更广泛尾部风险。
+丙二醇04月15日最新价格11466.67元/吨，最近10天上涨8.86%，20天上涨23.74%，30天上涨57.80%，60天上涨92.72%。
 
-该行表示，其看涨情景是布兰特原油价格将达到每桶150美元，前提是霍尔木兹海峡将在第三季度逐步重新开放。
-
-周二，副总统万斯表示美国与伊朗在谈判中取得进展，双方均不希望看到军事行动重启，受此消息影响，油价收低。
-
-周二，7月布兰特原油期货收于每桶111.28美元。
-
-该机构表示，2027年的油价前景极难预测，但其基本预测是布兰特原油价格将在每桶80美元至90美元之间波动，前提是伊朗维持对霍尔木兹海峡油流的控制，并使石油出口与需求增长预期保持平衡。
-
-花旗预测2026年石油需求增长将萎缩60万桶/日。
-
-该行表示，表观需求疲软可能高估了实际消费的下降幅度，因为库存减少和炼油厂减产掩盖了终端需求破坏相对有限的事实。
-
-该行预计，今年全球原油库存将减少约10亿桶。
+相关生产商有：石大胜华(603026)海科新源(301292)维远股份(600955)万华化学(600309)等。
 
 ## 相关推荐
 
-- 2026-06-30 02:56 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mydyc.md)
-- 2026-06-30 02:58 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 03:01 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:49 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biaokan.md)
-- 2026-06-30 02:41 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lhcun.md)
-- 2026-06-30 02:50 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 02:38 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 02:39 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mvllh.md)
-- 2026-06-30 02:58 - [荷兰VS摩洛哥你看好谁](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
-- 2026-06-30 02:43 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 02:43 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
+- 2026-06-30 02:49 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luhong.md)
+- 2026-06-30 02:48 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aipian.md)
+- 2026-06-30 03:08 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 03:07 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
+- 2026-06-30 02:52 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/scixj.md)
+- 2026-06-30 02:50 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 03:07 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 02:46 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 02:56 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
+- 2026-06-30 02:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 03:01 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huumx.md)
+- 2026-06-30 03:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfftd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/978533851692.shtml)
-- 2026-06-30 02:53 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/146078324947.shtml)
-- 2026-06-30 03:03 - [巴西醒醒 这是淘汰赛](https://www.blog.kurohicncr.top/Article/details/38423213236.shtml)
-- 2026-06-30 02:48 - [欧盟分楼层开空调惹争议](https://www.blog.kurohicncr.top/Article/details/44618.shtml)
-- 2026-06-30 02:59 - [极限挑战第一季](https://www.blog.kurohicncr.top/Article/details/1980799103.shtml)
-- 2026-06-30 03:02 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/391873.shtml)
-- 2026-06-30 02:50 - [2021江苏卫视跨年演唱会](http://www.share.kurohicncr.top/Article/details/06934.shtml)
-- 2026-06-30 02:37 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/95239863533.shtml)
-- 2026-06-30 02:37 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/21696580322.shtml)
-- 2026-06-30 03:04 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/028955922.shtml)
-- 2026-06-30 02:45 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.minike.top/Article/details/577715846837.shtml)
-- 2026-06-30 02:44 - [19岁男孩快220斤被查出营养不良](http://www.share.minike.top/Article/details/29704347024.shtml)
-- 2026-06-30 02:59 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/818189.shtml)
-- 2026-06-30 02:49 - [中国猪圈装空调让欧洲网友破防](http://www.share.kurohicncr.top/Article/details/785009.shtml)
-- 2026-06-30 02:53 - [中方绝不允许日菲侵害中方海洋权益](https://www.share.minike.top/Article/details/2011327592.shtml)
+- 2026-06-30 02:43 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/357100469734.shtml)
+- 2026-06-30 02:59 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.share.minike.top/Article/details/8844267.shtml)
+- 2026-06-30 03:09 - [《男人至死是傻得儿》](https://www.share.minike.top/Article/details/88991875.shtml)
+- 2026-06-30 03:05 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/13525497.shtml)
+- 2026-06-30 03:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.minike.top/Article/details/533126477914.shtml)
+- 2026-06-30 02:44 - [日本领先巴西](https://www.share.minike.top/Article/details/49492145627.shtml)
+- 2026-06-30 03:09 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/41853541914.shtml)
+- 2026-06-30 02:55 - [父母催婚话术是如何做到全国统一的](http://www.share.minike.top/Article/details/06431827.shtml)
+- 2026-06-30 02:53 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/67987.shtml)
+- 2026-06-30 02:42 - [DeepSeek V4正式版要来了](https://www.share.kurohicncr.top/Article/details/396793784.shtml)
+- 2026-06-30 03:04 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/99668932.shtml)
+- 2026-06-30 03:02 - [张帅时隔四年再取温网正赛胜利](http://www.blog.minike.top/Article/details/327481.shtml)
+- 2026-06-30 02:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.share.kurohicncr.top/Article/details/63346267.shtml)
+- 2026-06-30 02:47 - [科学备孕男女都要上心](https://www.share.kurohicncr.top/Article/details/8132594555.shtml)
+- 2026-06-30 02:52 - [陈小云又好好的养了自己一年](http://www.share.minike.top/Article/details/2934402.shtml)

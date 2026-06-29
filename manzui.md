@@ -1,55 +1,61 @@
-# 中国公安部：“猎狐行动”抓获境外逃犯880余名
+# 我国累计发布国家标准外文版2613项 覆盖20余个重点领域
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月20日电 (刘梦青 郭超凯)中国公安部经济犯罪侦查局局长华列兵20日在新闻发布会上介绍，公安机关组织开展缉捕在逃境外经济犯罪嫌疑人“猎狐行动”，2025年至2026年4月底，抓获境外逃犯880余名，包括红通逃犯38名。据介绍，2025年以来，全国公安机关依法严厉打击各类突出经济犯罪活动。2025年至2026年4月底，全国公安机关共破获各类经济犯罪案件12.8万起，
+中新网4月14日电 据“市说新语”微信公众号消息，市场监管总局标准创新司司长魏宏4月14日表示，截至2026年3月底，我国已累计发布国家标准外文版2613项，覆盖装备制造、对外承包工程、大宗商品、信息技术、新能源等20余个重点领域，涉及英语、俄语、法语、德语、日语、老挝语、柬埔寨语、蒙古语、缅甸语、葡萄牙语、越南语共11个语种。4月14日，市场监管总局联合住房和城乡建设部、交通
 
 ## 正文
 
-中新社北京5月20日电 (刘梦青 郭超凯)中国公安部经济犯罪侦查局局长华列兵20日在新闻发布会上介绍，公安机关组织开展缉捕在逃境外经济犯罪嫌疑人“猎狐行动”，2025年至2026年4月底，抓获境外逃犯880余名，包括红通逃犯38名。
+中新网4月14日电 据“市说新语”微信公众号消息，市场监管总局标准创新司司长魏宏4月14日表示，截至2026年3月底，我国已累计发布国家标准外文版2613项，覆盖装备制造、对外承包工程、大宗商品、信息技术、新能源等20余个重点领域，涉及英语、俄语、法语、德语、日语、老挝语、柬埔寨语、蒙古语、缅甸语、葡萄牙语、越南语共11个语种。
 
-据介绍，2025年以来，全国公安机关依法严厉打击各类突出经济犯罪活动。
+4月14日，市场监管总局联合住房和城乡建设部、交通运输部、商务部召开国家标准外文版免费公开专题新闻发布会。
 
-2025年至2026年4月底，全国公安机关共破获各类经济犯罪案件12.8万起，挽回经济损失375亿元人民币。
+魏宏介绍，近年来，中国国家标准外文版工作紧密围绕国家战略部署和市场需求，聚焦产业转型升级、绿色化发展和智能化应用等方向持续发力，成体系推进重点领域标准外文版编译。
 
-华列兵介绍，公安机关联合相关行政监管部门先后开展金融领域“黑灰产”违法犯罪集群打击以及打击非法集资专项行动、涉税犯罪“联合利剑”专项行动、招标投标领域突出问题系统整治、民营企业内部突出腐败犯罪专项整治等工作，持续打击证券期货领域的违法犯罪活动，有力维护了市场经济秩序。
+在产业转型升级方面，围绕重型工程机械、高速列车、大型冶炼设备、高端数控机床、高端新材料等领域编译发布了一批关键国家标准外文版，为高端装备参与国际竞争提供了有力的技术支撑。
 
-此外，公安机关组织开展打击利用离岸公司和地下钱庄向境外转移赃款“歼击”专项工作，共破案1600余起，对100余个跨区域地下钱庄犯罪网络开展集群打击；组织开展缉捕在逃境外经济犯罪嫌疑人“猎狐行动”，抓获境外逃犯880余名，其中红通逃犯38名。
+例如，《土方机械 高原隧道用纯电动液压挖掘机》规范了高原工程机械的设计和制造要求，保障高原隧道工程中的施工安全，同时有效减少对高原生态的环境污染，外文版可为国际特殊生态敏感区的施工提供可复用的安全、低噪、低碳工程机械应用方案。
 
-(完)
+在绿色化发展方面，紧扣“双碳”战略目标和全球绿色发展需求，重点围绕光伏、风电、水电、核电、新型储能等领域编译发布国家标准外文版，为国际绿色合作提供可识别、可采信的技术依据。
+
+例如，《风能发电系统 风力发电机组通用技术条件和试验方法》在增加风电场发电量、提高风电机组的可靠性、提升风电场运维水平、降低机组故障率等方面带来显著成效，外文版可将中国风电的规模化发展经验转化为国际共享的技术财富。
+
+在智能化应用方面，顺应数字经济发展趋势，立足新一代信息技术、量子科技、人工智能、智能网联新能源汽车等新兴领域，加快国家标准外文版布局，以标准“软联通”赋能产业数字化、智能化发展。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 02:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/youwan.md)
-- 2026-06-30 02:42 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
-- 2026-06-30 02:59 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 02:51 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
-- 2026-06-30 02:48 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 02:47 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 02:36 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/irynu.md)
-- 2026-06-30 03:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
-- 2026-06-30 02:39 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clqap.md)
-- 2026-06-30 02:43 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanyuan.md)
-- 2026-06-30 02:46 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 02:50 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
+- 2026-06-30 02:56 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
+- 2026-06-30 03:04 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 02:56 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuanzao.md)
+- 2026-06-30 03:02 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 03:05 - [巴西扳平比分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
+- 2026-06-30 03:11 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 02:45 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/siduo.md)
+- 2026-06-30 03:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
+- 2026-06-30 02:46 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanchao.md)
+- 2026-06-30 03:01 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
+- 2026-06-30 02:54 - [格力遥控器里有黄金](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 02:45 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 02:47 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naikun.md)
+- 2026-06-30 02:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
+- 2026-06-30 02:44 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenduan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:48 - [长沙菜农公交的人间烟火气](https://www.share.kurohicncr.top/Article/details/4183762247.shtml)
-- 2026-06-30 02:44 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/7921856393.shtml)
-- 2026-06-30 02:53 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/2638105.shtml)
-- 2026-06-30 02:56 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/85843.shtml)
-- 2026-06-30 02:41 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://www.share.minike.top/Article/details/401106407.shtml)
-- 2026-06-30 02:59 - [勇敢的心第二部](https://www.blog.minike.top/Article/details/767856098.shtml)
-- 2026-06-30 02:43 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/871902.shtml)
-- 2026-06-30 02:46 - [曝詹姆斯即将与勇士会面](https://www.blog.kurohicncr.top/Article/details/41070018587.shtml)
-- 2026-06-30 02:49 - [DeepSeek启动成立来最大规模招聘](https://www.share.kurohicncr.top/Article/details/546446853.shtml)
-- 2026-06-30 02:56 - [领克07GT搭载超跑同源MRC悬架](https://www.share.minike.top/Article/details/30443.shtml)
-- 2026-06-30 02:57 - [如何评价杨紫白玉兰获奖](https://www.blog.kurohicncr.top/Article/details/42146872753.shtml)
-- 2026-06-30 02:47 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/44034933.shtml)
-- 2026-06-30 02:52 - [世界杯连开三场决战](http://www.blog.kurohicncr.top/Article/details/733005803.shtml)
-- 2026-06-30 03:00 - [张月感谢了每一公的队友](http://www.share.kurohicncr.top/Article/details/02727613.shtml)
-- 2026-06-30 02:37 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/243050819148.shtml)
+- 2026-06-30 02:58 - [赵今麦电影开端客串路透](https://www.share.kurohicncr.top/Article/details/4770441792.shtml)
+- 2026-06-30 03:09 - [大学生遇地震裹被子从5楼冲下](http://www.share.kurohicncr.top/Article/details/063130.shtml)
+- 2026-06-30 03:07 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.share.kurohicncr.top/Article/details/357751.shtml)
+- 2026-06-30 03:03 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/533185135.shtml)
+- 2026-06-30 02:54 - [俄乌双方伤亡近180万人](http://www.blog.minike.top/Article/details/4240979.shtml)
+- 2026-06-30 02:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/34242.shtml)
+- 2026-06-30 03:02 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/885697177549.shtml)
+- 2026-06-30 03:01 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/685612541.shtml)
+- 2026-06-30 02:42 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/8151235460.shtml)
+- 2026-06-30 03:06 - [俄军1周发射上千架无人机有何目的](http://www.blog.minike.top/Article/details/1617830.shtml)
+- 2026-06-30 03:01 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/599977819646.shtml)
+- 2026-06-30 03:00 - [上市央企地产商 两年换了三任董事长](http://www.share.minike.top/Article/details/185444254891.shtml)
+- 2026-06-30 02:57 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.minike.top/Article/details/98382270591.shtml)
+- 2026-06-30 02:58 - [健全中小学教师工资长效联动机制](http://www.share.kurohicncr.top/Article/details/33971.shtml)
+- 2026-06-30 03:08 - [点菜也要教吗](https://www.blog.minike.top/Article/details/228385347804.shtml)

@@ -1,47 +1,51 @@
-# 俄罗斯总统普京访华期间两国元首会晤成果文件清单
+# lululemon回应德州调查：目前中国所有在售产品均不含全氟和多氟烷基物质（PFAS）
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-新华社北京5月20日电 俄罗斯总统普京访华期间两国元首会晤成果文件清单 一、请两国元首签署并发表的文件 《中华人民共和国和俄罗斯联邦关于进一步加强全面战略协作、深化睦邻友好合作的联合声明》 二、双方共同发表的文件《中华人民共和国和俄罗斯联邦关于倡导世界多极化和新型国际关系的联合声明》 三、请两国元首见证签署的合作文件 (一)《中华人民共和国政府与俄罗斯联邦政府关于在城市发展领域
+新浪财经讯 2026年4月13日，美国得克萨斯州总检察长Ken Paxton在社交平台发文称，已对加拿大运动休闲品牌露露乐蒙（lululemon） 美国公司发布一份民事调查令（CID），作为一项调查的一部分，此次调查将核查露露乐蒙的运动服装是否含有全氟及多氟烷基物质（PFAS），以及在其产品的安全性、质量对健康影响方面是否误导了消费者。2026年4月14日，lululemon品
 
 ## 正文
 
-新华社北京5月20日电 俄罗斯总统普京访华期间两国元首会晤成果文件清单 一、请两国元首签署并发表的文件 《中华人民共和国和俄罗斯联邦关于进一步加强全面战略协作、深化睦邻友好合作的联合声明》 二、双方共同发表的文件《中华人民共和国和俄罗斯联邦关于倡导世界多极化和新型国际关系的联合声明》 三、请两国元首见证签署的合作文件 (一)《中华人民共和国政府与俄罗斯联邦政府关于在城市发展领域合作的谅解备忘录》 (二)《中华人民共和国政府和俄罗斯联邦政府关于共同建设满洲里－后贝加尔跨境铁路1435毫米轨距二线的协定》 (三)《中华人民共和国科学技术部与俄罗斯国家原子能集团公司关于可控核聚变领域科技合作的谅解备忘录》 (四)《中华人民共和国商务部与俄罗斯联邦经济发展部关于支持开放贸易和多边主义的联合声明》 (五)《中华人民共和国商务部和俄罗斯联邦工业和贸易部关于发展重
+新浪财经讯 2026年4月13日，美国得克萨斯州总检察长Ken Paxton在社交平台发文称，已对加拿大运动休闲品牌露露乐蒙（lululemon） 美国公司发布一份民事调查令（CID），作为一项调查的一部分，此次调查将核查露露乐蒙的运动服装是否含有全氟及多氟烷基物质（PFAS），以及在其产品的安全性、质量对健康影响方面是否误导了消费者。
+
+2026年4月14日，lululemon品牌对新浪财经回应称，“lululemon始终将客人的健康与安全置于首位。
+
+lululemon目前国内所有在售产品均不含全氟和多氟烷基物质（PFAS），且符合相关法律法规及国家和行业标准。
+
+”（康路）责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbvvz.md)
-- 2026-06-30 02:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evtvg.md)
-- 2026-06-30 02:46 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 02:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/vbkvk.md)
-- 2026-06-30 02:46 - [恋与深空需正视价值观偏差](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uucop.md)
-- 2026-06-30 03:05 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 02:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 03:05 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 02:56 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
-- 2026-06-30 02:56 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youdeng.md)
-- 2026-06-30 03:00 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bosfu.md)
-- 2026-06-30 02:46 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongyin.md)
-- 2026-06-30 02:48 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinguan.md)
-- 2026-06-30 02:41 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 02:45 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 02:52 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xintou.md)
+- 2026-06-30 02:43 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzlov.md)
+- 2026-06-30 03:08 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpoce.md)
+- 2026-06-30 02:56 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 03:08 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dbjrz.md)
+- 2026-06-30 02:51 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/enqam.md)
+- 2026-06-30 03:07 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiangqie.md)
+- 2026-06-30 02:58 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 02:59 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 02:55 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 02:53 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 02:59 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgyn.md)
+- 2026-06-30 02:42 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caoduo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [逃狱兄弟](https://www.share.minike.top/Article/details/7097378.shtml)
-- 2026-06-30 02:40 - [复古未来主义沙画「夜泳」](https://www.share.kurohicncr.top/Article/details/7109666.shtml)
-- 2026-06-30 02:51 - [恋与深空需正视价值观偏差](https://www.share.minike.top/Article/details/025326844.shtml)
-- 2026-06-30 02:50 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/07983.shtml)
-- 2026-06-30 02:59 - [国务院：探索延长义务教育年限](https://www.blog.kurohicncr.top/Article/details/708629688271.shtml)
-- 2026-06-30 02:52 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/87398350949.shtml)
-- 2026-06-30 02:37 - [巴西vs日本首发名单](http://www.blog.minike.top/Article/details/386115.shtml)
-- 2026-06-30 03:05 - [国内最大沙漠发洪水意味着什么](https://www.blog.minike.top/Article/details/6214381.shtml)
-- 2026-06-30 02:45 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/2269837542.shtml)
-- 2026-06-30 02:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.minike.top/Article/details/43394.shtml)
-- 2026-06-30 03:04 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/36638713.shtml)
-- 2026-06-30 02:50 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/7259880474.shtml)
-- 2026-06-30 02:58 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.kurohicncr.top/Article/details/49161.shtml)
-- 2026-06-30 02:39 - [武汉西安站在了3小时临界线门槛上](http://www.share.kurohicncr.top/Article/details/55564701947.shtml)
-- 2026-06-30 02:43 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.share.kurohicncr.top/Article/details/012974607464.shtml)
+- 2026-06-30 02:53 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/71934728721.shtml)
+- 2026-06-30 03:04 - [道友？你来真的啊？【凡人官方二创大会】](https://www.blog.minike.top/Article/details/437448.shtml)
+- 2026-06-30 03:02 - [斛珠夫人](https://www.blog.kurohicncr.top/Article/details/533215053581.shtml)
+- 2026-06-30 02:56 - [中方追加1亿元物资援助委内瑞拉](https://www.blog.minike.top/Article/details/4556152.shtml)
+- 2026-06-30 02:46 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/76906.shtml)
+- 2026-06-30 03:06 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/393427785.shtml)
+- 2026-06-30 03:10 - [斛珠夫人](http://www.blog.minike.top/Article/details/3992262.shtml)
+- 2026-06-30 03:01 - [绘画区你赢了](https://www.blog.minike.top/Article/details/677369864117.shtml)
+- 2026-06-30 03:07 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/4061831.shtml)
+- 2026-06-30 02:43 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/051233718.shtml)
+- 2026-06-30 02:56 - [普京间接喊话特朗普有何考量](http://www.blog.kurohicncr.top/Article/details/58377005.shtml)
+- 2026-06-30 03:03 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/2326678.shtml)
+- 2026-06-30 02:54 - [刘宇宁东方风云榜人气](http://www.share.kurohicncr.top/Article/details/4184669735.shtml)
+- 2026-06-30 02:45 - [张月感谢了每一公的队友](https://www.share.kurohicncr.top/Article/details/6585457.shtml)
+- 2026-06-30 03:04 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/14131.shtml)

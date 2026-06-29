@@ -1,56 +1,57 @@
-# 五单连发，旧案回溯！国都证券债承埋雷
+# 特朗普的“胆小鬼游戏”，还能玩多久？
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 五单连发，旧案回溯！国都证券债承埋雷 时隔多年，国都证券因债承业务违规，连收五份罚单。这不仅暴露出这家券商早年粗放展业通病，也折射出投行业务持续亏损、风控体系长期薄弱的深层经营隐患。 监管五连罚 日前，北京证监局连更五份监管函，剑指国都证券（
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：新京报 撰稿：徐立凡 ▲资料图：霍尔木兹海峡。图/央视新闻 据新华社报道，美军中央司令部发文宣布，从美国东部时间13日10时（北京时间22时）开始，对所有进出伊朗港口的海上交通实施封锁。 声明说，该封锁措施适用于所有进出伊朗港口及该国沿海区域的各国船只，涵盖位于波斯湾和阿曼湾的所有伊朗港口。美军中央司
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-来源：行家券业 五单连发，旧案回溯！
+来源：新京报 撰稿：徐立凡 ▲资料图：霍尔木兹海峡。
 
-国都证券债承埋雷 时隔多年，国都证券因债承业务违规，连收五份罚单。
+图/央视新闻 据新华社报道，美军中央司令部发文宣布，从美国东部时间13日10时（北京时间22时）开始，对所有进出伊朗港口的海上交通实施封锁。
 
-这不仅暴露出这家券商早年粗放展业通病，也折射出投行业务持续亏损、风控体系长期薄弱的深层经营隐患。
+声明说，该封锁措施适用于所有进出伊朗港口及该国沿海区域的各国船只，涵盖位于波斯湾和阿曼湾的所有伊朗港口。
 
-监管五连罚 日前，北京证监局连更五份监管函，剑指国都证券（870488）债券承销业务违规。
+美军中央司令部说，往返于非伊朗港口、通过霍尔木兹海峡的船只将不会受到干扰。
 
-同日，国都证券公告披露处罚事件。
+据美方官员透露，已有超过15艘美国军舰部署到位，支援此次封锁行动。
 
-监管函显示，国都证券存在未审慎核查发行人主要客户的变化情况及相关销售收入真实性、应收账款和存货涉及的相关工程项目真实性等问题，违反了《公司债券发行与交易管理办法》（证监会令第113号）第七条的规定。
+伊朗方面也不甘示弱。
 
-为此，北京证监局对国都证券采取监管谈话措施，要求负责人前来接受约谈。
+当地时间4月13日，伊朗武装部队哈塔姆·安比亚中央司令部发言人强硬回应了特朗普封锁霍尔木兹海峡的威胁，称波斯湾及阿曼湾港口的安全“要么属于所有人，要么不属于任何人”。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkjci.md)
-- 2026-06-30 02:43 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 02:46 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
-- 2026-06-30 03:00 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/liangsheng.md)
-- 2026-06-30 02:51 - [演员都来上音综的原因](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrcmm.md)
-- 2026-06-30 03:03 - [女子发现孩子非现任亲生起诉前任](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jflul.md)
-- 2026-06-30 02:51 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongpo.md)
-- 2026-06-30 02:48 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
-- 2026-06-30 02:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/cugang.md)
-- 2026-06-30 02:36 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gangku.md)
+- 2026-06-30 02:57 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
+- 2026-06-30 02:46 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbpgs.md)
+- 2026-06-30 02:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/eitec.md)
+- 2026-06-30 03:01 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengli.md)
+- 2026-06-30 02:43 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 02:48 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nukuai.md)
+- 2026-06-30 02:55 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hxsar.md)
+- 2026-06-30 03:11 - [浙江队将获百万元世界杯补偿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 02:56 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/owivv.md)
+- 2026-06-30 02:55 - [绘画区你赢了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 02:53 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pnxaz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:42 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/358633.shtml)
-- 2026-06-30 02:36 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/53451871287.shtml)
-- 2026-06-30 03:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.minike.top/Article/details/68556774.shtml)
-- 2026-06-30 02:52 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/5224846.shtml)
-- 2026-06-30 02:59 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/188686061667.shtml)
-- 2026-06-30 03:00 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/1376906.shtml)
-- 2026-06-30 02:46 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/0826573814.shtml)
-- 2026-06-30 02:55 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/34878689342.shtml)
-- 2026-06-30 02:51 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/84594162323.shtml)
-- 2026-06-30 02:49 - [怕iPhone涨价的用户已紧急换新](http://www.blog.kurohicncr.top/Article/details/928173.shtml)
-- 2026-06-30 02:53 - [深扒韩国队淘汰背后原因](https://www.share.minike.top/Article/details/4863471009.shtml)
-- 2026-06-30 03:05 - [如何评价《龙之家族》第三季第二集？](https://www.blog.minike.top/Article/details/1544907139.shtml)
-- 2026-06-30 03:02 - [逃狱兄弟](https://www.blog.kurohicncr.top/Article/details/47587171875.shtml)
-- 2026-06-30 02:39 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/69341308323.shtml)
-- 2026-06-30 02:51 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/52521.shtml)
+- 2026-06-30 02:44 - [日本 高位逼抢](https://www.blog.kurohicncr.top/Article/details/9812420592.shtml)
+- 2026-06-30 02:47 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/395615236120.shtml)
+- 2026-06-30 02:44 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/27806547.shtml)
+- 2026-06-30 02:53 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/384348.shtml)
+- 2026-06-30 02:54 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/96582545.shtml)
+- 2026-06-30 02:54 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/67562677.shtml)
+- 2026-06-30 02:48 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/556578447.shtml)
+- 2026-06-30 02:58 - [古代人对纳妾的态度是什么样的？](http://www.share.kurohicncr.top/Article/details/335137990352.shtml)
+- 2026-06-30 02:45 - [逃狱兄弟](http://www.blog.minike.top/Article/details/269153714.shtml)
+- 2026-06-30 02:56 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/68212918.shtml)
+- 2026-06-30 02:50 - [庆祝中国共产党成立105周年大会将举行](http://www.share.kurohicncr.top/Article/details/358798164.shtml)
+- 2026-06-30 02:52 - [周杰伦的歌勾起25年友情](http://www.blog.kurohicncr.top/Article/details/7063215.shtml)
+- 2026-06-30 02:45 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/63146706563.shtml)
+- 2026-06-30 02:56 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/21658250768.shtml)
+- 2026-06-30 02:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.kurohicncr.top/Article/details/996716786065.shtml)

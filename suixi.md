@@ -1,58 +1,51 @@
-# 西藏2万余名驻村干部已进驻基层一线
+# 岚图汽车建议实施H股全流通
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网拉萨5月19日电 (卢鑫)中国共产党西藏自治区第十次代表大会(以下简称“西藏自治区第十次党代会”)以来干部驻村工作成效及先进集体先进个人评选表彰新闻发布会19日在拉萨召开。 “本月初，我们完成了第十四批、十五批驻村轮换，2万余名第十五批驻村干部已进驻基层一线。”发布会上，西藏自治区党委组织部副部长、一级巡视员南培介绍说。 南培表示，五年来，西藏自治区共遴选370名优秀年轻
+岚图汽车（07489）发布公告，董事会已于2026年4月14日审议及批准关于实施H股全流通的议案，拟将若干股东（其中包括公司控股股东东风汽车集团有限公司）及武汉沃雅企业管理咨询合伙企业（有限合伙））持有的公司15.07亿股内资股股份转换为公司H股股份。 在完成及取得所有相关监管机构（包括但不限于中国证监会及联交所）的备案及╱或批准以及符合所有适用的法律法规后，该等内资股将被转换
 
 ## 正文
 
-中新网拉萨5月19日电 (卢鑫)中国共产党西藏自治区第十次代表大会(以下简称“西藏自治区第十次党代会”)以来干部驻村工作成效及先进集体先进个人评选表彰新闻发布会19日在拉萨召开。
+岚图汽车（07489）发布公告，董事会已于2026年4月14日审议及批准关于实施H股全流通的议案，拟将若干股东（其中包括公司控股股东东风汽车集团有限公司）及武汉沃雅企业管理咨询合伙企业（有限合伙））持有的公司15.07亿股内资股股份转换为公司H股股份。
 
-“本月初，我们完成了第十四批、十五批驻村轮换，2万余名第十五批驻村干部已进驻基层一线。
+在完成及取得所有相关监管机构（包括但不限于中国证监会及联交所）的备案及╱或批准以及符合所有适用的法律法规后，该等内资股将被转换为H股及合资格在联交所主板上市及买卖。
 
-”发布会上，西藏自治区党委组织部副部长、一级巡视员南培介绍说。
-
-南培表示，五年来，西藏自治区共遴选370名优秀年轻县处级干部担任驻村工作总领队，覆盖全区所有县(市、区)，累计选派12.6万名驻村干部进驻全区所有村(社区)。
-
-据悉，西藏自治区第十次党代会以来，已申报7275个村级产业建设项目，累计投入13亿元(人民币，下同)驻村工作经费，打造昌都阿旺绵羊、那曲嘎尔德畜牧等年产值千万元以上的龙头企业，800余名驻村干部担任乡村好风景、好产品“推介官”“代言人”。
-
-助力实施集体经济“空壳村”清零行动，帮助300余个村集体经济扭亏为盈、500余个村集体经济收入从不足5万元达到5万元以上，有力推动农牧区振兴、农牧业发展、农牧民增收。
-
-(完)
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:47 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
-- 2026-06-30 02:46 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
-- 2026-06-30 02:59 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
-- 2026-06-30 03:01 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
-- 2026-06-30 02:46 - [张碧晨最佳女歌手](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjlra.md)
-- 2026-06-30 02:37 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egrik.md)
-- 2026-06-30 02:59 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iwbcr.md)
-- 2026-06-30 03:02 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tuanao.md)
-- 2026-06-30 02:59 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
-- 2026-06-30 02:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/heiku.md)
-- 2026-06-30 02:37 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wenshuo.md)
-- 2026-06-30 02:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdlua.md)
-- 2026-06-30 02:58 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 03:02 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zande.md)
+- 2026-06-30 02:43 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiongken.md)
+- 2026-06-30 03:07 - [中国气象局启动气象灾害四级应急响应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtlxv.md)
+- 2026-06-30 03:11 - [日本世界杯淘汰赛历史0胜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 02:49 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ssjfq.md)
+- 2026-06-30 03:10 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrgmh.md)
+- 2026-06-30 03:04 - [一生一世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
+- 2026-06-30 02:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 02:57 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiongche.md)
+- 2026-06-30 02:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 03:02 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 02:54 - [AI接过张雪峰志愿填报衣钵](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 02:49 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 03:07 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanzi.md)
+- 2026-06-30 03:09 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cghkc.md)
+- 2026-06-30 02:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:53 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.share.minike.top/Article/details/77425327434.shtml)
-- 2026-06-30 02:41 - [当语文老师求助数学老师...](http://www.share.kurohicncr.top/Article/details/54867903809.shtml)
-- 2026-06-30 03:04 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/90646.shtml)
-- 2026-06-30 02:53 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/8948046.shtml)
-- 2026-06-30 02:47 - [和江西老爸，挑战江西一日三餐！！到底多好吃？？](http://www.blog.kurohicncr.top/Article/details/002780.shtml)
-- 2026-06-30 02:46 - [张凌赫杨超越 峨眉](https://www.blog.kurohicncr.top/Article/details/8778575.shtml)
-- 2026-06-30 02:40 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/890108023.shtml)
-- 2026-06-30 02:37 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.minike.top/Article/details/494772083527.shtml)
-- 2026-06-30 03:02 - [奔跑吧·黄河篇第二季](http://www.blog.kurohicncr.top/Article/details/312599835.shtml)
-- 2026-06-30 03:02 - [赵今麦电影开端客串路透](https://www.blog.kurohicncr.top/Article/details/5473220232.shtml)
-- 2026-06-30 02:41 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.minike.top/Article/details/49801.shtml)
-- 2026-06-30 02:54 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.minike.top/Article/details/35370734677.shtml)
-- 2026-06-30 03:02 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/593768.shtml)
-- 2026-06-30 02:47 - [金刚川](http://www.share.kurohicncr.top/Article/details/11070357413.shtml)
-- 2026-06-30 02:42 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.share.minike.top/Article/details/398706715.shtml)
+- 2026-06-30 02:48 - [未来五年，教育强国这样建设](http://www.share.minike.top/Article/details/366153.shtml)
+- 2026-06-30 03:01 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/1536531419.shtml)
+- 2026-06-30 03:11 - [斛珠夫人](http://www.blog.kurohicncr.top/Article/details/455045652887.shtml)
+- 2026-06-30 02:48 - [法国部长说装空调没用](http://www.blog.minike.top/Article/details/671959526950.shtml)
+- 2026-06-30 02:43 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.share.minike.top/Article/details/51664.shtml)
+- 2026-06-30 02:54 - [恋与深空回应争议](http://www.share.minike.top/Article/details/07040063.shtml)
+- 2026-06-30 02:50 - [男子非洲务工死亡20多天遗体仍在海外](https://www.share.minike.top/Article/details/2237496184.shtml)
+- 2026-06-30 03:04 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.minike.top/Article/details/5876337522.shtml)
+- 2026-06-30 03:04 - [巴西vs日本前瞻](http://www.share.minike.top/Article/details/4266933181.shtml)
+- 2026-06-30 02:45 - [挪威国家队紧急从本土订购大批海鲜](http://www.blog.kurohicncr.top/Article/details/65404132560.shtml)
+- 2026-06-30 02:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/932608226.shtml)
+- 2026-06-30 02:49 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/706927742.shtml)
+- 2026-06-30 02:59 - [问心2金世佳追妻火葬场](https://www.share.kurohicncr.top/Article/details/377582092676.shtml)
+- 2026-06-30 03:05 - [世界杯](http://www.share.kurohicncr.top/Article/details/57871858861.shtml)
+- 2026-06-30 03:11 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/2309647048.shtml)

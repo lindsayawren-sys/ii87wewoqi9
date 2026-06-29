@@ -1,46 +1,56 @@
-# 文脉华章丨在这所“大学校”里领悟传承与创新
+# 特朗普呼吁英国放开北海石油开采
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-视频：文脉华章丨在这所“大学校”里领悟传承与创新来源：人民网-中国共产党新闻网 博物馆是中华文明灿烂成就的集中展示，是坚定文化自信的重要源泉。习近平总书记高度重视博物馆在文化传承和历史教育中的重要作用，他曾说“一个博物馆就是一所大学校”，并多次强调“让收藏在博物馆里的文物、陈列在广阔大地上的遗产、书写在古籍里的文字都活起来”。 文案、制作：黄瑾 资料来源：人民日报、央视新闻等
+美国总统特朗普在社交媒体上发帖称，英国应在北海开采石油。 他表示：“欧洲正迫切需要能源，但英国却拒绝开放北海石油，那是世界上最好的油田之一。真是可悲。阿伯丁本应一片繁荣”。 特朗普还再次重申了他对风力发电的批评。责任编辑：李桐
 
 ## 正文
 
-视频：文脉华章丨在这所“大学校”里领悟传承与创新来源：人民网-中国共产党新闻网 博物馆是中华文明灿烂成就的集中展示，是坚定文化自信的重要源泉。
+美国总统特朗普在社交媒体上发帖称，英国应在北海开采石油。
 
-习近平总书记高度重视博物馆在文化传承和历史教育中的重要作用，他曾说“一个博物馆就是一所大学校”，并多次强调“让收藏在博物馆里的文物、陈列在广阔大地上的遗产、书写在古籍里的文字都活起来”。
+他表示：“欧洲正迫切需要能源，但英国却拒绝开放北海石油，那是世界上最好的油田之一。
 
-文案、制作：黄瑾 资料来源：人民日报、央视新闻等
+真是可悲。
+
+阿伯丁本应一片繁荣”。
+
+特朗普还再次重申了他对风力发电的批评。
+
+责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzqan.md)
-- 2026-06-30 02:47 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 02:47 - [送你一朵小红花](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlnoj.md)
-- 2026-06-30 02:39 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 02:48 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svolf.md)
-- 2026-06-30 02:59 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrtlb.md)
-- 2026-06-30 02:50 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/usxpb.md)
-- 2026-06-30 02:38 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qekxc.md)
-- 2026-06-30 02:51 - [田曦薇没招了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 02:36 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 02:52 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qukgy.md)
+- 2026-06-30 02:47 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
+- 2026-06-30 02:43 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/piannai.md)
+- 2026-06-30 02:48 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 03:02 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 03:05 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 02:47 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mjhgr.md)
+- 2026-06-30 03:03 - [女子发现孩子非现任亲生起诉前任](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jsadr.md)
+- 2026-06-30 02:55 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 02:48 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xinreng.md)
+- 2026-06-30 03:00 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 02:43 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
+- 2026-06-30 02:47 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 02:48 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:41 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/051917.shtml)
-- 2026-06-30 02:42 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.minike.top/Article/details/110134078.shtml)
-- 2026-06-30 02:51 - [小羊在林间被野生豹子啃食 当地回应](https://www.share.kurohicncr.top/Article/details/6502150.shtml)
-- 2026-06-30 02:50 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/78750010.shtml)
-- 2026-06-30 02:40 - [王源近几年没有路演了](http://www.share.kurohicncr.top/Article/details/5627228074.shtml)
-- 2026-06-30 02:46 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/18946.shtml)
-- 2026-06-30 02:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.minike.top/Article/details/5850824869.shtml)
-- 2026-06-30 02:40 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/04016184.shtml)
-- 2026-06-30 03:05 - [关晓彤一路小跑迎接爸爸探班](https://www.blog.minike.top/Article/details/5480866955.shtml)
-- 2026-06-30 03:00 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/64863330814.shtml)
-- 2026-06-30 02:47 - [湖北云南这些涉汛信息都是假的](http://www.share.minike.top/Article/details/3055564005.shtml)
-- 2026-06-30 02:50 - [杨紫获白玉兰视后为何争议难平](http://www.share.minike.top/Article/details/309399261.shtml)
-- 2026-06-30 02:48 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/2960604.shtml)
-- 2026-06-30 02:40 - [第一炉香](http://www.share.kurohicncr.top/Article/details/93967310.shtml)
-- 2026-06-30 02:36 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/5895290.shtml)
+- 2026-06-30 02:53 - [老人喝隔夜排骨汤喝进医院](http://www.share.minike.top/Article/details/8093665764.shtml)
+- 2026-06-30 03:09 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/3232608.shtml)
+- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/11045095.shtml)
+- 2026-06-30 02:55 - [俄军1周发射上千架无人机有何目的](http://www.share.kurohicncr.top/Article/details/2060864.shtml)
+- 2026-06-30 02:42 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/736432625.shtml)
+- 2026-06-30 02:56 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/623005.shtml)
+- 2026-06-30 03:04 - [湖北云南这些涉汛信息都是假的](https://www.share.kurohicncr.top/Article/details/05790.shtml)
+- 2026-06-30 02:59 - [湖北一狗扑咬多人 当地正在搜捕](https://www.share.minike.top/Article/details/8024689.shtml)
+- 2026-06-30 02:49 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.kurohicncr.top/Article/details/38575505415.shtml)
+- 2026-06-30 03:04 - [曾沛慈和老公一起回台湾](http://www.share.kurohicncr.top/Article/details/31710.shtml)
+- 2026-06-30 02:48 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/5084785.shtml)
+- 2026-06-30 02:56 - [巴西补时绝杀日本](https://www.blog.kurohicncr.top/Article/details/051332415.shtml)
+- 2026-06-30 02:52 - [有酒店推行24小时退房制](http://www.blog.minike.top/Article/details/9043313.shtml)
+- 2026-06-30 03:11 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/385935.shtml)
+- 2026-06-30 02:54 - [月亮](http://www.blog.kurohicncr.top/Article/details/45336587.shtml)

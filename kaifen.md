@@ -1,52 +1,57 @@
-# 3100公里外的奔赴 西藏林芝患儿获救治
+# 习近平同越共中央总书记、国家主席苏林举行会谈
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 18:24 来源：中国新闻网 近日，中新社记者走进林芝市人民医院，援藏医生广州医科大学附属妇女儿童医疗中心‌PICU(儿童重症监护室)副主任医师张春敏介绍，2025年8月6日，广东省第十一批“组团式”援藏专家与林芝市人民医院联手，成功为一名胎龄仅35周、术前体重1.85公斤、伴有先天性十二指肠闭锁及重症感染的患儿实施手术，创下林芝市最小胎龄和最
+新华社北京4月15日电(记者冯歆然、董雪)4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林举行会谈。 习近平再次祝贺苏林当选越南国家主席。习近平指出，你当选越南国家主席后第一时间到访中国，体现了你对发展中越关系的高度重视。相信在以苏林同志为首的越共中央坚强领导下，越南必将坚定走好社会主义道路，朝着建党建国“两个一百年”奋
 
 ## 正文
 
-发布时间：2026年05月20日 18:24 来源：中国新闻网 近日，中新社记者走进林芝市人民医院，援藏医生广州医科大学附属妇女儿童医疗中心‌PICU(儿童重症监护室)副主任医师张春敏介绍，2025年8月6日，广东省第十一批“组团式”援藏专家与林芝市人民医院联手，成功为一名胎龄仅35周、术前体重1.85公斤、伴有先天性十二指肠闭锁及重症感染的患儿实施手术，创下林芝市最小胎龄和最轻体重的手术纪录。
+新华社北京4月15日电(记者冯歆然、董雪)4月15日上午，中共中央总书记、国家主席习近平在人民大会堂同来华进行国事访问的越共中央总书记、国家主席苏林举行会谈。
 
-32年来，广东1300多名医疗人才援藏，他们手把手传授先进医疗技术和管理理念，帮助当地医生成长，给当地民众带去健康。
+习近平再次祝贺苏林当选越南国家主席。
 
-截至2024年底，西藏自治区孕产妇死亡率、婴儿死亡率和5岁以下儿童死亡率分别下降至34.94/10万、4.32‰和5‰。
+习近平指出，你当选越南国家主席后第一时间到访中国，体现了你对发展中越关系的高度重视。
 
-(记者 陈舒一 陈欣怡 制作 刘鹏） 责任编辑：【李季】
+相信在以苏林同志为首的越共中央坚强领导下，越南必将坚定走好社会主义道路，朝着建党建国“两个一百年”奋斗目标砥砺奋进。
+
+无论国际形势如何变化，中方始终将越南作为周边外交优先方向，愿同越方秉持初心、赓续友谊，团结协作、相互支持，继续按照“六个更”总体目标，高质量推进全面战略合作，加快构建更高水平具有战略意义的中越命运共同体，为推动构建人类命运共同体作出更大贡献。
+
+习近平强调，党的领导是社会主义的最本质特征和最大优势。
+
+捍卫社会主义制度和共产党执政地位，是中越两党最大的共同战略利益。
+
+双方要保持高度的战略清醒和强大的战略定力，始终坚定道路自信和制度自信，坚持改革不改向、变革不变色。
 
 ## 相关推荐
 
-- 2026-06-30 02:45 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cjcnr.md)
-- 2026-06-30 02:56 - [俄军1周发射上千架无人机有何目的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aepgx.md)
-- 2026-06-30 02:50 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
-- 2026-06-30 03:05 - [巴西队与日本队将展开正面对决](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyvlb.md)
-- 2026-06-30 02:40 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/durlg.md)
-- 2026-06-30 03:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/linjue.md)
-- 2026-06-30 02:41 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liare.md)
-- 2026-06-30 02:52 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
-- 2026-06-30 03:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
-- 2026-06-30 02:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbvd.md)
-- 2026-06-30 02:40 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/denghua.md)
-- 2026-06-30 02:49 - [《贺子珍》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
-- 2026-06-30 02:51 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
-- 2026-06-30 02:39 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suoxuan.md)
+- 2026-06-30 03:05 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kaozhai.md)
+- 2026-06-30 03:01 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
+- 2026-06-30 02:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengguan.md)
+- 2026-06-30 02:56 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rgqvu.md)
+- 2026-06-30 02:46 - [美人鱼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdubb.md)
+- 2026-06-30 03:10 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
+- 2026-06-30 02:44 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 02:49 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
+- 2026-06-30 03:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kjnuh.md)
+- 2026-06-30 03:11 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 03:01 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:44 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/57580594536.shtml)
-- 2026-06-30 03:04 - [阿根廷世界杯的占卜玄学有多离谱](https://www.blog.minike.top/Article/details/588609.shtml)
-- 2026-06-30 03:04 - [我和我的家乡](https://www.share.minike.top/Article/details/44176888.shtml)
-- 2026-06-30 02:58 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/6407088.shtml)
-- 2026-06-30 02:45 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/510867606665.shtml)
-- 2026-06-30 02:46 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.share.minike.top/Article/details/309479964.shtml)
-- 2026-06-30 02:36 - [男生高考695分志愿报考清华](http://www.blog.minike.top/Article/details/830944227942.shtml)
-- 2026-06-30 02:57 - [斛珠夫人](http://www.share.minike.top/Article/details/402023432274.shtml)
-- 2026-06-30 02:55 - [乔家的儿女](https://www.share.kurohicncr.top/Article/details/18346505.shtml)
-- 2026-06-30 02:55 - [沪指深V回升站稳4000点](https://www.blog.kurohicncr.top/Article/details/6582863879.shtml)
-- 2026-06-30 02:53 - [宋亚轩有啥话不憋心里全都说出来](http://www.blog.kurohicncr.top/Article/details/56491615464.shtml)
-- 2026-06-30 02:48 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/058153498824.shtml)
-- 2026-06-30 02:38 - [普京间接喊话特朗普有何考量](https://www.share.kurohicncr.top/Article/details/58066008090.shtml)
-- 2026-06-30 02:47 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/159622996571.shtml)
-- 2026-06-30 03:05 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/85347722288.shtml)
+- 2026-06-30 03:02 - [巴西队与日本队将展开正面对决](http://www.share.kurohicncr.top/Article/details/4280576.shtml)
+- 2026-06-30 03:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/49451286.shtml)
+- 2026-06-30 02:52 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/721063.shtml)
+- 2026-06-30 02:54 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.kurohicncr.top/Article/details/015344839003.shtml)
+- 2026-06-30 03:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://www.blog.kurohicncr.top/Article/details/89123.shtml)
+- 2026-06-30 03:03 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/895128206519.shtml)
+- 2026-06-30 03:09 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/14521744686.shtml)
+- 2026-06-30 02:48 - [上市央企地产商 两年换了三任董事长](http://www.blog.kurohicncr.top/Article/details/3624386.shtml)
+- 2026-06-30 02:43 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.share.minike.top/Article/details/511324858068.shtml)
+- 2026-06-30 03:09 - [曾沛慈和老公一起回台湾](https://www.blog.kurohicncr.top/Article/details/5062536665.shtml)
+- 2026-06-30 02:59 - [问心2神一集鬼三集](http://www.blog.minike.top/Article/details/68405704.shtml)
+- 2026-06-30 03:06 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.minike.top/Article/details/5109503408.shtml)
+- 2026-06-30 03:06 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/7086626.shtml)
+- 2026-06-30 03:00 - [港股科技股强势反弹](http://www.blog.kurohicncr.top/Article/details/32399.shtml)
+- 2026-06-30 02:56 - [国务院：稳步推进研究生考试招生改革](http://www.share.kurohicncr.top/Article/details/49610022.shtml)

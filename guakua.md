@@ -1,50 +1,49 @@
-# 中国华电直属单位原专职董事赵伟被“双开”
+# 中国银行获贝莱德增持879.1万股 每股作价约5.01港元
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网5月20日电 据中央纪委国家监委驻中国华电纪检监察组、甘肃省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国华电纪检监察组和甘肃省天水市监委对中国华电直属单位原专职董事赵伟严重违纪违法问题进行了立案审查调查。经查，赵伟对中央八项规定精神置若罔闻，毫无敬畏、顶风违纪，长期违规收受管理和服务对象赠送的礼品、礼金，多次接受可能影响公正执行公务的宴请和旅游活动安
+香港联交所最新资料显示，4月8日，贝莱德增持中国银行（03988）879.1万股，每股作价5.0122港元，总金额约为4406.23万港元。增持后最新持股数目约为50.19亿股，最新持股比例为6%。责任编辑：卢昱君
 
 ## 正文
 
-中新网5月20日电 据中央纪委国家监委驻中国华电纪检监察组、甘肃省纪委监委消息：日前，经中央纪委国家监委批准，中央纪委国家监委驻中国华电纪检监察组和甘肃省天水市监委对中国华电直属单位原专职董事赵伟严重违纪违法问题进行了立案审查调查。
+香港联交所最新资料显示，4月8日，贝莱德增持中国银行（03988）879.1万股，每股作价5.0122港元，总金额约为4406.23万港元。
 
-经查，赵伟对中央八项规定精神置若罔闻，毫无敬畏、顶风违纪，长期违规收受管理和服务对象赠送的礼品、礼金，多次接受可能影响公正执行公务的宴请和旅游活动安排；违反廉洁纪律，违规经商办企业；毫无纪法底线，将公权力异化为谋取私利的工具，利用职务上的便利或职权形成的便利条件，为他人在招投标、项目承揽、工程结算等方面谋取利益，并非法收受巨额财物。
+增持后最新持股数目约为50.19亿股，最新持股比例为6%。
 
-赵伟严重违反党的廉洁纪律，构成严重职务违法并涉嫌受贿罪，且在党的十八大后不收敛、不收手，性质严重，影响恶劣，应予严肃处理。
-
-依据《中国共产党纪律处分条例》《中华人民共和国监察法》《中华人民共和国公职人员政务处分法》等有关规定，经中国华电党组研究，决定给予赵伟开除党籍处分；经中央纪委国家监委驻中国华电纪检监察组研究，决定给予赵伟开除公职处分；收缴其违纪违法所得。
-
-甘肃省天水市监委将其涉嫌犯罪问题移送检察机关依法审查起诉，所涉财物一并移送。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:41 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
-- 2026-06-30 02:47 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
-- 2026-06-30 02:55 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qfxdb.md)
-- 2026-06-30 03:05 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jflul.md)
-- 2026-06-30 02:42 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qingzhan.md)
-- 2026-06-30 02:41 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cailuan.md)
-- 2026-06-30 02:56 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 02:55 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 02:52 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkcbi.md)
-- 2026-06-30 02:53 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
+- 2026-06-30 03:02 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
+- 2026-06-30 02:43 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
+- 2026-06-30 03:10 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/changpi.md)
+- 2026-06-30 02:51 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
+- 2026-06-30 02:45 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
+- 2026-06-30 02:59 - [张碧晨一开口梦回逐玉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/caizhan.md)
+- 2026-06-30 03:03 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qduho.md)
+- 2026-06-30 02:46 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
+- 2026-06-30 02:53 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
+- 2026-06-30 03:00 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 03:09 - [张凌赫杨超越 峨眉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aqczw.md)
+- 2026-06-30 03:03 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
+- 2026-06-30 02:59 - [张碧晨最佳女歌手](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:03 - [未来的飞机可能会用电吗？](https://www.blog.minike.top/Article/details/334361479.shtml)
-- 2026-06-30 02:48 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/490960740015.shtml)
-- 2026-06-30 03:02 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/600469862451.shtml)
-- 2026-06-30 02:56 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.minike.top/Article/details/66035.shtml)
-- 2026-06-30 03:02 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/54989.shtml)
-- 2026-06-30 02:43 - [王楚钦孙颖莎混双对手产生](http://www.blog.kurohicncr.top/Article/details/7042805208.shtml)
-- 2026-06-30 03:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.blog.minike.top/Article/details/210410.shtml)
-- 2026-06-30 02:43 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.minike.top/Article/details/275418441.shtml)
-- 2026-06-30 03:04 - [猛龙快船交易或将达成](http://www.share.kurohicncr.top/Article/details/10912.shtml)
-- 2026-06-30 02:54 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/009342957726.shtml)
-- 2026-06-30 03:04 - [女子健身不当 居然“脑子漏水”了](https://www.blog.kurohicncr.top/Article/details/04127239518.shtml)
-- 2026-06-30 02:53 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/794284.shtml)
-- 2026-06-30 03:03 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/4420645417.shtml)
-- 2026-06-30 02:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/715963207.shtml)
-- 2026-06-30 02:41 - [武汉西安站在了3小时临界线门槛上](https://www.blog.kurohicncr.top/Article/details/868144776.shtml)
+- 2026-06-30 03:04 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.kurohicncr.top/Article/details/254351370554.shtml)
+- 2026-06-30 02:44 - [姜妍走过来这段刘梅下班了](http://www.share.minike.top/Article/details/15854.shtml)
+- 2026-06-30 02:44 - [电影《后室》讲了一个什么故事？](http://www.share.minike.top/Article/details/079764.shtml)
+- 2026-06-30 03:03 - [毕业以后，你最怀念的大学记忆是什么？](https://www.blog.kurohicncr.top/Article/details/0343118.shtml)
+- 2026-06-30 03:00 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/6707021.shtml)
+- 2026-06-30 03:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.share.minike.top/Article/details/81224738204.shtml)
+- 2026-06-30 03:10 - [仙游一峡谷5人身亡知情者发声](https://www.share.kurohicncr.top/Article/details/78819.shtml)
+- 2026-06-30 03:05 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/784322.shtml)
+- 2026-06-30 03:06 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/6755943194.shtml)
+- 2026-06-30 02:50 - [宗元舞2.0 迟来的50万女装福利](https://www.blog.kurohicncr.top/Article/details/846220199222.shtml)
+- 2026-06-30 02:48 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/4831193.shtml)
+- 2026-06-30 02:49 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/7323400135.shtml)
+- 2026-06-30 03:08 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/0891497.shtml)
+- 2026-06-30 03:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.blog.minike.top/Article/details/149776734.shtml)
+- 2026-06-30 02:54 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/90576601.shtml)

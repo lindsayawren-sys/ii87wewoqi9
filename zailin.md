@@ -1,60 +1,56 @@
-# 合规失守、业绩腰斩、市值缩水近九成，江西银行何以沦为“仙股”？
+# 中国—东盟（南宁）动漫游戏产业园揭牌
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-监管高压下，区域性城商行的合规短板持续暴露。5月15日，国家金融监督管理总局江西监管局的一纸罚单，将江西银行（01916.HK）再次推上舆论风口。因贷款管理不到位、以贷还贷掩盖不良等违法违规行为，江西银行总行被罚款40万元，南昌进贤支行被罚款50万元，合计被罚款90万元，4名相关责任人被给予警告及罚款处罚，罚没金额合计达118万元。同一天，江西银行九江分行也因贷款管理问题被罚2
+【东盟专线】中国—东盟(南宁)动漫游戏产业园揭牌 中新社南宁4月15日电 (黄艳梅 王伟臣)中国—东盟(南宁)动漫游戏产业园15日在广西南宁市揭牌。该产业园深度融合人工智能(AI)技术、文旅资源与产业发展，致力打造为立足中国西南、辐射东盟的动漫产业新高地。 中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合
 
 ## 正文
 
-监管高压下，区域性城商行的合规短板持续暴露。
+【东盟专线】中国—东盟(南宁)动漫游戏产业园揭牌 中新社南宁4月15日电 (黄艳梅 王伟臣)中国—东盟(南宁)动漫游戏产业园15日在广西南宁市揭牌。
 
-5月15日，国家金融监督管理总局江西监管局的一纸罚单，将江西银行（01916.HK）再次推上舆论风口。
+该产业园深度融合人工智能(AI)技术、文旅资源与产业发展，致力打造为立足中国西南、辐射东盟的动漫产业新高地。
 
-因贷款管理不到位、以贷还贷掩盖不良等违法违规行为，江西银行总行被罚款40万元，南昌进贤支行被罚款50万元，合计被罚款90万元，4名相关责任人被给予警告及罚款处罚，罚没金额合计达118万元。
+中国—东盟(南宁)动漫游戏产业园是广西壮族自治区重点文化产业项目和南宁市“十五五”重点文化项目，将联动中国国家动漫产业综合示范园引入优质IP，搭建面向东盟的数字内容加工、译制、发行全链条，推动数字文化产品规模化“出海”，构建双向文化协作通道，实现产业集聚与文化传播双向赋能。
 
-同一天，江西银行九江分行也因贷款管理问题被罚25万元。
+据悉，中国—东盟(南宁)动漫游戏产业园规划有中国—东盟国际动漫制作中心、中国—东盟国际动漫游戏交易中心、中国—东盟国际研学基地、AI动漫青年创业中心(校企合作实训基地)等十大核心功能板块。
 
-作为江西省属重点法人银行、港股上市城商行，江西银行自2018年6月登陆港交所以来，曾凭借区域资源优势实现快速扩张，巅峰时期总市值一度达366亿港元。
+中国—东盟(南宁)动漫游戏产业园负责人周卫炜表示，南宁作为中国面向东盟开放合作的前沿枢纽城市，不仅拥有独特的区位优势，更兼具深厚的民族文化底蕴。
 
-但短短8年间，该行却陷入“处罚频发、业绩下滑、市值缩水”的三重困境，盈利规模较峰值腰斩，港股股价沦为“仙股”，与同类型城商行的差距持续拉大。
+当日还举行了中国—东盟(南宁)动漫游戏产业园入园企业及文旅合作签约仪式和AIGC(人工智能生成内容)人才培养基地授牌仪式。
 
-罚单密集落地，违规顽疾贯穿核心业务2026年以来，银行业监管力度持续加码，《银行业监督管理法》大修落地后，监管关注重心延伸至“资金—股权—治理—经营—外包—数据—消费者”的完整链条，违法成本大幅提升。
-
-但从年初至今，江西银行似乎陷入了一场“罚单连续剧”——贷款管理失位、票据业务违规、柜面操作漏洞，从总行到分行，合规短板全面暴露。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:44 - [“十五五”优质本科扩容](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bfulb.md)
-- 2026-06-30 02:40 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 03:01 - [恋与深空 巧合](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/revjs.md)
-- 2026-06-30 02:50 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 03:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 02:43 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 02:45 - [时光音乐会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzxya.md)
-- 2026-06-30 02:51 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/biukt.md)
-- 2026-06-30 02:38 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kechan.md)
-- 2026-06-30 02:58 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dyhds.md)
-- 2026-06-30 02:41 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
-- 2026-06-30 02:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lnrsm.md)
-- 2026-06-30 02:59 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wangnang.md)
-- 2026-06-30 02:59 - [健全中小学教师工资长效联动机制](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mojiong.md)
+- 2026-06-30 03:10 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 02:50 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 03:00 - [国务院：探索延长义务教育年限](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 03:08 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaixian.md)
+- 2026-06-30 03:00 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naoniang.md)
+- 2026-06-30 02:55 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 02:43 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/szhjo.md)
+- 2026-06-30 03:07 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 02:52 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lgnbc.md)
+- 2026-06-30 02:45 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 02:48 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 02:57 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knbtp.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:51 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.minike.top/Article/details/615546650031.shtml)
-- 2026-06-30 02:37 - [《我落泪情绪零碎》](https://www.share.minike.top/Article/details/22649553993.shtml)
-- 2026-06-30 02:46 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/3918954.shtml)
-- 2026-06-30 03:01 - [日本领先巴西](https://www.share.minike.top/Article/details/1439059.shtml)
-- 2026-06-30 02:53 - [找到了10年前跪舔b站的视频](https://www.blog.kurohicncr.top/Article/details/9153801.shtml)
-- 2026-06-30 02:56 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.share.kurohicncr.top/Article/details/02118991582.shtml)
-- 2026-06-30 02:54 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.blog.minike.top/Article/details/03604522.shtml)
-- 2026-06-30 03:03 - [中国网友锐评韩国队外网爆火](http://www.blog.minike.top/Article/details/48532538856.shtml)
-- 2026-06-30 02:41 - [赵丽颖风吹半夏含金量还在上升](https://www.share.minike.top/Article/details/110199.shtml)
-- 2026-06-30 03:06 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/5873916.shtml)
-- 2026-06-30 03:03 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/9076898.shtml)
-- 2026-06-30 03:00 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://www.share.kurohicncr.top/Article/details/4937698339.shtml)
-- 2026-06-30 02:47 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/1581156.shtml)
-- 2026-06-30 02:56 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/07530006921.shtml)
-- 2026-06-30 02:47 - [宜宾地震食客避难后折返 无人逃单](https://www.share.minike.top/Article/details/10364687.shtml)
+- 2026-06-30 03:04 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.kurohicncr.top/Article/details/29740079.shtml)
+- 2026-06-30 02:46 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/1640370.shtml)
+- 2026-06-30 03:06 - [李在明向韩国两大财阀90度鞠躬](http://www.share.minike.top/Article/details/5752876.shtml)
+- 2026-06-30 02:51 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.kurohicncr.top/Article/details/6740062.shtml)
+- 2026-06-30 02:56 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/6703860504.shtml)
+- 2026-06-30 03:00 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/87073.shtml)
+- 2026-06-30 02:50 - [法媒点赞分享中国小区降温方案](https://www.share.minike.top/Article/details/81743211584.shtml)
+- 2026-06-30 03:05 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/9498431506.shtml)
+- 2026-06-30 03:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.kurohicncr.top/Article/details/764740.shtml)
+- 2026-06-30 02:48 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/66399856.shtml)
+- 2026-06-30 03:00 - [沙丘](https://www.share.minike.top/Article/details/980574.shtml)
+- 2026-06-30 03:05 - [我设置了全宇宙最安全的密码](http://www.share.minike.top/Article/details/6245319.shtml)
+- 2026-06-30 02:50 - [大学生遇地震裹被子从5楼冲下](https://www.blog.kurohicncr.top/Article/details/341294692.shtml)
+- 2026-06-30 03:09 - [王楚钦谈表演球](http://www.blog.minike.top/Article/details/40456.shtml)
+- 2026-06-30 03:06 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/84403563.shtml)

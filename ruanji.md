@@ -1,59 +1,58 @@
-# 督察组：广西玉林市多地大面积违法违规削山采矿 生态遭严重破坏
+# 油价飙升之际 日本央行据悉考虑大幅上调通胀预期
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新社北京5月19日电 (记者 阮煜琳)中央生态环境保护督察组19日通报，中央第五生态环境保护督察组督察广西壮族自治区发现，玉林市多个地方违法违规采矿，生态遭受严重破坏。 玉林市位于桂东南丘陵区，林业和矿产资源丰富。但多个地方大面积违法违规削山、采矿、毁林，生态修复流于形式、乱象丛生。 2024年10月，玉林市兴业县为规避采矿权设置，以物流园区项目建设需土地平整为由，计划整体削
+据知情人士透露，日本央行官员可能考虑在本月的政策会议上大幅上调通胀预期，主要是为了反映油价高企的影响。 知情人士表示，由于自美伊战争爆发以来油价已上涨约50%，日本央行委员会可能会讨论将本财年的关键通胀预测从目前的1.9%上调。 知情人士还指出，由于中东冲突短期内不太可能明朗，官员们也可能考虑下调经济增长预期。他们表示，历史上，油价飙升往往会通过恶化贸易条件对日本经济造成拖累，
 
 ## 正文
 
-中新社北京5月19日电 (记者 阮煜琳)中央生态环境保护督察组19日通报，中央第五生态环境保护督察组督察广西壮族自治区发现，玉林市多个地方违法违规采矿，生态遭受严重破坏。
+据知情人士透露，日本央行官员可能考虑在本月的政策会议上大幅上调通胀预期，主要是为了反映油价高企的影响。
 
-玉林市位于桂东南丘陵区，林业和矿产资源丰富。
+知情人士表示，由于自美伊战争爆发以来油价已上涨约50%，日本央行委员会可能会讨论将本财年的关键通胀预测从目前的1.9%上调。
 
-但多个地方大面积违法违规削山、采矿、毁林，生态修复流于形式、乱象丛生。
+知情人士还指出，由于中东冲突短期内不太可能明朗，官员们也可能考虑下调经济增长预期。
 
-2024年10月，玉林市兴业县为规避采矿权设置，以物流园区项目建设需土地平整为由，计划整体削平156米的鸭木大山，施工将产生高达6000余万吨石灰石矿。
+他们表示，历史上，油价飙升往往会通过恶化贸易条件对日本经济造成拖累，因为该国依赖进口自然资源。
 
-2025年2月，该县矿产投资集团下属公司进场施工。
+日本央行将在4月28日为期两天的会议结束时更新季度经济展望，并将同时决定是否把政策利率从0.75%上调。
 
-截至督察进驻，施工企业已将所产生的100万吨矿石违规外售给水泥、碳酸钙生产企业。
+随着中东危机持续，以及行长植田和男周一表示冲突走向缺乏清晰性，市场对本次会议加息的预期有所降温。
 
-现场检查发现，施工企业野蛮开采、粗放作业，直接开挖山体，顺坡倾倒废石矿渣，原有的植被和山体遭受严重破坏。
+植田和男也没有释放任何明确支持加息的信号。
 
-督察发现，兴业县一座废弃矿山矿区面积120亩，开采面宽度200米、垂直开采高度最高达100米，也属于典型的矿山开采“半边山、一面墙”，当地职能部门视而不见，未按要求将其列入整治清单。
+此前两次日本央行加息前，他都曾提前进行过“预告”。
 
 ## 相关推荐
 
-- 2026-06-30 02:40 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuasan.md)
-- 2026-06-30 02:56 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shylq.md)
-- 2026-06-30 02:55 - [法媒点赞分享中国小区降温方案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwxhm.md)
-- 2026-06-30 02:57 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuibei.md)
-- 2026-06-30 02:54 - [TOP Prada](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 02:52 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tchiv.md)
-- 2026-06-30 02:50 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
-- 2026-06-30 02:49 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oktav.md)
-- 2026-06-30 02:43 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzxya.md)
-- 2026-06-30 02:51 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kaosuan.md)
-- 2026-06-30 02:57 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kloae.md)
-- 2026-06-30 02:55 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/naiheng.md)
-- 2026-06-30 02:40 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnknw.md)
+- 2026-06-30 03:07 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shediao.md)
+- 2026-06-30 02:50 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
+- 2026-06-30 03:05 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 02:48 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bcodq.md)
+- 2026-06-30 02:48 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
+- 2026-06-30 03:09 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shenban.md)
+- 2026-06-30 03:03 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
+- 2026-06-30 02:58 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/giuoe.md)
+- 2026-06-30 02:59 - [日本硬刚巴西谁能赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
+- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khkhl.md)
+- 2026-06-30 03:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zuizan.md)
+- 2026-06-30 02:45 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:59 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/436160488.shtml)
-- 2026-06-30 02:39 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/914970752801.shtml)
-- 2026-06-30 02:54 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.kurohicncr.top/Article/details/019919161.shtml)
-- 2026-06-30 03:02 - [巴西vs日本前瞻](https://www.share.kurohicncr.top/Article/details/25491765.shtml)
-- 2026-06-30 03:03 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.share.minike.top/Article/details/83369.shtml)
-- 2026-06-30 02:52 - [一见倾心](https://www.share.kurohicncr.top/Article/details/06848837.shtml)
-- 2026-06-30 02:56 - [2021江苏卫视跨年演唱会](http://www.share.minike.top/Article/details/2231438243.shtml)
-- 2026-06-30 02:45 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.share.kurohicncr.top/Article/details/67581854.shtml)
-- 2026-06-30 03:02 - [中国气象局启动气象灾害四级应急响应](http://www.blog.kurohicncr.top/Article/details/586260518.shtml)
-- 2026-06-30 02:36 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/371355673757.shtml)
-- 2026-06-30 03:02 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/751355567768.shtml)
-- 2026-06-30 02:47 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/01978.shtml)
-- 2026-06-30 02:38 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/4260279.shtml)
-- 2026-06-30 02:44 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/570945448991.shtml)
-- 2026-06-30 02:42 - [小娘惹](https://www.blog.minike.top/Article/details/90048685385.shtml)
+- 2026-06-30 02:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.blog.minike.top/Article/details/0608813.shtml)
+- 2026-06-30 02:55 - [田曦薇没招了](https://www.blog.kurohicncr.top/Article/details/908080674060.shtml)
+- 2026-06-30 02:53 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/605751.shtml)
+- 2026-06-30 02:46 - [韩乔生吐槽世界杯扩军](http://www.share.minike.top/Article/details/699244145994.shtml)
+- 2026-06-30 03:02 - [一生一世](http://www.blog.minike.top/Article/details/5726179809.shtml)
+- 2026-06-30 02:58 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/610079.shtml)
+- 2026-06-30 02:48 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/647637939.shtml)
+- 2026-06-30 03:01 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/28520857664.shtml)
+- 2026-06-30 02:55 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/747139999.shtml)
+- 2026-06-30 03:06 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/30053.shtml)
+- 2026-06-30 03:00 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/18116923629.shtml)
+- 2026-06-30 02:53 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/2310667.shtml)
+- 2026-06-30 02:51 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.blog.kurohicncr.top/Article/details/6594851.shtml)
+- 2026-06-30 03:05 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.minike.top/Article/details/60352867219.shtml)
+- 2026-06-30 03:00 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](https://www.blog.kurohicncr.top/Article/details/93334.shtml)

@@ -1,60 +1,58 @@
-# 首届中国新文创市集暨潮玩游园会在京开幕 “文旅中国·数智赋能”系列创新产品在京发布
+# 科技赋能舞台 经典集中上演 四月演出市场持续火热
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网北京5月19日电 (陈昊星)5月19日，由中国文化传媒集团主办的“文旅中国·数智赋能”系列创新产品发布会在北京朝阳公园举办。 中国文化传媒集团由文化和旅游部主管，此次发布会集中发布了三款数智技术赋能产品，用于展示文化央企在数智科技赋能传统文化传承与全球传播领域的创新实践。 其中，“文旅中国·数智空间(CFπ)”依托中国文化传媒新文创藏品平台海量数智文化艺术内容，以数智科技
+进入4月，全国演出市场持续火热。 “超现场”看演出 优质艺术成为美好日常 国家大剧院推出的“云端剧院”+“超现场”，通过“艺术+科技”的创新表达，让全国观众在家门口就能看到精彩演出。在国家大剧院公共空间，裸眼3D大屏幕正在实时直播国家大剧院热演的歌剧《阿依达》，与此同时，这部歌剧通过“超现场”模式向全国一百多家影剧院同步直播。这意味着外地观众也能同步观赏、感受国家大剧院的舞台作
 
 ## 正文
 
-中新网北京5月19日电 (陈昊星)5月19日，由中国文化传媒集团主办的“文旅中国·数智赋能”系列创新产品发布会在北京朝阳公园举办。
+进入4月，全国演出市场持续火热。
 
-中国文化传媒集团由文化和旅游部主管，此次发布会集中发布了三款数智技术赋能产品，用于展示文化央企在数智科技赋能传统文化传承与全球传播领域的创新实践。
+“超现场”看演出 优质艺术成为美好日常 国家大剧院推出的“云端剧院”+“超现场”，通过“艺术+科技”的创新表达，让全国观众在家门口就能看到精彩演出。
 
-其中，“文旅中国·数智空间(CFπ)”依托中国文化传媒新文创藏品平台海量数智文化艺术内容，以数智科技创新文化艺术策展形式，通过全息交互数智展柜、沉浸式数智体验舱、眼动捕捉数智终端等模块化数智设备，实现超高清鉴赏、AI多语种语音交互、多点位专家深度解析及文物纹饰精准鉴赏等功能。
+在国家大剧院公共空间，裸眼3D大屏幕正在实时直播国家大剧院热演的歌剧《阿依达》，与此同时，这部歌剧通过“超现场”模式向全国一百多家影剧院同步直播。
 
-“数智故宫乾隆花园光影展”以故宫“乾隆花园”为核心IP，通过环境模拟、虚拟现实等前沿数字技术，将故宫“乾隆花园”的建筑美学与历史故事转化为可感知、可交互的体验场景。
+这意味着外地观众也能同步观赏、感受国家大剧院的舞台作品魅力。
 
-“中国手艺网国际站”创新打造“非遗产品+跨境电商+内容传播”三位一体的出海模式。
+从去年开始，国家大剧院推出的“超现场”影剧院直播，更是打破常规观演模式，多地联动、百城共赏，不仅能看演出直播，还能听导赏、看幕后，是名副其实的超级现场、超越现场。
 
-截至2026年初，平台已整合刺绣、陶瓷、木雕等16个品类、350余款非遗产品，通过18种语言远销全球200多个国家和地区。
+国家大剧院副院长 马荣国：今年我们将XR技术、AI技术，运用到我们的现场直播的内容当中，给大家耳目一新的感觉。
 
-发布会期间，首届中国新文创市集暨潮玩游园也同步开展，供现场观众交流体验并选购心仪的文创产品。
+我们就是希望能够通过我们的线上播出，让全国的观众能够从了解艺术到喜欢艺术。
 
-活动汇集了包括故宫博物院、国家博物馆等在内的文创资源，展示和售卖的文创产品数量万余种。
+超现场以影剧院为席，再造现场观演的仪式感，打破了地域、空间、票价的限制，让更多人有更多机会接触优质艺术，更让艺术之美，成为我们中国人的美好日常。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [7月1日起 一批新规即将落地](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbfvx.md)
-- 2026-06-30 02:39 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ivevt.md)
-- 2026-06-30 02:44 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nziul.md)
-- 2026-06-30 02:52 - [中国气象局启动气象灾害四级应急响应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemnr.md)
-- 2026-06-30 02:43 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
-- 2026-06-30 02:37 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
-- 2026-06-30 02:58 - [领克900大型SUV值得购买吗?](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzlkn.md)
-- 2026-06-30 02:50 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxbav.md)
-- 2026-06-30 02:43 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gntev.md)
-- 2026-06-30 03:05 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiangshuai.md)
-- 2026-06-30 02:47 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fbylm.md)
-- 2026-06-30 02:51 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
-- 2026-06-30 02:36 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lvhzp.md)
-- 2026-06-30 02:38 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
+- 2026-06-30 03:10 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
+- 2026-06-30 03:07 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxeul.md)
+- 2026-06-30 03:01 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ninlou.md)
+- 2026-06-30 02:47 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzrpz.md)
+- 2026-06-30 02:58 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nrbei.md)
+- 2026-06-30 02:58 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 02:45 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 02:57 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 03:03 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kcbwm.md)
+- 2026-06-30 03:00 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/faalg.md)
+- 2026-06-30 02:52 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
+- 2026-06-30 03:07 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tohgc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:02 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/9538597856.shtml)
-- 2026-06-30 02:56 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://www.blog.kurohicncr.top/Article/details/29461825.shtml)
-- 2026-06-30 02:53 - [酒店推行“24小时退房”引热议](https://www.blog.minike.top/Article/details/423470.shtml)
-- 2026-06-30 02:51 - [恋与深空已删除锅里洗澡文案](https://www.share.minike.top/Article/details/99203891.shtml)
-- 2026-06-30 02:54 - [电影《后室》讲了一个什么故事？](http://www.blog.minike.top/Article/details/43467.shtml)
-- 2026-06-30 02:41 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/532712625.shtml)
-- 2026-06-30 03:01 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/70207396.shtml)
-- 2026-06-30 03:00 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.blog.minike.top/Article/details/684200376678.shtml)
-- 2026-06-30 02:46 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://www.share.minike.top/Article/details/962232755476.shtml)
-- 2026-06-30 02:39 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.kurohicncr.top/Article/details/96170.shtml)
-- 2026-06-30 02:43 - [问心2金世佳追妻火葬场](http://www.share.minike.top/Article/details/852281272.shtml)
-- 2026-06-30 02:57 - [千与千寻](http://www.share.kurohicncr.top/Article/details/7568415129.shtml)
-- 2026-06-30 02:47 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/293111098.shtml)
-- 2026-06-30 02:58 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/617877403572.shtml)
-- 2026-06-30 02:55 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/83835696.shtml)
+- 2026-06-30 03:04 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/8314399551.shtml)
+- 2026-06-30 03:01 - [法国小学众筹装空调后市长下令拆除](http://www.share.minike.top/Article/details/602907.shtml)
+- 2026-06-30 02:48 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/57474535226.shtml)
+- 2026-06-30 02:51 - [蔚来回应高压水枪洗车掉漆](https://www.blog.kurohicncr.top/Article/details/0527941.shtml)
+- 2026-06-30 03:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.minike.top/Article/details/1455045.shtml)
+- 2026-06-30 02:54 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/599188050.shtml)
+- 2026-06-30 03:06 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/566133.shtml)
+- 2026-06-30 02:56 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/70758033.shtml)
+- 2026-06-30 02:44 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.kurohicncr.top/Article/details/26629805.shtml)
+- 2026-06-30 03:04 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/7763555.shtml)
+- 2026-06-30 02:42 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/406091.shtml)
+- 2026-06-30 03:11 - [博世们还在犹豫 美的们已经卖断货](https://www.share.kurohicncr.top/Article/details/1720787586.shtml)
+- 2026-06-30 02:47 - [刘宇宁胸肌腹肌全给看了](http://www.blog.minike.top/Article/details/633422876.shtml)
+- 2026-06-30 02:45 - [原来周杰伦的龙拳是广告歌](http://www.blog.minike.top/Article/details/32525.shtml)
+- 2026-06-30 03:09 - [斛珠夫人](https://www.blog.minike.top/Article/details/570072097.shtml)

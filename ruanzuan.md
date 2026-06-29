@@ -1,54 +1,58 @@
-# 壁仞科技盘中涨超5% 里昂将目标价上调至67.40港元
+# 锂电板块活跃，领涨龙头3天2板
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-壁仞科技（06082）盘中涨超5%，截至发稿，股价上涨3.72%，现报49.62港元，成交额1.73亿港元。 里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。 报告提及，壁仞
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！今日A股锂电池概念反复活跃，石大胜华3天2板，华塑科技、腾远钴业、海科新源20cm涨停，海科新源续创新高。期货方面，碳酸锂期货今日收涨超3%。 截至收盘，创业板指涨2.36%，报3558.53点，续创阶段新高，科创综指涨2.14%，报1793.65点，沪指涨近1%重返4000点，收盘报4026.63点，深证
 
 ## 正文
 
-壁仞科技（06082）盘中涨超5%，截至发稿，股价上涨3.72%，现报49.62港元，成交额1.73亿港元。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-里昂发布研报称，看好壁仞科技（06082）的产品线及强大交付能力。
+今日A股锂电池概念反复活跃，石大胜华3天2板，华塑科技、腾远钴业、海科新源20cm涨停，海科新源续创新高。
 
-该行认为，中国的算力短缺将至少持续至2027年，而壁仞科技有望受惠于供需失衡及国产化趋势，凭借其强大的交付能力脱颖而出。
+期货方面，碳酸锂期货今日收涨超3%。
 
-该行将目标价由46.3港元上调至67.4港元，维持“跑赢大市”评级。
+截至收盘，创业板指涨2.36%，报3558.53点，续创阶段新高，科创综指涨2.14%，报1793.65点，沪指涨近1%重返4000点，收盘报4026.63点，深证成指涨1.61%，收盘报14639.95点。
 
-报告提及，壁仞科技的首代产品BR10X已在政府主导的场景中实现规模部署，而下一代BR20X系列预计于2026年第三季完成流片（tape-out），目标客户为一线超大规模数据中心营运商（hyperscalers），将具备更高的计算密度、更大的内存容量与带宽及互联能力。
+沪深两市成交额2.38万亿元，较上一个交易日放量2334亿元。
 
-公司长远目标是在中国AI芯片市场夺取10%的市场份额。
+盘面上，今日全市场超3700只个股上涨。
 
-责任编辑：卢昱君
+从板块来看，算力硬件方向反复走强，其中PCB概念爆发，沪电股份、宏昌电子涨停，创历史新高。
+
+存储芯片概念快速拉升，江波龙、佰维存储、大为股份大涨创历史新高。
 
 ## 相关推荐
 
-- 2026-06-30 02:43 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbto.md)
-- 2026-06-30 02:51 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
-- 2026-06-30 02:47 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 02:58 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 03:01 - [法国部长说装空调没用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 02:38 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfpwq.md)
-- 2026-06-30 02:56 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mengshun.md)
-- 2026-06-30 02:42 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iyqon.md)
-- 2026-06-30 03:06 - [这种关系可能正在悄悄“催老”你](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jlszu.md)
-- 2026-06-30 02:42 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/maorui.md)
+- 2026-06-30 02:46 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruyin.md)
+- 2026-06-30 03:11 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgdnk.md)
+- 2026-06-30 02:56 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 03:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bnldl.md)
+- 2026-06-30 03:08 - [俄乌双方伤亡近180万人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sdwhw.md)
+- 2026-06-30 02:47 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
+- 2026-06-30 02:55 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
+- 2026-06-30 02:56 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gwyfg.md)
+- 2026-06-30 02:55 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pwlin.md)
+- 2026-06-30 03:00 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 03:09 - [沙丘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 03:10 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/exrdf.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](http://www.share.minike.top/Article/details/728405638931.shtml)
-- 2026-06-30 02:52 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.kurohicncr.top/Article/details/93040564878.shtml)
-- 2026-06-30 02:45 - [韩国人为什么这么在乎输赢](https://www.blog.minike.top/Article/details/16875218.shtml)
-- 2026-06-30 02:52 - [中国小将严子怡再现一投夺冠](https://www.share.kurohicncr.top/Article/details/28566264489.shtml)
-- 2026-06-30 02:39 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/919040845.shtml)
-- 2026-06-30 02:52 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/381407492770.shtml)
-- 2026-06-30 02:50 - [强制戒网瘾起诉父亲](http://www.share.minike.top/Article/details/39016445.shtml)
-- 2026-06-30 02:57 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/95711078948.shtml)
-- 2026-06-30 03:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/94791354870.shtml)
-- 2026-06-30 02:50 - [刘雨昕浪姐舞台Misslady舞蹈室版](http://www.blog.minike.top/Article/details/397820.shtml)
-- 2026-06-30 03:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.share.minike.top/Article/details/808316032556.shtml)
-- 2026-06-30 02:49 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.share.kurohicncr.top/Article/details/511060612.shtml)
-- 2026-06-30 02:39 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/57633207.shtml)
-- 2026-06-30 02:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.blog.kurohicncr.top/Article/details/56624754700.shtml)
-- 2026-06-30 02:49 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/780268115014.shtml)
+- 2026-06-30 02:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/406862251169.shtml)
+- 2026-06-30 02:43 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/6058553973.shtml)
+- 2026-06-30 02:53 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/093968539805.shtml)
+- 2026-06-30 02:59 - [孙浩谈翻红：能演苟存忠就很幸福](http://www.blog.minike.top/Article/details/494726707.shtml)
+- 2026-06-30 02:47 - [女子健身不当 居然“脑子漏水”了](https://www.share.minike.top/Article/details/00082.shtml)
+- 2026-06-30 03:09 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/984392127.shtml)
+- 2026-06-30 03:03 - [有哪些值得一提的生活窍门？](https://www.blog.minike.top/Article/details/07630798.shtml)
+- 2026-06-30 03:02 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/173929.shtml)
+- 2026-06-30 03:06 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/055824547.shtml)
+- 2026-06-30 02:46 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/994004840.shtml)
+- 2026-06-30 02:52 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/5209171.shtml)
+- 2026-06-30 03:07 - [奔跑吧·黄河篇第二季](https://www.share.kurohicncr.top/Article/details/222401.shtml)
+- 2026-06-30 03:07 - [孙兴慜道歉](http://www.share.kurohicncr.top/Article/details/49949.shtml)
+- 2026-06-30 02:54 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/71386162.shtml)
+- 2026-06-30 02:50 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.kurohicncr.top/Article/details/345831046.shtml)

@@ -1,51 +1,56 @@
-# 日经指数或下跌，因对能源和材料成本的担忧持续
+# 摩根士丹利和摩根大通双双发债融资100亿美元 此前财报表现强劲
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-在中东冲突持续之际，由于对能源和材料成本上升的担忧持续，日本股市可能下跌。新加坡交易所的日经指数期货下跌0.1%，报60780点。投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的措施。日经指数周二下跌0.4%，至60550.59点。责任编辑：王永生
+摩根士丹利发债融资100亿美元，规模跻身华尔街银行史上前列。几小时前，该行公布其第一季度股票交易收入创纪录。 这笔交易，加上摩根大通规模相同、结构类似的交易，凸显借款环境改善。在战争推动下，融资成本上月跃升，如今已回落。 知情人士透露，摩根士丹利此次发行分四个部分，期限从4年至11年不等。该人士称，期限最长的一档债券收益率将较美国国债高1.02个百分点，低于最初约1.25个百分
 
 ## 正文
 
-在中东冲突持续之际，由于对能源和材料成本上升的担忧持续，日本股市可能下跌。
+摩根士丹利发债融资100亿美元，规模跻身华尔街银行史上前列。
 
-新加坡交易所的日经指数期货下跌0.1%，报60780点。
+几小时前，该行公布其第一季度股票交易收入创纪录。
 
-投资者正关注中东局势的发展，以及日本政府和企业为应对能源和其他产品短缺而采取的措施。
+这笔交易，加上摩根大通规模相同、结构类似的交易，凸显借款环境改善。
 
-日经指数周二下跌0.4%，至60550.59点。
+在战争推动下，融资成本上月跃升，如今已回落。
 
-责任编辑：王永生
+知情人士透露，摩根士丹利此次发行分四个部分，期限从4年至11年不等。
+
+该人士称，期限最长的一档债券收益率将较美国国债高1.02个百分点，低于最初约1.25个百分点的指引。
+
+募集资金将用于一般企业用途。
+
+汇编数据显示，自2025年初以来，摩根士丹利在财报发布后进行的四次债券发行均分为四个部分，每次筹资80亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 02:42 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 02:39 - [穆祉丞年度人气艺人](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
-- 2026-06-30 02:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 03:01 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 02:52 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
-- 2026-06-30 02:57 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mospu.md)
-- 2026-06-30 03:01 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxste.md)
-- 2026-06-30 03:03 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cegbu.md)
-- 2026-06-30 02:47 - [我用3千多根木棍做了张分压点阵床](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdtdd.md)
-- 2026-06-30 02:41 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 02:48 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
+- 2026-06-30 02:46 - [这辈子过得最痛苦的生日...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
+- 2026-06-30 02:42 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozxki.md)
+- 2026-06-30 02:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 03:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uucop.md)
+- 2026-06-30 02:59 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deyan.md)
+- 2026-06-30 02:48 - [锐评T1零封KC](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shaokang.md)
+- 2026-06-30 02:52 - [逃狱兄弟](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qingquan.md)
+- 2026-06-30 03:00 - [Lo娘白嫖2万裙子,我们追了半个中国！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 02:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/plklw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.minike.top/Article/details/2147493.shtml)
-- 2026-06-30 02:48 - [韩国队输球后连呼吸都是错的吗](https://www.share.kurohicncr.top/Article/details/386950.shtml)
-- 2026-06-30 03:02 - [我设置了全宇宙最安全的密码](http://www.blog.minike.top/Article/details/712742330475.shtml)
-- 2026-06-30 03:00 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/585656989534.shtml)
-- 2026-06-30 02:44 - [仙游一峡谷5人身亡知情者发声](https://www.blog.kurohicncr.top/Article/details/41678958.shtml)
-- 2026-06-30 02:46 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/40638.shtml)
-- 2026-06-30 03:03 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.kurohicncr.top/Article/details/8250930883.shtml)
-- 2026-06-30 02:38 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/28395690467.shtml)
-- 2026-06-30 02:38 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/15783219.shtml)
-- 2026-06-30 03:04 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/69802.shtml)
-- 2026-06-30 02:44 - [对最近的回应与澄清](https://www.share.minike.top/Article/details/858257.shtml)
-- 2026-06-30 02:54 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/543579834.shtml)
-- 2026-06-30 03:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://www.share.minike.top/Article/details/714410348351.shtml)
-- 2026-06-30 02:59 - [赵今麦电影开端客串路透](http://www.share.kurohicncr.top/Article/details/1667277.shtml)
-- 2026-06-30 02:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.blog.minike.top/Article/details/1230304.shtml)
+- 2026-06-30 02:59 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/024737676540.shtml)
+- 2026-06-30 03:11 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/499555147.shtml)
+- 2026-06-30 02:58 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/82964.shtml)
+- 2026-06-30 02:54 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/89137.shtml)
+- 2026-06-30 03:02 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/51893143.shtml)
+- 2026-06-30 02:50 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.blog.minike.top/Article/details/2992686161.shtml)
+- 2026-06-30 02:49 - [男子身高一米八二仍做断骨增高](https://www.blog.kurohicncr.top/Article/details/822647.shtml)
+- 2026-06-30 02:49 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/6430444388.shtml)
+- 2026-06-30 02:50 - [大货车掉落螺丝扎进骑手护目镜](http://www.share.minike.top/Article/details/4709398380.shtml)
+- 2026-06-30 02:53 - [欧洲人高温天为啥用不了空调](http://www.blog.kurohicncr.top/Article/details/173567.shtml)
+- 2026-06-30 02:58 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.share.minike.top/Article/details/5231711.shtml)
+- 2026-06-30 02:55 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/8080887.shtml)
+- 2026-06-30 02:48 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/2604517.shtml)
+- 2026-06-30 02:56 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/39430383.shtml)
+- 2026-06-30 02:45 - [武汉西安站在了3小时临界线门槛上](http://www.share.minike.top/Article/details/7903456223.shtml)

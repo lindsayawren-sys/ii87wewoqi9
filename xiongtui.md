@@ -1,45 +1,61 @@
-# 俄罗斯总统普京抵达北京开启访华行程
+# 一季度净赚超207亿元！“宁王”，最新发布
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 00:11 来源：央视网 责任编辑：【韦俊龙】
+4月15日晚，A股“宁王”宁德时代（300750）一季报出炉，并公告拟设立全资子公司保障上游原材料供应安全。 2026年第一季度，宁德时代共实现营业收入1291.31亿元，同比增长52.45%，实现归母净利润207.38亿元，同比增长48.52%；基本每股收益4.58元，上年同期为3.18元，同比上涨44.03%，经营现金流净额与上年同期基本持平。 宁德时代表示，报告期内营收增
 
 ## 正文
 
-发布时间：2026年05月20日 00:11 来源：央视网 责任编辑：【韦俊龙】
+4月15日晚，A股“宁王”宁德时代（300750）一季报出炉，并公告拟设立全资子公司保障上游原材料供应安全。
+
+2026年第一季度，宁德时代共实现营业收入1291.31亿元，同比增长52.45%，实现归母净利润207.38亿元，同比增长48.52%；基本每股收益4.58元，上年同期为3.18元，同比上涨44.03%，经营现金流净额与上年同期基本持平。
+
+宁德时代表示，报告期内营收增长主要因主营业务持续增长。
+
+值得一提的是，报告期内，由于业务规模扩大导致成本相应增加，宁德时代营业成本同比增长51.63%，同时因持有的外币货币性项目受汇率变动影响产生汇兑损失，宁德时代财务费用同比增长102.72%。
+
+据了解，今年以来，宁德时代所用的碳酸锂等原材料价格呈现明显上涨趋势。
+
+对此，宁德时代近日在接受投资者调研时表示，2025年第四季度以来，尽管面临碳酸锂价格上行的外部环境，但得益于产品价格联动机制、前瞻性供应链布局以及提升长协等多措并举，公司供应链的安全边际与韧性得到显著增强，整体盈利能力依然保持稳健。
+
+“自上一轮碳酸锂价格周期以来，公司与下游客户建立并完善了价格传导机制，目前运行良好。
+
+本轮碳酸锂涨价幅度明显弱于上轮涨价周期，叠加公司在技术创新、产品迭代及降本增效上成效显著，公司自身对成本波动的消化能力增强。
 
 ## 相关推荐
 
-- 2026-06-30 02:46 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqgpj.md)
-- 2026-06-30 02:54 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opafs.md)
-- 2026-06-30 02:41 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
-- 2026-06-30 02:56 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kuaichun.md)
-- 2026-06-30 02:45 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
-- 2026-06-30 03:03 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/byjup.md)
-- 2026-06-30 02:36 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 02:39 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jeowd.md)
-- 2026-06-30 02:37 - [孙兴慜道歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dmprw.md)
-- 2026-06-30 02:47 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbzws.md)
-- 2026-06-30 02:42 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
-- 2026-06-30 02:46 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 02:44 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangkang.md)
+- 2026-06-30 02:48 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 02:47 - [𝗩𝟴 'singasong' Official MV](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbrmy.md)
+- 2026-06-30 02:52 - [张元英是故意的还是不小心的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qyxtv.md)
+- 2026-06-30 02:53 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongzhun.md)
+- 2026-06-30 03:09 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feirj.md)
+- 2026-06-30 02:51 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfuia.md)
+- 2026-06-30 03:08 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nzdgf.md)
+- 2026-06-30 03:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pbgis.md)
+- 2026-06-30 02:43 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 03:01 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nbvjw.md)
+- 2026-06-30 02:45 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/konghang.md)
+- 2026-06-30 03:05 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 03:10 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ghedm.md)
+- 2026-06-30 03:09 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ajvta.md)
+- 2026-06-30 02:48 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mbcoo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:54 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.blog.kurohicncr.top/Article/details/3958484028.shtml)
-- 2026-06-30 02:50 - [81岁老人被男子买光菜回家车祸去世](https://www.blog.minike.top/Article/details/0157830.shtml)
-- 2026-06-30 02:59 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.kurohicncr.top/Article/details/05567552006.shtml)
-- 2026-06-30 02:57 - [找到了10年前跪舔b站的视频](http://www.blog.minike.top/Article/details/550117447815.shtml)
-- 2026-06-30 02:51 - [全球最火存储ETF纳入兆易创新](http://www.share.minike.top/Article/details/8784358.shtml)
-- 2026-06-30 03:01 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.kurohicncr.top/Article/details/14941.shtml)
-- 2026-06-30 02:53 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/5694988.shtml)
-- 2026-06-30 02:52 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/2418035044.shtml)
-- 2026-06-30 02:48 - [孙兴慜道歉](https://www.blog.kurohicncr.top/Article/details/665164.shtml)
-- 2026-06-30 02:48 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/518463.shtml)
-- 2026-06-30 02:40 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.minike.top/Article/details/727615.shtml)
-- 2026-06-30 02:55 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/2232236.shtml)
-- 2026-06-30 03:01 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/93327259308.shtml)
-- 2026-06-30 02:55 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/10767909.shtml)
-- 2026-06-30 02:42 - [同样是装空调差别怎么能这么大](http://www.blog.minike.top/Article/details/014512871.shtml)
+- 2026-06-30 02:51 - [网警提醒4类“高考查分陷阱”](http://www.share.kurohicncr.top/Article/details/3944271.shtml)
+- 2026-06-30 02:50 - [月亮](https://www.share.minike.top/Article/details/34805769.shtml)
+- 2026-06-30 03:03 - [王欣瑜连续4年晋级温网第二轮](https://www.share.kurohicncr.top/Article/details/564869.shtml)
+- 2026-06-30 02:45 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/976269530.shtml)
+- 2026-06-30 02:42 - [电影后室值得看吗](http://www.share.kurohicncr.top/Article/details/19923297141.shtml)
+- 2026-06-30 02:58 - [王欣瑜温网开门红](http://www.blog.minike.top/Article/details/29466880628.shtml)
+- 2026-06-30 02:50 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.minike.top/Article/details/722584.shtml)
+- 2026-06-30 02:50 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.blog.minike.top/Article/details/1492030.shtml)
+- 2026-06-30 02:43 - [未来五年，教育强国这样建设](https://www.share.kurohicncr.top/Article/details/0308561247.shtml)
+- 2026-06-30 03:11 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/46177103577.shtml)
+- 2026-06-30 02:44 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/426185201.shtml)
+- 2026-06-30 02:49 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/65321.shtml)
+- 2026-06-30 03:06 - [真实感受到千香是积压剧了](https://www.share.kurohicncr.top/Article/details/39349.shtml)
+- 2026-06-30 03:06 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.minike.top/Article/details/17936.shtml)
+- 2026-06-30 03:00 - [全网说丑的玫瑰空调卖了5万台](https://www.blog.kurohicncr.top/Article/details/72938.shtml)

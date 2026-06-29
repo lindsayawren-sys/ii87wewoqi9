@@ -1,57 +1,58 @@
-# 长江有色：产能过剩与高库存 20日多晶硅或涨跌有限
+# 沃飞长空冲刺A股 “低空经济第一股”
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-长江有色金属网 2026年5月20日，广州期货交易所多晶硅主力合约延续弱势。截至上午9时16分，主力合约报35，780元/吨，较前一交易日结算价下跌770元，跌幅2.11%。日内开盘于36，220元/吨，最高触及36，220元/吨后一路震荡下行，最低下探至35，605元/吨，成交量14，709手，持仓量48，184手，仓差增加992手。 供给端：产能过剩与高库存构成价格“两座大
+近日，四川沃飞长空科技股份有限公司（简称“沃飞长空”）已在四川证监局办理了辅导备案登记，冲刺科创板。若进展顺利，这家背靠吉利控股集团的公司有望摘得A股“eVTOL第一股”。 在此之前，全球eVTOL龙头亿航智能（EH.O）已率先在美股纳斯达克敲钟，而沃飞长空的入局，标志着中国低空经济赛道有望正式进入资本兑现期。 低空经济作为新兴产业尚未普遍进入盈利期。去年6月，中国证监会发布意
 
 ## 正文
 
-长江有色金属网 2026年5月20日，广州期货交易所多晶硅主力合约延续弱势。
+近日，四川沃飞长空科技股份有限公司（简称“沃飞长空”）已在四川证监局办理了辅导备案登记，冲刺科创板。
 
-截至上午9时16分，主力合约报35，780元/吨，较前一交易日结算价下跌770元，跌幅2.11%。
+若进展顺利，这家背靠吉利控股集团的公司有望摘得A股“eVTOL第一股”。
 
-日内开盘于36，220元/吨，最高触及36，220元/吨后一路震荡下行，最低下探至35，605元/吨，成交量14，709手，持仓量48，184手，仓差增加992手。
+在此之前，全球eVTOL龙头亿航智能（EH.O）已率先在美股纳斯达克敲钟，而沃飞长空的入局，标志着中国低空经济赛道有望正式进入资本兑现期。
 
-供给端：产能过剩与高库存构成价格“两座大山” 当前压制多晶硅价格的核心矛盾在于严重的供给过剩与高企的社会库存。
+低空经济作为新兴产业尚未普遍进入盈利期。
 
-尽管价格已深度跌破成本线，迫使部分企业计划减产，但前期积累的庞大库存和仍在释放的产能，使得供应收缩的速度远不及需求下滑的幅度。
+去年6月，中国证监会发布意见，重启并扩容未盈利企业第五套上市标准至低空经济领域。
 
-据行业数据，当月多晶硅排产预计环比有所增加。
+这为低空经济公司在国内上市留下了政策窗口。
 
-从静态库存看，厂价库存从高位略有回落但整体仍偏高；期货仓单持续流入注册，已增至一定规模。
+然而，入场券从来不是免费的午餐。
 
-更严峻的是，全球供应格局正在重塑。
+尽管政策窗口已开，但针对低空经济的具体上市指引尚未完全落地。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/songqia.md)
-- 2026-06-30 02:36 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 02:43 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flgfe.md)
-- 2026-06-30 03:02 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clukz.md)
-- 2026-06-30 02:44 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fagan.md)
-- 2026-06-30 02:45 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laibo.md)
-- 2026-06-30 02:54 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
-- 2026-06-30 02:42 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nentx.md)
-- 2026-06-30 02:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 02:41 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txqhc.md)
-- 2026-06-30 02:51 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hswte.md)
+- 2026-06-30 03:11 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 03:09 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 02:45 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jllrk.md)
+- 2026-06-30 03:11 - [恋与深空 日服](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 02:50 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pminl.md)
+- 2026-06-30 03:07 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/daury.md)
+- 2026-06-30 02:49 - [法国小学众筹装空调后市长下令拆除](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
+- 2026-06-30 02:57 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuezt.md)
+- 2026-06-30 02:53 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/prafc.md)
+- 2026-06-30 03:07 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
+- 2026-06-30 02:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
+- 2026-06-30 02:42 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/4584731688.shtml)
-- 2026-06-30 02:41 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/8282856690.shtml)
-- 2026-06-30 02:51 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/672184.shtml)
-- 2026-06-30 02:45 - [在没有空调的巴黎感受世纪热浪](http://www.blog.kurohicncr.top/Article/details/567824.shtml)
-- 2026-06-30 02:50 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/586964023330.shtml)
-- 2026-06-30 02:40 - [美人鱼](http://www.share.minike.top/Article/details/423590.shtml)
-- 2026-06-30 03:03 - [有酒店推行24小时退房制](http://www.share.minike.top/Article/details/043507.shtml)
-- 2026-06-30 02:45 - [强制戒网瘾起诉父亲](http://www.share.kurohicncr.top/Article/details/41475548431.shtml)
-- 2026-06-30 02:37 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/212333427.shtml)
-- 2026-06-30 02:59 - [巴西队与日本队将展开正面对决](https://www.blog.minike.top/Article/details/54779260023.shtml)
-- 2026-06-30 02:40 - [日本拟明年正式启动海底稀土开发计划](https://www.share.kurohicncr.top/Article/details/526992464.shtml)
-- 2026-06-30 02:43 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/27235552.shtml)
-- 2026-06-30 02:54 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/2683618.shtml)
-- 2026-06-30 02:56 - [世界杯](https://www.share.kurohicncr.top/Article/details/96608.shtml)
-- 2026-06-30 02:44 - [问心2金世佳追妻火葬场](http://www.blog.kurohicncr.top/Article/details/464878.shtml)
+- 2026-06-30 03:08 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/325891.shtml)
+- 2026-06-30 03:00 - [田曦薇没招了](http://www.blog.minike.top/Article/details/66398.shtml)
+- 2026-06-30 03:08 - [内马尔替补](https://www.blog.minike.top/Article/details/868492817.shtml)
+- 2026-06-30 03:08 - [韩乔生吐槽世界杯扩军](https://www.blog.minike.top/Article/details/02308.shtml)
+- 2026-06-30 03:11 - [日本反击率先破门](http://www.blog.minike.top/Article/details/3504495.shtml)
+- 2026-06-30 02:57 - [张元英是故意的还是不小心的](https://www.blog.minike.top/Article/details/010249.shtml)
+- 2026-06-30 02:54 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/290491.shtml)
+- 2026-06-30 02:45 - [马航MH370传来最新消息](http://www.share.kurohicncr.top/Article/details/7653874418.shtml)
+- 2026-06-30 02:43 - [巴西vs日本首发名单](http://www.share.kurohicncr.top/Article/details/02466474802.shtml)
+- 2026-06-30 02:42 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.share.minike.top/Article/details/691314.shtml)
+- 2026-06-30 02:54 - [阿根廷世界杯的占卜玄学有多离谱](https://www.share.minike.top/Article/details/029079762.shtml)
+- 2026-06-30 02:55 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/447748462.shtml)
+- 2026-06-30 02:55 - [日本硬刚巴西谁能赢](http://www.share.minike.top/Article/details/88402.shtml)
+- 2026-06-30 02:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/3645409.shtml)
+- 2026-06-30 02:58 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/15968038594.shtml)

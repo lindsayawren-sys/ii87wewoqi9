@@ -1,57 +1,60 @@
-# 被追着索赔570亿！别让普华永道跑了
+# 程野谈喜剧创新：向生活取经，用科技“上菜”
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！被追着索赔570亿！别让普华永道跑了 || 深度 //// 普华永道国际第一个跳出来喊冤，说自己只是全球网络的“统筹协调者”，并未参与恒大在2017至2020年期间的审计工作。 作者：老六 无辜牵连，还是罪有应得？ 570亿索赔 先来一个问题： 假如你是恒大的债主，借出去的钱打了水漂，公司已经进入清盘程序，
+中新网成都4月15日电 (王利文)“喜剧的生命力，得从民众的日常里找。”4月15日，辽宁省新联会副会长、喜剧演员程野在成都参加第十三届中国网络视听大会“寻美中国·新大众文艺视听新声力”论坛期间，接受中新网专访时分享创作心得。这位曾因《欢乐喜剧人》《同桌的你》《疯狂粉丝团》等作品广受观众喜爱的喜剧人认为，优秀的喜剧创作，必须扎根现实生活，同时借力新技术。 从传统二人转舞台走向更广
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网成都4月15日电 (王利文)“喜剧的生命力，得从民众的日常里找。
 
-被追着索赔570亿！
+”4月15日，辽宁省新联会副会长、喜剧演员程野在成都参加第十三届中国网络视听大会“寻美中国·新大众文艺视听新声力”论坛期间，接受中新网专访时分享创作心得。
 
-别让普华永道跑了 || 深度 //// 普华永道国际第一个跳出来喊冤，说自己只是全球网络的“统筹协调者”，并未参与恒大在2017至2020年期间的审计工作。
+这位曾因《欢乐喜剧人》《同桌的你》《疯狂粉丝团》等作品广受观众喜爱的喜剧人认为，优秀的喜剧创作，必须扎根现实生活，同时借力新技术。
 
-作者：老六 无辜牵连，还是罪有应得？
+从传统二人转舞台走向更广阔的影视与网络空间，程野对喜剧艺术的“守正”与“创新”体会深刻。
 
-570亿索赔 先来一个问题： 假如你是恒大的债主，借出去的钱打了水漂，公司已经进入清盘程序，资不抵债，你会找谁算账？
+“时代在发展，喜剧必须要有新变化，核心就是走进人心。
 
-告许家印？
+”他表示，作品唯有多关注民众日常喜闻乐见的事，才能拥有广泛而持久的生命力。
 
-当然告了。
+谈及传统技艺与当代喜剧形式的关系，程野以二人转为例，消解了“传统即陈旧”的刻板印象。
 
-2024年，恒大清盘人已经把许家印、他前妻丁玉梅、前总裁夏海钧等人告上法庭，成功追讨了约60亿美元的不当股息与酬金，还冻结了他们全球范围内600亿港元的资产。
+“现在流行的脱口秀，其核心技巧就类似于二人转表演中的‘说口’。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
-- 2026-06-30 02:58 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hyaua.md)
-- 2026-06-30 02:38 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
-- 2026-06-30 02:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenmu.md)
-- 2026-06-30 02:52 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kffxz.md)
-- 2026-06-30 02:56 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/svxhw.md)
-- 2026-06-30 02:41 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
-- 2026-06-30 03:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qazkl.md)
-- 2026-06-30 02:55 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bkchn.md)
-- 2026-06-30 02:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tmnnq.md)
-- 2026-06-30 02:44 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/issfy.md)
+- 2026-06-30 03:00 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
+- 2026-06-30 02:48 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
+- 2026-06-30 03:00 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
+- 2026-06-30 03:04 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 02:49 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jhifm.md)
+- 2026-06-30 02:44 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanmeng.md)
+- 2026-06-30 02:54 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 02:43 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hhwtu.md)
+- 2026-06-30 02:58 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/llaao.md)
+- 2026-06-30 03:05 - [【全网首杀】涤墨作战7人870分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/umekz.md)
+- 2026-06-30 02:58 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
+- 2026-06-30 02:53 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 02:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 02:51 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houye.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:51 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/764243306.shtml)
-- 2026-06-30 03:02 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/47053668177.shtml)
-- 2026-06-30 02:50 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/807139567657.shtml)
-- 2026-06-30 02:40 - [如何评价综艺《脱口秀和Ta的朋友们》第三季第一期？](https://www.share.kurohicncr.top/Article/details/54879656936.shtml)
-- 2026-06-30 03:02 - [博世们还在犹豫 美的们已经卖断货](https://www.blog.kurohicncr.top/Article/details/3628661.shtml)
-- 2026-06-30 02:40 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/02295065.shtml)
-- 2026-06-30 02:36 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/84126095.shtml)
-- 2026-06-30 02:58 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.kurohicncr.top/Article/details/170385.shtml)
-- 2026-06-30 02:55 - [法媒点赞分享中国小区降温方案](http://www.share.kurohicncr.top/Article/details/9353483867.shtml)
-- 2026-06-30 02:57 - [中国气象局启动气象灾害四级应急响应](https://www.share.minike.top/Article/details/867220742.shtml)
-- 2026-06-30 02:59 - [TOP不是Prada全球普通人](https://www.share.kurohicncr.top/Article/details/325769.shtml)
-- 2026-06-30 02:41 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/51873971.shtml)
-- 2026-06-30 02:41 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/085500281757.shtml)
-- 2026-06-30 02:45 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/078775965.shtml)
-- 2026-06-30 02:53 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/9719543025.shtml)
+- 2026-06-30 03:02 - [“手机痴呆症”盯上中青年](http://www.share.kurohicncr.top/Article/details/40234.shtml)
+- 2026-06-30 03:02 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/25169727320.shtml)
+- 2026-06-30 02:48 - [啊啊啊](https://www.share.minike.top/Article/details/2087100820.shtml)
+- 2026-06-30 02:55 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/27144.shtml)
+- 2026-06-30 03:03 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/29538281208.shtml)
+- 2026-06-30 02:51 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.kurohicncr.top/Article/details/095436786.shtml)
+- 2026-06-30 02:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/0034714060.shtml)
+- 2026-06-30 03:11 - [明星大侦探第一季](http://www.blog.kurohicncr.top/Article/details/7291922.shtml)
+- 2026-06-30 03:09 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/28230784.shtml)
+- 2026-06-30 03:03 - [电影《后室》讲了一个什么故事？](https://www.blog.minike.top/Article/details/54511038953.shtml)
+- 2026-06-30 02:59 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/95254951878.shtml)
+- 2026-06-30 03:07 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/485956963174.shtml)
+- 2026-06-30 02:47 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/882817.shtml)
+- 2026-06-30 02:56 - [法国部长说装空调没用](https://www.blog.kurohicncr.top/Article/details/116815023.shtml)
+- 2026-06-30 02:55 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/54260.shtml)

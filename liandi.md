@@ -1,54 +1,46 @@
-# 浦发银行：龚德雄董事的任职资格获核准
+# 创新药概念股早盘全线上涨 劲方医药-B涨超7%信达生物上涨4%
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-5月19日金融一线消息，浦发银行公告，近日，公司收到《国家金融监督管理总局关于龚德雄浦发银行董事任职资格的批复》（金复〔2026〕262号），国家金融监督管理总局已核准龚德雄先生公司董事的任职资格。根据相关规定，自2026年5月18日起龚德雄先生就任公司董事。 简历显示，龚德雄，男，1969年10月出生，中共党员，高级管理人员工商管理硕士，经济师。现任申能（集团）有限公司副总裁
+创新药概念股早盘全线上涨 ，截至发稿，劲方医药-B（02595）上涨7.48%，报49.42港元；信达生物（01801）上涨4%，报89.75港元；恒瑞医药（01276）上涨2.13%，报67.05港元；石药集团（01093）上涨2.07%，报9.35港元。责任编辑：卢昱君
 
 ## 正文
 
-5月19日金融一线消息，浦发银行公告，近日，公司收到《国家金融监督管理总局关于龚德雄浦发银行董事任职资格的批复》（金复〔2026〕262号），国家金融监督管理总局已核准龚德雄先生公司董事的任职资格。
+创新药概念股早盘全线上涨 ，截至发稿，劲方医药-B（02595）上涨7.48%，报49.42港元；信达生物（01801）上涨4%，报89.75港元；恒瑞医药（01276）上涨2.13%，报67.05港元；石药集团（01093）上涨2.07%，报9.35港元。
 
-根据相关规定，自2026年5月18日起龚德雄先生就任公司董事。
-
-简历显示，龚德雄，男，1969年10月出生，中共党员，高级管理人员工商管理硕士，经济师。
-
-现任申能（集团）有限公司副总裁，申能财产保险股份有限公司董事长，申能投资管理有限公司执行董事、总经理，上海国际集团有限公司总裁、总经理。
-
-责任编辑：李琳琳
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gzbhi.md)
-- 2026-06-30 02:38 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenzhuai.md)
-- 2026-06-30 02:45 - [第一炉香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lyqms.md)
-- 2026-06-30 02:47 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shuocong.md)
-- 2026-06-30 03:05 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
-- 2026-06-30 02:47 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dofay.md)
-- 2026-06-30 02:48 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwkjq.md)
-- 2026-06-30 03:00 - [2021江苏卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
-- 2026-06-30 02:52 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsknm.md)
-- 2026-06-30 02:45 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gankao.md)
-- 2026-06-30 02:46 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
-- 2026-06-30 02:40 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 02:55 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
-- 2026-06-30 02:58 - [仙游一峡谷5人身亡知情者发声](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/onqid.md)
+- 2026-06-30 02:43 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 03:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tzblr.md)
+- 2026-06-30 02:57 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tjfyq.md)
+- 2026-06-30 02:58 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sniyz.md)
+- 2026-06-30 03:03 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
+- 2026-06-30 02:49 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 03:01 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knfmc.md)
+- 2026-06-30 02:56 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 02:53 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoxi.md)
+- 2026-06-30 02:53 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jdkrh.md)
+- 2026-06-30 02:59 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 02:49 - [中国再对日本出重拳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guaimian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:58 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/1847224407.shtml)
-- 2026-06-30 02:43 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/39114.shtml)
-- 2026-06-30 03:01 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/33914807.shtml)
-- 2026-06-30 03:01 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/0185650.shtml)
-- 2026-06-30 03:01 - [张元英是故意的还是不小心的](http://www.blog.kurohicncr.top/Article/details/87208639559.shtml)
-- 2026-06-30 02:39 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/22924.shtml)
-- 2026-06-30 02:44 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.kurohicncr.top/Article/details/3226902.shtml)
-- 2026-06-30 02:42 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/710694153243.shtml)
-- 2026-06-30 02:45 - [世界杯巴西vs日本前瞻](https://www.blog.minike.top/Article/details/98825596079.shtml)
-- 2026-06-30 02:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](http://www.share.kurohicncr.top/Article/details/688367.shtml)
-- 2026-06-30 02:55 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/978338193.shtml)
-- 2026-06-30 02:44 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.blog.kurohicncr.top/Article/details/94780.shtml)
-- 2026-06-30 03:05 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/26582.shtml)
-- 2026-06-30 02:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/11315664175.shtml)
-- 2026-06-30 02:40 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/143598.shtml)
+- 2026-06-30 02:56 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/82078265.shtml)
+- 2026-06-30 03:05 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.kurohicncr.top/Article/details/35634028.shtml)
+- 2026-06-30 03:06 - [存储三巨头遭遇集体诉讼](http://www.share.minike.top/Article/details/915565.shtml)
+- 2026-06-30 03:03 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/43633409976.shtml)
+- 2026-06-30 03:04 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/59440904.shtml)
+- 2026-06-30 02:47 - [世界杯巴西vs日本前瞻](https://www.share.minike.top/Article/details/31400.shtml)
+- 2026-06-30 02:51 - [上市央企地产商 两年换了三任董事长](https://www.share.kurohicncr.top/Article/details/2418346728.shtml)
+- 2026-06-30 03:07 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](http://www.blog.kurohicncr.top/Article/details/92042233.shtml)
+- 2026-06-30 03:10 - [张凌赫 客串](http://www.share.kurohicncr.top/Article/details/1944803.shtml)
+- 2026-06-30 02:56 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/9856987.shtml)
+- 2026-06-30 03:07 - [阿娇瘦了10斤](https://www.blog.kurohicncr.top/Article/details/957254.shtml)
+- 2026-06-30 02:44 - [韩国队世界杯惨遭淘汰，近 4 次参加世界杯 3次小组出局，这是韩国队真实水平吗？其当前主要问题是什么？](https://www.share.kurohicncr.top/Article/details/05688616.shtml)
+- 2026-06-30 03:02 - [对最近的回应与澄清](http://www.share.minike.top/Article/details/157913493755.shtml)
+- 2026-06-30 03:06 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.minike.top/Article/details/726496036283.shtml)
+- 2026-06-30 02:53 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/68523.shtml)

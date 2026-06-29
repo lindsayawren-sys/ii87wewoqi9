@@ -1,59 +1,58 @@
-# 中加基金固收周报︱央行态度收敛但资金面变化有限，债市震荡偏强
+# 如何消除对未知的恐惧？米哈游刘伟分享马斯克式方法：倒推、量化目标
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-一级市场回顾 上周一级市场国债、地方债和政策性金融债发行规模分别为4750亿、1459亿和1370亿，净融资额为817亿、1117亿和-1285亿。金融债（不含政金债）共计发行规模2680亿，净融资额1509亿。非金信用债共计发行规模824亿，净融资额-86亿。转债暂无新券发行。 二级市场回顾 基本面数据略超预期，但资金充裕下债市收益率多数下行。主要影响因素包括：央行货政报告、
+4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。 谈及如何对抗AI时代的焦虑，刘伟建议大学生们，首先，先找到一件自己喜欢做的事，不管是做科研，还是去创业都可以。但不要过分去追求一个显而易见的功利结果，因为这件事完全不可知。“如果你有一件自己想做的事，你就不会焦虑，你就能穿越周期。” 其次，他指出，有了目标之后，最重要的事情，就是马上去做。“大部分人的焦虑，都来自于
 
 ## 正文
 
-一级市场回顾 上周一级市场国债、地方债和政策性金融债发行规模分别为4750亿、1459亿和1370亿，净融资额为817亿、1117亿和-1285亿。
+4月13日，米哈游联合创始人、总裁刘伟在上海交通大学发表演讲。
 
-金融债（不含政金债）共计发行规模2680亿，净融资额1509亿。
+谈及如何对抗AI时代的焦虑，刘伟建议大学生们，首先，先找到一件自己喜欢做的事，不管是做科研，还是去创业都可以。
 
-非金信用债共计发行规模824亿，净融资额-86亿。
+但不要过分去追求一个显而易见的功利结果，因为这件事完全不可知。
 
-转债暂无新券发行。
+“如果你有一件自己想做的事，你就不会焦虑，你就能穿越周期。
 
-二级市场回顾 基本面数据略超预期，但资金充裕下债市收益率多数下行。
+” 其次，他指出，有了目标之后，最重要的事情，就是马上去做。
 
-主要影响因素包括：央行货政报告、资金面、海外局势。
+“大部分人的焦虑，都来自于想的太多，而行动太少。
 
-流动性跟踪 央行货政报告边际态度收敛，但资金面维持宽裕。
+” 如何才能提升行动力？
 
-最终R001和R007分别较前周上行3.6BP和下行1.1BP。
+刘伟强调，做一件事最重要的不是先学会，而是先去做。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 02:52 - [日本领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dpfdd.md)
-- 2026-06-30 02:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 03:02 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
-- 2026-06-30 02:56 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
-- 2026-06-30 02:45 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/hewang.md)
-- 2026-06-30 02:50 - [小勒布伦WTT美国大满贯开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 02:54 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zege.md)
-- 2026-06-30 03:01 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 03:02 - [DeepSeek启动成立来最大规模招聘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 02:39 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 03:04 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/orniq.md)
-- 2026-06-30 02:48 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/longhu.md)
+- 2026-06-30 02:52 - [沉睡花园](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
+- 2026-06-30 03:01 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxwsb.md)
+- 2026-06-30 03:08 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 03:10 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hlgiq.md)
+- 2026-06-30 02:53 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 03:10 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/efeqf.md)
+- 2026-06-30 02:43 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
+- 2026-06-30 03:04 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
+- 2026-06-30 02:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pixpe.md)
+- 2026-06-30 03:11 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 02:43 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 03:08 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/utwmb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [我用3千多根木棍做了张分压点阵床](http://www.blog.minike.top/Article/details/3723244235.shtml)
-- 2026-06-30 02:36 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/136389725597.shtml)
-- 2026-06-30 02:58 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/335270452.shtml)
-- 2026-06-30 02:58 - [巴西队与日本队将展开正面对决](https://www.share.minike.top/Article/details/420495.shtml)
-- 2026-06-30 03:00 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/9481344285.shtml)
-- 2026-06-30 02:59 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/01108204731.shtml)
-- 2026-06-30 02:48 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.minike.top/Article/details/6698495.shtml)
-- 2026-06-30 02:55 - [“柠檬茶能换怀表？”](http://www.share.kurohicncr.top/Article/details/995740283.shtml)
-- 2026-06-30 02:54 - [张帅晋级温网次轮](https://www.blog.kurohicncr.top/Article/details/40597.shtml)
-- 2026-06-30 02:40 - [沪指深V回升站稳4000点](http://www.blog.kurohicncr.top/Article/details/6077504590.shtml)
-- 2026-06-30 02:39 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/277755.shtml)
-- 2026-06-30 02:36 - [《我落泪情绪零碎》](http://www.share.minike.top/Article/details/9475852302.shtml)
-- 2026-06-30 02:44 - [恋与深空将调整引狼入室文本](http://www.share.kurohicncr.top/Article/details/2950547586.shtml)
-- 2026-06-30 02:52 - [巴西VS日本前瞻](https://www.share.kurohicncr.top/Article/details/8833001921.shtml)
-- 2026-06-30 02:46 - [王楚钦谈表演球](https://www.blog.minike.top/Article/details/1239638.shtml)
+- 2026-06-30 02:44 - [刘宇宁东方风云榜人气](https://www.blog.kurohicncr.top/Article/details/650721769.shtml)
+- 2026-06-30 02:45 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/03938.shtml)
+- 2026-06-30 03:06 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/168962413663.shtml)
+- 2026-06-30 02:45 - [天道](http://www.blog.kurohicncr.top/Article/details/00659087860.shtml)
+- 2026-06-30 03:09 - [马航MH370传来最新消息](https://www.share.kurohicncr.top/Article/details/5943170.shtml)
+- 2026-06-30 02:55 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/1557696695.shtml)
+- 2026-06-30 02:50 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/7474348831.shtml)
+- 2026-06-30 02:44 - [孙兴慜发长文致歉](https://www.blog.kurohicncr.top/Article/details/958552773.shtml)
+- 2026-06-30 02:47 - [千万不要随便扣肚脐](http://www.share.kurohicncr.top/Article/details/55583.shtml)
+- 2026-06-30 02:49 - [恋与深空 日服](https://www.share.minike.top/Article/details/9835980236.shtml)
+- 2026-06-30 03:03 - [一生一世](https://www.share.kurohicncr.top/Article/details/15559989.shtml)
+- 2026-06-30 02:42 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/305027828.shtml)
+- 2026-06-30 03:05 - [法国部长说装空调没用](https://www.blog.minike.top/Article/details/1776095454.shtml)
+- 2026-06-30 03:08 - [女子称留了30年长发被剪索赔2.5万](https://www.blog.minike.top/Article/details/1742546.shtml)
+- 2026-06-30 03:04 - [千与千寻](http://www.share.minike.top/Article/details/565030991.shtml)

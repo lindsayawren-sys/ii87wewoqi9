@@ -1,56 +1,58 @@
-# 刘碧波：科技金融需以理性、聪明、耐心资本，赋能新质生产力发展
+# 中俄人才合作新平台在上合示范区发布
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。 “科技金融赋能新质生产力”主题论坛上，清华大学五道口金融学院院长助理、科创金融研究中心主任刘碧波表示，新质生产力有三个特征：高科技、高质量、高能效。科技金融要
+中新社青岛4月14日电 (王禹)2026中国—俄罗斯产教融合发展会议暨中俄人才信息数据平台发布会14日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)举办，中国—上海合作组织经贸学院现场正式发布中俄人才信息数据平台。 据介绍，中俄人才信息数据平台将整合中俄双方教育、产业、人才等信息资源，通过智能化匹配实现人才供需精准对接与校企高效合作，有效破除跨境人才对接壁垒，提升
 
 ## 正文
 
-专题：2026清华五道口全球金融论坛丨朱民、诺奖得主等重磅嘉宾出席 5月19日金融一线消息，2026清华五道口全球金融论坛5月17日-20日在四川成都举办。
+中新社青岛4月14日电 (王禹)2026中国—俄罗斯产教融合发展会议暨中俄人才信息数据平台发布会14日在中国—上海合作组织地方经贸合作示范区(简称“上合示范区”)举办，中国—上海合作组织经贸学院现场正式发布中俄人才信息数据平台。
 
-本次论坛主题为“变局下的全球金融治理：新挑战、新机遇、新发展”。
+据介绍，中俄人才信息数据平台将整合中俄双方教育、产业、人才等信息资源，通过智能化匹配实现人才供需精准对接与校企高效合作，有效破除跨境人才对接壁垒，提升协同育人效能，为深化中俄产教融合、服务区域经贸高质量发展提供有力支撑。
 
-“科技金融赋能新质生产力”主题论坛上，清华大学五道口金融学院院长助理、科创金融研究中心主任刘碧波表示，新质生产力有三个特征：高科技、高质量、高能效。
+圣彼得堡彼得大帝理工大学、南乌拉尔国立大学、山东科技大学等高校和机构获颁中俄人才信息数据平台首批合作伙伴证书。
 
-科技金融要服务到基础创新、科技成果转化。
+中俄人才信息数据平台将联动两国高校优化人才培养模式，促进课程设置与产业需求对接，形成“产教融合、校企联动”的可持续生态。
 
-这里有几个核心问题：一是技术要转移、有金融支持，要能估值、交易、处置；二是何为耐心资本，谁是高风险承受能力的资本；三是如何把产业需求变成技术问题，实现技术与产业匹配；四是科技、产业、金融政策如何协同一致。
+圣彼得堡彼得大帝理工大学副校长德米特里·弗拉基米罗维奇表示，俄中两国经贸联系日益紧密，人文交流持续深化，唯有坚持互学互鉴、经验共享、知识互通，才能应对时代挑战、实现共同发展。
 
-刘碧波表示，科技金融需要的不只是耐心资本，而是三类资本：第一，理性资本，懂政策、知边界、不跟风；第二，聪明资本，懂技术、懂产业、懂知识产权；第三，耐心资本，做到风险匹配、期限匹配、有流动性支撑，能长期陪伴。
+上合示范区管委会副主任郝国新表示，近年来，该示范区不断推动中俄两国高校和企业开展产教协同对接，期待中俄人才信息数据平台切实发挥桥梁作用，让人才流动成为中俄交流合作的“赋能器”，为两国开展多层次、宽领域合作注入人才新动能。
 
-在刘碧波看来，耐心资本需要三个条件：一是风险匹配，资金承受能力与项目风险一致；二是期限匹配，长期资金支持长期项目；三是提供充分流动性，完善S基金、并购、技术要素市场，方便退出。
+活动现场，多项中俄教育合作项目集中签约落地，西伯利亚联邦大学(中国)招生中心同步揭牌成立。
 
-责任编辑：张文
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 02:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sgdnk.md)
-- 2026-06-30 02:38 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbtup.md)
-- 2026-06-30 03:02 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fhwsc.md)
-- 2026-06-30 02:40 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuanzang.md)
-- 2026-06-30 02:41 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/digen.md)
-- 2026-06-30 02:57 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bgckw.md)
-- 2026-06-30 02:46 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hlgiq.md)
-- 2026-06-30 02:39 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 02:53 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 03:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/arijx.md)
+- 2026-06-30 02:53 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gglto.md)
+- 2026-06-30 02:53 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/svolf.md)
+- 2026-06-30 02:49 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penghong.md)
+- 2026-06-30 03:10 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fvumi.md)
+- 2026-06-30 03:11 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 03:11 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
+- 2026-06-30 02:47 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiuchen.md)
+- 2026-06-30 03:00 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ievbs.md)
+- 2026-06-30 03:11 - [猛龙快船交易或将达成](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/menxi.md)
+- 2026-06-30 03:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 02:42 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhucan.md)
+- 2026-06-30 02:42 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/merhz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [浙江队将获百万元世界杯补偿](https://www.share.kurohicncr.top/Article/details/944731.shtml)
-- 2026-06-30 02:50 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/447459617.shtml)
-- 2026-06-30 02:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.blog.kurohicncr.top/Article/details/2045850077.shtml)
-- 2026-06-30 02:37 - [流金岁月](http://www.share.minike.top/Article/details/660794041.shtml)
-- 2026-06-30 02:45 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.kurohicncr.top/Article/details/53162633.shtml)
-- 2026-06-30 02:45 - [国内最大沙漠发洪水意味着什么](https://www.share.kurohicncr.top/Article/details/419576055.shtml)
-- 2026-06-30 02:36 - [院士：太空轨道必须抢](http://www.share.kurohicncr.top/Article/details/1497317.shtml)
-- 2026-06-30 02:59 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/35604061070.shtml)
-- 2026-06-30 03:01 - [恋与深空需正视价值观偏差](http://www.share.kurohicncr.top/Article/details/55827973.shtml)
-- 2026-06-30 02:41 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/5980044.shtml)
-- 2026-06-30 02:49 - [强制戒网瘾起诉父亲](http://www.blog.kurohicncr.top/Article/details/19904448.shtml)
-- 2026-06-30 02:37 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/324543676376.shtml)
-- 2026-06-30 02:36 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/30898.shtml)
-- 2026-06-30 02:45 - [日本进球](http://www.blog.kurohicncr.top/Article/details/338733.shtml)
-- 2026-06-30 02:41 - [斗破苍穹](https://www.share.minike.top/Article/details/112230.shtml)
+- 2026-06-30 02:56 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/3419429.shtml)
+- 2026-06-30 03:06 - [日本半场1比0领先巴西](http://www.share.minike.top/Article/details/529791519.shtml)
+- 2026-06-30 02:48 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.kurohicncr.top/Article/details/386636855466.shtml)
+- 2026-06-30 03:06 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.share.kurohicncr.top/Article/details/615329.shtml)
+- 2026-06-30 02:49 - [健全中小学教师工资长效联动机制](https://www.blog.kurohicncr.top/Article/details/45387946.shtml)
+- 2026-06-30 02:51 - [“柠檬茶能换怀表？”](https://www.share.minike.top/Article/details/61306264172.shtml)
+- 2026-06-30 03:10 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.kurohicncr.top/Article/details/216867040.shtml)
+- 2026-06-30 03:10 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/199376.shtml)
+- 2026-06-30 03:11 - [美人鱼](http://www.share.kurohicncr.top/Article/details/788551.shtml)
+- 2026-06-30 03:04 - [演员都来上音综的原因](http://www.blog.minike.top/Article/details/82210.shtml)
+- 2026-06-30 02:46 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/5701531155.shtml)
+- 2026-06-30 02:46 - [鉴定师的失败救赎](http://www.blog.kurohicncr.top/Article/details/922717901.shtml)
+- 2026-06-30 02:52 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/85121628.shtml)
+- 2026-06-30 03:02 - [千与千寻](https://www.share.minike.top/Article/details/096526.shtml)
+- 2026-06-30 02:58 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.blog.kurohicncr.top/Article/details/72406889.shtml)

@@ -1,58 +1,57 @@
-# “旅居云南”小程序发布 整合逾120个旅居目的地资源
+# 国务院办公厅印发《关于深化投资审批制度改革的意见》
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新网丽江5月19日电 (黄兴鸿)19日，2026年“5·19中国旅游日”云南省分会场活动启动仪式在丽江市束河古镇举行。当日，发布“旅居云南”小程序体验版及10条精品旅游线路等。 地处中国西南边陲的云南，是游客青睐的旅游目的地之一。明代地理学家、旅行家、文学家徐霞客曾畅游中国，并在云南游历一年零九个月，其60余万字的《徐霞客游记》中，《滇游日记》篇幅约占全书40%。 近年来，在
+国务院办公厅关于深化投资审批 制度改革的意见 国办发〔2026〕13号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：为进一步优化投资审批权限配置、提升投资服务便利度、强化投资项目全过程监管，着力扩大有效投资，经国务院同意，现就深化投资审批制度改革提出以下意见。 一、优化政府投资项目审批权限配置 按照权责一致、监督有效并与事权相匹配的原则，优化政府投资项目审批权限，厘
 
 ## 正文
 
-中新网丽江5月19日电 (黄兴鸿)19日，2026年“5·19中国旅游日”云南省分会场活动启动仪式在丽江市束河古镇举行。
+国务院办公厅关于深化投资审批 制度改革的意见 国办发〔2026〕13号 各省、自治区、直辖市人民政府，国务院各部委、各直属机构：为进一步优化投资审批权限配置、提升投资服务便利度、强化投资项目全过程监管，着力扩大有效投资，经国务院同意，现就深化投资审批制度改革提出以下意见。
 
-当日，发布“旅居云南”小程序体验版及10条精品旅游线路等。
+一、优化政府投资项目审批权限配置 按照权责一致、监督有效并与事权相匹配的原则，优化政府投资项目审批权限，厘清中央政府投资项目审批权限和职责边界。
 
-地处中国西南边陲的云南，是游客青睐的旅游目的地之一。
+各省级政府综合考虑事权层级、项目性质、资金来源、政府投资能力和监管能力等，完善本地区政府投资项目审批权限规定，合理划分省、市、县级项目审批权限。
 
-明代地理学家、旅行家、文学家徐霞客曾畅游中国，并在云南游历一年零九个月，其60余万字的《徐霞客游记》中，《滇游日记》篇幅约占全书40%。
+加强对重点地区和重点领域政府投资项目的提级论证管理，防范地方政府债务风险。
 
-近年来，在云南省大力推动下，“有一种叫云南的生活”成为享誉全国的文旅IP，引领该省文旅从“观光旅游”向“旅居、旅创”升级。
+二、严格政府投资项目审批管理 除党中央、国务院有明确要求或者法律法规有明确规定外，政府投资项目均应严格履行项目建议书、可行性研究报告、初步设计和投资概算审批程序。
 
-据统计，2025年云南接待旅居人数超550万人，有力促进了文旅产业转型、消费市场提振、特色产业发展、居民收入增加、创新创业兴起和各民族交往交流交融，展现出巨大的经济、社会、文化综合效益和旺盛的发展活力。
+规范实行审批管理的项目范围，对应由政府采取直接投资、资本金注入方式投资和实质性承担偿还责任的项目，严禁通过国有企业等以企业投资项目核准或备案形式规避政府投资项目审批。
 
-当日发布的“旅居云南”小程序体验版定位为“云南旅居官方服务平台”，采用“零佣金、多租户、渗触点”的创新模式，以“政府好管、产业能兴、客户易用”为使命，贯通游客、商家、政府三方服务链路，助力云南打造全国旅居发展先行区。
+坚持实事求是、量力而行，强化对项目需求、建设内容、资金筹措方案、运营管理模式等的审核把关。
 
-截至目前，“旅居云南”小程序体验版已整合云南120余个旅居目的地多业态资源，为旅居客提供旅居村查询、管家对接、地道攻略、圈子互动等一站式服务，解决信息杂、决策难、保障弱等痛点。
+完善项目建设标准和投资概算核定标准体系，强化可行性研究报告审批部门对投资概算的核定管理，严格项目概算约束。
 
 ## 相关推荐
 
-- 2026-06-30 02:53 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/krgvl.md)
-- 2026-06-30 02:59 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 02:57 - [女心理师](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 02:56 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/giogi.md)
-- 2026-06-30 02:43 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toukuo.md)
-- 2026-06-30 02:38 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njlik.md)
-- 2026-06-30 02:50 - [辽宁居民楼疑液化气闪爆致3死](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgain.md)
-- 2026-06-30 02:55 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
-- 2026-06-30 03:00 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 02:59 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/orniq.md)
-- 2026-06-30 02:58 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mhsva.md)
-- 2026-06-30 02:59 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 02:53 - [巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ixvrw.md)
+- 2026-06-30 02:53 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tnitj.md)
+- 2026-06-30 02:44 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/guakua.md)
+- 2026-06-30 02:49 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 02:43 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kenwu.md)
+- 2026-06-30 02:48 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 02:57 - [我用3千多根木棍做了张分压点阵床](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 02:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
+- 2026-06-30 02:44 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/skgsf.md)
+- 2026-06-30 02:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 03:09 - [阿根廷世界杯的占卜玄学有多离谱](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/thqmc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:38 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/85180.shtml)
-- 2026-06-30 02:44 - [巴西若输日本将创36年最差纪录](http://www.blog.kurohicncr.top/Article/details/8074286765.shtml)
-- 2026-06-30 03:02 - [法国小学众筹装空调后市长下令拆除](http://www.blog.minike.top/Article/details/2721381.shtml)
-- 2026-06-30 02:41 - [青春环游记第三季](https://www.blog.minike.top/Article/details/46149.shtml)
-- 2026-06-30 02:41 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/0897326504.shtml)
-- 2026-06-30 02:52 - [男生180+，有腹肌是什么体验？](http://www.share.minike.top/Article/details/173096.shtml)
-- 2026-06-30 03:03 - [领克汽车官宣正式进军拉力赛](http://www.share.minike.top/Article/details/15907814.shtml)
-- 2026-06-30 02:49 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.minike.top/Article/details/43172192.shtml)
-- 2026-06-30 03:01 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/466231.shtml)
-- 2026-06-30 02:57 - [老人喝隔夜排骨汤喝进医院](http://www.blog.minike.top/Article/details/4172106.shtml)
-- 2026-06-30 02:55 - [湖北云南的这些涉汛信息都是假的](https://www.share.minike.top/Article/details/191301615918.shtml)
-- 2026-06-30 02:38 - [“十五五”优质本科扩容](http://www.share.minike.top/Article/details/2311313.shtml)
-- 2026-06-30 02:59 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/323558718.shtml)
-- 2026-06-30 02:50 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/820538113857.shtml)
-- 2026-06-30 02:59 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/62933894310.shtml)
+- 2026-06-30 02:57 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.minike.top/Article/details/629275137.shtml)
+- 2026-06-30 02:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/22806.shtml)
+- 2026-06-30 03:11 - [如何改变自己太负责任的性格?](http://www.blog.minike.top/Article/details/996874.shtml)
+- 2026-06-30 03:00 - [拆解FIFA和世界杯的暗面](https://www.blog.minike.top/Article/details/409274.shtml)
+- 2026-06-30 02:53 - [巴西vs日本首发名单](https://www.blog.kurohicncr.top/Article/details/1860655941.shtml)
+- 2026-06-30 03:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/24826948072.shtml)
+- 2026-06-30 03:09 - [未来的飞机可能会用电吗？](http://www.blog.minike.top/Article/details/88322802784.shtml)
+- 2026-06-30 03:05 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/34501.shtml)
+- 2026-06-30 02:54 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/2051179391.shtml)
+- 2026-06-30 02:49 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/42179211.shtml)
+- 2026-06-30 02:43 - [普京间接喊话特朗普有何考量](https://www.share.minike.top/Article/details/2294960301.shtml)
+- 2026-06-30 02:57 - [女子驾车致丈夫身亡法院认定无家暴](https://www.blog.minike.top/Article/details/7330073374.shtml)
+- 2026-06-30 02:50 - [高中五人学习小组全员超650分](http://www.share.kurohicncr.top/Article/details/4088602100.shtml)
+- 2026-06-30 02:51 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/86439977.shtml)
+- 2026-06-30 02:54 - [中国小将严子怡再现一投夺冠](http://www.share.minike.top/Article/details/914319445.shtml)

@@ -1,44 +1,59 @@
-# 中天期货:碳酸锂重心继续下移 白糖承压下行
+# 厦门“百校万岗·同心就业”活动五年提供岗位超5.3万个
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-热点品种分析 一、商品指数 二、股指 中国上证综指5月20日（周三）收盘下跌7.35点，跌幅0.18%，报4162.18点； 中国深证成指5月20日（周三）收盘上涨0.07点，涨幅0.00%，报15569.98点； 中国沪深300 5月20日（周三）收盘下跌2.18点，跌幅0.04%，报4850.70点； 中国创业板指5月20日（周三）收盘上涨13.35点，涨幅0.34%，报3
+中新网厦门4月15日电 (林永传 郑小华)凝聚“新”力量，践行“善”担当。2026年“新善厦门·赋能启航——百校万岗·同心就业”活动启动仪式暨厦门城市职业学院专场招聘会，15日在厦门城市职业学院举行。厦门市委统战部有关领导出席活动并致辞。 当天，厦门城市职业学院北校区云顶体育馆内人头攒动。来自经济管理、建筑工程、制造业、信息技术、艺术设计等多个行业的逾百家企业设摊招聘，提供岗位
 
 ## 正文
 
-热点品种分析 一、商品指数 二、股指 中国上证综指5月20日（周三）收盘下跌7.35点，跌幅0.18%，报4162.18点； 中国深证成指5月20日（周三）收盘上涨0.07点，涨幅0.00%，报15569.98点； 中国沪深300 5月20日（周三）收盘下跌2.18点，跌幅0.04%，报4850.70点； 中国创业板指5月20日（周三）收盘上涨13.35点，涨幅0.34%，报3921.79点； 中国科创50 5月20日（周三）收盘上涨56.89点，涨幅3.20%，报1832.02点。
+中新网厦门4月15日电 (林永传 郑小华)凝聚“新”力量，践行“善”担当。
 
-三、原油2607 四、白银2608 五、碳酸锂 2609 六、螺纹 2610 七、焦煤2609 八、 PTA 2609 九、棉花2609 十、白糖 2609 十一、橡胶 2609 十二、PVC 2609 十三、棕榈2609 十四、纯碱2609 十五、玻璃2609 十六、豆粕2609 十七、生猪2609 十八、红枣2609 责任编辑：陈平
+2026年“新善厦门·赋能启航——百校万岗·同心就业”活动启动仪式暨厦门城市职业学院专场招聘会，15日在厦门城市职业学院举行。
+
+厦门市委统战部有关领导出席活动并致辞。
+
+当天，厦门城市职业学院北校区云顶体育馆内人头攒动。
+
+来自经济管理、建筑工程、制造业、信息技术、艺术设计等多个行业的逾百家企业设摊招聘，提供岗位数千个。
+
+招聘展位前，毕业生们手持简历，与企业招聘人员深入交流；就业创业政策咨询点、征兵入伍政策咨询点等一站式服务窗口同步开放，为学子提供全方位指导。
+
+自2022年启动以来，“新善厦门·赋能启航——百校万岗·同心就业”活动已连续举办五年。
+
+累计举办线上线下专场招聘会20多场，参与企业超过2200家，提供就业岗位逾5.3万个。
 
 ## 相关推荐
 
-- 2026-06-30 02:37 - [足球“出口导向”造就佛得角奇迹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiuxiong.md)
-- 2026-06-30 02:43 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
-- 2026-06-30 02:40 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 02:55 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 02:49 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
-- 2026-06-30 02:51 - [巴西vs日本前瞻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 02:55 - [大学生遇地震裹被子从5楼冲下](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
-- 2026-06-30 02:56 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
-- 2026-06-30 03:00 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 02:39 - [恋与深空将调整引狼入室文本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/csdrd.md)
+- 2026-06-30 02:44 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 03:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niaocun.md)
+- 2026-06-30 02:59 - [好像看到了人类带孩子崩溃的样子](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elcqb.md)
+- 2026-06-30 03:02 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/biaoreng.md)
+- 2026-06-30 02:58 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpzxr.md)
+- 2026-06-30 02:56 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svxhw.md)
+- 2026-06-30 02:58 - [千与千寻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 03:08 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 03:04 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
+- 2026-06-30 03:05 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/isqto.md)
+- 2026-06-30 02:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 03:08 - [天道](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 03:07 - [Prada在内娱首度签下偶像团体](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liqtx.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.share.minike.top/Article/details/736276478.shtml)
-- 2026-06-30 02:41 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/84051.shtml)
-- 2026-06-30 02:50 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](http://www.blog.minike.top/Article/details/652374391319.shtml)
-- 2026-06-30 02:49 - [TFing最具影响力音乐厂牌](http://www.share.kurohicncr.top/Article/details/04464700481.shtml)
-- 2026-06-30 02:55 - [请回答王牌2019](http://www.blog.minike.top/Article/details/8526193071.shtml)
-- 2026-06-30 03:02 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.kurohicncr.top/Article/details/93609.shtml)
-- 2026-06-30 02:42 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/8998852.shtml)
-- 2026-06-30 02:49 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/25580.shtml)
-- 2026-06-30 02:39 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.minike.top/Article/details/87352934785.shtml)
-- 2026-06-30 02:49 - [田曦薇没招了](http://www.blog.kurohicncr.top/Article/details/397968.shtml)
-- 2026-06-30 02:54 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/0649929.shtml)
-- 2026-06-30 02:58 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/9599118.shtml)
-- 2026-06-30 02:48 - [中国猪圈装空调让欧洲网友破防](https://www.share.kurohicncr.top/Article/details/633894.shtml)
-- 2026-06-30 02:51 - [hanser X 赖美云《室内系的Track Maker》](https://www.blog.minike.top/Article/details/67999348036.shtml)
-- 2026-06-30 02:53 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.kurohicncr.top/Article/details/63945866428.shtml)
+- 2026-06-30 03:00 - [小孩曾卓君夺冠之路](http://www.share.kurohicncr.top/Article/details/76612620292.shtml)
+- 2026-06-30 02:53 - [未来的飞机可能会用电吗？](https://www.share.kurohicncr.top/Article/details/01635359.shtml)
+- 2026-06-30 03:07 - [普京间接喊话特朗普有何考量](http://www.share.kurohicncr.top/Article/details/2593064.shtml)
+- 2026-06-30 02:44 - [【Reaction】女生最少的5款游戏](http://www.blog.kurohicncr.top/Article/details/629437956574.shtml)
+- 2026-06-30 02:55 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/024445.shtml)
+- 2026-06-30 03:11 - [巴西扳平比分](http://www.share.minike.top/Article/details/1320769.shtml)
+- 2026-06-30 02:57 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/349617.shtml)
+- 2026-06-30 02:45 - [蜘蛛侠:平行宇宙](https://www.blog.kurohicncr.top/Article/details/758805437342.shtml)
+- 2026-06-30 03:04 - [男子中医院拔火罐致浅2度烧伤](https://www.share.kurohicncr.top/Article/details/7576706415.shtml)
+- 2026-06-30 02:51 - [创新药板块能否“苦尽甘来”](https://www.share.minike.top/Article/details/73259554135.shtml)
+- 2026-06-30 03:09 - [国务院：稳步推进研究生考试招生改革](https://www.share.kurohicncr.top/Article/details/929417695100.shtml)
+- 2026-06-30 02:48 - [张凌赫 客串](http://www.share.minike.top/Article/details/1452376.shtml)
+- 2026-06-30 03:03 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/5269339846.shtml)
+- 2026-06-30 02:47 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.minike.top/Article/details/114563875.shtml)
+- 2026-06-30 02:53 - [高考填志愿父亲和女儿产生分歧](https://www.share.minike.top/Article/details/31423736.shtml)

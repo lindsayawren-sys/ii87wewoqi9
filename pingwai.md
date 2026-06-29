@@ -1,57 +1,61 @@
-# 越来越多美国购车者转向电动汽车，但背后缘由错综复杂
+# IMF因中东战事下调今年全球增长预期至3.1%
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-核心要点 越来越多消费者开始选购电动汽车，但业内分析师表示，当下市场形势十分复杂。 埃德蒙兹向美国消费者新闻与商业频道提供的数据显示，四月份选择用燃油车置换电动汽车的购车者比例持续走高。该平台数据显示，1 月份在门店购置全新电动汽车的消费者中，有 67.1% 是用燃油车进行置换；到 4 月这一比例攀升 7%，达到 72.1%。 数据同时体现出用户对电动车的忠诚度持续提升：1 月
+中新社华盛顿4月14日电 (记者 沙晗汀)国际货币基金组织当地时间14日发布最新一期《世界经济展望报告》，将2026年全球经济增长预期下调至3.1%，较今年1月预测值下调0.2个百分点。IMF预计，2027年全球经济将增长3.2%，与1月预测值持平。报告说，中东战事干扰了全球经济原本平稳的增长轨迹。如果战争没有发生，IMF原本将上调全球经济增速。中东战事持续时间长短将对世界经济
 
 ## 正文
 
-核心要点 越来越多消费者开始选购电动汽车，但业内分析师表示，当下市场形势十分复杂。
+中新社华盛顿4月14日电 (记者 沙晗汀)国际货币基金组织当地时间14日发布最新一期《世界经济展望报告》，将2026年全球经济增长预期下调至3.1%，较今年1月预测值下调0.2个百分点。
 
-埃德蒙兹向美国消费者新闻与商业频道提供的数据显示，四月份选择用燃油车置换电动汽车的购车者比例持续走高。
+IMF预计，2027年全球经济将增长3.2%，与1月预测值持平。
 
-该平台数据显示，1 月份在门店购置全新电动汽车的消费者中，有 67.1% 是用燃油车进行置换；到 4 月这一比例攀升 7%，达到 72.1%。
+报告说，中东战事干扰了全球经济原本平稳的增长轨迹。
 
-数据同时体现出用户对电动车的忠诚度持续提升：1 月，26.2% 的车主用旧电车置换全新电车，34.3% 置换二手电车；截至 4 月 26 日，两项数据分别升至 35.4% 与 44.5%。
+如果战争没有发生，IMF原本将上调全球经济增速。
 
-即便联邦及部分州级购车补贴政策退场，且多家车企重新加码燃油车与混动车型研发布局，市场对电动汽车的选购热情依旧高涨。
+中东战事持续时间长短将对世界经济造成不同影响。
 
-业内分析师认为，油价上涨是推动消费选择转变的一大诱因。
+假设冲突持续时间和范围有限，今年全球经济增速预计将放缓至3.1%。
 
-美国汽车协会数据显示，全美平均油价较去年同期涨幅约 44%。
+如果战争及高油价持续更长时间，今年世界经济增速将降至2.5%。
 
-埃德蒙兹洞察业务高级主管伊万・德鲁里表示，目前还无法判定这股购车热潮能否形成长久稳定的消费趋势。
+在极端情况下，今年世界经济增速恐降至2%。
 
 ## 相关推荐
 
-- 2026-06-30 02:58 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 03:01 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 03:02 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hafsm.md)
-- 2026-06-30 02:55 - [男生高考695分志愿报考清华](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 03:00 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/durlg.md)
-- 2026-06-30 03:01 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
-- 2026-06-30 02:54 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fwdif.md)
-- 2026-06-30 03:04 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkqzb.md)
-- 2026-06-30 02:55 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 02:45 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kmdlw.md)
-- 2026-06-30 02:58 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 02:52 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 02:42 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/neohz.md)
+- 2026-06-30 02:50 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhunm.md)
+- 2026-06-30 02:57 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jqxcl.md)
+- 2026-06-30 03:05 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 02:58 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daliang.md)
+- 2026-06-30 02:55 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qjtrc.md)
+- 2026-06-30 03:10 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mpbsm.md)
+- 2026-06-30 02:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 02:58 - [马航MH370传来最新消息](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haihai.md)
+- 2026-06-30 02:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvie.md)
+- 2026-06-30 02:58 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sslys.md)
+- 2026-06-30 02:57 - [逃狱兄弟](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dhbhh.md)
+- 2026-06-30 02:54 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niexian.md)
+- 2026-06-30 02:46 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:55 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](http://www.blog.kurohicncr.top/Article/details/27528.shtml)
-- 2026-06-30 02:55 - [庆祝中国共产党成立105周年大会将举行](http://www.blog.minike.top/Article/details/02739406302.shtml)
-- 2026-06-30 02:45 - [曝 PS6 物料成本逼近 1000 美元，你还会考虑购买吗？](https://www.blog.kurohicncr.top/Article/details/53977.shtml)
-- 2026-06-30 02:52 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/52883471.shtml)
-- 2026-06-30 02:49 - [挪威国家队紧急从本土订购大批海鲜](https://www.blog.minike.top/Article/details/47792724.shtml)
-- 2026-06-30 02:40 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/5624699.shtml)
-- 2026-06-30 02:46 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/088284080.shtml)
-- 2026-06-30 02:38 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/4992702.shtml)
-- 2026-06-30 02:38 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/73156161937.shtml)
-- 2026-06-30 02:56 - [锐评T1零封KC](http://www.share.minike.top/Article/details/460349582305.shtml)
-- 2026-06-30 03:03 - [卖菜老人获博主帮助后遇车祸去世](https://www.share.minike.top/Article/details/95568494336.shtml)
-- 2026-06-30 02:51 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/24197328041.shtml)
-- 2026-06-30 03:04 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/19371200.shtml)
-- 2026-06-30 03:03 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/9146236.shtml)
-- 2026-06-30 03:04 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.kurohicncr.top/Article/details/996473104.shtml)
+- 2026-06-30 02:44 - [我和我的家乡](http://www.share.minike.top/Article/details/6758900.shtml)
+- 2026-06-30 02:48 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://www.blog.minike.top/Article/details/217555.shtml)
+- 2026-06-30 03:04 - [韩国人为什么这么在乎输赢](https://www.share.kurohicncr.top/Article/details/70410167153.shtml)
+- 2026-06-30 02:48 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/04074351726.shtml)
+- 2026-06-30 02:58 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.kurohicncr.top/Article/details/750801902085.shtml)
+- 2026-06-30 03:09 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/25011004099.shtml)
+- 2026-06-30 02:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.blog.kurohicncr.top/Article/details/2824518481.shtml)
+- 2026-06-30 03:10 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/079687431.shtml)
+- 2026-06-30 02:48 - [浙江队将获百万元世界杯补偿](http://www.share.minike.top/Article/details/666747389.shtml)
+- 2026-06-30 03:01 - [足球小将的剧本成真了](http://www.blog.minike.top/Article/details/3575306.shtml)
+- 2026-06-30 02:51 - [新官上任三把火](http://www.share.kurohicncr.top/Article/details/41273.shtml)
+- 2026-06-30 02:44 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/16594275.shtml)
+- 2026-06-30 02:56 - [扫黑风暴](http://www.blog.kurohicncr.top/Article/details/52297755849.shtml)
+- 2026-06-30 02:58 - [院士：太空轨道必须抢](https://www.blog.kurohicncr.top/Article/details/63623.shtml)
+- 2026-06-30 02:50 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/197468174.shtml)

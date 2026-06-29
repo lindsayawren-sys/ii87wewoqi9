@@ -1,59 +1,57 @@
-# Experian业绩指引不及预期 股价走低
+# 广东：有信心、有能力实现全年经济增长预期目标
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-专题：聚焦美股2026年第一季度财报 Experian给出 2027 财年营收内生增长 6% 至 8% 的预期，低于分析师预判，股价应声下跌 6.8%。 这家征信机构公布的 2027 财年营收增长指引不及市场预期，股价随即下挫，领跌英国富时 100 指数成分股。 该股伦敦上市标的早盘大跌 6.8%，报 25.26 英镑，年内累计跌幅已超 24%。 公司预计，截至次年 3 月 3
+中新网广州4月15日电 (记者 程景伟)国务院新闻办公室15日在广州举行中外记者见面会，广东省委常委、常务副省长张虎回应外媒提问时称，今年广东设置GDP同比增长4.5%至5%的目标，这是广东省委、省政府立足发展所需、责任所在，综合考虑各方面因素，深入研究提出来的，广东有信心、有能力实现全年预期目标。 15日至17日，国务院新闻办公室组织60余名记者赴广东省采访扩大高水平对外开放
 
 ## 正文
 
-专题：聚焦美股2026年第一季度财报 Experian给出 2027 财年营收内生增长 6% 至 8% 的预期，低于分析师预判，股价应声下跌 6.8%。
+中新网广州4月15日电 (记者 程景伟)国务院新闻办公室15日在广州举行中外记者见面会，广东省委常委、常务副省长张虎回应外媒提问时称，今年广东设置GDP同比增长4.5%至5%的目标，这是广东省委、省政府立足发展所需、责任所在，综合考虑各方面因素，深入研究提出来的，广东有信心、有能力实现全年预期目标。
 
-这家征信机构公布的 2027 财年营收增长指引不及市场预期，股价随即下挫，领跌英国富时 100 指数成分股。
+15日至17日，国务院新闻办公室组织60余名记者赴广东省采访扩大高水平对外开放情况。
 
-该股伦敦上市标的早盘大跌 6.8%，报 25.26 英镑，年内累计跌幅已超 24%。
+在中外记者见面会上，张虎表示，广东这一目标与全国同步、与东部兄弟省份并进，有助于切实承担起经济大省挑大梁的职责，也是统筹短期和长期目标任务的需要。
 
-公司预计，截至次年 3 月 31 日的本财年营收内生增速为 6%—8%，而市场一致预期为 8%。
+张虎进一步分析称，“十五五”开局之年要以合理增速增厚家底，为更好优结构、防风险、增后劲提供坚实保障。
 
-投资机构 AJ 贝尔分析师拉斯・穆尔德表示，这份业绩指引很难推动市场上调盈利预期。
+考虑到经济恢复的基本态势，以及国家和广东省的增量与存量政策协同发力，“十五五”重大工程项目和改革举措相继实施，新兴产业加快发展，在这样的基础上设置今年GDP同比增长4.5%至5%的目标，并在实际工作中争取更好的结果，是广东“跳一跳够得着”的目标。
 
-他认为营收内生增长预期略低于行业共识，源于公司一贯稳健保守的经营风格。
+据介绍，从今年1月至2月的情况看，广东主要经济指标增速均好于去年全年。
 
-杰富瑞分析师也评价称，此次给出的业绩预期偏向谨慎。
+其中，规上工业增加值同比增长7.9%，社会消费品零售总额同比增长4.6%，固定资产投资同比增长0.9%，进出口同比增长22.1%。
 
-Experian周三披露，2026 财年营收从 75.2 亿美元增至84.45 亿美元，主要依靠北美市场营收实现两位数内生增长拉动；税前利润由 15.5 亿美元升至19.5 亿美元。
+3月先行指标数据显示，广东省工业用电量累计增速快于去年同期，实时在粤人口保持1.65亿左右，显示了广东的畅旺人气；3月制造业采购经理指数重回扩张区间，经济运行保持平稳向好态势，一季度有望实现“开门红”。
 
 ## 相关推荐
 
-- 2026-06-30 02:51 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengren.md)
-- 2026-06-30 02:36 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
-- 2026-06-30 02:59 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dazuan.md)
-- 2026-06-30 02:37 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xionghu.md)
-- 2026-06-30 02:41 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlcqj.md)
-- 2026-06-30 03:01 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
-- 2026-06-30 02:57 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
-- 2026-06-30 02:41 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
-- 2026-06-30 02:36 - [马航MH370传来最新消息](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cbiaf.md)
-- 2026-06-30 02:51 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
-- 2026-06-30 02:37 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sniyz.md)
-- 2026-06-30 02:40 - [起风了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 03:05 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nike.md)
+- 2026-06-30 02:56 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ribang.md)
+- 2026-06-30 03:07 - [千香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
+- 2026-06-30 02:45 - [女心理师](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/putai.md)
+- 2026-06-30 02:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbfga.md)
+- 2026-06-30 03:09 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dilie.md)
+- 2026-06-30 03:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfxit.md)
+- 2026-06-30 02:55 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 03:08 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 03:10 - [强制戒网瘾起诉父亲](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/laiwai.md)
+- 2026-06-30 02:44 - [四川宜宾地震为何震感明显](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pubye.md)
+- 2026-06-30 03:08 - [中方绝不允许日菲侵害中方海洋权益](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ltnqz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [未来的飞机可能会用电吗？](http://www.share.minike.top/Article/details/4529853810.shtml)
-- 2026-06-30 03:01 - [披荆斩棘的哥哥](https://www.blog.kurohicncr.top/Article/details/0464646203.shtml)
-- 2026-06-30 02:51 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/17672083.shtml)
-- 2026-06-30 02:41 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.blog.minike.top/Article/details/38354.shtml)
-- 2026-06-30 02:44 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/284007417.shtml)
-- 2026-06-30 03:03 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/36846.shtml)
-- 2026-06-30 02:45 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/282767804.shtml)
-- 2026-06-30 03:00 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/3981052.shtml)
-- 2026-06-30 02:36 - [起风了](http://www.share.minike.top/Article/details/976086122814.shtml)
-- 2026-06-30 02:38 - [宗元舞2.0 迟来的50万女装福利](http://www.share.minike.top/Article/details/08266517.shtml)
-- 2026-06-30 02:39 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/978843.shtml)
-- 2026-06-30 02:36 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/122154714.shtml)
-- 2026-06-30 02:36 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/111827.shtml)
-- 2026-06-30 02:48 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.minike.top/Article/details/14981218.shtml)
-- 2026-06-30 02:53 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.share.minike.top/Article/details/5309881634.shtml)
+- 2026-06-30 03:08 - [小娘惹](https://www.share.minike.top/Article/details/19418679870.shtml)
+- 2026-06-30 02:56 - [这些7月新规影响你我](https://www.blog.minike.top/Article/details/58034632.shtml)
+- 2026-06-30 02:50 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/8693915.shtml)
+- 2026-06-30 02:54 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/7191525.shtml)
+- 2026-06-30 02:54 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.minike.top/Article/details/0336641402.shtml)
+- 2026-06-30 03:00 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/627045497341.shtml)
+- 2026-06-30 02:58 - [古代人对纳妾的态度是什么样的？](https://www.share.minike.top/Article/details/07268096.shtml)
+- 2026-06-30 03:03 - [12人以护剧为名敲诈剧组艺人被抓](http://www.blog.minike.top/Article/details/3796749.shtml)
+- 2026-06-30 02:49 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/98778531.shtml)
+- 2026-06-30 02:44 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/312545705.shtml)
+- 2026-06-30 02:58 - [你人生中最艰难的时候是怎么熬过来的？](http://www.blog.kurohicncr.top/Article/details/946891.shtml)
+- 2026-06-30 02:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.blog.kurohicncr.top/Article/details/0359708633.shtml)
+- 2026-06-30 02:57 - [毒液2](http://www.share.kurohicncr.top/Article/details/519650118643.shtml)
+- 2026-06-30 03:11 - [Prada在内娱首度签下偶像团体](https://www.share.minike.top/Article/details/12903.shtml)
+- 2026-06-30 03:07 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/01850.shtml)

@@ -1,56 +1,46 @@
-# 法总统前幕僚长迎央行行长任命听证 承诺保持机构独立性
+# 二十届中央第七轮巡视已进驻31家单位 联系方式一览
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-5月20日，获法国总统马克龙提名出任法国央行行长的总统前幕僚长埃马纽埃尔·穆兰出席法国议会听证会。在面临议会关键性任命表决之际，穆兰向议员承诺，若顺利履职，将确保法国央行免受外部干预，保持机构运作的绝对独立。 作为资深经济决策者，穆兰曾任职于银行业及法国财政部，其专业履历获得了业内的广泛认可。然而，基于其与马克龙的密切政治渊源，此次提名遭到法国反对党阵营的强烈抨击。反对派指责马
+根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视的15个巡视组开始陆续进驻被巡视单位，开展为期2个半月左右的常规巡视。目前，中央巡视组已进驻31家单位。 已进驻中央巡视组联络方式： (总台央视记者 李本扬 宋琎)
 
 ## 正文
 
-5月20日，获法国总统马克龙提名出任法国央行行长的总统前幕僚长埃马纽埃尔·穆兰出席法国议会听证会。
+根据党中央关于巡视工作的统一部署，近日，二十届中央第七轮巡视的15个巡视组开始陆续进驻被巡视单位，开展为期2个半月左右的常规巡视。
 
-在面临议会关键性任命表决之际，穆兰向议员承诺，若顺利履职，将确保法国央行免受外部干预，保持机构运作的绝对独立。
+目前，中央巡视组已进驻31家单位。
 
-作为资深经济决策者，穆兰曾任职于银行业及法国财政部，其专业履历获得了业内的广泛认可。
-
-然而，基于其与马克龙的密切政治渊源，此次提名遭到法国反对党阵营的强烈抨击。
-
-反对派指责马克龙试图在明年4月总统大选前，将亲信安插至关键国家机构以谋求长期的政治影响力，并借此防范极右翼阵营可能在选举中获胜所带来的冲击。
-
-根据法国相关法律程序，穆兰的任命需经法国参众两院财政委员会联合投票表决。
-
-若两院合并计票中的反对票比例未超过五分之三（即60%），该提名即可获得通过。
-
-受政治背景争议影响，穆兰正面临一场势均力敌的议会表决。
+已进驻中央巡视组联络方式： (总台央视记者 李本扬 宋琎)
 
 ## 相关推荐
 
-- 2026-06-30 02:48 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
-- 2026-06-30 02:47 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tangshu.md)
-- 2026-06-30 02:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/clukz.md)
-- 2026-06-30 02:46 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tgzcd.md)
-- 2026-06-30 02:52 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 03:00 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hualuan.md)
-- 2026-06-30 02:42 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 02:48 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sqrie.md)
-- 2026-06-30 02:54 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
-- 2026-06-30 02:48 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 02:58 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kusheng.md)
+- 2026-06-30 02:58 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 02:58 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 02:49 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 02:52 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmuam.md)
+- 2026-06-30 02:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
+- 2026-06-30 03:04 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenle.md)
+- 2026-06-30 02:44 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdozn.md)
+- 2026-06-30 03:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liatuo.md)
+- 2026-06-30 03:11 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dzcnl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:00 - [考入南大计算机，复读考清北值吗？](http://www.share.kurohicncr.top/Article/details/537477475824.shtml)
-- 2026-06-30 02:57 - [巴西VS日本前瞻](https://www.blog.minike.top/Article/details/38978657522.shtml)
-- 2026-06-30 02:37 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/95946517.shtml)
-- 2026-06-30 02:39 - [日本半场1比0领先巴西](http://www.blog.minike.top/Article/details/8271120.shtml)
-- 2026-06-30 02:47 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.blog.minike.top/Article/details/0812789.shtml)
-- 2026-06-30 02:46 - [建议不要突然完全停止喝咖啡](https://www.share.minike.top/Article/details/00355527263.shtml)
-- 2026-06-30 03:02 - [当我知道豆包有后台审核人员](http://www.share.minike.top/Article/details/95830672.shtml)
-- 2026-06-30 02:43 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/0737946682.shtml)
-- 2026-06-30 02:43 - [花6万多相亲对象竟是50元请来的](http://www.blog.minike.top/Article/details/282159435470.shtml)
-- 2026-06-30 02:39 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/194764.shtml)
-- 2026-06-30 02:37 - [酒店推行“24小时退房”引热议](http://www.blog.minike.top/Article/details/274251447.shtml)
-- 2026-06-30 02:44 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/206557288.shtml)
-- 2026-06-30 02:52 - [对最近的回应与澄清](https://www.share.kurohicncr.top/Article/details/08337557.shtml)
-- 2026-06-30 02:50 - [荀彧和曹操反目成仇的根本原因是什么？](http://www.share.minike.top/Article/details/169441.shtml)
-- 2026-06-30 03:04 - [歌剧老师锐评《歌手2026》第六期（下）](https://www.share.kurohicncr.top/Article/details/15440932.shtml)
+- 2026-06-30 02:57 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.kurohicncr.top/Article/details/26789779783.shtml)
+- 2026-06-30 02:54 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/31763.shtml)
+- 2026-06-30 03:04 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/2234239.shtml)
+- 2026-06-30 02:56 - [蜘蛛侠:平行宇宙](http://www.share.kurohicncr.top/Article/details/65006251.shtml)
+- 2026-06-30 02:56 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.minike.top/Article/details/0106749049.shtml)
+- 2026-06-30 02:48 - [张碧晨最佳女歌手](http://www.share.kurohicncr.top/Article/details/029721391552.shtml)
+- 2026-06-30 02:49 - [官方：建立健全学龄人口预测预警机制](http://www.share.minike.top/Article/details/3241451.shtml)
+- 2026-06-30 03:11 - [“十五五”优质本科扩容](https://www.share.minike.top/Article/details/884390555984.shtml)
+- 2026-06-30 02:49 - [美股](https://www.blog.kurohicncr.top/Article/details/52982429233.shtml)
+- 2026-06-30 02:55 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/29218398.shtml)
+- 2026-06-30 03:04 - [多功能求生吊坠 第四轮迭代汇报](http://www.share.kurohicncr.top/Article/details/56277081.shtml)
+- 2026-06-30 03:07 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.kurohicncr.top/Article/details/576588854.shtml)
+- 2026-06-30 03:02 - [陈睿《让好内容发生》](https://www.blog.minike.top/Article/details/95706.shtml)
+- 2026-06-30 02:43 - [有酒店推行24小时退房制](https://www.blog.kurohicncr.top/Article/details/40297.shtml)
+- 2026-06-30 02:56 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/22857.shtml)

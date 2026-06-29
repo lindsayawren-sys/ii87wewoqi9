@@ -1,57 +1,57 @@
-# 人工智能相关产品怎么选？科创创业人工智能ETF景顺（159142）有哪些特点？
+# 中国已成为全球重要留学目的地之一
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-近期，随着国产大模型持续迭代，AI基础设施、核心器件及应用落地等环节不断推进，人工智能相关产品持续受到关注。科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）跟踪中证科创创业人工智能指数（932456.CSI），该指数是聚焦科创板 + 创业板的人工智能主题指数，锚定了科技创新属性鲜明、成长性突出的AI企业集群，选样范围聚焦科创板和创业板中
+本报北京4月14日电 记者晋浩天从教育部留学服务中心日前主办的2026中国留学论坛(CSAF)“留学中国·融通世界”交流活动上获悉，目前来华留学生来源结构更加多元、层次持续优化，专业设置更加贴近全球产业需求，中国已成为全球重要留学目的地之一。据统计，截至2024至2025学年，共有来自全球191个国家和地区的38万名国际学生在华学习交流，其中中国政府奖学金生占比约8%；生源结构
 
 ## 正文
 
-近期，随着国产大模型持续迭代，AI基础设施、核心器件及应用落地等环节不断推进，人工智能相关产品持续受到关注。
+本报北京4月14日电 记者晋浩天从教育部留学服务中心日前主办的2026中国留学论坛(CSAF)“留学中国·融通世界”交流活动上获悉，目前来华留学生来源结构更加多元、层次持续优化，专业设置更加贴近全球产业需求，中国已成为全球重要留学目的地之一。
 
-科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）跟踪中证科创创业人工智能指数（932456.CSI），该指数是聚焦科创板 + 创业板的人工智能主题指数，锚定了科技创新属性鲜明、成长性突出的AI企业集群，选样范围聚焦科创板和创业板中的人工智能相关公司，可以作为一键布局人工智能相关板块，把握高弹性机会的投资工具，值得关注。
+据统计，截至2024至2025学年，共有来自全球191个国家和地区的38万名国际学生在华学习交流，其中中国政府奖学金生占比约8%；生源结构上，亚洲学生占比61.1%，非洲学生16.2%，欧洲学生15.6%，美洲和大洋洲学生7.1%。
 
-科创创业人工智能ETF景顺（159142，联接A：027047，联接C：027048）是一只怎样的产品？
+学历层次上，学历生共计20.5万人，其中研究生数量占比达35%。
 
-科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）是一只聚焦人工智能产业链核心资产的ETF，管理人为景顺长城基金。
+专业类别上，工学类专业人数排名第一，占学历生总数的27.8%。
 
-对于希望围绕国内AI主线进行观察和布局的投资者来说，科创创业人工智能ETF景顺（159142，场外联接A：027047，联接C：027048）能够通过一只工具较为高效地覆盖AI产业链中具备代表性的科技成长方向。
+教育部国际合作与交流司二级巡视员席茹在致辞中表示，中国政府高度重视来华留学工作，将以提高培养质量为根本，以提升规模和层次为基础，以优化管理服务水平为依托，持续扩大高水平教育对外开放，加强“留学中国”品牌和能力建设，为建成具有全球影响力的重要教育中心助力。
 
-费率结构上，科创创业人工智能ETF景顺的管理费率为0.50%，托管费率为0.10%，处于行业主流水平。
+英国前任教育部大学、科学、研究与创新事务大臣乔·约翰逊表示，今年1月，中英游学领航计划正式启动，为中英教育未来强劲、可持续的双向交流与合作注入了动力。
 
-配套工具上，景顺长城同时提供了场外联接基金（A类：027047，C类：027048），方便不同交易习惯的投资者进行配置。
+今年6月，来自英国约克大学、伯明翰大学、爱丁堡大学等9所高校的300余名师生将赴中国6所城市的10所知名大学开启学习旅程。
 
-该产品自2025年12月5日成立以来，日均成交额保持在数千万元级别，场内交易效率较高 。
+相信英国学生会从这一高质量且有保障的国际交流典范项目中受益。
 
 ## 相关推荐
 
-- 2026-06-30 03:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ujkpp.md)
-- 2026-06-30 02:56 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kyijz.md)
-- 2026-06-30 03:00 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
-- 2026-06-30 02:49 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
-- 2026-06-30 02:39 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ajvta.md)
-- 2026-06-30 03:02 - [一直以为方便面汤是要倒掉的](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 02:55 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cydea.md)
-- 2026-06-30 02:43 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/skgsf.md)
-- 2026-06-30 03:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/obqtp.md)
-- 2026-06-30 02:54 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/alfzj.md)
-- 2026-06-30 02:56 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 02:52 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
+- 2026-06-30 02:51 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pgjyy.md)
+- 2026-06-30 03:00 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niuxin.md)
+- 2026-06-30 02:54 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdtlb.md)
+- 2026-06-30 03:09 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/szhjo.md)
+- 2026-06-30 02:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 02:56 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmprw.md)
+- 2026-06-30 02:49 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
+- 2026-06-30 02:45 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 03:10 - [中方追加1亿元物资援助委内瑞拉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
+- 2026-06-30 03:08 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:36 - [一间小院，一家三口，用满院的烟火气，为孩子的未来点亮星光](https://www.blog.minike.top/Article/details/20065.shtml)
-- 2026-06-30 02:41 - [徐亮怒斥世界杯踢假球](http://www.share.minike.top/Article/details/129937337.shtml)
-- 2026-06-30 03:04 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/43927363.shtml)
-- 2026-06-30 02:50 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.kurohicncr.top/Article/details/266610608819.shtml)
-- 2026-06-30 03:04 - [姜妍走过来这段刘梅下班了](http://www.blog.kurohicncr.top/Article/details/18886659364.shtml)
-- 2026-06-30 02:42 - [仙游一峡谷5人身亡知情者发声](https://www.share.minike.top/Article/details/5989765.shtml)
-- 2026-06-30 03:03 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.minike.top/Article/details/580583162.shtml)
-- 2026-06-30 02:55 - [我用3千多根木棍做了张分压点阵床](https://www.share.kurohicncr.top/Article/details/988456.shtml)
-- 2026-06-30 02:50 - [阿根廷世界杯的占卜玄学有多离谱](http://www.share.minike.top/Article/details/8551309.shtml)
-- 2026-06-30 02:38 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.minike.top/Article/details/232628.shtml)
-- 2026-06-30 02:54 - [古代人对纳妾的态度是什么样的？](http://www.blog.kurohicncr.top/Article/details/67445.shtml)
-- 2026-06-30 02:48 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.share.minike.top/Article/details/090497152199.shtml)
-- 2026-06-30 02:52 - [赵今麦瘦好多](https://www.blog.kurohicncr.top/Article/details/094894769.shtml)
-- 2026-06-30 03:05 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.minike.top/Article/details/117550827.shtml)
-- 2026-06-30 02:47 - [日本 高位逼抢](http://www.blog.minike.top/Article/details/87194.shtml)
+- 2026-06-30 03:02 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/09822960558.shtml)
+- 2026-06-30 02:45 - [杨紫被质疑未使用原名](http://www.share.minike.top/Article/details/35654.shtml)
+- 2026-06-30 03:03 - [内马尔替补](https://www.blog.kurohicncr.top/Article/details/87585165398.shtml)
+- 2026-06-30 03:11 - [一切民族英雄都是中华民族的脊梁](http://www.blog.kurohicncr.top/Article/details/49526926.shtml)
+- 2026-06-30 03:07 - [花少8要去世界杯举办国](https://www.share.minike.top/Article/details/705101472.shtml)
+- 2026-06-30 02:57 - [国务院：鼓励行业龙头企业举办职校](http://www.blog.minike.top/Article/details/205331.shtml)
+- 2026-06-30 02:54 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/98999495530.shtml)
+- 2026-06-30 03:00 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/00544.shtml)
+- 2026-06-30 02:59 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/813619.shtml)
+- 2026-06-30 02:44 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/543124961789.shtml)
+- 2026-06-30 03:08 - [绘画区你赢了](https://www.blog.minike.top/Article/details/69604408.shtml)
+- 2026-06-30 03:08 - [足球“出口导向”造就佛得角奇迹](https://www.blog.kurohicncr.top/Article/details/9392094.shtml)
+- 2026-06-30 02:58 - [詹姆斯 勇士](http://www.blog.minike.top/Article/details/7673274464.shtml)
+- 2026-06-30 03:11 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/21481103937.shtml)
+- 2026-06-30 02:47 - [领克汽车官宣正式进军拉力赛](https://www.blog.kurohicncr.top/Article/details/505856469654.shtml)

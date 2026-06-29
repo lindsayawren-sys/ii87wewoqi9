@@ -1,59 +1,61 @@
-# 汽车授权收入激增逾200%，Smart Eye Q1净亏损收窄近60%
+# “南京—德里”国际全货机航线开通
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-营收与利润：净销售额增长40%，EBITDA转正 瑞典人类洞察AI公司Smart Eye AB（publ）公布2026年第一季度财报。报告期内，净销售额为1.265亿瑞典克朗，同比增长40%，内生增长率达51%。息税折旧摊销前利润为2690万瑞典克朗，较去年同期的-1790万瑞典克朗大幅改善，实现转正。净亏损为2280万瑞典克朗，较去年同期的5510万瑞典克朗收窄58.6%，每
+中新社南京4月15日电 (记者 朱晓颖)15日，一架满载“中国制造”商品的全货机从南京禄口国际机场启程、飞往印度德里，标志着“南京—德里”国际全货机航线开通。该航线的开通，填补南京直达印度的全货机运力空白，打通了江苏至南亚地区的航空货运通道。 据介绍，该航线由A330全货机执飞，计划每周执飞2班，可满足跨境电商、国际贸易的时效需求。该航线出港货物以跨境电商货物、电子元器件、轻工
 
 ## 正文
 
-营收与利润：净销售额增长40%，EBITDA转正 瑞典人类洞察AI公司Smart Eye AB（publ）公布2026年第一季度财报。
+中新社南京4月15日电 (记者 朱晓颖)15日，一架满载“中国制造”商品的全货机从南京禄口国际机场启程、飞往印度德里，标志着“南京—德里”国际全货机航线开通。
 
-报告期内，净销售额为1.265亿瑞典克朗，同比增长40%，内生增长率达51%。
+该航线的开通，填补南京直达印度的全货机运力空白，打通了江苏至南亚地区的航空货运通道。
 
-息税折旧摊销前利润为2690万瑞典克朗，较去年同期的-1790万瑞典克朗大幅改善，实现转正。
+据介绍，该航线由A330全货机执飞，计划每周执飞2班，可满足跨境电商、国际贸易的时效需求。
 
-净亏损为2280万瑞典克朗，较去年同期的5510万瑞典克朗收窄58.6%，每股亏损从-1.47瑞典克朗收窄至-0.59瑞典克朗。
+该航线出港货物以跨境电商货物、电子元器件、轻工制品等为主，进港货物以印度香料、特色农产品、医药中间体等产品为主，将逐步形成“中国制造”出海、印度商品进口的双向流通格局。
 
-核心引擎：汽车业务内生增长122%，授权收入增逾200% 汽车解决方案部门是本季度增长的核心驱动力，内生增长率达122%。
+截至目前，南京禄口国际机场稳定运营南京至澳大利亚悉尼、墨尔本，南京至法国巴黎等航线，已恢复南京至意大利米兰航线。
 
-随着更多车辆项目从研发阶段进入量产，软件授权收入激增逾200%，正成为公司业务组合中日益可预测的经常性收入来源。
+本月，南京陆续开通多条客运、货运航线。
 
-即将于2026年7月实施的欧盟《通用安全法规》是关键需求驱动因素，推动沃尔沃、BMWYY>宝马、吉利等客户的驾驶员监控系统大规模装车。
+其中，南京直飞雅加达国际客运航线11日开通。
 
-新业务突破：酒精检测技术获日本OEM定点及欧洲警方大单 本季度，公司完成了对Sightic Analytics的收购，强化了行为损害检测能力。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 03:03 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 02:49 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiaokao.md)
-- 2026-06-30 02:42 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 02:40 - [啊啊啊](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/repian.md)
-- 2026-06-30 02:57 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksmfi.md)
-- 2026-06-30 02:38 - [本西奇成本届温网女单首位晋级球员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lkceg.md)
-- 2026-06-30 03:00 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fzkgk.md)
-- 2026-06-30 03:01 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iqejz.md)
-- 2026-06-30 03:02 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/faalg.md)
-- 2026-06-30 02:52 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxste.md)
-- 2026-06-30 02:46 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pccqt.md)
-- 2026-06-30 03:01 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
-- 2026-06-30 02:56 - [韩文体部宣布对韩足协开展审计](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzcnv.md)
+- 2026-06-30 02:52 - [日本进球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shenguang.md)
+- 2026-06-30 03:09 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chafeng.md)
+- 2026-06-30 02:56 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hfthy.md)
+- 2026-06-30 02:53 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
+- 2026-06-30 02:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuochu.md)
+- 2026-06-30 02:42 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
+- 2026-06-30 02:44 - [穆祉丞躺TFING身上](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 02:56 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
+- 2026-06-30 02:47 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 03:08 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ajvta.md)
+- 2026-06-30 02:52 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
+- 2026-06-30 03:08 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/plklw.md)
+- 2026-06-30 02:56 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psfmu.md)
+- 2026-06-30 02:56 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
+- 2026-06-30 02:50 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oskuw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:50 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/20752356198.shtml)
-- 2026-06-30 03:04 - [女心理师](http://www.share.kurohicncr.top/Article/details/787850.shtml)
-- 2026-06-30 02:41 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/7462299167.shtml)
-- 2026-06-30 02:53 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.share.minike.top/Article/details/0492158.shtml)
-- 2026-06-30 02:41 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/716346565.shtml)
-- 2026-06-30 02:50 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/736544.shtml)
-- 2026-06-30 02:52 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/83596769563.shtml)
-- 2026-06-30 03:04 - [85花告别古偶](https://www.share.kurohicncr.top/Article/details/731827650394.shtml)
-- 2026-06-30 02:55 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/887876.shtml)
-- 2026-06-30 02:55 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/630486298467.shtml)
-- 2026-06-30 03:04 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/306618348.shtml)
-- 2026-06-30 02:55 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/48985878.shtml)
-- 2026-06-30 03:00 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/446499.shtml)
-- 2026-06-30 02:37 - [任素汐舞台上唱《王招君》](https://www.share.kurohicncr.top/Article/details/468387721784.shtml)
-- 2026-06-30 02:46 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/195980026.shtml)
+- 2026-06-30 02:53 - [审核了不止十年的低创鬼畜](https://www.blog.kurohicncr.top/Article/details/7976638842.shtml)
+- 2026-06-30 02:59 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/404720519.shtml)
+- 2026-06-30 02:46 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/459195078098.shtml)
+- 2026-06-30 02:59 - [父母催婚话术是如何做到全国统一的](https://www.share.kurohicncr.top/Article/details/80488696.shtml)
+- 2026-06-30 02:59 - [荷兰VS摩洛哥你看好谁](http://www.share.minike.top/Article/details/13228193.shtml)
+- 2026-06-30 02:55 - [【大鸣王潮1566】真拿你没办法](http://www.share.minike.top/Article/details/7620642.shtml)
+- 2026-06-30 02:43 - [模仿老妈打牌赢了和输了的区别！](http://www.share.minike.top/Article/details/49772475.shtml)
+- 2026-06-30 03:04 - [不开心就去看三年前的购物订单](https://www.blog.minike.top/Article/details/3137522123.shtml)
+- 2026-06-30 02:51 - [内马尔替补](http://www.blog.kurohicncr.top/Article/details/4080984.shtml)
+- 2026-06-30 02:52 - [四川宜宾地震瞬间鱼群乱跳](https://www.blog.minike.top/Article/details/23450.shtml)
+- 2026-06-30 02:44 - [DeepSeek启动成立来最大规模招聘](http://www.share.kurohicncr.top/Article/details/475716369550.shtml)
+- 2026-06-30 02:50 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/327691410.shtml)
+- 2026-06-30 02:59 - [中方绝不允许日菲侵害中方海洋权益](https://www.blog.kurohicncr.top/Article/details/691265405.shtml)
+- 2026-06-30 03:02 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/189392583.shtml)
+- 2026-06-30 02:57 - [建议不要突然完全停止喝咖啡](https://www.blog.kurohicncr.top/Article/details/241319112.shtml)

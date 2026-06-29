@@ -1,44 +1,56 @@
-# 秘鲁西南部发生6.1级地震
+# 台湾教师曾翊婷：扎根合肥 用绘本架起两岸“童心桥”
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 13:34 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年04月15日 20:56 来源：中国新闻网 来自台北的曾翊婷，拥有20余年幼儿教育经验，2017年来到合肥，将台湾教育理念融入本土幼教，用爱心搭建两岸童心桥梁。 2021年，曾翊婷搭建线上社群开展幼儿英语启蒙，参与组建双语阅读馆与家庭成长平台；2025年创办双语工作室，以小班化、个性化教学陪伴孩子成长。 创业之初仅一名学生，曾翊婷用绘本与趣味游戏耐心引导，帮
 
 ## 正文
 
-发布时间：2026年05月20日 13:34 来源：央视新闻 责任编辑：【王祎】
+发布时间：2026年04月15日 20:56 来源：中国新闻网 来自台北的曾翊婷，拥有20余年幼儿教育经验，2017年来到合肥，将台湾教育理念融入本土幼教，用爱心搭建两岸童心桥梁。
+
+2021年，曾翊婷搭建线上社群开展幼儿英语启蒙，参与组建双语阅读馆与家庭成长平台；2025年创办双语工作室，以小班化、个性化教学陪伴孩子成长。
+
+创业之初仅一名学生，曾翊婷用绘本与趣味游戏耐心引导，帮孩子从胆怯沉默变得自信开朗。
+
+她秉持以学生为本、尊重成长规律的理念，坚持本土化教学，带孩子们走进社区中医馆、城市公园，把双语学习与生活、本土文化紧密结合，让语言学习兼具视野与温度。
+
+如今，曾翊婷已服务合肥近两千个家庭，常走进社区、学校开展公益辅导与讲座。
+
+她寄语想来大陆发展的台湾青年，大陆有着充足的机会，只要脚踏实地，就能找到属于自己的舞台。
+
+记者 张俊 安徽合肥报道 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 02:50 - [强制戒网瘾起诉父亲](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 02:48 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guimu.md)
-- 2026-06-30 02:41 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fyngo.md)
-- 2026-06-30 03:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
-- 2026-06-30 02:59 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/vctwx.md)
-- 2026-06-30 03:04 - [热浪「炙烤」欧洲，多地打破高温纪录，导致欧洲极端高温的原因有哪些？未来会是常态吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 02:37 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opafs.md)
-- 2026-06-30 02:36 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rirlw.md)
-- 2026-06-30 02:40 - [荷兰VS摩洛哥你看好谁](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qunxian.md)
-- 2026-06-30 02:40 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/icyek.md)
-- 2026-06-30 02:43 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kangzhuan.md)
-- 2026-06-30 02:51 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fohuang.md)
+- 2026-06-30 02:50 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rkeir.md)
+- 2026-06-30 02:43 - [明星大侦探第四季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gerwk.md)
+- 2026-06-30 03:10 - [五哈和他们的朋友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/guazou.md)
+- 2026-06-30 03:12 - [俄军1周发射上千架无人机有何目的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yeqiang.md)
+- 2026-06-30 02:45 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tengben.md)
+- 2026-06-30 02:52 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 02:50 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maoqia.md)
+- 2026-06-30 02:56 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/evtvg.md)
+- 2026-06-30 02:55 - [有哪些值得一提的生活窍门？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nqarq.md)
+- 2026-06-30 03:00 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 02:45 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 03:05 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:43 - [诋毁袁隆平的网红岂能封号了之](https://www.share.kurohicncr.top/Article/details/759759113.shtml)
-- 2026-06-30 02:45 - [高中五人学习小组全员超650分](https://www.share.minike.top/Article/details/2383681710.shtml)
-- 2026-06-30 02:56 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/97454796.shtml)
-- 2026-06-30 02:51 - [五哈和他们的朋友](https://www.share.kurohicncr.top/Article/details/441568228.shtml)
-- 2026-06-30 03:01 - [极限挑战第一季](https://www.share.minike.top/Article/details/009624307797.shtml)
-- 2026-06-30 02:55 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/199650643419.shtml)
-- 2026-06-30 02:55 - [韩文体部宣布对韩足协开展审计](https://www.share.minike.top/Article/details/86600.shtml)
-- 2026-06-30 02:46 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/8906749.shtml)
-- 2026-06-30 02:54 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/730095675183.shtml)
-- 2026-06-30 02:39 - [刘宇宁是去进货了吗](https://www.share.kurohicncr.top/Article/details/13108714016.shtml)
-- 2026-06-30 02:42 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/17957.shtml)
-- 2026-06-30 02:45 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/522990.shtml)
-- 2026-06-30 02:38 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/02548082559.shtml)
-- 2026-06-30 02:42 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/66772.shtml)
-- 2026-06-30 02:51 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.kurohicncr.top/Article/details/505740.shtml)
+- 2026-06-30 02:42 - [演员都来上音综的原因](https://www.blog.minike.top/Article/details/19795.shtml)
+- 2026-06-30 02:54 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/4101637283.shtml)
+- 2026-06-30 03:10 - [巴西vs日本前瞻](https://www.share.minike.top/Article/details/3254976199.shtml)
+- 2026-06-30 03:09 - [巴西扳平比分](http://www.blog.minike.top/Article/details/51986583116.shtml)
+- 2026-06-30 03:01 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/456963767.shtml)
+- 2026-06-30 03:10 - [普京间接喊话特朗普有何考量](https://www.blog.minike.top/Article/details/6302134877.shtml)
+- 2026-06-30 03:09 - [王欣瑜温网开门红](https://www.blog.kurohicncr.top/Article/details/018534839728.shtml)
+- 2026-06-30 03:07 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/270297.shtml)
+- 2026-06-30 02:43 - [演员都来上音综的原因](https://www.share.kurohicncr.top/Article/details/00701.shtml)
+- 2026-06-30 03:01 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.minike.top/Article/details/659670.shtml)
+- 2026-06-30 03:01 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](http://www.blog.minike.top/Article/details/59310.shtml)
+- 2026-06-30 03:02 - [恋与深空回应争议](http://www.blog.kurohicncr.top/Article/details/118534005795.shtml)
+- 2026-06-30 02:42 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/10914596658.shtml)
+- 2026-06-30 02:44 - [法媒点赞分享中国小区降温方案](http://www.share.minike.top/Article/details/364716.shtml)
+- 2026-06-30 03:01 - [女子发现孩子非现任亲生状告前任索赔](https://www.blog.minike.top/Article/details/1575883371.shtml)

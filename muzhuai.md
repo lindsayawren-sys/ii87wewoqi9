@@ -1,60 +1,61 @@
-# 开盘：美股周三开盘涨跌不一 交易员静待英伟达财报
+# 以AI提效为由，Snap计划裁员16%，股价大涨11%
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-北京时间5月20日晚，美股周三开盘涨跌不一。油价下跌，同时交易员正屏息以待英伟达第一季度财报的公布。 道指跌15.05点，跌幅为0.03%，报49348.83点；标普500指数涨15.58点，涨幅为0.21%，报7369.19点；纳指涨128.733点，涨幅为0.50%，报25999.442点。 周三早间，西得克萨斯中质原油期货下跌1%，交易价格高于每桶102美元。布伦特原油期
+核心要点 周三，Snap 公司宣布以人工智能提效为理由，计划在全球范围内裁员至多 16%，消息一出其股价应声大涨。 首席执行官埃文・斯皮格尔在致员工信中表示，此次裁员将影响约 1000 名员工，同时至少 300 个空缺岗位将被取消。截至发稿，该公司盘前股价上涨 10.9%。 Snap 是热门社交应用 Snapchat 的母公司，目前正计划将资源重新投向核心战略项目，包括提升净利
 
 ## 正文
 
-北京时间5月20日晚，美股周三开盘涨跌不一。
+核心要点 周三，Snap 公司宣布以人工智能提效为理由，计划在全球范围内裁员至多 16%，消息一出其股价应声大涨。
 
-油价下跌，同时交易员正屏息以待英伟达第一季度财报的公布。
+首席执行官埃文・斯皮格尔在致员工信中表示，此次裁员将影响约 1000 名员工，同时至少 300 个空缺岗位将被取消。
 
-道指跌15.05点，跌幅为0.03%，报49348.83点；标普500指数涨15.58点，涨幅为0.21%，报7369.19点；纳指涨128.733点，涨幅为0.50%，报25999.442点。
+截至发稿，该公司盘前股价上涨 10.9%。
 
-周三早间，西得克萨斯中质原油期货下跌1%，交易价格高于每桶102美元。
+Snap 是热门社交应用 Snapchat 的母公司，目前正计划将资源重新投向核心战略项目，包括提升净利润盈利水平。
 
-布伦特原油期货回落2%，至每桶109美元附近。
+斯皮格尔写道：“去年秋天，我曾表示 Snap 正处于关键转折点，需要更快速、更高效的全新工作模式，同时转向盈利性增长。
 
-投资者正将注意力转向英伟达，该公司将在周三美股收盘后公布第一季度财报。
+” 他补充道：“我们认为，人工智能技术的快速发展能够让团队减少重复性工作、提升推进速度，更好地服务用户、合作伙伴及广告客户。
 
-这份报告将成为考察人工智能交易的重要窗口，并提供关于芯片需求的最新动态。
+” “我们已经看到，小型团队借助 AI 工具在多个重要项目上取得了显著进展，包括 Snapchat + 会员服务、广告平台性能优化，以及 Snap Lite 基础架构的效率提升。
 
-高盛首席美国股票策略师Ben Snider指出，这家芯片制造商兼AI宠儿今年以来对标普500指数涨幅的贡献率约为20%，对这个大盘指数2026年的盈利增长贡献也接近该比例。
+” 公司表示，预计第二季度将产生 9500 万至 1.3 亿美元的相关费用，主要为遣散费、合同终止成本及其他资产减值支出。
 
 ## 相关推荐
 
-- 2026-06-30 02:50 - [曝多支争冠球队有意塞克斯顿](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shedian.md)
-- 2026-06-30 02:49 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiechen.md)
-- 2026-06-30 03:03 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pdiev.md)
-- 2026-06-30 02:49 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
-- 2026-06-30 02:57 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qinglang.md)
-- 2026-06-30 02:55 - [新官上任三把火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 02:57 - [女子螺蛳粉摊吃出蛇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/juhai.md)
-- 2026-06-30 02:55 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 03:03 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 02:44 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ovswh.md)
-- 2026-06-30 02:56 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
-- 2026-06-30 02:47 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tangchuang.md)
-- 2026-06-30 03:04 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 03:00 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
+- 2026-06-30 03:09 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ugvay.md)
+- 2026-06-30 02:59 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nenqie.md)
+- 2026-06-30 02:53 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 02:47 - [巴西若输日本将创36年最差纪录](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 02:59 - [TOP Prada](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/feisheng.md)
+- 2026-06-30 03:11 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 02:42 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 02:52 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
+- 2026-06-30 02:49 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnomj.md)
+- 2026-06-30 02:44 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaojiong.md)
+- 2026-06-30 02:51 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhibin.md)
+- 2026-06-30 02:48 - [女子螺蛳粉摊吃出蛇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 02:52 - [未来五年，教育强国这样建设](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 02:46 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqlyu.md)
+- 2026-06-30 02:56 - [仙游一峡谷5人身亡知情者发声](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
 
 ## 延伸阅读
 
-- 2026-06-30 03:05 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.minike.top/Article/details/066582.shtml)
-- 2026-06-30 02:55 - [欧盟分楼层开空调惹争议](https://www.share.kurohicncr.top/Article/details/5216952.shtml)
-- 2026-06-30 02:45 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/581487.shtml)
-- 2026-06-30 02:58 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.share.kurohicncr.top/Article/details/686164313377.shtml)
-- 2026-06-30 02:52 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/31869350271.shtml)
-- 2026-06-30 02:56 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.minike.top/Article/details/302861.shtml)
-- 2026-06-30 02:36 - [辽宁居民楼疑液化气闪爆致3死](http://www.blog.minike.top/Article/details/76533728680.shtml)
-- 2026-06-30 03:03 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/58529302845.shtml)
-- 2026-06-30 02:52 - [英语考了145的人竟然教数学](https://www.share.kurohicncr.top/Article/details/72179311.shtml)
-- 2026-06-30 02:52 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/2540329.shtml)
-- 2026-06-30 02:41 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/4323897.shtml)
-- 2026-06-30 02:36 - [日本反击率先破门](http://www.share.minike.top/Article/details/1528452.shtml)
-- 2026-06-30 03:00 - [法媒点赞中国小区楼顶“人工降雨”](https://www.blog.minike.top/Article/details/86694948306.shtml)
-- 2026-06-30 02:51 - [湖北云南这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/196550229.shtml)
-- 2026-06-30 02:44 - [我用3千多根木棍做了张分压点阵床](https://www.blog.minike.top/Article/details/2902007.shtml)
+- 2026-06-30 03:08 - [荷兰vs摩洛哥前瞻](http://www.share.kurohicncr.top/Article/details/62159062653.shtml)
+- 2026-06-30 02:59 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/419202.shtml)
+- 2026-06-30 02:51 - [一直以为方便面汤是要倒掉的](https://www.share.kurohicncr.top/Article/details/71696608.shtml)
+- 2026-06-30 03:02 - [官方否认宜宾地震与页岩气开采有关](https://www.share.minike.top/Article/details/570895.shtml)
+- 2026-06-30 02:58 - [马杜罗账号在纽约发文致谢各国援助](http://www.blog.kurohicncr.top/Article/details/681702.shtml)
+- 2026-06-30 03:05 - [男生180+，有腹肌是什么体验？](https://www.blog.minike.top/Article/details/53969.shtml)
+- 2026-06-30 02:49 - [刘宇宁胸肌腹肌全给看了](http://www.share.minike.top/Article/details/412359090.shtml)
+- 2026-06-30 02:51 - [有人见过武则天的画像吗，非常好奇？](http://www.share.minike.top/Article/details/3260393.shtml)
+- 2026-06-30 02:43 - [领克900大型SUV值得购买吗?](http://www.blog.kurohicncr.top/Article/details/19617617304.shtml)
+- 2026-06-30 03:02 - [“柠檬茶能换怀表？”](https://www.share.kurohicncr.top/Article/details/838193832.shtml)
+- 2026-06-30 02:45 - [穆祉丞年度人气艺人](http://www.share.kurohicncr.top/Article/details/227055.shtml)
+- 2026-06-30 03:11 - [日本接连三场大型军演想干什么](https://www.share.minike.top/Article/details/567732764.shtml)
+- 2026-06-30 03:04 - [英语考了145的人竟然教数学](http://www.blog.kurohicncr.top/Article/details/2813356.shtml)
+- 2026-06-30 02:59 - [男生高考695分志愿报考清华](http://www.share.kurohicncr.top/Article/details/57194235.shtml)
+- 2026-06-30 02:55 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/214405665747.shtml)

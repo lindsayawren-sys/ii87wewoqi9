@@ -1,50 +1,61 @@
-# 迈为股份9000万元增资眉山琏升
+# 长江有色：15日铅价上涨 铅价高企现货畏高交投清淡
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-琏升科技（300051）公告称，公司于2026年5月20日召开第七届董事会第九次会议审议通过了《关于公司控股孙公司拟增资扩股引入投资者的议案》，为进一步优化公司控股孙公司眉山琏升资本结构，同意眉山琏升以增资扩股方式引入苏州迈为科技股份有限公司（股票代码：300751），由其以货币方式向眉山琏升增资人民币9,000万元，获得眉山琏升增资后4%股权，眉山琏升与增资方签署并履行与本次
+今日沪期铅走势：今日沪期铅上涨，沪铅主力合约2605开盘报16655元，高点报16745元，低点16595元，结算价16660元，收盘16665元/吨，涨60元，涨幅为0.36%。 今日ccmn铅价统计，今日ccmn长江综合1#铅价报16530-16630元/吨，均价16580元，较前一日价格上涨50元；广东现货市场1#铅报16485-16585元/吨，均价16535元，较前一
 
 ## 正文
 
-琏升科技（300051）公告称，公司于2026年5月20日召开第七届董事会第九次会议审议通过了《关于公司控股孙公司拟增资扩股引入投资者的议案》，为进一步优化公司控股孙公司眉山琏升资本结构，同意眉山琏升以增资扩股方式引入苏州迈为科技股份有限公司（股票代码：300751），由其以货币方式向眉山琏升增资人民币9,000万元，获得眉山琏升增资后4%股权，眉山琏升与增资方签署并履行与本次交易相关的法律文件；同意公司控股子公司天津琏升放弃本次增资之优先认购权。
+今日沪期铅走势：今日沪期铅上涨，沪铅主力合约2605开盘报16655元，高点报16745元，低点16595元，结算价16660元，收盘16665元/吨，涨60元，涨幅为0.36%。
 
-本次交易完成后，眉山琏升的注册资本将由102,065万元增加至106,317.50万元；天津琏升对眉山琏升的持股比例将由88.18%稀释至84.66%，眉山琏升仍为公司合并报表范围内的控股孙公司。
+今日ccmn铅价统计，今日ccmn长江综合1#铅价报16530-16630元/吨，均价16580元，较前一日价格上涨50元；广东现货市场1#铅报16485-16585元/吨，均价16535元，较前一日价格上涨75元。
 
-截至2025年12月31日，眉山琏升资产总额179,258.34万元，负债总额152,654.47万元，净资产26,603.87万元，2025年实现营收28,202.93万元，净利润-34,046.50万元，经营活动产生的现金流量净额1,098.37万元。
+今日现货铅市场报价在16425-16630元/吨之间，对比沪期铅2604合约贴水55-升水150元/吨，沪期铅2605合约贴水255-贴水55元/吨。
 
-截至2026年3月31日，眉山琏升资产总额181,456.11万元，负债总额159,138.32万元，净资产22,317.79万元，2026年前三月实现营收2,479.76万元，净利润-6,292.86万元，经营活动产生的现金流量净额-1,882.85万元。
+宏观面影响因素，核心得益于内外宏观面共振利好：国际端，美国3月PPI数据全线低于预期，通胀担忧缓解推动美联储降息预期升温，美元指数震荡偏弱削弱对金属价格的压制，美股纳指实现十连涨、道指与标普同步收涨带动风险偏好回升，叠加特朗普暗示美伊“未来两天”或重启会谈，霍尔木兹海峡通航预期改善，有效减轻能源价格回调压力，降低铅冶炼成本端不确定性；国内端，央行开展5000亿元6个月期买断式逆回购操作释放流动性宽松信号，一季度外贸数据亮眼（进出口总值11.84万亿元、同比增长15%），强化经济复苏预期，双重支撑为金属市场注入信心，直接助推铅价高位上行。
+
+供需格局：供应收缩 + 刚需托底，紧平衡隐现 供应端：原生铅炼厂检修与复产并存，4 月开工率小幅波动，部分企业延长检修周期；再生铅受废电瓶原料紧缺、回收价高企影响，开工率低位徘徊，复产进度不及预期。
+
+同时，进口铅流入节奏放缓，现货流通偏紧，支撑价格上行。
+
+需求端：虽处传统淡季，但铅酸蓄电池企业维持刚需采购，汽车保有量增长支撑替换需求，物联网储能、分布式基站等新领域需求稳步释放，形成需求韧性。
+
+库存方面，社会库存持续去化，现货升贴水结构改善，市场情绪好转。
 
 ## 相关推荐
 
-- 2026-06-30 02:52 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
-- 2026-06-30 02:44 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 02:55 - [我们看到的星星是不是有些已经不存在了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/obqtp.md)
-- 2026-06-30 02:52 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psbfd.md)
-- 2026-06-30 02:43 - [如何评价林离Olivia桌面软件《BSide: Olivia Lin》登录Steam抢先体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/obqtp.md)
-- 2026-06-30 02:52 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duochu.md)
-- 2026-06-30 02:39 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
-- 2026-06-30 02:52 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jqxcl.md)
-- 2026-06-30 03:00 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxbti.md)
-- 2026-06-30 02:39 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 02:51 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tckzj.md)
-- 2026-06-30 03:05 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qokqn.md)
+- 2026-06-30 02:56 - [蜘蛛侠:平行宇宙](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uzkih.md)
+- 2026-06-30 02:59 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 02:42 - [古代人对纳妾的态度是什么样的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ranzi.md)
+- 2026-06-30 02:47 - [李准基参加文彩元婚礼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qogdr.md)
+- 2026-06-30 02:54 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yongqiao.md)
+- 2026-06-30 03:07 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 03:09 - [急先锋](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nuanweng.md)
+- 2026-06-30 02:50 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nangxing.md)
+- 2026-06-30 02:54 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 03:02 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
+- 2026-06-30 02:52 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaoao.md)
+- 2026-06-30 02:46 - [穆祉丞年度人气艺人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jwkss.md)
+- 2026-06-30 03:04 - [本西奇成本届温网女单首位晋级球员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/laori.md)
+- 2026-06-30 02:43 - [刘念回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 02:47 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/eemnr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [千香](http://www.share.kurohicncr.top/Article/details/05270369381.shtml)
-- 2026-06-30 02:51 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/8667831.shtml)
-- 2026-06-30 03:01 - [湖北云南的这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/64005200.shtml)
-- 2026-06-30 02:55 - [我和我的家乡](http://www.share.kurohicncr.top/Article/details/037794972.shtml)
-- 2026-06-30 02:59 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/982194408909.shtml)
-- 2026-06-30 03:05 - [中国再对日本出重拳](https://www.blog.minike.top/Article/details/755749716610.shtml)
-- 2026-06-30 02:56 - [模仿老妈打牌赢了和输了的区别！](http://www.blog.kurohicncr.top/Article/details/7652161.shtml)
-- 2026-06-30 02:48 - [一人公司创业中，个体工商户、个人独资企业、一人有限公司，到底选哪个？](http://www.blog.kurohicncr.top/Article/details/95485.shtml)
-- 2026-06-30 02:52 - [87克大金链到老庙黄金维修少了11克](http://www.blog.minike.top/Article/details/35222.shtml)
-- 2026-06-30 02:57 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/103576493313.shtml)
-- 2026-06-30 03:03 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/977188751524.shtml)
-- 2026-06-30 02:43 - [王欣瑜晋级温网女单次轮](https://www.blog.kurohicncr.top/Article/details/899295891.shtml)
-- 2026-06-30 02:52 - [巴西扳平比分](https://www.blog.minike.top/Article/details/65426439069.shtml)
-- 2026-06-30 02:56 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/244794373.shtml)
-- 2026-06-30 02:57 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/0741777.shtml)
+- 2026-06-30 03:00 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/03110273.shtml)
+- 2026-06-30 03:09 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2100897543.shtml)
+- 2026-06-30 02:42 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/8293804240.shtml)
+- 2026-06-30 02:54 - [审核了不止十年的低创鬼畜](http://www.share.minike.top/Article/details/0283664256.shtml)
+- 2026-06-30 02:52 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/0496490.shtml)
+- 2026-06-30 02:45 - [张元英是故意的还是不小心的](http://www.share.minike.top/Article/details/487857195.shtml)
+- 2026-06-30 03:02 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/02747255177.shtml)
+- 2026-06-30 02:59 - [韩文体部宣布对韩足协开展审计](https://www.blog.minike.top/Article/details/3276532.shtml)
+- 2026-06-30 03:10 - [星链在轨运行卫星已突破1.24万颗](http://www.share.kurohicncr.top/Article/details/453668.shtml)
+- 2026-06-30 03:10 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/149189.shtml)
+- 2026-06-30 03:03 - [复古未来主义沙画「夜泳」](https://www.blog.minike.top/Article/details/5788091.shtml)
+- 2026-06-30 03:08 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.share.kurohicncr.top/Article/details/930997368584.shtml)
+- 2026-06-30 03:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.share.kurohicncr.top/Article/details/80126054465.shtml)
+- 2026-06-30 02:52 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/43742764582.shtml)
+- 2026-06-30 02:46 - [刘宇宁是去进货了吗](http://www.blog.minike.top/Article/details/48567757.shtml)

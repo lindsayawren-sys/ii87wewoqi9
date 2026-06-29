@@ -1,42 +1,61 @@
-# 关注埃博拉疫情 刚果（金）已有131例疑似死亡病例
+# 18年，150亿美元，0铁轨？ 美国加州“高铁梦”沦为全美笑柄，马斯克急忙补刀｜硅谷观察
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年05月20日 09:32 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！文 | 《硅谷观察》栏目 郑骏 烧了150亿美元，一寸铁轨都没有铺好。加州高铁又一次成为全美关注焦点。但不是因为建成通车，也不是因为铺设进展，而是一事无成。 面对美国知名新闻节目《60分钟》的镜头，加州交通厅与高铁官员不得不公开承认失败：那条已经规划三十年、立项十八年的加州高铁项目，迄今已经投入了超过150
 
 ## 正文
 
-发布时间：2026年05月20日 09:32 来源：央视新闻 责任编辑：【王祎】
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+
+文 | 《硅谷观察》栏目 郑骏 烧了150亿美元，一寸铁轨都没有铺好。
+
+加州高铁又一次成为全美关注焦点。
+
+但不是因为建成通车，也不是因为铺设进展，而是一事无成。
+
+面对美国知名新闻节目《60分钟》的镜头，加州交通厅与高铁官员不得不公开承认失败：那条已经规划三十年、立项十八年的加州高铁项目，迄今已经投入了超过150亿美元（约1022亿元），连一条铁轨都没有铺设出来。
+
+加州交通厅长Toks Omishakin似乎想摆出坦诚的态度：“我们确实犯了错误，遭受批评是非常合理的。
+
+”但共和党联邦众议员方文思（Vince Fong）则直接抨击他：“现在都是2026年了。
+
+没有列车，也没有铁轨。
 
 ## 相关推荐
 
-- 2026-06-30 02:42 - [酒店推行“24小时退房”引热议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mhsva.md)
-- 2026-06-30 02:44 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 02:58 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
-- 2026-06-30 02:59 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lisuo.md)
-- 2026-06-30 02:46 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 02:47 - [原来周杰伦的龙拳是广告歌](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
-- 2026-06-30 02:55 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mepbl.md)
-- 2026-06-30 02:58 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 02:46 - [急先锋](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhuandian.md)
-- 2026-06-30 02:37 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
+- 2026-06-30 02:44 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hqsay.md)
+- 2026-06-30 02:49 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qocyh.md)
+- 2026-06-30 03:03 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 03:07 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 03:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 03:08 - [张帅晋级温网次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fyngo.md)
+- 2026-06-30 02:58 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dnydl.md)
+- 2026-06-30 02:52 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 03:09 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cbiaf.md)
+- 2026-06-30 02:45 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 03:08 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 03:07 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cbvvz.md)
+- 2026-06-30 02:45 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gwyfg.md)
+- 2026-06-30 02:55 - [周杰伦的歌勾起25年友情](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/edcal.md)
+- 2026-06-30 03:06 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/renran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:39 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/764656430.shtml)
-- 2026-06-30 02:57 - [科学备孕男女都要上心](http://www.share.minike.top/Article/details/6300438.shtml)
-- 2026-06-30 03:00 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/3067614311.shtml)
-- 2026-06-30 02:49 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/758136580.shtml)
-- 2026-06-30 02:39 - [高考结束，该不该外出打工体验？](https://www.share.kurohicncr.top/Article/details/112939947.shtml)
-- 2026-06-30 02:59 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/77286939750.shtml)
-- 2026-06-30 03:04 - [医药暴涨5.91%背后](https://www.share.kurohicncr.top/Article/details/65649.shtml)
-- 2026-06-30 02:58 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/4958919807.shtml)
-- 2026-06-30 03:05 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.minike.top/Article/details/6467856.shtml)
-- 2026-06-30 02:51 - [德约科维奇向温网对手放狠话](https://www.blog.kurohicncr.top/Article/details/87547342177.shtml)
-- 2026-06-30 02:59 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/5460081.shtml)
-- 2026-06-30 02:41 - [新官上任三把火](https://www.share.minike.top/Article/details/90267758.shtml)
-- 2026-06-30 02:39 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](http://www.share.kurohicncr.top/Article/details/4573214.shtml)
-- 2026-06-30 02:49 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/347084432.shtml)
-- 2026-06-30 02:36 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](http://www.share.minike.top/Article/details/19605.shtml)
+- 2026-06-30 02:58 - [沙丘](http://www.share.minike.top/Article/details/97821392984.shtml)
+- 2026-06-30 02:59 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/580574.shtml)
+- 2026-06-30 02:45 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/573956509033.shtml)
+- 2026-06-30 03:11 - [《男人至死是傻得儿》](http://www.blog.kurohicncr.top/Article/details/76099742.shtml)
+- 2026-06-30 02:59 - [时光音乐会](https://www.share.minike.top/Article/details/03488925.shtml)
+- 2026-06-30 03:05 - [女子发现孩子非现任亲生起诉前任](http://www.share.kurohicncr.top/Article/details/2012598276.shtml)
+- 2026-06-30 02:56 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/17048054.shtml)
+- 2026-06-30 02:47 - [如何看待恋与深空6.0版本将人体试药档案编号设为「0731」，制作组回应「无实际意义」？](http://www.share.kurohicncr.top/Article/details/96658736765.shtml)
+- 2026-06-30 03:09 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/56316207.shtml)
+- 2026-06-30 03:06 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.blog.minike.top/Article/details/95148743.shtml)
+- 2026-06-30 02:49 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/24573.shtml)
+- 2026-06-30 03:09 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/158753.shtml)
+- 2026-06-30 02:50 - [明星大侦探第一季](http://www.share.kurohicncr.top/Article/details/95832214758.shtml)
+- 2026-06-30 02:48 - [DRG官宣选手Akeman离队](http://www.blog.minike.top/Article/details/14850216276.shtml)
+- 2026-06-30 03:09 - [赵今麦电影开端客串路透](http://www.blog.kurohicncr.top/Article/details/9716166621.shtml)

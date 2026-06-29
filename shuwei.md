@@ -1,46 +1,56 @@
-# 中俄将共同发表关于倡导世界多极化和新型国际关系的联合声明
+# 西宁湟源：推动中华民族共有精神家园建设走深走实
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-新华社快讯：中俄将共同发表关于倡导世界多极化和新型国际关系的联合声明 新华社快讯：中俄将共同发表关于倡导世界多极化和新型国际关系的联合声明。
+近年来，西宁市湟源县紧紧围绕铸牢中华民族共同体意识主线，以社会主义核心价值观为引领，立足“唐蕃古道”“茶马商都”的历史底蕴与多民族交融的县情实际，坚持以文化人、以史育人、以情聚人，有形有感有效推进中华民族共有精神家园建设。文化润心，赓续共有精神家园团结血脉 擦亮文化地标，讲述“文化融合”故事。深入挖掘日月山作为文成公主进藏关键节点的历史价值，运用情景再现、主题讲解等方式，生动阐
 
 ## 正文
 
-新华社快讯：中俄将共同发表关于倡导世界多极化和新型国际关系的联合声明 新华社快讯：中俄将共同发表关于倡导世界多极化和新型国际关系的联合声明。
+近年来，西宁市湟源县紧紧围绕铸牢中华民族共同体意识主线，以社会主义核心价值观为引领，立足“唐蕃古道”“茶马商都”的历史底蕴与多民族交融的县情实际，坚持以文化人、以史育人、以情聚人，有形有感有效推进中华民族共有精神家园建设。
+
+文化润心，赓续共有精神家园团结血脉 擦亮文化地标，讲述“文化融合”故事。
+
+深入挖掘日月山作为文成公主进藏关键节点的历史价值，运用情景再现、主题讲解等方式，生动阐释其中蕴含的民族交往交流交融史实。
+
+持续升级日月山民族团结进步教育基地，年均接待研学团队超200批次，使跨越千年的民族团结佳话成为鲜活的“教科书”。
+
+活化古城历史，搭建“互嵌”平台。
+
+以创建省级历史文化名城为契机，系统打造丹噶尔古城历史文化街区，充分发挥博物馆和馆藏文物在阐释“何以中华民族共同体”方面的基础性作用，让宣传教育可知可感、深入人心。
+
+创新“展示+体验+消费”融合模式，让游客在沉浸式体验中感受多民族文化互鉴交融。
+
+唤醒共同记忆，厚植“团结”沃土。
 
 ## 相关推荐
 
-- 2026-06-30 02:39 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 02:58 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 02:42 - [法国人：中国人总是一脸轻松的说出残忍的话。中国人：天气这么热，你们为什么不装空调？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 02:40 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pujia.md)
-- 2026-06-30 02:53 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zenrun.md)
-- 2026-06-30 03:00 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 02:55 - [为什么香港的冲厕水是咸的？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdtlb.md)
-- 2026-06-30 02:44 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 02:58 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgart.md)
-- 2026-06-30 02:40 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qinneng.md)
-- 2026-06-30 02:50 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jxwsb.md)
-- 2026-06-30 02:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
-- 2026-06-30 02:45 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
-- 2026-06-30 02:58 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/elugl.md)
+- 2026-06-30 02:48 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/duijiu.md)
+- 2026-06-30 03:03 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lfrik.md)
+- 2026-06-30 02:47 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
+- 2026-06-30 02:47 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tjfyq.md)
+- 2026-06-30 02:59 - [巴西绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tuba.md)
+- 2026-06-30 02:46 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuangeng.md)
+- 2026-06-30 02:44 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/brzzg.md)
+- 2026-06-30 02:44 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 02:44 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/adiwz.md)
+- 2026-06-30 02:57 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:47 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.minike.top/Article/details/7735733180.shtml)
-- 2026-06-30 02:39 - [老人喝隔夜排骨汤喝进医院](https://www.blog.minike.top/Article/details/29908361.shtml)
-- 2026-06-30 03:01 - [明星大侦探第一季](http://www.share.minike.top/Article/details/708155292793.shtml)
-- 2026-06-30 03:02 - [金刚川](https://www.blog.kurohicncr.top/Article/details/0048781446.shtml)
-- 2026-06-30 02:48 - [【Reaction】女生最少的5款游戏](https://www.blog.minike.top/Article/details/6358699.shtml)
-- 2026-06-30 03:03 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/6762514.shtml)
-- 2026-06-30 02:41 - [陈睿《让好内容发生》](https://www.share.kurohicncr.top/Article/details/5618360901.shtml)
-- 2026-06-30 02:47 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.blog.kurohicncr.top/Article/details/18837712.shtml)
-- 2026-06-30 02:52 - [点菜也要教吗](https://www.blog.minike.top/Article/details/21277.shtml)
-- 2026-06-30 02:55 - [勇敢的心第二部](http://www.share.kurohicncr.top/Article/details/0788245851.shtml)
-- 2026-06-30 02:36 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/461114660063.shtml)
-- 2026-06-30 02:59 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/374801.shtml)
-- 2026-06-30 03:05 - [明星大侦探第一季](https://www.blog.kurohicncr.top/Article/details/38214416.shtml)
-- 2026-06-30 02:49 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/4672190.shtml)
-- 2026-06-30 02:39 - [韩乔生吐槽世界杯扩军](https://www.share.kurohicncr.top/Article/details/014333.shtml)
+- 2026-06-30 02:59 - [我们的少年时代2](http://www.share.minike.top/Article/details/59541113.shtml)
+- 2026-06-30 03:05 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.minike.top/Article/details/57609091.shtml)
+- 2026-06-30 02:59 - [巴西vs日本](https://www.share.minike.top/Article/details/610118463.shtml)
+- 2026-06-30 02:58 - [男生180+，有腹肌是什么体验？](https://www.blog.kurohicncr.top/Article/details/287508744109.shtml)
+- 2026-06-30 02:57 - [王楚钦谈表演球](https://www.share.minike.top/Article/details/99141950.shtml)
+- 2026-06-30 02:53 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/4888446.shtml)
+- 2026-06-30 02:51 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.blog.minike.top/Article/details/336690.shtml)
+- 2026-06-30 02:52 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.kurohicncr.top/Article/details/704481.shtml)
+- 2026-06-30 03:10 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.blog.minike.top/Article/details/822661.shtml)
+- 2026-06-30 02:50 - [毕业以后，你最怀念的大学记忆是什么？](https://www.share.kurohicncr.top/Article/details/8903794481.shtml)
+- 2026-06-30 02:56 - [俄乌双方伤亡近180万人](http://www.share.minike.top/Article/details/032669.shtml)
+- 2026-06-30 02:53 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/85150.shtml)
+- 2026-06-30 02:44 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/06789.shtml)
+- 2026-06-30 03:07 - [吴艳妮回应夺冠](http://www.blog.minike.top/Article/details/642307.shtml)
+- 2026-06-30 02:52 - [收受1.98亿余元 周家斌被判无期](http://www.blog.minike.top/Article/details/6397851.shtml)

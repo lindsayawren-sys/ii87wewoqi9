@@ -1,61 +1,60 @@
-# 东西问｜魏德汉：如何让《黄帝内经》在跨文化语境“活”起来？
+# “邮储银行号”遥感卫星升空！银行为何接力放卫星？
 
-> 更新时间：2026-06-30 03:06:02 UTC+8
+> 更新时间：2026-06-30 03:12:02 UTC+8
 
 ## 摘要
 
-中新社莫斯科5月19日电 题：如何让《黄帝内经》在跨文化语境“活”起来？ ——专访俄罗斯汉学家魏德汉 中新社记者 田冰 俄文版《黄帝内经》在俄罗斯最大电商平台之一的OZON上收获不少好评，其中一条评论写道：有人告诉我这是中国流传2000多年的医学书，但在我看来，这就是一本关于生命的哲学书，它的思维方式和逻辑令我着迷。有趣的是，该书译者曾直接对委托方放话，“你们拿来的中文白话文版
+每经记者|李玉雯 每经编辑|杨翼 又有商业银行放卫星！4月14日，邮储银行与长光卫星技术股份有限公司联合研制的“邮储银行号”遥感卫星，搭乘力箭一号遥十二运载火箭，在甘肃酒泉卫星发射中心成功发射。 据记者了解，“邮储银行号”为高精度、高分辨率光学遥感卫星，具备优于0.5米分辨率的全色高清成像能力，具备快速响应、高频次成像、全天时、高覆盖的遥感监测能力。目前，卫星数据已接入邮储银行
 
 ## 正文
 
-中新社莫斯科5月19日电 题：如何让《黄帝内经》在跨文化语境“活”起来？
+每经记者|李玉雯 每经编辑|杨翼 又有商业银行放卫星！
 
-——专访俄罗斯汉学家魏德汉 中新社记者 田冰 俄文版《黄帝内经》在俄罗斯最大电商平台之一的OZON上收获不少好评，其中一条评论写道：有人告诉我这是中国流传2000多年的医学书，但在我看来，这就是一本关于生命的哲学书，它的思维方式和逻辑令我着迷。
+4月14日，邮储银行与长光卫星技术股份有限公司联合研制的“邮储银行号”遥感卫星，搭乘力箭一号遥十二运载火箭，在甘肃酒泉卫星发射中心成功发射。
 
-有趣的是，该书译者曾直接对委托方放话，“你们拿来的中文白话文版翻译得不好，我要根据文言文翻译。
+据记者了解，“邮储银行号”为高精度、高分辨率光学遥感卫星，具备优于0.5米分辨率的全色高清成像能力，具备快速响应、高频次成像、全天时、高覆盖的遥感监测能力。
 
-” 这位译者就是俄罗斯知名汉学家布罗尼斯拉夫·布罗尼斯拉沃维奇·维诺格拉茨基，中文名“魏德汉”。
+目前，卫星数据已接入邮储银行“绿洲”主动风险防控平台。
 
-日前，魏德汉接受中新社“东西问”专访，分享他对译介《黄帝内经》的体会及与中国文化结下的深厚渊源。
+《每日经济新闻》记者注意到，近年来，银行频频布局商业航天赛道，依托遥感卫星技术突破传统金融服务的局限性。
 
-现将访谈实录摘要如下： 中新社记者：您深耕中国文化译介数十年，此前已翻译《易经》《道德经》等经典，为何会选择翻译《黄帝内经》？
+在邮储银行之前，平安银行、招商银行、浦发银行三家股份行已将卫星送上太空，其中平安银行和招商银行发射了不止一颗卫星。
 
-魏德汉：事实上，我自1985年起便开始尝试翻译和理解《黄帝内经》，因为那年我开始翻译其他中国医学书籍时发现，这些书籍引用了大量《黄帝内经》的内容。
+那么，银行为何要积极布局商业航天？
 
-在翻译这些著作的同时，我也研读了《道德经》和《易经》，发现它们是一个统一、完整的宏大体系的一部分。
+在探索卫星遥感技术方面又有哪些侧重？
 
 ## 相关推荐
 
-- 2026-06-30 02:55 - [赵今麦瘦好多](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 02:46 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songben.md)
-- 2026-06-30 02:43 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sveuy.md)
-- 2026-06-30 02:46 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaochi.md)
-- 2026-06-30 02:50 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcoyo.md)
-- 2026-06-30 02:37 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 02:54 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djnlj.md)
-- 2026-06-30 03:06 - [WTT 美国大满贯，王楚钦 3-0 周启豪，晋级 32 强，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/canjian.md)
-- 2026-06-30 03:00 - [逃狱兄弟](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shugai.md)
-- 2026-06-30 02:56 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
-- 2026-06-30 02:39 - [张元英是故意的还是不小心的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
-- 2026-06-30 02:41 - [曾沛慈和老公一起回台湾](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 02:55 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 02:55 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 02:59 - [刘宇宁东方风云榜人气](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkcwn.md)
+- 2026-06-30 02:56 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 02:44 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnrsm.md)
+- 2026-06-30 03:08 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/caoshang.md)
+- 2026-06-30 02:56 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 02:54 - [长沙菜农公交的人间烟火气](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuantao.md)
+- 2026-06-30 02:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/moikb.md)
+- 2026-06-30 02:58 - [考入南大计算机，复读考清北值吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
+- 2026-06-30 03:11 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psmqs.md)
+- 2026-06-30 02:43 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
+- 2026-06-30 02:49 - [2026年MSI季中冠军赛入围赛T1 3:0 KC，如何评价这场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gzbhi.md)
+- 2026-06-30 02:55 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lianghu.md)
+- 2026-06-30 03:09 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/toveq.md)
+- 2026-06-30 02:48 - [日本领先巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 02:55 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffgyw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 02:37 - [这几秒成世界杯最值钱广告位](http://www.share.kurohicncr.top/Article/details/85913056451.shtml)
-- 2026-06-30 02:45 - [月亮](http://www.blog.minike.top/Article/details/885134.shtml)
-- 2026-06-30 02:41 - [女子发现孩子非现任亲生起诉前任](https://www.share.kurohicncr.top/Article/details/6132804256.shtml)
-- 2026-06-30 02:56 - [多人在马路中间打羽毛球 交警回应](http://www.blog.kurohicncr.top/Article/details/11773617185.shtml)
-- 2026-06-30 02:48 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.share.kurohicncr.top/Article/details/22459603.shtml)
-- 2026-06-30 02:46 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/512383.shtml)
-- 2026-06-30 02:38 - [存储三巨头遭遇集体诉讼](http://www.blog.minike.top/Article/details/09424687.shtml)
-- 2026-06-30 02:36 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.share.kurohicncr.top/Article/details/89584605.shtml)
-- 2026-06-30 02:43 - [美团、淘宝闪购、京东外卖达成共识](http://www.blog.minike.top/Article/details/798344.shtml)
-- 2026-06-30 02:55 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/938359.shtml)
-- 2026-06-30 02:50 - [流金岁月](http://www.share.minike.top/Article/details/871137141574.shtml)
-- 2026-06-30 02:42 - [中国18岁小将再现一投夺冠](http://www.share.kurohicncr.top/Article/details/39707.shtml)
-- 2026-06-30 02:39 - [法国生态部长反对大规模安装空调](http://www.share.minike.top/Article/details/38320.shtml)
-- 2026-06-30 02:46 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.kurohicncr.top/Article/details/1206487505.shtml)
-- 2026-06-30 02:42 - [女子驾车致丈夫身亡法院认定无家暴](http://www.share.kurohicncr.top/Article/details/4019051.shtml)
+- 2026-06-30 03:11 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/375169.shtml)
+- 2026-06-30 03:02 - [日本领先巴西](http://www.share.minike.top/Article/details/75305833060.shtml)
+- 2026-06-30 02:50 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.kurohicncr.top/Article/details/9157679275.shtml)
+- 2026-06-30 03:02 - [阿娇瘦了10斤](https://www.share.kurohicncr.top/Article/details/6128476.shtml)
+- 2026-06-30 03:02 - [张帅晋级温网次轮](http://www.blog.kurohicncr.top/Article/details/84234151.shtml)
+- 2026-06-30 03:04 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/9496107.shtml)
+- 2026-06-30 02:53 - [法媒点赞中国小区楼顶“人工降雨”](https://www.share.kurohicncr.top/Article/details/5414180.shtml)
+- 2026-06-30 02:59 - [四川宜宾地震子弟兵迅速投入抢险救灾](https://www.blog.kurohicncr.top/Article/details/8248314.shtml)
+- 2026-06-30 02:45 - [王欣瑜：今年经历了一些起伏](https://www.blog.kurohicncr.top/Article/details/825849.shtml)
+- 2026-06-30 02:56 - [DRG官宣选手Akeman离队](https://www.blog.kurohicncr.top/Article/details/339264529.shtml)
+- 2026-06-30 02:45 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.kurohicncr.top/Article/details/44525746.shtml)
+- 2026-06-30 02:45 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.kurohicncr.top/Article/details/52840057.shtml)
+- 2026-06-30 03:07 - [仙游一峡谷5人身亡知情者发声](https://www.blog.minike.top/Article/details/29486187157.shtml)
+- 2026-06-30 03:07 - [花6万多相亲对象竟是50元请来的](http://www.share.minike.top/Article/details/306315272385.shtml)
+- 2026-06-30 03:02 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.kurohicncr.top/Article/details/31403.shtml)
