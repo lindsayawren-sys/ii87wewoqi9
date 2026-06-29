@@ -1,56 +1,61 @@
-# 工行境内外机构人事调整 工银亚洲迎新总裁
+# 又见理财产品提前终止！年内约650只“早退” 揭秘背后四大推手
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-来源：金融人事mini 武龙离任两个月后，工银亚洲迎来新任总裁。 近日，工银亚洲发布委任公告，何晓建自2026年5月26日起担任该行副董事长、执行董事兼行政总裁，并于同日委任为该行董事会风险管理委员会委员及战略与企业管治委员会委员。 此外，银行人事还了解到，工行境内外多家分行行长、副行长也出现变动，本期予以汇总。 境外机构 工行首尔分行行长何晓建，任工银亚洲总裁。 何晓建，现年
+6月1日，青岛农商行发布公告称，“创富优享813号理财产品”原预计到期日为2026年11月25日，根据产品说明书相关约定，该产品已达到止盈目标收益率，触发止盈条款，将于2026年6月5日提前终止。 Wind数据显示，今年以来已有约650只理财产品提前“退场”，较去年同期的四百余只明显增长，覆盖国有行、股份行、城商行理财公司及部分中小银行自营产品。从产品类型看，既有日开型现金管理
 
 ## 正文
 
-来源：金融人事mini 武龙离任两个月后，工银亚洲迎来新任总裁。
+6月1日，青岛农商行发布公告称，“创富优享813号理财产品”原预计到期日为2026年11月25日，根据产品说明书相关约定，该产品已达到止盈目标收益率，触发止盈条款，将于2026年6月5日提前终止。
 
-近日，工银亚洲发布委任公告，何晓建自2026年5月26日起担任该行副董事长、执行董事兼行政总裁，并于同日委任为该行董事会风险管理委员会委员及战略与企业管治委员会委员。
+Wind数据显示，今年以来已有约650只理财产品提前“退场”，较去年同期的四百余只明显增长，覆盖国有行、股份行、城商行理财公司及部分中小银行自营产品。
 
-此外，银行人事还了解到，工行境内外多家分行行长、副行长也出现变动，本期予以汇总。
+从产品类型看，既有日开型现金管理类产品，也有最低持有期产品、定期开放类产品、封闭式产品。
 
-境外机构 工行首尔分行行长何晓建，任工银亚洲总裁。
+理财产品提前终止的原因主要分为四类：一是达到“止盈条件”提前终止；二是产品存续规模过小，导致管理成本相对较高而提前终止；三是产品所投资的资产部分提前到期；四是管理人根据产品运作情况综合考虑后主动终止。
 
-何晓建，现年54岁，山东财经大学经济学学士、天津财经大学经济学硕士，拥有丰富的国际银行业务经验，先后担任工商银行法兰克福分行副总经理，东京分行总经理、首尔分行总经理。
+其中，“目标止盈”机制旨在帮助投资者锁定收益。
 
-工银亚洲是工行的全资附属公司及境外业务旗舰，总部位于香港，其前身为友联银行，于2000年并入工行并更为现名。
+例如，光大理财旗下的“阳光橙鑫盈打新策略优选目标盈2期（封闭式）”理财产品，原定2026年12月8日到期。
 
-作为一家在香港注册的持牌银行，工银亚洲主要经营个人银行、企业银行、跨境金融、资产托管及财富管理等业务。
+根据产品说明书，进入止盈观察期后，若连续两个估值日的累计净值年化收益率均不低于止盈目标收益率，即达到目标止盈条件。
 
-截至2025年末，工银亚洲已发行股本441.88亿港元，总资产1216．53亿美元，净资产211．87亿美元；2025年实现净利润9．39亿美元，同比增长13.16%。
+该产品于2026年5月15日和5月22日满足条件，于5月27日提前终止。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [亚洲球队全部告别世界杯](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
-- 2026-06-30 06:58 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
-- 2026-06-30 06:49 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
-- 2026-06-30 06:55 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yanghu.md)
-- 2026-06-30 06:56 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 06:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tsdyg.md)
-- 2026-06-30 06:56 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qwerw.md)
-- 2026-06-30 06:59 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 06:58 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 07:02 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wanmou.md)
+- 2026-06-30 07:04 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kunpian.md)
+- 2026-06-30 06:54 - [网友分享整套中医手术刀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
+- 2026-06-30 07:03 - [明星大侦探第一季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 06:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qnrbv.md)
+- 2026-06-30 06:59 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senheng.md)
+- 2026-06-30 07:05 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 06:51 - [曝娱乐圈大部分明星失业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 06:57 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 07:02 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opcpo.md)
+- 2026-06-30 07:11 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/byjup.md)
+- 2026-06-30 07:03 - [电影后室值得看吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 06:58 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/brzzg.md)
+- 2026-06-30 06:57 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lmmmp.md)
+- 2026-06-30 07:00 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 07:01 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:06 - [数据前瞻巴西VS日本](http://www.blog.minike.top/Article/details/69678991.shtml)
-- 2026-06-30 07:02 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/345948747244.shtml)
-- 2026-06-30 06:52 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/4400341.shtml)
-- 2026-06-30 06:51 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.blog.kurohicncr.top/Article/details/6846113.shtml)
-- 2026-06-30 06:46 - [刘宇宁东方风云榜人气](http://www.share.minike.top/Article/details/477040.shtml)
-- 2026-06-30 07:06 - [爱直接对嘴喝饮料的人天塌了](https://www.share.minike.top/Article/details/61428.shtml)
-- 2026-06-30 07:07 - [绘画区你赢了](https://www.share.kurohicncr.top/Article/details/138813947590.shtml)
-- 2026-06-30 06:42 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/94603575602.shtml)
-- 2026-06-30 07:02 - [美股三大指数高开 西部数据涨超2%](https://www.share.minike.top/Article/details/1119425795.shtml)
-- 2026-06-30 06:51 - [感动全网的699分女生想报考清华](http://www.share.minike.top/Article/details/7739619738.shtml)
-- 2026-06-30 06:53 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](http://www.share.minike.top/Article/details/82562414.shtml)
-- 2026-06-30 06:56 - [刘宇宁东方风云榜人气](https://www.blog.minike.top/Article/details/01590505536.shtml)
-- 2026-06-30 07:02 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/968244165.shtml)
-- 2026-06-30 06:42 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/707512.shtml)
-- 2026-06-30 07:05 - [千香](https://www.share.kurohicncr.top/Article/details/41890886501.shtml)
+- 2026-06-30 07:10 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/47893121916.shtml)
+- 2026-06-30 07:16 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/7571009.shtml)
+- 2026-06-30 07:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.blog.minike.top/Article/details/46797687.shtml)
+- 2026-06-30 07:13 - [张凌赫杨超越 峨眉](http://www.share.kurohicncr.top/Article/details/33673919.shtml)
+- 2026-06-30 07:04 - [媒体评哈兰德之歌火了](https://www.blog.kurohicncr.top/Article/details/7701459280.shtml)
+- 2026-06-30 06:58 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.blog.minike.top/Article/details/2870718.shtml)
+- 2026-06-30 07:16 - [王欣瑜连续4年晋级温网第二轮](https://www.share.minike.top/Article/details/623170.shtml)
+- 2026-06-30 07:00 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/587443806.shtml)
+- 2026-06-30 07:16 - [如何评价杨紫白玉兰获奖](https://www.share.minike.top/Article/details/208146.shtml)
+- 2026-06-30 06:52 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.kurohicncr.top/Article/details/0807196.shtml)
+- 2026-06-30 07:00 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/556456210522.shtml)
+- 2026-06-30 07:04 - [四川宜宾地震为何震感明显](http://www.share.kurohicncr.top/Article/details/0778075545.shtml)
+- 2026-06-30 07:10 - [千与千寻](http://www.share.kurohicncr.top/Article/details/98783495.shtml)
+- 2026-06-30 07:04 - [董卿母亲癌症去世](https://www.share.kurohicncr.top/Article/details/44122.shtml)
+- 2026-06-30 07:06 - [湖北云南这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/0527195.shtml)

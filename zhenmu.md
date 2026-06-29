@@ -1,47 +1,46 @@
-# 中金：李宁维持跑赢行业评级 目标价27.50港元
+# 顾诵芬院士逝世：送别顾老 这蓝天如您所愿
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中金发布研报称，考虑李宁（02331）与球星签约尚处于初期，相关费用规划待明晰，该行维持2026/27年EPS预测1.19/1.31元不变，当前股价对应14/12倍2026/27年市盈率，维持跑赢行业评级和目标价27.50港元不变，对应20倍2026年市盈率，较当前股价有46%上行空间。责任编辑：卢昱君
+发布时间：2026年06月02日 10:47 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-中金发布研报称，考虑李宁（02331）与球星签约尚处于初期，相关费用规划待明晰，该行维持2026/27年EPS预测1.19/1.31元不变，当前股价对应14/12倍2026/27年市盈率，维持跑赢行业评级和目标价27.50港元不变，对应20倍2026年市盈率，较当前股价有46%上行空间。
-
-责任编辑：卢昱君
+发布时间：2026年06月02日 10:47 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [这几秒成世界杯最值钱广告位](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 07:06 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 07:11 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 06:43 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpipl.md)
-- 2026-06-30 06:46 - [85花告别古偶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuping.md)
-- 2026-06-30 06:56 - [日本接连三场大型军演想干什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mengken.md)
-- 2026-06-30 06:55 - [王欣瑜2-1击败科恰雷托](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 06:46 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ejiga.md)
-- 2026-06-30 06:50 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guaiseng.md)
-- 2026-06-30 07:09 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sengni.md)
-- 2026-06-30 06:51 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taizuan.md)
-- 2026-06-30 07:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huankui.md)
-- 2026-06-30 06:46 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinqing.md)
+- 2026-06-30 06:56 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tqtmm.md)
+- 2026-06-30 07:09 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rgqvu.md)
+- 2026-06-30 07:12 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qocyh.md)
+- 2026-06-30 07:09 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bnldl.md)
+- 2026-06-30 07:15 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zigang.md)
+- 2026-06-30 06:49 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpzdl.md)
+- 2026-06-30 06:56 - [内马尔替补](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sralw.md)
+- 2026-06-30 07:10 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhenbian.md)
+- 2026-06-30 06:52 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rfftd.md)
+- 2026-06-30 07:01 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
+- 2026-06-30 06:51 - [又一家县级医院关停门诊输液大厅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 06:49 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 06:58 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuangse.md)
+- 2026-06-30 07:05 - [AI手机进入Agent时代](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.blog.minike.top/Article/details/2140068.shtml)
-- 2026-06-30 06:44 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](http://www.blog.kurohicncr.top/Article/details/946847.shtml)
-- 2026-06-30 07:04 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/04280.shtml)
-- 2026-06-30 07:10 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/0622699938.shtml)
-- 2026-06-30 06:44 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.kurohicncr.top/Article/details/09416.shtml)
-- 2026-06-30 06:59 - [高中五人学习小组全员超650分](http://www.blog.kurohicncr.top/Article/details/2293795.shtml)
-- 2026-06-30 06:51 - [《贺子珍》](http://www.share.kurohicncr.top/Article/details/71047.shtml)
-- 2026-06-30 07:09 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.share.minike.top/Article/details/94324.shtml)
-- 2026-06-30 07:01 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/58978915.shtml)
-- 2026-06-30 06:43 - [沉睡花园](http://www.blog.kurohicncr.top/Article/details/57492.shtml)
-- 2026-06-30 06:51 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/694926191127.shtml)
-- 2026-06-30 07:00 - [你这一辈子有没有为进山姆拼过命？](https://www.blog.minike.top/Article/details/9897930.shtml)
-- 2026-06-30 06:56 - [美团、淘宝闪购、京东外卖达成共识](http://www.share.minike.top/Article/details/776943696.shtml)
-- 2026-06-30 07:05 - [日本淘汰](https://www.blog.kurohicncr.top/Article/details/943132011265.shtml)
-- 2026-06-30 07:00 - [网警提醒4类“高考查分陷阱”](http://www.share.minike.top/Article/details/597626088.shtml)
+- 2026-06-30 06:57 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.blog.minike.top/Article/details/5376473479.shtml)
+- 2026-06-30 06:53 - [足球小将的剧本成真了](http://www.share.minike.top/Article/details/919959314010.shtml)
+- 2026-06-30 06:58 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/44046.shtml)
+- 2026-06-30 07:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/72854382487.shtml)
+- 2026-06-30 06:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://www.share.kurohicncr.top/Article/details/693374365.shtml)
+- 2026-06-30 06:55 - [官方否认宜宾地震与页岩气开采有关](http://www.share.kurohicncr.top/Article/details/352464354956.shtml)
+- 2026-06-30 07:00 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](http://www.blog.kurohicncr.top/Article/details/516383541.shtml)
+- 2026-06-30 07:13 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/524372146.shtml)
+- 2026-06-30 07:15 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.share.minike.top/Article/details/91101057.shtml)
+- 2026-06-30 07:14 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.minike.top/Article/details/13060098.shtml)
+- 2026-06-30 06:50 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://www.share.minike.top/Article/details/32288.shtml)
+- 2026-06-30 07:12 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/22344.shtml)
+- 2026-06-30 07:16 - [如何评价《龙之家族》第三季第二集？](https://www.share.kurohicncr.top/Article/details/0379551.shtml)
+- 2026-06-30 07:16 - [男子身高一米八二仍做断骨增高](http://www.blog.kurohicncr.top/Article/details/836828860651.shtml)
+- 2026-06-30 07:14 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](http://www.blog.kurohicncr.top/Article/details/3180831.shtml)

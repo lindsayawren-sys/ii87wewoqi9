@@ -1,61 +1,57 @@
-# 经合组织下调全球经济增长预期
+# Shake Shack大跌8.7% 公司下调业绩指引
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-经合组织（OECD）周三下调了全球经济增长预期，并警告称，除非迅速达成持久和平协议，否则伊朗冲突造成的经济损失可能会急剧恶化。 经合组织在 6 月份发布的《经济展望》中表示，预计2026年全球经济增速将从2025年的3.4%放缓至2.8%，然后在 2027年回升至3.1%，前提是目前的能源价格冲击在今年年中开始缓解。 经合组织首席经济学家斯特凡诺·斯卡佩塔（Stefano Sc
+专题：聚焦美股2026年第一季度财报 内容速览 经营环境承压，Shake Shack 下调本季度业绩预期。 Shake Shack（股票代码：SHAK）这家汉堡连锁品牌受严峻经营环境影响，下调业绩指引。 本季度进程已超三分之二，公司披露：截至 7 月 1 日的二季度总营收预期从此前 4.24 亿~4.28 亿美元，下调至4.15 亿~4.20 亿美元。 业绩指引下调后股价走弱，
 
 ## 正文
 
-经合组织（OECD）周三下调了全球经济增长预期，并警告称，除非迅速达成持久和平协议，否则伊朗冲突造成的经济损失可能会急剧恶化。
+专题：聚焦美股2026年第一季度财报 内容速览 经营环境承压，Shake Shack 下调本季度业绩预期。
 
-经合组织在 6 月份发布的《经济展望》中表示，预计2026年全球经济增速将从2025年的3.4%放缓至2.8%，然后在 2027年回升至3.1%，前提是目前的能源价格冲击在今年年中开始缓解。
+Shake Shack（股票代码：SHAK）这家汉堡连锁品牌受严峻经营环境影响，下调业绩指引。
 
-经合组织首席经济学家斯特凡诺·斯卡佩塔（Stefano Scarpetta，）表示，但这假设了一种有时限的干扰情景，即达成和平协议，并迅速解决霍尔木兹海峡目前的干扰。
+本季度进程已超三分之二，公司披露：截至 7 月 1 日的二季度总营收预期从此前 4.24 亿~4.28 亿美元，下调至4.15 亿~4.20 亿美元。
 
-更糟糕的情景是，如果航运和能源基础设施的中断持续到2027年，全球经济增长率将大幅下滑，2026年仅为2.1%，2027年更是跌至1.8%。
+业绩指引下调后股价走弱，早盘大跌8.7%；该股近三个月累计跌幅已超 30%。
 
-斯卡佩塔警告说，这将使一些经济体陷入或接近衰退。
+二季度授权加盟业务营收仍维持 1350 万~1370 万美元预期；但自营门店同店销售额增速由原先 3%~5% 下调至 2.5%~3%。
 
-经合组织的研究探讨了霍尔木兹海峡的关闭，以及海湾地区能源基础设施的破坏，如何导致能源价格飙升，并推高了化肥和其他关键工业投入品的成本。
+公司二季度仍计划新开 8 家加盟门店。
 
-研究指出，即使最终找到解决方案，冲突引发的后果也可能在一段时间内持续存在。
+CEO 罗布・林奇表示，本次业绩下修源于宏观经济不确定性加剧、行业竞争加剧等多重因素。
 
-斯卡佩塔表示，持久解决当前冲突不仅能缓解该地区的困境，还能“为消除冲突对全球经济造成的冲击奠定基础”。
+“需要说明的是，公司业务基本面支撑要素依旧稳健。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [恋与深空回应争议](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 07:00 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chisun.md)
-- 2026-06-30 06:55 - [张帅时隔四年再取温网正赛胜利](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rangpei.md)
-- 2026-06-30 07:04 - [美团、淘宝闪购、京东外卖达成共识](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banal.md)
-- 2026-06-30 06:42 - [8D城市、rapper、摩托，重庆的精神状态还是太复杂了!【阿Test正经比比】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qldhf.md)
-- 2026-06-30 07:01 - [男生180+，有腹肌是什么体验？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
-- 2026-06-30 06:45 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ledve.md)
-- 2026-06-30 06:51 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiaoxia.md)
-- 2026-06-30 06:59 - [急先锋](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usxpb.md)
-- 2026-06-30 06:44 - [2021江苏卫视跨年演唱会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nkbzg.md)
-- 2026-06-30 07:02 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 07:12 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxvto.md)
-- 2026-06-30 07:03 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clukz.md)
-- 2026-06-30 06:54 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 07:05 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 07:08 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 06:59 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 06:56 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suwo.md)
+- 2026-06-30 07:12 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 07:17 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/blcbt.md)
+- 2026-06-30 07:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
+- 2026-06-30 06:59 - [恋与深空道歉声明](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
+- 2026-06-30 07:12 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhanei.md)
+- 2026-06-30 07:00 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gwyfg.md)
+- 2026-06-30 07:04 - [如何评价《龙之家族》第三季第二集？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/opqpi.md)
+- 2026-06-30 07:04 - [佐野海舟远射破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuhun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/609464211.shtml)
-- 2026-06-30 07:02 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.minike.top/Article/details/750420.shtml)
-- 2026-06-30 06:52 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/6350730.shtml)
-- 2026-06-30 06:47 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/428505629426.shtml)
-- 2026-06-30 07:06 - [女子称留了30年长发被剪索赔2.5万](http://www.share.minike.top/Article/details/40634624.shtml)
-- 2026-06-30 06:52 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/822891445530.shtml)
-- 2026-06-30 07:09 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/02517413.shtml)
-- 2026-06-30 06:44 - [赵今麦因“瘦而不柴”的体态出圈](https://www.share.kurohicncr.top/Article/details/8607820764.shtml)
-- 2026-06-30 06:47 - [TOP不是Prada全球普通人](http://www.share.kurohicncr.top/Article/details/228699764.shtml)
-- 2026-06-30 06:57 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/0633360.shtml)
-- 2026-06-30 06:49 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.kurohicncr.top/Article/details/27091.shtml)
-- 2026-06-30 06:49 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.blog.minike.top/Article/details/2070459226.shtml)
-- 2026-06-30 06:57 - [日本反击率先破门](http://www.share.kurohicncr.top/Article/details/085508.shtml)
-- 2026-06-30 06:50 - [不开心就去看三年前的购物订单](https://www.share.kurohicncr.top/Article/details/4331379909.shtml)
-- 2026-06-30 06:47 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/814602620.shtml)
+- 2026-06-30 07:03 - [《虎吹最难绷の一集》](https://www.blog.kurohicncr.top/Article/details/2119615597.shtml)
+- 2026-06-30 07:16 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/55632216.shtml)
+- 2026-06-30 07:08 - [父母催婚话术是如何做到全国统一的](http://www.share.kurohicncr.top/Article/details/70513.shtml)
+- 2026-06-30 07:16 - [王欣瑜：今年经历了一些起伏](https://www.blog.minike.top/Article/details/40825.shtml)
+- 2026-06-30 07:09 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/469063671.shtml)
+- 2026-06-30 07:12 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/7143352.shtml)
+- 2026-06-30 06:58 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/25530892.shtml)
+- 2026-06-30 07:02 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/473680665156.shtml)
+- 2026-06-30 06:55 - [张帅时隔四年再取温网正赛胜利](https://www.blog.minike.top/Article/details/339619160.shtml)
+- 2026-06-30 07:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/392994678.shtml)
+- 2026-06-30 07:15 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/14435.shtml)
+- 2026-06-30 06:51 - [天道](http://www.share.minike.top/Article/details/3077941062.shtml)
+- 2026-06-30 07:15 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.kurohicncr.top/Article/details/23326.shtml)
+- 2026-06-30 07:04 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/26893476177.shtml)
+- 2026-06-30 06:50 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/2574288177.shtml)

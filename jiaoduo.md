@@ -1,57 +1,54 @@
-# 新闻联播披露A股重要数据
+# 中国热播剧带火古戏台：“戏台在，戏就在”
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-据央视《新闻联播》6月3日报道，近期，多家国际金融机构纷纷发布中国经济积极展望，调高对中国科技企业投资比重，加快在华投资布局。 近期，知名全球指数编制机构明晟公司将19只A股股票正式纳入明晟中国指数，这一调整意味着国际资金将更便捷投资于这些中国企业。新纳入企业主要集中在光通信、算力、高端制造等领域，显示出外资对中国“硬科技”的青睐。 今年以来，外资通过各种渠道稳步流入。截至目前
+发布时间：2026年06月03日 09:58 来源：中国新闻网 随着电视剧《主角》热播，剧中取景地山西“连三舞台”引发网友对古戏台的关注。戏曲大省山西现存2800余座古戏台，约占全国的七成。近日，记者探访多座古戏台，探寻赓续不绝的戏曲文脉。 翼城县四圣宫的元代舞楼上丑花鼓表演依然进行；新绛县明代戏台上，蒲剧《表花》仍在唱响。从乡野到“云端”，古戏台穿越时光，久久回响。(记者 王
 
 ## 正文
 
-据央视《新闻联播》6月3日报道，近期，多家国际金融机构纷纷发布中国经济积极展望，调高对中国科技企业投资比重，加快在华投资布局。
+发布时间：2026年06月03日 09:58 来源：中国新闻网 随着电视剧《主角》热播，剧中取景地山西“连三舞台”引发网友对古戏台的关注。
 
-近期，知名全球指数编制机构明晟公司将19只A股股票正式纳入明晟中国指数，这一调整意味着国际资金将更便捷投资于这些中国企业。
+戏曲大省山西现存2800余座古戏台，约占全国的七成。
 
-新纳入企业主要集中在光通信、算力、高端制造等领域，显示出外资对中国“硬科技”的青睐。
+近日，记者探访多座古戏台，探寻赓续不绝的戏曲文脉。
 
-今年以来，外资通过各种渠道稳步流入。
+翼城县四圣宫的元代舞楼上丑花鼓表演依然进行；新绛县明代戏台上，蒲剧《表花》仍在唱响。
 
-截至目前，各类境外投资者持有A股流通市值超过4万亿元，已成为中国资本市场的重要参与者。
+从乡野到“云端”，古戏台穿越时光，久久回响。
 
-在加码投资中国的同时，摩根士丹利、德意志银行等多家国际投行近期纷纷上调2026年中国GDP增速预期。
-
-多家机构表示，中国科技创新在全球的核心竞争力是他们坚定投资中国的最大底气。
-
-与此同时，外资金融机构加速在华“扎根”。
+(记者 王惠琳 范丽芳 山西报道） 责任编辑：【罗攀】
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lbtup.md)
-- 2026-06-30 07:06 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dpfdd.md)
-- 2026-06-30 07:04 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lowsx.md)
-- 2026-06-30 06:59 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 07:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tpwtx.md)
-- 2026-06-30 07:02 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 06:53 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 06:45 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 07:04 - [数据前瞻巴西VS日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jhifm.md)
-- 2026-06-30 06:57 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
-- 2026-06-30 06:55 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqrrk.md)
+- 2026-06-30 07:00 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 06:59 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bffcz.md)
+- 2026-06-30 06:54 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 06:58 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qwerw.md)
+- 2026-06-30 07:05 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
+- 2026-06-30 07:11 - [王楚钦谈表演球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/diandan.md)
+- 2026-06-30 06:56 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
+- 2026-06-30 06:53 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 07:01 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 06:55 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 06:59 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jueni.md)
+- 2026-06-30 07:15 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ebuxd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [博世们还在犹豫 美的们已经卖断货](http://www.share.kurohicncr.top/Article/details/624875391.shtml)
-- 2026-06-30 06:43 - [如何把斧兵改造成精英怪？提高攻速移速！！！](http://www.blog.kurohicncr.top/Article/details/0707506087.shtml)
-- 2026-06-30 06:43 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](http://www.blog.kurohicncr.top/Article/details/332226.shtml)
-- 2026-06-30 06:48 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/076848722193.shtml)
-- 2026-06-30 07:07 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/290276.shtml)
-- 2026-06-30 06:52 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/83331588.shtml)
-- 2026-06-30 07:07 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/689859698.shtml)
-- 2026-06-30 06:46 - [这些7月新规影响你我](http://www.share.minike.top/Article/details/706994515851.shtml)
-- 2026-06-30 06:46 - [女子遭家暴逃跑致丈夫身亡被判11年](http://www.share.minike.top/Article/details/951393363.shtml)
-- 2026-06-30 07:00 - [英语考了145的人竟然教数学](http://www.share.minike.top/Article/details/54613.shtml)
-- 2026-06-30 07:00 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/25014.shtml)
-- 2026-06-30 07:02 - [全网说丑的玫瑰空调卖了5万台](https://www.share.kurohicncr.top/Article/details/71758854.shtml)
-- 2026-06-30 07:09 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/302449830394.shtml)
-- 2026-06-30 07:07 - [巴拉圭进球](http://www.blog.minike.top/Article/details/030635175753.shtml)
-- 2026-06-30 06:46 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/41870.shtml)
+- 2026-06-30 06:57 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/09641012.shtml)
+- 2026-06-30 07:09 - [存储三巨头遭遇集体诉讼](https://www.share.kurohicncr.top/Article/details/5029920.shtml)
+- 2026-06-30 07:07 - [王楚钦孙颖莎混双对手产生](https://www.share.minike.top/Article/details/8253496.shtml)
+- 2026-06-30 06:50 - [又一家县级医院关停门诊输液大厅](http://www.share.kurohicncr.top/Article/details/295842286.shtml)
+- 2026-06-30 07:08 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/449752.shtml)
+- 2026-06-30 06:50 - [恋与深空制作组回应近期争议](http://www.share.kurohicncr.top/Article/details/683581568547.shtml)
+- 2026-06-30 07:14 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/062774286944.shtml)
+- 2026-06-30 07:17 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.kurohicncr.top/Article/details/241461211.shtml)
+- 2026-06-30 06:51 - [恋与深空 日服](https://www.share.minike.top/Article/details/8201116557.shtml)
+- 2026-06-30 07:10 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](http://www.blog.minike.top/Article/details/58386740.shtml)
+- 2026-06-30 07:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/146154871384.shtml)
+- 2026-06-30 06:53 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](http://www.share.kurohicncr.top/Article/details/03708098411.shtml)
+- 2026-06-30 07:01 - [父母催婚话术是如何做到全国统一的](http://www.blog.kurohicncr.top/Article/details/058275.shtml)
+- 2026-06-30 07:15 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/61917482227.shtml)
+- 2026-06-30 06:52 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/316126927393.shtml)

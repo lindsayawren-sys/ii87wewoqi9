@@ -1,57 +1,58 @@
-# Aeva将携AI交通智能平台亮相ITS America 2026
+# 我国牵头制定的安全协议测试国际标准发布
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-下一代传感与感知系统领军企业Aeva Technologies宣布，将在2026年6月9日至12日于底特律举行的ITS美国大会暨博览会上，现场展示其人工智能驱动的CityOS实时交通智能平台。 CityOS是Aeva专为交通管理机构打造的综合解决方案。该平台融合了Aeva Atlas Orion 4D激光雷达传感器、边缘AI处理技术以及市场领先的感知与分析软件，能将普通路口和路
+记者今天从国家标准委了解到国际标准《信息技术 安全服务密码套件一致性测试方法 第16部分：ECDSA-ECDH密码套件》发布。该标准由我国牵头主导制定，拥有完全自主知识产权，是我国信息安全服务领域的重要创新成果，为国际密码套件合规应用、安全测评提供了统一技术规范。射频识别(RFID)技术和自动识别与数据采集(AIDC)技术是物联网的底层支撑，是实现万物互联数据采集、设备识别、智
 
 ## 正文
 
-下一代传感与感知系统领军企业Aeva Technologies宣布，将在2026年6月9日至12日于底特律举行的ITS美国大会暨博览会上，现场展示其人工智能驱动的CityOS实时交通智能平台。
+记者今天从国家标准委了解到国际标准《信息技术 安全服务密码套件一致性测试方法 第16部分：ECDSA-ECDH密码套件》发布。
 
-CityOS是Aeva专为交通管理机构打造的综合解决方案。
+该标准由我国牵头主导制定，拥有完全自主知识产权，是我国信息安全服务领域的重要创新成果，为国际密码套件合规应用、安全测评提供了统一技术规范。
 
-该平台融合了Aeva Atlas Orion 4D激光雷达传感器、边缘AI处理技术以及市场领先的感知与分析软件，能将普通路口和路段转化为具备实时交通态势感知能力的智能基础设施。
+射频识别(RFID)技术和自动识别与数据采集(AIDC)技术是物联网的底层支撑，是实现万物互联数据采集、设备识别、智能交互的关键基础。
 
-与传统摄像头或感应线圈系统不同，CityOS采用调频连续波技术，可在各种光照和天气条件下持续运行。
+这些技术广泛应用于智能制造、智慧物流、医疗健康、电子支付等重要领域。
 
-它能够以厘米级精度同时测量道路上车辆、行人、骑行者等所有目标的位置与速度，有效弥补了传统系统在恶劣天气或光线不足时易失效、无法直接测速等短板。
+随着物联网规模化普及，设备身份伪造、数据窃听、信息篡改等安全风险显著增多。
 
-在ITS展会上，Aeva将重点演示CityOS的六大核心能力：全时全天候持续检测、基于4D激光雷达的实时路口监控、弱势道路使用者保护与碰撞风险预警、交通信号自适应优化、面向运管中心的综合分析仪表盘，以及高分辨率数据驱动的交通规划支持。
+该标准聚焦安全协议一致性与符合性测试，统一了测试方法、技术要求与判定依据，可精准核验物联网产品安全防护性能，有效规范全球行业测试评估秩序。
 
-此次亮相建立在Aeva CityOS的实战成果之上。
+该标准的发布补齐了全球物联网密码测试的标准短板，有效破解测试标准不一、合规无序等突出问题。
 
-今年3月，佐治亚州交通部已选定该平台，在亚特兰大都会区30个新增路口进行大规模部署。
+同时彰显了我国密码安全领域的技术实力与国际引领优势，提升了我国在全球数字安全治理领域的标准话语权，为守护数字经济安全发展、赋能网络强国建设提供了国际标准支撑。
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cheqian.md)
-- 2026-06-30 07:11 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 06:51 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
-- 2026-06-30 06:50 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chenkai.md)
-- 2026-06-30 06:57 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 07:08 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 07:10 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanghou.md)
-- 2026-06-30 07:02 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gyduc.md)
-- 2026-06-30 07:04 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 06:49 - [三星投资计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/daigeng.md)
-- 2026-06-30 06:45 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 07:12 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 07:13 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 07:12 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 07:15 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 07:04 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/spooc.md)
+- 2026-06-30 07:17 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psfmu.md)
+- 2026-06-30 06:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 07:15 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
+- 2026-06-30 06:52 - [苗族银饰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
+- 2026-06-30 07:17 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pexlf.md)
+- 2026-06-30 07:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tanshuan.md)
+- 2026-06-30 07:09 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cule.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/843288217.shtml)
-- 2026-06-30 06:46 - [赵今麦因“瘦而不柴”的体态出圈](https://www.blog.kurohicncr.top/Article/details/74359575.shtml)
-- 2026-06-30 06:43 - [日本硬刚巴西谁能赢](https://www.blog.kurohicncr.top/Article/details/663141020197.shtml)
-- 2026-06-30 07:06 - [人可以极简主义到什么程度？](http://www.share.kurohicncr.top/Article/details/48806516.shtml)
-- 2026-06-30 06:58 - [杨紫被质疑未使用原名纯属误解](http://www.share.minike.top/Article/details/39727885581.shtml)
-- 2026-06-30 06:55 - [87克大金链到老庙黄金维修少了11克](https://www.share.kurohicncr.top/Article/details/594025213278.shtml)
-- 2026-06-30 07:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://www.share.kurohicncr.top/Article/details/6805281.shtml)
-- 2026-06-30 06:43 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.minike.top/Article/details/652275234.shtml)
-- 2026-06-30 06:54 - [日本淘汰](http://www.share.minike.top/Article/details/536134324332.shtml)
-- 2026-06-30 06:44 - [院士：太空轨道必须抢](https://www.share.kurohicncr.top/Article/details/27913822009.shtml)
-- 2026-06-30 06:57 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/06947400.shtml)
-- 2026-06-30 07:08 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.minike.top/Article/details/555126894.shtml)
-- 2026-06-30 07:00 - [陈睿《让好内容发生》](http://www.share.minike.top/Article/details/02628076.shtml)
-- 2026-06-30 07:03 - [女子螺蛳粉摊吃出蛇](http://www.share.minike.top/Article/details/65202.shtml)
-- 2026-06-30 06:57 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/8241495.shtml)
+- 2026-06-30 07:14 - [女子遭家暴逃跑致丈夫身亡被判11年](https://www.blog.kurohicncr.top/Article/details/377537.shtml)
+- 2026-06-30 06:56 - [沙丘](https://www.share.minike.top/Article/details/240802851013.shtml)
+- 2026-06-30 07:00 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/6896036.shtml)
+- 2026-06-30 07:08 - [起风了](http://www.share.minike.top/Article/details/6012941325.shtml)
+- 2026-06-30 07:06 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/1378994975.shtml)
+- 2026-06-30 06:53 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/129362938538.shtml)
+- 2026-06-30 06:49 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/96629600532.shtml)
+- 2026-06-30 07:04 - [陈小云又好好的养了自己一年](http://www.share.kurohicncr.top/Article/details/318395235453.shtml)
+- 2026-06-30 07:07 - [我想说 其实你很好！](https://www.blog.kurohicncr.top/Article/details/827922.shtml)
+- 2026-06-30 07:02 - [警犬“多多”助民警寻回失联老人](https://www.share.kurohicncr.top/Article/details/37781501967.shtml)
+- 2026-06-30 07:17 - [王灿兮被烫伤两年后维权成功](https://www.blog.minike.top/Article/details/97000611.shtml)
+- 2026-06-30 07:07 - [健全中小学教师工资长效联动机制](https://www.share.kurohicncr.top/Article/details/55342.shtml)
+- 2026-06-30 07:08 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/31543.shtml)
+- 2026-06-30 07:08 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/28557078.shtml)
+- 2026-06-30 06:54 - [人类...完蛋了...](https://www.blog.minike.top/Article/details/8344424.shtml)

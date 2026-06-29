@@ -1,60 +1,54 @@
-# 我国牵头修订的通用模件熔断体国际标准发布
+# 台风“蔷薇”袭击日本西南部 致9人受伤数万户停电
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。 通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要
+中新网6月2日电 据法新社报道，台风“蔷薇”2日袭击日本西南部，造成数万户家庭停电、数百架航班取消，并导致9人受伤。 据报道，九州岛宫崎市约39万全体居民已被敦促撤离。2日上午，冲绳约1.7万户家庭、鹿儿岛地区超过3万户家庭停电。日本内阁官房长官木原稔表示，“蔷薇”已在冲绳造成9人受伤。 日本广播协会报道称，部分伤者是因风暴吹起物体砸中汽车，或因强风导致站立不稳而受伤。目前，日
 
 ## 正文
 
-记者今天(6月3日)从国家标准委了解到，由我国牵头修订的国际标准《小型熔断器—第4部分：通用模件熔断体(UMF)—穿孔式和表面贴装式》近日获批发布。
+中新网6月2日电 据法新社报道，台风“蔷薇”2日袭击日本西南部，造成数万户家庭停电、数百架航班取消，并导致9人受伤。
 
-通用模件熔断体(UMF)是一种关键的电路安全保护元件，通过表面贴装或穿孔技术直接焊接于印制电路板(PCB)及其他基板系统，具备微型化、可便捷安装特性。
+据报道，九州岛宫崎市约39万全体居民已被敦促撤离。
 
-近年来，熔断器行业的产品向微型化、轻量化、薄型化方向发展，原有国际标准中的技术要求与试验方法已难以满足当前产业快速迭代的技术需求。
+2日上午，冲绳约1.7万户家庭、鹿儿岛地区超过3万户家庭停电。
 
-该标准规定了通用模件熔断体的标准规格单、尺寸和结构、电气性能等技术要求，适用于印制电路板(PCB)或其他基板系统上的通用模件熔断体(UMF)。
+日本内阁官房长官木原稔表示，“蔷薇”已在冲绳造成9人受伤。
 
-该熔断体被用于保护通常在户内使用的电气装置、电子设备及其部件。
+日本广播协会报道称，部分伤者是因风暴吹起物体砸中汽车，或因强风导致站立不稳而受伤。
 
-该标准在试验方法、性能验证等方面进行了系统完善，更好地反映(契合)了当前及未来小型熔断器在微型化、大电流、高分断能力等方向的技术发展需求。
-
-此项国际标准的成功发布，是我国在电子电器领域国际标准化工作中取得的又一项重要成果，为全球电路保护技术的创新发展贡献了中国智慧。
-
-(总台央视记者 李晶晶)
+目前，日本两大航空公司全日空和日本航空已取消1日至3日期间共计600架次航班。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [湖北云南的这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/weiwo.md)
-- 2026-06-30 06:51 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/agnrb.md)
-- 2026-06-30 07:10 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/npqjl.md)
-- 2026-06-30 06:43 - [电影《后室》讲了一个什么故事？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
-- 2026-06-30 06:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvqdn.md)
-- 2026-06-30 06:53 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pidian.md)
-- 2026-06-30 06:59 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 06:51 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
-- 2026-06-30 07:03 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
-- 2026-06-30 07:12 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
-- 2026-06-30 07:10 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 06:57 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fbylm.md)
-- 2026-06-30 06:51 - [王欣瑜2-1击败科恰雷托](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 07:04 - [王欣瑜温网开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hivqz.md)
+- 2026-06-30 07:04 - [乔家的儿女](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 06:54 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 07:11 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suanxiang.md)
+- 2026-06-30 07:00 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 06:53 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongyi.md)
+- 2026-06-30 06:56 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/diaocheng.md)
+- 2026-06-30 07:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iajhe.md)
+- 2026-06-30 06:53 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/udsck.md)
+- 2026-06-30 07:01 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tieluan.md)
+- 2026-06-30 07:13 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pvqdn.md)
+- 2026-06-30 07:06 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 07:06 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:48 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/4228988280.shtml)
-- 2026-06-30 07:11 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.minike.top/Article/details/358516455.shtml)
-- 2026-06-30 06:47 - [刘宇宁东方风云榜人气](http://www.blog.kurohicncr.top/Article/details/8898150295.shtml)
-- 2026-06-30 06:48 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/602248065303.shtml)
-- 2026-06-30 06:44 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/800206.shtml)
-- 2026-06-30 06:58 - [健全中小学教师工资长效联动机制](http://www.share.minike.top/Article/details/5408913688.shtml)
-- 2026-06-30 06:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.kurohicncr.top/Article/details/2821607.shtml)
-- 2026-06-30 06:48 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/36590205196.shtml)
-- 2026-06-30 07:05 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/8030837060.shtml)
-- 2026-06-30 06:45 - [宜宾地震造成15人受轻伤](http://www.share.minike.top/Article/details/9300704.shtml)
-- 2026-06-30 06:44 - [日本世界杯淘汰赛历史0胜](https://www.blog.minike.top/Article/details/0230392.shtml)
-- 2026-06-30 07:06 - [关晓彤一路小跑迎接爸爸探班](https://www.share.minike.top/Article/details/846535560.shtml)
-- 2026-06-30 06:42 - [蜘蛛侠:英雄归来](https://www.blog.kurohicncr.top/Article/details/68937.shtml)
-- 2026-06-30 07:10 - [德国vs巴拉圭](http://www.blog.kurohicncr.top/Article/details/203497.shtml)
-- 2026-06-30 06:51 - [穆祉丞年度人气艺人](https://www.blog.minike.top/Article/details/9710109.shtml)
+- 2026-06-30 07:02 - [英语考了145的人竟然教数学](http://www.share.kurohicncr.top/Article/details/761099800.shtml)
+- 2026-06-30 07:01 - [国务院：探索延长义务教育年限](https://www.share.kurohicncr.top/Article/details/431753.shtml)
+- 2026-06-30 07:17 - [急先锋](https://www.blog.kurohicncr.top/Article/details/35891999.shtml)
+- 2026-06-30 06:50 - [恋与深空 日服](http://www.blog.minike.top/Article/details/2884794.shtml)
+- 2026-06-30 07:02 - [扫黑风暴](http://www.blog.minike.top/Article/details/166743594592.shtml)
+- 2026-06-30 07:10 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/827638901996.shtml)
+- 2026-06-30 06:59 - [中国新一轮出口管制直指日本命脉](https://www.blog.minike.top/Article/details/4032471.shtml)
+- 2026-06-30 06:50 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/185881811.shtml)
+- 2026-06-30 07:07 - [刺刀峡谷5人溺亡后户外队照常接单](http://www.share.kurohicncr.top/Article/details/51711.shtml)
+- 2026-06-30 06:49 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/95403598.shtml)
+- 2026-06-30 07:02 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/972382199544.shtml)
+- 2026-06-30 07:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://www.blog.kurohicncr.top/Article/details/084281821.shtml)
+- 2026-06-30 07:15 - [任素汐舞台上唱《王招君》](https://www.share.minike.top/Article/details/547478542.shtml)
+- 2026-06-30 07:00 - [MSI应援曲 如果季中成回忆](http://www.blog.minike.top/Article/details/719159379642.shtml)
+- 2026-06-30 07:17 - [点菜也要教吗](http://www.blog.minike.top/Article/details/4227105.shtml)

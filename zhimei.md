@@ -1,59 +1,60 @@
-# 富国银行：美股市场仍如坐过山车
+# 硕腾证券欺诈集体诉讼已正式提起，Frank R. Cruz律师事务所鼓励股东查询
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-富国银行策略师斯科特·雷恩表示，自美以对伊战争爆发以来，所有市场都如同坐上了“过山车”。他预计，即使这场战争结束，市场的大幅波动也不会很快平息。 例如，美国基准西得克萨斯中质原油多次出现单日涨跌幅达5%至10%的情况。美国国债收益率也未能幸免。10年期国债收益率此前为4%，但到3月份已升至4.5%，5月份更是一度触及4.67%的高位，随后又回落至4.45%。 他在给客户的报告中
+Frank R． Cruz律师事务所宣布，已代表在2025年1月14日至2026年5月6日期间购买或以其他方式收购硕腾公司证券的股东提起证券欺诈集体诉讼。该诉讼指控硕腾及其部分高管违反了联邦证券法，向投资者发布了具有重大误导性的声明。 此次诉讼的原告为Ann Arbor市退休人员医疗福利计划与信托基金，被告包括硕腾公司及部分高管。诉讼指称，在整个集体诉讼期内，被告未能向投资者披
 
 ## 正文
 
-富国银行策略师斯科特·雷恩表示，自美以对伊战争爆发以来，所有市场都如同坐上了“过山车”。
+Frank R． Cruz律师事务所宣布，已代表在2025年1月14日至2026年5月6日期间购买或以其他方式收购硕腾公司证券的股东提起证券欺诈集体诉讼。
 
-他预计，即使这场战争结束，市场的大幅波动也不会很快平息。
+该诉讼指控硕腾及其部分高管违反了联邦证券法，向投资者发布了具有重大误导性的声明。
 
-例如，美国基准西得克萨斯中质原油多次出现单日涨跌幅达5%至10%的情况。
+此次诉讼的原告为Ann Arbor市退休人员医疗福利计划与信托基金，被告包括硕腾公司及部分高管。
 
-美国国债收益率也未能幸免。
+诉讼指称，在整个集体诉讼期内，被告未能向投资者披露以下不利信息： 首先，硕腾的犬类疼痛治疗药物Librela的兽医处方增长和采用率正在急剧减弱。
 
-10年期国债收益率此前为4%，但到3月份已升至4.5%，5月份更是一度触及4.67%的高位，随后又回落至4.45%。
+此前，FDA已就该药物可能导致犬类严重神经系统并发症发布了安全警告，致使兽医在开具处方时变得更加谨慎。
 
-他在给客户的报告中写道：“我们确实看到美国和伊朗都面临着迅速达成协议以恢复全球能源流通的压力。
+其次，硕腾的旗舰寄生虫防治产品Simparica Trio在一个增速放缓的整体市场中，正在将大量市场份额让给一款价格更低、适应症更广的竞品。
 
-但是，即使明天就达成协议，通胀问题仍将成为今年余下时间的前景考量因素之一。
+第三，硕腾的皮肤病产品Apoquel和Cytopoint在一个同样增速放缓的市场中，正将大量市场份额输给一款新推出的竞品。
 
-投资者可以考虑增持那些能够将上涨的投入成本转嫁给商业客户的行业，包括工业气体以及机械与设备行业板块。
+诉讼详细列出了硕腾在集体诉讼期内数次财务披露后股价暴跌的情况：2025年8月5日，硕腾发布第二季度财报，显示出伴侣动物业务需求趋势疲软，股价当日下跌近4%。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [巴西半场0比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 06:50 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiaqie.md)
-- 2026-06-30 07:09 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 07:01 - [爱很美味](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
-- 2026-06-30 06:54 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 07:06 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
-- 2026-06-30 06:42 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 07:00 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/geke.md)
-- 2026-06-30 07:06 - [孙兴慜道歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zujing.md)
-- 2026-06-30 06:42 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuzyi.md)
-- 2026-06-30 06:59 - [詹姆斯下赛季去哪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/saomai.md)
-- 2026-06-30 06:55 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iaajh.md)
-- 2026-06-30 06:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ligua.md)
+- 2026-06-30 07:04 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/meiang.md)
+- 2026-06-30 07:08 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yece.md)
+- 2026-06-30 06:58 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjoyq.md)
+- 2026-06-30 07:01 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rstuz.md)
+- 2026-06-30 07:15 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
+- 2026-06-30 07:10 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jysjd.md)
+- 2026-06-30 06:57 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 06:55 - [任素汐舞台上唱《王招君》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hilfn.md)
+- 2026-06-30 07:10 - [二次元提前预演明日巴西对日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 07:16 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ltmvb.md)
+- 2026-06-30 06:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/axfhf.md)
+- 2026-06-30 06:49 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rfpwq.md)
+- 2026-06-30 07:00 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 07:02 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuiwai.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:48 - [宗元舞2.0 迟来的50万女装福利](https://www.share.kurohicncr.top/Article/details/410580277.shtml)
-- 2026-06-30 07:08 - [一生一世](http://www.share.kurohicncr.top/Article/details/135044.shtml)
-- 2026-06-30 06:55 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/110918485.shtml)
-- 2026-06-30 07:03 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.kurohicncr.top/Article/details/78493071300.shtml)
-- 2026-06-30 06:59 - [85花告别古偶](http://www.share.kurohicncr.top/Article/details/427305651.shtml)
-- 2026-06-30 07:03 - [徐亮怒斥世界杯踢假球](http://www.blog.kurohicncr.top/Article/details/7013053355.shtml)
-- 2026-06-30 06:44 - [马航MH370传来最新消息](https://www.share.minike.top/Article/details/991224611.shtml)
-- 2026-06-30 07:00 - [披荆斩棘的哥哥](http://www.blog.kurohicncr.top/Article/details/907729687329.shtml)
-- 2026-06-30 07:11 - [在没有空调的巴黎感受世纪热浪](https://www.share.kurohicncr.top/Article/details/55619428219.shtml)
-- 2026-06-30 06:55 - [同样是装空调差别怎么能这么大](https://www.blog.kurohicncr.top/Article/details/38659062165.shtml)
-- 2026-06-30 06:53 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/1205847.shtml)
-- 2026-06-30 06:52 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/068556273387.shtml)
-- 2026-06-30 07:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](http://www.blog.minike.top/Article/details/71010062.shtml)
-- 2026-06-30 07:07 - [两老人多次到洗车店泼粪 警方已介入](http://www.share.kurohicncr.top/Article/details/723640.shtml)
-- 2026-06-30 07:01 - [日本反击率先破门](https://www.blog.minike.top/Article/details/96067518054.shtml)
+- 2026-06-30 07:13 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/866296416435.shtml)
+- 2026-06-30 06:56 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/52045258.shtml)
+- 2026-06-30 07:02 - [王源近几年没有路演了](http://www.blog.kurohicncr.top/Article/details/74221668530.shtml)
+- 2026-06-30 07:03 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/953929184526.shtml)
+- 2026-06-30 06:49 - [女子在酒吧被陌生人投放“伟哥”](http://www.blog.minike.top/Article/details/10142940981.shtml)
+- 2026-06-30 06:54 - [王健林甩卖超80座万达广场](http://www.blog.kurohicncr.top/Article/details/90570710.shtml)
+- 2026-06-30 07:00 - [为什么香港的冲厕水是咸的？](https://www.share.kurohicncr.top/Article/details/748444.shtml)
+- 2026-06-30 07:03 - [网友分享整套中医手术刀](http://www.blog.minike.top/Article/details/211673431439.shtml)
+- 2026-06-30 07:02 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/674366115458.shtml)
+- 2026-06-30 06:50 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/3220369.shtml)
+- 2026-06-30 07:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/01490266.shtml)
+- 2026-06-30 06:49 - [法总统候选人：拒绝与中国激烈对抗](https://www.share.minike.top/Article/details/038877.shtml)
+- 2026-06-30 06:59 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.blog.minike.top/Article/details/210760256.shtml)
+- 2026-06-30 07:16 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/736570557.shtml)
+- 2026-06-30 07:17 - [电影《后室》讲了一个什么故事？](https://www.blog.kurohicncr.top/Article/details/188529220.shtml)

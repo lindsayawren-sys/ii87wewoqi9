@@ -1,58 +1,60 @@
-# Palantir登陆谷歌云市场：打通BigQuery与Foundry数据壁垒
+# 华泰证券：光模块功耗提升驱动液冷加速渗透
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-数据分析软件公司Palantir Technologies与谷歌云达成一项多层次战略合作，其软件将正式上线谷歌云市场，并与BigQuery数据平台及Gemini AI模型实现深度集成。这一举措有助于Palantir吸引更多已使用谷歌云的企业客户。 根据合作协议，双方将构建多项核心集成能力：一是BigQuery与Palantir Foundry之间的双向数据联邦，在已有零拷贝虚拟
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！华泰睿思 核心观点 AI算力扩容驱动光模块需求高增，800G/1.6T产品高速迭代带动功耗攀升，液冷散热成为必选项，催生光模块液冷Cage广阔市场空间。传统Cage厂商产线复用性强、客户资源稳固，通过液冷模组延伸价值链，相关公司积极布局液冷产品，扩充产能，充分把握行业升级红利。 光模块需求随算力扩容攀升，高
 
 ## 正文
 
-数据分析软件公司Palantir Technologies与谷歌云达成一项多层次战略合作，其软件将正式上线谷歌云市场，并与BigQuery数据平台及Gemini AI模型实现深度集成。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-这一举措有助于Palantir吸引更多已使用谷歌云的企业客户。
+华泰睿思 核心观点 AI算力扩容驱动光模块需求高增，800G/1.6T产品高速迭代带动功耗攀升，液冷散热成为必选项，催生光模块液冷Cage广阔市场空间。
 
-根据合作协议，双方将构建多项核心集成能力：一是BigQuery与Palantir Foundry之间的双向数据联邦，在已有零拷贝虚拟表集成基础上拓展；二是谷歌Knowledge Catalog与Foundry Ontology之间的双向语义交换。
+传统Cage厂商产线复用性强、客户资源稳固，通过液冷模组延伸价值链，相关公司积极布局液冷产品，扩充产能，充分把握行业升级红利。
 
-这些集成旨在帮助同时使用BigQuery和Foundry的企业提升下一代运营效率。
+光模块需求随算力扩容攀升，高速产品引领结构升级 随着AI大模型的兴起与不断迭代，算力需求呈现指数级增长，驱动数据中心扩容与升级，光模块作为数据中心通信系统的核心组件有望显著受益。
 
-在AI领域，谷歌Gemini与Palantir人工智能平台实现深度互联，使客户能够将先进模型连接到其关键AI工作流和运营中。
+根据LightCounting预测，光模块市场25年全球销售额约为195亿美元，同比增长约82%，2031年全球市场规模将达到638亿美元，对应2025-2031年的CAGR为22%。
 
-谷歌云应用AI与平台生态系统副总裁Satish Thomas表示：“通过将BigQuery和Gemini与Palantir的Foundry和AIP结合，我们为共同客户提供了一个安全、统一的基础，以大规模运行其最复杂、最高风险的工作流。
+从结构角度看，随着分布式训练架构成为主流，节点间模型参数同步对光收发模块的带宽与时延性能提出了更高要求，推动高速光模块加速渗透。
 
-” 工业巨头伊顿已率先应用这一集成方案。
+目前，800G光模块已成为全球数据中心领域应用的主流产品，1.6T甚至3.2T光模块也将逐步进入商业化阶段。
 
-该公司将Palantir Foundry、AIP、Ontology与谷歌Gemini相结合，将工程文档转化为智能运营资产，实现了更快的报价生成、更高的工程精度、更低的劳动强度和更强的客户响应能力。
+根据LightCounting 预测，预计2029年800G+1.6T全球光模块市场规模将超160亿美元。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [请回答王牌2019](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fwkjq.md)
-- 2026-06-30 06:44 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ljkfm.md)
-- 2026-06-30 07:00 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
-- 2026-06-30 06:53 - [扬名立万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuzeng.md)
-- 2026-06-30 07:07 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 06:57 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
-- 2026-06-30 07:10 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
-- 2026-06-30 06:47 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixzuz.md)
-- 2026-06-30 06:44 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iqejz.md)
-- 2026-06-30 07:02 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
-- 2026-06-30 06:53 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 07:04 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jivfs.md)
+- 2026-06-30 07:06 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 06:59 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nvtpn.md)
+- 2026-06-30 06:50 - [巴西2比1日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
+- 2026-06-30 06:55 - [女子健身不当 居然“脑子漏水”了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
+- 2026-06-30 07:02 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qingwo.md)
+- 2026-06-30 07:05 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phuek.md)
+- 2026-06-30 06:56 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rteyp.md)
+- 2026-06-30 07:00 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dakhr.md)
+- 2026-06-30 07:14 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naycq.md)
+- 2026-06-30 06:51 - [相爱相杀很有戏，我的兄弟最默契](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
+- 2026-06-30 07:14 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/csdrd.md)
+- 2026-06-30 07:13 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rangqin.md)
+- 2026-06-30 06:55 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
+- 2026-06-30 06:53 - [高中五人学习小组全员超650分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/luoxian.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [科技牛市下的最大考验是什么](http://www.share.minike.top/Article/details/296044311.shtml)
-- 2026-06-30 06:45 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://www.share.kurohicncr.top/Article/details/9533683.shtml)
-- 2026-06-30 06:47 - [湖北云南这些涉汛信息都是假的](https://www.share.minike.top/Article/details/90950406844.shtml)
-- 2026-06-30 07:09 - [如何改变自己太负责任的性格?](https://www.share.minike.top/Article/details/429659.shtml)
-- 2026-06-30 06:44 - [杨紫被质疑未使用原名纯属误解](https://www.share.kurohicncr.top/Article/details/82127074.shtml)
-- 2026-06-30 06:56 - [本科毕业生为何涌入专科学校](http://www.share.kurohicncr.top/Article/details/79261.shtml)
-- 2026-06-30 06:46 - [湖北云南的这些涉汛信息都是假的](http://www.share.minike.top/Article/details/72110997.shtml)
-- 2026-06-30 06:44 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.share.kurohicncr.top/Article/details/274319176118.shtml)
-- 2026-06-30 07:00 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/6682774492.shtml)
-- 2026-06-30 06:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.kurohicncr.top/Article/details/798110074.shtml)
-- 2026-06-30 06:50 - [看看赶海都能遇到啥](https://www.blog.kurohicncr.top/Article/details/427742407.shtml)
-- 2026-06-30 07:03 - [巴西VS日本前瞻](http://www.blog.kurohicncr.top/Article/details/05004.shtml)
-- 2026-06-30 06:58 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/5791273819.shtml)
-- 2026-06-30 06:59 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](http://www.share.minike.top/Article/details/8047042722.shtml)
-- 2026-06-30 07:01 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](http://www.share.kurohicncr.top/Article/details/67190.shtml)
+- 2026-06-30 06:57 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/6369530566.shtml)
+- 2026-06-30 07:10 - [日本进球](http://www.blog.minike.top/Article/details/9917223.shtml)
+- 2026-06-30 07:10 - [四川宜宾地震瞬间鱼群乱跳](http://www.share.minike.top/Article/details/52278.shtml)
+- 2026-06-30 07:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/2513412.shtml)
+- 2026-06-30 07:02 - [湖北云南的这些涉汛信息都是假的](http://www.share.kurohicncr.top/Article/details/635702237.shtml)
+- 2026-06-30 07:07 - [如何评价《龙之家族》第三季第二集？](https://www.blog.kurohicncr.top/Article/details/7998331409.shtml)
+- 2026-06-30 07:14 - [金刚川](http://www.blog.minike.top/Article/details/4804665.shtml)
+- 2026-06-30 07:15 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/9478765878.shtml)
+- 2026-06-30 06:56 - [中国对日本再出重拳](http://www.share.kurohicncr.top/Article/details/57141696467.shtml)
+- 2026-06-30 07:12 - [人可以极简主义到什么程度？](http://www.blog.minike.top/Article/details/68357.shtml)
+- 2026-06-30 06:55 - [欧盟分楼层开空调惹争议](http://www.share.minike.top/Article/details/6201976380.shtml)
+- 2026-06-30 06:55 - [巴西2-1绝杀日本](https://www.share.kurohicncr.top/Article/details/73644.shtml)
+- 2026-06-30 06:54 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/33390.shtml)
+- 2026-06-30 07:06 - [斛珠夫人](http://www.share.kurohicncr.top/Article/details/78266.shtml)
+- 2026-06-30 06:56 - [男生180+，有腹肌是什么体验？](http://www.share.kurohicncr.top/Article/details/112453710.shtml)

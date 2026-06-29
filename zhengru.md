@@ -1,60 +1,42 @@
-# Coupang旗下Rocket Now在日持续扩张，零配送费模式抢占市场份额
+# 美国佛罗里达州总检察长起诉OpenAI
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-Coupang正在日本市场掀起波澜，其旗下食品配送服务Rocket Now凭借超低价和免配送费策略，实现了快速用户增长并展现出强劲的竞争势头。 Rocket Now于去年1月进入日本市场，主打“零配送费、零服务费”模式，消费者可以按照餐厅堂食价格下单，无需支付任何额外费用。这一策略有效降低了用户的使用门槛，推动应用下载量迅速攀升。截至目前，Rocket Now在日本的下载量已超
+发布时间：2026年06月02日 13:18 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-Coupang正在日本市场掀起波澜，其旗下食品配送服务Rocket Now凭借超低价和免配送费策略，实现了快速用户增长并展现出强劲的竞争势头。
-
-Rocket Now于去年1月进入日本市场，主打“零配送费、零服务费”模式，消费者可以按照餐厅堂食价格下单，无需支付任何额外费用。
-
-这一策略有效降低了用户的使用门槛，推动应用下载量迅速攀升。
-
-截至目前，Rocket Now在日本的下载量已超过600万次。
-
-该应用在iOS和安卓两大应用商店的食品配送类别中连续九个月排名第一，并在上线仅15个月内突破500万下载量。
-
-在商户拓展方面，Rocket Now已与超过1万家日本餐厅建立合作关系，服务网络覆盖北海道、东北、关东、中部、关西、广岛和九州等多个地区。
-
-公司近期还在福冈等地大规模招聘客户管理人才，以进一步优化商户增长和运营绩效。
-
-值得注意的是，Rocket Now的增长恰逢日本外卖市场竞争格局变化之际。
+发布时间：2026年06月02日 13:18 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [【大鸣王潮1566】真拿你没办法](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/penyd.md)
-- 2026-06-30 06:54 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
-- 2026-06-30 06:57 - [国务院：探索延长义务教育年限](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 06:43 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chuangku.md)
-- 2026-06-30 07:03 - [张凌赫 客串](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bjdax.md)
-- 2026-06-30 06:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpugr.md)
-- 2026-06-30 06:51 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bixpx.md)
-- 2026-06-30 06:59 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
-- 2026-06-30 06:55 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kanxin.md)
-- 2026-06-30 06:51 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/elugl.md)
-- 2026-06-30 07:09 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/slcpt.md)
-- 2026-06-30 07:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 06:57 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bwkfo.md)
-- 2026-06-30 06:46 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 06:53 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pbgis.md)
+- 2026-06-30 07:07 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 06:57 - [日本16强魔咒](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/scixj.md)
+- 2026-06-30 06:51 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
+- 2026-06-30 07:03 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangce.md)
+- 2026-06-30 07:05 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongcha.md)
+- 2026-06-30 07:05 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yugu.md)
+- 2026-06-30 06:51 - [卡塞米罗头球破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
+- 2026-06-30 07:00 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
+- 2026-06-30 07:13 - [当语文老师求助数学老师...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvumi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:08 - [美人鱼](https://www.share.minike.top/Article/details/31288935.shtml)
-- 2026-06-30 07:02 - [一切民族英雄都是中华民族的脊梁](https://www.share.kurohicncr.top/Article/details/360655504363.shtml)
-- 2026-06-30 07:00 - [美股](http://www.blog.minike.top/Article/details/428813.shtml)
-- 2026-06-30 06:53 - [美媒：美军第五舰队司令部已无法使用](http://www.share.kurohicncr.top/Article/details/0982328622.shtml)
-- 2026-06-30 06:54 - ["超算小姐，这一次，我一定要带你出去..."](http://www.share.kurohicncr.top/Article/details/467724.shtml)
-- 2026-06-30 07:08 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/29939341831.shtml)
-- 2026-06-30 06:50 - [天道](https://www.share.kurohicncr.top/Article/details/655598481.shtml)
-- 2026-06-30 06:49 - [严浩翔张峻豪师兄弟同台](http://www.blog.kurohicncr.top/Article/details/9051262.shtml)
-- 2026-06-30 06:45 - [免费试吃发差评被店家挂店门避雷](https://www.blog.kurohicncr.top/Article/details/734192165.shtml)
-- 2026-06-30 06:46 - [深扒韩国队淘汰背后原因](https://www.blog.kurohicncr.top/Article/details/33316973.shtml)
-- 2026-06-30 07:01 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/00547.shtml)
-- 2026-06-30 06:59 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.kurohicncr.top/Article/details/7263264.shtml)
-- 2026-06-30 06:52 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/21853.shtml)
-- 2026-06-30 06:59 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/2625531.shtml)
-- 2026-06-30 06:58 - [金刚川](https://www.share.minike.top/Article/details/79533795.shtml)
+- 2026-06-30 06:51 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/226504818107.shtml)
+- 2026-06-30 06:51 - [我设置了全宇宙最安全的密码](https://www.blog.kurohicncr.top/Article/details/04462314610.shtml)
+- 2026-06-30 06:52 - [巴西vs日本](http://www.blog.kurohicncr.top/Article/details/6444361199.shtml)
+- 2026-06-30 07:16 - [南北多地暴雨和强对流天气持续](http://www.share.minike.top/Article/details/6247737502.shtml)
+- 2026-06-30 06:58 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.share.minike.top/Article/details/512057293196.shtml)
+- 2026-06-30 07:02 - [星链在轨运行卫星已突破1.24万颗](http://www.blog.kurohicncr.top/Article/details/1966451.shtml)
+- 2026-06-30 06:52 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.share.kurohicncr.top/Article/details/93620884068.shtml)
+- 2026-06-30 06:56 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://www.share.minike.top/Article/details/050836.shtml)
+- 2026-06-30 07:02 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/981917113565.shtml)
+- 2026-06-30 07:07 - [女子螺蛳粉摊吃出蛇](https://www.blog.minike.top/Article/details/5595009273.shtml)
+- 2026-06-30 06:57 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/989057418092.shtml)
+- 2026-06-30 07:16 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/8543927785.shtml)
+- 2026-06-30 07:16 - [恐怖世界 第三集 埃温霍姆村](http://www.share.minike.top/Article/details/512906749.shtml)
+- 2026-06-30 07:12 - [李准基参加文彩元婚礼](http://www.share.kurohicncr.top/Article/details/1165323905.shtml)
+- 2026-06-30 07:01 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/0417535.shtml)

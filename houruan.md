@@ -1,56 +1,59 @@
-# 北京交通部门多措并举护航高考出行
+# Gossamer Bio证券集体诉讼截止日期今晚到期，Faruqi & Faruqi鼓励受损投资者联系
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月4日电 (记者 吕少威)记者今天从北京市交通委获悉，2026年高考(6月7日至10日)在即，为保障考生、家长顺畅出行，北京交通部门围绕公交、地铁、出租车及网约车等领域，推出系列服务举措，全力营造安全、便捷、舒适的考试出行环境。公交车辆途经考点不鸣笛、不使用报站机外扩音 公交方面，6月7日至10日考试时段，相关公交线路途经考点周边时不鸣笛、不使用车辆报站机外扩音。
+纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。 该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。 诉讼指控称，在整个集体诉讼期内，被告做出了虚假和
 
 ## 正文
 
-中新网北京6月4日电 (记者 吕少威)记者今天从北京市交通委获悉，2026年高考(6月7日至10日)在即，为保障考生、家长顺畅出行，北京交通部门围绕公交、地铁、出租车及网约车等领域，推出系列服务举措，全力营造安全、便捷、舒适的考试出行环境。
+纽约知名国家安全诉讼律所Faruqi & Faruqi， LLP正在对Gossamer Bio， Inc．展开调查，并提醒投资者，在该公司证券集体诉讼中寻求担任首席原告的截止日期为2026年6月1日。
 
-公交车辆途经考点不鸣笛、不使用报站机外扩音 公交方面，6月7日至10日考试时段，相关公交线路途经考点周边时不鸣笛、不使用车辆报站机外扩音。
+该诉讼代表在2025年6月16日至2026年2月20日期间购买或以其他方式收购Gossamer Bio证券的所有个人和实体提起。
 
-高考期间，针对途经考点周边的414条公交线路，结合各场考试开考时间，加强运力安排，在开考前1小时增配运力，加密行车间隔，方便考生乘车。
+诉讼指控称，在整个集体诉讼期内，被告做出了虚假和/或误导性陈述，且/或未能披露以下事项：公司3期PROSERA试验的设计存在缺陷，特别是在控制拉丁美洲试验点的安慰剂反应方面存在不足。
 
-对考点周边线路采取灵活的调度措施，在大木仓胡同、彰化村、嘉园一里、龙跃苑一区西门、北京八中大兴分校、丽园北、海子角北口、海子角东口、绿色庄园、海子角等10处公交站点部分时段采取临时甩站措施，线路临时甩站和绕行期间，车内考生要求下车时，在保证安全的前提下方便考生就近下车。
+2026年2月23日，Gossamer Bio公布了PROSERA试验的顶线结果，该试验评估了seralutinib治疗肺动脉高压的疗效。
 
-同时，严密监控道路情况和运送速度的变化，采取场站备车、区间车、快车等措施，妥善处置突发事件，确保安全平稳运营。
+结果显示，试验未能达到第24周改善六分钟步行距离的主要终点，经安慰剂校正后的改善仅为13.3米，p值为0.0320，未能达到0.025的预设统计学阈值。
 
-结合考试期间交通变化特点，开展驾驶员遵法守纪、按道行驶、控制车速、遵守路口通行规定的教育，注意避让考生和接送考生的人员及车辆，杜绝与考生及家长发生服务纠纷及行车事故。
+公司将这一失败归因于拉丁美洲试验点患者表现出的“超大安慰剂反应”。
 
-此外，在重点考点周边设置“高考加油站”服务岗67处，一线管理及乘务巡检员500余名在岗服务，准备2B铅笔、橡皮、尺子等应考物资以及消毒纸巾、防暑降温用品等应急物资，方便考生应急使用。
+据披露，这些地区的患者属于“经过大量治疗的低风险人群”，在安慰剂对照下表现异常出色，包括一些“超级反应者”在仅使用安慰剂的情况下步行改善超过100米。
 
-地铁开通“三优”绿色通道 高考期间，北京地铁继续推行“三优”绿色通道，即乘坐地铁前往考点的考生及家长，可凭准考证享受“优先购票、优先安检、优先进站”服务。
+试验失败的消息导致Gossamer Bio股价从2月20日的每股2.13美元收盘价暴跌至2月23日的0.42美元，单日跌幅超过80%。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 07:05 - [斗破苍穹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yindang.md)
-- 2026-06-30 06:57 - [徐亮怒斥世界杯踢假球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 06:58 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
-- 2026-06-30 07:00 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pccqt.md)
-- 2026-06-30 06:46 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntbqf.md)
-- 2026-06-30 06:45 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guncui.md)
-- 2026-06-30 06:50 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 06:42 - [鉴定师的失败救赎](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sjdho.md)
-- 2026-06-30 07:04 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chizuan.md)
+- 2026-06-30 06:57 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 06:53 - [张帅时隔四年再取温网正赛胜利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkchn.md)
+- 2026-06-30 07:01 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
+- 2026-06-30 07:16 - [英语考了145的人竟然教数学](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niantie.md)
+- 2026-06-30 07:02 - [我把队友的7连跪剪成了艺术](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 07:13 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 07:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/flqid.md)
+- 2026-06-30 07:15 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaoze.md)
+- 2026-06-30 07:17 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
+- 2026-06-30 07:01 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 07:03 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fmqmh.md)
+- 2026-06-30 07:09 - [点菜也要教吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mantie.md)
+- 2026-06-30 07:00 - [电影《后室》讲了一个什么故事？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csnfd.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [85花告别古偶](http://www.share.minike.top/Article/details/2612705.shtml)
-- 2026-06-30 07:00 - [有酒店推行24小时退房制](https://www.share.kurohicncr.top/Article/details/19088506486.shtml)
-- 2026-06-30 06:58 - [王欣瑜：今年经历了一些起伏](http://www.share.minike.top/Article/details/5055621.shtml)
-- 2026-06-30 07:10 - [扬名立万](https://www.blog.minike.top/Article/details/471865.shtml)
-- 2026-06-30 06:57 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/83692.shtml)
-- 2026-06-30 07:06 - [爱很美味](http://www.blog.minike.top/Article/details/87386501.shtml)
-- 2026-06-30 07:02 - [hanser X 赖美云《室内系的Track Maker》](http://www.share.kurohicncr.top/Article/details/4353791719.shtml)
-- 2026-06-30 06:53 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/64223245.shtml)
-- 2026-06-30 06:54 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.minike.top/Article/details/590111499228.shtml)
-- 2026-06-30 06:48 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.kurohicncr.top/Article/details/1169423.shtml)
-- 2026-06-30 07:04 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/58505823.shtml)
-- 2026-06-30 06:54 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.kurohicncr.top/Article/details/3863578.shtml)
-- 2026-06-30 06:47 - [巴西把自己踢晕了](https://www.blog.minike.top/Article/details/66774.shtml)
-- 2026-06-30 06:54 - ["超算小姐，这一次，我一定要带你出去..."](https://www.share.kurohicncr.top/Article/details/2910402.shtml)
-- 2026-06-30 06:43 - [时光音乐会](https://www.share.kurohicncr.top/Article/details/3337052.shtml)
+- 2026-06-30 07:00 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.kurohicncr.top/Article/details/61140.shtml)
+- 2026-06-30 06:52 - [【哈基米】极境升华！超级刀盾狗！](http://www.share.minike.top/Article/details/098386010857.shtml)
+- 2026-06-30 07:05 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/15722942.shtml)
+- 2026-06-30 07:10 - [日本硬刚巴西谁能赢](http://www.blog.kurohicncr.top/Article/details/3896375.shtml)
+- 2026-06-30 07:00 - [琉球·冲绳学术问题国际研讨会举行](http://www.blog.minike.top/Article/details/627363079691.shtml)
+- 2026-06-30 07:17 - [收受1.98亿余元 周家斌被判无期](http://www.share.kurohicncr.top/Article/details/1709204590.shtml)
+- 2026-06-30 06:52 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://www.share.minike.top/Article/details/535817253987.shtml)
+- 2026-06-30 06:51 - [浪姐成团夜爆笑吐槽](http://www.share.kurohicncr.top/Article/details/64311517.shtml)
+- 2026-06-30 07:02 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.minike.top/Article/details/72559.shtml)
+- 2026-06-30 06:48 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/253853784025.shtml)
+- 2026-06-30 06:51 - [2026MSI应援曲《如果季中成回忆》](http://www.share.minike.top/Article/details/27419.shtml)
+- 2026-06-30 07:12 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/359098355350.shtml)
+- 2026-06-30 07:12 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/96744.shtml)
+- 2026-06-30 06:56 - [吴艳妮回应夺冠](https://www.share.kurohicncr.top/Article/details/3475042704.shtml)
+- 2026-06-30 07:08 - [美加墨世界杯：亚洲足球的得意与失意](https://www.blog.kurohicncr.top/Article/details/733358329.shtml)

@@ -1,60 +1,56 @@
-# 5月新开户同比大增78%，东吴+东海合并草案出炉！券商低调4连阳，资金大手笔潜伏顶流券商ETF
+# 四大证券报头版头条内容精华摘要_2026年6月2日_财经新闻
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月3日，低位券商窄幅震荡，个股走势分化，华安证券涨超5%，华泰证券涨超3%，广发证券、招商证券、国泰海通涨超1%。规模358亿元+的顶流券商ETF华宝（512000）早盘低开后震荡翻红，场内价格现涨0.61%，日线低调4连阳。 上交所数据显示，2026年5月A股新开户276.53万户，同比2025年5月的155.56万户增长7
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日（星期二），今日报刊头条主要内容精华如下： 中国证券报 五部门出台非化石能源电力消费核算指南 国家发展改革委网站6月1日消息，国家发展改革委、国家能源局等五部门日前联合印发了《非化石能源电力消费核算指南（试行）》。《指南》自印发之日起试行，用于2026年及以后年份非化石能源电力
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 6月3日，低位券商窄幅震荡，个股走势分化，华安证券涨超5%，华泰证券涨超3%，广发证券、招商证券、国泰海通涨超1%。
+专题：四大证券报精华 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-规模358亿元+的顶流券商ETF华宝（512000）早盘低开后震荡翻红，场内价格现涨0.61%，日线低调4连阳。
+6月2日（星期二），今日报刊头条主要内容精华如下： 中国证券报 五部门出台非化石能源电力消费核算指南 国家发展改革委网站6月1日消息，国家发展改革委、国家能源局等五部门日前联合印发了《非化石能源电力消费核算指南（试行）》。
 
-上交所数据显示，2026年5月A股新开户276.53万户，同比2025年5月的155.56万户增长77.76%。
+《指南》自印发之日起试行，用于2026年及以后年份非化石能源电力消费核算。
 
-2026年累计新开1729.68万户，同比增长57.94%，按此速度推算，2026全年A股新开户有望突破3000万户大关。
+《指南》明确，交易认定包括电能量交易（包括非化石能源常规电能量交易、绿电交易等）、绿证交易（含绿证划转等）等两种认定方式。
 
-与此同时，5月杠杆资金入市明显加快，两融余额2.8万亿再创历史新高。
+对于可再生能源电力消费量，省级行政区域受入（送出）规模以电能量交易、绿证交易进行认定；地级行政区域和电力用户下网规模以绿证交易、绿电交易进行认定。
 
-市场热度维持高位，支撑券商板块基本面延续高景气。
+用绿证作为认定依据的，应为绿证核销量，并按照绿证对应电量生产时间计入相应核算年度，鼓励电力用户随用随购、随购随销。
 
-此外，6月2日东吴证券正式披露收购东海证券草案，较3月13日披露的预案在交易方案、标的定价、交易对方、风险提示、信息披露等多个方面完成细化与更新，标志着这起江苏本土券商整合事项进入实质性推进阶段。
+对于核电电力消费量，省级行政区域受入（送出）规模、地级行政区域和电力用户下网规模以电能量交易进行认定。
 
-分析认为，并购重组是券商实现外延式发展的有效手段，对提升行业整体竞争力、形成规模效应具有积极作用。
+“算力金属”行情走高 锡行业上市公司业绩表现亮眼 6月1日，“算力金属”锡行业概念股逆势大涨。
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cfaqa.md)
-- 2026-06-30 06:56 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cgbee.md)
-- 2026-06-30 06:49 - [巴拉圭先进球了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
-- 2026-06-30 06:43 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 07:07 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
-- 2026-06-30 07:07 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 07:06 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
-- 2026-06-30 06:43 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ppsar.md)
-- 2026-06-30 06:42 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lwmzl.md)
-- 2026-06-30 06:49 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kesfh.md)
-- 2026-06-30 07:07 - [日本 高位逼抢](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pingshuo.md)
-- 2026-06-30 06:45 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/buyi.md)
-- 2026-06-30 06:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhmcn.md)
-- 2026-06-30 07:07 - [领克汽车官宣正式进军拉力赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
+- 2026-06-30 07:03 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
+- 2026-06-30 07:08 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinbai.md)
+- 2026-06-30 07:16 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diji.md)
+- 2026-06-30 07:04 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rexie.md)
+- 2026-06-30 06:59 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
+- 2026-06-30 06:59 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gsdnl.md)
+- 2026-06-30 07:04 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/beudl.md)
+- 2026-06-30 07:00 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
+- 2026-06-30 07:07 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/saizen.md)
+- 2026-06-30 06:55 - [赛博朋克边缘行者2预告片](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.kurohicncr.top/Article/details/710960182827.shtml)
-- 2026-06-30 06:52 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/0768847.shtml)
-- 2026-06-30 07:06 - [宋亚轩有啥话不憋心里全都说出来](https://www.share.kurohicncr.top/Article/details/64074830.shtml)
-- 2026-06-30 07:08 - [速度与激情9](https://www.blog.minike.top/Article/details/687777.shtml)
-- 2026-06-30 06:55 - [日本反击率先破门](http://www.share.minike.top/Article/details/72110723.shtml)
-- 2026-06-30 06:53 - [《共患难》](http://www.share.minike.top/Article/details/490454614.shtml)
-- 2026-06-30 06:58 - [沉睡花园](https://www.share.minike.top/Article/details/25323802.shtml)
-- 2026-06-30 06:52 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/471252.shtml)
-- 2026-06-30 06:57 - [詹姆斯下赛季去哪](http://www.blog.kurohicncr.top/Article/details/229366.shtml)
-- 2026-06-30 07:07 - [当语文老师求助数学老师...](https://www.share.kurohicncr.top/Article/details/286253234420.shtml)
-- 2026-06-30 06:45 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.share.minike.top/Article/details/718208.shtml)
-- 2026-06-30 06:59 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/389089.shtml)
-- 2026-06-30 07:11 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](http://www.share.kurohicncr.top/Article/details/568445.shtml)
-- 2026-06-30 06:59 - [免费试吃发差评被店家挂店门避雷](http://www.share.kurohicncr.top/Article/details/53871585.shtml)
-- 2026-06-30 07:05 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/09037929763.shtml)
+- 2026-06-30 06:55 - [人类...完蛋了...](https://www.blog.kurohicncr.top/Article/details/7642551608.shtml)
+- 2026-06-30 06:58 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/665654597499.shtml)
+- 2026-06-30 06:58 - [李准基参加文彩元婚礼](http://www.share.minike.top/Article/details/04877.shtml)
+- 2026-06-30 06:50 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/400581.shtml)
+- 2026-06-30 07:10 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/460121.shtml)
+- 2026-06-30 06:51 - [恋与深空制作组回应近期争议](https://www.share.minike.top/Article/details/95625540829.shtml)
+- 2026-06-30 07:16 - [院士：太空轨道必须抢](http://www.share.minike.top/Article/details/770010579.shtml)
+- 2026-06-30 07:09 - [啊啊啊](http://www.share.kurohicncr.top/Article/details/0555305822.shtml)
+- 2026-06-30 07:03 - [好像看到了人类带孩子崩溃的样子](https://www.blog.minike.top/Article/details/7292387759.shtml)
+- 2026-06-30 06:49 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/02275515555.shtml)
+- 2026-06-30 06:54 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/8653054.shtml)
+- 2026-06-30 06:56 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.kurohicncr.top/Article/details/8644463.shtml)
+- 2026-06-30 07:16 - [佐野海舟远射破门](https://www.blog.minike.top/Article/details/82254312.shtml)
+- 2026-06-30 06:57 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.blog.kurohicncr.top/Article/details/31393827.shtml)
+- 2026-06-30 07:05 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/44716944552.shtml)

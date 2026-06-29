@@ -1,50 +1,56 @@
-# 越南5月贸易逆差创新高
+# 中信建投期货：6月3日黑色系早报
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-受全球原材料涨价推高进口采购额、出口企业同时担忧美国新增关税拖累外销双重因素影响，越南贸易逆差创下历史新高。 越南国家统计局周三于河内发布数据：5月贸易逆差升至52.1亿美元，大幅高于市场预估中值39.8亿美元，也高于4月修正后的39.9亿美元逆差。 统计局数据显示，5月越南出口同比大增18%，低于经济学家此前19.7%的预期；进口同比大涨33.8%，增幅超出市场预期。 胡志明
+钢材早报：驱动不足，期钢窄幅震荡 市场信息： 1、据伊朗方面消息，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可提交通行申请。审核通过后，船舶将获得通行许可。 2、据中指研究院数据，5 月 20 城二手住宅成交 14.1 万套，同比增长 19.3%，同比增幅较上月扩大 6.3 个百分点。北京、上海二手房分别成交 1.6 万、2.8 万套，同比分别增长 12.1%，
 
 ## 正文
 
-受全球原材料涨价推高进口采购额、出口企业同时担忧美国新增关税拖累外销双重因素影响，越南贸易逆差创下历史新高。
+钢材早报：驱动不足，期钢窄幅震荡 市场信息： 1、据伊朗方面消息，霍尔木兹海峡船舶通行许可申请系统已全面开放，全球船东和船长可提交通行申请。
 
-越南国家统计局周三于河内发布数据：5月贸易逆差升至52.1亿美元，大幅高于市场预估中值39.8亿美元，也高于4月修正后的39.9亿美元逆差。
+审核通过后，船舶将获得通行许可。
 
-统计局数据显示，5月越南出口同比大增18%，低于经济学家此前19.7%的预期；进口同比大涨33.8%，增幅超出市场预期。
+2、据中指研究院数据，5 月 20 城二手住宅成交 14.1 万套，同比增长 19.3%，同比增幅较上月扩大 6.3 个百分点。
 
-胡志明证券首席经济学家Pham Vu Thang Long表示：“能源与半导体零部件进口成本暴涨是逆差走阔主因，全球芯片紧缺、原料涨价的恐慌情绪促使大批企业加大备货、囤积库存。
+北京、上海二手房分别成交 1.6 万、2.8 万套，同比分别增长 12.1%，30.9%，连续两个月创近五年同期新高。
 
-”责任编辑：陈钰嘉
+3、中国 5 月官方制造业 PMI 为 50%，环比下降 0.3 个百分点，位于临界点；非制造业PMI 为 50.1%，上升 0.7 个百分点，非制造业景气水平回升。
+
+4、美国 5 月 ISM 制造业 PMI 上升 1.3 个百分点至 54，连续五个月扩张并创四年新高。
+
+5、Mysteel 最新调研结果显示：5 月 23 日之后山西停产煤矿总计 130 座，产能总计 1.47亿吨。
+
+截至 6 月 1 日已复产 43 座，产能共计 5520 万吨，仍在停产状态 87 座，产能合计 9200 万吨。
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 06:56 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lxpjz.md)
-- 2026-06-30 06:55 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ultpz.md)
-- 2026-06-30 07:04 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
-- 2026-06-30 07:09 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ftmbu.md)
-- 2026-06-30 06:51 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qeuvm.md)
-- 2026-06-30 07:06 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
-- 2026-06-30 06:45 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qingying.md)
-- 2026-06-30 06:54 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/revjs.md)
-- 2026-06-30 07:05 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tewen.md)
+- 2026-06-30 07:00 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cghkc.md)
+- 2026-06-30 06:53 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
+- 2026-06-30 07:13 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhke.md)
+- 2026-06-30 07:07 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/duoding.md)
+- 2026-06-30 07:15 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/psbfd.md)
+- 2026-06-30 06:59 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gengju.md)
+- 2026-06-30 07:02 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 07:00 - [杨紫被质疑未使用原名纯属误解](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 07:05 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/danshuang.md)
+- 2026-06-30 06:59 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/41121.shtml)
-- 2026-06-30 06:44 - [本届世界杯已有5名球员被控强奸](https://www.blog.minike.top/Article/details/1774782.shtml)
-- 2026-06-30 06:59 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.share.minike.top/Article/details/46059835656.shtml)
-- 2026-06-30 06:46 - [日本 高位逼抢](https://www.share.minike.top/Article/details/53413769.shtml)
-- 2026-06-30 07:09 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.kurohicncr.top/Article/details/5088594.shtml)
-- 2026-06-30 06:43 - [巴西绝杀](https://www.share.minike.top/Article/details/29446306.shtml)
-- 2026-06-30 07:09 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/4999206.shtml)
-- 2026-06-30 06:54 - [酒店推行“24小时退房”引热议](https://www.share.kurohicncr.top/Article/details/4173065.shtml)
-- 2026-06-30 06:52 - [“手机痴呆症”盯上中青年](https://www.share.kurohicncr.top/Article/details/0080474975.shtml)
-- 2026-06-30 06:48 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.minike.top/Article/details/375868108.shtml)
-- 2026-06-30 07:00 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://www.blog.kurohicncr.top/Article/details/710742.shtml)
-- 2026-06-30 07:11 - [人可以极简主义到什么程度？](https://www.blog.kurohicncr.top/Article/details/66544039.shtml)
-- 2026-06-30 06:44 - [又一美国科技巨头转向中国大模型](https://www.share.kurohicncr.top/Article/details/49252858.shtml)
-- 2026-06-30 07:08 - [看看赶海都能遇到啥](http://www.share.kurohicncr.top/Article/details/608327010.shtml)
-- 2026-06-30 07:11 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/79319411.shtml)
+- 2026-06-30 07:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.kurohicncr.top/Article/details/3229342961.shtml)
+- 2026-06-30 06:54 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.share.kurohicncr.top/Article/details/838861.shtml)
+- 2026-06-30 07:00 - [男子中医院拔火罐致浅2度烧伤](http://www.share.minike.top/Article/details/2570980.shtml)
+- 2026-06-30 07:04 - [巴西替补奇兵读秒绝杀](http://www.share.kurohicncr.top/Article/details/01422.shtml)
+- 2026-06-30 07:15 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/419643918.shtml)
+- 2026-06-30 06:58 - [董卿父亲报纸上发文悼念亡妻](http://www.share.kurohicncr.top/Article/details/933164.shtml)
+- 2026-06-30 06:54 - [85花告别古偶](https://www.blog.kurohicncr.top/Article/details/525840283.shtml)
+- 2026-06-30 07:15 - [恋与深空已删除锅里洗澡文案](http://www.blog.kurohicncr.top/Article/details/95852255.shtml)
+- 2026-06-30 07:02 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.share.minike.top/Article/details/60082.shtml)
+- 2026-06-30 07:14 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/33447.shtml)
+- 2026-06-30 07:14 - [曝娱乐圈大部分明星失业](http://www.blog.minike.top/Article/details/2185244.shtml)
+- 2026-06-30 07:15 - [中国对日本再出重拳](http://www.share.minike.top/Article/details/676292477.shtml)
+- 2026-06-30 06:50 - [奔跑吧·黄河篇第二季](http://www.share.minike.top/Article/details/46809226.shtml)
+- 2026-06-30 06:55 - [刘念回应](https://www.blog.kurohicncr.top/Article/details/272556.shtml)
+- 2026-06-30 07:05 - [这几秒成世界杯最值钱广告位](http://www.share.minike.top/Article/details/1831448840.shtml)

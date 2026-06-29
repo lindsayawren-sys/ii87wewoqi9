@@ -1,56 +1,57 @@
-# 香雪制药索赔递交立案，符合要求还可加入
+# 集采药被药店高价销售背后：为何会有价差？如何破解？
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师代理的投资者维权案件近日递交法院立案，目前还在征集受损投资者中。（刘鹏律师专栏） 回溯此案，2025年8月16日，香雪制药收到广东监管局正式作出的《行政处罚决定书》，因存在关联方占用资金以及长达五年的财务造假行为，该公司及相关责任人合计被处罚2065万元。 具体来看，香雪制药涉嫌信息披露违法违规主要包括
+澎湃新闻首席记者 李潇潇 近日，央视报道“集采百元一盒药，药店竟卖3960元”引发关注。最新进展显示，内蒙古医保部门已会同市场监管部门组成专项工作组，第一时间赴涉事药店开展联合检查，医保部门对药店主要负责人进行约谈，市场监管部门已行政立案。 这起看似个案的高价售药事件，也再次把集采药品在院外零售终端的执行情况推到舆论前台。那么，集采药在不同销售渠道为什么会存在不同价格？ 曾担任
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 上海沪紫律师事务所刘鹏律师代理的投资者维权案件近日递交法院立案，目前还在征集受损投资者中。
+澎湃新闻首席记者 李潇潇 近日，央视报道“集采百元一盒药，药店竟卖3960元”引发关注。
 
-（刘鹏律师专栏） 回溯此案，2025年8月16日，香雪制药收到广东监管局正式作出的《行政处罚决定书》，因存在关联方占用资金以及长达五年的财务造假行为，该公司及相关责任人合计被处罚2065万元。
+最新进展显示，内蒙古医保部门已会同市场监管部门组成专项工作组，第一时间赴涉事药店开展联合检查，医保部门对药店主要负责人进行约谈，市场监管部门已行政立案。
 
-具体来看，香雪制药涉嫌信息披露违法违规主要包括年报虚假记载、重大遗漏。
+这起看似个案的高价售药事件，也再次把集采药品在院外零售终端的执行情况推到舆论前台。
 
-其中，2019年12月，香雪制药位于广州生物岛上5栋别墅被相关政府部门拆除，公司未按规定确认拆除别墅产生的在建工程损失，导致2019年年度报告虚增利润5383.25万元，占当期披露利润总额的45.98%，公司2019年年度报告存在虚假记载。
+那么，集采药在不同销售渠道为什么会存在不同价格？
 
-直到2024年4月30日，香雪制药发布公告，调整了相关在建工程成本。
+曾担任多家百强连锁药店总经理的职业经理人苍春表示，药品执行的是市场价格，理论上只要明码标价，就属于正常经营行为。
 
-此外由于未按规定披露关联方非经营性资金占用，香雪制药2016年至2020年年度报告存在重大遗漏，主要涉及香雪制药控股股东广州市昆仑投资有限公司等。
+但在此次案例中，核心问题在于时间差。
 
-目前依据相关法律法规，暂定以下两个区间的投资者可报名索赔：（香雪制药维权入口） （1）于2020年5月20日-2024年4月29日期间买入，并在2024年4月30日之后卖出或仍持有而亏损； （2）于2017年3月25日-2024年9月30日（含当日）期间买入，并在2024年10月1日之后卖出或仍持有而亏损。
+苍春分析，一般情况下，集采价格确定后，厂家与渠道之间通常会有相应安排，一些情况下也会有退补政策。
 
-该公司关联方违规占用上市公司资金，已被监管严惩，在后续的投资者索赔诉讼中，处罚决定也将作为有力的证据支持。
+若药店没有及时与厂家联系，或者没有及时切换到集采价格，就容易造成终端售价与政策要求不一致。
 
 ## 相关推荐
 
-- 2026-06-30 07:05 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hhwtu.md)
-- 2026-06-30 07:00 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 07:00 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
-- 2026-06-30 07:02 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/puba.md)
-- 2026-06-30 06:59 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenzhan.md)
-- 2026-06-30 07:08 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 06:48 - [巴西绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 07:07 - [为什么会有「念旧」的心理？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
-- 2026-06-30 06:53 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 07:01 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huumx.md)
+- 2026-06-30 06:59 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dcrwf.md)
+- 2026-06-30 06:56 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtalx.md)
+- 2026-06-30 07:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 07:17 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiadw.md)
+- 2026-06-30 06:49 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
+- 2026-06-30 06:54 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lengmo.md)
+- 2026-06-30 06:59 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jdcvn.md)
+- 2026-06-30 07:10 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mzsdr.md)
+- 2026-06-30 07:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
+- 2026-06-30 07:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tnitj.md)
+- 2026-06-30 07:07 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:46 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/11075711.shtml)
-- 2026-06-30 07:05 - [送你一朵小红花](http://www.share.minike.top/Article/details/29643347017.shtml)
-- 2026-06-30 06:54 - [宜宾地震造成15人受轻伤](https://www.blog.kurohicncr.top/Article/details/37728822671.shtml)
-- 2026-06-30 07:06 - [月亮](http://www.blog.kurohicncr.top/Article/details/544263.shtml)
-- 2026-06-30 06:44 - [巴西醒醒 这是淘汰赛](http://www.blog.kurohicncr.top/Article/details/32553897756.shtml)
-- 2026-06-30 06:42 - [国务院：鼓励行业龙头企业举办职校](http://www.share.minike.top/Article/details/389009087417.shtml)
-- 2026-06-30 06:46 - [恋与深空 巧合](http://www.blog.kurohicncr.top/Article/details/9088690937.shtml)
-- 2026-06-30 06:48 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.minike.top/Article/details/987017551326.shtml)
-- 2026-06-30 06:48 - [南北多地暴雨和强对流天气持续](https://www.share.minike.top/Article/details/01769.shtml)
-- 2026-06-30 07:02 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/78516.shtml)
-- 2026-06-30 06:51 - [日本淘汰](https://www.share.minike.top/Article/details/137885879434.shtml)
-- 2026-06-30 07:07 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.blog.minike.top/Article/details/36980456.shtml)
-- 2026-06-30 07:09 - [12人以护剧为名敲诈剧组艺人被抓](https://www.share.kurohicncr.top/Article/details/5035733453.shtml)
-- 2026-06-30 07:06 - [普京间接喊话特朗普有何考量](https://www.blog.kurohicncr.top/Article/details/686526309578.shtml)
-- 2026-06-30 06:52 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.kurohicncr.top/Article/details/84965.shtml)
+- 2026-06-30 06:58 - [俄乌双方伤亡近180万人](http://www.share.kurohicncr.top/Article/details/429055.shtml)
+- 2026-06-30 07:13 - [扬名立万](http://www.share.minike.top/Article/details/88543875.shtml)
+- 2026-06-30 06:59 - [德约科维奇向温网对手放狠话](https://www.share.minike.top/Article/details/820000179.shtml)
+- 2026-06-30 07:16 - [欧洲空调卖疯了 下一个爆款是储能吗](https://www.blog.minike.top/Article/details/754987228.shtml)
+- 2026-06-30 06:52 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/05521117.shtml)
+- 2026-06-30 06:53 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.kurohicncr.top/Article/details/1525124.shtml)
+- 2026-06-30 06:57 - [急先锋](http://www.share.kurohicncr.top/Article/details/060196.shtml)
+- 2026-06-30 07:11 - [苗族银饰](http://www.share.kurohicncr.top/Article/details/966216712882.shtml)
+- 2026-06-30 07:14 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/7746634569.shtml)
+- 2026-06-30 07:00 - [“手机痴呆症”盯上中青年](https://www.blog.kurohicncr.top/Article/details/7995732613.shtml)
+- 2026-06-30 07:07 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.blog.minike.top/Article/details/6982809565.shtml)
+- 2026-06-30 07:06 - [领克汽车官宣正式进军拉力赛](https://www.share.minike.top/Article/details/41447383.shtml)
+- 2026-06-30 06:55 - [陕西一地突降暴雨冰雹有车辆“趴窝”](http://www.blog.kurohicncr.top/Article/details/43348868984.shtml)
+- 2026-06-30 07:03 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/006997711.shtml)
+- 2026-06-30 07:16 - [健全中小学教师工资长效联动机制](http://www.blog.minike.top/Article/details/83566906399.shtml)

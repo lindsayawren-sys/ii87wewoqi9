@@ -1,42 +1,49 @@
-# 伊朗成立霍尔木兹海峡问题工作组
+# 新秀丽于6月1日斥资2168.57万港元回购147.54万股
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 10:38 来源：央视新闻 责任编辑：【李骏】
+新秀丽（01910）发布公告，于2026年6月1日，该公司斥资2168.57万港元回购147.54万股。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月04日 10:38 来源：央视新闻 责任编辑：【李骏】
+新秀丽（01910）发布公告，于2026年6月1日，该公司斥资2168.57万港元回购147.54万股。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/txjtt.md)
-- 2026-06-30 07:05 - [送你一朵小红花](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiaofei.md)
-- 2026-06-30 07:09 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
-- 2026-06-30 06:47 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leniang.md)
-- 2026-06-30 07:09 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
-- 2026-06-30 07:01 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piaopei.md)
-- 2026-06-30 06:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsxaw.md)
-- 2026-06-30 07:12 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lnzvz.md)
-- 2026-06-30 06:59 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
-- 2026-06-30 06:53 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gcrsr.md)
+- 2026-06-30 07:02 - [逃狱兄弟](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
+- 2026-06-30 07:16 - [安切洛蒂 换人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/azcpu.md)
+- 2026-06-30 07:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
+- 2026-06-30 06:49 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 06:52 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zuze.md)
+- 2026-06-30 07:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yingang.md)
+- 2026-06-30 07:05 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nnkxn.md)
+- 2026-06-30 06:57 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lkceg.md)
+- 2026-06-30 07:08 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hilfn.md)
+- 2026-06-30 06:52 - [同样是装空调差别怎么能这么大](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:08 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sslys.md)
+- 2026-06-30 06:50 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fanman.md)
+- 2026-06-30 07:08 - [斛珠夫人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiezhuan.md)
+- 2026-06-30 07:02 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
+- 2026-06-30 07:11 - [首届《哈基米歌王争霸赛》总决赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dyhds.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/09165.shtml)
-- 2026-06-30 06:49 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://www.share.kurohicncr.top/Article/details/0811289747.shtml)
-- 2026-06-30 06:58 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/8224110.shtml)
-- 2026-06-30 06:52 - [当我知道豆包有后台审核人员](https://www.blog.minike.top/Article/details/897012424059.shtml)
-- 2026-06-30 06:49 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.kurohicncr.top/Article/details/358054507.shtml)
-- 2026-06-30 07:11 - [我们看到的星星是不是有些已经不存在了？](https://www.share.minike.top/Article/details/93874175385.shtml)
-- 2026-06-30 07:09 - [解锁一下新吃法 这顿真给我吃美了](http://www.blog.minike.top/Article/details/614584574.shtml)
-- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.kurohicncr.top/Article/details/6601405718.shtml)
-- 2026-06-30 06:47 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/115111.shtml)
-- 2026-06-30 06:47 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.minike.top/Article/details/0596019.shtml)
-- 2026-06-30 06:55 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/278915.shtml)
-- 2026-06-30 07:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.share.kurohicncr.top/Article/details/6257701.shtml)
-- 2026-06-30 06:44 - [19岁男孩快220斤被查出营养不良](http://www.share.kurohicncr.top/Article/details/775373017497.shtml)
-- 2026-06-30 07:01 - [刘宇宁东方风云榜人气](https://www.share.kurohicncr.top/Article/details/09238.shtml)
-- 2026-06-30 06:59 - [高考结束，该不该外出打工体验？](http://www.share.minike.top/Article/details/952731825.shtml)
+- 2026-06-30 07:14 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.share.kurohicncr.top/Article/details/701070052231.shtml)
+- 2026-06-30 07:09 - [格力遥控器里有黄金](http://www.share.minike.top/Article/details/992945618546.shtml)
+- 2026-06-30 06:51 - [严浩翔张峻豪师兄弟同台](https://www.blog.minike.top/Article/details/9688397.shtml)
+- 2026-06-30 07:15 - [千万不要随便扣肚脐](https://www.blog.kurohicncr.top/Article/details/12310364226.shtml)
+- 2026-06-30 06:55 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/029513888542.shtml)
+- 2026-06-30 07:09 - [国务院：探索延长义务教育年限](http://www.blog.kurohicncr.top/Article/details/91507.shtml)
+- 2026-06-30 07:13 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/9798590486.shtml)
+- 2026-06-30 06:56 - [网友分享整套中医手术刀](http://www.blog.kurohicncr.top/Article/details/8580224.shtml)
+- 2026-06-30 07:18 - [巴西VS日本前瞻](https://www.blog.kurohicncr.top/Article/details/912562.shtml)
+- 2026-06-30 06:59 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/845916141.shtml)
+- 2026-06-30 06:55 - [苗族银饰](https://www.blog.minike.top/Article/details/961752278471.shtml)
+- 2026-06-30 06:51 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.blog.kurohicncr.top/Article/details/12511015.shtml)
+- 2026-06-30 07:03 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/581341073479.shtml)
+- 2026-06-30 07:08 - [日本16强魔咒](https://www.blog.minike.top/Article/details/02404217955.shtml)
+- 2026-06-30 07:00 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.kurohicncr.top/Article/details/56910.shtml)

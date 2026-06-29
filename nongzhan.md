@@ -1,61 +1,57 @@
-# 宇树“闪电过会”并联手黄仁勋，146亿王兴兴难挡业绩放缓？
+# 债券市场“科技板”推出一周年 广东87只科技创新债券落地
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 从IPO申请获受理到上会，全程仅间隔73天！宇树科技在科创板上演“闪电过会”，剑指A股“人形机器人第一股”。 根据宇树科技最新披露的招股书，公司此次IPO拟募资42.02亿元。若以不低于10%的公开发行比例粗略估算，宇树科技初始发行市值至少达到42
+中新网广州6月3日电 (记者 许青青)据中国人民银行广东省分行3日介绍，自2025年5月7日债券市场“科技板”正式推出以来，截至2026年4月末，广东省已有8家金融机构、24家科技型企业、11家股权投资机构，共43家主体在银行间市场发行87只科技创新债券，总规模达1468.45亿元。科技创新项目投资周期长、前期投入大，传统信贷往往“够不着、等不起”。而债券市场“科技板”正是为了
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网广州6月3日电 (记者 许青青)据中国人民银行广东省分行3日介绍，自2025年5月7日债券市场“科技板”正式推出以来，截至2026年4月末，广东省已有8家金融机构、24家科技型企业、11家股权投资机构，共43家主体在银行间市场发行87只科技创新债券，总规模达1468.45亿元。
 
-来源：雷达Finance 雷达财经出品 文|彭程 编|孟帅 从IPO申请获受理到上会，全程仅间隔73天！
+科技创新项目投资周期长、前期投入大，传统信贷往往“够不着、等不起”。
 
-宇树科技在科创板上演“闪电过会”，剑指A股“人形机器人第一股”。
+而债券市场“科技板”正是为了缓解这个问题而推出的，鼓励科技型企业、股权投资机构发行长期限科技创新债券，引导社会资本“投早、投小、投长期、投硬科技”，支持企业更加从容地开展长周期的技术研发、项目并购等，实现债券融资“期限长、成本省”。
 
-根据宇树科技最新披露的招股书，公司此次IPO拟募资42.02亿元。
+从发行节奏看，一年以来，广东科技创新债券月均发行规模稳定在120亿元以上，且发行利率普遍低于3%，助力企业获取低成本的债券市场资金。
 
-若以不低于10%的公开发行比例粗略估算，宇树科技初始发行市值至少达到420亿元。
+广东省科技创新债券不仅实现了规模的稳步扩大，融资质量也有效提升。
 
-而凭借手中所持有的34.76%的股份，宇树科技创始人王兴兴身家暴涨，所持股份价值或达146亿元。
+广东省内已发行的科技创新债券平均期限3.37年，加权平均利率1.81%。
 
-就在过会当天，宇树科技还传出一则喜讯：公司与英伟达达成合作，双方将联手推出新一代人形机器人参考设计H2+，意图以AI算力加速全球人形机器人创新。
+分三类主体看，科技型企业发债平均期限2.7年、利率1.79%；股权投资机构发债平均期限5.9年、利率1.98%；金融机构发债平均期限4.5年、利率1.88%。
 
-不过，看似光鲜的表象下，宇树科技也面临业绩放缓的挑战。
+在拉长融资期限的同时，还显著降低了企业发债成本。
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhunm.md)
-- 2026-06-30 06:46 - [扬名立万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
-- 2026-06-30 07:05 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kongyou.md)
-- 2026-06-30 06:49 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douweng.md)
-- 2026-06-30 06:42 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtlxv.md)
-- 2026-06-30 07:06 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ombcx.md)
-- 2026-06-30 07:07 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
-- 2026-06-30 06:50 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tijws.md)
-- 2026-06-30 07:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 07:07 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
-- 2026-06-30 06:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paiting.md)
-- 2026-06-30 07:10 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 06:58 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lsgxz.md)
-- 2026-06-30 07:02 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
-- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ffuaa.md)
+- 2026-06-30 07:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fqagb.md)
+- 2026-06-30 06:59 - [詹姆斯 勇士](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iskwk.md)
+- 2026-06-30 07:01 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 06:55 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/albgx.md)
+- 2026-06-30 06:53 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cpugr.md)
+- 2026-06-30 07:14 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jkykb.md)
+- 2026-06-30 06:48 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kwnjx.md)
+- 2026-06-30 06:56 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/huaiteng.md)
+- 2026-06-30 06:52 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/merhz.md)
+- 2026-06-30 06:48 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhunzhen.md)
+- 2026-06-30 07:16 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgdnk.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.minike.top/Article/details/78035.shtml)
-- 2026-06-30 06:48 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/51687.shtml)
-- 2026-06-30 07:10 - [如何改变自己太负责任的性格?](https://www.blog.kurohicncr.top/Article/details/618637882888.shtml)
-- 2026-06-30 06:53 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/554049167.shtml)
-- 2026-06-30 07:05 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.blog.kurohicncr.top/Article/details/318730472.shtml)
-- 2026-06-30 06:57 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/070687419.shtml)
-- 2026-06-30 06:42 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/1149731298.shtml)
-- 2026-06-30 06:58 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/632094.shtml)
-- 2026-06-30 06:52 - [马杜罗账号在纽约发文致谢各国援助](https://www.blog.minike.top/Article/details/541881108.shtml)
-- 2026-06-30 07:01 - [世界杯“美洲德比”7月1日开打](https://www.share.minike.top/Article/details/40763.shtml)
-- 2026-06-30 07:01 - [数据前瞻巴西VS日本](https://www.share.kurohicncr.top/Article/details/0974652.shtml)
-- 2026-06-30 06:58 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/73192585.shtml)
-- 2026-06-30 07:01 - [阿娇瘦了10斤](http://www.share.minike.top/Article/details/2642999683.shtml)
-- 2026-06-30 06:54 - [港股科技股强势反弹](http://www.blog.minike.top/Article/details/2105400.shtml)
-- 2026-06-30 06:47 - [我们的少年时代2](http://www.share.minike.top/Article/details/58047740389.shtml)
+- 2026-06-30 07:07 - [孙兴慜道歉](https://www.blog.minike.top/Article/details/78779.shtml)
+- 2026-06-30 07:10 - [第一炉香](https://www.share.kurohicncr.top/Article/details/890533806.shtml)
+- 2026-06-30 07:05 - [健全中小学教师工资长效联动机制](https://www.share.minike.top/Article/details/702362.shtml)
+- 2026-06-30 07:11 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/501492937.shtml)
+- 2026-06-30 06:52 - [外国游客开始涌入中国农村](https://www.blog.kurohicncr.top/Article/details/9197253.shtml)
+- 2026-06-30 07:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.minike.top/Article/details/6155875.shtml)
+- 2026-06-30 06:51 - [杨紫获白玉兰视后为何争议难平](https://www.blog.kurohicncr.top/Article/details/91862898.shtml)
+- 2026-06-30 07:00 - [终极硬筋流狂铁12.0，何为对抗路的尽头](http://www.share.minike.top/Article/details/95377103671.shtml)
+- 2026-06-30 07:15 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/270561496436.shtml)
+- 2026-06-30 07:09 - [张凌赫杨超越 峨眉](https://www.share.kurohicncr.top/Article/details/5667394.shtml)
+- 2026-06-30 07:09 - [千香](http://www.share.minike.top/Article/details/8547364939.shtml)
+- 2026-06-30 07:13 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.minike.top/Article/details/62437948.shtml)
+- 2026-06-30 06:53 - [第一炉香](https://www.share.kurohicncr.top/Article/details/827695.shtml)
+- 2026-06-30 06:59 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.minike.top/Article/details/1397872091.shtml)
+- 2026-06-30 07:13 - [刘宇宁高情商化解谁站C位](https://www.share.kurohicncr.top/Article/details/249489.shtml)

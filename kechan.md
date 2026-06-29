@@ -1,61 +1,58 @@
-# 珠三角水资源配置工程高新沙泵站累计向莞深供水约10.94亿立方米
+# Marcus Corporation首席信息官Kim M. Lueck将于8月退休
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网广州6月3日电 (记者 王坚)据珠三角水资源配置工程南沙管理部3日消息，该工程高新沙泵站自正式运营以来，已安全运行700余天，截至目前，累计向东莞、深圳供水约10.94亿立方米。 作为珠三角水资源配置工程关键中转枢纽，南沙管理部肩负西江水源东送“中转站”重要使命，承上启下、联通东西。两年来，该管理部以精准调度守护供水命脉，以精细运维筑牢安全防线，以创新实干破解运维难题，以
+Marcus Corporation周二宣布，公司首席信息官兼Marcus Theatres首席信息技术官Kim M． Lueck将于2026年8月1日正式退休，结束其近30年的职业生涯。公司已启动继任者遴选程序。 Lueck于1997年以IT项目经理身份加入Marcus Theatres，2000年转入Marcus Corporation的IT团队。她先后担任多个职务，200
 
 ## 正文
 
-中新网广州6月3日电 (记者 王坚)据珠三角水资源配置工程南沙管理部3日消息，该工程高新沙泵站自正式运营以来，已安全运行700余天，截至目前，累计向东莞、深圳供水约10.94亿立方米。
+Marcus Corporation周二宣布，公司首席信息官兼Marcus Theatres首席信息技术官Kim M． Lueck将于2026年8月1日正式退休，结束其近30年的职业生涯。
 
-作为珠三角水资源配置工程关键中转枢纽，南沙管理部肩负西江水源东送“中转站”重要使命，承上启下、联通东西。
+公司已启动继任者遴选程序。
 
-两年来，该管理部以精准调度守护供水命脉，以精细运维筑牢安全防线，以创新实干破解运维难题，以科普担当传递水利温度，用实打实的成效让国家级重大水利工程的民生福祉落地湾区、惠及万家。
+Lueck于1997年以IT项目经理身份加入Marcus Theatres，2000年转入Marcus Corporation的IT团队。
 
-南沙管理部介绍，珠三角水资源配置工程高新沙泵站作为南沙枢纽的核心动力单元，是西江水源高效中转、精准调配的关键支撑。
+她先后担任多个职务，2008年被任命为Marcus Theatres首席信息技术官，2014年晋升为Marcus Corporation首席信息官。
 
-自正式运营以来，泵站已安全运行700余天，安全运行率达100%。
+她的职业生涯成就获得了多项行业认可：2018年被《密尔沃基商业日报》评为年度首席信息官，并分别在2019、2020、2023和2025年被Celluloid Junkie评为全球影院行业50大杰出女性。
 
-截至目前，累计向东莞、深圳供水约10.94亿立方米，向南沙区供水约1.8亿立方米。
+Marcus Corporation首席执行官Gregory S． Marcus表示：“在她近三十年的任期内，Kim为整个企业技术基础设施的可靠性和有效性做出了众多重要贡献。
 
-为保障供水的连续性，南沙管理部创新采用左右清淤区交替检修模式，实现每年向南沙区不间断供水330天以上。
+她领导专家团队整合了多项创新技术，彻底改变了宾客体验，同时确保持续的安全卓越性和流程效率。
 
-如今，南沙区生产生活用水主水源已全面切换为量足质优的西江水，区域供水保障能力实现量质双提升。
+我代表整个团队感谢Kim的诸多成就，并祝愿她退休生活愉快。
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
-- 2026-06-30 07:07 - [终于把好哥们处成了情侣!](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
-- 2026-06-30 06:53 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ixvrw.md)
-- 2026-06-30 07:08 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ksbpq.md)
-- 2026-06-30 06:59 - [中国再对日本出重拳](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlwhl.md)
-- 2026-06-30 06:57 - [美股](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
-- 2026-06-30 07:10 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaishun.md)
-- 2026-06-30 07:01 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
-- 2026-06-30 07:01 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tuchun.md)
-- 2026-06-30 07:01 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/njvvh.md)
-- 2026-06-30 06:56 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoguan.md)
-- 2026-06-30 07:00 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dfulb.md)
-- 2026-06-30 06:55 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/xiongtui.md)
-- 2026-06-30 06:48 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/duizai.md)
-- 2026-06-30 07:11 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adxfe.md)
+- 2026-06-30 07:15 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 06:53 - [中国代表在联合国点名日本所犯罪行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
+- 2026-06-30 06:52 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gongsun.md)
+- 2026-06-30 07:16 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
+- 2026-06-30 06:49 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpdim.md)
+- 2026-06-30 07:03 - [杨紫获白玉兰视后为何争议难平](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tazuz.md)
+- 2026-06-30 06:52 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
+- 2026-06-30 07:01 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:05 - [未来五年，教育强国这样建设](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/afhyh.md)
+- 2026-06-30 07:11 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dcrwf.md)
+- 2026-06-30 07:05 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 07:15 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [巴西绝杀](http://www.share.minike.top/Article/details/77813.shtml)
-- 2026-06-30 06:52 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/837074.shtml)
-- 2026-06-30 06:48 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/5822497901.shtml)
-- 2026-06-30 07:09 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/327463869320.shtml)
-- 2026-06-30 07:04 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/1740067177.shtml)
-- 2026-06-30 07:06 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://www.blog.minike.top/Article/details/8837412.shtml)
-- 2026-06-30 07:05 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/106597541.shtml)
-- 2026-06-30 06:52 - [有人见过武则天的画像吗，非常好奇？](https://www.share.minike.top/Article/details/969685491.shtml)
-- 2026-06-30 06:49 - [怕iPhone涨价的用户已紧急换新](http://www.share.kurohicncr.top/Article/details/4320357860.shtml)
-- 2026-06-30 07:03 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/86757.shtml)
-- 2026-06-30 06:49 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/166822858519.shtml)
-- 2026-06-30 06:44 - [房价什么时候能涨](https://www.share.minike.top/Article/details/73966440029.shtml)
-- 2026-06-30 07:07 - [【全网首杀】涤墨作战7人870分](http://www.blog.minike.top/Article/details/11680888.shtml)
-- 2026-06-30 06:47 - [王欣瑜晋级温网女单次轮](http://www.blog.kurohicncr.top/Article/details/106248.shtml)
-- 2026-06-30 06:52 - [安切洛蒂 换人](https://www.blog.kurohicncr.top/Article/details/36980.shtml)
+- 2026-06-30 07:03 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/03063.shtml)
+- 2026-06-30 06:54 - [这一刀 会很帅](http://www.blog.minike.top/Article/details/847458485.shtml)
+- 2026-06-30 07:09 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/165725638.shtml)
+- 2026-06-30 07:15 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://www.blog.minike.top/Article/details/242225727678.shtml)
+- 2026-06-30 07:13 - [87克大金链到老庙黄金维修少了11克](https://www.blog.kurohicncr.top/Article/details/738396008.shtml)
+- 2026-06-30 06:50 - [斛珠夫人](http://www.share.minike.top/Article/details/103392465.shtml)
+- 2026-06-30 07:05 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/37939.shtml)
+- 2026-06-30 07:11 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/2911312.shtml)
+- 2026-06-30 07:01 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/549580.shtml)
+- 2026-06-30 07:02 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/545143.shtml)
+- 2026-06-30 06:52 - [千香](https://www.blog.kurohicncr.top/Article/details/396706864.shtml)
+- 2026-06-30 07:09 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/93378210289.shtml)
+- 2026-06-30 07:10 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/3231106831.shtml)
+- 2026-06-30 07:12 - [“手机痴呆症”盯上中青年](http://www.blog.kurohicncr.top/Article/details/760146101.shtml)
+- 2026-06-30 06:48 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/38297496453.shtml)

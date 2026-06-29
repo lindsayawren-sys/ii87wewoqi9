@@ -1,57 +1,61 @@
-# 又现“清仓式”卸任，德邦基金百亿基金经理离任
+# 酒价内参6月2日价格发布：精品茅台下跌5元
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-专题：网红产品亏超21亿后，德邦基金百亿经理“清仓式”卸任 来源：国际金融报 知名百亿基金经理雷涛近期“清仓式”卸任所管全部基金，引发市场广泛关注。据悉，其所管某只基金年初曾陷入违规风波。与此同时，德邦基金近半年来从高管层到基金经理均发生了人事变动。 近日，德邦基金发布基金经理变更公告称，雷涛因个人原因于5月29日离任，不再管理旗下所有基金，相关基金已由其他基金经理接管。数据显
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款
 
 ## 正文
 
-专题：网红产品亏超21亿后，德邦基金百亿经理“清仓式”卸任 来源：国际金融报 知名百亿基金经理雷涛近期“清仓式”卸任所管全部基金，引发市场广泛关注。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 新浪财经“酒价内参”过去24小时收集的数据显示，中国白酒市场主要大单品的终端零售均价6月2日整体再度走弱。
 
-据悉，其所管某只基金年初曾陷入违规风波。
+如果主要单品各取一瓶整体打包售卖，今日总售价为9900元，较昨日下跌14元，将将守住9900元关口。
 
-与此同时，德邦基金近半年来从高管层到基金经理均发生了人事变动。
+市场在前一日明显反弹后再现显著分化，终端交投情绪整体仍偏谨慎，中腰部产品古井贡古20与青花郎的跌幅较重，而昨日这两款酒品均为大涨。
 
-近日，德邦基金发布基金经理变更公告称，雷涛因个人原因于5月29日离任，不再管理旗下所有基金，相关基金已由其他基金经理接管。
+今日白酒市场11大单品三涨六跌两平，输家占据明显上风。
 
-数据显示，雷涛于2021年开始管理公募基金，在管基金规模一度达到181.51亿元，并长期看好半导体相关投资机会。
+上涨方面，习酒君品的涨幅居前，上涨7元/瓶，两连阳快速走出月内低点；飞天茅台上涨3元/瓶，成功固守1735元一线；国窖1573上涨2元/瓶。
 
-公告当日，雷涛在《致持有人的一封信》中表示，因个人原因，决定暂作告别、休整沉淀，但会一直关注德邦基金的发展。
+下跌方面，古井贡古20与青花郎跌幅居前，均下跌6元/瓶，前者仍囿于月内低点附近，后者再度失守700元关口；精品茅台下跌5元/瓶；五粮液普五八代下跌4元/瓶；洋河梦之蓝M6+下跌3元/瓶，回吐昨日全部涨幅，再度失守600元大关；水晶剑南春下跌2元/瓶，亦尽失昨日涨幅。
 
-对于雷涛的离任，德邦基金表示，本次人事调整属于公募行业正常人才流动，公司对雷涛在职期间的深耕付出与专业贡献表示感谢，充分尊重其个人选择，支持其开启阶段性休整沉淀。
+五粮液1618与青花汾20的价格环比保持不变，后者平近一个月最低价纪录。
 
-百亿基金经理离任 5月30日，德邦基金发布公告称，基金经理雷涛因个人原因于5月29日卸任其管理的全部公募基金产品，相关调整已依规完成内部审批流程。
+“酒价内参”每日数据源自全国各大区均有合理分布的约200个采集点，包括但不限于酒企指定经销商、社会经销商、电商平台和零售网点等，原始取样数据为过去24个小时各点位经手的真实成交终端零售价，力求为各界提供一份关于知名白酒市场价的客观、科学、全程可追溯数据。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ntofj.md)
-- 2026-06-30 06:43 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 07:04 - [赵今麦电影开端客串路透](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 06:47 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ffuaa.md)
-- 2026-06-30 07:02 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiybe.md)
-- 2026-06-30 06:46 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mvllh.md)
-- 2026-06-30 07:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 06:49 - [在巴西能拍到什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 07:03 - [2021湖南卫视跨年演唱会](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ujkpp.md)
-- 2026-06-30 06:49 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bxxns.md)
-- 2026-06-30 06:47 - [中国猪圈装空调让欧洲网友破防](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 07:05 - [速度与激情9](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fsmpz.md)
+- 2026-06-30 06:59 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxxri.md)
+- 2026-06-30 06:51 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgzcd.md)
+- 2026-06-30 07:08 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qungu.md)
+- 2026-06-30 06:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/faalg.md)
+- 2026-06-30 07:12 - [董卿父亲报纸上发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alxxe.md)
+- 2026-06-30 06:49 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/maigua.md)
+- 2026-06-30 07:09 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 06:53 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruiren.md)
+- 2026-06-30 06:48 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 07:11 - [房价什么时候能涨](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xunzhu.md)
+- 2026-06-30 07:12 - [85花告别古偶](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
+- 2026-06-30 06:53 - [法国生态部长反对大规模安装空调](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
+- 2026-06-30 06:49 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ggmey.md)
+- 2026-06-30 07:02 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzalw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:56 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/71911.shtml)
-- 2026-06-30 07:09 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/41630773.shtml)
-- 2026-06-30 06:46 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.minike.top/Article/details/7011931.shtml)
-- 2026-06-30 07:09 - [斗破苍穹](https://www.share.minike.top/Article/details/740505366.shtml)
-- 2026-06-30 07:10 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.share.kurohicncr.top/Article/details/289429182.shtml)
-- 2026-06-30 07:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.share.minike.top/Article/details/809503.shtml)
-- 2026-06-30 07:03 - [网瘾賊大的阿嬷](https://www.share.minike.top/Article/details/10625544371.shtml)
-- 2026-06-30 07:10 - [又一美国科技巨头转向中国大模型](https://www.share.minike.top/Article/details/07790679565.shtml)
-- 2026-06-30 06:50 - [男生高考695分志愿报考清华](http://www.share.minike.top/Article/details/60824417.shtml)
-- 2026-06-30 06:48 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/47442341.shtml)
-- 2026-06-30 06:58 - [金牌调解](http://www.share.kurohicncr.top/Article/details/7201666.shtml)
-- 2026-06-30 07:09 - [女儿从清华毕业爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/55698977.shtml)
-- 2026-06-30 07:11 - [挪威国家队紧急从本土订购大批海鲜](http://www.share.kurohicncr.top/Article/details/6555895.shtml)
-- 2026-06-30 06:46 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/21789842376.shtml)
-- 2026-06-30 06:50 - [世界杯：巴西vs日本](http://www.blog.kurohicncr.top/Article/details/66328795784.shtml)
+- 2026-06-30 06:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/80285906.shtml)
+- 2026-06-30 06:56 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/117159844.shtml)
+- 2026-06-30 07:09 - [男子在非洲务工死亡 公司不认可工亡](https://www.blog.minike.top/Article/details/5992465.shtml)
+- 2026-06-30 07:03 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/640278868418.shtml)
+- 2026-06-30 07:14 - [日本半场1比0领先巴西](https://www.blog.kurohicncr.top/Article/details/296604278.shtml)
+- 2026-06-30 07:10 - [韩国人为什么这么在乎输赢](http://www.blog.minike.top/Article/details/80894.shtml)
+- 2026-06-30 07:14 - [吴艳妮回应夺冠](https://www.share.minike.top/Article/details/08774262260.shtml)
+- 2026-06-30 06:52 - [上半年全国特种设备安全形势总体平稳](http://www.share.minike.top/Article/details/81051037782.shtml)
+- 2026-06-30 06:53 - [毒液2](http://www.blog.minike.top/Article/details/44323.shtml)
+- 2026-06-30 06:48 - [拆解FIFA和世界杯的暗面](http://www.blog.minike.top/Article/details/53292389964.shtml)
+- 2026-06-30 07:17 - [大货车掉落螺丝扎进骑手护目镜](http://www.blog.kurohicncr.top/Article/details/794066147.shtml)
+- 2026-06-30 07:16 - [中国对日本再出重拳](http://www.blog.minike.top/Article/details/108714001796.shtml)
+- 2026-06-30 06:50 - [格力遥控器里有黄金](https://www.blog.minike.top/Article/details/59091630.shtml)
+- 2026-06-30 07:08 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/2656248.shtml)
+- 2026-06-30 06:59 - [这些7月新规影响你我](https://www.share.minike.top/Article/details/852723.shtml)

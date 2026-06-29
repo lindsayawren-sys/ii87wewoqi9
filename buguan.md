@@ -1,61 +1,57 @@
-# 第15届金交会举办数字金融生态合作交流沙龙
+# 冰雪“热”力持续 吉林加快建设国际冰雪经济集聚区
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网广州6月3日电 (记者 郭军)“数智聚势·产融共新——广州数科集团数字金融板块联合展示暨生态合作交流沙龙”3日在第15届中国(广州)国际金融交易·博览会上举行。来自广州市委金融办、广州市社科联、广东财经大学、广州数字人民币与金融创新重点实验室及金融机构代表逾150人出席活动，热议数字金融高质量发展蓝图。 广州数科集团党委副书记、副董事长、总经理夏坚表示，近年来集团深耕金融
+中新网长春6月2日电 (谭伟旗 阚若桐 金乔)吉林省文化和旅游厅厅长孙光芝2日在吉林省政府新闻办举行的新闻发布会上介绍，该省将以2027长春大冬会为契机，以全产业链思维推动冰雪旅游、冰雪文化、冰雪运动、冰雪装备融合发展，全面塑造、全力提升冰雪产业新优势，推动建设具有国际影响力的冰雪经济集聚区，打造世界级冰雪品牌和冰雪旅游胜地。 冰雪是吉林省最具辨识度、最具竞争力的文旅名片。近年
 
 ## 正文
 
-中新网广州6月3日电 (记者 郭军)“数智聚势·产融共新——广州数科集团数字金融板块联合展示暨生态合作交流沙龙”3日在第15届中国(广州)国际金融交易·博览会上举行。
+中新网长春6月2日电 (谭伟旗 阚若桐 金乔)吉林省文化和旅游厅厅长孙光芝2日在吉林省政府新闻办举行的新闻发布会上介绍，该省将以2027长春大冬会为契机，以全产业链思维推动冰雪旅游、冰雪文化、冰雪运动、冰雪装备融合发展，全面塑造、全力提升冰雪产业新优势，推动建设具有国际影响力的冰雪经济集聚区，打造世界级冰雪品牌和冰雪旅游胜地。
 
-来自广州市委金融办、广州市社科联、广东财经大学、广州数字人民币与金融创新重点实验室及金融机构代表逾150人出席活动，热议数字金融高质量发展蓝图。
+冰雪是吉林省最具辨识度、最具竞争力的文旅名片。
 
-广州数科集团党委副书记、副董事长、总经理夏坚表示，近年来集团深耕金融科技主业，组建广州数字金融创新研究院，构建预付费、跨境贸易、供应链金融、数字仲裁等数字金融生态体系，全力打造数字金融板块作为第二增长曲线。
+近年来，伴随着冰雪资源优势的不断释放，吉林冰雪经济热度持续、影响力不断攀升。
 
-整合9家专业运营主体，以金融服务实体经济和社会民生为导向，形成一批可落地、可复制、见实效的数字金融创新实践成果。
+孙光芝表示，“十五五”期间，支持长春庙香山、长春冰雪新天地、松原查干湖、延边老里克湖等建设全国著名冰雪景区，利用特色街区、商业综合体、户外运动公园打造大众冰雪消费体验区；引导北大湖、松花湖、通化万峰、长白山万达、华美胜地等重点滑雪场加大基础设施投入，建设以滑雪为特色的四季旅游度假目的地体系；鼓励各地利用特色资源开发冰雪文旅体验产品，实现冰雪乐园县域全覆盖，让吉林的冰雪体验丰富多彩、触手可及。
 
-广州数字人民币与金融创新重点实验室数字金融首席科学家谢丹阳表示，现阶段，中国应向具有自主知识产权和技术的知识型经济转型，重点方向包括数字经济、人工智能、新能源、银发经济、低空经济等。
+据了解，吉林省将以“长白天下雪”“长白粉雪”为引领，构建“吉林雾凇”“查干冬捕”等冰雪品牌矩阵。
 
-应制定和修订现代服务外贸尤其是金融领域的开放政策，形成跨境资金与服务的联通平台。
+孙光芝介绍，该省将办好吉林雪博会、新雪季开板大会、长春瓦萨滑雪节、长春冰雪节、吉林雾凇节、查干湖冰雪渔猎文化旅游节、长白山粉雪节等“一会十节百活动”，实施“冬季到吉林来玩雪”市场营销计划，持续放大吉林冰雪的影响力、吸引力和竞争力，推动吉林冰雪品牌享誉全国、走向世界。
 
-苏州金服实验室科技有限公司实验室管理部负责人徐子仪表示，数字人民币是数字经济时代金融基础设施的核心创新，是激活消费市场、畅通经济循环、赋能城市发展的重要抓手，要牢牢聚焦“普及、扩面、创新、提质”四大核心关键，全力推动数字人民币深度赋能实体经济与民生服务，打通服务“最后一公里”。
+“十五五”期间，吉林省将深入挖掘并活化冰雕、雪雕技艺等非物质文化遗产代表性项目，开展冰雪题材文艺创作，支持景区、度假区打造冰雪主题文旅演艺项目，升级雪雕版“云顶天宫”、新民大街冰雪文化长廊等冰雪文化地标。
 
-活动现场达成多个数字生态产业合作项目签约。
+同时，创作1部大型冰雪主题舞台艺术作品，探索每年举办高水平冰雕赛事，常态化开展冰雪类非遗代表性项目推广和产品展销活动，推动冰雪产品艺术化、生活化、地标化、国际化发展。
 
 ## 相关推荐
 
-- 2026-06-30 07:05 - [问心2神一集鬼三集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 07:07 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tejit.md)
-- 2026-06-30 06:45 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bixpx.md)
-- 2026-06-30 06:51 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
-- 2026-06-30 07:03 - [一切民族英雄都是中华民族的脊梁](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/phehp.md)
-- 2026-06-30 07:04 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 07:12 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fangyin.md)
-- 2026-06-30 07:03 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 06:58 - [孙兴慜道歉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nentx.md)
-- 2026-06-30 06:52 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 06:50 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/raogh.md)
-- 2026-06-30 06:52 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quekou.md)
-- 2026-06-30 06:44 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weili.md)
-- 2026-06-30 07:09 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hqsay.md)
-- 2026-06-30 06:44 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xiagun.md)
+- 2026-06-30 06:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/smxcv.md)
+- 2026-06-30 06:56 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 07:07 - [时光音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 06:51 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naikang.md)
+- 2026-06-30 07:16 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dangu.md)
+- 2026-06-30 07:04 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 07:16 - [恋与深空 巧合](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/canbian.md)
+- 2026-06-30 06:54 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tknvr.md)
+- 2026-06-30 07:08 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/inmpq.md)
+- 2026-06-30 07:17 - [内马尔替补](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rvghm.md)
+- 2026-06-30 07:16 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/454132.shtml)
-- 2026-06-30 06:53 - [森保一 保守](http://www.blog.kurohicncr.top/Article/details/12359663752.shtml)
-- 2026-06-30 07:06 - [檀健次王楚然吻戏看热了](http://www.share.kurohicncr.top/Article/details/1580908359.shtml)
-- 2026-06-30 06:53 - [87克大金链到老庙黄金维修少了11克](http://www.blog.kurohicncr.top/Article/details/07689406047.shtml)
-- 2026-06-30 07:00 - [复古未来主义沙画「夜泳」](http://www.blog.kurohicncr.top/Article/details/3671776.shtml)
-- 2026-06-30 06:42 - [沪指深V回升站稳4000点](http://www.share.kurohicncr.top/Article/details/23951375828.shtml)
-- 2026-06-30 06:52 - [创新药板块能否“苦尽甘来”](http://www.blog.minike.top/Article/details/355976537.shtml)
-- 2026-06-30 06:44 - [巴西把自己踢晕了](http://www.blog.kurohicncr.top/Article/details/29024677405.shtml)
-- 2026-06-30 07:00 - [81岁老人被男子买光菜回家车祸去世](https://www.share.kurohicncr.top/Article/details/11307.shtml)
-- 2026-06-30 07:06 - [一切民族英雄都是中华民族的脊梁](https://www.blog.minike.top/Article/details/071908916.shtml)
-- 2026-06-30 06:46 - [港股科技股强势反弹](https://www.share.kurohicncr.top/Article/details/85769.shtml)
-- 2026-06-30 07:04 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.minike.top/Article/details/945889235911.shtml)
-- 2026-06-30 07:08 - [刘必安等16人非法集资案二审宣判](https://www.share.minike.top/Article/details/60585.shtml)
-- 2026-06-30 07:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/327320.shtml)
-- 2026-06-30 06:53 - [赛博朋克边缘行者2预告片](https://www.blog.minike.top/Article/details/771750408.shtml)
+- 2026-06-30 06:51 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/172589389.shtml)
+- 2026-06-30 07:02 - [媒体评哈兰德之歌火了](http://www.share.kurohicncr.top/Article/details/011149.shtml)
+- 2026-06-30 07:16 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](http://www.share.kurohicncr.top/Article/details/619890.shtml)
+- 2026-06-30 06:51 - [恋与深空道歉声明](http://www.share.kurohicncr.top/Article/details/058836866.shtml)
+- 2026-06-30 07:01 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/5841454097.shtml)
+- 2026-06-30 07:00 - [2026MSI应援曲《如果季中成回忆》](https://www.share.kurohicncr.top/Article/details/3884365.shtml)
+- 2026-06-30 06:56 - [全球最火存储ETF纳入兆易创新](http://www.blog.minike.top/Article/details/338659699623.shtml)
+- 2026-06-30 07:11 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/391730895.shtml)
+- 2026-06-30 07:05 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/38911.shtml)
+- 2026-06-30 07:10 - [补时绝杀 巴西2-1淘汰日本](http://www.blog.kurohicncr.top/Article/details/231913187652.shtml)
+- 2026-06-30 07:17 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/449723409180.shtml)
+- 2026-06-30 07:12 - [《我落泪情绪零碎》](http://www.blog.minike.top/Article/details/14915631887.shtml)
+- 2026-06-30 07:14 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://www.blog.kurohicncr.top/Article/details/3791594597.shtml)
+- 2026-06-30 07:11 - [2026MSI应援曲《如果季中成回忆》](http://www.share.kurohicncr.top/Article/details/072733.shtml)
+- 2026-06-30 07:17 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/085676334508.shtml)

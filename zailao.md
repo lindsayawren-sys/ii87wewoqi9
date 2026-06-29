@@ -1,56 +1,57 @@
-# 四家主体均被吸收合并，沈阳成首个村镇银行法人“清零”省会城市
+# OpenAI遭美佛州总检察长起诉 理由是“AI产生危害”
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-来源：华夏时报 近日，国家金融监督管理总局辽宁监管局集中发布四份行政批复，同意沈阳沈北富民、辽中富民、法库富民、新民富民四家村镇银行正式解散。 根据监管批复，四家银行的全部业务、资产、债权债务、营业网点、从业人员及各项权利义务，将由盛京银行全面承接。加之此前沈阳康平抚银村镇银行及其含光支行已在2025年11月完成并购重组，沈阳原有村镇银行已悉数通过市场化方式整合退出。 在受访专
+随着各界针对AI聊天机器人安全缺陷的维权追责浪潮不断升温，佛罗里达州率先发难，成为美国首个起诉OpenAI及其首席执行官山姆·奥特曼的州。 佛罗里达州总检察长詹姆斯·乌思迈尔于周一提起诉讼，指控OpenAI和奥特曼在明知产品存在安全隐患的情况下仍推向市场，并且无视产品可能损害用户的各类风险警示。 这份长达83页的诉状指出，OpenAI放任ChatGPT出现多项有害问题：协助连环
 
 ## 正文
 
-来源：华夏时报 近日，国家金融监督管理总局辽宁监管局集中发布四份行政批复，同意沈阳沈北富民、辽中富民、法库富民、新民富民四家村镇银行正式解散。
+随着各界针对AI聊天机器人安全缺陷的维权追责浪潮不断升温，佛罗里达州率先发难，成为美国首个起诉OpenAI及其首席执行官山姆·奥特曼的州。
 
-根据监管批复，四家银行的全部业务、资产、债权债务、营业网点、从业人员及各项权利义务，将由盛京银行全面承接。
+佛罗里达州总检察长詹姆斯·乌思迈尔于周一提起诉讼，指控OpenAI和奥特曼在明知产品存在安全隐患的情况下仍推向市场，并且无视产品可能损害用户的各类风险警示。
 
-加之此前沈阳康平抚银村镇银行及其含光支行已在2025年11月完成并购重组，沈阳原有村镇银行已悉数通过市场化方式整合退出。
+这份长达83页的诉状指出，OpenAI放任ChatGPT出现多项有害问题：协助连环枪击案凶手、诱导用户自杀、弱化用户批判性思维，还令未成年人沉迷于这款看似拥有共情能力的人工智能产品。
 
-在受访专家看来，沈阳以“村改支”模式实现村镇银行法人清零，为省会城市同类改革提供了可复制的实践样板。
+诉状写明：“被告明知ChatGPT暗藏风险，却仍贪求在人工智能行业竞赛中抢占上风、攫取巨额利润，由此酿成一系列各类损害后果。
 
-其核心优势在于将处置权责压实主发起行，通过内部吸收合并实现风险平稳化解，既避免了单体机构处置的损耗，又保障了县域金融服务连续性，为后续县域金融风险化解与服务升级提供了重要启示。
+” OpenAI暂未就此诉讼发表回应。
 
-沈阳村镇银行迎来“清零” 5月28日，国家金融监督管理总局辽宁监管局集中下发四份批复，批复同意沈阳辽中、沈北、法库、新民四家富民村镇银行解散，四家机构全部资产、债权债务、营业网点、从业人员及各项权责由盛京银行承接。
+该公司此前一直否认自身存在过错，并表示在持续完善产品安全防护措施。
 
-随着批复落地，沈阳将成为国内首个村镇银行全部退出法人主体的省会城市。
+人工智能是人类史上发展增速最快的消费科技品类之一，越来越多议员、司法机构与公益组织开始担忧其带来人身与社会层面隐患。
 
-事实上，相关整合工作早在2025年启动，当年5月，盛京银行发布公告拟提请股东大会审议股权收购、吸收合并议案；7月，该行联合四家村镇银行共同公示整合方案，明确机构注销后，原有客户存贷等业务可在盛京银行正常接续办理。
+本次诉讼意在保护佛罗里达州民众免受OpenAI相关产品侵害，消除诉状所认定的危险公共妨害问题，同时要求奥特曼对民众遭受的损失承担个人连带责任。
 
 ## 相关推荐
 
-- 2026-06-30 06:55 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 06:47 - [网瘾賊大的阿嬷](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpsqm.md)
-- 2026-06-30 07:07 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cubko.md)
-- 2026-06-30 07:02 - [我和我的家乡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/youwan.md)
-- 2026-06-30 07:08 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qldhf.md)
-- 2026-06-30 06:43 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 06:54 - [好像看到了人类带孩子崩溃的样子](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/prafc.md)
-- 2026-06-30 06:47 - [当我知道豆包有后台审核人员](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/msbgd.md)
-- 2026-06-30 06:47 - [房价什么时候能涨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuseng.md)
-- 2026-06-30 07:10 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/danshang.md)
+- 2026-06-30 06:49 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jimiao.md)
+- 2026-06-30 07:16 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tunxiong.md)
+- 2026-06-30 06:50 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mseeu.md)
+- 2026-06-30 06:56 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 07:17 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjdho.md)
+- 2026-06-30 07:14 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/anchun.md)
+- 2026-06-30 06:51 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/lusu.md)
+- 2026-06-30 07:12 - [“柠檬茶能换怀表？”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/psmqs.md)
+- 2026-06-30 06:57 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfxit.md)
+- 2026-06-30 06:49 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/issfy.md)
+- 2026-06-30 06:50 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/afhyh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:44 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.minike.top/Article/details/88437551.shtml)
-- 2026-06-30 06:50 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/984721.shtml)
-- 2026-06-30 07:07 - [小娘惹](https://www.share.minike.top/Article/details/40673458.shtml)
-- 2026-06-30 06:59 - [王欣瑜晋级温网女单次轮](https://www.share.minike.top/Article/details/499307.shtml)
-- 2026-06-30 06:58 - [南北多地暴雨和强对流天气持续](http://www.blog.kurohicncr.top/Article/details/26586459.shtml)
-- 2026-06-30 07:03 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/846622.shtml)
-- 2026-06-30 07:07 - [官方否认宜宾地震与页岩气开采有关](http://www.blog.kurohicncr.top/Article/details/743200765008.shtml)
-- 2026-06-30 07:11 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://www.blog.minike.top/Article/details/29616052931.shtml)
-- 2026-06-30 07:09 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.share.minike.top/Article/details/83684.shtml)
-- 2026-06-30 06:53 - [7月1日起 一批新规即将落地](https://www.share.kurohicncr.top/Article/details/7586930223.shtml)
-- 2026-06-30 06:47 - [蔚来车主罚站](http://www.share.minike.top/Article/details/372889329.shtml)
-- 2026-06-30 06:45 - [王菲谢霆锋十指紧扣好甜](http://www.share.minike.top/Article/details/210794302638.shtml)
-- 2026-06-30 07:03 - [王欣瑜连续4年晋级温网第二轮](http://www.blog.minike.top/Article/details/902245.shtml)
-- 2026-06-30 06:47 - [陈睿《让好内容发生》](https://www.blog.kurohicncr.top/Article/details/0041746236.shtml)
-- 2026-06-30 06:51 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/77535125020.shtml)
+- 2026-06-30 07:15 - [《恋与深空》被指触碰民族伤痛红线](http://www.share.kurohicncr.top/Article/details/421140833.shtml)
+- 2026-06-30 07:11 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/94735390358.shtml)
+- 2026-06-30 06:57 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.kurohicncr.top/Article/details/273948353443.shtml)
+- 2026-06-30 06:58 - [老外对中国cosplay竟这样评价…](https://www.share.minike.top/Article/details/262200716.shtml)
+- 2026-06-30 06:56 - [王欣瑜晋级温网女单次轮](http://www.share.minike.top/Article/details/21935.shtml)
+- 2026-06-30 07:13 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.minike.top/Article/details/7487304440.shtml)
+- 2026-06-30 07:10 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/58258.shtml)
+- 2026-06-30 07:16 - [数据前瞻巴西VS日本](http://www.share.kurohicncr.top/Article/details/08594.shtml)
+- 2026-06-30 06:59 - [王灿兮被烫伤两年后维权成功](https://www.share.minike.top/Article/details/75257225035.shtml)
+- 2026-06-30 07:01 - [董卿父亲报纸上发文悼念亡妻](http://www.blog.kurohicncr.top/Article/details/521875.shtml)
+- 2026-06-30 07:17 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/52311363364.shtml)
+- 2026-06-30 07:07 - [建议不要突然完全停止喝咖啡](https://www.blog.minike.top/Article/details/860587628538.shtml)
+- 2026-06-30 07:09 - [两老人多次到洗车店泼粪 警方已介入](https://www.blog.minike.top/Article/details/029140.shtml)
+- 2026-06-30 06:48 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](http://www.blog.kurohicncr.top/Article/details/9992100.shtml)
+- 2026-06-30 07:17 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.kurohicncr.top/Article/details/569123298295.shtml)

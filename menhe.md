@@ -1,58 +1,58 @@
-# 妈妈取走5岁儿子压岁钱被判返还！孩子的哪些钱不能动？
+# 宇树科技IPO过会：背后顶级资本全扫描，早期投资人道出押注逻辑
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-最近上海一则法院判决刷爆朋友圈： 小朋友5年攒下近30万压岁钱，父母闹离婚时妈妈陆续转走大额资金，账户最后仅剩40余元零钱。法院宣判：妈妈需要返还孩子22万元。 “爸爸妈妈先帮你存着，等你长大再给你。” 这句话，很多中国孩子都听过。法律告诉我们，孩子的钱，父母还真不能乱动。 那么问题来了：哪些钱是孩子专属的不能动？到底要不要给孩子开单独银行账户？财小圈今天系统性地把它讲透。 一
+每经记者|李蕾 姚亚楠 每经编辑|肖芮冬 具身智能赛道迎来新里程碑。 6月1日，上交所官网显示，宇树科技股份有限公司（以下简称宇树科技）科创板IPO申请获上市委审议通过，标志着具身智能从技术验证、资本追捧迈入产业化兑现与资本化退出并行的新阶段。 招股书显示，本次宇树科技拟公开发行不低于4044.6434万股，新股发行比例不低于10%，募集资金约42.02亿元，投向具身大模型、本
 
 ## 正文
 
-最近上海一则法院判决刷爆朋友圈： 小朋友5年攒下近30万压岁钱，父母闹离婚时妈妈陆续转走大额资金，账户最后仅剩40余元零钱。
+每经记者|李蕾 姚亚楠 每经编辑|肖芮冬 具身智能赛道迎来新里程碑。
 
-法院宣判：妈妈需要返还孩子22万元。
+6月1日，上交所官网显示，宇树科技股份有限公司（以下简称宇树科技）科创板IPO申请获上市委审议通过，标志着具身智能从技术验证、资本追捧迈入产业化兑现与资本化退出并行的新阶段。
 
-“爸爸妈妈先帮你存着，等你长大再给你。
+招股书显示，本次宇树科技拟公开发行不低于4044.6434万股，新股发行比例不低于10%，募集资金约42.02亿元，投向具身大模型、本体研发等核心项目。
 
-” 这句话，很多中国孩子都听过。
+值得一提的是，这家2016年成立于杭州的硬科技企业，背后集结了红杉中国、美团、经纬创投、顺为资本、祥峰投资、敦鸿资产、腾讯、深创投、光合创投等数十家顶级机构，成为观测资本支持中国具身智能产业发展的重要样本。
 
-法律告诉我们，孩子的钱，父母还真不能乱动。
+2016年8月，宇树科技的前身宇树有限成立，由创始人王兴兴出资设立，注册资本10万元。
 
-那么问题来了：哪些钱是孩子专属的不能动？
+根据投中嘉川CVSource，2016年11月~2025年6月，宇树科技一共经历了种子轮、天使轮、Pre-A、A、B、C、C+等多轮融资，背后集结了大量顶级市场化和国资背景的机构，宁波红杉、祥峰投资、初心资本、Astrend IV（顺为资本关联公司）、敦鸿资产、深创投、中网投等都是宇树的早期投资方。
 
-到底要不要给孩子开单独银行账户？
+招股书显示，2024年，宇树科技迎来了密集的股权转让及增资，两次增资新增16家投资机构及多名老股东跟投，汉海信息（美团全资子公司）、中信证券旗下金石成长、源码资本、机器人基金、厦门雅恒、成都龙珠等多家机构集中入场，注册资本也从193.45万元增加至259.42万元，估值快速攀升。
 
-财小圈今天系统性地把它讲透。
+2025年，宇树科技进入上市筹备关键期，接连完成股改、资本公积转增股本、股权激励扩容等重要动作，新增中移和创、腾讯科技、无锡锦秋等股东，注册资本也增至36401.7906万元，股权结构彻底规范化。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [这一刀 会很帅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dehuai.md)
-- 2026-06-30 06:49 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
-- 2026-06-30 07:00 - [日本硬刚巴西谁能赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ceijv.md)
-- 2026-06-30 06:53 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neiman.md)
-- 2026-06-30 07:01 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
-- 2026-06-30 07:08 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
-- 2026-06-30 06:53 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lvqwm.md)
-- 2026-06-30 06:45 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iufzm.md)
-- 2026-06-30 06:47 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pinghua.md)
-- 2026-06-30 07:11 - [蔚来车主罚站](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpsqm.md)
-- 2026-06-30 06:50 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kanxin.md)
-- 2026-06-30 06:59 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bsrnp.md)
+- 2026-06-30 07:00 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zouping.md)
+- 2026-06-30 07:16 - [蔚来回应高压水枪洗车掉漆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 07:12 - [院士：太空轨道必须抢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mepbl.md)
+- 2026-06-30 07:06 - [花少8要去世界杯举办国](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ugvay.md)
+- 2026-06-30 06:52 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuikai.md)
+- 2026-06-30 07:16 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuoge.md)
+- 2026-06-30 06:59 - [“草莓月亮”浪漫现身](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mpbsm.md)
+- 2026-06-30 07:00 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bezwh.md)
+- 2026-06-30 06:57 - [巴西扳平比分](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:13 - [创新药板块能否“苦尽甘来”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nksic.md)
+- 2026-06-30 06:57 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
+- 2026-06-30 07:14 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chitun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/709315641.shtml)
-- 2026-06-30 06:44 - [五哈和他们的朋友](http://www.blog.minike.top/Article/details/078531919.shtml)
-- 2026-06-30 07:10 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://www.blog.kurohicncr.top/Article/details/520275.shtml)
-- 2026-06-30 07:11 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/98863310922.shtml)
-- 2026-06-30 06:50 - [世界杯巴西vs日本前瞻](https://www.blog.kurohicncr.top/Article/details/818983104.shtml)
-- 2026-06-30 07:07 - [湖南祁东原文化馆被指贱卖](http://www.blog.kurohicncr.top/Article/details/243791136.shtml)
-- 2026-06-30 06:47 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/6617193.shtml)
-- 2026-06-30 07:05 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/32734.shtml)
-- 2026-06-30 06:58 - [勇敢的心第二部](http://www.share.minike.top/Article/details/248510.shtml)
-- 2026-06-30 07:07 - [速度与激情9](http://www.blog.kurohicncr.top/Article/details/2751391.shtml)
-- 2026-06-30 06:54 - [董卿父亲在报纸上发文悼念亡妻](https://www.share.minike.top/Article/details/93361531.shtml)
-- 2026-06-30 07:03 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.kurohicncr.top/Article/details/0033067533.shtml)
-- 2026-06-30 07:07 - [金刚川](https://www.blog.minike.top/Article/details/01347957474.shtml)
-- 2026-06-30 06:47 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/117850337161.shtml)
-- 2026-06-30 06:42 - [刘念回应](http://www.share.kurohicncr.top/Article/details/512318778282.shtml)
+- 2026-06-30 07:00 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/546148803.shtml)
+- 2026-06-30 06:53 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://www.share.minike.top/Article/details/74341783.shtml)
+- 2026-06-30 07:03 - [斛珠夫人](https://www.blog.minike.top/Article/details/82052165158.shtml)
+- 2026-06-30 07:13 - [张月感谢了每一公的队友](http://www.blog.kurohicncr.top/Article/details/9906227.shtml)
+- 2026-06-30 07:15 - [小羊在林间被野生豹子啃食 当地回应](http://www.blog.kurohicncr.top/Article/details/612363.shtml)
+- 2026-06-30 06:59 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/79538976.shtml)
+- 2026-06-30 07:13 - [第一炉香](http://www.share.minike.top/Article/details/093457128.shtml)
+- 2026-06-30 07:00 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/6339940.shtml)
+- 2026-06-30 06:53 - [恋与深空 巧合](http://www.share.minike.top/Article/details/636395.shtml)
+- 2026-06-30 07:16 - [道友？你来真的啊？【凡人官方二创大会】](http://www.blog.minike.top/Article/details/92585576727.shtml)
+- 2026-06-30 07:02 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://www.blog.kurohicncr.top/Article/details/776617923.shtml)
+- 2026-06-30 06:54 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/58587.shtml)
+- 2026-06-30 07:06 - [小娘惹](https://www.share.kurohicncr.top/Article/details/87481954811.shtml)
+- 2026-06-30 07:09 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://www.blog.minike.top/Article/details/915922631976.shtml)
+- 2026-06-30 07:12 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](http://www.blog.minike.top/Article/details/4607312.shtml)

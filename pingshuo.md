@@ -1,58 +1,56 @@
-# 中国驻美大使：当前中美关系站在新的历史起点
+# 今年湖北高考安检新规：戴（带）眼镜考生需接受专项检查
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月03日 12:09 来源：中国新闻网 中国驻美大使谢锋当地时间5月30日在华盛顿表示，中美恰似球场两方，既要依规竞技，更要懂得相互尊重。 中国驻美国大使馆当晚举办“匹克球之夜”暨“中国行”纪录片首映。谢锋与美国青少年匹克球访华团师生、家长等欢聚一堂，重温中美青少年从“以球会友”到“以心相交”的美好历程。 谢锋在致辞时说，当前中美关系站在新的历史起点。半
+2026年全国高考将于6月7日至9日进行。6月1日，上海市教育考试院提醒考生，今年安检有了新规：佩戴框架眼镜的考生，需配合监考员接受查验。6月2日，广东省教育考试院发布了类似的规定。湖北高考今年是否也有同样的要求？为此，极目新闻联系湖北省教育考试院，得到了肯定的答复。具体规定为：考生进入考场安检时，所有佩戴(携带)眼镜的考生须在视频监控下自行摘下眼镜放在台面，由监考员实施专项检
 
 ## 正文
 
-发布时间：2026年06月03日 12:09 来源：中国新闻网 中国驻美大使谢锋当地时间5月30日在华盛顿表示，中美恰似球场两方，既要依规竞技，更要懂得相互尊重。
+2026年全国高考将于6月7日至9日进行。
 
-中国驻美国大使馆当晚举办“匹克球之夜”暨“中国行”纪录片首映。
+6月1日，上海市教育考试院提醒考生，今年安检有了新规：佩戴框架眼镜的考生，需配合监考员接受查验。
 
-谢锋与美国青少年匹克球访华团师生、家长等欢聚一堂，重温中美青少年从“以球会友”到“以心相交”的美好历程。
+6月2日，广东省教育考试院发布了类似的规定。
 
-谢锋在致辞时说，当前中美关系站在新的历史起点。
+湖北高考今年是否也有同样的要求？
 
-半个月前，中美两国元首在北京举行了历史性、标志性的会晤，两国元首同意将“中美建设性战略稳定关系”作为两国关系的新定位，为未来3年乃至更长时间的中美关系作出战略指引，受到两国和国际社会的普遍欢迎。
+为此，极目新闻联系湖北省教育考试院，得到了肯定的答复。
 
-谢锋表示，竞争不可避免，但应该是你追我赶的积极竞争、遵守规则的公平竞争、共同提高的良性竞争，目的是为了成就更好的自己。
+具体规定为：考生进入考场安检时，所有佩戴(携带)眼镜的考生须在视频监控下自行摘下眼镜放在台面，由监考员实施专项检查。
 
-这种相互尊重、和平共处、合作共赢的理性认知，既是读懂大国相处之道的逻辑，更是跨越“修昔底德陷阱”的密钥。
+6月2日，湖北省教育考试院发布考前温馨提示，湖北省2026年高考入场实行“身份验证+智能安检+人工安检”模式，考场实行“人工监考、视频监考、流动巡考和实时智能巡查”，请考生严格遵守考试纪律，诚信应考。
 
-谢锋指出，中美历史文化、社会制度、发展道路有别，但差异不是对立的理由，而是交流的契机、合作的动力。
+今年，湖北省高考实行“入场安全检查”，共有三个环节： 一是在考点入口处通过人脸识别等身份核验系统，确认考生身份。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [格力遥控器里有黄金](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
-- 2026-06-30 07:02 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cnism.md)
-- 2026-06-30 07:10 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 07:02 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aootd.md)
-- 2026-06-30 07:09 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mospu.md)
-- 2026-06-30 06:48 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpzxr.md)
-- 2026-06-30 06:55 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhecai.md)
-- 2026-06-30 07:00 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biantan.md)
-- 2026-06-30 06:47 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 07:11 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iizrl.md)
-- 2026-06-30 06:57 - [刘念回应](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pqlnh.md)
-- 2026-06-30 06:56 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fmqmh.md)
+- 2026-06-30 07:14 - [安切洛蒂 换人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tcqkf.md)
+- 2026-06-30 06:49 - [科技牛市下的最大考验是什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jllrk.md)
+- 2026-06-30 07:02 - [南北多地暴雨和强对流天气持续](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/paoqin.md)
+- 2026-06-30 07:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzeng.md)
+- 2026-06-30 07:05 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txqhc.md)
+- 2026-06-30 06:59 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 07:08 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
+- 2026-06-30 06:57 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
+- 2026-06-30 07:13 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pdiev.md)
+- 2026-06-30 07:07 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:59 - [刘宇宁胸肌腹肌全给看了](https://www.blog.minike.top/Article/details/622463.shtml)
-- 2026-06-30 07:08 - [为什么香港的冲厕水是咸的？](http://www.blog.minike.top/Article/details/406774811.shtml)
-- 2026-06-30 06:50 - [DeepSeek V4正式版要来了](http://www.blog.kurohicncr.top/Article/details/100359.shtml)
-- 2026-06-30 07:05 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.blog.kurohicncr.top/Article/details/4967114603.shtml)
-- 2026-06-30 06:53 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.blog.kurohicncr.top/Article/details/38665306.shtml)
-- 2026-06-30 07:04 - [领克汽车官宣正式进军拉力赛](http://www.blog.kurohicncr.top/Article/details/333482376309.shtml)
-- 2026-06-30 07:00 - [2021湖南卫视跨年演唱会](https://www.share.kurohicncr.top/Article/details/022518653178.shtml)
-- 2026-06-30 06:48 - [新郎接亲玩石头剪刀布连胜十几次](http://www.share.minike.top/Article/details/33528.shtml)
-- 2026-06-30 07:02 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/822101.shtml)
-- 2026-06-30 06:58 - [宜宾地震食客避难后折返 无人逃单](http://www.share.minike.top/Article/details/7324237520.shtml)
-- 2026-06-30 06:49 - [国务院：鼓励行业龙头企业举办职校](https://www.share.kurohicncr.top/Article/details/30943.shtml)
-- 2026-06-30 06:46 - [沙丘](https://www.blog.minike.top/Article/details/28041607999.shtml)
-- 2026-06-30 07:10 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://www.blog.kurohicncr.top/Article/details/79404.shtml)
-- 2026-06-30 06:53 - [乔家的儿女](https://www.share.minike.top/Article/details/19728650213.shtml)
-- 2026-06-30 06:48 - [有哪些值得一提的生活窍门？](https://www.share.minike.top/Article/details/897521911.shtml)
+- 2026-06-30 07:04 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/0257259024.shtml)
+- 2026-06-30 07:10 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.minike.top/Article/details/213359599729.shtml)
+- 2026-06-30 06:54 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/551033072761.shtml)
+- 2026-06-30 06:49 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.minike.top/Article/details/954007614079.shtml)
+- 2026-06-30 07:06 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.share.minike.top/Article/details/7219530.shtml)
+- 2026-06-30 06:51 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.share.minike.top/Article/details/164143748.shtml)
+- 2026-06-30 06:56 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://www.share.kurohicncr.top/Article/details/013748786.shtml)
+- 2026-06-30 06:54 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/12334875139.shtml)
+- 2026-06-30 07:14 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.minike.top/Article/details/59077601.shtml)
+- 2026-06-30 07:07 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/60828.shtml)
+- 2026-06-30 06:49 - [电影《后室》讲了一个什么故事？](http://www.share.kurohicncr.top/Article/details/01093.shtml)
+- 2026-06-30 07:14 - [湖南祁东原文化馆被指贱卖](https://www.share.minike.top/Article/details/181855.shtml)
+- 2026-06-30 07:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.share.kurohicncr.top/Article/details/439486.shtml)
+- 2026-06-30 07:06 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/572735.shtml)
+- 2026-06-30 07:16 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/1273904.shtml)

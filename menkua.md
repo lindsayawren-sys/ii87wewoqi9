@@ -1,61 +1,59 @@
-# Meta最新AI模型一拖再拖，开发者耐心渐失
+# 东北华北等地有强对流 南方地区将有较强降水
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，Meta Platforms已多次推迟向开发者发布其最新人工智能（AI）模型的计划，截至周二，该公司仍未确定发布日期。 距离该公司AI负责人告诉开发者“很快”就会发布该模型已过去近两个月，此事一再延期，不禁引发外界质疑，Meta斥巨资打造自有前沿AI模型，究竟能否迅速实现商业变现。 该公司一直在开发应用程序编程接口，也就是API，这种软件工具能够让不同的程序相互
+中新网6月2日电 据中央气象台网站消息，昨日，贵州、广西、广东等地部分地区出现大到暴雨，局地大暴雨。预计未来三天，西南地区、江南、华南及华北东部、东北地区等地有较强降雨和强对流天气，关注局地强降雨可能引发的次生灾害以及对城市运行、农业生产等的不利影响，并警惕局地风雹等强对流天气的危害；关注新疆、华北南部、黄淮及华南等地高温天气对人体健康、水电资源等影响；关注台风“蔷薇”对我国东
 
 ## 正文
 
-据知情人士透露，Meta Platforms已多次推迟向开发者发布其最新人工智能（AI）模型的计划，截至周二，该公司仍未确定发布日期。
+中新网6月2日电 据中央气象台网站消息，昨日，贵州、广西、广东等地部分地区出现大到暴雨，局地大暴雨。
 
-距离该公司AI负责人告诉开发者“很快”就会发布该模型已过去近两个月，此事一再延期，不禁引发外界质疑，Meta斥巨资打造自有前沿AI模型，究竟能否迅速实现商业变现。
+预计未来三天，西南地区、江南、华南及华北东部、东北地区等地有较强降雨和强对流天气，关注局地强降雨可能引发的次生灾害以及对城市运行、农业生产等的不利影响，并警惕局地风雹等强对流天气的危害；关注新疆、华北南部、黄淮及华南等地高温天气对人体健康、水电资源等影响；关注台风“蔷薇”对我国东部海域的大风影响。
 
-该公司一直在开发应用程序编程接口，也就是API，这种软件工具能够让不同的程序相互通信。
+东北华北等地有强对流 未来三天，东北地区、华北、黄淮等地部分地区有小到中雨或雷阵雨，东北东南部部分地区有大到暴雨，局地伴有雷暴大风或冰雹等强对流天气。
 
-借助Meta的API，为电脑或手机编写的应用程序将能够基于Meta的AI技术运行。
+预计，6月2日8时至3日8时，华北北部、东北地区东部和南部、西南地区北部和东部等地的部分地区将有8级以上雷暴大风或冰雹天气，其中，辽宁西部、河北北部、北京北部等地的部分地区将有10级以上雷暴大风；华北北部、东北地区东部和南部、西南地区东部、江南中部和西部、华南北部等地的部分地区将有小时雨量大于20毫米的短时强降水天气，其中，湖南西北部、贵州东北部、广西西部、广东北部等地的部分地区小时雨量大于50毫米。
 
-Meta一位发言人周三表示，该公司正在与合作伙伴测试该API，并计划于本月发布。
+预计，强对流的主要影响时段为今天下午至夜间。
 
-该发言人说：“我们知道大家需要这款API，我们很高兴能将其交到他们手中。
+中央气象台6月2日6时继续发布强对流天气蓝色预警。
 
-” 对于保留为专有技术且不提供公开下载的所谓“闭源”AI模型，开发者获取它们的唯一途径就是通过API。
+南方地区将有较强降水 6月2日夜间至4日，南方地区将有一次较大范围降水过程，西南地区东部、江淮南部、江南及广西北部先后将出现中到大雨，局地暴雨或大暴雨，并伴有雷暴大风等强对流天气。
 
-企业通常会在发布新模型的同时或在发布后的几周内推出相应的API，以最大程度地维持其在开发者圈子中的关注度。
+“蔷薇”将向东北方向快速移动 今年第6号台风“蔷薇”(强热带风暴级)的中心今天(6月2日)早晨5点钟位于日本鹿儿岛南偏西方向约385公里的东海东部海面上，就是北纬28.4度、东经128.9度，中心附近最大风力有10级(25米/秒)，中心最低气压为985百帕，七级风圈半径为320-430公里。
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [巴西把自己踢晕了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 07:10 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 06:42 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 06:47 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tiecha.md)
-- 2026-06-30 06:52 - [蜘蛛侠:英雄归来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sannai.md)
-- 2026-06-30 07:10 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liangfan.md)
-- 2026-06-30 07:00 - [网警提醒4类“高考查分陷阱”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 07:02 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mlwhl.md)
-- 2026-06-30 06:53 - [孙兴慜发长文致歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuangqie.md)
-- 2026-06-30 06:47 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 07:01 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuanli.md)
-- 2026-06-30 06:44 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 06:54 - [科技牛市下的最大考验是什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chaiheng.md)
-- 2026-06-30 07:09 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 07:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 06:52 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aqczw.md)
+- 2026-06-30 07:04 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
+- 2026-06-30 06:54 - [电影后室值得看吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
+- 2026-06-30 07:13 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
+- 2026-06-30 06:54 - [刘宇宁东方风云榜人气](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
+- 2026-06-30 07:13 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cnuhk.md)
+- 2026-06-30 06:51 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ssmws.md)
+- 2026-06-30 07:12 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qdngw.md)
+- 2026-06-30 07:03 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzghf.md)
+- 2026-06-30 07:03 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxgxz.md)
+- 2026-06-30 07:03 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoutang.md)
+- 2026-06-30 06:54 - [医药暴涨5.91%背后](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
+- 2026-06-30 07:05 - [俄乌双方伤亡近180万人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/019518.shtml)
-- 2026-06-30 07:11 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.minike.top/Article/details/351383997234.shtml)
-- 2026-06-30 06:51 - [美加墨世界杯：亚洲足球的得意与失意](http://www.blog.minike.top/Article/details/897785.shtml)
-- 2026-06-30 07:04 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/2406998.shtml)
-- 2026-06-30 06:59 - [德约科维奇向温网对手放狠话](https://www.share.kurohicncr.top/Article/details/434045398492.shtml)
-- 2026-06-30 07:00 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.kurohicncr.top/Article/details/1834488796.shtml)
-- 2026-06-30 06:42 - [五哈和他们的朋友](https://www.share.minike.top/Article/details/16931072.shtml)
-- 2026-06-30 07:01 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/32093364.shtml)
-- 2026-06-30 06:54 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.share.kurohicncr.top/Article/details/99680793.shtml)
-- 2026-06-30 07:05 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/222435.shtml)
-- 2026-06-30 06:49 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.kurohicncr.top/Article/details/6436317.shtml)
-- 2026-06-30 07:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.kurohicncr.top/Article/details/34118920975.shtml)
-- 2026-06-30 06:51 - [王健林甩卖超80座万达广场](http://www.blog.minike.top/Article/details/9302693932.shtml)
-- 2026-06-30 06:44 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/94370541870.shtml)
-- 2026-06-30 07:08 - [一见倾心](http://www.blog.minike.top/Article/details/83911623419.shtml)
+- 2026-06-30 06:58 - [终于把好哥们处成了情侣!](http://www.blog.kurohicncr.top/Article/details/6905107724.shtml)
+- 2026-06-30 06:52 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/29483481.shtml)
+- 2026-06-30 07:12 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/00727025.shtml)
+- 2026-06-30 07:04 - [一见倾心](https://www.share.kurohicncr.top/Article/details/964452829987.shtml)
+- 2026-06-30 07:06 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/909243437.shtml)
+- 2026-06-30 07:12 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.blog.minike.top/Article/details/06850228.shtml)
+- 2026-06-30 06:51 - [鉴定师的失败救赎](https://www.blog.kurohicncr.top/Article/details/968395.shtml)
+- 2026-06-30 06:49 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/11652672.shtml)
+- 2026-06-30 06:51 - [巴拉圭先进球了](https://www.blog.kurohicncr.top/Article/details/9152602.shtml)
+- 2026-06-30 07:09 - [欧洲空调卖疯了 下一个爆款是储能吗](http://www.share.kurohicncr.top/Article/details/430769342.shtml)
+- 2026-06-30 06:48 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/3192608.shtml)
+- 2026-06-30 07:12 - [千与千寻](https://www.blog.kurohicncr.top/Article/details/035797003.shtml)
+- 2026-06-30 06:59 - [为什么香港的冲厕水是咸的？](https://www.blog.minike.top/Article/details/6031917.shtml)
+- 2026-06-30 06:48 - [日本反击率先破门](http://www.blog.kurohicncr.top/Article/details/97782596977.shtml)
+- 2026-06-30 06:52 - [TOP不是Prada全球普通人](https://www.blog.minike.top/Article/details/2126616702.shtml)

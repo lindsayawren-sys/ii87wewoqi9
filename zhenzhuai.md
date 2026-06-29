@@ -1,56 +1,48 @@
-# 美国股市：美伊冲突打压风险偏好 标普500指数涨势受阻
+# 日本政府敲定3.1万亿日元补充预算，以补贴燃油开支
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-美伊冲突令脆弱的停火协议面临更大压力，同时推动油价上涨，美国股市周三涨势暂歇。 标普500指数收跌0.7%，止步九连涨。 纳斯达克100指数下跌0.3%，软件股连续第二个交易日走低。 IG首席市场分析师Chris Beauchamp表示：“我们看到的不再是脆弱的停火，更像是一场低强度冲突。这意味着石油供应这一关键问题仍未解决”。 美国与伊朗隔夜再次发生冲突，科威特和巴林均受到波
+日本政府周三最终敲定了本财年规模达3.1万亿日元（约合194.7亿美元）的补充预算，以缓解能源成本上涨对家庭的影响，同时应对中东危机长期持续的风险。 这项额外预算将全部通过赤字融资债券来筹集资金，日本政府力求通过增加税收和非税收入来抵消赤字融资债券的发行，从而避免增加市场上的债券发行总量。 由于中东局势持续紧张，这笔额外的支出将主要用于补充应急储备金，以补贴汽油价格和水电费。责
 
 ## 正文
 
-美伊冲突令脆弱的停火协议面临更大压力，同时推动油价上涨，美国股市周三涨势暂歇。
+日本政府周三最终敲定了本财年规模达3.1万亿日元（约合194.7亿美元）的补充预算，以缓解能源成本上涨对家庭的影响，同时应对中东危机长期持续的风险。
 
-标普500指数收跌0.7%，止步九连涨。
+这项额外预算将全部通过赤字融资债券来筹集资金，日本政府力求通过增加税收和非税收入来抵消赤字融资债券的发行，从而避免增加市场上的债券发行总量。
 
-纳斯达克100指数下跌0.3%，软件股连续第二个交易日走低。
+由于中东局势持续紧张，这笔额外的支出将主要用于补充应急储备金，以补贴汽油价格和水电费。
 
-IG首席市场分析师Chris Beauchamp表示：“我们看到的不再是脆弱的停火，更像是一场低强度冲突。
-
-这意味着石油供应这一关键问题仍未解决”。
-
-美国与伊朗隔夜再次发生冲突，科威特和巴林均受到波及。
-
-本周以来，美伊紧张局势持续升级，而以色列在黎巴嫩的军事行动又令局势进一步复杂化。
-
-除中东局势外，投资者也在关注经济数据。
+责任编辑：于健 SF069
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kejie.md)
-- 2026-06-30 07:07 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/langwo.md)
-- 2026-06-30 06:48 - [内马尔替补](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/chuanzhang.md)
-- 2026-06-30 06:57 - [内马尔中场休息积极鼓励队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uscao.md)
-- 2026-06-30 06:44 - [德巴荷登场 点球会成淘汰赛常态吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hswte.md)
-- 2026-06-30 07:03 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxmum.md)
-- 2026-06-30 06:42 - [酒店推行“24小时退房”引热议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
-- 2026-06-30 06:44 - [手底下人带不动怎么办？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 06:51 - [月亮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mingkuang.md)
-- 2026-06-30 07:08 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/citing.md)
+- 2026-06-30 07:00 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 07:02 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/helbe.md)
+- 2026-06-30 07:15 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cfaqa.md)
+- 2026-06-30 06:54 - [曝詹姆斯即将与勇士会面](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touting.md)
+- 2026-06-30 06:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 06:54 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/chongchen.md)
+- 2026-06-30 07:12 - [扫黑风暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 07:08 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naizhou.md)
+- 2026-06-30 07:13 - [辛纳vs凯茨玛诺维奇](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/knqmr.md)
+- 2026-06-30 07:01 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yinyue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/068035539926.shtml)
-- 2026-06-30 06:52 - [恋与深空制作组回应近期争议](http://www.share.minike.top/Article/details/73427775.shtml)
-- 2026-06-30 06:44 - [范志毅看好日本队淘汰巴西](http://www.share.kurohicncr.top/Article/details/998799663591.shtml)
-- 2026-06-30 07:04 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/362156764.shtml)
-- 2026-06-30 07:04 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/01494691453.shtml)
-- 2026-06-30 06:54 - [湖南祁东原文化馆被指贱卖](http://www.share.kurohicncr.top/Article/details/992308278654.shtml)
-- 2026-06-30 07:09 - [【大鸣王潮1566】真拿你没办法](https://www.blog.minike.top/Article/details/046830.shtml)
-- 2026-06-30 07:11 - [卡塞米罗头球破门](https://www.blog.minike.top/Article/details/18827.shtml)
-- 2026-06-30 07:05 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://www.blog.kurohicncr.top/Article/details/9280832802.shtml)
-- 2026-06-30 07:10 - [急先锋](https://www.blog.minike.top/Article/details/92237.shtml)
-- 2026-06-30 06:56 - [张月感谢了每一公的队友](https://www.blog.kurohicncr.top/Article/details/098734.shtml)
-- 2026-06-30 06:42 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/50943477.shtml)
-- 2026-06-30 06:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/892058.shtml)
-- 2026-06-30 06:59 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.share.minike.top/Article/details/15825161.shtml)
-- 2026-06-30 07:00 - [请回答王牌2019](http://www.blog.kurohicncr.top/Article/details/989951716.shtml)
+- 2026-06-30 06:54 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.minike.top/Article/details/16252321.shtml)
+- 2026-06-30 07:13 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/112512.shtml)
+- 2026-06-30 07:07 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/523687618.shtml)
+- 2026-06-30 06:51 - [张碧晨一开口梦回逐玉](http://www.share.minike.top/Article/details/11835838496.shtml)
+- 2026-06-30 06:58 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/300194.shtml)
+- 2026-06-30 07:10 - [第一炉香](https://www.blog.kurohicncr.top/Article/details/53837518.shtml)
+- 2026-06-30 06:48 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.kurohicncr.top/Article/details/22321633.shtml)
+- 2026-06-30 06:59 - [小娘惹](http://www.blog.kurohicncr.top/Article/details/299549.shtml)
+- 2026-06-30 07:14 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/5878973.shtml)
+- 2026-06-30 07:17 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://www.share.minike.top/Article/details/412780097.shtml)
+- 2026-06-30 07:14 - [千香](https://www.share.kurohicncr.top/Article/details/40511473292.shtml)
+- 2026-06-30 07:07 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.minike.top/Article/details/83977187.shtml)
+- 2026-06-30 07:13 - [浪姐成团夜爆笑吐槽](https://www.share.minike.top/Article/details/185539.shtml)
+- 2026-06-30 07:09 - [主人解开狗绳 2只狗将路人撕咬致死](https://www.blog.kurohicncr.top/Article/details/30408.shtml)
+- 2026-06-30 07:08 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/32604508504.shtml)

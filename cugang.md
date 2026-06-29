@@ -1,59 +1,61 @@
-# 公安部公布4起污染环境犯罪典型案例
+# 交银国际：石药集团维持中性评级 目标价下调至8.05港元
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据公安部微信公众号消息，近年来，全国公安机关牢固树立和践行绿水青山就是金山银山理念，以加快建立公安机关牵头、相关部门联动的生态警务机制为牵引，依法严厉打击各类污染环境犯罪，切实维护生态环境安全和人民群众合法权益。在世界环境日到来之际，公安部公布4起污染环境犯罪典型案例。1.浙江省绍兴市公安机关侦破单某某等人制售作弊芯片干扰汽车尾气检测案 2024年11月，浙江
+交银国际发布研报称，石药集团（01093）下调2026年、上调2027-28年财务预测，主要反映对授权费收入确认节奏、原料药收入更审慎的预测。下调目标价至8.05港元，当前估值合理（23倍2026年市盈率），维持中性评级。 交银国际主要观点如下： 1Q26剔除授权费后的主业收入增长0.4% 有复苏态势但略低于该行此前的预期，主因原料药业务在价格波动中承压。基于差异化平台的研发项
 
 ## 正文
 
-中新网6月3日电 据公安部微信公众号消息，近年来，全国公安机关牢固树立和践行绿水青山就是金山银山理念，以加快建立公安机关牵头、相关部门联动的生态警务机制为牵引，依法严厉打击各类污染环境犯罪，切实维护生态环境安全和人民群众合法权益。
+交银国际发布研报称，石药集团（01093）下调2026年、上调2027-28年财务预测，主要反映对授权费收入确认节奏、原料药收入更审慎的预测。
 
-在世界环境日到来之际，公安部公布4起污染环境犯罪典型案例。
+下调目标价至8.05港元，当前估值合理（23倍2026年市盈率），维持中性评级。
 
-1.浙江省绍兴市公安机关侦破单某某等人制售作弊芯片干扰汽车尾气检测案 2024年11月，浙江省绍兴市公安机关侦破一起制售作弊芯片干扰汽车尾气检测污染环境案，抓获犯罪嫌疑人27名，打掉犯罪团伙3个。
+交银国际主要观点如下： 1Q26剔除授权费后的主业收入增长0.4% 有复苏态势但略低于该行此前的预期，主因原料药业务在价格波动中承压。
 
-经查，犯罪嫌疑人单某某等人非法研发、生产具有干扰机动车排放检测数据功能的电源芯片，并销往全国多地机动车检测机构。
+基于差异化平台的研发项目持续高效推进，下半年临床数据读出、BD里程碑付款、IND等积极实践。
 
-该芯片通过篡改系统数据等，使不合格车辆通过年检，导致大量尾气超标车辆违法上路行驶，严重扰乱机动车排放检验市场秩序，对区域空气质量改善形成直接威胁。
+但考虑到主业业绩复苏尚有不确定性，且当前估值合理，该行暂维持中性评级。
 
-该案中，犯罪嫌疑人通过技术手段掩盖车辆真实排放水平，致使车辆排放的氮氧化物、颗粒物等污染物直接加剧区域雾霾、臭氧等复合型污染。
+1Q26成药销售业绩复苏，原料药持续承压 1Q26成药业务销售（剔除授权费收入后）同比增长6.2%，略好于该行此前的预期，分疾病领域看：1）CNS、心血管分别录得22%/31%的高增长，主要得益于恩必普院外自费销售增长，以及明复乐在心梗、脑梗等领域的持续推广；2）肿瘤线恢复正增长（+2%）。
 
-案发后，公安机关依托警务协作机制，联合生态环境、市场监管等部门开展跨区域溯源追查，快速锁定芯片生产窝点、销售网络及使用机构，斩断犯罪链条。
+受产品价格波动的影响，VC和抗生素原料药收入分别下降19%/35%，功能食品销售稳定，收入+0.5%；原料药出口供销两旺，地缘不确定性影响原料价格上涨，后续收入趋势有望企稳。
 
-同时，公安机关认真总结经验，开发了相关犯罪预警模型，实现对不法行为的动态感知与精准预警，努力将犯罪遏制在萌芽阶段。
+随着研发管线逐步进入商业化收获期，2026年有望上市至少10款新产品，叠加集采影响缓和、核心大单品持续放量，管理层维持全年业绩恢复正增长的指引。
 
 ## 相关推荐
 
-- 2026-06-30 07:12 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sdlua.md)
-- 2026-06-30 06:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mzsdr.md)
-- 2026-06-30 06:47 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cppnl.md)
-- 2026-06-30 07:09 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njvvh.md)
-- 2026-06-30 07:11 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ejiga.md)
-- 2026-06-30 07:04 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fiasy.md)
-- 2026-06-30 07:01 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gtxhh.md)
-- 2026-06-30 07:04 - [普京间接喊话特朗普有何考量](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ckpph.md)
-- 2026-06-30 06:44 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdkrh.md)
-- 2026-06-30 06:55 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hzryh.md)
-- 2026-06-30 06:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tengtiao.md)
-- 2026-06-30 06:49 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fengding.md)
-- 2026-06-30 07:06 - [世界杯“美洲德比”7月1日开打](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 06:58 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gzbhi.md)
+- 2026-06-30 07:16 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jloke.md)
+- 2026-06-30 07:02 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtqal.md)
+- 2026-06-30 07:14 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuanzuan.md)
+- 2026-06-30 06:53 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 06:56 - [王灿兮被烫伤两年后维权成功](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanlia.md)
+- 2026-06-30 06:51 - [袁咏仪张智霖儿子寸头近照](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaopu.md)
+- 2026-06-30 06:59 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gerwk.md)
+- 2026-06-30 06:53 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pwlin.md)
+- 2026-06-30 07:04 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 07:14 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/movqx.md)
+- 2026-06-30 06:52 - [我们的少年时代2](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhengru.md)
+- 2026-06-30 07:10 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvdos.md)
+- 2026-06-30 07:04 - [日本世界杯淘汰赛历史0胜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iuezt.md)
+- 2026-06-30 06:53 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiehong.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [张帅晋级温网次轮](https://www.share.minike.top/Article/details/94969610.shtml)
-- 2026-06-30 06:53 - [老外对中国cosplay竟这样评价…](https://www.blog.minike.top/Article/details/74059706766.shtml)
-- 2026-06-30 07:07 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/240321081357.shtml)
-- 2026-06-30 07:09 - [欧盟分楼层开空调惹争议](http://www.share.kurohicncr.top/Article/details/755826582742.shtml)
-- 2026-06-30 07:02 - [12人以护剧为名敲诈剧组艺人被抓](http://www.share.kurohicncr.top/Article/details/6167534.shtml)
-- 2026-06-30 06:52 - [姜妍走过来这段刘梅下班了](https://www.blog.kurohicncr.top/Article/details/4989364.shtml)
-- 2026-06-30 07:05 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](http://www.share.minike.top/Article/details/675390844.shtml)
-- 2026-06-30 06:48 - [斗破苍穹](https://www.blog.kurohicncr.top/Article/details/2522611.shtml)
-- 2026-06-30 06:50 - [道友？你来真的啊？【凡人官方二创大会】](http://www.share.kurohicncr.top/Article/details/41260878165.shtml)
-- 2026-06-30 06:55 - [当我知道豆包有后台审核人员](https://www.blog.kurohicncr.top/Article/details/42265.shtml)
-- 2026-06-30 06:54 - [女心理师](https://www.blog.minike.top/Article/details/808999113.shtml)
-- 2026-06-30 06:42 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.share.kurohicncr.top/Article/details/62215813366.shtml)
-- 2026-06-30 06:48 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/59036885528.shtml)
-- 2026-06-30 06:43 - [电影后室值得看吗](https://www.share.minike.top/Article/details/93132243.shtml)
-- 2026-06-30 07:03 - [董卿母亲癌症去世](http://www.share.minike.top/Article/details/498379144297.shtml)
+- 2026-06-30 07:00 - [世界杯：德国vs巴拉圭](http://www.share.minike.top/Article/details/3647016.shtml)
+- 2026-06-30 07:09 - [怕iPhone涨价的用户已紧急换新](https://www.blog.kurohicncr.top/Article/details/773111600693.shtml)
+- 2026-06-30 06:54 - [本科毕业生为何涌入专科学校](https://www.blog.minike.top/Article/details/6416179478.shtml)
+- 2026-06-30 07:01 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/418185779.shtml)
+- 2026-06-30 07:01 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.blog.kurohicncr.top/Article/details/646868961.shtml)
+- 2026-06-30 07:10 - [日本淘汰](http://www.blog.kurohicncr.top/Article/details/401096683.shtml)
+- 2026-06-30 07:03 - [索马里女大使：想和中国一起搞事业](http://www.share.kurohicncr.top/Article/details/856793060324.shtml)
+- 2026-06-30 07:15 - [阿娇瘦了10斤](http://www.blog.minike.top/Article/details/067191744.shtml)
+- 2026-06-30 06:57 - [张碧晨一开口梦回逐玉](http://www.blog.minike.top/Article/details/902424.shtml)
+- 2026-06-30 07:01 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.kurohicncr.top/Article/details/9591444289.shtml)
+- 2026-06-30 07:15 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/37857279186.shtml)
+- 2026-06-30 06:48 - [田中碧失误](https://www.blog.kurohicncr.top/Article/details/05622002.shtml)
+- 2026-06-30 06:58 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/519306379.shtml)
+- 2026-06-30 07:06 - [女子常喝饮料提神 满口长“可乐牙”](https://www.blog.kurohicncr.top/Article/details/732577900.shtml)
+- 2026-06-30 06:52 - [蔚来车主罚站](https://www.share.minike.top/Article/details/8317998736.shtml)

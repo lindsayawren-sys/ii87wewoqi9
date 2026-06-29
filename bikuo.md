@@ -1,59 +1,61 @@
-# 福山承认错判中国，但她的帖文更有意义
+# 踏空科技行情？看别人赚钱比自己亏钱还难受？孔蓉：投资不是比谁赚得快而是谁活得久
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-曾在近40年前预言“历史已终结”、认为西方的政治制度将引领世界的美国政治学者福山，近日在接受德国《法兰克福汇报》采访时承认，他当年的预言是错误的，他低估了崛起中的中国。 然而，福山在访谈中似乎还想给自己找补，并且仍在给中国打上错误的政治标签。为什么这些西方学者即便发现自己错估了中国，在认错时仍然扭扭捏捏呢？耿直哥认为，一位荷兰独立媒体人最近发表的一篇文章给出了一些线索。 这位荷
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，围绕全球科技股的分化格局以及下半年投资主线展开深度解析。视频直播>> 面对投资者普遍存在的“踏空焦虑”——看着别人赚钱比自己亏钱还难受，总怕错过这波就没有机会了，孔蓉给出了具体的投资心态建议。 她指出，在全球产业持续演进的大方向
 
 ## 正文
 
-曾在近40年前预言“历史已终结”、认为西方的政治制度将引领世界的美国政治学者福山，近日在接受德国《法兰克福汇报》采访时承认，他当年的预言是错误的，他低估了崛起中的中国。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-然而，福山在访谈中似乎还想给自己找补，并且仍在给中国打上错误的政治标签。
+6月2日，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，围绕全球科技股的分化格局以及下半年投资主线展开深度解析。
 
-为什么这些西方学者即便发现自己错估了中国，在认错时仍然扭扭捏捏呢？
+视频直播>> 面对投资者普遍存在的“踏空焦虑”——看着别人赚钱比自己亏钱还难受，总怕错过这波就没有机会了，孔蓉给出了具体的投资心态建议。
 
-耿直哥认为，一位荷兰独立媒体人最近发表的一篇文章给出了一些线索。
+她指出，在全球产业持续演进的大方向下，投资者首先需要调整好心态。
 
-这位荷兰媒体人名叫曼雅·科特斯(Manya Koetse)。
+即便看到他人短期内获得较高浮盈，也要清醒认识到：这些浮盈最终能否转化为实际收益，取决于每个人的风险控制能力。
 
-公开资料显示，她对中国社会——尤其是中国的网络空间充满兴趣。
+“在这个时间点，我特别想提及的是，风险和风控的能力，才是最终能赚钱的核心。
 
-她还曾在2013年创办了一个网络博客，专门向海外网民介绍中国的微博等社交媒体上的热门话题。
+”孔蓉在直播中强调，“比得不是谁赚得快，而是谁活得比较久。
 
-这番履历也令她对中国的了解比近些年被中国一系列耀眼的科技成果和现代化大城市吸引的国外网民更为丰富和立体。
+” 针对具体的持仓与择时思维，孔蓉重申了对全球科技板块的长期看好，认为当前正处于“一轮史诗级的黄金机会”。
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fpwlu.md)
-- 2026-06-30 07:11 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
-- 2026-06-30 06:47 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hbdsj.md)
-- 2026-06-30 07:01 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 07:06 - [85花告别古偶](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
-- 2026-06-30 06:51 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wumang.md)
-- 2026-06-30 06:50 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kloae.md)
-- 2026-06-30 06:51 - [如何评价杨紫白玉兰获奖](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
-- 2026-06-30 06:52 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/handiao.md)
-- 2026-06-30 06:57 - [索马里女大使：想和中国一起搞事业](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jingzhuang.md)
-- 2026-06-30 06:47 - [斗破苍穹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cvfeg.md)
-- 2026-06-30 07:06 - [人可以极简主义到什么程度？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/degun.md)
-- 2026-06-30 06:46 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 06:58 - [爱很美味](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lbahb.md)
+- 2026-06-30 07:10 - [主人解开狗绳 2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 07:01 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
+- 2026-06-30 06:56 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oubdp.md)
+- 2026-06-30 06:49 - [致敬！中国首批缉毒警已全体退休](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaomo.md)
+- 2026-06-30 06:53 - [青春环游记第三季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bcodq.md)
+- 2026-06-30 06:59 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/egpxz.md)
+- 2026-06-30 06:49 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/tuzha.md)
+- 2026-06-30 06:48 - [世界杯连开三场决战](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 06:49 - [当我知道豆包有后台审核人员](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sengniao.md)
+- 2026-06-30 06:51 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzpwf.md)
+- 2026-06-30 07:11 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaolin.md)
+- 2026-06-30 07:05 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/icyek.md)
+- 2026-06-30 07:17 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 07:02 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/naosuan.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:09 - [千万不要随便扣肚脐](https://www.share.kurohicncr.top/Article/details/40553.shtml)
-- 2026-06-30 06:57 - [“手机痴呆症”盯上中青年](http://www.blog.minike.top/Article/details/4316154040.shtml)
-- 2026-06-30 06:43 - [我觉得你是在无中生友](http://www.share.kurohicncr.top/Article/details/359025984.shtml)
-- 2026-06-30 07:09 - [女儿从清华毕业 爸爸晒出17年对比照](http://www.blog.kurohicncr.top/Article/details/66842467.shtml)
-- 2026-06-30 07:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](http://www.blog.kurohicncr.top/Article/details/5007249711.shtml)
-- 2026-06-30 06:46 - [永辉超市回应两个包子卖104元](https://www.blog.minike.top/Article/details/0057394.shtml)
-- 2026-06-30 06:57 - [法媒点赞中国小区楼顶“人工降雨”](http://www.share.kurohicncr.top/Article/details/3659958.shtml)
-- 2026-06-30 06:45 - [有人见过武则天的画像吗，非常好奇？](https://www.blog.kurohicncr.top/Article/details/85830.shtml)
-- 2026-06-30 06:54 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/78298174744.shtml)
-- 2026-06-30 06:55 - [赵今麦因“瘦而不柴”的体态出圈](http://www.share.kurohicncr.top/Article/details/406522.shtml)
-- 2026-06-30 06:51 - [81岁老人被男子买光菜回家车祸去世](http://www.blog.kurohicncr.top/Article/details/6697015.shtml)
-- 2026-06-30 06:44 - [花少8要去世界杯举办国](https://www.share.kurohicncr.top/Article/details/655198759071.shtml)
-- 2026-06-30 06:54 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.share.minike.top/Article/details/6726669255.shtml)
-- 2026-06-30 07:06 - [女子健身不当 居然“脑子漏水”了](http://www.blog.minike.top/Article/details/76514770.shtml)
-- 2026-06-30 07:05 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/14221821.shtml)
+- 2026-06-30 07:09 - [把毒品藏在哪里，60秒内不会被发现？](http://www.share.minike.top/Article/details/6431616.shtml)
+- 2026-06-30 07:00 - [孙兴慜道歉](http://www.blog.kurohicncr.top/Article/details/1875493.shtml)
+- 2026-06-30 07:05 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/77433.shtml)
+- 2026-06-30 07:00 - [卢卡申科发布解放军仪仗队视频](https://www.share.kurohicncr.top/Article/details/4371598360.shtml)
+- 2026-06-30 07:12 - [蜘蛛侠:平行宇宙](https://www.share.kurohicncr.top/Article/details/63919.shtml)
+- 2026-06-30 06:48 - [沙丘](https://www.blog.kurohicncr.top/Article/details/1725753170.shtml)
+- 2026-06-30 06:57 - [人类...完蛋了...](https://www.share.minike.top/Article/details/201655885.shtml)
+- 2026-06-30 06:52 - [男子非洲务工死亡20多天遗体仍在海外](https://www.blog.kurohicncr.top/Article/details/62493678.shtml)
+- 2026-06-30 07:08 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/10835404.shtml)
+- 2026-06-30 06:59 - [张碧晨一开口梦回逐玉](https://www.share.minike.top/Article/details/81192.shtml)
+- 2026-06-30 07:08 - [手底下人带不动怎么办？](https://www.blog.kurohicncr.top/Article/details/9405505602.shtml)
+- 2026-06-30 07:12 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/01672919.shtml)
+- 2026-06-30 06:52 - [杨紫被质疑未使用原名](https://www.blog.kurohicncr.top/Article/details/465998223399.shtml)
+- 2026-06-30 06:52 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.share.minike.top/Article/details/7691334742.shtml)
+- 2026-06-30 07:03 - [王菲谢霆锋十指紧扣好甜](http://www.share.kurohicncr.top/Article/details/221100176.shtml)

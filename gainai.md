@@ -1,57 +1,57 @@
-# 观点汇总|国投证券林荣雄：当前只是高位分歧，“抱团”远未到“疯狂”，AI投资下半场“守大光买光圈”
+# Identiv推出ID-Pixels 3.0，为实体供应链带来可扩展的无电池智能
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-AI还能涨多久？站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？面对高波动与强分歧，投资者应如何锚定主线？6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 AI科技走到哪一步了？国投证券林荣雄：当前只是高位分歧，紧盯这三条验证线索 林荣雄表示，6月进入全球科技催化密集期。海外方面，英伟达GTC 台北（6月1-5日）与Computex
+Identiv， Inc．今日宣布推出ID-Pixels 3.0，这是一款基于Wiliot第三代集成电路构建的下一代蓝牙低功耗嵌体与标签产品系列。该产品使企业能够持续感知、追踪并理解复杂供应链中商品的状态。 ID-Pixels 3.0建立在Identiv与Wiliot自2022年以来的合作基础之上。双方此前已密切合作制造和供应Wiliot的IoT Pixels产品，而ID-Pi
 
 ## 正文
 
-AI还能涨多久？
+Identiv， Inc．今日宣布推出ID-Pixels 3.0，这是一款基于Wiliot第三代集成电路构建的下一代蓝牙低功耗嵌体与标签产品系列。
 
-站在6月的关键窗口，市场将延续高位震荡，还是迎来风格切换？
+该产品使企业能够持续感知、追踪并理解复杂供应链中商品的状态。
 
-面对高波动与强分歧，投资者应如何锚定主线？
+ID-Pixels 3.0建立在Identiv与Wiliot自2022年以来的合作基础之上。
 
-6月3日，新浪证券对话国投证券策略研究首席分析师林荣雄，为投资者前瞻解读>>视频直播 AI科技走到哪一步了？
+双方此前已密切合作制造和供应Wiliot的IoT Pixels产品，而ID-Pixels 3.0是该合作的最新成果，为市场带来了更强的性能、可扩展性和感知能力。
 
-国投证券林荣雄：当前只是高位分歧，紧盯这三条验证线索 林荣雄表示，6月进入全球科技催化密集期。
+这款自粘式标签尺寸约为33毫米×60毫米，能够从环境中的蓝牙及UHF信号中采集能量，完全无需电池驱动，同时支持在数百万件商品上进行规模化部署。
 
-海外方面，英伟达GTC 台北（6月1-5日）与Computex 2026（6月2-5日）形成“AI硬件超级周”，重点围绕GPU、ASIC、AI服务器、液冷、CPO、HBM、边缘AI和机器人展开；微软大会重点观察Copilot、Azure AI及代码模型更新；苹果WWDC（6月8-12日）则是端侧AI和Apple Intelligence能否补课的关键验证窗口；英伟达年度股东大会（6月24日）与美光财报（6月24日）分别对应AI工厂路线图与HBM/存储涨价验证。
+每个标签均编码有唯一的数字身份标识，可采集位置、温度、湿度及光照等关键数据点，为货物的状态和流动提供持续可见性。
 
-国内方面，华为HDC 2026（6月12-14日）、智源大会（6月12-13日）、中国智算产业生态年会（6月30日），共同对应“国产云+国产模型+国产智算基础设施”的连续催化链条。
+随着企业迈向更透明、自动化的供应链，从实物资产中捕获持续、真实世界数据的能力已变得至关重要。
 
-二级市场层面，5月科技风格显著占优，科创50单月涨幅接近21%，创业板指涨约9.3%，而上证50、沪深300均小幅下跌，说明风险偏好已明显向科技倾斜。
+ID-Pixels 3.0正是通过将产品转变为互联的智能资产来满足这一需求，释放所需的实时数据，以支持物理AI应用并推动更快、更明智的供应链决策。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [苗族银饰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songwan.md)
-- 2026-06-30 06:45 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
-- 2026-06-30 06:49 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zangpin.md)
-- 2026-06-30 07:08 - [世界杯连开三场决战](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nihuo.md)
-- 2026-06-30 07:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
-- 2026-06-30 06:51 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 06:43 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pzqhr.md)
-- 2026-06-30 06:45 - [这一刀 会很帅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiezi.md)
-- 2026-06-30 07:09 - [蔚来车主罚站](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gglto.md)
-- 2026-06-30 06:53 - [恐怖世界 第三集 埃温霍姆村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
-- 2026-06-30 06:45 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qipen.md)
+- 2026-06-30 07:01 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gimww.md)
+- 2026-06-30 06:50 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xuanlun.md)
+- 2026-06-30 07:04 - [请回答王牌2019](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 07:07 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mzsdr.md)
+- 2026-06-30 07:02 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sgwek.md)
+- 2026-06-30 07:05 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ukpxk.md)
+- 2026-06-30 07:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suaho.md)
+- 2026-06-30 07:00 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/orcsz.md)
+- 2026-06-30 06:50 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shamai.md)
+- 2026-06-30 07:04 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sangang.md)
+- 2026-06-30 07:08 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/szhjo.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:50 - [日本拟明年正式启动海底稀土开发计划](http://www.blog.minike.top/Article/details/705615.shtml)
-- 2026-06-30 06:48 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/89791288954.shtml)
-- 2026-06-30 06:49 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://www.share.kurohicncr.top/Article/details/611060367.shtml)
-- 2026-06-30 06:53 - [勇敢的心第二部](http://www.share.minike.top/Article/details/643658085454.shtml)
-- 2026-06-30 07:00 - [【硬核拆解】汽车人到底离我们有多远？](http://www.blog.kurohicncr.top/Article/details/2058002.shtml)
-- 2026-06-30 06:55 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/562256.shtml)
-- 2026-06-30 06:45 - [中国网友锐评韩国队外网爆火](http://www.share.kurohicncr.top/Article/details/0462965525.shtml)
-- 2026-06-30 07:06 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://www.share.kurohicncr.top/Article/details/72277652221.shtml)
-- 2026-06-30 07:04 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/7718556.shtml)
-- 2026-06-30 06:46 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://www.share.minike.top/Article/details/35344.shtml)
-- 2026-06-30 07:04 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.kurohicncr.top/Article/details/207739.shtml)
-- 2026-06-30 07:05 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/401220.shtml)
-- 2026-06-30 06:48 - [扫黑风暴](https://www.share.minike.top/Article/details/078353115713.shtml)
-- 2026-06-30 06:48 - [周冬雨多次说演不了话剧文城](http://www.share.minike.top/Article/details/0933420933.shtml)
-- 2026-06-30 06:59 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.minike.top/Article/details/332336675674.shtml)
+- 2026-06-30 06:53 - [时光音乐会](http://www.share.kurohicncr.top/Article/details/07096167.shtml)
+- 2026-06-30 06:57 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/36557.shtml)
+- 2026-06-30 06:50 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/06713022289.shtml)
+- 2026-06-30 07:08 - [新郎接亲玩石头剪刀布连胜十几次](http://www.blog.kurohicncr.top/Article/details/84987.shtml)
+- 2026-06-30 06:55 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/399413022905.shtml)
+- 2026-06-30 06:49 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/490489453538.shtml)
+- 2026-06-30 07:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://www.share.kurohicncr.top/Article/details/113199550.shtml)
+- 2026-06-30 07:07 - [宜宾地震造成15人受轻伤](https://www.blog.minike.top/Article/details/010999.shtml)
+- 2026-06-30 06:49 - [小娘惹](http://www.blog.minike.top/Article/details/96398.shtml)
+- 2026-06-30 06:59 - [董卿父亲发文悼念亡妻](https://www.share.kurohicncr.top/Article/details/1394752146.shtml)
+- 2026-06-30 07:02 - [高考结束，该不该外出打工体验？](http://www.blog.kurohicncr.top/Article/details/069789.shtml)
+- 2026-06-30 07:14 - [有哪些被认为是现代才有的东西其实古代就有了？](https://www.share.kurohicncr.top/Article/details/80878805801.shtml)
+- 2026-06-30 07:09 - [普京间接喊话特朗普有何考量](http://www.share.minike.top/Article/details/72982291300.shtml)
+- 2026-06-30 07:11 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/9608280.shtml)
+- 2026-06-30 06:48 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.minike.top/Article/details/13827.shtml)

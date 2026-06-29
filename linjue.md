@@ -1,57 +1,56 @@
-# “两新”政策持续发力 设备更新助力各产业升级
+# IBM承诺投入超100亿美元，打造全球首台大规模容错量子计算机
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-今年以来，随着“两新”政策向纵深推进，大规模设备更新力度持续加大，为产业升级和民生改善提供了有力支撑。 正值“三夏”抢收关键期，在安徽，一批更新上岗的烘干设备正助力夏粮归仓。 这两天，在安徽马鞍山和县，趁着天气转晴，当地正抢抓窗口期收割小麦。受前期阴雨影响，今年不少刚收上来的小麦含水率超过30%，储存难度加大。 安徽省马鞍山市和县龙门水稻家庭农场负责人 李有忠：烘干机从原来的4
+IBM日前宣布，计划在未来五年内向量子计算领域投入超过100亿美元。这笔投资将涵盖研发、资本支出、规模化制造、生态合作及并购交易，以加速IBM的量子计算路线图。IBM明确的目标是：在2029年交付全球首台大规模容错量子计算机——IBM Quantum Starling。 IBM董事长兼首席执行官Arvind Krishna表示：“量子时代并非未来，而是已经到来。全球各地的客户、
 
 ## 正文
 
-今年以来，随着“两新”政策向纵深推进，大规模设备更新力度持续加大，为产业升级和民生改善提供了有力支撑。
+IBM日前宣布，计划在未来五年内向量子计算领域投入超过100亿美元。
 
-正值“三夏”抢收关键期，在安徽，一批更新上岗的烘干设备正助力夏粮归仓。
+这笔投资将涵盖研发、资本支出、规模化制造、生态合作及并购交易，以加速IBM的量子计算路线图。
 
-这两天，在安徽马鞍山和县，趁着天气转晴，当地正抢抓窗口期收割小麦。
+IBM明确的目标是：在2029年交付全球首台大规模容错量子计算机——IBM Quantum Starling。
 
-受前期阴雨影响，今年不少刚收上来的小麦含水率超过30%，储存难度加大。
+IBM董事长兼首席执行官Arvind Krishna表示：“量子时代并非未来，而是已经到来。
 
-安徽省马鞍山市和县龙门水稻家庭农场负责人 李有忠：烘干机从原来的4台增加到10台，烘干能力可以达到300吨。
+全球各地的客户、合作伙伴与用户正借助IBM量子计算机，完成数年前无法实现的工作。
 
-2025年，国家将粮食干燥机(烘干机)、植保无人机等6个种类的农机新纳入补贴范围。
+这笔投资将支撑我们推出下一代量子硬件、软件与制造能力。
 
-和县功桥镇一家农业企业拿到30万元政策补贴，将6台老旧烘干机换成了大功率智能烘干设备。
+” 该投资基于IBM在量子计算领域已有的深厚基础：目前IBM已在全球部署了超过90套量子计算系统，数量超过其他行业参与者的总和；其量子软件Qiskit已被近70%的量子开发者使用；由超过340家机构组成的IBM量子网络成员正在实际业务中探索量子计算的应用。
 
-安徽省马鞍山市和县晨鑫农业发展有限公司总经理 张开：这次设备更新后，烘干效率较过去提升了66%，不仅解决了阴雨天粮食烘干的燃眉之急，还大幅缩短了生产周期，可以说，政策资金真正投向了我们最急需、最关键的环节。
+根据路线图，将于2029年问世的Starling将能够执行比现有系统多2万倍的运算，为后续的IBM Quantum Blue Jay奠定基础，后者计划在2000个量子比特上运行十亿次量子运算。
 
 ## 相关推荐
 
-- 2026-06-30 07:02 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haogua.md)
-- 2026-06-30 07:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
-- 2026-06-30 06:50 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 06:45 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taaze.md)
-- 2026-06-30 07:03 - [日本反击率先破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jueyao.md)
-- 2026-06-30 06:59 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/piaozong.md)
-- 2026-06-30 07:02 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
-- 2026-06-30 06:43 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 06:59 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxvto.md)
-- 2026-06-30 06:44 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:51 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 06:50 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nkbzg.md)
+- 2026-06-30 07:05 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpdrm.md)
+- 2026-06-30 07:17 - [道友？你来真的啊？【凡人官方二创大会】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/loudeng.md)
+- 2026-06-30 06:50 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mtcrv.md)
+- 2026-06-30 07:13 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zande.md)
+- 2026-06-30 06:57 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gddqq.md)
+- 2026-06-30 07:10 - [詹姆斯下赛季去哪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qsdsw.md)
+- 2026-06-30 06:48 - [数据前瞻巴西VS日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kesfh.md)
+- 2026-06-30 07:12 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lupang.md)
+- 2026-06-30 07:17 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pevhq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [小娘惹](https://www.share.kurohicncr.top/Article/details/96553425.shtml)
-- 2026-06-30 06:50 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/189487208207.shtml)
-- 2026-06-30 06:42 - [第一炉香](http://www.share.minike.top/Article/details/441554076553.shtml)
-- 2026-06-30 06:58 - [世界杯](http://www.blog.kurohicncr.top/Article/details/43456729231.shtml)
-- 2026-06-30 06:55 - [官方：建立健全学龄人口预测预警机制](https://www.blog.kurohicncr.top/Article/details/113379.shtml)
-- 2026-06-30 07:09 - [周冬雨多次说演不了话剧文城](https://www.share.minike.top/Article/details/8410815.shtml)
-- 2026-06-30 06:59 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/0661358.shtml)
-- 2026-06-30 06:47 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/42876224.shtml)
-- 2026-06-30 06:44 - [又一家县级医院关停门诊输液大厅](http://www.share.minike.top/Article/details/80876.shtml)
-- 2026-06-30 07:09 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/207935.shtml)
-- 2026-06-30 06:54 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/9967688.shtml)
-- 2026-06-30 06:55 - [女子称留了30年长发被剪索赔2.5万](https://www.share.minike.top/Article/details/2971911443.shtml)
-- 2026-06-30 07:11 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.share.kurohicncr.top/Article/details/699229.shtml)
-- 2026-06-30 06:52 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/67254.shtml)
-- 2026-06-30 07:07 - [人类...完蛋了...](http://www.share.kurohicncr.top/Article/details/070902.shtml)
+- 2026-06-30 07:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.blog.kurohicncr.top/Article/details/99078164.shtml)
+- 2026-06-30 06:48 - [蔚来回应高压水枪洗车掉漆](http://www.share.kurohicncr.top/Article/details/965347595.shtml)
+- 2026-06-30 07:03 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](http://www.blog.kurohicncr.top/Article/details/9890137707.shtml)
+- 2026-06-30 06:50 - [田中碧失误](http://www.share.kurohicncr.top/Article/details/7828729.shtml)
+- 2026-06-30 06:56 - [檀健次王楚然吻戏看热了](https://www.blog.kurohicncr.top/Article/details/10671432.shtml)
+- 2026-06-30 06:58 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/044654.shtml)
+- 2026-06-30 06:52 - [急先锋](https://www.share.kurohicncr.top/Article/details/76546818.shtml)
+- 2026-06-30 07:07 - [扬名立万](http://www.blog.kurohicncr.top/Article/details/51958624505.shtml)
+- 2026-06-30 06:55 - [免费试吃发差评被店家挂店门避雷](https://www.share.kurohicncr.top/Article/details/4030832603.shtml)
+- 2026-06-30 06:54 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.share.kurohicncr.top/Article/details/763129.shtml)
+- 2026-06-30 07:11 - [中国18岁小将再现一投夺冠](http://www.blog.minike.top/Article/details/224146747.shtml)
+- 2026-06-30 07:06 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/2162212.shtml)
+- 2026-06-30 06:53 - [恋与深空 巧合](https://www.blog.minike.top/Article/details/953375.shtml)
+- 2026-06-30 06:51 - [好像看到了人类带孩子崩溃的样子](http://www.share.kurohicncr.top/Article/details/5349124547.shtml)
+- 2026-06-30 07:05 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.blog.minike.top/Article/details/17998378743.shtml)

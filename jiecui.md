@@ -1,58 +1,60 @@
-# 韩华航空航天在致命爆炸事故后暂停所有工厂运营
+# 国联民生证券孔蓉：韩股牛市由存储驱动，恒科背离源于权重股“AI叙事”欠佳，港股结构性机会仍存
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-韩华集团旗下防务子公司韩华航空航天周四宣布，因旗下大田厂区发生致人死亡的爆炸事故，公司将暂停全部生产设施的运营，并开展专项安全排查。 该公司表示，自周四起，韩国境内九处生产厂区全面停工两天，这也是该公司成立以来首次全面停产。 本周一，韩华航空航天位于首尔以南约 140 公里处的工厂发生爆炸事故，造成 5 人死亡、2 人受伤。韩国警方已成立联合调查组，研判事故的确切成因。 韩华航
+2026年以来，全球科技股走势分化。针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重
 
 ## 正文
 
-韩华集团旗下防务子公司韩华航空航天周四宣布，因旗下大田厂区发生致人死亡的爆炸事故，公司将暂停全部生产设施的运营，并开展专项安全排查。
+2026年以来，全球科技股走势分化。
 
-该公司表示，自周四起，韩国境内九处生产厂区全面停工两天，这也是该公司成立以来首次全面停产。
+针对恒生科技指数为何明显跑输全球同类资产这一问题，6月2日晚，国联民生证券研究所副总经理、海外研究首席分析师孔蓉做客新浪证券直播间，进行了系统拆解。
 
-本周一，韩华航空航天位于首尔以南约 140 公里处的工厂发生爆炸事故，造成 5 人死亡、2 人受伤。
+视频直播>> 她指出，韩股的核心驱动力在于存储产业的AI超级周期，而恒科表现疲弱的根源在于腾讯、阿里等权重股的AI叙事暂时未能打动市场，但港股的硬件股和新上市的科技龙头已展现出独立行情，未来若权重股迎来“谷歌时刻”，恒科修复空间可观。
 
-韩国警方已成立联合调查组，研判事故的确切成因。
+针对韩国股市的史诗级上涨，孔蓉认为其内核与全球科技主线高度一致，即AI与硬件的共振。
 
-韩华航空航天方面表示，相较于停产带来的暂时性产能损失，保障安全生产环境是更优先的事项。
+一方面，韩国新一届政府上台后对资本市场给予了政策支持，这与A股近年来政策呵护科技板块的逻辑相似；但更关键的驱动力来自于存储产业。
 
-大田工厂是核心军工设施，被划定为国防保密工厂。
+她表示，“三星和SK海力士带动了整个韩国市场的股价表现”，而存储板块的机会能否延续，将直接决定韩股后续走势。
 
-该厂负责生产多款武器装备，其中包含天舞多管火箭炮、远程地对空导弹（L-SAM）等。
+孔蓉判断，只要AI驱动的存储超级周期没有结束，韩国市场依然会受到全球资金的关注，其中存储领域是吸引力和关注度最高的环节。
 
-据该公司披露，受影响的生产线去年实现营收 1.32 万亿韩元（约合 8.7 亿美元），占韩华航空航天全年总营收 26.7 万亿韩元的 4.94%。
+然而，与韩股、美股科技的火热形成鲜明反差，恒生科技指数5月表现承压。
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kyijz.md)
-- 2026-06-30 07:06 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raohuan.md)
-- 2026-06-30 06:58 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gddqq.md)
-- 2026-06-30 07:08 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/frtnp.md)
-- 2026-06-30 06:52 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nuoyin.md)
-- 2026-06-30 07:06 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huafang.md)
-- 2026-06-30 06:47 - [千香](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
-- 2026-06-30 06:43 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
-- 2026-06-30 07:07 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
-- 2026-06-30 06:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uvkgt.md)
-- 2026-06-30 06:53 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owivv.md)
-- 2026-06-30 07:07 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
+- 2026-06-30 07:09 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/flgfe.md)
+- 2026-06-30 07:14 - [巴西vs日本首发名单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuzyi.md)
+- 2026-06-30 07:08 - [《共患难》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gntev.md)
+- 2026-06-30 06:51 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dbjrz.md)
+- 2026-06-30 06:58 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/alxxe.md)
+- 2026-06-30 07:02 - [女儿从清华毕业 爸爸晒出17年对比照](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
+- 2026-06-30 07:07 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tazuz.md)
+- 2026-06-30 07:06 - [詹姆斯 勇士](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhishai.md)
+- 2026-06-30 06:57 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/howin.md)
+- 2026-06-30 07:17 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/juda.md)
+- 2026-06-30 06:58 - [千万不要随便扣肚脐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qekxc.md)
+- 2026-06-30 07:17 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linzhui.md)
+- 2026-06-30 06:58 - [姜妍走过来这段刘梅下班了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
+- 2026-06-30 07:03 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huaire.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/170346.shtml)
-- 2026-06-30 06:56 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/8594017443.shtml)
-- 2026-06-30 06:56 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/83624431582.shtml)
-- 2026-06-30 07:03 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](http://www.share.kurohicncr.top/Article/details/132786718.shtml)
-- 2026-06-30 06:56 - [田中碧失误](https://www.share.minike.top/Article/details/51957230.shtml)
-- 2026-06-30 06:45 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.minike.top/Article/details/7255685011.shtml)
-- 2026-06-30 06:51 - [7月1日起 一批新规即将落地](https://www.blog.kurohicncr.top/Article/details/79723597.shtml)
-- 2026-06-30 06:59 - [吴艳妮回应夺冠](http://www.share.kurohicncr.top/Article/details/07383154.shtml)
-- 2026-06-30 07:02 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/6366012.shtml)
-- 2026-06-30 07:11 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/64782293.shtml)
-- 2026-06-30 06:51 - [男生高考695分志愿报考清华](https://www.share.minike.top/Article/details/287626945609.shtml)
-- 2026-06-30 06:53 - [范志毅看好日本队淘汰巴西](http://www.share.minike.top/Article/details/04728.shtml)
-- 2026-06-30 06:42 - [男子身高一米八二仍做断骨增高](https://www.share.minike.top/Article/details/2541019.shtml)
-- 2026-06-30 06:48 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.minike.top/Article/details/107894357070.shtml)
-- 2026-06-30 07:07 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.kurohicncr.top/Article/details/2450832.shtml)
+- 2026-06-30 06:52 - [女心理师](https://www.share.kurohicncr.top/Article/details/39554765.shtml)
+- 2026-06-30 07:03 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://www.share.kurohicncr.top/Article/details/86529851.shtml)
+- 2026-06-30 07:01 - [达美乐运输面团时被雨淋到 客服回应](https://www.blog.kurohicncr.top/Article/details/3754409.shtml)
+- 2026-06-30 07:16 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.minike.top/Article/details/42043532.shtml)
+- 2026-06-30 06:58 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/05691839458.shtml)
+- 2026-06-30 06:59 - [日本领先巴西](https://www.blog.kurohicncr.top/Article/details/42526325114.shtml)
+- 2026-06-30 07:01 - [英语考了145的人竟然教数学](https://www.share.minike.top/Article/details/28123847092.shtml)
+- 2026-06-30 06:49 - [如何改变自己太负责任的性格?](http://www.blog.kurohicncr.top/Article/details/87859108588.shtml)
+- 2026-06-30 06:56 - [奔跑吧·黄河篇第二季](https://www.blog.minike.top/Article/details/68188733.shtml)
+- 2026-06-30 07:16 - [关晓彤一路小跑迎接爸爸探班](http://www.share.minike.top/Article/details/260393.shtml)
+- 2026-06-30 07:15 - [日本进球](http://www.blog.kurohicncr.top/Article/details/1132187.shtml)
+- 2026-06-30 07:06 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.minike.top/Article/details/5017488086.shtml)
+- 2026-06-30 07:03 - [女子健身不当 居然“脑子漏水”了](https://www.blog.minike.top/Article/details/32992839.shtml)
+- 2026-06-30 06:50 - [可以细成这样？1600万预算，颠覆我认知的改造！](http://www.share.minike.top/Article/details/9882061240.shtml)
+- 2026-06-30 06:48 - [又一家县级医院关停门诊输液大厅](http://www.blog.minike.top/Article/details/0814835905.shtml)

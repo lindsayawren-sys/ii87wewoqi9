@@ -1,61 +1,61 @@
-# GTC泽汇资本:金价区间等待破局
+# 华安基金：通信跃升第一大板块，创业板50指数上周涨3.66%
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-6月4日，黄金在高位震荡后进入更窄的整理区间，GTC泽汇资本表示，市场目前反复围绕下方支撑与上方压力来回拉锯，说明多空双方都在等待新的触发因素，短线节奏更偏向技术修整而不是趋势反转。 从盘面结构看，GTC泽汇资本认为，前期突破后未出现持续性放量回撤，意味着中期多头框架并没有被打乱，但价格一旦长时间停留在阻力位下方，也会抬升交易层面对获利回吐的敏感度。对黄金来说，这种“突破后回踩
+行情回顾及主要观点： 上周A股市场整体呈现分化：沪深300涨0.97%，中证500跌2.53%，中证1000跌3.27%，创业板50涨3.66%，科创50跌2.20%。交易面，A股市场日均成交额在3.1万亿左右，市场投资热情高涨。市场热点聚焦半导体设备、先进封装、光通信、算力租赁、锂矿等，科技和制造板块活跃。建议关注融资活跃和政策支持的成长板块，如人工智能和先进制造，大盘成长风
 
 ## 正文
 
-6月4日，黄金在高位震荡后进入更窄的整理区间，GTC泽汇资本表示，市场目前反复围绕下方支撑与上方压力来回拉锯，说明多空双方都在等待新的触发因素，短线节奏更偏向技术修整而不是趋势反转。
+行情回顾及主要观点： 上周A股市场整体呈现分化：沪深300涨0.97%，中证500跌2.53%，中证1000跌3.27%，创业板50涨3.66%，科创50跌2.20%。
 
-从盘面结构看，GTC泽汇资本认为，前期突破后未出现持续性放量回撤，意味着中期多头框架并没有被打乱，但价格一旦长时间停留在阻力位下方，也会抬升交易层面对获利回吐的敏感度。
+交易面，A股市场日均成交额在3.1万亿左右，市场投资热情高涨。
 
-对黄金来说，这种“突破后回踩确认”的阶段往往决定下一轮上行能否更稳固。
+市场热点聚焦半导体设备、先进封装、光通信、算力租赁、锂矿等，科技和制造板块活跃。
 
-影响金价的核心变量仍然集中在美元、利率预期和风险资产表现上。
+建议关注融资活跃和政策支持的成长板块，如人工智能和先进制造，大盘成长风格突出的创业板50指数值得重点关注。
 
-如果美元保持韧性、债券收益率难以下行，黄金在高位就容易继续消化前期涨幅；反过来，若宏观数据释放边际放缓信号，贵金属重新获得配置关注的概率也会随之提升。
+创业板为主要“三创（创新、创造、创意）四新（新技术、新产业、新业态、新模式）”的成长型创新创业企业提供直接融资平台。
 
-进一步看，市场对黄金的兴趣并未消失，只是交易重心由追涨转向观察关键价位的承接能力。
+权重行业方面，创业板50指数聚焦信息技术+新能源+金融科技+医药四大新质生产力赛道，科技成长属性纯粹。
 
-资金在等待方向时，通常会更关注回撤深度是否受控，以及突破后的整理时间是否过长，这两点会直接影响短线情绪。
+图：创业板50指数四大赛道 创业板50指数：追“光”识“新”更掘“金”。
 
-对于接下来的走势，GTC泽汇资本分析称，投资者可重点跟踪支撑位是否持续有效、上方压力能否被重新测试，以及美元与收益率的联动变化；若这几项指标配合改善，黄金后续仍有机会走出更清晰的延续行情。
+横向对比来看，创业板50指数的光模块含量、新能源光伏含量以及金融科技含量优于创业板指以及主流宽基指数。
 
 ## 相关推荐
 
-- 2026-06-30 06:58 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fzkgk.md)
-- 2026-06-30 06:48 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
-- 2026-06-30 06:48 - [欧盟分楼层开空调惹争议](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuode.md)
-- 2026-06-30 07:00 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 06:50 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuzan.md)
-- 2026-06-30 07:06 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rengdun.md)
-- 2026-06-30 06:53 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 06:59 - [世界杯巴西vs日本前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cvfeg.md)
-- 2026-06-30 06:54 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jvdos.md)
-- 2026-06-30 07:08 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bhtjq.md)
-- 2026-06-30 06:58 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 06:55 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jegcb.md)
-- 2026-06-30 06:50 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 06:48 - [恋与深空道歉声明](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fqcdk.md)
-- 2026-06-30 06:59 - [中国猪圈装空调让欧洲网友破防](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzdsb.md)
+- 2026-06-30 07:08 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jvsna.md)
+- 2026-06-30 07:17 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dtqcy.md)
+- 2026-06-30 06:52 - [起风了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mende.md)
+- 2026-06-30 06:48 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/utwmb.md)
+- 2026-06-30 07:02 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:01 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rzalw.md)
+- 2026-06-30 07:04 - [美股](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/phehp.md)
+- 2026-06-30 07:09 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tubin.md)
+- 2026-06-30 07:05 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gjgdj.md)
+- 2026-06-30 06:54 - [𝗩𝟴 'singasong' Official MV](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyhlg.md)
+- 2026-06-30 07:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
+- 2026-06-30 06:58 - [斗破苍穹](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiuhuai.md)
+- 2026-06-30 06:57 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 07:08 - [德国巴拉圭加时](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjtrc.md)
+- 2026-06-30 06:59 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbfga.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:45 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.blog.kurohicncr.top/Article/details/482155354718.shtml)
-- 2026-06-30 06:53 - [港股科技股强势反弹](http://www.share.kurohicncr.top/Article/details/00804963.shtml)
-- 2026-06-30 06:52 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/0947685.shtml)
-- 2026-06-30 06:44 - [致敬！中国首批缉毒警已全体退休](http://www.share.minike.top/Article/details/0149728.shtml)
-- 2026-06-30 06:51 - [金牌调解](https://www.blog.minike.top/Article/details/90440857.shtml)
-- 2026-06-30 06:46 - [一直以为方便面汤是要倒掉的](http://www.blog.kurohicncr.top/Article/details/6934408.shtml)
-- 2026-06-30 07:07 - [不开心就去看三年前的购物订单](http://www.share.minike.top/Article/details/73211.shtml)
-- 2026-06-30 07:05 - [这一刀 会很帅](http://www.share.minike.top/Article/details/368654274.shtml)
-- 2026-06-30 07:03 - [欧洲空调安装费用为何如此高昂](https://www.blog.kurohicncr.top/Article/details/039038582.shtml)
-- 2026-06-30 06:59 - [赛博朋克边缘行者2预告片](https://www.share.minike.top/Article/details/4331196.shtml)
-- 2026-06-30 07:04 - [恐怖世界 第三集 埃温霍姆村](http://www.share.kurohicncr.top/Article/details/408035449385.shtml)
-- 2026-06-30 07:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](http://www.blog.minike.top/Article/details/361657.shtml)
-- 2026-06-30 07:06 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://www.share.minike.top/Article/details/89006515.shtml)
-- 2026-06-30 07:05 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.share.minike.top/Article/details/443270129718.shtml)
-- 2026-06-30 06:47 - [超神人辉夜姬 第二集](https://www.blog.minike.top/Article/details/519114517336.shtml)
+- 2026-06-30 06:48 - [恐怖世界 第三集 埃温霍姆村](https://www.share.kurohicncr.top/Article/details/6711702.shtml)
+- 2026-06-30 07:02 - [卖菜老人获博主帮助后遇车祸去世](http://www.share.minike.top/Article/details/817200332876.shtml)
+- 2026-06-30 07:05 - [《贺子珍》](https://www.blog.kurohicncr.top/Article/details/39990.shtml)
+- 2026-06-30 07:02 - [真实感受到千香是积压剧了](https://www.blog.kurohicncr.top/Article/details/41581.shtml)
+- 2026-06-30 06:58 - [你人生中最艰难的时候是怎么熬过来的？](https://www.blog.minike.top/Article/details/337028.shtml)
+- 2026-06-30 06:57 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/52482069.shtml)
+- 2026-06-30 07:09 - [流金岁月](https://www.blog.kurohicncr.top/Article/details/66435338437.shtml)
+- 2026-06-30 07:03 - [2021江苏卫视跨年演唱会](http://www.blog.kurohicncr.top/Article/details/73539733.shtml)
+- 2026-06-30 07:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://www.share.minike.top/Article/details/054248885.shtml)
+- 2026-06-30 06:53 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.kurohicncr.top/Article/details/7805071.shtml)
+- 2026-06-30 07:08 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/260478639794.shtml)
+- 2026-06-30 07:07 - [《赛博朋克：边缘行者 2》｜官方预告片](http://www.share.kurohicncr.top/Article/details/0864606037.shtml)
+- 2026-06-30 07:06 - [花6万多相亲对象竟是50元请来的](https://www.share.kurohicncr.top/Article/details/029838.shtml)
+- 2026-06-30 06:57 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/640433580314.shtml)
+- 2026-06-30 07:01 - [科技牛市下的最大考验是什么](http://www.share.kurohicncr.top/Article/details/130708338.shtml)

@@ -1,61 +1,51 @@
-# 国际最新研发出一种仿生机器人 演示揭秘鱼类如何在陆地上行走
+# 首钢朗泽香港公开发售获1421.54倍认购 全球发售净筹约4.86亿港元
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网北京6月3日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇机器人学论文称，研究人员开发出一种仿生机器人，用于演示为何有些鱼类可以在陆地上行走。这项研究成果或可阐明，数百万年前最初的陆地脊椎动物如何上岸并适应新环境。 该论文介绍，多鳍鱼、鲇鱼和肺鱼等一些现生鱼类能在陆地上行走。过去的观察表明，尽管这些鱼的鳍和身体形状各异，这些物种都采用大致相似的移
+首钢朗泽（02553）公布配发结果，公司全球发售4000万股H股，香港公开发售占15%，国际发售占85%。每股发售价14.60港元，全球发售净筹约4.86亿港元。每手200股，预期H股将于2026年6月3日（星期三）上午九时正（香港时间）开始在联交所买卖。 其中，香港公开发售获1421.54倍认购，国际发售获0.95倍认购。责任编辑：卢昱君
 
 ## 正文
 
-中新网北京6月3日电 (记者 孙自法)施普林格·自然旗下学术期刊《自然-通讯》最新发表一篇机器人学论文称，研究人员开发出一种仿生机器人，用于演示为何有些鱼类可以在陆地上行走。
+首钢朗泽（02553）公布配发结果，公司全球发售4000万股H股，香港公开发售占15%，国际发售占85%。
 
-这项研究成果或可阐明，数百万年前最初的陆地脊椎动物如何上岸并适应新环境。
+每股发售价14.60港元，全球发售净筹约4.86亿港元。
 
-该论文介绍，多鳍鱼、鲇鱼和肺鱼等一些现生鱼类能在陆地上行走。
+每手200股，预期H股将于2026年6月3日（星期三）上午九时正（香港时间）开始在联交所买卖。
 
-过去的观察表明，尽管这些鱼的鳍和身体形状各异，这些物种都采用大致相似的移动方式，包括利用尾部推动身体前进，同时用两个前鳍提供稳定性和支撑，论文作者称之为“起伏式三脚步态”。
+其中，香港公开发售获1421.54倍认购，国际发售获0.95倍认购。
 
-虽然动物的游泳和陆地行走都已得到充分研究，但陆地鱼类的移动模式主要基于物种特异的观察，导致难以确定统一的原理。
-
-在本项研究中，论文第一作者和通讯作者、英国剑桥大学Michael Ishida与同事及合作者一起，根据塞内加尔多鳍鱼和其他“会走路的鱼”的运动特征，制作出一个计算机模型。
-
-进一步模拟显示，这些物种遵循同样的运动原理：用前鳍或头部锚定身体，用尾部围绕该锚点推动身体向前。
-
-在与塞内加尔多鳍鱼的条件高度吻合的情况下，行走速度最快且效率最高。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [古代时期普通老百姓能喝上酒吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fcbrd.md)
-- 2026-06-30 07:05 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zizhui.md)
-- 2026-06-30 06:59 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hfthy.md)
-- 2026-06-30 07:01 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
-- 2026-06-30 06:54 - [有人见过武则天的画像吗，非常好奇？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 07:01 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zandao.md)
-- 2026-06-30 06:57 - [歌剧老师锐评歌手第6期](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/msbgd.md)
-- 2026-06-30 07:05 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xiuqiang.md)
-- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/enjyc.md)
-- 2026-06-30 07:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houmao.md)
-- 2026-06-30 06:59 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/henhai.md)
-- 2026-06-30 07:02 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 06:52 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 07:05 - [韩乔生吐槽世界杯扩军](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
-- 2026-06-30 07:02 - [谢依霖说杨幂是聚会第一把张罗手](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rirlw.md)
+- 2026-06-30 06:56 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khkhl.md)
+- 2026-06-30 06:55 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mydyc.md)
+- 2026-06-30 06:55 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/pilei.md)
+- 2026-06-30 07:10 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dcrwf.md)
+- 2026-06-30 07:07 - [恋与深空 巧合](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iajhe.md)
+- 2026-06-30 06:59 - [男子诋毁袁隆平科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 06:48 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/buqun.md)
+- 2026-06-30 06:55 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tchiv.md)
+- 2026-06-30 07:14 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pfbzi.md)
+- 2026-06-30 07:01 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ljkfm.md)
+- 2026-06-30 06:52 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/5160849146.shtml)
-- 2026-06-30 07:02 - [世界杯：德国vs巴拉圭](http://www.share.kurohicncr.top/Article/details/03233838.shtml)
-- 2026-06-30 07:09 - [披荆斩棘的哥哥](https://www.share.kurohicncr.top/Article/details/39013708.shtml)
-- 2026-06-30 07:10 - [19岁男孩快220斤被查出营养不良](http://www.blog.kurohicncr.top/Article/details/062026475363.shtml)
-- 2026-06-30 07:10 - [荀彧和曹操反目成仇的根本原因是什么？](https://www.share.minike.top/Article/details/380796.shtml)
-- 2026-06-30 06:52 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.blog.kurohicncr.top/Article/details/39468.shtml)
-- 2026-06-30 07:03 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/553258341.shtml)
-- 2026-06-30 06:57 - [大学生遇地震裹被子从5楼冲下](http://www.blog.minike.top/Article/details/96413767270.shtml)
-- 2026-06-30 07:02 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/72975840862.shtml)
-- 2026-06-30 07:04 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.blog.kurohicncr.top/Article/details/6553606205.shtml)
-- 2026-06-30 07:08 - [巴西半场0比1日本](http://www.share.minike.top/Article/details/074274906.shtml)
-- 2026-06-30 07:00 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](http://www.share.kurohicncr.top/Article/details/0272113.shtml)
-- 2026-06-30 06:51 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/20586028646.shtml)
-- 2026-06-30 06:48 - [千香](http://www.blog.kurohicncr.top/Article/details/78475313.shtml)
-- 2026-06-30 06:46 - [我把队友的7连跪剪成了艺术](https://www.share.kurohicncr.top/Article/details/95510524204.shtml)
+- 2026-06-30 07:10 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/721698.shtml)
+- 2026-06-30 06:50 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](http://www.blog.kurohicncr.top/Article/details/2579610105.shtml)
+- 2026-06-30 07:03 - [浙江队将获百万元世界杯补偿](https://www.share.minike.top/Article/details/0519059.shtml)
+- 2026-06-30 07:05 - [酒店推行“24小时退房”引热议](http://www.share.minike.top/Article/details/44260021064.shtml)
+- 2026-06-30 07:01 - [超神人辉夜姬 第二集](https://www.share.minike.top/Article/details/9276933443.shtml)
+- 2026-06-30 06:51 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/1058498894.shtml)
+- 2026-06-30 06:54 - [欧洲人高温天为啥用不了空调](http://www.share.minike.top/Article/details/5629180.shtml)
+- 2026-06-30 07:14 - [女儿从清华毕业爸爸晒出17年对比照](https://www.blog.minike.top/Article/details/28172.shtml)
+- 2026-06-30 06:48 - [格力遥控器里有黄金](https://www.blog.kurohicncr.top/Article/details/7335514299.shtml)
+- 2026-06-30 07:00 - [中国猪圈装空调让欧洲网友破防](http://www.blog.minike.top/Article/details/633645430.shtml)
+- 2026-06-30 06:55 - [恋与深空 日服](http://www.share.minike.top/Article/details/72573257.shtml)
+- 2026-06-30 07:13 - [杨紫被质疑未使用原名](http://www.blog.kurohicncr.top/Article/details/02668275940.shtml)
+- 2026-06-30 06:49 - [中国网友锐评韩国队外网爆火](http://www.share.minike.top/Article/details/9156218617.shtml)
+- 2026-06-30 06:54 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](http://www.share.minike.top/Article/details/78370332.shtml)
+- 2026-06-30 07:01 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.minike.top/Article/details/956174357.shtml)

@@ -1,58 +1,61 @@
-# 航锦科技仍处监管立案，已有大批股民参与索赔
+# AI双雄上市 OpenAI和Anthropic能否经受住考验
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，2026年4月3日，航锦科技（维权）发布公告称，公司收到中国证券监督管理委员会下发的《立案告知书》，因涉嫌信息披露违法违规被立案调查。 上海沪紫律师事务所刘鹏律师团队截止目前已收到数百位投资者的索赔报名。暂定于2026年4月3日（含当日）之前买入，并在2026年4月4日之后卖出或仍持有而亏损的可参与索赔。符合要求即可登
+SpaceX筹划中的首次公开募股（IPO）成为今春投资界热议焦点。然而，当纳斯达克上市庆典的彩带尚未清扫干净时，OpenAI和Anthropic PBC也将接踵登陆美股市场。这两家人工智能领域最具影响力的公司预计最快将于今年秋季上市。 6月1日，Anthropic宣称已保密提交IPO注册文件草案，而OpenAI预计将在未来数天或数周内跟进。作为ChatGPT的开发商，OpenA
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 回溯本案，2026年4月3日，航锦科技（维权）发布公告称，公司收到中国证券监督管理委员会下发的《立案告知书》，因涉嫌信息披露违法违规被立案调查。
+SpaceX筹划中的首次公开募股（IPO）成为今春投资界热议焦点。
 
-上海沪紫律师事务所刘鹏律师团队截止目前已收到数百位投资者的索赔报名。
+然而，当纳斯达克上市庆典的彩带尚未清扫干净时，OpenAI和Anthropic PBC也将接踵登陆美股市场。
 
-暂定于2026年4月3日（含当日）之前买入，并在2026年4月4日之后卖出或仍持有而亏损的可参与索赔。
+这两家人工智能领域最具影响力的公司预计最快将于今年秋季上市。
 
-符合要求即可登记。
+6月1日，Anthropic宣称已保密提交IPO注册文件草案，而OpenAI预计将在未来数天或数周内跟进。
 
-（航锦科技维权入口） 此次立案或早有端倪，回溯公司过往，其于2025年年初收到警示函，其中披露航锦科技存在算力设备及芯片销售业务核算不准确，导致信息披露不真实、不准确的违规行为。
+作为ChatGPT的开发商，OpenAI今年3月估值达到8520亿美元，而开发了Claude模型的Anthropic融资估值已超过9650亿美元。
 
-同时，航锦科技内控制度执行不到位，对部分子公司长期缺乏有效控制。
+按这一水平计算，这两家公司每一家的市值都将超过摩根大通和埃克森美孚等企业巨头。
 
-针对此次立案，或许当初的“责令改正”并未彻底解决公司深层的治理隐患，最终还是演变成了证监会的正式立案。
+为什么SpaceX的IPO与其他任何IPO都不同 围绕这些公司的狂热情绪席卷私募市场。
 
-具体违规事由待监管的处罚送达即可真相大白。
+在那里，只有富裕投资者、金融机构和相关企业员工才能接触到这类股票。
 
 ## 相关推荐
 
-- 2026-06-30 06:47 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
-- 2026-06-30 06:54 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dnydl.md)
-- 2026-06-30 06:49 - [网警提醒4类“高考查分陷阱”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 06:54 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oblgo.md)
-- 2026-06-30 06:42 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/swdut.md)
-- 2026-06-30 06:57 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zhenyin.md)
-- 2026-06-30 07:05 - [媒体评哈兰德之歌火了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rongguo.md)
-- 2026-06-30 06:54 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lgnbc.md)
-- 2026-06-30 07:08 - [国内最大沙漠发洪水意味着什么](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/adgfx.md)
-- 2026-06-30 06:53 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ovswh.md)
-- 2026-06-30 07:02 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/santian.md)
-- 2026-06-30 07:11 - [董卿父亲在报纸上发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qjmds.md)
+- 2026-06-30 07:14 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lnrsm.md)
+- 2026-06-30 07:03 - [拆解FIFA和世界杯的暗面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 06:49 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 06:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/genhei.md)
+- 2026-06-30 07:17 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiaorun.md)
+- 2026-06-30 07:14 - [速度与激情9](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nanran.md)
+- 2026-06-30 06:56 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heyuan.md)
+- 2026-06-30 07:01 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/bojiang.md)
+- 2026-06-30 06:59 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 06:54 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 06:48 - [韩国人为什么这么在乎输赢](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 06:56 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 06:56 - [hanser X 赖美云《室内系的Track Maker》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
+- 2026-06-30 07:18 - [王欣瑜晋级温网女单次轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zanwen.md)
+- 2026-06-30 06:51 - [明星大侦探第四季](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/niaozhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [你这一辈子有没有为进山姆拼过命？](https://www.share.kurohicncr.top/Article/details/1122999180.shtml)
-- 2026-06-30 06:57 - [亚洲球队全部告别世界杯](http://www.share.minike.top/Article/details/638825.shtml)
-- 2026-06-30 06:44 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.blog.kurohicncr.top/Article/details/404853901478.shtml)
-- 2026-06-30 06:45 - [世界杯](http://www.blog.kurohicncr.top/Article/details/76675098.shtml)
-- 2026-06-30 07:10 - [官方否认宜宾地震与页岩气开采有关](http://www.share.minike.top/Article/details/854999.shtml)
-- 2026-06-30 06:56 - [扬名立万](https://www.share.minike.top/Article/details/4829164661.shtml)
-- 2026-06-30 06:48 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/4461804.shtml)
-- 2026-06-30 07:02 - [小勒布伦WTT美国大满贯开门红](http://www.blog.kurohicncr.top/Article/details/5718665281.shtml)
-- 2026-06-30 06:57 - [相爱相杀很有戏，我的兄弟最默契](http://www.blog.kurohicncr.top/Article/details/388684461274.shtml)
-- 2026-06-30 06:55 - [王欣瑜2-1击败科恰雷托](https://www.share.kurohicncr.top/Article/details/88700859511.shtml)
-- 2026-06-30 06:46 - [王灿兮被烫伤两年后维权成功](https://www.share.kurohicncr.top/Article/details/163969226.shtml)
-- 2026-06-30 06:43 - [送你一朵小红花](https://www.blog.kurohicncr.top/Article/details/61814179.shtml)
-- 2026-06-30 06:44 - [美股三大指数高开 西部数据涨超2%](http://www.share.minike.top/Article/details/883768.shtml)
-- 2026-06-30 07:05 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/328967481.shtml)
-- 2026-06-30 07:09 - [恋与深空已删除锅里洗澡文案](https://www.blog.minike.top/Article/details/67328.shtml)
+- 2026-06-30 07:11 - [多功能求生吊坠 第四轮迭代汇报](http://www.blog.minike.top/Article/details/86665117.shtml)
+- 2026-06-30 06:57 - [小勒布伦WTT美国大满贯开门红](http://www.blog.minike.top/Article/details/584224171.shtml)
+- 2026-06-30 07:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.share.minike.top/Article/details/135294416669.shtml)
+- 2026-06-30 07:11 - [四川宜宾地震为何震感明显](http://www.share.minike.top/Article/details/3367242225.shtml)
+- 2026-06-30 07:16 - [韩国队输球后连呼吸都是错的吗](https://www.share.minike.top/Article/details/73046701580.shtml)
+- 2026-06-30 06:58 - [杨紫被质疑未使用原名](http://www.share.kurohicncr.top/Article/details/45275327.shtml)
+- 2026-06-30 06:50 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/87734.shtml)
+- 2026-06-30 07:02 - [苗族银饰](http://www.share.minike.top/Article/details/9242515053.shtml)
+- 2026-06-30 06:55 - [金牌调解](https://www.blog.minike.top/Article/details/967183521.shtml)
+- 2026-06-30 06:54 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/445643324952.shtml)
+- 2026-06-30 07:06 - [世界杯：德国vs巴拉圭](http://www.blog.minike.top/Article/details/9253377.shtml)
+- 2026-06-30 07:07 - [巴西半场0比1日本](http://www.blog.kurohicncr.top/Article/details/5109718817.shtml)
+- 2026-06-30 07:12 - [韩国队输球后连呼吸都是错的吗](http://www.share.minike.top/Article/details/679911579.shtml)
+- 2026-06-30 07:03 - [刘宇宁是去进货了吗](https://www.blog.minike.top/Article/details/392030985.shtml)
+- 2026-06-30 07:09 - [贺峻霖拎着爱马仕回国了](http://www.blog.minike.top/Article/details/27543117259.shtml)

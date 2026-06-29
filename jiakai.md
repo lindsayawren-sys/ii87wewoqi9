@@ -1,59 +1,58 @@
-# “天下第一雄关”嘉峪关迎马拉松 6月21日开赛文化属性跃升
+# 三连跌停后，603601警告“小作文”：必要时将报警
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网兰州6月4日电 (闫姣 王佳怡)2026“中国建设银行”嘉峪关长城马拉松，将于6月21日在甘肃嘉峪关鸣枪开跑。嘉峪关市副市长赵淑敏3日在兰州表示，此次赛事设全程马拉松和半程马拉松，总规模7000人。受众更广的健康跑、家庭跑，将首次以配套活动——“夜跑雄关”的形式，于6月20日傍晚举行，规模达5000人。 当日，甘肃省政府新闻办在兰州举行嘉峪关长城马拉松新闻发布会。 嘉峪关
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！6月2日晚间，再升科技（603601）公告称，公司股票于2026年5月29日、6月1日、6月2日连续三个交易日内收盘价格跌幅偏离值累计超过20%，根据《上海证券交易所交易规则》的有关规定，属于股票交易异常波动情形。此外，6月2日公司股票换手率为25.24%，
 
 ## 正文
 
-中新网兰州6月4日电 (闫姣 王佳怡)2026“中国建设银行”嘉峪关长城马拉松，将于6月21日在甘肃嘉峪关鸣枪开跑。
+登录新浪财经APP 搜索【信披】查看更多考评等级 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-嘉峪关市副市长赵淑敏3日在兰州表示，此次赛事设全程马拉松和半程马拉松，总规模7000人。
+6月2日晚间，再升科技（603601）公告称，公司股票于2026年5月29日、6月1日、6月2日连续三个交易日内收盘价格跌幅偏离值累计超过20%，根据《上海证券交易所交易规则》的有关规定，属于股票交易异常波动情形。
 
-受众更广的健康跑、家庭跑，将首次以配套活动——“夜跑雄关”的形式，于6月20日傍晚举行，规模达5000人。
+此外，6月2日公司股票换手率为25.24%，换手率出现较大波动情形。
 
-当日，甘肃省政府新闻办在兰州举行嘉峪关长城马拉松新闻发布会。
+对于此番三连跌停，再升科技表示，公司关注到相关市场主体未经事实核查编造虚假内容、误导资本市场，公司已固定全部涉案证据，必要时将向监管部门、公安机关报案处理，依法追究相关方的法律责任。
 
-嘉峪关长城马拉松是中国独具长城特色的主题赛事，自2023年创办以来已连续举办三年。
+公司相关信息以指定信息披露平台刊载的公告内容为准，敬请广大投资者理性甄别市场信息，警惕不实传言误导，审慎注意投资风险。
 
-赵淑敏介绍说，相比往年，2026年的赛道实现了三大核心升级：文化属性跃升、参赛体验优化、赛事周期延长。
+记者发现，这并非再升科技近期首次披露股票交易异常波动公告。
 
-“长城马拉松”的主题更加鲜明，沿途将串联起嘉峪关最核心的自然与人文精华景观，跑一次马拉松，就能读懂一座城，“赛事期间，参赛选手凭号码布可免费游览嘉峪关关城、悬壁长城、长城第一墩、紫轩葡萄酒庄园等景区，随行家属也可享受半价优惠。
+此前，公司股票曾出现在2026年5月26日、5月27日、5月28日连续三个交易日内收盘价格涨幅偏离值累计超过20%的情形。
 
-” “天下第一雄关”嘉峪关是全国长城文化重要标志地，有“河西第一隘口”“边陲锁钥”之称。
+彼时，再升科技提醒投资者，公司市盈率指标严重偏离行业平均估值水平，存在市场情绪过热、非理性炒作风险；近三个交易日公司股票换手率出现较大波动情形，击鼓传花效应明显，公司股价随时存在快速下跌的风险。
 
 ## 相关推荐
 
-- 2026-06-30 07:05 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dprco.md)
-- 2026-06-30 07:02 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mlwhl.md)
-- 2026-06-30 06:54 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
-- 2026-06-30 06:51 - [深扒韩国队淘汰背后原因](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 06:42 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 06:45 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fvidn.md)
-- 2026-06-30 06:55 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tmnnq.md)
-- 2026-06-30 06:47 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
-- 2026-06-30 06:53 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fmqmh.md)
-- 2026-06-30 07:02 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/weiruo.md)
-- 2026-06-30 06:53 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
-- 2026-06-30 07:04 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/edcal.md)
-- 2026-06-30 07:05 - [王菲谢霆锋十指紧扣好甜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpmkg.md)
+- 2026-06-30 06:49 - [巴西队与日本队将展开正面对决](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kuaichu.md)
+- 2026-06-30 06:50 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tsdyg.md)
+- 2026-06-30 07:12 - [千万不要随便扣肚脐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 06:49 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxgxz.md)
+- 2026-06-30 06:53 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ervke.md)
+- 2026-06-30 06:58 - [周生如故](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hyaua.md)
+- 2026-06-30 07:17 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mnelz.md)
+- 2026-06-30 07:17 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
+- 2026-06-30 06:51 - [猛龙快船交易或将达成](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huzu.md)
+- 2026-06-30 06:58 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/penyd.md)
+- 2026-06-30 07:10 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 06:53 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/0301372494.shtml)
-- 2026-06-30 07:04 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/275584091.shtml)
-- 2026-06-30 07:07 - [找到了10年前跪舔b站的视频](http://www.share.kurohicncr.top/Article/details/60903403.shtml)
-- 2026-06-30 06:47 - [格力遥控器里有黄金](http://www.blog.kurohicncr.top/Article/details/59508083.shtml)
-- 2026-06-30 06:54 - [世界杯“美洲德比”7月1日开打](http://www.share.minike.top/Article/details/27430207771.shtml)
-- 2026-06-30 06:55 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/439077902159.shtml)
-- 2026-06-30 07:04 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/7146291.shtml)
-- 2026-06-30 06:51 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/862036.shtml)
-- 2026-06-30 06:51 - [法总统候选人：拒绝与中国激烈对抗](https://www.blog.minike.top/Article/details/63683187969.shtml)
-- 2026-06-30 07:05 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/21557748.shtml)
-- 2026-06-30 06:58 - [怕iPhone涨价的用户已紧急换新](https://www.share.minike.top/Article/details/7036430.shtml)
-- 2026-06-30 07:04 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.share.kurohicncr.top/Article/details/242080039.shtml)
-- 2026-06-30 06:46 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.kurohicncr.top/Article/details/38345094689.shtml)
-- 2026-06-30 07:09 - [主人解开狗绳2只狗将路人撕咬致死](http://www.blog.kurohicncr.top/Article/details/13186.shtml)
-- 2026-06-30 06:46 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/707849210421.shtml)
+- 2026-06-30 06:50 - [琉球·冲绳学术问题国际研讨会举行](https://www.share.kurohicncr.top/Article/details/291761.shtml)
+- 2026-06-30 06:57 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/0606939518.shtml)
+- 2026-06-30 07:18 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.minike.top/Article/details/465154512.shtml)
+- 2026-06-30 06:49 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](http://www.blog.kurohicncr.top/Article/details/815246.shtml)
+- 2026-06-30 07:01 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/045681944.shtml)
+- 2026-06-30 06:52 - [赛博朋克边缘行者2预告片](http://www.share.minike.top/Article/details/1404054.shtml)
+- 2026-06-30 07:12 - [王濛给黄灿灿分享李小冉半夜吃的蛋挞](http://www.share.kurohicncr.top/Article/details/6788817.shtml)
+- 2026-06-30 07:03 - [第一炉香](https://www.share.kurohicncr.top/Article/details/55064606462.shtml)
+- 2026-06-30 07:03 - [森保一 保守](https://www.share.kurohicncr.top/Article/details/2835653413.shtml)
+- 2026-06-30 07:00 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/97096794763.shtml)
+- 2026-06-30 06:54 - [为什么香港的冲厕水是咸的？](http://www.share.minike.top/Article/details/1450515.shtml)
+- 2026-06-30 07:09 - [解锁一下新吃法 这顿真给我吃美了](https://www.blog.minike.top/Article/details/93152.shtml)
+- 2026-06-30 07:05 - [19岁男孩快220斤被查出营养不良](http://www.blog.minike.top/Article/details/335776415516.shtml)
+- 2026-06-30 06:50 - [免费试吃发差评被店家挂店门避雷](https://www.blog.minike.top/Article/details/2888075.shtml)
+- 2026-06-30 07:07 - [卡塞米罗头球破门](http://www.share.minike.top/Article/details/880812981.shtml)

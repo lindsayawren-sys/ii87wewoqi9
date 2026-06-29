@@ -1,56 +1,61 @@
-# “十四五”时期中国累计新设外资企业26.9万家
+# 美国债市：国债收盘涨跌不一 职位空缺数据强于预期后涨幅回吐
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新社北京6月3日电 (记者 王恩博)中国国家统计局3日公布的“十四五”经济社会发展成就系列报告显示，2021—2025年，中国累计新设外资企业26.9万家，比“十三五”时期增加6.6万家，外商投资规模保持高位。 根据报告，2021—2023年，中国连续3年实际使用外资突破1万亿元(人民币，下同)，实际使用外资额分别为11976亿元、12327亿元、11339亿元。 自2022
+美国国债周二收盘时短期品种小幅下跌，更远端美债在回吐早前涨幅后基本持平。美国4月职位空缺数超过所有经济学家的预期，推动互换市场定价显示的美联储加息幅度上升，市场继续完全计入到3月加息25个基点的预期。早些时候，随着市场持续关注美伊达成和平协议的前景，原油价格下跌以及欧洲债券走高为美债提供了支撑。 纽约时间下午3点后不久，美国2年期国债收益率日内上涨约1个基点，而长端国债收益率较
 
 ## 正文
 
-中新社北京6月3日电 (记者 王恩博)中国国家统计局3日公布的“十四五”经济社会发展成就系列报告显示，2021—2025年，中国累计新设外资企业26.9万家，比“十三五”时期增加6.6万家，外商投资规模保持高位。
+美国国债周二收盘时短期品种小幅下跌，更远端美债在回吐早前涨幅后基本持平。
 
-根据报告，2021—2023年，中国连续3年实际使用外资突破1万亿元(人民币，下同)，实际使用外资额分别为11976亿元、12327亿元、11339亿元。
+美国4月职位空缺数超过所有经济学家的预期，推动互换市场定价显示的美联储加息幅度上升，市场继续完全计入到3月加息25个基点的预期。
 
-自2022年起，受全球经济增长乏力、债务高企、地缘政治冲突不断、主要经济体经贸政策复杂调整等因素影响，全球外国直接投资持续萎缩，逐步传导到中国，2023年起中国实际使用外资有所减少。
+早些时候，随着市场持续关注美伊达成和平协议的前景，原油价格下跌以及欧洲债券走高为美债提供了支撑。
 
-2024年和2025年，中国实际使用外资额分别为8263亿元、7477亿元，始终保持发展中经济体最大引资国地位。
+纽约时间下午3点后不久，美国2年期国债收益率日内上涨约1个基点，而长端国债收益率较周一收盘略有下跌。
 
-中国转型升级的产业领域尤其受外资青睐。
+美国10期国债收益率在4.455%附近基本持平，而同期限的德国国债和英国国债收益率分别下跌3个基点和4个基点。
 
-2025年，中国高技术产业实际使用外资2418亿元，占实际使用外资总额的比重为32.3%，比2020年提高3.7个百分点。
+在早盘时段，美国4月JOLTS职位空缺报告的出炉为本周晚些时候公布的5月就业数据奠定了强劲的基调，收益率从接近盘中低点的水平反弹。
 
-对外投资方面，2021—2024年，中国对外投资流量累计7114亿美元，年均增长5.7%，在全球投资市场的地位日益稳固。
+本周晚些时候将公布的数据包括周三的ADP私营部门就业报告，以及周五劳工部更广泛的非农就业报告。
 
-报告显示，2024年，中国对外直接投资1922亿美元，占全球当年流量的11.9%，连续13年位居世界前三，在全球份额连续9年保持超一成以上。
+数据公布前，美债受到原油价格下跌的支撑，但WTI原油期货随后反弹，最终收涨1.7%。
 
 ## 相关推荐
 
-- 2026-06-30 07:03 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/wenhua.md)
-- 2026-06-30 06:56 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
-- 2026-06-30 07:03 - [国务院：鼓励行业龙头企业举办职校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manglei.md)
-- 2026-06-30 06:49 - [想问一下学日语的大佬，自学日语要怎么学？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tlrju.md)
-- 2026-06-30 07:01 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 06:57 - [田中碧失误](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 06:59 - [审核了不止十年的低创鬼畜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khilk.md)
-- 2026-06-30 06:42 - [上市央企地产商 两年换了三任董事长](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuihuang.md)
-- 2026-06-30 06:52 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/miange.md)
-- 2026-06-30 06:59 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/wuzhou.md)
+- 2026-06-30 06:49 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rongniang.md)
+- 2026-06-30 07:00 - [刘念回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/reapz.md)
+- 2026-06-30 07:01 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 07:04 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niushao.md)
+- 2026-06-30 07:10 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiaobu.md)
+- 2026-06-30 07:02 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 06:54 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biukt.md)
+- 2026-06-30 07:03 - [张凌赫杨超越 峨眉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/azcpu.md)
+- 2026-06-30 07:12 - [女子在酒吧被陌生人投放“伟哥”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ooemt.md)
+- 2026-06-30 07:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
+- 2026-06-30 07:03 - [MSI应援曲 如果季中成回忆](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hdhaf.md)
+- 2026-06-30 07:06 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lianbo.md)
+- 2026-06-30 06:58 - [日本半场1比0领先巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/feirj.md)
+- 2026-06-30 07:17 - [蔚来回应高压水枪洗车掉漆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cetuo.md)
+- 2026-06-30 07:04 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qunzhao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:00 - [赛博朋克边缘行者2预告片](http://www.share.kurohicncr.top/Article/details/76585693461.shtml)
-- 2026-06-30 07:10 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/855126635.shtml)
-- 2026-06-30 06:54 - [男生高考695分志愿报考清华](https://www.blog.kurohicncr.top/Article/details/30768.shtml)
-- 2026-06-30 06:50 - [爱很美味](https://www.blog.kurohicncr.top/Article/details/10753308420.shtml)
-- 2026-06-30 06:46 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/9239585439.shtml)
-- 2026-06-30 06:59 - [湖南祁东原文化馆被指贱卖](https://www.share.kurohicncr.top/Article/details/551970.shtml)
-- 2026-06-30 06:53 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/4288642.shtml)
-- 2026-06-30 07:09 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/8691805663.shtml)
-- 2026-06-30 06:55 - [恋与深空道歉声明](http://www.share.minike.top/Article/details/4520849140.shtml)
-- 2026-06-30 06:53 - [7月1日起 一批新规即将落地](https://www.share.minike.top/Article/details/3146704681.shtml)
-- 2026-06-30 06:49 - [《共患难》](http://www.share.kurohicncr.top/Article/details/811877488147.shtml)
-- 2026-06-30 06:58 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/35089.shtml)
-- 2026-06-30 07:06 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/678490063947.shtml)
-- 2026-06-30 06:42 - [内马尔替补](https://www.share.kurohicncr.top/Article/details/499318924530.shtml)
-- 2026-06-30 06:51 - [辛纳vs凯茨玛诺维奇](https://www.blog.kurohicncr.top/Article/details/856294545.shtml)
+- 2026-06-30 07:09 - [恋与深空 巧合](http://www.share.kurohicncr.top/Article/details/81683636926.shtml)
+- 2026-06-30 07:04 - [美团、淘宝闪购、京东外卖达成共识](https://www.blog.kurohicncr.top/Article/details/2528487768.shtml)
+- 2026-06-30 07:07 - [在没有空调的巴黎感受世纪热浪](https://www.blog.minike.top/Article/details/55268.shtml)
+- 2026-06-30 07:17 - [这种关系可能正在悄悄“催老”你](https://www.blog.minike.top/Article/details/68974660676.shtml)
+- 2026-06-30 07:11 - [我把队友的7连跪剪成了艺术](https://www.share.minike.top/Article/details/838349382.shtml)
+- 2026-06-30 06:53 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/84006.shtml)
+- 2026-06-30 07:13 - [日本 高位逼抢](https://www.share.kurohicncr.top/Article/details/37788.shtml)
+- 2026-06-30 06:58 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/034521426658.shtml)
+- 2026-06-30 07:12 - [奔跑吧·黄河篇第二季](http://www.share.kurohicncr.top/Article/details/1856096.shtml)
+- 2026-06-30 07:01 - [贺峻霖拎着爱马仕回国了](https://www.blog.minike.top/Article/details/7736206.shtml)
+- 2026-06-30 06:58 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/53252847.shtml)
+- 2026-06-30 06:48 - [马航MH370传来最新消息](http://www.blog.kurohicncr.top/Article/details/94553426.shtml)
+- 2026-06-30 06:52 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/58274094.shtml)
+- 2026-06-30 07:06 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/97687115.shtml)
+- 2026-06-30 07:04 - [达美乐运输面团时被雨淋到 客服回应](http://www.blog.minike.top/Article/details/206710396950.shtml)

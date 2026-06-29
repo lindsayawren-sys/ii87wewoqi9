@@ -1,55 +1,61 @@
-# 教育部：打击各类涉考违法犯罪活动 防范打击高科技舞弊
+# 富硒红薯变“金疙瘩” 山西高平解锁“甜蜜经济”
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网6月3日电 据教育部网站消息，2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，指导各地扎实做好考试组织和考生服务工作，全力以赴实现“平安高考”目标任务。其中要求，以更严要求打击舞弊，全力维护公平公正。深化考试环境治理。建立考前线索共享、考中联合执法、考后溯源查处的全链条工作机制。指导各地会同网信、公安等部门联合开展净化涉考网络环
+中新网晋城6月2日电 (杨佩佩 张凯)连日来，在山西晋城高平市河西镇红薯标准化种植基地，种植大户正组织村民进行红薯苗栽种作业。田垄间，黑色的薄膜均匀铺展，村民们分工协作，铺设水管、覆盖薄膜、打孔、栽苗，田间地头一派农忙景象。 近年来，高平深入实施农业“特”“优”发展战略，聚力打造“五彩农业”特色产业体系，将“红色的薯”作为重点培育板块，深挖本土红薯资源优势、持续做强富硒红薯特色
 
 ## 正文
 
-中新网6月3日电 据教育部网站消息，2026年全国统一高考将于6月7日开考，教育部会同国家教育统一考试工作部际联席会议成员单位，指导各地扎实做好考试组织和考生服务工作，全力以赴实现“平安高考”目标任务。
+中新网晋城6月2日电 (杨佩佩 张凯)连日来，在山西晋城高平市河西镇红薯标准化种植基地，种植大户正组织村民进行红薯苗栽种作业。
 
-其中要求，以更严要求打击舞弊，全力维护公平公正。
+田垄间，黑色的薄膜均匀铺展，村民们分工协作，铺设水管、覆盖薄膜、打孔、栽苗，田间地头一派农忙景象。
 
-深化考试环境治理。
+近年来，高平深入实施农业“特”“优”发展战略，聚力打造“五彩农业”特色产业体系，将“红色的薯”作为重点培育板块，深挖本土红薯资源优势、持续做强富硒红薯特色农业品牌，让小小的红薯成为带动民众增收致富的支柱产业。
 
-建立考前线索共享、考中联合执法、考后溯源查处的全链条工作机制。
+“我们采用膜下滴灌技术，可根据红薯的不同生长阶段精准提供水源，实现保水保墒，进一步提高薯苗的成活率，促进红薯增产。
 
-指导各地会同网信、公安等部门联合开展净化涉考网络环境、净化考点周边环境、打击销售作弊器材、打击替考作弊、治理涉考培训机构等专项行动，依法严厉打击各类涉考违法犯罪活动，积极营造和谐健康的考试环境。
+”金灿灿农业发展有限公司技术员郭继国介绍，基地从5月中旬开始栽种薯苗，目前已完成红薯种植450余亩，预计一周内可完成薯苗栽种任务。
 
-防范打击高科技舞弊。
+河西镇种植红薯历史悠久，土壤富硒，种出来的红薯口感绵甜、品质优良，深受市场青睐，尤其是“朱门红薯”，已成为该镇的红薯特色品牌。
 
-指导各地深化考生诚信考试教育，进一步强化人防、物防、技防等措施，加强标准化考点建设，升级“智能安检门”，提高对手机、智能眼镜等违规物品检出率，严格入场安检规范，强化考场监考巡考，积极推动智能巡查巡检，织牢织密考试安全防护网。
+为进一步提高红薯品质和产量，河西镇种植大户深耕本土红薯产业，联合安徽农业大学，选用优质的河西红薯培育秧苗，引进先进的茎尖脱毒技术对本地红薯进行脱毒，并采用膜下滴灌技术进行种植，不仅能保留本土红薯的品质和口感，还可提高红薯产量。
+
+“我们联合农业院校经过多年反复试验、改良，现在红薯脱毒和高剪苗技术已经非常成熟，每年可培育红薯秧苗200多万株，除了满足当地1000多亩红薯种植需求，还销往全国多地。
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gqqft.md)
-- 2026-06-30 06:44 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 06:47 - [我和我的家乡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
-- 2026-06-30 07:04 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tzblr.md)
-- 2026-06-30 06:45 - [女心理师](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
-- 2026-06-30 07:05 - [王楚钦谈表演球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pivau.md)
-- 2026-06-30 07:02 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gpbst.md)
-- 2026-06-30 07:11 - [找到了10年前跪舔b站的视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chiting.md)
-- 2026-06-30 07:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ikxpx.md)
-- 2026-06-30 06:57 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
-- 2026-06-30 06:57 - [第一炉香](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pccqt.md)
+- 2026-06-30 06:52 - [美人鱼](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ahtkn.md)
+- 2026-06-30 06:57 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sercn.md)
+- 2026-06-30 07:01 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hbdsj.md)
+- 2026-06-30 07:08 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oylqa.md)
+- 2026-06-30 06:50 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mospu.md)
+- 2026-06-30 07:13 - [金牌调解](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cubko.md)
+- 2026-06-30 07:00 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tianchu.md)
+- 2026-06-30 06:59 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/liangsou.md)
+- 2026-06-30 07:17 - [如何评价杨紫白玉兰获奖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rpfdt.md)
+- 2026-06-30 07:12 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zuanju.md)
+- 2026-06-30 07:05 - [日本拟明年正式启动海底稀土开发计划](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sxeju.md)
+- 2026-06-30 07:09 - [未来的飞机可能会用电吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sumian.md)
+- 2026-06-30 07:12 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/slcpt.md)
+- 2026-06-30 07:06 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khfgs.md)
+- 2026-06-30 07:13 - [卡塞米罗头球破门 巴西扳平日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuochun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.blog.kurohicncr.top/Article/details/438914619.shtml)
-- 2026-06-30 07:01 - [中国再对日本出重拳](https://www.share.kurohicncr.top/Article/details/162536511.shtml)
-- 2026-06-30 06:54 - [女儿从清华毕业 爸爸晒出17年对比照](https://www.share.minike.top/Article/details/146409513.shtml)
-- 2026-06-30 06:59 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/4846835.shtml)
-- 2026-06-30 06:42 - [蔚来回应高压水枪洗车掉漆](http://www.blog.kurohicncr.top/Article/details/30966989545.shtml)
-- 2026-06-30 06:48 - [男生高考695分志愿报考清华](https://www.blog.minike.top/Article/details/14919.shtml)
-- 2026-06-30 06:59 - [有酒店推行24小时退房制](https://www.blog.minike.top/Article/details/7451342845.shtml)
-- 2026-06-30 06:51 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/226331.shtml)
-- 2026-06-30 06:56 - [男子中医院拔火罐致浅2度烧伤](http://www.share.kurohicncr.top/Article/details/155854899.shtml)
-- 2026-06-30 06:47 - [周生如故](http://www.share.kurohicncr.top/Article/details/55683.shtml)
-- 2026-06-30 07:00 - [王源近几年没有路演了](http://www.share.minike.top/Article/details/73251.shtml)
-- 2026-06-30 06:59 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.blog.minike.top/Article/details/41151677.shtml)
-- 2026-06-30 06:49 - [明星大侦探第四季](https://www.blog.kurohicncr.top/Article/details/28114024828.shtml)
-- 2026-06-30 06:49 - [科技牛市下的最大考验是什么](http://www.blog.kurohicncr.top/Article/details/0081435.shtml)
-- 2026-06-30 07:03 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/7011710261.shtml)
+- 2026-06-30 07:08 - [找到了10年前跪舔b站的视频](https://www.share.minike.top/Article/details/13996575761.shtml)
+- 2026-06-30 07:16 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/96302369.shtml)
+- 2026-06-30 07:07 - [张月感谢了每一公的队友](http://www.blog.minike.top/Article/details/123573.shtml)
+- 2026-06-30 07:15 - [在没有空调的巴黎感受世纪热浪](http://www.share.minike.top/Article/details/26338641.shtml)
+- 2026-06-30 07:02 - [歌剧老师锐评《歌手2026》第六期（下）](http://www.blog.minike.top/Article/details/76872360216.shtml)
+- 2026-06-30 07:05 - [浪姐成团夜爆笑吐槽](http://www.blog.minike.top/Article/details/33360094.shtml)
+- 2026-06-30 07:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.blog.kurohicncr.top/Article/details/62167487793.shtml)
+- 2026-06-30 07:08 - [女子发现孩子非现任亲生状告前任索赔](http://www.share.minike.top/Article/details/9854706.shtml)
+- 2026-06-30 06:49 - [当语文老师求助数学老师...](http://www.share.minike.top/Article/details/305349616.shtml)
+- 2026-06-30 06:49 - [世界杯连开三场决战](https://www.blog.minike.top/Article/details/878915417.shtml)
+- 2026-06-30 07:08 - [内马尔中场休息积极鼓励队友](https://www.blog.minike.top/Article/details/67546.shtml)
+- 2026-06-30 07:01 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/77409505466.shtml)
+- 2026-06-30 06:50 - [想问一下学日语的大佬，自学日语要怎么学？](https://www.blog.kurohicncr.top/Article/details/6395554.shtml)
+- 2026-06-30 07:10 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/032564670520.shtml)
+- 2026-06-30 06:48 - [千与千寻](http://www.blog.minike.top/Article/details/4708620007.shtml)

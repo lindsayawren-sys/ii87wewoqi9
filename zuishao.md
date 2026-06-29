@@ -1,54 +1,60 @@
-# 高盛上调韩国股市目标点位 维持对A股的“超配”评级
+# 国金证券：原油进入新的定价状态
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-高盛周三在一份报告中表示，人工智能（AI）芯片制造商股票的涨势可能持续，但回调风险正在上升。高盛亚太区首席股票策略师兼宏观研究联席主管Timothy Moe等分析师写道：“我们更看好北亚地区，其盈利增长最为强劲。”高盛上调韩国股市的目标点位，由9000点上调至12000点。高盛维持对中国内地A股的“超配”评级。高盛称，MSCI明晟亚太地区（除日本）指数今年以来上涨27%，但若扣
+霍尔木兹危机不是新一轮油价长期牛市的起点，而是旧定价机制松动后的风险再定价，虽然会带来阶段性中枢抬升，但需求决定了高油价难以长期站稳。 雪涛宏观笔记 文：国金宏观宋雪涛/联系人厉梦颖 过去几十年运行相对稳定的原油定价体系，正在同时受到实物端与制度端的双重冲击。美以伊冲突引发的霍尔木兹海峡危机削弱了市场对关键能源通道持续畅通的信任。阿联酋退群则暴露出是石油联盟内部协调能力下降。二
 
 ## 正文
 
-高盛周三在一份报告中表示，人工智能（AI）芯片制造商股票的涨势可能持续，但回调风险正在上升。
+霍尔木兹危机不是新一轮油价长期牛市的起点，而是旧定价机制松动后的风险再定价，虽然会带来阶段性中枢抬升，但需求决定了高油价难以长期站稳。
 
-高盛亚太区首席股票策略师兼宏观研究联席主管Timothy Moe等分析师写道：“我们更看好北亚地区，其盈利增长最为强劲。
+雪涛宏观笔记 文：国金宏观宋雪涛/联系人厉梦颖 过去几十年运行相对稳定的原油定价体系，正在同时受到实物端与制度端的双重冲击。
 
-”高盛上调韩国股市的目标点位，由9000点上调至12000点。
+美以伊冲突引发的霍尔木兹海峡危机削弱了市场对关键能源通道持续畅通的信任。
 
-高盛维持对中国内地A股的“超配”评级。
+阿联酋退群则暴露出是石油联盟内部协调能力下降。
 
-高盛称，MSCI明晟亚太地区（除日本）指数今年以来上涨27%，但若扣除韩国和中国台湾，该指数则下跌4%。
+二者叠加，意味着本轮油价波动不能仅用短期地缘风险溢价解释，原油定价机制本身可能也需要重新校准。
 
-高盛将MSCI明晟亚太地区（除日本）指数12个月目标点位由990点上调至1，080点。
+一、历史上油价的两次“换挡” 回顾1946年以来的原油市场，全球油价大体经历了两轮中枢的结构性上移，每一轮都对应着定价机制的切换。
 
-责任编辑：王永生
+第一轮中枢上移发生在1973年石油危机之后，是定价权转移、议价能力转移和货币体系重定价共同作用的结果。
+
+1973年以前，国际油价长期由西方石油巨头“七姐妹”主导，产油国更多处于价格和分成安排的接受方。
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yangui.md)
-- 2026-06-30 07:05 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/banal.md)
-- 2026-06-30 06:51 - [王菲谢霆锋十指紧扣好甜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dezzl.md)
-- 2026-06-30 07:08 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
-- 2026-06-30 07:06 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/erglp.md)
-- 2026-06-30 07:08 - [租房时你会更看重「住得舒服」，还是「每天通勤更方便」？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heuxl.md)
-- 2026-06-30 06:51 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/djmat.md)
-- 2026-06-30 06:44 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/csdrd.md)
-- 2026-06-30 06:59 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yiyao.md)
-- 2026-06-30 06:46 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cvfeg.md)
+- 2026-06-30 06:51 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uqiiz.md)
+- 2026-06-30 06:57 - [房价什么时候能涨](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oktav.md)
+- 2026-06-30 07:05 - [袁咏仪张智霖儿子寸头近照](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/njlik.md)
+- 2026-06-30 07:09 - [人类...完蛋了...](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dangkua.md)
+- 2026-06-30 07:16 - [美人鱼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kbcny.md)
+- 2026-06-30 07:04 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cgbee.md)
+- 2026-06-30 06:51 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pinqing.md)
+- 2026-06-30 07:10 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bugai.md)
+- 2026-06-30 07:12 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jahqx.md)
+- 2026-06-30 06:59 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/xuezhuang.md)
+- 2026-06-30 07:05 - [感动全网的699分女生想报考清华](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
+- 2026-06-30 06:49 - [日本反击率先破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lowsx.md)
+- 2026-06-30 07:18 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 06:49 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/slcpt.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [日本拟明年正式启动海底稀土开发计划](http://www.share.kurohicncr.top/Article/details/53930.shtml)
-- 2026-06-30 06:57 - [“草莓月亮”浪漫现身](https://www.share.minike.top/Article/details/53561892403.shtml)
-- 2026-06-30 06:52 - [UP主复刻百万英镑牛排套餐](https://www.blog.minike.top/Article/details/3132929723.shtml)
-- 2026-06-30 07:04 - [花少8要去世界杯举办国](https://www.blog.kurohicncr.top/Article/details/183346.shtml)
-- 2026-06-30 07:07 - [这种关系可能正在悄悄“催老”你](http://www.share.kurohicncr.top/Article/details/980069707011.shtml)
-- 2026-06-30 07:00 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/357092133519.shtml)
-- 2026-06-30 07:11 - [关晓彤一路小跑迎接爸爸探班](http://www.share.kurohicncr.top/Article/details/793671779.shtml)
-- 2026-06-30 06:52 - [恋与深空已删除锅里洗澡文案](https://www.share.kurohicncr.top/Article/details/696850.shtml)
-- 2026-06-30 06:54 - [锐评T1零封KC](http://www.share.kurohicncr.top/Article/details/5839898504.shtml)
-- 2026-06-30 07:05 - [2026年美加墨世界杯世界杯1/16决赛巴西 2:1 日本，如何评价这场比赛？](https://www.share.minike.top/Article/details/63699546.shtml)
-- 2026-06-30 06:42 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](http://www.blog.minike.top/Article/details/52099.shtml)
-- 2026-06-30 06:54 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/6895073.shtml)
-- 2026-06-30 06:57 - [花6万多相亲对象竟是50元请来的](https://www.blog.kurohicncr.top/Article/details/150739838.shtml)
-- 2026-06-30 06:56 - [蜘蛛侠:英雄归来](http://www.share.minike.top/Article/details/704637581178.shtml)
-- 2026-06-30 06:48 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/202994721783.shtml)
+- 2026-06-30 07:02 - [歌剧老师锐评歌手第6期](http://www.share.minike.top/Article/details/44735252869.shtml)
+- 2026-06-30 07:11 - [千香](https://www.share.kurohicncr.top/Article/details/6474434525.shtml)
+- 2026-06-30 06:56 - [深扒韩国队淘汰背后原因](http://www.blog.minike.top/Article/details/3249627529.shtml)
+- 2026-06-30 07:08 - [世界杯“美洲德比”7月1日开打](http://www.share.kurohicncr.top/Article/details/77472.shtml)
+- 2026-06-30 06:56 - [曝娱乐圈大部分明星失业](http://www.blog.kurohicncr.top/Article/details/75349442617.shtml)
+- 2026-06-30 07:00 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/64194269891.shtml)
+- 2026-06-30 06:58 - [当语文老师求助数学老师...](https://www.blog.minike.top/Article/details/97790535825.shtml)
+- 2026-06-30 07:08 - [湖北云南的这些涉汛信息都是假的](https://www.blog.kurohicncr.top/Article/details/197189037070.shtml)
+- 2026-06-30 06:53 - [科学备孕男女都要上心](https://www.share.minike.top/Article/details/27117831.shtml)
+- 2026-06-30 07:09 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/130637705353.shtml)
+- 2026-06-30 06:55 - [医药暴涨5.91%背后](http://www.share.minike.top/Article/details/29508712.shtml)
+- 2026-06-30 07:15 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.minike.top/Article/details/5728225754.shtml)
+- 2026-06-30 06:55 - [【大鸣王潮1566】真拿你没办法](https://www.share.minike.top/Article/details/6885312.shtml)
+- 2026-06-30 07:14 - [明星大侦探第四季](http://www.share.kurohicncr.top/Article/details/42042563.shtml)
+- 2026-06-30 07:14 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/70869766414.shtml)

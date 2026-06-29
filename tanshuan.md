@@ -1,57 +1,56 @@
-# 看懂银行，才看得懂银保：双邮、招行、平安几大渠道特点不一，未来渠道分水岭会在哪？
+# 中方代表：黎以停火已名存实亡 呼吁立即实现停火止战
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：险企高参 今年，银行对银保的重视或许已经到另一个level了。金融监管总局数据显示，2026年一季度末商业银行净息差为1.40%，系2025年连续三个季度持平后，再次回落。同时，报告期内银行非利息收入占比24.16%，占比较2025年四季度末22.53%有所抬升。息差继续贴地飞行，中间业务收入至关重要，其中保险代销尤甚。
+发布时间：2026年06月02日 12:54 来源：中国新闻网 当地时间6月1日下午，联合国安理会就黎以局势举行紧急会议。中国常驻联合国代表傅聪大使在会上发言指出，黎以局势急剧升级，以色列扩大对黎巴嫩的军事行动，持续扩张所谓“安全区”，甚至越过利塔尼河，占领博福特城堡。这是以军20多年来对黎巴嫩最深入的一次军事行动。以方还宣称要进一步扩大地面行动，其背后意图以及由此产生的严重后
 
 ## 正文
 
-登录新浪财经APP 搜索【信披】查看更多考评等级 来源：险企高参 今年，银行对银保的重视或许已经到另一个level了。
+发布时间：2026年06月02日 12:54 来源：中国新闻网 当地时间6月1日下午，联合国安理会就黎以局势举行紧急会议。
 
-金融监管总局数据显示，2026年一季度末商业银行净息差为1.40%，系2025年连续三个季度持平后，再次回落。
+中国常驻联合国代表傅聪大使在会上发言指出，黎以局势急剧升级，以色列扩大对黎巴嫩的军事行动，持续扩张所谓“安全区”，甚至越过利塔尼河，占领博福特城堡。
 
-同时，报告期内银行非利息收入占比24.16%，占比较2025年四季度末22.53%有所抬升。
+这是以军20多年来对黎巴嫩最深入的一次军事行动。
 
-息差继续贴地飞行，中间业务收入至关重要，其中保险代销尤甚。
+以方还宣称要进一步扩大地面行动，其背后意图以及由此产生的严重后果令国际社会深感担忧。
 
-过去谈银保，行业习惯盯保险公司。
+黎以停火已经名存实亡，国际社会必须在局势滑向更危险深渊前采取紧急行动。
 
-谁家新单高，谁家期交强，谁家在大行渠道排位靠前，谁家在“双邮”抢到资源，基本就是讨论主线。
+傅聪大使呼吁，要立即实现停火止战，平息紧张局势；要加大对黎巴嫩的支持，稳定国内局势；要保证联黎部队履职，维护地区稳定。
 
-但从银行视角看，银保有另一套账本。
-
-银行并不关心哪家险企更会讲故事，银行更关心几个现实问题：这类产品能不能带来稳定中收，能不能匹配客户风险偏好，能不能减少投诉，能不能在低利率环境下补足财富管理货架，能不能让网点和客户经理有东西可卖。
+(制作 徐妙巧) 责任编辑：【张燕玲】
 
 ## 相关推荐
 
-- 2026-06-30 06:59 - [博世们还在犹豫 美的们已经卖断货](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/houpeng.md)
-- 2026-06-30 07:06 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/aootd.md)
-- 2026-06-30 06:51 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ooemt.md)
-- 2026-06-30 07:04 - [奔跑吧·黄河篇第二季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nxeul.md)
-- 2026-06-30 06:53 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 06:54 - [明星大侦探第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tukni.md)
-- 2026-06-30 06:59 - [田中碧失误](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mangshe.md)
-- 2026-06-30 06:44 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
-- 2026-06-30 07:08 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpwtx.md)
-- 2026-06-30 06:53 - [真实感受到千香是积压剧了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frtnp.md)
-- 2026-06-30 07:11 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bezwh.md)
+- 2026-06-30 07:08 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cjcnr.md)
+- 2026-06-30 06:58 - [中国18岁小将再现一投夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/congmai.md)
+- 2026-06-30 07:03 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niumen.md)
+- 2026-06-30 07:15 - [上半年全国特种设备安全形势总体平稳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/llaao.md)
+- 2026-06-30 06:54 - [法媒点赞中国小区楼顶“人工降雨”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 06:52 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ranmian.md)
+- 2026-06-30 06:59 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pexlf.md)
+- 2026-06-30 06:56 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kwnjx.md)
+- 2026-06-30 06:48 - [被诋毁的“三系杂交稻”到底有多牛？看懂它才能看懂中国饭碗【主播说三农】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jjdmp.md)
+- 2026-06-30 06:59 - [《我落泪情绪零碎》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/taodao.md)
+- 2026-06-30 07:00 - [巴西vs日本首发名单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 07:08 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wolia.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:02 - [网友分享整套中医手术刀](https://www.share.minike.top/Article/details/28431752250.shtml)
-- 2026-06-30 06:50 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/80953281.shtml)
-- 2026-06-30 06:59 - [全网说丑的玫瑰空调卖了5万台](https://www.share.minike.top/Article/details/01375806735.shtml)
-- 2026-06-30 07:07 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/06550858.shtml)
-- 2026-06-30 06:43 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.blog.kurohicncr.top/Article/details/78802.shtml)
-- 2026-06-30 06:48 - [中国再对日本出重拳](http://www.share.kurohicncr.top/Article/details/594888693.shtml)
-- 2026-06-30 06:50 - [李准基参加文彩元婚礼](http://www.blog.minike.top/Article/details/92239362855.shtml)
-- 2026-06-30 07:07 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/64688.shtml)
-- 2026-06-30 06:43 - [当语文老师求助数学老师...](https://www.share.minike.top/Article/details/32586966082.shtml)
-- 2026-06-30 07:06 - [《贺子珍》](http://www.share.minike.top/Article/details/13383546.shtml)
-- 2026-06-30 06:50 - [诋毁袁隆平的网红岂能封号了之](http://www.blog.minike.top/Article/details/987461222573.shtml)
-- 2026-06-30 06:57 - [巴西队与日本队将展开正面对决](http://www.blog.kurohicncr.top/Article/details/277983.shtml)
-- 2026-06-30 06:48 - [我们看到的星星是不是有些已经不存在了？](https://www.blog.minike.top/Article/details/767787938.shtml)
-- 2026-06-30 06:54 - [巴拉圭先进球了](http://www.share.minike.top/Article/details/492716576.shtml)
-- 2026-06-30 06:47 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/43267819908.shtml)
+- 2026-06-30 07:02 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/93967049431.shtml)
+- 2026-06-30 07:05 - [如何改变自己太负责任的性格?](https://www.share.kurohicncr.top/Article/details/48522575626.shtml)
+- 2026-06-30 07:15 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](http://www.share.minike.top/Article/details/09685.shtml)
+- 2026-06-30 07:11 - [不开心就去看三年前的购物订单](http://www.blog.kurohicncr.top/Article/details/49360981.shtml)
+- 2026-06-30 07:06 - [中国代表在联合国点名日本所犯罪行](http://www.share.kurohicncr.top/Article/details/08958747.shtml)
+- 2026-06-30 07:00 - [人可以极简主义到什么程度？](https://www.share.minike.top/Article/details/728563.shtml)
+- 2026-06-30 07:13 - [“草莓月亮”浪漫现身](http://www.share.minike.top/Article/details/4478985.shtml)
+- 2026-06-30 06:55 - [你这一辈子有没有为进山姆拼过命？](http://www.share.minike.top/Article/details/5156595.shtml)
+- 2026-06-30 07:03 - [对最近的回应与澄清](http://www.blog.minike.top/Article/details/404239951.shtml)
+- 2026-06-30 07:11 - [荷兰vs摩洛哥前瞻](https://www.share.kurohicncr.top/Article/details/90376644.shtml)
+- 2026-06-30 06:54 - [德约科维奇向温网对手放狠话](http://www.blog.kurohicncr.top/Article/details/7696791828.shtml)
+- 2026-06-30 06:54 - [巴西vs日本](https://www.share.kurohicncr.top/Article/details/0296673.shtml)
+- 2026-06-30 06:52 - [TOP不是Prada全球普通人](http://www.blog.kurohicncr.top/Article/details/30804100848.shtml)
+- 2026-06-30 07:17 - [本科毕业生为何涌入专科学校](http://www.blog.kurohicncr.top/Article/details/72479.shtml)
+- 2026-06-30 07:04 - [截瘫男子因心疼妻子做出可站立轮椅](https://www.share.kurohicncr.top/Article/details/2224167.shtml)

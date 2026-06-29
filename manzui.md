@@ -1,59 +1,58 @@
-# 一“坨”云南普洱茶的世界之旅
+# 年内10余家上市酒企高管变动，多家酒企“换帅”，折射出存量博弈下怎样的人事逻辑？
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网大理6月4日电 题：一“坨”云南普洱茶的世界之旅 作者 陆希成 白玲 李嘉娴 近日，在中国百年老字号、著名茶企——云南下关沱茶(集团)股份有限公司的车间里，工人们正抓紧分拣、压制、装箱——沱茶、饼茶、散茶整装待发，为即将亮相于第10届中国—南亚博览会(以下简称“南博会”)备货。 拟于本月11日在云南省省会昆明市启幕的南博会，是中国面向南亚东南亚的重要商贸平台。今次预计有6
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！每经记者|杨建 每经编辑|彭水萍 6月2日，水井坊发布公告称，经公司董事会提名委员会审查并提名，同意自2026年6月1日起聘任干晓峰为公司总经理。周志铭自2026年6月1日起不再代行总经理职责。此时，距离原总经理胡庭洲辞任不到一个月。 历经数十年的高
 
 ## 正文
 
-中新网大理6月4日电 题：一“坨”云南普洱茶的世界之旅 作者 陆希成 白玲 李嘉娴 近日，在中国百年老字号、著名茶企——云南下关沱茶(集团)股份有限公司的车间里，工人们正抓紧分拣、压制、装箱——沱茶、饼茶、散茶整装待发，为即将亮相于第10届中国—南亚博览会(以下简称“南博会”)备货。
+新浪财经“酒价内参”重磅上线 知名白酒真实市场价尽在掌握 炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-拟于本月11日在云南省省会昆明市启幕的南博会，是中国面向南亚东南亚的重要商贸平台。
+每经记者|杨建 每经编辑|彭水萍 6月2日，水井坊发布公告称，经公司董事会提名委员会审查并提名，同意自2026年6月1日起聘任干晓峰为公司总经理。
 
-今次预计有60余个国家和地区、国际组织报名参展，意大利、乌拉圭、澳大利亚等7国使领馆首次以国家展团亮相；报名的专业采购商超1000家，境外采购商占比超67%。
+周志铭自2026年6月1日起不再代行总经理职责。
 
-对下关沱茶而言，由“坨”到“沱”，由边销到外销，以茶为媒，与世界分享的历史悠久而传奇。
+此时，距离原总经理胡庭洲辞任不到一个月。
 
-云南下关沱茶(集团)股份有限公司所在的大理市下关，曾是茶马古道重镇，也是国家级非遗“下关沱茶制作技艺”的发源地。
+历经数十年的高速增长之后，酒类行业告别增量红利时代，正式迈入存量博弈加剧、产业结构重塑的深度调整期。
 
-1902年，大理喜洲商帮“永昌祥”在此将普洱紧压茶定型，制成形似窝头的碗状茶，大量销往四川。
+身处其中，酒企管理团队首当其冲承担来自业绩和转型的压力。
 
-川滇方言把成团成块之物唤作“坨”，此茶初称“坨茶”；因主销四川沱江一带、当地人惯以沱江水冲泡，“沱江水，下关茶”渐渐叫开，“坨茶”便改称“沱茶”。
+据《每日经济新闻·将进酒》记者不完全统计，今年以来，上市酒企高管人事变动频繁，截至6月2日，贵州茅台、水井坊、酒鬼酒、迎驾贡酒、老白干酒、天佑德酒、皇台酒业、金枫酒业等10余家酒企涉及高管人事变动。
 
-彼时，下关沱茶也已漂洋过海。
+业内认为，虽然这些高管卸任原因各有不同，但经营业绩压力似乎是共同的背景。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [看看赶海都能遇到啥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guaisang.md)
-- 2026-06-30 06:50 - [绘画区你赢了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
-- 2026-06-30 07:11 - [警犬“多多”助民警寻回失联老人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/onqid.md)
-- 2026-06-30 06:55 - [【Reaction】女生最少的5款游戏](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/dunda.md)
-- 2026-06-30 07:02 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiaoduo.md)
-- 2026-06-30 06:51 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbzlf.md)
-- 2026-06-30 06:42 - [刺刀峡谷5人溺亡后户外队照常接单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozxki.md)
-- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rdcwm.md)
-- 2026-06-30 07:05 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bfulb.md)
-- 2026-06-30 07:02 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iaajh.md)
-- 2026-06-30 07:03 - [《男人至死是傻得儿》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hennei.md)
-- 2026-06-30 06:52 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenchun.md)
-- 2026-06-30 06:50 - [世界杯：德国vs巴拉圭](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gumiao.md)
+- 2026-06-30 07:05 - [在巴西能拍到什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dpfdd.md)
+- 2026-06-30 07:12 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kurau.md)
+- 2026-06-30 06:55 - [为什么会有「念旧」的心理？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbgd.md)
+- 2026-06-30 07:16 - [《男人至死是傻得儿》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rpfdt.md)
+- 2026-06-30 07:11 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hrugn.md)
+- 2026-06-30 07:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengda.md)
+- 2026-06-30 06:57 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uqiiz.md)
+- 2026-06-30 07:17 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/khilk.md)
+- 2026-06-30 06:53 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qkkpl.md)
+- 2026-06-30 06:55 - [巴西2比1日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/movqx.md)
+- 2026-06-30 07:07 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lvhzp.md)
+- 2026-06-30 06:58 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [警方通报男子涉嫌诋毁袁隆平科研成果](http://www.share.kurohicncr.top/Article/details/311133.shtml)
-- 2026-06-30 07:11 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.minike.top/Article/details/5429141.shtml)
-- 2026-06-30 06:51 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/229650.shtml)
-- 2026-06-30 06:57 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/33275114.shtml)
-- 2026-06-30 06:59 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](http://www.blog.kurohicncr.top/Article/details/07290745338.shtml)
-- 2026-06-30 06:52 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.share.minike.top/Article/details/66568.shtml)
-- 2026-06-30 06:54 - [MSI应援曲 如果季中成回忆](http://www.share.kurohicncr.top/Article/details/989113.shtml)
-- 2026-06-30 07:07 - [人类...完蛋了...](https://www.share.minike.top/Article/details/50994.shtml)
-- 2026-06-30 06:44 - [德国巴拉圭加时](http://www.share.kurohicncr.top/Article/details/94675940.shtml)
-- 2026-06-30 06:43 - [扬名立万](http://www.share.kurohicncr.top/Article/details/580278603.shtml)
-- 2026-06-30 06:59 - [【Reaction】女生最少的5款游戏](https://www.share.minike.top/Article/details/34387175.shtml)
-- 2026-06-30 06:53 - [檀健次王楚然吻戏看热了](https://www.blog.minike.top/Article/details/202016.shtml)
-- 2026-06-30 07:06 - [𝗩𝟴 'singasong' Official MV](https://www.blog.minike.top/Article/details/3383444003.shtml)
-- 2026-06-30 06:51 - [巴西VS日本前瞻](http://www.share.kurohicncr.top/Article/details/5448824.shtml)
-- 2026-06-30 06:44 - [赵今麦因“瘦而不柴”的体态出圈](http://www.blog.kurohicncr.top/Article/details/5151055814.shtml)
+- 2026-06-30 07:09 - [男生180+，有腹肌是什么体验？](https://www.share.kurohicncr.top/Article/details/5253348806.shtml)
+- 2026-06-30 07:10 - [内马尔中场休息积极鼓励队友](https://www.share.minike.top/Article/details/5844485.shtml)
+- 2026-06-30 07:09 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.kurohicncr.top/Article/details/83197944.shtml)
+- 2026-06-30 07:16 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/20517672998.shtml)
+- 2026-06-30 06:49 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](http://www.blog.kurohicncr.top/Article/details/67289392.shtml)
+- 2026-06-30 07:02 - [中国新一轮出口管制直指日本命脉](http://www.blog.minike.top/Article/details/48399562790.shtml)
+- 2026-06-30 06:48 - [姜妍走过来这段刘梅下班了](http://www.share.kurohicncr.top/Article/details/975070.shtml)
+- 2026-06-30 07:07 - [【全网首杀】涤墨作战7人870分](http://www.share.minike.top/Article/details/656168.shtml)
+- 2026-06-30 07:08 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://www.share.minike.top/Article/details/043210473.shtml)
+- 2026-06-30 07:04 - [内马尔替补](http://www.share.minike.top/Article/details/484119773630.shtml)
+- 2026-06-30 06:54 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/6984207.shtml)
+- 2026-06-30 07:10 - [美人鱼](https://www.blog.minike.top/Article/details/150540298.shtml)
+- 2026-06-30 07:17 - [女儿从清华毕业爸爸晒出17年对比照](http://www.blog.minike.top/Article/details/46248996.shtml)
+- 2026-06-30 06:52 - [欧盟分楼层开空调惹争议](https://www.share.minike.top/Article/details/469283.shtml)
+- 2026-06-30 06:49 - [亚洲球队全部告别世界杯](http://www.share.kurohicncr.top/Article/details/809005505753.shtml)

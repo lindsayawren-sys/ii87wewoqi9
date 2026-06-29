@@ -1,56 +1,59 @@
-# 两家新银行，获批筹建！
+# 第十八届海峡论坛·海峡百姓论坛在莆田举行
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-来源：金融时报 一省份深化农信社改革再现推进。 根据贵州省金融监管局于6月1日、2日的公开批复，毕节农村商业银行股份有限公司、黔西南农村商业银行股份有限公司在同一日（2026年5月26日）获批筹建。 贵州省联社改革在去年底有了实质性进展——金融监管部门批复同意贵州农商联合银行开业。在此之前的2025年年初，贵州省政府工作报告就已提到，要推动农村信用社改革落地，组建贵州农商联合银
+5月28日至30日，由福建省海外联谊会、台湾百姓文化交流协会等主办的第十八届海峡论坛·海峡百姓论坛在莆田湄洲岛举行。300余名来自海峡两岸的宗亲贤达、姓氏文化研究专家学者和民间社团负责人等齐聚妈祖故里，围绕“两岸同根 闽台一家”主题，共叙亲情乡谊，共商美好未来。中华海外联谊会副会长林锐，中华全国台湾同胞联谊会会长郑建闽，福建省政协副主席、省委统战部部长林文斌等出席相关活动。林锐
 
 ## 正文
 
-来源：金融时报 一省份深化农信社改革再现推进。
+5月28日至30日，由福建省海外联谊会、台湾百姓文化交流协会等主办的第十八届海峡论坛·海峡百姓论坛在莆田湄洲岛举行。
 
-根据贵州省金融监管局于6月1日、2日的公开批复，毕节农村商业银行股份有限公司、黔西南农村商业银行股份有限公司在同一日（2026年5月26日）获批筹建。
+300余名来自海峡两岸的宗亲贤达、姓氏文化研究专家学者和民间社团负责人等齐聚妈祖故里，围绕“两岸同根 闽台一家”主题，共叙亲情乡谊，共商美好未来。
 
-贵州省联社改革在去年底有了实质性进展——金融监管部门批复同意贵州农商联合银行开业。
+中华海外联谊会副会长林锐，中华全国台湾同胞联谊会会长郑建闽，福建省政协副主席、省委统战部部长林文斌等出席相关活动。
 
-在此之前的2025年年初，贵州省政府工作报告就已提到，要推动农村信用社改革落地，组建贵州农商联合银行；同年7月，贵州省联社官网发布了《关于组建贵州农村商业联合银行股份有限公司的公告》。
+林锐表示，无论国际形势、台海局势如何变化，两岸同胞走亲走近、走到一起的大潮流不会改变。
 
-在此基础上，今年初的贵州省深化农村信用社改革新闻发布会进一步明确，该省农信系统将形成“1家农商联合银行+9家市（州）农商银行”的新型两级法人架构，其中，9家市（州）农商银行正对应贵州省全部9个地市行政区农信机构地市统一法人改革。
+希望两岸同胞以海峡百姓论坛为契机溯源追宗、情系家国、秉持大义，凝聚反“独”促统力量，共同促进两岸交流融合，共谋两岸民生福祉，携手共创祖国统一、民族复兴的美好未来。
 
-事实上，贵州省地市级农商银行组建工作在贵州农商联合银行获批开业前已启动。
+郑建闽表示，要和平、要发展、要交流、要合作是两岸同胞共同的心声。
 
-2025年11月，贵阳、六盘水、毕节等地发布公告，明确推进新设合并组建市级统一法人农商银行。
+闽台经贸往来热络、台胞台企在闽发展环境持续优化，“登陆第一家园”更加便利、人文社会交流不断深化，希望广大台湾同胞顺应历史大势，坚守民族大义，坚定守护中华民族共同家园。
 
-根据原毕节农商银行去年底在原贵州省联社官网发布的公告，改革所涉及机构均已分别召开股东会并审议通过了新设合并的有关事项，共有包括原毕节农商银行等在内的5家农商银行、3家农信联社、2家村镇银行共同启动了毕节农商银行启动工作，合并后原新设合并各方解散并注销法人资格，其全部资产、业务、债权债务等均由组建后的毕节农村商业银行承继，员工由组建后的毕节农村商业银行妥善安置。
+林文斌表示，两岸交流合作是民心所向、大势所趋。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngvvt.md)
-- 2026-06-30 06:52 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/juanliao.md)
-- 2026-06-30 07:09 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
-- 2026-06-30 06:44 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/agnrb.md)
-- 2026-06-30 06:50 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/minan.md)
-- 2026-06-30 06:52 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jxmyr.md)
-- 2026-06-30 06:58 - [女子清吧被陌生人投放伟哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pimcb.md)
-- 2026-06-30 07:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duopeng.md)
-- 2026-06-30 06:43 - [巴西VS日本前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ultpz.md)
-- 2026-06-30 07:03 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qduho.md)
+- 2026-06-30 06:56 - [欧盟分楼层开空调惹争议](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nentx.md)
+- 2026-06-30 07:06 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanxing.md)
+- 2026-06-30 07:04 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tiybe.md)
+- 2026-06-30 07:09 - [女子用家人生日买彩票中1032万](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 07:15 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oowpo.md)
+- 2026-06-30 06:54 - [巴西替补奇兵读秒绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 07:02 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rmjqe.md)
+- 2026-06-30 06:54 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/thqmc.md)
+- 2026-06-30 07:05 - [老外对中国cosplay竟这样评价…](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhuzhuan.md)
+- 2026-06-30 07:01 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bukls.md)
+- 2026-06-30 07:01 - [第一炉香](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ganzhuang.md)
+- 2026-06-30 07:14 - [人类...完蛋了...](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 07:08 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jingchun.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:03 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/3071788.shtml)
-- 2026-06-30 07:07 - [中国再对日本出重拳](http://www.blog.minike.top/Article/details/755018011614.shtml)
-- 2026-06-30 06:50 - [男子身高一米八二仍做断骨增高](http://www.share.minike.top/Article/details/7170683899.shtml)
-- 2026-06-30 06:48 - [巴西绝杀](https://www.blog.minike.top/Article/details/03702.shtml)
-- 2026-06-30 06:48 - [收受1.98亿余元 周家斌被判无期](http://www.share.minike.top/Article/details/52513.shtml)
-- 2026-06-30 07:09 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/104517484860.shtml)
-- 2026-06-30 06:52 - [终于把好哥们处成了情侣!](https://www.share.kurohicncr.top/Article/details/0635942.shtml)
-- 2026-06-30 07:07 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.share.minike.top/Article/details/78337.shtml)
-- 2026-06-30 07:06 - [建议不要突然完全停止喝咖啡](http://www.blog.minike.top/Article/details/955094535087.shtml)
-- 2026-06-30 06:46 - [巴西若输日本将创36年最差纪录](https://www.share.kurohicncr.top/Article/details/643462044131.shtml)
-- 2026-06-30 06:42 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://www.share.kurohicncr.top/Article/details/800805891.shtml)
-- 2026-06-30 06:58 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/59601711.shtml)
-- 2026-06-30 06:45 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://www.share.kurohicncr.top/Article/details/16582798.shtml)
-- 2026-06-30 06:56 - [深扒韩国队淘汰背后原因](http://www.blog.kurohicncr.top/Article/details/25555481.shtml)
-- 2026-06-30 06:57 - [网友分享整套中医手术刀](http://www.share.minike.top/Article/details/371233.shtml)
+- 2026-06-30 07:02 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://www.share.minike.top/Article/details/62923156.shtml)
+- 2026-06-30 07:00 - [张帅晋级温网次轮](https://www.blog.minike.top/Article/details/59215000271.shtml)
+- 2026-06-30 06:54 - [【硬核拆解】汽车人到底离我们有多远？](http://www.share.minike.top/Article/details/84536.shtml)
+- 2026-06-30 06:48 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](http://www.blog.minike.top/Article/details/12450.shtml)
+- 2026-06-30 06:51 - [王灿兮被烫伤两年后维权成功](http://www.blog.kurohicncr.top/Article/details/07564.shtml)
+- 2026-06-30 06:55 - [巴拉圭先进球了](https://www.share.minike.top/Article/details/51168.shtml)
+- 2026-06-30 07:11 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.minike.top/Article/details/89395.shtml)
+- 2026-06-30 07:01 - [德国巴拉圭加时](https://www.blog.kurohicncr.top/Article/details/60111037.shtml)
+- 2026-06-30 07:08 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/32366252358.shtml)
+- 2026-06-30 06:59 - [又一家县级医院关停门诊输液大厅](https://www.share.minike.top/Article/details/81428060.shtml)
+- 2026-06-30 06:49 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://www.share.kurohicncr.top/Article/details/16369.shtml)
+- 2026-06-30 07:17 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/0341091.shtml)
+- 2026-06-30 07:06 - [毒液2](https://www.share.minike.top/Article/details/835894497402.shtml)
+- 2026-06-30 06:55 - [全球最火存储ETF纳入兆易创新](http://www.share.kurohicncr.top/Article/details/917136421.shtml)
+- 2026-06-30 06:52 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/239223.shtml)

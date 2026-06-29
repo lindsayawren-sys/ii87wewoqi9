@@ -1,58 +1,56 @@
-# 摩根士丹利即将开放万亿资管业务接口 接入各类人工智能智能体
+# 开盘：美股周二低开 市场关注美伊局势发展
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-摩根士丹利很快将向数千家企业的人工智能智能体开放旗下一条核心财富管理业务通道，这也是华尔街大型投行中较早对外接入第三方AI工具平台的案例。 摩根士丹利职场业务首席产品官马克·米切尔介绍，本次落地后，客户侧自主AI智能体可绕开面向自然人设计的传统软件交互界面，直接从券商股权管理平台ShareWorks、Equity Edge调取数据与分析结论。 摩根士丹利高管此前披露，依托企业职
+北京时间6月2日晚，美股周二低开。交易员正在消化近期美股迭创新高的走势，同时关注美伊关系最新进展以及主要科技股的动向。 道指跌209.77点，跌幅为0.41%，报50869.11点；纳指跌64.17点，跌幅为0.24%，报27022.64点；标普500指数跌14.04点，跌幅为0.18%，报7585.92点。 Alphabet股价走低，此前该公司表示将通过出售股票筹集800亿美
 
 ## 正文
 
-摩根士丹利很快将向数千家企业的人工智能智能体开放旗下一条核心财富管理业务通道，这也是华尔街大型投行中较早对外接入第三方AI工具平台的案例。
+北京时间6月2日晚，美股周二低开。
 
-摩根士丹利职场业务首席产品官马克·米切尔介绍，本次落地后，客户侧自主AI智能体可绕开面向自然人设计的传统软件交互界面，直接从券商股权管理平台ShareWorks、Equity Edge调取数据与分析结论。
+交易员正在消化近期美股迭创新高的走势，同时关注美伊关系最新进展以及主要科技股的动向。
 
-摩根士丹利高管此前披露，依托企业职场财富布局，公司已归集规模达1.2万亿美元的受托资产。
+道指跌209.77点，跌幅为0.41%，报50869.11点；纳指跌64.17点，跌幅为0.24%，报27022.64点；标普500指数跌14.04点，跌幅为0.18%，报7585.92点。
 
-米切尔表示：“在我们预判的未来业态中，企业客户将不再手动登录ShareWorks与Equity Edge系统。
+Alphabet股价走低，此前该公司表示将通过出售股票筹集800亿美元，用于人工智能基础设施建设。
 
-” 取而代之的是，客户在企业内网环境部署基于智能体AI的工具，全程由AI程序自动对接摩根士丹利后台平台。
+其中包括来自伯克希尔-哈撒韦的100亿美元投资。
 
-目前该行已向少量合作客户开放试点接入权限，计划最晚于明年全面落地，覆盖其3400家企业托管客户。
+谷歌在周一盘后交易中曾一度上涨，随后转跌。
 
-此举进一步印证：华尔街正在布局由AI智能体承接现有人工软件操作的行业新形态。
+Vital Knowledge的亚当-克里萨富利表示，Alphabet公司售股融资的消息“最终是利空的”。
 
-摩根大通、高盛等同业虽已在内部落地AI智能体，用于代码编写等工作，但尚未官宣对外开放系统直连第三方AI智能体的相关方案。
+他指出：“如果说资本主义历史上最伟大的商业模式（就规模、增长、利润率和现金流而言）都无法靠自身内部运营来为人工智能提供资金，那还有谁能做到？
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [点菜也要教吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ckpph.md)
-- 2026-06-30 07:00 - [五哈和他们的朋友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/deirp.md)
-- 2026-06-30 06:45 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shuaibao.md)
-- 2026-06-30 06:42 - [月亮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shaocan.md)
-- 2026-06-30 06:49 - [《恋与深空》被指触碰民族伤痛红线](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/decun.md)
-- 2026-06-30 06:43 - [极限挑战第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/khkhl.md)
-- 2026-06-30 07:10 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bnldl.md)
-- 2026-06-30 07:05 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/benlao.md)
-- 2026-06-30 06:43 - [男子中医院拔火罐致浅2度烧伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shengmin.md)
-- 2026-06-30 06:47 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pengnan.md)
-- 2026-06-30 06:57 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ggiqd.md)
-- 2026-06-30 06:52 - [森保一 保守](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nubin.md)
+- 2026-06-30 06:48 - [刘宇宁高情商化解谁站C位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/afhyh.md)
+- 2026-06-30 06:54 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqrie.md)
+- 2026-06-30 07:00 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/khfgs.md)
+- 2026-06-30 06:55 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiuduan.md)
+- 2026-06-30 07:01 - [有酒店推行24小时退房制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kzknr.md)
+- 2026-06-30 07:11 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songkang.md)
+- 2026-06-30 07:02 - [巴西扳平比分](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
+- 2026-06-30 07:06 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ruixing.md)
+- 2026-06-30 06:55 - [《虎吹最难绷の一集》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shanre.md)
+- 2026-06-30 07:12 - [沙丘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [速度与激情9](http://www.share.kurohicncr.top/Article/details/23882227.shtml)
-- 2026-06-30 07:04 - [DeepSeek V4正式版要来了](http://www.share.minike.top/Article/details/744492246912.shtml)
-- 2026-06-30 06:56 - [宗元舞2.0 迟来的50万女装福利](http://www.share.kurohicncr.top/Article/details/05392616114.shtml)
-- 2026-06-30 06:47 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.minike.top/Article/details/70404.shtml)
-- 2026-06-30 07:03 - [时光音乐会](https://www.share.minike.top/Article/details/60765571184.shtml)
-- 2026-06-30 06:58 - [巴西2比1日本](https://www.share.kurohicncr.top/Article/details/883958720.shtml)
-- 2026-06-30 06:42 - [法国生态部长反对大规模安装空调](https://www.share.minike.top/Article/details/712247.shtml)
-- 2026-06-30 06:59 - [这些7月新规影响你我](http://www.blog.minike.top/Article/details/85385191.shtml)
-- 2026-06-30 06:48 - [男子中医院拔火罐致浅2度烧伤](http://www.blog.kurohicncr.top/Article/details/698141229.shtml)
-- 2026-06-30 07:08 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.share.minike.top/Article/details/34403.shtml)
-- 2026-06-30 07:10 - [DeepSeek启动成立来最大规模招聘](http://www.blog.minike.top/Article/details/296388995139.shtml)
-- 2026-06-30 06:45 - [荷兰vs摩洛哥前瞻](https://www.share.minike.top/Article/details/68330.shtml)
-- 2026-06-30 06:49 - [人可以极简主义到什么程度？](https://www.share.kurohicncr.top/Article/details/16153371190.shtml)
-- 2026-06-30 07:05 - [医药暴涨5.91%背后](http://www.share.kurohicncr.top/Article/details/626624597.shtml)
-- 2026-06-30 07:02 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.blog.kurohicncr.top/Article/details/49547696773.shtml)
+- 2026-06-30 07:01 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/70408220.shtml)
+- 2026-06-30 07:14 - [女子清吧被陌生人投放伟哥](https://www.share.minike.top/Article/details/896486.shtml)
+- 2026-06-30 06:51 - [“柠檬茶能换怀表？”](http://www.blog.minike.top/Article/details/331931392.shtml)
+- 2026-06-30 07:11 - [有人见过武则天的画像吗，非常好奇？](https://www.share.kurohicncr.top/Article/details/830510070.shtml)
+- 2026-06-30 06:55 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/731916.shtml)
+- 2026-06-30 06:48 - [辛纳vs凯茨玛诺维奇](https://www.blog.minike.top/Article/details/03699.shtml)
+- 2026-06-30 07:17 - [恋与深空已删除锅里洗澡文案](http://www.blog.minike.top/Article/details/338530.shtml)
+- 2026-06-30 07:05 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.blog.kurohicncr.top/Article/details/26679715625.shtml)
+- 2026-06-30 07:12 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/735767934.shtml)
+- 2026-06-30 07:07 - [皇马向委内瑞拉受灾群众捐赠100万欧](http://www.share.minike.top/Article/details/504466137189.shtml)
+- 2026-06-30 07:02 - [大学生遇地震裹被子从5楼冲下](http://www.blog.kurohicncr.top/Article/details/686076.shtml)
+- 2026-06-30 07:05 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/97699.shtml)
+- 2026-06-30 07:11 - [宋亚轩有啥话不憋心里全都说出来](http://www.share.kurohicncr.top/Article/details/738271617683.shtml)
+- 2026-06-30 07:10 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/453483607.shtml)
+- 2026-06-30 07:17 - [巴拉圭先进球了](https://www.blog.minike.top/Article/details/244932.shtml)

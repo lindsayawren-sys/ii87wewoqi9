@@ -1,45 +1,58 @@
-# 中国再保险：将于8月21日派发末期股息每股0.0691元
+# 台积电股价创新高，英伟达引爆AI基础设施新浪潮
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-6月4日金融一线消息，中国再保今日发布公告称，将于2026年8月21日派发截至2025年12月31日止年度的末期股息每股0.0691元。 责任编辑：曹睿潼
+台积电股价周一大幅上涨逾5%，刷新历史纪录，总市值突破2.28万亿美元。此次涨势主要由两大因素驱动：英伟达最新AI芯片发布及台积电3nm制程涨价预期。 在台北Computex展会上，英伟达CEO黄仁勋宣布推出专为AI智能体工作负载设计的Vera CPU，目前已全面量产。该处理器在智能体AI、强化学习及数据处理等工作负载方面，任务完成速度比x86 CPU快1.8倍。首批大型用户包
 
 ## 正文
 
-6月4日金融一线消息，中国再保今日发布公告称，将于2026年8月21日派发截至2025年12月31日止年度的末期股息每股0.0691元。
+台积电股价周一大幅上涨逾5%，刷新历史纪录，总市值突破2.28万亿美元。
 
-责任编辑：曹睿潼
+此次涨势主要由两大因素驱动：英伟达最新AI芯片发布及台积电3nm制程涨价预期。
+
+在台北Computex展会上，英伟达CEO黄仁勋宣布推出专为AI智能体工作负载设计的Vera CPU，目前已全面量产。
+
+该处理器在智能体AI、强化学习及数据处理等工作负载方面，任务完成速度比x86 CPU快1.8倍。
+
+首批大型用户包括OpenAI、Anthropic及SpaceX。
+
+英伟达同时宣布推出RTX Spark PC芯片，正式进军个人电脑处理器市场，与英特尔、AMD展开正面竞争。
+
+黄仁勋表示，英伟达未来每年将在台湾投入约1500亿美元，用于巩固AI供应链。
+
+他称台湾为“AI革命的中心”，并强调英伟达与台积电将“紧密合作以保障产能和零部件供应”。
 
 ## 相关推荐
 
-- 2026-06-30 07:11 - [蔚来车主罚站](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bkluu.md)
-- 2026-06-30 06:57 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaiyong.md)
-- 2026-06-30 06:48 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chvnj.md)
-- 2026-06-30 06:47 - [女儿从清华毕业爸爸晒出17年对比照](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pminl.md)
-- 2026-06-30 07:01 - [月亮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
-- 2026-06-30 07:00 - [为什么香港的冲厕水是咸的？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/reapz.md)
-- 2026-06-30 06:56 - [苹果都没玩明白的液态玻璃，安卓能行？MagicOS11设计预览](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tfmcr.md)
-- 2026-06-30 06:54 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hzryh.md)
-- 2026-06-30 07:03 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
-- 2026-06-30 06:48 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 07:11 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qbrmy.md)
+- 2026-06-30 07:05 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nanchong.md)
+- 2026-06-30 06:50 - [这种关系可能正在悄悄“催老”你](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
+- 2026-06-30 06:53 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ugvay.md)
+- 2026-06-30 07:01 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jeowd.md)
+- 2026-06-30 07:03 - [范志毅看好日本队淘汰巴西](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhualiang.md)
+- 2026-06-30 06:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iizrl.md)
+- 2026-06-30 07:12 - [世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qbphc.md)
+- 2026-06-30 07:02 - [超神人辉夜姬 第二集](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 07:09 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzalb.md)
+- 2026-06-30 07:13 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/txjtt.md)
+- 2026-06-30 07:02 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/songguo.md)
+- 2026-06-30 06:48 - [姜妍走过来这段刘梅下班了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nuanzhang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [佐野海舟远射破门](http://www.share.kurohicncr.top/Article/details/399686.shtml)
-- 2026-06-30 07:07 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://www.share.minike.top/Article/details/5451087.shtml)
-- 2026-06-30 07:05 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/569310382920.shtml)
-- 2026-06-30 06:47 - [85花告别古偶](http://www.blog.minike.top/Article/details/3539612597.shtml)
-- 2026-06-30 07:06 - [同样是装空调差别怎么能这么大](https://www.blog.minike.top/Article/details/2709962.shtml)
-- 2026-06-30 06:49 - [五哈和他们的朋友](http://www.share.minike.top/Article/details/09886.shtml)
-- 2026-06-30 07:03 - [扫黑风暴](https://www.blog.minike.top/Article/details/22187.shtml)
-- 2026-06-30 07:00 - [有人见过武则天的画像吗，非常好奇？](http://www.blog.kurohicncr.top/Article/details/2887664.shtml)
-- 2026-06-30 07:05 - [模仿老妈打牌赢了和输了的区别！](https://www.blog.kurohicncr.top/Article/details/8847936.shtml)
-- 2026-06-30 06:53 - [美团、淘宝闪购、京东外卖达成共识](https://www.share.minike.top/Article/details/301014.shtml)
-- 2026-06-30 07:05 - [贺峻霖拎着爱马仕回国了](http://www.blog.kurohicncr.top/Article/details/39872.shtml)
-- 2026-06-30 06:42 - [千香](https://www.share.minike.top/Article/details/77386525.shtml)
-- 2026-06-30 06:48 - [当我知道豆包有后台审核人员](http://www.blog.minike.top/Article/details/55633.shtml)
-- 2026-06-30 07:05 - [2026MSI应援曲《如果季中成回忆》](https://www.blog.kurohicncr.top/Article/details/640833.shtml)
-- 2026-06-30 07:02 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](https://www.share.minike.top/Article/details/879172798894.shtml)
+- 2026-06-30 06:50 - [贾赦为什么当着贾政的面对贾环说：将来这世袭的前程定跑不了你袭呢。他将宝玉置于何地？](http://www.blog.kurohicncr.top/Article/details/185238929681.shtml)
+- 2026-06-30 07:10 - [杨紫被质疑未使用原名纯属误解](https://www.blog.minike.top/Article/details/556736.shtml)
+- 2026-06-30 07:10 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/71843934.shtml)
+- 2026-06-30 07:05 - [深扒韩国队淘汰背后原因](http://www.share.kurohicncr.top/Article/details/14431192663.shtml)
+- 2026-06-30 07:12 - [巴西2比1日本](http://www.blog.kurohicncr.top/Article/details/353942823276.shtml)
+- 2026-06-30 07:04 - [一见倾心](http://www.share.minike.top/Article/details/8977829.shtml)
+- 2026-06-30 06:54 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/9481262.shtml)
+- 2026-06-30 07:04 - [美媒：美军第五舰队司令部已无法使用](http://www.blog.kurohicncr.top/Article/details/5936932.shtml)
+- 2026-06-30 07:06 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.share.kurohicncr.top/Article/details/068187141.shtml)
+- 2026-06-30 06:58 - [媒体评哈兰德之歌火了](http://www.blog.minike.top/Article/details/89106642973.shtml)
+- 2026-06-30 06:54 - [想问一下学日语的大佬，自学日语要怎么学？](http://www.share.minike.top/Article/details/9825316.shtml)
+- 2026-06-30 07:00 - [美人鱼](https://www.share.kurohicncr.top/Article/details/8923111654.shtml)
+- 2026-06-30 07:07 - [刺刀峡谷5人溺亡后户外队照常接单](https://www.blog.kurohicncr.top/Article/details/93681.shtml)
+- 2026-06-30 07:11 - [曝多支争冠球队有意塞克斯顿](https://www.share.minike.top/Article/details/56341466543.shtml)
+- 2026-06-30 06:55 - [女子用家人生日买彩票中1032万](https://www.blog.minike.top/Article/details/56920860706.shtml)

@@ -1,54 +1,56 @@
-# 粤港澳大湾区今年开行国际班列突破2万车
+# 52亿买不来的执行力：光大证券十年三罚，踩进同一个合规坑
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-6月3日，X8186次中欧班列从广州东部公铁联运枢纽增城西站鸣笛启程，满载电子产品、家用电器等货物，经霍尔果斯口岸出境，前往欧洲地区。至此，今年，粤港澳大湾区国际班列累计开行突破2万车，货值超90亿元。面对持续加密的国际班列开行需求，国铁广州局加强与海关、口岸站业务对接，大力推广“铁路快速通关”模式。按照“优先配空、优先装车、优先挂运”原则，全面优化受理、审核、查验、放行全流程
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：行家券业 52亿买不来的执行力：光大证券十年三罚，踩进同一个合规坑 这可能是券业有史以来最讽刺的一张警示函。 2016年，光大证券因境外投资绕过总部决策、缺失合规审查，最终爆雷亏损52.94亿元，差点拖垮整个公司。监管为此专门修订法规，划出两条跨境业务铁律：境外重大事项必须履行总部集体审议，必须由合规
 
 ## 正文
 
-6月3日，X8186次中欧班列从广州东部公铁联运枢纽增城西站鸣笛启程，满载电子产品、家用电器等货物，经霍尔果斯口岸出境，前往欧洲地区。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-至此，今年，粤港澳大湾区国际班列累计开行突破2万车，货值超90亿元。
+来源：行家券业 52亿买不来的执行力：光大证券十年三罚，踩进同一个合规坑 这可能是券业有史以来最讽刺的一张警示函。
 
-面对持续加密的国际班列开行需求，国铁广州局加强与海关、口岸站业务对接，大力推广“铁路快速通关”模式。
+2016年，光大证券因境外投资绕过总部决策、缺失合规审查，最终爆雷亏损52.94亿元，差点拖垮整个公司。
 
-按照“优先配空、优先装车、优先挂运”原则，全面优化受理、审核、查验、放行全流程作业，实现资料提交、货物报关、装车组织全链条提速，货物发送实现“货到即装、装完即走”。
+监管为此专门修订法规，划出两条跨境业务铁律：境外重大事项必须履行总部集体审议，必须由合规负责人出具书面审查意见。
 
-目前，粤港澳大湾区国际班列已形成覆盖欧洲、中亚、东盟的多元化线路网络，货物种类从家用电器、电子产品等传统优势产品，拓展到新能源汽车、光伏组件等高附加值货物，服务外贸企业超1万家。
+十年后的2026年5月12日，上海证监局对光大证券出具警示函：它又犯了一模一样的错误。
 
-未来，铁路部门将进一步深化“班列+”模式创新，推进“铁水联运”“铁公联运”合作，延伸服务链条，助力更多湾区好物走向世界。
+52亿换来的铁律，十年后仍未落地 MPS事件的代价，至今仍刻在光大证券的财报里。
 
-(央视新闻客户端 总台记者 魏星 王思元)
+2018年，归母净利润从30.15亿元骤降至1.03亿元，同比暴跌96.57%，行业排名从第10跌至第38位。
+
+2018-2021年，累计计提预计负债52.94亿元，相当于这五年中公司利润总额的一半。
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [王健林甩卖超80座万达广场](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/taukk.md)
-- 2026-06-30 07:02 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggmey.md)
-- 2026-06-30 07:05 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adxfe.md)
-- 2026-06-30 06:59 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/feirj.md)
-- 2026-06-30 07:10 - [起风了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbfvx.md)
-- 2026-06-30 07:01 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaibei.md)
-- 2026-06-30 06:51 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaici.md)
-- 2026-06-30 06:43 - [全球最火存储ETF纳入兆易创新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cydea.md)
-- 2026-06-30 07:09 - [本科毕业生为何涌入专科学校](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhongdai.md)
-- 2026-06-30 06:45 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiryb.md)
+- 2026-06-30 07:00 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nxhuo.md)
+- 2026-06-30 07:01 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tanghai.md)
+- 2026-06-30 07:05 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 07:08 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xunnao.md)
+- 2026-06-30 06:56 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nlthz.md)
+- 2026-06-30 06:51 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
+- 2026-06-30 06:52 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hhwtu.md)
+- 2026-06-30 06:48 - [毒液2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pvoie.md)
+- 2026-06-30 07:12 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kwjva.md)
+- 2026-06-30 06:53 - [一直以为方便面汤是要倒掉的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cpugr.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [女子清吧被陌生人投放伟哥](http://www.share.kurohicncr.top/Article/details/490889504.shtml)
-- 2026-06-30 07:04 - [我们的少年时代2](http://www.blog.minike.top/Article/details/918997.shtml)
-- 2026-06-30 06:54 - [领克07GT搭载超跑同源MRC悬架](https://www.blog.kurohicncr.top/Article/details/70672.shtml)
-- 2026-06-30 07:05 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](http://www.share.minike.top/Article/details/4207035.shtml)
-- 2026-06-30 06:43 - [宜宾地震造成15人受轻伤](http://www.share.kurohicncr.top/Article/details/704482.shtml)
-- 2026-06-30 07:07 - [小娘惹](https://www.blog.kurohicncr.top/Article/details/40254340.shtml)
-- 2026-06-30 06:44 - [存储三巨头遭遇集体诉讼](https://www.blog.kurohicncr.top/Article/details/12299702296.shtml)
-- 2026-06-30 06:48 - [锐评T1零封KC](https://www.share.kurohicncr.top/Article/details/2885944.shtml)
-- 2026-06-30 07:09 - [看看赶海都能遇到啥](https://www.share.kurohicncr.top/Article/details/602198.shtml)
-- 2026-06-30 06:47 - [世界杯：德国vs巴拉圭](https://www.blog.minike.top/Article/details/19664128.shtml)
-- 2026-06-30 06:45 - [对最近的回应与澄清](http://www.blog.kurohicncr.top/Article/details/2696851848.shtml)
-- 2026-06-30 06:50 - [网瘾賊大的阿嬷](https://www.blog.minike.top/Article/details/1010475132.shtml)
-- 2026-06-30 06:51 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/561520.shtml)
-- 2026-06-30 07:04 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/749738647.shtml)
-- 2026-06-30 06:57 - [AI手机进入Agent时代](http://www.share.kurohicncr.top/Article/details/0520092701.shtml)
+- 2026-06-30 07:01 - [欧盟分楼层开空调惹争议](https://www.blog.minike.top/Article/details/8459005113.shtml)
+- 2026-06-30 06:54 - [卡塞米罗头球破门 巴西扳平日本](https://www.blog.minike.top/Article/details/6851092647.shtml)
+- 2026-06-30 07:10 - [【全网首杀】涤墨作战7人870分](https://www.blog.minike.top/Article/details/5609113.shtml)
+- 2026-06-30 06:54 - [新郎接亲玩石头剪刀布连胜十几次](https://www.blog.kurohicncr.top/Article/details/59068686.shtml)
+- 2026-06-30 06:59 - [恋与深空制作组回应近期争议](https://www.blog.minike.top/Article/details/560861057.shtml)
+- 2026-06-30 07:09 - [怕iPhone涨价的用户已紧急换新](https://www.share.kurohicncr.top/Article/details/376935.shtml)
+- 2026-06-30 07:07 - [卡塞米罗头球破门 巴西扳平日本](http://www.blog.minike.top/Article/details/67166346.shtml)
+- 2026-06-30 06:58 - [上半年全国特种设备安全形势总体平稳](http://www.blog.kurohicncr.top/Article/details/90449046.shtml)
+- 2026-06-30 07:13 - [美媒：美军第五舰队司令部已无法使用](https://www.blog.kurohicncr.top/Article/details/0912104901.shtml)
+- 2026-06-30 07:06 - [英语考了145的人竟然教数学](https://www.blog.kurohicncr.top/Article/details/149944.shtml)
+- 2026-06-30 06:52 - [UP主复刻百万英镑牛排套餐](https://www.blog.kurohicncr.top/Article/details/5689552983.shtml)
+- 2026-06-30 07:15 - [第一炉香](http://www.share.minike.top/Article/details/812795.shtml)
+- 2026-06-30 07:10 - [杨某诋毁袁隆平院士科研成果被刑拘](http://www.share.minike.top/Article/details/1795383443.shtml)
+- 2026-06-30 07:15 - [詹姆斯下赛季去哪](https://www.blog.kurohicncr.top/Article/details/581131145.shtml)
+- 2026-06-30 07:13 - [恋与深空回应争议](http://www.share.kurohicncr.top/Article/details/347295744702.shtml)

@@ -1,44 +1,50 @@
-# 教育部：为特殊考生提供合理便利服务
+# 京信通信遭执行董事张飞虎减持33.6万股 每股作价约1.3港元
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-发布时间：2026年06月04日 09:08 来源：央视新闻 责任编辑：【李骏】
+香港联交所最新资料显示，5月27日，执行董事张飞虎减持京信通信（02342）33.6万股，每股作价1.3045港元，总金额约为43.83万港元。减持后最新持股数目约为0股。责任编辑：卢昱君
 
 ## 正文
 
-发布时间：2026年06月04日 09:08 来源：央视新闻 责任编辑：【李骏】
+香港联交所最新资料显示，5月27日，执行董事张飞虎减持京信通信（02342）33.6万股，每股作价1.3045港元，总金额约为43.83万港元。
+
+减持后最新持股数目约为0股。
+
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:46 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qzghf.md)
-- 2026-06-30 07:05 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oblgo.md)
-- 2026-06-30 06:47 - [浙江队将获百万元世界杯补偿](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 07:06 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 06:43 - [巴西绝杀](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/miaocong.md)
-- 2026-06-30 07:05 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 06:57 - [怕iPhone涨价的用户已紧急换新](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nrbei.md)
-- 2026-06-30 06:46 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkqzb.md)
-- 2026-06-30 06:43 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/msbvd.md)
-- 2026-06-30 07:11 - [锐评T1零封KC](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kffxz.md)
-- 2026-06-30 07:11 - [奔跑吧·黄河篇第二季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ppsar.md)
-- 2026-06-30 06:42 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 06:57 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langding.md)
+- 2026-06-30 06:57 - [UP主复刻百万英镑牛排套餐](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
+- 2026-06-30 07:05 - [任素汐舞台上唱《王招君》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lmmmp.md)
+- 2026-06-30 06:51 - [宜宾地震食客避难后折返 无人逃单](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/paise.md)
+- 2026-06-30 06:48 - [女子常喝饮料提神 满口长“可乐牙”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yuantang.md)
+- 2026-06-30 06:48 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
+- 2026-06-30 07:05 - [男子在非洲务工死亡 公司不认可工亡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 06:54 - [世界杯巴西vs日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/quliang.md)
+- 2026-06-30 06:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 07:07 - [董卿父亲发文悼念亡妻](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elugl.md)
+- 2026-06-30 07:03 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/shuitian.md)
+- 2026-06-30 07:06 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pcnhe.md)
+- 2026-06-30 06:53 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yangliang.md)
+- 2026-06-30 07:06 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tijue.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:47 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](http://www.blog.kurohicncr.top/Article/details/331953641981.shtml)
-- 2026-06-30 07:02 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/1254463535.shtml)
-- 2026-06-30 06:59 - [12人以护剧为名敲诈剧组艺人被抓](https://www.blog.minike.top/Article/details/63467196.shtml)
-- 2026-06-30 06:55 - [巴西扳平比分](https://www.blog.kurohicncr.top/Article/details/5235070.shtml)
-- 2026-06-30 06:59 - [警犬“多多”助民警寻回失联老人](http://www.share.kurohicncr.top/Article/details/097136500.shtml)
-- 2026-06-30 06:47 - [马航MH370传来最新消息](https://www.blog.kurohicncr.top/Article/details/885131.shtml)
-- 2026-06-30 06:48 - [卖菜老人获博主帮助后遇车祸去世](https://www.blog.kurohicncr.top/Article/details/89406.shtml)
-- 2026-06-30 06:59 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/136474838.shtml)
-- 2026-06-30 07:03 - [急先锋](https://www.share.kurohicncr.top/Article/details/231728512600.shtml)
-- 2026-06-30 06:54 - [欧洲家电巨头为何输掉了这个夏天](https://www.share.minike.top/Article/details/18984760.shtml)
-- 2026-06-30 06:44 - [日本硬刚巴西谁能赢](http://www.share.kurohicncr.top/Article/details/8624270814.shtml)
-- 2026-06-30 06:55 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.minike.top/Article/details/203247841.shtml)
-- 2026-06-30 06:48 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/162063691251.shtml)
-- 2026-06-30 07:11 - [为什么会有「念旧」的心理？](https://www.share.kurohicncr.top/Article/details/434345.shtml)
-- 2026-06-30 06:55 - [巴西绝杀日本](http://www.share.minike.top/Article/details/79948488209.shtml)
+- 2026-06-30 07:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.kurohicncr.top/Article/details/138559616742.shtml)
+- 2026-06-30 06:50 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/8995326.shtml)
+- 2026-06-30 07:09 - [韩国队输球后连呼吸都是错的吗](http://www.share.kurohicncr.top/Article/details/74383089112.shtml)
+- 2026-06-30 07:10 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.minike.top/Article/details/23967277084.shtml)
+- 2026-06-30 06:53 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.minike.top/Article/details/8788117384.shtml)
+- 2026-06-30 06:57 - [王欣瑜温网开门红](https://www.share.minike.top/Article/details/272937643.shtml)
+- 2026-06-30 06:48 - [问心2神一集鬼三集](https://www.blog.minike.top/Article/details/2756093.shtml)
+- 2026-06-30 07:10 - [巴西若输日本将创36年最差纪录](http://www.blog.minike.top/Article/details/63394249041.shtml)
+- 2026-06-30 07:10 - [绘画区你赢了](https://www.blog.kurohicncr.top/Article/details/5728553896.shtml)
+- 2026-06-30 07:03 - [宜宾地震食客避难后折返 无人逃单](http://www.share.kurohicncr.top/Article/details/1691419773.shtml)
+- 2026-06-30 07:10 - [本届世界杯已有5名球员被控强奸](https://www.blog.kurohicncr.top/Article/details/010225747.shtml)
+- 2026-06-30 06:54 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/5603190263.shtml)
+- 2026-06-30 07:17 - [相爱相杀很有戏，我的兄弟最默契](https://www.blog.kurohicncr.top/Article/details/3986254.shtml)
+- 2026-06-30 06:59 - [在没有空调的巴黎感受世纪热浪](https://www.share.minike.top/Article/details/453414195.shtml)
+- 2026-06-30 07:03 - [流金岁月](http://www.share.kurohicncr.top/Article/details/07333455905.shtml)

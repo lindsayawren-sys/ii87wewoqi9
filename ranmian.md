@@ -1,56 +1,60 @@
-# 昊志机电（300503）股票操纵投资者索赔案将开庭
+# 1.6T光模块订单大增！新易盛暴涨创新高，“易中天”含量最高的创业板人工智能ETF华宝（159363）放量拉升3%
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-日前已经收到传票，上海久诚律师事务所股票索赔律师许峰代理的昊志机电（300503）被操纵引发的投资者索赔案将于2026年6月12日在广州市中级人民法院开庭审理，律师同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。（许峰律师专栏） 此前2024年12月6日，证监会对汤秀清等作出《行政处罚决定书》。经查明，汤秀清、肖泳林存在以下违法事实： 一、汤秀清、颜某合谋
+6月2日早盘，光模块CPO赛道快速拉升，新易盛大涨超8%再创新高，中际旭创涨超5%，天孚通信涨超4%。热门ETF方面，光模块CPO含量超50%且“易中天”含量最高的创业板人工智能ETF华宝（159363）场内冲高2.68%，实时放量成交近9亿元，交投领跑全市场AI类ETF。 消息面上，6月1日，新易盛发布投资者关系活动记录表公告，公司预计2027年Q2-Q4整体情况逐步向好。1
 
 ## 正文
 
-日前已经收到传票，上海久诚律师事务所股票索赔律师许峰代理的昊志机电（300503）被操纵引发的投资者索赔案将于2026年6月12日在广州市中级人民法院开庭审理，律师同步还在继续推进后续案件的立案工作，还在继续接受其他投资者的索赔委托。
+6月2日早盘，光模块CPO赛道快速拉升，新易盛大涨超8%再创新高，中际旭创涨超5%，天孚通信涨超4%。
 
-（许峰律师专栏） 此前2024年12月6日，证监会对汤秀清等作出《行政处罚决定书》。
+热门ETF方面，光模块CPO含量超50%且“易中天”含量最高的创业板人工智能ETF华宝（159363）场内冲高2.68%，实时放量成交近9亿元，交投领跑全市场AI类ETF。
 
-经查明，汤秀清、肖泳林存在以下违法事实： 一、汤秀清、颜某合谋操纵“昊志机电” 汤秀清与颜某商议，由汤秀清支付保证金，颜某负责联系相关方，共同操纵“昊志机电”。
+消息面上，6月1日，新易盛发布投资者关系活动记录表公告，公司预计2027年Q2-Q4整体情况逐步向好。
 
-肖泳林按汤秀清指示与颜某方进行沟通、对接，同时负责汤秀清等人保证金的转款事宜。
+1.6T光模块产品订单相对于去年增幅很大，预计今年呈现逐季快速增长趋势，1.6T和800G是今年交付的主力产品。
 
-二、颜某等人实施操纵“昊志机电” 收取保证金后，颜某等人先后使用了121个证券账户（以下简称账户组），于2019年9月18日至2020年12月31日期间（以下简称操纵期间）操纵“昊志机电”，具体如下： （一）集中资金优势、持股优势连续买卖 操纵期间共313个交易日，其中302个交易日账户组存在交易，日成交占比均值为28.33%，最高达到72.27%。
+在光路交换机（OCS）领域已有充分布局，可根据客户定制化需求进行产品开发，预计市场明年下半年或2028年将有批量供应需求。
 
-有272个交易日账户组持股总数占总股本比例在5%以上，最高达到20.95%。
+国盛证券表示，算力板块长期演进逻辑并未动摇，随着时间进入6月，2027年光模块需求预期正加速明朗，而此前制约交付的上游核心器件缺料问题也逐步迎来改善拐点，光模块龙头厂商的产能与业绩弹性有望加速释放，我们建议“重回大光”，关注中际旭创与新易盛两大龙头。
 
-196个交易日存在以不低于市场卖一价或市价大量申买行为，且该类申报量占账户组总申报量30%以上、账户组成交量占市场总成交量20%以上。
+• 2027年需求预期逐渐清晰，产业景气度持续上行。
 
-（二）在自己实际控制的账户之间进行证券交易 操纵期间，账户组在284个交易日内存在反向交易，日内反向交易量占账户组成交量的比例最高为99.93%。
+随着时间步入6月，海外CSP和核心芯片厂订单指引、产能规划等信号密集释放，2027年全年的需求节奏与业绩轮廓将逐步清晰，产业整体景气度持续上行。
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [女心理师](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiaomu.md)
-- 2026-06-30 07:04 - [巴拉圭进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
-- 2026-06-30 06:55 - [我把队友的7连跪剪成了艺术](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxiang.md)
-- 2026-06-30 06:55 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gqqft.md)
-- 2026-06-30 07:10 - [人类...完蛋了...](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 07:07 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/seniao.md)
-- 2026-06-30 06:44 - [金刚川](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suokuang.md)
-- 2026-06-30 07:04 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hiynr.md)
-- 2026-06-30 06:48 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 06:56 - [沪指深V回升站稳4000点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixia.md)
+- 2026-06-30 07:15 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sgwek.md)
+- 2026-06-30 06:53 - [张帅时隔四年晋级温网第二轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tbevz.md)
+- 2026-06-30 07:02 - [荷兰vs摩洛哥前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eepda.md)
+- 2026-06-30 07:14 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shvmz.md)
+- 2026-06-30 06:53 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tongping.md)
+- 2026-06-30 06:51 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 06:51 - [高考填志愿父亲和女儿产生分歧](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 07:09 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/piddr.md)
+- 2026-06-30 06:57 - [起风了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaogao.md)
+- 2026-06-30 07:04 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtqal.md)
+- 2026-06-30 07:13 - [卖菜老人获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tanhao.md)
+- 2026-06-30 06:52 - [“柠檬茶能换怀表？”](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/banhui.md)
+- 2026-06-30 07:03 - [我们的少年时代2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rgqvu.md)
+- 2026-06-30 07:07 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [我和我的家乡](http://www.blog.kurohicncr.top/Article/details/37236.shtml)
-- 2026-06-30 07:00 - [世界杯“美洲德比”7月1日开打](https://www.share.kurohicncr.top/Article/details/57610871559.shtml)
-- 2026-06-30 07:03 - [官方：建立健全学龄人口预测预警机制](http://www.blog.kurohicncr.top/Article/details/1929692.shtml)
-- 2026-06-30 06:54 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.minike.top/Article/details/33975.shtml)
-- 2026-06-30 06:56 - [日本拟明年正式启动海底稀土开发计划](https://www.blog.minike.top/Article/details/7804557.shtml)
-- 2026-06-30 07:01 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/0202822821.shtml)
-- 2026-06-30 06:55 - [《虎吹最难绷の一集》](https://www.share.kurohicncr.top/Article/details/65577.shtml)
-- 2026-06-30 06:42 - [锐评T1零封KC](http://www.blog.kurohicncr.top/Article/details/1479881713.shtml)
-- 2026-06-30 06:54 - [三星投资计划](http://www.blog.kurohicncr.top/Article/details/3700401.shtml)
-- 2026-06-30 07:06 - [上半年全国特种设备安全形势总体平稳](http://www.blog.minike.top/Article/details/764539.shtml)
-- 2026-06-30 06:46 - [花6万多相亲对象竟是50元请来的](http://www.blog.kurohicncr.top/Article/details/92538813.shtml)
-- 2026-06-30 06:53 - [运20服役十周年宣传片有哪些亮点](https://www.blog.kurohicncr.top/Article/details/272749140035.shtml)
-- 2026-06-30 07:09 - [创新药板块能否“苦尽甘来”](http://www.blog.kurohicncr.top/Article/details/7722889.shtml)
-- 2026-06-30 07:07 - [刘雨昕浪姐舞台Misslady舞蹈室版](https://www.share.kurohicncr.top/Article/details/9997529578.shtml)
-- 2026-06-30 06:50 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.minike.top/Article/details/2823353870.shtml)
+- 2026-06-30 06:57 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.kurohicncr.top/Article/details/563802581767.shtml)
+- 2026-06-30 07:13 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/17290929980.shtml)
+- 2026-06-30 07:17 - [德国巴拉圭 折磨](https://www.blog.kurohicncr.top/Article/details/652930120.shtml)
+- 2026-06-30 06:51 - [电影后室值得看吗](http://www.share.minike.top/Article/details/40998202453.shtml)
+- 2026-06-30 06:52 - [德巴荷登场 点球会成淘汰赛常态吗](https://www.blog.minike.top/Article/details/3458322.shtml)
+- 2026-06-30 06:49 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](http://www.share.minike.top/Article/details/4759509.shtml)
+- 2026-06-30 07:16 - [歌剧老师锐评歌手第6期](https://www.share.minike.top/Article/details/074866371.shtml)
+- 2026-06-30 07:05 - [王灿兮被烫伤两年后维权成功](http://www.share.minike.top/Article/details/576381.shtml)
+- 2026-06-30 07:17 - [我们看到的星星是不是有些已经不存在了？](http://www.share.kurohicncr.top/Article/details/529149171.shtml)
+- 2026-06-30 06:48 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](http://www.share.minike.top/Article/details/2894703417.shtml)
+- 2026-06-30 07:09 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](http://www.share.minike.top/Article/details/996205.shtml)
+- 2026-06-30 06:50 - [欧洲空调安装费用为何如此高昂](http://www.blog.kurohicncr.top/Article/details/8036832.shtml)
+- 2026-06-30 06:53 - [奔跑吧·黄河篇第二季](https://www.share.minike.top/Article/details/96190166.shtml)
+- 2026-06-30 06:56 - [日本接连三场大型军演想干什么](http://www.share.minike.top/Article/details/31235629719.shtml)
+- 2026-06-30 07:10 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/06081375.shtml)

@@ -1,56 +1,60 @@
-# 兴证策略：业绩比较基准调整，会影响市场风格吗？
+# 黑龙江宝清：从“跑一场马”到“游一座城”
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！来源：XYSTRATEGY 近日，12家基金公司旗下基金调整业绩比较基准，其中主动管理的权益基金117只，涉及主动权益管理规模约1700亿元。基金公司系统性优化调整存量基金业绩比较基准，是对年初监管发布《公开募集证券投资基金业绩比较基准指引》的积极响应，通过提升基准对产品的表征作用、强化基准对投资的约束作用
+中新网双鸭山6月2日电 题：黑龙江宝清：从“跑一场马”到“游一座城” 作者 姜辉 杨启坤 近日，2026宝清马拉松激情开跑，作为黑龙江省本年度首场马拉松赛事，这场盛会迎来举办第三个年头。三年深耕、蝶变跃升，赛事从中国田协C类认证进阶为B类认证，参赛规模三年翻三倍，赛事综合带动消费从最初300万元攀升至4500万元。一场马拉松赛事的成长轨迹，映照出宝清聚力奋进、逐梦前行的发展步伐
 
 ## 正文
 
-炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
+中新网双鸭山6月2日电 题：黑龙江宝清：从“跑一场马”到“游一座城” 作者 姜辉 杨启坤 近日，2026宝清马拉松激情开跑，作为黑龙江省本年度首场马拉松赛事，这场盛会迎来举办第三个年头。
 
-来源：XYSTRATEGY 近日，12家基金公司旗下基金调整业绩比较基准，其中主动管理的权益基金117只，涉及主动权益管理规模约1700亿元。
+三年深耕、蝶变跃升，赛事从中国田协C类认证进阶为B类认证，参赛规模三年翻三倍，赛事综合带动消费从最初300万元攀升至4500万元。
 
-基金公司系统性优化调整存量基金业绩比较基准，是对年初监管发布《公开募集证券投资基金业绩比较基准指引》的积极响应，通过提升基准对产品的表征作用、强化基准对投资的约束作用，减少基金产品“货不对款”、“风格漂移”的潜在风险。
+一场马拉松赛事的成长轨迹，映照出宝清聚力奋进、逐梦前行的发展步伐，更书写出全县上下同心携手、借赛兴城的生动答卷。
 
-但恰逢市场风格分化显著，大规模的基金业绩比较基准调整是否会驱动基金调仓，并进一步影响市场风格结构引发讨论。
+清晨的赛道上，发令枪响，全程、半程项目同步启程，近6000名海内外跑者竞相出发，迎着清风向前奔跑。
 
-从规模上看，本轮调整业绩比较基准基金管理规模共计约4000亿元，其中主动权益基金约占一半，对应管理规模约1700亿元。
+整条赛道依山傍景、串联城乡，一路繁花相伴、步步皆是美景。
 
-本轮调整业绩比较基准的存量基金主要集中在主动权益、固收+、以及债基，其中主动管理的权益基金117只，涉及主动权益管理规模约1700亿元。
+赛道沿线布设79个氛围路演点位，近3000名本地群众登台表演、呐喊助威，向八方来客展现着独有的人文魅力与城市活力。
 
-按照首批12家基金管理人调整基准的基金占比角度看，未来预计仍有约4000亿主动权益基金将面临基准调整。
+“我走遍多国参加马拉松，宝清的赛道风光和现场氛围，都是独一无二的。
 
-基金业绩比较基准指引从3月1日施行，并设置一年过渡期，从首批12家基金公司调整基准的情况看，调整业绩比较基准的主动权益基金占首批基金公司总规模比例的13.4%，按照剩余基金公司2.8万亿主动权益管理规模计算，预计后续仍将有近4000亿主动权益基金迎来基准调整。
+”瑞典选手马丁说。
 
 ## 相关推荐
 
-- 2026-06-30 07:00 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 06:46 - [徐亮怒斥世界杯踢假球](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lipiao.md)
-- 2026-06-30 07:04 - [恋与深空制作组回应近期争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aihong.md)
-- 2026-06-30 07:02 - [田中碧失误](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ungls.md)
-- 2026-06-30 06:43 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rzave.md)
-- 2026-06-30 06:58 - [小娘惹](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/frilp.md)
-- 2026-06-30 06:44 - [王楚钦孙颖莎混双对手产生](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/umbuc.md)
-- 2026-06-30 06:43 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gofvf.md)
-- 2026-06-30 07:11 - [日本进球](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 06:59 - [湖北云南的这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rboaf.md)
+- 2026-06-30 07:06 - [手底下人带不动怎么办？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 06:54 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/knbtp.md)
+- 2026-06-30 07:17 - [如何评价二路解说Wayward直播称「CS比赛最精彩其次才是别的」，被批“吃LOL饭还砸锅”后被约谈？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/djrhm.md)
+- 2026-06-30 06:54 - [王欣瑜温网开门红](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mhsva.md)
+- 2026-06-30 06:50 - [浪姐成团夜爆笑吐槽](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zuochuan.md)
+- 2026-06-30 06:56 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
+- 2026-06-30 06:55 - [【忘川风华录·钱弘俶/赵匡胤/柴荣】当饮【洛天依/乐正绫/言和原创】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianhuo.md)
+- 2026-06-30 07:10 - [诋毁袁隆平的网红岂能封号了之](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sjlra.md)
+- 2026-06-30 06:48 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/clpyt.md)
+- 2026-06-30 06:58 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cpmkg.md)
+- 2026-06-30 07:00 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ahtkn.md)
+- 2026-06-30 06:55 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rmjqe.md)
+- 2026-06-30 06:57 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 07:03 - [荀彧和曹操反目成仇的根本原因是什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/huaiju.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:00 - [孙兴慜发长文致歉](https://www.blog.minike.top/Article/details/72620.shtml)
-- 2026-06-30 06:45 - [三星投资计划](http://www.share.kurohicncr.top/Article/details/8704786.shtml)
-- 2026-06-30 06:48 - [韩国人为什么这么在乎输赢](http://www.share.kurohicncr.top/Article/details/18190.shtml)
-- 2026-06-30 07:10 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.blog.minike.top/Article/details/4880426.shtml)
-- 2026-06-30 06:52 - [一见倾心](http://www.share.kurohicncr.top/Article/details/338578613.shtml)
-- 2026-06-30 06:57 - [马杜罗账号在纽约发文致谢各国援助](http://www.share.minike.top/Article/details/400519.shtml)
-- 2026-06-30 06:59 - [2021湖南卫视跨年演唱会](http://www.share.minike.top/Article/details/763827594061.shtml)
-- 2026-06-30 07:11 - [全网说丑的玫瑰空调卖了5万台](http://www.blog.minike.top/Article/details/84549.shtml)
-- 2026-06-30 07:05 - [复古未来主义沙画「夜泳」](http://www.share.minike.top/Article/details/1050087115.shtml)
-- 2026-06-30 07:08 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/862398978.shtml)
-- 2026-06-30 06:52 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.minike.top/Article/details/44034541.shtml)
-- 2026-06-30 06:44 - [扬名立万](https://www.share.minike.top/Article/details/9858410595.shtml)
-- 2026-06-30 06:47 - [法国生态部长反对大规模安装空调](https://www.blog.minike.top/Article/details/0132732962.shtml)
-- 2026-06-30 06:48 - [张帅时隔四年再取温网正赛胜利](https://www.share.minike.top/Article/details/13039829.shtml)
-- 2026-06-30 07:07 - [苗族银饰](http://www.blog.minike.top/Article/details/81116329.shtml)
+- 2026-06-30 06:59 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.kurohicncr.top/Article/details/99180.shtml)
+- 2026-06-30 07:12 - [四川宜宾地震为何震感明显](https://www.share.kurohicncr.top/Article/details/16161526.shtml)
+- 2026-06-30 06:53 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/259743422411.shtml)
+- 2026-06-30 07:15 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.minike.top/Article/details/590944505.shtml)
+- 2026-06-30 07:06 - [世界杯：巴西vs日本](https://www.share.minike.top/Article/details/26067670.shtml)
+- 2026-06-30 07:05 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](https://www.blog.kurohicncr.top/Article/details/744425741987.shtml)
+- 2026-06-30 06:52 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/667793251444.shtml)
+- 2026-06-30 07:12 - [《恋与深空》被指触碰民族伤痛红线](http://www.blog.kurohicncr.top/Article/details/5938785.shtml)
+- 2026-06-30 06:54 - [如何评价杨紫白玉兰获奖](http://www.blog.minike.top/Article/details/3620195020.shtml)
+- 2026-06-30 06:54 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.blog.minike.top/Article/details/195207329.shtml)
+- 2026-06-30 06:48 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](http://www.share.minike.top/Article/details/38685.shtml)
+- 2026-06-30 06:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.kurohicncr.top/Article/details/666214395.shtml)
+- 2026-06-30 06:50 - [爱直接对嘴喝饮料的人天塌了](https://www.blog.kurohicncr.top/Article/details/20659880.shtml)
+- 2026-06-30 07:12 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/4687372660.shtml)
+- 2026-06-30 07:02 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](https://www.blog.minike.top/Article/details/89129860.shtml)

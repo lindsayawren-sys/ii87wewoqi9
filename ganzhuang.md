@@ -1,55 +1,58 @@
-# 俄罗斯外贸银行警示：俄经济今年大概率陷入停滞，之后才会迎来复苏
+# 许曦扬：人民币汇率中长期将保持坚挺！当前是黄金介入良机
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-俄罗斯第二大银行外贸银行（VTB）首席执行官科斯京周四表示，高昂的融资成本压制资本投资，俄罗斯今年经济增长或将陷入停滞；但随着后续利率下行，经济有望迎来改善。 科斯京在接受媒体透采访时称，VTB 预判 2026 年俄罗斯 GDP 增速在0~0.5%区间，而俄罗斯官方政府此前给出的全年经济增速预测为 0.4%。科斯京是首位公开警示俄经济年内或陷入停滞的俄罗斯头部银行高管。 一季度
+专题：人民币升值无悬念？图解下半年汇率锚定区间与出口企业生存指南 5月30日第十二届中国分析师联盟峰会暨学术研讨会在北京举行。人民币汇率近期持续走高引起了与会者的普遍关注。 在论坛上，新浪财经独家对话16位资深分析师和业内人士，探讨本轮人民币汇率升值的主要原因以及未来发展，同时对企业、机构如何更好的利用金融工具避免汇兑损失展开探讨。 以下为对话全文： 主持人：从去年以来，人民币
 
 ## 正文
 
-俄罗斯第二大银行外贸银行（VTB）首席执行官科斯京周四表示，高昂的融资成本压制资本投资，俄罗斯今年经济增长或将陷入停滞；但随着后续利率下行，经济有望迎来改善。
+专题：人民币升值无悬念？
 
-科斯京在接受媒体透采访时称，VTB 预判 2026 年俄罗斯 GDP 增速在0~0.5%区间，而俄罗斯官方政府此前给出的全年经济增速预测为 0.4%。
+图解下半年汇率锚定区间与出口企业生存指南 5月30日第十二届中国分析师联盟峰会暨学术研讨会在北京举行。
 
-科斯京是首位公开警示俄经济年内或陷入停滞的俄罗斯头部银行高管。
+人民币汇率近期持续走高引起了与会者的普遍关注。
 
-一季度俄罗斯固定资产投资同比大跌 14.3%，投资大幅下滑叠加高借贷成本，成为掣肘俄经济增长的两大核心阻碍。
+在论坛上，新浪财经独家对话16位资深分析师和业内人士，探讨本轮人民币汇率升值的主要原因以及未来发展，同时对企业、机构如何更好的利用金融工具避免汇兑损失展开探讨。
 
-VTB 判断：伴随通胀回落，俄央行基准利率将从当前14.5%，在 2026 年年末下调至 11%~12%。
+以下为对话全文： 主持人：从去年以来，人民币汇率出现了一波持续性的升值，虽然有所波动，但一直是在升值区间当中，那您觉得这一波汇率升值的主要因素是什么？
 
-科斯京出席圣彼得堡国际经济论坛间隙受访时表示：“我一向推崇前英国首相撒切尔夫人，她始终强调通胀是所有经济体的头号大敌，眼下俄罗斯经济恰恰印证了这个观点。
+是我们内生原因吗？
 
-”责任编辑：江学思
+还是美元走弱？
+
+以及这样的趋势会不会能够继续保持下去？
 
 ## 相关推荐
 
-- 2026-06-30 06:51 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmubd.md)
-- 2026-06-30 07:07 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bifen.md)
-- 2026-06-30 06:55 - [本届世界杯已有5名球员被控强奸](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jjdmp.md)
-- 2026-06-30 07:03 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/peacj.md)
-- 2026-06-30 07:05 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nsvdn.md)
-- 2026-06-30 06:42 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/touwo.md)
-- 2026-06-30 06:46 - [吴艳妮回应夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
-- 2026-06-30 07:05 - [巴拉圭进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
-- 2026-06-30 07:06 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdubb.md)
-- 2026-06-30 06:45 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/songtui.md)
-- 2026-06-30 06:56 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jtjex.md)
+- 2026-06-30 06:53 - [宗元舞2.0 迟来的50万女装福利](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunzang.md)
+- 2026-06-30 07:12 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tingdang.md)
+- 2026-06-30 06:50 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 07:10 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/suixi.md)
+- 2026-06-30 07:06 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/quanliao.md)
+- 2026-06-30 07:13 - [我设置了全宇宙最安全的密码](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cxlah.md)
+- 2026-06-30 07:14 - [德国巴拉圭 折磨](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
+- 2026-06-30 07:06 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 06:59 - [TOP不是Prada全球普通人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shengfa.md)
+- 2026-06-30 06:57 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 06:57 - [媒体评哈兰德之歌火了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fare.md)
+- 2026-06-30 07:14 - [外国游客开始涌入中国农村](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qfxdb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [审核了不止十年的低创鬼畜](https://www.share.minike.top/Article/details/68419977046.shtml)
-- 2026-06-30 07:08 - [同样是装空调差别怎么能这么大](http://www.share.minike.top/Article/details/088373.shtml)
-- 2026-06-30 06:50 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](http://www.share.kurohicncr.top/Article/details/56723136164.shtml)
-- 2026-06-30 07:06 - [时光音乐会](https://www.blog.kurohicncr.top/Article/details/27572.shtml)
-- 2026-06-30 06:59 - [明星大侦探第四季](http://www.blog.minike.top/Article/details/145245575646.shtml)
-- 2026-06-30 06:51 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.minike.top/Article/details/88009.shtml)
-- 2026-06-30 06:57 - [杨紫被质疑未使用原名纯属误解](http://www.blog.kurohicncr.top/Article/details/50596263475.shtml)
-- 2026-06-30 06:46 - [女子驾车致丈夫身亡法院认定无家暴](http://www.blog.minike.top/Article/details/255671615795.shtml)
-- 2026-06-30 06:43 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/7044120.shtml)
-- 2026-06-30 07:03 - [女子用家人生日买彩票中1032万](https://www.blog.kurohicncr.top/Article/details/970400109.shtml)
-- 2026-06-30 06:44 - [大学生遇地震裹被子从5楼冲下](https://www.blog.minike.top/Article/details/66973957300.shtml)
-- 2026-06-30 07:06 - [永辉超市回应两个包子卖104元](https://www.share.kurohicncr.top/Article/details/26194954.shtml)
-- 2026-06-30 07:08 - [任素汐舞台上唱《王招君》](http://www.share.minike.top/Article/details/77359189.shtml)
-- 2026-06-30 06:49 - [中国网友锐评韩国队外网爆火](https://www.blog.kurohicncr.top/Article/details/819842516923.shtml)
-- 2026-06-30 07:01 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/9709582.shtml)
+- 2026-06-30 07:01 - [85花告别古偶](https://www.share.minike.top/Article/details/717541452.shtml)
+- 2026-06-30 07:06 - [老人卖菜获博主帮助后遇车祸去世](https://www.share.kurohicncr.top/Article/details/767798354738.shtml)
+- 2026-06-30 07:04 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/88532996088.shtml)
+- 2026-06-30 06:51 - [卢卡申科发布解放军仪仗队视频](http://www.blog.minike.top/Article/details/870754004.shtml)
+- 2026-06-30 07:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://www.blog.minike.top/Article/details/593568329.shtml)
+- 2026-06-30 07:04 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](http://www.share.kurohicncr.top/Article/details/052903.shtml)
+- 2026-06-30 06:48 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](https://www.share.minike.top/Article/details/816062109.shtml)
+- 2026-06-30 07:01 - [女子清吧被陌生人投放伟哥](https://www.blog.kurohicncr.top/Article/details/4957138.shtml)
+- 2026-06-30 06:59 - [欧洲家电巨头为何输掉了这个夏天](https://www.blog.kurohicncr.top/Article/details/23392115.shtml)
+- 2026-06-30 06:48 - [美股](https://www.blog.kurohicncr.top/Article/details/793354925.shtml)
+- 2026-06-30 07:14 - [当我知道豆包有后台审核人员](https://www.share.kurohicncr.top/Article/details/888912220.shtml)
+- 2026-06-30 06:55 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.kurohicncr.top/Article/details/2019416001.shtml)
+- 2026-06-30 06:58 - [恐怖世界 第三集 埃温霍姆村](https://www.blog.minike.top/Article/details/1678316.shtml)
+- 2026-06-30 06:58 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/98124994.shtml)
+- 2026-06-30 07:02 - [如何评价《龙之家族》第三季第二集？](http://www.blog.kurohicncr.top/Article/details/7321864.shtml)

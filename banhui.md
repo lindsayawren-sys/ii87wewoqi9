@@ -1,57 +1,58 @@
-# Tradeweb五月总交易量达62.3万亿美元 日均交易量同比增长18.3%
+# 多边央行货币桥落地澳门，首批共11家澳门本地银行参与
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-全球电子交易平台运营商Tradeweb Markets Inc．近日公布2026年5月交易业绩，当月总交易量达到62.3万亿美元，日均交易量为3.0万亿美元，同比增长18.3%。 在利率产品方面，美国政府债券日均交易量同比增长19.8%至2827亿美元，欧洲政府债券日均交易量同比增长26.3%至639亿美元。机构交易和批发业务的强劲表现是增长的主要驱动力，其中机构交易量创下历史
+数字澳门元目前已进入平稳有序的沙盒测试阶段，下一阶段将逐步拓展应用场景，覆盖电子政务、公共交通、校园服务等领域。 日前，在澳门金融管理局举办的“中国-葡语国家央行数字货币发展与跨境创新应用高端研讨会”上，中国人民银行副行长陆磊表示，目前澳门已加入mBridge（多边央行数字货币桥）项目，并有序开展数字澳门元沙盒测试。 澳门金融管理局行政管理委员会委员刘杏娟在会上公布了多项重要进
 
 ## 正文
 
-全球电子交易平台运营商Tradeweb Markets Inc．近日公布2026年5月交易业绩，当月总交易量达到62.3万亿美元，日均交易量为3.0万亿美元，同比增长18.3%。
+数字澳门元目前已进入平稳有序的沙盒测试阶段，下一阶段将逐步拓展应用场景，覆盖电子政务、公共交通、校园服务等领域。
 
-在利率产品方面，美国政府债券日均交易量同比增长19.8%至2827亿美元，欧洲政府债券日均交易量同比增长26.3%至639亿美元。
+日前，在澳门金融管理局举办的“中国-葡语国家央行数字货币发展与跨境创新应用高端研讨会”上，中国人民银行副行长陆磊表示，目前澳门已加入mBridge（多边央行数字货币桥）项目，并有序开展数字澳门元沙盒测试。
 
-机构交易和批发业务的强劲表现是增长的主要驱动力，其中机构交易量创下历史第二高单月纪录。
+澳门金融管理局行政管理委员会委员刘杏娟在会上公布了多项重要进展。
 
-抵押贷款相关产品日均交易量为2575亿美元，同比增长11.8%。
+她介绍，数字澳门元目前已进入平稳有序的沙盒测试阶段，下一阶段将逐步拓展应用场景，覆盖电子政务、公共交通、校园服务等领域，同时依托数字货币技术优化升级澳门“聚易用”支付清算结算体系，提升整体运行效率。
 
-待公布交易活动增长主要来自政府资助企业、原始机构账户以及对冲基金的交易增加。
+据悉，澳门金融管理局已完成与mBridge项目成员的系统对接，成功搭建起高效、安全、低成本的跨境资金支付结算通道，并于6月2日正式开放本地银行接入mBridge开展跨境交易，首批共有11家澳门本地银行参与。
 
-在利率衍生品领域，一年期及以上利率互换及互换期权日均交易量同比增长23.8%至6092亿美元，利率衍生品总日均交易量增长26.6%至1.1万亿美元。
+分别是：农业银行澳门分行、中国银行澳门分行、建设银行澳门分行、澳门发展银行、广发银行澳门分行、工银澳门、澳门国际银行、大丰银行、立桥银行、交通银行澳门分行、创兴银行澳门分行。
 
-报告指出，全球通胀前景不确定性、主要央行政策预期变化以及地缘政治发展推动了风险交易活动增加。
+mBridge项目由中国人民银行、香港金融管理局、泰国中央银行、阿联酋中央银行联合牵头，国际清算银行创新中心协调推进，是基于区块链与分布式账本技术的央行数字货币跨境支付结算平台。
 
-信用产品方面，全电子化美国信用产品日均交易量同比增长20.4%至100亿美元，欧洲信用产品日均交易量增长25.5%至30亿美元。
+简单来说，就是各央行利用央行数字货币搭建互通桥梁，形成跨境支付网络。
 
 ## 相关推荐
 
-- 2026-06-30 06:42 - [解锁一下新吃法 这顿真给我吃美了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cixing.md)
-- 2026-06-30 06:58 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/efeqf.md)
-- 2026-06-30 07:08 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 07:07 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/waitang.md)
-- 2026-06-30 07:07 - [法国小学众筹装空调后市长下令拆除](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dprco.md)
-- 2026-06-30 07:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/isqto.md)
-- 2026-06-30 06:49 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/panrun.md)
-- 2026-06-30 06:48 - [官方：建立健全学龄人口预测预警机制](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/giuoe.md)
-- 2026-06-30 06:55 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laohan.md)
-- 2026-06-30 06:44 - [又一美国科技巨头转向中国大模型](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fbylm.md)
-- 2026-06-30 06:44 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cxlah.md)
+- 2026-06-30 07:08 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rudou.md)
+- 2026-06-30 06:58 - [曝詹姆斯即将与勇士会面](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cydea.md)
+- 2026-06-30 06:51 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tjfyq.md)
+- 2026-06-30 06:59 - [刘宇宁胸肌腹肌全给看了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangqiang.md)
+- 2026-06-30 07:06 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/disai.md)
+- 2026-06-30 06:53 - [如何改变自己太负责任的性格?](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/churui.md)
+- 2026-06-30 06:48 - [人可以极简主义到什么程度？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 07:01 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 06:48 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dyhds.md)
+- 2026-06-30 06:57 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kcbwm.md)
+- 2026-06-30 07:16 - [《共患难》](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/muqian.md)
+- 2026-06-30 06:56 - [千香](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [AI手机进入Agent时代](http://www.blog.minike.top/Article/details/583350.shtml)
-- 2026-06-30 06:56 - [巴西若输日本将创36年最差纪录](http://www.share.minike.top/Article/details/00591629662.shtml)
-- 2026-06-30 07:11 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://www.blog.kurohicncr.top/Article/details/41077657837.shtml)
-- 2026-06-30 06:47 - [恋与深空回应争议](http://www.share.minike.top/Article/details/47346271534.shtml)
-- 2026-06-30 06:45 - [起风了](http://www.blog.minike.top/Article/details/47329339.shtml)
-- 2026-06-30 07:09 - [上半年全国特种设备安全形势总体平稳](https://www.share.kurohicncr.top/Article/details/82339935764.shtml)
-- 2026-06-30 06:55 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.blog.minike.top/Article/details/58760.shtml)
-- 2026-06-30 06:49 - [7月1日起 一批新规即将落地](http://www.share.minike.top/Article/details/2326712315.shtml)
-- 2026-06-30 07:09 - [第一炉香](https://www.blog.minike.top/Article/details/5732042.shtml)
-- 2026-06-30 06:55 - [千与千寻](https://www.blog.minike.top/Article/details/18601.shtml)
-- 2026-06-30 07:01 - [二次元提前预演明日巴西对日本](http://www.blog.minike.top/Article/details/92298.shtml)
-- 2026-06-30 06:49 - [陈小云又好好的养了自己一年](https://www.blog.minike.top/Article/details/137255768128.shtml)
-- 2026-06-30 06:55 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/838357518939.shtml)
-- 2026-06-30 07:03 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/7627673632.shtml)
-- 2026-06-30 07:01 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.kurohicncr.top/Article/details/63321.shtml)
+- 2026-06-30 07:17 - [德国巴拉圭 折磨](http://www.share.kurohicncr.top/Article/details/97953169.shtml)
+- 2026-06-30 06:59 - [中国新一轮出口管制直指日本命脉](https://www.blog.kurohicncr.top/Article/details/013483596154.shtml)
+- 2026-06-30 06:58 - [MSI应援曲 如果季中成回忆](http://www.share.minike.top/Article/details/96975.shtml)
+- 2026-06-30 07:01 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](http://www.share.kurohicncr.top/Article/details/92938.shtml)
+- 2026-06-30 06:52 - [刘宇宁高情商化解谁站C位](https://www.blog.kurohicncr.top/Article/details/07128193.shtml)
+- 2026-06-30 07:16 - [日本半场1比0领先巴西](http://www.blog.kurohicncr.top/Article/details/997797292867.shtml)
+- 2026-06-30 06:55 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/2409202.shtml)
+- 2026-06-30 07:01 - [法总统候选人：拒绝与中国激烈对抗](http://www.share.minike.top/Article/details/00696.shtml)
+- 2026-06-30 07:03 - [日本拟明年正式启动海底稀土开发计划](http://www.share.minike.top/Article/details/73109880.shtml)
+- 2026-06-30 07:05 - [诋毁袁隆平的网红岂能封号了之](http://www.share.minike.top/Article/details/829955.shtml)
+- 2026-06-30 06:54 - [日本世界杯淘汰赛历史0胜](https://www.share.minike.top/Article/details/244174948938.shtml)
+- 2026-06-30 06:50 - [谢依霖说杨幂是聚会第一把张罗手](https://www.share.kurohicncr.top/Article/details/990970615.shtml)
+- 2026-06-30 07:01 - [二次元提前预演明日巴西对日本](https://www.blog.kurohicncr.top/Article/details/3327928.shtml)
+- 2026-06-30 06:57 - [国务院：鼓励行业龙头企业举办职校](https://www.share.minike.top/Article/details/00021518500.shtml)
+- 2026-06-30 07:17 - [小羊在林间被野生豹子啃食 当地回应](https://www.blog.minike.top/Article/details/6937054809.shtml)

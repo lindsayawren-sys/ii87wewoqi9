@@ -1,59 +1,57 @@
-# “中国经验”正在为全球妇女事业发展注入确定性力量
+# 10天内，5名副省长履新
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-专题：SWCC首届女性CEO大会 2026年5月31日，上海市工商联女企业家联合会第一届第一次会员大会在上海举行。世界妇女组织总干事安格拉·罗应邀出席大会并发表致辞。她代表世界妇女组织，对上海市工商联女企业家联合会的成立表示热烈祝贺，并向中国女性企业家在商业领域展现出的智慧、韧性与责任担当致以崇高敬意。 安格拉·罗的致辞是从全球视角出发，对新中国成立以来特别是改革开放以来中国妇
+中新网北京6月1日电(记者 李京统)5月22日以来，10天内已有辽宁、浙江、云南、四川、安徽5个省份迎来新任副省长： 白英任辽宁省副省长； 姚高员任浙江省副省长； 袁方任云南省副省长； 马正勇任四川省副省长； 何淳宽任安徽省副省长。 上述五人中，有两人是“70后”干部，其中履新安徽省副省长的何淳宽，生于1977年10月。 有两人此番跨省调整：今次履新云南省副省长的袁方，此前任安
 
 ## 正文
 
-专题：SWCC首届女性CEO大会 2026年5月31日，上海市工商联女企业家联合会第一届第一次会员大会在上海举行。
+中新网北京6月1日电(记者 李京统)5月22日以来，10天内已有辽宁、浙江、云南、四川、安徽5个省份迎来新任副省长： 白英任辽宁省副省长； 姚高员任浙江省副省长； 袁方任云南省副省长； 马正勇任四川省副省长； 何淳宽任安徽省副省长。
 
-世界妇女组织总干事安格拉·罗应邀出席大会并发表致辞。
+上述五人中，有两人是“70后”干部，其中履新安徽省副省长的何淳宽，生于1977年10月。
 
-她代表世界妇女组织，对上海市工商联女企业家联合会的成立表示热烈祝贺，并向中国女性企业家在商业领域展现出的智慧、韧性与责任担当致以崇高敬意。
+有两人此番跨省调整：今次履新云南省副省长的袁方，此前任安徽省马鞍山市委书记；今次履新四川省副省长的马正勇，此前任广东省副省长、梅州市委书记。
 
-安格拉·罗的致辞是从全球视角出发，对新中国成立以来特别是改革开放以来中国妇女全面发展成就的高度评价。
+5月28日，云南省第十四届人民代表大会常务委员会第二十三次会议通过，决定任命袁方为省人民政府副省长。
 
-安格拉·罗表示，三十一年前，《北京宣言》和《行动纲领》响彻世界，开启了全球性别平等与妇女发展的新纪元。
+袁方生于1969年7月，长期在安徽省工作，曾在安徽多个地市任职，2017年出任安徽省人民防空办公室主任，2019年调任马鞍山市市长，2023年1月出任马鞍山市委书记，至此番跨省任云南省副省长。
 
-今天，站在上海这座中国改革开放的前沿高地，她看到了《北京宣言》精神在新时代中国的生动实践。
+5月27日，四川省十四届人大常委会第二十七次会议第二次全体会议表决通过，决定任命马正勇为四川省人民政府副省长。
 
-她指出，“她力量”已经成为推动经济高质量发展不可或缺的重要动力，中国女性不仅在创造物质财富，更在重塑商业文明，展现出“尚善而立，向美而行，向新而生”的精神风貌。
+马正勇生于1973年1月，早期从北京大学毕业后留校工作多年，曾任北京大学学生工作部副部长，后调至广东工作，曾任广州市海珠区委书记，2020年调任清远市市长。
 
-作为长期推动全球性别平等、妇女赋权与可持续发展的国际组织代表，安格拉·罗在致辞中特别强调，中国妇女事业的发展成就令世界瞩目。
+2021年7月，马正勇调任梅州市代市长，次月任梅州市市长，同年10月任梅州市委书记，2025年4月任广东省副省长，并继续兼任梅州市委书记，至此番跨省调任四川省副省长。
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [找到了10年前跪舔b站的视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 06:58 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jssoa.md)
-- 2026-06-30 06:53 - [庆祝中国共产党成立105周年音乐会](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 06:53 - [永辉超市回应两个包子卖104元](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/axfhf.md)
-- 2026-06-30 07:06 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ixzuz.md)
-- 2026-06-30 06:46 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdxxu.md)
-- 2026-06-30 06:54 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hyaua.md)
-- 2026-06-30 07:00 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qzext.md)
-- 2026-06-30 06:54 - [挪威国家队紧急从本土订购大批海鲜](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yunneng.md)
-- 2026-06-30 07:10 - [马杜罗账号在纽约发文致谢各国援助](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/pzqhr.md)
-- 2026-06-30 07:01 - [周冬雨多次说演不了话剧文城](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nuanli.md)
-- 2026-06-30 07:08 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 06:49 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mxlpv.md)
+- 2026-06-30 06:51 - [巴西绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qlrhk.md)
+- 2026-06-30 07:17 - [外国游客开始涌入中国农村](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
+- 2026-06-30 06:58 - [女子称留了30年长发被剪索赔2.5万](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/douxuan.md)
+- 2026-06-30 07:13 - [日本接连三场大型军演想干什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gainai.md)
+- 2026-06-30 07:09 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uysvl.md)
+- 2026-06-30 06:57 - [DeepSeek V4正式版要来了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hangduan.md)
+- 2026-06-30 07:15 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanyi.md)
+- 2026-06-30 06:54 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/omrtk.md)
+- 2026-06-30 06:48 - [李在明90度鞠躬感谢韩国两大财阀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fyngo.md)
+- 2026-06-30 06:52 - [明星大侦探第四季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cknrh.md)
+- 2026-06-30 07:13 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ngums.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [《我落泪情绪零碎》](http://www.share.kurohicncr.top/Article/details/13605150.shtml)
-- 2026-06-30 06:49 - [一见倾心](https://www.blog.minike.top/Article/details/556025.shtml)
-- 2026-06-30 06:44 - [庆祝中国共产党成立105周年大会将举行](https://www.blog.minike.top/Article/details/294497790336.shtml)
-- 2026-06-30 07:02 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/41156.shtml)
-- 2026-06-30 06:52 - [普京间接喊话特朗普有何考量](http://www.blog.minike.top/Article/details/657914157399.shtml)
-- 2026-06-30 06:55 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://www.share.kurohicncr.top/Article/details/60980980.shtml)
-- 2026-06-30 07:02 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://www.share.kurohicncr.top/Article/details/140181978297.shtml)
-- 2026-06-30 06:56 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://www.blog.kurohicncr.top/Article/details/5758766.shtml)
-- 2026-06-30 07:03 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.share.kurohicncr.top/Article/details/54773506.shtml)
-- 2026-06-30 06:51 - [古代时期普通老百姓能喝上酒吗？](https://www.share.minike.top/Article/details/70813260.shtml)
-- 2026-06-30 07:01 - [美股](http://www.blog.minike.top/Article/details/3367026909.shtml)
-- 2026-06-30 06:56 - [杨某诋毁袁隆平院士科研成果被刑拘](https://www.share.minike.top/Article/details/073639.shtml)
-- 2026-06-30 07:11 - [卡塞米罗头球破门 巴西扳平日本](http://www.share.minike.top/Article/details/12981882460.shtml)
-- 2026-06-30 07:10 - [鉴定师的失败救赎](https://www.share.minike.top/Article/details/565915381.shtml)
-- 2026-06-30 06:42 - [张帅晋级温网次轮](http://www.share.minike.top/Article/details/7692176.shtml)
+- 2026-06-30 07:01 - [苗族银饰](http://www.blog.minike.top/Article/details/57388.shtml)
+- 2026-06-30 06:56 - [严浩翔张峻豪师兄弟同台](https://www.share.minike.top/Article/details/13491.shtml)
+- 2026-06-30 06:51 - [科学备孕男女都要上心](http://www.share.kurohicncr.top/Article/details/36956.shtml)
+- 2026-06-30 07:03 - [王欣瑜晋级温网女单次轮](http://www.share.kurohicncr.top/Article/details/4592912798.shtml)
+- 2026-06-30 07:09 - [巴西扳平比分](https://www.blog.minike.top/Article/details/679648709311.shtml)
+- 2026-06-30 06:59 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/366999826.shtml)
+- 2026-06-30 06:53 - [陈睿《让好内容发生》](https://www.share.minike.top/Article/details/065368896002.shtml)
+- 2026-06-30 06:54 - [法国小学众筹装空调后市长下令拆除](https://www.share.kurohicncr.top/Article/details/064121686387.shtml)
+- 2026-06-30 06:57 - [李准基参加文彩元婚礼](https://www.blog.minike.top/Article/details/866704665546.shtml)
+- 2026-06-30 07:01 - [起风了](https://www.share.minike.top/Article/details/269115.shtml)
+- 2026-06-30 07:09 - [佐野海舟远射破门](https://www.blog.kurohicncr.top/Article/details/72788.shtml)
+- 2026-06-30 06:55 - [宜宾地震食客避难后折返 无人逃单](https://www.blog.minike.top/Article/details/450536920972.shtml)
+- 2026-06-30 06:54 - [【苏星河车机】真的没有人能管管，理想这个颠牌子了吗？](https://www.blog.kurohicncr.top/Article/details/483597.shtml)
+- 2026-06-30 07:09 - [电影《后室》讲了一个什么故事？](https://www.share.kurohicncr.top/Article/details/76388870.shtml)
+- 2026-06-30 07:14 - [女心理师](https://www.share.minike.top/Article/details/97948112.shtml)

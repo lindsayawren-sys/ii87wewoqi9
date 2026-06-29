@@ -1,56 +1,57 @@
-# 浙江东阳：为未成年演员撑起法治“保护伞”
+# 韩正将赴俄罗斯出席第二十九届圣彼得堡国际经济论坛并访问白俄罗斯 外交部介绍此访安排
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网金华6月4日电 (刘子琳)“以前不知道在网上发别人的照片也可能违法，现在知道哪些事不能做了，遇到奇怪的事情也要及时告诉家长。”近日，在浙江东阳横店，参加完“护苗·绿书签”法治关爱活动后，今年10岁的“小演员”汤景贺说。 近年来，随着横店影视产业发展，越来越多未成年演艺人员来到这里参与影视拍摄。与此同时，一些打着“招募童星”“推荐资源”旗号的网络陷阱也给未成年人及其家长带来
+中新网北京6月2日电 (记者 谢雁冰 郭超凯)中国外交部发言人2日宣布：应俄罗斯联邦政府和白俄罗斯共和国政府邀请，国家副主席韩正将于6月4日至8日赴俄罗斯出席第二十九届圣彼得堡国际经济论坛，并对白俄罗斯进行访问。 外交部发言人毛宁当天在主持例行记者会时介绍了此访背景、活动安排和中方期待。毛宁说，圣彼得堡国际经济论坛是探讨全球经济治理、凝聚国际合作共识的重要平台。本届论坛以“务实
 
 ## 正文
 
-中新网金华6月4日电 (刘子琳)“以前不知道在网上发别人的照片也可能违法，现在知道哪些事不能做了，遇到奇怪的事情也要及时告诉家长。
+中新网北京6月2日电 (记者 谢雁冰 郭超凯)中国外交部发言人2日宣布：应俄罗斯联邦政府和白俄罗斯共和国政府邀请，国家副主席韩正将于6月4日至8日赴俄罗斯出席第二十九届圣彼得堡国际经济论坛，并对白俄罗斯进行访问。
 
-”近日，在浙江东阳横店，参加完“护苗·绿书签”法治关爱活动后，今年10岁的“小演员”汤景贺说。
+外交部发言人毛宁当天在主持例行记者会时介绍了此访背景、活动安排和中方期待。
 
-近年来，随着横店影视产业发展，越来越多未成年演艺人员来到这里参与影视拍摄。
+毛宁说，圣彼得堡国际经济论坛是探讨全球经济治理、凝聚国际合作共识的重要平台。
 
-与此同时，一些打着“招募童星”“推荐资源”旗号的网络陷阱也给未成年人及其家长带来风险隐患。
+本届论坛以“务实对话—通往稳定未来之路”为主题，具有重要现实意义。
 
-“加这个群，里面有导演和资源。
+韩正副主席将出席论坛活动，并会见俄方有关领导人。
 
-”此前，在横店陪孩子拍戏的刘女士曾被一名自称“选角助理”的人员拉入微信群。
+中方期待与各方加强沟通，增进互信，践行多边主义，推动构建更加公正合理的全球治理体系。
 
-随后，群内频繁传播不良信息链接，涉嫌非法引流，让她提高了警惕。
+中方也愿与俄方一道，落实好两国元首5月会晤达成的重要共识，推动中俄新时代全面战略协作伙伴关系高水平发展。
 
-针对这类以“招募童星”为名传播不良信息、侵害未成年人隐私等问题，东阳市“扫黄打非”办公室联合东阳市人民检察院、东阳市公安局、横店影视城演员公会等单位举办“护苗·绿书签”法治关爱活动，来自北京、上海、广州、深圳以及山东、河南、江苏等地的40余名未成年演艺人员及其家长参加。
+毛宁表示，中国和白俄罗斯是全天候全面战略伙伴。
 
 ## 相关推荐
 
-- 2026-06-30 06:49 - [建议不要突然完全停止喝咖啡](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/luanbang.md)
-- 2026-06-30 07:11 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtops.md)
-- 2026-06-30 06:59 - [女子驾车致丈夫身亡法院认定无家暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tknvr.md)
-- 2026-06-30 06:45 - [官方否认宜宾地震与页岩气开采有关](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/maygo.md)
-- 2026-06-30 07:08 - [花少8要去世界杯举办国](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksnic.md)
-- 2026-06-30 06:47 - [扬名立万](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/doutong.md)
-- 2026-06-30 07:08 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 07:10 - [HTTP 只读查询新方法将成正式标准，告别尴尬借用 POST，这对开发者意味着什么？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tfmcr.md)
-- 2026-06-30 06:55 - [创新药板块能否“苦尽甘来”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiumei.md)
-- 2026-06-30 07:05 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rrcmm.md)
+- 2026-06-30 06:50 - [TOP不是Prada全球普通人](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/senxun.md)
+- 2026-06-30 06:50 - [索马里女大使：想和中国一起搞事业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cuyong.md)
+- 2026-06-30 06:59 - [沉睡花园](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/fancu.md)
+- 2026-06-30 07:06 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ntngg.md)
+- 2026-06-30 06:50 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sveuy.md)
+- 2026-06-30 06:49 - [复古未来主义沙画「夜泳」](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tndic.md)
+- 2026-06-30 07:00 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 07:06 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
+- 2026-06-30 06:48 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yisai.md)
+- 2026-06-30 06:59 - [男子身高一米八二仍做断骨增高](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiachuang.md)
+- 2026-06-30 07:07 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kkvrl.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:52 - [医药暴涨5.91%背后](https://www.share.minike.top/Article/details/0105883.shtml)
-- 2026-06-30 07:11 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://www.blog.kurohicncr.top/Article/details/7745964252.shtml)
-- 2026-06-30 06:43 - [失明的我带老妈去了趟“火星”](http://www.share.minike.top/Article/details/308252881.shtml)
-- 2026-06-30 06:53 - [女子遭家暴逃跑致丈夫身亡二审细节](http://www.share.minike.top/Article/details/098161888514.shtml)
-- 2026-06-30 06:59 - [美股](https://www.blog.minike.top/Article/details/4595860644.shtml)
-- 2026-06-30 07:02 - [我找了鬼畜区百大和搞笑UP来帮我拍车，结果.......](https://www.blog.kurohicncr.top/Article/details/6290692.shtml)
-- 2026-06-30 07:06 - [董卿父亲发文悼念亡妻](https://www.share.minike.top/Article/details/331589605583.shtml)
-- 2026-06-30 06:56 - [我发现不管什么昆虫，只要在它身上滴两滴乙酸丁酯，它就会立刻抽搐，然后不到二十秒死掉，这是什么原因？](http://www.blog.kurohicncr.top/Article/details/546751604.shtml)
-- 2026-06-30 06:57 - [王欣瑜晋级温网女单次轮](http://www.blog.minike.top/Article/details/54212.shtml)
-- 2026-06-30 06:53 - [外国游客开始涌入中国农村](https://www.blog.minike.top/Article/details/609739858.shtml)
-- 2026-06-30 06:48 - [高中五人学习小组全员超650分](http://www.blog.minike.top/Article/details/7907949.shtml)
-- 2026-06-30 07:08 - [2026MSI应援曲《如果季中成回忆》](https://www.share.minike.top/Article/details/44595155.shtml)
-- 2026-06-30 06:45 - [千与千寻](http://www.share.minike.top/Article/details/0003569146.shtml)
-- 2026-06-30 07:11 - [男子诋毁袁隆平科研成果被刑拘](https://www.share.kurohicncr.top/Article/details/72886189866.shtml)
-- 2026-06-30 06:42 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/146033934247.shtml)
+- 2026-06-30 06:58 - [女子称留了30年长发被剪索赔2.5万](http://www.share.kurohicncr.top/Article/details/17333.shtml)
+- 2026-06-30 07:04 - [UP主复刻百万英镑牛排套餐](http://www.share.kurohicncr.top/Article/details/79739499697.shtml)
+- 2026-06-30 07:12 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](http://www.blog.kurohicncr.top/Article/details/92356.shtml)
+- 2026-06-30 07:01 - [多功能求生吊坠 第四轮迭代汇报](https://www.blog.minike.top/Article/details/16966.shtml)
+- 2026-06-30 07:14 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](http://www.blog.kurohicncr.top/Article/details/20842.shtml)
+- 2026-06-30 06:53 - [请回答王牌2019](https://www.share.kurohicncr.top/Article/details/07854504.shtml)
+- 2026-06-30 07:06 - [日本领先巴西](http://www.blog.kurohicncr.top/Article/details/7045777859.shtml)
+- 2026-06-30 07:01 - [找到了10年前跪舔b站的视频](https://www.share.kurohicncr.top/Article/details/554676039.shtml)
+- 2026-06-30 06:59 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/2707087447.shtml)
+- 2026-06-30 06:54 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.blog.kurohicncr.top/Article/details/3932218.shtml)
+- 2026-06-30 07:17 - [庆祝中国共产党成立105周年音乐会](https://www.blog.minike.top/Article/details/46907441.shtml)
+- 2026-06-30 06:53 - [啊啊啊](http://www.blog.kurohicncr.top/Article/details/362525.shtml)
+- 2026-06-30 07:08 - [美股三大指数高开 西部数据涨超2%](https://www.blog.kurohicncr.top/Article/details/24350350.shtml)
+- 2026-06-30 07:02 - [四川宜宾地震瞬间鱼群乱跳](http://www.blog.kurohicncr.top/Article/details/7777691205.shtml)
+- 2026-06-30 07:02 - [李在明90度鞠躬感谢韩国两大财阀](http://www.share.kurohicncr.top/Article/details/6911992622.shtml)

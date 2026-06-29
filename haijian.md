@@ -1,57 +1,60 @@
-# 英国贸易大臣：重新加入欧盟无法解决英国的问题
+# 中信证券：全球能源转型加速 锂电供需格局料将迎景气度上行
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-英国商业与贸易大臣凯尔（Peter Kyle） 将在周三表示，重新加入欧盟无法“神奇地解决”英国面临的问题，尽管英国的长期未来与欧洲息息相关。 首相斯塔默此前承诺改善与英国最大贸易伙伴欧盟的贸易关系，并批评最初的脱欧协议造成的经济损害——但他拒绝任何关于重新加入欧盟的提议。 不过，地方和地区选举中惨淡的选情已令其执政地位岌岌可危。一些可能接替斯塔默的人选谈及未来或许重新加入欧盟
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！中信证券研究 文|吴威辰 许英博 刘海博 尹欣驰 李景涛 王喆 敖翀 拜俊飞 汪浩 柯迈 於学鑫 贾玉潇 展望2026年下半年，锂电行业整体供需格局料将迎来景气度上行。需求端，受益我国内需修复以及全球油价上行，全球动力电池需求高景气料将延续；此外，收益模式丰富、新型应用领域等因素推动储能装机经济性继续提升，
 
 ## 正文
 
-英国商业与贸易大臣凯尔（Peter Kyle） 将在周三表示，重新加入欧盟无法“神奇地解决”英国面临的问题，尽管英国的长期未来与欧洲息息相关。
+炒股就看金麒麟分析师研报，权威，专业，及时，全面，助您挖掘潜力主题机会！
 
-首相斯塔默此前承诺改善与英国最大贸易伙伴欧盟的贸易关系，并批评最初的脱欧协议造成的经济损害——但他拒绝任何关于重新加入欧盟的提议。
+中信证券研究 文|吴威辰 许英博 刘海博 尹欣驰 李景涛 王喆 敖翀 拜俊飞 汪浩 柯迈 於学鑫 贾玉潇 展望2026年下半年，锂电行业整体供需格局料将迎来景气度上行。
 
-不过，地方和地区选举中惨淡的选情已令其执政地位岌岌可危。
+需求端，受益我国内需修复以及全球油价上行，全球动力电池需求高景气料将延续；此外，收益模式丰富、新型应用领域等因素推动储能装机经济性继续提升，全球储能迎来国内外需求共振向上的发展阶段。
 
-一些可能接替斯塔默的人选谈及未来或许重新加入欧盟，将这一议题重新推上了政治议程。
+供给端，电池和中游材料环节新增扩产主要聚焦于高端产品及海外产能，我们预计2026年下半年行业供需有望进一步改善，产业链价格企稳回升，高端产品有望攫取更高的技术溢价。
 
-凯尔在即将于年度贸易晚宴上发表的讲话节选中表示：“我依然相信英国的未来与欧洲息息相关。
+此外，固态电池产业化加速，有望带来电池、材料、设备环节的投资机会。
 
-但我同时也认为，我们必须诚实面对自身处境。
+重点关注技术差异化程度更高、成本控制能力更强的供应链优质头部企业。
 
-“ 他称，令他感到沮丧的是，2016年公投期间，一些支持脱欧的人士暗示脱欧将解决英国的问题。
+▍新能源汽车：电动化渗透率持续提升，单车带电量持续增长。
 
-但他补充称，“同样地，明天重新加入欧盟也不会神奇地解决这些问题。
+国内市场，根据中汽协数据，2026年1-4月我国新能源车批发销量达到430.6万辆，同比+0.2%，剔除出口销量后则同比下滑约20%，主要受到购置税、原材料成本上涨等因素带来的购车成本提升影响。
 
 ## 相关推荐
 
-- 2026-06-30 07:04 - [千与千寻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kanzhao.md)
-- 2026-06-30 06:56 - ["为什么说是CS史上最伟大的救赎"【Niko十一年生涯混剪纪录片】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yuankuo.md)
-- 2026-06-30 06:46 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yangliu.md)
-- 2026-06-30 07:11 - [刘宇宁是去进货了吗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jinnuo.md)
-- 2026-06-30 06:50 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenghai.md)
-- 2026-06-30 06:50 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
-- 2026-06-30 07:02 - [沉睡花园](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cugjm.md)
-- 2026-06-30 07:03 - [恋与深空回应争议](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/knbtp.md)
-- 2026-06-30 07:05 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gtysl.md)
-- 2026-06-30 06:52 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jflul.md)
-- 2026-06-30 06:52 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tgzcd.md)
+- 2026-06-30 07:04 - [19岁男孩快220斤被查出营养不良](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hfthy.md)
+- 2026-06-30 06:58 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tcqkf.md)
+- 2026-06-30 06:53 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cunxin.md)
+- 2026-06-30 06:54 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dubiao.md)
+- 2026-06-30 07:02 - [我和我的家乡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/niemou.md)
+- 2026-06-30 07:04 - [足球小将的剧本成真了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/iizrl.md)
+- 2026-06-30 07:08 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 07:16 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mudao.md)
+- 2026-06-30 06:53 - [赵今麦电影开端客串路透](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/souling.md)
+- 2026-06-30 06:49 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gjgdj.md)
+- 2026-06-30 06:50 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zanjing.md)
+- 2026-06-30 07:04 - [不开心就去看三年前的购物订单](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/beudl.md)
+- 2026-06-30 07:04 - [陈小云又好好的养了自己一年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/texiu.md)
+- 2026-06-30 07:01 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/opqpi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:54 - [赵丽颖风吹半夏含金量还在上升](http://www.share.minike.top/Article/details/61446.shtml)
-- 2026-06-30 07:04 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://www.share.kurohicncr.top/Article/details/61637.shtml)
-- 2026-06-30 06:53 - [诋毁袁隆平、抹黑无底线：农业造谣者有多无法无天](https://www.blog.minike.top/Article/details/1659787.shtml)
-- 2026-06-30 06:55 - [巴拉圭先进球了](http://www.blog.minike.top/Article/details/7974520577.shtml)
-- 2026-06-30 06:45 - [张凌赫杨超越 峨眉](http://www.blog.minike.top/Article/details/0951402065.shtml)
-- 2026-06-30 06:43 - [徐良演唱会伴舞把鞋子跳掉了](http://www.share.kurohicncr.top/Article/details/3126388.shtml)
-- 2026-06-30 07:05 - [有酒店推行24小时退房制](http://www.share.kurohicncr.top/Article/details/143595663395.shtml)
-- 2026-06-30 07:02 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/10788584476.shtml)
-- 2026-06-30 06:50 - [一集吃爽！在重庆的肥肠鸡加串串香到底有啥不一样？！！](http://www.share.kurohicncr.top/Article/details/25398.shtml)
-- 2026-06-30 07:03 - [女子发现孩子非现任亲生状告前任索赔](https://www.share.kurohicncr.top/Article/details/579391093.shtml)
-- 2026-06-30 07:01 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://www.blog.minike.top/Article/details/03264.shtml)
-- 2026-06-30 07:11 - [张凌赫杨超越 峨眉](https://www.share.minike.top/Article/details/34379.shtml)
-- 2026-06-30 07:11 - [女子清吧被陌生人投放伟哥](http://www.share.minike.top/Article/details/20658845.shtml)
-- 2026-06-30 06:49 - [詹姆斯下赛季去哪](http://www.share.kurohicncr.top/Article/details/326357.shtml)
-- 2026-06-30 06:55 - [恐怖世界 第2集 和姐姐一起被食人魔追杀 【AI全民制作人】](https://www.share.minike.top/Article/details/542672375451.shtml)
+- 2026-06-30 07:12 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://www.blog.kurohicncr.top/Article/details/65875415.shtml)
+- 2026-06-30 06:52 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/458392037225.shtml)
+- 2026-06-30 06:48 - [孙兴慜道歉](http://www.share.minike.top/Article/details/394615035564.shtml)
+- 2026-06-30 07:07 - [“手机痴呆症”盯上中青年](https://www.blog.minike.top/Article/details/561128166294.shtml)
+- 2026-06-30 07:02 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://www.blog.minike.top/Article/details/087258634.shtml)
+- 2026-06-30 07:09 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/0554416294.shtml)
+- 2026-06-30 07:13 - [我把队友的7连跪剪成了艺术](https://www.blog.minike.top/Article/details/5946785.shtml)
+- 2026-06-30 07:08 - [未来的飞机可能会用电吗？](http://www.share.kurohicncr.top/Article/details/9772935.shtml)
+- 2026-06-30 06:50 - [我觉得你是在无中生友](https://www.blog.minike.top/Article/details/7890556.shtml)
+- 2026-06-30 06:49 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/358667.shtml)
+- 2026-06-30 07:07 - [官方否认宜宾地震与页岩气开采有关](https://www.blog.minike.top/Article/details/7958694.shtml)
+- 2026-06-30 07:14 - [美股](http://www.share.minike.top/Article/details/20960.shtml)
+- 2026-06-30 07:16 - [高中五人学习小组全员超650分](http://www.share.minike.top/Article/details/1006061.shtml)
+- 2026-06-30 07:09 - [主人解开狗绳 2只狗将路人撕咬致死](http://www.share.minike.top/Article/details/99300744829.shtml)
+- 2026-06-30 07:13 - [安切洛蒂 换人](http://www.blog.kurohicncr.top/Article/details/248099663.shtml)

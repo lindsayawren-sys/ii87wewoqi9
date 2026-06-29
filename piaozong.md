@@ -1,58 +1,58 @@
-# Intuit面临证券欺诈调查：财报后股价暴跌20% 低端市场份额流失
+# 田间食材“冲”出时尚味道 青年创意咖啡激活成都乡村经济
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-知名证券律所Bleichmar Fonti & Auld LLP近日宣布，正在对财务软件巨头Intuit Inc．展开调查，以评估公司是否在2026年报税季期间就TurboTax的定价策略作出虚假陈述，从而构成证券欺诈。 调查聚焦于公司在2026年报税季前及报税季期间关于TurboTax价格定位的表述。根据律所公告，Intuit在此期间向投资者表示，公司“几年前”就已为2026
+中新网成都6月3日电 题：田间食材“冲”出时尚味道 青年创意咖啡激活成都乡村经济 作者 陈选斌 在成都近郊的田野间，一杯杯看似“暗黑”却风味独特的咖啡正飘出香气。“大蒜咖啡”“韭菜咖啡”“豆瓣咖啡”……在地特产与潮流饮品的跨界碰撞，催生了诸多新颖创意。青年创业者以咖啡为媒介，将农产品转化为连接现代消费、承载乡村故事的时尚符号，为成都乡村经济注入崭新活力与发展想象。 “2024年
 
 ## 正文
 
-知名证券律所Bleichmar Fonti & Auld LLP近日宣布，正在对财务软件巨头Intuit Inc．展开调查，以评估公司是否在2026年报税季期间就TurboTax的定价策略作出虚假陈述，从而构成证券欺诈。
+中新网成都6月3日电 题：田间食材“冲”出时尚味道 青年创意咖啡激活成都乡村经济 作者 陈选斌 在成都近郊的田野间，一杯杯看似“暗黑”却风味独特的咖啡正飘出香气。
 
-调查聚焦于公司在2026年报税季前及报税季期间关于TurboTax价格定位的表述。
+“大蒜咖啡”“韭菜咖啡”“豆瓣咖啡”……在地特产与潮流饮品的跨界碰撞，催生了诸多新颖创意。
 
-根据律所公告，Intuit在此期间向投资者表示，公司“几年前”就已为2026年报税季做好准备，并清楚2025年的成功经验在于“提供相较于竞品的最低价格”。
+青年创业者以咖啡为媒介，将农产品转化为连接现代消费、承载乡村故事的时尚符号，为成都乡村经济注入崭新活力与发展想象。
 
-公司还声称2026年报税季“开局强劲”，已准备好为客户提供“最优价格”。
+“2024年‘大蒜咖啡’单品销量突破7万杯，2025年再创新高，突破9万杯。
 
-然而真相在5月20日浮出水面。
+”在温江区高山村榜样青年CSA社区，负责人戴超分享了这组亮眼数据。
 
-Intuit当日发布第三财季财报，公司整体营收同比增长10%至85.6亿美元，略低于市场预期的86.1亿美元；调整后每股收益12.80美元，略高于预期的12.57美元。
+这位有着6年投行从业经历的“90后”，2020年扎根当地，将发展目光投向村里近3000亩蒜田。
 
-但真正引发市场恐慌的是管理层的坦诚表态。
+传统大蒜多作为调味品使用，产业附加值偏低。
 
-首席执行官Sasan Goodarzi在财报电话会上承认：“我们在价格上输了。
+戴超团队决心打破这一现状，瞄准深受年轻人喜爱的咖啡品类，打造出“能喝的温江大蒜”。
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bosfu.md)
-- 2026-06-30 06:43 - [曝多支争冠球队有意塞克斯顿](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/htbfb.md)
-- 2026-06-30 06:51 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
-- 2026-06-30 07:08 - [世界杯：巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/suaho.md)
-- 2026-06-30 06:54 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhizong.md)
-- 2026-06-30 07:01 - [刘宇宁是去进货了吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ngvvt.md)
-- 2026-06-30 07:09 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md)
-- 2026-06-30 06:47 - [如何把斧兵改造成精英怪？提高攻速移速！！！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/elcqb.md)
-- 2026-06-30 07:04 - [美股三大指数高开 西部数据涨超2%](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
-- 2026-06-30 07:03 - [《鸣潮》玄方主题曲 MV | 定玄](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 06:46 - [宇树机器人 R1 起售价降至 2.99 万元，并开启现货发售，如何看待这一调整？降价能提升销量吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bashang.md)
-- 2026-06-30 07:04 - [中国新一轮出口管制直指日本命脉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nantuan.md)
+- 2026-06-30 06:59 - [截瘫男子因心疼妻子做出可站立轮椅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnknw.md)
+- 2026-06-30 07:10 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kesfh.md)
+- 2026-06-30 07:05 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sxeju.md)
+- 2026-06-30 07:10 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/zailao.md)
+- 2026-06-30 06:52 - [本科毕业生为何涌入专科学校](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hkzwu.md)
+- 2026-06-30 06:55 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gsaub.md)
+- 2026-06-30 06:58 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/raogh.md)
+- 2026-06-30 06:55 - [永辉超市回应两个包子卖104元](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rvghm.md)
+- 2026-06-30 07:15 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/guanliao.md)
+- 2026-06-30 06:49 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:03 - [世界杯：巴西vs日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 07:11 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haizang.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:53 - [徐亮怒斥世界杯踢假球](http://www.blog.minike.top/Article/details/170522575.shtml)
-- 2026-06-30 07:05 - [花6万多相亲对象竟是50元请来的](https://www.share.minike.top/Article/details/29243185653.shtml)
-- 2026-06-30 06:52 - [老人喝隔夜排骨汤喝进医院](https://www.blog.kurohicncr.top/Article/details/21543.shtml)
-- 2026-06-30 07:08 - [木叶三忍的称号明明是耻辱的称呼为什么他们反而出名了？](https://www.share.minike.top/Article/details/90841.shtml)
-- 2026-06-30 06:49 - [高考结束，该不该外出打工体验？](https://www.blog.kurohicncr.top/Article/details/373728.shtml)
-- 2026-06-30 06:58 - [外国游客开始涌入中国农村](http://www.blog.kurohicncr.top/Article/details/294378.shtml)
-- 2026-06-30 06:54 - [庆祝中国共产党成立105周年音乐会](http://www.share.minike.top/Article/details/5456337580.shtml)
-- 2026-06-30 06:58 - [孙兴慜道歉](https://www.share.kurohicncr.top/Article/details/72918087.shtml)
-- 2026-06-30 06:47 - [范志毅看好日本队淘汰巴西](https://www.blog.minike.top/Article/details/800728032.shtml)
-- 2026-06-30 07:11 - [外国游客开始涌入中国农村](http://www.share.kurohicncr.top/Article/details/673763.shtml)
-- 2026-06-30 06:57 - [恋与深空道歉声明](https://www.blog.kurohicncr.top/Article/details/7141661268.shtml)
-- 2026-06-30 07:04 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](https://www.share.minike.top/Article/details/538597043.shtml)
-- 2026-06-30 06:45 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.kurohicncr.top/Article/details/4248657900.shtml)
-- 2026-06-30 06:51 - [王欣瑜连续4年晋级温网第二轮](https://www.blog.minike.top/Article/details/0623306.shtml)
-- 2026-06-30 07:11 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/976911.shtml)
+- 2026-06-30 06:57 - [内马尔替补](https://www.blog.minike.top/Article/details/43369733692.shtml)
+- 2026-06-30 07:06 - [收受1.98亿余元 周家斌被判无期](http://www.blog.kurohicncr.top/Article/details/04663.shtml)
+- 2026-06-30 06:54 - [我想说 其实你很好！](https://www.blog.minike.top/Article/details/87394648.shtml)
+- 2026-06-30 07:14 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/952626150282.shtml)
+- 2026-06-30 07:17 - [歌剧老师锐评歌手第6期](http://www.blog.minike.top/Article/details/945788421.shtml)
+- 2026-06-30 07:13 - [世界杯连开三场决战](http://www.blog.minike.top/Article/details/4712104.shtml)
+- 2026-06-30 06:58 - [曝多支争冠球队有意塞克斯顿](http://www.blog.kurohicncr.top/Article/details/290913315184.shtml)
+- 2026-06-30 06:51 - [檀健次王楚然吻戏看热了](http://www.share.minike.top/Article/details/53138502897.shtml)
+- 2026-06-30 07:07 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/4510256883.shtml)
+- 2026-06-30 07:11 - [电子游戏中有哪些关于武器的“刻板印象”？](http://www.blog.minike.top/Article/details/60226539567.shtml)
+- 2026-06-30 07:13 - [请回答王牌2019](https://www.share.minike.top/Article/details/04439.shtml)
+- 2026-06-30 06:48 - [庆祝中国共产党成立105周年音乐会](http://www.blog.kurohicncr.top/Article/details/460642.shtml)
+- 2026-06-30 07:16 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/48394544.shtml)
+- 2026-06-30 07:07 - [宗元舞2.0 迟来的50万女装福利](https://www.share.minike.top/Article/details/204539854697.shtml)
+- 2026-06-30 07:15 - [美加墨世界杯：亚洲足球的得意与失意](http://www.share.kurohicncr.top/Article/details/833249.shtml)

@@ -1,56 +1,61 @@
-# 香港金发局行政总监：允许货基代币化并进行二级交易仅为“起步” 大宗商品代币化或是下一阶段抓手
+# 欧洲债市：欧洲政府债券上涨 英国国债跑赢
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-文/新浪财经香港站 赵岚 香港金融发展局（金发局）行政总监董一岳，在一场发布会中表示，香港数字资产行业规范及发展过程当中考虑了很多因素。金发局在与香港特区政府、金融监管部门沟通时，从政策监管、从业机构、金融产品进行了整合，旨在打破数字资产行业发展壁垒，衔接传统金融体系。 在监管政策整合层面，金发局建议摒弃被动跟进域外监管的模式，采取以香港情况为基准的市场先行实践。 全球虚拟资产
+受油价继前日飙升后企稳支撑，欧洲政府债券上涨。英国国债跑赢。 长期债券领涨，英国30年期国债收益率下跌5个基点至5.54%，德国30年期国债收益率下跌2个基点至3.52%；债券收窄早前涨幅，与美国国债走势一致，早前发布的数据显示美国劳动力市场强劲，表明美联储的下一步政策举措可能是加息。 英国两年期国债收益率下跌2个基点至4.31%，德国两年期国债收益率下跌2个基点至2.61%；
 
 ## 正文
 
-文/新浪财经香港站 赵岚 香港金融发展局（金发局）行政总监董一岳，在一场发布会中表示，香港数字资产行业规范及发展过程当中考虑了很多因素。
+受油价继前日飙升后企稳支撑，欧洲政府债券上涨。
 
-金发局在与香港特区政府、金融监管部门沟通时，从政策监管、从业机构、金融产品进行了整合，旨在打破数字资产行业发展壁垒，衔接传统金融体系。
+英国国债跑赢。
 
-在监管政策整合层面，金发局建议摒弃被动跟进域外监管的模式，采取以香港情况为基准的市场先行实践。
+长期债券领涨，英国30年期国债收益率下跌5个基点至5.54%，德国30年期国债收益率下跌2个基点至3.52%；债券收窄早前涨幅，与美国国债走势一致，早前发布的数据显示美国劳动力市场强劲，表明美联储的下一步政策举措可能是加息。
 
-全球虚拟资产监管早年路线分化，香港最终放弃了对标海外监管规则的思路，优先落地本土适配、行业认可的合规方案，实现监管层面的趋同统一，降低照搬域外法规带来的落地失败风险。
+英国两年期国债收益率下跌2个基点至4.31%，德国两年期国债收益率下跌2个基点至2.61%；长期国债收益率的跌幅更大，导致该地区的收益率曲线牛市趋陡。
 
-香港梳理了合规经营、投资者保护、反洗钱风控等实践措施。
+周二的走势扭转了前一日的抛售，前一日油价上涨导致收益率上升。
 
-依托香港成熟的金融监管沙盒机制，以沙盒试点成果为依据，推动本地合规指引持续优化，化解全球监管分化带来的合规风险。
+英国央行政策制定者Megan Greene警告称若中东冲突迟迟未能解决，则英国央行更有理由加息。
 
-在从业机构整合层面，早前，虚拟资产从业机构与传统持牌金融机构各自独立、平行发展。
+投资者正等待周三公布的欧洲PMI数据，以及2035年到期的通胀挂钩英债发行情况。
 
-董一岳认为，香港正逐渐打破两类金融主体割裂现状。
+市场： 德国国债收益率下降3个基点，报2.97%； 德国国债期货涨35点，报126.05； 意大利10年期国债收益率下降5个基点，报3.69%； 意大利-德国国债利差收窄2个基点，报72个基点； 法国10年期国债收益率下降4个基点，报3.59%； 10年期英国国债收益率下降5个基点，报4.85%。
 
 ## 相关推荐
 
-- 2026-06-30 06:45 - [王灿兮被烫伤两年后维权成功](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qlrhk.md)
-- 2026-06-30 07:01 - [【硬核拆解】汽车人到底离我们有多远？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dezzl.md)
-- 2026-06-30 07:06 - [巴西醒醒 这是淘汰赛](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/howin.md)
-- 2026-06-30 06:57 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dtqcy.md)
-- 2026-06-30 06:49 - [韩国队输球后连呼吸都是错的吗](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kouchuan.md)
-- 2026-06-30 06:50 - [四川宜宾地震为何震感明显](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xuantie.md)
-- 2026-06-30 07:03 - [第一次在芬兰市中心摆摊创业卖手工酱香饼蛋烘糕大爆单！咸甜粽子各国老外炫到狂飙中文！火爆街头大排长龙！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/clpyt.md)
-- 2026-06-30 07:02 - [欧洲人高温天为啥用不了空调](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qukgy.md)
-- 2026-06-30 07:01 - [美媒：美军第五舰队司令部已无法使用](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ikxpx.md)
-- 2026-06-30 07:06 - [董卿母亲癌症去世](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhtjq.md)
+- 2026-06-30 07:04 - [2026MSI应援曲《如果季中成回忆》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jdcvn.md)
+- 2026-06-30 07:07 - [12人以护剧为名敲诈剧组艺人被抓](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hwetd.md)
+- 2026-06-30 06:54 - [男生180+，有腹肌是什么体验？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 07:06 - [巴西把自己踢晕了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/manggao.md)
+- 2026-06-30 07:17 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uyaux.md)
+- 2026-06-30 07:15 - [19岁男孩快220斤被查出营养不良](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/haojiang.md)
+- 2026-06-30 07:14 - [中国18岁小将再现一投夺冠](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/birao.md)
+- 2026-06-30 07:03 - [MSI应援曲 如果季中成回忆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
+- 2026-06-30 07:14 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanchai.md)
+- 2026-06-30 07:02 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 07:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gaoku.md)
+- 2026-06-30 06:51 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/binmin.md)
+- 2026-06-30 07:00 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/topzm.md)
+- 2026-06-30 07:00 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liqtx.md)
+- 2026-06-30 07:01 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qyxtv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:59 - [老人喝隔夜排骨汤喝进医院](https://www.share.minike.top/Article/details/264066261.shtml)
-- 2026-06-30 06:59 - [蔚来回应高压水枪洗车掉漆](http://www.blog.minike.top/Article/details/16620868252.shtml)
-- 2026-06-30 06:43 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/994861214.shtml)
-- 2026-06-30 07:02 - [国务院：探索延长义务教育年限](https://www.blog.minike.top/Article/details/7965791.shtml)
-- 2026-06-30 07:07 - [赵今麦电影开端客串路透](https://www.blog.minike.top/Article/details/289619.shtml)
-- 2026-06-30 06:57 - [勇敢的心第二部](http://www.blog.minike.top/Article/details/303618595.shtml)
-- 2026-06-30 07:01 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/69472367.shtml)
-- 2026-06-30 07:00 - [高考结束，该不该外出打工体验？](http://www.blog.minike.top/Article/details/2690060795.shtml)
-- 2026-06-30 06:46 - [中国代表在联合国点名日本所犯罪行](https://www.share.kurohicncr.top/Article/details/808623971760.shtml)
-- 2026-06-30 07:11 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/65210756653.shtml)
-- 2026-06-30 06:47 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/0175842.shtml)
-- 2026-06-30 06:46 - [蜘蛛侠:英雄归来](http://www.blog.minike.top/Article/details/53659093033.shtml)
-- 2026-06-30 06:51 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.minike.top/Article/details/34676303.shtml)
-- 2026-06-30 07:06 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/413184211798.shtml)
-- 2026-06-30 07:11 - [多功能求生吊坠 第四轮迭代汇报](https://www.share.kurohicncr.top/Article/details/204382.shtml)
+- 2026-06-30 07:08 - [你人生中最艰难的时候是怎么熬过来的？](https://www.share.minike.top/Article/details/9994148.shtml)
+- 2026-06-30 07:16 - [世界杯](https://www.blog.minike.top/Article/details/9014592941.shtml)
+- 2026-06-30 07:14 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](http://www.share.minike.top/Article/details/185550221896.shtml)
+- 2026-06-30 06:59 - [网警提醒4类“高考查分陷阱”](https://www.share.minike.top/Article/details/1092186.shtml)
+- 2026-06-30 06:50 - [把毒品藏在哪里，60秒内不会被发现？](https://www.blog.minike.top/Article/details/36326.shtml)
+- 2026-06-30 07:17 - [在巴西能拍到什么？](https://www.blog.kurohicncr.top/Article/details/899081029.shtml)
+- 2026-06-30 06:52 - [女子用家人生日买彩票中1032万](http://www.blog.minike.top/Article/details/87731.shtml)
+- 2026-06-30 07:13 - [这种关系可能正在悄悄“催老”你](http://www.share.minike.top/Article/details/645373796257.shtml)
+- 2026-06-30 07:08 - [人类...完蛋了...](https://www.share.kurohicncr.top/Article/details/97688.shtml)
+- 2026-06-30 06:55 - [创新药板块能否“苦尽甘来”](https://www.blog.kurohicncr.top/Article/details/98247310.shtml)
+- 2026-06-30 06:52 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/84913111.shtml)
+- 2026-06-30 07:11 - [截瘫男子因心疼妻子做出可站立轮椅](http://www.share.minike.top/Article/details/55977.shtml)
+- 2026-06-30 06:59 - [沪指深V回升站稳4000点](https://www.share.kurohicncr.top/Article/details/91584095.shtml)
+- 2026-06-30 07:16 - [扫黑风暴](https://www.blog.kurohicncr.top/Article/details/74742.shtml)
+- 2026-06-30 06:49 - [两老人多次到洗车店泼粪 警方已介入](https://www.share.minike.top/Article/details/82608.shtml)

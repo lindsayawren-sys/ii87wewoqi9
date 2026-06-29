@@ -1,47 +1,58 @@
-# 聚水潭于6月3日斥资442.76万港元回购24.5万股
+# 特朗普：对美伊谈判是否破裂“毫不在乎”
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-聚水潭（06687）发布公告，于2026年6月3日，该公司斥资442.76万港元回购24.5万股股份，每股回购价17.79-18.3港元。责任编辑：卢昱君
+美国总统特朗普于周一对美伊和平谈判可能破裂的消息表现得满不在乎，他在接受采访时直言：“老实说，就算谈判结束了我也无所谓。” 当被问及“因以色列在黎巴嫩的军事行动，伊朗谈判代表将停止与美国沟通”的相关报道时，特朗普在电话采访中表示：“我真的不在乎。我根本一点都不在乎。” 特朗普还透露，他打算向以色列总理内塔尼亚胡“问问黎巴嫩那边到底是怎么回事”。 此外，针对伊朗国家媒体宣称德黑兰
 
 ## 正文
 
-聚水潭（06687）发布公告，于2026年6月3日，该公司斥资442.76万港元回购24.5万股股份，每股回购价17.79-18.3港元。
+美国总统特朗普于周一对美伊和平谈判可能破裂的消息表现得满不在乎，他在接受采访时直言：“老实说，就算谈判结束了我也无所谓。
 
-责任编辑：卢昱君
+” 当被问及“因以色列在黎巴嫩的军事行动，伊朗谈判代表将停止与美国沟通”的相关报道时，特朗普在电话采访中表示：“我真的不在乎。
+
+我根本一点都不在乎。
+
+” 特朗普还透露，他打算向以色列总理内塔尼亚胡“问问黎巴嫩那边到底是怎么回事”。
+
+此外，针对伊朗国家媒体宣称德黑兰誓言要“彻底封锁”霍尔木兹海峡并暂停谈判的报道，特朗普同样表示自己并不担忧由此引发的油价飙升。
+
+他说：“我认为在非常近的未来，也就是极短的时间内，油价就会直线暴跌。
+
+”责任编辑：李桐
 
 ## 相关推荐
 
-- 2026-06-30 07:08 - [琉球·冲绳学术问题国际研讨会举行](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
-- 2026-06-30 06:46 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanji.md)
-- 2026-06-30 06:44 - [极限挑战第一季](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdtdd.md)
-- 2026-06-30 06:54 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgart.md)
-- 2026-06-30 07:09 - [【大鸣王潮1566】真拿你没办法](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qiucui.md)
-- 2026-06-30 07:04 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/leishuan.md)
-- 2026-06-30 06:56 - [爱直接对嘴喝饮料的人天塌了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pvqdn.md)
-- 2026-06-30 06:44 - [陈小云又好好的养了自己一年](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nlthz.md)
-- 2026-06-30 06:43 - [范志毅看好日本队淘汰巴西](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxlah.md)
-- 2026-06-30 06:43 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rqbja.md)
-- 2026-06-30 06:58 - [建议不要突然完全停止喝咖啡](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rrqkc.md)
-- 2026-06-30 07:07 - [DeepSeek V4正式版要来了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rdcwm.md)
-- 2026-06-30 06:48 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/sairu.md)
+- 2026-06-30 06:54 - [周冬雨多次说演不了话剧文城](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mxlpv.md)
+- 2026-06-30 07:03 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kkvrl.md)
+- 2026-06-30 06:49 - [有哪些尚未寻回的”失传媒体“曾经给你带来过美好记忆？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/opqpi.md)
+- 2026-06-30 07:11 - [法总统候选人：拒绝与中国激烈对抗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 06:58 - [毒液2](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nongmao.md)
+- 2026-06-30 07:02 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ragyg.md)
+- 2026-06-30 06:59 - [达美乐运输面团时被雨淋到 客服回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/shoukan.md)
+- 2026-06-30 07:01 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rboaf.md)
+- 2026-06-30 07:02 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tbfvx.md)
+- 2026-06-30 07:10 - [孙兴慜发长文致歉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 07:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iwbcr.md)
+- 2026-06-30 07:05 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/yanmeng.md)
+- 2026-06-30 07:01 - [巴西替补奇兵读秒绝杀](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bhunm.md)
+- 2026-06-30 06:53 - [如何评价DeepSeek 提出的 DSpark 推理加速方案？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/dfzex.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:43 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.blog.minike.top/Article/details/82421.shtml)
-- 2026-06-30 07:08 - [欧盟分楼层开空调惹争议](http://www.blog.minike.top/Article/details/043471.shtml)
-- 2026-06-30 07:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.share.kurohicncr.top/Article/details/992270342907.shtml)
-- 2026-06-30 06:47 - [网警提醒4类“高考查分陷阱”](http://www.blog.minike.top/Article/details/2322223.shtml)
-- 2026-06-30 07:09 - [古代时期普通老百姓能喝上酒吗？](http://www.share.kurohicncr.top/Article/details/004591437507.shtml)
-- 2026-06-30 06:49 - [阿娇瘦了10斤](https://www.share.minike.top/Article/details/35504517031.shtml)
-- 2026-06-30 07:08 - [巴西补时绝杀日本](https://www.share.kurohicncr.top/Article/details/12796972666.shtml)
-- 2026-06-30 06:50 - [点菜也要教吗](http://www.share.minike.top/Article/details/85055684.shtml)
-- 2026-06-30 07:09 - [佐野海舟远射破门](https://www.share.minike.top/Article/details/72934636.shtml)
-- 2026-06-30 07:07 - [复古未来主义沙画「夜泳」](https://www.share.minike.top/Article/details/722848082461.shtml)
-- 2026-06-30 07:11 - [世界杯淘汰赛，日本对战巴西上半场1比0领先，再到最后被绝杀，大家怎么看待这个结果？](http://www.blog.kurohicncr.top/Article/details/45632.shtml)
-- 2026-06-30 07:02 - [勇敢的心第二部](https://www.share.minike.top/Article/details/71510402791.shtml)
-- 2026-06-30 07:11 - [印尼塞梅鲁火山喷发 灰柱高约1200米](http://www.blog.kurohicncr.top/Article/details/55126.shtml)
-- 2026-06-30 06:52 - [这几秒成世界杯最值钱广告位](https://www.share.minike.top/Article/details/93824746.shtml)
-- 2026-06-30 07:11 - [终于把好哥们处成了情侣!](https://www.share.minike.top/Article/details/920217.shtml)
+- 2026-06-30 07:11 - [荷兰vs摩洛哥前瞻](https://www.blog.minike.top/Article/details/44155.shtml)
+- 2026-06-30 07:04 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/9691897.shtml)
+- 2026-06-30 06:50 - [这种关系可能正在悄悄“催老”你](https://www.share.minike.top/Article/details/898222.shtml)
+- 2026-06-30 07:09 - [送你一朵小红花](https://www.share.kurohicncr.top/Article/details/08180145.shtml)
+- 2026-06-30 06:51 - [张凌赫 客串](https://www.blog.kurohicncr.top/Article/details/275760.shtml)
+- 2026-06-30 06:57 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/943799282.shtml)
+- 2026-06-30 07:10 - [第一炉香](https://www.blog.minike.top/Article/details/161239289.shtml)
+- 2026-06-30 07:01 - [流金岁月](https://www.blog.minike.top/Article/details/5654042.shtml)
+- 2026-06-30 06:57 - [在没有空调的巴黎感受世纪热浪](https://www.blog.kurohicncr.top/Article/details/366947.shtml)
+- 2026-06-30 07:05 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://www.blog.kurohicncr.top/Article/details/1067823.shtml)
+- 2026-06-30 07:11 - [恋与深空 巧合](https://www.share.kurohicncr.top/Article/details/317474.shtml)
+- 2026-06-30 07:04 - [速度与激情9](http://www.share.minike.top/Article/details/7436167.shtml)
+- 2026-06-30 07:04 - ["超算小姐，这一次，我一定要带你出去..."](http://www.blog.minike.top/Article/details/395997011.shtml)
+- 2026-06-30 07:05 - [扫黑风暴](https://www.share.kurohicncr.top/Article/details/712956.shtml)
+- 2026-06-30 07:12 - [房价什么时候能涨](https://www.blog.kurohicncr.top/Article/details/241371.shtml)

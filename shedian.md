@@ -1,59 +1,45 @@
-# 塞勒抛售比特币：其信徒阵营正在瓦解？
+# “七一勋章”提名建议人选名单公示
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-“绝不抛售。我们只囤币、只加仓比特币，这就是我们的既定策略。”—— 迈克尔・塞勒，2022 年 1 月彭博专访 时隔四年半，策略公司创始人迈克尔・塞勒坚守多年的 “只买不卖” 信条已然破灭。 在 5 月 26 日至 5 月 31 日期间，策略公司卖出 32 枚比特币，成交金额约 250 万美元。相较于该公司合计 610 亿美元的比特币持仓体量，这笔交易金额微乎其微。但关键不在于
+发布时间：2026年06月02日 11:10 来源：央视新闻 责任编辑：【王祎】
 
 ## 正文
 
-“绝不抛售。
-
-我们只囤币、只加仓比特币，这就是我们的既定策略。
-
-”—— 迈克尔・塞勒，2022 年 1 月彭博专访 时隔四年半，策略公司创始人迈克尔・塞勒坚守多年的 “只买不卖” 信条已然破灭。
-
-在 5 月 26 日至 5 月 31 日期间，策略公司卖出 32 枚比特币，成交金额约 250 万美元。
-
-相较于该公司合计 610 亿美元的比特币持仓体量，这笔交易金额微乎其微。
-
-但关键不在于成交额大小，而是塞勒背弃了自己多年反复着重强调的承诺。
-
-就在 2026 年 2 月，CNBC 主持人安德鲁・罗斯・索尔金追问：倘若比特币持续深度下跌，策略公司将如何应对？
-
-塞勒当时表态：“我们不会卖出，反而会继续加仓。
+发布时间：2026年06月02日 11:10 来源：央视新闻 责任编辑：【王祎】
 
 ## 相关推荐
 
-- 2026-06-30 06:54 - [杨某诋毁袁隆平院士科研成果被刑拘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jprma.md)
-- 2026-06-30 06:55 - [这些7月新规影响你我](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tqmkt.md)
-- 2026-06-30 06:47 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/laiwan.md)
-- 2026-06-30 06:54 - [这一刀 会很帅](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oqlcr.md)
-- 2026-06-30 07:03 - [父母催婚话术是如何做到全国统一的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtqal.md)
-- 2026-06-30 06:53 - [我吃遍了西安最強的街頭小吃，第九家強得離譜！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 06:42 - [日本 高位逼抢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ledve.md)
-- 2026-06-30 06:51 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hongkong.md)
-- 2026-06-30 07:06 - [卢卡申科发布解放军仪仗队视频](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/ruanzuan.md)
-- 2026-06-30 06:44 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hqsay.md)
-- 2026-06-30 07:00 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/svolf.md)
-- 2026-06-30 07:04 - [【哈基米】极境升华！超级刀盾狗！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doucan.md)
-- 2026-06-30 06:51 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/huanxing.md)
+- 2026-06-30 07:17 - [女子发现孩子非现任亲生状告前任索赔](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiniang.md)
+- 2026-06-30 06:51 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bhtjq.md)
+- 2026-06-30 07:01 - [新郎接亲玩石头剪刀布连胜十几次](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jiryb.md)
+- 2026-06-30 07:15 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iskwk.md)
+- 2026-06-30 06:48 - [德国巴拉圭加时](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/beudl.md)
+- 2026-06-30 07:03 - [恋与深空 日服](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chuanrao.md)
+- 2026-06-30 07:09 - [女子清吧被陌生人投放伟哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kuanwai.md)
+- 2026-06-30 07:16 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/evsft.md)
+- 2026-06-30 07:03 - [【全网首杀】涤墨作战7人870分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/thqmc.md)
+- 2026-06-30 06:48 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/houruan.md)
+- 2026-06-30 07:15 - [把毒品藏在哪里，60秒内不会被发现？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nmubd.md)
+- 2026-06-30 06:52 - [如何看待张靓颖演唱会因清唱太多主办方被罚款？为啥清唱也会被罚？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pzlov.md)
+- 2026-06-30 06:53 - [这几秒成世界杯最值钱广告位](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dhbhh.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:42 - [庆祝中国共产党成立105周年音乐会](https://www.share.kurohicncr.top/Article/details/2911701.shtml)
-- 2026-06-30 06:48 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.kurohicncr.top/Article/details/35256.shtml)
-- 2026-06-30 06:54 - [巴西若输日本将创36年最差纪录](https://www.blog.kurohicncr.top/Article/details/67930.shtml)
-- 2026-06-30 06:44 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://www.blog.kurohicncr.top/Article/details/087481.shtml)
-- 2026-06-30 06:52 - [终于把好哥们处成了情侣!](http://www.blog.minike.top/Article/details/2050069294.shtml)
-- 2026-06-30 06:55 - [卢卡申科发布解放军仪仗队视频](http://www.blog.kurohicncr.top/Article/details/385008939410.shtml)
-- 2026-06-30 06:45 - [数据前瞻巴西VS日本](http://www.share.minike.top/Article/details/909685430.shtml)
-- 2026-06-30 07:11 - [恋与深空道歉声明](https://www.share.kurohicncr.top/Article/details/44518908424.shtml)
-- 2026-06-30 07:05 - [医药暴涨5.91%背后](http://www.blog.minike.top/Article/details/18083168.shtml)
-- 2026-06-30 06:58 - [为什么会有「念旧」的心理？](http://www.share.kurohicncr.top/Article/details/97486118015.shtml)
-- 2026-06-30 07:08 - [领克07GT搭载超跑同源MRC悬架](http://www.blog.minike.top/Article/details/611943817.shtml)
-- 2026-06-30 06:46 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/787593342659.shtml)
-- 2026-06-30 07:00 - [李在明向韩国两大财阀90度鞠躬](https://www.share.kurohicncr.top/Article/details/91250966.shtml)
-- 2026-06-30 06:43 - [内马尔中场休息积极鼓励队友](http://www.share.minike.top/Article/details/628632.shtml)
-- 2026-06-30 07:04 - [张凌赫杨超越 峨眉](http://www.share.minike.top/Article/details/23362125578.shtml)
+- 2026-06-30 07:16 - [创新药板块能否“苦尽甘来”](https://www.blog.minike.top/Article/details/47163.shtml)
+- 2026-06-30 07:18 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.minike.top/Article/details/514959878.shtml)
+- 2026-06-30 07:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://www.share.kurohicncr.top/Article/details/296306.shtml)
+- 2026-06-30 06:57 - [杨紫被质疑未使用原名纯属误解](https://www.blog.kurohicncr.top/Article/details/766098.shtml)
+- 2026-06-30 07:15 - [湖北云南的这些涉汛信息都是假的](http://www.blog.kurohicncr.top/Article/details/1613479982.shtml)
+- 2026-06-30 07:04 - [世界杯巴西vs日本前瞻](http://www.share.kurohicncr.top/Article/details/756943351217.shtml)
+- 2026-06-30 06:50 - [刘必安等16人非法集资案二审宣判](http://www.blog.kurohicncr.top/Article/details/78972.shtml)
+- 2026-06-30 07:06 - [媒体评哈兰德之歌火了](http://www.blog.kurohicncr.top/Article/details/18547320.shtml)
+- 2026-06-30 07:13 - [世界杯：巴西vs日本](https://www.share.kurohicncr.top/Article/details/151038210.shtml)
+- 2026-06-30 07:18 - [7月1日起 一批新规即将落地](http://www.share.kurohicncr.top/Article/details/406068.shtml)
+- 2026-06-30 07:10 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.share.kurohicncr.top/Article/details/4063251.shtml)
+- 2026-06-30 06:48 - [免费试吃发差评被店家挂店门避雷](https://www.share.minike.top/Article/details/472795554.shtml)
+- 2026-06-30 07:16 - [王源近几年没有路演了](https://www.blog.minike.top/Article/details/8348827.shtml)
+- 2026-06-30 07:09 - [2021江苏卫视跨年演唱会](http://www.blog.minike.top/Article/details/64591.shtml)
+- 2026-06-30 07:06 - [2021江苏卫视跨年演唱会](https://www.share.minike.top/Article/details/98593155.shtml)

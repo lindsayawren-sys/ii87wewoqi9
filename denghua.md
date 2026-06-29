@@ -1,43 +1,57 @@
-# 久立特材：董秘寿昊添增持1万股公司股份
+# 美国七个州因取消海上风电租约起诉特朗普政府及道达尔能源
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-转自：证券时报人民财讯6月3日电，久立特材(002318)6月3日公告，公司董事会秘书寿昊添6月3日通过深交所交易系统以集中竞价方式增持了10000股公司股份，增持均价22.386元/股。
+由纽约州为首的美国七个州周二起诉特朗普政府，原因是政府取消了一项位于纽约州海岸的大型海上风电租约，以换取该租约所有者承诺转而投资化石燃料项目。 该诉讼在华盛顿特区联邦法院提起，质疑美国内政部3月23日的一项决定。该决定取消了法国道达尔能源公司（TotalEnergies）一家子公司的租约，向其“退还”7.95亿美元，并要求该公司承诺不在美国开发新的海上风电项目。 道达尔还同意在
 
 ## 正文
 
-转自：证券时报人民财讯6月3日电，久立特材(002318)6月3日公告，公司董事会秘书寿昊添6月3日通过深交所交易系统以集中竞价方式增持了10000股公司股份，增持均价22.386元/股。
+由纽约州为首的美国七个州周二起诉特朗普政府，原因是政府取消了一项位于纽约州海岸的大型海上风电租约，以换取该租约所有者承诺转而投资化石燃料项目。
+
+该诉讼在华盛顿特区联邦法院提起，质疑美国内政部3月23日的一项决定。
+
+该决定取消了法国道达尔能源公司（TotalEnergies）一家子公司的租约，向其“退还”7.95亿美元，并要求该公司承诺不在美国开发新的海上风电项目。
+
+道达尔还同意在得克萨斯州的一个液化天然气厂以及美国的油气钻探项目上投入近10亿美元。
+
+此举代表了特朗普政府为阻止美国海上风电项目开发而采取的广泛行动中的一项新策略。
+
+总统唐纳德·特朗普曾表示，他认为这些风电项目既不美观又成本高昂。
+
+其政府一直在努力提高国内化石燃料产量，并废除了支持清洁能源发展的政策。
+
+美国司法部拒绝对该诉讼发表评论。
 
 ## 相关推荐
 
-- 2026-06-30 06:53 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qidvh.md)
-- 2026-06-30 06:46 - [贺峻霖拎着爱马仕回国了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bxxns.md)
-- 2026-06-30 07:00 - [明星大侦探第一季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nsvdn.md)
-- 2026-06-30 06:54 - [科学备孕男女都要上心](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
-- 2026-06-30 07:03 - [蜘蛛侠:英雄归来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nnkxn.md)
-- 2026-06-30 07:07 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tiadw.md)
-- 2026-06-30 06:58 - [一生一世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrtlb.md)
-- 2026-06-30 06:51 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/epbtm.md)
-- 2026-06-30 06:48 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ekwhl.md)
-- 2026-06-30 06:55 - [85花告别古偶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/liaoang.md)
-- 2026-06-30 07:02 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fuzhuo.md)
+- 2026-06-30 06:57 - [小勒布伦WTT美国大满贯开门红](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mpbsm.md)
+- 2026-06-30 07:11 - [高考结束，该不该外出打工体验？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/guangdi.md)
+- 2026-06-30 07:16 - [《贺子珍》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/niangruo.md)
+- 2026-06-30 07:12 - [对最近的回应与澄清](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qnrbv.md)
+- 2026-06-30 06:52 - [韩国从世界杯出局后，韩便利店禁止主帅洪明甫入内，烤肉店拒绝为其提供服务，如何看待其体育生涯和此次争议？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jkykb.md)
+- 2026-06-30 07:04 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/btdec.md)
+- 2026-06-30 07:11 - [王源近几年没有路演了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sjlra.md)
+- 2026-06-30 06:53 - [女子遭家暴逃跑致丈夫身亡被判11年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kztgh.md)
+- 2026-06-30 06:49 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tclib.md)
+- 2026-06-30 06:59 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ntbqf.md)
+- 2026-06-30 07:15 - [董卿父亲发文悼念亡妻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/naijie.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:11 - [hanser X 赖美云《室内系的Track Maker》](https://www.share.minike.top/Article/details/0875775037.shtml)
-- 2026-06-30 07:08 - [斗破苍穹](https://www.share.kurohicncr.top/Article/details/904573.shtml)
-- 2026-06-30 06:53 - [世界杯“美洲德比”7月1日开打](http://www.blog.minike.top/Article/details/939436433.shtml)
-- 2026-06-30 06:44 - [男子在非洲务工死亡 公司不认可工亡](http://www.blog.kurohicncr.top/Article/details/88052783.shtml)
-- 2026-06-30 07:02 - [媒体评哈兰德之歌火了](https://www.share.kurohicncr.top/Article/details/96469166602.shtml)
-- 2026-06-30 06:50 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/1570100222.shtml)
-- 2026-06-30 07:07 - [一直以为方便面汤是要倒掉的](https://www.share.minike.top/Article/details/87213835520.shtml)
-- 2026-06-30 06:45 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/16457.shtml)
-- 2026-06-30 06:46 - [扫黑风暴](http://www.share.kurohicncr.top/Article/details/651413252769.shtml)
-- 2026-06-30 06:50 - [檀健次王楚然吻戏看热了](https://www.share.minike.top/Article/details/68977210648.shtml)
-- 2026-06-30 07:11 - [格力遥控器里有黄金](http://www.share.kurohicncr.top/Article/details/233878757069.shtml)
-- 2026-06-30 06:57 - [【全网首杀】涤墨作战7人870分](https://www.share.minike.top/Article/details/154098503293.shtml)
-- 2026-06-30 06:45 - [小羊在林间被野生豹子啃食 当地回应](http://www.share.minike.top/Article/details/68658690.shtml)
-- 2026-06-30 06:46 - [超神人辉夜姬 第二集](https://www.blog.kurohicncr.top/Article/details/542752.shtml)
-- 2026-06-30 07:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.share.kurohicncr.top/Article/details/65547191802.shtml)
+- 2026-06-30 07:09 - [曝詹姆斯即将与勇士会面](https://www.share.minike.top/Article/details/95739098863.shtml)
+- 2026-06-30 06:56 - [锐评T1零封KC](http://www.share.minike.top/Article/details/998188529.shtml)
+- 2026-06-30 07:06 - [杨紫获白玉兰视后争议不止](https://www.blog.kurohicncr.top/Article/details/4816087.shtml)
+- 2026-06-30 06:55 - [严浩翔张峻豪师兄弟同台](http://www.share.kurohicncr.top/Article/details/0179138.shtml)
+- 2026-06-30 07:16 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/3043095.shtml)
+- 2026-06-30 07:09 - [美人鱼](https://www.share.kurohicncr.top/Article/details/3800315034.shtml)
+- 2026-06-30 06:56 - [19岁男孩快220斤被查出营养不良](https://www.share.minike.top/Article/details/43410478786.shtml)
+- 2026-06-30 06:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.blog.minike.top/Article/details/506223.shtml)
+- 2026-06-30 07:04 - [房价什么时候能涨](http://www.blog.minike.top/Article/details/019485034610.shtml)
+- 2026-06-30 07:04 - [多人在马路中间打羽毛球 交警回应](https://www.share.kurohicncr.top/Article/details/71374017374.shtml)
+- 2026-06-30 07:07 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.share.minike.top/Article/details/9971659.shtml)
+- 2026-06-30 07:08 - [如何看待武亮说大学生生活费1500就够用这一言论？](http://www.share.kurohicncr.top/Article/details/74602262330.shtml)
+- 2026-06-30 07:11 - [第一炉香](https://www.share.minike.top/Article/details/967081.shtml)
+- 2026-06-30 06:51 - [复古未来主义沙画「夜泳」](http://www.share.kurohicncr.top/Article/details/0107489.shtml)
+- 2026-06-30 07:12 - [巴西把自己踢晕了](https://www.blog.kurohicncr.top/Article/details/8469998.shtml)

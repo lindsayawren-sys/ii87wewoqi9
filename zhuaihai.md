@@ -1,57 +1,50 @@
-# 贵州服务保障80万跨省务工人员实现“近家门”就业创业
+# 交银国际：康方生物维持“买入”评级 目标价175港元
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网贵阳6月3日电 (阙忠丹 张伟)贵州省人力资源社会保障厅日前联合贵州省工信厅等十一部门印发《关于服务保障农村劳动力从“出远门”务工到“近家门”就业创业的若干政策措施(试行)》(以下简称，政策措施(试行))，明确提出“十五五”期间，贵州省将服务保障80万以上(每年16万以上)跨省务工人员返乡就业创业，重点解决省内重点产业和重大项目的人力资源支撑问题，同时缓解留守儿童教育、留
+交银国际发布研报称，依沃西头对头PD-1单靶在PFS和OS均达到统计学阳性结果，有望重新定义sq-NSCLC一线治疗的金标准、开启全球百亿美元级别的市场潜力。维持康方生物（09926）“买入”评级和175港元目标价。 交银国际主要观点如下： HARMONi-6 OS取得超预期的阳性结果 依沃西单抗+化疗治疗1L sq-NSCLC（头对头替雷利珠+化疗）III期HARMONi-6
 
 ## 正文
 
-中新网贵阳6月3日电 (阙忠丹 张伟)贵州省人力资源社会保障厅日前联合贵州省工信厅等十一部门印发《关于服务保障农村劳动力从“出远门”务工到“近家门”就业创业的若干政策措施(试行)》(以下简称，政策措施(试行))，明确提出“十五五”期间，贵州省将服务保障80万以上(每年16万以上)跨省务工人员返乡就业创业，重点解决省内重点产业和重大项目的人力资源支撑问题，同时缓解留守儿童教育、留守老人照护等社会关切。
+交银国际发布研报称，依沃西头对头PD-1单靶在PFS和OS均达到统计学阳性结果，有望重新定义sq-NSCLC一线治疗的金标准、开启全球百亿美元级别的市场潜力。
 
-政策措施(试行)在吸纳就业方面，各类生产经营主体与返乡农村劳动力签订1年以上劳动合同，并依法足额缴纳社会保险费满3个月的，可按每人500元的标准获得一次性吸纳就业补贴。
+维持康方生物（09926）“买入”评级和175港元目标价。
 
-对于返乡持有技能等级证书的技能人才，若在贵州支持的重点产业、特色产业或重大项目稳定就业满3个月且缴纳社保的，将享受每月300元的就业收入待遇补贴，最长补贴期限为3个月。
+交银国际主要观点如下： HARMONi-6 OS取得超预期的阳性结果 依沃西单抗+化疗治疗1L sq-NSCLC（头对头替雷利珠+化疗）III期HARMONi-6研究的中期OS分析结果在ASCO大会上公布。
 
-在扩大就业容量方面，贵州将推动产业与就业协同发力。
+结果显示，OSHR达到0.66（p=0.0017，低于0.0049的预设α，95% CI 0.50-0.87）；中位OS数值为27.9 vs.23.7个月，对照组数值与RATIONALE-307的研究结果接近；治疗组的生存获益随时间推移显著放大，显示出优异的长拖尾效应。
 
-在制定重要政策、确定重点项目、布局重大产业和招商引资时，将同步开展就业影响评估，优先支持发展吸纳就业能力强的产业和企业。
-
-通过促进就业帮扶车间和“一县一企”稳岗就业基地提质增效，每年预计通过产业项目开发11万个以上岗位，专门吸纳返乡人员。
-
-鼓励创业也是此次政策的亮点之一。
-
-贵州实施“返乡创业小老板”工程，每年推动1万以上返乡人员创业，带动3万人就业。
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:50 - [欧洲空调卖疯了 下一个爆款是储能吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duansao.md)
-- 2026-06-30 06:58 - [美股三大指数高开 西部数据涨超2%](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dhbhh.md)
-- 2026-06-30 07:05 - [补时绝杀 巴西2-1淘汰日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shendiao.md)
-- 2026-06-30 06:54 - [千与千寻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/uzfng.md)
-- 2026-06-30 06:50 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lycou.md)
-- 2026-06-30 07:07 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fojdv.md)
-- 2026-06-30 06:57 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaotou.md)
-- 2026-06-30 06:45 - [男子非洲务工死亡20多天遗体仍在海外](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/paiche.md)
-- 2026-06-30 07:08 - [湖北云南这些涉汛信息都是假的](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
-- 2026-06-30 06:57 - [本届世界杯已有5名球员被控强奸](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iuvnf.md)
-- 2026-06-30 06:53 - [我想说 其实你很好！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liarao.md)
+- 2026-06-30 06:59 - [复古未来主义沙画「夜泳」](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ragyg.md)
+- 2026-06-30 07:14 - [贺峻霖拎着爱马仕回国了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/djrhm.md)
+- 2026-06-30 06:53 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cubko.md)
+- 2026-06-30 07:01 - [刘必安等16人非法集资案二审宣判](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rennan.md)
+- 2026-06-30 07:03 - [赵丽颖风吹半夏含金量还在上升](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nianchan.md)
+- 2026-06-30 07:12 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/bkjci.md)
+- 2026-06-30 07:07 - [有哪些被认为是现代才有的东西其实古代就有了？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/biaogan.md)
+- 2026-06-30 07:07 - [收受1.98亿余元 周家斌被判无期](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/adiwz.md)
+- 2026-06-30 06:59 - [网瘾賊大的阿嬷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
+- 2026-06-30 07:05 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzkih.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [MSI应援曲 如果季中成回忆](https://www.blog.minike.top/Article/details/910921224552.shtml)
-- 2026-06-30 06:46 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/655820464347.shtml)
-- 2026-06-30 06:43 - [女子螺蛳粉摊吃出蛇](http://www.share.kurohicncr.top/Article/details/77551044426.shtml)
-- 2026-06-30 06:59 - [领克汽车官宣正式进军拉力赛](http://www.blog.minike.top/Article/details/78908532.shtml)
-- 2026-06-30 07:01 - [【剧情】心间错（2026）14【 朱正廷 / 哈妮克孜 】](https://www.share.kurohicncr.top/Article/details/3970171323.shtml)
-- 2026-06-30 07:09 - [速度与激情9](http://www.blog.minike.top/Article/details/8013689.shtml)
-- 2026-06-30 07:02 - [王源近几年没有路演了](https://www.blog.kurohicncr.top/Article/details/33637.shtml)
-- 2026-06-30 06:54 - [男子在非洲务工死亡 公司不认可工亡](https://www.share.kurohicncr.top/Article/details/90578789542.shtml)
-- 2026-06-30 06:49 - [DeepSeek V4正式版要来了](http://www.share.kurohicncr.top/Article/details/91814.shtml)
-- 2026-06-30 07:11 - [你这一辈子有没有为进山姆拼过命？](http://www.share.kurohicncr.top/Article/details/28571.shtml)
-- 2026-06-30 07:03 - [男子非洲务工死亡20多天遗体仍在海外](http://www.share.minike.top/Article/details/086362459920.shtml)
-- 2026-06-30 07:10 - [MSI应援曲 如果季中成回忆](https://www.share.kurohicncr.top/Article/details/3561241783.shtml)
-- 2026-06-30 07:04 - [未来五年，教育强国这样建设](https://www.share.minike.top/Article/details/53155413.shtml)
-- 2026-06-30 07:09 - [蜘蛛侠:平行宇宙](https://www.share.minike.top/Article/details/029012.shtml)
-- 2026-06-30 06:52 - [男子在非洲务工死亡 公司不认可工亡](http://www.share.kurohicncr.top/Article/details/735691658984.shtml)
+- 2026-06-30 06:58 - [这几秒成世界杯最值钱广告位](http://www.blog.minike.top/Article/details/27685.shtml)
+- 2026-06-30 06:58 - [蔚来车主罚站](http://www.share.kurohicncr.top/Article/details/80932708045.shtml)
+- 2026-06-30 07:16 - [「科技美学」全新“小米 MIX infinity”澎湃OS旗舰手机来了? 红魔刷机变身！](https://www.blog.kurohicncr.top/Article/details/175716939428.shtml)
+- 2026-06-30 07:17 - [奔跑吧·黄河篇第二季](https://www.blog.kurohicncr.top/Article/details/06190.shtml)
+- 2026-06-30 06:49 - [女子在酒吧被陌生人投放“伟哥”](https://www.share.minike.top/Article/details/6688096.shtml)
+- 2026-06-30 06:51 - [【乘风2026】总决赛-《想见你想见你想见你》张月&陈瑶 愿所有想念都能在我们的歌声里靠岸](https://www.share.kurohicncr.top/Article/details/15082284.shtml)
+- 2026-06-30 06:56 - [第一炉香](https://www.share.kurohicncr.top/Article/details/4086550.shtml)
+- 2026-06-30 06:55 - [徐良演唱会伴舞把鞋子跳掉了](https://www.share.minike.top/Article/details/62085.shtml)
+- 2026-06-30 07:01 - [张凌赫 客串](https://www.share.kurohicncr.top/Article/details/06938565.shtml)
+- 2026-06-30 06:56 - [巴西2比1日本](http://www.share.kurohicncr.top/Article/details/20846895.shtml)
+- 2026-06-30 06:59 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.blog.minike.top/Article/details/5726272285.shtml)
+- 2026-06-30 06:55 - [贺峻霖拎着爱马仕回国了](https://www.blog.kurohicncr.top/Article/details/3838021705.shtml)
+- 2026-06-30 07:12 - [主人解开狗绳2只狗将路人撕咬致死](http://www.share.kurohicncr.top/Article/details/1151954596.shtml)
+- 2026-06-30 06:53 - [巴西2比1日本](https://www.blog.minike.top/Article/details/3121100.shtml)
+- 2026-06-30 07:16 - [刘念回应](http://www.blog.kurohicncr.top/Article/details/2598602931.shtml)

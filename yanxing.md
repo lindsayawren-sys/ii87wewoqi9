@@ -1,59 +1,56 @@
-# 创投月报 | 深创投：近三成投向人工智能赛道 半年内两轮押注AI芯片「墨芯」
+# 浙江温州：青年的需求在变，服务也跟着迭代
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-国内一级市场展现出显著的“K型”分化特征。基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。 投资端呈“量跌价增”趋势，资金加速向头部项目集中。5月国内共发生股权投资事件568起，同比增长3
+傍晚6点钟，浙江省温州市鹿城区大自然社区的锦美商厦渐渐热闹起来。 电梯停在8楼，孩子们熟门熟路地跑向教室：有人抱着围棋棋盘，有人背着画夹，还有人攥着刚领到的科学实验材料包。简单叮嘱几句后，许多青年家长却没有转身离开。 一个有趣的“接力”每天都在这里上演——孩子们走进“家门口青少年宫”，家长们则走进隔壁的“温青夜校”。两拨人几乎同时开始上课。教室里，老师带着孩子们做科学实验；走廊
 
 ## 正文
 
-国内一级市场展现出显著的“K型”分化特征。
+傍晚6点钟，浙江省温州市鹿城区大自然社区的锦美商厦渐渐热闹起来。
 
-基于公开数据不完全统计，2026年5月新增登记私募股权、创业投资基金管理人3家，同比增长50.0%、环比“腰斩”；新增备案私募股权基金123只、创业投资基金469只，合计新增592只，环比虽下降11.0%，但较2025年同期增长74.6%。
+电梯停在8楼，孩子们熟门熟路地跑向教室：有人抱着围棋棋盘，有人背着画夹，还有人攥着刚领到的科学实验材料包。
 
-投资端呈“量跌价增”趋势，资金加速向头部项目集中。
+简单叮嘱几句后，许多青年家长却没有转身离开。
 
-5月国内共发生股权投资事件568起，同比增长33.6%，环比下降16.5%；披露投资总额达768.63亿元，再次刷新近一年内纪录，与4月相比提高2.7%，约为2025年5月的4.22倍。
+一个有趣的“接力”每天都在这里上演——孩子们走进“家门口青少年宫”，家长们则走进隔壁的“温青夜校”。
 
-创投Plus本月聚焦市场活跃度较高的3家机构，围绕其投资节奏、阶段、行业偏好以及被投项目等方面展开解读。
+两拨人几乎同时开始上课。
 
-5月投资节奏回落 深耕大本营辐射长三角 中国证券投资基金业协会和天眼查披露的公开信息显示，深圳市创新投资集团有限公司（下文简称：深创投）是由深圳市政府出资并引导社会资本设立的政府引导基金，目前累计管理各类资产总规模超5200亿元，参投企业超1700家。
+教室里，老师带着孩子们做科学实验；走廊另一侧，夜校的尤克里里课已经响起琴声，短视频制作课、书法课也陆续开课。
 
-截至2026年5月，深创投只登记备案了一只新基金——粤港澳大湾区创业投资引导基金合伙企业（有限合伙），注册出资总额高达504.50亿元，基金出资方LP包括顺络电子、建信投资、华润资本、工银投资、东莞科创、中兴创投、珠海科创投、粤财基金、深润国创等产业资本及国有出资平台。
+一个晚上，孩子有人陪伴，家长也拥有了属于自己的学习时间。
 
-公开报道显示，该基金是国家创投引导基金下设的区域基金，由国家发展改革委和财政部组建，存续期最长可达20年。
+“以前送孩子上兴趣班，路上就要半小时，现在下楼走5分钟就到，太方便了。
 
 ## 相关推荐
 
-- 2026-06-30 06:56 - [恋与深空 日服](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ozave.md)
-- 2026-06-30 06:42 - [国务院：稳步推进研究生考试招生改革](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/feihai.md)
-- 2026-06-30 07:07 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shoukuang.md)
-- 2026-06-30 07:00 - [披荆斩棘的哥哥](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/alfzj.md)
-- 2026-06-30 06:56 - [牺牲民警倒下前还在保护群众](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jvsna.md)
-- 2026-06-30 06:52 - [沉睡花园](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gegen.md)
-- 2026-06-30 07:11 - [披荆斩棘的哥哥](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pavvb.md)
-- 2026-06-30 06:44 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dianyuan.md)
-- 2026-06-30 06:59 - [中国代表在联合国点名日本所犯罪行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/abzmc.md)
-- 2026-06-30 07:07 - [花6万多相亲对象竟是50元请来的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/manda.md)
-- 2026-06-30 07:06 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/txjtt.md)
-- 2026-06-30 06:59 - [四川宜宾地震瞬间鱼群乱跳](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gvige.md)
-- 2026-06-30 06:51 - [女子遭家暴逃跑致丈夫身亡二审细节](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nksic.md)
+- 2026-06-30 06:49 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qdutj.md)
+- 2026-06-30 07:17 - [致敬！中国首批缉毒警已全体退休](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/yecao.md)
+- 2026-06-30 06:53 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
+- 2026-06-30 07:16 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dingjiong.md)
+- 2026-06-30 07:07 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mfven.md)
+- 2026-06-30 06:57 - [韩国人为什么这么在乎输赢](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/gsdnl.md)
+- 2026-06-30 07:05 - [警犬“多多”助民警寻回失联老人](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rtlxv.md)
+- 2026-06-30 07:10 - [7月1日起 一批新规即将落地](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/wenzun.md)
+- 2026-06-30 06:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ohppe.md)
+- 2026-06-30 07:10 - [巴西2-1绝杀日本](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/mersm.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [巴拉圭进球](http://www.blog.kurohicncr.top/Article/details/939328.shtml)
-- 2026-06-30 06:50 - [日本反击率先破门](https://www.blog.kurohicncr.top/Article/details/2701579.shtml)
-- 2026-06-30 06:54 - [本科毕业生为何涌入专科学校](https://www.share.kurohicncr.top/Article/details/59054494362.shtml)
-- 2026-06-30 06:58 - [湖北一狗扑咬多人 当地正在搜捕](http://www.blog.minike.top/Article/details/71849255958.shtml)
-- 2026-06-30 07:09 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/78071870917.shtml)
-- 2026-06-30 07:03 - [明星大侦探第一季](https://www.blog.minike.top/Article/details/47108.shtml)
-- 2026-06-30 06:58 - [檀健次王楚然吻戏看热了](https://www.share.kurohicncr.top/Article/details/396457.shtml)
-- 2026-06-30 06:43 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/0442619437.shtml)
-- 2026-06-30 06:53 - [爱很美味](https://www.share.minike.top/Article/details/12934558356.shtml)
-- 2026-06-30 06:48 - [点菜也要教吗](http://www.share.kurohicncr.top/Article/details/979409741903.shtml)
-- 2026-06-30 06:50 - [斗破苍穹](https://www.share.minike.top/Article/details/395794805230.shtml)
-- 2026-06-30 06:56 - [高考填志愿父亲和女儿产生分歧](http://www.share.kurohicncr.top/Article/details/3711937588.shtml)
-- 2026-06-30 06:47 - [周冬雨多次说演不了话剧文城](https://www.blog.kurohicncr.top/Article/details/366329924954.shtml)
-- 2026-06-30 06:46 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://www.blog.minike.top/Article/details/7144817.shtml)
-- 2026-06-30 06:53 - [为什么香港的冲厕水是咸的？](http://www.blog.kurohicncr.top/Article/details/696112956815.shtml)
+- 2026-06-30 06:52 - [宜宾地震食客避难后折返 无人逃单](http://www.blog.minike.top/Article/details/75786911769.shtml)
+- 2026-06-30 06:55 - [沙丘](https://www.share.kurohicncr.top/Article/details/0621797774.shtml)
+- 2026-06-30 07:08 - [【全网首杀】涤墨作战7人870分](https://www.share.kurohicncr.top/Article/details/502594362.shtml)
+- 2026-06-30 07:04 - [超神人辉夜姬 第二集](http://www.share.minike.top/Article/details/700840532.shtml)
+- 2026-06-30 07:06 - [巴西vs日本](https://www.share.minike.top/Article/details/2498196.shtml)
+- 2026-06-30 07:02 - [浙江队将获百万元世界杯补偿](http://www.share.kurohicncr.top/Article/details/590452.shtml)
+- 2026-06-30 07:15 - [南北多地暴雨和强对流天气持续](http://www.share.kurohicncr.top/Article/details/536934873.shtml)
+- 2026-06-30 06:56 - [运20服役十周年宣传片有哪些亮点](https://www.share.minike.top/Article/details/863715732798.shtml)
+- 2026-06-30 07:02 - [歌剧老师锐评歌手第6期](https://www.blog.minike.top/Article/details/070685269.shtml)
+- 2026-06-30 07:01 - [解锁一下新吃法 这顿真给我吃美了](https://www.share.minike.top/Article/details/00884.shtml)
+- 2026-06-30 07:15 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](http://www.blog.minike.top/Article/details/3189549.shtml)
+- 2026-06-30 07:09 - [三甲医生提醒青蛙腹是最糟糕体型](https://www.blog.kurohicncr.top/Article/details/1016905001.shtml)
+- 2026-06-30 06:53 - [千万不要随便扣肚脐](http://www.blog.minike.top/Article/details/24949.shtml)
+- 2026-06-30 07:06 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.share.minike.top/Article/details/9658325930.shtml)
+- 2026-06-30 06:53 - [世界杯 1/16 决赛，巴西 2-1 绝杀日本，日本队史世界杯淘汰赛仍 0 胜,如何评价本场比赛？](http://www.share.minike.top/Article/details/269965038.shtml)

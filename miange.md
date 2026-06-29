@@ -1,60 +1,58 @@
-# 世界黄金协会：多国持续加码囤金，4月全球央行重回净买入
+# 网络食品安全新规施行 拼多多升级食品安全管理体系 引导商家合规有序经营
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-文章来源：汇通财经 依托世界黄金协会的最新统计数据，全球央行黄金采购趋势迎来阶段性转变。继3月各国央行整体变成黄金净卖出主体之后，4月各国央行再度开启净增持模式，月度净购金17吨。 东欧与亚洲经济体仍是增持主力，多国接连大手笔囤金，多国小幅售金对冲。结合历年调研数据，各国央行中长期配置黄金的意愿持续走高，协会最新年度调研报告也即将落地发布。 月度购金行情反转，多国央行延续长线增
+随着《网络食品销售经营者落实食品安全主体责任监督管理规定》等新规的施行，网络食品安全监管步入精细化新阶段。近日，拼多多发布公告，宣布全面禁售“餐饮制售类”商品，严格落实新规要求，保障消费者生命健康安全。所谓“餐饮制售类”商品，属于现场现制、即时销售类，在长途运输过程中极易变质，存在较高的食品安全风险。上述公告将此类商品纳入禁售及常态化管控范围，覆盖热食类制售、冷食类制售、生食类
 
 ## 正文
 
-文章来源：汇通财经 依托世界黄金协会的最新统计数据，全球央行黄金采购趋势迎来阶段性转变。
+随着《网络食品销售经营者落实食品安全主体责任监督管理规定》等新规的施行，网络食品安全监管步入精细化新阶段。
 
-继3月各国央行整体变成黄金净卖出主体之后，4月各国央行再度开启净增持模式，月度净购金17吨。
+近日，拼多多发布公告，宣布全面禁售“餐饮制售类”商品，严格落实新规要求，保障消费者生命健康安全。
 
-东欧与亚洲经济体仍是增持主力，多国接连大手笔囤金，多国小幅售金对冲。
+所谓“餐饮制售类”商品，属于现场现制、即时销售类，在长途运输过程中极易变质，存在较高的食品安全风险。
 
-结合历年调研数据，各国央行中长期配置黄金的意愿持续走高，协会最新年度调研报告也即将落地发布。
+上述公告将此类商品纳入禁售及常态化管控范围，覆盖热食类制售、冷食类制售、生食类制售、半成品制售、自制饮品制售等，从源头切断食品安全隐患。
 
-月度购金行情反转，多国央行延续长线增持节奏 世界黄金协会亚太区资深研究负责人玛丽莎·萨利姆（Marissa Salim）表示，4月全球央行扭转3月大额售金态势，重新实现17吨黄金净采购。
+今年以来，拼多多持续推动生态治理常态化，不断加大投入、主动作为，夯实平台合规防线。
 
-分国别来看，波兰稳居当月第一大购金国，全月净买入14吨；亚洲大国当月净购黄金8吨，创下2024年12月之后月度增持峰值，连续18个月不间断加仓黄金储备；捷克保持稳健采购，4月买入3吨，连续38个月月度增持。
+据不完全统计，1月底至今，拼多多已出台50余条综合治理举措。
 
-售金阵营中，俄罗斯4月卖出6吨黄金，年内累计售金22吨；乌兹别克斯坦小幅减持1吨，但从年内整体口径依旧是净买入，累计购金24吨，净增持规模仅次于波兰。
+其中，食品安全相关的治理公告和窗口提示达7条，涵盖商家经营资质、包装标签图发布要求、虚假宣传治理以及直播场景等多个方面，位居所有品类之首。
 
-此前3月大额售金的土耳其，4月黄金储备基本维持不变，短期黄金兑美元互换集中到期，仅余下1至3个月的中长期互换产品。
+这一系列举措，正是拼多多积极响应网络食品安全新规要求，持续加码平台治理、构建食品安全防火墙的具体实践。
 
 ## 相关推荐
 
-- 2026-06-30 06:52 - [上班偷了员工餐一只鸡做烧鸟吃，晚餐开个小灶](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bffcz.md)
-- 2026-06-30 06:48 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dusuo.md)
-- 2026-06-30 06:58 - [鉴定师的失败救赎](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiedan.md)
-- 2026-06-30 07:00 - [卢卡申科发布解放军仪仗队视频](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhaodui.md)
-- 2026-06-30 07:08 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rkeir.md)
-- 2026-06-30 06:44 - [爱很美味](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kpdim.md)
-- 2026-06-30 07:01 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gglto.md)
-- 2026-06-30 07:09 - [陈睿《让好内容发生》](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/usror.md)
-- 2026-06-30 06:44 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/murfy.md)
-- 2026-06-30 06:43 - [亚洲球队全部告别世界杯](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/eemoj.md)
-- 2026-06-30 06:59 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rfpwq.md)
-- 2026-06-30 06:47 - [陕西一地突降暴雨冰雹有车辆“趴窝”](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/utwmb.md)
-- 2026-06-30 06:42 - [全球最火存储ETF纳入兆易创新](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 06:54 - [《共患难》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/diaoku.md)
+- 2026-06-30 07:05 - [湖北云南这些涉汛信息都是假的](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
+- 2026-06-30 06:49 - [【TF家族练习生】《突围II破局》EP01：先放空的人，才有力气往前走（下）](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiangxian.md)
+- 2026-06-30 06:54 - [湖南祁东原文化馆被指贱卖](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/heizhu.md)
+- 2026-06-30 07:15 - [大货车掉落螺丝扎进骑手护目镜](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/chanweng.md)
+- 2026-06-30 07:00 - [要多少气球才能让房子飘起来！？答案是...🤩 #挑战# #野兽先生# #MrBeast# #vlog# #整活](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 07:13 - [星链在轨运行卫星已突破1.24万颗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hrugn.md)
+- 2026-06-30 06:55 - [《虎吹最难绷の一集》](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rdcwm.md)
+- 2026-06-30 06:53 - [《我落泪情绪零碎》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/irynu.md)
+- 2026-06-30 07:08 - [巴西绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dzcnl.md)
+- 2026-06-30 06:49 - [日本16强魔咒](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/edspl.md)
+- 2026-06-30 06:49 - [明星大侦探第四季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/aqczw.md)
+- 2026-06-30 06:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shylq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:49 - [野兽苏醒，谁为饵食？——敖尹「不驯者的游戏」PV公开！](http://www.share.minike.top/Article/details/29408.shtml)
-- 2026-06-30 06:42 - [《鸣潮》玄方主题曲 MV | 定玄](https://www.blog.minike.top/Article/details/405895042217.shtml)
-- 2026-06-30 06:48 - [女子常喝饮料提神 满口长“可乐牙”](http://www.blog.kurohicncr.top/Article/details/546392902.shtml)
-- 2026-06-30 06:55 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/87372.shtml)
-- 2026-06-30 06:54 - [吴艳妮回应夺冠](http://www.share.minike.top/Article/details/987359531540.shtml)
-- 2026-06-30 06:56 - [杨紫被质疑未使用原名](https://www.share.minike.top/Article/details/49140695.shtml)
-- 2026-06-30 06:59 - [老人卖菜获博主帮助后遇车祸去世](http://www.blog.minike.top/Article/details/573339729795.shtml)
-- 2026-06-30 06:53 - [金牌调解](https://www.share.minike.top/Article/details/547088171401.shtml)
-- 2026-06-30 06:44 - [《共患难》](https://www.share.kurohicncr.top/Article/details/9969425093.shtml)
-- 2026-06-30 06:49 - [国务院：稳步推进研究生考试招生改革](https://www.share.minike.top/Article/details/826492894.shtml)
-- 2026-06-30 06:49 - [全网说丑的玫瑰空调卖了5万台](http://www.share.minike.top/Article/details/07706.shtml)
-- 2026-06-30 07:08 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.share.minike.top/Article/details/19322429.shtml)
-- 2026-06-30 07:07 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/973842.shtml)
-- 2026-06-30 07:03 - [如何看待恋与深空将人体试药档案编号设为0731，制作组回应无实际意义，网友发现已改成 0611？](http://www.share.minike.top/Article/details/8055945.shtml)
-- 2026-06-30 07:09 - [女心理师](http://www.share.kurohicncr.top/Article/details/66870705471.shtml)
+- 2026-06-30 06:57 - [古代时期普通老百姓能喝上酒吗？](https://www.share.kurohicncr.top/Article/details/2259206465.shtml)
+- 2026-06-30 06:57 - [俄乌双方伤亡近180万人](https://www.share.minike.top/Article/details/814705141.shtml)
+- 2026-06-30 07:00 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/622671817037.shtml)
+- 2026-06-30 06:53 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/058131439965.shtml)
+- 2026-06-30 06:53 - [85花告别古偶](https://www.blog.minike.top/Article/details/3162247.shtml)
+- 2026-06-30 07:06 - [刘必安等16人非法集资案二审宣判](https://www.share.kurohicncr.top/Article/details/278293.shtml)
+- 2026-06-30 07:01 - [【硬核拆解】汽车人到底离我们有多远？](https://www.blog.kurohicncr.top/Article/details/194058550133.shtml)
+- 2026-06-30 06:59 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](http://www.share.kurohicncr.top/Article/details/5269809122.shtml)
+- 2026-06-30 06:52 - [领克汽车官宣正式进军拉力赛](https://www.blog.minike.top/Article/details/31226708687.shtml)
+- 2026-06-30 06:52 - [《鸣潮》玄方主题曲 MV | 定玄](http://www.blog.minike.top/Article/details/4357079384.shtml)
+- 2026-06-30 06:50 - [森保一 保守](https://www.blog.minike.top/Article/details/11456705517.shtml)
+- 2026-06-30 07:00 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/10007654805.shtml)
+- 2026-06-30 06:55 - [逃狱兄弟](https://www.share.kurohicncr.top/Article/details/31537172.shtml)
+- 2026-06-30 06:50 - [找到了10年前跪舔b站的视频](http://www.share.minike.top/Article/details/229546544903.shtml)
+- 2026-06-30 06:49 - [你人生中最艰难的时候是怎么熬过来的？](http://www.share.kurohicncr.top/Article/details/15250293.shtml)

@@ -1,51 +1,48 @@
-# 蓝思科技午前涨近8% 公司布局机器人、AI服务器及商业航天领域
+# 深圳出台十条措施，优化前海国际化支付
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-蓝思科技（06613）早盘涨超7%，公司A股今早大涨超11%创历史新高。截至发稿，股价上涨7.74%，现报30.92港元，成交额10.002亿港元。 华创证券指出，公司全面拥抱AI时代发展机遇，积极拓展具身智能机器人、AI服务器、商业航天等高算力领域。机器人：公司已成功切入全球头部机器人客户供应链；AI服务器：公司通过战略并购、核心技术突破、头部客户绑定，构建起覆盖结构件、液冷
+据“深圳发布”微信公众号消息，近日，前海管理局联合市外办、市商务局、市地方金融管理局等发布《关于优化前海合作区国际化支付服务的十条措施》（下称《十条措施》），打通境外人士支付堵点，实现“卡路、码路、币路”全通，进一步提升国际化支付服务体系，助力深圳加快建设具有全球重要影响力的消费中心。 《十条措施》提出，支持前海打造国际化支付便利商圈，推动重点商户配备外卡POS机，力争实现一批
 
 ## 正文
 
-蓝思科技（06613）早盘涨超7%，公司A股今早大涨超11%创历史新高。
+据“深圳发布”微信公众号消息，近日，前海管理局联合市外办、市商务局、市地方金融管理局等发布《关于优化前海合作区国际化支付服务的十条措施》（下称《十条措施》），打通境外人士支付堵点，实现“卡路、码路、币路”全通，进一步提升国际化支付服务体系，助力深圳加快建设具有全球重要影响力的消费中心。
 
-截至发稿，股价上涨7.74%，现报30.92港元，成交额10.002亿港元。
+《十条措施》提出，支持前海打造国际化支付便利商圈，推动重点商户配备外卡POS机，力争实现一批重点商圈达到“深圳市便利支付商圈”标准，重点商户境外银行卡、现金和移动支付全覆盖。
 
-华创证券指出，公司全面拥抱AI时代发展机遇，积极拓展具身智能机器人、AI服务器、商业航天等高算力领域。
-
-机器人：公司已成功切入全球头部机器人客户供应链；AI服务器：公司通过战略并购、核心技术突破、头部客户绑定，构建起覆盖结构件、液冷散热方案、服务器存储的全链条产品布局，切入全球顶级AI算力硬件供应链；商业航天：公司自2023年起持续向头部商业航天客户批量供应地面接收器结构件模组；卫星端产品方面，公司自主研发的航天级UTG柔性玻璃，正与国内外商业航天客户进行紧密联合研发与技术验证。
-
-责任编辑：卢昱君
+责任编辑：江钰涵
 
 ## 相关推荐
 
-- 2026-06-30 07:10 - [怕iPhone涨价的用户已紧急换新](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zedui.md)
-- 2026-06-30 06:55 - [青春环游记第三季](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rzave.md)
-- 2026-06-30 06:59 - [高中五人学习小组全员超650分](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/cppnl.md)
-- 2026-06-30 06:44 - [严浩翔张峻豪师兄弟同台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/xialiu.md)
-- 2026-06-30 06:46 - [董卿母亲癌症去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tgain.md)
-- 2026-06-30 07:11 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gntev.md)
-- 2026-06-30 06:42 - [英语考了145的人竟然教数学](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jianlou.md)
-- 2026-06-30 06:51 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hiynr.md)
-- 2026-06-30 06:45 - [关晓彤一路小跑迎接爸爸探班](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fcbrd.md)
-- 2026-06-30 06:54 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/linjiong.md)
-- 2026-06-30 06:56 - [承载着自然、礼仪与人文诗意的中国酒文化，借「学术酒吧」走进微醺思辨场，能成为年轻人的新式社交纽带吗？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ksbpq.md)
+- 2026-06-30 06:51 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
+- 2026-06-30 07:13 - [杨紫被质疑未使用原名](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/fdoly.md)
+- 2026-06-30 07:10 - [问心2神一集鬼三集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hlgiq.md)
+- 2026-06-30 07:08 - [流金岁月](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iunpc.md)
+- 2026-06-30 07:00 - [重庆真的是一个8D魔幻城市，谁来都得晕，太离谱了！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qwerw.md)
+- 2026-06-30 06:59 - [小羊在林间被野生豹子啃食 当地回应](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/qiulu.md)
+- 2026-06-30 06:57 - [老人卖菜获博主帮助后遇车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ningpei.md)
+- 2026-06-30 06:58 - [绘画区你赢了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/bukls.md)
+- 2026-06-30 07:15 - [手刃完颜专员，重创罗马奇观，降伏圣女贞德，最强英国主公！【帝国时代4】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rrqkc.md)
+- 2026-06-30 06:55 - [美股](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/lcrwi.md)
+- 2026-06-30 06:56 - [王欣瑜晋级温网女单次轮](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
+- 2026-06-30 07:04 - [医药暴涨5.91%背后](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/smxcv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:10 - [任素汐舞台上唱《王招君》](https://www.blog.minike.top/Article/details/558248.shtml)
-- 2026-06-30 06:43 - [日本 高位逼抢](http://www.blog.kurohicncr.top/Article/details/7700134.shtml)
-- 2026-06-30 06:56 - [人可以极简主义到什么程度？](http://www.blog.kurohicncr.top/Article/details/981614609660.shtml)
-- 2026-06-30 06:56 - [曾卓君夺得 2026 美国 EVO《饿狼传说》项目冠军，个人第七个 EVO 冠军，对此你有什么想说？](https://www.share.minike.top/Article/details/35913.shtml)
-- 2026-06-30 07:11 - [19岁男孩快220斤被查出营养不良](https://www.share.kurohicncr.top/Article/details/2934403666.shtml)
-- 2026-06-30 06:56 - [毕业以后，你最怀念的大学记忆是什么？](http://www.blog.minike.top/Article/details/02679069735.shtml)
-- 2026-06-30 06:53 - [田中碧失误](http://www.blog.minike.top/Article/details/41359092.shtml)
-- 2026-06-30 06:44 - [哪部作品、哪本书、哪首歌，值得被一直传下去？](https://www.blog.minike.top/Article/details/64796.shtml)
-- 2026-06-30 07:07 - [奔跑吧·黄河篇第二季](http://www.blog.minike.top/Article/details/66877.shtml)
-- 2026-06-30 06:54 - [“蓄热”住宅令英法民众难耐酷暑](https://www.blog.kurohicncr.top/Article/details/6202375556.shtml)
-- 2026-06-30 06:49 - [首届《哈基米歌王争霸赛》总决赛](http://www.share.minike.top/Article/details/1340491.shtml)
-- 2026-06-30 06:53 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.blog.kurohicncr.top/Article/details/7790608.shtml)
-- 2026-06-30 06:59 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/802139476.shtml)
-- 2026-06-30 06:52 - [巴西绝杀](https://www.blog.kurohicncr.top/Article/details/073100109.shtml)
-- 2026-06-30 06:44 - [“柠檬茶能换怀表？”](http://www.share.minike.top/Article/details/98452680.shtml)
+- 2026-06-30 06:54 - [高考填志愿父亲和女儿产生分歧](https://www.blog.minike.top/Article/details/77750131590.shtml)
+- 2026-06-30 06:51 - [巴西补时绝杀日本](http://www.blog.minike.top/Article/details/34809.shtml)
+- 2026-06-30 07:17 - [巴西半场0比1日本](https://www.share.kurohicncr.top/Article/details/11705.shtml)
+- 2026-06-30 07:00 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](http://www.share.kurohicncr.top/Article/details/68478477.shtml)
+- 2026-06-30 06:49 - [内马尔中场休息积极鼓励队友](http://www.blog.minike.top/Article/details/396688.shtml)
+- 2026-06-30 07:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](http://www.blog.kurohicncr.top/Article/details/6080270.shtml)
+- 2026-06-30 07:17 - [这一刀 会很帅](https://www.share.kurohicncr.top/Article/details/915986438266.shtml)
+- 2026-06-30 07:12 - [蔚来车主罚站](https://www.share.kurohicncr.top/Article/details/44688301.shtml)
+- 2026-06-30 07:03 - [千万不要随便扣肚脐](https://www.share.minike.top/Article/details/694362.shtml)
+- 2026-06-30 06:58 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/6636191028.shtml)
+- 2026-06-30 07:15 - [中国新一轮出口管制直指日本命脉](https://www.share.minike.top/Article/details/51709.shtml)
+- 2026-06-30 07:08 - [UP主复刻百万英镑牛排套餐](https://www.share.kurohicncr.top/Article/details/41887337.shtml)
+- 2026-06-30 06:50 - [欧洲空调安装费用为何如此高昂](http://www.share.kurohicncr.top/Article/details/049662.shtml)
+- 2026-06-30 06:49 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/078820499451.shtml)
+- 2026-06-30 06:50 - [道友？你来真的啊？【凡人官方二创大会】](https://www.share.minike.top/Article/details/330156764822.shtml)

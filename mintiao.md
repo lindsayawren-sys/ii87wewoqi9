@@ -1,58 +1,60 @@
-# 央行最新！加大“收水”力度！5000亿元，明日操作
+# 陕西省“中俄教育年”基础教育交流活动启动仪式在西安举办
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-今日，人民银行（下称“央行”）发布公告称，将在5日以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为3个月（92天）。鉴于该期限品种当月有1万亿元到期量，本次3个月期买断式逆回购操作将净回笼5000亿元，回笼资金规模较上月操作进一步扩大。 在此之前，央行已连续三个月通过买断式逆回购操作持续净回笼中长期流动性。央行近段时间开展的各项公开市场操作也主要以
+中新网西安6月2日电 (阿琳娜 柯颖颖)由陕西省教育厅主办，西安高新区第五学校承办，金砖国家青少年人工智能教育联盟协办的“相约西安·共赴未来”陕西省“中俄教育年”基础教育交流活动暨中俄学子六一国际儿童节艺体展演1日在西安举办。陕西教育国际交流协会会长陈乃霞表示，陕西将以此次活动为契机，持续深耕陕俄基础教育合作，创新交流载体、共育青年人才、拓宽合作空间，持之以恒培育中俄友好使者，
 
 ## 正文
 
-今日，人民银行（下称“央行”）发布公告称，将在5日以固定数量、利率招标、多重价位中标方式开展5000亿元买断式逆回购操作，期限为3个月（92天）。
+中新网西安6月2日电 (阿琳娜 柯颖颖)由陕西省教育厅主办，西安高新区第五学校承办，金砖国家青少年人工智能教育联盟协办的“相约西安·共赴未来”陕西省“中俄教育年”基础教育交流活动暨中俄学子六一国际儿童节艺体展演1日在西安举办。
 
-鉴于该期限品种当月有1万亿元到期量，本次3个月期买断式逆回购操作将净回笼5000亿元，回笼资金规模较上月操作进一步扩大。
+陕西教育国际交流协会会长陈乃霞表示，陕西将以此次活动为契机，持续深耕陕俄基础教育合作，创新交流载体、共育青年人才、拓宽合作空间，持之以恒培育中俄友好使者，推动陕俄基础教育交流合作高质量发展。
 
-在此之前，央行已连续三个月通过买断式逆回购操作持续净回笼中长期流动性。
+启动仪式上，西安高新区第五学校校长高杨杰，俄罗斯巴切夫斯基第一大学中学、莫斯科国立大学乌斯季拉宾斯克分校校长贝奇科夫·马克西姆·叶夫根尼耶维奇，金砖国家青少年人工智能教育联盟主席王宝爱先后致辞。
 
-央行近段时间开展的各项公开市场操作也主要以“收水”为主，频繁开展“地量”公开市场逆回购操作，4日和5日的逆回购操作量进一步降至零。
+各方纷纷表示将持续深化中俄基础教育互联互通，促进两国青少年相知相融、缔结友谊，用心培育中俄世代友好的建设者和接班人。
 
-在市场机构普遍看来，央行近期开展的各项公开市场操作，主要是银行体系流动性充裕，金融机构对央行流动性需求下降，央行货币政策工具相应缩量续作，避免市场利率过度下行，引导隔夜资金利率（DR001）在政策利率水平附近运行。
+启动仪式结束后，举办了中俄学子六一国际儿童节艺体展演。
 
-4月以来，DR001较长时间维持在1.2%水平，直到5月下旬逐渐回升至1.3%附近。
+中俄学子轮番登台，带来44个形式丰富、精彩纷呈的文艺节目，充分展现了两国青少年的青春风采与文化魅力。
 
-进入6月后，市场资金利率（DR007）继续运行在央行7天期逆回购利率下方，1年期国有银行和股份制银行同业存单利率在1.43%附近。
+活动现场还为参演的中俄学生及优秀指导教师颁发了荣誉证书。
 
-“这表明与在货币市场融资相比，商业银行向央行融资的成本优势已不明显。
+(完)
 
 ## 相关推荐
 
-- 2026-06-30 06:48 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bxxns.md)
-- 2026-06-30 06:55 - [超神人辉夜姬 第二集](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jloke.md)
-- 2026-06-30 06:44 - [孙浩谈翻红：能演苟存忠就很幸福](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuazen.md)
-- 2026-06-30 07:10 - [日本反击率先破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jxwsb.md)
-- 2026-06-30 06:59 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ruigeng.md)
-- 2026-06-30 07:08 - [巴西补时绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qiaobi.md)
-- 2026-06-30 07:06 - [在没有空调的巴黎感受世纪热浪](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/oubdp.md)
-- 2026-06-30 06:57 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/yinghou.md)
-- 2026-06-30 06:50 - [湖北一狗扑咬多人 当地正在搜捕](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiangwen.md)
-- 2026-06-30 06:42 - [庆祝中国共产党成立105周年大会将举行](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/bbtqm.md)
-- 2026-06-30 06:59 - [周生如故](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tbzlf.md)
-- 2026-06-30 06:56 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/chaikang.md)
+- 2026-06-30 07:02 - [81岁老人被男子买光菜回家车祸去世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nstld.md)
+- 2026-06-30 06:58 - [张碧晨一开口梦回逐玉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jwkss.md)
+- 2026-06-30 07:13 - [“蓄热”住宅令英法民众难耐酷暑](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fhwsc.md)
+- 2026-06-30 06:51 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/oskuw.md)
+- 2026-06-30 07:06 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/yetao.md)
+- 2026-06-30 07:15 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/swdut.md)
+- 2026-06-30 07:14 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pminl.md)
+- 2026-06-30 07:07 - [电子游戏中有哪些关于武器的“刻板印象”？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/gangqia.md)
+- 2026-06-30 07:16 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/neohz.md)
+- 2026-06-30 07:01 - [啊啊啊](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/kgqcj.md)
+- 2026-06-30 06:54 - [日本领先巴西](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frilp.md)
+- 2026-06-30 07:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/xiangchuang.md)
+- 2026-06-30 06:53 - [又一美国科技巨头转向中国大模型](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/agnrb.md)
+- 2026-06-30 06:50 - [上市央企地产商 两年换了三任董事长](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pmnbq.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [相爱相杀很有戏，我的兄弟最默契](https://www.share.kurohicncr.top/Article/details/88204657.shtml)
-- 2026-06-30 06:46 - [陈小云又好好的养了自己一年](http://www.blog.kurohicncr.top/Article/details/59034574.shtml)
-- 2026-06-30 06:54 - [宜宾地震造成15人受轻伤](https://www.share.kurohicncr.top/Article/details/6283926.shtml)
-- 2026-06-30 06:55 - [又一家县级医院关停门诊输液大厅](https://www.blog.minike.top/Article/details/742531.shtml)
-- 2026-06-30 06:52 - [尸潮来袭！开局一辆车如何在无穷的高架桥上存活下去！！「高架惊变100天2」](http://www.blog.minike.top/Article/details/28751548.shtml)
-- 2026-06-30 07:10 - [如何改变自己太负责任的性格?](https://www.blog.minike.top/Article/details/530535924.shtml)
-- 2026-06-30 07:05 - [TOP不是Prada全球普通人](https://www.share.minike.top/Article/details/331652.shtml)
-- 2026-06-30 06:43 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.minike.top/Article/details/770066205243.shtml)
-- 2026-06-30 07:00 - [张帅时隔四年再取温网正赛胜利](https://www.share.kurohicncr.top/Article/details/042630563473.shtml)
-- 2026-06-30 06:44 - [诋毁袁隆平的网红岂能封号了之](https://www.blog.kurohicncr.top/Article/details/67197956.shtml)
-- 2026-06-30 06:59 - [全球最火存储ETF纳入兆易创新](https://www.share.kurohicncr.top/Article/details/899460.shtml)
-- 2026-06-30 07:04 - [世界杯连开三场决战](https://www.share.minike.top/Article/details/85741031.shtml)
-- 2026-06-30 06:50 - [四川宜宾地震为何震感明显](https://www.blog.minike.top/Article/details/4141342837.shtml)
-- 2026-06-30 07:07 - [宗元舞2.0 迟来的50万女装福利](http://www.blog.minike.top/Article/details/02891933931.shtml)
-- 2026-06-30 07:10 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/3701400.shtml)
+- 2026-06-30 06:53 - [致敬！中国首批缉毒警已全体退休](https://www.share.kurohicncr.top/Article/details/9213962.shtml)
+- 2026-06-30 07:01 - [湖北一狗扑咬多人 当地正在搜捕](http://www.share.kurohicncr.top/Article/details/747725622.shtml)
+- 2026-06-30 06:53 - [拆解FIFA和世界杯的暗面](https://www.blog.kurohicncr.top/Article/details/0220802.shtml)
+- 2026-06-30 07:01 - [周冬雨多次说演不了话剧文城](http://www.blog.minike.top/Article/details/363939391155.shtml)
+- 2026-06-30 07:06 - [德巴荷登场 点球会成淘汰赛常态吗](http://www.blog.kurohicncr.top/Article/details/81635.shtml)
+- 2026-06-30 07:12 - [FIFA 被呼吁调查阿尔及利亚奥地利比赛，如何看待这场争执？真的存在「默契平局」吗？](http://www.share.kurohicncr.top/Article/details/63578.shtml)
+- 2026-06-30 07:05 - [法总统候选人：拒绝与中国激烈对抗](http://www.blog.kurohicncr.top/Article/details/26672726431.shtml)
+- 2026-06-30 06:52 - [上市央企地产商 两年换了三任董事长](https://www.share.minike.top/Article/details/166330.shtml)
+- 2026-06-30 07:10 - [青春环游记第三季](http://www.share.minike.top/Article/details/6077434.shtml)
+- 2026-06-30 07:08 - [浙江队将获百万元世界杯补偿](https://www.blog.kurohicncr.top/Article/details/3336548396.shtml)
+- 2026-06-30 07:12 - [王欣瑜温网开门红](https://www.blog.minike.top/Article/details/238737296549.shtml)
+- 2026-06-30 07:02 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/44923698.shtml)
+- 2026-06-30 07:03 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/628479.shtml)
+- 2026-06-30 06:49 - [巴西2比1日本](https://www.blog.kurohicncr.top/Article/details/22086.shtml)
+- 2026-06-30 07:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](http://www.share.kurohicncr.top/Article/details/71753.shtml)

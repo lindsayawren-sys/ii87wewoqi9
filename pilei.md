@@ -1,57 +1,58 @@
-# “中国咖啡第一村”：咖旅融合解锁乡村新体验
+# Real Brokerage进军新不伦瑞克省 加拿大业务扩展至第六省
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-赖清德批小红书，是在怕什么？高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？医生紧急提醒新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？端午火车票明日开售 这份购票指南请收好中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定
+Real Brokerage Inc． 周二宣布已正式进军加拿大新不伦瑞克省，这是该公司在加拿大扩展至的第六个省份，进一步巩固了其在加拿大房地产市场的布局。Real通过引入独立经纪公司Creativ Realty在新不伦瑞克省开展业务，后者将作为该省的运营基础。 Creativ Realty由Martin Gallant领导，Gallant将出任Real在新不伦瑞克省的董事经纪
 
 ## 正文
 
-赖清德批小红书，是在怕什么？
+Real Brokerage Inc． 周二宣布已正式进军加拿大新不伦瑞克省，这是该公司在加拿大扩展至的第六个省份，进一步巩固了其在加拿大房地产市场的布局。
 
-高考必备物品清单来了 能带不能带的要看清中高考前考生扎堆“吸氧补脑”？
+Real通过引入独立经纪公司Creativ Realty在新不伦瑞克省开展业务，后者将作为该省的运营基础。
 
-医生紧急提醒新闻联播披露A股重要数据益生菌不是万能药 并非人人需要“代发论文，包过审核”，这也能信？
+Creativ Realty由Martin Gallant领导，Gallant将出任Real在新不伦瑞克省的董事经纪。
 
-端午火车票明日开售 这份购票指南请收好中新网评：迷信孩子能被“矫治”，家长的心病更该治治中国多地省长密集下井 检查煤矿安全生产香港书写国际金融中心新传奇美加墨世界杯参赛球队阵容确定 梅西、C罗将六战世界杯被用户吐槽“越来越难用”“频频出错”，AI开始偷懒了？
+该团队拥有42名经纪人，业务覆盖东南地区各价位市场，包括豪宅领域，2025年总销售额超过3亿美元。
 
-1290万人将赶赴高考，教育部：提高对智能眼镜等检出率千万不要大意！
+Gallant表示：“在评估如何长期支持经纪人的业务时，我们认为与Real在文化上天然契合，其技术平台、教育资源和费用结构最终促成了这一决定。
 
-早上起床“眼屎”增多，当心是这些眼病！
+” Real首席增长官Jason Cassity称：“新不伦瑞克省对我们来说是一项重要的战略扩张。
 
-104场比赛39天精彩不停 美加墨世界杯观赛指南来了杜祥琬院士声明 未参与核技术应用于垃圾焚烧日本加速推进修宪进程须引起警惕王楚钦任中国乒乓男队队长 马龙12年任期结束内蒙古一残疾大哥救下受伤骆驼悉心照料雨天路滑老人接连摔倒 热心路人纷纷上前帮扶体验“中式生活”！
+全省经纪人对更现代、协作性更强的经纪模式的兴趣持续增长，Martin和Creativ Realty团队为Real在该省的发展提供了理想的基础。
 
-美国青少年从味蕾开始钓鱼佬夜钓顺手救下2名落水少年高铁穿麦浪，皖北麦收正当时直击无人机实战化作战训练现场“最美天山公路”独库公路恢复通车新疆喀什：走进“西域之西”的人文风情津台萌娃一逗一捧：“咱说的都是中国话”女子穿旗袍配高跟鞋跳绳惊艳网友秦岭小虎队集体庆生 萌态十足迎“六一”云南西双版纳野象谷添“重量级”新丁航拍丹霞地貌神似“羊肉卷”没有“黑眼圈” 全球唯一野生白色大熊猫长大了北京天坛的奠基土来自山西后土祠？
+” 目前Real已在加拿大的不列颠哥伦比亚省、阿尔伯塔省、萨斯喀彻温省、曼尼托巴省、安大略省和新不伦瑞克省开展业务。
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [科学备孕男女都要上心](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhigong.md)
-- 2026-06-30 06:51 - [湖南祁东原文化馆被指贱卖](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tpwtx.md)
-- 2026-06-30 06:53 - [巴西VS日本前瞻](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fpwlu.md)
-- 2026-06-30 07:11 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/ggiqd.md)
-- 2026-06-30 06:43 - [足球小将的剧本成真了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/aootd.md)
-- 2026-06-30 06:52 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kpjjq.md)
-- 2026-06-30 06:48 - [日本淘汰](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/doyct.md)
-- 2026-06-30 06:51 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/iajhe.md)
-- 2026-06-30 07:07 - [深扒韩国队淘汰背后原因](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
-- 2026-06-30 07:06 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/naycq.md)
-- 2026-06-30 06:47 - [女子健身不当 居然“脑子漏水”了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/rtops.md)
+- 2026-06-30 07:17 - [模仿老妈打牌赢了和输了的区别！](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/crrss.md)
+- 2026-06-30 07:06 - [请回答王牌2019](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/dmnsq.md)
+- 2026-06-30 06:50 - [巴西vs日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nrdyp.md)
+- 2026-06-30 06:51 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ceijv.md)
+- 2026-06-30 06:59 - [檀健次王楚然吻戏看热了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jzrri.md)
+- 2026-06-30 06:54 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hdtdd.md)
+- 2026-06-30 06:52 - [中国网友锐评韩国队外网爆火](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hidhl.md)
+- 2026-06-30 07:02 - [两老人多次到洗车店泼粪 警方已介入](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ppalk.md)
+- 2026-06-30 07:03 - [宜宾地震造成15人受轻伤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/iunpc.md)
+- 2026-06-30 06:50 - [张凌赫 客串](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/fwdif.md)
+- 2026-06-30 07:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nmojk.md)
+- 2026-06-30 07:14 - [87克大金链到老庙黄金维修少了11克](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kqpfw.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:04 - [刘必安等16人非法集资案二审宣判](https://www.blog.minike.top/Article/details/375169004064.shtml)
-- 2026-06-30 06:51 - [古代时期普通老百姓能喝上酒吗？](http://www.share.minike.top/Article/details/97966622.shtml)
-- 2026-06-30 06:43 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/063570.shtml)
-- 2026-06-30 06:51 - [看看赶海都能遇到啥](http://www.blog.minike.top/Article/details/176867420.shtml)
-- 2026-06-30 07:05 - [你的妻子大喷菇—《植物娘大战僵尸》特别篇](http://www.blog.kurohicncr.top/Article/details/72026.shtml)
-- 2026-06-30 06:44 - [乔家的儿女](http://www.blog.kurohicncr.top/Article/details/98863627.shtml)
-- 2026-06-30 07:07 - [严浩翔张峻豪师兄弟同台](http://www.blog.minike.top/Article/details/48500847.shtml)
-- 2026-06-30 06:55 - [把毒品藏在哪里，60秒内不会被发现？](http://www.blog.kurohicncr.top/Article/details/51572540070.shtml)
-- 2026-06-30 06:49 - [巴西vs日本首发名单](https://www.share.minike.top/Article/details/602489878.shtml)
-- 2026-06-30 07:08 - [青春环游记第三季](https://www.share.kurohicncr.top/Article/details/804000871.shtml)
-- 2026-06-30 06:44 - [美股](http://www.blog.kurohicncr.top/Article/details/54696.shtml)
-- 2026-06-30 06:48 - [科学备孕男女都要上心](https://www.blog.minike.top/Article/details/688605074466.shtml)
-- 2026-06-30 06:48 - [急先锋](http://www.share.minike.top/Article/details/74990509244.shtml)
-- 2026-06-30 07:06 - [巴西队与日本队将展开正面对决](https://www.blog.kurohicncr.top/Article/details/86511.shtml)
-- 2026-06-30 07:08 - [赵今麦电影开端客串路透](https://www.share.minike.top/Article/details/63834.shtml)
+- 2026-06-30 07:15 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.blog.kurohicncr.top/Article/details/184819313710.shtml)
+- 2026-06-30 07:16 - [女子用家人生日买彩票中1032万](http://www.share.minike.top/Article/details/6986825889.shtml)
+- 2026-06-30 06:54 - [可以细成这样？1600万预算，颠覆我认知的改造！](https://www.share.kurohicncr.top/Article/details/1352135404.shtml)
+- 2026-06-30 06:51 - [在没有空调的巴黎感受世纪热浪](http://www.blog.minike.top/Article/details/2496761.shtml)
+- 2026-06-30 07:11 - [收受1.98亿余元 周家斌被判无期](https://www.share.minike.top/Article/details/526001.shtml)
+- 2026-06-30 07:02 - [日本硬刚巴西谁能赢](https://www.blog.minike.top/Article/details/6743989765.shtml)
+- 2026-06-30 07:11 - [森保一 保守](https://www.share.minike.top/Article/details/03765.shtml)
+- 2026-06-30 07:12 - [2021湖南卫视跨年演唱会](https://www.blog.kurohicncr.top/Article/details/410401.shtml)
+- 2026-06-30 07:14 - [有哪些被认为是现代才有的东西其实古代就有了？](http://www.share.minike.top/Article/details/54966066093.shtml)
+- 2026-06-30 06:55 - [如何看待普朗克 1940 年的老论文被撤稿，机器算法出了什么问题？](https://www.share.minike.top/Article/details/856725519.shtml)
+- 2026-06-30 07:08 - [王欣瑜晋级温网女单次轮](https://www.share.kurohicncr.top/Article/details/92397081348.shtml)
+- 2026-06-30 06:52 - [千与千寻](https://www.blog.minike.top/Article/details/96506615450.shtml)
+- 2026-06-30 07:03 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](http://www.share.minike.top/Article/details/54951085277.shtml)
+- 2026-06-30 06:54 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://www.share.kurohicncr.top/Article/details/41959638129.shtml)
+- 2026-06-30 07:03 - [考入南大计算机，复读考清北值吗？](https://www.share.minike.top/Article/details/642882766261.shtml)

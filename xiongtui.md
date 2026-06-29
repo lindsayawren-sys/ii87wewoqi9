@@ -1,56 +1,56 @@
-# 广东高院发布首批物业纠纷示范判决 以“判例+调解”批量化解矛盾
+# 伏季休渔首月 中国海警局南海分局查办涉渔案件60起
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新网广州6月3日电 (方伟彬 陈虹伶 谭振州)广东省高级人民法院3日发布首批物业服务纠纷“示范性诉讼+批量化调解”典型案例。 此次共发布8个典型案例，涵盖物业收费标准、服务质量、新旧物业交接、专项维修金使用及开发商承诺赠送物业费等民生热点，全面展现广东法院以司法赋能基层治理的创新成效。 数据显示，2025年全省法院已依托综治中心设立物业纠纷专业调解室57个，成功调解各类物业纠
+中新网北京6月2日电(阮煜琳 张德明 匡雷 颜泽彬)记者2日获悉，6月1日，南海伏季休渔刚满一个月。5月，中国海警局南海分局联合地方涉海执法部门，精心组织、周密部署，开展全方位、立体化执法行动，南海海区休渔有序、态势平稳，为海洋渔业资源提供了良好休养生息环境。据统计，5月份中国海警局南海分局共动用海警舰艇2705艘次、航空器31架次，共查办涉渔案件60起，其中行政案件41起、刑
 
 ## 正文
 
-中新网广州6月3日电 (方伟彬 陈虹伶 谭振州)广东省高级人民法院3日发布首批物业服务纠纷“示范性诉讼+批量化调解”典型案例。
+中新网北京6月2日电(阮煜琳 张德明 匡雷 颜泽彬)记者2日获悉，6月1日，南海伏季休渔刚满一个月。
 
-此次共发布8个典型案例，涵盖物业收费标准、服务质量、新旧物业交接、专项维修金使用及开发商承诺赠送物业费等民生热点，全面展现广东法院以司法赋能基层治理的创新成效。
+5月，中国海警局南海分局联合地方涉海执法部门，精心组织、周密部署，开展全方位、立体化执法行动，南海海区休渔有序、态势平稳，为海洋渔业资源提供了良好休养生息环境。
 
-数据显示，2025年全省法院已依托综治中心设立物业纠纷专业调解室57个，成功调解各类物业纠纷约7.8万件，有效提升了社区治理水平与效能，切实增强了群众的司法获得感。
+据统计，5月份中国海警局南海分局共动用海警舰艇2705艘次、航空器31架次，共查办涉渔案件60起，其中行政案件41起、刑事案件19起，查获涉案船舶62艘，查没涉案渔获物2.8万公斤；移交地方渔政处理渔船12艘。
 
-针对物业纠纷“易发多发、积怨较深”的特点，广东法院探索出一条“审理一案、化解一片”的新路径。
+与往年相比，今年南海伏季休渔执法呈现以下几个特点：一是海区应休渔船共41461艘，较去年减少5.7%，显示出渔业结构调整的积极成效；二是中国海警局南海分局统筹部署，按照“应出尽出、应飞尽飞”的原则，积极调配执法舰船和航空器，搭建起“海空陆”立体管控网，形成高压巡查态势。
 
-在佛山某小区开发商承诺赠送物业费纠纷案中，法院组建“法官+调解员”协同专班，依托和解中心同步推进一审、二审及关联纠纷调解，通过示范性判决明确规则，最终促成涉案87户业主全部调解结案，实现矛盾清零。
+5月7日至8日，南海分局组织多艘舰艇在三亚以南海域集中登检48艘渔船，其中查获6艘未经许可违规作业渔船；三是科技赋能，充分运用科技手段，实现精准打击，探索“无人机+执法”模式，结合“智慧边海防”系统，强化动态联合监管。
 
-在韶关某业主因不满服务拒缴物业费案中，法院运用“示范诉讼+乡贤调解”模式，联合业委会及当地乡贤深入社区，采取“法官讲法理、乡贤讲情理”的双轨方式，成功将批量案件化解在基层，真正做到“处理一案、治理一片”。
+休渔期间，各地海警机构积极主动协同相关涉海部门联合行动，针对北部湾、粤东等重点海域，加大了夜间及隐蔽水域的巡查频次，确保“见警率”和“登检率”双提升。
 
-在江门某物业公司催缴物业费案中，法院打造社区驻点“安居法官”机制，搭建线上诉求通道，联合社区实地调查，通过“示范诉讼+类案同调+普法宣传”，不仅妥善化解欠费纠纷，更有效助力了小区新旧物业的平稳交接。
+在严格的执法态势下，仍存在有的渔船规避监管、暴力抗法等现象，尤其是底拖网禁渔区线附近的违规行为及“三无”船舶非法作业仍有发生。
 
-近年来，广东法院持续深化物业纠纷治理改革，在全国率先构建省级“党建引领+行政规范+多元调解+司法保障”多元化解机制，通过统筹优势资源，将司法触角延伸至社区最前端。
+仅5月12日一晚，阳江海警就在海陵岛附近海域查获3艘在夜色中偷摸出海“电鱼”的违规渔船，现场查获虾蛄、螃蟹等渔获物一批，等待他们的将是法律的惩处。
 
 ## 相关推荐
 
-- 2026-06-30 06:43 - [“手机痴呆症”盯上中青年](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/pubye.md)
-- 2026-06-30 06:52 - [一生一世](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiongran.md)
-- 2026-06-30 06:42 - [中国对日本再出重拳](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kfgkf.md)
-- 2026-06-30 06:57 - [阿娇瘦了10斤](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sunao.md)
-- 2026-06-30 06:50 - [德约科维奇向温网对手放狠话](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxxri.md)
-- 2026-06-30 07:06 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/hrugn.md)
-- 2026-06-30 07:03 - [巴西2-1绝杀日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/uzfng.md)
-- 2026-06-30 06:45 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jsadr.md)
-- 2026-06-30 06:52 - [极端热浪席卷欧洲多国，热一热百姓让领导先凉快？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ksbpq.md)
-- 2026-06-30 06:46 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/quanteng.md)
+- 2026-06-30 07:12 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njlik.md)
+- 2026-06-30 06:57 - [日本淘汰](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mxlpv.md)
+- 2026-06-30 07:03 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shvmz.md)
+- 2026-06-30 06:49 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
+- 2026-06-30 07:10 - [内马尔中场休息积极鼓励队友](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/pcnhe.md)
+- 2026-06-30 06:49 - [时光音乐会](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jempv.md)
+- 2026-06-30 06:50 - [赵今麦因“瘦而不柴”的体态出圈](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qionglang.md)
+- 2026-06-30 06:50 - [左手《Luvsic》，右手《夜，萤火虫和你》，是什么感觉？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
+- 2026-06-30 07:06 - [欧洲家电巨头为何输掉了这个夏天](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/suizhuang.md)
+- 2026-06-30 07:17 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lcrwi.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:58 - [看看赶海都能遇到啥](http://www.blog.kurohicncr.top/Article/details/92349548255.shtml)
-- 2026-06-30 06:43 - [存储三巨头遭遇集体诉讼](http://www.share.kurohicncr.top/Article/details/6416714.shtml)
-- 2026-06-30 06:49 - [大学生遇地震裹被子从5楼冲下](https://www.share.kurohicncr.top/Article/details/9889011494.shtml)
-- 2026-06-30 07:08 - [复古未来主义沙画「夜泳」](http://www.blog.minike.top/Article/details/004192310.shtml)
-- 2026-06-30 06:44 - [审核了不止十年的低创鬼畜](http://www.blog.kurohicncr.top/Article/details/21616271.shtml)
-- 2026-06-30 06:58 - [央视曝光手机测评黑幕，厂商与博主联手造假，特调机三层作弊，真实体验与宣传天差地别，哪些信息值得关注？](http://www.blog.minike.top/Article/details/7184666.shtml)
-- 2026-06-30 06:58 - [《恋与深空》被指触碰民族伤痛红线](https://www.blog.minike.top/Article/details/593907.shtml)
-- 2026-06-30 06:43 - [田中碧失误](https://www.share.kurohicncr.top/Article/details/003392604.shtml)
-- 2026-06-30 07:08 - [世界杯“美洲德比”7月1日开打](https://www.blog.minike.top/Article/details/7317693.shtml)
-- 2026-06-30 07:11 - [《我落泪情绪零碎》](https://www.blog.kurohicncr.top/Article/details/861547373.shtml)
-- 2026-06-30 07:10 - [中国猪圈装空调让欧洲网友破防](https://www.share.minike.top/Article/details/882350485467.shtml)
-- 2026-06-30 07:11 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/76260388.shtml)
-- 2026-06-30 07:08 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.share.minike.top/Article/details/10011.shtml)
-- 2026-06-30 06:58 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/83178.shtml)
-- 2026-06-30 07:05 - [【大鸣王潮1566】真拿你没办法](https://www.share.kurohicncr.top/Article/details/06015322746.shtml)
+- 2026-06-30 07:12 - [我想说 其实你很好！](http://www.blog.minike.top/Article/details/8364732.shtml)
+- 2026-06-30 06:54 - [美股](https://www.share.kurohicncr.top/Article/details/15719637400.shtml)
+- 2026-06-30 07:03 - [领克07GT搭载超跑同源MRC悬架](http://www.share.minike.top/Article/details/701108790.shtml)
+- 2026-06-30 06:52 - [关晓彤一路小跑迎接爸爸探班](http://www.blog.minike.top/Article/details/8367266494.shtml)
+- 2026-06-30 07:07 - [欧洲空调安装费用为何如此高昂](http://www.blog.minike.top/Article/details/964476.shtml)
+- 2026-06-30 07:15 - [蜘蛛侠:英雄归来](https://www.blog.minike.top/Article/details/826693199838.shtml)
+- 2026-06-30 06:54 - [日本领先巴西](https://www.share.kurohicncr.top/Article/details/98230094.shtml)
+- 2026-06-30 07:07 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/10017.shtml)
+- 2026-06-30 06:57 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/309616.shtml)
+- 2026-06-30 06:48 - [李准基参加文彩元婚礼](https://www.blog.kurohicncr.top/Article/details/90855.shtml)
+- 2026-06-30 06:55 - [巴西绝杀日本](http://www.share.kurohicncr.top/Article/details/0548249.shtml)
+- 2026-06-30 07:14 - [小娘惹](https://www.blog.minike.top/Article/details/1118857758.shtml)
+- 2026-06-30 07:06 - [女子在酒吧被陌生人投放“伟哥”](http://www.share.kurohicncr.top/Article/details/120912.shtml)
+- 2026-06-30 07:04 - [消息称日本拟引进对舰攻击无人潜艇，将如何影响亚太地区军事平衡？](http://www.share.kurohicncr.top/Article/details/7895837.shtml)
+- 2026-06-30 07:08 - [“错误的标准答案见多了，第一次见如此超模的正解”【AI教育の小曲】【灰色轨迹尾奏-DJ】](http://www.share.kurohicncr.top/Article/details/8450412.shtml)

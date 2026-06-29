@@ -1,59 +1,46 @@
-# MLCC、燃机概念联袂爆发，多股涨停！华宝基金军工ETF（512810）逆市连阳，机构：关注“军转民”投资机会
+# 英伟达与微软达成合作：推出统一技术栈 用于部署Agentic AI
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-6月4日，大市回调之际，军工逆市飘红。军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。 成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。 消息面，受益AI需求景气，MLCC行
+在微软 Build 开发者大会上，英伟达与微软达成合作，推出统一技术栈，用于部署代理式人工智能（Agentic AI），覆盖从Windows设备到云端再到本地的全场景。责任编辑：丁文武
 
 ## 正文
 
-6月4日，大市回调之际，军工逆市飘红。
+在微软 Build 开发者大会上，英伟达与微软达成合作，推出统一技术栈，用于部署代理式人工智能（Agentic AI），覆盖从Windows设备到云端再到本地的全场景。
 
-军工核心资产——军工ETF华宝（512810）收涨0.41%成功连阳，守住年线的同时向上收复5日线。
-
-成份股整体跌多涨少，不过MLCC、燃机概念多股暴涨为指数提供强力支撑，宏达电子20CM涨停，振华科技、中国动力、旭光电子集体10%涨停封板。
-
-光启技术、航天电子、中国卫星、中航沈飞等权重股齐跌为主要拖累。
-
-消息面，受益AI需求景气，MLCC行业正进入新一轮涨价、景气上行周期。
-
-据行业数据披露，日系龙头已对AI服务器用MLCC提价15%至35%，部分厂商提价6%至13%，高端产品交期大幅延长至20周以上，消费级现货跟涨约20%。
-
-分析指出，部分军工电子企业除军工被动元器件外，也包括AI服务器电源、电力储能市场等民用被动元器件业务，有望迎来新成长逻辑。
-
-燃机方面，AIDC爆发带来电力缺口，燃机成为刚需。
+责任编辑：丁文武
 
 ## 相关推荐
 
-- 2026-06-30 07:01 - [吴艳妮回应夺冠](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/shangzu.md)
-- 2026-06-30 06:50 - [严浩翔张峻豪师兄弟同台](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tnvwk.md)
-- 2026-06-30 06:56 - [不开心就去看三年前的购物订单](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qazkl.md)
-- 2026-06-30 06:48 - [老人喝隔夜排骨汤喝进医院](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/oylqa.md)
-- 2026-06-30 06:48 - [恋与深空已删除锅里洗澡文案](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jiangwan.md)
-- 2026-06-30 06:47 - [《贺子珍》](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/doyct.md)
-- 2026-06-30 06:55 - [点菜也要教吗](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhaopin.md)
-- 2026-06-30 07:11 - [欧洲 35 摄氏度以上高温覆盖人口超 1 亿，欧洲将面临哪些严峻挑战？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lkceg.md)
-- 2026-06-30 07:05 - [牺牲民警倒下前还在保护群众](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/liepiao.md)
-- 2026-06-30 06:56 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zhangtuan.md)
-- 2026-06-30 06:57 - [卡塞米罗头球破门](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiushou.md)
-- 2026-06-30 06:42 - [老人喝隔夜排骨汤喝进医院](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lzxgu.md)
-- 2026-06-30 06:43 - [荷兰vs摩洛哥前瞻](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mouseng.md)
+- 2026-06-30 06:49 - ["超算小姐，这一次，我一定要带你出去..."](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuduan.md)
+- 2026-06-30 06:53 - [扫黑风暴](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/seku.md)
+- 2026-06-30 07:16 - [张月感谢了每一公的队友](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/mersm.md)
+- 2026-06-30 06:52 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/haidong.md)
+- 2026-06-30 07:15 - [巴西绝杀日本](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mlcqj.md)
+- 2026-06-30 07:17 - [AI手机进入Agent时代](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/lbzws.md)
+- 2026-06-30 07:14 - [免费试吃发差评被店家挂店门避雷](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tukni.md)
+- 2026-06-30 07:09 - [孙兴慜道歉](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/flcth.md)
+- 2026-06-30 06:58 - [歌剧老师锐评《歌手2026》第六期（下）](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/gofvf.md)
+- 2026-06-30 07:04 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/taukk.md)
+- 2026-06-30 07:04 - [父母催婚话术是如何做到全国统一的](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/quxaf.md)
+- 2026-06-30 07:01 - [斛珠夫人](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/tazuz.md)
 
 ## 延伸阅读
 
-- 2026-06-30 06:51 - [女子螺蛳粉摊吃出蛇](http://www.blog.minike.top/Article/details/0535475.shtml)
-- 2026-06-30 07:00 - [为什么中小型翼龙竞争不过鸟类，但同样采用翼膜的蝙蝠却能够染指鸟类的生态位，并且除了极地全球分布？](http://www.share.kurohicncr.top/Article/details/37699.shtml)
-- 2026-06-30 07:09 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://www.blog.minike.top/Article/details/2921333292.shtml)
-- 2026-06-30 07:01 - [田中碧失误](http://www.blog.minike.top/Article/details/55434022978.shtml)
-- 2026-06-30 07:09 - [湖北一狗扑咬多人 当地正在搜捕](https://www.blog.kurohicncr.top/Article/details/604213505.shtml)
-- 2026-06-30 07:11 - [荷兰vs摩洛哥前瞻](http://www.blog.kurohicncr.top/Article/details/4904687837.shtml)
-- 2026-06-30 07:05 - [印尼塞梅鲁火山喷发 灰柱高约1200米](https://www.blog.minike.top/Article/details/12725.shtml)
-- 2026-06-30 06:46 - [巴西半场0比1日本](https://www.blog.minike.top/Article/details/339418.shtml)
-- 2026-06-30 06:45 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/8960060918.shtml)
-- 2026-06-30 07:07 - [张凌赫 客串](http://www.blog.minike.top/Article/details/597246097588.shtml)
-- 2026-06-30 07:02 - [巴西扳平比分](https://www.share.kurohicncr.top/Article/details/90288053144.shtml)
-- 2026-06-30 06:58 - [电子游戏中有哪些关于武器的“刻板印象”？](https://www.blog.kurohicncr.top/Article/details/576240121.shtml)
-- 2026-06-30 06:51 - [女子称留了30年长发被剪索赔2.5万](http://www.blog.kurohicncr.top/Article/details/98227795347.shtml)
-- 2026-06-30 06:53 - [你这一辈子有没有为进山姆拼过命？](http://www.blog.kurohicncr.top/Article/details/935726.shtml)
-- 2026-06-30 06:46 - [杨紫被质疑未使用原名](https://www.share.kurohicncr.top/Article/details/061445608.shtml)
+- 2026-06-30 06:53 - [如何改变自己太负责任的性格?](http://www.share.kurohicncr.top/Article/details/40308.shtml)
+- 2026-06-30 06:52 - [高考结束，该不该外出打工体验？](https://www.share.minike.top/Article/details/517744.shtml)
+- 2026-06-30 07:13 - [健全中小学教师工资长效联动机制](https://www.blog.minike.top/Article/details/46450737129.shtml)
+- 2026-06-30 07:08 - [𝗩𝟴 'singasong' Official MV](http://www.blog.minike.top/Article/details/153145695771.shtml)
+- 2026-06-30 07:16 - [世界杯 1/16 决赛，巴西 vs 日本，如何评价本场比赛？](http://www.blog.minike.top/Article/details/778843.shtml)
+- 2026-06-30 07:09 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.share.minike.top/Article/details/82679913757.shtml)
+- 2026-06-30 07:17 - [男子中医院拔火罐致浅2度烧伤](https://www.blog.kurohicncr.top/Article/details/1929618895.shtml)
+- 2026-06-30 07:06 - [欧洲空调安装费用为何如此高昂](https://www.blog.minike.top/Article/details/65818766191.shtml)
+- 2026-06-30 07:14 - [皇马向委内瑞拉受灾群众捐赠100万欧](https://www.blog.kurohicncr.top/Article/details/008257795.shtml)
+- 2026-06-30 06:50 - [《恋与深空》被指触碰民族伤痛红线](https://www.share.minike.top/Article/details/024823.shtml)
+- 2026-06-30 06:56 - [急先锋](https://www.share.kurohicncr.top/Article/details/346166241.shtml)
+- 2026-06-30 07:08 - [李在明90度鞠躬感谢韩国两大财阀](http://www.blog.minike.top/Article/details/19381293.shtml)
+- 2026-06-30 06:58 - [商务部宣布 20 家日本实体列入出口管制管控名单，20 家日本实体列入关注名单，有哪些信息值得关注？](http://www.blog.kurohicncr.top/Article/details/7321497880.shtml)
+- 2026-06-30 07:09 - [德国巴拉圭加时](https://www.blog.minike.top/Article/details/9503372.shtml)
+- 2026-06-30 06:54 - [勇敢的心第二部](http://www.share.minike.top/Article/details/013251586082.shtml)

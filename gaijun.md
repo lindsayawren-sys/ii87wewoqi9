@@ -1,59 +1,61 @@
-# CEO致歉难阻股价续跌，粉笔上市三年来市值蒸发超九成
+# 光大期货0602热点追踪：氧化铝跌幅居前，几内亚政策空窗期左侧风险偏高
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-专题：粉笔CEO张小龙被曝在大学讲座公然使用脏话辱骂学生 股价下跌近9%，市值蒸发1.3亿港元 粉笔正主攻“AI+教育”赛道，其大量资金投入已产生一定回报，但也对其营收造成了压力。 因为此前在中国人民大学的言论，今日上午，粉笔（2469.HK）CEO张小龙在微博发布致向该校师生的道歉信。但该公司的股价，当天仍大幅下挫。 截至党日收盘，粉笔最新股价为0.61港元/股，下跌8.96
+截至撰稿，氧化铝期货跌幅约1.5%，领跌有色板块，空头持续离场情绪明显 基本面层面，当前氧化铝承受多重压力叠加。供应端，新产能持续放量，进口端集中到港尚未结束，整体供给增量持续涌入市场；需求端，下游电解铝厂提货节奏偏慢，去库动力不足，由此导致累库节奏存在进一步加速的可能，价格重心仍有下移空间。 在几内亚铝土矿配额政策尚未明确的空窗期内，市场预期难以有效锚定，供应端扰动变量仍处于
 
 ## 正文
 
-专题：粉笔CEO张小龙被曝在大学讲座公然使用脏话辱骂学生 股价下跌近9%，市值蒸发1.3亿港元 粉笔正主攻“AI+教育”赛道，其大量资金投入已产生一定回报，但也对其营收造成了压力。
+截至撰稿，氧化铝期货跌幅约1.5%，领跌有色板块，空头持续离场情绪明显 基本面层面，当前氧化铝承受多重压力叠加。
 
-因为此前在中国人民大学的言论，今日上午，粉笔（2469.HK）CEO张小龙在微博发布致向该校师生的道歉信。
+供应端，新产能持续放量，进口端集中到港尚未结束，整体供给增量持续涌入市场；需求端，下游电解铝厂提货节奏偏慢，去库动力不足，由此导致累库节奏存在进一步加速的可能，价格重心仍有下移空间。
 
-但该公司的股价，当天仍大幅下挫。
+在几内亚铝土矿配额政策尚未明确的空窗期内，市场预期难以有效锚定，供应端扰动变量仍处于不确定状态。
 
-截至党日收盘，粉笔最新股价为0.61港元/股，下跌8.96%。
+在政策方向明朗之前，贸然左侧布空面临预期被快速修正的风险，宜保持观望，待政策落地、市场完成预期修正后，再择机寻找做空窗口。
 
-公开资料显示，粉笔成立于2015年，是一家职业教育培训公司。
+信息来源：光大期货研究所 撰稿：姚涛 从业资格：F3082336 交易咨询资格：Z0018553 免责声明：本报告的信息均来源于公开资料，我公司对这些信息的准确性、可靠性和完整性不作任何保证，也不保证所包含的信息和建议不会发生任何变更。
 
-该公司于2023年1月在港交所上市，被称为“港股互联网职教第一股”。
+我们已力求报告内容的客观、公正，但文中的观点、结论和建议仅供参考，并不构成任何具体产品、业务的推介以及相关品种的操作依据和建议，投资者据此作出的任何投资决策自负盈亏，与本公司和作者无关。
 
-张小龙目前担任该公司执行董事、首席执行官兼董事会主席，主要负责公司整体战略规划、业务发展及运营，以及技术研发与课程开发。
+所有交易策略及方法均无法做盈利保证。
 
-AI类课程是粉笔近年来的主攻方向。
+期市有风险，交易需谨慎！
 
 ## 相关推荐
 
-- 2026-06-30 07:07 - [运20服役十周年宣传片有哪些亮点](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/epbtm.md)
-- 2026-06-30 06:58 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegun.md)
-- 2026-06-30 06:49 - [领克07GT搭载超跑同源MRC悬架](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/omrtk.md)
-- 2026-06-30 07:01 - [对最近的回应与澄清](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 06:51 - [王欣瑜：今年经历了一些起伏](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/duolin.md)
-- 2026-06-30 07:06 - [啥比桑吉尔夫排位练蓝防（最不抽象的一集）](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhuaishui.md)
-- 2026-06-30 06:59 - [巴拉圭先进球了](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hbdsj.md)
-- 2026-06-30 07:11 - [警方通报男子涉嫌诋毁袁隆平科研成果](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/psbfd.md)
-- 2026-06-30 06:42 - [真实感受到千香是积压剧了](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/mannei.md)
-- 2026-06-30 06:58 - [流金岁月](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zhuoren.md)
-- 2026-06-30 06:54 - [警方通报「东鹏特饮创始人不喝自家饮料」，造谣者被刑拘，涉及哪些法律问题？谣言为啥能让其市值蒸发70亿？](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nishu.md)
-- 2026-06-30 06:45 - [日本进球](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/frtnp.md)
-- 2026-06-30 06:53 - [你这一辈子有没有为进山姆拼过命？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/btdec.md)
+- 2026-06-30 07:02 - [高考填志愿父亲和女儿产生分歧](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jahqx.md)
+- 2026-06-30 06:48 - [考入南大计算机，复读考清北值吗？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/banglu.md)
+- 2026-06-30 06:58 - [宜宾地震造成15人受轻伤](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/qieweng.md)
+- 2026-06-30 06:59 - [曝娱乐圈大部分明星失业](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/epbto.md)
+- 2026-06-30 07:10 - [有哪些值得一提的生活窍门？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/miaoliang.md)
+- 2026-06-30 07:01 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jjdmp.md)
+- 2026-06-30 07:00 - [哈弗茨头球破门](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hswte.md)
+- 2026-06-30 07:13 - [我觉得你是在无中生友](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lhcun.md)
+- 2026-06-30 07:03 - [毕业以后，你最怀念的大学记忆是什么？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cegbu.md)
+- 2026-06-30 06:58 - [中国网友锐评韩国队外网爆火](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/wengseng.md)
+- 2026-06-30 07:00 - [王欣瑜连续4年晋级温网第二轮](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/exrdf.md)
+- 2026-06-30 07:16 - [美加墨世界杯：亚洲足球的得意与失意](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/njvvh.md)
+- 2026-06-30 07:09 - [佐野海舟远射破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/nengchong.md)
+- 2026-06-30 06:58 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/dfzex.md)
+- 2026-06-30 07:14 - [大学生遇地震裹被子从5楼冲下](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/owtvb.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:07 - [扬名立万](https://www.blog.kurohicncr.top/Article/details/34090.shtml)
-- 2026-06-30 06:42 - [《赛博朋克：边缘行者 2》｜官方预告片](https://www.blog.minike.top/Article/details/72066402.shtml)
-- 2026-06-30 07:05 - [格力遥控器里有黄金](https://www.share.kurohicncr.top/Article/details/0668121225.shtml)
-- 2026-06-30 06:48 - [警犬“多多”助民警寻回失联老人](http://www.blog.kurohicncr.top/Article/details/76100107663.shtml)
-- 2026-06-30 07:05 - [2026年世界杯48进32得跨组比小组第三不合理，得改，以后干脆扩军到64支如何？](https://www.share.kurohicncr.top/Article/details/9735979315.shtml)
-- 2026-06-30 06:46 - [AI手机进入Agent时代](http://www.share.minike.top/Article/details/746203575.shtml)
-- 2026-06-30 06:49 - [毕业以后，你最怀念的大学记忆是什么？](http://www.share.minike.top/Article/details/567702.shtml)
-- 2026-06-30 07:07 - [创新药板块能否“苦尽甘来”](http://www.share.minike.top/Article/details/14796.shtml)
-- 2026-06-30 07:10 - [亚洲球队全部告别世界杯](https://www.share.kurohicncr.top/Article/details/99132965019.shtml)
-- 2026-06-30 06:56 - [世界杯：巴西vs日本](https://www.blog.minike.top/Article/details/4321970.shtml)
-- 2026-06-30 06:44 - [新郎接亲玩石头剪刀布连胜十几次](https://www.share.kurohicncr.top/Article/details/74357719232.shtml)
-- 2026-06-30 06:53 - [法国 5 日内死亡人数飙升，医院紧急下单三万台空调，这一举措能缓解高温致死吗？欧洲需要普及空调吗？](https://www.blog.minike.top/Article/details/6643029975.shtml)
-- 2026-06-30 06:53 - [德国vs巴拉圭](http://www.blog.minike.top/Article/details/42264.shtml)
-- 2026-06-30 07:08 - [巴西补时绝杀日本](https://www.blog.minike.top/Article/details/293271.shtml)
-- 2026-06-30 07:03 - [人可以极简主义到什么程度？](https://www.blog.minike.top/Article/details/58249331460.shtml)
+- 2026-06-30 06:48 - [穆祉丞年度人气艺人](http://www.share.minike.top/Article/details/00533.shtml)
+- 2026-06-30 07:08 - [苗族银饰](https://www.blog.kurohicncr.top/Article/details/22259.shtml)
+- 2026-06-30 07:09 - [沉睡花园](https://www.share.kurohicncr.top/Article/details/95389.shtml)
+- 2026-06-30 07:11 - [田中碧失误](http://www.blog.kurohicncr.top/Article/details/6018832.shtml)
+- 2026-06-30 06:55 - [天堂制造的装备就是好，我已经感受到无敌了【我是僵尸】](http://www.blog.minike.top/Article/details/5870573.shtml)
+- 2026-06-30 07:00 - [未来五年，教育强国这样建设](https://www.blog.minike.top/Article/details/241380272184.shtml)
+- 2026-06-30 07:12 - [足球小将的剧本成真了](https://www.share.minike.top/Article/details/746086895.shtml)
+- 2026-06-30 07:02 - [日本航空自卫队改编为「航空宇宙自卫队」，日本加速太空军事化有何目的？其实力如何？](http://www.blog.kurohicncr.top/Article/details/50964909.shtml)
+- 2026-06-30 06:57 - [大货车掉落螺丝扎进骑手护目镜](https://www.blog.minike.top/Article/details/899315.shtml)
+- 2026-06-30 07:00 - [韩国队输球后连呼吸都是错的吗](https://www.blog.kurohicncr.top/Article/details/934933214.shtml)
+- 2026-06-30 07:01 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](http://www.blog.kurohicncr.top/Article/details/278751497417.shtml)
+- 2026-06-30 06:49 - [鉴定师的失败救赎](http://www.blog.minike.top/Article/details/4653783394.shtml)
+- 2026-06-30 06:59 - [终于把好哥们处成了情侣!](https://www.blog.kurohicncr.top/Article/details/00289537.shtml)
+- 2026-06-30 06:59 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://www.share.kurohicncr.top/Article/details/25298.shtml)
+- 2026-06-30 06:53 - [【大鸣王潮1566】真拿你没办法](https://www.blog.kurohicncr.top/Article/details/09453531.shtml)

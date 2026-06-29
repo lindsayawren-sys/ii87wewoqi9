@@ -1,56 +1,46 @@
-# 消息人士：日本央行考虑6月加息 并可能今年晚些时候再次加息
+# 名创优品于6月2日斥资135.4万美元回购40万股
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-据知情人士透露，日本央行官员计划在本月审议将基准利率上调25个基点，并研判年内后续存在再度加息的空间。知情人士称，在6月16日收官的议息会议上，日本央行大概率商议将政策利率提升至1%。官员认为当前实际利率仍处低位、通胀上行风险持续，后续仍有进一步加息余地。受中东局势高度不确定性拖累，央行官员将在敲定最终决议前，持续研判各项数据与资讯直至最后关头。消息人士表示，议息会议中或出现部
+名创优品发布公告，于2026年6月2日斥资135.4万美元回购40万股。责任编辑：卢昱君
 
 ## 正文
 
-据知情人士透露，日本央行官员计划在本月审议将基准利率上调25个基点，并研判年内后续存在再度加息的空间。
+名创优品发布公告，于2026年6月2日斥资135.4万美元回购40万股。
 
-知情人士称，在6月16日收官的议息会议上，日本央行大概率商议将政策利率提升至1%。
-
-官员认为当前实际利率仍处低位、通胀上行风险持续，后续仍有进一步加息余地。
-
-受中东局势高度不确定性拖累，央行官员将在敲定最终决议前，持续研判各项数据与资讯直至最后关头。
-
-消息人士表示，议息会议中或出现部分反对加息的意见，但不足以改变加息决议。
-
-本次会议另一项核心议题为日本央行缩减购债的最新方案。
-
-知情人士表示，官员倾向于自明年4月起放缓现行的债券减持节奏。
-
-责任编辑：王永生
+责任编辑：卢昱君
 
 ## 相关推荐
 
-- 2026-06-30 06:57 - [如何看待《英雄联盟》主播因为上路AD推线问题和弹幕争论被告上法庭？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/qokqn.md)
-- 2026-06-30 07:08 - [普京为何将俄乌谈判时间表与伊朗挂钩](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hidhl.md)
-- 2026-06-30 06:55 - [小时候为了能玩上游戏，你做出过哪些“辉煌”事迹？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zhashua.md)
-- 2026-06-30 07:05 - [刘宇宁胸肌腹肌全给看了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qldhf.md)
-- 2026-06-30 06:53 - [Papi酱自曝原生家庭创伤，心理学上所说的“代际创伤”是啥？真的会在普通人身上代代相传？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/rhfth.md)
-- 2026-06-30 06:49 - [终极硬筋流狂铁12.0，何为对抗路的尽头](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lemjh.md)
-- 2026-06-30 06:58 - [蜘蛛侠:平行宇宙](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/ricai.md)
-- 2026-06-30 06:57 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/jeowd.md)
-- 2026-06-30 06:47 - [存储三巨头遭遇集体诉讼](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sfoft.md)
-- 2026-06-30 06:44 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/suantu.md)
+- 2026-06-30 06:54 - [宋亚轩有啥话不憋心里全都说出来](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/rtalx.md)
+- 2026-06-30 07:14 - [ASMR 千禧年百货大楼初代柜姐给你化大头贴妆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
+- 2026-06-30 06:53 - [全网说丑的玫瑰空调卖了5万台](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jiezuo.md)
+- 2026-06-30 06:57 - [我们的少年时代2](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/fohe.md)
+- 2026-06-30 06:53 - [勇敢的心第二部](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/tpipl.md)
+- 2026-06-30 07:01 - [《赛博朋克：边缘行者 2》｜官方预告片](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/cxgxz.md)
+- 2026-06-30 07:14 - [已经看完《三国第一部：争洛阳》的人，如何评价这部电影？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uysvl.md)
+- 2026-06-30 06:57 - [勇敢的心第二部](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/kuanquan.md)
+- 2026-06-30 07:17 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/jingming.md)
+- 2026-06-30 07:03 - [如何看待武亮说大学生生活费1500就够用这一言论？](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/hidhl.md)
+- 2026-06-30 07:04 - [国内最大沙漠发洪水意味着什么](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/haijian.md)
+- 2026-06-30 06:50 - [DeepSeek启动成立来最大规模招聘](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/kaifen.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:01 - [港股科技股强势反弹](https://www.blog.minike.top/Article/details/0688988.shtml)
-- 2026-06-30 06:49 - [欧洲人高温天为啥用不了空调](http://www.share.kurohicncr.top/Article/details/05115545.shtml)
-- 2026-06-30 06:46 - ["超算小姐，这一次，我一定要带你出去..."](https://www.blog.kurohicncr.top/Article/details/8840986.shtml)
-- 2026-06-30 06:54 - [俄乌双方伤亡近180万人](http://www.blog.kurohicncr.top/Article/details/770175229326.shtml)
-- 2026-06-30 06:53 - [森保一 保守](http://www.share.kurohicncr.top/Article/details/63316250852.shtml)
-- 2026-06-30 06:48 - [科学备孕男女都要上心](http://www.blog.kurohicncr.top/Article/details/32769718558.shtml)
-- 2026-06-30 07:09 - [日本淘汰](https://www.share.kurohicncr.top/Article/details/344942889.shtml)
-- 2026-06-30 06:54 - [沉睡花园](http://www.blog.minike.top/Article/details/640298025542.shtml)
-- 2026-06-30 06:50 - [巴西补时绝杀日本](http://www.share.kurohicncr.top/Article/details/4759873.shtml)
-- 2026-06-30 06:58 - [“蓄热”住宅令英法民众难耐酷暑](http://www.blog.kurohicncr.top/Article/details/7299467.shtml)
-- 2026-06-30 07:01 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://www.blog.kurohicncr.top/Article/details/2509715754.shtml)
-- 2026-06-30 06:49 - [绘画区你赢了](http://www.share.kurohicncr.top/Article/details/890329926.shtml)
-- 2026-06-30 07:05 - [曝娱乐圈大部分明星失业](http://www.share.minike.top/Article/details/0950083552.shtml)
-- 2026-06-30 06:49 - [对话Lilwukong：被骂了三个月，我敢说 AI 才是音乐的未来](https://www.blog.kurohicncr.top/Article/details/7018526.shtml)
-- 2026-06-30 07:04 - [爱很美味](http://www.blog.minike.top/Article/details/87895646674.shtml)
+- 2026-06-30 07:05 - [巴西队称日本前锋发言傲慢，此前日本队称内马尔以及巴西状态不佳，如何看待这一发言？你认为哪方胜算更大？](https://www.share.kurohicncr.top/Article/details/647672374.shtml)
+- 2026-06-30 06:53 - [爱很美味](http://www.blog.minike.top/Article/details/411631621.shtml)
+- 2026-06-30 07:06 - [中国18岁小将再现一投夺冠](https://www.share.kurohicncr.top/Article/details/05652588.shtml)
+- 2026-06-30 07:05 - [三甲医生提醒青蛙腹是最糟糕体型](http://www.share.minike.top/Article/details/96556.shtml)
+- 2026-06-30 07:15 - [一切民族英雄都是中华民族的脊梁](https://www.share.minike.top/Article/details/43708930.shtml)
+- 2026-06-30 06:49 - [上市央企地产商 两年换了三任董事长](https://www.blog.kurohicncr.top/Article/details/8241614546.shtml)
+- 2026-06-30 07:01 - [巴西2-1绝杀日本](https://www.share.minike.top/Article/details/559244028.shtml)
+- 2026-06-30 07:11 - [姜妍走过来这段刘梅下班了](https://www.blog.minike.top/Article/details/857079083.shtml)
+- 2026-06-30 07:06 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.kurohicncr.top/Article/details/9221049.shtml)
+- 2026-06-30 07:01 - [【Reaction】女生最少的5款游戏](http://www.blog.minike.top/Article/details/8955295.shtml)
+- 2026-06-30 07:01 - [多人在马路中间打羽毛球 交警回应](https://www.blog.minike.top/Article/details/52476448968.shtml)
+- 2026-06-30 07:05 - [韩国队即将回国，韩极端网民对主帅洪明甫发出死亡威胁，警方密切监控仁川机场等地，如何看待此次韩国舆论？](http://www.blog.minike.top/Article/details/838671030349.shtml)
+- 2026-06-30 07:01 - [中国网友锐评韩国队外网爆火](https://www.blog.minike.top/Article/details/350530.shtml)
+- 2026-06-30 06:51 - [“草莓月亮”浪漫现身](http://www.blog.minike.top/Article/details/47979825705.shtml)
+- 2026-06-30 06:49 - [起风了](https://www.blog.minike.top/Article/details/12666.shtml)

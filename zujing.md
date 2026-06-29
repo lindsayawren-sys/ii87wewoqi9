@@ -1,59 +1,60 @@
-# 泰国奖励外国影视剧组在泰取景拍摄见成效
+# 商业航天IPO生死局
 
-> 更新时间：2026-06-30 07:12:02 UTC+8
+> 更新时间：2026-06-30 07:18:02 UTC+8
 
 ## 摘要
 
-中新社曼谷6月4日电 (记者 李映民)泰国旅游与体育部4日公布了“外国电影在泰拍摄激励措施”带来的成绩单：自2017年该措施实施以来，申请现金返还的外国影视剧组累计已达100个，分别来自12个国家或地区。 据介绍，在所有参与该措施的剧组中，数量排名前三的依次为：美国(54部)、中国香港(10部)、英国(9部)。 该部旅游厅厅长乍都伦表示，“外国电影在泰拍摄激励措施”推动泰国成为
+成败同框，悲喜交织。资本市场不在乎⼀次发射的成败，在乎的是企业有没有拿到IPO的门票。 作者：王雅洁 封图：东方IC 5月以来，商业航天企业IPO（首次公开发行）动作密集刷新。2026年5月14日，港交所官网披露成都国星宇航第三次递交的招股书，这家主打太空AI（人工智能）算力的公司拟冲刺港股“太空AI第一股”。 至此，据经济观察报不完全统计，商业航天领域已有超10家企业处于IP
 
 ## 正文
 
-中新社曼谷6月4日电 (记者 李映民)泰国旅游与体育部4日公布了“外国电影在泰拍摄激励措施”带来的成绩单：自2017年该措施实施以来，申请现金返还的外国影视剧组累计已达100个，分别来自12个国家或地区。
+成败同框，悲喜交织。
 
-据介绍，在所有参与该措施的剧组中，数量排名前三的依次为：美国(54部)、中国香港(10部)、英国(9部)。
+资本市场不在乎⼀次发射的成败，在乎的是企业有没有拿到IPO的门票。
 
-该部旅游厅厅长乍都伦表示，“外国电影在泰拍摄激励措施”推动泰国成为国际影视娱乐拍摄中心、吸引更多外国游客来泰，措施实施至今已为泰国带来超过200亿泰铢的总收入。
+作者：王雅洁 封图：东方IC 5月以来，商业航天企业IPO（首次公开发行）动作密集刷新。
 
-不仅如此，这些收入还实实在在地流向了泰国本地民众和相关企业，惠及影视行业、服务业和其他周边产业的超过17万从业人员。
+2026年5月14日，港交所官网披露成都国星宇航第三次递交的招股书，这家主打太空AI（人工智能）算力的公司拟冲刺港股“太空AI第一股”。
 
-这一成果有力地证明了泰国的潜力和承接全球剧组的能力。
+至此，据经济观察报不完全统计，商业航天领域已有超10家企业处于IPO进程中，从民营火箭公司星河动力、蓝箭航天，到国资背景的快舟火箭（航天科工火箭技术有限公司），涵盖火箭制造、卫星制造与应用全产业链。
 
-他说，泰国不仅有丰富多样的外景资源、顶尖的专业团队、完善的物流和配套服务，还有政府和私营部门的密切配合，让剧组在泰国的拍摄能够高效地进行。
+一名接近快舟火箭的人士对经济观察报直言：“2026年是商业航天IPO的‘生死窗口期’，错过等于出局。
 
-外国剧组来泰拍摄将继续成为拉动泰国经济、创造就业、增加收入的重要马达，同时不断地向全世界展示泰国的良好形象。
+” 为什么必须是2026？
 
-(完)
+2026年之所以成为商业航天IPO的集中爆发年，是多重时间压力叠加的结果。
 
 ## 相关推荐
 
-- 2026-06-30 06:44 - [明星大侦探第一季](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/sxeju.md)
-- 2026-06-30 06:57 - [如何看待在新款尊界S800发布之际江淮大股东大幅减持?会是什么原因？后续会有什么影响？](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/tieshen.md)
-- 2026-06-30 07:02 - [李在明向韩国两大财阀90度鞠躬](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/niangrao.md)
-- 2026-06-30 07:07 - [4种红薯的满分吃法！有手就会…但能让你大为震撼！](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/jloke.md)
-- 2026-06-30 06:53 - [运20服役十周年宣传片有哪些亮点](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/lisong.md)
-- 2026-06-30 06:57 - [日本淘汰](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/uqrrk.md)
-- 2026-06-30 07:01 - [港股科技股强势反弹](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/sqnhs.md)
-- 2026-06-30 06:54 - [“中国养猪场都用上空调了”！这是真的吗？【主播说三农】](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/zichai.md)
-- 2026-06-30 07:08 - [三甲医生提醒青蛙腹是最糟糕体型](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/jiakai.md)
-- 2026-06-30 07:04 - [主人解开狗绳2只狗将路人撕咬致死](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/shailuo.md)
-- 2026-06-30 06:56 - [杨紫获白玉兰视后争议不止](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/nstld.md)
-- 2026-06-30 06:45 - [你人生中最艰难的时候是怎么熬过来的？](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/nziul.md)
-- 2026-06-30 07:02 - [韩乔生吐槽世界杯扩军](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/langxuan.md)
+- 2026-06-30 07:14 - [恋与深空已删除锅里洗澡文案](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/kjnuh.md)
+- 2026-06-30 07:17 - [徐良演唱会伴舞把鞋子跳掉了](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/necvw.md)
+- 2026-06-30 07:13 - [UP主复刻百万英镑牛排套餐](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/idkrf.md)
+- 2026-06-30 06:51 - [巴西半场0比1日本](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/zengbai.md)
+- 2026-06-30 07:04 - [沙丘](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/ozaoe.md)
+- 2026-06-30 07:15 - [法国生态部长反对大规模安装空调](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/muzuan.md)
+- 2026-06-30 07:02 - [全球首发！核电站彩蛋！36位密码门！空气墙迷宫我们整出来啦！「三角洲S10赛季」](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/cjcnr.md)
+- 2026-06-30 07:13 - [多人在马路中间打羽毛球 交警回应](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/qiongguan.md)
+- 2026-06-30 06:51 - [日本反击率先破门](https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/gaijun.md)
+- 2026-06-30 06:54 - [中国新一轮出口管制直指日本命脉](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/zenque.md)
+- 2026-06-30 06:51 - [欧洲空调安装费用为何如此高昂](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/hdhaf.md)
+- 2026-06-30 07:04 - [这是全国最低调的黑珍珠，看门头谁能想到？—飞龙唐小馆](https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/nsvdn.md)
+- 2026-06-30 07:01 - [收受1.98亿余元 周家斌被判无期](https://github.com/lisacumin64-arch/ekzno3nz5rl/blob/main/sensuo.md)
+- 2026-06-30 06:48 - [杨紫获白玉兰视后争议不止](https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/munhv.md)
 
 ## 延伸阅读
 
-- 2026-06-30 07:05 - [刘必安等16人非法集资案二审宣判](http://www.share.minike.top/Article/details/429640914800.shtml)
-- 2026-06-30 07:07 - [未来的飞机可能会用电吗？](http://www.blog.kurohicncr.top/Article/details/4449430619.shtml)
-- 2026-06-30 07:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/309202302884.shtml)
-- 2026-06-30 07:10 - [恐龙后裔：为了保住进化论，科学界闹出了怎样的世纪笑话？](http://www.blog.kurohicncr.top/Article/details/10157164.shtml)
-- 2026-06-30 06:50 - [金刚川](https://www.blog.kurohicncr.top/Article/details/633418.shtml)
-- 2026-06-30 07:00 - [巴西绝杀](http://www.share.kurohicncr.top/Article/details/297094.shtml)
-- 2026-06-30 07:10 - [披荆斩棘的哥哥](http://www.share.minike.top/Article/details/578237.shtml)
-- 2026-06-30 06:42 - [詹姆斯下赛季去哪](http://www.blog.minike.top/Article/details/42675497407.shtml)
-- 2026-06-30 07:03 - [大货车掉落螺丝扎进骑手护目镜](https://www.share.minike.top/Article/details/09208285157.shtml)
-- 2026-06-30 07:10 - [不开心就去看三年前的购物订单](http://www.blog.minike.top/Article/details/616993064428.shtml)
-- 2026-06-30 06:58 - [阿娇瘦了10斤](http://www.share.kurohicncr.top/Article/details/63809.shtml)
-- 2026-06-30 07:06 - [有哪些值得一提的生活窍门？](https://www.blog.kurohicncr.top/Article/details/6253773069.shtml)
-- 2026-06-30 06:53 - [湖北云南这些涉汛信息都是假的](http://www.blog.minike.top/Article/details/5083603400.shtml)
-- 2026-06-30 07:07 - [明星大侦探第一季](https://www.share.minike.top/Article/details/264028.shtml)
-- 2026-06-30 06:54 - [女子常喝饮料提神 满口长“可乐牙”](https://www.share.minike.top/Article/details/0031042558.shtml)
+- 2026-06-30 07:09 - [杨紫被质疑未使用原名纯属误解](https://www.share.minike.top/Article/details/25489616.shtml)
+- 2026-06-30 07:05 - [探秘上万块的顶级八音盒！到底能有多好听?【图一乐】](http://www.blog.minike.top/Article/details/050397931.shtml)
+- 2026-06-30 06:52 - [爆冷绝无可能！惨案预定？日本足球到头了！蓝武士根本不踢不过桑巴军团！](https://www.share.kurohicncr.top/Article/details/6525304.shtml)
+- 2026-06-30 07:14 - [hanser X 赖美云《室内系的Track Maker》](http://www.blog.minike.top/Article/details/003540.shtml)
+- 2026-06-30 07:17 - [欧洲热浪已致上百人死亡，国内却遇到「凉夏」，环球为何不同凉热？](http://www.share.kurohicncr.top/Article/details/4148751527.shtml)
+- 2026-06-30 07:12 - [王楚钦谈表演球](http://www.blog.kurohicncr.top/Article/details/982881451.shtml)
+- 2026-06-30 07:08 - [这几秒成世界杯最值钱广告位](https://www.blog.minike.top/Article/details/962765865.shtml)
+- 2026-06-30 07:17 - [卡塞米罗头球破门 巴西扳平日本](https://www.share.minike.top/Article/details/030244154.shtml)
+- 2026-06-30 06:48 - [张帅时隔四年晋级温网第二轮](https://www.blog.minike.top/Article/details/267621324.shtml)
+- 2026-06-30 07:03 - [沉睡花园](http://www.share.kurohicncr.top/Article/details/250884394.shtml)
+- 2026-06-30 07:03 - [湖北云南的这些涉汛信息都是假的](https://www.blog.minike.top/Article/details/85674.shtml)
+- 2026-06-30 07:02 - [DeepSeek V4 正式版官宣 7 月中旬上线，引入峰谷定价机制，你怎么看？](https://www.blog.minike.top/Article/details/495918900.shtml)
+- 2026-06-30 07:09 - [巴西扳平比分](http://www.blog.kurohicncr.top/Article/details/91162596.shtml)
+- 2026-06-30 06:50 - [男生180+，有腹肌是什么体验？](https://www.share.minike.top/Article/details/4822175874.shtml)
+- 2026-06-30 07:02 - [相爱相杀很有戏，我的兄弟最默契](http://www.share.kurohicncr.top/Article/details/0005201988.shtml)
